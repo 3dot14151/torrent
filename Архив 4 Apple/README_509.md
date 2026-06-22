@@ -1,3 +1,56 @@
+###  Публикация: 1465974   (240217) от 28.04.2021
+
+EtreCheck Pro 6.4.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Минималистичное и очень простое в использовании приложение macOS, которое собирает важную информацию о вашей системе и помогает вам делиться ею с другими.
+Сбор важной информации о ваших аппаратных компонентах Mac, установленном программном обеспечении или запущенных процессах может оказаться довольно сложным для неопытных пользователей или трудоемким временем для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.04.2021Разработчик: Etresoft, Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAC10966043718E2FBFEA03AE462AF9F84C6A7C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466068   (240208) от 28.04.2021
+
+Name Mangler 3 v3.7.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Name Mangler — переименовываем файлы пачками. Иногда возникает потребность переименовать группу файлов, например, некоторые распространенные ОС хотят быть ближе к нашей славянской душе и при экспорте из фотоаппарата называют фотографии «Изображение1″, «Изображение2″ и т.д. Изменять имена файлов по одному хлопотно и этот процесс может занять достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.04.2021Разработчик: Many TricksПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4665F5B5F425F5CCD69FE410825494DAD694469B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466071   (240204) от 28.04.2021
 
 Pixelmator Classic 3.9.4 [Multi]
@@ -6,7 +59,7 @@ Pixelmator Classic 3.9.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240204.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Calca 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240196.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ iReal Pro 2020.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240189.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ RazorSQL 9.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240166.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ Permute 3 v3.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240155.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ GraphicConverter 11 v11.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240153.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ Dropzone 4 Pro v4.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240147.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ Acorn 7 v7.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240146.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ Smultron 12 v12.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240139.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ GraphicConverter 11 v11.6.3 Beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240137.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ GrandTotal 7 v7.0.6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240129.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ SiteSucker 5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240128.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ Vellum 3.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240127.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ EagleFiler 1.9.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240119.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ iShowU Studio 2 v2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240105.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ Reflect Studio 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240102.jpg" />
 </div>
 
 
@@ -433,7 +486,7 @@ Dash 6.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240094.jpg" />
 </div>
 
 
@@ -459,7 +512,7 @@ Debookee v8.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240088.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ Permute 3 v3.5.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240081.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ Aiseesoft Mac Video Converter Ultimate for Mac 10.3.58 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240079.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ FontBook 5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240075.jpg" />
 </div>
 
 
@@ -564,7 +617,7 @@ Exhibeo 2 v2.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240067.jpg" />
 </div>
 
 
@@ -590,7 +643,7 @@ LensFlare Studio 6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240063.jpg" />
 </div>
 
 
@@ -616,7 +669,7 @@ AnyTrans for iOS 8.8.0.20201009 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240056.jpg" />
 </div>
 
 
@@ -629,59 +682,6 @@ AnyTrans, не в пример iTunes, прост и интуитивен. Ка�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FC1E8DDAD59B300FCD10F60D00D049348CCD890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415677   (240044) от 12.10.2020
-
-PDF Checkpoint 1.9.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240044.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF Checkpoint автоматизирует рабочие процессы PDF с мощной пакетной обработкой данных: preflight, route by preflight results, экспорт в качестве изображения, split, возможность конвертировать цвета, уменьшить размер файла и многое другое. Прекрасно организованный простой и наглядный инструмент для проверки PDF перед отправкой в типографию.Тип издания: macOS SoftwareРелиз состоялся: 06.10.2020Разработчик: Zevrix SolutionsПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A57C785449F64E00EE609E5989E699B4E431BF93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563829   (240027) от 15.07.2022
-
-Metadatics 1.6.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Metadatics является мощным и продвинутым редактором аудио метаданных. Поддерживает пакетное редактирование наиболее распространенных типов аудио файлов, включая MP3, M4A, AIFF, WAV, FLAC, APE, OGG, WMA, и многие другие.
-Metadatics предоставляет возможности поиска метаданных из интернет-источников, переименование файлов на основе метаданных, или манипулировать метаданными, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.07.2022Разработчик: © 2020 Mark VerstraeteПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38173B47A124D63AD2B79F739E9C285494288913
 ```
 
 https://mybot314.ru/tekegram_catalog/

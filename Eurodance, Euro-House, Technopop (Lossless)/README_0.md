@@ -1,3 +1,61 @@
+###  Публикация: 1463485   (1020271) от 19.04.2021
+
+VA - Beat Unlimited (1994) [FLAC|Lossless|image + .cue] <Pop, Dance, Reggae-Pop, Euro-House, Euro-Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cappella - U & Me (4:12)
+02. D.J. Miko - What's Up (5:17)
+03. Wild Boyz Club - In The Navy (5:47)
+04. Beverly - The Power of Love (6:23)(   Читать дальше...   )Жанр: Reggae-Pop, Euro House, Synth-popПродолжительность: 01:08:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:583EE23B692C104F543EAD376FC2F548FE8E192A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464203   (1019929) от 21.04.2021
+
+Aqua - Greatest Hits (2009) Speciel Edition [FLAC|Lossless|WEB-DL|tracks] <Euro-House, Europop, Synthpop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back To The 80's (3:46)
+ 02. My Mamma Said (3:38)
+ 03. Live Fast - Die Young (3:03)
+ 04. Happy Boys & Girls (3:35)(   Читать дальше...   )Жанр: Euro-House, Europop, SynthpopПродолжительность: 01:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3078E613C3CCF4B51C7DF22018D120FEB3C281A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471189   (1015297) от 19.05.2021
 
 Latex - Random Love (1995) [FLAC|Lossless|tracks + .cue] <Euro House>
@@ -6,7 +64,7 @@ Latex - Random Love (1995) [FLAC|Lossless|tracks + .cue] <Euro House>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015297.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Ibiza Day & Night (2010 - 2012) 6 CD [FLAC|Lossless|tracks + .cue]<Eurodanc
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004229.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Rewind Feat. Madame Denise - Video Killed The Radio Star (1993) [FLAC|Lossless|i
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004072.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Estimado - The Escape to Heaven (2017) [FLAC|Lossless|image + .cue] <Italo-Disco
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004069.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Chyp-Notic - Nothing Compares 2 U (1990) [FLAC|Lossless|image + .cue] <Euro Hous
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004060.jpg" />
 </div>
 
 
@@ -150,7 +208,7 @@ VA - Disco Hits Exclusive Collection (1989) [FLAC|Lossless|image + .cue] <Euro-D
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003991.jpg" />
 </div>
 
 
@@ -179,7 +237,7 @@ Joy Winter - Frantic Romantic (1990) [FLAC|Lossless|image + .cue] <Hi NRG, Frees
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003763.jpg" />
 </div>
 
 
@@ -208,7 +266,7 @@ Sally Shapiro - Remix Romance Vol. 1 (2008) [FLAC|Lossless|image + .cue] <Italo-
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003760.jpg" />
 </div>
 
 
@@ -237,7 +295,7 @@ VA - The Best Of Hotsound Vol. 1 (1989) [FLAC|Lossless|image + .cue] <Italo-Disc
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003443.jpg" />
 </div>
 
 
@@ -266,7 +324,7 @@ Rashni - Baboushka (2007) [FLAC|Lossless|image + .cue] <Euro House, Trance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002937.jpg" />
 </div>
 
 
@@ -295,7 +353,7 @@ ICE MC - Cinema (2011) [FLAC|Lossless|image + .cue] <Hip-House, Pop Rap>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001893.jpg" />
 </div>
 
 
@@ -324,7 +382,7 @@ One-eyed Jacks - Falling (1991) [FLAC|Lossless|image + .cue] <Breaks, Ambient>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001302.jpg" />
 </div>
 
 
@@ -352,7 +410,7 @@ Pin-occhio - Pinocchio Vai !! (1993) Digital Dig-it, 2012 [FLAC|Lossless|WEB-DL|
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001275.jpg" />
 </div>
 
 
@@ -381,7 +439,7 @@ Guesch Patti - 3 альбома & 2 сингл (1992-2000) [APE|Lossless]<Pop, P
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000183.jpg" />
 </div>
 
 
@@ -416,7 +474,7 @@ Stockholm Underground  - Gimme Gimme Gimme & Summer Night City (1992) [FLAC|Loss
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984858.jpg" />
 </div>
 
 
@@ -445,7 +503,7 @@ Haddaway - 2 Albums (1993,1995)  /BMG Victor,Inc. Japan/ [FLAC|Lossless]<Eurodan
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982407.jpg" />
 </div>
 
 
@@ -480,7 +538,7 @@ Partyfloor Featuring MC Polt - Immer Bum Bum (1996) [FLAC|Lossless|image + .cue]
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982279.jpg" />
 </div>
 
 
@@ -509,7 +567,7 @@ Bobby Summer - 2 Albums (1999,2002) /Avex Inc. Japan/ [FLAC|Lossless]<Euro House
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981400.jpg" />
 </div>
 
 
@@ -544,7 +602,7 @@ O-Zone - DiscO-Zone (2005) /Avex Trax, Japan/ [FLAC|Lossless]<Europop, Euro-Hous
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977225.jpg" />
 </div>
 
 
@@ -579,7 +637,7 @@ Talking System - In My Backstreet Heaven (2008) / 2009 [WavPack|Lossless]<Pop, S
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973633.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ Masterboy - Коллекция (7 Альбомов, 27 Синглов) (1990-200
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971974.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ VA - Divas of Dance, Vol. 4 (2004) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967710.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ Pandora - This Could Be Heaven (1997) [APE|Lossless|image+.cue] <Euro House>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964475.jpg" />
 </div>
 
 
@@ -701,7 +759,7 @@ Video Kids - The Invasion Of The Spacepeckers (1984) 2009, Break Records [APE|Lo
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950340.jpg" />
 </div>
 
 
@@ -715,64 +773,6 @@ Video Kids - The Invasion Of The Spacepeckers (1984) 2009, Break Records [APE|Lo
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 277611   (948700) от 11.01.2011
-
-Ace Of Base - 37 альбомов (1993-2010) [FLAC|Lossless]<Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа «Ace of Base» основана была в Швеции в начале 90-х годов. Ее родоначальниками считаются Йонас Берггрен и Ульф Экберг, которые стали пробовать свои силы в музыке, первоначально работая в стиле техно. Название коллектив менял несколько раз, пока не появилось самое удачное, под которым коллектив и добился мировой известности.Albums
-1993 - Happy Nation
-1993 - Happy Nation (U.S. Version)
-1993 - The Sign(   Читать дальше...   )Жанр: EurodanceПродолжительность: 19:37:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362701   (948123) от 24.02.2020
-
-Wolfram - Wolfram (2011) [FLAC|Lossless|tracks + .cue] <Electropop, Euro-House, Disco>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolfram feat. Holy Ghost! - Hold My Breath (4:02)
-02. Wolfram feat. Hercules & Love Affair - Fireworks (4:14)
-03. Wolfram feat. Paul Parker - Out of Control (3:40)
-04. Wolfram - Roshi (5:03)(   Читать дальше...   )Жанр: Electropop, Euro-House, DiscoПродолжительность: 00:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6495B5DAF450F5EC5170AA1883BA870514505376
 ```
 
 https://mybot314.ru/tekegram_catalog/

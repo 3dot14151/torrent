@@ -1,3 +1,29 @@
+###  Публикация: 1856375   (1058903) от 28.02.2026
+
+BBC: История Вселенной / Our Universe (2022) WEB-DLRip [AV1/2160p] [4K, HDR10, 10-bit] (сезон 1, серии 1-6 из 6) Студия-2А
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Насколько большая наша Вселенная? Есть ли жизнь на других планетах? Какие тайны хранят в себе космические просторы? Этими вопросами человечество задаётся уже много столетий, но найти точные ответы на них невозможно. Приоткрыть занавес над тайнами космоса помогут лучшие фильмы про вселенную, снятые в художественном и документальном жанре. Конечно, в художественном (   Читать дальше...   )Производство: США, BBC StudiosЖанр: документальныйРежиссер: Наоми Остин, Стивен Кутер, Элис ДжонсУчастники: Морган ФриманПеревод: Дублированный (Студия-2А)Язык озвучки: РусскийСубтитры: Русские (forced)Продолжительность: ~00:44:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:444DD216A6E781B02018B1EE14253F6AD297933A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856410   (1058853) от 28.02.2026
 
 NG. Намибия - убежище гигантов / Namibia: Sanctuary of Giants (2016) WEB-DL [H.264/1080p]
@@ -6,7 +32,7 @@ NG. Намибия - убежище гигантов / Namibia: Sanctuary of Gia
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058853.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057843.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ BBC. Снежные медведи / Snow Bears (2017) WEB-DL [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057690.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056630.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ NG. Титаник: цифровое воскрешение / Titanic: The Digit
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055954.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ NG. Королевство обезьян: линии фронта / Kingdom of 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055484.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ NG. Гепарды: лицом к лицу с Берти Грегори / Cheeta
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052942.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ NG. Гепарды: лицом к лицу с Берти Грегори / Cheeta
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052936.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ NG: Дикие леса Австралии / Australia's Wild Woodlands (2025) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052150.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ NG. Незабываемые дорожные приключения Криса 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051867.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ NG. Незабываемые дорожные приключения Криса 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051861.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050480.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ NG: Чудища морей: Доисторическое Приключение
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050282.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ NG. Дикая природа Центральной Америки / Wild Centr
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049941.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Discovery: Сражение динозавров / Clash of the dinosaurs (2009)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049920.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049876.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048659.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047753.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ NG. Тайны бычьей акулы / Secrets of the Bull Shark (2020) WEB-DL
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047621.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ PBS Nature: Сокровище Карибского моря / Treasure of the C
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047150.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ NG: Планета рептилий / Planet Reptile (2025) HDTVRip [H.264/720p-
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046846.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ NG. Дикий Вьетнам / Wild Vietnam (2024) WEB-DL [H.265/2160p] [4K, SD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046779.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ NG. Дикий Вьетнам / Wild Vietnam (2024) WEB-DL [H.264/1080p] (сер
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046778.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ PBS Nova: Загадка пустыни Наска / Nazca Desert Mystery (2022)
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046702.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ NG. Акулий рай / Shark Eden (2010) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046693.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ NG. Акулий рай / Shark Eden (2010) WEB-DL [H.264/1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C66E47F7F5BDC461E9D8F9CDF3DB82EF64DE4FCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 654894   (1043763) от 28.01.2023
-
-Как это работает? + Как делают спортинвентарь?  / How it's made? + How sports are made? (2001-2013) [Сезон 1-13 из 13] TVRip [H.264]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам интересно, как делают привычные, обыденные вещи? Discovery Channel представляет новые серии фильма "Как это работает", который приглашает зрителей за кулисы производства самых обычных предметов начиная с хоккейных шайб и ручных пил и кончая буровыми долотами и замороженной картошкой фри. Передача " Как это работает" показывает, как делают (   Читать дальше...   )Жанр: Семейный, Научно-популярныйПеревод: Одноголосый закадровый (профессиональный)Продолжительность: (247+8 серий) x ~00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AFB5804F6163DAEB7F4A3569CCB1EB97456E4A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

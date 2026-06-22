@@ -1,3 +1,31 @@
+###  Публикация: 504172   (760734) от 17.05.2016
+
+Цветение сакуры - Весна в Японии / V-music: Sakura Ranman - Spring in Japan (2007) Blu-Ray [1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ханами - сезон в марте и апреле, которое является для многих японцев лучшим временем года.
+В это время, когда по всей Японии все вишни зацветают, люди специально приходят и приезжают, чтобы посмотреть на это чудо. Само название месяца "ханами" в переводе с японского означает "хана ми" ("смотреть цветок").
+Вы также сможете увидеть цветение (   Читать дальше...   )Жанр: ВидовойПеревод: Не требуется (нет диалогов и комментариев)Продолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFEE698A00AAD2641912BDD89A4F1BB319B3DD5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 661820   (760400) от 28.05.2013
 
 Видео-приложение к журналу "Рыбачьте с нами". Выпуск №46. Июнь 2013 [DVD5, RUS] (2013) DVD5
@@ -6,7 +34,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760400.jpg" />
 </div>
 
 
@@ -39,7 +67,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760239.jpg" />
 </div>
 
 
@@ -65,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760098.jpg" />
 </div>
 
 
@@ -94,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759988.jpg" />
 </div>
 
 
@@ -123,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759985.jpg" />
 </div>
 
 
@@ -152,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759976.jpg" />
 </div>
 
 
@@ -181,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759973.jpg" />
 </div>
 
 
@@ -210,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759967.jpg" />
 </div>
 
 
@@ -239,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759952.jpg" />
 </div>
 
 
@@ -268,7 +296,7 @@ BBC: От полюса до полюса c Майклом Пэйлином / BBC
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759791.jpg" />
 </div>
 
 
@@ -294,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759385.jpg" />
 </div>
 
 
@@ -323,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759384.jpg" />
 </div>
 
 
@@ -352,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759383.jpg" />
 </div>
 
 
@@ -381,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759382.jpg" />
 </div>
 
 
@@ -407,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759380.jpg" />
 </div>
 
 
@@ -436,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759379.jpg" />
 </div>
 
 
@@ -465,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759377.jpg" />
 </div>
 
 
@@ -494,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759290.jpg" />
 </div>
 
 
@@ -523,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759284.jpg" />
 </div>
 
 
@@ -552,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758737.jpg" />
 </div>
 
 
@@ -579,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758736.jpg" />
 </div>
 
 
@@ -608,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758734.jpg" />
 </div>
 
 
@@ -637,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758733.jpg" />
 </div>
 
 
@@ -666,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758731.jpg" />
 </div>
 
 
@@ -695,7 +723,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758552.jpg" />
 </div>
 
 
@@ -706,32 +734,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88BD4C47F8FE796C7DCF273BD6C98F218282A482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 662392   (758547) от 29.05.2013
-
-Рестлинг / WWE Friday Night Smackdown 24.05.2013 (Русская версия от 545TV) (2013) HDTVRip [H.264]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758547.jpg" />
-</div>
-
-
-###  Подробнее
-
-718-й выпуск Friday Night SmackDown!Жанр: СпортПеревод: Двуголосый закадровый, любительскийПродолжительность: 01:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7917C772F02E1317D4D4E8404F39EB5B8DEEFB1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

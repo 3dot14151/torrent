@@ -1,3 +1,59 @@
+###  Публикация: 1677632   (150555) от 18.11.2023
+
+Бернард Шоу | Деревенское сватовство (Радиоспектакль) (2018) [MP3, Валентин Гафт, Елена Королёва]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Из архива «Гостелерадиофонда».
+Радиоспектакль по одноимённой пьесе Джордж Бернард Шоу (1856–1950).
+Общение, начавшееся на отдыхе – лёгкий флирт и болтовня, не исключающая игру ума, перерастает в нечто большее, даже если Он – «литератор и джентльмен», а Она – «скромная сельская девушка, впрочем оказавшаяся не такой уж простушкой...
+Отточенное действие, великолепные (   Читать дальше...   )Жанр: Зарубежная литература, классика, пьеса, комедияИздательство: ГостелерадиофондПродолжительность: 00:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5664C5E14E4E9F7690C41695A93F2BA26355E2DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677614   (150548) от 18.11.2023
+
+Бернард Шоу | Пигмалион (Аудиоспектакль) (2007) [MP3, Константин Зубов, Евгений Велихов, Евдокия Турчанинова и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Из архива «Гостелерадиофонда».
+Действие пьесы начинается летним вечером на площади Ковент Гарден в Лондоне. Внезапно хлынувший проливной дождь, захвативший врасплох пешеходов, заставил их укрыться под порталом собора Св. Павла. Среди собравшихся профессор фонетики Генри Хиггинс и исследователь индийских наречий полковник Пиккеринг, специально приехавший из (   Читать дальше...   )Жанр: Зарубежная литература, классика, пьеса, комедияИздательство: ИДДК, ГостелерадиофондПродолжительность: 01:29:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C3327E5D9C2C517A83355F5B32E06EC6564A2E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 302084   (150129) от 18.11.2023
 
 Бернард Шоу | Чудесная месть (2007) [MP3, Борис Ушеренко]
@@ -6,7 +62,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150129.jpg" />
 </div>
 
 
@@ -34,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149975.jpg" />
 </div>
 
 
@@ -62,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148552.jpg" />
 </div>
 
 
@@ -88,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148311.jpg" />
 </div>
 
 
@@ -114,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147821.jpg" />
 </div>
 
 
@@ -142,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147506.jpg" />
 </div>
 
 
@@ -168,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146665.jpg" />
 </div>
 
 
@@ -195,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146118.jpg" />
 </div>
 
 
@@ -221,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145990.jpg" />
 </div>
 
 
@@ -247,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145922.jpg" />
 </div>
 
 
@@ -274,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145778.jpg" />
 </div>
 
 
@@ -301,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145513.jpg" />
 </div>
 
 
@@ -327,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145135.jpg" />
 </div>
 
 
@@ -353,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145113.jpg" />
 </div>
 
 
@@ -381,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145074.jpg" />
 </div>
 
 
@@ -408,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145054.jpg" />
 </div>
 
 
@@ -434,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145036.jpg" />
 </div>
 
 
@@ -460,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144972.jpg" />
 </div>
 
 
@@ -487,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144964.jpg" />
 </div>
 
 
@@ -515,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144952.jpg" />
 </div>
 
 
@@ -542,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144903.jpg" />
 </div>
 
 
@@ -568,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144896.jpg" />
 </div>
 
 
@@ -594,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144887.jpg" />
 </div>
 
 
@@ -622,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144839.jpg" />
 </div>
 
 
@@ -634,60 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1C6D87AE7CAD939302A88C6E5A90EB83895A771
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 386632   (144717) от 21.11.2023
-
-Стефан Цвейг | Амок (2009) [MP3, Михаил Гульдан]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новелла «Амок» впервые вышедшая в 1922 году, была первым крупным прозаическим произведением австрийского писателя Стефана Цвейга. Главный герой – врач, живущий в отдаленной тропической деревушке. Внезапно он открывает в себе безудержную страсть к строгой, холодной женщине. В состоянии одержимости, которую герой постоянно сравнивает с распространенным в тех местах (   Читать дальше...   )Жанр: Зарубежная литература, классика, новеллаИздательство: Терра-Книжный клубПродолжительность: 02:05:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E333DDFFB56D8C4648FF23CB82BED1CB5D3CCE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 335237   (144656) от 21.11.2023
-
-Джордж Байрон, Стефан Цвейг | Паломничество Чайльд-Гарольда. Тайна Байрона (2005) [MP3, Владимир Самойлов, Ольга Вяликова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: «Литературные чтения».
-Джорджу Гордону Байрону (1788-1824) исполнилось 24 года, когда была опубликована поэма «Паломничество Чайльд-Гарольда» …и не было сочинения в этом или прошлом столетии, которое произвело бы на публику большее впечатление…
-Те, кто, «соперника страшась», столь строго осуждали его юношеские опыты, первыми проявили теплое, искреннее внимание (   Читать дальше...   )Жанр: Классика, поэзия, новеллаИздательство: Студия «АРДИС»Продолжительность: 06:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E3F82245A93674D30E5305C800FF7495D40759
 ```
 
 https://mybot314.ru/tekegram_catalog/

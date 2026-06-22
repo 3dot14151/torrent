@@ -1,3 +1,55 @@
+###  Публикация: 1241005   (739437) от 17.02.2019
+
+Easy Poser v1.3.20 Mod [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Easy Poser – это приложение, которое сумеет реалистично воссоздать любую позу, свойственную человеку. Вам обязательно пригодится полезный инструмент, если вы учитесь рисовать или пробуете себя в искусстве графического дизайна. При всей своей простоте и лёгкости, программа на Андроид поддерживает достаточно качественный режим 3D. Если раньше художники использовали (   Читать дальше...   )Тип издания: Пиратка (разблокирован контент)Релиз состоялся: 16.02.2019Разработчик: Madcat GamesПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37A7AEB6E784759EB09E83104BF32237FCD53802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526012   (739040) от 22.01.2022
+
+USSDDualWidgetPro v1.0.31 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виджет баланса через USSD-запросы и СМС с возможностью парсинга и автоматического обновления. Возможность обработки Push-уведомлений. Есть поддержка двухсимочных смартфонов. Незаметные USSD-запросы на смартфонах с root.Тип издания: Пиратка (Paid)Релиз состоялся: 27 октября 2020 г.Разработчик: mdnПоддерживаемая ОС: Android 2.2+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37611EA8423C2EC51116EF45B85A5E434C5590CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525791   (739032) от 22.01.2022
 
 nzb360 - Sonarr / Radarr / SAB / Torrents and more v15.2 [En]
@@ -6,7 +58,7 @@ nzb360 - Sonarr / Radarr / SAB / Torrents and more v15.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739032.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ GuitarTab - Tabs and chords v3.8.7 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738748.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737761.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ MotoScan для BMW мотоциклов v1.83 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737343.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ AlfaOBD v2.2.5.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737292.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ bimmer-tool expert v3.2.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736885.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ TorrServe v1.1.83_4/ v1.1.76_9 (клиент+сервер) [Ru] (обновля�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736491.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ KitchenTimer v4.5.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735832.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735618.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735122.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ Harmony v4.0 [Ru/Multi] - расслабляющие мелодии (обнов�
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734728.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ Space Pinball: Ретро пинбол v1.1.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733934.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ Circle Cutter v1.4.5 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732915.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ Librain v1.1.11 [Ru/Multi] - развитие памяти и внимания (
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732863.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ Mind Diary Journal / Дневник для самоанализа и самор�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732640.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ Princess coloring book v2.6.5 [En/Ru]
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732501.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ Animal Coloring Book v2.6.5 [En/Ru]
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732475.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732392.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ Lanos (Daewoo/ZAZ/Chevrolet) v1.0.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731744.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731623.jpg" />
 </div>
 
 
@@ -539,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731603.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ Music Theory Companion v2.6.3 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730660.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729568.jpg" />
 </div>
 
 
@@ -618,7 +670,7 @@ Bluetooth Scanner v1.2.2 [Ru] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729567.jpg" />
 </div>
 
 
@@ -630,63 +682,6 @@ Bluetooth Scanner v1.2.2 [Ru] (обновляемая)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6494E9D2A08350D2A3261001513250E1B49597A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981106   (729362) от 23.04.2017
-
-Snapseed 2.17.0.150426010 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фоторедактор, завоевавший множество сердец пользователей iOS теперь доступен и на Android c версии 4.0+
-Теперь лучшее приложение по обработке фотографий выставки TIPA и IPad App 2011 доступно и на Android!
-Snapseed является единственным приложением, которое вы будете желать использовать каждый день. Вы сможете высококачественно обрабатывать ваши фотографии парой (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 23.04.17Разработчик: Google Inc.Поддерживаемая ОС: Android 4.1 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C304B50A11D10A597C9A2C412D6ED67E757CAD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 858735   (729208) от 23.04.2017
-
-My Android Tools Pro 1.3.7.2  [Rus]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение от разработчика небезызвестной - Disable service.
-В этом приложении автор пошёл дальше, и добавил возможность для манипуляций кроме сервисов ещё и activity, receiver, provider.
-Также добавил отображение запущенных процессов и выполняемых задач, просмотр uid приложений, бекап отключённых компонентов, отключение/включение апк целиком.
-В приложение встроен (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 23.04.17Разработчик: WangQiПоддерживаемая ОС: Android 2.3  +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92724377B303705B7B4817060684DDF9CBF14D93
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1461005   (1010424) от 18.06.2021
+
+Shakunetsu Kabaddi | Burning Kabaddi | Пламенное кабадди [2021, TV, 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тацуя Ёигоси — бывшая звезда футбола средних школ, ныне решивший порвать со спортом окончательно. Никакой командный спорт, а тем более футбол, ему неинтересны, и даже наоборот, вызывают отвращение. Но тут в его жизнь старшеклассника врывается непонятный, чудаковатый, но при этом интересный и захватывающий спорт — кабадди!Производство: Студия TMS Entertainment / トムス・エンタテインメントЖанр: спортРежиссер: Итикава КадзуяПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A4B7070097438DA25839E9098195B28C1719135
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459727   (1010387) от 18.06.2021
 
 Mashiro no Oto | Those Snow White Notes | Чистый звук [2021, TV, 12 эп.] WEBRip 720p raw
@@ -6,7 +32,7 @@ Mashiro no Oto | Those Snow White Notes | Чистый звук [2021, TV, 12 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010387.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Uchuu Enban Dai-Sensou | The Great Battle of the Flying Saucers | Великая
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010333.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Kore ga UFO da! Soratobu Enban | That is an UFO! The Flying Saucer | Это НЛ
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010305.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Gekijouban Fate/Grand Order: Shinsei Entaku Ryouiki Camelot Zenpen - Wandering; 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010286.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Back Arrow | Бэк Арроу [2021, TV, 24 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010234.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Devilman: Crybaby | Devilman Crybaby | Человек-дьявол: Плач [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010165.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Seven Knights Revolution: Eiyuu no Keishousha | Революция Семи ры
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010069.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Yakunara Mug Cup mo / Let's Make a Mug Too / Давайте тоже сдела�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009905.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Tensura Nikki: Tensei Shitara Slime Datta Ken | The Slime Diaries: That Time I G
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009753.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ SSSS.Dynazenon | Диназенон [2021, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009612.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Yowamushi Pedal: Glory Line | Трусливый велосипедист [ТВ-
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009574.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ UFO Robo Grendizer tai Great Mazinger | UFO Robo Grandizer vs. Great Mazinger | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009543.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ Fairy Ranmaru: Anata no Kokoro Otasuke Shimasu | Феи Ранмару: Мы с�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009510.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ Bakuten!! | Backflip!! | Сальто назад! [2021, TV, 12 эп.] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009507.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Dragon, Ie o Kau. | Dragon Goes House-Hunting | Дракон в поисках �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009500.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Yowamushi Pedal: New Generation | Трусливый велосипедист [�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009449.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ On-Gaku: Our Sound | Ongaku | Музыка [2020, Movie] BDRip 1080p HEVC 10-bit
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009438.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ Godzilla: Singular Point | Годзилла: Точка сингулярност
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009409.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ Zombie Land Saga Revenge | Зомбиленд. Сага [ТВ-2] [2021, TV, 12 �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009373.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Kengan Ashura | Кэнган Асура [2019, Web, 24 эп.] BDRip 1080p HEVC 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009263.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Subarashiki Kono Sekai the Animation | The World Ends with You the Animation | �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009241.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ Slime Taoshite 300-nen, Shiranai Uchi ni Level Max ni Nattemashita / Убива�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009209.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ Yuukoku no Moriarty (2021) | Moriarty the Patriot 2 | Патриотизм Мо�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008905.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Hataraku Saibou!! | Клетки за работой! [ТВ-2] [2021, TV, 8 эп
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008711.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ Bishounen Tanteidan | Pretty Boy Detective Club | Клуб детективов-
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008645.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ Bishounen Tanteidan | Pretty Boy Detective Club | Клуб детективов-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB277ECB916AE586E355AC21569D79C0995297A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465146   (1008519) от 01.07.2021
-
-Nomad: Megalo Box 2 | Megalobox: Nomad | Мегалобокс [ТВ-2] [2021, TV, 13 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008519.jpg" />
-</div>
-
-
-###  Подробнее
-
-В конце концов, «Безредукторный» Джо стал чемпионом Мегалонии, первого в истории турнира по мегалобоксу. Поклонники повсюду были очарованы стремительным взлетом Джо, который прыгнул с самого глубокого подземного кольца на вершину всего за три месяца и без использования оборудования. Семь лет спустя «Безредукторный» Джо снова сражался в подпольных матчах. Украшенный (   Читать дальше...   )Производство: Студия TMS Entertainment / トムス・エンタテインメントЖанр: приключения, спортРежиссер: Морияма ЁПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC104E5FAAC701281B5F6E5D97908CF22EDF0380
 ```
 
 https://mybot314.ru/tekegram_catalog/

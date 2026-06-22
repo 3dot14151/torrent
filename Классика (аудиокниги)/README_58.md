@@ -1,3 +1,59 @@
+###  Публикация: 1684037   (128094) от 13.12.2023
+
+Томас Майн Рид | Пропавшая гора (2023) [MP3, Александр Бордуков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Томас Майн Рид (1818–1883) – английский  писатель, автор приключенческих романов и произведений для детей и юношества, часть из которых была опубликована под псевдонимом Капитан Майн Рид.
+Томас Майн Рид прославился как автор увлекательных приключенческих романов «Белый вождь», «Оцеола, вождь семинолов», «Всадник без головы». Лучшие его книги, выходя за рамки приключенческой (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключения, романИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 05:19:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9357ECE0CA0791A51172197314B9D4EBC8451C12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683880   (128092) от 13.12.2023
+
+Михаил Лермонтов | Герой нашего времени (2003) [MP3, Юрий Заборовский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Русская классика.
+Михаил Юрьевич Лермонтов (1814–1841) – великий русский поэт и прозаик, один из самых значимых представителей русской литературы ХIХ века.
+Потомок выходца из Шотландии Георга Лермонта, взятого в плен при осаде крепости Белой в начале XVII в.
+В творчестве М.Ю. Лермонтова, как раннем, так и более зрелом, преобладают темы лирического и философского (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Студия «АРДИС»Продолжительность: 07:27:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:412DB937CD2F36A3E50DED67F26623BF89389B81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683886   (128090) от 13.12.2023
 
 Михаил Лермонтов | Избранные произведения (2005) [MP3, Николай Мартон]
@@ -6,7 +62,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128090.jpg" />
 </div>
 
 
@@ -34,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127929.jpg" />
 </div>
 
 
@@ -62,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127914.jpg" />
 </div>
 
 
@@ -89,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127909.jpg" />
 </div>
 
 
@@ -117,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127906.jpg" />
 </div>
 
 
@@ -144,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127899.jpg" />
 </div>
 
 
@@ -173,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127796.jpg" />
 </div>
 
 
@@ -201,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127791.jpg" />
 </div>
 
 
@@ -229,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127788.jpg" />
 </div>
 
 
@@ -256,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127738.jpg" />
 </div>
 
 
@@ -283,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127735.jpg" />
 </div>
 
 
@@ -311,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127732.jpg" />
 </div>
 
 
@@ -338,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127712.jpg" />
 </div>
 
 
@@ -366,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127711.jpg" />
 </div>
 
 
@@ -393,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127710.jpg" />
 </div>
 
 
@@ -420,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127493.jpg" />
 </div>
 
 
@@ -448,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127487.jpg" />
 </div>
 
 
@@ -475,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127480.jpg" />
 </div>
 
 
@@ -502,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127367.jpg" />
 </div>
 
 
@@ -530,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127318.jpg" />
 </div>
 
 
@@ -557,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127158.jpg" />
 </div>
 
 
@@ -583,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127150.jpg" />
 </div>
 
 
@@ -610,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127149.jpg" />
 </div>
 
 
@@ -638,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127052.jpg" />
 </div>
 
 
@@ -651,59 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBB7465AA60815E6A4A4EC7F30F59DC0056EF17E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685664   (127050) от 19.12.2023
-
-Вальтер Скотт | Айвенго (2006) [MP3, Владимир Рыбальченко]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из популярнейших романов Вальтера Скотта (1771–1832)  «Айвенго» (1819) повествует об увлекательных и героических событиях из жизни средневековой Англии. Писатель обращается к важному историческому моменту, когда король Ричард Львиное Сердце возвращается в Англию после Крестовых походов и пребывания в плену. Страна раздираема конфликтами между саксами и норманнами, (   Читать дальше...   )Жанр: Зарубежная литература, классика, исторический романИздательство: БиблиофоникаПродолжительность: 19:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B26AD6D3292471F08593952C153FB47847CBE3FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685672   (127048) от 19.12.2023
-
-Вальтер Скотт | Талисман, или Ричард Львиное Сердце в Палестине (2012) [MP3, Вадим Максимов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Зарубежная классика.
-«Талисман, или Ричард Львиное Сердце в Палестине» – исторический роман Вальтера Скотта, посвященный событиям Третьего крестового похода. Сложные взаимоотношения короля Англии Ричарда Львиное Сердце и предводителя арабов султана Саладина, любовь бедного шотландского рыцаря Кеннета и дамы его сердца леди Эдит и таинственный талисман (   Читать дальше...   )Жанр: Зарубежная литература, классика, исторический романИздательство: Студия «АРДИС»Продолжительность: 15:27:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC86CDC2DF78EB6639C095EFAAD15CD8BA50705
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 135664   (981009) от 14.01.2012
+
+Коля - Перекати Поле (2005) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта комедийная мелодрама является продолжением известного во всем мире фильма режиссера Николая Досталя "Облако-рай"!
+В новом фильме рассказана история про тех же героев. Время действия - наши дни, место действия - небольшой провинциальный городок, затерявшийся на просторах России. Когда-то случайно брошенная при свидетелях фраза заставила Колю оставить (   Читать дальше...   )Жанр: КомедияРежиссер: Николай ДостальАктеры: Андрей Жигалов Ирина Розанова Алла Клюка Сергей БаталовПродолжительность: 01:34:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 614031   (980865) от 05.02.2013
+
+Настоящая любовь (2012) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Состоятельный адвокат Андрей и начинающая журналистка Лена - каждый по-своему несчастлив в личной жизни. Разведенный Андрей инкогнито ищет настоящую любовь, переодеваясь в нищего, потому что убежден: деньги портят чувства. А Лена тем временем полностью разочаровалась в мужчинах. Теперь ее цель – получить хорошую работу в газете, и в поисках сенсации она решает вывести на чистую воду брачных аферистов. Но, как говорится, любовь нечаянно нагрянет …Жанр: КомедияРежиссер: Сергей ПоповПродюсер: Юрий Сапронов, Андрей СмирновАктеры: Кристина Асмус, Илья Носков, Ольга Тумайкина, Анна Ардова, Анна Уколова, Дарья Чаруша, Алексей Гришин, Виталий Хаев, Тимофей Трибунцев, Артур Ваха, Елена Галибина, Марина Барсукова, Евгений Дремин, Эвелина ВаулинаПеревод: Не требуется (Русский)Продолжительность: 01:35:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BA208B471C505070883E9A2705D1AB208DD2F3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 614065   (980466) от 05.02.2013
 
 Дублёр (2012) BDRip
@@ -6,7 +59,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980466.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980448.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980351.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979884.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979875.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979806.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979448.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979400.jpg" />
 </div>
 
 
@@ -214,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978260.jpg" />
 </div>
 
 
@@ -240,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977492.jpg" />
 </div>
 
 
@@ -266,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977344.jpg" />
 </div>
 
 
@@ -286,6 +339,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 201151   (976547) от 07.01.2014
+
+Ленинград / Leningrad (2009) ВDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_976547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зима 1941-го. С неба безостановочно сыплются бомбы, превращая дома в руины, а выживших, оставшихся без крова мерзнущих людей душит голод. Гитлер убежден, что блокада превратит ленинградцев в стадо диких зверей, рвущих друг у друга куски пищи. Но ленинградцы остаются людьми.
+В фильме две героини: Нина Цветкова и Кейт Дэвис. Одна — ленинградка, милиционерша, «рабочая (   Читать дальше...   )Жанр: Драма, ВоенныйРежиссер: Александр БуравскийАктеры: Мира Сорвино, Армин Мюллер-Шталь, Ольга Сутулова, Алена Стебунова, Михаил Ефремов, Александр Абдулов, Владимир Ильин, Луиза Мосендз, Александр Филиппенко, Сергей КолтаковСубтитры: Английские (вшиты на русскую и немецкую речь) + Русские субтитры на английскую речь (внешние srt*)Продолжительность: 01:50:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 743072   (976438) от 07.01.2014
 
 Хочу замуж (2014) SATRip [2 серии из 2]
@@ -294,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976438.jpg" />
 </div>
 
 
@@ -320,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976314.jpg" />
 </div>
 
 
@@ -348,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976238.jpg" />
 </div>
 
 
@@ -374,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975313.jpg" />
 </div>
 
 
@@ -400,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974456.jpg" />
 </div>
 
 
@@ -426,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974439.jpg" />
 </div>
 
 
@@ -454,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973955.jpg" />
 </div>
 
 
@@ -480,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973674.jpg" />
 </div>
 
 
@@ -510,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973448.jpg" />
 </div>
 
 
@@ -536,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973029.jpg" />
 </div>
 
 
@@ -562,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972934.jpg" />
 </div>
 
 
@@ -588,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972790.jpg" />
 </div>
 
 
@@ -599,84 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D6074AED1FB9DEC9839830250CD24E5C0B01038
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357451   (972774) от 04.02.2020
-
-Дылда /  (2019) WEB-DLRip [H.265] [10-bit]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972774.jpg" />
-</div>
-
-
-###  Подробнее
-
-История двух молодых женщин-фронтовичек, которые возвращаются в послевоенный Ленинград и пытаются обрести новую мирную жизнь, когда и вокруг, и главное, внутри них — руины.Производство: Россия / Нон-стоп ПродакшнЖанр: Драма, военныйРежиссер: Кантемир БалаговАктеры: Виктория Мирошниченко, Василиса Перелыгина, Андрей Быков, Игорь Широков, Константин Балакирев, Ксения Кутепова, Ольга Драгунова, Тимофей Глазков, Филипп ЖлобаПеревод: Не требуетсяСубтитры: НетПродолжительность: 02:17:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BA7AABCBD3F58FA27BC7DBEB5DAA5F6C34F68FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357449   (972730) от 04.02.2020
-
-Девушки бывают разные (2019) WEB-DLRip [H.265] [10-bit]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история о трёх друзьях, решивших покататься на серфе в Мексике. Все как полагается: океан, девушки и золотой песок. История не предвещает неожиданностей. Но не для наших героев, которые первым делом как следует отметили свой приезд. С трудом проснувшись наутро, парни обнаруживают себя посреди пляжа, они в замешательстве — не помнят, что же произошло накануне. (   Читать дальше...   )Производство: Россия / Продюсерская компания "Фетисов Иллюзион"Жанр: КомедияРежиссер: Сарик АндреасянАктеры: Дмитрий Нагиев, Роман Попов, Артем Сучков, Дмитрий Власкин, Владимир Яглыч, Зоя Бербер, Елизавета Моряк, Алена Чехова, Сергей БелоголовцевПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:29:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF2B4058FCCD03FF6055510D71C7118052310BBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 176646   (972318) от 21.01.2012
-
-Кипяток (2008) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кассирша супермаркета Галина находит утешение от семейных неурядиц в любви к студенту и помогает ему выбраться из-под материнского гнета. Студент счастлив, но чтобы решить свои материальные проблемы, он выносит из магазина, когда Галина работает за кассой продукты. Разумеется, они попадаются… Галина берет вину на себя. Выйдя из тюрьмы, она ищет свидания. Любовники опять встречаются.Жанр: МелодрамаРежиссер: Татьяна ФирсоваАктеры: Сергей Лактюнькин, Светлана Лебедева, Александр Василевский, Константин Милованов, Ирина Сенотова, Павел ШмарёвПродолжительность: 01:39:20
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

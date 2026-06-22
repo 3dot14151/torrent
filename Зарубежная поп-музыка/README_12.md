@@ -6,7 +6,7 @@ Awa Ly - Five and a Feather (2016) [MP3|256 кб/с] <Pop, R&B, Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855638.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - High Life - 20 Original Top Hits (1977) LP [MP3|320 Kbps] <Electronic, Pop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855554.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Maryla Rodowicz - Wsiasc Do Pociagu (1978) Reissue, 2013 [MP3|320 кб/с] <Jazz
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853915.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Tokio Hotel - Dream Machine (2017) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853685.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - High Life International (1982) LP [MP3|320 Kbps] <Electronic,  Reggae, Pop 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852032.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Giusy Ferreri - Girotondo (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851965.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - High Life - 20 Original Top Hits (1980) LP [MP3|320 Kbps] <Electronic, Pop 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851954.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Shona Laing - South (серия "Другие восьмидесятые") (1987
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851828.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Hit Music 2017 Vol 1 (2017) [MP3|320 Kbps] <Pop, Hip Hop,  Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850181.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Robert Ponger - Robert Ponger (1979) Reissue LP, 2021, Edition Hawara [MP3|320 K
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849647.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Krystal Meyers - Make Some Noise (2008) [MP3|320 кб/с] <Electro, Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848990.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Vanesa Martin - 9 albums + 12 singles (2006-2020) [MP3|320 Kbps] <Latin Pop, Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848343.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - It Takes Two: The Duets Album (2020) 3CD Box Set [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848338.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - 100 Hits: Car Songs 2 (2017) (5СD) [MP3|320 Kbps] <Pop, Rock, Funk, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848271.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - High Life - ...Nur Das Gelbe Vom Ei! (1986) CD [MP3|320 Kbps] <Electronic, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846744.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - High Life - Himmlische Tophits (1986) CD [MP3|320 Kbps] <Electronic, New Wa
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846742.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VA - NOW Classics Love (2020) [MP3|320 Kbps] <Pop, R&B, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846682.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Ady Zehnpfennig - 8 Albums (1979-2001) [MP3|320 Kbps] <Electronic, Pop, Instrume
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846575.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Medina - We Survive (2016) [MP3|320 кб/с] <Europop, Dance, Electronic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845193.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Ricchi e Poveri - My Star (2016) [MP3|320 кб/с] <Italo-Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843023.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Akcent - Love The Show (2016) [MP3|320 кб/с] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_843022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_843022.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - TechnoBase.FM – Best Of (2021) [MP3|320 Kbps] <Electronic, Dance, Techo>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842707.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - 50 Chart Hits Of 2021.3: The Autumn Workout Album (2021) [MP3|320 Kbps] <Ho
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842609.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Adriano Celentano - Grand Collection (2001) [MP3|320 kbps]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842386.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ Le Voir - Dualities (2016) [MP3|320 кб/с] <80's Retro Pop, Synthpop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841865.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ Kim Carnes - Essential (2011) [MP3|320 кб/с] <Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841794.jpg" />
 </div>
 
 

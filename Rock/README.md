@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1876022   (1072973) от 
+
+Hawkwind - Psychedelic Selection (2026) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарная космическая рок-группа Hawkwind возвращается с совершенно новой коллекцией, которая стирает границы между студийным альбомом и раскопками в архивах. Этот последний релиз, объединяющий ранее не звучавшие записи, недавно переработанную классику и свежий материал нынешнего состава, представляет собой важную и развивающуюся главу в постоянно расширяющейся (   Читать дальше...   )1. Four Legs Good, Two Legs Bad
+2. There Are Fairies In The Garden
+3. Hurry On Sundown
+4. The Demented Man(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B89030883F72267CF30F166EEFB44AB1C6845AE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876025   (1072971) от 
+
+Yes - Aurora (2026) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	"Aurora"	07:25
+02.	"Turnaround Situation"	05:48
+03.	"Love Lies Dreaming"	06:24
+04.	"Countermovement"(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93A4A08E7130C0C83B12CC9EA54EC29833A47D3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1866522   (1066088) от 20.04.2026
 
 Generation Radio - Take 2 (2026) [MP3|320 Kbps] <Melodic Rock, AOR>
@@ -7,7 +65,7 @@ Generation Radio - Take 2 (2026) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066088.jpg" />
 </div>
 
 
@@ -36,7 +94,7 @@ Suzi Quatro - Freedom (2026) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063752.jpg" />
 </div>
 
 
@@ -65,7 +123,7 @@ Zepparella - Zeppelin Forever (2025) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062643.jpg" />
 </div>
 
 
@@ -94,7 +152,7 @@ Nicholas Knecht - Stellar Currents (2026) AI-generated content [MP3|320 Kbps] <A
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060098.jpg" />
 </div>
 
 
@@ -123,7 +181,7 @@ Altin Gün (Altin Gun) - 5 Albums (2018-2026) In Turkis [MP3|320 Kbps] <Anatolia
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058749.jpg" />
 </div>
 
 
@@ -152,7 +210,7 @@ The Neal Morse Band - L.I.F.T. (2026) [MP3|320 Kbps] <Progressive Rock, Symphoni
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058746.jpg" />
 </div>
 
 
@@ -181,7 +239,7 @@ The Beach Boys - We Gotta Groove - The Brother Studio Years (2026) Super Deluxe 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056580.jpg" />
 </div>
 
 
@@ -210,7 +268,7 @@ Francis Rossi (Status Quo) - The Accidental (2026) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054929.jpg" />
 </div>
 
 
@@ -239,7 +297,7 @@ Dennis Churchill Dries - Crazy Is This Life (2026) [MP3|320 Kbps] <Melodic Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054724.jpg" />
 </div>
 
 
@@ -268,7 +326,7 @@ Marillion - An Hour Before It's Dark (Full Suites Version) (2026) [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053627.jpg" />
 </div>
 
 
@@ -297,7 +355,7 @@ VA - 2000s Rock HIts (2025) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053201.jpg" />
 </div>
 
 
@@ -326,7 +384,7 @@ Gateway Drugs - PSA (2020) [MP3|320 Kbps] <Psychedelic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052929.jpg" />
 </div>
 
 
@@ -355,7 +413,7 @@ Nicholas Knecht - Synthetic Horizon (2026) [MP3|320 Kbps] <Psychedelic Rock, Pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052509.jpg" />
 </div>
 
 
@@ -384,7 +442,7 @@ Royal Bliss - The Covers That Surround Me (2025) [MP3|320 Kbps] <Modern Rock, Po
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050027.jpg" />
 </div>
 
 
@@ -413,7 +471,7 @@ Pink Floyd - Wish You Were Here 50 (1975) 3xCD, 2025, Legacy Recordings [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048220.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ The Vegetarians - Uncle Meatless Favorite Recipes (2025) [MP3|320 Kbps] <Progres
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1047020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047020.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Caravela Escarlate - 3 Albums (2016-2023) [MP3|320 Kbps] <Progressive Rock, Symp
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046357.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Black Sky Giant - 5 Albums (2020-2023) [MP3|320 Kbps] <Heavy Psych, Stoner, Spac
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046260.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Elephant Groove - Annihilation (2023) [MP3|320 Kbps] <Heavy, Psych, Stoner, Spac
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046194.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ White Cameleon - The Brain Mincer Machine (2022) [MP3| 253-269 kbps VBR (V0)] <N
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046050.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Kornmo - 3 Albums (2021-2023) [MP3|320 Kbps] <Progressive Rock, Symphonic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046046.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Alice Cooper - Muscle Of Love (1973) Remastered, 2015, Audio Fidelity [OGG Vorbi
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045944.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Deep Purple - Machine Head (1972) Reissue, Remastered, 2003, EMI [OGG Vorbis|480
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045903.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Epica - Consign To Oblivion (2005) [OGG Vorbis|480 Kbps] <Rock, Symphonic Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045867.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Epica - Consign To Oblivion (2005) [OGG Vorbis|480 Kbps] <Rock, Symphonic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E34D65A98CD9502AA4F1495EDF9AE187888A1266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603191   (1045830) от 08.01.2023
-
-Nightwish - From Wishes To Eternity - Live (2001) [OGG Vorbis|550 Kbps] <Rock, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Kinslayer
-02. She Is My Sin
-03. Deep Silent Complete
-04. The Pharaoh Sails To Orion(   Читать дальше...   )Жанр: Rock, Symphonic MetalПродолжительность: 01:07:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C0AFA5951C808CFC4FCDC39ADC971400A3B2ADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603583   (1045651) от 10.01.2023
-
-Deep Purple, The Royal Philharmonic Orchestra Conducted By Malcolm Arnold - Concerto For Group And Orchestra (1969) Remastered, 2002, Harvest, 2 CD [OGG Vorbis|450 Kbps] <Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Malcolm Arnold's 6th Symphony op.95 First Movement- Energico
-02. Malcolm Arnold's 6th Symphony op.95 Second Movement- Lento
-03. Malcolm Arnold's 6th Symphony op.95 Third Movement- Con Fuoco
-04. Deep Purple - Electric Set- Hush(   Читать дальше...   )Жанр: Rock, Symphonic RockПродолжительность: 01:52:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA20F3980527C40D0D3C93D55D6890796842C2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

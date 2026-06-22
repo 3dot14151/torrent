@@ -1,3 +1,29 @@
+###  Публикация: 344724   (281671) от 11.12.2015
+
+BBC: Частная жизнь шедевров. "Свобода на баррикадах" Эжена Делакруа / The Private Life of a Masterpiece. "Liberty on the barricades "by Eugene Delacroix (2004) TVRip
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальный цикл фильмов, посвященный величайшим произведениям искусства, созданным выдающимися скульпторами и живописцами. Программа расскажет о том, как создавались эти шедевры и какое влияние они оказывали и продолжают оказывать на все человечество до сих пор.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC2C56382B343F4C7F4253F73448A42B364F1114
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264367   (281081) от 23.11.2018
 
 BBC. Великая битва Александра Македонского / Alexander's Greatest Battle (2009) HDTV [H.264/1080i-LQ]
@@ -6,7 +32,7 @@ BBC. Великая битва Александра Македонского / A
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281081.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ BBC: Дикие Карибы / Wild Caribbean (2007) DVDRip (сезон 1, се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280645.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ BBC. Повседневные чудеса  / Everyday Miracles (2014) HDTVRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276850.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ BBC: Голубая планета / The Blue Planet (2001) BDRemux [H.264/1080p
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272873.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ BBC. Энди Гамильтон в поисках Сатаны /Andy Hamilton's
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271432.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ BBC. Сокровища Древнего Рима / The Treasures of Ancient Rom
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271379.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ BBC Horizon. Следи за собой / Monitor Me (2013) HDTVRip [H.264/720p-
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270452.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ BBC Horizon. Сделало ли приготовление пищи нас лю
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270211.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ BBC. Horizon: Чернобыль. Внутри саркофага / Inside Chern
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269782.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ BBC: Мир природы. Китовая акула / Natural World. Whale Sha
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268728.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (19
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266480.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266357.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265582.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265580.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265574.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265572.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ BBC: Империя чужих. Насекомые / Alien Empire (2001) [H.264]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265529.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (19
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265498.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264798.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ BBC: Битва экзопланет / Battle of the exoplanets (2018) HDTVRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263224.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ BBC: Я и гравитация. Сила, формирующая нашу жи�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262050.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ BBC. Преступники Британии: разбойники, пираты
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257948.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ BBC. Йеллоустоун: Борьба за жизнь / Yellowstone: Battle 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254430.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ BBC. Охота на Питера Тобина / The Hunt for Peter Tobin (2025)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249415.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ BBC. Год, Изменивший Планету  / The Year Earth Changed (2021
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244578.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ BBC. Год, Изменивший Планету  / The Year Earth Changed (2021
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD478607AD27D03F8A3C066D88814566D4AEB197
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 728209   (244286) от 03.04.2022
-
-BBC: Любовница и жена / The Mistress and the Wife (2009) SATRip
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любовница — женщина, состоящая с мужчиной или женщиной в половой связи. В прошлом любовницей называли влюблённую женщину, возлюбленную. В настоящее время обычно это слово означает женщину, состоящую с мужчиной в половой связи, а так же испытывающая по отношению к нему нежные чувства, чаще всего взаимныеТелекомпания: BBCЖанр: Документальный, историяРежиссер: Эмма СейцПеревод: Одноголосый профессиональныйПродолжительность: 00:47:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35D9ABB396D52D71F70080E8CDF8B09F97405395
 ```
 
 https://mybot314.ru/tekegram_catalog/

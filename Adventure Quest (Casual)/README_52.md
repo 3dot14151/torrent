@@ -1,3 +1,159 @@
+###  Публикация: 1835445   (250839) от 06.11.2025
+
+Legendary Tales 4: Map of Hope / Легендарные предания 4: Карта Надежды (2025) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Legendary Tales возвращаются с новой историей-приквелом! Люсия и ее брат долгие годы скрывались от ведьм, но им больше некуда бежать. Внезапно старая подруга Скарлетт приносит новости, которые развеивают нависшее отчаяние: возможно, есть место, где они наконец смогут воссоединиться со своими сородичами. К сожалению, Скарлетт не может присоединиться к путешествию.Тип издания: UnofficialРазработчик: Five-BN GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57065886E5A3519DF9187D4EB1AB26C74DA4C2AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834662   (250356) от 04.11.2025
+
+Shrine's Legacy (2025) [Multi] (1.04) Repack Necros
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shrine's Legacy - это ролевая игра, вдохновленная лучшими классическими играми SNES. Исследуйте обширный мир, сражаясь в реальном времени с помощью надежной боевой системы и ролевой системы снаряжения. В героической партии из двух человек на помощь всегда придет один компаньон, управляемый либо игрой, либо другом в кооперативном режиме.Тип издания: RepackРазработчик: Positive Concept GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнлийскийЯзык субтитров: Анлийский, Китайский (Упрощенный)Язык интерфейса: Анлийский, Китайский (Упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:109F6C9F6F7B34624406C82862AF0372C888EAB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537881   (249954) от 18.03.2022
+
+Maze Of Realities: Flower Of Discord / Лабиринт Реальностей: Цветок Раздора (2022) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте новую увлекательную игру. Вы - следователь по делам пропавших людей. Ваша племянница вместе с участниками экспедиции пропала в горах Гренландии. Во время их поисков вы открываете портал в другой мир. Но вскоре выясняется, что существует не один мир, а три: Аркалия, Атлантида, которая также известна как Подводный мир, и Параллельный мир! Равновесие между (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F53396627A6A7AC1C7E51DD8E7FDA8EE11CB2A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493414   (248587) от 07.05.2012
+
+Fear for Sale 2: Sunnyvale Story Collectors Edition / Страх на продажу 2. История Саннивейла. Коллекционное издание (P) [Ru] 2011
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Череда загадочных исчезновений жителей города Саннивейл началась много лет назад, когда на месте старинного дома было решено проложить шоссе. Именно тогда сначала пропала, а затем была найдена мёртвой первая жертва - жена горожанина Жана Этьена. Впоследствии муж был признан виновным в этом преступлении и казнён. Но к большому удивлению всех убийства не прекратились. Город редеет и многие дома заколочены, так как их хозяева в страхе покинули эти места. Кто или что стоит за этими исчезновениями и кто станет следующей жертвой? Проведите своё расследование и раскройте тайну, держащую в страхе весь город. Проходя игру, приглядитесь внимательно к жителям города, ведь каждый из них поможет вам приблизиться к разгадке. А кто то может быть даже стоял у истоков всей этой мистической истории и должен теперь ответить за свои прошлые ошибки.(   Читать дальше...   )Тип издания: ПираткаЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык интерфейса: Русский (официальная версия)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61AB73BA16E33C22DBAA6695CDAB25D4C638DEC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834312   (248520) от 03.11.2025
+
+Undertale (2015) [Ru/En] (1.08) Repack Necros
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248520.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Undertale вы играете за человеческого ребенка, который попадает под землю и оказывается в мире монстров. Вы должны найти выход... или остаться здесь навеки. Добро пожаловать в UNDERTALE – ролевую игру, где убивать не обязательно. Всех врагов можно «победить» без насилия. Потанцуйте со слизнем. Погладьте собаку. Шепотом поведайте свою сокровенную тайну рыцарю. Или, (   Читать дальше...   )Тип издания: RepackРазработчик: Toby FoxЖанр: Инди, Ролевые игрыЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34F9776C25EFAEFEBADEB8579E5641E4EBCCE06F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492510   (247989) от 05.05.2012
+
+Atlantic Journey: The Lost Brother / Атлантическое путешествие. В поисках брата (L) [Ru] 2012
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Помогите любящей сестре отыскать брата-авантюриста, отправившегося на поиски очередной древней реликвии для своей коллекции. Обследуйте все уголки земного шара, собирая по пути полезные предметы и играя с уличными торговцами в хитрые и увлекательные мини-игры. Кстати, если вы победите, то получите ценный подарок, который позволит вам продвинуться в поисках. Кроме спрятанных предметов, на каждой локации для вас приготовлены приятные бонусы. Если вы сможете их отыскать, то они украсят интерьер вашей каюты на яхте. При необходимости пользуйтесь подсказкой, но главное - во всем будьте аккуратны! И в лаборатории, и в музейных помещениях оставляйте после себя порядок. Как только в той или иной стране след парня будет найден, тут же открывайте карту и выбирайте следующее место ваших приключений. Да, и не забудьте обзавестись необходимым инвентарем и снаряжением, чтобы без проблем справляться с текущими заданиями и виртуозно решать головоломки в мини-играх!Тип издания: ЛицензияРазработчик: VostorgЖанр: Квест, Логическая, Я ищуЯзык озвучки: АнглийскийЯзык интерфейса: Русский (официальная версия)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85BB1423935D2BE0B1167DCE244AE093D599740F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 492341   (247938) от 05.05.2012
 
 Malice: Two Sisters (P) [En] 2012
@@ -6,7 +162,7 @@ Malice: Two Sisters (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247938.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Reflections of Life 14: Gone But Not Forgotten / Отражения жизни 1
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247905.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Abandoned: Chestnut Lodge Asylum / Позабытая дурка. Каштанк
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246604.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Secrets of the Dark 2: Eclipse Mountain Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246568.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Hidden Through Time (2020) [Ru/Multi] (1.0.9b/dlc) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246003.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Maze of Realities 2: Reflection of Light (2022) [En] (1.0) Unofficial [Collector
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244934.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Bridge To Another World 10: Cursed Clouds (2022) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243527.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Magic City Detective 2: Secret Desire / Волшебный город 2: Тай�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237064.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Camelot 2: The Holy Grail / Камелот 2: Святой Грааль [Ru/En] 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234790.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ Detectives United 6: Beyond Time (2023) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233978.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ Connected Hearts 3: The Musketeers Saga / Связанные любовью 3: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233770.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ City Legends 3: Ghost of Misty Hill (2023) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233731.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ Criminal Archives 2: Alphabetic Murders (2023) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233708.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ It Happened Here: Streaming Lives / Это случилось здесь: Пря
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233529.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ Grim Tales 22: Horizon of Wishes / Страшные сказки 22: Преде�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233122.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ Grim Tales 23: Dual Disposition / Страшные сказки 23: Двойст
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231728.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ Bridge to Another World 11: A Trail of Breadcrumbs (2023) [En] (1.0) Unofficial 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231076.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ Gloomy Tales: Horrific Show (2022) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229734.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ Fran Bow (2015) [Ru/Multi] (1.0/upd3) Repack R.G. Механики
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228999.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ Time Mysteries: Inheritance / Тайны времени: Наследие (2010)
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228934.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ Time Mysteries: Inheritance / Тайны времени: Наследие (2010)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:610EE93AD317D91A989D0B0FC2D3A4E41924CB71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424182   (228718) от 16.11.2020
-
-Paranormal Files 6: The Trap of Truth (2020) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228718.jpg" />
-</div>
-
-
-###  Подробнее
-
-В жизни Рика Роджерса все складывается просто замечательно: он познакомился с Рейчел, его выступления нравятся зрителям, у него появились новые друзья с паранормальными способностями. Однако кое-кто не хочет открывать свои темные секреты, а наоборот, собирается о Рике и его друзьях рассказать правду, только правду и ничего кроме правды. Сможет ли Рик Роджерс на этот (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F482A50724C891E3AADF3EC5AD82E05762CC116D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341661   (228609) от 29.11.2019
-
-Enchanted Kingdom 6: Arcadian Backwoods / Зачарованное Королевство 6: Леса Аркадии (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение увлекательной мистической серии игр Enchanted Kingdom. Добро пожаловать в Аркадию! Почти сто лет тому назад произошла эпическая битва между аркадианами и кинзулами, поэтому многое забылось, а мистические воины стали легендой... или так только казалось? До вашей Академии дошли слухи о том, что в Аркадийском Лесу обитатели тех мест видели кинзулов. Это (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72A69657C81B8F006C86F7F5D979864AE98CE533
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055687   (228407) от 09.12.2018
-
-Another World: 20th Anniversary Edition (2013) [Multi] (1.0.19596) License GOG
-
->>След.
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228407.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Другой мир» - это история молодого физика, проводившего эксперимент на синхротроне. Из-за удара молнии в установку открылся межпространственный портал, и герой перенёсся на другую планету. Вскоре он попадает в инопланетную тюрьму, находит друга-алиена и вместе с ним совершает побег. Игра поддерживает HD-картинку, имеет новую схему управления, посвежевший саундтрек.Тип издания: LicenseРазработчик: DotEmu, The Digital LoungeЖанр: Arcade (Platform)Язык озвучки: Английский, Немецкий, Испанский и другиеЯзык субтитров: Английский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA8E7D42C59F7F65787AFB9180CD4F02F3A0CF81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341932   (226727) от 30.11.2019
-
-Haunted Hotel 18: Room 18 / Проклятый отель 18: Комната 18 (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение увлекательной мистической серии игр Haunted Hotel. Джон и Джеймс Блэкторн получили приглашение на семейную встречу в отель Sweet 18. Они ожидали приятно провести время со своими родными, но отель оказался пуст, и кроме портье в нём никого не было. Однако вскоре становится понятно, что в этом жутком отеле они не совсем одни: тёмный туман бродит по его (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55F5F20B00FE3E7330C8DF8E0A636BABD170EA57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342199   (225251) от 01.12.2019
-
-Witches' Legacy 8: Dark Days to Come / Наследие ведьм 8: Грядут лихие времена (2016) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225251.jpg" />
-</div>
-
-
-###  Подробнее
-
-В извечной битве добра и зла темные ведьмы потерпели сокрушительное поражение и лишились своей королевы Морганы. После этого им пришлось затаиться на время, но, стремясь вернуть былое могущество, они призвали на помощь близнецов, злобных и безжалостных ледяных колдунов. Для исполнения коварного плана близнецам нужна белая чародейка, и они похищают Аннабель. Теперь (   Читать дальше...   )Тип издания: UnofficialРазработчик: EleFun GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA5F1DE399C33EBB1464ADB9A550D2427639CBAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 851862   (224807) от 20.12.2014
-
-Christmas Stories 3: Hans Christian Andersen's Tin Soldier / Рождественские истории 3: Оловянный солдатик (2014) [Ru] Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третья часть увлекатетельной Рождественской игры Christmas Stories! Однажды ночью Вы получаете отчаянное письмо от своего старого друга Альберта и спешите к нему на помощь. Прибыв на место, вы узнаете, что волшебная палочка Крысиного короля попала в руки мстительного барона, и теперь три невинных человека, в том числе и Альберт, были превращены в игрушки! Вместе с Щелкунчиком и вашим новым другом, оловянным солдатиком, вам предстоит одолеть полчища троллей и разрушить проклятие барона.(   Читать дальше...   )Тип издания: Неофициальное изданиеРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6915D6E705535D5D4361F8A2A0178EDB91547982
 ```
 
 https://mybot314.ru/tekegram_catalog/

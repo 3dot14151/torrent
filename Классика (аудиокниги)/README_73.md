@@ -1,3 +1,60 @@
+###  Публикация: 1744831   (105209) от 23.08.2024
+
+Сигизмунд Кржижановский, Юрий Олеша | Любовь. Индекс 1-76 (Радиоспектакль) (2005) [MP3, Ксения Кутепова и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Редкие Записи.
+Сигизмунд Доминикович Кржижановский (1887–1950) – русский советский писатель и драматург, философ, историк и теоретик театра.
+Юрий Карлович Олеша (1899–1960) – писатель, поэт, драматург, сатирик. Его первое произведение – сказочный роман «Три Толстяка». За ним последовали роман «Зависть» (1927), рассказы и пьесы.
+Радиосериал по мотивам (   Читать дальше...   )Жанр: Русская литература, классика, драма, рассказИздательство: Радио РоссииПродолжительность: Радиоспектакль
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:739BBF18B3A24BA5A8D69DCF7C499D314D196BC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745689   (105010) от 27.08.2024
+
+А.К. Шеллер-Михайлов | Над обрывом (2009) [MP3, Лидия Леликова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Архив мировой литературы.
+Александр Константинович Шеллер-Михайлов (1838–1900) – талантливый и самобытный писатель-демократ, чье имя оказалось сегодня незаслуженно забытым.
+«Над обрывом» – роман А. К. Шеллера-Михайлова, написанный в 1883 году.  В произведении главный герой, Егор Александрович Мухортов, ищет не столько смысл жизни, сколько нужное и полезное (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: ООО «АрМир»Продолжительность: 08:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDA420385C7CF0128514C3C0D2F70444A4B993F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746358   (104952) от 30.08.2024
 
 Бертольт Брехт | Трехгрошовая опера (Радиоспектакль) (2006) [MP3, Андрей Миронов, Спартак Мишулин и др.]
@@ -6,7 +63,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104952.jpg" />
 </div>
 
 
@@ -35,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104934.jpg" />
 </div>
 
 
@@ -64,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104770.jpg" />
 </div>
 
 
@@ -92,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104749.jpg" />
 </div>
 
 
@@ -120,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104741.jpg" />
 </div>
 
 
@@ -148,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104659.jpg" />
 </div>
 
 
@@ -176,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104634.jpg" />
 </div>
 
 
@@ -204,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104633.jpg" />
 </div>
 
 
@@ -232,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104623.jpg" />
 </div>
 
 
@@ -261,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104614.jpg" />
 </div>
 
 
@@ -289,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104610.jpg" />
 </div>
 
 
@@ -317,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104458.jpg" />
 </div>
 
 
@@ -345,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104344.jpg" />
 </div>
 
 
@@ -374,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104342.jpg" />
 </div>
 
 
@@ -403,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104330.jpg" />
 </div>
 
 
@@ -431,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104320.jpg" />
 </div>
 
 
@@ -459,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104319.jpg" />
 </div>
 
 
@@ -487,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104211.jpg" />
 </div>
 
 
@@ -514,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103966.jpg" />
 </div>
 
 
@@ -542,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103955.jpg" />
 </div>
 
 
@@ -569,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103933.jpg" />
 </div>
 
 
@@ -596,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103850.jpg" />
 </div>
 
 
@@ -623,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103551.jpg" />
 </div>
 
 
@@ -650,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103488.jpg" />
 </div>
 
 
@@ -662,62 +719,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5783AC824EFEA0ECC32B984202B527210C61EF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756951   (103487) от 24.10.2024
-
-Франсуаза Саган | Четыре стороны сердца (2021) [MP3, Алла Човжик]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Саган. Коллекция.
-Франсуаза Саган (1935–2004) – французская писательница.
-В романе «Синяки на душе» (1972), как и во многих романах писательницы, речь идет о любви, хрупкой, нерешительной, мимолетной. Верная себе Саган заводит своих персонажей в лабиринт запутанных отношений: вокруг Себастьяна и Элеоноры кружатся странные люди, пытаясь проникнуть в тайны (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Алла БорисоваИздательство: Азбука-АттикусПродолжительность: 03:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B570B3D8302E85C9B0BADBE8C21FA785DA8E0FCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756940   (103471) от 24.10.2024
-
-Франсуаза Саган | Синяки на душе (2021) [MP3, Алла Човжик]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Саган. Коллекция.
-Франсуаза Саган (1935–2004) – французская писательница.
-В романе «Синяки на душе» (1972), как и во многих романах писательницы, речь идет о любви, хрупкой, нерешительной, мимолетной. Верная себе Саган заводит своих персонажей в лабиринт запутанных отношений: вокруг Себастьяна и Элеоноры кружатся странные люди, пытаясь проникнуть в тайны (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Алла БорисоваИздательство: Азбука-АттикусПродолжительность: 03:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E6DEA7AC7CA6743947403FC44BE8995F0F47AB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

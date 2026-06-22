@@ -6,7 +6,7 @@ Gokukoku no Brynhildr | Brynhildr in the Darkness | Брунгильда во т
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047837.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Gekijouban Chainsaw Man: Reze Hen | Chainsaw Man the Movie: Reze Arc | Чело�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047835.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Gekijouban Chainsaw Man: Reze Hen / Chainsaw Man the Movie: Reze Arc / Чело�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047827.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047641.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Tenchi Souzou Design-bu | Heaven's Design Team | Небесный отдел д�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047280.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Do It Yourself!! | Сделай сама! [2022, TV, 12 из 12] WEBRip 1080p ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046294.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Peter Grill to Kenja no Jikan: Super Extra | Пётр Гриль и время �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046291.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Koi wa Sekai Seifuku no Ato de | Love After World Domination | Любовь по
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046177.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045613.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045453.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Date a Bullet | Рандеву с пулей [2020, Movie, 2 из 2] BDRip 1080p
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044399.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Date a Live IV | Рандеву с жизнью [ТВ-4] [2022, TV, 12 из 12] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044390.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044010.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen (2022
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043838.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Amagi Brilliant Park | Великолепный парк Амаги [2014, TV, 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043220.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042913.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042912.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Tenchi Muyou! Bangaihen: Galaxy Police Mihoshi Space Adventure | Тэнти - л
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042633.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Blade and Soul / Клинок и душа [2014, TV, 12 ep] BDRip 1080p Rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042632.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Fuuka / Фуука [2017, TV, 12 ep] BDRip 1080p Rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042372.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042328.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042125.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Tenchi Muyou! The Night Before The Carnival | Omatsuri Zenjitsu no Yoru! | Тэ�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041821.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Tenchi Muyou! Ryououki | Tenchi Muyo! Ryo-Ohki | Тэнти - лишний! Рё
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041816.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Mangaka-san to Assistant-san to The Animation | The Comic Artist and His Assista
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041560.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040686.jpg" />
 </div>
 
 

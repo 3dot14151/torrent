@@ -1,3 +1,110 @@
+###  Публикация: 1711860   (61177) от 31.03.2024
+
+Gopeed for Mac 1.5.6 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gopeed представляет собой высокоскоростной загрузчик, разработанный Golang + Flutter, поддерживает загрузку по протоколам (HTTP, BitTorrent, Magnet) и поддерживает Used. на всех платформах поддерживаются следующие платформы: Windows, Macos, Linux, Android, iOS, Web, Docker, командная строка.Тип издания: macOS SoftwareРелиз состоялся: 29.03.2024Разработчик: © 2024 GopeedПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73EE66750B4A01AE2546571C08B56481129FB0BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711618   (61170) от 31.03.2024
+
+Fix My iPhone 2.4.15 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fix My iPhone — это инструмент для восстановления системы iOS. Устраняет все известные неисправности на  вашем iPhone:
+• Зависший на логотипе Apple
+• Черный / зависший экран
+• Ошибки обновления / восстановления iTunes и более 50+ сбоев обновления iOS 15(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.03.2024Разработчик: © 2024 MiniCreoПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A751FAEC3764F123BEEC682F08B967CC44B449
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711931   (61117) от 01.04.2024
+
+Photomator for Mac 3.3.4 Patch [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photomator — это мощный инструмент для редактирования фотографий, предлагающий невероятные инструменты для улучшения, ретуширования и управления вашими фотографиями. Он включает в себя обширную коллекцию передовых настроек цвета, автоматический выбор с помощью искусственного интеллекта, мощные функции пакетного редактирования, инструменты клонирования и восстановления (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.03.2024Разработчик: © 2024 Pixelmator TeamПоддерживаемая ОС: macOS 13.0+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:280B5213D96C09A21128A297F66CD8974B01DFC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712093   (61091) от 01.04.2024
+
+OmniPlayer Pro - Media Player 2.1.4 [Multi]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61091.jpg" />
+</div>
+
+
+###  Подробнее
+
+OmniPlayer Pro для Mac - это универсальный медиаплеер практически для любого видео и аудио формата в macOS. Он обладает мощными функциями с современным и простым интерфейсом. Вы можете использовать его для простого воспроизведения различных HD-видео 4K / 1080P / 720P и обычного / без потерь звука с помощью аппаратного декодирования. Богатые функции OmniPlayer позволяют (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.04.2024Разработчик: © 2021 Omi Software Studio, Inc.Поддерживаемая ОС: macOS 10.14+Субтитры: ass, ssa, srt, idx и subЯзык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D4B08F7CF91BB77ED116729A1CB27F517ED0D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1712037   (61072) от 01.04.2024
 
 File Juicer 4.99 [Multi/Ru]
@@ -6,7 +113,7 @@ File Juicer 4.99 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61072.jpg" />
 </div>
 
 
@@ -33,7 +140,7 @@ Serial Box & SerialSeeker 04-2024 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61068.jpg" />
 </div>
 
 
@@ -61,7 +168,7 @@ JetBrains DataSpell for Mac 2023.3.5 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61067.jpg" />
 </div>
 
 
@@ -87,7 +194,7 @@ Incredible Bee Archiver 4 for Mac v.4.2.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61062.jpg" />
 </div>
 
 
@@ -113,7 +220,7 @@ Adobe After Effects 2024 v.24.3.0 U2B [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61055.jpg" />
 </div>
 
 
@@ -140,7 +247,7 @@ Adobe InDesign 2024 v.19.3.0 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61024.jpg" />
 </div>
 
 
@@ -166,7 +273,7 @@ Wondershare UniConverter for Mac 15.5.5 Intel/ARM [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61015.jpg" />
 </div>
 
 
@@ -193,7 +300,7 @@ Wondershare Recoverit for Mac 12.5.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61011.jpg" />
 </div>
 
 
@@ -220,7 +327,7 @@ Adobe Media Encoder for Mac 2024 v.24.3.0 U2B [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61010.jpg" />
 </div>
 
 
@@ -246,7 +353,7 @@ Downie 4 v.4.7.8 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61008.jpg" />
 </div>
 
 
@@ -274,7 +381,7 @@ TechSmith Snagit for Mac 2024.2.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60998.jpg" />
 </div>
 
 
@@ -300,7 +407,7 @@ TechSmith Camtasia 2023 Studio 2023.3.12 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60995.jpg" />
 </div>
 
 
@@ -326,7 +433,7 @@ Live Home 3D Pro Edition 4.9 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60985.jpg" />
 </div>
 
 
@@ -353,7 +460,7 @@ Dato 5.2.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60974.jpg" />
 </div>
 
 
@@ -380,7 +487,7 @@ ProPresenter 7.16.2 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60973.jpg" />
 </div>
 
 
@@ -408,7 +515,7 @@ Final Draft 13 v.13.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60969.jpg" />
 </div>
 
 
@@ -436,7 +543,7 @@ Apeaksoft iOS Unlocker 1.0.56 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60953.jpg" />
 </div>
 
 
@@ -462,7 +569,7 @@ Bigasoft Total Video Converter for Mac 5.8.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60888.jpg" />
 </div>
 
 
@@ -488,7 +595,7 @@ Cisdem PDFMaster 6.0.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60886.jpg" />
 </div>
 
 
@@ -515,7 +622,7 @@ Bigasoft Audio Converter for Mac 5.8.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60872.jpg" />
 </div>
 
 
@@ -543,7 +650,7 @@ iFastZip - Extract RAR & ZIP & 7Z 8.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52199.jpg" />
 </div>
 
 
@@ -569,7 +676,7 @@ Movist Pro 2.11.5 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30375.jpg" />
 </div>
 
 
@@ -581,113 +688,6 @@ Movist является простым в использовании и мощн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C0865B1F95CC040F4F4F888B848CA5041DBABE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781001   (26172) от 28.02.2025
-
-ShutterCheck 2.19 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26172.jpg" />
-</div>
-
-
-###  Подробнее
-
-ShutterCheck определяет пробег любых современных фотоаппаратов Canon EOS, так что вы легко можете убедиться, что покупаете новую неиспользованную вещь или проверить, насколько сильно износился затвор камеры, бывшей в употреблении. Сделайте диагностику самостоятельно, чтобы избежать визита в сервисный центр!Тип издания: macOS SoftwareРелиз состоялся: 14.14.2024Разработчик: Konstantin PavlikhinПоддерживаемая ОС: macOS 10.15 Catalina or laterЯзык интерфейса: English
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6303D0C6E5C0BE4BE9A2C8925E8E043A3213FA2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754876   (10850) от 21.07.2025
-
-VMware Fusion Pro 13.6.1 [En] Build 24319021
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10850.jpg" />
-</div>
-
-
-###  Подробнее
-
-VMware Fusion - это удобная и мощная виртуальная машина для Mac.
-С помощью решения VMware Fusion пользователи Mac могут запускать ОС Windows и сотни других операционных систем одновременно с приложениями Mac без перезагрузки. Решение Fusion сочетает в себе удобство работы для домашних пользователей и широкие возможности для ИТ-специалистов, разработчиков и организаций. (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: 2022 VMware, Inc.Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Французский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DFAC77296BA02311F910FBC4A38A56707E2D71F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805820   (10383) от 25.07.2025
-
-Apple - Logic Pro 11.2.2 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Logic Pro X — самая совершенная версия Logic. Мощные инструменты для профессионального создания музыки, обработки и микширования звука встроены в современный интерфейс для быстрого получения качественных результатов и удобства работы — где бы Вы ни находились. В Logic Pro X входит огромная коллекция музыкальных инструментов, эффектов и лупов — всё, что нужно для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2025Разработчик: Apple IncПоддерживаемая ОС: macOS 14.4 и новееЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D0DD352378E5E51AB9359A1CEF1E54FF1B83728
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793976   (8630) от 29.09.2025
-
-Wondershare PDFelement Pro 12.0.5 (OCR) [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8630.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDFelement Pro - профессиональный инструмент, является решением «все-в-одном» для всех ваших PDF задач. Измените принципиальный подход в работе с PDF.
-
-Вы можете легко создавать новые PDF-файлы с веб-страниц (.html, .htm), изображений (png, .jpeg, jpg, bmp, .tiff, .bmp) и текстовых файлов (.rtf, .rtfd, .txt). Вновь созданные PDF-файлы на 100% совместимы с Adobe Reader, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2025Разработчик: Wondershare TechnologyПоддерживаемая ОС: macOS 10.15 и вышеЯзык интерфейса: Английский, немецкий, испанский, французский, итальянский, японский, нидерландский, португальский, русский, китайский (упрощённый), китайский (традиционный), корейский.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9490B05419FA5E5BB39488E03B2CA27659F7EED7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,134 @@
+###  Публикация: 1493647   (893670) от 04.09.2021
+
+Форсаж 9 / F9 (2021) WEB-DL [H.264/1080p] [Directors Cut] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доминик Торетто ведет спокойную жизнь вместе с Летти и сыном Брайаном, но новая опасность всегда где-то рядом. В этот раз Доминику придется встретиться с призраками прошлого, если он хочет спасти самых близких. Команда снова собирается вместе, чтобы предотвратить дерзкий план по захвату мира, который придумал самый опасный преступник и безбашенный водитель из всех, (   Читать дальше...   )Производство: США, Таиланд, Канада / One Race Films, Original Film, Perfect Storm Entertainment, Roth/Kirschenbaum Films, Universal PicturesЖанр: Боевик, триллер, криминал, приключенияРежиссер: Джастин ЛинАктеры: Вин Дизель, Джон Сина, Тайриз Гибсон, Лудакрис, Джордана Брюстер, Натали Эммануэль, Мишель Родригес, Хелен Миррен, Шарлиз Терон, Майкл РукерПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:29:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:325321BDE237F85ADD3D444B035BA7523662AED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493644   (893580) от 04.09.2021
+
+Золушка / Cinderella (2021) WEB-DL [H.264/1080p] [EN / RU, EN, multi Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современный мюзикл-фильм, в котором смелая интерпретация классической сказки. У нашей амбициозной героини большие мечты, и с помощью своей невероятной крестной она упорно пытается их осуществить.
+Гугл переводПроизводство: Великобритания, США / Columbia Pictures, DMG Entertainment, Fulwell 73Жанр: мюзикл, фэнтези, мелодрама, комедияРежиссер: Кэй КэннонАктеры: Камила Кабейо, Билли Портер, Идина Мензел, Николас Голицын, Пирс Броснан, Минни Драйвер, Мэдди Байллио, Шарлотта Спенсер, Джеймс Акастер, Джеймс КорденПеревод: ОтсутствуетЯзык озвучки: английскийСубтитры: отсутствуютПродолжительность: 01:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F5293AF116B3634CF4AF9A1DE8B7D077C8FBD0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101920   (892927) от 08.02.2017
+
+Лавинг / Loving  (2016) BDRip [H.264/1080p] [EN / EN, Fr, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892927.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1958 году в штате Вирджиния Ричард и Милдред Лавинг приговорены к тюремному заключению за вступление в межрасовый брак.Производство: Великобритания, СШАЖанр: драма, биографияРежиссер: Джефф НиколсАктеры: Рут Негга, Джоэл Эдгертон, Уилл Далтон, Дин Мамфорд, Терри Эбни, Алано Миллер, Крис Дж., Бенжамин Букер,  Кит Тайри, Шэрон БлэквудПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, французский, испанскийПродолжительность: 02:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA0B2677AE4C4B54F938D4A51703F2624E680393
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101974   (892918) от 08.02.2017
+
+Фрэнк и Лола / Frank and Lola  (2016) BDRip [H.264/720p] [EN / EN, Fr Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892918.jpg" />
+</div>
+
+
+###  Подробнее
+
+На Хэллоуин Фрэнк, шеф ресторана из Лас-Вегаса, влюбляется в Лолу, новую девушку в городе. Однако Лола не так проста и является очень опасной штучкой. Для Фрэнка эта любовь лишь первый шаг к одержимости, что приводит к измене и погоне вокруг всего света в поисках мести.Производство: СШАЖанр: триллер, драма, мелодрама, криминал, детективРежиссер: Мэттью М. РоссАктеры: Имоджен Путс, Майкл Шеннон, Джастин Лонг, Розанна Аркетт, Микаэл Нюквист,  Эми Эргил, Алекс Ломбард, Эммануэль Дево, Дэвид Атракчи, Джои Белл, Ланда МорлендПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, французскийПродолжительность: 01:27:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D516BBED9E0D3C4AED0034C995BA661108CEF852
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102150   (892858) от 08.02.2017
+
+Плохой Санта 2 / Bad Santa 2  (2016) BDRip [H.264/720p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение новогодних приключений проходимца Вилли, который в канун Рождества, как всегда, переодевается в Санта-Клауса. Ограбить очередной супермаркет в этом наряде не представляет никаких проблем. Но в Рождество случаются всякие чудеса. Каким оно будет для Вилли на этот раз?Производство: СШАЖанр: драма, комедия, криминалРежиссер: Марк УотерсАктеры: Билли Боб Торнтон, Кэти Бейтс, Тони Кокс, Кристина Хендрикс, Бретт Келли, Райан Хансен, Дженни Зигрино, Джефф Скоурон, Кристина Розато, Майк Старр, Октавия Спенсер, Рэни ЛиПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:156E405C842E68EB9222C8BEBBBE680BFCE9C210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102112   (892672) от 08.02.2017
 
 Младшая сестра / Little Sister  (2016) BDRip [H.264/720p] [EN / EN Sub]
@@ -6,7 +137,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892672.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892388.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892306.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892011.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892005.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890985.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890824.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890231.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889118.jpg" />
 </div>
 
 
@@ -240,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889106.jpg" />
 </div>
 
 
@@ -266,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889072.jpg" />
 </div>
 
 
@@ -292,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888963.jpg" />
 </div>
 
 
@@ -318,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888926.jpg" />
 </div>
 
 
@@ -344,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887153.jpg" />
 </div>
 
 
@@ -370,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886889.jpg" />
 </div>
 
 
@@ -396,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885654.jpg" />
 </div>
 
 
@@ -422,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885644.jpg" />
 </div>
 
 
@@ -449,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885529.jpg" />
 </div>
 
 
@@ -475,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885528.jpg" />
 </div>
 
 
@@ -501,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885261.jpg" />
 </div>
 
 
@@ -527,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884591.jpg" />
 </div>
 
 
@@ -538,138 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A38DC4F0721DE2E7E93599D24C61747BA34C6B2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995713   (883823) от 11.03.2016
-
-Голодные игры: Сойка-пересмешница. Часть II / The Hunger Games: Mockingjay - Part 2  (2015) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Китнисс Эвердин и своенравный Пит Мелларк пытаются выиграть гражданскую войну между самодержавным Капитолием и истерзанными войной районами Панема...Производство: США, Германия, Lionsgate, Studio Babelsberg and Color ForceЖанр: фантастика, приключенияРежиссер: Френсис ЛоуренсАктеры: Дженнифер Лоуренс, Джош Хатчерсон, Лиам Хемсворт, Вуди Харрельсон, Дональд Сазерленд, Филип Сеймур Хоффман, Джулианна Мур, Уиллоу Шилдс, Сэм Клафлин, Элизабет Бэнкс, Махершала Али, Джена МэлоунПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: Английский, испанскийПродолжительность: 02:16:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EC781AE871EC93DA95311F460B59F18396C007D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103960   (883052) от 13.02.2017
-
-Бесценная / Priceless  (2016) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джеймс, потерявший опеку над своей дочерью, соглашается на то, чтобы доставить посылку, проехав через всю страну, не задавая лишних вопросов. Но когда он понимает, что поставляет, то сталкивается с выбором, который изменит его жизнь...Производство: СШАЖанр: драма, мелодрамаРежиссер: Бен СмеллбоунАктеры: Джим Пэррак, Дэвид Кокнер, Бьянка А. Сантос, Эмбер Мидфандер, Джоэл Смолбон, Лора Каннингэм, Джоди Линн Томас, Сара Минник, Трэвис Хаммер, Кристен Рейкс, Люче Рэйнс, Диана ГайтирираПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, испанский, французскийПродолжительность: 01:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69AB5F064CAC669C630D2E8EBB1158B5FB9DBE83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995776   (882116) от 12.03.2016
-
-Защитник / Concussion  (2015) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Америка потрясена чередой неожиданных и необъяснимых смертей знаменитых спортсменов. Разгадать загадку предстоит талантливому молодому нейрохирургу, но, как оказалось, не все готовы услышать жестокую правду...Производство: Великобритания, Австралия, США, Village Roadshow Pictures, Scott Free Productions, LStar Capital, The Cantillon Company, The Shuman CompanyЖанр: драма, биография, спортРежиссер: Питер ЛандесманАктеры: Уилл Смит, Алек Болдуин, Альберт Брукс, Гугу Эмбата-Ро, Дэвид Морс, Арлисс Ховард, Майк О’Мэлли, Эдди Марсан, Хилл Харпер, Адевале Акинойе-Агбаже, Стивен Мойер, Ричард Т. ДжонсПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, французский, испанскийПродолжительность: 02:02:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D042FAAE49E1F5A66E43E2D09C57F3F41878098B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495020   (882063) от 11.09.2021
-
-Вуайеристы / The Voyeurs (2021) WEB-DL [H.264/1080p] [EN / EN, RU, multi Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переехав в квартиру своей мечты, Пиппа и Томас замечают, что их окна выходят прямо на квартиру напротив, невольно приглашая их стать свидетелями изменчивых отношений привлекательной пары соседей. Но опрометчивая попытка анонимного вмешательства в чужую жизнь запускает цепь событий, неизбежно ведущих к катастрофе.Производство: США / Divide/Conquer, Amazon StudiosЖанр: триллерРежиссер: Майкл МоханАктеры: Сидни Свини, Наташа Лю Бордиццо, Бен Харди, Джастис Смит, Кэйтлин Александр, Кэтрин Кинг, Мадлен Харви, Дэниэл Гроган, Джиллиан Харрис, Jimmy CaspeurПеревод: ОтсутствуетЯзык озвучки: английскийСубтитры: Русские, английскиеПродолжительность: 01:56:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E38429B0849B258DBE6ADB99196A0A9C5FEB5D94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373048   (881701) от 05.04.2020
-
-Псы 3: Во имя принципов / Psy 3: W imie zasad (2020) WEB-DLRip [H.264/720p-LQ] [POL] [PR]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Po 25 latach odsiadki Franz Maurer wkracza w nową Polskę, gdzie nic nie jest takie, jak zapamiętał. Wkrótce ponownie spotyka Nowego.
-
-После нескольких лет тюремного заключения Франц Маурер выходит из тюрьмы и попадает в новую Польшу, в которой нет ничего такого, что он помнил. Кто и что ждет человека, который последние четверть века ничего (   Читать дальше...   )Производство: Польша / Wonder Studio, Polsat, Cyfrowy PolsatЖанр: боевик, драма, криминалРежиссер: Владислав ПасиковскийАктеры: Богуслав Линда, Марцин Дороциньский, Цезары Пазура, Ян Фрыч, Себастьян Фабияньский, Томаш Шухардт, Мирослав Бака, Доминика Вало, Артур Жмиевски, Войцех ЗилинскиПеревод: отсутствуетЯзык озвучки: ПольскийСубтитры: отсутствуютПродолжительность: 02:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20861589CB00B9926F69385AEFA1155DA3022AD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

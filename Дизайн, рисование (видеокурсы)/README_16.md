@@ -6,7 +6,7 @@ Udemy, Mrawan Hussain | Создание робота из Звёздных во
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004941.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ CG Fast Track | Быстрый путь в Blender 2.90 части 1-2 / Blender
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004940.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004807.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Yiihuu, Marcelo Prado | Creating a Sci-Fi Character for Games (2018) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004796.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Skillshare, Patrick Brown | Characters in a Scene: Sketch to Digital (2014) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004718.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Society of Visual Storytelling, Will Terry | Beginning Photoshop (2015) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004717.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Society of Visual Storytelling, Dennis Zilber | Digital painting with Dennis Zil
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004688.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ MP4FM, Garrett Fry | Camera Projection Boot Camp Part 1 (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004349.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ CGMA, Erik D. Martin | Digital Painting Workshop (2011) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004291.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ CGMA, Nate Wragg | Character Design for Production (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004282.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ CGMA, Nate Wragg | Art Direction for Character Designers (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004280.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ ezracohen.tv, Ezra Cohen | Residual income for creatives (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003794.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ unrealskills.ru, Лихоманов Даниил | Unreal Basics (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002750.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Daniel Krafft | 200+ Helpful Blender 3D Hacks in Under 1 Hour (2020) PCRec [RU, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002487.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Gumroad, Yu Cheng Hong | Armour tutorial (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002279.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Schoolism, Alex Woo | Gesture Drawing (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002214.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ ArtNest, Вера Величко | Игровой арт (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002206.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Udemy.com | Adobe Illustrator Advanced Vector Artwork (2019) PCRec [H.264/720p-L
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002131.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Hourences.com, Sjoerd De Jong | The Solus project: Level Introduction (2014) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002031.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Hourences.com, Sjoerd De Jong | The Solus Project: Blueprint Introduction (2014)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002029.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ MP4FM, Garrett Fry | Camera Projection Boot Camp Part 2 (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002020.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Proko, Stan Prokopenko | Anatomy of the Human Body: Legs (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001973.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Udemy, Pete Jepson | Blender Cyberpunk in Unity HDRP (2020) PCRec [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001697.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Side FX, Marc Tucker | Houdini 15 Masterclass Material Stylesheets (2016) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001439.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Side FX, Jeff Wagner | Houdini 15 Masterclass Loops (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001436.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ CG Academy, Borislav Petrov “Bobo” | MaxScript Fundamentalis 1-2 Advanced (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001431.jpg" />
 </div>
 
 

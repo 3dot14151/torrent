@@ -1,3 +1,60 @@
+###  Публикация: 1701829   (116187) от 22.02.2024
+
+Виктор Мари Гюго | Девяносто третий год (2015) [MP3, Евгений Терновский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виктор Мари Гюго (1802–1885) французский поэт, прозаик, эссеист, драматург и драматург романтического направления.
+Роман «Девяносто третий год». Блестящая хроника излома Великой Французской революции – и одновременно увлекательный исторический роман, полный приключений и неожиданных сюжетных поворотов.
+Итак, в Париже «правит бал» Директория…
+А на глухом побережье (   Читать дальше...   )Жанр: Зарубежная литература, классика, исторический романИздательство: Нигде не купишьПродолжительность: 17:27:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CE198AF3724856A362BE9D1C7201EE8069AA32B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702819   (115555) от 26.02.2024
+
+Фёдор Достоевский | Преступление и наказание (2020) [MP3, Всеволод Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Список школьной литературы 10-11 класс. Библиотека школьника (Союз).
+Фёдор Михайлович Достоевский (1821–1881) – один из самых значительных и известных в мире русских писателей и мыслителей. Автор знаменитых во всём мире романов «Преступление и наказание», «Братья Карамазовы», «Идиот».
+«Преступление и наказание» – роман об одном преступлении. Двойное убийство, (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 20:29:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56C758AC601D90E5FE7A3375AA6436B7555962AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702853   (115533) от 26.02.2024
 
 Фёдор Достоевский | Идиот (2010) [MP3, Александр Москалин]
@@ -6,7 +63,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115533.jpg" />
 </div>
 
 
@@ -34,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115529.jpg" />
 </div>
 
 
@@ -62,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115521.jpg" />
 </div>
 
 
@@ -90,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115516.jpg" />
 </div>
 
 
@@ -117,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115508.jpg" />
 </div>
 
 
@@ -145,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115498.jpg" />
 </div>
 
 
@@ -173,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115496.jpg" />
 </div>
 
 
@@ -201,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115495.jpg" />
 </div>
 
 
@@ -229,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115494.jpg" />
 </div>
 
 
@@ -257,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115493.jpg" />
 </div>
 
 
@@ -283,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115490.jpg" />
 </div>
 
 
@@ -310,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115410.jpg" />
 </div>
 
 
@@ -338,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115405.jpg" />
 </div>
 
 
@@ -366,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115374.jpg" />
 </div>
 
 
@@ -394,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115351.jpg" />
 </div>
 
 
@@ -422,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115343.jpg" />
 </div>
 
 
@@ -449,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115130.jpg" />
 </div>
 
 
@@ -477,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115002.jpg" />
 </div>
 
 
@@ -505,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114937.jpg" />
 </div>
 
 
@@ -532,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114237.jpg" />
 </div>
 
 
@@ -559,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114206.jpg" />
 </div>
 
 
@@ -586,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114133.jpg" />
 </div>
 
 
@@ -614,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114128.jpg" />
 </div>
 
 
@@ -641,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114092.jpg" />
 </div>
 
 
@@ -653,61 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F18CDB836052A7AD91CA2D92713211FFD7C678A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 405037   (114061) от 06.03.2024
-
-Оскар Уайльд | Портрет Дориана Грея (Радиоспектакль) (2006) [MP3, Иннокентий Смоктуновский и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Из архива «Гостелерадиофонда».
-Оскар Уайльд (1854–1900) – ирландский писатель и поэт.
-«Если бы старел этот портрет, а я всегда оставался молодым! Душу отдал бы за это!» — эти роковые слова стали фатальными для молодого, необычайно красивого и незапятнанного пороком Дориана Грея. С тех самых пор ни одной морщины не появлялось на вечно юном лице и вечно (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Издательский дом «Союз», ГостелерадиофондПродолжительность: 01:56:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61832237EDACBFD65A9CBD424BBC37680C93751F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 321842   (114056) от 06.03.2024
-
-Эрнст Теодор Амадей Гофман | Повелитель Блох (2006) [MP3, Иван Литвинов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Шедевры мировой фантастики.
-Эрнст Теодор Амадей Гофман (1776–1822) на протяжении своей жизни занимался живописью, графикой и музыкой, но наибольшую известность получил как писатель. Его произведения очень необычны и, несомненно, сильно отличаются от того, что мы привыкли называть «сказками». И, тем не менее, сказочные миры, созданные этим талантливым (   Читать дальше...   )Жанр: Зарубежная литература, классика, условно-фантастическая повестьИздательство: МедиаКнигаПродолжительность: 06:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EE92642A8918C120F0C680A887CD55DC050F6B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

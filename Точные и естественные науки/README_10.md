@@ -1,3 +1,32 @@
+###  Публикация: 999223   (864617) от 22.03.2016
+
+З. П. Пехова (ред.) | Ирак. Справочная карта (1980) [JPG, PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864617.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данное издание входят:
+1) Подробная справочная карта Ирака с административным делением (масштаб 1:1 500 000).
+2) Указатель географических названий в алфавитном порядке.
+3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F83A5D447FAAAF54F39A6E63AADCA36FC49B1A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998756   (864513) от 22.03.2016
 
 Л. Н. Колосова (ред.) | Индонезия. Общегеографическая карта (1989) [JPG, PDF]
@@ -6,7 +35,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864513.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857236.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855539.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855234.jpg" />
 </div>
 
 
@@ -118,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850272.jpg" />
 </div>
 
 
@@ -144,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850132.jpg" />
 </div>
 
 
@@ -173,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850124.jpg" />
 </div>
 
 
@@ -199,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849560.jpg" />
 </div>
 
 
@@ -226,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849558.jpg" />
 </div>
 
 
@@ -253,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848906.jpg" />
 </div>
 
 
@@ -279,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848683.jpg" />
 </div>
 
 
@@ -308,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848508.jpg" />
 </div>
 
 
@@ -334,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848436.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847103.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847001.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845014.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845010.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844830.jpg" />
 </div>
 
 
@@ -493,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843205.jpg" />
 </div>
 
 
@@ -519,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843129.jpg" />
 </div>
 
 
@@ -548,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843115.jpg" />
 </div>
 
 
@@ -574,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842823.jpg" />
 </div>
 
 
@@ -602,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842555.jpg" />
 </div>
 
 
@@ -628,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841487.jpg" />
 </div>
 
 
@@ -657,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841434.jpg" />
 </div>
 
 
@@ -670,32 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FBB72A831377254EC395CBB5869F84A186F7D02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112699   (841117) от 09.03.2017
-
-Брайан Клегг (ред.) | Квантовая теория за 30 секунд (2014) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841117.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Про кота Шрёдингера знают, пожалуй, все, но знаете ли вы про уравнение Шрёдингера? Как устроены лазеры, транзисторы и электронные микроскопы? Чем опасна перенормировка? Почему жидкость становится сверхтекучей? На что способен квантовый компьютер? Великолепный справочник по квантовой физике предлагает вам познакомиться с историей величайших открытий современной (   Читать дальше...   )Жанр: ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E66D3B782F6C17BE298E4A13D8CDE5CA8A30B96
 ```
 
 https://mybot314.ru/tekegram_catalog/

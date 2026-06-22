@@ -1,3 +1,133 @@
+###  Публикация: 1792328   (21019) от 18.04.2025
+
+Myst (2021) [Ru/Multi] (3.0.4) Repack Let'sРlay [VR]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на остров Мист — невероятно красивый, загадочный и окутанный интригами. Совершите путешествие на остров Мист и в другие потрясающие воображение укромные места, которые здесь называются «эпохами», и попытайтесь разгадать тайну, частью которой стали.Тип издания: RepackРазработчик: Cyan WorldsЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4AB033738553BFEE67FD220E835D9B2123DE004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760852   (20871) от 20.04.2025
+
+Alan Wake 2 (2023) [Ru/Multi] (1.2.8/dlc) Repack Wanterlude [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Городок Брайт-Фоллс, укрывшийся среди гор и лесов на северо-западе тихоокеанского побережья, потрясла серия ритуальных убийств. Для расследования этих жутких преступлений в город прибывает Сага Андерсон - опытный агент ФБР, за плечами которой немало дел, считавшихся нераскрываемыми. Однако, когда Андерсон находит страницы из романа ужасов, который начинает оживать (   Читать дальше...   )Тип издания: RepackРазработчик: Remedy EntertainmentЖанр: Экшены, Приключение, ШутерыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Итальянский, Корейский и другиеЯзык интерфейса: Русский, Английский, Итальянский, Корейский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F3B2AADF6DB2D0AF968EFA719F1610AF9A44287
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774793   (20861) от 20.04.2025
+
+Biped (2020) [Ru/Multi] (2.6) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Biped - это динамичная приключенческая 3D-игра с реалистичной физикой для совместного прохождения. В ее основе - взаимодействие двух игроков, которые должны помогать друг другу в точно выбранные моменты. Два маленьких двуногих робота Аку и Сайла вместе отправляются в захватывающее приключение, чтобы выполнить свое задание на планете Земля. Вы управляете двумя ногами (   Читать дальше...   )Тип издания: LicenseРазработчик: NEXT StudiosЖанр: Экшены, Приключенческие игры, Казуальные игры, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05F9727EAD126FB694E8519F4677899A7F5C7ECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793034   (20613) от 22.04.2025
+
+Trine 4: The Nightmare Prince (2019) [Ru/Multi] (1.0.0 Build 8682/dlc) Repack Other s [Definitive Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Trine 4: The Nightmare Prince – очередная часть в серии логических платформеров Trine. Присоединяйтесь к тройке ключевых героев из предыдущих частей игры (рыцарю Понтию, воровке Зои и магу Амадею) и отправляйтесь в новое сказочное приключение, чтобы спасти мир от теней Принца Кошмаров. Trine 4 предложит вам как одиночное, так и кооперативное прохождение с множеством (   Читать дальше...   )Тип издания: RepackРазработчик: FrozenbyteЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:864E0E39FE2C34EA4DB61ED250CEEE7B7D74BA4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777691   (20543) от 23.04.2025
+
+Poppy Playtime (2021) [Ru/Multi] (Build 17717270/dlc) Repack dixen18
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20543.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом хоррор-приключении целей две - решить все головоломки и выжить. За вами будут охотиться кровожадные игрушки, обитающие на заброшенной фабрике. Используйте хвататель, чтобы манипулировать проводами и доставать до удаленных предметов. Исследуйте территорию и избегайте лап монстров.Тип издания: RepackРазработчик: Mob EntertainmentЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, Французский и другиеЯзык интерфейса: Русский, Английский, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D0EA743BEEC26F6199BD35BB98841601110547F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793187   (20522) от 23.04.2025
 
 Post Trauma (2025) [Multi] (1.04) Scene Rune
@@ -6,7 +136,7 @@ Post Trauma (2025) [Multi] (1.04) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20522.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Lushfoil Photography Sim (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20515.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ The Fifth Disciple / Пятый чародей (2002) [Ru] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20497.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Brassheart (2025) [Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20495.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Fort Solis (2023) [Ru/Multi] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20454.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ The Blackwell Epiphany (2014) [En] (3.3c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20439.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ The Shivah (2013) [En] (3.0c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20435.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Resonance (2012) [En] (3.1c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20427.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ The Blackwell Convergence (2009) [En] (3.1c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20414.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Everdream Valley (2023) [Multi] (5.0423.1455/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20351.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.37915) License GOG [Digita
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20330.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ South of Midnight (2025) [Ru/Multi] (1.2.0 185 531) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20326.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ The Empty Desk (2025) [Ru/Multi] (1.0.04) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20304.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Firewatch (2016) [Ru/Multi] (1.12) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20298.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Riven (2024) [Ru/Multi] (1.7.1) Repack Let'sРlay [The Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20256.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ Burial (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20230.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Firmament (2023) [Ru/Multi] (2.0.8) Repack Let'sРlay [The Keepers' Bundle]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20226.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ True Fear: Forsaken Souls Part 3 (2025) [Ru/Multi] (1.1.1:11) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20105.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ In Nightmare (2022) [Ru/Multi] (Build 18052202) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20083.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19990.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.0) Repack FitGirl [Digital
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19986.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.0) Repack FitGirl [Digital
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA5CBFCA83F80CA010DA634420052507DADD00DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794325   (19985) от 28.04.2025
-
-Orphans (2025) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19985.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой погружающей игре игрокам предстоит взять на себя роль Виктории, молодой девушки, осиротевшей в результате трагического морского происшествия и оказавшейся в ловушке в загадочных пределах таинственного города. В этом месте, полном ловушек и опасностей, Виктория должна полагаться на свои навыки стрельбы из рогатки и ловкость, чтобы двигаться вперед. Виктория (   Читать дальше...   )Тип издания: RepackРазработчик: Infinity Gears StudiosЖанр: Приключенческие игры, ИндиЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A41C23D80721E1B7F2BE2FECA0154165729C8CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794235   (19982) от 28.04.2025
-
-Survivalist: Invisible Strain (2020) [Ru/Multi] (242) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Десять лет назад людей начала косить болезнь. Поселения, которые продержались все это время, по неясным причинам начинают рушиться одно за другим. Выжившие бегут от новой опасности. Вы - один из них, и вам предстоит найти свой путь в жизни… любой ценой. Survivalist: Invisible Strain - симулятор управления колонией в открытом мире, действие которого происходит в зомби-апокалипсисе, (   Читать дальше...   )Тип издания: RepackРазработчик: BobЖанр: Экшены, Приключенческие игры, Инди, Ролевые игры, Симуляторы, СтратегииЯзык интерфейса: Русский, Английский, Японский, Корейский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CD4018BB053CE322E7908C224FA8481674963F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794299   (19947) от 28.04.2025
-
-Once Upon A Puppet (2025) [Ru/Multi] (2.14.4.1/dlc) Repack seleZen
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Once Upon a Puppet, псевдотрехмерный красочный мир театра с элементами головоломки-платформера! Приглашаем вас сыграть роль куклы и кукловода в захватывающей волшебной истории о дружбе, самопознании и искуплении. Наденьте перчатку Сценоручки Ясны, изгнанной в Подсценье, и управляйте Древом - куклой, чьи нити жизни магическим образом переплелись (   Читать дальше...   )Тип издания: RepackРазработчик: Flatter Than EarthЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BEBC5DD26F0BE426F295433B9B5A949813AD14C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793432   (19925) от 29.04.2025
-
-Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (Build 18281736) Repack Let'sРlay [Digital Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправьтесь на поиски больших белых птиц в загадочном краю. Ответьте на зов приключений: отправьтесь в затерянную страну под названием Amerzone, что находится в Латинской Америке, и исполните последнее желание покойного исследователя. Исследуйте заросшие руины, общайтесь с необычными, глубоко проработанными персонажами и разгадывайте сложные головоломки, чтобы раскрыть (   Читать дальше...   )Тип издания: RepackРазработчик: Microids Studio ParisЖанр: Экшены, Приключенческие игры, СимуляторыЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B03C852FFC62F2B30BEC2D476215554C4BA5E8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794472   (19899) от 29.04.2025
-
-House of Lost Souls (2025) [Ru/Multi] (1.0.1) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19899.jpg" />
-</div>
-
-
-###  Подробнее
-
-House of Lost Souls - это атмосферная сюжетная игра от первого лица, в которой трагедия прошлого оживает в стенах старого семейного дома. Вы играете за Джека - человека, который спустя годы возвращается туда, где некогда потерял всё. Когда-то здесь он стал свидетелем убийства собственных родителей.Тип издания: RepackРазработчик: Arkuda Inc.Жанр: СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC670E5DE80026CF4432A399A6E4B9B80723E06
 ```
 
 https://mybot314.ru/tekegram_catalog/

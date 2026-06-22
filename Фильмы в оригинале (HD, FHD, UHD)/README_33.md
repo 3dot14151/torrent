@@ -1,3 +1,133 @@
+###  Публикация: 923930   (562297) от 01.08.2015
+
+Восставшие мертвецы / Dead Rising / Dead Rising: Watchtower  (2015) BDRip [H.264/1080p] [EN / Ge Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562297.jpg" />
+</div>
+
+
+###  Подробнее
+
+США охватила глобальная эпидемия, в результате которой люди превращаются в кровожадных зомби. Чейз Картер - журналист, который отправляется в опасную зону, вместе с оператором Трейси, чтобы сделать сюжет о надвигающейся катастрофе. Во время съемок они берут интервью у здоровой девушки Кристал, которая рассказывает ужасную правду о том, что в зоне заражения все обречены. (   Читать дальше...   )Производство: США, Di Bonaventura Pictures, Contradiction Films, Dead Rising Productions, Legendary Digital MediaЖанр: ужасыРежиссер: Зэк ЛиповскиАктеры: Джесси Меткалф, Меган Ори, Вирджиния Мэдсен, Киган Коннор Трейси, Алекс Паунович, Деннис Хейсбёрт, Гари Джонс, Кэрри Гензел, Роб Риггл, Риз Александр, Харли Моренштейн, Джулия АндерсонПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: немецкийПродолжительность: 01:58:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FBE6A92C7EE7D0E8D8B7E5DD9AECA64A266D1B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045171   (561394) от 22.08.2016
+
+Соседи. На тропе войны 2 / Neighbors 2: Sorority Rising  (2016) BDRip [H.264/720p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561394.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот раз в дом по соседству с Маком и Келли въезжает университетский женский клуб. Чтобы разобраться с новыми соседями, которые не дают им покоя, Мак и Келли решают обратиться за помощью к их бывшему врагу - Тедди Сандерсу.Производство: СШАЖанр: комедияРежиссер: Николас СтоллерАктеры: Сет Роген, Зак Эфрон, Роуз Бирн, Хлоя Грейс Морец, Айк Баринхолц, Кирси Клемонс, Дэйв Франко, Джеррод Кармайкл, Кристофер Минц-Плассе, Бини Фелдштейн, Клара Мамет, АквафинаПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:32:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94546FAA47DACD2FD4966219391967070A5BA789
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045219   (561262) от 22.08.2016
+
+Соседи. На тропе войны 2 / Neighbors 2: Sorority Rising  (2016) BDRip [H.264/1080p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561262.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот раз в дом по соседству с Маком и Келли въезжает университетский женский клуб. Чтобы разобраться с новыми соседями, которые не дают им покоя, Мак и Келли решают обратиться за помощью к их бывшему врагу - Тедди Сандерсу.Производство: СШАЖанр: комедияРежиссер: Николас СтоллерАктеры: Сет Роген, Зак Эфрон, Роуз Бирн, Хлоя Грейс Морец, Айк Баринхолц, Кирси Клемонс, Дэйв Франко, Джеррод Кармайкл, Кристофер Минц-Плассе, Бини Фелдштейн, Клара Мамет, АквафинаПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:32:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28F2A47A3BA88A69DD038EF42A764A9BB196856F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153057   (561061) от 25.07.2017
+
+Меч короля Артура / King Arthur: Legend of the Sword (2017) WEB-DL [H.264/720p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой Артур живёт на задворках Лондиниума вместе со своей бандой. Он и понятия не имел о своём королевском происхождении, пока однажды не взял в руки меч Эскалибур. Меч начинает менять Артура. В результате он присоединяется к сопротивлению и таинственной молодой девушке по имени Гвиневра. Ему предстоит научиться понимать магическое оружие, которым он овладел, столкнуться (   Читать дальше...   )Производство: США, Warner Bros., Village Roadshow Pictures, Weed Road PicturesЖанр: Боевик, Приключения, Драма, ФэнтезиРежиссер: Гай РичиАктеры: Чарли Ханнэм, Астрид Берже-Фрисби, Джуд Лоу, Джимон Хонсу, Эрик Бана, Эйдан Гиллен, Фредди Фокс, Крэйг МакГинли, Том Ву, Кингсли Бен-АдирПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 02:06:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EC0D5A40F9FDB571DEB2D00B4F94A00B8CCDCE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153058   (561052) от 25.07.2017
+
+Во всем виноват енот / Wakefield (2016) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Говард Уэйкфилд, преуспевающий юрист, верный муж, заботливый отец двух дочерей, однажды круто изменил свою жизнь. Это произошло внезапно, когда он подходил к родному роскошному гнездышку в пригороде Нью-Йорка. Погнавшись за наглым енотом, сидевшим у него на пути, Уэйкфилд оказался на чердаке заброшенного гаража, откуда были видны светящиеся окна его гостиной. Накрыт (   Читать дальше...   )Производство: США, Mockingbird Pictures, Dominion PicturesЖанр: ДрамаРежиссер: Робин СуикордАктеры: Брайан Крэнстон, Дженнифер Гарнер, Йен Энтони Дэйл, Беверли Д’Анджело, Джейсон О’Мара, Пиппа Беннетт-Уорнер, Эллери Спрейберри, Моника Лосон, Виктория Бруно, Фредерик Кив ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28527C709770271551E1E03CA1A20153CF0060A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235467   (560143) от 11.07.2018
 
 Неповиновение / Disobedience  (2017) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
@@ -6,7 +136,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560143.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559549.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559437.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558820.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558534.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558513.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556663.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554617.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553572.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553568.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550881.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550790.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550736.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549888.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548710.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548039.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547991.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547987.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547900.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546338.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546216.jpg" />
 </div>
 
 
@@ -538,136 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97CD1D77AC56F75DB915E56088A15D4A03CB7ED3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238551   (546093) от 30.07.2018
-
-Мстители: Война бесконечности / Avengers: Infinity War (2018) WEB-DL [H.264/1080p-LQ] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пока Мстители и их союзники продолжают защищать мир от различных опасностей, с которыми не смог бы справиться один супергерой, новая угроза возникает из космоса: Танос. Межгалактический тиран преследует цель собрать все шесть Камней Бесконечности — артефакты невероятной силы, с помощью которых можно менять реальность по своему желанию. Всё, с чем Мстители сталкивались (   Читать дальше...   )Производство: США, Marvel StudiosЖанр: Боевик, Приключения, Фэнтези, ФантастикаРежиссер: Энтони Руссо, Джо РуссоАктеры: Роберт Дауни мл., Крис Хемсворт, Марк Руффало, Крис Эванс, Скарлетт Йоханссон, Дон Чидл, Бенедикт Камбербэтч, Том Холланд, Чедвик Боузман, Зои Салдана ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:29:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E42C3AFFA3401C1312A97789CC4D6FBAE992EBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048742   (545593) от 03.09.2016
-
-Этажом ниже / The Ones Below  (2015) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545593.jpg" />
-</div>
-
-
-###  Подробнее
-
-У семейной пары Кейт и Джастина, ждущей желанного и уже любимого первого ребенка, появляются этажом ниже соседи, тоже в ожидании первенца. Беременная соседка теряет ребенка в результате несчастного случая, обвиняя в этом своих новых друзей сверху. А дальше в жизни у Кейт и Джастина начинают происходить странные вещи...Производство: ВеликобританияЖанр: триллерРежиссер: Дэвид ФаррАктеры: Клеманс Поэзи, Дэвид Моррисси, Стивен Кэмпбелл Мур, Лаура Бирн, Дебора Файндлей, Наташа Алдерслэйд, Лайла Ай, Фрэнсис Эшман, Алекс Эйвери, Грэйс Калдер, Туен До, Джонатан ХарденПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, испанскийПродолжительность: 01:26:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:076E78C9B00D1DECF7FABC8DF0807102F118F99E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048677   (545590) от 03.09.2016
-
-Флоренс Фостер Дженкинс / Florence Foster Jenkins  (2016) BDRip [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545590.jpg" />
-</div>
-
-
-###  Подробнее
-
-История Флоренс Фостер Дженкинс, девушки из богатой нью-йоркской семьи, которая мечтала стать оперной певицей, несмотря на то, что имела ужасный голос.Производство: ВеликобританияЖанр: драма, комедия, биографияРежиссер: Стивен ФрирзАктеры: Мэрил Стрип, Хью Грант, Саймон Хелберг, Ребекка Фергюсон, Нина Арианда, Стэнли Таунсенд, Аллан Кордунер, Кристиан МакКэй, Дэвид Хэйг, Джон Сешнс, Брид Бреннан, Джон КэвэнаПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A58CA34506DC5DC6707B590DA40B500CC6B068D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049309   (544558) от 04.09.2016
-
-Такой же предатель, как и мы / Our Kind of Traitor  (2016) BDRip [H.264/720p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая английская пара, отдыхая в Марокко, заводит знакомство с русским олигархом, отмывающим деньги для преступных группировок, чьи лидеры вот-вот спишут его со счетов. Чтобы спасти себя и семью, он предлагает разведке Великобритании море ценных сведений в обмен на защиту и покровительство. Его последняя отчаянная надежда - на «английских джентльменов», которые (   Читать дальше...   )Производство: Великобритания, ФранцияЖанр: триллерРежиссер: Сюзанна УайтАктеры: Карлос Акоста, Радивойе Буквич, Стеллан Скарсгард, Мария Фомина, Доля Гавански, Григорий Добрыгин, Велибор Топич, Павел Жайда, Юэн МакГрегор, Наоми Харрис, Алек Утгофф, Марек ОравекПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:47:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:748F4CA4BC30AD296A885F11D07BE729699E7337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238810   (544337) от 01.08.2018
-
-Мстители: Война бесконечности / Avengers: Infinity War (2018) BDRemux [H.264/1080p] [EN / RU, EN Sub]
-
->>След.
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пока Мстители и их союзники продолжают защищать мир от различных опасностей, с которыми не смог бы справиться один супергерой, новая угроза возникает из космоса: Танос. Межгалактический тиран преследует цель собрать все шесть Камней Бесконечности — артефакты невероятной силы, с помощью которых можно менять реальность по своему желанию. Всё, с чем Мстители сталкивались (   Читать дальше...   )Производство: США, Marvel StudiosЖанр: Боевик, Приключения, Фэнтези, ФантастикаРежиссер: Энтони Руссо, Джо РуссоАктеры: Роберт Дауни мл., Крис Хемсворт, Марк Руффало, Крис Эванс, Скарлетт Йоханссон, Дон Чидл, Бенедикт Камбербэтч, Том Холланд, Чедвик Боузман, Зои Салдана ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 02:29:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CBD37E524BC6B97A1EE3551552E19AB521FA56D
 ```
 
 https://mybot314.ru/tekegram_catalog/

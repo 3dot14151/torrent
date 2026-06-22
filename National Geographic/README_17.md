@@ -1,3 +1,81 @@
+###  Публикация: 1224039   (653581) от 22.05.2018
+
+NGW: Дикая природа Чили / Wild Chile (2017) DVB [H.264/1080i-LQ] (Серии 3 из 3)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот прекрасный, интригующий сериал познакомит вас с невероятной по красоте дикой природой Чили, в которой можно встретить самые разнообразные растения и животных.Производство: США, Off the Fence for National GeographicЖанр: Документальный, научно-популярный, фауна, флораРежиссер: Эллисон БинПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:007F3F8A1C0E339B8BA07DE68F14296E66186746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 671987   (649413) от 05.07.2016
+
+NG. Убийственная скорость / Speed Kills (2012) HDTVRip [3 серии из 3]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_649413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приготовьтесь к высокоскоростному приключению через тропический лес, африканскую саванну, и океанскую бездну. Мы покажем самых быстрых животных обитающих в этих ареалах, с помощью высокоскоростной камеры, снимающей 1000 кадров в секунду, мы не пропустим не одной подробности в этой увлекательной и поражающим своим многообразием, мир самых быстрых хищников.Жанр: Документальный, научно-познавательный, фаунаПеревод: Одноголосый закадровый (профессиональный, Дмитрий Полиновский, "АРК-ТВ").Продолжительность: 3x ~00:45:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 700419   (649197) от 05.07.2016
+
+NG. Великая Китайская стена / China's Great Wall (2007) HDTVRip [H.264/720p-LQ] [2 серии из 2]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Говорят, ее видно из космоса. Говорят, ей более двух тысяч лет и она защищает северную границу Китая на протяжении шести тысяч километров. Весь мир считает ее символом Китая. Что в этих словах - правда, а что - легенда? Что это гигантское сооружение может поведать о своих строителях? И какова ее истинная история?Жанр: Документальный, познавательный, историческая реконструкцияПеревод: Одноголосый закадровый (профессиональный, студия "Кипарис" по заказу ГТРК "Культура")Продолжительность: 2 x ~00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB98AF82FC575061D374EBD1BC7183C189F6239
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227293   (648473) от 25.05.2018
 
 NGW: Дикая природа Аргентины. Водное царство / Wild Argentina. Water Kingdoms (2017) HDTV [H.264/1080p-LQ]
@@ -6,7 +84,7 @@ NGW: Дикая природа Аргентины. Водное царство /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648473.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ NG: Испытайте свой мозг / Test Your Brain (2011) DVDRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646874.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ NG. Следствие по делам хищников / Predator CSI (2007) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646437.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ NG. Удивительная планета / Amazing Planet (2006) BDRip [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_645566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_645566.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ NGW: Прекрасная Америка: На границе с дикой пр
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643031.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ NG. Фри-соло / Free Solo (2018) HDTV [H.264/1080i-LQ] [MVO]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642693.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ NG. Тайны истории. Человек в железной маске / M
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641652.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ NG. Тайны истории. Леонардо да Винчи / Mystery Files.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641596.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ NGW: Скала леопардов / The Leopard Rocks (2017) HDTV [H.264/1080i-
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641069.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ NGW: Дикие земли Европы / Europe's Great Wilderness (2015) HDTV 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640934.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ NG. Фри-соло / Free Solo (2018) HDTVRip [MVO]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640639.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ National Geographic. Смертельный бой динозавров / Dino D
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639533.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ NG. Тираннозавр: чемпион по выживанию / T.Rex: Ulti
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639023.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ NG: С точки зрения науки. Экспедиция "Виски" / N
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638985.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ NGW: Африканские охотники / Africa's Hunters. (2018) HDTV [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638833.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ NG. В поисках правды / The Truth Behind (2011) HDTVRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637433.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ NGW: Крупные рыбы Зэба: огромный сом / Monster Fish. Z
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637380.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ NG: Затерянная гробница Александра Великого 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637266.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ NG. Фри-соло / Free Solo (2018) BDRemux [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636970.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ NG: Испытайте свой мозг / Test Your Brain (Brain Games, Teste d
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636693.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ NG: Нефтяное загрязнение столетия / Oil Spill of the 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635371.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ NG: Осушить океан: глубокое погружение. Шторм
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635360.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ NGW: Прирождённые монстры. Тигровая змея / Natura
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634016.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ NGW: Прирождённые монстры. Тигровая змея / Natura
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:763D9998238D8FBFC8372ACDD51C2D66C0074098
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228672   (633923) от 02.06.2018
-
-NGW: Прирождённые монстры. Бразильский паук / Natural born monsters (2015) HDTV [H.264/1080i-LQ] (Сезон 1, эпизод 2)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шон Дугган отправляется на Коста-Рику в поисках самых ядовитых пауков в мире.Производство: США, Karga Seven Pictures, National GeographicЖанр: Документальный, природа, флора, фаунаРежиссер: B.J. GolnickПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EC9E5394A4AF0C72938070AAB01D2420A826DB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 429721   (632163) от 14.07.2016
-
-National Geographic: Острова. Исландия / Islands. Island (2011) SATRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Далекие, прекрасные, загадочные, уникальные острова, словно закрытые миры жизнь в этих удаленных уголках развивалась по своему пути, но в современном взаимосвязанном мире острова также являются частью глобального общества, которое меняется к лучшему или худшему. Мы расскажем вам о жизни на островах, вы обнаружите, что независимо от, насколько далеко люди живут от (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:188119B0D2275BBB6DC2583F8F03AAEE9C1EF918
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 430119   (632158) от 14.07.2016
-
-National Geographic: Острова. Занзибар / Islands. Zanzibar (2011) SATRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Далекие, прекрасные, загадочные, уникальные острова, словно закрытые миры жизнь в этих удаленных уголках развивалась по своему пути, но в современном взаимосвязанном мире острова также являются частью глобального общества, которое меняется к лучшему или худшему. Мы расскажем вам о жизни на островах, вы обнаружите, что независимо от, насколько далеко люди живут от (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FF320FF14FB910743C0C73AA89BA0B89C4FB8AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

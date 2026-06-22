@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1876285   (1073111) от 
+
+NG: Седьмой континент: Антарктика / Continent 7: Antarctica (2016) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экспедиционная группа отправляется на самый загадочный материк планеты - туда, где горизонт растворяется в белизне, а ветер звучит как живое предупреждение. Их путь пролегает через бескрайние ледяные плато, трещины в панцире древних ледников и внезапные шторма, способные в одно мгновение перечеркнуть планы. С каждым пройденным километром испытания становятся жестче: (   Читать дальше...   )Производство: США, National Geographic StudiosЖанр: документальный, наука, исследование, экстримУчастники: Крис БраунингПеревод: Двуголосый профессиональныйЯзык озвучки: русский, английский (студия "Велес", текст читают Дмитрий Стрелков и Марина Гладкая)Субтитры: английскиеПродолжительность: 6 x ~ 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFBADD27CFADFE37220B4CABD797A2D5132C46C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875504   (1072619) от 
 
 BBC: Царство животных / Kingdom (2025) WEB-DL [H.265/2160p] [4K, HDR HLG, 10-bit] (сезон 1, серии 1-6 из 6) [MVO]
@@ -7,7 +33,7 @@ BBC: Царство животных / Kingdom (2025) WEB-DL [H.265/2160p] [4K, 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072619.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ BBC: Родительство / Parenthood (2025) WEB-DL [H.265/2160p] [4K, HDR 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071798.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ PBS: Насекомые, которые правят миром / Bugs That Rule
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071619.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ NG: Внутри Заколдованных Лесов / Inside the Enchanted Fo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070937.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ NG: Внутри Заколдованных Лесов / Inside the Enchanted Fo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070936.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ NG: Дэвид Аттенборо: Океан / Океан с Дэвидом А�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069503.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069489.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ NG. Аутсайдеры / Underdogs (2025) WEB-DL [H.265/2160p] [4K, HDR, 10-bi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068602.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ NG. Аутсайдеры / Underdogs (2025) WEB-DL [H.264/1080p] (сезон 1, 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068601.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ NG: Чернобыль: В эпицентре катастрофы / Chernobyl: 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067836.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ NG. Слоны-призраки / Ghost Elephants (2025) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067409.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ NG. Слоны-призраки / Ghost Elephants (2025) WEB-DL [4K, HDR, 10-bit
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067408.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067374.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ NG. Секреты пчёл / Secrets of the Bees (2026) WEB-DL [H.265/2160p] [4
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064457.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ NG. Секреты пчёл / Secrets of the Bees (2026) WEB-DL [H.264/1080p] (�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064448.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064380.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ BBC. По следам уссурийского тигра / Operation Snow Tige
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063149.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ NG: Драконы наяву / Dragons Uncovered (2024) HDTV [H.264/1080p] [VO]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062759.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ NG. Озеро Танганьика. Голубое сердце Африки / 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062196.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ NG. Фашистский лагерь смерти. Большой побег / 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061956.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060814.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060089.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060081.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059411.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059241.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACED6C2D38095BAE2212DC3FDC89E1CF8A3F38A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856375   (1058903) от 28.02.2026
-
-BBC: История Вселенной / Our Universe (2022) WEB-DLRip [AV1/2160p] [4K, HDR10, 10-bit] (сезон 1, серии 1-6 из 6) Студия-2А
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Насколько большая наша Вселенная? Есть ли жизнь на других планетах? Какие тайны хранят в себе космические просторы? Этими вопросами человечество задаётся уже много столетий, но найти точные ответы на них невозможно. Приоткрыть занавес над тайнами космоса помогут лучшие фильмы про вселенную, снятые в художественном и документальном жанре. Конечно, в художественном (   Читать дальше...   )Производство: США, BBC StudiosЖанр: документальныйРежиссер: Наоми Остин, Стивен Кутер, Элис ДжонсУчастники: Морган ФриманПеревод: Дублированный (Студия-2А)Язык озвучки: РусскийСубтитры: Русские (forced)Продолжительность: ~00:44:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:444DD216A6E781B02018B1EE14253F6AD297933A
 ```
 
 https://mybot314.ru/tekegram_catalog/

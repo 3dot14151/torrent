@@ -1,3 +1,61 @@
+###  Публикация: 854345   (13136) от 29.06.2025
+
+VA - Музыка тишины Vol.1-2 (2014) [MP3|320 кб/с]<Instrumental, New Age, Smooth Jazz>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lars Alsing — Spirit
+02. Al Conti — Song of Rig
+03. Euge Groove — Don't Let Me Be Lonely Tonight
+04. Nathalie Manser — La lune baila(   Читать дальше...   )Жанр: Instrumental, New Age, Smooth JazzПродолжительность: 04:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57D2D4CC264CBA9F6DF2B675533ADEE3A0710605
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814415   (6134) от 24.08.2025
+
+Secret Garden - Compilation (2025) [MP3|320 Kbps] <Easy Listening, Instrumental,Piano, Violin>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Promise (Piano and Violin Version)
+02 - Searching for the Past
+03 - Illumination
+04 - Belonging(   Читать дальше...   )Жанр: Easy Listening, Instrumental,Piano, ViolinПродолжительность: 03:12:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41E2FFB018A1869193F6B30498D258ECC68A6D99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815729   (4975) от 31.08.2025
 
 Anna Zueva - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Easy Listening, Instrumental>
@@ -6,7 +64,7 @@ Anna Zueva - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Easy Listening, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4975.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Anna Zueva - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Easy Listening, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4653.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ York Patrick - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Electronic, Ea
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3605.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Anna Zueva - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Easy Listening, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3180.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Buddha Bar - Premium Playlist {c} (2007-2025) [MP3|320 Kbps] <Lounge, Chill
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1153.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Buddha Bar - Premium Playlist {#, a} (2007-2025) [MP3|320 Kbps] <Lounge, Ch
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1131.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Buddha Bar - Premium Playlist {b} (2007-2025) [MP3|320 Kbps] <Lounge, Chill
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1130.jpg" />
 </div>
 
 

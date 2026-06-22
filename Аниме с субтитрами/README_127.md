@@ -1,3 +1,29 @@
+###  Публикация: 1754309   (33302) от 23.12.2024
+
+Raise wa Tanin ga Ii | Yakuza Fiance | Незнакомцы в другой жизни [2024, TV, 12 эп.] WebRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неожиданная помолвка как снег на голову обрушилась на Ёсино, внучку главного якудза всего кансайского региона. Дедушка хочет выдать её за Кирисиму, внука главы семьи Мияма. По плану двух лидеров подпольного мира, это станет первым шагом к перемирию между группировками. К удивлению Ёсино, Кирисима оказывается крайне приличным молодым человеком и совсем не похож на (   Читать дальше...   )Производство: Студия Studio Deen / スタジオディーンЖанр: романтика, драмаРежиссер: Кавасэ ТосифумиПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:745676055A6756533EB977E27987D19197857949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753995   (33295) от 23.12.2024
 
 Seirei Gensouki 2 / Seirei Gensouki: Spirit Chronicles 2 / Хроника мифического духа 2 [2024, TV, 12] WEBRip 720p raw
@@ -6,7 +32,7 @@ Seirei Gensouki 2 / Seirei Gensouki: Spirit Chronicles 2 / Хроника миф
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33295.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ MF Ghost (2024) | MF Призрак 2 [2024, TV, 12 эп.] WEBRip 720 raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33293.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Love Live! Superstar!! 3 / Живая любовь! Суперзвёзды!! 3 [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33173.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ Natsume Yuujinchou Shichi | Natsume's Book of Friends Season 7 | Тетрадь 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33169.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ Sengoku Youko / Ёко из Сэнгоку [2024, TV, 35] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33109.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ Yarinaoshi Reijou wa Ryuutei Heika o Kouryakuchuu | На этот раз оде�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33097.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ Tasuketsu: Fate of the Majority | Tasuuketsu | Правило большинст
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33084.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ Shin Tennis no Ouji-sama: U-17 World Cup Semifinal | Новый принц те�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33075.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ Yeosin Gangnim | True Beauty | Истинная красота [2024, Web, 13 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32886.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ Blue Lock vs. U-20 Japan | Синяя тюрьма: Блю Лок [ТВ-2] [2024
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32646.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ Kami no Tou: Koubou-sen | Tower of God: Workshop Battle | Башня Бога: �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32550.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ Kamonohashi Ron no Kindan Suiri 2nd Season  | Безумные расследо�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32521.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ Wasurenagumo | Li'l Spider Girl | Паучонок [2012, Special] BDRip 1080p H
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32405.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ Fate/Strange Fake | Судьба: Странная подделка [ТВ] [2024
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32311.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ Bleach: Sennen Kessen Hen - Soukoku Tan | Bleach: Thousand-Year Blood War - The 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31968.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ Ishura | Исура [ТВ-1] [2024, TV, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31669.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ Astarotte no Omocha! | Игрушка Астаротты [ТВ] [2011, TV, 12 + 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29711.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ Shiguan Daliren: Yingdu Pian | Time Agent: Bridon Arc | Агент времен�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29225.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ Nanatsu no Taizai: Mokushiroku no Yonkishi 2 | The Seven Deadly Sins: Four Knigh
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28103.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ Rescue Me! | Спаси меня! [2013, OVA] BDRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27530.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ Dokyuu Hentai HxEros | Super HxEros | Формирование извращён�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27484.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ Arifureta Shokugyou de Sekai Saikyou Season 3 | Arifureta: From Commonplace to W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27279.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ Dragon Ball Daima | Драгонболл Дайма [2024, TV, 20 эп.] WebRip 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26106.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ Botsuraku Yotei no Kizoku Dakedo, Hima Datta kara Mahou o Kiwamete / Перер�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24427.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ Salaryman ga Isekai ni Ittara Shitennou ni Natta Hanashi / История о с�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24420.jpg" />
 </div>
 
 
@@ -657,32 +683,6 @@ Salaryman ga Isekai ni Ittara Shitennou ni Natta Hanashi / История о с�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FCD05F18C3DFAA7695BD17B19D4B362938588E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770574   (24208) от 19.03.2025
-
-Izure Saikyou no Renkinjutsushi? / Possibly the Greatest Alchemist of All Time / Однажды я стану величайшим алхимиком? [2025, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24208.jpg" />
-</div>
-
-
-###  Подробнее
-
-40-летний Такуми Ирума оказался по ошибке затянут в мир магии и jRPG-механик в ходе призыва группы героев. Заметившая это богиня не смогла отменить призыв, но подсуетилась и закинула парня на сотни лет в прошлое – задолго до той беды, ради разборок с которой героев призывали изначально – а по пути омолодила до 17-и лет и накидала ему разных читерских бонусов типа (   Читать дальше...   )Жанр: приключения, фэнтези.Режиссер: Кудзуя НаоюкиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B2BDA687A1B2996DE4E2767BDAB86A4FEC590CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

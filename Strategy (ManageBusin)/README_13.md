@@ -6,7 +6,7 @@ Corpse Keeper (2023) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53566.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Thriving City: Song (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53527.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Startopia (2001) [Ru/En] (1.0) Unofficial
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53171.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Tropico 6 (2019) [Ru/Multi] (22/dlc) Scene Doge [El Prez Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52483.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Tropico 6 (2019) [Ru/Multi] (22/dlc) Repack dixen18 [El Prez Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52455.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ The Invisible Hand (2021) [En] (1.2.3) License GOG [Deep Pockets Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52415.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ El Dorado: The Golden City Builder (2024) [Ru/Multi] (332.1048973) Repack Wagner
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52407.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ El Dorado: The Golden City Builder (2024) [Ru/Multi] (332.1048973) Repack FitGir
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52313.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Ghostboy (2024) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51689.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Republic of Pirates (2024) [Ru/Multi] (0.24.3) Repack FitGirl [Soundtrack Bundle
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51530.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Chocolate Factory (2024) [Ru/Multi] (1.006) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51506.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Winkeltje: The Little Shop (2022) [Ru/Multi] (10793/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51152.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Good Company (2020) [Ru/Multi] (1.1.01/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51150.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Chocolate Factory (2024) [Ru/Multi] (1.006) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50885.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Land of the Vikings (2023) [Ru/Multi] (1.2.1a) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50105.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Barn Finders (2020) [Ru/Multi] (25982/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50079.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Station to Station (2023) [Ru/Multi] (1.4.1) Scene Skidrow
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50011.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Founders' Fortune (2020) [Ru/Multi] (1.2.8) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49768.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ TerraScape (2024) [Ru/Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49663.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Zet Zillions (2024) [Ru/Multi] (1.0.4) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49118.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ HexoCity (2024) [Multi] (1.1.1.1199) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49075.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Blood Bowl III (3) (2023) [Ru/Multi] (1.5.3.0/dlc) Scene Skidrow
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49011.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Harvest Days: My Dream Farm (2022) [Multi] (1.0.0-dsp/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48717.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Rising Lords (2020) [Multi] (1.1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48667.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Totally Accurate Battle Simulator (2019) [Ru/Multi] (1.0/dlc) Scene TiNYiSO
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48504.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Railway Empire 2 (2023) [Ru/Multi] (1.4.0.61453/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48349.jpg" />
 </div>
 
 

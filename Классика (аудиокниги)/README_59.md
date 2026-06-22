@@ -1,3 +1,56 @@
+###  Публикация: 1685664   (127050) от 19.12.2023
+
+Вальтер Скотт | Айвенго (2006) [MP3, Владимир Рыбальченко]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из популярнейших романов Вальтера Скотта (1771–1832)  «Айвенго» (1819) повествует об увлекательных и героических событиях из жизни средневековой Англии. Писатель обращается к важному историческому моменту, когда король Ричард Львиное Сердце возвращается в Англию после Крестовых походов и пребывания в плену. Страна раздираема конфликтами между саксами и норманнами, (   Читать дальше...   )Жанр: Зарубежная литература, классика, исторический романИздательство: БиблиофоникаПродолжительность: 19:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B26AD6D3292471F08593952C153FB47847CBE3FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685672   (127048) от 19.12.2023
+
+Вальтер Скотт | Талисман, или Ричард Львиное Сердце в Палестине (2012) [MP3, Вадим Максимов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Зарубежная классика.
+«Талисман, или Ричард Львиное Сердце в Палестине» – исторический роман Вальтера Скотта, посвященный событиям Третьего крестового похода. Сложные взаимоотношения короля Англии Ричарда Львиное Сердце и предводителя арабов султана Саладина, любовь бедного шотландского рыцаря Кеннета и дамы его сердца леди Эдит и таинственный талисман (   Читать дальше...   )Жанр: Зарубежная литература, классика, исторический романИздательство: Студия «АРДИС»Продолжительность: 15:27:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC86CDC2DF78EB6639C095EFAAD15CD8BA50705
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685666   (127044) от 19.12.2023
 
 Вальтер Скотт | Айвенго (2006) [MP3, Ростислав Плятт, Евгений Леонов, Георгий Менглет и др.]
@@ -6,7 +59,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127044.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127042.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127041.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126885.jpg" />
 </div>
 
 
@@ -117,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126874.jpg" />
 </div>
 
 
@@ -144,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126872.jpg" />
 </div>
 
 
@@ -171,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126871.jpg" />
 </div>
 
 
@@ -199,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126862.jpg" />
 </div>
 
 
@@ -227,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126856.jpg" />
 </div>
 
 
@@ -255,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126854.jpg" />
 </div>
 
 
@@ -283,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126693.jpg" />
 </div>
 
 
@@ -310,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126684.jpg" />
 </div>
 
 
@@ -338,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126679.jpg" />
 </div>
 
 
@@ -365,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126594.jpg" />
 </div>
 
 
@@ -393,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126542.jpg" />
 </div>
 
 
@@ -420,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126486.jpg" />
 </div>
 
 
@@ -447,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126473.jpg" />
 </div>
 
 
@@ -474,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126451.jpg" />
 </div>
 
 
@@ -501,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126431.jpg" />
 </div>
 
 
@@ -529,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126419.jpg" />
 </div>
 
 
@@ -557,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126396.jpg" />
 </div>
 
 
@@ -586,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126226.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126219.jpg" />
 </div>
 
 
@@ -642,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126197.jpg" />
 </div>
 
 
@@ -653,61 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E8C421106172E1842B6D29C107681872706FEB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823642   (125924) от 12.10.2025
-
-Вашингтон Ирвинг | Легенда о Сонной лощине (2015) [MP3, Александр Дубина]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Зарубежная классика.
-Новелла «Легенда о Сонной лощине,  пожалуй, самое знаменитое произведение выдающегося американского писателя Вашингтона Ирвинга (1783–1859), вошедшее в мировой фонд литературы и многократно экранизированное. Изящный рассказ уверенно балансирует на грани мистики и реальности, фантастики и юмора.
-Жители Сонной Лощины в штате Нью-Йорк (   Читать дальше...   )Жанр: Зарубежная литература, классика, мистика, новеллаПеревод: З.П. ВольскаяИздательство: Студия «АРДИС»Продолжительность: 01:20:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5F448E0BEF5F7EFFD23FAE4F0BBC0222A57E0FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823640   (125896) от 12.10.2025
-
-Вашингтон Ирвинг | Новеллы (2008) [MP3, Александр Москалин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Зарубежная классика (АСТ).
-Современному слушателю трудно представить себе, сколь велика была популярность Вашингтона Ирвинга (1783–1859) в его время. Соотечественники писателя шутили, что Европа знает США только по Ниагарскому водопаду и книгам Ирвинга. Было и официальное признание его заслуг – почетные дипломы, золотые медали, членство в различных ученых (   Читать дальше...   )Жанр: Зарубежная литература, классика, новелла, рассказПеревод: Ананий БобовичИздательство: Аудиокнига (АСТ)Продолжительность: 08:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:523FEF1B25CEE8B995D7254169B916B589AB9732
 ```
 
 https://mybot314.ru/tekegram_catalog/

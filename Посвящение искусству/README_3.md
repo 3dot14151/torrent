@@ -1,3 +1,81 @@
+###  Публикация: 1450592   (1028899) от 27.02.2021
+
+Ништяк, браток / Feels Good Man (2020) WEB-DL [H.264/1080p-LQ] [MVO]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028899.jpg" />
+</div>
+
+
+###  Подробнее
+
+В середине 2000-х художник Мэтт Фьюри рисовал и выкладывал на MySpace комикс про своих друзей, бездельно проживающих жизнь после университета в одном доме. Среди героев был лягушонок по имени Пепе: «Ништяк, браток» — фраза из его репертуара. Примерно через 10 лет Фьюри к своему ужасу обнаружил, что Пепе стал оружием массового медиапоражения — его превратили в героя (   Читать дальше...   )Производство: США / Ready Fictions, Wavelength Productions, XTRЖанр: Документальный, комедияРежиссер: Артур ДжонсАктеры: Роберт Барнс, Саманта Би, Джереми Блэкберн, Сьюзэн Блэкмор, Мэтт Брайнард, Хиллари Клинтон, Стивен Колбер, Мэтт Фьюри, Урсала ФьюриПеревод: Многоголосый профессиональный (Студия «AMS»)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00F3C0EF7D8AB484BCAB6257C9E378D0225BD994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450606   (1028895) от 27.02.2021
+
+Ништяк, браток / Feels Good Man (2020) WEB-DLRip [MVO]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028895.jpg" />
+</div>
+
+
+###  Подробнее
+
+В середине 2000-х художник Мэтт Фьюри рисовал и выкладывал на MySpace комикс про своих друзей, бездельно проживающих жизнь после университета в одном доме. Среди героев был лягушонок по имени Пепе: «Ништяк, браток» — фраза из его репертуара. Примерно через 10 лет Фьюри к своему ужасу обнаружил, что Пепе стал оружием массового медиапоражения — его превратили в героя (   Читать дальше...   )Производство: США / Ready Fictions, Wavelength Productions, XTRЖанр: Документальный, комедияРежиссер: Артур ДжонсАктеры: Роберт Барнс, Саманта Би, Джереми Блэкберн, Сьюзэн Блэкмор, Мэтт Брайнард, Хиллари Клинтон, Стивен Колбер, Мэтт Фьюри, Урсала ФьюриПеревод: Многоголосый профессиональный (Студия «AMS»)Язык озвучки: Русский, английскийПродолжительность: 01:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A232272A8262C9341597C2025C6A2CD0DE9D2F35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450814   (1028719) от 28.02.2021
+
+Ронни Вуд - Кто-то там наверху любит меня / Ronnie Wood - Somebody Up There Likes Me (2019) DVB [H.264/1080i-LQ] [MVO]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм Майка Фиггиса рассказывает о легендарном участнике группы The Rolling Stones Ронни Вуде — мы узнаем его как художника, музыканта и просто сильного человека. Ронни Вуду уже за 70, но он в отличной форме. Фильм начинается с рассказа о его юности в северном Лондоне, где он стал увлекаться музыкой вместе со старшими братьями, и охватывает всю его уникальную, более (   Читать дальше...   )Телекомпания: Великобритания / Eagle Rock Film ProductionsЖанр: Документальный, музыка, биографияПеревод: Многоголосый профессиональный (Первый канал)Субтитры: отсутствуютПродолжительность: 01:07:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9423917D87FC3F8980AA5A2C42B8F4FBEA04A664
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450917   (1028714) от 28.02.2021
 
 Мелодии и ритмы зарубежной эстрады / Pop Gear (1965) DVB
@@ -6,7 +84,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028714.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028708.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027922.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027902.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027776.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027235.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Notorious B.I.G.: моя история / Biggie: I Got a Story to Tell (2021) W
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026564.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026104.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024902.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024735.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024611.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024406.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Artlife Fest: Искусство объединять (2020) WEBRip [H.264/1080p
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024266.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023497.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023389.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023387.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023189.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023016.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022796.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022794.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021939.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021790.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021313.jpg" />
 </div>
 
 
@@ -593,85 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7323856053CB352F7FE884B0FE815902E9C5691E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462387   (1021156) от 14.04.2021
-
-Феномен Бумажного дома / La casa de papel: El fenomeno (2020) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм о том, почему и как сериал Бумажный дом завоевал огромную популярность во всем мире, а также о звездах проекта, исполнивших культовые роли в одном из самых популярных фильмов про ограбления.Производство: Испания / Vancouver MediaЖанр: ДокументальныйРежиссер: Luis Alfaro Palacios, Pablo LejarretaПеревод: Многоголосый профессиональный (HDRezka Studio)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:56:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6006BD567D81E308F00B1F6514052B28FF1A094A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029022   (1021116) от 14.04.2021
-
-По волне моей памяти: ПЕСНЯРЫ Леонида Борткевича (части 1-2 из 2, полная версия) (2013) WEB-DLRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021116.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Русское вторжение на западный фронт», — именно так в середине семидесятых годов двадцатого века назвала выступления ансамбля «Песняры» в США американская пресса.
-И действительно, в 70-е «Песняры», пожалуй, были единственным рок-коллективом из СССР, который признали на Западе. За их профессионализм, мелодизм и особую эстетику. Визитной карточкой легендарного музыкального (   Читать дальше...   )Телекомпания: «ЦТ», ВремяЖанр: Телепередача, ТВ-ШоуПродолжительность: 01:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA57B30C3623FF52024077DB425A1035B43B59C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462748   (1020651) от 17.04.2021
-
-Наше кино. Чужие берега (2017) DVB (серии 1-4 из 4)
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл документальных фильмов об отечественном и зарубежном кинематографе. Российское кино появилось на свет и развивалось в соперничестве с крупнейшими на тот момент европейскими кинематографиями... Каждый фильм посвящен отдельной вехе развития отечественного кинематографа XX столетия. Как происходило его взаимодействие, как складывались отношения, порой очень непростые, (   Читать дальше...   )Телекомпания: Россия / ТВ КультураЖанр: Документальный, Искусство, ИсторияРежиссер: Георгий СушкоСубтитры: русские, телетекст (888)Продолжительность: ~00:40:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D845333677447FA0C718B7917684EDFB5C3F1B90
 ```
 
 https://mybot314.ru/tekegram_catalog/

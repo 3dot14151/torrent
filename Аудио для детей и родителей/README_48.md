@@ -1,3 +1,61 @@
+###  Публикация: 229463   (517236) от 23.08.2010
+
+И.С.Бах - Первые встречи с музыкой (2005) [MP3|320 kbps]<Классическая музыка для детей>
+
+>>Аудио для детей и родителей
+>>Классика для мам и малышей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Менуэт соль мажор №1 (Из "Нотной тетради Анны Магдалены Бах")
+02. Менуэт до минор (Из "Нотной тетради Анны Магдалены Бах")
+03. Менуэт соль мажор №2 (Из "Нотной тетради Анны Магдалены Бах")
+04. Менуэт ре минор (Из "Нотной тетради Анны Магдалены Бах")(   Читать дальше...   )Жанр: Классическая музыка для детейПродолжительность: 00:54:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 229596   (516214) от 24.08.2010
+
+VA - Детское Ассорти (2010) [MP3|128 kbps]<Pop>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Чунга-чанга
+02 - Танец утят
+03 - Песня бременских музыкантов
+04 - Песня охранников(   Читать дальше...   )Жанр: PopПродолжительность: 12:07:18
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314960   (516063) от 17.07.2019
 
 Геннадий Цыферов | 100 сказок-малюток (2010) [MP3]
@@ -6,7 +64,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516063.jpg" />
 </div>
 
 
@@ -32,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515076.jpg" />
 </div>
 
 
@@ -59,7 +117,7 @@ VA - A la ferme De Mathurin (2007) [MP3|320 kbps]<Детские песенки>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514553.jpg" />
 </div>
 
 
@@ -88,7 +146,7 @@ Francis Bernier - Prince d'Azur (2007) [MP3|128 kbps]<Детские песен�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514490.jpg" />
 </div>
 
 
@@ -117,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514385.jpg" />
 </div>
 
 
@@ -146,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514336.jpg" />
 </div>
 
 
@@ -175,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514289.jpg" />
 </div>
 
 
@@ -204,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514194.jpg" />
 </div>
 
 
@@ -233,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512152.jpg" />
 </div>
 
 
@@ -262,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511797.jpg" />
 </div>
 
 
@@ -290,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510997.jpg" />
 </div>
 
 
@@ -317,7 +375,7 @@ Rattan Sharma - Mantras for Children and Young Adults (2004) [MP3|320 kbps]<Ма
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510961.jpg" />
 </div>
 
 
@@ -347,7 +405,7 @@ VA - Колисанки (2004) [MP3|320 kbps]<Колыбельные песен�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510959.jpg" />
 </div>
 
 
@@ -376,7 +434,7 @@ VA - Здравствуй, школа! (2010) [MP3|320 kbps]<Музыка и п�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510886.jpg" />
 </div>
 
 
@@ -405,7 +463,7 @@ VA - Гарний настрій. Співають діти (2006) [MP3|309-319 
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510803.jpg" />
 </div>
 
 
@@ -434,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510795.jpg" />
 </div>
 
 
@@ -463,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510281.jpg" />
 </div>
 
 
@@ -489,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509893.jpg" />
 </div>
 
 
@@ -515,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509637.jpg" />
 </div>
 
 
@@ -541,7 +599,7 @@ VA - Songs for children 3 (2007) [MP3|128 kbps]<Детские песенки.>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509591.jpg" />
 </div>
 
 
@@ -570,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509494.jpg" />
 </div>
 
 
@@ -596,7 +654,7 @@ VA - Давайте Жить Дружно (2003) [MP3|320 kbps]<Детские �
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509345.jpg" />
 </div>
 
 
@@ -625,7 +683,7 @@ VA - Школьная пора (2007) [MP3|160 kbps]<Песенки для де�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509343.jpg" />
 </div>
 
 
@@ -654,7 +712,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509287.jpg" />
 </div>
 
 
@@ -665,64 +723,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09DBE3CADFB1B99AC5D48FD56520D7B3D7B62B63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 232220   (508990) от 31.08.2010
-
-VA - Песни Про Маму (2010) [MP3|256 kbps]<Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка песен про самого дорогого и любимого человека в жизни - про Маму. Песни исполнены юными дарованиями, что делает их ещё более трогательными и искренними. Надеюсь, что песни вам понравятся.01. А я игрушек не замечаю
-02. Бабушка
-03. Мама, папа,
-04. Мама(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:40:04
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 377585   (508463) от 19.08.2011
-
-VA - Monster Mash & Other Songs of Horror (2000) [MP3|320 kbps]<Детские песенки и музыка>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monster Mash
-02. Ghostbusters
-03. Twilight Zone (Movie Theme)
-04. Love Potion No. 9(   Читать дальше...   )Жанр: Детские песенки и музыкаПродолжительность: 00:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF6A187FFED87C847C7E0E6535C71FF3D91E483D
 ```
 
 https://mybot314.ru/tekegram_catalog/

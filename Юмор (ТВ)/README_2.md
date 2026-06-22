@@ -1,3 +1,107 @@
+###  Публикация: 1845466   (1050659) от 31.12.2025
+
+Звёзды (2025.12.31) WEBRip [H.264/1080p]
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050659.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 российских топ-звёзд будут соревноваться, кто же смешнее. Помогать им будут как полюбившиеся команды из первого сезона («Регионы», «Астана», «Наполеоны», «Красноярск», «Борцы»), так и новые (поверьте, будут сюрпризы). Новое, но уже легендарное шоу «Звёзды» в VK Видео! Десять супер-популярных звёзд сойдутся лицом к лицу, чтобы побороться за звание самой смешной (   Читать дальше...   )Телекомпания: Medium Quality, VK ВидеоЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 02:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CC7BDDFCF80B6F841BF74FFE57E64FF627526F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845463   (1050642) от 31.12.2025
+
+Камеди Клаб / Комеди Клаб / Comedy Club (2025.12.31-2026.01.01) SATRip
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050642.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Павел Воля, Гарик Харламов, Тимур Батрутдинов, Александр Ревва, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Марина Кравец и др.Субтитры: ОтсутствуютПродолжительность: 01:22:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA3FADD6C912EEBE2A1A4AA3AC80639DE5DBB596
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845279   (1050583) от 30.12.2025
+
+Сборник Новогодних Номеров 2025 – Уральские Пельмени (30.12.2025) WEBRip [H.264/1080p]
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наступает самый волшебный день в году. Пусть он станет для вас и самым весёлым! Вместе с новогодними номерами, песнями и поздравлениями от Шоу «Уральские Пельмени». С праздником, друзья!Телекомпания: СТСЖанр: ЮморУчастники: Дмитрий Брекоткин, Сергей Ершов, Сергей Исаев, Сергей Калугин, Вячеслав Мясников, Александр Попов, Андрей Рожков, Дмитрий Соколов, Максим Ярица, Илана Юрьева, Ксения Корнева и др.Субтитры: ОтсутствуютПродолжительность: 02:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A814C228468DC8AA3475189C5DF5454CB2EC7576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845222   (1050572) от 30.12.2025
+
+КВН-2025. Высшая лига. Финал (2025.12.30) SATRip
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН - это популярные юмористические игры, в которых команды различных коллективов (учебных заведений, вузов, предприятий и т. д.) соревнуются в импровизациях на заданные темы, разыгрывании заранее заготовленных сцен, остроумных ответах на вопросы и т. дТелекомпания: "Первый канал"Жанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:59:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFAFF68BF77A152E6BBF290E7ED953F760F27453
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845317   (1050555) от 31.12.2025
 
 КВН-2025. Высшая лига. Финал (2025) WEBRip [H.264/1080p]
@@ -6,7 +110,7 @@
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050555.jpg" />
 </div>
 
 
@@ -34,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050379.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050252.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050078.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050077.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049284.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049226.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049215.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049071.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048213.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048210.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048045.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048044.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047415.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047406.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047203.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047202.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046554.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046552.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046549.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046548.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046464.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7AB9A3B1241E4686E4F23EEAFA89F05CB5D4E1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601733   (1046375) от 01.01.2023
-
-Уральские пельмени. Визги шампанского (31.12.2022) WEBRip [H.264/1080p]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто ездит на рыбалку 1 января? Что делал Дмитрий Брекоткин в цирке? Как заправить все салаты, если купил только маленькую пачку майонеза? Новогодние вопросы и новогодние ответы в праздничном концерте «Визги шампанского» от Шоу  «Уральские Пельмени».Телекомпания: СТСЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:377B5BC791530136B069D31F82A03EB18F12717B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602062   (1046189) от 04.01.2023
-
-Однажды в России (31.12.2022) WEBRip [H.264/1080p]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Телекомпания: ТНТЖанр: Юмористическое тв-шоуАктеры: Азамат Мусагалиев, Екатерина Моргунова, Тимур Тания, Ольга Картункова, Александр Пташенчук, Максим Киселёв, Денис Дорохов, Заур Байцаев, Давид Цаллаев, Яна Кошкина и др.Субтитры: ОтсутствуютПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB197CF0B1E6E3302655FA64FA0B46C9913D3EB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593921   (1046171) от 04.01.2023
-
-Это миниатюры (2022) WEBRip [H.264/1080p] (сезон 1, выпуски 1-9 из ??) (обновляемая)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046171.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Это миниатюры» Антон Шастун, Илья Макаров, Азамат Мусагалиев, Денис Дорохов, Яна Кошкина и другие известные комики объединятся в неожиданные дуэты или трио. В каждом выпуске они будут показывать номера, оценивать которые предстоит зрителям в зале. Обойти нужно не только соперников, но и приглашенных звезд. Чем больше зрительских голосов наберут комики, тем больше (   Читать дальше...   )Телекомпания: ТНТ4Жанр: ТВ-шоу, юморРежиссер: Анатолий ПереверзевПродолжительность: ~00:45:00 выпуск
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8FABAD0547FD57CB60BF328E5D87F96D9A2F805
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582418   (1046167) от 04.01.2023
-
-Открытый микрофон (2022) WEBRip [H.264/1080p] (сезон 7, выпуск 1-19 из 19)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый сезон стендап-шоу, в котором топовые комики страны выбирают лучших молодых стендаперов и учат их быть ещё круче. В конце сезона останется только один - самый смешной и запоминающийся. Он получит 3 миллиона рублей. Наставниками нового сезона станут Алексей Щербаков, Юлия Ахмедова, Нурлан Сабуров и Иван Абрамов. Шоу «Открытый микрофон» – это социальный лифт для (   Читать дальше...   )Телекомпания: ТНТ, Comedy Club ProductionЖанр: ТВ-шоу, ЮморРежиссер: Роман Новиков, Аким КарташовСубтитры: ОтсутствуютПродолжительность: ~00:45:00 выпуск
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D112A4BC19A4361BC5D923B397AEFE6BB390F30D
 ```
 
 https://mybot314.ru/tekegram_catalog/

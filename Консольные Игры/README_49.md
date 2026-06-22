@@ -1,3 +1,188 @@
+###  Публикация: 1182477   (316188) от 10.11.2017
+
+NHL Legacy Edition (2015) [PS3] [EUR] 4.21 [Repack / 1.01] [Ru/Multi]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316188.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре NHL Legacy Edition собраны все самые популярные режимы игры и лучшие игровые функции, опробованные за девять лет серии NHL. Обновленные составы и аутентичные турнирные таблицы позволят фанатам насладиться полноценной игрой в хоккей.
+
+Функция True Performance Skating покажет взрывной, динамичный и агрессивный хоккей на высоких скоростях в исполнении лучших (   Читать дальше...   )Тип издания: RepackРазработчик: EA CanadaЖанр: Sports, Ice HockeyЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18D934B1F0194FA03A1A372B2875B8BCA10C9A9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332048   (315836) от 19.10.2019
+
+Chasm (2018) [Switch] [USA] 9.0.1 / NSP [Unofficial / 1.0.71 ] [Ru/En]
+
+>>Консольные Игры
+>>Switch
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Chasm, приключенческую игру, в которой вы играете за новоиспеченного рекрута, выполняющего свою первую миссию для Гилданского королевства (Guildean Kingdom). Чтобы доказать при дворе свою ценность как рыцаря, вы отслеживаете странные слухи о том, что шахта, жизненно важная для королевства, была закрыта. Но то, что вы обнаружите в шахтерском городе, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Bit Kid, Inc.Жанр: Экшн, Ролевая игра, MetroidvaniaЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7507E02E81BA786BE48178C8304F3988A76DF65A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268138   (315607) от 19.10.2019
+
+Chasm (2018) [PSVita] [USA] 3.65 [NoNpDrm] [Unofficial / 1.05] [Ru/En]
+
+>>Консольные Игры
+>>PS Vita
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Chasm, приключенческую игру, в которой вы играете за новоиспеченного рекрута, выполняющего свою первую миссию для Гилданского королевства (Guildean Kingdom). Чтобы доказать при дворе свою ценность как рыцаря, вы отслеживаете странные слухи о том, что шахта, жизненно важная для королевства, была закрыта. Но то, что вы обнаружите в шахтерском городе, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Bit Kid, Inc.Жанр: Экшн, Ролевая игра, MetroidvaniaЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F79B70A546B751F3B8F2472BC5451F183A65030D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 264362   (315285) от 01.12.2010
+
+Hot Wheels: Track Attack [Wii] [PAL] [Multi 5] (2010)
+
+>>Консольные Игры
+>>Wii, GameCube
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315285.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Hot Wheels: Track Attack вас ждут увлекательные футуристические гонки на выживание, в которых будет все - и стрельба, и скорости, и взрывы, и умопомрачительные трюки, и многое другое. Вам предстоит выбрать одного из героев, и при помощи высокотехнологичного автомобиля защитить Землю от атаки самых хищных и злых сил Галактики. В Track Attack вам будет доступно множество разнообразных автомобилей и оружия, а также широкие возможности для тюнинга.Жанр: RacingЯзык интерфейса: Multi 5Формат: WBFS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAC77B34838C42C3BE4F6578E69AF042C5F430B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421896   (314822) от 06.11.2020
+
+MySims SkyHeroes (2010) [PS3] [EUR] 3.41 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314822.jpg" />
+</div>
+
+
+###  Подробнее
+
+В MySims SkyHeroes игрокам предстоит отправиться в небо и выступить против Моркубуса с его армией дронов. Вашей главной задачей будет остановить его злобные планы по захвату воздушных путей.
+Начиная в роли неизвестного пилота, вам предстоит заполучить всеобщее признание и стать настоящим героем. Для этого придется сразиться с толпами противников в воздушных баталиях. (   Читать дальше...   )Тип издания: LicenseРазработчик: Electronic ArtsЖанр: Arcade, Simulation, Flight CombatЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AAE9567D8ECC1EA47E466925958541D0AAB47B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959611   (314213) от 25.11.2015
+
+Game of Thrones: A Telltale Games Series (2014) [Xbox360] [PAL / NTSC / U] LT + 1.9 [License] [Ru] | R.G. X360CLUB
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Game of Thrones: A Telltale Games Series – эпизодическая игра на основе американского драматического телесериала «Игра престолов». Сюжет игры рассказывет о Доме Форрестер во времена Войны Пяти Королей. Если опираться на хронологию TV-сериала, то события игровой саги ведутся от окончания третьего его сезона и до начала пятого.Тип издания: LicenseРазработчик: Telltale GamesЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:688E7F64FB4999A4879457B2265444D69AEA2C64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181483   (313844) от 11.11.2017
+
+Hellboy: The Science of Evil (2008) [PS3] [EUR] 2.20 [License] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Участвуйте в эпических приключениях популярного героя комиксов, испытайте динамизм, атмосферу и юмор игры «Hellboy™: The Science of Evil». Высвободите сверхчеловеческие способности Хеллбоя, пробивая себе дорогу через орды врагов и используя окружающие предметы для массированного разрушения и хитрых стратегий. Просто еще один день в жизни Хеллбоя…Тип издания: LicenseРазработчик: Krome StudiosЖанр: ActionЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:814C7D3F12BDBD0122B2E1DE161EC62E262B5EF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 728598   (313488) от 30.11.2013
 
 SoulCalibur V [PS3] [USA] [Ru] [4.46] [Cobra ODE / E3 ODE PRO ISO] (2012)
@@ -6,7 +191,7 @@ SoulCalibur V [PS3] [USA] [Ru] [4.46] [Cobra ODE / E3 ODE PRO ISO] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313488.jpg" />
 </div>
 
 
@@ -32,7 +217,7 @@ The Witcher 3: Wild Hunt - Complete Edition / Ведьмак 3: Дикая Ох�
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313177.jpg" />
 </div>
 
 
@@ -59,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312821.jpg" />
 </div>
 
 
@@ -85,7 +270,7 @@ Jurassic World Evolution: Complete Edition (2020) [Switch] [USA] 10.2.0 [NSZ] [L
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312394.jpg" />
 </div>
 
 
@@ -113,7 +298,7 @@ Crysis Remastered (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.5.0] [Ru/Multi
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312379.jpg" />
 </div>
 
 
@@ -140,7 +325,7 @@ Tales from the Borderlands: Episode 1 - 5 (2014) [Xbox360] [RegionFree] [FreeBoo
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311755.jpg" />
 </div>
 
 
@@ -168,7 +353,7 @@ Tearaway / Сорванец (2013) [PSVita] [EUR] 3.60 [HENkaku] [PSN / 1.01] [R
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310742.jpg" />
 </div>
 
 
@@ -196,7 +381,7 @@ Eledees (Elebits) [Wii] [PAL] [Multi 5] [2007]
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310669.jpg" />
 </div>
 
 
@@ -222,7 +407,7 @@ Pokеmon Ultra Moon (2017) [3DS] [EUR] [CIA] [Unofficial] [Multi]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309210.jpg" />
 </div>
 
 
@@ -249,7 +434,7 @@ Blade Strangers (2018) [Switch] [USA] 8.1.0 [NSP] [License / 1.3.0] [En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309122.jpg" />
 </div>
 
 
@@ -275,7 +460,7 @@ MX vs ATV: Untamed (2007) [PS3] [EUR] 1.93 [Cobra ODE / E3 ODE PRO ISO] [License
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309120.jpg" />
 </div>
 
 
@@ -301,7 +486,7 @@ Tom Clancy’s EndWar (2008) [PS3] [EUR] 4.41 [Cobra ODE / E3 ODE PRO ISO] [Unof
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309109.jpg" />
 </div>
 
 
@@ -327,7 +512,7 @@ The Book of Unwritten Tales 2 (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO IS
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309065.jpg" />
 </div>
 
 
@@ -353,7 +538,7 @@ Ride to Hell: Retribution (2013) [PS3] [EUR] 4.41 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308951.jpg" />
 </div>
 
 
@@ -379,7 +564,7 @@ The Chronicles of Narnia: Prince Caspian [Wii] [NTSC] [En] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308630.jpg" />
 </div>
 
 
@@ -405,7 +590,7 @@ Ski Doo: Snowmobile Challenge (2009) [PS3] [EUR] 4.01 [Cobra ODE / E3 ODE PRO IS
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306955.jpg" />
 </div>
 
 
@@ -431,7 +616,7 @@ Army of Two: Trilogy (2008 / 2010 / 2013) [Xbox360] [RegionFree] [FreeBoot] [Lic
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306846.jpg" />
 </div>
 
 
@@ -459,7 +644,7 @@ Disgaea 4: A Promise Unforgotten (2011) [PS3] [USA] 3.66 [HAN OFW / CFW] [Repack
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306728.jpg" />
 </div>
 
 
@@ -486,7 +671,7 @@ FAST Racing Neo (2015) [WiiU] [EUR] 5.3.2 [WUP Installer] [License / 1.2 / DLC] 
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305989.jpg" />
 </div>
 
 
@@ -497,190 +682,6 @@ FAST Racing Neo (2015) [WiiU] [EUR] 5.3.2 [WUP Installer] [License / 1.2 / DLC] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:895EA7CE1B111764CE5D176877CF1883D574B2FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960812   (304798) от 29.11.2015
-
-Spelunky (2012) [Xbox360] [RegionFree] [FreeBoot] [XBLA] [En] | R.G. X360CLUB
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Spelunky – это уникальный платформер, в котором уровни генерируются случайным образом, так что игра вам долго не наскучит! Спуститесь в подземелье и исследуйте фантастические места, изобилующие монстрами, ловушками и сокровищами.Тип издания: XBLAРазработчик: Derek YuЖанр: Indie, Arcade (Platform), 2DЯзык озвучки: -/-Язык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:968795993D37E48CAE704C46AD9938CF7C0491D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960856   (304788) от 29.11.2015
-
-Ace Combat: Assault Horizon (2011) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впечатляющий шаг вперед в развитии знаменитой серии аркадных авиасимуляторов. Восточная Африка, 2015 год. Прикомандированный к международному миротворческому корпусу полковник Бишоп возглавил небольшую эскадрилью, которой поручено провести операцию по подавлению повстанцев-экстремистов.Тип издания: LicenseРазработчик: Project AcesЖанр: Simulator (Flight Combat) / 3DЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F445F8DD5C455432E07F7274D74A9570219911B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333410   (302970) от 25.10.2019
-
-Ranko Tsukigime's Longest Day / Short Peace: Ranko Tsukigime's Longest Day (2014) [PS3] [EUR] 4.55 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ranko Tsukigime's Longest Day - это одна из частей анимационно-игрового омнибуса Short Peace, точнее говоря - пятый сегмент, только не анимационный, а игровой: двухмерный сайдскроллер-экшн Ranko Tsukigime's Longest Day, сценарий которого написал Гоити Суда, а непосредственно разработкой занималась студия Crispy (Tokyo Jungle). Сюжетно он никак не связан с перечисленными (   Читать дальше...   )Тип издания: LicenseРазработчик: Grasshopper Manufacture, Crispy'sЖанр: АrcadeЯзык озвучки: ЯпонскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D40BB6B64838A8234B7A05507506C1F8CF6F096B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961064   (302719) от 30.11.2015
-
-The Incredible Hulk (2008) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru] | R.G. X360CLUB
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302719.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Incredible Hulk создан на основе одноименного фильма, показанного в 2008 году. Основной акцент игрового процесса в этом эшене сделан на невероятную силу главного героя. Управляя Халком, вы сможете побродить по большой части Нью-Йорка, круша при этом все, что попадется по руки. Вы можете разбивать машины, автобусы, уличные фонари и даже громить целые дома.Тип издания: LicenseРазработчик: Amaze Entertainment, Edge of RealityЖанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD37D0D6245C79B10088EEC4725C6FE61DEB00FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 585478   (302316) от 06.12.2012
-
-Tak And The Guardians Of Gross [Wii] [Eng] [PAL] (2008)
-
->>Консольные Игры
->>Wii, GameCube
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tak And The Guardians Of Gross создана в соответствии с лучшими традициями известного ТВ-шоу канала Никелодеон. Вам предстоит принять участие в странствиях Така. Главный герой планирует посетить грязную гробницу, в которой магия Джуджу сосредоточена в таинственном кристалле.
-
-Когда Так применил волшебство для очистки помещений гробницы, кристалл взорвался и разлетелся на сотни осколков и тут же возникли четыре гигантских демона: Ядовитый вонючка, Расплавленный сыр, Глупый липучка и Круглый мусорщик. Задача игрока - помочь Таку воссоздать разрушенный кристалл и победить вредоносных демонов, которые собрались уничтожить родную деревню Папанану.Жанр: Приключения (Action. Adventure)Язык интерфейса: EngФормат: Образ в формате WBFS   Инструкция
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1981E017114D9193CF5D6762F7A87CA3E3D35CBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 265089   (301627) от 07.12.2010
-
-Zack & Wiki: Quest for Barbaros' Treasure [Wii] [PAL] [Multi 5] (2008)
-
->>Консольные Игры
->>Wii, GameCube
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшая приключенческая игра – игра про пиратов и сокровища. А лучший способ погрузиться в приключение – взять в руку пульт Wii! Юный пират Зак и беззаветно преданная ему ручная обезьянка Вики ищут самое большое сокровище на свете, которое спрятал пират Барбарос. Станьте частью команды! Помогите героям угнать воздушный корабль, обмануть большого монстра и избежать (   Читать дальше...   )Разработчик: CapcomЖанр: adventure, puzzleЯзык интерфейса: Multi 5 (EN, FR, DE, ES, IT)Формат: образ в формате
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:801CA38903D86C9E4BE9EC8CF3CCBBCC0EB9DCC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333849   (300956) от 26.10.2019
-
-Man vs. Wild (2011) [PS3] [USA] 3.56 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300956.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Прогуляйтесь» по дикой природе вместе с игрой Man vs. Wild, сделанной по мотивам телевизионного сериала на канале Discovery «Выжить Любой Ценой». Игра предлагает пять реальных ситуаций в виде приключенческой ролевой игры, демонстрируемой экспертом в области выживания Беаром Гриллсом. Действие начинается, когда игроки оказываются в экстремальных условиях и вынуждены (   Читать дальше...   )Тип издания: LicenseРазработчик: Scientifically ProvenЖанр: Action, Adventure, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F9F84935D38CF79B6AFEDE6532B8D107F58FC06
 ```
 
 https://mybot314.ru/tekegram_catalog/

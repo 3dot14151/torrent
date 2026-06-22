@@ -1,3 +1,109 @@
+###  Публикация: 1081427   (283773) от 09.12.2016
+
+D Series OFF ROAD Driving Simulation 2017 (2015) [En] (1.0) License SKIDROW
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283773.jpg" />
+</div>
+
+
+###  Подробнее
+
+D Series OFF ROAD Racing Simulation - это колдобины на дорогах и отсутствие профессиональных трасс. Это огромный выбор автомобилей и неожиданные маршруты, которые сделают из вас крутого гонщика и вы обязательно выиграете чемпионат.Тип издания: LicenseРазработчик: devotid MediaЖанр: Racing (Cars), Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:310E867BB1C25BCC2368F509603F4E6DC41063DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324041   (279963) от 06.11.2019
+
+WRC 8 FIA World Rally Championship (2019) [Ru/Multi] (1.1.0) Repack =nemos=
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официальный симулятор WRC еще никогда не был таким реалистичным. Новая физика для всех типов покрытия, переделанный с нуля режим карьеры, динамическая смена погоды, 50 команд, 14 стран, 100 трасс, еженедельные состязания и режим eSports... Станьте лучшим и одолейте самых опытных соперников! Чемпионат WRC — самый сложный и непредсказуемый в мире. Водителям, штурманам (   Читать дальше...   )Тип издания: RepackРазработчик: KT RacingЖанр: Racing, Simulator, SportЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F33EF43345D5C8B8A16D2E5A67B758C89E64DD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 272388   (278414) от 19.12.2010
+
+Juiced [Ru] (P) 2005
+
+>>След.
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278414.jpg" />
+</div>
+
+
+###  Подробнее
+
+Juiced — это первый и единственный гоночный симулятор, благодаря которому вы сможете окунуться в культуру стритрейсеров и ощутить атмосферу настоящих уличных гонок.
+Вы недавно поселились в районе, и за душой у вас нет даже пустяшной колымаги. Но впереди вас ждет большое будущее. Вам предстоит сколотить свою собственную команду непобедимых гонщиков и покорить улицы Лос-Анджелеса.
+Докажите, что вы достойны уважения главарей противоборствующих команд, и они пригласят вас на гонки. Чтобы заработать деньги, вам придется поставить на кон самое дорогое — свою машину. Скоро придет слава, и тогда новые гонщики будут просится к вам в команду, и вам откроются новые горизонты: командные соревнования. Для того, чтобы в них победить, вам придется проявить не только высокий уровень гоночного мастерства, но и свои менеджерские качества.Тип издания: ПираткаРазработчик: Juice GamesЖанр: Arcade / Racing (Cars) / 3DЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E63F0DA690FA0F686C7DA4244C2B646ABF07D44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166972   (275539) от 09.11.2019
+
+Need for Speed: SHIFT (2009) [Ru/Multi] (1.02) Repack Other s
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Need for Speed SHIFT является абсолютно новым симулятором гонок. В игре очень хорошо воссоздана реалистичная физика и фотореалистично смоделированные модели автомобилей. Вас ждет напряженная и захватывающая гонка. В новой части NFS вид с позиции водителя сделан настолько детально, что можно рассмотреть показание всех приборов, а продвинутая физическая модель достоверно (   Читать дальше...   )Тип издания: RepackРазработчик: Slightly Mad StudiosЖанр: Racing (Cars), Simulator, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:110C689654E60144B3465DAB022AC78C19D41304
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083095   (275364) от 14.12.2016
 
 American Truck Simulator (2016) [Ru/Multi] (1.5.1.2s) Repack Other s [VR Oculus]
@@ -6,7 +112,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.5.1.2s) Repack Other s [VR Oculus]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275364.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.36.1.0s/dlc) Repack R.G. Меха�
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273253.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ Need for Speed Most Wanted (2012) [Ru] (1.5.0.0/dlc) Repack xatab [Limited Editi
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272718.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272167.jpg" />
 </div>
 
 
@@ -111,7 +217,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2012) [Ru/Multi] (
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271020.jpg" />
 </div>
 
 
@@ -137,7 +243,7 @@ RIDE 3 (2018) [Multi] (1.0/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269047.jpg" />
 </div>
 
 
@@ -163,7 +269,7 @@ Re-Volt [Ru] (L) 1999
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264488.jpg" />
 </div>
 
 
@@ -192,7 +298,7 @@ Toyland Racing / Игрушечные гонки [Ru] (L) 1998
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263795.jpg" />
 </div>
 
 
@@ -218,7 +324,7 @@ Drift Zone (2017) [Multi] (1.0) License PLAZA
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263649.jpg" />
 </div>
 
 
@@ -244,7 +350,7 @@ Burnout Paradise (2009) [Ru/En] (1.1.0.0/dlc) Repack R.G. Origami [The Ultimate 
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263319.jpg" />
 </div>
 
 
@@ -270,7 +376,7 @@ Project CARS 2 (2017) [Ru/Multi] (1.3.0.0/dlc) License RELOADED [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262173.jpg" />
 </div>
 
 
@@ -296,7 +402,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Nec
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260858.jpg" />
 </div>
 
 
@@ -322,7 +428,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Fit
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260850.jpg" />
 </div>
 
 
@@ -348,7 +454,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Oth
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260847.jpg" />
 </div>
 
 
@@ -374,7 +480,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Dec
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260846.jpg" />
 </div>
 
 
@@ -400,7 +506,7 @@ Formula Legends (2025) [Multi] (1.0.8/dlc) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260078.jpg" />
 </div>
 
 
@@ -426,7 +532,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Scene voic
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257835.jpg" />
 </div>
 
 
@@ -452,7 +558,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Wan
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257695.jpg" />
 </div>
 
 
@@ -478,7 +584,7 @@ CarX Street (2024) [Ru/Multi] (1.9.1/dlc) Repack Necros
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257506.jpg" />
 </div>
 
 
@@ -504,7 +610,7 @@ Quarantine Антология [En] (RePack) 1994-1996 | RG Games (Pilotus)
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257273.jpg" />
 </div>
 
 
@@ -530,7 +636,7 @@ Burnout Paradise: The Ultimate Box / Russian Vanity [Ru] (RePack/Mod/1.1/1.4) 20
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256247.jpg" />
 </div>
 
 
@@ -556,7 +662,7 @@ Rally Championship 2000 [Ru] (L) 1999
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255832.jpg" />
 </div>
 
 
@@ -568,110 +674,6 @@ Rally Championship 2000 [Ru] (L) 1999
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623314   (255037) от 18.04.2023
-
-Gripper (2023) [Ru/Multi] (1.0.1) License GOG
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gripper - приключенческий экшен, в котором предстоит сесть за руль боевого авто, оснащенного различными пушками и крюком. Погрузитесь в таинственный мир машин, рассказывающий историю о предательстве, любви и прощении. Вселенная игры Гриппер - это самый настоящий фестиваль горящих людей. В прямом слысле слов, поскольку андроиды будущего занимаются тем, что заживо (   Читать дальше...   )Тип издания: LicenseРазработчик: Heart CoreЖанр: Экшны, ПриключениеЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7250D15CB20D568DA152755E462490653B0B4666
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629017   (254793) от 25.04.2023
-
-Assetto Corsa Competizione (2019) [Ru/Multi] (1.9.0/dlc) Repack DjDI
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Assetto Corsa Competizione — новая видеоигра, выпущенная самим чемпионатом Blancpain GT Series. Выдающееся качество симуляции позволяет прочувствовать атмосферу гонок FIA GT3 и вступить в борьбу против официальных пилотов на автомобилях и трассах реального чемпионата, воссозданных в игре с непревзойдённой точностью. С фантастическим уровнем реализма Assetto Corsa (   Читать дальше...   )Тип издания: RepackРазработчик: Kunos SimulazioniЖанр: Simulator (Racing), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:100E21B5E5B9FDB1A3EC9874E16BB95478BD4A6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629035   (254786) от 25.04.2023
-
-Forza Horizon 4 (2018) [Ru/Multi] (1.476.99.0/dlc) Repack DjDI [Ultimate Edition]
-
->>След.
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Времена года полностью меняют облик главного автомобильного фестиваля планеты. Исследуйте чудесные пейзажи и исторические достопримечательности Великобритании, путешествуя по открытому миру в одиночку или вместе с другими игроками. Собирайте, модифицируйте и испытывайте более 450 автомобилей. Участвуйте в гонках, выполняйте трюки, творите и исследуйте, чтобы стать (   Читать дальше...   )Тип издания: RepackРазработчик: Playground GamesЖанр: Racing, Simulator, 3DЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F994BE0A55E59F999F91341A97C3935DB30EF55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632162   (254487) от 09.05.2023
-
-Joyride (2022) [Ru/Multi] (2023.5.1/dlc) Scene Tinyiso
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Joyride - это увлекательная гоночная аркада с уникальным стилем low-poly. Игрокам предстоит управлять своими автомобилями на разнообразных дорогах на фоне различных декораций, которые меняются в зависимости от времени года. Одной из интересных особенностей является возможность соревноваться с самим собой, то есть вы всегда можете попытаться побить свой личный рекорд. (   Читать дальше...   )Тип издания: SceneРазработчик: Millwoo StudioЖанр: Казуальные игры, Инди, Гонки, Спортивные игрыЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3259F24EDBB849FEE9FEF92CB2C0C04B3C69E126
 ```
 
 https://mybot314.ru/tekegram_catalog/

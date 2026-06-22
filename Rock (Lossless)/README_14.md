@@ -1,3 +1,119 @@
+###  Публикация: 1460990   (1022243) от 07.04.2021
+
+VA - 2000's Rock Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3 Doors Down - Kryptonite (3:55)
+02. Papa Roach - Last Resort (3:19)
+03. blink-182 - What's My Age Again (2:28)
+04. Sum 41 - Fat Lip (2:58)(   Читать дальше...   )Жанр: RockПродолжительность: 02:20:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D2F41A7427799A9ECC8158EF537FF28CE2D4CA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461275   (1021969) от 09.04.2021
+
+Perfect Storm - No Air (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strength (08:21)
+02. The Search (06:58)
+03. Sun For Life (08:11)
+04. Hope (07:44)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:54:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20CB0C999403D623EBFA425108C20633496B5526
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461565   (1021813) от 10.04.2021
+
+Nad Sylvan - Spiritus Mundi (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Second Coming (6:58)
+02. Sailing to Byzantium (6:40)
+03. Cap and Bells (4:48)
+04. The Realists (2:17)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:56:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4159280ABC364F34C80E33CEED7A0A9105FF0FF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461556   (1021780) от 10.04.2021
+
+VA - Best Guitar Anthems (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lenny Kravitz - Are You Gonna Go My Way (03:31)
+02. Alien Ant Farm - Smooth Criminal (03:29)
+03. 3 Doors Down - Kryptonite (03:54)
+04. Soundgarden - Black Hole Sun (05:18)(   Читать дальше...   )Жанр: RockПродолжительность: 02:11:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:484419835C56629F7FC018ABF93B4B3B81D7D64F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461476   (1021667) от 10.04.2021
 
 VA - Rock Ballads 2021 [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +122,7 @@ VA - Rock Ballads 2021 [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021667.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Evohe - 77-81 (2020) 2xCD [FLAC|Lossless|image + .cue] <Prog Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021642.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Dominoe - 6 albums, 7 CD (1988-2012) [FLAC|Lossless|image + .cue] <Melodic Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021624.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Stonewall Noise Orchestra - Deathtripper (2020) [FLAC|Lossless|image + .cue] <St
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021046.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Airrace - Untold Stories (2018) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021045.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Marc Reece - Dreamer (2021) [FLAC|Lossless|image + .cue] <Rock, Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020956.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Robbie LaBlanc - Double Trouble (2021) [FLAC|Lossless|WEB-DL|tracks] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020873.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ The Rasmus - The Rasmus (2012) Tour Edition [FLAC|Lossless|tracks + .cue] <Alter
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020857.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Unitopia - Тhе Gаrdеn (2008) 3xCD, Reissue, Remastered, 2020,  ProgRock.com'
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020692.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Al Stewart - 2 Albums, 3 Box Set, 14 CD (1967 - 1993) [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020665.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ The Night Flight Orchestra - Aeromantic (2020) Japanese Edition [WavPack|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020632.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Chesney Hawkes - 2 Studio Albums (1991) 2xCD [FLAC|Lossless|image + .cue] <Pop R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020518.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Intelligent Music Project (III, IV, V, VI) - 4 Studio Albums (2015-2021) 4xCD [F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020493.jpg" />
 </div>
 
 
@@ -384,7 +500,7 @@ Terry Brock - Diamond Blue (2010) [FLAC|Lossless|image + .cue] <Melodic Rock, AO
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020331.jpg" />
 </div>
 
 
@@ -413,7 +529,7 @@ VA - Original Rock Anthems (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020288.jpg" />
 </div>
 
 
@@ -442,7 +558,7 @@ VA - Rock Vibes 2021 [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020160.jpg" />
 </div>
 
 
@@ -471,7 +587,7 @@ Rafael Pacha - Al Rincon Por Sonar (2020) [FLAC|Lossless|image + .cue] <Sympho P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020154.jpg" />
 </div>
 
 
@@ -500,7 +616,7 @@ Suzi Quatro - The Devil In Me (2021) Japanese Edition [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020129.jpg" />
 </div>
 
 
@@ -529,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020089.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ MaterialEyes - Тhrее Оf А Кind (2021) [FLAC|Lossless|image + .cue] <Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020008.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Absolute Power Ballads (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019963.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Antony Kalugins Kinematics Orchestra ( Анатолий Кулагин ) - Akko 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019820.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Antony Kalugins Kinematics Orchestra ( Анатолий Кулагин ) - Akko 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1070AA7B46BDB57AEE438430208FA1E1BBAEBB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464655   (1019675) от 23.04.2021
-
-Instant Curtain - Let Tear Us Apart (2020) [FLAC|Lossless|image + .cue] <Eclectic Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reverse in the Sand (6:20)
-02. Tell the Tales, May I (5:07)
-03. The Beginning (4:15)
-04. All White (4:26)(   Читать дальше...   )Жанр: Eclectic Progressive RockПродолжительность: 00:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED27CBB0D3BF72904785ABE224CA00EB6A3C2D8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465215   (1019319) от 25.04.2021
-
-V.A. - Modern Rock Love Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jesper Munk – Courage for Love
-02. Nickelback – Trying Not to Love You
-03. Lenny Kravitz – Looking Back On Love
-04. Idlewild – Love Steals Us from Loneliness(   Читать дальше...   )Жанр: RockПродолжительность: 01:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33A1FC2784C6763FC73A9F9CFB4DFFADA7903584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465073   (1019277) от 25.04.2021
-
-VA - 80s Rock Ballad Classics (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foreigner - I Want to Know What Love Is (5:04)
-02. Skid Row - 18 and Life (3:51)
-03. Alannah Myles - Lover of Mine (4:37)
-04. Rod Stewart - Every Beat of My Heart (5:18)(   Читать дальше...   )Жанр: RockПродолжительность: 01:29:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1DBC87FF7ADA9592E074ECF861154BFBB6D876E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465606   (1018958) от 27.04.2021
-
-VA - Chill Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crowded House - Don't Dream It's Over (03:56)
-02. Scorpions - Wind Of Change (05:11)
-03. Jimmy Eat World - Hear You Me (04:44)
-04. Vinko Ćemeraš & Talvi Tuuli - A Quiet Storm For Her (03:35)(   Читать дальше...   )Жанр: RockПродолжительность: 02:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D4CD5F11D015E26F84F8AED9AB01731D1BE9AC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

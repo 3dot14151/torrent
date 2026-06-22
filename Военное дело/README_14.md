@@ -1,3 +1,29 @@
+###  Публикация: 1811610   (15971) от 10.08.2025
+
+Военная приемка. «Феникс». Инженерный батальон специального минирования (10.08.2025) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_15971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новейшие военные технологии такие как: ядерная ракета "Сармат", ледокол "Арктика", сверхзвуковые истребители нового поколения, танки для десанта "Спрут" в программе "Военная приемка" с Алексеем Егоровым. Ведущий погружает зрителя в мир секретных ядерных институтов (НИТИ), проводит на военные полигоны где проверяют сверхзвуковые (   Читать дальше...   )Производство: Россия | «Красный Квадрат»Жанр: Документальный, техника, вооружениеРежиссер: Иван ЧигвинцевЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A3F6318B23F7B2E28EE00C70E89862F4F7AD34F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809239   (9993) от 29.07.2025
 
 Военная приемка (2025) WEBRip [H.264/1080p] (выпуски 451-474)
@@ -6,7 +32,7 @@
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9993.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9319.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7263.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6102.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4964.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3883.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2641.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_774.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29.jpg" />
 </div>
 
 

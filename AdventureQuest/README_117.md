@@ -1,3 +1,133 @@
+###  Публикация: 1816446   (4347) от 05.09.2025
+
+Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack seleZen
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскройте одну из величайших тайн истории в однопользовательской приключенческой игре от первого лица Indiana Jones and the Great Circle, действие которой происходит между событиями фильмов «В поисках утраченного ковчега» и «Последний крестовый поход». В 1937 году зловещие личности начинают искать ключ к древней силе, связанной с большим кругом, и остановить их может (   Читать дальше...   )Тип издания: RepackРазработчик: MachineGamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BFEAF8213C5D5413DB33670688972B2C9931B05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816847   (3958) от 07.09.2025
+
+Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack FitGirl [Premium Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскройте одну из величайших тайн истории в однопользовательской приключенческой игре от первого лица Indiana Jones and the Great Circle, действие которой происходит между событиями фильмов «В поисках утраченного ковчега» и «Последний крестовый поход». В 1937 году зловещие личности начинают искать ключ к древней силе, связанной с большим кругом, и остановить их может (   Читать дальше...   )Тип издания: RepackРазработчик: MachineGamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A4CDCA0577A413E87476DA22AB0A9196249DE29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816859   (3955) от 07.09.2025
+
+STAY (2018) [Ru/Multi] (1.0.3.9) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Квинн очнулся в закрытой комнате, где есть только компьютер, подключенный к чату, в котором находитесь вы. Вы стали его единственной надеждой. Ваши быстро принятые решения помогут ему сбежать... или поведут его по дороге, где всё закончится раз и навсегда. STAY - игра в режиме реального времени, а значит, проводя время вне ее, вы оставляете Квинна в одиночестве. (   Читать дальше...   )Тип издания: RepackРазработчик: Appnormals TeamЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:649006425821C4E9BFC2C71F77B793FD741B332E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816858   (3954) от 07.09.2025
+
+Dead Take (2025) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dead Take начинается с поисков пропавшего друга. Когда Винни перестает отвечать на звонки, игрок направляется к его последнему известному местоположению - особняку, где накануне прошла вечеринка. Резиденция теперь погружена в тишину. Необходимо войти внутрь, чтобы отыскать товарища, ведь в индустрии развлечений актеры поддерживают друг друга в трудные моменты. Так (   Читать дальше...   )Тип издания: SceneРазработчик: Surgent StudiosЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий, Итальянский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27EE798543B37EFEA80C5020B395809A186C2EB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816855   (3925) от 07.09.2025
+
+The Last Ski Trip (2025) [Ru/Multi] (3.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой отправляется в отдаленную заснеженную долину вместе со своим братом, чтобы покататься на лыжах. Но вскоре после их прибытия начинают происходить странные события. И отдых на лыжах, быстро превращается в кошмар. Со временем он понимает, что в долине живет что-то ужасное...Тип издания: RepackРазработчик: Fireplay StudioЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B01CEB15C6F399E1E7D055109778291D964E94D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816854   (3916) от 07.09.2025
 
 The Last Ski Trip (2025) [Ru/Multi] (3.0) Scene Tenoke
@@ -6,7 +136,7 @@ The Last Ski Trip (2025) [Ru/Multi] (3.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3916.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.889.22) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3829.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Kaptain Brawe: A Brawe New World (2011) [Ru/Multi] (3.1.4.33) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3655.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Deathless Tales of Old Rus / Бессмертный. Сказки Старой �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3412.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ The Knightling (2025) [Ru/Multi] (1.1.0/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3398.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Revenge of the Savage Planet (2025) [Ru/Multi] (2025-9-9-106947 Net5/dlc) Repack
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3273.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Labyrinthine (2023) [Ru/Multi] (Build 19705579/dlc) Repack FitGirl [Supporter Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3240.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Empyrion - Galactic Survival (2020) [Ru/Multi] (1.13.2 4801/dlc) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3056.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Shardlight (2016) [En] (3.4) License GOG [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2898.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0 Build 19682311/dlc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2887.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ The Blackwell Unbound (2007) [En] (4.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2849.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ Technobabylon (2015) [En] (3.6) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2840.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ The Procession to Calvary (2020) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2817.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ The Alters (2025) [Ru/Multi] (1.3.0.7/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2714.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ The Midnight Walk (2025) [Ru/Multi] (Build 18854438) Repack Let'sРlay [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2585.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (Build 889.22 Online 1.71) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2579.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Cubic Odyssey (2025) [Ru/Multi] (1.0.3.4) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2578.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Monster Prom (2018) [Multi] (8.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2552.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Elroy and the Aliens (2025) [Multi] (1.1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2539.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ Five Nights at Freddy's: Secret of the Mimic (2025) [Ru/Multi] (1.0.20250826) Re
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2419.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ The Mildew Children / Дети Плесени (2024) [Ru/Multi] (1.4.4) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2280.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ The Witch's Cauldron - это мрачная история, в которой �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78F85A66E7241DBEB6088C3790D00A6E870B22BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751125   (2262) от 18.09.2025
-
-The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.50.18) Repack dixen18
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2262.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Plucky Squire - это очаровательная экшен-адвенчура, действие которой разворачивается в мире сказок. Игроки берут на себя роль Йота, героя книги сказок, которого выгнал из своей книги злобный Хамгрумп. Протагонист и его друзья открывают трехмерный мир и должны перемещаться между 2D и 3D царствами, чтобы спасти своих товарищей и восстановить хороший финал истории. (   Читать дальше...   )Тип издания: RepackРазработчик: All Possible FuturesЖанр: Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4C652D975A8D1BE3A8A7B8B9E4E5E67055D9859
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780888   (1928) от 20.09.2025
-
-Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.10.0/dlc) Repack Wanterlude
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскройте одну из величайших тайн истории в однопользовательской приключенческой игре от первого лица Indiana Jones and the Great Circle, действие которой происходит между событиями фильмов «В поисках утраченного ковчега» и «Последний крестовый поход». В 1937 году зловещие личности начинают искать ключ к древней силе, связанной с большим кругом, и остановить их может (   Читать дальше...   )Тип издания: RepackРазработчик: MachineGamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A0976676064DB267EB66E7375715B35DB6A157C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765326   (1926) от 20.09.2025
-
-Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack dixen18
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскройте одну из величайших тайн истории в однопользовательской приключенческой игре от первого лица Indiana Jones and the Great Circle, действие которой происходит между событиями фильмов «В поисках утраченного ковчега» и «Последний крестовый поход». В 1937 году зловещие личности начинают искать ключ к древней силе, связанной с большим кругом, и остановить их может (   Читать дальше...   )Тип издания: RepackРазработчик: MachineGamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BC2CFC0921D6F29C5478677B2826D808F7C5ADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659021   (1763) от 21.09.2025
-
-Chants of Sennaar (2023) [Ru/Multi] (1.0.0.9) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еще на заре времен народы Башни перестали понимать друг друга и утратили единство. Согласно преданию, однажды некий Путник найдет в себе мудрость разрушить барьеры и восстановить баланс. Изучайте загадочный мир, давно забывший свое прошлое, и откройте для себя его тайны. Действие игры происходит в красочном поэтичном антураже, навеянном мифом о Вавилонском столпотворении. (   Читать дальше...   )Тип издания: SceneРазработчик: RundiscЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D98B4B2CA309367360C1C5993FE4D5A33D1F3ACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811839   (1385) от 23.09.2025
-
-Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.09.22.07.56/dlc) Repack Let'sРlay [Digital Deluxe]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Static Dread: The Lighthouse - это игра в жанре хоррор, где игрок выступает в роли смотрителя маяка после глобальной катастрофы. Основная задача - направлять корабли по радиосвязи, но с каждой ночью задания становятся всё опаснее. Игроки будут сталкиваться с жуткими существами и принимать решения, влияющие на судьбу города и проходящих судов.Тип издания: RepackРазработчик: solarsuit.gamesЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B389637A0612D8A57D53C83B4E257BF2CD83988
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,268 @@
+###  Публикация: 938066   (483744) от 17.09.2015
+
+Kraster - 26 альбомов (2008-2013) Touhou Vocal /Doujin/ [FLAC|tracks] <J-Pop, J-Rock>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2012.08.11 the sign of IV (C82)
+2012.12.30 Kraster — Majo to Ringo to Samayou Kimi to (C83)
+2013.05.26 (KRII-0001) Ne;on×KEROchan☆ (Reitaisai 10)Тип издания: DoujinЖанр: J-Pop, J-RockФормат: Touhou VocalПродолжительность: 00:15:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AB5E42D5857757269D60776F804C2A7A62793A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 749785   (481826) от 18.09.2015
+
+BLANKFIELD - 8 альбомов (2008-2014) Touhou Instrumental /Doujin/ [FLAC|Lossless] <J-Metal>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2012.12.30 (BFCD-0005) At The Termination Of The Phantasm (C83)
+2013.08.11 (DECD-0001) Danmaku Unlimited 2 (C84)
+2014.12.29 (BFCD-0006) A DAY EP (C87)Тип издания: DoujinЖанр: J-MetalФормат: Touhou InstrumentalПродолжительность: 00:02:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C39AEB5B4EF5BACFF8B5424DFADCB58AC640DE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 832219   (481720) от 18.09.2015
+
+forestpireo - 24 альбома (2008-2014) Touhou Vocal /Doujin/ [FLAC|Lossless] <J-Pop, J-Rock, Electronic>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481720.jpg" />
+</div>
+
+
+###  Подробнее
+
+2013.05.26 (FPR0023) Remilia (Reitaisai 10)
+2013.10.13 (FPR0025) Shooting Snow 2013 (Kouroumu 9)
+2014.05.11 (FPR0026) T★GIRLS.04 (Reitaisai 11)Тип издания: DoujinЖанр: J-Pop, J-Rock, ElectronicФормат: Touhou VocalПродолжительность: 00:18:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:924E0EA79186E9D646A120A36FAF029A469FCFB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938323   (481592) от 18.09.2015
+
+nano - 3 альбома (2013-2015) [FLAC|Lossless] <J-Rock>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+(130227) N
+(140219) Born to be (Magical Warfare ED Single)
+(150128) Rock on. (NO ver.)Жанр: J-RockПродолжительность: 00:02:27:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE69B3472EC8E346FA9D78C4A4AB63B8714AA768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 843618   (481588) от 18.09.2015
+
+Vermillion-D Alice Syndrome - 8 альбомов (2011-2015) Touhou Vocal, KanColle Instrumental /Doujin/ [FLAC|tracks] <Melodic Death Metal>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2014.12.29 (DKKN-0003) Re:AL/MI (Re:After Life/My Immortal) (KanColle) (C87)
+2014.12.29 (VDAS-0002) 鴉/IX (C87)
+2015.05.10 (DKKN-0004) ナラクノハナ (KanColle) (Reitaisai 12)Тип издания: DoujinЖанр: Melodic Death MetalФормат: Touhou Vocal, KanColle InstrumentalПродолжительность: 00:04:23:0
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4078A3E54DA0B8C8F64A035D50F30B567DBD3D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 724795   (481440) от 18.09.2015
+
+Barrage Am Ring - 11 альбомов (2010-2015) Touhou Vocal /Doujin/ [FLAC|tracks] <Melodic Death Metal, Hardcore>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2014.05.11 (BANG-0004A) Barrage Am Ring 4 Arrange／Side (Reitaisai 11)
+2014.12.29 (BANG-0004O) Barrage Am Ring 4 Original／side (C87)
+2015.05.10 (BANG-0005R) Barrage Am Ring 5 Remind／Side (Reitaisai 12)Тип издания: DoujinЖанр: Melodic Death Metal, HardcoreФормат: Touhou VocalПродолжительность: 00:07:14:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07775A0814C6BFCA9204F0C13388C4A2FA0BDFF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056100   (481275) от 25.09.2016
+
+Orange Pekoe - Best Remixes (2016) [FLAC|Lossless|tracks + .cue] <JPop, House, Soul-Jazz, Jazz-Funk>
+
+>>East Asian Music
+>>Asian Pop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Life (Mode for Kita-Horie) {Remixed by Sunaga T Experience} (5:54)
+02. Kin'iro no Hane (Gira Mundo Remix) {Remixed by Gira Mundo} (6:06)
+03. Sweet Movie  (5:09)
+04. Song Bird   (4:40)(   Читать дальше...   )Жанр: JPop, House, Soul-Jazz, Jazz-FunkПродолжительность: 01:00:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D14ACB9815A4BC1D5AFC3DC5487831CEDC1D7EFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 832215   (481134) от 18.09.2015
+
+Demetori - 9 альбомов (2006-2015) Touhou Instrumental /Doujin/ [FLAC|tracks] <J-Metal>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481134.jpg" />
+</div>
+
+
+###  Подробнее
+
+2012.12.30 (DECD-0008) Tendre est la Mort (C83)
+2013.12.30 (DECD-0009) le Grimoire De reve (C85)
+2015.08.14 (DECD-0010) Kijin Shokuaku ~Evil People as the True Object of Salvation~ (C88)Тип издания: DoujinЖанр: J-MetalФормат: Touhou InstrumentalПродолжительность: 00:05:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97B0FA78A6B95592AD22C42FB632037610247796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 384335   (480577) от 07.09.2011
+
+VA - Coree. Musiques du pays du matin clair (2009) [MP3|320 kbps]<korean traditional music, instrumental>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_480577.jpg" />
+</div>
+
+
+###  Подробнее
+
+(01:12:36)
+[02:14] 01.  Ung anjiak
+[08:38] 02.  Chonp yehuimun
+[03:06] 03.  Pohoja
+[17:06] 04.  Sujech on
+[09:11] 05.  Samhyonyongsanhoesang
+[14:03] 06.  Hahyon kunak
+[05:12] 07.  Ch' onnyonmanse
+[04:23] 08.  Kilgunak
+[05:18] 09.  Yomyangch' un(   Читать дальше...   )2009Жанр: korean traditional music, instrumentalПродолжительность: 02:24:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28496A539A1CFF6F4142CEA640596446DA409F7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 384370   (480469) от 07.09.2011
 
 Khac Chi Ensemble - Moonlight in Vietnam (1997) [MP3|320 kbps]<vietnam ethnic music, instrumental>
@@ -6,7 +271,7 @@ Khac Chi Ensemble - Moonlight in Vietnam (1997) [MP3|320 kbps]<vietnam ethnic mu
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_480469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_480469.jpg" />
 </div>
 
 
@@ -41,7 +306,7 @@ Kazu Matsui - The Stone Monkey (2005) [APE|Lossless|image + .cue] <Contemporary,
 >>Asian Traditional, Ethnic (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479166.jpg" />
 </div>
 
 
@@ -70,7 +335,7 @@ Loudness - 2·0·1·2 (2012) [WavPack|Lossless]<Heavy Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476209.jpg" />
 </div>
 
 
@@ -105,7 +370,7 @@ VA - Who Do They Think We Are? - A Tribute to Deep Purple from Japan (1996) Reis
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475913.jpg" />
 </div>
 
 
@@ -140,7 +405,7 @@ ESQUARIA - 7 альбомов (2013-2015) Touhou Vocal /Doujin/ [MP3|320kbps] <J
 >>Doujin Music
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472958.jpg" />
 </div>
 
 
@@ -169,7 +434,7 @@ Saber Tiger - Project One (1997) [WavPack|Lossless|image + .cue] <Heavy Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472378.jpg" />
 </div>
 
 
@@ -198,7 +463,7 @@ Saber Tiger - Indignation (2005) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472353.jpg" />
 </div>
 
 
@@ -227,7 +492,7 @@ Kaori Muraji - Portraits (2009) [MP3|320 кб/с]<Classical, Instrumental, Acous
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467482.jpg" />
 </div>
 
 
@@ -261,7 +526,7 @@ Cintija Wang - Copenhagen's Fairy Tales (2009) [FLAC|Lossless]<Cpop,mandopop,tw.
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466371.jpg" />
 </div>
 
 
@@ -287,7 +552,7 @@ T.M.Revolution - ignited (2004) Single [FLAC|Lossless|tracks + .cue] <Jpop, Anim
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465478.jpg" />
 </div>
 
 
@@ -314,7 +579,7 @@ Shunichi Miyamoto - 4 альбома, 4 сингла (2003-2008) Дискогр�
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457603.jpg" />
 </div>
 
 
@@ -340,7 +605,7 @@ Luo Qi-Rui - Sweet Sounding From Hsiao (2006) [MP3|320 кб/с]<Instrumental>
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450727.jpg" />
 </div>
 
 
@@ -375,7 +640,7 @@ VA - Eastern Fragrance (2007) [MP3|320 кб/с]<Instrumental, Ethnic>
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448584.jpg" />
 </div>
 
 
@@ -409,7 +674,7 @@ VA - Treasure Edition, Chinese Music Classics Of The 20th Century (2004) 24 CDs 
 >>Asian Traditional, Ethnic (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_446479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_446479.jpg" />
 </div>
 
 
@@ -435,7 +700,7 @@ Toru Takemitsu (武満徹) - The Film Music Of Toru Takemitsu (1997) [FLAC|Lossl
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444608.jpg" />
 </div>
 
 
@@ -464,7 +729,7 @@ Kinoco Hotel - 3 альбома (2010-2011) [MP3|192 кб/с]<J-Rock, J-Pop>
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443533.jpg" />
 </div>
 
 
@@ -499,7 +764,7 @@ Rokugen Alice - 32 альбома (2006-2014) /Doujin/ [FLAC|Lossless] <J-Rock, 
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437290.jpg" />
 </div>
 
 
@@ -513,289 +778,6 @@ Rokugen Alice - 32 альбома (2006-2014) /Doujin/ [FLAC|Lossless] <J-Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A3B81BBE0E18161A05DE707831E341AA4B2828D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554936   (433811) от 02.10.2012
-
-VA - Sound Of The Crystal Energy (4 albums) (2009) [MP3|320 кб/с]<Instrumental, Healing>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433811.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Words of the Mountain
-
-(24:06) 01. Words of the Mountain
-
-CD2 - Love of the Earth
-
-(21:17) 01. Love of the EarthЖанр: Instrumental, HealingПродолжительность: 00:45:23
-
-Love and blessing are the ultimate forces that could bring life back to the universal origin and to become one with nature; they also come to be feng shui’s highest state. When our hearts are filled with love and blessing, we would then possess the most blissful and beautiful spiritual feng shui. “The Heart of Blessing” transmits the energies of the mountain and earth through crystal music, and allows for the love in the heart to be firm like the mountain and vast like the earth. It is then transformed into boundless blessings to be shared with all things in the universe.
-
-Любовь и благословение - окончательные силы, которые могли возвратить жизнь универсальному происхождению и стать один с природой; они также становятся самым высоким государством фэншуй. Когда наши сердца заполнены любовью и благословением, мы тогда обладали бы самым блаженным и красивым духовным фэншуй. “Сердце Благословения” передает энергии горы и земли через кристаллическую музыку, и учитывает любовь в сердце, чтобы быть устойчивым (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E0B98F2CF8A95BF216BE8B67CF1DA8D95B849CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945418   (433111) от 10.10.2015
-
-Shoujo Byou - 26 альбомов (2004-2012) /Doujin/ [FLAC|tracks] <J-Rock, Gothic/Symphonic Metal>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2011.12.31 (GIRL-2002) Vision -Seiyaku no Heikairo Shikkoku no Otome- (C81)
-2012.04.11 (LACM-4913) unleash
-2012.08.10 (GIRL-1009) Sousyou Crossline (C82)Тип издания: DoujinЖанр: J-Rock, Gothic/Symphonic MetalПродолжительность: 00:18:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D36ACED4958CF25D9199095BF4DA16B7B2C1831
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555365   (431700) от 03.10.2012
-
-VA - Walking On The Mountain Paths (2008) [MP3|320 кб/с]<New age, Instrumental>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431700.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:52) 01. Along The Riverside
-(4:09) 02. Walking On The Mountain Paths
-(5:31) 03. Dancing Mists In My Dream
-(5:09) 04. Silence In The Night
-(5:30) 05. The Railways Of The Forests
-(5:11) 06. Beads Of The Morning Dew
-(5:58) 07. The Shining Stars
-(4:12) 08. The Rising Sun And Sea Of Clouds
-(4:24) 09. The Greenshower
-(4:27) 10. In The Misty MorningЖанр: New age, InstrumentalПродолжительность: 00:49:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4771E158C9211104B1922566CF84C67845DC23A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 707192   (430030) от 08.10.2013
-
-Yuyoyuppe - 13 альбомов, 30 компиляций, 1 сингл (2009-2013) [MP3|192-320 кб/с]<J-Rock, J-Pop, J-Trance, Metal, Screamo, Vocaloid>
-
->>East Asian Music
->>Doujin Music
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yuyoyuppe (ゆよゆっぺ) - бокаро (с не давнего времени и не только)-композитор, дебютировавший в 2008 году. Пишет песни в жанрах Post-Hardcore и Metal. Вместе с meolа образуют сёркл Draw the Emotional. Вокалист/композитор в группе My Eggplant Died Yesterday (MEDY). Один из продюсеров проекта BABYMETAL. Также известен под псевдонимом DJ'TEKINA//SOMETHING работает в EDM/House/Dubstep направлении.Жанр: J-Rock, J-Pop, J-Trance, Metal, Screamo, VocaloidПродолжительность: 26:61:75
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96CCB71E5C081557C7D80087BB5818E1F0D67AC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946146   (428822) от 12.10.2015
-
-Chuantong Orchestra - China: Traditional Music (2015) [OGG| 422-484 кб/с]<World Music>
-
->>East Asian Music
->>Asian Traditional, Ethnic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beautiful Spring by the Lake (Xi hu chun)
-02. The Evening Bell (Nan zhong)
-03. Moon Heart (Yue liang dai biao)
-04. Green Emerald Lake (Han hu chui)(   Читать дальше...   )Жанр: World MusicПродолжительность: 01:02:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3733313E0ACEDD3379092994B1D29362E3604CBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249972   (428572) от 26.09.2018
-
-Dir En Grey - The Insulated World (2018) [MP3|320 Kbps] <Alt-Metal>
-
->>East Asian Music
->>Asian Rock, Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428572.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Keibetsu to Hajimari (軽蔑と始まり)
-2. Devote My Life
-3. Ningen wo Kaburu (人間を被る)
-4. Celebrate Empty Howls(   Читать дальше...   )Жанр: Alt-MetalПродолжительность: 00:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03B305298A81A2B43FCB5BD14B1BCE015C4394C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411628   (425463) от 26.09.2020
-
-Joji - Nectar (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>East Asian Music
->>Asian Pop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ew
-02. MODUS
-03. Tick Tock
-04. Daylight (with Diplo)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A4C954EDFA8FA036733A83B2E31DE7F7CA8FDB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 556634   (424784) от 06.10.2012
-
-VA - Let's Visit The Lands And Waters (2010) [MP3|320 кб/с]<Instrumental>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424784.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:34) 01. Romantic Bay
-(3:49) 02. Dotted Fireflies
-(5:02) 03. Go To See The Clouds
-(4:21) 04. The Amor Of Clouds and Mountains
-(3:58) 05. How Are You
-(3:40) 06. Swing It
-(3:33) 07. When Love Comes
-(4:00) 08. Streams Above Cobbles
-(4:23) 09. A Touch Of White Cloud
-(4:38) 10. Let′s Go Spring Outing(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B4B3C7C38029F1D5DE033DDD758FFAB4F7C43C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 556627   (424519) от 06.10.2012
-
-VA - National Park Music (2000-2008) 6 albums [MP3|320 кб/с]<Instrumental, Ethnic, New age>
-
->>East Asian Music
->>Asian Traditional, Ethnic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424519.jpg" />
-</div>
-
-
-###  Подробнее
-
-(5:03) 01. Tai-Wu Mountain
-(4:01) 02. Linshui Lake And Hsi Lake
-(5:07) 03. Natural Beat
-(5:44) 04. Golden Beach
-(5:53) 05. Wind Lion God
-(5:19) 06. Haiyin Temple Stone Gate
-(4:35) 07. Chushan Park
-(4:55) 08. Summer Elf
-(5:17) 09. Battlegroung
-(4:24) 10. Maogonghsi CoastЖанр: Instrumental, Ethnic, New ageПродолжительность: 00:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E750FD6EDF32983E3741C470FFC24B5E209503D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 1557676   (127530) от 17.12.2023
+
+WordPress plugin - Oxygen 4.8 [PHP, SVG, CSS, JS]
+
+>>Материалы для мультимедиа и дизайна
+>>Web-дизайн и шаблоны сайтов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальный плагин конструктор страниц, который дает Вам полный контроль над визуальными макетами веб-страниц на основе WordPress. Oxygen - самый гибкий и мощный визуальный конструктор сайтов для WordPress. Oxygen – просто лучший инструмент для разработки сайтов WordPress с идеальной отзывчивостью и Pixel Perfect вёрсткой. Плагин даёт возможность контролировать каждый (   Читать дальше...   )Формат: PHP, HTML, CSS, JS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60E4D23A96805ABBA4CB6B11BA53D77AC5124C77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823132   (117610) от 10.10.2025
+
+Ui Kits - UI8 - The Folio - Portfolio, Blog, and Personal Website Template [FIG, HTML]
+
+>>Материалы для мультимедиа и дизайна
+>>Web-дизайн и шаблоны сайтов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблон включает в себя более 48 потрясающих и современных экранов для личных сайтов, блогов и портфолио, охватывая все: от дизайна домашней страницы до отдельных записей в блоге и частей портфолио.
+
+В дополнение к яркой и веселой светлой теме, шаблон также включает в себя элегантную и изысканную темную тему для пользователей, которые предпочитают более минималистичную (   Читать дальше...   )Формат: FIG, HTML
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAFB731324251B6678D23D6E77D931425AF2EC1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822920   (104474) от 09.10.2025
 
 Ui Kits - UI8 - Eclipse - Vintage Store Web Ecommerce [FIG]
@@ -6,7 +60,7 @@ Ui Kits - UI8 - Eclipse - Vintage Store Web Ecommerce [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104474.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Ui Kits - UI8 - Financial Forecasting Mobile App UI Kit - Thriftly [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101703.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ Ui Kits - UI8 -  WeCare - Medical Admin Dashboard UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91194.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65789.jpg" />
 </div>
 
 
@@ -117,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65779.jpg" />
 </div>
 
 
@@ -143,7 +197,7 @@ Ui Kits - UI8 - Catmy - AI Chatbot Mobile App UI Kits [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52264.jpg" />
 </div>
 
 
@@ -171,7 +225,7 @@ Ui Kits - UI8 - Tasksy - UI kit for Productivity Mobile Apps [FIG, SKETCH]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52046.jpg" />
 </div>
 
 
@@ -197,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37445.jpg" />
 </div>
 
 
@@ -224,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22126.jpg" />
 </div>
 
 
@@ -251,7 +305,7 @@ Ui Kits - UI8 - Sublima UI (v3.0 ) - UI kit and Design system [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17457.jpg" />
 </div>
 
 
@@ -277,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15881.jpg" />
 </div>
 
 
@@ -303,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14766.jpg" />
 </div>
 
 
@@ -331,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13389.jpg" />
 </div>
 
 
@@ -359,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12560.jpg" />
 </div>
 
 
@@ -385,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12554.jpg" />
 </div>
 
 
@@ -411,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12544.jpg" />
 </div>
 
 
@@ -437,7 +491,7 @@ Ui Kits - Creative Market - Buttons and Switches - Mega UI V1 - 291442093 [PSD]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10890.jpg" />
 </div>
 
 
@@ -465,7 +519,7 @@ Ui Kits - UI8 - SkrinUI - 1000+ Screen UI All Purpose [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9839.jpg" />
 </div>
 
 
@@ -491,7 +545,7 @@ Ui Kits - UI8 - Landing page Bundle [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9832.jpg" />
 </div>
 
 
@@ -517,7 +571,7 @@ Ui Kits - UI8 - Core - Dashboard Builder [XD, FIG, SKETCH, HTML, CSS]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9335.jpg" />
 </div>
 
 
@@ -545,7 +599,7 @@ Ui Kits - UI8 - Fodidi - Food Ordering Apps For UI Kits [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9214.jpg" />
 </div>
 
 
@@ -573,7 +627,7 @@ Ui Kits - UI8 - Synapz - AI Task Collaboration App UI KIT [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9101.jpg" />
 </div>
 
 
@@ -599,7 +653,7 @@ WordPress plugin - Elementor PRO 3.21.3 [PHP, SVG, CSS, JS]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8194.jpg" />
 </div>
 
 
@@ -628,7 +682,7 @@ Ui Kits - UI8 -  ANXOE.AI – AI Personal Assistant Dashboard UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7096.jpg" />
 </div>
 
 
@@ -640,58 +694,6 @@ Ui Kits - UI8 -  ANXOE.AI – AI Personal Assistant Dashboard UI Kit [FIG]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DC6A82E49EBDBC279020A58BE1E40DF3E7BF493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814277   (5213) от 30.08.2025
-
-Ui Kits - UI8 - Lumine - Minimalistic Brand Guidelines [FIG]
-
->>Материалы для мультимедиа и дизайна
->>Web-дизайн и шаблоны сайтов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Независимо от того, являетесь ли вы дизайнерским агентством, фрилансером или владельцем бизнеса, Lumine поможет вам уверенно представить свой бренд. Произведите впечатление на клиентов, коллег и членов команды с помощью профессионально разработанного руководства по бренду, которое заложит основу для успеха.Формат: FIG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E0D23FF77C40DE028368EDBBEAAD3A43693E712
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816243   (4578) от 03.09.2025
-
-Ui Kits - UI8 - Dolphin VPN - VPN Mobile Mobile App UI Kits [FIG]
-
->>Материалы для мультимедиа и дизайна
->>Web-дизайн и шаблоны сайтов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dolphin VPN — это премиальный и высококачественный набор пользовательского интерфейса для мобильного VPN-приложения с более чем 40 высококачественными экранами, простой в использовании в Figma.Формат: FIG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A2269153DE02C3925E09B70FED89BC4B2FA9D9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

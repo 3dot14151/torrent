@@ -6,7 +6,7 @@ BBC: Эти загадочные животные / Weird Nature (2002) HDTVRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810963.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC: 80 Чудес света (все 10 серий) / Around the World in 80 Tr
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810274.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ BBC Radio 1's Big Weekend Hull 2017 / BBC Radio 1's Big Weekend Hull 2017 (2017)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809988.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ BBC Radio 1's Big Weekend Exeter 2016 / BBC Radio 1's Big Weekend Exeter 2016 (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809986.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ BBC: Как это работает. Таинственный Мир Матер�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809918.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ BBC. Таинственный мир гормонов / The Fantastical World of
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809779.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ BBC: Сетевой мир / Niall Ferguson's Networld (2020) WEBRip [H.264/1080
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807946.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806672.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ BBC: Тайная жизнь льда / The Secret Life of Ice (2011) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806412.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ BBC: Европа: История континента / BBC: Wild Europe (2005)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806340.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ BBC. Гении из царства животных / Super Smart Animals (2012
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806224.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ BBC: Невидимые миры / Richard Hammond's Invisible Worlds (2010) BDR
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805968.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ BBC. Искусство Китая / Art of China (2014) SATRip (серии 1-3 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805840.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRemux [H.264/1080
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805745.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ BBC. Нетронутые уголки дикой природы / Nature's Micr
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805117.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ BBC. Horizon. Охота за бозоном Хиггса / BBC. Horizon. The Hu
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804201.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ BBC: Шок и Трепет. История электричества. Искр
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804068.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ BBC. Панорама. Нелегальная торговля органами 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802492.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/720p] 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802476.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ BBC. Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/720p-L
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802468.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ BBC. Horizon: Охота за бозоном Хиггса-Спец выпуск 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802450.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ BBC: Скрытые убийцы в домах... / Hidden Killers (2013-2014) W
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802410.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802376.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ BBC. Панорама. Харви Вайнштейн: вся подноготн�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799983.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ BBC. Самые милые животные / Super Cute Animals (2014) HDTVRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799159.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799152.jpg" />
 </div>
 
 

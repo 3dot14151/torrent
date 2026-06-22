@@ -1,3 +1,32 @@
+###  Публикация: 1372139   (887280) от 02.04.2020
+
+Shallow Truths - Alive Again (2020) [MP3|320 Kbps] <Post-Hardcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Grave (feat. Shayley Bourget) [00:04:17]
+02 Scarred [00:02:51]
+03 On Our Own [00:04:08]
+04 Alive Again [00:04:04](   Читать дальше...   )Жанр: Post-Hardcore, MetalcoreПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E6F5E65A81D9266BFF4AC2FCAF71737D593ED68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995259   (885827) от 10.03.2016
 
 3 Doors Down - Us and the Night (2016) [MP3|320 кб/с] <Alternative Rock, Post - Grunge>
@@ -6,7 +35,7 @@
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885827.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Circle of Dust - Circle of Dust (1992) Remastered, 2016, FiXT Music [MP3|320 к�
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884618.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Mono Inc. - An Klaren Tagen (2015) EP [MP3|320 кб/с] <Gothic Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882961.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Quercia - Non e vero che non ho piu l'eta (2016) [MP3|320 Kbps] <Alternative, Pu
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881891.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Muckrakers - 2-Albums/1-EP/2-Singles (2013-2019) [MP3|320 Kbps] <Hardcore Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880427.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Dead Can Dance - In Concert (2013) Live [MP3|320 кб/с]<Alternative, Experimen
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877819.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ The Cranberries - Remembering Dolores (2021) [MP3|320 Kbps] <Alternative, Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877249.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Järnbörd - 2 Albums (2017-2021) [MP3|320 Kbps] <Punk, Crust, Grind, Harcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876063.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Skillet - 9 Albums, 2 Compilations, 1 Live, 1 EP, 2 Promo (1996-2013) Диско
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_875199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875199.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Dream On Dreamer - What If I Told You It Doesn't Get Better (2020) [MP3|320 Kbps
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872990.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Frei.Wild - Corona Quarantane Tape (2020) [MP3|320 Kbps] <Deutschrock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872980.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Guillotines - 1 Album EP/2 Singles (2019-2020) [MP3|320 Kbps] <Nu-Metal, Rapcore
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871351.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ Emery - 5 Albums (2015-2020) [MP3|320 Kbps] <Post-Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869092.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ Enter Shikari - Nothing is True & Everything is Possible (2020) [MP3|320 Kbps] <
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862256.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ Gorillaz - Song Machine Episode 3 (2020) Single [MP3|320 Kbps] <Alternative Rock
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861920.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ R.E.M. - Дискография (1982-2011) [MP3|320 kbps]<Rock | Alt Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859502.jpg" />
 </div>
 
 
@@ -465,7 +494,7 @@ Sleep For The Weary - Nocturns (2016) [MP3|320 кб/с] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859312.jpg" />
 </div>
 
 
@@ -494,7 +523,7 @@ Cinema Bizarre - 3 альбома, 3 сингла (2007-2009) [MP3|192-320 кб/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854675.jpg" />
 </div>
 
 
@@ -523,7 +552,7 @@ Dance Gavin Dance - Afterburner (2020) [MP3|320 Kbps] <Post-Hardcore, Progressiv
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850086.jpg" />
 </div>
 
 
@@ -552,7 +581,7 @@ The Used - Heartwork (2020) [MP3|320 Kbps] <Alternative Rock, Post-Hardcore, Ele
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848430.jpg" />
 </div>
 
 
@@ -581,7 +610,7 @@ Awolnation - Angel Miners & the Lightning Riders (2020) [MP3|320 Kbps] <Alternat
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848337.jpg" />
 </div>
 
 
@@ -610,7 +639,7 @@ Asking Alexandria - See What’s On The Inside (2021) [MP3|320 Kbps] <Post Hardc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847677.jpg" />
 </div>
 
 
@@ -639,7 +668,7 @@ Birdy - Beautiful Lies (2016) Deluxe Edition [MP3|320 кб/с] <Pop, Indie, Folk
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846849.jpg" />
 </div>
 
 
@@ -668,7 +697,7 @@ Alice on the Roof - Higher (2016) [MP3|320 кб/с] <Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843318.jpg" />
 </div>
 
 
@@ -697,7 +726,7 @@ Weezer - Weezer (White Album) (2016) Japanese Edition [MP3|320 кб/с] <Alterna
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843218.jpg" />
 </div>
 
 
@@ -711,35 +740,6 @@ Weezer - Weezer (White Album) (2016) Japanese Edition [MP3|320 кб/с] <Alterna
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1579B16335656B3665A7299EBB886ADF391B73BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003486   (843203) от 03.04.2016
-
-The Cat Empire - Rising With The Sun (2016) [MP3|320 кб/с] <Ska, Funk, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolves (03:24)
-02. Bulls (03:27)
-03. Midnight (04:23)
-04. Blasting Away (03:50)(   Читать дальше...   )Жанр: Ska, Funk, IndieПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D35E3C8584C4216A7B08459707B2812DBB2E01A
 ```
 
 https://mybot314.ru/tekegram_catalog/

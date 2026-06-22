@@ -6,7 +6,7 @@ FonesGo iPhone Unlocker for Mac 6.0.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118641.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ iToolab UnlockGo 6.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118631.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ FonesGo Location Changer for Mac 7.0.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118573.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Multitouch 1.27.26 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118552.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ File List Export for Mac 2.9.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118539.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Sticky Notes: Easy Note Taking 2.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118407.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Middle for Mac 1.8.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118405.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Barcode 2.5.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117971.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ BlueHarvest 8 v.8.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117941.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Moom 3.2.26 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117939.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Find Any File (FAF) 2.4.2b7 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117458.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Pocket cleaner Pro 1.6.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117394.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ TinkerTool System 8 v.8.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117390.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ ProFind for Mac 1.25 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117171.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Adguard for Mac 2.13.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117131.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Smooze Pro 2.0.72 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116998.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ PingPlotter Pro for Mac 5.24.3.7253 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116897.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ DriveDX 1.12.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116778.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ DjVu Reader Pro 2.7.1 [Ru/En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116758.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ DriveDX 1.11.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116723.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ AlDente Pro fo Mac 1.25.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116600.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Aiseesoft Mac FoneTrans 9.2.36 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116540.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Stats 2.10.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116525.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Iris 1.6.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116476.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Path Finder 2168 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116376.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ PhotoSweeper X 4.8.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116353.jpg" />
 </div>
 
 

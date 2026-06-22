@@ -1,3 +1,81 @@
+###  Публикация: 1691981   (122996) от 14.01.2024
+
+Maou Gakuin no Futekigousha II | The Misfit of Demon King Academy II | Непризнанный школой владыка демонов [ТВ-2] [2023, TV, 12 из 12] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды могущественный Король Демонов Тирании Анос Вольдигод пожертвовал собой во имя установления мира между расами, решив переродиться через пару тысяч лет. И его план удался: реальность, в которой он очнулся, действительно стала куда более мирной. Правда, и её жители, не обременённые постоянными войнами, стали куда слабее и забыли многие простейшие заклинания, (   Читать дальше...   )Производство: студия Silver LinkЖанр: приключения, фэнтезиРежиссер: Онума СинЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (AniLibria, Crunchyroll)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E64528DB35B5B1686BD7B6ACCADFE9E357F418C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490620   (122472) от 17.01.2024
+
+Shingeki no Kyojin: The Final Season | Attack on Titan The Final Season | Атака титанов [ТВ-4, часть 1] [2020, TV, 16 из 16] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благодаря усилиям Легиона Разведки остров Парадиз освобожден от гнёта гигантов. За стенами и правда оказался Океан. Раньше Эрен верил, что это будет последней преградой на пути к свободе. Но реальность оказалось жестокой. За океаном жителей стен ждет новый враг — Марлийцы, что населяют континент к западу от Парадиза. Грядет новое противостояния, Легиону Разведки (   Читать дальше...   )Производство: студия MAPPAЖанр: приключения, фэнтези, драмаРежиссер: Хаяси ЮйтироЯзык озвучки: Японский, русский (DEEP, AniLibria, Jam Club, NewComers, Wakanim)Субтитры: Русские (Crunchyroll, Firegorn Team)Продолжительность: 16 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9972B070EABE7F8E5700651312F38949F222C464
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667988   (122429) от 17.01.2024
+
+Семья шпиона 2 | Spy x Family Season 2 [2023, TV, 12 из 12] WEBRip 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122429.jpg" />
+</div>
+
+
+###  Подробнее
+
+В рамках своей миссии по спасению мира от надвигающегося конфликта, агенту Сумраку пришлось взять на себя роль добропорядочного семьянина и познать на собственной шкуре все прелести и тяготы семейной жизни. Несносная дочка-телепат Аня и красавица жена Йор, работающая наёмной убийцей, не перестают добавлять нашему герою проблем. Мало того, теперь в их квартире поселился (   Читать дальше...   )Производство: Япония /Жанр: приключения, комедияРежиссер: Фурухаси КадзухироЯзык озвучки: Русский любительский двухголосый (Субтитры: Русские (Надписи (по умолчанию); YakuSub; SovetRomantica; Alvakarp; Crunchyroll)Продолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDBD3982126F5636FD6EB9F96A3E3592A8DEF693
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693637   (121737) от 21.01.2024
 
 Huo Feng Liao Yuan | The Ravages of Time | Огненный феникс опаляет равнины | Разрушительное действие времени [2023, TV, 16 из 16] WEB-DL 1080p rus
@@ -6,7 +84,7 @@ Huo Feng Liao Yuan | The Ravages of Time | Огненный феникс опа�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121737.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121579.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ Fate/Apocrypha | Судьба: Апокриф [2017, TV, 25 из 25] BDRip 1080p
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120641.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120584.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Riki-Ou 2: Horobi no Ko | Riki-Oh 2: Child Of Destruction | Рики-О 2: Ди�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120509.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120318.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120286.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ Jigokuraku | Hell's Paradise: Jigokuraku | Адский рай [ТВ-1] [2023, T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120171.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ Mary to Majo no Hana | Mary and the Witch's Flower | Мэри и ведьмин 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119846.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ Mushoku Tensei II: Isekai Ittara Honki Dasu | Реинкарнация безр�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119239.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ Ars no Kyojuu | Ars no Kyojuu | Гигантский зверь Арса [2023, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119131.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ Maou Gakuin no Futekigousha | The Misfit of Demon King Academy | Непризн�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118991.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ Boukensha ni Naritai to Miyako ni Deteitta Musume ga S Rank ni Natteta | Моя 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118804.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ Bokutachi wa Benkyou ga Dekinai | We Never Learn | Мы не можем учит
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118785.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ Buta no Liver wa Kanetsu Shiro | Свинину надо было жарить |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118717.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ Suzume no Tojimari | Судзумэ закрывает двери [2022, Movie] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118353.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ Go-Toubun no Hanayome~ | The Quintessential Quintuplets | Пять невест:
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117824.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ Shuumatsu no Walkure II | Shuumatsu no Walkure II | Повесть о конце
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117726.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ Idol Densetsu Eriko | Легендарный айдол Эрико [1989-1990, T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117222.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ Hyoujin: Blades of the Guardians | Biao Ren: Blades of the Guardians | Клин�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116057.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ Metal Skin Panic Madox-01 | Мадокс-01 [1987, OVA, 1 из 1] BDRip 1080p HE
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116040.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ Street Fighter II: The Animated Movie | Уличный боец II [1994, Movie]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115564.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ Liar Liar | Лжец Лжец [2023, TV, 12 из 12] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115547.jpg" />
 </div>
 
 
@@ -591,89 +669,6 @@ Liar Liar | Лжец Лжец [2023, TV, 12 из 12] BDRip 1080p 10-bit raw+rus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:463DD26D67E01BA5D52C7E755DCAA6D1DDDFC2D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703127   (115208) от 28.02.2024
-
-Лагерь на свежем воздухе [ТВ-1] | Yuru Camp | Laid-Back Camp [2018, TV, 12 из 12 + 3 SP] BDRip 1080p 10bit Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любите ли вы ходить в походы? Пленяет ли вас запах костра и еды, готовящейся на нём? Готовы ли вы часами слушать шорох листьев или шум реки? А спать в палатке или в спальном мешке под открытым небом? Если вам это по душе, и вы не боитесь трудностей, которые могут встретиться во время похода, то это аниме вам точно понравится! А может быть оно даже вдохновит вас повторить (   Читать дальше...   )Производство: Япония / Студия C-StationЖанр: Комедия, повседневностьРежиссер: Кёгоку ЁсиакиЯзык озвучки: Русский (Crunchyroll), (AniDUB); ЯпонскийСубтитры: Русские (софтсаб надписи/полные); Английские (софтсаб полные)
-Субтитры RUS (TV): ASS; (внешним файлом); перевод: Crunchyroll
-Субтитры RUS (SP): ASS; (внешним файлом); перевод: YakuSub Studio
-Субтитры ENG (TV+SP1): ASS; (внешним файлом); перевод: Asenshi(   Читать дальше...   )Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9B9F656E784D782A251EFA3FFE235A2CEC205F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703145   (115206) от 28.02.2024
-
-Kakutou Bijin Wulong | Fighting Beauty Wulong | Боевая красавица Улун [2005, TV, 25 из 25] DVDRip 480p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115206.jpg" />
-</div>
-
-
-###  Подробнее
-
-За всё время существования боевых искусств не нашёлся бы такой мастер, который смог позволить себе жить спокойной и размеренной жизнью. Настоящий воин обязан быть готов в любой момент отстоять честь своей школы, сразив противника, жаждущего опорочить его учение. В наши дни нелёгкое бремя защитницы доблестного имени своей семьи пало на плечи юной Мао Ран. Девушка (   Читать дальше...   )Производство: TMS Entertainment / トムス・エンタテインメントЖанр: боевые искусства, комедияРежиссер: Судзуки ЁсиоПеревод: ANGREЯзык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 25 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B70933E974577C33C584FC2089B9C53D6544D2BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703146   (115203) от 28.02.2024
-
-Kakutou Bijin Wulong Rebirth | Fighting Beauty Wulong Rebirth | Боевая красавица Улун: Возрождение [2006, TV, 25 из 25] DVDRip 480p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение приключений Мао Ран - мастера боевых искусств и ее друзей. После чемпионата "Prime Mat" Мао принимает решение жить как обычная девушка. Однако не тут-то было...
-Слава, полученная на чемпионате, сводит ее с несколькими одноклассницами, мстящими мужскому роду . Так она обретает новых учеников.
-И вновь Мао предстоят новые встречи с мастерами боевых (   Читать дальше...   )Производство: TMS Entertainment / トムス・エンタテインメントЖанр: боевые искусства, комедияРежиссер: Судзуки ЁсиоПеревод: DRAGJJ & mars 17Язык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 25 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A97E3F683DC0067755AB0AA890183BF7D166D80
 ```
 
 https://mybot314.ru/tekegram_catalog/

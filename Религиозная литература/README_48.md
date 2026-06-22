@@ -1,3 +1,57 @@
+###  Публикация: 902638   (660288) от 29.05.2015
+
+Алексей Бодров, Михаил Толстолуженко (ред.) | Богословие красоты (2013) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Понятие красоты – одно из центральных для христианского богословия. Оно относится не только к миру природы, но и к области творческой активности человека. Более того, христианская мысль придает красоте трансцендентное измерение: творение прекрасно, потому что прекрасен Творец; прекрасное в мире – это знаки божественного присутствия в нем.
+
+Авторы этой книги (в числе (   Читать дальше...   )Жанр: БогословиеФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D538DF53EBDDAC842327F4D0E79031DCDFFEAF38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902640   (660283) от 29.05.2015
+
+Ирина Языкова, Михаил Талалай (ред.) | Андрей Первозванный – апостол для Запада и Востока (2011) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660283.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгу, посвященную 800-летию перенесения мощей св. Андрея Первозванного из Константинополя в Амальфи (2008 г.), вошли статьи богословов, историков, филологов и искусствоведов, посвященные роли апостола в истории христианства, разным аспектам его церковного и народного почитания и его современной общехристианской миссии.Жанр: БогословиеФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F8D8A3751CEA31F31F972061713774B9D57E754
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 902893   (660228) от 29.05.2015
 
 Джон Хедли Брук | Наука и религия. Историческая перспектива (2004) [DJVU]
@@ -6,7 +60,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660228.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659373.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659131.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659102.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658837.jpg" />
 </div>
 
 
@@ -143,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658043.jpg" />
 </div>
 
 
@@ -169,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658040.jpg" />
 </div>
 
 
@@ -197,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658037.jpg" />
 </div>
 
 
@@ -225,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657957.jpg" />
 </div>
 
 
@@ -251,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657942.jpg" />
 </div>
 
 
@@ -277,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657864.jpg" />
 </div>
 
 
@@ -303,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657814.jpg" />
 </div>
 
 
@@ -329,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656876.jpg" />
 </div>
 
 
@@ -357,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655850.jpg" />
 </div>
 
 
@@ -385,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655649.jpg" />
 </div>
 
 
@@ -411,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654879.jpg" />
 </div>
 
 
@@ -437,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654872.jpg" />
 </div>
 
 
@@ -465,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654773.jpg" />
 </div>
 
 
@@ -491,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654282.jpg" />
 </div>
 
 
@@ -517,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653936.jpg" />
 </div>
 
 
@@ -543,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653930.jpg" />
 </div>
 
 
@@ -571,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653875.jpg" />
 </div>
 
 
@@ -597,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653874.jpg" />
 </div>
 
 
@@ -625,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653528.jpg" />
 </div>
 
 
@@ -636,58 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:904F5C1A6EA0CF2BCD4EB197E36D90A41EE5BC89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904890   (653459) от 04.06.2015
-
-А. Д. Сухов | О корнях религии (1970) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда говорят о корнях какого-либо явления, то под этим подразумевают наиболее существенные его причины. Вопрос о корнях религии — это вопрос о наиболее глубоких причинах ее возникновения и существования в обществе. Он имеет большую теоретическую и практическую значимость. Очень важно объяснить те причины, которые порождают религию, показать, что никаких сверхъестественных (   Читать дальше...   )Жанр: история, религиоведение, гносеологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF41B634B712D6B62A7AECA4FFD1F9C39106145D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904895   (653433) от 04.06.2015
-
-И. Н. Яблоков | Религия: сущность и явления (1982) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653433.jpg" />
-</div>
-
-
-###  Подробнее
-
-В брошюре раскрывается социальная природа религии. Автор показывает религию как исторически обусловленную часть надстройки, формирующуюся на базисе некоторых общественно-экономических формаций. В работе выявляются социальные, психологические и гносеологические корни религии, анализируются ее элементы, функции и роль, показывается влияние религии на экономические (   Читать дальше...   )Жанр: история, религиоведение, психология, гносеологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04DC35361745A0A96CDA6ACA02CC8B0AEB8B135F
 ```
 
 https://mybot314.ru/tekegram_catalog/

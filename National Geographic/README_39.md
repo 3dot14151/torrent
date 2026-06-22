@@ -1,3 +1,107 @@
+###  Публикация: 1272026   (146899) от 25.12.2018
+
+NG: Майкл Пэйлин в Северной Корее / North Korea: Michael Palin's Journey (2018) DVB (серии 1-2)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Историческая встреча между северокорейским лидером Ким-Чен-Ыном и президентом Южной Кореи Мун Чже Ином оказалась на первых полосах газет всего мира, создав одновременно для журналистов уникальную возможность посещения этого "государства-изгоя". Когда эта новость распространилась по стране, Майкл с командой приехал в Северную Корею и провел эти поистине (   Читать дальше...   )Производство: Великобритания, ITN Productions, National GeographicЖанр: Документальный, исследованиеРежиссер: Нейл ФергюсонПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AA9391324F1E352B4EEF2B98AC2B5667EE0DAEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247314   (146383) от 25.12.2018
+
+NGW: Испытания в дикой природе / Trials of the Wild (2018) HDTV [H.264/1080i-LQ] (Сезон 1, серии 1-10 из 10)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146383.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сериале, снятом с земли и с воздуха, на деревьях и скалах, на льдинах и под водой, вы узнаете о многих видах животных на планете и их передвижениях. Научные открытия о природе будут показаны в завораживающем качестве высокоформатного изображения.Производство: США, Nat Geo Wild, NGC Network USЖанр: Документальный, природа, флора, фаунаРежиссер: Кристин ВеберПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: серии х ~ 00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15FE6073D527467A6EEEEB1137A6D86CA9DEEC15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272049   (145663) от 26.12.2018
+
+NGW: Братья сафари / Safari Brothers (2016) HDTV [H.264/1080i-LQ] (Сезон 1, серии 1-4 из 6) (Обновляемая)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брент и Грант Ридс обитают в самом диком месте дельты реки Окаванго. Они покажут, как работают плечом к плечу с самыми известными животными планеты. Вместе они создали одну из самых успешных сафари-компаний Ботсваны. Вы увидите, как харизматичная пара преодолевает трудности, связанные с ведением бизнеса в диких условиях.Производство: США, Symbio Studios, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C4CA1FB12068B69565C38BA7020024AC2320D0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272333   (144016) от 27.12.2018
+
+NGW: Выжить несмотря ни на что / Extreme Survivors (2014) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144016.jpg" />
+</div>
+
+
+###  Подробнее
+
+От вершин самых высоких гор, до неистовых рек, мир полон враждебных мест. Но есть животные, которым удаётся в них выживать и процветать.Производство: Нидерланды, NDR Naturfilm, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F448273AB2E461219C6DA575649302E97306635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195199   (143841) от 28.12.2017
 
 NGW: Дикий рай Индии / India's Wild Edens (2016) HDTVRip [H.264/720p-LQ]
@@ -6,7 +110,7 @@ NGW: Дикий рай Индии / India's Wild Edens (2016) HDTVRip [H.264/720
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143841.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NG: Служба безопасности аэропорта: Первый кл�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142622.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ National Geographic. Подземный мир майя: настоящий ко
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133691.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2023) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130984.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126985.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126945.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126937.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ NG. Последняя тайна Клеопатры / Cleopatra's Final Secret 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125913.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ NG. Магия сокровищ Диснея / Magic of the Disney Treasure (202
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125772.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ NG: Очевидцы: День «Д» / Eyewitness: D-Day (2019) WEB-DL [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125199.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ NG. Поднимается буря / Storm Rising (2021) HDTV [H.264/1080i] (с
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116765.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ NG. В мире дельфинов с Берти Грегори / Dolphins Up Cl
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101689.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ NG. В мире дельфинов с Берти Грегори / Dolphins Up Cl
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101683.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ NG. Затерянные в джунглях / Lost in the Jungle (2025) WEB-DL 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_98561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98561.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ NG. Затерянные в джунглях / Lost in the Jungle (2025) WEB-DL 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94499.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87555.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87553.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Nat Geo Wild: Созданные убивать: Лев / Built for the Kill: Li
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87146.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ NG: Забытый соперник Египта / Egypt's lost rival (2010) IPT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86558.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ NG: Гибель морского монстра / Death of a Sea Monster (2010)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82450.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ National Geographic Special: Суперкошки / National Geographic Special:
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79548.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79212.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F5EC8528E27AE033CC9BB31863E0AEBD2860E49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460213   (79153) от 29.02.2012
-
-Nat Geo Wild: Болотные львы / Swamp Lions (2011) HDTVRip [720p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самец прайда убит браконьерами, и теперь три львицы и их львята остались без защиты в одном из самых трудных для выживания львов районов Африки.Жанр: ДокументальныйПеревод: ДублированныйПродолжительность: 00:44:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453556   (76498) от 16.02.2012
-
-Nat Geo Wild: Возвращение дымчатых леопардов / Return of the Clouded Leopards (2011) HDTVRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пара редких в своем виде детенышей дымчатого леопарда спасенные от браконьеров и выращенные специалистом по защите природы, который, чтобы помочь им выжить, пытается научить их всему тому, чему их научила бы мать. Оцените работы фотографа Сандреша Кадура, проследите за работой ветеринара Бхаскара Чоудхури, как они осуществляют реабилитацию двух осиротевших детенышей (   Читать дальше...   )Жанр: ДокументальныйПеревод: Дублированный*Продолжительность: 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81F82E3B08EA03CCF836396973EB1D6C48FB40E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362405   (62919) от 15.03.2024
-
-NG. Последствия: Нулевое население / Aftermath: Population Zero (2008) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что бы случилось, если бы каждый человек на Земле просто исчез? Ушел. Не умер, просто ушел. Это - поразительная история мира, который мы никогда не увидим. Мир без людей, где городские улицы все еще населяются автомобилями, но без водителей. Шаг за шагом, природа отвоевывает свои позиции, животные выходят из леса, электростанции перестают работать, а плотины разрушаются. (   Читать дальше...   )Производство: США, Cream Productions Inc., National Geographic ChannelЖанр: Документальный, научно-познавательныйРежиссер: Кристофер РоулиПеревод: Дублированный (ТВ3)Субтитры: Русские (от S0luS и Uncle Fedor)Продолжительность: 01:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DADA7411EE71E78AD2D667124835B48D4BDE7AE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708295   (62354) от 20.03.2024
-
-NG: Путешествие на край Вселенной / Journey to the Edge of the Universe (2008) BDRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это путешествие увлекает нас к истокам зарождения жизни, Столпам Мироздания, давая возможность заглянуть далеко за облака космической пыли, туда, где рождаются огромные звезды, даря Вселенной свой свет, а может быть и жизнь.Телекомпания: США / National Geographic TelevisionЖанр: документальныйРежиссер: Явар АббасПеревод: ДублированныйЯзык озвучки: РусскийПродолжительность: 01:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17997BE9BFFAAFA2D58438EA41E47A1D81A3E63D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,58 @@
+###  Публикация: 1856389   (1058901) от 28.02.2026
+
+Александр Грохт, Влад Лей | Цикл "Эпидемия" [6 книг] (2025-2026) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что ты будешь делать, если однажды встретишь самого настоящего зомби?
+Поверишь ли ты в это, сделаешь ли выводы,
+будешь ли готовиться к началу апокалипсиса, предвестником которого и будет встреченное тобой существо?
+Как поведет себя обычный обыватель, если ему хватит смелости и смекалки,(   Читать дальше...   )Жанр: Постапокалипсис, Боевая фантастика, Боевик, ПриключенияИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDE7669BE4A546D8D64FA9DC54306ABAE1687BB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856245   (1058698) от 27.02.2026
+
+Влад Лей | Цикл "Железный лорд" [4 книги] (2025-2026) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я - второй сын графа Тирра. И именно поэтому мне не повезло: моя судьба была предрешена до моего рождения. Но я не согласен! Я не хочу быть лишь блеклой тенью моего брата, лорда-наследника. Если нужно - буду выгрызать свое. Я стану воителем и на поле боя, в сражениях между гигантскими боевыми роботами докажу, что достоин большего...Жанр: Космическая фантастика, Социальная фантастика, БоевикИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CBC7CD0668012182CC4F8FDE375C495A5B4B5E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1855779   (1058488) от 24.02.2026
 
 Антон Панарин | Цикл "Император песчаных карьеров" [1 книга] (2026) [FB2] [Обновляемая]
@@ -6,7 +61,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058488.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058315.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058130.jpg" />
 </div>
 
 
@@ -89,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058128.jpg" />
 </div>
 
 
@@ -117,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058008.jpg" />
 </div>
 
 
@@ -145,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057471.jpg" />
 </div>
 
 
@@ -171,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057470.jpg" />
 </div>
 
 
@@ -197,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057469.jpg" />
 </div>
 
 
@@ -223,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057418.jpg" />
 </div>
 
 
@@ -249,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057165.jpg" />
 </div>
 
 
@@ -275,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056928.jpg" />
 </div>
 
 
@@ -301,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056318.jpg" />
 </div>
 
 
@@ -327,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056315.jpg" />
 </div>
 
 
@@ -354,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056309.jpg" />
 </div>
 
 
@@ -380,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056134.jpg" />
 </div>
 
 
@@ -406,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056007.jpg" />
 </div>
 
 
@@ -435,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055909.jpg" />
 </div>
 
 
@@ -461,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055907.jpg" />
 </div>
 
 
@@ -487,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055899.jpg" />
 </div>
 
 
@@ -515,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055893.jpg" />
 </div>
 
 
@@ -541,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055888.jpg" />
 </div>
 
 
@@ -567,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055861.jpg" />
 </div>
 
 
@@ -596,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055817.jpg" />
 </div>
 
 
@@ -622,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055815.jpg" />
 </div>
 
 
@@ -636,60 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1F0F4F2889E331B18E766E0A719B9DCE952D3B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852034   (1055698) от 05.02.2026
-
-INDIGO | Фортуна дама переменчивая. На границе империй [31 книга] (2022-2026) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл «Фортуна — дама переменчивая» — это серия юмористического фэнтези, построенная вокруг идеи: что будет, если обычный человек внезапно окажется втянут в игры богов, демонов и прочей высокопоставленной нечисти, у которых свои правила, свои ставки и очень своеобразное чувство юмора.Жанр: Космическая фантастика, Фэнтези, ПопаданцыИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4936900DF1B0C5B25C71C5FB4F415C471186C861
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851957   (1055693) от 05.02.2026
-
-Юрий Уленгов, Валерий Пылаев | Гардемарин Ее Величества [5 книг] (2024-2025) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я дал императору корону. Верным мне князьям — богатство и власть. Стране — почти четверть века покоя и мира. Я был готов ко всему, даже к собственной смерти.
-Но меня подвели. Оставили в небытии на долгих десять лет и вернули в этот мир, лишь когда взятое взаймы благополучие начало трещать по швам.
-На дворе две тысячи пятнадцатый год, почти вся моя семья уничтожена, (   Читать дальше...   )Жанр: Попаданцы, Альтернативная историяИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4526CA3E27FA7C894202FD1F8501D31CE0315242
 ```
 
 https://mybot314.ru/tekegram_catalog/

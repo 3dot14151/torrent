@@ -1,3 +1,56 @@
+###  Публикация: 951743   (360159) от 30.10.2015
+
+Bubble Translate 1.1 [En/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Существует множество способов перевести текст с одного языка на другой, но удобный только один.
+Приложение Bubble Translate справится с переводом на любой из более чем 90 языков мира быстро и без лишних действий. Достаточно только выделить текст, нажать сочетание клавиш и получить результат в виде переведенного текста и транслитерации в стильном, автоматически масштабируемом (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12 октября 2015Разработчик: Alex Artem'evПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FCC20E0BA7ABB910457F02BFB57AA116968B3D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577230   (359611) от 17.09.2022
+
+Master of Typing - Мастер Печати 3: Практика v.3.3.14 (15.13.4) [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Master of Typing создан для тех, кто хочет научиться печатать на ощупь. Многие современные люди почти живут, сидя за компьютером. Вот почему быстрая печать сейчас очень важна. Сенсорный набор текста - это метод набора текста всеми десятью пальцами без наблюдения за клавиатурой. Быстрая печать позволяет не только сэкономить время, но и уменьшить переключение внимания.Тип издания: macOS SoftwareРелиз состоялся: 03.09.2022Разработчик: © 2022 Learn & Practice Labs LLCПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0148F401176097A05A1A6A8A2D7F9212F215438
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1178505   (356115) от 28.10.2017
 
 Records 1.5.5 [En]
@@ -6,7 +59,7 @@ Records 1.5.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356115.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Synkmark 3.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354819.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Nova 9.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354658.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ Readiris Pro 17.1.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354033.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ Moneydance 2021 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353675.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ Fake 1.8.10 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353440.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ Boxy: email client for "Inbox by Gmail" 2.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353295.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ Nisus Writer Pro 3.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352430.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ Runway 1.8.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352396.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ NetNewsWire 4.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352279.jpg" />
 </div>
 
 
@@ -275,7 +328,7 @@ PureBasic 6.00 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352190.jpg" />
 </div>
 
 
@@ -301,7 +354,7 @@ FileMaker Pro 19 v.19.5.4.401 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352188.jpg" />
 </div>
 
 
@@ -328,7 +381,7 @@ NotePlan - Markdown Calendar 1.6.30 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351895.jpg" />
 </div>
 
 
@@ -355,7 +408,7 @@ VirtualBox 6.1.16 for Mac v6.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350937.jpg" />
 </div>
 
 
@@ -383,7 +436,7 @@ Papers 3 v3.4.21 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350276.jpg" />
 </div>
 
 
@@ -411,7 +464,7 @@ MarginNote 3 Pro v3.4.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350274.jpg" />
 </div>
 
 
@@ -439,7 +492,7 @@ Quiver 3.2.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350158.jpg" />
 </div>
 
 
@@ -468,7 +521,7 @@ Canary Mail - Encrypted Email 2.14 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350031.jpg" />
 </div>
 
 
@@ -494,7 +547,7 @@ Fluid 1.8.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349828.jpg" />
 </div>
 
 
@@ -521,7 +574,7 @@ Direct Message for Instagram Pro 4.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345482.jpg" />
 </div>
 
 
@@ -547,7 +600,7 @@ Drama 2.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344705.jpg" />
 </div>
 
 
@@ -573,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344595.jpg" />
 </div>
 
 
@@ -599,7 +652,7 @@ Chrono Plus – Time Tracker & Timesheet with Billing 1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342824.jpg" />
 </div>
 
 
@@ -625,7 +678,7 @@ Cyberduck 6.8.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340409.jpg" />
 </div>
 
 
@@ -636,60 +689,6 @@ Cyberduck — удобное приложение для "заливки" и с�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D03A759EFCBD0636232D59B19D8B1DF47E6969B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180560   (339741) от 04.11.2017
-
-Unibox 1.8.2 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unibox - новый способ для организации вашей электронной почты. Софт настраивается под человека, и даёт возможность вашему email-общению стать более интересным.
-Пользователь может прикреплять любые медиа файлы, просматривать их, вести несколько бесед одновременно при этом не открывая дополнительных окон. Установите приложение Unibox и оно станет необходимым для вас. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 ноября 2017Разработчик: eightloops GmbHПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Французский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1A1997B0C6008C1B979D42428D98919BD60C77F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258281   (338671) от 29.10.2018
-
-Aeon Timeline 2 v2.3.13 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aeon Timeline: программный инструмент для создания временных событий.
-Есть множество профессий, в работе которых требуется точное соблюдение временных интервалов. Писатель, журналист, ученый объединены исследованием истории или временных последовательностей, которые необходимо заранее выстроить в один ряд, в несколько слоев, связать с людьми и их возрастом, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.10.2018Разработчик: Aeon TimelineПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A6C10AF4AFDB2CB85F028CEB8B89200A3DC19D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

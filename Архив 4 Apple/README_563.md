@@ -1,3 +1,58 @@
+###  Публикация: 1426268   (215176) от 24.11.2020
+
+AudioSwitcher 3.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215176.jpg" />
+</div>
+
+
+###  Подробнее
+
+AudioSwitcher - небольшая утилита, которая находится в строке меню и позволяет выбрать вход или выход источника аудио, с возможностью регулировки уровня громкости по выходу и уровня чуствительности по входу.Тип издания: macOS SoftwareРелиз состоялся: 23.11.2020Разработчик: Paul O'NeillПоддерживаемая ОС: macOS 11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC5E10AA0FE14AF56B676208E3421DF6FF001FFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344078   (215172) от 08.12.2019
+
+goPanel 2 v2.8.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простота установки и менеджер Apache, PHP, MySQL, Mail Server и FTP.
+goPanel - наиболее интуитивное приложение для управления веб-серверами и является альтернативой существующему программному обеспечению, будет полезна если вы устанавливаете сервера на базе Unix  для веб-хостинга.
+
+Легко для того, чтобы установить и настроить Apache, PHP, MySQL, FTP, домены и Mail (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.12.2019Разработчик: Global Web SRLПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E09FF53D952F6E1796AACC67CCFAE22C2FED976
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426448   (215158) от 24.11.2020
 
 DaisyDisk 4.12 [Multi/Ru]
@@ -6,7 +61,7 @@ DaisyDisk 4.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215158.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.11.1.1892 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215148.jpg" />
 </div>
 
 
@@ -62,7 +117,7 @@ Hype 4 Pro v4.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215126.jpg" />
 </div>
 
 
@@ -88,7 +143,7 @@ Downie 3 3.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215123.jpg" />
 </div>
 
 
@@ -114,7 +169,7 @@ Mellel 4 v4.2.5r1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215118.jpg" />
 </div>
 
 
@@ -142,7 +197,7 @@ ExpanDrive 7 v7.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215111.jpg" />
 </div>
 
 
@@ -170,7 +225,7 @@ NCH VideoPad Pro 8 v8.98 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215091.jpg" />
 </div>
 
 
@@ -196,7 +251,7 @@ Mellel 5 v5.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215084.jpg" />
 </div>
 
 
@@ -224,7 +279,7 @@ Devonthink Pro Office 3 v3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215071.jpg" />
 </div>
 
 
@@ -250,7 +305,7 @@ Super PhotoCut Pro 2.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214993.jpg" />
 </div>
 
 
@@ -276,7 +331,7 @@ Sketch 70.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214884.jpg" />
 </div>
 
 
@@ -303,7 +358,7 @@ Monodraw 1.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214851.jpg" />
 </div>
 
 
@@ -332,7 +387,7 @@ Hitman Снайпер / Hitman Sniper v2.1.33 [Ru/Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214850.jpg" />
 </div>
 
 
@@ -358,7 +413,7 @@ TokenLock 4.70 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214840.jpg" />
 </div>
 
 
@@ -386,7 +441,7 @@ Wondershare UniConverter 12.5.0.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214770.jpg" />
 </div>
 
 
@@ -414,7 +469,7 @@ CrossOver 19.0 (build 32192) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214737.jpg" />
 </div>
 
 
@@ -442,7 +497,7 @@ Yummy FTP Pro 1.11.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214683.jpg" />
 </div>
 
 
@@ -471,7 +526,7 @@ Waltr 2 v2.6.24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214644.jpg" />
 </div>
 
 
@@ -498,7 +553,7 @@ Audiobook Builder 2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214522.jpg" />
 </div>
 
 
@@ -526,7 +581,7 @@ iCash 7.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214291.jpg" />
 </div>
 
 
@@ -552,7 +607,7 @@ Aiseesoft iPhone Unlocker for Mac 2.0.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_214207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214207.jpg" />
 </div>
 
 
@@ -578,7 +633,7 @@ Movavi Slideshow Maker 5.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214171.jpg" />
 </div>
 
 
@@ -604,7 +659,7 @@ LuLu 2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_214089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214089.jpg" />
 </div>
 
 
@@ -630,7 +685,7 @@ File Cabinet Pro 7.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213845.jpg" />
 </div>
 
 
@@ -641,60 +696,6 @@ File Cabinet Pro - файловый менеджер строки меню Mac O
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64EDA4B0114D34B3FEDE190C369C2B337A3512DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193926   (213841) от 23.12.2017
-
-VMware Fusion Pro 10.1.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213841.jpg" />
-</div>
-
-
-###  Подробнее
-
-VMware Fusion: удобная и мощная виртуальная машина для Mac, с помощью которой, пользователи Mac могут запускать ОС Windows и десятки других операционных систем одновременно с приложениями Mac без перезагрузки. Решение Fusion сочетает в себе удобство работы для домашних пользователей и широкие возможности для ИТ-специалистов, разработчиков и организаций.
-
-Выполнение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.12.2017Разработчик: VMware, Inc.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский, Французский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9E117442CB4E11C422A01CDC62FE4CCA4841F45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344125   (213839) от 09.12.2019
-
-Understand 5.1 (build 1009) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Understand - это инструмент статического анализа для поддержки, измерения и анализа критических или больших баз кода. От метрик и графиков до анализа зависимостей - освойте свой исходный код с помощью Understand.Тип издания: macOS SoftwareРелиз состоялся: 06.12.2019Разработчик: Scientific Toolworks, Inc.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D25EFFC0B69D9254C65873BBC5E1C82D6E92E3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

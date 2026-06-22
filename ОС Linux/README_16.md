@@ -1,3 +1,277 @@
+###  Публикация: 1422729   (305888) от 10.11.2020
+
+Red Hat Enterprise Linux 7.9
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Red Hat выпустила дистрибутив Red Hat Enterprise Linux 7.9 (о новой версии неделю назад объявлено только на портале access.redhat.com, в списке рассылки и в разделе пресс-релизов анонс так и не появился). Установочные образы RHEL 7.9 доступны для загрузки только зарегистрированным пользователям Red Hat Customer Portal и подготовлены для архитектур x86_64, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4518A735EEEA3B187639CB04A56D30ED581A5D43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422732   (305727) от 10.11.2020
+
+Red Hat Enterprise Linux 8.3
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Red Hat анонсировала дистрибутив Red Hat Enterprise Linux 8.3. Установочные сборки пока не сформированы, но их на следующей неделе обещают подготовить для архитектур x86_64, s390x (IBM System z), ppc64le и Aarch64. Сборки будут доступны для загрузки только зарегистрированным пользователям Red Hat Customer Portal. Исходные тексты rpm-пакетов Red Hat Enterprise (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F4C3119F398E6617F57588B5357E7BB4CD026B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 730330   (304851) от 04.12.2013
+
+Manjaro Linux 0.8.8 (Arch + зоопарк рабочих столов) [i686] 9xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчики дистрибутива и разработчики сообщества представили очередной выпуск Manjaro Linux – основанного на Arch Linux легковесного дистрибутива, пользователь которого имеет выбор из настольных окружений Xfce, Openbox, KDE, E17, LXDE, Gnome, MATE, Cinnamon и net.
+
+В состав Manjaro Linux 0.8.8 включена обновлённая версия менеджера пакетов Pamac (0.9.3), среди особенностей которой стабильный backend для обновлений или транзакций с кастомным pyalpm; переработанное окно прогресса транзакций теперь включает расширитель с детальной информацией; в расширителе отображается вывод послеустановочного сценария; установка локальных пакетов возможна, в том числе, через pamac-manager; для выполнения транзакций разработчики вернули D-Bus daemon; ошибка high CPU usage должна быть полностью исправлена; переписан модуль проверки обновлений; добавлена поддержка Arch User Repository (AUR).
+
+Обновлена входящая в релиз версия Octopi (0.3), ряд изменений внесён в графический инсталлятор Thus (более простой интерфейс; создание дисковых (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A65662CED866A712E1232AF53CD6E27E7768321A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183800   (304773) от 15.11.2017
+
+Fedora 27 Live spins [x86-64] 7xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официально представлен релиз Linux-дистрибутива Fedora 27. Для загрузки подготовлены продукты Fedora Workstation, Fedora Server и Fedora Atomic Host, а также набор "спинов" c Live-сборками десктоп-окружений KDE Plasma 5, Xfce, MATE, Cinnamon, LXDE и LXQt. Сборки сформированы для архитектур x86, x86_64, Power64 и ARM64 (AArch64). Дополнительно поставляется (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6D1B2CA3BB8B0B15DD9D733523E383B1D5A2B47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 730332   (304324) от 04.12.2013
+
+Manjaro Linux 0.8.8 (Arch + зоопарк рабочих столов) [x86-64] 9xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчики дистрибутива и разработчики сообщества представили очередной выпуск Manjaro Linux – основанного на Arch Linux легковесного дистрибутива, пользователь которого имеет выбор из настольных окружений Xfce, Openbox, KDE, E17, LXDE, Gnome, MATE, Cinnamon и net.
+
+В состав Manjaro Linux 0.8.8 включена обновлённая версия менеджера пакетов Pamac (0.9.3), среди особенностей которой стабильный backend для обновлений или транзакций с кастомным pyalpm; переработанное окно прогресса транзакций теперь включает расширитель с детальной информацией; в расширителе отображается вывод послеустановочного сценария; установка локальных пакетов возможна, в том числе, через pamac-manager; для выполнения транзакций разработчики вернули D-Bus daemon; ошибка high CPU usage должна быть полностью исправлена; переписан модуль проверки обновлений; добавлена поддержка Arch User Repository (AUR).
+
+Обновлена входящая в релиз версия Octopi (0.3), ряд изменений внесён в графический инсталлятор Thus (более простой интерфейс; создание дисковых (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A55C042684BAFFD01BC12AF5ED676C4FD7D84D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261947   (298514) от 13.11.2018
+
+Debian GNU/Linux 9.6.0 + nonfree Stretch [amd64] 4xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доступно шестое корректирующее обновление дистрибутива Debian 9, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 88 обновлений с устранением проблем со стабильностью и 92 обновления с устранением уязвимостей.
+
+Из изменений в Debian 9.6 можно отметить удаление 46 пакетов, из которых большинство являются дополнениями (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B059CCE29BCDA2C5510517DB3D658F85B864FFC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961628   (298460) от 02.12.2015
+
+Q4OS 1.4.4 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [i386, i686pae, amd64] 4xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Q4OS - дистрибутив операционной системы Linux, созданный как альтернатива классическому Windows XP, предоставляющий знакомый интерфейс, удобную систему установки программ, простоту и скорость работы. Также система удобна для серверов и виртуальных облаков по причине низких требований к железу.
+
+Система базируется на Debian и использует в качестве графической оболочки (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EF53DC6EF4F02D2B0A0D6444DE0D61A9B9AA4FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261948   (298413) от 13.11.2018
+
+Debian GNU/Linux 9.6.0 + nonfree Stretch [i386] 4xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доступно шестое корректирующее обновление дистрибутива Debian 9, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 88 обновлений с устранением проблем со стабильностью и 92 обновления с устранением уязвимостей.
+
+Из изменений в Debian 9.6 можно отметить удаление 46 пакетов, из которых большинство являются дополнениями (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14232E14C93ACDCBD9050809003C0C1015D4E637
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079208   (295699) от 03.12.2016
+
+Mageia 5.1 Cauldron [i586] 3xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295699.jpg" />
+</div>
+
+
+###  Подробнее
+
+После полутора лет разработки доступен респин Linux-дистрибутива Mageia 5 - Mageia 5.1, в рамках которого независимым сообществом энтузиастов развивается форк проекта Mandriva. Для загрузки доступны 32- и 64-разрядные DVD-сборки (3 Гб), набор Live-сборок на базе GNOME и KDE с различными наборами локализации. Проект Mageia (МАГ) стартовал в сентябре 2010 как форк (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A03707FDD6FB5D2927941EF1391FE2B320F1F371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079211   (295586) от 03.12.2016
+
+Mageia 5.1 Cauldron [x86-64] 3xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295586.jpg" />
+</div>
+
+
+###  Подробнее
+
+После полутора лет разработки доступен респин Linux-дистрибутива Mageia 5 - Mageia 5.1, в рамках которого независимым сообществом энтузиастов развивается форк проекта Mandriva. Для загрузки доступны 32- и 64-разрядные DVD-сборки (3 Гб), набор Live-сборок на базе GNOME и KDE с различными наборами локализации. Проект Mageia (МАГ) стартовал в сентябре 2010 как форк (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F6BF2D82F887BE95C5A9149C82E4D3E8BFD3553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 731871   (295400) от 08.12.2013
 
 PCLinuxOS 2013.12 KDE FullMonty [x32, x64] 2xDVD
@@ -6,7 +280,7 @@ PCLinuxOS 2013.12 KDE FullMonty [x32, x64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295400.jpg" />
 </div>
 
 
@@ -34,7 +308,7 @@ Sabayon 14.12 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 4xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293797.jpg" />
 </div>
 
 
@@ -62,7 +336,7 @@ Linux Mint 17.3 Rosa (Mate, Cinnamon) [64bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292315.jpg" />
 </div>
 
 
@@ -90,7 +364,7 @@ Arco Linux 18.11.2 [x86_x64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290931.jpg" />
 </div>
 
 
@@ -116,7 +390,7 @@ Oracle Linux 7 Update 2 Server [x86-64] 1xDVD + 2CD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290558.jpg" />
 </div>
 
 
@@ -142,7 +416,7 @@ Elementary OS Freya 0.3.2 [i386,amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283276.jpg" />
 </div>
 
 
@@ -168,7 +442,7 @@ openSUSE 13.2.1 Education Li-f-e [i686, x86-64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280369.jpg" />
 </div>
 
 
@@ -194,7 +468,7 @@ Linux Mint 17.1 Rebecca (Mate, Cinnamon) (nocodecs) [64bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278986.jpg" />
 </div>
 
 
@@ -222,7 +496,7 @@ Linux Mint 17.1 oem Rebecca (Mate, Cinnamon) [64bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278879.jpg" />
 </div>
 
 
@@ -250,7 +524,7 @@ Linux Mint 17.1 Rebecca (Mate, Cinnamon) nocodecs [32bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278874.jpg" />
 </div>
 
 
@@ -278,7 +552,7 @@ Red Hat Enterprise Linux 8.1
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276854.jpg" />
 </div>
 
 
@@ -304,7 +578,7 @@ Red Hat Enterprise Linux 7.7
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275776.jpg" />
 </div>
 
 
@@ -332,7 +606,7 @@ CentOS 7.3(1611) [x86_64] 4xDVD + 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275404.jpg" />
 </div>
 
 
@@ -358,7 +632,7 @@ Linux Mint 18.1 Serena (Mate) [64bit] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274390.jpg" />
 </div>
 
 
@@ -384,7 +658,7 @@ Linux Mint 18.1 Serena (Mate, Cinnamon) [64bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273115.jpg" />
 </div>
 
 
@@ -410,7 +684,7 @@ Debian GNU/Linux 10.2.0 + nonfree Buster [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262589.jpg" />
 </div>
 
 
@@ -423,279 +697,6 @@ Debian GNU/Linux 10.2.0 + nonfree Buster [i386] 4xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F538B4A9509D39B0671A993D8983E7A89A99ADE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341192   (262563) от 27.11.2019
-
-Debian GNU/Linux 10.2.0 + nonfree Buster [amd64] 4xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Опубликовано второе корректирующее обновление дистрибутива Debian 10, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 67 обновлений с устранением проблем со стабильностью и 49 обновлений с устранением уязвимостей.
-
-Из изменений в Debian 10.2 можно отметить обновление до свежих стабильных версий пакетов flatpak, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BB1576AF79B0C65E0E934EAC651517026A39B60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341194   (262547) от 27.11.2019
-
-KNOPPIX 8.6.1 [x32, x64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клаус Кноппер (Klaus Knopper) представил выпуск KNOPPIX 8.6.1, исторически одного из первых дистрибутивов, поддерживающих работу в Live-режиме. Дистрибутив построен на основе оригинального набора загрузочных скриптов и включает в себя пакеты, импортированные из Debian Buster, со вставками из веток Debian "testing" и "unstable". Для загрузки доступна (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74424385CE35C41AAB8FD9C909A2A6E2FC6C47D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838854   (261599) от 25.11.2025
-
-Red Hat Enterprise Linux 10.1 [x86_64, aarch64] 4xDVD 1xWSL
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Red Hat Enterprise Linux (RHEL) - популярная коммерческая операционная система на базе ядра Linux, имеющая открытый исходный код и предназначенная для развёртывания на предприятиях. RHEL можно использовать как серверную систему, а также как рабочую станцию или сервер с графическим окружением GNOME.
-
-Операционная система Red Hat Enterprise Linux ориентирована на стабильность (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17FE448278658634CAE114AB299FBA0C8E5E4B19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636740   (251824) от 02.06.2023
-
-Astra Linux Special Edition 1.7.4 [amd64] 1xDVD
-
->>След.
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251824.jpg" />
-</div>
-
-
-###  Подробнее
-
-ОС Astra Linux Special Edition 1.7.4 на базе Debian 10 (buster).
-Astra Linux Special Edition 1.7.4 успешно прошла комплекс испытаний в системе сертификации СЗИ ФСТЭК России по первому, высочайшему, уровню доверия. Продукт в полной мере соответствует самым строгим критериям, изложенным в «Требованиях по безопасности информации, устанавливающих уровни доверия к средствам (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06B7FD08066766EE3201A2F57ED040E78EFF89D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562695   (250316) от 10.07.2022
-
-Debian GNU/Linux 11.4.0 + nonfree (firmware) Bullseye [i386] 2xDVD+3xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как сообщает OpenNET: опубликовано четвёртое корректирующее обновление дистрибутива Debian 11, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 81 обновление с устранением проблем со стабильностью и 79 обновлений с устранением уязвимостей.
-
-Из изменений в Debian 11.4 можно отметить обновление до свежих стабильных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8CCF7C3FD41700A5C30187F86619E22F0897E40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562692   (250305) от 10.07.2022
-
-Debian GNU/Linux 11.4.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+3xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как сообщает OpenNET: опубликовано четвёртое корректирующее обновление дистрибутива Debian 11, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 81 обновление с устранением проблем со стабильностью и 79 обновлений с устранением уязвимостей.
-
-Из изменений в Debian 11.4 можно отметить обновление до свежих стабильных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAD67E881832CEE7FDF1D2E9D3D4EC75DE413CA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535119   (249347) от 26.03.2022
-
-Kali Linux 2022.1 (ex. BackTrack) [amd64, i386, arm] 8xDVD, 3xCD Аудит безопасности, хакинг.
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249347.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 февраля 2022 состоялся релиз обновления дистрибутива Kali Linux 2022.1, предназначенного для тестирования систем на предмет наличия уязвимостей, проведения аудита, анализа остаточной информации и выявления последствий атак злоумышленников.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39061023E6A63AB8F8AAABF991778463E54333B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546163   (239989) от 22.04.2022
-
-Xubuntu 22.04 Jammy Jellyfish LTS [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Xubuntu 22.04 под кодовым названием Jammy Jellyfish — это выпуск с долгосрочной поддержкой (LTS), который будет поддерживаться в течение 3 лет, до 2025 года.
-
-Команды разработчиков Xubuntu и Xfce добились больших успехов в плане удобства использования, расширенных функций и дополнительных приложений за последние два года. Пользователи, перешедшие с версии 20.04, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23D897CD86C6230F27E3D790DC727D7A0ABF51D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578945   (233177) от 25.09.2022
-
-Debian GNU/Linux 11.5.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+3xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как сообщает OpenNET: опубликовано пятое корректирующее обновление дистрибутива Debian 11, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 58 обновлений с устранением проблем со стабильностью и 53 обновления с устранением уязвимостей.
-
-Из изменений в Debian 11.5 можно отметить: Обновлены до свежих стабильных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8B5AFD5E5D75404649F461CF51B1D185B8FF494
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423078   (228774) от 16.11.2020
-
-SUSE Linux Enterprise Desktop Server 15
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания SUSE представила релиз промышленного дистрибутива SUSE Linux Enterprise 15. Пакеты SUSE 15 уже использованы в качестве основы в поддерживаемом сообществом дистрибутиве openSUSE Leap 15. На основе платформы SUSE Linux Enterprise также сформированы такие продукты, как SUSE Linux Enterprise Server, SUSE Linux Enterprise Desktop, SUSE Manager 3.2 и SUSE Linux (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE1957AA503D2119EDA29D05321F5D9D35D78DD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1697117   (119128) от 05.02.2024
+
+JetBrains DataSpell for Mac 2023.3.3 Intel/ARM [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119128.jpg" />
+</div>
+
+
+###  Подробнее
+
+DataSpell — IDE для Data Science. DataSpell создан специально для тех, кто занимается разведочным анализом данных, и прототипированием моделей машинного обучения. Это эргономичная среда разработки, объединяющая в себе интерактивные возможности Jupyter-ноутбуков и умный редактор PyCharm для работы с Python и R.Тип издания: macOS SoftwareРелиз состоялся: 25.01.2024Разработчик: © 2000-2023 JetBrains s.r.o.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B83C728E46BF30FF389953163A6A821F5D0E92DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697080   (119088) от 05.02.2024
+
+n-Track Studio Suite 10.0.0 ARM/Intel [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для обеспечения студийного качества записи, редактирования и микширования.
+Программа n-Track Studio привносит профессиональное качество аудио файлов и облегчает рабочий процесс.Тип издания: macOS SoftwareРелиз состоялся: 04.02.2024Разработчик: n-Track S.r.lПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11B3411A48C1EE2BF2C3CA27738EB4385DA4A505
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697123   (119087) от 05.02.2024
 
 Scrutiny 12.8.6 [En]
@@ -6,7 +59,7 @@ Scrutiny 12.8.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119087.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ Bookends 14.2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119084.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ Clearview X 3.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119074.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ Boxy SVG 4.23.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119068.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ CleanMyMac X 4.15.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118692.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ Davinci Resolve Studio 18.6.5 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118666.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ Luminar Neo 1.18.2 U2B  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118615.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ JetBrains WebStorm for Mac 2023.3.3 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118612.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ DxO PhotoLab 7 ELITE Edition 7.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118603.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ DxO FilmPack 7 for Mac v.7.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118602.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ Easy Data Transform for Mac 1.46.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118598.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ Capture One 23 Enterprise 16.3.5.10 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118570.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ Blocs 5.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118564.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ Notebooks – Write and Organize 3.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118563.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ Smart Converter Pro 3 v.3.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118561.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ Syncovery for Mac 10.11.3 ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118559.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ DxO ViewPoint 4 for Mac v.4.14.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118558.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ uDock 4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118557.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ Dato 5.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118555.jpg" />
 </div>
 
 
@@ -510,7 +563,7 @@ Syncovery for Mac 10.11.3 Intel [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118553.jpg" />
 </div>
 
 
@@ -536,7 +589,7 @@ JetBrains RubyMine for Mac 2023.3.3 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118548.jpg" />
 </div>
 
 
@@ -562,7 +615,7 @@ FSNotes 6.6.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118544.jpg" />
 </div>
 
 
@@ -588,7 +641,7 @@ Multitouch 1.27.25 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118543.jpg" />
 </div>
 
 
@@ -614,7 +667,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118542.jpg" />
 </div>
 
 
@@ -626,59 +679,6 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13047093EDE1897C4024383C7273F4A3FFF158F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698164   (118541) от 08.02.2024
-
-Text Workflow 1.8.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный и простой в использовании инструмент, который поможет вам преобразовать ваш текст. Text Workflow устраняет необходимость выполнять повторяющиеся задачи вручную над вашим текстом. Комбинируйте действия по преобразованию, чтобы создать мощную автоматизацию для вашего текста.
-Комбинируйте действия преобразования, чтобы создать мощную автоматизацию для вашего (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.02.2024Разработчик: © 2024 Giorgos TrigonakisПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2F5E85441510FE0E151D7D4F151BD418AEE657A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698126   (118538) от 08.02.2024
-
-Doppler for Mac 2.1.18 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальный проигрыватель Doppler упрощает владение музыкой. Doppler — хорошая альтернатива для людей, которым нужен способ воспроизведения локальных файлов.Тип издания: macOS SoftwareРелиз состоялся: 06.02.2024Разработчик: © 2024 Brushed Type Ltd.Поддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ED884251ED00DE57F014F3FCDE6748E9D5B0AF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

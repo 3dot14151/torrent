@@ -1,3 +1,93 @@
+###  Публикация: 1253870   (379183) от 11.10.2018
+
+Nazareth - Tattooed on My Brain (2018) [MP3|320 Kbps] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Dance with the Devil
+02. Tattooed on My Brain
+03. State of Emergency
+04. Rubik's Romance(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:51:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E4A938D777ED12A18C6EB521B5B029BABD0E213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573751   (378682) от 11.11.2012
+
+Crash The System - The Crowning (2009) [MP3|320 кб/с]<Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fight Fire With Fire
+02. All Because Of You
+03. I Still Believe In Love
+04. Love Is In Your Eyes
+05. Take A Chance
+06. Enough Of Your Lovin'
+07. Mysterious
+08. Angel Of My Heart
+09. Rolling Stone
+10. Don't Tell Me No Lies(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC73664A8499EE89414171D31084C95B65615BE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573397   (377976) от 11.11.2012
+
+VA - 5CD Rock Tributes (2006) [MP3|320 кб/с]<Rock, Southern Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rock, Southern Rock, Hard RockПродолжительность: 04:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:594B7E35256E6AA6BF8FDA403ECF5EE4FF2C792C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175871   (376120) от 19.10.2017
 
 Europe - Walk The Earth (2017) [MP3|320 Kbps] <Hard Rock>
@@ -6,7 +96,7 @@ Europe - Walk The Earth (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376120.jpg" />
 </div>
 
 
@@ -35,7 +125,7 @@ Bon Jovi - This House Is Not For Sale (2016) Exclusive Target Edition [MP3|320 �
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375659.jpg" />
 </div>
 
 
@@ -64,7 +154,7 @@ Taboo - Taboo (2022) [Mp3|320 kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375380.jpg" />
 </div>
 
 
@@ -93,7 +183,7 @@ Kamboja - Ate o Freio Estourar (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373876.jpg" />
 </div>
 
 
@@ -122,7 +212,7 @@ Random Play - Beware Of The Dog (2020) [MP3|320 Kbps] <Hard Rock, Female Vocal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371916.jpg" />
 </div>
 
 
@@ -151,7 +241,7 @@ RavenEye - Nova (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371405.jpg" />
 </div>
 
 
@@ -180,7 +270,7 @@ Julliet - Julliet (1990) [MP3|320 кб/с]<Hard Rock, Glam>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370364.jpg" />
 </div>
 
 
@@ -209,7 +299,7 @@ Electric Angels - Electric Angels (1990) [MP3|320 кб/с]<Hard Rock, Glam>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370253.jpg" />
 </div>
 
 
@@ -238,7 +328,7 @@ Rakel Traxx - Dirty Dollz (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369013.jpg" />
 </div>
 
 
@@ -267,7 +357,7 @@ Berwanger - Exorcism Rock (2016) [MP3|320 Kbps] <Melodic Hard Rock, Garage Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368877.jpg" />
 </div>
 
 
@@ -296,7 +386,7 @@ Killer Bee - Eye in the Sky (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368792.jpg" />
 </div>
 
 
@@ -325,7 +415,7 @@ Bandolier Kings - 2 Albums (2019-2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368482.jpg" />
 </div>
 
 
@@ -354,7 +444,7 @@ AlleHackbar - Play It Fucking Loud (2015) [MP3|320 кб/с]<Hard Rock, Glam Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367765.jpg" />
 </div>
 
 
@@ -383,7 +473,7 @@ Fans Of The Dark - Suburbia (2022) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364156.jpg" />
 </div>
 
 
@@ -412,7 +502,7 @@ House Of Lords - Saints And Sinners (2022) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364048.jpg" />
 </div>
 
 
@@ -441,7 +531,7 @@ Bonfire - Legends (2018) 2CD [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363838.jpg" />
 </div>
 
 
@@ -470,7 +560,7 @@ Sweet & Lynch - Unified (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362990.jpg" />
 </div>
 
 
@@ -499,7 +589,7 @@ Bon Jovi - Burning Bridges (2015) Japanese Edition [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362758.jpg" />
 </div>
 
 
@@ -528,7 +618,7 @@ Def Leppard - Def Leppard (2015) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362487.jpg" />
 </div>
 
 
@@ -557,7 +647,7 @@ Black Sabbath - The Ozzy Osbourne Years (1991) 3 CD Set  [MP3|320 Kbps] <Hard Ro
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361020.jpg" />
 </div>
 
 
@@ -586,7 +676,7 @@ White Widdow - 5 Альбомов (2010-2018) [MP3|320 кб/с]<Melodic Hard Roc
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361011.jpg" />
 </div>
 
 
@@ -615,7 +705,7 @@ Funky Junction - Play A Tribute To Deep Purple (1973) [MP3|256 кб/с]<Classic 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360808.jpg" />
 </div>
 
 
@@ -649,7 +739,7 @@ VA - 101 Hits Rock Legends (Box Set 4CD) (2009) [MP3|320 кб/с]<Classic Rock &
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359936.jpg" />
 </div>
 
 
@@ -660,93 +750,6 @@ VA - 101 Hits Rock Legends (Box Set 4CD) (2009) [MP3|320 кб/с]<Classic Rock &
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F96B7296C9D6502DEB6A128C324087F841DDE9DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329129   (356508) от 03.10.2019
-
-Eclipse - Paradigm (2019) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356508.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Viva La Victoria[3:12]
- 2 - Mary Leigh[3:06]
- 3 - Blood Wants Blood[3:35]
- 4 - Shelter Me[3:13](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE121B5921B64036E743091EA1295C6D2C9DE6F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417690   (355736) от 21.10.2020
-
-Tragik - Faith Healer (2020) [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back on the Road (03:12)
- 02. Faith (03:35)
- 03. Robot Love (02:29)
- 04. Hanging by a String (04:45)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47FE13B39A022D95D742C4B69E70B845B0F8B456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072105   (354776) от 12.11.2016
-
-Overdrivers - Rockin' Hell (2016) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rockin' Hell
-02. Bertha Rottenfold
-03. She Hides A Big Packet
-04. Hard Rock Hard Life Hard Night(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:391D3D15BDF6024360216B47877AFB65C0EDE325
 ```
 
 https://mybot314.ru/tekegram_catalog/

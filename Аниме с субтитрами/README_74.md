@@ -1,3 +1,29 @@
+###  Публикация: 915032   (444226) от 05.10.2015
+
+Gangsta. | Гангстеры [2015, TV, 12] HDTV 720p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в городе под названием Эргастулум, в котором заправляют четыре ОПГ: Полкли, Корсика, Монро и Кристиано. Местное население по большей части состоит из мафиози, проституток, продажных копов и прочих симпатичных персонажей, среди которых особо выделяются Сумерки – люди, наделённые скоростью и силой, превосходящими человеческие возможности. И (   Читать дальше...   )Жанр: приключенияРежиссер: Мурасэ Сюко / Murase Shuukou / 村瀬修功Субтитры: внешние русскиеПродолжительность: каждый эпизод по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ACC4C0341EB4DC362525EC07DDF3C4E619A5A68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 871704   (444063) от 05.10.2015
 
 Anime de Wakaru Shinryounaika | Comical Psychosomatic Medicine | Комичная Психосоматическая медицина [TV, 2015, 20] HDTV 720p raw
@@ -6,7 +32,7 @@ Anime de Wakaru Shinryounaika | Comical Psychosomatic Medicine | Комична�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444063.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Gekijouban Servamp: Alice in the Garden | Сервамп: Алиса в саду
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443154.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Servamp | Сервамп [2016, TV] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443140.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Back Street Girls: Goku Dolls | Девчонки с задворок: Куклы
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441502.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Daa! Daa! Daa! / UFO baby / Внеземной малыш [2000, TV, 78 из 78]
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441043.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Pop in Q | Поп и Кью [2016, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440729.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Kakushigoto | Kakushigoto: My Dad's Secret Ambition | Скрытые вещи [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440593.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ BPS: Battle Programmer Shirase | Боевой программер Сирасэ 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440587.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Dragon's Dogma | Догма дракона [2020, Web, 7 эп.] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439984.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Phantasy Star Online 2: Episode Oracle | Звёздная фантазия он�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439778.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Sora Tobu Yuurei Sen / The Flying Ghost Ship / Летающий корабль-�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439277.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Gekijouban Fate/Stay Night: Heaven's Feel - Lost Butterfly | Судьба: Но�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437349.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Danganronpa Kibou no Gakuen to Zetsubou no Koukousei The Animation [2013, TV, 13
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436858.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ Harukana Receive | Харука и Каната принимают подачу 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436834.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ Hakugei Densetsu | Hakugei: Legend of the Moby Dick | Legend of the White Whale 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435967.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ Chio-chan no Tsuugakuro | Chio's School Road | Тио: Дорога в школ�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434785.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ The Idolmaster Movie: Kagayaki no Mukougawa e! | The Idolmaster Movie: Beyond th
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434487.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ Joukamachi no Dandelion / Castle Town Dandelion / Одуванчик из при
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434388.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ Listeners | Слушатели [2020, TV, 12 из 12] BDRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433968.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ Recorder to Randsell Mi / Флейта в рюкзаке Ми [2013, TV, 12 + 1 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433744.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Tsugu Tsugumomo | Цугумомо [ТВ-2] [2020, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433615.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Uchuu Senkan Yamato Fukkatsu-hen | Space Battleship Yamato: Resurrection | Ко�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433287.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ Saint Seiya Omega | Рыцари Зодиака (ТВ-2) [2012, TV, 97 эп.] We
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433280.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ Soredemo Sekai wa Utsukushii | SoreSeka | The World Is Still Beautiful | И вс
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432870.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ Bokura no Nanokakan Sensou | Seven Days War | Наша семидневная в
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431824.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ Bokura no Nanokakan Sensou | Seven Days War | Наша семидневная в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A45FC624DAC267CCAECD3AA25D6A93E6667251FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410814   (431823) от 23.09.2020
-
-Uchuu no Kishi Tekkaman Blade II | Star Knight Tekkaman Blade II | Space Knight Tekkaman Blade II | Космический рыцарь Теккамен Блейд 2 [1994, OVA, 6 из 6] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя десять лет после окончания последней войны с радамцами была собрана новая команда Космических рыцарей под руководством Аки и Ди-Боя. Первая миссия нового Теккамана - победить радамцев, но на горизонте замаячила новая угроза...Производство: Tatsunoko Production / タツノコプロЖанр: приключения, фантастика, мехаРежиссер: Тонокацу ХидэкиПеревод: Андрей aka avarachЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 6 эп. по 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D6F1A5FCBF128FB4C82373F2C3B2B245A8ED4F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

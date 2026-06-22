@@ -1,3 +1,162 @@
+###  Публикация: 1021048   (742060) от 28.05.2016
+
+Проекты - RocketStock - Billboard [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яркий и оптимистичный проект в телевизионном стиле.
+Billboard является идеальным решением, чтобы продемонстрировать свои события.
+Шаблон включает в себя 9 слайдов для фото или видео, 11 заполнителей для титров, и логотип.
+Легко настроить цвета, чтобы соответствовать своему бренду или стилю.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:266E552F3AF484DE447A4CE884FFDA68F08E3B08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282986   (741984) от 14.02.2019
+
+Проекты - VideoHive - Awards Ceremony - 19444306 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741984.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Awards Ceremony" - пакет, который включает все, что будет необходимо для создания ролика с церемонии награждения.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA3CB2BE5D8D68D09BD8D2F604CFBB558F09591A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021025   (741631) от 28.05.2016
+
+Проекты - VideoHive - Luxury Grand Show | Glamour Golden Promo [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания удивительно роскошного промо-видео с красивой золотой пылью. Используйте этот шаблон для продвижения вашего мероприятия!Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4330B68055E723EBB2A1E2B8FC256DD7B033A4FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021254   (741556) от 28.05.2016
+
+Проекты - VideoHive - Corporate Promo & Slideshow [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Corporate Promo & Slideshow - симпатичная корпоративная видео-презентация в стиле слайд-шоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C948240C6287AC58F1C92B3245ED6E7BA81101C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020656   (741551) от 28.05.2016
+
+Проекты - VideoHive - Agency - Real Estate Promo [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Agency - Real Estate Promo - проект для презентации и продвижения объектов недвижимости, является идеальным рекламным роликом для вашей компании.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE88D7A30CE8FDCBB4A734BDFB7D20A14122182
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283149   (740763) от 15.02.2019
+
+Проекты - VideoHive - News opener - 7159886 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740763.jpg" />
+</div>
+
+
+###  Подробнее
+
+News opener - проект состоящий из вступительной видео-заставки для новостного канала и нижней трети.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:069E1D376A8877301BD82C7C878741F72640CBDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126838   (740502) от 20.04.2017
 
 Проекты - VideoHive - Urban Realism - Subway Intro - 19654033 [AEP]
@@ -6,7 +165,7 @@
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740502.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740081.jpg" />
 </div>
 
 
@@ -59,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740027.jpg" />
 </div>
 
 
@@ -85,7 +244,7 @@ VideoHive – Dark Opener - 1392588 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739543.jpg" />
 </div>
 
 
@@ -111,7 +270,7 @@ VideoHive – Dual Impact - 2803447 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739541.jpg" />
 </div>
 
 
@@ -137,7 +296,7 @@ VideoHive – Glass Project - 2294272 [AEP, C4D]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739502.jpg" />
 </div>
 
 
@@ -166,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739483.jpg" />
 </div>
 
 
@@ -192,7 +351,7 @@ VideoHive – Product Promo - 3736887 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738896.jpg" />
 </div>
 
 
@@ -218,7 +377,7 @@ VideoHive – The Notebook - 163340 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738247.jpg" />
 </div>
 
 
@@ -244,7 +403,7 @@ VideoHive – Corporate Hands - 5699522 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737891.jpg" />
 </div>
 
 
@@ -270,7 +429,7 @@ VideoHive – Mind Gallery - 5274075 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736594.jpg" />
 </div>
 
 
@@ -296,7 +455,7 @@ VideoHive - Hip Hop Fashion - 4816256 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736006.jpg" />
 </div>
 
 
@@ -323,7 +482,7 @@ VideoHive - TV show or Awards Show Package - 4020914 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_735514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_735514.jpg" />
 </div>
 
 
@@ -349,7 +508,7 @@ VideoHive - TV show or Awards Show Package part.2 - 4361634 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735513.jpg" />
 </div>
 
 
@@ -375,7 +534,7 @@ Pond5 - Fashion Star Form - 35756008 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735038.jpg" />
 </div>
 
 
@@ -404,7 +563,7 @@ VideoHive – SEO. Internet Marketing. Web Promotion Pack - 7209231 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733624.jpg" />
 </div>
 
 
@@ -430,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732420.jpg" />
 </div>
 
 
@@ -458,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731531.jpg" />
 </div>
 
 
@@ -484,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731427.jpg" />
 </div>
 
 
@@ -510,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731306.jpg" />
 </div>
 
 
@@ -521,165 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:563C795C33679B41A359B4344514CD7CFE925170
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022102   (730555) от 31.05.2016
-
-Проекты - RocketStock - Magazine [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Magazine - этот проект является чистой рекламной анимацией, которая идеально подходит для популяризации мероприятий, демонстрации продуктов или продвижения услуг. Этот шаблон включает в себя 11 наименований, 10 слайдов для фотографий или видео и закрытие логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E86400068D907C69754A1E6BF5C15C8A49530A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127237   (730433) от 22.04.2017
-
-Проекты - VideoHive - Classic Box Promo - 19768679 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Classic Box Promo - это готовая уникальная и классическая презентация для вашего следующего проекта. Просто перетащите ваши фото/видео материалы, измените текст и цвет. Можно использовать проект целиком или вы можете сделать каждую сцену отдельно для любых целей. Шаблон прост в настройке. Видео-учебник включен.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6DF285BB782DB3AD7074AC833681C78941063A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127081   (730367) от 22.04.2017
-
-Проекты - VideoHive - Living Photos Mobile Mockup - 19151201 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для видео-презентаций, рекламы, социальных сетей. Или не посещая аэропорт, кафе, метро, ресторан и пр. места, вы можете сделать псевдо селфи, и выложить в свой блог.
-В общем, применение шаблона не ограничивается на этом. 12 тем. 35 заготовок. Фантазируйте.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42365A935FDF21D18BE7EF8ACBFDF8A02B08552D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127118   (730267) от 22.04.2017
-
-Проекты - VideoHive - Red Carpet-3 - 19682814 [AEP]
-
->>След.
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вступительная видео-заставка для вашего следующего видео. Можно использовать как видео-презентацию.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:525DE81D56403E55D0E7EBC08EDF8B74F7374C33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284306   (729581) от 20.02.2019
-
-Проекты - VideoHive - Awards Presentation Pack - 22841927 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Awards Presentation Pack - это проект After Effects в 4K разрешении, который можно использовать для различных целей.
-Элегантный, органично выглядящий пакет для вашей предстоящей церемонии награждения. Не имеет значения, является ли она Оскаром, Эмми, Грэмми, или чем-то еще. Это могут быть ежегодные награждения  лучших сотрудников вашей компании и пр.
-Используйте шаблон (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1C9B7B26F4724376AABF4C73E32DD4BA550AB3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284191   (729580) от 20.02.2019
-
-Проекты - VideoHive - Company Business Photo Gallery - 17693834 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для видео-презентаций, или просто для фото-галереи в деловом стиле.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F47EB158166F04CE5107913D0D2C3CAECB5CD863
 ```
 
 https://mybot314.ru/tekegram_catalog/

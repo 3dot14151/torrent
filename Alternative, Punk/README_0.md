@@ -1,3 +1,32 @@
+###  Публикация: 1455900   (1025453) от 20.03.2021
+
+Serj Tankian - Elasticity (2021) EP [MP3|320 Kbps] <Alt. Rock, Metal, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Elasticity [00:04:01]
+02 Your Mom [00:03:18]
+03 How Many Times- [00:04:16]
+04 Rumi [00:05:28](   Читать дальше...   )Жанр: Alt. Rock, Metal, ExperimentalПродолжительность: 00:20:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:667C770494FDD6330FFC18C1BE621997993FB307
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457827   (1024261) от 27.03.2021
 
 RA - Intercorrupted (2021) [MP3|320 Kbps] <Alternative, Hard Rock>
@@ -6,7 +35,7 @@ RA - Intercorrupted (2021) [MP3|320 Kbps] <Alternative, Hard Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024261.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Red Hot Chili Peppers - Devotion to Emotion (2021) live [MP3|320 Kbps] <Alternat
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023770.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ I Am Spartacus - Trigger Happy (2021) [MP3|320 Kbps] <Punk Rock, Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023322.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Junk - Drop City Souvenirs (серия "Другие восьмидесятые"
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022976.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ The Offspring - Let The Bad Times Roll (2021) [MP3|320 Kbps] <Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021396.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Rivals - Sad Looks Pretty On Me (2021) [MP3|320 kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020157.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Juliet Simms (Lilith Czar) - 8 Albums (2015-2021) [MP3|320 Kbps] <Alternative Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019331.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ As Everything Unfolds - 5 Albums (2018-2021) [MP3|320 Kbps] <Melodic Post-Hardco
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018970.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Bahroma - 5 Albums (2014-2021) [MP3|320 Kbps] <Indie Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018963.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ The Southern Oracle - Exodus Aesthetic (2021) [MP3|320 Kbps] <Hardcore Punk, Thr
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018956.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Xiu Xiu - Oh-No (2021) [MP3|320 Kbps] <Experimental, Indie, Electronic>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018796.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Tetrarch - 2 Albums (2017-2021) [MP3|320 Kbps] <Nu-Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018447.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Kiwi - 2 Albums (2015-2021) [MP3|320 Kbps] <Chaotic Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018298.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Melodic Malady - My Inner Pain (2021) [MP3|320 Kbps] <Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018102.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Useless ID - Most Useless Songs (2021) [MP3|320 Kbps] <Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017437.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Galleons - Galleons (2021) [MP3|320 Kbps] <Post-Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016167.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ twenty one pilots - Scaled And Icy (2021) [MP3|320 Kbps] <Indie Rock, Electronic
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014913.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ DeadLights - 3 Albums (2017-2021) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014834.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014528.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Wither Away - 2 Albums (2017-2021) [MP3|320 Kbps] <Post-Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013722.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Weezer - Van Weezer (2021) [MP3|320 kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012883.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Living Dead Girl - Exorcism (2021) [MP3|320 Kbps] <Alt.Metal, Female Vocal, Dark
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011538.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Blame Me! - The Invisible You (2021) [MP3|320 Kbps] <Alt.Rock, Electronic, Femal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011535.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Of Mice & Men - 7 альбомов + 2 EP (2010-2021) [MP3|320 Kbps] <Metalcore,
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010582.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ The Fall - Are You Are Missing Winner (2021) 4CD, Deluxe Edition [MP3|320 Kbps] 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006395.jpg" />
 </div>
 
 
@@ -715,34 +744,6 @@ The Fall - Are You Are Missing Winner (2021) 4CD, Deluxe Edition [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2995E57CE9B2C72DE0920CDE53957EDBFB11F1E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485245   (1002812) от 08.08.2021
-
-Hawksley Workman - дискография (14 альбомов, 1 сингл) (1999-2011) [MP3|320 кб/с]<alternative rock, indie rock, canadian songwriter>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hawksley Workman - сценический псевдоним Райана Корригана, канадского рок-музыканта и сочинителя песен, также известного по эпизодическим работам в стиле глэм-рок и кабаре-поп.
-
-После выхода в 1999 году первого альбома For Him and the Girls, некоторые уже сравнивали Райана с Томом Уэйтсом и Гарри Нильсоном. С выходом второй пластинки (Last Night We Were) The Delicious (   Читать дальше...   )Жанр: alternative rock, indie rock, canadian songwriterПродолжительность: указана отдельно для каждого альбома
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8319158B5AAEBB36E0AEFAF7BD9A33D35650E00B
 ```
 
 https://mybot314.ru/tekegram_catalog/

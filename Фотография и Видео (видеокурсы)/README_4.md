@@ -6,7 +6,7 @@ Profileschool | Обработка: что делать с кадром? (2014) 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977584.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975291.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975202.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ fstoppers.com | Как стать профессиональным свадеб�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974177.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971572.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970203.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969339.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Ollie Kenchington | Режиссура и Мастеринг Цвета / Direct
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969310.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968191.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965297.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ WedDays.Pro | Обучающий курс по свадебной фотогра
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960611.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Highlights School | Мастер-класс по цветокоррекции и
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958277.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957848.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954729.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949934.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949931.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ PhLearn | A Dark Force Photoshop/Тёмная сила Photoshop. Части 1 -
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947796.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ PIXEL | Рисование в Adobe Photoshop (2018) PCRec [H.264/1080p-LQ]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946292.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Fotoshkola | Фотография в путешествии (2014) CamRip [H.264
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944887.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Max Twain | АЛХИМИК (2016) PCRec [H.264/1080p]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942460.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937939.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929866.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Riccardo Fasoli и Kreativ Wedding | Свадебный воркшоп на ру
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928687.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921738.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913385.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Profileschool | Скрытая логика изобразительного м�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912791.jpg" />
 </div>
 
 

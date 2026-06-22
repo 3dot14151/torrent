@@ -1,3 +1,163 @@
+###  Публикация: 1357652   (972944) от 04.02.2020
+
+Детстроук: Рыцари и Драконы / Deathstroke: Knights & Dragons (2020) WEBRip [H.264/1080p-LQ] (Сезон 1, Серии 1 из 12) NewComers (Обновляемая)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Десять лет назад Слэйд Уилсон, он же супер убийца по имени Дефстроук, совершил трагическую ошибку, а его жена и сын заплатили ужасную цену. Теперь, десятилетие спустя, семье Уилсона снова угрожают убийственный Шакал и террористы У.Л.Е.Й. Может ли Дефстроук искупить грехи прошлого - или его семья заплатит окончательную цену?Производство: США / Blue Ribbon ContentЖанр: мультфильм, мультсериалРежиссер: Sung Jin AhnПеревод: Многоголосый Закадровый (NewComers)Субтитры: ОтсутствуютПродолжительность: ~00:38:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA6E9518BD7976EB25FB2896DFB93AEDF8B2006F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357569   (972859) от 04.02.2020
+
+Форсаж: Шпионские гонки / Fast & Furious: Spy Racers (2019) WEB-DL [H.264/1080p-LQ] (Сезон 1, Серии 8 из 8) (Обновляемая)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодого Тони Торетто, двоюродного брата Доминика, вербует правительственное агентство. Вместе со своими друзьями Тони должен стать членом элитной гоночной лиги, ведь скоростное развлечение — лишь прикрытие для могущественной преступной организации, планирующей захватить мир.Производство: США / Chris Morgan Production, DreamWorks Animation, DreamWorks Animation TelevisionЖанр: мультфильм, боевик, криминалРежиссер: Leo Riley, Micah Gunnell, James Yang, Bret HaalandПеревод: Дублированный (Пифагор)Субтитры: Русские, Английские, Немецкие, Польские, Шведские, Французские, Датские, Португальские, Чешские, Бразильские, Греческие, Финские, Венгерские, Испанские, Индонезийские, Турецкие, Нидерландские, Норвежские, ИтальянскиеПродолжительность: 8 x ~00:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14E77BA2E82E614A6254D01B720671CB180119D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 744390   (971120) от 11.01.2014
+
+Гадкий Я: Мини-фильмы. Миньоны / Despicable Me Presents: Minions Mini-Movies & Minion Madness (2010-2013) DVDRip (6 серий)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жёлтые коротышки, служат армией и помощниками для Грю. Хотя и понимают человеческую речь, говорить по-человечески не умеют, но могут произносить отдельные слова, но чаще они общаются на своём языке между собой. Глуповатые, но очень полезные. Интересно, что у некоторых миньонов только один глаз. Замечательное дополнение к известному мультфильмам "Гадкий я" (   Читать дальше...   )1. Преображение дома - Home makeover
+2. Ознакомительный день - Orientation Day
+3. Банан - Banana (без перевода – не требуется, нет диалогов)
+4. Паника в почтовом отделении - Panic in the Mailroom (без перевода – не требуется, нет диалогов)(   Читать дальше...   )Жанр: Мультфильм, короткометражный, комедия, приключения, семейныйПеревод: Профессиональный многоголосыйЯзык субтитров: ОтсутствуютПродолжительность: 6 х ~ 00:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35EBBABBE77A3DEBC73D4F8E224CB15FA8C52064
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358076   (970355) от 06.02.2020
+
+Долина муми-троллей / Moominvalley (2019) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-13 из 13) HDRezka Studio
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Муми-тролль — любопытный, добрый, чуткий и идеалистичный подросток. Он взрослеет, пытаясь найти свое истинное «я», оставаясь при этом частью семьи.Производство: Финляндия, ВеликобританияЖанр: Фэнтези, драма, семейныйРежиссер: Стив Бокс, Даррен Робби, Avgousta ZourelidiАктеры: Мэтт Берри, Уорвик Дэвис, Тэрон Эджертон, Эдвин Эндре, Розамунд Пайк, Бел Паули, Акия Генри, Уилл Селф, Джо Уилкинсон, Сьюзи БрэннПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: русские (хардсаб)Продолжительность: ~00:20:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A231F425B13404257D887D83357CAB381AC16E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358377   (969485) от 07.02.2020
+
+Трое снизу: Истории Аркадии / 3Below: Tales of Arcadia (2018) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-13 из 13) HDRezka Studio
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инопланетные подростки, члены королевской семьи, спасаясь от захватившего их родную планету диктатора, терпят крушение в Аркадии. Вместе с верным телохранителем они вынуждены скрываться от межгалактических охотников за головами и выживать под видом простых школьников.Производство: США / Netflix, DreamWorks Animation, Double Dare You (DDY)Жанр: Фантастика, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Йохана Матте, Илэйн Боган, Эндрю Л. ШмидтАктеры: Татьяна Маслани, Диего Луна, Ник Офферман, Фрэнк Уэлкер, Стив Альтерман, Митч Картер, Гленн Клоуз, Коул Сэнд, Джули Фоллс, Алон АбутбулПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: ОтсутствуютПродолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5DB0260453E11E9DB5FABDFC55FCCD38CF95847
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976087   (969244) от 17.01.2016
+
+Звездные войны: Войны клонов / Star Wars: The Clone Wars (2012) (Сезон 5, 20 серий из 20) BDRip [H.264/1080p-LQ] (Невафильм)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дарт Мол и Саваж Опресс сеют смерть и разрушение, занимаясь разбоем на Внешнем Кольце. Избавив брата от отчаяния и забвения, Саваж со своим братом убивают и мародёрствуют всюду. Снедаемый бешенством и местью, они прибывают в поиске смысла в их новом альянсе; тогда как слухи о их жестоких набегах распространяется по галактике. Дарт Мол явно не горит желанием примкнуть (   Читать дальше...   )Производство: США, Lucasfilm Animation Singapore, Lucasfilm Ltd., CGCGЖанр: Компьютерная анимация, Детский, Приключения, ФантастикаРежиссер: Dave Filoni / Дэйв Филони, Steward Lee / Стюарт Ли, Kyle Dunlevy /
+Кайл Данливи и др.Роли озвучивают: Tom Kane / Том Кэйн, Dee Bradley Baker / Ди Брэдли Бейкер, Matt Lanter / Мэтт Лантер, James Arnold Taylor / Джеймс Арнольд Тейлор, Corey Burton / Кори Бертон, Matthew Wood / Мэттью Вуд, Ashley Eckstein / Эшли Экштейн, Terrence «T.C.» Carson / Терренс «Т.К.» Карсон, Catherine Taber / Катрин Табер, Ian Abercrombie / Йен Эберкромби, Anthony Daniels / Энтони Дэниелс (   Читать дальше...   )Перевод: ДублированныйПродолжительность: Серия по ~00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEEA8AB368198EAB5D0955FCB4B894F224FA9CDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 744791   (968919) от 13.01.2014
 
 Мой маленький пони. Дружба - это чудо / My Little Pony. Friendship Is Magic (2012-2013) WEBRip  [Dub] (Сезон 3, серии 1-13 из 13)
@@ -6,7 +166,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968919.jpg" />
 </div>
 
 
@@ -32,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967169.jpg" />
 </div>
 
 
@@ -58,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966314.jpg" />
 </div>
 
 
@@ -85,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964852.jpg" />
 </div>
 
 
@@ -111,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963689.jpg" />
 </div>
 
 
@@ -137,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963346.jpg" />
 </div>
 
 
@@ -163,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963118.jpg" />
 </div>
 
 
@@ -189,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960975.jpg" />
 </div>
 
 
@@ -215,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959761.jpg" />
 </div>
 
 
@@ -241,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958394.jpg" />
 </div>
 
 
@@ -267,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957313.jpg" />
 </div>
 
 
@@ -293,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957265.jpg" />
 </div>
 
 
@@ -319,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957032.jpg" />
 </div>
 
 
@@ -345,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955624.jpg" />
 </div>
 
 
@@ -371,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955588.jpg" />
 </div>
 
 
@@ -397,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955504.jpg" />
 </div>
 
 
@@ -423,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955495.jpg" />
 </div>
 
 
@@ -449,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955470.jpg" />
 </div>
 
 
@@ -475,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955394.jpg" />
 </div>
 
 
@@ -501,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954720.jpg" />
 </div>
 
 
@@ -512,165 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F750505A42BC9974979447C794DF1038D2FD5F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980586   (954359) от 30.01.2016
-
-Маленький зоомагазин / Littlest Pet Shop (2014) WEB-DL [H.264/1080p] (2 сезон, серий 26 из 26)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотели бы вы уметь разговаривать с любимыми животными? Девочка Блайс открыла в себе такие удивительные способности! Блайс с отцом переезжает в городскую квартиру прямо над зоомагазином, в котором обитают разные виды животных, такие как панда, собака, ёж, ящерица-геккон, скунс и даже мангуст. Приключения начинаются, когда Блайс открывает в себе необычный дар — она (   Читать дальше...   )Производство: США, КанадаЖанр: Мультсериал, детскийРежиссер: Джоэль Дики / Joel Dickie, Даллас Паркер / Dallas ParkerПеревод: ДублированныйПродолжительность: ~ 23:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:351B1E8929ECEB20944ED339E5E1842F367FFB24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 857539   (952913) от 08.01.2015
-
-Феи. Невероятные приключения / Fairies (2012) SATRip (Серии 1-10 из 10)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в сказочную Долину Фей, где живёт непоседа Динь-Динь и ее лучшие подруги - Видия, Серебрянка, Иридесса, Розетта, Фауна, Королева Клэрион и другие замечательные персонажи! У каждой Феи есть свой собственный талант, а вместе малышки помогают временам года сменять друг друга. Увлекательный мини-сериал о приключениях волшебниц состоит из известных анимационных (   Читать дальше...   )Жанр: Мультсериал, фэнтези, семейный, приключенияРежиссер: Брэдли РэймондАктеры: Мэй Уитман, Кристин Ченоуэт, Люси Лью, Америка Феррера, Джейн Хоррокс, Джесси МакКартни, Джефф Беннетт, Роб Полсен, Памела Сигал, Анжелика Хьюстон, Стив Валентайн, Кэти Нэджими, Ричард Портноу, Гэйл Боргес, Америка Янг, Кэтрин Крессида, Боб БергенПеревод: ДублированныйПродолжительность: 04:13:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB0559CF907D0B0AF95BD53E0DE7C4221CAB799B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 170388   (952629) от 05.02.2010
-
-Барашек Шон, 50 серий / Shan the Sheep (2007-2009) DVD-9 [EN]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952629.jpg" />
-</div>
-
-
-###  Подробнее
-
-50 серий приключений барашка Шона. Сам собрал сезоны, объеденил в пять частей, и оформил под одно меню. Понятно, что многие уже по частям скачали, но сам бы такое скачал, если бы нашел. Вот и делал для удобства. Простое меню  =)Жанр: Кукольный, Компьютерная анимация, КомедияРежиссер: Кристофер Сэдлер, Ричард Голесовский, Дейв Османд, Ричард ВебберПерсонажи: Барашек ШонПеревод: ОригинальныйПродолжительность: 1:10:34
-
-01. Двойные неприятности
-02. Разметка(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569972   (950672) от 27.01.2014
-
-Кунг-Фу Панда: Захватывающие Легенды / Kung-Fu Panda: Legends of Awesomeness (2012) HDTVRip/WEB-DLRip/SATRip (Сезон 2,серии 1-25 из 25) [Nickelodeon]
-
->>След.
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал рассказывает о продолжении приключений Панды По, о том, как он тренируется, защищается, борется, учит и учится, говорит слишком много и выступает в роли нового героя Долины Мира. И теперь, живя вместе с Неистовой Пятеркой, По придется взять на себя много новых обязанностей, ведь он Воин Дракона.Жанр: Мультсериал, Анимация, Детский, Приключения, СемейныйПеревод: ДублированныйСубтитры: отсутствуютФормат: XviDПродолжительность: Каждая серия ~ 00:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:765D875531B341A3A86CFB435A194A076C4C1CAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354618   (950581) от 22.02.2020
-
-Харли Квинн / Harley Quinn (2019) UHD WEB-DL [H.265/2160p] [4K, SDR, 8-bit] (сезон 1, серии 1-13 из 13) The Kitchen Russia, Good People
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Харли Квинн разорвала отношения с Джокером и теперь пытается самостоятельно стать королевой преступного мира ГотэмаПроизводство: США, DC Entertainment, Ehsugadee, Warner Bros. Animation и др.Жанр: Мультсериал для взрослых, фантастика, фэнтези, боевик, комедия, криминал, детективРежиссер: Сесилия Аранович, Мэтт Гарофало, Фрэнк МариноПеревод: Дублированный (The Kitchen Russia), Многоголосый профессиональный (Good People - ненормативная лексика)Субтитры: Русские, английскиеПродолжительность: ~00:23:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFF8A283883F1131BA786147344A81FC944FA750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360261   (950455) от 22.02.2020
-
-Отважные птенцы / Top Wing (2019) WEBRip [H.264/1080p-LQ] (сезон 2, эпизоды 10 из 13)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отважные птенцы – это приключенческий мультсериал для дошкольнишков, рассказывающий о команде юных пернатых смельчаков, проходящих обучение в академии Высший пилотаж.Производство: Канада / Industrial Brothers и 9 Story Media GroupЖанр: мультфильм, боевик, комедия, приключения, семейныйРежиссер: Мэтью ФернандесПеревод: ДублированныйСубтитры: нетПродолжительность: 00:21:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9EDA3C999F6AA91F73B3BBCF758EE822B9DBF3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

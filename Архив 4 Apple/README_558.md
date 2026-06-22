@@ -1,3 +1,56 @@
+###  Публикация: 1514122   (219727) от 02.12.2021
+
+Nova 8.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nova - редактор для веб-разработчиков. Представьте себе создание контента, и одним щелчком кнопки вы наблюдаете, как Nova запускает ваш локальный сервер, захватывает соответствующий URL-адрес и мгновенно открывает для вас браузер. Просто подумайте о времени, которое вы сэкономите.
+Nova поддерживает отдельные задачи сборки, запуска и очистки. Он может открывать отчет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.12.2021Разработчик: © 2021 Panic, IncПоддерживаемая ОС: macOS 10.15.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B7CA1502BC46A350848711F6B5FE5CCEEB776F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651976   (219722) от 09.08.2023
+
+Lasso 1.5.6 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lasso — оконный менеджер для macOS. Перемещайте и изменяйте размер окон с помощью мыши. Нажмите и перетащите — это все, что вам нужно для перемещения и изменения размера окон. Быстро упорядочивайте окна и изменяйте их размер с помощью настраиваемых макетов.Тип издания: macOS SoftwareРелиз состоялся: 03.08.2023Разработчик: © 2023 LassoПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0D4691B44767F2B280C7C76C1BDD924C45DA6A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652006   (219705) от 09.08.2023
 
 PhotosRevive for Mac 2.1.2 [Multi]
@@ -6,7 +59,7 @@ PhotosRevive for Mac 2.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_219705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219705.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Movie Thumbnails Maker 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219692.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ TechSmith Camtasia 2023 Studio 2023.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_219658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219658.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Adobe Premiere Pro 2020 v14.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219644.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ Sky Gamblers: Storm Raiders 1.0.2 [5.0+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219632.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ Numi 3.30 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219494.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ VMware Fusion Pro 12 v12.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219408.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ Clearview X 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219348.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ Grid 1.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219325.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ Cookie 6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219282.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ File Cabinet Pro 8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219273.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ Slidepad 1.0.40 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219219.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ RAW Power 3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219177.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ SiteSucker 3.2.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219170.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ GraphicConverter 10.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219153.jpg" />
 </div>
 
 
@@ -409,7 +462,7 @@ MacX MediaTrans 7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219150.jpg" />
 </div>
 
 
@@ -437,7 +490,7 @@ TinkerTool System 7 v7.01 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219141.jpg" />
 </div>
 
 
@@ -465,7 +518,7 @@ Moom 3.2.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219115.jpg" />
 </div>
 
 
@@ -493,7 +546,7 @@ Tri-BACKUP Pro 8.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219093.jpg" />
 </div>
 
 
@@ -520,7 +573,7 @@ SQLPro for MSSQL - Management studio for SQLServer 1.0.135 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219078.jpg" />
 </div>
 
 
@@ -549,7 +602,7 @@ Colibri 2.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_219064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219064.jpg" />
 </div>
 
 
@@ -576,7 +629,7 @@ SQLPro for Postgres - PostgreSQL database manager 1.0.100 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219047.jpg" />
 </div>
 
 
@@ -605,7 +658,7 @@ djay Pro AI 3.0.2  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219045.jpg" />
 </div>
 
 
@@ -631,7 +684,7 @@ Pixelmator Classic 3.9.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219036.jpg" />
 </div>
 
 
@@ -642,59 +695,6 @@ Pixelmator представляет собой мощный инструмент
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA6451AAF0DC2208745AA27F64BED22C872D2F68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652135   (219029) от 10.08.2023
-
-Mactracker 7.12.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_219029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mactracker предоставляет подробную информацию о каждом компьютере Apple Macintosh когда-либо сделанных, в том числе таких элементов, как скорость процессора, памяти, оптических приводов, графических карт, поддерживаемых версий ОС, и расширения возможностей.
-Также имеется информация о ранних системах Apple, мышей Apple, клавиатурах, дисплеях, принтерах, сканерах, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.08.2023Разработчик: © 2001 - 2022 Ian PageПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F66B5F62156DD12350DF37CA6A8F2F3C3E92E552
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425726   (219016) от 22.11.2020
-
-Big Sur Cache Cleaner 16.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Big Sur Cache Cleaner - это отмеченный наградами инструмент общего назначения для macOS. BSCC упрощает обслуживание системы с помощью простого интерфейса для многих функций macOS. Как новички, так и опытные пользователи оценят мощный набор инструментов, который предоставляет BSCC. Big Sur Cache Cleaner - один из ведущих в мире инструментов для обслуживания, который (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Northern SoftworksПоддерживаемая ОС: macOS 10.4+ - macOS 11.0Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FE1EA0FD76089517167D64BA26F36408D6CEB9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

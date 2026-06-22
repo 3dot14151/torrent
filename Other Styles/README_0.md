@@ -1,3 +1,148 @@
+###  Публикация: 1870828   (1069639) от 17.05.2026
+
+VA - Soundtrack Smashes - The 80's (1989) [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Pop>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glenn Frey - The Heat Is On 3:47
+ 02. The Jets - Cross My Broken Heart 4:10
+ 03. Jan Hammer - Miami Vice Theme 2:27
+ 04. Dan Hartman - I Can Dream About You 4:10(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 00:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F956DBB7A30A8332478E0CBF31A490CE731FFE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871275   (1069605) от 16.05.2026
+
+VA - The Orient Collective: Voices of the Ancients (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Claudio Gasparini, Tibetania - Spiritual Awakening (6:29)
+02. A X L, Tibetania - Nay (6:51)
+03. BK YATRA, Tibetania - I Am a Cowboy (6:59)
+04. Willco, Tibetania - Samadhi Flow (6:17)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:18:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B88B91812F1C56063BA4A16F4EC75198FF159483
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870010   (1069154) от 11.05.2026
+
+Govi - Cuchama (1993) [FLAC|Lossless|tracks + .cue] <Latin Jazz, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cuchama    [0:03:49.05]
+02. Child's Play    [0:05:38.07]
+03. Spirit Rider    [0:06:05.40]
+04. Torero    [0:05:07.58](   Читать дальше...   )Жанр: Latin Jazz, New AgeПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDBF419E75884894C0553A80A83C771A29F6C4F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 27937   (1068580) от 09.05.2026
+
+Немецкое танго 1930-1940 гг.
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turnier Tango (R. Gaden Und. Orc.)
+02. Tango Bolero (B. Ette Und Orc.)
+03. Blauer Himmel (Tangoorc. B. Von Geczy)
+04. Man Kann Beim Tango Sich So Schone Dinge Sagen (Tangoorc. W. Schmidt-boelcke, Voc. H. Sohnker)(   Читать дальше...   )Жанр: Taнцевальное тангоПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C39B8239C4D23CF9AE011617567FEE90D9AA605
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869754   (1068509) от 08.05.2026
+
+VA - The Orient Collective: Between Dust & Clouds (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Pura Luhur (4:38)
+02. Kaisser Bouzriba - Dreamers (6:31)
+03. D.J. Thor - Rinascita (5:00)
+04. LØDZIKØVSKY - Spiritual Tabla (5:09)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:11:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D99A607D8FE724D739FC17DF713F7C48EEDB87D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869712   (1068449) от 08.05.2026
 
 Capcom Sound Team - PRAGMATA Original Soundtrack (2026) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Score>
@@ -6,7 +151,7 @@ Capcom Sound Team - PRAGMATA Original Soundtrack (2026) [FLAC|Lossless|WEB-DL|tr
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068449.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ VA - The Orient Collective: Ash & Amber (2026) [FLAC|Lossless|WEB-DL|tracks] <Wo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067681.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ VA - The Orient Collective: Path of the Drum (2026) [FLAC|Lossless|WEB-DL|tracks
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066971.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Paul Mauriat - Magic (1982) [FLAC 24/192|Lossless|WEB-DL|tracks] <Instrumental>
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066928.jpg" />
 </div>
 
 
@@ -114,6 +259,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867233   (1066774) от 24.04.2026
+
+VA - Король и Шут. Навсегда (2026) [MP3|320 Kbps] <Punk Rock>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1066774.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Андрей Князев/Алексей Горшенёв/КняZz - Лес (OST «Король и Шут. Навсегда»)
+2. Андрей Князев - Ром (OST «Король и Шут. Навсегда»)
+3. Король и Шут - Фокусник (OST «Король и Шут. Навсегда»)
+4. Король и Шут - Отражение (OST «Король и Шут. Навсегда»)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A77475A3BEDF68AD9037AD369873BFF069E4E40A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1866962   (1066732) от 24.04.2026
 
 David Wilcox - Big Horizon (1994) [FLAC|Lossless|tracks + .cue] <Pop, Folk, World, & Country>
@@ -122,7 +296,7 @@ David Wilcox - Big Horizon (1994) [FLAC|Lossless|tracks + .cue] <Pop, Folk, Worl
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066732.jpg" />
 </div>
 
 
@@ -151,7 +325,7 @@ Tyler Bates & Joel J. Richard - John Wick: Chapter 4 (2023) [MP3|320 Kbps] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066304.jpg" />
 </div>
 
 
@@ -180,7 +354,7 @@ Raymond Wong - Shaolin Soccer (Убойный футбол) (2001) [MP3|320 Kbps
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066299.jpg" />
 </div>
 
 
@@ -209,7 +383,7 @@ Carl Doy - Piano by Candlelight (1987) [FLAC|Lossless|image + .cue] <Pop, Music 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065984.jpg" />
 </div>
 
 
@@ -238,7 +412,7 @@ VA - The Orient Collective: Tales From the Sand (2026) [FLAC|Lossless|WEB-DL|tra
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065850.jpg" />
 </div>
 
 
@@ -267,7 +441,7 @@ Bond - Shine (2002) [FLAC|Lossless|image + .cue] <Electronic, Pop, Modern Classi
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065647.jpg" />
 </div>
 
 
@@ -288,6 +462,64 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865939   (1065446) от 18.04.2026
+
+VA - Atomic Heart, Vol.6 (2026) Original Game Soundtrack [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1065446.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. GeoffPlaysGuitar/Алла Пугачёва/Atomic Heart - Позови меня с собой (Geoffrey Day Remix)
+2. GeoffPlaysGuitar/Эдита Пьеха/Atomic Heart - Только мы (Geoffrey Day Remix)
+3. IOWA/Acid Minerale/Atomic Heart - Мой ненаглядный
+4. GeoffPlaysGuitar/Atomic Heart - Lambada (Geoffrey Day Rework)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:59:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A80540A21FAC7D38F34F1EE721D94E61F658BE3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865943   (1065445) от 18.04.2026
+
+VA - Atomic Heart, Vol.6 (2026) Original Game Soundtrack [FLAC 24/48|Lossless|WEB-DL|tracks] <OST>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1065445.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. GeoffPlaysGuitar/Алла Пугачёва/Atomic Heart - Позови меня с собой (Geoffrey Day Remix)
+2. GeoffPlaysGuitar/Эдита Пьеха/Atomic Heart - Только мы (Geoffrey Day Remix)
+3. IOWA/Acid Minerale/Atomic Heart - Мой ненаглядный
+4. GeoffPlaysGuitar/Atomic Heart - Lambada (Geoffrey Day Rework)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:59:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CF177FDC48AFB9EDC95F13B77AC234F379BA680
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1864705   (1065092) от 
 
 The St. John Damaskin children’s and youth choir (Детско-юношеский хор преподобного Иоанна Дамаскина) - Pascha of the Faithful (Пасха верных) (2009) [FLAC|Lossless|tracks + .cue] <Духовные песно ...
@@ -296,7 +528,7 @@ The St. John Damaskin children’s and youth choir (Детско-юношеск�
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065092.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ VA - The Orient Collective: Ancestors Still Speak (2026) [FLAC|Lossless|WEB-DL|t
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065081.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ Paul Mauriat - Blooming Hits (1967) [FLAC 24/96|Lossless|WEB-DL|tracks] <Instrum
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065076.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064189.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ VA - The Orient Collective: Tribal Horizons (2026) [FLAC|Lossless|WEB-DL|tracks]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063728.jpg" />
 </div>
 
 
@@ -441,7 +673,7 @@ VA - The Orient Collective: Where Earth Meets Sky (2026) [FLAC|Lossless|WEB-DL|t
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063477.jpg" />
 </div>
 
 
@@ -470,7 +702,7 @@ Maura O’Connell - Helpless Heart (1989) [FLAC|Lossless|tracks + .cue] <Folk, W
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062939.jpg" />
 </div>
 
 
@@ -499,7 +731,7 @@ Secret Garden - Secret St. Patrick's Day (2026) [FLAC|Lossless|WEB-DL|tracks] <C
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061238.jpg" />
 </div>
 
 
@@ -513,238 +745,6 @@ Secret Garden - Secret St. Patrick's Day (2026) [FLAC|Lossless|WEB-DL|tracks] <C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:136FE356C7D81B39A356E944295B67B8B090D293
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858146   (1060164) от 08.03.2026
-
-Franck Pourcel And His Orchestra - Pourcel Himself (2024) Remastered [FLAC 24/48|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rotor Motor
-02. Sunny Cuckoo
-03. Summer Tide
-04. Applewine(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74E00BD759B21172EE905738370DBC09806573F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858148   (1060163) от 09.03.2026
-
-Mladen Franko & Norman Candler Magic Strings - Just Beautiful (2024) Remastered [FLAC 24/48|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Will Find a Way
-02. Steps to Heaven
-03. Seawind
-04. Love Image(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A04EDDDB78E458C52CE4C0B1753BEB212222F42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857829   (1060040) от 07.03.2026
-
-Toby Keith - How Do You Like Me Now?! (1999) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Do You Like Me Now?! [0:03:29.05]
-02. When Love Fades [0:03:07.25]
-03. Blue Bedroom [0:03:30.12]
-04. New Orleans [0:04:13.53](   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:41:04.733 (108 694 740 samples)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50EB9509EC8463CD445092F57627D5AA6353CACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858083   (1059941) от 08.03.2026
-
-Paul Mauriat - Retalhos De Cetim (1974) [FLAC 24/192|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1059941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. O Show Já Terminou
-02. Teimosa
-03. Folhas Secas
-04. Joanna Francesa(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A54F0DEE4980144FF0A75C9AF2410BA806F390
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858088   (1059939) от 08.03.2026
-
-Paul Mauriat - Sommer Souvenirs (1975) [FLAC 24/192|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1059939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Please Tell Her
-02. Es stieg ein Engel vom Olymp
-03. Deine Spuren im Sand
-04. I Got A Name (From ″Last American Hero″)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:34:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FB442D8479352B5C6DC6165A8F82D58AC6301D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856672   (1059018) от 01.03.2026
-
-Paul Mauriat - Les grandes musiques de films (1973) [FLAC 24/192|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parle plus bas - Thème d'amour du film ″Le Parrain″
-02. Le passager de la pluie
-03. Un homme et une femme
-04. La chanson de Lara (Lara's Theme ⧸ Du film ″Le Docteur Jivago″)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD9985C7BCE75B9445AFC12074E2329578479C45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856699   (1058998) от 01.03.2026
-
-Paul Mauriat - Plays The Beatles (1972) [FLAC 24/192|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Penny Lane
-02. Ticket To Ride
-03. Let It Be
-04. Michelle(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F895C14798358732DEBF21522F8FD14394780212
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856526   (1058980) от 01.03.2026
-
-Phil Vassar - Shaken Not Stirred (2004) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Ole Days    [0:03:04.37]
-02. In a Real Love    [0:03:34.28]
-03. What Happens in Vegas    [0:03:41.15]
-04. I'll Take That as a Yes (The Hot Tub Song)    [0:03:29.10](   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B45A551ACBE1BB9E1A62669D0FEBDFF156745C98
 ```
 
 https://mybot314.ru/tekegram_catalog/

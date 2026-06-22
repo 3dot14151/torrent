@@ -1,3 +1,107 @@
+###  Публикация: 1769869   (32268) от 02.01.2025
+
+Киноплёнка №8 (2024) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начало 90-х. У Марии, владелицы небольшого видеопроката в заброшенном кинотеатре, при странных обстоятельствах пропадает сын. Чтобы разобраться в произошедшем и найти сына, Марии приходится перейти дорогу криминальному авторитету Егору Бочарову, подружиться с беглым преступником Дмитрием Шилиным, раскрыть тайну обитающего в кинотеатре призрака и узнать, как он связан (   Читать дальше...   )Производство: Россия / Вита Актива, All Media Company, STARTЖанр: ТриллерРежиссер: Илья ХотиненкоАктеры: Кристина Асмус, Даниил Воробьев, Валентин Мендельсон, Олег Гаркуша, Семен Литвинов, Святослава Сагунова, Тимур Савин, Александр Ряполов, Сейдулла Молдаханов, Ромуальд МакаренкоЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:026459A57DDE17E91DB9CA1EFA21DF4A2B96DB7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770572   (32258) от 02.01.2025
+
+Новый год в Берёзовке (2024) WEBRip [H.265/2160p] [4K, SDR]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32258.jpg" />
+</div>
+
+
+###  Подробнее
+
+В предновогодней суматохе семейная пара Кошкиных забирается в соседний дом Морозовых, намереваясь их обокрасть. Но дома оказываются наказанные за ссору дети, которым нужно не только помириться, но и противостоять грабителям, найти пропавшие деньги и все-таки встретить Новый год с семьей.Производство: Россия / Огонь Продакшн, Okko, Ар Джи Бразерс СтудиоЖанр: комедия, семейныйРежиссер: Ольга ЛандАктеры: Дмитрий Нагиев, София Петрова, Гурам Гогия, Анна Уколова, Алексей Шевченков, Марк Богатырев, Ольга Ажажа, Егор Дружинин, Игорь Жижикин, Константин МурзенкоЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:292863A8673EF3E3B8F570E2C77856DE73D4C78E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770635   (32059) от 04.01.2025
+
+Новый год в Берёзовке (2024) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32059.jpg" />
+</div>
+
+
+###  Подробнее
+
+В предновогодней суматохе семейная пара Кошкиных забирается в соседний дом Морозовых, намереваясь их обокрасть. Но дома оказываются наказанные за ссору дети, которым нужно не только помириться, но и противостоять грабителям, найти пропавшие деньги и все-таки встретить Новый год с семьей.Производство: Россия / Огонь Продакшн, Okko, Ар Джи Бразерс СтудиоЖанр: комедия, семейныйРежиссер: Ольга ЛандАктеры: Дмитрий Нагиев, София Петрова, Гурам Гогия, Анна Уколова, Алексей Шевченков, Марк Богатырев, Ольга Ажажа, Егор Дружинин, Игорь Жижикин, Константин МурзенкоЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82032C08DA5C65266CC5C4007D9EDDF33801E2FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770933   (31961) от 05.01.2025
+
+Федя. Народный футболист (2024) WEBRip [H.264/1080p]
+
+>>След.
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Народный любимец, лучший футболист страны Фёдор Черенков, переживает не лучший период в своей жизни. Единственное, что удерживает его от отчаяния, — мечта сыграть на Чемпионате мира. Но главный тренер сборной в последний момент отцепляет его из команды. Фёдор всерьёз задумывается о завершении карьеры, но ради своей семьи и болельщиков он возвращается, чтобы привести (   Читать дальше...   )Производство: Россия / Продюсерский центр ИВАН, Сделано в ДелоЖанр: спорт, драма, биографияРежиссер: Николай АкелькинАктеры: Станислав Румянцев, Николай Фоменко, Борис Щербаков, Игорь Петренко, Сергей Мигицко, Александр Носик, Борис Каморзин, Владимир Гуськов, Артём Черкаев, Дмитрий БелоцерковскийЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:06:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B9405C2BAE8D9DB3417A08F373D13642E05519D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1489626   (31840) от 06.01.2025
 
 Жить (2010) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31840.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31646.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31440.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31331.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31224.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30889.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30162.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28852.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28790.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28706.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28689.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28655.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28483.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28357.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28083.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27997.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27901.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27898.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27776.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27673.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27649.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27592.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EB7C57ECF292BA91EB2111A9E937D51900DEE9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779829   (27569) от 15.02.2025
-
-Совсем ошалели (2024) WEBRip [H.264/2160p] [4K, SDR, 8-bit]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ольга Гаврилова с молодым бойфрендом Кириллом приезжают на горнолыжный курорт встретить Новый год, но из-за ошибки турагентства оказываются под одной крышей с бывшим мужем Ольги Федором и его очаровательной подругой Мариночкой. Романтический новогодний уикенд грозит обернуться для обеих пар сущим кошмаром, поэтому Ольга и Федор решают скрыть от своих новых пассий, (   Читать дальше...   )Производство: Россия / ТНТ, PREMIER, Продюсерская компания «Яр&Ко»Жанр: комедия, мелодрамаРежиссер: Ольга ФренкельАктеры: Гоша Куценко, Анна Михалкова, Владимир Яглыч, Полина Максимова, Степан Девонин, Евгений Ковалюк, Никита РасхваловПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A89704E2CB3F8D5512D3EC5088E00D44C68FDABC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779607   (27478) от 16.02.2025
-
-Совсем ошалели (2024) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ольга Гаврилова с молодым бойфрендом Кириллом приезжают на горнолыжный курорт встретить Новый год, но из-за ошибки турагентства оказываются под одной крышей с бывшим мужем Ольги Федором и его очаровательной подругой Мариночкой. Романтический новогодний уикенд грозит обернуться для обеих пар сущим кошмаром, поэтому Ольга и Федор решают скрыть от своих новых пассий, (   Читать дальше...   )Производство: Россия / ТНТ, PREMIER, Продюсерская компания «Яр&Ко»Жанр: комедия, мелодрамаРежиссер: Ольга ФренкельАктеры: Гоша Куценко, Анна Михалкова, Владимир Яглыч, Полина Максимова, Степан Девонин, Евгений Ковалюк, Никита РасхваловПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3635636C4D50A1EDD4F4BDE50F34F7E10206C010
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780389   (27252) от 18.02.2025
-
-Последний ронин (2024) WEBRip [H.264/720p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27252.jpg" />
-</div>
-
-
-###  Подробнее
-
-(Не)далекое будущее. В результате изменений климата, приведших к глобальной ядерной войне, цивилизация практически уничтожена: земли выжжены, города разрушены. Техника не работает, бензин давно потерял свои свойства. Главная валюта в этом мире — два патрона: 9 и 7,62 мм от АК-47. Преследуемый призраками прошлого одинокий путник Ронин странствует по пустошам в поисках (   Читать дальше...   )Производство: Россия / Централ Партнершип, Okko, ZOOM ProductionЖанр: фантастика, приключенияРежиссер: Макс ШишкинАктеры: Юрий Колокольников, Диана Енакаева, Даниил Воробьев, Тихон Жизневский, Александр Мизёв, Максим Колесниченко, Роберт Юсупов, Юрий Землянухин, Кирилл Папин, Александр ШеинСубтитры: русские (forced - hardsub)Продолжительность: 01:54:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75CF491C0D38B461BF76D14265F27F0CE5DAF592
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780409   (27236) от 18.02.2025
-
-Постучись в мою Тверь (2024) WEBRip [H.264/720p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Городская фифа Алиса приезжает в Тверь, чтобы получить земельный участок на местной ферме. Но владелец Сергей, известный своим скверным характером, не желает его отдавать, несмотря на все её уловки. Не собирается сдаваться и Алиса, решив преодолеть все трудности деревенской жизни.Производство: Россия / К.Б.А. / Кинокомпания братьев АндреасянЖанр: комедия, мелодрамаРежиссер: Симон БагдасарянАктеры: Павел Прилучный, Мария Горбань, Наталья Бочкарёва, Николай Козак, Андрей Свиридов, Дмитрий Власкин, Алексей Гаврилов, Павел Комаров, Анастасия Буткова, Алиса Стасюк, Любава Долински, Сергей КоломоецПеревод: Не требуется (Русский)Субтитры: РусскиеПродолжительность: 01:30:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CDF075CE127BD9041948FB39924DEDDB050A538
 ```
 
 https://mybot314.ru/tekegram_catalog/

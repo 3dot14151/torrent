@@ -1,3 +1,159 @@
+###  Публикация: 1827125   (173426) от 20.10.2025
+
+Icebound Secrets 2: Soul Hunter / Тайны ледяного мира 2: Охотник за душами (2025) [Ru] (1.0) Unofficial
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение мистического приключения Icebound Secrets. Какое зло скрывается в извращенном таинственном мире темных фей? Погрузитесь в мир, полный спрятанных предметов и тайн, где каждая подсказка приближает вас к истине. Сможет ли детeктив, рискуя столкнуться с опасностями и коварными испытаниями, освободить заточенные души и восстановить равновесие в этом мистическом (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49B29CF23BA1C4DF1DF1DF4767003116BC05C03A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827121   (173403) от 20.10.2025
+
+Enchanted Stories 2: PAWisoned Kingdom / Зачарованные Истории 2: ЗаКОТованное королевство (2025) [Ru/Multi] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение увлекательной мистической игры Enchanted Stories. Король Леонард III тяжело заболел, и по мраморным залам разнесся шепот о предательстве. Королевский лекарь уклоняется от вопросов. Доверенные советники говорят полуправду. Преданности уже недостаточно, и Фелиция - самая ярая защитница короля - берет дело в свои лапы. Но она не одна. Появляется Диего, обаятельный (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18C5F6E2DC5112C2C2A1CE51EEDF94DD8053745
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668619   (173334) от 13.10.2023
+
+Gloomy Tales 2: One-Way Ticket (2023) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение мистической серии игр Gloomy Tales. Вы приглашены в старинный особняк на вечеринку в честь Хэллоуина. Место жутковатое! Вы понимаете, насколько оно на самом деле жуткое, когда на глазах у толпы людей монстр похищает вашу подругу Милли через портал. Чтобы ее спасти, вам предстоит отправиться в мир мертвых. К счастью, у вас есть помощники: Профессор Пауэр (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D91D58115A0F4213BAD942BE28E08E59444550D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670290   (172056) от 20.10.2023
+
+Paranormal Files: Silent Willow 9 / Паранормальные явления 9: Сайлент Виллоу (2023) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение мистической серии игр Paranormal Files. Расследование исчезновения Рика Роджерса продолжается! Неожиданный звонок от Майкла Зинка приводит Рэйчел в жуткое место, психиатрическую лечебницу Silent Willow. Какие же тайны скрывает Майкл и какая связь между исчезновением Рика и загадочным магазином "Worlds’ Mysteries”? Удастся ли Рэйчел и ее команде отделить (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C68AF0E348EF8597B603BB87EFEC4EED4C51CBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670557   (171885) от 21.10.2023
+
+Paranormal Files 10: Counterpart (2023) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение мистической серии игр Paranormal Files. Поиски пропавшего друга и раньше приводили вас в странные места, но теперь пришло время отправиться в другую реальность! Вам придется объединиться с альтернативной версией Рика, чтобы не пропасть в его времени. Другая реальность оказалась опасным местом. Сможете ли вы выжить в незнакомом мире и вовремя сбежать оттуда (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A0F625667DC49B085B9B87F2957B84661572EF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671286   (171338) от 24.10.2023
+
+Gloomy Tales 2: One-Way Ticket / Мрачные истории 2: Билет в один конец (2023) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение мистической серии игр Gloomy Tales. Вы приглашены в старинный особняк на вечеринку в честь Хэллоуина. Место жутковатое! Вы понимаете, насколько оно на самом деле жуткое, когда на глазах у толпы людей монстр похищает вашу подругу Милли через портал. Чтобы ее спасти, вам предстоит отправиться в мир мертвых. К счастью, у вас есть помощники: Профессор Пауэр (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDBE331BE3D00ECA07B45589FA3AC9B822F9BF11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671949   (170984) от 26.10.2023
 
 City of Stories: Stephan's Journey (2023) [En] (1.0) Unofficial [Collector's Edition]
@@ -6,7 +162,7 @@ City of Stories: Stephan's Journey (2023) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170984.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ The Christmas Spirit 4: Journey Before Christmas (2020) [En] (1.0) Unofficial [C
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170695.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Christmas Stories 8: Enchanted Express / Рождественские истор
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170353.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ The Christmas Spirit 3: Grimm Tales (2019) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168953.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Strange Investigations 3: Secrets Can Be Deadly / Удивительные ра�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168900.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Christmas Stories 11: Taxi of Miracles / Рождественские истор
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168895.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Bridge To Another World 10: Cursed Clouds / Мост в другой мир 10: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168762.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Chimeras 12: Inhuman Nature (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168637.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Cursed Fables 2: Twisted Tower (2022) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168147.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ The Christmas Spirit 5: Golden Ticket (2021) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167651.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ Spirit Legends 3: Time for Change (2019) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167367.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ Unsolved Case: Fatal Clue / Нераскрытое дело: Роковая ул
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167229.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ Yuletide Legends 3: Who Framed Santa Claus / Рождественская ист
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167167.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ Haunted Legends 15: The Scars of Lamia / Легенды о призраках 15
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167070.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ Out Of Time (2022) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166497.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ Legacy: Witch Island 4 Last Bastion (2022) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165759.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ Book Travelers: A Victorian Story / Книжные Странники: Викт�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165654.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ Christmas Wonderland 11 (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165123.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ Christmas Fables: Holiday Guardians (2022) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164803.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ Mysterium: Lake Bliss / Мистериум: Озеро счастья (2013) [Ru
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164272.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ Mysterium: Lake Bliss / Мистериум: Озеро счастья (2013) [Ru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22BE352FD420DF7A01564559334C8CC9E0AEE0DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346503   (163746) от 19.12.2019
-
-Chimeras 10: The Price of Greed (2019) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люди исчезают среди потусторонних происшествий в особняке Кэррингтонов. Сначала дворецкий, потом сам глава семьи, Эдгар Каррингтон. Полиция сбита с толку, поэтому Гордон, наследник состояния Кэррингтонов, вызывает эксперта-следователя-вас! Разберитесь в тайнах и лжи, чтобы раскрыть правду об исчезновениях и замечательном открытии, которое привело этот дьявольский (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67D5F543F748F49D6C82AC43406D4B994AB7D9E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517356   (162672) от 15.12.2021
-
-Christmas Wonderland 12 / Рождество. Страна Чудес 12 (2021) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сани Санты ломаются в канун рождества, как раз когда он начинает свое ежегодное путешествие на Северном полюсе. Во всем мире нужна ваша помощь, чтобы спасти Рождество! Помогите Санте и эльфам раскрыть все сезонные секреты и сюрпризы. Наслаждайтесь великолепными рождественскими праздниками в Спрингфилде. Встречайте праздник Рождества!Тип издания: UnofficialРазработчик: Casual ArtsЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65AB61AAAAF95515966F9134D5A56610D0A0604D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517638   (162118) от 16.12.2021
-
-Bridge to Another World 9: Christmas Flight (2021) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение сказочной серии игр Bridge to Another World. Тихий вечер праздничных торжеств внезапно заканчивается невероятным полетом - вас похищают и увозят в Страну Рождества! Опасное проклятие, которое замораживает сердца людей, захватывает этот очаровательный и весёлый мир, и вашему давно потерянному племяннику нужна помощь, чтобы разрушить его! Можете ли вы объединиться (   Читать дальше...   )Тип издания: UnofficialРазработчик: Friendly FoxЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D28A6435BF99A84FB17E4A9BF16FDDF232D33033
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433061   (161914) от 19.12.2020
-
-Bridge to Another World 7: Secrets of the Nutcracker (2020) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мари впервые после детских лет приходит в мастерскую Дроссельмейера и узнает, что Фриц, с которым она когда-то дружила, исчез. Найденные девушкой подсказки приводят ее к игрушечному замку Спилланд. Помогите Мари преодолеть все препятствия в фантастическом мире, в котором обитают сердитые мыши и и оживают игрушки, чтобы спасти Фрица и Дроссельмейера и узнать секрет (   Читать дальше...   )Тип издания: UnofficialРазработчик: Friendly Fox GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4184218C171DE58E510F5A24DFB2D385220988E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433009   (161776) от 19.12.2020
-
-Enchanted Kingdom 8: Master of Riddles / Зачарованное королевство 8: Мастер загадок (2020) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение захватывающей серии игр Enchanted Kingdom. Когда-то давно последний могущественный волшебник запечатал Магию королевства сложными загадками и спрятал их по всей империи. Но надвигается война, и вас призвали помочь императору восстановить Магию! Это будет непростая задача: волшебник постарался хорошо всё припрятать, и не зря! Ведь, силу Магии можно использовать (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1917DABB4F37F58BF262D631C9E774DAE076BFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433018   (161719) от 19.12.2020
-
-Legacy: Witch Island 3 / Наследие: Остров ведьмы 3 (2020) [Ru] (1.0) Unofficial
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прямо на ваших глазах люди превратились в животных — слона и собаку. А все потому, что ведьма, которую вы однажды уже победили, не намерена сдаваться. Тогда она скрылась в портале, и теперь этот портал привел ее в сказочный мир. А мир этот, оказывается, параллелен вашему. Поэтому все превращения, которые происходят в нем, происходят и в вашем мире. Вместе с задорным (   Читать дальше...   )Тип издания: UnofficialРазработчик: IteraLabsЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:000521EECB8C0A5C9994F352C51E9289F70079C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1134066   (691305) от 14.05.2017
+
+Орел и решка. Рай и ад (2017.05.14) WEB-DLRip (сезон 13: Райские Соломоновы Острова)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691305.jpg" />
+</div>
+
+
+###  Подробнее
+
+После нелегкого испытания под названием «Кругосветка» ведущие Регина Тодоренко и Леся Никитюк снова вместе отправляются в путешествие. В 13-м сезоне проекта они посетят самые райские и самые адские уголки нашей планеты. Их ждут волшебные тропические курорты и самые опасные места на Земле.
+В первом выпуске шоу Орел и решка. Рай и ад Леся и Регина будут искать рай (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A18141F50F7FA2B7E4B09F6AB761A1502A6AC4CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134037   (691295) от 14.05.2017
 
 Орел и решка. Рай и ад (2017.05.14) WEB-DL [H.264/1080p-LQ] (сезон 13: Райские Соломоновы Острова)
@@ -6,7 +33,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691295.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691176.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688450.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687705.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684408.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684304.jpg" />
 </div>
 
 
@@ -163,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682806.jpg" />
 </div>
 
 
@@ -189,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682209.jpg" />
 </div>
 
 
@@ -215,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682050.jpg" />
 </div>
 
 
@@ -242,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679087.jpg" />
 </div>
 
 
@@ -268,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677982.jpg" />
 </div>
 
 
@@ -294,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676995.jpg" />
 </div>
 
 
@@ -321,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676851.jpg" />
 </div>
 
 
@@ -348,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676844.jpg" />
 </div>
 
 
@@ -375,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671413.jpg" />
 </div>
 
 
@@ -401,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671029.jpg" />
 </div>
 
 
@@ -427,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665578.jpg" />
 </div>
 
 
@@ -454,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665577.jpg" />
 </div>
 
 
@@ -480,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_665489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_665489.jpg" />
 </div>
 
 
@@ -507,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_665482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_665482.jpg" />
 </div>
 
 
@@ -533,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_665479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_665479.jpg" />
 </div>
 
 
@@ -559,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665445.jpg" />
 </div>
 
 
@@ -585,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665436.jpg" />
 </div>
 
 
@@ -612,7 +639,7 @@ NG: Неизвестный Китай. Дамба - Три ущелья / Lost I
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_662599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_662599.jpg" />
 </div>
 
 
@@ -638,7 +665,7 @@ NG: Неизвестный Китай. Местные традиции / Lost In
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_662555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_662555.jpg" />
 </div>
 
 
@@ -649,32 +676,6 @@ NG: Неизвестный Китай. Местные традиции / Lost In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4C8309FE2C5CB4B9E8064A8BDCD333714623CD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903004   (660132) от 29.05.2015
-
-Орел и решка. Шопинг. Сезон №2. Танзания (2015.05.29) SATRip
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущие пройдутся по самым популярным заграничным шопинг-маршрутам. Дорогие бутики и блошиные рынки, новые имена в индустрии моды и раритетные винтажные вещицы — ведущие проинспектируют все. Эта программа — настоящий кладезь полезной информации для шопоголиков. Ведущие посетят: Гонконг, Майами, Канкун, Мехико, Сингапур, Ханой, Куала-Лумпур и многие другие города. (   Читать дальше...   )Телекомпания: ИНТЕР & ПятницаЖанр: Реалити-шоу, путешествия, география, познавательныйПродолжительность: ~ 00:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E7E480B70B2E96DD9C76D45026E6EFD22A95284
 ```
 
 https://mybot314.ru/tekegram_catalog/

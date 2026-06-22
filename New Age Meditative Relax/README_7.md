@@ -6,7 +6,7 @@ Hennie Bekker - Winter Reflections (1994) Holborne [MP3|256 Kbps] <New Age, Pian
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778549.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Hennie Bekker - Spring Rain (1992) Holborne [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778546.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Valefim Planet - Heart Of The Sun (2018) [MP3|320 Kbps] <Enigmatic, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778520.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Guy Sweens - The Best of Guy Sweens (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778148.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Salvador Candel - Armonia (2016) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777975.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Medwyn Goodall - Manitou the Great Spirit (2015) [MP3|320 кб/с] <Native ameri
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777655.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Danny Rayel - Blue Skies (2016) [MP3|320 кб/с] <New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777649.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Peter Kater & Tina Guo - Inner Passion (2016) [MP3|320 кб/с] <New Age, Relax,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777622.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Maximus & Felix - 2 Albums (1993, 1996) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777564.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Michael Brant DeMaria - Ama (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777558.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Sal Oliveri - Piano Prayers: Peace for Stress & Anxiety (2018) [MP3|320 Kbps] <N
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777510.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Jean-Michel Jarre - Electronica 2: The Heart of Noise (2016) [MP3|320 кб/с] <
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777184.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Ani Yun Wiya - Indian Nation (2016) [MP3|320 кб/с] <World, Native American, E
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776889.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Michael Sheehan - Radiance (2004) [MP3|320 кб/с] <New Age, Instrumental, Pian
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776559.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Sverre Knut Johansen - Earth From Above (2016) [MP3|320 кб/с] <Ambient, New a
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776530.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Nexion-Project - Voices Of The Ascension (2011) [MP3|320 кб/с] <New Age, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775763.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Gandalf - All is One - One is All (2016) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774982.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Magick Numbers - Dreaming of Oceans (2018) [MP3|320 Kbps] <Ambient, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774460.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Salvador Candel - Gently (2018) [MP3|320 Kbps] <New age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774230.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ David Wright & Carys - Prophecy (2017) [MP3|320 Kbps] <Electronic, Ambient, New 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773447.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Michael E & Jirka - The Garden Of The Open Mind (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773224.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Greg Maroney - Quiet Piano Improvisations, Vol. 1 (2016) [MP3|320 кб/с] <Inst
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770336.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Sambodhi Prem - Circle of Light (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768807.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ The Gordon Brothers - Yoga Planet (2008) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765535.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Vin Downes - When The Sea Lets Go (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765533.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Isis & Cobra - The Goddess Spiral Meditations (2013) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761110.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Phocus Pro 15.0.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000889.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VKM - Музыка для ВКонтакте 1.0.4 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000857.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ SAS: Zombie Assault 4 v1.9.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000848.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Games AdBlock 0.6.1 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000831.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Need For Speed Shift v2.0.29 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000786.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Minecraft - Pocket Edition 0.11.0/0.15.0/0.16.0/0.17.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000745.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000681.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000629.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ YouWave for Android Home 4.0.2 [Английский]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999538.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999517.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999261.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997684.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997671.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997667.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997654.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997495.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997353.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Galaxy on Fire - v 1.1.3 [Игра] (Symbian^3)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997138.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996638.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996577.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996572.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Jelly Bean для Samsung Galaxy Tab 2 7.0 (P3100) [прошивка] (андр�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996269.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993987.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ SAS: Zombie Assault 3 v3.11 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993228.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Soul Knight v2.5.1 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993163.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Garmin: Дороги России Топо 6.31 6.31 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993003.jpg" />
 </div>
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1724855   (55821) от 21.05.2024
+
+Microsoft Windows 11 [10.0.22621.3593], Version 22H2 (Updated May 2024) - Оригинальные образы от Microsoft MSDN/VLSC [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:852F65273E67A5087A000F1727F77CDB2ABF5C16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724854   (55774) от 22.05.2024
+
+Microsoft Windows 10 [10.0.19045.4412], Version 22H2 (Updated May 2024) - Оригинальные образы от Microsoft MSDN/VLSC [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 2022 Update (под кодовым названием "22H2") это тринадцатое и текущее крупное обновление для Windows 10. Он имеет номер сборки 10.0.19045.
+
+Оригинальные образы MSDN - Windows 10 Version 22H2 Build 19045.4412.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C11FA5B7E46CB0AB202BFB95F860B4CA39A2B936
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724858   (54954) от 30.05.2024
+
+Microsoft Windows 11 [10.0.22631.3593], Version 23H2 (Updated May 2024) - Оригинальные образы от Microsoft MSDN/VLSC [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D347C659557697129C415FF8596115A0584D7737
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731014   (52955) от 18.06.2024
+
+Microsoft Windows 11 [10.0.22621.3737], Version 22H2 (Updated June 2024) - Оригинальные образы от Microsoft MSDN/VLSC [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3A792508564503879FED1239FE509D7BF2A57AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731011   (52943) от 18.06.2024
+
+Microsoft Windows 10 [10.0.19045.4529], Version 22H2 (Updated June 2024) - Оригинальные образы от Microsoft MSDN/VLSC [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 2022 Update (под кодовым названием "22H2") это тринадцатое и текущее крупное обновление для Windows 10. Он имеет номер сборки 10.0.19045.
+
+Оригинальные образы MSDN/VLSC - Windows 10 Version 22H2 Build 19045.4529.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:596E834EB86238BCA93D1AD571FC3FBD6F194B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731015   (52941) от 18.06.2024
+
+Microsoft Windows 11 [10.0.22631.3737], Version 23H2 (Updated June 2024) - Оригинальные образы от Microsoft MSDN/VLSC [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:805A11E2306FD8A1793C4894239301247F99208E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731013   (52899) от 18.06.2024
 
 Microsoft Windows 11 [10.0.22621.3737], Version 22H2 (Updated June 2024) - Оригинальные образы от Microsoft MSDN/VLSC [En]
@@ -6,7 +168,7 @@ Microsoft Windows 11 [10.0.22621.3737], Version 22H2 (Updated June 2024) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52899.jpg" />
 </div>
 
 
@@ -32,7 +194,7 @@ Microsoft Windows 10 [10.0.19045.4529], Version 22H2 (Updated June 2024) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52856.jpg" />
 </div>
 
 
@@ -61,7 +223,7 @@ Microsoft Windows 11 [10.0.22631.3737], Version 23H2 (Updated June 2024) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51462.jpg" />
 </div>
 
 
@@ -87,7 +249,7 @@ Microsoft Windows 10 [10.0.19045.4651], Version 22H2 (Updated July 2024) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49879.jpg" />
 </div>
 
 
@@ -116,7 +278,7 @@ Microsoft Windows 11 [10.0.22631.3880], Version 23H2 (Updated July 2024) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49872.jpg" />
 </div>
 
 
@@ -142,7 +304,7 @@ Microsoft Windows 11 [10.0.22621.3880], Version 22H2 (Updated July 2024) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49848.jpg" />
 </div>
 
 
@@ -168,7 +330,7 @@ Microsoft Windows 11 [10.0.22621.3880], Version 22H2 (Updated July 2024) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49834.jpg" />
 </div>
 
 
@@ -194,7 +356,7 @@ Microsoft Windows 11 [10.0.22631.3880], Version 23H2 (Updated July 2024) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49472.jpg" />
 </div>
 
 
@@ -220,7 +382,7 @@ Microsoft Windows 10 [10.0.19045.4651], Version 22H2 (Updated July 2024) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49258.jpg" />
 </div>
 
 
@@ -249,7 +411,7 @@ Microsoft Windows 11 [10.0.22621.4037], Version 22H2 (Updated August 2024) - О�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46242.jpg" />
 </div>
 
 
@@ -275,7 +437,7 @@ Microsoft Windows 10 [10.0.19045.4780], Version 22H2 (Updated August 2024) - О�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46239.jpg" />
 </div>
 
 
@@ -304,7 +466,7 @@ Microsoft Windows 11 [10.0.22631.4037], Version 23H2 (Updated August 2024) - О�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46229.jpg" />
 </div>
 
 
@@ -330,7 +492,7 @@ Microsoft Windows 11 [10.0.22621.4037], Version 22H2 (Updated August 2024) - О�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46186.jpg" />
 </div>
 
 
@@ -356,7 +518,7 @@ Microsoft Windows 10 [10.0.19045.4780], Version 22H2 (Updated August 2024) - О�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45945.jpg" />
 </div>
 
 
@@ -385,7 +547,7 @@ Microsoft Windows 11 [10.0.22631.4037], Version 23H2 (Updated August 2024) - О�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45838.jpg" />
 </div>
 
 
@@ -411,7 +573,7 @@ Microsoft Windows 11 [10.0.22621.4169], Version 22H2 (Updated September 2024) - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43333.jpg" />
 </div>
 
 
@@ -437,7 +599,7 @@ Microsoft Windows 11 [10.0.22631.4169], Version 23H2 (Updated September 2024) - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43305.jpg" />
 </div>
 
 
@@ -463,7 +625,7 @@ Microsoft Windows 10 [10.0.19045.4894], Version 22H2 (Updated September 2024) - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43303.jpg" />
 </div>
 
 
@@ -492,7 +654,7 @@ Microsoft Windows 11 [10.0.22621.4169], Version 22H2 (Updated September 2024) - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43287.jpg" />
 </div>
 
 
@@ -518,7 +680,7 @@ Microsoft Windows 11 [10.0.26100.1742], Version 24H2 - Оригинальные 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41863.jpg" />
 </div>
 
 
@@ -529,165 +691,6 @@ Windows 11 - это серия операционных систем, разра
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FA8F8944DAE706F694018FA14669659EDD65DA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752675   (41859) от 01.10.2024
-
-Microsoft Windows 11 Enterprise LTSC 2024 [10.0.26100.1742], Version 24H2 - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 Enterprise LTSC - это операционная система, предназначенная для устройств и систем, которым требуется стабильность, согласованность и долгосрочная поддержка без частых обновлений функций. Эти версии LTSC обычно получают меньше обновлений функций по сравнению с основными версиями, такими как Windows 11 Pro или Home, с акцентом на обновления для системы (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D2947FFFDD55BE17BBF391B2F7D85BF98A7CD31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752674   (41852) от 01.10.2024
-
-Microsoft Windows 11 [10.0.26100.1742], Version 24H2 - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D56A6F0ACF5F3B1032747F5B18D70351711C540
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752677   (41851) от 01.10.2024
-
-Microsoft Windows 11 IoT Enterprise/LTSC 2024 [10.0.26100.1742], Version 24H2 - Оригинальные образы от Microsoft MSDN/OEM [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows IoT Enterprise LTSC предназначен для специальных устройств и вариантов использования, когда функциональные возможности и функции остаются постоянными для жизни устройства. Примерами являются устройства, требующие сертификации нормативных требований или устройств, которые выполняют критически важную бизнес-функцию с использованием той же версии операционной (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E4D390F2FA14DDB9C6DB50769D79F88C5393F2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750064   (41746) от 02.10.2024
-
-Microsoft Windows 11 [10.0.22631.4169], Version 23H2 (Updated September 2024) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B5AB01D49930EDAE76E044BE9CD0F47BB4E2209
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750060   (41644) от 03.10.2024
-
-Microsoft Windows 10 [10.0.19045.4894], Version 22H2 (Updated September 2024) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 2022 Update (под кодовым названием "22H2") это тринадцатое и текущее крупное обновление для Windows 10. Он имеет номер сборки 10.0.19045.
-
-Оригинальные образы MSDN - Windows 10 Version 22H2 Build 19045.4894.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8378B4D1E9211E0873C26B3F6B3EBEF1AD05FDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752676   (41432) от 05.10.2024
-
-Microsoft Windows 11 Enterprise LTSC 2024 [10.0.26100.1742], Version 24H2 - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 Enterprise LTSC - это операционная система, предназначенная для устройств и систем, которым требуется стабильность, согласованность и долгосрочная поддержка без частых обновлений функций. Эти версии LTSC обычно получают меньше обновлений функций по сравнению с основными версиями, такими как Windows 11 Pro или Home, с акцентом на обновления для системы (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2313A448C862FFE839D38F38E7246803B8A046FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

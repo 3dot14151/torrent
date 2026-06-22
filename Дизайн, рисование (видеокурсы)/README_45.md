@@ -6,7 +6,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418016.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Gumroad, Pierrick Picaut | Багровый Ронин: Создание пер�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417645.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417638.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Artstation Masterclasses, Mathew O | Render and Presentation Techniques (2018) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416496.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Gnomon Workshop, Justin Holt | Painting Realistic Skin in Mari 2.0 (2013) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412213.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Sabatovsky, Влад Сабатовский | After Effects от новичка 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411749.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Lynda.com | Learning Cinema 4D R20 (2018) PCRec [H.264/720p-LQ] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410651.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410644.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Gumroad, Josh Gambrell, Ponte Ryuurui | Дизайн Sci-Fi меха в Blender 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409322.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Lynda, Joel Bradley | Substance B2M (2017) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408736.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Lynda, Joel Bradley | Substance Designer Essential Training Updated (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408582.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Digital Tutors, Dan Cox | Designing a Modular Structure for Games in 3ds Max (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408577.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Lynda, Aaron F. Ross | 3ds Max Advanced Materials (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408573.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Gumroad, Tim Bergholz | Ultimate Weapon Tutorial – Complete Edition (2015) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408292.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Pluralsight | Моделирование штурмовой винтовки в 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407959.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407840.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407577.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Udemy, Nexttut, Nikolay Naydenov | Female Character Creation in Zbrush (2019) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407227.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ ZTM | Веб и мобильный дизайн в 2020 году: UI / UX, Figma
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406979.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406768.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Shane Hurlbut | Как освещать рекламные ролики в вы�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406741.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Shane Hurlbut | Продвинутая коммерческая режиссур
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406733.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Eduard Mykhailov | Безумные визуальные эффекты в After
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406619.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Pluralsight, Dan Cox | Creating Game-ready Modular Structures in 3ds Max (2016) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387624.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Gameinstitute, Dojn | Game Mathematics (2017) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387448.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Eduard Mykhailov | Rich Glitch (2019) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387407.jpg" />
 </div>
 
 

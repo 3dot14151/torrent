@@ -1,3 +1,256 @@
+###  Публикация: 927693   (523941) от 14.08.2015
+
+Alice Cooper - Live at Montreux (2005)  BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Живые выступления легендарного Элиса Купера всегда пропитаны духом рока и являют собой великолепное театральное действо. Одним из последних представлений «Великого и Ужасного» был живой концерт на известном фестивале в городе Монтре. В ходе этого шоу Элис исполнил все классические хиты группы, дополненные треками с последнего на тот момент альбома «Dirty Diamonds».01. Department Of Youth
+02. No More Mr. Nice Guy
+03. Dirty Diamonds
+04. Billion Dollar Babies(   Читать дальше...   )Жанр: RockПродолжительность: 01:33:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B84BB714DFFE21496E3E453740CEACB9F4A46ADB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 371184   (523911) от 04.08.2011
+
+Nazareth - Live in Minsk (2007) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Flight Tonight
+02. I Want To Do Everything For You
+03. Holiday
+04. Dream On(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:02:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47DABF0F45185796CF5C77696B7A64E0BCCDD754
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927737   (523896) от 14.08.2015
+
+Голубой огонек - "В первый час..." (1965) SATRip [H.264] [colourization]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523896.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первый час нового 1966 года все советские граждане (у кого, конечно, был телевизор) смотрели праздничную программу с участием Павла Рудакова, Сергея Лаврова, Ларисы Мондрус, Татьяны Шмыги, Леонида Енгибарова, Аркадия Райкина, братьев Сазоновых, Иосифа Кобзона, Майи Кристалинской, Муслима Магомаева, вокального октета «Лайне» и эстрадного оркестра под управлением (   Читать дальше...   )01. Идет к нам Новый год (Т.Шмыга)
+02. Нас звезды ждут (Л.Мондрус)
+03. Милый мой фантазер (Л.Мондрус)
+04. Все равноты будешь мой (Октет "Лайне", эстр.орк.п/у Э.Рознера)(   Читать дальше...   )Производство: СССР, ГостелерадиофондЖанр: Фильм-концерт, телепередачаРежиссер: ЦТАктеры: Л. Мондрус, Т. Шмыга, Л. Енгибаров, А. Райкин, И. Кобзон, М. Магомаев, оркестр п/у Э. Рознер, Э. Хиль, квартет "Аккорд", Ю. Гагарин и др.Продолжительность: 01:08:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D897C3CC4B614F363E8008EF39551CFC724F0484
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 371426   (523830) от 04.08.2011
+
+Motley Crue - Lewd Crued And Tattooed (2000) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kickstart
+02. Same’ol Situation
+03. Primal Scream
+04. Punched In The Teeth By Love(   Читать дальше...   )Жанр: Концерт, Hard-rockПродолжительность: 01:16:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EBFA3D3FA699B5253295E3825EEABDBCB2970E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559665   (523383) от 26.06.2022
+
+Алые Паруса-2022. Выпускной бал в Санкт-Петербурге (2022) WEB-DL [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юбилейный, 30-й праздник выпускников «Алые паруса» вновь озаряет Петербург залпами салютов, провожающих вчерашних школьников в новую жизнь. Создатели всемирно известного события в этом году выбрали главной его темой вечные ценности, которые вдохновляют и дарят веру в будущее. Центральная часть празднования - запуск фейерверков и шествие брига «Россия». Выпускников (   Читать дальше...   )Телекомпания: 5 каналЖанр: ТВ-шоу, Реальное ТВ, КонцертПродолжительность: 03:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9877DE905FE0495538196C7297C7E24B0FF19989
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928048   (523212) от 15.08.2015
+
+The Rolling Stones - One More Shot Live (2012) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kонцерт The Rolling Stones в рамках тура в честь своего 50-летнего юбилея в   Newark Prudential Center NJ,  15 декабря 2012 года.01. Gorilla Intro (with Batala Drummers)
+02. Get Off of My Cloud
+03. The Last Time
+04 It’s Only Rock 'N' Roll (But I Like It)(   Читать дальше...   )Жанр: RockПродолжительность: 02:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28FA932D9806B66C18799C726D29176CCE868A8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928538   (521782) от 17.08.2015
+
+Элвис в фильмах 50-х / Elvis in the Movies the 50's (2005) DVDRip [H.264] [hand made colored]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеонарезка музыкальных фрагментов из художественных фильмов с участием Элвиса Пресли.
+Фильмы:Производство: СШАЖанр: МузыкальныйАктеры: Элвис ПреслиПеревод: ОтсутствуетПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E478008511FD862B53BC9140F5DD865C7FA793FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533875   (521598) от 12.08.2012
+
+Я, Фейербах (1993) TVRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старый актер Фейербах (Зиновий Гердт) приходит в театр на прослушивание, но вместо пригласившего его режиссера застает там скучающего ассистента (Владислав Демченко). Такое бестактное отношение к себе, оскорбляет актера. Он уходит, но через некоторое время возвращается, чтобы дождаться режиссера ... Пронзительная, трагическая история старого актера, его интриги, надежды на величие и понимание несбыточности надежд ... Фильм-спектакль по пьесе Танкред Дорст (при участии Урсулы Элер).Жанр: ДрамаРежиссер: Валерий ФокинАктеры: Зиновий Гердт, Владислав Демченко, Лидия Сергеева, Рома ТрофимовПродолжительность: 01:25:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6466B239D22B20808AE23061843A524B5D3FD656
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241278   (520958) от 16.08.2018
+
+Сборник клипов - Promo Only Hair Bands from ALEXnROCK 2 (2006) WEBRip [H.264/720p-LQ] [hand made 'реставрация']
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520958.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошел самый добротный хард рок 80х. Это единственный лицензионный сборник выпущенный на двд, достойного содержания в котором почти ничего не нужно менять. Сборник состоит из 4х частей. Это 2я. Сделал легкий ремастеринг видео, звук не трогал. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00 Intro
+01 Ozzy Osbourne - Crazy Train
+02 Motley Crue - Smokin' In The Boys Room
+03 Judas Priest - Living After Midnight(   Читать дальше...   )Жанр: RockПродолжительность: 02:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:673272A393D00013BE3C126C0C1EBB5A870816BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 534408   (520341) от 13.08.2012
 
 Frank Degrees & Markus H - Do It Yourself (2012) [H.264/1080p] WEBRip
@@ -6,7 +259,7 @@ Frank Degrees & Markus H - Do It Yourself (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520341.jpg" />
 </div>
 
 
@@ -32,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520331.jpg" />
 </div>
 
 
@@ -58,7 +311,7 @@ Deep Purple - Come Hell or High Water (1993) DVDrip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519746.jpg" />
 </div>
 
 
@@ -87,7 +340,7 @@ VA - Летний марафон № 183 / (Зарубежная Дискоте�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519492.jpg" />
 </div>
 
 
@@ -116,7 +369,7 @@ Distemper - 25 лет (2015) WEBRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519428.jpg" />
 </div>
 
 
@@ -146,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519371.jpg" />
 </div>
 
 
@@ -172,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519272.jpg" />
 </div>
 
 
@@ -198,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519253.jpg" />
 </div>
 
 
@@ -224,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519040.jpg" />
 </div>
 
 
@@ -250,7 +503,7 @@ Anathema – Universal (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518342.jpg" />
 </div>
 
 
@@ -279,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518261.jpg" />
 </div>
 
 
@@ -307,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518229.jpg" />
 </div>
 
 
@@ -333,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518167.jpg" />
 </div>
 
 
@@ -364,7 +617,7 @@ EMERSON LAKE & PALMER "Live at the Royal Albert Hall" (1993) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517624.jpg" />
 </div>
 
 
@@ -393,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_517443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_517443.jpg" />
 </div>
 
 
@@ -419,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517338.jpg" />
 </div>
 
 
@@ -447,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517238.jpg" />
 </div>
 
 
@@ -459,263 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 02. Чудесная страна
 03. К Элоизе
 04. Дельтаплан(   Читать дальше...   )Жанр: VIP-Punk-DecadenceПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314835   (517216) от 16.07.2019
-
-Славянский базар в Витебске. Конкурс молодых исполнителей. День второй (14.07.2019) HDTVRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517216.jpg" />
-</div>
-
-
-###  Подробнее
-
-XXVIII Международный конкурс исполнителей эстрадной песни «ВИТЕБСК–2019». День первый: «СЛАВЯНСКИЙ ХИТ»
-Как подчеркнули неизменные ведущие конкурса Денис Дудинский и Катерина Раецкая, 16 участников приехали с разных континентов, они принадлежат разным культурам и религиям, но их всех объединила музыка.
-Под аккомпанемент Национального академического концертного оркестра (   Читать дальше...   )Производство: БеларусьЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:56:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5E830166343D1AE6DF3C8A6580D6CB7994D30D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314766   (517033) от 16.07.2019
-
-Белые ночи Санкт-Петербурга (2019) HDTVRip [H.264/720p-LQ] (части 1-2 из 2)
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фестиваль «Белые ночи Санкт-Петербурга» проходит в Северной столице уже не первый год и продолжает быть самым грандиозным и любимым мероприятием в сфере популярной музыки не только в России, но и во всей Восточной Европе.
-Более чем за 25 лет своего существования «Белые Ночи Санкт-Петербурга» стали одним из самых ожидаемых музыкальных событий. Фестиваль известен далеко (   Читать дальше...   )Производство: РоссияЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 02:07:15 + 01:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E929F6B1F61247A9F7353313CC88E1CDD5680A63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561029   (516593) от 03.07.2022
-
-Концерт памяти Михаила Круга. "60" (2022) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телевизионная версия концерта памяти русского шансонье Михаила Круга. В этом году ему исполнилось бы 60 лет. Он без преувеличения был и остается звездой 90-х, его называют королем русского шансона, а его песни знали и знают наизусть даже те, кто далек от французского названия песенного жанра.01. Ирина Круг и Александр Круг - Вот и все (Это было вчера)
-02. Сергей Любавин - Случай в городском саду
-03. Лолита - Владимирский централ
-04. Игорь Слуцкий - Постой душа(   Читать дальше...   )Производство: РоссияЖанр: ШансонСубтитры: TeletextПродолжительность: 01:30:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E6BA38584E4361959B6F3B44A8657BC98CDBA00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930296   (516146) от 22.08.2015
-
-VA - Летний марафон № 184 / (Марафон Русских Хитов) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летние (22.08.2015) поп. новинки русской эстрады. Не пропустите, держите новые треки.1. ART KEY (Артем Качарян) - Энергия Солнца (ПРЕМЬЕРА!) (00:03:53)
-2. Artik & Asti - Кто я тебе ! (при уч. Dj Loyza & The Kidd) (ПРЕМЬЕРА!) (00:03:31)
-3. Julia Parshuta - Most Wanted (ПРЕМЬЕРА!) (00:03:17)
-4. Lui Muzon – Селфи Палка (Лайки Там) (ПРЕМЬЕРА!) (00:04:14)(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F51EA48A886D049BC1037A36AC291DBC5167278B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314973   (516056) от 17.07.2019
-
-Славянский базар в Витебске. Церемония закрытия фестиваля (15.07.2019) HDTVRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516056.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ночь на 16 июля в витебском Летнем амфитеатре торжественно закрыли «Славянский базар — 2019». Гала-концерт собрал на одной сцене артистов из Беларуси, России, Украины, Молдовы, Италии, Швеции. Самой звездной гостьей стала София Ротару — певица уже давно не была на «базаре» и подарила витебским зрителям новую песню.Производство: БеларусьЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 02:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4118D5151B529C3568715796864831A51B185E18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930195   (516008) от 22.08.2015
-
-Iron Maiden - Flight 666 (2009) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм "Iron Maiden: Flight 666" повествует о глобальном 45-ти дневном турне легендарной британской рок-группы Iron Maiden и является первой документальной лентой группы. Картина представляет собой реальные съемки мирового турне группы, которое состоялось в феврале-марте 2008 года. В рамках турне группа на специально оборудованном личном самолете Boeing (   Читать дальше...   )Flight 666 (Film)
-1. The "Magic Carpet" Takes A Bow
-2. A New Friend In Mumbai
-3. Jetlag Is A Killer(   Читать дальше...   )Жанр: Heavy MetalРежиссер: Scot MCFadyen, Sam DunnПродолжительность: 01:52:19 (Film) | 01:43:40 (Concert)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FC10BA04C676B797060E0DDCBE1E8BCF2EB8889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 535801   (515569) от 17.08.2012
-
-DJ Rhiannon - Nasty Bitch (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: R'n'b, HouseПродолжительность: 00:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64A54036EE3BAE89BDEA7EF3AD53A7ABA2863866
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536222   (515495) от 17.08.2012
-
-Сборник видеоклипов Millenium Romantic 6 (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для тех, кто влюблён, любил или ещё только будет любить.
- Лучшая музыка со всего света. Клипы, к котором приложили руку талантливейшие режиссёры.
- Коллекция Millenium Romantic - это музыка для души.01 Lara Fabian - Je T'aime
-02 Sarah Engels Pietro Lombardi - I Miss You
-03 Amel Bent - Ma Philosophie
-04 Sandra - Heaven Can Wait
-05 Mike Oldfield feat. Maggie Reilly - Moonlight shadow
-06 Desireless - Voyage Voyage
-07 Chris Norman - Some Hearts Are Diamonds
-08 Status Quo - In The Army Now
-09 Nelly Furtado — All Good Things
-10 Natasha Bedingfield - Unwritten(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1398019630BD57B071E208F9250E6AC1CF59B77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536052   (515357) от 17.08.2012
-
-Slipknot / Live At Download (2009/2012) [1080p] BDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Slipknot - американская группа, исполняющая музыку в стиле ню-метал. Группа образована в 1995 году, хотя первые признаки её существования датируются 1992 годом, когда был сформирован минимальный состав. Этот концерт был снят когда Slipknot озаглавил фестиваль перед 80,000 поклонниками в июне 2009 года. Среди многих легендарных шоу в прямом эфире, эта работа остается (   Читать дальше...   )Жанр: Nu-Metal, Alternative MetalАктеры: SlipknotПеревод: ОтсутствуетПродолжительность: 01:27:29
 
 ## Скачать торент
 ```bash

@@ -6,7 +6,7 @@ Rise of Industry 2 (2025) [Ru/Multi] (1.3.1/dlc) Repack Let'sРlay [Deluxe Editi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052829.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Surviving the Aftermath (2021) [Ru/Multi] (1.25.0.2775/dlc) Repack Let'sРlay [U
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051719.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Stonehearth (2018) [Ru/En] (1.1.0) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051623.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Wandering Village (2022) [Ru/Multi] (1.0.4) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049392.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Oddsparks: An Automation Adventure (2024) [Multi] (1.0.S31386/dlc) Repack Other 
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049179.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Frostpunk 2 (2024) [Ru/Multi] (1.5.0/dlc) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048779.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Looper Tactics (2023) [Multi] (1.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048624.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Crypt of the Necrodancer (2014) [Ru/Multi] (4.2.0-b5599/dlc) Repack FitGirl [Ult
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048483.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Inn Tycoon (2024) [Ru/Multi] (Version 42) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047700.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Floodland (2022) [Ru/Multi] (1.3.22354 HotFix) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046864.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Flat Eye (2022) [Multi] (1.2.1v2) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044787.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Project AURA (2018) [Ru/Multi] (1.1.8) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044090.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Prison Architect (2015) [Ru/Multi] (11011/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040956.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ ICBM (2020) [Ru/Multi] (1.02.03) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039719.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Rise of Industry (2019) [Ru/Multi] (2.3.11301a/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038905.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Anno 1800 (2019) [Ru/En] (9.2.972600/dlc) Repack West4it [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038618.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Pizza Connection 3 (2018) [Ru/Multi] (1.0.7583.25061) License GOG [Soundtrack Ed
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036918.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ The Last Haven (2023) [Ru/Multi] (3.02.26) Scene TENOKE
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036080.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ The Trasamire Campaigns (2023) [En] (1.3) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034267.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Dwarf Fortress (2022) [En] (50.07) Unofficial
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031520.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Planetbase (2015) [Ru/Multi] (1.3.5) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030305.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ SimCity™ 4 (2003) [Multi] (1.1.641hf/dlc) License GOG [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021346.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Jurassic World Evolution (2018) [Ru/En] (1.12.4.52769/dlc) Repack Other s [Premi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021234.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Farm Manager 2021 (2021) [Ru/Multi] (1.0) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017144.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Slipways (2021) [Multi] (1.0) License Skidrow
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012624.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Spellcaster University (2021) [Multi] (1.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009740.jpg" />
 </div>
 
 

@@ -1,3 +1,107 @@
+###  Публикация: 1464393   (1019704) от 22.04.2021
+
+Рашн Юг (2021) WEBRip [H.264/720p-LQ] [PR]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студент Артем влюбляется в юную красавицу с Черного моря. Потеряв голову, он бросает все и едет за возлюбленной на Рашн Юг, о котором ничего не знает. На море оказывается, что за прекрасной Ксюшей уже ухаживают два серьезных местных конкурента — красавчик из мореходки и дерзкий полицейский. Кажется, у наивного студента просто нет шансов. Даже помощь его новых друзей, (   Читать дальше...   )Производство: Россия / «Водород», «Арт Пикчерс Студия», СТС, «НМГ студия»Жанр: Комедия, мелодрамаРежиссер: Антон ФедотовАктеры: Семён Трескунов, Стася Милославская, Риналь Мухаметов, Роман Мадянов, Александр Робак, Сергей Лавыгин, Даниил Вахрушев, Эльдар Калимулин, Теймураз Тания, Екатерина АгееваПеревод: Не требуется (Русский) - IVIСубтитры: ОтсутствуютПродолжительность: 01:59:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F2658D7271C887732FBA7FAB9E22FDFC4C5A62E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464636   (1019536) от 23.04.2021
+
+Дважды два  (2021) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019536.jpg" />
+</div>
+
+
+###  Подробнее
+
+В кафе встречаются две пары. Вскрывшаяся деликатная и откровенная тема провоцирует ссору «пара на пару» и внутри каждой пары одновременно. Всё заканчивается попыткой спасти вечер, спасти дружбу, спасти отношения. Как? Похоже, ответ был известен ещё в начале вечера.Производство: Россия / Виталий Манюков СтудияЖанр: Мелодрама, комедияРежиссер: Виталий МанюковАктеры: Ольга Литвинова, Иван Николаев, София Сальман, Григорий Данцигер, Артур Папоян, Артур Диланян, Андрей Крыжний, Инна Лясковец, Вартан Торосян, Рипсимэ ГюлезянПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:22:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:925EA3F8A71F3FA92538B18EAE735045044B9446
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464489   (1019529) от 23.04.2021
+
+Рашн Юг (2021) WEB-DL [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студент Артем влюбляется в юную красавицу с Черного моря. Потеряв голову, он бросает все и едет за возлюбленной на Рашн Юг, о котором ничего не знает. На море оказывается, что за прекрасной Ксюшей уже ухаживают два серьезных местных конкурента — красавчик из мореходки и дерзкий полицейский. Кажется, у наивного студента просто нет шансов. Даже помощь его новых друзей, (   Читать дальше...   )Производство: Россия / «Водород», «Арт Пикчерс Студия», СТС, «НМГ студия»Жанр: Комедия, мелодрамаРежиссер: Антон ФедотовАктеры: Семён Трескунов, Стася Милославская, Риналь Мухаметов, Роман Мадянов, Александр Робак, Сергей Лавыгин, Даниил Вахрушев, Эльдар Калимулин, Теймураз Тания, Екатерина АгееваПеревод: Не требуется (Русский) - iTunesСубтитры: ОтсутствуютПродолжительность: 01:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48943AD05B64ECB5C0864034900150A563509722
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464118   (1019353) от 24.04.2021
+
+Маша (2020) WEBRip [H.264/1080p-LQ]
+
+>>След.
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019353.jpg" />
+</div>
+
+
+###  Подробнее
+
+13-летняя Маша растет в 90-е, носит розовые очки и яркие лосины. Она мечтает выступать на сцене и однажды выйти замуж за Сережу. Парни из боксёрской секции её дяди, которых боится весь город, для Маши — лучшие друзья. Они любят и защищают её, а Маша поёт им джаз. Она ничего не понимает в их взрослых разборках и убийствах, пока однажды это не становится и её проблемой.Производство: Россия | 1-2-3 Production, Марс Медиа ЭнтертейнментЖанр: Драма, триллерРежиссер: Анастасия ПальчиковаАктеры: Аня Чиповская, Полина Гухман, Максим Суханов, Александр Мизев, Ольга Гулевич, Сергей Кузнецов, Александр Звездин, Максим Сапрыкин, Сергей Двойников, Ольга ФедотоваПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:26:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8652E180D9487CFC885AA2AE339BFC47A125160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 856338   (1019215) от 25.04.2021
 
 Крепкий брак (2012) HDTV [H.264/1080i]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019215.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018903.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018844.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018842.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018672.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018387.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018254.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018128.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017974.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017884.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017879.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017461.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017309.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017237.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016828.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016811.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016731.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016722.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ Biting Elbows: Boy is Dead (2020) WEBRip [H.264/1080p-LQ]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016566.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016562.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ Eleusis (2021) WEBRip [H.264/1080p-LQ]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016554.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016535.jpg" />
 </div>
 
 
@@ -564,112 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:304181F1BC3309410CBB3B3B2302885DE844CB04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476552   (1016484) от 11.05.2021
-
-Мамы (2012) [1080p] BDRip
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый год в день 8-го марта телефонные сети России передают миллионы звонков и смс-сообщений. Трудолюбивые аналитики подсчитали, что абсолютное большинство телефонных звонков адресовано самым главным женщинам в жизни каждого человека - мамам.
-
-Мы выросли, и заготовленные заранее аппликации и букеты цветов, купленные до маминого пробуждения, - давно забытые детские (   Читать дальше...   )Жанр: Мелодрама, КомедияРежиссер: Евгений Абызов, Сарик Андреасян, Алан БадоевАктеры: Сергей Безруков, Дмитрий Дюжев, Михаил Пореченков, Егор Бероев, Гоша Куценко, Петр Федоров, Федор Добронравов, Иван Добронравов, Игорь Верник, Александр ОлешкоПеревод: ОригиналФормат: MKVПродолжительность: 01:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6796670402122822E41EB1515E9EB5E7DE743232
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469754   (1016209) от 13.05.2021
-
-Киберпанк СССР (2020) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что если бы СССР не распался, а продолжил существовать и как бы он выглядел в реалиях киберпанка?Производство: РоссияЖанр: Короткометражный, комедия, фантастика, боевикРежиссер: Алексей ХазовАктеры: Илья Долгих, Анна Горлова, Александр Лавров, Александр Мусонов, Никита Недосек, Андрей Рогозин, Вячеслав КозловСубтитры: ОтсутствуютПродолжительность: 00:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:839D967EFCA641D68A10B11251B508FE5B1E7304
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469860   (1016076) от 14.05.2021
-
-Человек, который удивил всех / The Man Who Surprised Everyone (2018) WEB-DL [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сибирский егерь Егор — образцовый семьянин и уважаемый в своем поселке человек. Они с женой Натальей ждут второго ребенка. Неожиданно Егор узнает, что неизлечимо болен, и что жить ему осталось два месяца. В борьбе с болезнью не помогают ни традиционная медицина, ни шаманское колдовство, и в конце концов Егор решается на отчаянный шаг — пытается полностью изменить (   Читать дальше...   )Производство: Россия, Эстония, Франция / Arizona Productions, Homeless Bob Production, Нон-стоп Продакшн, Gан-Атлантик СтудиоЖанр: ДрамаРежиссер: Наташа Меркулова, Алексей ЧуповАктеры: Евгений Цыганов, Наталья Кудряшова, Юрий Кузнецов, Павел Майков, Василий Попов, Алексей Филимонов, Елена Ворончихина, Максим Виторган, Амаду Мамадаков, Тимофей ЗайцевСубтитры: АнглийскиеПродолжительность: 01:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFF8B68B11D42D471B0B4DAD9CEF64663787E67C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470859   (1015400) от 18.05.2021
-
-Будь моим Кириллом (2021) WEB-DLRip [H.264/720p] [PR]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неуверенная в себе девушка Саша врет семье, что встречается с красавчиком Кириллом, хотя он — всего лишь ее тренер по бегу, с которым она боится даже заговорить. Муж сестры Паша знает правду, но у него и своих проблем хватает — у них с женой уже год не было секса. Записавшись вместе на беготерапию, Саша и Паша решают, что смогут убежать от проблем вместе.Производство: Россия / Good Story Media, ТНТЖанр: КомедияРежиссер: Алла ЕлисееваАктеры: Виталийс Семёновс, Анастасия Евграфова, Анна Антонова, Иван Мулин, Сергей Степин, Ирина РозановаПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8ABA7B1FF8B6A3A6B7529D009BA6E71FBF386E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

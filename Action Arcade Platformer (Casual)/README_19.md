@@ -1,3 +1,55 @@
+###  Публикация: 1682649   (130919) от 08.12.2023
+
+Blasphemous II (2) (2023) [Ru/Multi] (1.1.0-cs44446) Repack dixen18
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая часть серии Blasphemous сулит вам новую встречу с Кающимся, чья история продолжится в Wounds of Eventide - бесплатном дополнении к основной игре. Сердце небес возвестило о возвращении Чуда и предсказало рождение необычного ребенка. Лишившись вечного покоя и проснувшись на незнакомой земле, Кающийся оказывается вовлеченным в бесконечный цикл жизни, смерти и (   Читать дальше...   )Тип издания: RepackРазработчик: The Game KitchenЖанр: Экшны, MetroidvaniaЯзык озвучки: Английский, ИспанскийЯзык субтитров: Русский, Английский, Немецкий, ИспанскийЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:205A4EC4153EAFC68FEF14ED90AD8832EBE74745
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682902   (130778) от 09.12.2023
+
+Blanc (2023) [Ru/Multi] (1.33) Repack dixen18
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blanc - это атмосферная и трогательная адвенчура для всей семьи. Спрятанный где-то в заснеженных просторах лежит таинственный мир - удивительная вселенная, в которой два малыша - волчонок и олененок, отправятся в путешествие, чтобы найти свои семьи. Это не просто игра, это эмоциональная история о дружбе, доверии и выживании в неизведанных дебрях. В этом невероятном (   Читать дальше...   )Тип издания: RepackРазработчик: Casus LudiЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2498982078F6FD89366A1C8271E3CE2CC83B5D59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686771   (126342) от 24.12.2023
 
 Cyber Shadow (2021) [Ru/Multi] (1.04) License GOG
@@ -6,7 +58,7 @@ Cyber Shadow (2021) [Ru/Multi] (1.04) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126342.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Pronty (2021) [Ru/Multi] (3.1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124242.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Ballance / Баланс (2004) [Multi] (1.0.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124093.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Minecraft: Story Mode - A Telltale Games Series (2015) [Ru/Multi] (2018-02-22/dl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123876.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ A Boy and His Blob Retro Collection (2023) [Multi] (1.0.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123290.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ RUN: The world in-between (2022) [Ru/Multi] (1.3.11) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123001.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Angel at Dusk (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122459.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Risk of Rain Returns (2023) [Ru/Multi] (1.0.5) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121781.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Luna's Fishing Garden (2021) [Ru/Multi] (1.2.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121347.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ The Last Faith (2023) [Ru/Multi] (1.5.0) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120397.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ GINSHA (2023) [Multi] (1.1.0b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120391.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ The Cub (2024) [Multi] (Build 13219220) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120059.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ The Great Rebellion (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118837.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Paquerette Down the Bunburrows (2023) [Multi] (1.0.10) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117879.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Ultros (2024) [Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116441.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Slave Zero X (2024) [Ru/Multi] (1.00) Repack FitGirl [Digital Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114916.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ The Mobius Machine (2024) [Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114271.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ TY the Tasmanian Tiger 4 (2015) [Multi] (1.0) Scene SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107639.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Paper Trail (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107282.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Donut Dodo (2022) [En] (1.3.9.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106584.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Magical Delicacy (2024) [Multi] (1.0) Scene Razor 1911
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106133.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Fallen Leaf (2024) [En] (1.0.0.1) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105736.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Savara (2025) [Ru/Multi] (1.1.2) Repack Let'sРlay [Collector's Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104916.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Greak: Memories of Azur (2021) [Ru/Multi] (1.0.6_114) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104470.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Greak: Memories of Azur (2021) [Ru/Multi] (1.0.6_114) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE6722AA161AA3FA655B818A216CD01EFBE1AB5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750978   (104136) от 22.09.2024
-
-Who's That Flying?! (2011) [En] (1.0) Scene PROPHET
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104136.jpg" />
-</div>
-
-
-###  Подробнее
-
-В роли таинственного и могущественного «Хранителя Земли» с железным глазом и гипер-энергетической лазерной рукой, вам нужно спасти население Земли и сделать её безопасной для будущих поколений (и, разумеется, покрасоваться перед дамочками). Поскольку вы обладаете потрясающими способностями и талантом, несомненно, было бы невозможно разрушительному вторжению cмертоносных (   Читать дальше...   )Тип издания: SceneРазработчик: MediatonicЖанр: Экшены, Казуальные игры, ИндиЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A37E6388BCEA720018243B49E38B32D2636F00BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770026   (100562) от 30.12.2024
-
-Steel Rain (2015) [Multi] (1.9.0b) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Steel Rain - уникальная инди-игра, которая в равной степени совмещает в себе три жанра - горизонтальный шутер, стратегию и RPG. В промежутках между сражениями, Вы сможете строить и развивать свою собственную колонию, изучая новые технологии. Добавьте к этому десяток разноплановых уровней, эпичные сражения с боссами и множество технологий и улучшений, которые предстоит (   Читать дальше...   )Тип издания: LicenseРазработчик: PolarityFlow, Adrian ZinggЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, Ролевые игры, СтратегииЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, Немецкий, Португальский, Бразильский ПортугальскийЯзык интерфейса: Английский, Немецкий, Португальский, Бразильский Португальский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:735C87CC5ABDB9B970B2D365118B8BBA48F0CDE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

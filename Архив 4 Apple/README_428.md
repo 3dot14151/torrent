@@ -1,3 +1,58 @@
+###  Публикация: 1418283   (351235) от 23.10.2020
+
+Adobe Zii 2021 - Universal Patcher 6.0.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Zii - это небольшая и замечательная утилита, которая помогает вам забыть обо всех проблемах с регистрацией всех существующих продуктов Adobe.Тип издания: macOS SoftwareРелиз состоялся: 23.10.2020Разработчик: TNTПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFD21BE5155ED1F8E5F5C1447BD3304DD98AA1D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953138   (351184) от 03.11.2015
+
+Scrivener 2.7.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scrivener — программа для писателей
+Scrivener — это текстовый процессор и инструмент управления проектами, предназначенный для людей, которым приходится работать с большими объемами текста.
+
+Scrivener сочетает в себе возможности текстового редактора с функциями органайзера и средствами для управления проектом. Все ваши записи в виде отдельного текста, фотографий (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 25 сентября 2015Разработчик: Literature & Latte LtdПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B71EB0C28C4A3DB0CF3E5AF470344FDB6E4C782F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953071   (351169) от 03.11.2015
 
 DaisyDisk 4.0.2 [En]
@@ -6,7 +61,7 @@ DaisyDisk 4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351169.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ ExpanDrive 5.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351163.jpg" />
 </div>
 
 
@@ -62,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350877.jpg" />
 </div>
 
 
@@ -88,7 +143,7 @@ Wondershare Video Converter Ultimate 10.0.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350805.jpg" />
 </div>
 
 
@@ -116,7 +171,7 @@ Adobe Bridge 2021 11.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350795.jpg" />
 </div>
 
 
@@ -142,7 +197,7 @@ Acronis True Image 2016 (2.0.5694) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350715.jpg" />
 </div>
 
 
@@ -171,7 +226,7 @@ Mitti 2.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350291.jpg" />
 </div>
 
 
@@ -198,7 +253,7 @@ Tooth Fairy 2.5.1 (44)[Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350284.jpg" />
 </div>
 
 
@@ -225,7 +280,7 @@ DMG Canvas 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350281.jpg" />
 </div>
 
 
@@ -251,7 +306,7 @@ AirRadar 5 v5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350280.jpg" />
 </div>
 
 
@@ -279,7 +334,7 @@ Rogue Amoeba Farrago 1.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350277.jpg" />
 </div>
 
 
@@ -305,7 +360,7 @@ WidsMob ImageConvert - JPG/PNG 3.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350182.jpg" />
 </div>
 
 
@@ -331,7 +386,7 @@ Boxy SVG 3 v.3.89.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350181.jpg" />
 </div>
 
 
@@ -357,7 +412,7 @@ Allavsoft Video Downloader Converter 3.25.0.8298 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350177.jpg" />
 </div>
 
 
@@ -383,7 +438,7 @@ Alarm Clock Pro 12 v12.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350157.jpg" />
 </div>
 
 
@@ -411,7 +466,7 @@ Adguard 2.1.3.611 nightly (CL - 1.5.60) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350148.jpg" />
 </div>
 
 
@@ -437,7 +492,7 @@ cDock 3 v3.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350144.jpg" />
 </div>
 
 
@@ -465,7 +520,7 @@ AnyTrans for Android 7 v7.3.0 (build 20190925) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350143.jpg" />
 </div>
 
 
@@ -491,7 +546,7 @@ Deliver 2.6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350136.jpg" />
 </div>
 
 
@@ -517,7 +572,7 @@ FoneDog Toolkit – iOS Data Recovery 2.1.66 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350059.jpg" />
 </div>
 
 
@@ -543,7 +598,7 @@ Fenêtre 0.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350055.jpg" />
 </div>
 
 
@@ -572,7 +627,7 @@ ColorWell 7.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350052.jpg" />
 </div>
 
 
@@ -598,7 +653,7 @@ Duplicate Photos Fixer Pro 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350033.jpg" />
 </div>
 
 
@@ -626,7 +681,7 @@ Simple Recorder PRO 1.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350026.jpg" />
 </div>
 
 
@@ -637,61 +692,6 @@ Simple Recorder PRO 1.6.2 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53DB57D1BB03DBC29F11DE6FC898670897DC5C66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577983   (350017) от 21.09.2022
-
-DxO PhotoLab 5 ELITE Edition 5.5 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обрабатывайте RAW и JPEG изображения в наилучшем качестве без труда: DxO PhotoLab обеспечивает полный набор умных коррекций, которые Вы можете настроить в ручную в любой момент. Возьмите контроль над Вашими фото: эффективно убирайте шум, исправляйте освещение, восстанавливайте детали цветов, корректируйте оптические искажения и улучшайте детализацию.
-Придайте Вашим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.09.2022Разработчик: © 2022 DxO LabsПоддерживаемая ОС: macOS 10.15.0 +Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67DFD7E3BC6F80D1F61C3966676B1A66FB8E0109
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072866   (349989) от 14.11.2016
-
-PaintCode 3.0.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349989.jpg" />
-</div>
-
-
-###  Подробнее
-
-PaintCode является отличным приложением для создания графических элементов, как в Photoshop . Но в этом случае эта программа генерирует не изображение, а Core Graphics код.
-Причины уникальности этого приложения заключаются в следующем:
-- Экономия времени разработки. Если бы Вы стали писать код для Core Graphics в ручную, то это заняло бы очень много времени, чем (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 ноября 2016Разработчик: PixelCut s.r.oПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77F3662578C9054DF21275D0D7B36B4C46772703
 ```
 
 https://mybot314.ru/tekegram_catalog/

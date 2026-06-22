@@ -1,3 +1,31 @@
+###  Публикация: 529405   (566894) от 31.07.2012
+
+Книжная серия | Лучшее предложение (5 книг) [2012] [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшее предложение - это серия остросюжетных книг популярных жанров в мягком переплете. Так сказать, остросюжетный покетбук.
+Серия делится на разделы: Детектив, Боевик, Воровской роман и т.д.
+Печатаются как переиздания, так и новые вещи известных авторов.Жанр: Детектив, БоевикФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C12E8392B0FC0182DFF17DC66631C5DA7EC98E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 232958   (566455) от 05.06.2022
 
 "Боевая магия" Серия издательства Эксмо из 86 томoв|Перезалив |2006-2011|[FB2]
@@ -6,7 +34,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566455.jpg" />
 </div>
 
 
@@ -33,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566399.jpg" />
 </div>
 
 
@@ -59,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563783.jpg" />
 </div>
 
 
@@ -86,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562564.jpg" />
 </div>
 
 
@@ -113,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562480.jpg" />
 </div>
 
 
@@ -139,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562302.jpg" />
 </div>
 
 
@@ -167,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560878.jpg" />
 </div>
 
 
@@ -195,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560594.jpg" />
 </div>
 
 
@@ -221,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560509.jpg" />
 </div>
 
 
@@ -248,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560151.jpg" />
 </div>
 
 
@@ -277,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558969.jpg" />
 </div>
 
 
@@ -303,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558902.jpg" />
 </div>
 
 
@@ -330,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558889.jpg" />
 </div>
 
 
@@ -357,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557952.jpg" />
 </div>
 
 
@@ -384,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557573.jpg" />
 </div>
 
 
@@ -413,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557572.jpg" />
 </div>
 
 
@@ -439,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557570.jpg" />
 </div>
 
 
@@ -465,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557489.jpg" />
 </div>
 
 
@@ -491,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557433.jpg" />
 </div>
 
 
@@ -518,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557274.jpg" />
 </div>
 
 
@@ -546,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555430.jpg" />
 </div>
 
 
@@ -573,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554969.jpg" />
 </div>
 
 
@@ -600,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553996.jpg" />
 </div>
 
 
@@ -626,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551908.jpg" />
 </div>
 
 
@@ -652,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551769.jpg" />
 </div>
 
 
@@ -663,33 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9C486114C0AEF4F30FD979C41ECC1FFAB36E413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 579946   (550689) от 28.08.2016
-
-Книжная серия | Библиотека приключений и научной фантастики [215 книг. Обновляемая] (1936-2004) [DJVU, PDF, FB2]
-
->>След.
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия, издававшаяся Государственным издательством детской литературы (Детгиз), потом - "Детская литература". Первая книга выпущена в 1936 году.
-В кругах собирателей была известна под названием "рамка" («Золотая рамка», «Рамочка», «Золотая библиотека») и пользовалась большим успехом у нескольких поколений любителей фантастики и приключений, чем (   Читать дальше...   )Жанр: ФантастикаФормат: DJVU, PDF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32FEF2F41C4067B3A16DA08B7844D81B87D1C04A
 ```
 
 https://mybot314.ru/tekegram_catalog/

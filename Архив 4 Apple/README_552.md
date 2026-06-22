@@ -1,3 +1,57 @@
+###  Публикация: 1425080   (224490) от 19.11.2020
+
+Keep It 1.8.21 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте заметки со встроенными стилями, которые хорошо выглядят и хорошо читаются на всех ваших устройствах. Заметки могут содержать контрольные списки, маркированные и пронумерованные списки, изображения, ссылки и другие вложения.Тип издания: macOS SoftwareРелиз состоялся: 29.10.2020Разработчик: Reinvented SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Арабский и  Иврит
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D922890B6A842335FD13951EC1B8443E3F439622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425129   (224464) от 19.11.2020
+
+Battery Health 3 v1.0.24 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Battery Health является наиболее полным инструментом для получения жизненно важной информации о вашей батареи MacBook, таких как текущий уровень заряда, емкость батареи, энергопотребления, температуры, циклов заряда и т.д.
+
+Battery Health предоставляет подробные сведения о здоровье аккумулятора MacBook (макс расход, уровень здоровья в процентах), время использования (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE422C84CFC1DF79797C29BFAA9D9408B85D5F8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268618   (224461) от 12.12.2018
 
 Wondershare Video Converter Ultimate 10.3.0 [Multi]
@@ -6,7 +60,7 @@ Wondershare Video Converter Ultimate 10.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224461.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Downie 4 v4.1.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224454.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ Yoink 3.5.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224442.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ SILKYPIX Developer Studio Pro 10E v10.0.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224433.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ Nova 3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224416.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ Things 3 v3.13.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224361.jpg" />
 </div>
 
 
@@ -169,7 +223,7 @@ Easy Data Transform 1.10.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224259.jpg" />
 </div>
 
 
@@ -195,7 +249,7 @@ Wondershare Filmora Х v10.1.1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224237.jpg" />
 </div>
 
 
@@ -221,7 +275,7 @@ Viper FTP 5.4 (build 54066) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224219.jpg" />
 </div>
 
 
@@ -249,7 +303,7 @@ Marked 2 v2.5.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224211.jpg" />
 </div>
 
 
@@ -276,7 +330,7 @@ Find Any File (FAF) 2.3.2 b11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_224201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224201.jpg" />
 </div>
 
 
@@ -303,7 +357,7 @@ SiteSucker 4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_224188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224188.jpg" />
 </div>
 
 
@@ -330,7 +384,7 @@ Inboard 1.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_224180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224180.jpg" />
 </div>
 
 
@@ -358,7 +412,7 @@ iBoostUp Premium 9.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224172.jpg" />
 </div>
 
 
@@ -385,7 +439,7 @@ StopTheMadness 40.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_224129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224129.jpg" />
 </div>
 
 
@@ -411,7 +465,7 @@ MWeb Pro 4.4.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_224122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224122.jpg" />
 </div>
 
 
@@ -438,7 +492,7 @@ MacCleanse 12 v.12.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_224115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224115.jpg" />
 </div>
 
 
@@ -464,7 +518,7 @@ RightFont 8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_224096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224096.jpg" />
 </div>
 
 
@@ -491,7 +545,7 @@ Find Any File (FAF) 2.3.2 b12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224080.jpg" />
 </div>
 
 
@@ -518,7 +572,7 @@ SiteSucker Pro 5.1.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_224067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224067.jpg" />
 </div>
 
 
@@ -544,7 +598,7 @@ SiteSucker Pro 4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224030.jpg" />
 </div>
 
 
@@ -570,7 +624,7 @@ OnyX 4.1.3 for macOS Monterey 12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224004.jpg" />
 </div>
 
 
@@ -597,7 +651,7 @@ Path Finder 9.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223984.jpg" />
 </div>
 
 
@@ -623,7 +677,7 @@ Mate Translate 8.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223972.jpg" />
 </div>
 
 
@@ -635,58 +689,6 @@ Mate Translate обладает невероятно полной базой д�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D261F1F1588F0427B426DF9859507A09251A83C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513583   (223953) от 29.11.2021
-
-The Unarchiver - Unzip RAR ZIP 3.2.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unarchiver - Unzip RAR ZIP - простое в использовании приложение, которое позволяет распаковывать десятки форматов архивов, такие как: Rar, Zip, 7z, Tar, Xz, Iso, Lha, bz2, Lzh, cab, cpio, jar, exe, pkg, dms, tbz, swf, Gzip, Bzip2. Также может сжимать и шифровать любые типы файлов, чтобы сделать личные данные более безопасными.Тип издания: macOS SoftwareРелиз состоялся: 29.11.2021Разработчик: qing qing yuПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:906F9682B7B1E468221FB5B7F1DAFBA6DCE977F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425142   (223936) от 19.11.2020
-
-Apple Remote Desktop 3.9.4 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Apple Remote Desktop – лучший инструмент для управления компьютерами Mac в сети, распространения программного обеспечения, предоставления поддержки пользователям в режиме реального времени, создания подробных отчетов о программном и аппаратном обеспечении, а также автоматизации ИТ-процессов – прямо с Вашего рабочего места.Тип издания: macOS SoftwareРелиз состоялся: 17.11.2020Разработчик: Apple Inc.Поддерживаемая ОС: macOS 11.0Язык интерфейса: Английский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AECBC95B221BD794640EBD8A31223B4575AC77D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

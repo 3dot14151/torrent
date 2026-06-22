@@ -6,7 +6,7 @@ Enrico Caruso / Энрико Карузо - Caruso Starportrait (1993) Nota Blu 
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947217.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Erik Satie performed by Pascal Rogé - 3 Gymnopédies & Other Piano Works (1984)
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945700.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ W.A. Mozart - Missae Breves k.49, 65, 194 & 220: Nikolaus Harnoncourt, Concentus
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945651.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Enrico Caruso - Grand Collection (2006) [FLAC|Lossless|tracks + .cue] <Classical
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944393.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Saint-Saens - Carnival of the Animals, Danse macabre, Symphony 3 (2009) (Ormandy
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943613.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Daniil Trifonov - Transcendental - Daniil Trifonov Plays Franz Liszt (2016) [FLA
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941199.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Federico Albanese - The Blue Hour (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern C
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940059.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Strato-Vani - Ballroom 1 (2015) [MP3|320 кб/с] <Classical, Pop>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938597.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Khatia Buniatishvili - Kaleidoscope - Mussorgsky, Ravel, Stravinsky (2016) [MP3|
 >>Фортепиано
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938263.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Escala - Quadrasonic (2016) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935143.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Rick Wakeman - Piano Portraits (2017) [MP3|320 Kbps] <Classical, Piano>
 >>Фортепиано
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933324.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Dan Laurin - Telemann, Corelli & Bach (2017) [FLAC|Lossless|WEB-DL|tracks] <Clas
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932082.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Chopin - Piano Concertos nos. 1 & 2 (2005) Davidovich, Marriner - LSO [FLAC|Loss
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928904.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Joe Hisaishi - Symphonic Best Selection (1992) [FLAC|Lossless|tracks] <Score, Cl
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927592.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Richard Wagner - Neuschwanstein (2001) [FLAC|Lossless|image + .cue] <Opera>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925955.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - 100 Classical Music for Babies (2015) [MP3|320 кб/с]<Classic>
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925114.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924529.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Russian National Orchestra, Mikhail Pletnev - Russian Overtures (1994) [FLAC|Los
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924331.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Georg Solti & Wiener Philharmoniker - Edward Elgar,Zoltan Kodaly,Boris Blacher -
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920655.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Holly Bowling - Better Left Unsung (2016) [FLAC|Lossless|tracks] <Piano, Classic
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920630.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ The Royal Philharmonic Orchestra - Plays The Music Of Rush (2012) [MP3|320 Kbps]
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919047.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Zodiac - Ars Nova and Ars Subtilior in the Low Countries and Europe - Capilla Fl
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911964.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Arthur Rubinstein - The Complete Album Collection 001-142 (2011) 142CD  Box Set 
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909698.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909585.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Wolfgang Amadeus Mozart-The Symphonies: The English Concert conductor Trevor Pin
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909155.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Alexis Ffrench - Dreamland (2020) Sony Classical [FLAC|Lossless|WEB-DL|tracks] <
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908972.jpg" />
 </div>
 
 

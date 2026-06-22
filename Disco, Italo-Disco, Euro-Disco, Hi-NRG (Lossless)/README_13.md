@@ -1,3 +1,136 @@
+###  Публикация: 810233   (584486) от 04.08.2014
+
+Baltimora - Living In The Background (2005) [APE|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tarzan Boy 6:12
+02. Pull The Wires 4:40
+03. Living In The Background 6:05
+04. Woody Boogie 5:53
+05. Chinese Restaurant 5:11
+06. Running For Your Love 5:53
+
+Bonus Tracks:
+
+07. Tarzan Boy (Summer Version) 6:42(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9933D002D0E90D7D9696110E52F8A846E8E83AB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 810239   (584400) от 04.08.2014
+
+Baltimora - Survivor In Love (2006) [APE|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Key Key Karimba 5:59
+02. Global Love 4:39
+03. Jimmy's Guitar 3:56
+04. Come On Strike 4:48
+05. Set Me Free 4:44
+06. Survivor In Love 5:00
+07. Call Me In The Heart Of The Night 4:54
+08. Eye To Eye 4:14
+09. Global Love (Mix Version) 4:38Жанр: Italo-DiscoПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB4B0EAC722483D1B9058647C6785F1E3E136C22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 810346   (583436) от 05.08.2014
+
+Tony Esposito - Tony Esposito (Best Of) (1997) [FLAC|Lossless]<Disco-Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papa Chico [0:03:59.93]
+02. Kalimba de Luna [0:05:01.40]
+03. Sinue [0:03:52.76]
+04. Hands [0:04:22.84]
+05. Dateme [0:04:25.93]
+06. Simba de Ammon [0:04:59.16]
+07. As tu as [0:04:43.73]
+08. Crazy conga [0:05:04.10]
+09. Ella Xana [0:03:58.76]
+10. Giochi non Giochi? [0:04:03.37](   Читать дальше...   )Жанр: Disco-PopПродолжительность: 01:09:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82C3D6287E6CA84B876E5406392A4EC8F5F52227
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919575   (582784) от 19.07.2015
+
+Scotch - Greatest Hits & Remixes (2015) 2CD [FLAC|tracks+.cue]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me Up (Long Remix Version)
+02. Disco Band (Remix by Mach 2 Vocal Version)
+03. Pictures (Extended Vocal Remix)
+04. Mirage (Extended Version)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D58745B34BD1C514A503CC699622944F99336E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 810807   (582452) от 06.08.2014
 
 Methusalem - Journey Into The Unknown (2006) [APE|Lossless]<Disco>
@@ -6,7 +139,7 @@ Methusalem - Journey Into The Unknown (2006) [APE|Lossless]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582452.jpg" />
 </div>
 
 
@@ -39,7 +172,7 @@ Bad Boys Blue - You're A Woman 2015 (2015) [FLAC|tracks + .cue]<Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581765.jpg" />
 </div>
 
 
@@ -68,7 +201,7 @@ Saphir - Perfect Combination (2006) Limited Edition [APE|Lossless]<Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581548.jpg" />
 </div>
 
 
@@ -103,7 +236,7 @@ Grant Miller - The Maxi-Singles Collection (2007) [APE|Lossless]<Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581544.jpg" />
 </div>
 
 
@@ -138,7 +271,7 @@ Scotch - The Maxi-Singles Collection (2008) [APE|Lossless]<Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581492.jpg" />
 </div>
 
 
@@ -173,7 +306,7 @@ Baby's Gang - Challenger (2008) [APE|Lossless]<Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581481.jpg" />
 </div>
 
 
@@ -208,7 +341,7 @@ Gilla - I Like Some Cool Rock 'N' Roll (2010) [FLAC|Lossless]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581456.jpg" />
 </div>
 
 
@@ -243,7 +376,7 @@ Gilla - Help ! Help ! (2010) [FLAC|Lossless]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581450.jpg" />
 </div>
 
 
@@ -278,7 +411,7 @@ Silent Circle - The Maxi-Singles Collection (2006) [APE|Lossless]<Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581447.jpg" />
 </div>
 
 
@@ -313,7 +446,7 @@ VA - Italo Maxi Hits (1985) 2CD /2010/[FLAC|Lossless]<Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581401.jpg" />
 </div>
 
 
@@ -345,7 +478,7 @@ Radiorama - Desires and Vampires: 30th Anniversary Edition (1986) 2CD, 2016, Ana
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581295.jpg" />
 </div>
 
 
@@ -374,7 +507,7 @@ Latin Lover - Casanova Action (2007) [APE|Lossless]<Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580571.jpg" />
 </div>
 
 
@@ -409,7 +542,7 @@ Radiorama - Swedish Remixes (2006) [APE|Lossless]<Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580563.jpg" />
 </div>
 
 
@@ -444,7 +577,7 @@ Silicon Dream & Projects - The Maxi-Singles Collection Volume 1 (2007) [APE|Loss
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580506.jpg" />
 </div>
 
 
@@ -479,7 +612,7 @@ Bad Boys Blue - 30 (2015) 2CD [FLAC|tracks+.cue]<Disco, Euro-Disco, Synth-pop, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579919.jpg" />
 </div>
 
 
@@ -508,7 +641,7 @@ King Kong & The D. Jungle Girls - King Kong Greatest Hits (2000) [FLAC|Lossless]
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579459.jpg" />
 </div>
 
 
@@ -543,7 +676,7 @@ VA - From Disco to Disco 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575996.jpg" />
 </div>
 
 
@@ -572,7 +705,7 @@ Francesco Salvi - Megasalvi (1989) [APE|Lossless]<Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574962.jpg" />
 </div>
 
 
@@ -605,7 +738,7 @@ Luv - You're The Greatest Luver (1996) [FLAC|Lossless]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574840.jpg" />
 </div>
 
 
@@ -640,7 +773,7 @@ Luv' - Gold (1993) [FLAC|Lossless]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574834.jpg" />
 </div>
 
 
@@ -675,7 +808,7 @@ C.C. Catch - Welcome To The Heartbreak Hotel (1986) Germany, 1st Press [FLAC|Los
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574692.jpg" />
 </div>
 
 
@@ -710,7 +843,7 @@ Arabesque - Best Three (1995) Japan [FLAC|Lossless]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574689.jpg" />
 </div>
 
 
@@ -729,134 +862,6 @@ Arabesque - Best Three (1995) Japan [FLAC|Lossless]<Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DA324C803819EE16E60D14627817D270976002B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043294   (574418) от 15.08.2016
-
-Radiorama - The Second (1987) Reissue, Deluxe Edition, 2016, Deluxe CD Music [FLAC|Lossless|image + .cue] <Italo Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yeti (5:44)
- 02. Aliens (5:50)
- 03. Woman (4:54)
- 04. Warrior (4:16)(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 01:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31ACAF7FACB0F8B04E6C6E13D5E2AC04FF299D53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554926   (573810) от 01.06.2022
-
-Gilla - Disco Collection (2001) [FLAC|Lossless|tracks + .cue] <Disco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johnny
-02. Tom Cat
-03. The Heat Is On
-04. Go Down Mainstreet(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 01:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:468423F962DF40367908675996375FC591EBD0F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 812637   (570865) от 14.08.2014
-
-Babe - Never Listen To A Bouzouki Player (2001) [FLAC|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (Never Listen To A) Bouzouki Player
-02. Break Away
-03. Do You Know What Love Means
-04. It's Only A Matter Of Time
-05. L.O.V.E.
-06. Only A Woman
-07. Ooh La La I'm Falling
-08. Please Me, Please Do
-09. Rain In Spain
-10. The Spanish Shuffle(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D9FB8B49EA2085812D7C3F8B85C53E19383CF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 812639   (570863) от 14.08.2014
-
-Babe - Hollands Glorie (2003) [FLAC|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Drunken Sailor
-02. Ooh La La I'm Falling
-03. Mister Blitzer
-04. Wanna Do (What Mamma Said)
-05. Please Me Please Do
-06. (Never Listen To A) Bouzouki Player
-07. I'm A Rocking Machine
-08. Wonderboy
-09. Billy Joe
-10. Indian Habbits(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F22DB5801840F4E75C5FD6F3C2BE230DAA46D038
 ```
 
 https://mybot314.ru/tekegram_catalog/

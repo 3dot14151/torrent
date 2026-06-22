@@ -1,4 +1,134 @@
 https://t.me/izofen
+###  Публикация: 1876853   (1073576) от 17.06.2026
+
+Операция «Левиафан» / Jiao long xing dong / Operation Hadal (2025) WEBRip [H.264/1080p] [CH / RU, ENG Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир на поверхности кажется спокойным, но под толщей воды разгорается конфликт, способный изменить расстановку сил на планете. Группа наемников, поддерживаемая теневым правительством, захватывает стратегически важную платформу, превращая её в плацдарм для запуска оружия судного дня. Отряд «Цзяолун», уже доказавший свою эффективность в песках, теперь должен адаптироваться (   Читать дальше...   )Производство: Китай / Bona Film Group, Huaxia Film Distribution, Guizhou Radio & TV Media GroupЖанр: боевикРежиссер: Данте ЛамАктеры: Хуан Сюань, Юй Ши, Чжан Ханьюй, Дуань Ихун, Кэрри Ван, Ду Цзян, Ли Чэнь, Ван Яньлинь, Цзян Луся, Элвис ХаньПеревод: СубтитрамиЯзык озвучки: КитайскийСубтитры: Русские, английскиеПродолжительность: 02:10:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2471B352CC5C9BB45DD65E33C7967FE4E411CE79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876616   (1073442) от 
+
+Убийца-психопат / Psycho Killer (2026) WEB-DL [H.265/2160p] [4K, HDR10+, 10-bit] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неизвестный в маске едет по дорогам США, оставляя за собой след из трупов. В Канзасе он убивает дорожного патрульного на глазах его жены-полицейской, и теперь женщиной движет только желание остановить помешанного на сатанизме убийцу-психопата. Пытаясь его выследить, она приходит к выводу, что маньяк действует согласно некоему дьявольскому плану.Производство: США, Германия / 20th Century Studios, Constantin Film, New Regency ProductionsЖанр: триллер, криминал, детективРежиссер: Гэвин ПолонАктеры: Джорджина Кэмпбелл, Джеймс Роджерс, Малкольм Макдауэлл, Логан Миллер, Грэйс Дав, Аарон Мерке, Joshua Banman, Кассандра Эбнер, Даррен Мартенс, Сидни СабистонПеревод: СубтитрамиЯзык озвучки: АнглийскийСубтитры: Русские, английские (full, SDH)Продолжительность: 01:31:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB969A919D018551F39CB3D078D7E9FBA4CA1FB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876684   (1073390) от 16.06.2026
+
+Дом с привидениями / Bhooth Bangla (2026) WEBRip [H.264/1080p] [HI / RU, ENG Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мужчина получает в наследство дворец в сельской местности Мангалпура и планирует провести в нём свадьбу сестры. Однако странные сверхъестественные события и паникующие местные жители вынуждают его заняться расследованием загадочного прошлого этого здания.Производство: Индия / Balaji Telefilms, Balaji Motion Pictures, Cape of Good FilmsЖанр: ужасы, комедияРежиссер: ПриядаршанАктеры: Акшай Кумар, Пареш Равал, Табу, Манодж Джоши, Маню Менон, Раджеш Шарма, Закир Хуссайн, Винду Дара Сингх, Бхавна Пани, Мехак МанваниПеревод: СубтитрамиЯзык озвучки: ХиндиСубтитры: Русские, английскиеПродолжительность: 02:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE8ABB01D2BAAE3BAD1A1D503F569D0A4A0ED331
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876688   (1073389) от 16.06.2026
+
+Мистер Икс / Mr. X (2026) WEBRip [H.264/1080p] [HI / RU, ENG Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073389.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре внимания - секретные дела спецслужб, связанные с пятью серьезными угрозами национальной безопасности, которые были предотвращены благодаря тайным операциям.Производство: Индия / Prince Pictures, Maverik MoviesЖанр: боевик, драма, триллерРежиссер: Manu AnandАктеры: Арья, Гаутам Картик, Саратх Кумар, Манджи Варриер, Anagha L.K., Raiza Wilson, Athulya Ravi, Каали Венкат, В. Джаяпракаш, Praveen MuthuranganПеревод: СубтитрамиЯзык озвучки: ХиндиСубтитры: Русские, английскиеПродолжительность: 02:26:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6591EF2B9762BF3D7D1D2C329BB375BDA63CDC31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876801   (1073318) от 17.06.2026
+
+Клинки хранителей / Biao ren: feng qi da mo / Blades of the Guardians (2026) BDRip [H.264/1080p] [CH / RU, ENG Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мечник Дао Ма, второй самый разыскиваемый преступник в стране, соглашается сопроводить груз из Западного края в Чанъань по поручению главы семьи Мо, своего основного покровителя. Неожиданно грузом оказывается Чжи Шилан, самый опасный преступник в стране.Производство: Китай / Alibaba Pictures Group, Beijing Dengfeng International Culture Communications Company, Woo Ping PicturesЖанр: боевик, фэнтезиРежиссер: Юэнь У-ПинАктеры: Джеки У, Николас Це, Юй Ши, Lijun Chen, Сунь Ичжоу, Цы Ша, Yunxiao Li, Джет Ли, Тони Люн Ка-Фай, Ши ЯньнэнПеревод: СубтитрамиЯзык озвучки: КитайскийСубтитры: Русские, английскиеПродолжительность: 02:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:296D260BBFF441DE74D320E0729C6D57BCD26054
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875887   (1072888) от 
 
 Цвета зла: Чёрный / Kolory zla. Czern / Colors Of Evil: Black (2026) WEB-DL [H.264/1080p] [EN, POL / RU, EN, POL Sub]
@@ -7,7 +137,7 @@ https://t.me/izofen
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072888.jpg" />
 </div>
 
 
@@ -34,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072649.jpg" />
 </div>
 
 
@@ -60,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072598.jpg" />
 </div>
 
 
@@ -86,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072535.jpg" />
 </div>
 
 
@@ -112,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072176.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1071988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1071988.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071837.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071760.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071620.jpg" />
 </div>
 
 
@@ -243,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071262.jpg" />
 </div>
 
 
@@ -270,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071003.jpg" />
 </div>
 
 
@@ -296,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070457.jpg" />
 </div>
 
 
@@ -322,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069866.jpg" />
 </div>
 
 
@@ -349,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069040.jpg" />
 </div>
 
 
@@ -375,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068972.jpg" />
 </div>
 
 
@@ -401,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068212.jpg" />
 </div>
 
 
@@ -427,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067997.jpg" />
 </div>
 
 
@@ -453,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067549.jpg" />
 </div>
 
 
@@ -479,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067052.jpg" />
 </div>
 
 
@@ -505,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064739.jpg" />
 </div>
 
 
@@ -531,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064720.jpg" />
 </div>
 
 
@@ -542,136 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71D56ED9E4031D019278F9F913F4D70D9AE41D2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862414   (1064157) от 30.03.2026
-
-Соре: Жена из будущего / Sore: Istri dari Masa Depan / Sore: A Wife from the Future (2025) WEB-DL [H.264/2160p] [ID / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064157.jpg" />
-</div>
-
-
-###  Подробнее
-
-История рассказывает о молодом человеке по имени Джонатан (Джо), ведущем нездоровый образ жизни. Однажды утром перед ним появляется женщина по имени Соре, которая утверждает, что она его жена, прибывшая из будущего. Она начинает настойчиво менять его привычки и образ жизни, чтобы предотвратить трагические события в будущем. Фильм исследует темы безусловной любви (   Читать дальше...   )Производство: Индонезия / Cerita Film, Dwidaya Amadeo Gemintang, ImajinariЖанр: фантастика, фэнтези, драма, мелодрамаРежиссер: Yandy LaurensАктеры: Шейла Дара Айша, Дион Вийоко, Горан Богдан, Ливио Бадурина, Lara Nekic, Борко Перич, Матиас Мухус, Мая Хасан, Vanda Winter, Сандра ЛончаричПеревод: СубтитрыЯзык озвучки: ИндонезийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:59:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83A3755675A63A3FF57FE11036DBAA66CF4D659E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861364   (1062539) от 25.03.2026
-
-Наследник / How to Make a Killing (2026) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роскошные особняки, частные самолёты и даже собственные острова — состояние клана Редфеллоу исчисляется миллиардами. Всё это мечтает унаследовать Беккет, хоть глава рода и отрёкся от него ещё до его рождения. Однако на пути к заветной жизни стоят семь избалованных богачей. Чтобы ускорить свою очередь на наследство, Беккету придётся «спилить» несколько ветвей семейного (   Читать дальше...   )Производство: Великобритания, Франция / Blueprint Pictures, Studio CanalЖанр: триллер, драма, комедияРежиссер: Джон Паттон ФордАктеры: Глен Пауэлл, Маргарет Куолли, Джессика Хенвик, Билл Кэмп, Зак Вудс, Тофер Грейс, Эд Харрис, Бьянка Амато, Рафф Лоу, Александр ХэнсонПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E69EB0CF38812627009083FAB28EF4692A1DCB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861142   (1062311) от 24.03.2026
-
-Соре: Жена из будущего / Sore: Istri dari Masa Depan / Sore: A Wife from the Future (2025) WEBRip [H.264/1080p] [ID / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062311.jpg" />
-</div>
-
-
-###  Подробнее
-
-История рассказывает о молодом человеке по имени Джонатан (Джо), ведущем нездоровый образ жизни. Однажды утром перед ним появляется женщина по имени Соре, которая утверждает, что она его жена, прибывшая из будущего. Она начинает настойчиво менять его привычки и образ жизни, чтобы предотвратить трагические события в будущем. Фильм исследует темы безусловной любви (   Читать дальше...   )Производство: Индонезия / Cerita Film, Dwidaya Amadeo Gemintang, ImajinariЖанр: фантастика, фэнтези, драма, мелодрамаРежиссер: Yandy LaurensАктеры: Шейла Дара Айша, Дион Вийоко, Горан Богдан, Ливио Бадурина, Lara Nekic, Борко Перич, Матиас Мухус, Мая Хасан, Vanda Winter, Сандра ЛончаричПеревод: СубтитрыЯзык озвучки: ИндонезийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:59:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE15D1B08473E2D653B1F50578C9A363DCC6239B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861002   (1062213) от 23.03.2026
-
-На помощь! / Send Help (2026) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Офисная сотрудница Линда ненавидит своего босса Брэдли Престона. Страдающая от его постоянных издевательств девушка находится на грани нервного срыва и уже готова уволиться, но всё же отправляется с ним в командировку. В результате авиакатастрофы единственными выжившими на необитаемом острове оказываются только Линда и её босс.Производство: США / 20th Century Studios, Raimi Productions, TSG EntertainmentЖанр: триллерРежиссер: Сэм РэймиАктеры: Рэйчел Макадамс, Дилан О’Брайен, Эдилл Исмаил, Завьер Сэмюэл, Крис Пан, Деннис Хейсберт, Тханет Варакулнукрох, Эмма Рэйми, Кристи Бест, Брюс КэмпбеллПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 01:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:641464A9871E18A281081E0D9A3F152D9387F86E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861016   (1062204) от 23.03.2026
-
-На помощь! / Send Help (2026) WEB-DL [H.265/2160p] [4K, HDR10+, DV Profile 8.1, 10-bit] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Офисная сотрудница Линда ненавидит своего босса Брэдли Престона. Страдающая от его постоянных издевательств девушка находится на грани нервного срыва и уже готова уволиться, но всё же отправляется с ним в командировку. В результате авиакатастрофы единственными выжившими на необитаемом острове оказываются только Линда и её босс.Производство: США / 20th Century Studios, Raimi Productions, TSG EntertainmentЖанр: триллерРежиссер: Сэм РэймиАктеры: Рэйчел Макадамс, Дилан О’Брайен, Эдилл Исмаил, Завьер Сэмюэл, Крис Пан, Деннис Хейсберт, Тханет Варакулнукрох, Эмма Рэйми, Кристи Бест, Брюс КэмпбеллПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5953EC33E1F53155940F91BDE531817D17FE8F6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

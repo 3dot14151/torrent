@@ -1,3 +1,57 @@
+###  Публикация: 1428989   (178236) от 04.12.2020
+
+Duplicate File Finder & Remover 1.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Находите и удаляйте дубликаты файлов и папок на дисках и в облачных хранилищах быстро и безопасно.
+Вы собираетесь загрузить простое и элегантное приложение для сканирования вашего Mac на наличие всех видов дубликатов. Оно также имеет гибкие правила автоматического выбора, поэтому вам не нужно вручную перебирать дубликаты. ПО дает точные результаты за секунды на дисках (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.07.2017Разработчик: 508 Software, LLCПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0806F324523C2B1245D4C41B00AB1149FDD9EF73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428909   (178211) от 04.12.2020
+
+Sublime Text 4.0 Dev [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sublime Text — быстрый кроссплатформенный редактор исходных текстов программ. Поддерживает плагины на языке программирования Python.
+Sublime Text не является свободным или открытым программным обеспечением, однако, некоторые его плагины распространяются по свободной лицензии, а также разрабатываются и поддерживаются сообществом разработчиков. Он поддерживает подсветку (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.11.2020Разработчик: Jon SkinnerПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0320DEF9C912B2CCB24A57D28B671A57233ED17A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428948   (178084) от 04.12.2020
 
 Davinci Resolve Studio 17 v17b3 [En]
@@ -6,7 +60,7 @@ Davinci Resolve Studio 17 v17b3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178084.jpg" />
 </div>
 
 
@@ -35,7 +89,7 @@ Folx Pro 5 v5.24 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178068.jpg" />
 </div>
 
 
@@ -64,7 +118,7 @@ GrandTotal 7 v7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177752.jpg" />
 </div>
 
 
@@ -92,7 +146,7 @@ Timemator 2 v2.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177743.jpg" />
 </div>
 
 
@@ -118,7 +172,7 @@ Mountain Duck 4.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177719.jpg" />
 </div>
 
 
@@ -147,7 +201,7 @@ Chaos Control 1.10.3 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177716.jpg" />
 </div>
 
 
@@ -176,7 +230,7 @@ Playr 2.6  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177687.jpg" />
 </div>
 
 
@@ -203,7 +257,7 @@ NCH VideoPad Pro 8 v8.99 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177676.jpg" />
 </div>
 
 
@@ -229,7 +283,7 @@ FileMaker Pro 19 v19.1.3.315 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177638.jpg" />
 </div>
 
 
@@ -256,7 +310,7 @@ PDF Reader Pro Edition 2.7.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177519.jpg" />
 </div>
 
 
@@ -282,7 +336,7 @@ Principle 6 v.6.26 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177478.jpg" />
 </div>
 
 
@@ -308,7 +362,7 @@ Macgo Mac Blu-ray Player Pro 3.3.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177468.jpg" />
 </div>
 
 
@@ -334,7 +388,7 @@ Dropzone 4 Pro v.4.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177447.jpg" />
 </div>
 
 
@@ -361,7 +415,7 @@ DropDMG 3.6.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177432.jpg" />
 </div>
 
 
@@ -388,7 +442,7 @@ Task Office 8.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177400.jpg" />
 </div>
 
 
@@ -414,7 +468,7 @@ Art Text 4 v.4.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177398.jpg" />
 </div>
 
 
@@ -441,7 +495,7 @@ Money Pro - Personal Finance 2.8.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177380.jpg" />
 </div>
 
 
@@ -468,7 +522,7 @@ Path Finder 2147 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177364.jpg" />
 </div>
 
 
@@ -494,7 +548,7 @@ Geekbench 5 v.5.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177343.jpg" />
 </div>
 
 
@@ -522,7 +576,7 @@ iNet Network Scanner 2.9.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177318.jpg" />
 </div>
 
 
@@ -549,7 +603,7 @@ HistoryInFilm 1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176903.jpg" />
 </div>
 
 
@@ -575,7 +629,7 @@ DrawOutX 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176900.jpg" />
 </div>
 
 
@@ -602,7 +656,7 @@ RSS Button for Safari 1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176892.jpg" />
 </div>
 
 
@@ -629,7 +683,7 @@ Middle 1.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176886.jpg" />
 </div>
 
 
@@ -640,60 +694,6 @@ Middle  просто добавляет возможность сделать «
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:122694C0EDDEA1CFB7A4BFA0E8E26BF1EE7239F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429456   (176878) от 06.12.2020
-
-Mic Drop 1.3.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mic Drop позволяет пользователям отключать и включать микрофон с помощью настраиваемого глобального сочетания клавиш. С Mic Drop вы всегда знаете, включен ваш микрофон или нет, что помогает избежать неловких ситуаций. Он идеально подходит для удаленных сотрудников, учителей, подкастеров, исследователей или всех, кто проводит много времени на видеовстречах. Работает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.12.2020Разработчик: Octopus ThinkПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85E5C1762EAD36AE7600F81EAE8E4D4376B80068
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429431   (176843) от 06.12.2020
-
-iNet Network Scanner 2.7.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176843.jpg" />
-</div>
-
-
-###  Подробнее
-
-iNet предоставляет Вам информацию о сети к которой подключен ваш Mac. Удобный дизайн позволяет даже неопытным пользователям получить полную информацию о вашей локальной сети.
-
-iNet показывает устройства, подключенные к вашей локальной сети, компьютер или маршрутизатор, а также их имя, IP и поставщика. iNet обнаруживает и различает Windows и Macintosh. Для большинства (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.09.2020Разработчик: BananaGlueПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4AE6B35C8DFEC3D38996751B3E3FBB69F607A02
 ```
 
 https://mybot314.ru/tekegram_catalog/

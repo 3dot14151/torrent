@@ -1,3 +1,29 @@
+###  Публикация: 1849722   (1054040) от 25.01.2026
+
+Magic Eraser / Магический ластик v2.25.13 Mod by Maximoff⁠ [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Magic Eraser - это революционное приложение для редактирования фотографий, созданное для трансформации ваших фотографий в великолепные визуальные образы с помощью профессиональных инструментов редактирования. Используя мощь интеллектуального искусственного интеллекта, это приложение предлагает широкий спектр функций, которые подойдут как любителям фотографии, так (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 23.01.2026Разработчик: AI Photo Editor & AI Art GeneratorПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A946BED0519890F98626D9C2B03C37EFF981C938
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849724   (1054039) от 25.01.2026
 
 MIUI Hidden Settings Activity v1.6.14 Mod by TryRoom [Ru/Multi]
@@ -6,7 +32,7 @@ MIUI Hidden Settings Activity v1.6.14 Mod by TryRoom [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054039.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Win 11 Launcher Pro v4.9 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054038.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Solid Explorer File Manager v3.2.16 + Plugins Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054025.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ Remini / Улучшение Фото v3.7.1260.202518969 Mod by Mixroot [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054024.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054023.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054022.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ Win 11 Launcher v9.38 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053926.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ EOBD Facile: OBD 2 авто сканер v3.82.1145 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053877.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ Auto Reply: автоответчик v6.5 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053876.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ Taskito v1.1.8 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053869.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Grok - ИИ ассистент v1.1.10-release.00 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053860.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ Ventusky: Прогноз погоды v50.3 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053859.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053858.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053712.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ MiX Camera 9.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053682.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ Happy Color® – игра раскраска v2.21.6 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053681.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053641.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v26.3.5 Mod b
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053634.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053633.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ English Galaxy v2.3.7 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053617.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ Simple PDF Reader \ Простой PDF Reader v1.0.98 Mod by Alex.Strannik [Ru/E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053616.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053612.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ WaveStudio (WaveEditor Record & Edit Audio) v1.128 Mod by Alex.Strannik [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053610.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053577.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053574.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8971DEE2B0980782FE4510FED4243B15B9D054DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849675   (1053573) от 24.01.2026
-
-AIDA64 v2.17 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита информации об оборудовании и программном обеспечении для устройств на базе Android. Основываясь на обширных знаниях об оборудовании приложения AIDA64 для Windows, AIDA64 для Android может отображать различную диагностическую информацию для телефонов, планшетов, смарт-часов и телевизоров, в том числе:Тип издания: PremiumРелиз состоялся: 23.01.2026Разработчик: FinalWire LtdПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47CE1E049C3302AA2F227F0E7A728FF9BC87231B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1708008   (19118) от 07.05.2025
+
+Slavania (2024) [Ru/Multi] (1.1.0-885/dlc) Repack FitGirl
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Slavania - двумерная метроидвания, включающая в себя элементы слэшера. Мир игры вдохновлен славянской мифологией. Попадите в мир сказок о Древней Руси. Отправляйтесь в опасное приключение, в котором необходимо преодолеть множество препятствий и сразиться в темном логове с опасными боссами. Изучайте их поведение и выслеживайте опасных монстров.Тип издания: RepackРазработчик: FrostLeaf Games LLCЖанр: Экшены, Приключенческие игрыЯзык субтитров: Русский, Английский, Китайский (упрощенный)Язык интерфейса: Русский, Английский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57555E0AE0DBF25064907267795FB42B1C98B906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795816   (19054) от 07.05.2025
+
+Slavania (2024) [Ru/Multi] (1.1.0-887/dlc) Repack Let'sРlay
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Slavania - двумерная метроидвания, включающая в себя элементы слэшера. Стань бессмертным героем сказочной метроидвании, наполненной легендарными персонажами и жуткими созданиями. Сражайся с помощью чудо-копья и продвинутой акробатической системы, качай способности, выслеживай чудищ, исследуй запутанный мир древних сказок и навсегда определи его судьбу.Тип издания: RepackРазработчик: FrostLeaf Games LLCЖанр: Экшены, Приключенческие игрыЯзык субтитров: Русский, Английский, Китайский (упрощенный)Язык интерфейса: Русский, Английский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEB7336139B1896415DB4E1FCBD1E0A0040A164C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068639   (18898) от 09.05.2025
 
 Death Road to Canada (2016) [Multi] (Omentum Update) License GOG
@@ -6,7 +58,7 @@ Death Road to Canada (2016) [Multi] (Omentum Update) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18898.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ ENDLESS Dungeon (2023) [Ru/Multi] (1.6.11053/dlc) Repack Let'sРlay [Last Wish E
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17437.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ The Siege and the Sandfox (2025) [Ru/Multi] (Build 18577240) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17284.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Skelethrone: The Chronicles of Ericona (2024) [Ru/Multi] (1.5.5.0/dlc) License G
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16933.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Peglin (2022) [Ru/Multi] (1.1.10) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16930.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ The Siege and the Sandfox (2025) [Ru/Multi] (51162 patch 1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16906.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ The Little Brave (2025) [Ru/En] (1.0.6) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16436.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ ENDLESS Dungeon (2023) [Ru/Multi] (1.6.11053/dlc) Repack FitGirl [Last Wish Edit
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16401.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16336.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Astral Ascent (2023) [Ru/Multi] (1075/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16185.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Disney Illusion Island Starring Mickey & Friends (2025) [Multi] (1.0) Repack Let
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16163.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Disney Illusion Island Starring Mickey & Friends (2025) [Multi] (1.0/dlc) Repack
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15972.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Disney Illusion Island Starring Mickey & Friends (2025) [Multi] (1.1/dlc) Licens
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15952.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Iron Meat (2024) [Ru/Multi] (1.1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15909.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Death Roads: Tournament (2023) [Multi] (1.0.7.123) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15212.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Rayman 3: Hoodlum Havoc (2003) [Ru/En] (1.0.0) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15168.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ BlazBlue Entropy Effect (2024) [Ru/Multi] (1.0.4.110480/dlc) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14706.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Geometry Dash (2014) [En] (2.207) Repack EXROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14628.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Cuphead (2017) [Ru/Multi] (1.3.4/dlc) Repack EXROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14555.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Rain World (2017) [Ru/Multi] (1.10.4/dlc) Repack Other s [Complete Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14329.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Oirbo (2023) [En] (1.5.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14044.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Stray (2022) [Ru/Multi] (1.5#368) Repack EXROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13819.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Pocket Bravery (2023) [Multi] (2.05/dlc) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12807.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Gal Guardians: Servants of the Dark (2025) [Multi] (1.4.0/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12587.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Gal Guardians: Servants of the Dark (2025) [Multi] (1.4.0/dlc) Repack Let'sРlay
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EA236EB52C70F77ADCBDE63DBAECE5562547E73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772553   (12481) от 05.07.2025
-
-Ship of Fools (2022) [Ru/Multi] (1.5.2.613fe2f3/dlc) Repack Let'sРlay [Aquapocalypse Edition]
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ship of Fools — это кооперативное морское приключение в жанре «околорогалик», играть в котором предстоит за Глупцов, единственных существ, которым хватает глупости странствовать по морям. Великий маяк разрушен, и Архипелаг остался беззащитным перед грядущей бурей губительных сил. Вам с командой предстоит бороздить морские просторы на борту корабля Stormstrider. Заряжайте (   Читать дальше...   )Тип издания: RepackРазработчик: Fika ProductionsЖанр: Экшены, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBE9A76E52538D82173CE0C58FF11C8236A55024
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782170   (12380) от 06.07.2025
-
-Spiritfall (2024) [Ru/Multi] (1.6.27) Repack Let'sРlay
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бейте, крушите, отбрасывайте и ударяйте о стены толпы врагов с помощью изменчивого арсенала божественных сил. Spiritfall объединяет в себе бои в жанре Platform Fighter, непрерывное движение и механики Roguelite! Исследуйте опасные земли, совершайте смертоносные комбо, отбиваясь от полчищ врагов, и используйте постоянно меняющийся набор сил, продвигаясь по карте, (   Читать дальше...   )Тип издания: RepackРазработчик: Gentle GiantЖанр: Экшены, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCF8C531FB9EA9FA942DA15539CF846A7DFC32B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

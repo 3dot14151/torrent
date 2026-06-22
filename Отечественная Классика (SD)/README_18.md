@@ -1,3 +1,55 @@
+###  Публикация: 1207010   (775928) от 11.03.2018
+
+Сто грамм для храбрости (1976) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три сатирические киноновеллы антиалкогольной тематики: Какая наглость - история об абсолютном трезвеннике, экономисте Ларичеве, однажды утром попавшем в серию приключений, из-за которых его приняли за пьяницу. По законам гостеприимства - веселая история с печальным финалом о двух старых приятелях, которые после 15-летней разлуки решили устроить роскошную встречу. (   Читать дальше...   )Производство: СССРЖанр: КомедияРежиссер: Борис Бушмелёв, Анатолий Маркелов, Георгий ЩукинАктеры: Игорь Ясулович, Юрий Кузьменков, Юрий Белов, Рина Зеленая, Владимир Басов, Михаил Светин, Гоги Кавтарадзе, Александр Белявский, Борислав Брондуков, Татьяна ВасильеваСубтитры: ОтсутствуютПродолжительность: 01:14:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42B408E4A8290FCA91D9C1CF93A5345759C39541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210385   (775701) от 12.03.2018
+
+Суворов (1940) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Биографический фильм о великом русском полководце генералиссимусе Александре Васильевиче Суворове, охватывающий период последних лет его жизни в эпоху царствования Павла I. В центре фильма легендарный переход через Альпы.Производство: СССРЖанр: Драма, военный, биография, историяРежиссер: Михаил Доллер, Всеволод ПудовкинАктеры: Николай П. Черкасов, Александр Ханов, Михаил Астангов, Аполлон Ячницкий, Георгий Ковров, Сергей Килигин, Всеволод Аксенов, Александр Антонов, Александр Хвыля, Галина КравченкоСубтитры: ОтсутствуютПродолжительность: 01:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:186B0DD4B77E39559372056FEC4B01DE8D021C4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015118   (775606) от 09.05.2016
 
 Она защищает Родину 1943 DVDRip
@@ -6,7 +58,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775606.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775445.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775360.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774604.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773423.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773331.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772626.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771522.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770941.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770577.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769767.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769678.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769027.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767481.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765574.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765246.jpg" />
 </div>
 
 
@@ -435,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763936.jpg" />
 </div>
 
 
@@ -462,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763815.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763160.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762261.jpg" />
 </div>
 
 
@@ -542,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762245.jpg" />
 </div>
 
 
@@ -568,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762143.jpg" />
 </div>
 
 
@@ -594,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761957.jpg" />
 </div>
 
 
@@ -621,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760945.jpg" />
 </div>
 
 
@@ -632,61 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13B5E59356A6B9A4903DD12FD24CABA5FA630590
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 204121   (760845) от 26.05.2010
-
-Одиноким предоставляется общежитие (1983) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760845.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не секрет, что для работниц ткацких фабрик устроить личную жизнь - дело совсем не простое. В общежитие ткачих комендантом направляется бывший моряк (Михайлов). Он сразу же узнает, что душой вверенного ему коллектива является Вера Голубева (Гундарева), занимающаяся устройством личной жизни своих подруг. "Сваха" по призванию, она организовала нечто вроде (   Читать дальше...   )Производство: СССР, киностудия "Мосфильм"Жанр: Лирическая комедияРежиссер: Самсон СамсоновАктеры: Наталья Гундарева, Александр Михайлов, Елена Антонова, Елена Драпеко, Татьяна Божок, Фрунзик Мкртчян, Виктор Павлов, Людмила Шевель, Тамара Семина, Елена Майорова, Мария Скворцова, Татьяна АгафоноваСубтитры: ОтсутствуютПродолжительность: 01:23:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0E4AC8151C5B719F7D0BE186F7FEF80C47AB437
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 652544   (760308) от 11.04.2015
-
-Батальоны просят огня (1985) DVDRip (серии 1-4 из 4)
-
->>След.
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760308.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основе сюжета лежит один из решающих этапов Великой Отечественной войны — форсирование советскими войсками Днепра в 1943 году. Два батальона брошены в гибельный прорыв на занятый немцами берег реки с целью отвлечь на себя силы противника и тем самым облегчить дивизии бросок на стратегически важный город Днепров. Основные соединения должны поддержать их артиллерийским (   Читать дальше...   )Жанр: Военный, Драма, СемейныйРежиссер: В.Чеботарев, А.БоголюбовАктеры: Вадим Андреев, Александр Збруев, Борислав Брондуков, Вадим Спиридонов, Олег Ефремов, Александр Галибин, Елена Попова, Игорь Скляр, Геннадий Фролов, Владимир КашпурПродолжительность: 04:27:47
- 1-я серия: 01:03:17
-2-я серия: 01:10:53
-3-я серия: 01:07:55(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A7D7A662398F21FF4A238995C7A43EBB55B7AA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

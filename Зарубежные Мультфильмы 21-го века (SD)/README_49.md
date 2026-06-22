@@ -1,3 +1,29 @@
+###  Публикация: 965180   (226922) от 13.12.2015
+
+Головоломка / Inside Out (2015) 2*DVD5 [BD->DVD]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Райли — обычная 11-летняя школьница, и, как у каждого из нас, ее поведение определяют пять базовых эмоций: Радость, Печаль, Страх, Гнев и Брезгливость. Эмоции живут в сознании девочки и каждый день помогают ей справляться с проблемами, руководя всеми ее поступками. До поры до времени эмоции живут дружно, но вдруг оказывается, что Райли и ее родителям предстоит переезд (   Читать дальше...   )Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: Мультфильм, семейный, комедияПерсонажи: Эми Полер, Филлис Смит, Ричард Кайнд, Билл Хейдер, Льюис Блэк, Минди Кейлинг, Кейтлин Диас, Дайан Лэйн, Кайл МакЛоклен, Пола ПаундстонПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский, английскийПродолжительность: 01:30:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45860E1C4E962ED654AB57F7A5873688E958FBBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 736433   (223492) от 20.12.2013
 
 Король Лев 3. Хакуна Матата / The Lion King 1½ (2004) BDRip
@@ -6,7 +32,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223492.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223305.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223010.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222518.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221877.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220299.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219725.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217675.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216379.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_216275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_216275.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213627.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212641.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212632.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212432.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212419.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211936.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211894.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211879.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211201.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211169.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210394.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210391.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209777.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209640.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209377.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E114AC156A86378DCBD269828F338EB6B8894475
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 81793   (208801) от 06.09.2022
-
-Динозаврик Урмель / Urmel aus dem Eis / Impy's Island (2006) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208801.jpg" />
-</div>
-
-
-###  Подробнее
-
-На маленьком вулканическом острове Титиву посреди далекого озера живет и проводит свои исследования гениальный ученый Габакук Тибатонг вместе со своим приемным сыном Тимом Тинтенклексом и пингвином Пингом. Однажды зоолог находит неизвестное в природе яйцо. Из него вылупляется приветливый мини-динозавр Урмель...Производство: Германия, Bavaria PicturesЖанр: детский, компьютерная анимацияРежиссер: Райнхард Клоосс, Хольгер ТаппеАктеры: Мадлен Блауштейн, Вигальд Бонинг, Дэвид Бриммер, Джеймс Картер Каткарт, Анке Энгельке и др.Перевод: Многоголосый профессиональный (Интерфильм)Субтитры: ОтсутствуютПродолжительность: 01:16:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:796BFA68D45363EB656DEB415ADEE22E3EFF287D
 ```
 
 https://mybot314.ru/tekegram_catalog/

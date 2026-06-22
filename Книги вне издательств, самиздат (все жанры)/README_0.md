@@ -1,3 +1,29 @@
+###  Публикация: 1865694   (1065584) от 17.04.2026
+
+Андрей Ткачев | Линия крови. Родословная [8 книг] (2024-2026) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цикл «Линия крови» за авторством современного российского писателя-фантаста Андрея Сергеевича Ткачёва (не путать с протоиереем Андреем Ткачёвым) представляет собой серию в жанре «бояръ-аниме» и героического фэнтези. Сюжет повествует о герое, который пробуждается спустя несколько веков в изменившемся мире и стремится восстановить величие своей уничтоженной родословной.Жанр: Фэнтези, боевик, попаданцыИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AE4965CF2F5B460F35CE7BD2E47F9B3EA19DA95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865817   (1065522) от 17.04.2026
 
 Андрей Боярский | Неудержимый (Книга 47) (2026) [FB2]
@@ -6,7 +32,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065522.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065330.jpg" />
 </div>
 
 
@@ -52,6 +78,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865069   (1064875) от 13.04.2026
+
+Татьяна Ковган | Деменция. История ненависти и любви. Как выжить рядом с деменцией и не сойти с ума (2026) [PDF, EPUB]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1064875.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Мы можем строить свою жизнь, планировать будущее, но наступает момент, когда все меняется — мы становимся марионетками в руках близких людей, заложниками их деменции, болезни и старости. А наш дом превращается в наш персональный ад. И только мы сами можем себе помочь и найти выход.
+Я искала ответы на свои вопросы у психологов и психиатров, и не получала их. Я вела (   Читать дальше...   )Жанр: Общая психология. Здоровье.Издательство: СамиздатФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D34B1155F41B02BFBDB8E3F97E48CDA27D7823E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862185   (1064312) от 29.03.2026
 
 Андрей Мороз | Цикл "Эпоха справедливости" [5 книг] (2019-2021) [FB2]
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064312.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064260.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064253.jpg" />
 </div>
 
 
@@ -142,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064188.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063462.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063329.jpg" />
 </div>
 
 
@@ -223,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063274.jpg" />
 </div>
 
 
@@ -250,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063204.jpg" />
 </div>
 
 
@@ -278,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062887.jpg" />
 </div>
 
 
@@ -307,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062742.jpg" />
 </div>
 
 
@@ -333,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062718.jpg" />
 </div>
 
 
@@ -362,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062706.jpg" />
 </div>
 
 
@@ -391,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062686.jpg" />
 </div>
 
 
@@ -418,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062640.jpg" />
 </div>
 
 
@@ -444,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062334.jpg" />
 </div>
 
 
@@ -470,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062291.jpg" />
 </div>
 
 
@@ -498,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062286.jpg" />
 </div>
 
 
@@ -524,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062281.jpg" />
 </div>
 
 
@@ -553,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062234.jpg" />
 </div>
 
 
@@ -579,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062176.jpg" />
 </div>
 
 
@@ -606,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061768.jpg" />
 </div>
 
 
@@ -632,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061723.jpg" />
 </div>
 
 
@@ -643,60 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B5FB1BCA052E27F008DFFB46BE1D2D5923EEB36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860285   (1061700) от 20.03.2026
-
-Андрей Мельник [Ascold Flow] | Благородный Лис (Книга 11). В общем и целом – ученик (2026) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь умеет бить поддых, когда этого меньше всего ожидаешь. Но в конечном итоге важно лишь одно: сумел ли ты подняться, выпрямиться и оправившись, двинуться дальше. Отговорки не принимаются. Проблемы есть у всех. Пусть слабаки ноют и жалуются на судьбу. Я же пойду вперёд и пусть она сама попробует за мной угнаться.Жанр: Фэнтези, боевик, попаданцыИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAA9BDC78A55D7722AF7F0C013ED34BCA66635ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860029   (1061565) от 19.03.2026
-
-Павел Барчук, Павел Ларин | Цикл "Выживший" [3 книги] (2025-2026) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мне было шестнадцать, когда пятеро ублюдков-старшеклассников принесли меня в жертву ради магической силы
-Восемь лет я выживал на Кровавой Арене Изначального Града среди боли, крови и ненависти. Я стал оружием, Выродком — со шрамами на душе и артефактами в теле. Приобрёл чудовищные навыки там, где обычный человек не протянул бы и дня.
-Теперь я вернулся. Не для того, (   Читать дальше...   )Жанр: ВыжившийИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75E74CEB6D9107FB24ECACE6D757F15AFCCB1665
 ```
 
 https://mybot314.ru/tekegram_catalog/

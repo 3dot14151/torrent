@@ -6,7 +6,7 @@ Sarah Brightman - Hymn (2018) [MP3|320 Kbps] <Pop, Classical Crossover>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305336.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Workout Music Tv - Best Of 128 Bpm Songs 2020 For Fitness & Workout [MP3|320 Kbp
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304171.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ MØ - When I Was Young (2017) (EP) [MP3|320 Kbps] <Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303602.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Konrad Plaickner & His Orchestra - Atlantic Crossing (1981) LP [MP3|320 Kbps] <S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303488.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - DJ Hitparade Jubiläeumsedition: 40 Größe Hits Aus 10 Jahren (2018) [MP3|
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303479.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Nick Kamen - 4 Albums (1987-1992) Collection [MP3|320 Kbps] <Electronic, Pop, Sy
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303417.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Boney M. - Worldmusic for Christmas (2017) 2CD [MP3|320 Kbps] <Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303210.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Mireille Mathieu - Mes classiques (2018) [MP3|320 Kbps] <Pop, Classical>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303137.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Nostalgie Disco Fever: Les 50 Plus Grands Titres Disco-Funk ! (2016) [MP3|3
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302423.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Ballermann Frühlingsalarm 2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301583.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Dance Party 2018 (2018) [MP3|320 Kbps] <Dance, Club, Tropical>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301261.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Harold Faltermeyer - Harold F (1988) CD [MP3|320 Kbps] <Electronic, Pop, Synth-p
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300083.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Tom Elliot - 2 Space Albums (Unknown) LP [MP3|320 Kbps] <Electronic, Synth-pop, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_299303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_299303.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Eros Ramazzotti - Eros Duets (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299003.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Ballermann Apres Ski Megamix 2020 (2019) [MP3|320 Kbps] <Pop, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298947.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Sia - Everyday Is Christmas (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298537.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Cashmere - Cashmere (1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco, Pop-
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298141.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Lio - 5 Albums (1980-1996) CD [MP3|320 Kbps] <Electronic, Chanson, New Wave, Syn
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298052.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Egotrya - Egotrya (1981) [MP3|320 Kbps] <Electronic, Disco, Space Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297012.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Total Coelo - I Eat Cannibals & Other Tasty Trax (1996) CD [MP3|320 Kbps] <Elect
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295211.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Little Mix - LM5 (2018) Japanese Edition [MP3|320 Kbps] <Pop, R&B, Hip-Hop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295015.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Mariah Carey - Caution (2018) [MP3|320 Kbps] <Pop, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294915.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Bjork (Björk) - Utopia (2017) [MP3|320 Kbps] <Electronic, indie, Experimental, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294902.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ ZAZ - Effet Miroir (2018) [MP3|320 Kbps] <Nu Jazz, Chanson, Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294828.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Taylor Swift - reputation (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294797.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ VA - Pop Decades: 00s (2016) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294192.jpg" />
 </div>
 
 

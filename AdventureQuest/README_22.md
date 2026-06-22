@@ -1,3 +1,107 @@
+###  Публикация: 1507250   (798513) от 03.11.2021
+
+FATAL FRAME / PROJECT ZERO: Maiden of Black Water (2021) [Multi] (1.0.0.1.7615915/dlc) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то гору Хиками считали священной. В свое время там процветала необычная религия, ключевое место в которой занимало поклонение воде - а еще, как говорят, в этих местах произошло множество страшных несчастных случаев и не раз наблюдали загадочные явления. Таинственный и запутанный сюжет расскажет историю трех персонажей - Юри Кодзукаты, Мю Хинасаки и Рэна Ходзё. (   Читать дальше...   )Тип издания: LicenseРазработчик: KOEI TECMO GAMES CO., LTD.Жанр: Приключенческие игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Французский, Немецкий, Японский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA9A98986E2E9D78839DA462CDD4A5217485B57D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506335   (798508) от 03.11.2021
+
+Happy Game (2021) [Ru/Multi] (1.0.3) License GOG [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мальчик играет в своей комнате и решает поспать, после чего через некоторое время попадает в ужасный кошмар. Ему придётся пережить три ужасных кошмара для того, чтобы снова стать счастливым. Символом счастья является мяч, с которым раньше играл мальчик на детской площадке, но вдруг приходит другой мальчик и забирает мячик у нашего главного героя, тот, в растерянности, (   Читать дальше...   )Тип издания: LicenseРазработчик: Amanita DesignЖанр: Приключение, Квест, ХоррорЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13DB10A77B55A9C661158FDEFB51C855FDEAEBC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507619   (798226) от 05.11.2021
+
+In Silence (2021) [Ru/Multi] (1.01) License DARKSiDERS [Winterland Update]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798226.jpg" />
+</div>
+
+
+###  Подробнее
+
+In Silence - игра ужасов. Один игрок берет на себя роль монстра, который обладает гиперчувствительными слуховыми способностями и почти полностью слеп. Другие игроки (2-6) играют как выжившие, пытаясь сбежать или охотиться на монстра. В Silence разработан для обеспечения другого онлайн-опыта ужасов. Вы можете охотиться на всех, используя свои превосходные чувственные (   Читать дальше...   )Тип издания: LicenseРазработчик: Ravenhood GamesЖанр: Хоррор, Приключения, ЭкшнЯзык интерфейса: Русский, Английский, Французский, Португальский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:293A463F20235E307E74372B4B0811534E308574
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507594   (798212) от 05.11.2021
+
+Gazmatera 2 America's Least Wanted (2021) [Ru/En] (1.0) License DARKSiDERS
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798212.jpg" />
+</div>
+
+
+###  Подробнее
+
+1984-1986 годы. Возьмите под свой контроль четверых "генералов", Джеффа, Кайлу, Хельгу и Эмину! Пробежитесь через 3 акта по 5 уровней каждый, чтобы узнать, как сложилась судьба главных героев! Вторая часть Gazmatera - приквел первой игры. Помните "генералов" из 1988 в первой игре? Узнайте, как "генералы" встретились и докатились до жизни (   Читать дальше...   )Тип издания: LicenseРазработчик: Kalifas (ex-Katapult)Жанр: Экшен, Приключения, ИндиЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDFC54ECE740CEB33E9CE9BBC2EA09B950BFF558
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507627   (798208) от 05.11.2021
 
 Escape Simulator (2021) [Multi] (1.0.18250r) License PLAZA
@@ -6,7 +110,7 @@ Escape Simulator (2021) [Multi] (1.0.18250r) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798208.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Escape from the Village (2021) [Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798064.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Bloodshore (2021) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798034.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ InnerSpace (2018) [Ru/Multi] (1.0.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797853.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Tormentum: Dark Sorrow (2015) [Ru/Multi] (1.4.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797108.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Dead Synchronicity: Tomorrow Comes Today (2015) [Ru/Multi] (1.0.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797088.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Midnight: Submersion - Nightmare Horror Story (2021) [En] (2020.3.16.302446) Lic
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796737.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Wailing Heights (2016) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796611.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795816.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Neverending Nightmares (2014) [Ru/Multi] (3.3.22469) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795372.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Among Trees (2021) [En] (0.5.27) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795305.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ The Detail: Episode 1-3 (2015-2016) [En] (3.0.1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795178.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Grizzly Valley (2016) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795155.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794680.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ The Fall of Lazarus (2017) [En/Es] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794656.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ Slice of Sea (2021) [Ru/Multi] (1.0.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794613.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ PLAY WITH ME (2018) [En/Pl] (1.20.6) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794524.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ Rusty Lake Paradise (2018) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794514.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ N.E.R.O.: Nothing Ever Remains Obscure (2016) [Ru/Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794347.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ N.E.R.O.: Nothing Ever Remains Obscure (2016) [Ru/Multi] (5.3.2.14600335) Repack
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794293.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ Motherland (2021) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793637.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ Pilot Brothers: Trilogy / Братья Пилоты: Трилогия (1997-2004
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793493.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ Pilot Brothers: Trilogy / Братья Пилоты: Трилогия (1997-2004
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C0555D7947365022781289493C608658D0010BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201173   (793492) от 23.01.2018
-
-Vesta (2018) [En/Es] (1.0) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веста - сообразительная 6-летняя девочка, живущая в заброшенном подземном лабиринте, руинах некогда кипящего жизнью города, который населяли люди и идеальные машины. К счастью, она не совсем одна - у нее есть друг по имени БОТ. Он помогает Весте советом и вдохновляет на выполнение порученных заданий - при этом сам БОТ знает гораздо больше, чем говорит. Чтобы Веста (   Читать дальше...   )Тип издания: LicenseРазработчик: FinalBoss GamesЖанр: AdventureЯзык озвучки: Английский, ИспанскийЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33D6B9529793B45329B58AAD574C88FC7F3FF2D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122992   (793026) от 06.04.2017
-
-Paradigm / Парадигма (2017) [En] (1.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paradigm - это сюрреалистический квест, действие которого разворачивается в постапокалиптическом мире под названием Крусз, созданного на основе модели Западной Европы 70-х годов 20 века. Невеселая жизнь Парадигмы началась в генетической лаборатории DUPA, компании, которая занимается торговлей искусственно выведенными детьми для богатых и власть имущих, тех, кто не (   Читать дальше...   )Тип издания: LicenseРазработчик: Jacob JanerkaЖанр: Приключение, Головоломка, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C8F6AA4F43B031870C52A0A1960DF9FF7AFC035
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201393   (792594) от 24.01.2018
-
-Subnautica (2018) [Ru/Multi] (59783) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Subnautica - это ролевая игра от создателей Natural Selection 2, в которой авторы пообещали соместить кинематографичность, открытый мир и проработку "больших" RPG. Subnautica – игра-песочница с открытым миром, созданная компанией Unknown Worlds Entertainment. Главная особенность игры – всё действие происходит в инопланетном океанеТип издания: LicenseРазработчик: Unknown Worlds EntertainmentЖанр: Adventure (Survival), 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E303964226E706E857F8B5FDDF347F0D32AC614D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509798   (792560) от 14.11.2021
-
-The Quiet Apocalypse (2021) [En] (1.0) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792560.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Quiet Apocalypse - сюжетное приключение, действие которого происходит в прекрасном открытом мире. В опасном приключении, спасая жизнь особенного ребенка, путешествуйте по холмам и вересковым пустошам, густым лесам с умеренным климатом, возвышающимся каньонам, засушливым пустыням и давно спящим вулканическим горам, которые прекрасно освещены динамичным циклом (   Читать дальше...   )Тип издания: LicenseРазработчик: Little Denis GamesЖанр: Приключения, Квест, От первого лицаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F54954FFEAA4B1A49FC3D134604E85066FF98E24
 ```
 
 https://mybot314.ru/tekegram_catalog/

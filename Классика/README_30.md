@@ -6,7 +6,7 @@ Albinoni Tomaso Giovanni: Collegium Musicum 90 Simon Standage Authentic instrume
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512131.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Diva - 30 Great Prima Donnas (2001) [FLAC|Lossless]<Classic, Vocal>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511406.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ Luciano Pavarotti - Love Songs (2008) [MP3|320 кб/с]<Opera, Classical Music>
 >>Вокал
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511299.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ William Sterndale Bennett - Piano Concertos Nos.2 & 5 (Nicholas Braithwaite & Ph
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510103.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Shostakovich - Symphony No.10 (Herbert von Karajan & Berlin Philharmonic Orchest
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505355.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Chopin - Nocturnes (Nelson Freire) (1998) [FLAC| image +.cue]<Classical, Romanti
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505282.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ VA - Adagios (FLAC)
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503256.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Vanhal - Symphonies (Concerto Koln) (2007) [FLAC|image +.cue]<Classical, Orchest
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502400.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Nikita Magaloff - La Valse (1990) [FLAC|image +.cue]<Classical, Romantic Period,
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502324.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ VA - The Top 100 Masterpieces Of Classical Music: 1685-1928 (1991) [FLAC|Lossles
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502009.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500824.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Adiemus - Songs Of Sanctuary (1995) [FLAC|Lossless|tracks + .cue] <Modern Classi
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500411.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Adiemus - Songs Of Sanctuary (1995) [MP3|320 Kbps] <Modern Classical, Ambient>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500355.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498606.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Brahms - Works for solo piano (Julius Katchen) (1997) (6CDs)[FLAC|image +.cue]<C
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497263.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вокал
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495450.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Murray Perahia with ASMF Plays Bach Concertos (2011) [FLAC|Lossless]<Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495106.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494765.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Wagner and Weber - Symphonies in C (Ari Rasilainen & Norwegian Radio Orchestra) 
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494181.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ VA - One Night at the Opera (5CDs) (2000) [FLAC|tracks + .cue]<Classical, Romant
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494158.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вокал
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490866.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ VA - Мировая Классика в современной обработк�
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490621.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Wolfgang Amadeus Mozart: Concertos for Clarinet, Flute and Bassoon / Karl Böhm 
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489791.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Luciano Pavarotti - 16 Альбомов (20 CD) (1977-2007) [MP3|320 кб/с]<Op
 >>Вокал
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488706.jpg" />
 </div>
 
 
@@ -767,7 +767,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488632.jpg" />
 </div>
 
 
@@ -796,7 +796,7 @@ VA -  Парад Оркестров (1973) [MP3|320 кб/с]<Instrumental,Orches
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484344.jpg" />
 </div>
 
 

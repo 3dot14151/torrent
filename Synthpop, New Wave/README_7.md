@@ -1,3 +1,61 @@
+###  Публикация: 930467   (510785) от 27.08.2015
+
+Lazerhawk - Skull and Shark (2013) [MP3|320 кб/с]<Electronic, Disco>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skull and Shark (04:50)
+02. Chaos (04:50)
+03. Lawless (04:26)
+04. The King of the Streets (04:57)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54388FF7C8CBBD624A2C840A3B8585CD3A12C096
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932194   (509985) от 28.08.2015
+
+Gunship - Gunship (2015) [MP3|320 кб/с]<Electronic, Synthwave, Dreamwav>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Mountain (4:25)
+02. Revel in Your Time (4:07)
+03. Tech Noir (4:57)
+04. Shadow Fury (4:13)(   Читать дальше...   )Жанр: Electronic, Synthwave, DreamwaveПродолжительность: 00:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F9C2C492DAFC7BE20E053117EE46D0388A48E91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316540   (505160) от 27.07.2019
 
 Profil - Profil (серия "Другие восьмидесятые") (1982) CD, Album, Remastered, 2016, Genetic Music [MP3|320 Kbps] <NDW, New Wave, Synth-pop>
@@ -6,7 +64,7 @@ Profil - Profil (серия "Другие восьмидесятые") (1982) CD
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505160.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Yello - 3 Editions (2012, 2017) Remixes [MP3|320 Kbps] <Electronic, Pop, Synth-p
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503971.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Bellatrix - Travel (2022) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496648.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Duran Duran - Paper Gods (2015) Deluxe Edition [MP3|320 кб/с]<New Wave, Pop R
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493859.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Denner (FR) - Shades & Parasols (2022) [MP3|320 Kbps] <French Coldwave, New Wave
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492461.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ The Planets - 2 Albums (1979, 1980) LP [MP3|320 Kbps] <Electronic, New Wave, Pop
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488726.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Buggles - 2 Albums (1980, 1981) Reissue CD [MP3|320 Kbps] <Electronic, Synth-pop
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484091.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Yello - Point (2020) [MP3|320 Kbps] <Synthpop, Electronic>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482865.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ New Order - Music Complete (2015) [MP3|320 кб/с]<Synthpop, Electronic, New-Wa
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473221.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Hurts - Faith (2020) [MP3|320 Kbps] <Synthpop, Pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472645.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ ScAnDroid Experiment's - We Will Make You Happy (2022) авторская раз
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470188.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Moebius - Moebius (1979) LP [MP3|320 Kbps] <Electronic, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469118.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Cosmic Armchair - Contact (2017) [MP3|320 Kbps] <Electronic, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463379.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Laserdance - Ambiente (1991) [OGG|480 Kbps] <Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459933.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Laserdance - Changing Times (1990) [OGG|485 Kbps] <Synthpop, Electronic>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459925.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ A-Ha - Minor Earth, Major Sky (2000) [OGG|485 Kbps] <Synth-pop, Pop Rock, Soft R
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453669.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Erasure - Day-Glo (Based on a True Story) (2022) [MP3|320 Kbps] <Synthpop, New W
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451658.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Proxyon - Proxyon (1989) [OGG|485 Kbps] <Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447204.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Pet Shop Boys - Please (1986) [OGG|485 Kbps] <Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447200.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Pet Shop Boys - Actually (1987) [OGG|485 Kbps] <Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447199.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446564.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Le Couleur - Concorde (2020) [MP3|320 Kbps] <Synthpop, Disco>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443028.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Eurythmics - We Too Are One (1989) Remastered ,2018, RCA [OGG|485 Kbps] <Synthpo
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438369.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Koto - Masterpieces (1989) [OGG|485 Kbps] <Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438362.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Koto - Masterpieces (1989) [OGG|485 Kbps] <Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31F271FC0B66DC17CAE9666FAABD959F4F86CA27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570768   (438301) от 19.08.2022
-
-A-Ha - Lifelines (2002) Deluxe Edition, Remastered, 2019, Warner Music [OGG|485 Kbps] <New Wave, Synthpop, Pop Rock>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lifelines
-02. You Wanted More
-03. Forever Not Yours
-04. There's a Reason for It(   Читать дальше...   )Жанр: New Wave, Synthpop, Pop RockПродолжительность: 02:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:441E89362247D2F2FBFAA616A4C933B54EB32073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945014   (437578) от 08.10.2015
-
-Hurts - Surrender (2015) Deluxe Edition [MP3|320 кб/с]<Synthpop, Pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surrender
-02. Some Kind of Heaven
-03. Why
-04. Nothing Will Be Bigger Than Us(   Читать дальше...   )Жанр: Synthpop, PopПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35603F44878A987F06053B974EF3A11B16DE029F
 ```
 
 https://mybot314.ru/tekegram_catalog/

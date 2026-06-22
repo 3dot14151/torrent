@@ -1,3 +1,29 @@
+###  Публикация: 1447355   (1030217) от 20.02.2021
+
+Лучшие книги о любви: классика мировой литературы v2.0.6.18 [Ru] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030217.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом приложении мы собрали для вас самые замечательные книги писателей мировой литературы о любви, которые достойны прочтения абсолютно всеми, а не только дамам. Книги, собранные в эту коллекцию, являются абсолютно бесплатными для чтения, не имеют ознакомительных версий и прочих подвохов. Приложение не требует постоянного подключения к интернету, выбранная книга (   Читать дальше...   )Тип издания: AdFree (удалена реклама)Релиз состоялся: 26.03.2020Разработчик: DuoSoftПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28B741731FDB762F66F4D9C01E6A2EF559EEE14A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447177   (1030183) от 20.02.2021
 
 Лучшие приключенческие книги писателей классиков v2.0.10 [Ru] (обновляемая)
@@ -6,7 +32,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030183.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ VPN Russia - VPN сервера в России 1.160 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030173.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030151.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030109.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030104.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Vinylage Music Player v2.0.16 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029686.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ Family Locator - GPS Tracker v5.23.1 [Ru/Multi] - контроль за мест
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029636.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029512.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ Enhance it v4.0.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029208.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028609.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028327.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ ElLi - Расчет проводки v1.3.33  Pro [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028283.jpg" />
 </div>
 
 
@@ -330,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028279.jpg" />
 </div>
 
 
@@ -359,7 +385,7 @@ Calc for Electronics v3.3.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028043.jpg" />
 </div>
 
 
@@ -385,7 +411,7 @@ Piano Melody ver.Tokyo Ghoul Fix (200) [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027836.jpg" />
 </div>
 
 
@@ -414,7 +440,7 @@ Freezer v0.6.9 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027834.jpg" />
 </div>
 
 
@@ -441,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027714.jpg" />
 </div>
 
 
@@ -467,7 +493,7 @@ SAI (Split APKs Installer) v4.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027463.jpg" />
 </div>
 
 
@@ -493,7 +519,7 @@ AutoTagger - авто и пакетный редактор тегов v3.3.4 [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027391.jpg" />
 </div>
 
 
@@ -520,7 +546,7 @@ eWeather HD v8.2.4 Premium [Ru/Multi] - погода, качество возд�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027266.jpg" />
 </div>
 
 
@@ -549,7 +575,7 @@ Handy GPS 35.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027168.jpg" />
 </div>
 
 
@@ -575,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027141.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ WOW Volume Manager v1.6 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027058.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027011.jpg" />
 </div>
 
 
@@ -656,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026908.jpg" />
 </div>
 
 
@@ -667,33 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5610B316030183241693597CC41E13D50E3C8C96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454018   (1026565) от 13.03.2021
-
-Пульс по лицу – пульсометр FaceBeat v1.0.58 [Ru/Multi] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение измеряет пульс с помощью фотографии. Конечно, присутствует и стандартный режим в виде прикладывания пальца к объективу, но вариант со снимком не уступает классическому. Нужно расположить лицо так, чтобы оно уместилось в овал.
-Приятно, что в программе установлена наглядная полоса состояния сердцебиения. Другими словами, можно разобраться, в порядке ли все (   Читать дальше...   )Тип издания: Free с Маркета  + Пиратка (разблокирован Premium)Релиз состоялся: 08.07.2020Разработчик: Heart Rate LabsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99E0E2E0E2F48982A38AA04F8DED10691981D2C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

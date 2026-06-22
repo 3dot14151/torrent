@@ -1,3 +1,29 @@
+###  Публикация: 1239345   (538709) от 05.08.2018
+
+Форсаж 8 / The Fate of the Furious (2017) DVD9+DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пристегните ремни — гонка продолжается. Гавана, Берлин, Нью-Йорк — для самой крутой команды в мире нет ничего невозможного, пока они вместе. Но когда на их пути окажется одна из самых красивых женщин на планете и по совместительству королева киберпреступности, дороги друзей разойдутся.Производство: Китай, США, Япония / Universal Pictures, Original Film, One Race FilmsЖанр: Боевик, триллер, криминалРежиссер: Ф. Гэри ГрейАктеры: Вин Дизель, Дуэйн Джонсон, Джейсон Стэйтем, Мишель Родригес, Тайриз Гибсон, Лудакрис, Натали Эммануэль, Курт Рассел, Скотт Иствуд, Шарлиз ТеронПеревод: Дублированный (лицензия)Субтитры: Русские, английские, польские, эстонские, латышские, литовскиеПродолжительность: 02:10:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0057525DB6A9770762BA11DFFD5583D317A54B4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239472   (538599) от 05.08.2018
 
 Красавица и чудовище / Beauty and the Beast (2017) DVD5 [Custom]
@@ -6,7 +32,7 @@
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538599.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538589.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538585.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538583.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538581.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538572.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538459.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538452.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538445.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538093.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536559.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536269.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535855.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534905.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534617.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533044.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533029.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532898.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531980.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529370.jpg" />
 </div>
 
 
@@ -531,13 +557,65 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529119.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Фильм основан на реальных событиях из жизни гангстера Дэнни Грина, на его взлетах и падениях.Производство: Anchor Bay Films / Code Entertainment / Dundee Entertainment / Sweet William Productions (США)Жанр: триллер / криминал / биографияРежиссер: Джонатан ХенслиАктеры: Рэй Стивенсон, Винсент Д’Онофрио, Вэл Килмер, Кристофер Уокен, Линда Карделлини, Тони Дарроу, Роберт Дави, Фионнула Флэнаган, Боб Гантон, Джейсон Батлер Харнер и др.Перевод: многоголосый закадровый (профессиональный)Субтитры: отсутствуютПродолжительность: 01:41:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 368235   (529114) от 27.07.2011
+
+Ирландец / Kill the Irishman (2011) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_529114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на реальных событиях из жизни гангстера Дэнни Грина, на его взлетах и падениях.Жанр: триллер, криминал, биографияРежиссер: Джонатан ХенслиАктеры: Рэй Стивенсон, Винсент Д’Онофрио, Вэл Килмер, Линда Карделлини, Кристофер Уокен, Тони Дарроу, Роберт Дави, Фионнула Флэнаган, Боб Гантон, Джейсон Батлер Харнер, Винни ДжонсПеревод: Профессиональный (многоголосый)Формат: DVD VideoПродолжительность: 01:41:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 368440   (528206) от 28.07.2011
+
+Римская империя: Нерон / Imperium: Nerone (2004) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_528206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отравив императора Клавдия, его жена и сестра Калигулы Агриппина расчищает путь к императорской власти для своего сына Нерона. Но, не желая делиться с матерью властью, Нерон приказывает убить ее. Освободившись заодно и от своей нелюбимой жены Октавии, Нерон женится на Поппее, самой прекрасной и самой развращенной женщине Рима. После пожара, уничтожившего почти весь город, Поппея убеждает Нерона обвинить во всем христиан. Но ситуация уже выходит из-под контроля императора…Жанр: Драма, ВоенныйРежиссер: Пол МаркусАктеры: Ганс Мэтисон, Лаура Моранте, Рик Шмид, Симон Андреу, Соня Аквино, Мария Габриэлла Барбути, Джеймс Бентли, Марко Бонини, Роберт Бразил, Филипп КаруаПеревод: Профессиональный (многоголосый, закадровый)Язык субтитров: РусскиеПродолжительность: 03:04:00
 
 ## Скачать торент
 ```bash
@@ -557,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528092.jpg" />
 </div>
 
 
@@ -583,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_527323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_527323.jpg" />
 </div>
 
 
@@ -592,85 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 Роберт и Альфред — фокусники-иллюзионисты, которые на рубеже XIX и XX веков соперничали друг с другом в Лондоне. С годами их дружеская конкуренция на профессиональной почве перерастает в настоящую войну.
 
 Они готовы на все, чтобы выведать друг у друга секреты фантастических трюков и сорвать их исполнение. Непримиримая вражда, вспыхнувшая между ними, начинает угрожать жизни окружающих их людей…Жанр: Драма, Триллер, ДетективРежиссер: Кристофер НоланАктеры: Хью Джекман, Кристиан Бэйл, Майкл Кейн, Пайпер Перабо, Ребекка Холл, Скарлетт Йоханссон, Саманта Мэхурин, Дэвид Боуи, Энди Серкис, Дэниэл Дэвис, Джим Пиддок, Кристофер Ним, Марк Райан, Роджер Рис и др.Перевод: Дублированный (лицензия)Язык субтитров: Русские, английскиеПродолжительность: 02:10:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 369327   (526670) от 30.07.2011
-
-Доверие / Trust (2010) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь Кэмеронов удалась — подрастают чудесные дочки, карьера отца семейства идет в гору, дом оснащен по последнему слову техники. Они привыкли спокойно спать по ночам, потому что уверены — беде не проникнуть в их крепость. И когда их 14-летняя дочь Энни знакомится через Интернет с юношей по имени Чарли, они не придают особого значения возникающей между ними влюбленности. (   Читать дальше...   )Производство: Millennium Films / Nu Image Films / Dark Harbor Stories (США)Жанр: триллер / драмаРежиссер: Дэвид ШвиммерАктеры: Клайв Оуэн, Кэтрин Кинер, Лиана Либерато, Джейсон Кларк, Виола Дэвис, Крис Генри Коффи, Spencer Curnutt, Aislinn DeButch, Ноа Эммерик, Olivia Wickline и др.Перевод: многоголосый закадровый (профессиональный)Субтитры: отсутствуютПродолжительность: 01:41:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 369305   (526204) от 31.07.2011
-
-Черный хлеб / Pa Negre (2010) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526204.jpg" />
-</div>
-
-
-###  Подробнее
-
-В тяжелые послевоенные годы, в деревне, затерянной в сельской Каталонии, мальчик по имени Андреу находит в лесу тела мужчины и его сына. Власти обвиняют в их смерти отца Андреу. Новый жизненный опыт учит мальчика, что в мире взрослых, пронизанном ложью, необходимо быть крайне осторожным. И, чтобы выжить, он предает свои корни...
- По одноименному роману Эмили Тейшидор.Жанр: ДрамаРежиссер: Агусти ВильяронгаАктеры: Франсеск Коломер, Марина Комас, Нора Навас, Рохер Касамайор, Льюиса Кастель, Мерсе Аранега, Марина Гатель, Элиса Крею, Лайя Маруль, Эдуард Фернандес, Серхи Лопес, Жоан Карлес Суау и др.Перевод: Одноголосый закадровыйЯзык субтитров: русские (Muraki, keju, ray3000, prostotak), кастильские, английскиеПродолжительность: 01:48:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 369518   (526130) от 31.07.2011
-
-Последний неандерталец / Ao, le dernier Néandertal (2010) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научно-популярный фильм о неандертальском человеке из двух частей. Неандерталец должен пройти от заснеженной Сибири до южных широтПроизводство: ФранцияЖанр: Приключения, ИсторияРежиссер: Жак МалатьеАктеры: Агие, Хелми Дриди, Илиан Иванов, Весела Казакова, Сара Малатье, Аруна Шилдс, Саймон Пол Саттон, Явор ВеселиновПеревод: Многоголосый закадровыйСубтитры: нетПродолжительность: 01:23:45
 
 ## Скачать торент
 ```bash

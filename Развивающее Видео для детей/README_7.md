@@ -1,3 +1,110 @@
+###  Публикация: 711690   (403089) от 19.10.2013
+
+InternetUrok | Физика 7-11 класс (2011-2013) WEB-DLRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоуроки по Физике для 7-11 класс классов от сайта interneturok.ru
+Видеоуроки по школьной программе от опытных учителей Санкт-Петербурга и Москвы.Жанр: ВидеоурокиРежиссер: InternetUrokПродолжительность: 21:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7752EA3EF84F696613282A65694D893F7689E461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 711698   (402251) от 20.10.2013
+
+InternetUrok | История 5-11 классы (2011-2013) WEB-DLRip [H.263/H.264]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоуроки по Истории 5-11 классов от сайта interneturok.ru
+Видеоуроки по школьной программе от опытных учителей Санкт-Петербурга и Москвы.Жанр: ВидеоурокиРежиссер: InternetUrokПродолжительность: 01:01:24:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:604D535A7D16246D21D762896C5BC05D00678A88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 711692   (401207) от 21.10.2013
+
+InternetUrok | Алгебра и Геометрия 7-11 класс (2011-2013) WEB-DLRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоуроки по Алгебре и Геометрии для 7-11 классов от сайта interneturok.ru
+Видеоуроки по школьной программе от опытных учителей Санкт-Петербурга и Москвы.Жанр: ВидеоурокиРежиссер: InternetUrokПродолжительность: 01:05:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33E6E61D1FBF4F5CCE4CE13A5C27716529D8CD46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570310   (388954) от 06.11.2012
+
+Саакянц. БЕРГ САУНД | Учимся рисовать (2009) DVDRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное видео поможет Вашему ребёнку учиться рисовать самостоятельно. Герои мультфильма обучают детишек рисовать с азов.Производство: РоссияЖанр: Видеоруководство, Обучающий, РазвивающийРежиссер: Роберт СаакянцУчастники: Мультяшные персонажиПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 00:14:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13BCBAF7823CE62587356852ACA0F793D236B9E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 250560   (381855) от 27.10.2010
 
 Уроки тетушки Совы: Уроки живой природы. Большие и маленькие (2009) DVD5
@@ -6,7 +113,7 @@
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_381855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_381855.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379370.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ Foxford | Программирование Java и Android, 9-11 классы (2
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376395.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ Foxford | Язык Python для начинающих,6–8 классы (2015) 
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376392.jpg" />
 </div>
 
 
@@ -111,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372204.jpg" />
 </div>
 
 
@@ -137,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371663.jpg" />
 </div>
 
 
@@ -163,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370580.jpg" />
 </div>
 
 
@@ -190,7 +297,7 @@ InternetUrok|Разбор ГИА (2011-2012) WEB-DLRip [H.264]
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366338.jpg" />
 </div>
 
 
@@ -219,7 +326,7 @@ InternetUrok | Разбор ЕГЭ (2011-2012) WEB-DLRip [H.264]
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366328.jpg" />
 </div>
 
 
@@ -248,7 +355,7 @@ InternetUrok| Учёные - детям (2013) WEB-DLRip [H.264]
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366133.jpg" />
 </div>
 
 
@@ -277,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366078.jpg" />
 </div>
 
 
@@ -303,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361595.jpg" />
 </div>
 
 
@@ -329,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359717.jpg" />
 </div>
 
 
@@ -355,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359594.jpg" />
 </div>
 
 
@@ -381,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355154.jpg" />
 </div>
 
 
@@ -407,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349709.jpg" />
 </div>
 
 
@@ -433,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348839.jpg" />
 </div>
 
 
@@ -459,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348703.jpg" />
 </div>
 
 
@@ -485,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348702.jpg" />
 </div>
 
 
@@ -511,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348701.jpg" />
 </div>
 
 
@@ -537,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348590.jpg" />
 </div>
 
 
@@ -563,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348588.jpg" />
 </div>
 
 
@@ -574,110 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F3C4CAE96FDAE631D5747FFB746575BA1D7256A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 724951   (348586) от 21.11.2013
-
-Учебная фильмотека. Начальные классы. Сельскохозяйственные машины (1976) TS
-
->>Видео, Кино и Сериалы для детей и родителей
->>Развивающее Видео для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм знакомит с различными тракторами, комбайнами, показывает, как эти машины помогают обрабатывать почву и посевы, собирают урожай зерновых культур, овощных и технических культур.Производство: КиевнаучфильмЖанр: Короткометражный, ОбучающийРежиссер: Е. ГончаровПродолжительность: 00:08:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:010314F2F2349622D0B025F979A0E7D113CE28D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 725066   (348583) от 21.11.2013
-
-Учебная фильмотека. Начальные классы. Времена года. Лето (1970) VHSRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Развивающее Видео для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает о самом тёплом времени года, о признаках лета в неживой природе, в жизни растений и животных. Фильм показывает труд сельского населения - заботу о домашних животных, сенокос, сбор фруктов, уборку зерновых культур.Производство: ЦентрнаучфильмЖанр: Обучающий, КороткометражныйРежиссер: Е. МихайловаПродолжительность: 00:09:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE7484FD6F8F415AC1C73D2BA9BC6463FBB3C165
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 725096   (348277) от 21.11.2013
-
-Учебная фильмотека. Начальные классы. Времена года. Зима (1970) VHSRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Развивающее Видео для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348277.jpg" />
-</div>
-
-
-###  Подробнее
-
-В фильме показаны основные признаки наступления зимы в неживой природе, изменения в жизни растений и животных, труд людей в это время года.Производство: ЦентрнаучфильмЖанр: Обучающий, КороткометражныйРежиссер: В. ЮрловскийПродолжительность: 00:09:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AEFB296D58DC5FABDF71CE262029482B139D8E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 725062   (348261) от 21.11.2013
-
-Учебная фильмотека. Начальные классы. Времена года. Весна в лесу (1983) VHSRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Развивающее Видео для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348261.jpg" />
-</div>
-
-
-###  Подробнее
-
-В фильме показаны приметы весны, и как живёт лес весной.Производство: ЛеннаучфильмЖанр: Обучающий, КороткометражныйРежиссер: В. ЧигинскийПродолжительность: 00:09:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40AE0531A4F2BE70911766997CCE7CA1BF8E48BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

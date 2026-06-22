@@ -1,3 +1,108 @@
+###  Публикация: 1071808   (356222) от 11.11.2016
+
+Vector Magic Desktop Edition 1.20 (+fix for macOS 10.12) [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vector Magic Desktop Edition  - конвертирование изображений из растровой графики в векторную
+Графическая утилита Vector Magic Desktop Edition предназначена для конвертирования изображений из растровой графики в векторную. Утилита конвертирует растровые форматы: JPG, TIF, GIF, BMP в векторные: EPS, SVG и PDF, при этом качество векторизации даже выше, чем у аналогичных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16 февраля 2016Разработчик: Cedar Lake Ventures, IncПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B84B1B16C65ABC8586359EB480974DA32FF0F0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178505   (356115) от 28.10.2017
+
+Records 1.5.5 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Records очень простой и симпатичный органайзер для создания личных баз данных. Это отличное решение для домашних и небольших бизнес-задач. Это отличное решение для всего, что вы хотите, систематизировать в личной жизни или бизнесе, включая ваши любимые фильмы, предлагая отличный баланс между легкостью в использовании и мощными функциями. Records использует ряд macOS (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.10.2017Разработчик: Andrea GelatiПоддерживаемая ОС: OS X 10.11 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAC7373B6D03673695B323E72DFB3F2D63C8858B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178638   (355787) от 28.10.2017
+
+Weather Dock 3.7.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Погода Dock выводит информацию о погоде на ваш рабочий стол. Бросив взгляд на значок в док-панели, вы сможете узнать текущую погоду, прогноз на сегодня или на завтра. А один раз щелкнув мышью, вы можете открыть экран с подробными сведениями о погоде и прогнозом погоды на 7 дней.Тип издания: macOS SoftwareРелиз состоялся: 3.7.0Разработчик: Voros InnovationПоддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5ED970DB1EE26D644D39D1685E1A582E341AE6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417654   (355733) от 21.10.2020
+
+Ample Sound Ample PF v3.2.0 [En]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ample Sound Ample PF - цель - принести звук акустической гитары PRS Custom 24 в вашу студию.Тип издания: macOS SoftwareРелиз состоялся: 17.09.2020Разработчик: Ample Sound Co., LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E9845CF41F576B09A1A65C7FE9A1AF4E896BEAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577703   (354822) от 19.09.2022
 
 GraphicConverter 11 v.11.6.3 [Multi/Ru]
@@ -6,7 +111,7 @@ GraphicConverter 11 v.11.6.3 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354822.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Synkmark 3.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354819.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ KCNcrew Pack 09-15-22 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354736.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ Nova 9.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354658.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ NCH VideoPad Video Editor Pro 12.04 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354493.jpg" />
 </div>
 
 
@@ -137,7 +242,7 @@ Lingon X 6.3.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354418.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ Elmedia Player GO 6.13 (1435) [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354034.jpg" />
 </div>
 
 
@@ -194,7 +299,7 @@ Readiris Pro 17.1.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354033.jpg" />
 </div>
 
 
@@ -220,7 +325,7 @@ Decibel 1.3.5 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353872.jpg" />
 </div>
 
 
@@ -249,7 +354,7 @@ TrashMe 2.1.23 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353678.jpg" />
 </div>
 
 
@@ -276,7 +381,7 @@ Moneydance 2021 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353675.jpg" />
 </div>
 
 
@@ -304,7 +409,7 @@ Magic Retouch Pro 4.3 - panel for Adobe Photoshop [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353570.jpg" />
 </div>
 
 
@@ -332,7 +437,7 @@ DesiGN Brochures Templates 2.7 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353556.jpg" />
 </div>
 
 
@@ -360,7 +465,7 @@ Fake 1.8.10 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353440.jpg" />
 </div>
 
 
@@ -386,7 +491,7 @@ Boxy: email client for "Inbox by Gmail" 2.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353295.jpg" />
 </div>
 
 
@@ -415,7 +520,7 @@ Nisus Writer Pro 3.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352430.jpg" />
 </div>
 
 
@@ -441,7 +546,7 @@ Runway 1.8.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352396.jpg" />
 </div>
 
 
@@ -469,7 +574,7 @@ Artstudio Pro 4.1.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352321.jpg" />
 </div>
 
 
@@ -495,7 +600,7 @@ NetNewsWire 4.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352279.jpg" />
 </div>
 
 
@@ -522,7 +627,7 @@ DivX Pro 9 [Eng]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_352225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_352225.jpg" />
 </div>
 
 
@@ -550,7 +655,7 @@ BestZip 2-Unarchive 7z&rar&zip 1.6.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352198.jpg" />
 </div>
 
 
@@ -576,7 +681,7 @@ PureBasic 6.00 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352190.jpg" />
 </div>
 
 
@@ -587,114 +692,6 @@ PureBasic — современный язык программирования B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:697E31D1E30F6ED5A20BB0D20BC56A6F1CC1A341
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577853   (352188) от 20.09.2022
-
-FileMaker Pro 19 v.19.5.4.401 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352188.jpg" />
-</div>
-
-
-###  Подробнее
-
-FileMaker Pro - это платформа для разработки и для создания приложений.
-Выполните цифровую трансформацию с Claris FileMaker. Быстро создавайте собственные приложения, которые решат ваши бизнес-задачи сегодня - и завтра. Ускорьте свой бизнес, раскройте творческий потенциал своей команды и добейтесь лучших результатов.Тип издания: macOS SoftwareРелиз состоялся: 02.09.2022Разработчик: © 2021 Claris International Inc.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28451619699240087CC6740D203C0EAE7E75AFC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 578813   (352101) от 21.11.2012
-
-Xilisoft Video Converter Ultimate 7.3.0 [Eng]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_352101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Xilisoft Video Converter Ultimate — мощный и универсальный видео конвертер. Поддерживает большинство популярных видео форматов, в том числе DVD, VCD, SVCD, MOV, RM, AVI, MPEG, MPEG1, MPEG2, MPEG4, WMV, 3GP и других, извлечение аудио из видео в MP2, MP3, AC3, RA, M4A, OGG, AAC и другие форматы, пакетный режим конвертирования, предварительный просмотр во встроенном проигрывателе, выбор и настройка аудио и видео кодеков, настройка параметров конвертирования, простой и удобный интерфейс. С помощью Xilisoft Video Converter теперь можно преобразовывать обычное видео в 3D.Название программы: Xilisoft Video Converter UltimateРелиз состоялся: июнь 2012Тип издания: Mac OS X softwareЯзык интерфейса: English
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256744   (351999) от 23.10.2018
-
-Mirror for Sony TV 3.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отображение экрана для телевизоров Sony
-Приложения для зеркального отображения экрана вашего Mac на любом Смарт-ТВ Sony. Никаких проводов и дополнительных аппаратных средств не требуется!
-
-Приложение работает на любой модели Смарт-ТВ Sony с 2012 и позже.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.10.2018Разработчик: AirBeamTV BVПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCB187A45BFB211A0B49E1FFDB8C9824334BE459
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256796   (351994) от 23.10.2018
-
-Artistry Photo Pro: Photo Edit 3.0.1 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскройте скрытый потенциал на ваших фотографиях с помощью этого мощного редактора фотографий. Благодаря встроенным более 100 эффектам, более 90 типов настроек для настройки фотографий с цветовой обработки на гамма и корректировки кривой тона, наши инструменты редактирования дают пользователям возможность применить эффект или несколько эффектов для всей фотографии. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2018Разработчик: It's About Time ProductsПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Упрощенный китайский, Традиционный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04077FC75EFC2C2E611D44C3295FAE7070D7A7A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

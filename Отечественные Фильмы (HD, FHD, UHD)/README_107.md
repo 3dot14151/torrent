@@ -1,3 +1,108 @@
+###  Публикация: 1594540   (177708) от 01.12.2022
+
+Теплица (2021) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученый Василий Соколов воскрешает своих родственников, а вместе с ними и все старые семейные ссоры.Производство: РоссияЖанр: Короткометражный, комедия, фантастикаРежиссер: Андрей ЛукьяновАктеры: Сергей Епишев, Наталия Гаранина, Сергей Пахомов, Дарья Наумова, Антоний ЖердевСубтитры: отсутствуютПродолжительность: 00:11:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8F8EC44276746022783B2088AE61E17E5C6E9C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594479   (177545) от 01.12.2022
+
+Девушка на миллион (2022) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виктор Смоленский, владелец детективного агентства, поручает своим помощникам найти ему идеальную жену. Гонорар на двоих — один миллион рублей. Задача сложная: будущая супруга должна иметь внешность Мэрилин Монро и характер Наташи Ростовой. Однако судьба сведет Смоленского с полной противоположностью его идеала.Производство: Россия / Северное сияниеЖанр: комедияРежиссер: Мария ЕфремоваАктеры: Игорь Лифанов, Мария Ефремова, Илья Алексеев, Андрей Ургант, Евгений Раев, Анетта Орлова, Никита Комаров, Антон Савватимов, Данила Звягинцев, Серафима СмолинаПеревод: Не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:11:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E73CF2D5E7A51F195C1D6160E7116C599682B90F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429187   (177340) от 05.12.2020
+
+Переаттестация (2019) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тихое, интеллигентное, с виду приятное семейство прожило свою жизнь ни хорошо, ни плохо. После смерти они были отправлены в Чистилище - промежуточное состояние душ. Здесь они обречены на бесконечное чаепитие за светской беседой и решением хозяйственных дел канцелярии Ада. Семья состоит из отца, матери, бабушки, дочки и сына. Каждый - со своим характером и своими (   Читать дальше...   )Производство: Россия / CinePromoЖанр: Короткометражный, комедия, драмаРежиссер: Анна КузьминыхАктеры: Сергей Бурунов, Светлана Камынина, Татьяна Друбич, Анна Филиппцева, Даниил Вахрушев, Мария Миногарова, Дмитрий ГутовСубтитры: Отсутствуют
+Внимание! Присутствует ненормативная лексика.Продолжительность: 00:18:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05ACD9D7CF6B6BF921B2287EF1D6E78FD50CAD16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429186   (177215) от 05.12.2020
+
+Спутник (2020) BDRip [H.264/720p] [GER Transfer]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_177215.jpg" />
+</div>
+
+
+###  Подробнее
+
+СССР, 1983 год. На землю возвращается космический аппарат, но от людей скрывают, что из двух космонавтов живым возвращается только один. Что произошло на борту, остается загадкой, но факты указывают на то, что космонавты столкнулись с новой формой жизни и выживший вернулся не совсем один. На засекреченную военную базу, где космонавт Константин Вешняков содержится (   Читать дальше...   )Производство: Россия / Art Pictures Studio, «Водород», Hype FilmЖанр: Фантастика, триллер, драмаРежиссер: Егор АбраменкоАктеры: Оксана Акиньшина, Пётр Фёдоров, Фёдор Бондарчук, Антон Васильев, Виталия Корниенко, Наталья Швец, Алексей Демидов, Александр Марушев, Альбрехт Зандер, Александр Шам, Павел Устинов, Анна НазароваПеревод: Не требуется (Лицензия)Субтитры: Русские (Forced, SDH), английскиеПродолжительность: 01:53:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9BB27805171B52A74370A12D13A2B7AEC6670D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429586   (176541) от 06.12.2020
 
 Гагарин. Первый в космосе (2013) BDRip [H.265/1080p] [10-bit]
@@ -6,7 +111,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176541.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176445.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176370.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176290.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176249.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175789.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175778.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175772.jpg" />
 </div>
 
 
@@ -216,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175676.jpg" />
 </div>
 
 
@@ -242,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175425.jpg" />
 </div>
 
 
@@ -268,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175361.jpg" />
 </div>
 
 
@@ -294,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175040.jpg" />
 </div>
 
 
@@ -320,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175013.jpg" />
 </div>
 
 
@@ -347,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174948.jpg" />
 </div>
 
 
@@ -373,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174635.jpg" />
 </div>
 
 
@@ -399,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174625.jpg" />
 </div>
 
 
@@ -425,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173824.jpg" />
 </div>
 
 
@@ -451,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172969.jpg" />
 </div>
 
 
@@ -477,7 +582,7 @@ S.T.A.L.K.E.R.: Сердце ангела (2021) WEBRip [VP9/2160p]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172931.jpg" />
 </div>
 
 
@@ -504,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172913.jpg" />
 </div>
 
 
@@ -530,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171810.jpg" />
 </div>
 
 
@@ -556,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171284.jpg" />
 </div>
 
 
@@ -567,111 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9A6D4DC2BDCC722ECF7034E9BA70323F14F2758
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671503   (171183) от 25.10.2023
-
-Вечное новое (2021) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детство молодого православного священника Дмитрия прошло ещё в советское время, что отразилось на его воспитании и становлении, ведь ему пришлось расти меж двух огней. Самые родные и близкие люди были разделены на верующих и атеистов. Достигнув совершеннолетия, он принимает решение стать священником. На жизненном пути он сталкивается со злобой, жалостью, недоверием (   Читать дальше...   )Производство: Россия / 	Кинокомпания «Врата»Жанр: криминал, триллерРежиссер: Андрей ЛескинАктеры: Кирилл Запорожский, Константин Конюхов, Татьяна Колганова, Виталий Кудрявцев, Наталья Онищенко, Александр Абрамович, Надежда Анципович, Руслан Чернецкий, Макар Запорожский, Глеб ВоротынскийПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:27:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A60F83ADAE21AF9CA7F9471B85D4A90E0DF85D3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595629   (170401) от 09.12.2022
-
-...и будет дочь (2021) WEBRip [H.264/720p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девушка, город, кино, смерть отца, долгий путь на похороны... Теряя тех, кто близок и дорог, живя словно на грани между реальностью и снами, она находит сама себя и обретает желание жить дальше.Производство: Россия / Продюсерский центр ДЖАНЖанр: драмаРежиссер: Сергей Кудрявцев при участии Константина Рассолова, Адхама ХамдамоваАктеры: Елена Плужникова, Ольга Шалимова, Анастасия Гатилова, Ирина Гавра, Леонид Ардо, Константин Спичкин, Станислав Новиков, Галина Агафонова, Алиса Агафонова, Сергей КудрявцевПродолжительность: 01:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43B97A7EC4DEF47D017569C8D9E5384289A27C16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430635   (170329) от 10.12.2020
-
-Ворошиловский стрелок (1999) WEB-DLRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пенсионер, железнодорожник в отставке, скромно живёт со своей внучкой Катей. В соседнем доме постоянно собираются трое молодых бездельников, чувствующие себя безнаказанными хозяевами жизни. Однажды они хитростью заманили Катю к себе, где изнасиловали.
-Поначалу насильников арестовывают, однако отец одного из них - большой милицейский начальник - освобождает их. После (   Читать дальше...   )Производство: Россия, НТВ-ПрофитЖанр: Криминал, ДрамаРежиссер: Станислав ГоворухинАктеры: Михаил Ульянов, Анна Синякина, Александр Пороховщиков, Сергей Гармаш, Владислав Галкин, Алексей Макаров, Марат Башаров, Илья Древнев, Ирина Розанова, Георгий МартиросянСубтитры: русские, английские, польскиеПродолжительность: 01:34:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CB46519535803E3144A227048654499A2BC5EFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430384   (170176) от 10.12.2020
-
-Виктория (2020) WEB-DL [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кирилл — мужчина в самом расцвете сил, и к 40 годам ему удалось завоевать титул чемпиона Европы по боям без правил, а также счастливо избежать обязательств перед кем бы то ни было. У него нет ни жены, ни детей, на ринг он теперь выходит ради денег, а женщин меняет, как одноразовую посуду. Но однажды утром Кирилл встречает у себя на кухне пятилетнюю дочку одной из (   Читать дальше...   )Производство: Россия, Ural Mountain Studios, Solid ProductionЖанр: Комедия, спорт, семейныйРежиссер: Урал СафинАктеры: Максим Щеголев, Виталия Корниенко, Дмитрий Миллер, Женя Малахова, Игорь Ясулович, Нино Кантария, Андрей Борисов, Александр Загорский и др.Субтитры: ОтсутствуютПродолжительность: 01:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE30DBE0AB2236B0C44DB5FB2E013EC79583AB67
 ```
 
 https://mybot314.ru/tekegram_catalog/

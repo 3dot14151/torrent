@@ -1,3 +1,107 @@
+###  Публикация: 1179226   (321202) от 08.11.2017
+
+00:10 / Десять минут первого (2009) WEBRip [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что может случиться с человеком за 10 минут?Производство: РоссияЖанр: Короткометражный, комедияРежиссер: Илья ВласовАктеры: Артем Семакин, Анастасия Бондаренко, Денис ШведовСубтитры: ОтсутствуютПродолжительность: 00:11:43Реклама: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F91A9BF3E042C98351CB5CA4C0657AF36378D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259209   (321054) от 03.11.2018
+
+Санторини (2017) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321054.jpg" />
+</div>
+
+
+###  Подробнее
+
+После ссоры со своим молодым человеком Светлана на улице сталкивается с незнакомцем, который предлагает Свете совершить безумный поступок - отправиться с ним на остров Санторини…Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Сергей НиколаевАктеры: Надежда Игошина, Алексей Сидоров, Владимир СтолбенкоСубтитры: ОтсутствуютПродолжительность: 00:21:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56191AF1EE5E3977F62EE7C78847D54AC2D97D7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258819   (320633) от 03.11.2018
+
+Ты мой свет (2018) HDTVRip [H.265/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320633.jpg" />
+</div>
+
+
+###  Подробнее
+
+В день серебряной свадьбы муж внезапно сообщает Наталье (Мария Глазкова), что уходит от нее. Двадцать пять лет жизни в браке перечеркнуты. Жизнь разрушена и даже любимая работа в цветочном магазине не спасает от уныния, да еще бесцеремонный клиент изводит ее своими придирками. Но Наталья заставляет себя не обращать внимания на трудности и жить дальше ради сына, который (   Читать дальше...   )Производство: Россия /  «Паламеда Продакшн»Жанр: МелодрамаРежиссер: Эдуард ПальмовАктеры: Мария Глазкова, Никита Зверев, Ольга Дятловская, Дмитрий Егоров (III), Ольга Рептух, Анатолий Голуб, Алиса Петрова, Зоя Антонова, Евгений Казакевич, Олег ГарбузСубтитры: ОтсутствуютПродолжительность: 01:30:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F35A6925AE94E36E8DD75109230CBD9DBDDF89BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958960   (318544) от 23.11.2015
+
+Война полов (2015) WEB-DL [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что завтра на рассвете с каждым из нас случится, не знает никто. И когда ТРИ наших героя проснулись на необитаемом острове, в компании ДВУХ красивых… но не очень дружелюбных девушек… да еще без воды и еды… Вот тут они и поняли, что жизнь действительно полна сюрпризов!Производство: Россия, РИМЖанр: КомедияРежиссер: Кирилл КузинАктеры: Харальд Розенстрём, Александр Пальчиков, Екатерина Кузнецова, Сабина Ахмедова, Алексей Демидов, Марина Федункив, Анатолий Белый, Kristelle, Борис Эстрин, Артем СемакинПеревод: Не требуется (русский) iTunesПродолжительность: 01:26:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C46318323BAB0583312EA21F7394FFC0D5875BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959175   (318541) от 23.11.2015
 
 Алла в поисках Аллы (2015) HDTVRip [H.264/720p-LQ]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318541.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318472.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317928.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317926.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317896.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315962.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313328.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313325.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312946.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311551.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311342.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311264.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311137.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310533.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310510.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310442.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309549.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308815.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308738.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308297.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307952.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307389.jpg" />
 </div>
 
 
@@ -566,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E314B8FA33FB71EDEBA5AD9D3F7E5D2A262E673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183677   (307369) от 14.11.2017
-
-Прадед (2013) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возможна ли жизнь после смерти? Возможна ли радость, если война отняла твое будущее? Это фильм о стариках, которым ждать уже некого. А еще — о потерях, мечтах и надеждах.Производство: Грузия, РоссияЖанр: ДрамаРежиссер: Иракли КочламазашвилиАктеры: Анзор Кочламазашвили, Нели Навасардова, Тенгиз Цулаия, Мамука Ткешелашвили, Бадри ДреидзеПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91EEF4AFC5082136EFFA99E245A17055CB187B93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183216   (306969) от 14.11.2017
-
-Заложники (2017) Blu-ray [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начало 80-х. Советская Грузия. Всего несколько лет до распада Советского Союза. Молодые люди из уважаемых грузинских семей ищут себя в условиях закрытой системы. Музыка Beatles, джинсы, американские сигареты, положение в обществе, гарантированное будущее... У них, казалось, было все, кроме одного — свободы. Цена этой свободы окажется слишком высока... Подлинная история (   Читать дальше...   )Производство: Россия, ГрузияЖанр: Драма, триллер, биография, историяРежиссер: Резо ГигинеишвилиАктеры: Иракли Квирикадзе, Тинатин Далакишвили, Гига Датиашвили, Гиорги Грдзелидзе, Георгий Табидзе, Гиорги Хурцилава, Вахтанг Чачанидзе, Екатерина Калатозишвили, Бека Лемонджава, Мераб НинидзеПеревод: Дублированный (Лицензия); закадровый одноголосый (Ризо Гигинеишвили)Субтитры: Русские, английскиеПродолжительность: 01:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:635D6E1D37F68470F97D3A0542A798198157C398
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332661   (306944) от 23.10.2019
-
-Ничей (2019) WEB-DL [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306944.jpg" />
-</div>
-
-
-###  Подробнее
-
-После смерти матери двенадцатилетнего Колю отправляют в детский дом. Оттуда его забирает Валентина. Эта одинокая пожилая женщина — его родная тётя, с которой он прежде не был знаком. Коля ждёт, что старший брат после освобождения из тюрьмы приедет за ним, и они вместе вернутся домой.Производство: Россия, АТК-СтудиоЖанр: драмаРежиссер: Евгений ТатаровАктеры: Надежда Маркина, Олег Чугунов, Владимир Меньшов, Дарья Юргенс (Лесникова), Галина Бокашевская, Владимир Ямненко, Хельга Филиппова, Сергей Рост, Александр Тютрюмов, Андрей ШимкоПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:16:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38AC2FDC08E1CF54D216E1F5BDE58E022A4CC92D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960520   (306826) от 28.11.2015
-
-Жена по совместительству (2015) WEB-DL [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нина, молодая вдова и мама двух малолетних детей устраивается «домоправительницей» загородного дома к Анне, энергичной бизнесвумен. Сын Анны, Игорь, по виду типичный представитель «золотой» столичной молодёжи, совершает поступок – идет в военкомат с просьбой призвать его. Чтобы уберечь его от службы в армии, Анна вынуждает сына заключить фиктивный брак с Ниной: женатый (   Читать дальше...   )Производство: Россия/ Кинокомпания РусскоеЖанр: МелодрамаРежиссер: Андрей ЗаписовАктеры: Ольга Сухарева, Анна Якунина, Александр Солдаткин, Евгений Ганелин, Александр Никитин, Артём Падалка, Ксения Разина, Ася Калинина и др.Перевод: Не требуется (русский)Продолжительность: 01:30:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8036313BDEA2016C854675A00DB80C039004C745
 ```
 
 https://mybot314.ru/tekegram_catalog/

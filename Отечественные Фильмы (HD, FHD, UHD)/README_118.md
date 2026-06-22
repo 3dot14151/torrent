@@ -1,3 +1,107 @@
+###  Публикация: 1686464   (126566) от 23.12.2023
+
+Кибердеревня. Новый Год (2023) WEBRip [H.264/1080p] (Новогодний спецэпизод)
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126566.jpg" />
+</div>
+
+
+###  Подробнее
+
+31 декабря 2099 года по всей Солнечной системе накрывают столы и наряжают киберёлки, а марсианский фермер Николай ждёт к себе в гости с Земли жену и двух дочерей. Но что делать, если из-за аномальной солнечной активности отменяют все межпланетные перелёты? Новый год — праздник семейный, и Николай решает во что бы то ни стало добраться до родных. Помогут ему в этом (   Читать дальше...   )Производство: Россия / Место силы, Плюс СтудияЖанр: фантастика, комедияРежиссер: Сергей ВасильевАктеры: Сергей Чихачёв, Ольга Жевакина, Влада Лукина, Маргарита СилаеваСубтитры: Русские (full, SDH)Продолжительность: 00:27:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48BC9EE28396B46CE7278EAD2DC3456998EB5049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686029   (126558) от 23.12.2023
+
+Баба Мороз и тайна Нового года (2023) WEBRip [H.264/1080p]
+
+>>След.
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оказывается, у Деда Мороза есть жена, и она исполняет желания взрослых. Но те перестали верить в чудеса, и волшебница превратилась в обычную домохозяйку. Однако в этом году все изменится.Производство: Россия, Красный квадратЖанр: комедия, семейный, приключенияРежиссер: Андрей БогатыревАктеры: Юлия Александрова, Татьяна Орлова, Иван Стебунов, Максим Лагашкин, Полина Айнутдинова, Виктор Бычков, Ольга Сташкевич, Денис Кузнецов, Михаил Богдасаров, Марина ЯковлеваПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2371612F8A0DD0045242249CEA863CDC61C7B7AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686436   (126525) от 23.12.2023
+
+Кибердеревня. Новый Год (2023) WEBRip [H.265/2160p] [4K, SDR, 8-bit] (Новогодний спецэпизод)
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126525.jpg" />
+</div>
+
+
+###  Подробнее
+
+31 декабря 2099 года по всей Солнечной системе накрывают столы и наряжают киберёлки, а марсианский фермер Николай ждёт к себе в гости с Земли жену и двух дочерей. Но что делать, если из-за аномальной солнечной активности отменяют все межпланетные перелёты? Новый год — праздник семейный, и Николай решает во что бы то ни стало добраться до родных. Помогут ему в этом (   Читать дальше...   )Производство: Россия / Место силы, Плюс СтудияЖанр: Фантастика, комедияРежиссер: Сергей ВасильевАктеры: Сергей Чихачёв, Ольга Жевакина, Влада Лукина, Маргарита СилаеваСубтитры: Русские (full, SDH)Продолжительность: 00:27:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6A2E8347DE1142C5F3823C20AD39CDE8415FE21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686512   (126524) от 23.12.2023
+
+Кибердеревня. Новый Год (2023) WEBRip [H.265/2160p] [4K, HDR10] (Новогодний спецэпизод)
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126524.jpg" />
+</div>
+
+
+###  Подробнее
+
+31 декабря 2099 года по всей Солнечной системе накрывают столы и наряжают киберёлки, а марсианский фермер Николай ждёт к себе в гости с Земли жену и двух дочерей. Но что делать, если из-за аномальной солнечной активности отменяют все межпланетные перелёты? Новый год — праздник семейный, и Николай решает во что бы то ни стало добраться до родных. Помогут ему в этом (   Читать дальше...   )Производство: Россия / Место силы, Плюс СтудияЖанр: фантастика, комедияРежиссер: Сергей ВасильевАктеры: Сергей Чихачёв, Ольга Жевакина, Влада Лукина, Маргарита СилаеваСубтитры: Русские (full, SDH)Продолжительность: 00:27:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:108B5704014F76B58A47C8B09E860CE4F147D4AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686536   (126516) от 23.12.2023
 
 Триггер. Фильм (2023) WEBRip [H.265/2160p] [4K, HDR10]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126516.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126375.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126374.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126160.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125640.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125635.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125497.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125349.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125253.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125240.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125145.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125131.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125129.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125128.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125107.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124981.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124963.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124836.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124793.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124741.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124740.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124726.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B5603416E5671F35C9FD032DC354853E2119689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688475   (124700) от 02.01.2024
-
-Папины дочки. Новогодние (2023) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веник отказывается от предложения Аллигатора улететь всей семьей на Мальдивы и везет дочек, Тамару, Машу и соседа Борю в подмосковный комплекс с пятизвездочным отелем, бассейном и горнолыжной трассой. Правда, на месте компания понимает, что все не так роскошно, как им обещал Веник.Производство: Россия | «START»Жанр: Комедия, семейныйРежиссер: Дмитрий ГрибановАктеры: Филипп Бледный, Виталия Корниенко, Ева Смирнова, Полина Айнутдинова, Полина Денисова, Мирослава Карпович, Татьяна Орлова, Александр Олешко, Алексей Демидов, Михаил СотниковСубтитры: РусскиеПродолжительность: 01:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84949B668F34966D4C068E5EF0E13D0F80840178
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688135   (124639) от 03.01.2024
-
-Страсти по Матвею (2023) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Матвей — молодой прилежный алтарник, который мечтает стать священником. Агата — спонтанная дерзкая художница, которая не привыкла ничего планировать наперед. После знакомства Матвей и Агата понимают, что их разные на первый взгляд миры объединяют одни и те же проблемы и ценности. Но смогут ли они это по-настоящему осознать?Производство: Россия / QS Films, START, Yellow, Black & WhiteЖанр: мелодрама, комедияРежиссер: Сергей ИльинАктеры: Денис Власенко, Валери Зоидова, Тимофей Трибунцев, Алексей Розин, Ольга Медынич, Анар, Ольга Бодрова, Иван Кравченко, Александр Мизёв, Валерия ЧеловечковаПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 02:00:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95FF7E5853EB639B88A4F0A89A7BA4D2FA9C8831
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689493   (124629) от 03.01.2024
-
-Не скажу (2023) WEB-DL [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Накануне Нового года Павел по ошибке берёт чужое пальто, в котором находит дорогое украшение. Дома он понимает, что письмо дочери Деду Морозу осталось в кармане его утерянного пальто. Отец семейства вместе с супругой пытается выяснить, что именно загадала девочка. Но шестилетняя Варя боится рассказывать о своей мечте, иначе она не сбудется. Чтобы сохранить веру в (   Читать дальше...   )Производство: Россия / ЛУКФИЛЬМ / LOOKFILM, Телеканал СТСЖанр: комедия, семейныйРежиссер: Петр ЯковлевАктеры: Мария Андреева, Анна Рыцарева, Степан Девонин, Антон Васильев, Алиса Прохорова, Борис Дейков, Татьяна ЛютаеваПеревод: не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:25:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FD27B99DE59E5DDE6FCB56291D2B37C0A9BE5AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689576   (124622) от 03.01.2024
-
-Моя ужасная сестра 2 (2023) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124622.jpg" />
-</div>
-
-
-###  Подробнее
-
-В семействе Юли и Максима родится еще одна девочка, которая станет объектом обожания для Лены и Сони. Пока родители заняты заботами о малышке и проблемами собственных отношений, старшим сёстрам придется справиться с новыми поводами для бунта, чтобы в итоге понять: даже если кажется, что всё в мире обернулось против, семья обязательно поймет и поддержит.Производство: Россия / Смарт Фильм, «Наше кино», Мотор Фильм СтудияЖанр: комедияРежиссер: Александр ГалибинАктеры: Наталья Чистякова-Ионова, Владимир Яглыч, София Петрова, Лариса Удовиченко, Алёна Малахова, Евгения Мауэргауз, Марина Яковлева, Сергей Бледных, Никита Чеканов, Никита БрусовПеревод: Не требуется (Русский)Субтитры: РусскиеПродолжительность: 01:23:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77BDFD94B03FE24F61FC5A20187751D820663F64
 ```
 
 https://mybot314.ru/tekegram_catalog/

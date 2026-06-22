@@ -1,3 +1,133 @@
+###  Публикация: 1826852   (173433) от 20.10.2025
+
+The Supper (2020) [En] (1.01a) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173433.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Supper - приключенческая игра, раскрывающая темные стороны человеческой души. В центре сюжета добродушная мисс Эпплтон. Она всегда была рада гостям и отличалась заботой. Но однажды внутренний голос заговорил с ней. Героиня просыпается на кухне своей таверны. Ее внутреннее "я" повелевает ей подать "особые" блюда гостям. Вам предстоит исследовать (   Читать дальше...   )Тип издания: LicenseРазработчик: White Blanket GamesЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC1AAFC091C609B98374C397EE46EDB1A195B990
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668612   (173299) от 13.10.2023
+
+Storyteller (2023) [Ru/Multi] (20230927) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Storyteller – это необычная головоломка, в которой игроку предстоит создавать свои истории по заданной тематике и наиболее корректно передавать ее суть. Геймеру будут даны персонажи и несколько сцен на выбор, с помощью которых он должен будет создать собственное видение описанной ситуации. Иногда происходящее может принимать неожиданные обороты, если случайно заменить (   Читать дальше...   )Тип издания: SceneРазработчик: Daniel BenmerguiЖанр: Приключенческие игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4862752B0D217EDD6DDABAD83227614249439BA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668701   (173295) от 13.10.2023
+
+Torn Away (2023) [Ru/Multi] (12315550) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Асе десять лет. Она хочет пускать кораблики по ручью, играть с друзьями во дворе и спешить домой, когда мама зовёт ужинать. Но Европа охвачена огнём Второй мировой войны, а миллионы советских людей угнаны на принудительные работы в Германию. Ася вместе с мамой оказались в их числе. Спустя несколько невыносимых месяцев в трудовом лагере, Асе удаётся бежать. Теперь (   Читать дальше...   )Тип издания: SceneРазработчик: perelesoqЖанр: Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB7F789992A95BC712EA84BAA12D39CD977B41C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668840   (173143) от 14.10.2023
+
+Monolith (2023) [Multi] (1.0.1.3) Scene Rune
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научно-фантастическое приключение молодой и отважной космической исследовательницы по имени Тесса Картер. Представьте себе, что вы открываете глаза и обнаруживаете себя на незнакомой планете, после крушения вашего космического корабля. Ваша память о том, что произошло и как вы оказались здесь, подводит вас, и теперь только вы сможете разгадать эту загадку. Вас сопровождает (   Читать дальше...   )Тип издания: SceneРазработчик: Animation ArtsЖанр: Приключение, Квест, МистикаЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C04506F6978C8AEB676518B7B56D02FD9A9D4D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668889   (173132) от 14.10.2023
+
+Haunted House (2023) [Multi] (1.0) Scene Rune
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173132.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Haunted House, переосмысленной классической игре для Atari, царит атмосфера холода и скрытности! Игроки берут на себя управление Лин Грейвс, юной племянницей легендарного охотника за сокровищами Закари Грейвса. Лин приезжает в особняк своего дяди вместе с ближайшими соотечественниками, но обнаруживает, что дом переполнен упырями и монстрами, которые быстро хватают (   Читать дальше...   )Тип издания: SceneРазработчик: Orbit StudioЖанр: Экшены, Приключенческие игрыЯзык субтитров: Английский, Немецкий, Испанский, Португальский БразильскийЯзык интерфейса: Английский, Немецкий, Испанский, Португальский Бразильский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96A6B672A8167B20D1EE59E9C461AE0E63D89DDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669009   (173128) от 14.10.2023
 
 Last Lesson (2023) [Ru/En] (1.0) Scene Tenoke
@@ -6,7 +136,7 @@ Last Lesson (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173128.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Aka Manto (2019) [Multi] (1.0) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172784.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Stigmatized Property (2019) [Ru/Multi] (1.0) Scene PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172764.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Inunaki Tunnel (2019) [Multi] (1.0) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172750.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Yuki Onna (2020) [Multi] (1.0) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172748.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Windy Meadow A Roadwarden Tale (2023) [En] (1.0.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172240.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Night Loops (2023) [En] (1.0) Scene Tenoke [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172038.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Tribe: Primitive Builder (2023) [Ru/Multi] (1.0.17) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171978.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Kona II: Brume (2023) [Ru/Multi] (Build 12466960) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171970.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Crowns and Pawns: Kingdom of Deceit (2022) [Ru/Multi] (1.1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171791.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Lair of Torment (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171671.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ Vlad Circus: Descend into Madness (2023) [Ru/Multi] (2.34) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171640.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ The Gap (2023) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171474.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Fears to Fathom: Ironbark Lookout (2023) [Ru/Multi] (1.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171463.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Under The Waves (2023) [Ru/Multi] (1.0.5) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171290.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ Warcraft Adventures: Lord of the clans (1998) [Ru] (3.1) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170947.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Happy's Humble Burger Farm (2021) [Ru/Multi] (1.16.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170792.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Chorus (2021) [Ru/Multi] (Build 7785124) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170688.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Machinarium / Машинариум (2009) [Ru/Multi] (4041) License GOG [Collect
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170646.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ Stray Souls (2023) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170581.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ The Divine Invasion (2021) [Ru/Multi] (1.0.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169833.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ The Divine Invasion (2021) [Ru/Multi] (1.0.0) License PLAZA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4678A084FAE8568A6FEE43347A13220C2466732D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670381   (169624) от 27.10.2023
-
-Agatha Christie - Murder on the Orient Express (2023) [Ru/Multi] (20231023) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами модернизированная версия классического романа Агаты Кристи. На сей раз события «Убийства в Восточном экспрессе» разворачиваются в 2023 году: новая интерпретация классического сюжета удивит самых преданных фанатов. Новые подробности добавляют напряжения и таинственности оригинальной истории. Откройте для себя заново одно из самых знаменитых дел Эркюля Пуаро!Тип издания: SceneРазработчик: Microids Studio LyonЖанр: Action, Adventure, SimulationЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7778504A9FEC33691B3651CD9717A29C41F1C17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430512   (169154) от 11.12.2020
-
-Unto The End (2020) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unto The End – зрелищный рисованный платформер о долгой и трудной дороге домой. Овладейте мастерством боев на мечах, наблюдая за врагами и импровизируя. Используйте артефакты и выменивайте припасы. Напишите своими деяниями историю о возвращении в родной дом.Тип издания: RepackРазработчик: 2 Ton StudiosЖанр: Adventure (Platform), Action, 3DЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07C3F64436A16E0B2A3D6BCC251F971BEBE3C006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671571   (168649) от 28.10.2023
-
-Slay the Princess (2023) [En] (20231024) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы идете по лесной тропе, и в конце этой тропы стоит хижина. А в подвале этой хижины находится Принцесса. Ты здесь, чтобы убить ее. Если вы этого не сделаете, это будет конец света. Она сделает все, что в ее силах, чтобы остановить вас. Она очарует, и она солжет, и она пообещает тебе мир, и если ты позволишь ей, она убьет тебя дюжину раз. Вы не можете позволить этому (   Читать дальше...   )Тип издания: SceneРазработчик: Black Tabby GamesЖанр: Приключенческие игры, Инди, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE8309275CE3905D501055C9CCFA21B0A8C0843D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596902   (167833) от 12.12.2022
-
-Titan Station (2022) [Ru/Multi] (1.2) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Titan Station — это однопользовательская мистерия от первого лица, действие которой разворачивается в ретро-фантастической вселенной. В далеком 1999 году Дэвид бежит от проблем, устраиваясь системным оператором на космическую станцию. Однако, привычная работа на станции превращается в борьбу за выживание, когда Дэвид делает шокирующее открытие.Тип издания: RepackРазработчик: Joakim LarsenЖанр: Adventure (Space), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66817403CC2AE8BF89B2D9986A39C57ECFFB51A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337552   (167731) от 13.12.2019
-
-Trine 4: The Nightmare Prince (2019) [Ru/Multi] (1.0.0.8109/dlc) Repack R.G. Механики
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Trine 4: The Nightmare Prince – очередная часть в серии логических платформеров Trine. Присоединяйтесь к тройке ключевых героев из предыдущих частей игры (рыцарю Понтию, воровке Зои и магу Амадею) и отправляйтесь в новое сказочное приключение, чтобы спасти мир от теней Принца Кошмаров. Trine 4 предложит вам как одиночное, так и кооперативное прохождение с множеством (   Читать дальше...   )Тип издания: RepackРазработчик: FrozenbyteЖанр: Action, Adventure, PlatformerЯзык озвучки: Русский, Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:358B545EC98D6AE52FBA8C7ED2594C8078755EC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

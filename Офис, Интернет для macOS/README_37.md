@@ -1,3 +1,56 @@
+###  Публикация: 1336316   (280940) от 06.11.2019
+
+MailRaider 3.69 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280940.jpg" />
+</div>
+
+
+###  Подробнее
+
+MailRaider Pro - небольшая  утилита, которая поможет вам просмотреть почтовые файлы формата Outlook MSG и при необходимости извлечь вложения и преобразовать электронные письма в RTF или EML формат.Тип издания: macOS SoftwareРелиз состоялся: 01.11.2019Разработчик: 45RPM SoftwareПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D25FA94CB322D65E9D85C40986CBC14C6F76640E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336367   (280806) от 06.11.2019
+
+RealDNS - Dynamic DNS update client 7.4.3 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280806.jpg" />
+</div>
+
+
+###  Подробнее
+
+RealDNS - клиент обновления динамических DNS
+RealDNS -  один из лучших клиентов для обновления динамических DNS, с iCloud синхронизацией. Приложение работает с 16 популярными провайдерами динамических DNS: Dyn, NoIP, FreeDNS, ChangeIP, DuckDNS, XpertDNS, Strato, DynDNS.it, DtDNS, EasyDNS, DNS Made Easy, CloudFlare, Google Domains, Namecheap, Hurricane Electric и Loopia. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.11.2019Разработчик: MingleBit SRLПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:056325E8F030CE646328628BB096F968041132ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1187423   (280600) от 28.11.2017
 
 Image Viewer 2.1 [En]
@@ -6,7 +59,7 @@ Image Viewer 2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280600.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ Bookends 13.1.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279572.jpg" />
 </div>
 
 
@@ -62,7 +115,7 @@ Microsoft Office for Mac 2016 v15.28 VL [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278060.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277257.jpg" />
 </div>
 
 
@@ -116,7 +169,7 @@ Infographics for Pages 3.1.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277252.jpg" />
 </div>
 
 
@@ -143,7 +196,7 @@ PDFelement Express 1.0.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276582.jpg" />
 </div>
 
 
@@ -169,7 +222,7 @@ Tipard PDF Converter for Mac 3.1.30 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276326.jpg" />
 </div>
 
 
@@ -196,7 +249,7 @@ MarkdownD 3.7.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274973.jpg" />
 </div>
 
 
@@ -225,7 +278,7 @@ Themes for Keynote 5.1.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274844.jpg" />
 </div>
 
 
@@ -253,7 +306,7 @@ Templates Bundle for iWork 4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274843.jpg" />
 </div>
 
 
@@ -282,7 +335,7 @@ Cloud Outliner Pro 2 v2.5.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274196.jpg" />
 </div>
 
 
@@ -308,7 +361,7 @@ MindNode 5 v5.0.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274145.jpg" />
 </div>
 
 
@@ -336,7 +389,7 @@ PDFelement 6 Pro - PDF & OCR v6.7.9 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273998.jpg" />
 </div>
 
 
@@ -362,7 +415,7 @@ Adobe InCopy 2020 v15.0.0.155 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273711.jpg" />
 </div>
 
 
@@ -390,7 +443,7 @@ Debit & Credit - Учет финансов 2.5.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273510.jpg" />
 </div>
 
 
@@ -416,7 +469,7 @@ Adobe InDesign 2020 v15.0.0.155 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273358.jpg" />
 </div>
 
 
@@ -442,7 +495,7 @@ Templates for Excel by GN 4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273159.jpg" />
 </div>
 
 
@@ -468,7 +521,7 @@ Cookie 6.0.6 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265369.jpg" />
 </div>
 
 
@@ -496,7 +549,7 @@ MonthlyCal 1.5.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264702.jpg" />
 </div>
 
 
@@ -522,7 +575,7 @@ Proxifier for Mac 2.26 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263547.jpg" />
 </div>
 
 
@@ -548,7 +601,7 @@ NeoOffice 2017.19 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262823.jpg" />
 </div>
 
 
@@ -576,7 +629,7 @@ Romanysoft SpeedTest 7.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262232.jpg" />
 </div>
 
 
@@ -603,7 +656,7 @@ CalcTape Paper Tape Calculator 1.4.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262092.jpg" />
 </div>
 
 
@@ -632,7 +685,7 @@ Day One 2.5.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262063.jpg" />
 </div>
 
 
@@ -643,59 +696,6 @@ Day One 2.5.5 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46AB7BF30543AED517FA35504FC9203A2FF8C635
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564801   (249661) от 20.07.2022
-
-IP Scanner Pro 4.06 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249661.jpg" />
-</div>
-
-
-###  Подробнее
-
-IP Scanner Pro - сканер локальной сети для Mac OS X
-IP Scanner - приложение сканирует локальную сеть для установления всех компьютеров и устройств с IP-адресом. Результаты сканирования могут быть организованы так, как вам будет удобно. Как только устройство будет определено, ему можно присвоить любое имя и иконку, для более легкого распознавания в общем списке.Тип издания: macOS SoftwareРелиз состоялся: 26.06.2022Разработчик: © 2005-2022, 10base-t interactiveПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0322F42AE03F3A067F7768D397710C9B5D9FA64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448567   (245805) от 18.02.2021
-
-Convertos 2.0 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Convertos - потрясающий конвертер величин.Тип издания: macOS SoftwareРелиз состоялся: 09.11.2020Разработчик: Vitaly Kuz'menkoПоддерживаемая ОС: macOS 10.12.2+Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14B495A6641F8131D52219E3BAD93C2E8C6DE160
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,133 @@
+###  Публикация: 1083714   (423431) от 17.09.2017
+
+Batman - The Telltale Series (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst [Episode 1-5]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Batman: The Telltale Series - видеоигра об одном из самых популярных героев вселенной DC Сomics рассказывает совершенно новую, самостоятельную историю, полную увлекательных приключений и неподдельного драматизма. Миллиардер и супергерой - Брюс Уэйн ведет двойную жизнь, и его сложно назвать нормальным человеком. Представьте на его месте себя и приготовьтесь встретить (   Читать дальше...   )Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7A1E2605500BED5F4BD935D6B59184106DDB76E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065025   (422944) от 21.10.2016
+
+Overclocked: A History of Violence / Overclocked. Оправданная жестокость (2007) [Ru/En] (1.1) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра Overclocked, действие которой разворачивается на фоне страшной грозы, обрушившейся на Нью-Йорк, исследует вечную и в то же время самую актуальную проблему человечества - насилие. Этот психологический хоррор смешивает пугающие художественные элементы, используя самые необычные повествовательные структуры. Мир игры смешивает границы между воспоминаниями и иллюзиями, (   Читать дальше...   )Тип издания: LicenseРазработчик: House of TalesЖанр: Adventure, Interactive MovieЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33B212E60F3D143B7B63935D1439026CB4FE1575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021785   (422817) от 21.10.2016
+
+The Descendant (2016) [En] (3.2/dlc) Repack Other s [Episode 1-4]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422817.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Descendant — это приключенческая игра в сеттинге техногенного апокалипсиса, выполненная в стилистике мультфильма. В результате полного криогенного апокалипсиса, человечеству пришлось уйти под землю, и там начинать выстраивать новую жизнь.Тип издания: RepackРазработчик: Gaming Corps ABЖанр: Adventure (Space), 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C5EF584112D43A62C13A0652CBF284D838CB0E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324713   (422780) от 10.09.2019
+
+The Walking Dead: The Telltale Definitive Series (2019) [Ru/Multi] (1.0) License CODEX
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422780.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Walking Dead: The Telltale Definitive Series содержит все четыре сезона, дополнение 400 Days и The Walking Dead: Michonne — всего 23 уникальных эпизода, которые подарят игрокам более 50 часов игры. Издание с графическими улучшениями, бонусами от создателей и тщательно воссозданными классическими меню — это лучший способ пройти путь Clementine и узнать, чем заканчивается (   Читать дальше...   )Тип издания: LicenseРазработчик: Skybound GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:775C897BBE28E47F1407DBF26728216208CE3B83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412231   (420073) от 28.09.2020
+
+The Vanishing of Ethan Carter (2014) [Multi] (1.04) License GOG [Redux]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра The Vanishing of Ethan Carter теперь доступна в версии Redux – переработанной с помощью Unreal Engine 4 оригинальной игры для PC. The Vanishing of Ethan Carter – сюжетная мистическая игра от первого лица, полностью посвященная исследованию и открытиям. Никаких битв и никаких взрывов. Если игра и нанесет вам травму, надеемся, вы ее не заметите.Тип издания: LicenseРазработчик: The AstronautsЖанр: Экшн, Приключение, ХоррорЯзык озвучки: Английский, ПольскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B8BBBBB4BF5A23806EBEB1980C01D29B7813349
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411958   (420067) от 28.09.2020
 
 Panzer Dragoon: Remake (2020) [Ru/Multi] (0.8.1) License GOG
@@ -6,7 +136,7 @@ Panzer Dragoon: Remake (2020) [Ru/Multi] (0.8.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420067.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Trollhunters: Defenders of Arcadia / Охотники на троллей: За�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420021.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Octave (2016) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418029.jpg" />
 </div>
 
 
@@ -85,7 +215,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) Repack CoolGames [Epi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416643.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ Best Month Ever! (2022) [Ru/Multi] (1.0.0_020) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416064.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ Jotun (2015) [Ru/Multi] (11-09-2019) License GOG [Valhalla Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415901.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ Don't Starve (2013) [Ru/En] (429404/dlc) License GOG [Alone Pack]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415293.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ Gabriel Knight: Sins of the Fathers (2014) [Multi] (1.0) License [20th Anniversa
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414111.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ Projection: First Light (2020) [Ru/Multi] (2.0.1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413151.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ Sea of Solitude (2019) [Multi] (1.0.0.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412098.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ Sea of Solitude (2019) [Multi] (1.0.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411941.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ The Bridge Curse Road to Salvation (2022) [Multi] (1.5.6) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411755.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ Full Throttle (1995) [Ru/En] (2.0) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411081.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ The Talos Principle (2014) [Ru/Multi] (1.0) License GOG [Gold Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409202.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ Ginger: Beyond the Crystal (2016) [Ru/Multi] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409148.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ The Deep Paths: Labyrinth Of Andokost (2016) [En] (1.0.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409076.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ Tales from the Borderlands (2014-2015) [En] (1.0) License GOG [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408944.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ Figment (2017) [Ru/Multi] (1.0) Repack CoolGames
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408556.jpg" />
 </div>
 
 
@@ -476,7 +606,7 @@ The Church in the Darkness (2019) [Ru/Multi] (1.0.8) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408300.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ Observation (2019) [Ru/Multi] (1.17) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407750.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ Heaven's Vault (2019) [En] (1.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407317.jpg" />
 </div>
 
 
@@ -539,138 +669,6 @@ Heaven's Vault (2019) [En] (1.11) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E73D0EEEEEECA2A00B47F059D2BB1A7037C1645
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413733   (407051) от 05.10.2020
-
-Runaway 3: A Twist of Fate (2011) [En] (2.0.0.9) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Некоторые говорят, что Брайан сошел с ума и ловит чертей. Другие утверждают, что он впал в бешенство и кого-то убил. Третьи клянутся, что все еще хуже: он стал бомжом и бродит, неприкаянный, по холодным и темным улицам Нью-Йорка. Четвертые уверены, что он греется на солнышке где-то на Гавайях. Джина, девушка Брайана, сделает все что угодно, лишь бы найти его и доказать (   Читать дальше...   )Тип издания: LicenseРазработчик: Pendulo StudiosЖанр: Приключение, Экшн, ДетективЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40AE7269B78B823E87F9A80E7E78CC144086B22A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168782   (404662) от 25.09.2017
-
-Simon the Sorcerer 3D (2002) [Ru/En] (2.0) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Simon the Sorcerer 3D (также известна как Simon 3D) - компьютерная игра в жанре квеста, разработанная компанией Headfirst Productions для платформы Windows и выпущенная компанией Adventure Soft 26 апреля 2002 года. Сюжет игры продолжает историю, оборвавшуюся в конце Simon the Sorcerer II: The Lion, the Wizard and the Wardrobe, и начинается спустя немного времени (   Читать дальше...   )Тип издания: LicenseРазработчик: Headfirst ProductionsЖанр: Приключение, От третьего лица, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61361A9BA6D129FB106ED62D4358E2F5654D5DD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169487   (402891) от 27.09.2017
-
-Danganronpa V3: Killing Harmony (2017) [En/Ja/Ch] (1.0) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Danganronpa V3: Killing Harmony — предстоящая визуальная новелла, принадлежащая к серии Danganronpa и разрабатываемая Spike Chunsoft. Это третья основная игра, которая одновременно является и сиквелом, и чем-то новым.Тип издания: LicenseРазработчик: Spike ChunsoftЖанр: Adventure, Quest, NovellaЯзык озвучки: Английский, ЯпонскийЯзык интерфейса: Английский, Японский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7F18C611EE5A98309B54D7A0D10D7BA2765920A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564686   (401687) от 24.10.2012
-
-Black Mirror: Anthology / Чёрное зеркало: Антология [Ru/En] (Repack/1.0-1.20) 2003-2011 | R.G. Catalyst
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чёрное зеркало — это название родового поместья семьи Гордон в Англии, куда после 12-летнего отсутствия возвращается Сэмюэл Гордон. Он покинул родовое гнездо сразу после смерти своей жены, которая погибла при пожаре в одной из частей поместья. И вот теперь, снова в Чёрном зеркале несчастье — Уильям Гордон, дед Сэмюэла, покончил жизнь самоубийством. Но Сэмюэл не верит в то, о чём его уверяют обитатели поместья и полиция, он уверен, что эта смерть не случайна. Страдая от ночных видений, кошмаров и провалов в памяти, Сэмюэл пытается найти виновника смерти своего деда, потому что убийства в поместье продолжаются.
-
-Подозревая каждого из обитателей поместья (вдову Уильяма, старшего сына, прислугу), Сэмюэл начинает распутывать тайну семейства Гордонов. Для этого он даже отправляется в Уэльс к дальним родственникам Уильяма, путешествует по различным подземельям и катакомбам, находит спрятанного в психиатрической клинике родственника. Все найденные им улики указывают на то, что убийства совершает кто-то из своих. Но с каждым днём живых подозреваемых становится всё меньше и меньше.(   Читать дальше...   )Тип издания: RePackЖанр: AdventureЯзык озвучки: Английский / РусскийЯзык субтитров: Английский / РусскийЯзык интерфейса: Английский / Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F02E2AC229FDEC1EA1DEF8C2BCB131D4CF5D18E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144191   (398263) от 02.10.2017
-
-RiME (2017) [Ru/Multi] (1.04) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами простирается край, полный загадок. Исследуйте прекрасный и суровый мир RiME, приключенческой головоломки для одного игрока. В RiME вам предстоит превратиться в маленького мальчика и оказаться на загадочном острове после жестокой бури. Вы встретите диких животных, обнаружите заброшенные руины, и увидите гигантскую башню, которая так и манит подойти поближе. (   Читать дальше...   )Тип издания: LicenseРазработчик: Tequila WorksЖанр: Action, 3D, 3rd PersonЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E302CDAFE6F98D47061ABAE6C380731754C97B88
 ```
 
 https://mybot314.ru/tekegram_catalog/

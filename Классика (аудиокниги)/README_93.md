@@ -1,3 +1,56 @@
+###  Публикация: 1760331   (37372) от 13.11.2024
+
+Жозе Сарамаго | Странствие слона (2015) [MP3, Ирина Ерисанова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман «Странствие слона» (A Viagem do Elefante, 2008) – предпоследняя книга Жозе Сарамаго (1922–2010), португальского писателя и лауреата Нобелевской премии по литературе 1998 года. В этом романе король Португалии Жуан III Благочестивый преподносит эрцгерцогу Максимилиану, будущему императору Священной Римской империи, необычный свадебный подарок – слона по кличке (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Александр БогдановскийИздательство: Нигде не купишьПродолжительность: 08:34:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9F9B732B817B8ABB50D87855E2A1AE129EAC12A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 339829   (36916) от 18.11.2024
+
+Кретьен де Труа | Персеваль (2007) [MP3, Светлана Репина]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Антология мудрости.
+Старинная европейская литература. Из глубины веков нами унаследовано уважение к рыцарскому кодексу чести и преклонение перед духом истинного рыцарства. Традиционным воплощением этих добродетелей служит благородный король Артур, окруженный рыцарями Круглого стола, образцовыми в отношении нравственности, религиозности, благородства, (   Читать дальше...   )Жанр: Зарубежная литература, классика, рыцарский романПеревод: Дмитрий ВишневскийИздательство: Нигде не купишьПродолжительность: 06:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21F4CEDAE0B362FE5014FCA9C187293842A22677
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 315884   (35897) от 28.11.2024
 
 Пьер Бенуа | Дорога гигантов (2011) [MP3, Евгений Терновский]
@@ -6,7 +59,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35897.jpg" />
 </div>
 
 
@@ -35,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35840.jpg" />
 </div>
 
 
@@ -64,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35837.jpg" />
 </div>
 
 
@@ -92,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35374.jpg" />
 </div>
 
 
@@ -119,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35361.jpg" />
 </div>
 
 
@@ -145,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35267.jpg" />
 </div>
 
 
@@ -172,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35265.jpg" />
 </div>
 
 
@@ -199,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35253.jpg" />
 </div>
 
 
@@ -228,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35096.jpg" />
 </div>
 
 
@@ -254,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35093.jpg" />
 </div>
 
 
@@ -281,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35088.jpg" />
 </div>
 
 
@@ -310,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35034.jpg" />
 </div>
 
 
@@ -338,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34995.jpg" />
 </div>
 
 
@@ -367,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34956.jpg" />
 </div>
 
 
@@ -394,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34720.jpg" />
 </div>
 
 
@@ -421,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34348.jpg" />
 </div>
 
 
@@ -449,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34317.jpg" />
 </div>
 
 
@@ -477,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34144.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34140.jpg" />
 </div>
 
 
@@ -533,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34038.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33966.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33902.jpg" />
 </div>
 
 
@@ -617,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33898.jpg" />
 </div>
 
 
@@ -645,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33880.jpg" />
 </div>
 
 
@@ -659,58 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2463BA54BE9686AA39CCD2627686F6B67593D9F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 349012   (33391) от 22.12.2024
-
-Анастасия Вербицкая | В ожидании принца (2005) [MP3, Галина Самойлова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русская писательница Анастасия Алексеевна Вербицкая (1861–1928) была очень популярна в России в начале XX века. Она первой подняла в своих увлекательных, полных бурной страсти романах темы почти запретные – о праве женщины на свободу чувства, на самостоятельное определение своей судьбы. Серия романов под общим названием «Ключи счастья» – лучшее и наиболее известное (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Вира-М (аудио)Продолжительность: 12:30:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E10C1A22E8696E900DF525261A57AEC7B3DB7EE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 349009   (33384) от 22.12.2024
-
-Анастасия Вербицкая | Иго любви (Книга 1). Актриса (2005) [MP3, Олег Фёдоров]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русская писательница Анастасия Алексеевна Вербицкая (1861–1928) была очень популярна в России в начале XX века. Она первой подняла в своих увлекательных, полных бурной страсти романах темы почти запретные – о праве женщины на свободу чувства, на самостоятельное определение своей судьбы. Серия романов под общим названием «Ключи счастья» – лучшее и наиболее известное (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Вира-М (аудио)Продолжительность: 13:20:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D48CFC455432E38189518FDC3F601A49EDADAD5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

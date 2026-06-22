@@ -1,3 +1,29 @@
+###  Публикация: 1251809   (648272) от 28.03.2019
+
+Kaze ga Tsuyoku Fuite Iru | Run with the Wind | Почувствуй ветер [2018, TV, 23] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хайдзи Киёсэ был успешным профессиональным бегуном, однако травма изменила его жизнь и вынудила уйти из спорта. Однажды он знакомится с другим бывшим атлетом Какеру Курахарой, который бросил бег из-за конфликта, и эта встреча заставляет двух парней пожелать вернуться в большой спорт. Хайдзи решает избрать для этого экидэн (марафонский шоссейный пробег-эстафету) из (   Читать дальше...   )Производство: Студия Production I.GЖанр: приключенияРежиссер: Номура КадзуяПеревод: официальный (Cranchroll)Язык озвучки: ЯпонскийСубтитры: Русские, Английские, Арабские, Испанские, Итальянские, Немецкие, Португальские, ФранцузскиеПродолжительность: 23 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE3FC4F38B5F81CBE2B7C31F17F688116202E894
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007980   (648046) от 11.06.2017
 
 12-Sai. Chicchana Mune no Tokimeki / 12 age / 12 лет [2016, TV, 24 из 24] HDTVRip 720p raw
@@ -6,7 +32,7 @@
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648046.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Free! Eternal Summer / Вольный! Вечное лето [2014, TV, 13 + 1sp
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647386.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Boku no Hero Academia / My Hero Academia / Моя геройская акаде�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647260.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Bishoujo Senshi Sera Mun Kurisutaru Season III / Прекрасная воите
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647258.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Sansha Sanyou / Трилистник [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645436.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Boku dake ga Inai Machi | Erased | Город, в котором меня нет
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645360.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Mahou Shoujo Tokushusen Asuka | Magical Girl Spec-Ops Asuka | Девочки-в�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644457.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Domestic na Kanojo | Domestic Girlfriend | Домашняя девушка | Д�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644441.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Boogiepop wa Warawanai | Boogiepop and Others | Бугипоп никогда н
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644314.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Saint Oniisan / Saint Young Men / Юность Святого [2012, OVA, 2 ep.]
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644211.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Lupin the Third: Mine Fujiko to Iu Onna / Lupin the Third: The Woman Called Fuji
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_643045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643045.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642723.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Gyakuten Saiban: Sono "Shinjitsu", Igi Ari! Season 2 | Первоклассны�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642529.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Fushigi na Somera-chan / Magical Somera-chan / Волшебница Сомера
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641900.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Bermuda Triangle: Colorful Pastorale | Разноцветная пасторал
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640771.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Kimi no Iru Machi / Город в котором ты живешь [2012, OVA, 0
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_640738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_640738.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Fukigen na Mononokean: Tsuzuki | The Morose Mononokean II | Обитель мр�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640631.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ Asa made Jugyou Chu! / See Me After Class! / Дополнительные зан
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640592.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640520.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ Shingeki no Kyojin: The Final Season | Атака титанов [ТВ-4] [2020,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640365.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ Ooya-san wa Shishunki! / Хозяйка квартиры — подросток 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639878.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ Kekkai Sensen: Ou-sama no Restaurant no Ou-sama | Фронт кровавой б
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639700.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ Drifters Special Edition | Скитальцы [2016, OVA, 1] DVDrip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639584.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ Ultraman | Ультрамен [2019, ONA, 13 эп.] WebRip 720p HEVC 10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638828.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ Grimms Notes The Animation / Заметки Гримм [2019, TV, 12] HDTV 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638820.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ Grimms Notes The Animation / Заметки Гримм [2019, TV, 12] HDTV 720p 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCAAE5162C3132B1AE9B4D14E8A52887D0E94E32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278091   (638819) от 02.04.2019
-
-Endro! / Эндро! [2019, TV, 12] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638819.jpg" />
-</div>
-
-
-###  Подробнее
-
-На волшебном острове Нарал мирно (или не очень) сосуществуют люди и монстры. А ещё здесь живёт ужасный Повелитель Демонов, который примерно раз в поколение возрождается и огребает от очередного героя. Для искателей приключений здесь есть специальная школа, и в ней учатся четыре девочки: Юща, у которой имеются героические задатки, Сейла, слишком серьёзная для собственного (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: КаориЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F16FF3A6D817C310E6C2D2117E3ADB865F95ABF
 ```
 
 https://mybot314.ru/tekegram_catalog/

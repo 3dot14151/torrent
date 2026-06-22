@@ -1,3 +1,107 @@
+###  Публикация: 1342733   (221950) от 03.12.2019
+
+Отрыв (2018) BDRip [H.264/1080p] [GER Transfer]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания друзей поднимается в горы, чтобы незабываемо встретить новогоднюю ночь на вершине горы. Ребята уже предвкушают, как под бой курантов и взрывы салютов они весело съедут вниз. Но приключение оборачивается настоящим кошмаром, когда в самый разгар праздника хлипкий вагончик, привёзший их ввысь, застревает над пропастью.Производство: Россия / Аттракцион, Кинокомпания CTBЖанр: ТриллерРежиссер: Тигран СаакянАктеры: Ирина Антоненко, Андрей Назимов, Денис Косяков, Ингрид Олеринская, Михаил Филиппов, Сергей Тодоров, Владимир Гусев, Елена Ветрова, Виктория Пятакина, Ангелина ПиковскаяПеревод: Не требуется (русский) - ЛицензияСубтитры: ОтсутствуютПродолжительность: 01:24:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5313C02018736C03403EC035D62F019DB8CB1B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966102   (221929) от 16.12.2015
+
+Брат 2 (2000) WEB-DL [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Участвуя в программе на телевидении, Данила Багров встречает своих друзей по Чечне. Одного из них внезапно убивают. Данила знает, что у того были неприятности из-за брата-хоккеиста в Америке. Данила должен разобраться. Он вылетает в Америку и для компании берёт с собой брата. Теперь его фотография ходит по рукам русской и американской мафии. Новоявленные «Аль Капоне» (   Читать дальше...   )Производство: Россия / Кинокомпания CTBЖанр: Боевик, КриминалРежиссер: Алексей БалабановАктеры: Сергей Бодров мл., Виктор Сухоруков, Ирина Салтыкова, Сергей Маковецкий, Александр Карамнов, Александр Дьяченко, Константин Мурзенко, Александр Наумов, Кирилл Пирогов, Гэри Хьюстон, Дмитрий Орлов, Лиза Джеффри, Константин Желдин, Олег Васильков, Светлана Михайлова, А.К. Тони Смит, Брэдли Мотт, Э. Милтон Вилер, Татьяна Захарова, Аркадий Зерский, Дарвин Харрис, Роман (   Читать дальше...   )Продолжительность: 02:02:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:474B5B191EE75A26222321D01E5BE0FCA2F20DFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966053   (221886) от 16.12.2015
+
+Брат (1997) WEB-DL [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Демобилизованный из армии, Данила Багров вернулся в родной городок. Но скучная жизнь российской провинции не устраивала его, и он решился податься в Петербург, где, по слухам, уже несколько лет процветает его старший брат. Данила нашел брата. Но все оказалось не так просто - брат был наемным убийцей…Производство: Россия / Кинокомпания CTB, Студия Горького, РоскомкиноЖанр: Боевик, Драма, Криминал, МузыкаРежиссер: Алексей БалабановАктеры: Сергей Бодров мл., Виктор Сухоруков, Светлана Письмиченко, Мария Жукова, Юрий Кузнецов, Василиса Стрельникова, Константин Анисимов, Алексей Севостьянов, Андрей Федорцов, Андрей Краско, Вячеслав Бутусов, Игорь Шибанов, Сергей Дебижев, Владимир Ермилов, Анатолий Горин, Денис Кириллов, Наталья Львова, Артур Харман, Андрей Розин, Сергей Астахов, Виталий Матвеев, Сергей (   Читать дальше...   )Продолжительность: 01:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C444E6A5BF5513ABBB3D7DAE7B5B0728CDF97CB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585251   (221849) от 21.10.2022
+
+Экспресс (2022) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Саша Сосланов никогда не унывает. Даже когда его выгоняют из университета, а красавица Нина уезжает в Москву, парень идет в букмекерскую контору и на последнюю тысячу рублей делает отчаянную ставку из нескольких событий — «экспресс». Но в тот же вечер он теряет карточку для получения выигрыша. У Саши есть трое суток, чтобы найти «экспресс» на миллион и не упустить (   Читать дальше...   )Производство: Россия / 	Фонд «Кинопрайм», Марс Медиа Энтертейнмент, StereotacticЖанр: комедия, драмаРежиссер: Руслан БратовАктеры: Лев Зулькарнаев, Павел Ворожцов, Артур Хатагов, Ольга Смирнова, Михаил Хуранов, Сергей Гайтеров, Александр Сланов, Милина Хакирова, Егор Овчинников, Алексей КирсановПеревод: Не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:18:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51EEEFE5C59530FA783EBA51D993B50796B7324B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342793   (221770) от 03.12.2019
 
 Отрыв (2018) Blu-ray [H.264/1080p] [GER Transfer]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221770.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221747.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220936.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220621.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220339.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220304.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220127.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220015.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219513.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_219266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219266.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218745.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217769.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217760.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217748.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217381.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217219.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217189.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217095.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216968.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216952.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216790.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215326.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD7A63B3202B3A37246FF1C9B524836B3D0A596D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084932   (215321) от 20.12.2016
-
-Эластико (2016) WEB-DL [H.264/720p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Матвей — простой парень из провинциального города. Он вырос с друзьями «на районе», здесь же встретил свою любовь — Дашу. От других Матвея отличают уникальные физические данные — крепкие ноги, мощная дыхалка, поразительная выносливость. Свой талант он использует, выигрывая со своей командой всех в дворовом футболе… и в мелких криминальных авантюрах, которые ему подгоняет (   Читать дальше...   )Производство: Россия | Enjoy MoviesЖанр: Спорт, Мелодрама, КриминалРежиссер: Михаил РасходниковАктеры: Дмитрий Власкин, Ирина Антоненко, Алексей Маклаков, Александр Фролов, Владимир Епифанцев, Никита Волков, Никита Павленко, Ирина Безряднова, Максим Сорочинский, Петр ПрозоровскийПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:21:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09986B1D6A5D95B547F94896A54633017BA540F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966953   (215266) от 19.12.2015
-
-Владение 18 (2013) BDRip [H.264/720p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сиреневые Холмы, Владение 18 — адрес обычной многоэтажки на окраине города. Скоро здесь будет новый цветущий микрорайон, но пока вокруг царит девственное запустение. Сейчас цены на квартиры в этом доме так заманчиво низки… И продают их, оказывается, только по специальной благотворительной программе инвесторов! Когда ещё небогатым молодожёнам Свете и Максиму представится (   Читать дальше...   )Производство: Россия / Люксор, Про100 Фильм, ВершинаЖанр: Триллер, Детектив, УжасыРежиссер: Святослав ПодгаевскийАктеры: Дмитрий Ендальцев, Мария Фомина, Борис Полунин, Виктория Райкова, Юрий Филатов, Сергей Холмогоров, Ольга ПриходькоПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:32:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:770517BAB54F0D574F94A444EBDFA67F3484208F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966520   (214796) от 19.12.2015
-
-Саранча (2013) WEB-DL [H.264/720p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214796.jpg" />
-</div>
-
-
-###  Подробнее
-
-У них не было ничего общего: Артем — простой парень из провинции, работяга и поэт, Лера — столичная штучка, чью жизнь распланировали родители. Но банальный курортный роман оборачивается обжигающей страстью, которая ломает судьбы. И хотя Лера выходит замуж за друга отца, а Артем назло женится на богатой даме постарше, их безумное влечение рушит все барьеры. Жажда (   Читать дальше...   )Производство: Россия, Продюсерский центр «Среда»Жанр: ТриллерРежиссер: Егор БарановАктеры: Пётр Фёдоров, Паулина Андреева, Дмитрий Шевченко, Екатерина Волкова, Евгения Дмитриева, Максим Пинскер, Алексей Горбунов, Евгений Стычкин, Александр Голубков, Иван ЩенинПеревод: Не требуется (русский) iTunesПродолжительность: 02:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60AFF619D331E81DC83AAF4FACC0549CB5F8E6CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426493   (214313) от 24.11.2020
-
-Ген Бога (2020) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214313.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о двух подругах, застигнутых в своей городской квартире глобальной эпидемией загадочного вируса.Производство: РоссияЖанр: Короткометражный, фантастикаРежиссер: Стас ЛипинАктеры: Евгения Бармина, Алёна Романова, Сергей Болдин, Григорий ГришкоСубтитры: ОтсутствуютПродолжительность: 00:20:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5519EB57A30956315EDDCC0BDB3BAFEB1A1D468
 ```
 
 https://mybot314.ru/tekegram_catalog/

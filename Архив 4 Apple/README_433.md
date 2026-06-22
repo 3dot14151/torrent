@@ -1,3 +1,56 @@
+###  Публикация: 1330141   (343272) от 09.10.2019
+
+Compressor 4.4.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Compressor плотно интегрирован с Final Cut Pro для добавления специфичных установок вывода, распределенного кодирования и большого количества вариантов конечного результата. Гладкий интерфейс соответствует Final Cut Pro и упрощает навигацию по проектам сжатия. Это простой и мощный инструмент для сжатия видео. Compressor может сжимать ваше видео с поддержкой большинства (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Apple Inc.Поддерживаемая ОС: macOS 10.14.6 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44CE1D9F59F240D5C7648BD6F7A0C4613C7AB5BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073805   (343050) от 17.11.2016
+
+Day One 2 Journal + Notes 2.1.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Day One 2: новый журнал-дневник
+Разработчики персонального журнала Day One выпустили новую, кардинально переработанную версию приложения. Версия 2.0, доступная на i-устройствах и "маках", получала ряд важных функций. Во-первых, теперь у пользователей есть возможность вести несколько дневников одновременно, а также присваивать им собственные цвета и названия. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 ноября 2016Разработчик: Bloom Built, Inc.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E1E01908503E1CFDA29571CDF37BA6E211393E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073884   (343048) от 17.11.2016
 
 Temps 1.13.4 [Multi/Ru]
@@ -6,7 +59,7 @@ Temps 1.13.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343048.jpg" />
 </div>
 
 
@@ -35,7 +88,7 @@ JRiver Media Center 24 v24.0.56 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342930.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ Wondershare PDFelement with OCR 5.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342840.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ Canary Mail 1.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342789.jpg" />
 </div>
 
 
@@ -116,7 +169,7 @@ iExplorer 4.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342784.jpg" />
 </div>
 
 
@@ -144,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342759.jpg" />
 </div>
 
 
@@ -170,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342673.jpg" />
 </div>
 
 
@@ -198,7 +251,7 @@ Glyphs 2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342658.jpg" />
 </div>
 
 
@@ -225,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342602.jpg" />
 </div>
 
 
@@ -251,7 +304,7 @@ PlistEdit Pro 1.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342550.jpg" />
 </div>
 
 
@@ -278,7 +331,7 @@ Lyn 1.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342521.jpg" />
 </div>
 
 
@@ -307,7 +360,7 @@ Sierra Cache Cleaner 11.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342356.jpg" />
 </div>
 
 
@@ -335,7 +388,7 @@ MarsEdit 4 v4.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342305.jpg" />
 </div>
 
 
@@ -361,7 +414,7 @@ EverWeb (Standalone) 3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342202.jpg" />
 </div>
 
 
@@ -389,7 +442,7 @@ BBEdit 13 v13.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342201.jpg" />
 </div>
 
 
@@ -415,7 +468,7 @@ Coherence X 3.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342195.jpg" />
 </div>
 
 
@@ -441,7 +494,7 @@ AnyTrans for iOS 8.8.0.20201019 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342186.jpg" />
 </div>
 
 
@@ -469,7 +522,7 @@ KeyCue 9.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342049.jpg" />
 </div>
 
 
@@ -496,7 +549,7 @@ Boom 3D 1.3.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341854.jpg" />
 </div>
 
 
@@ -522,7 +575,7 @@ Affinity Photo 1.6.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341834.jpg" />
 </div>
 
 
@@ -551,7 +604,7 @@ GroupsPro 3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341438.jpg" />
 </div>
 
 
@@ -578,7 +631,7 @@ CleanMyMac 3.1.2 (a) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341430.jpg" />
 </div>
 
 
@@ -607,7 +660,7 @@ Data Guardian 5 v5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341396.jpg" />
 </div>
 
 
@@ -633,7 +686,7 @@ GraphicConverter 11 v11.1 (4132) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341395.jpg" />
 </div>
 
 
@@ -644,61 +697,6 @@ GraphicConverter 11 — полнофункциональный графичес�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C395A2A67376912B180D60C947E911FD9A869966
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258004   (341347) от 28.10.2018
-
-Qbserve 1.79 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отслеживание рабочего времени с комфортом.
-Qbserve в автоматическом режиме отслеживает время потраченное на работу и помогает повысить производительность. Qbserve обнаруживает деятельность автоматически с постоянно расширяющейся базой данных (более 5500 сайтов , приложений и игр ) .
-
-Qbserve дает мгновенные ответы на вопросы о том, как вы проводите свое время за (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2018Разработчик: QotoQotПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:436348EEEB085738DD07096CC827D9190E0A1A19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257925   (341344) от 28.10.2018
-
-WebScraper 4.7.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341344.jpg" />
-</div>
-
-
-###  Подробнее
-
-WebScraper использует механизм Integrity v8 для быстрого сканирования веб-сайта и может выводить извлеченные данные (в настоящее время) в виде CSV или JSON. Плюс загружайте изображения в папку.Тип издания: macOS SoftwareРелиз состоялся: 26.10.2018Разработчик: PeacockMediaПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4600969E4AF24489887DB86CF268F31C00C900C
 ```
 
 https://mybot314.ru/tekegram_catalog/

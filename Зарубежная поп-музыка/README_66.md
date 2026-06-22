@@ -6,7 +6,7 @@ Sons Of Heroes - Sons Of Heroes (1983) LP [MP3|320 Kbps] <Electronic, Pop Rock, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268892.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Dance Hits 2019 (2018) [MP3|320 Kbps] <Club, Vocal, Groove, Indie Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268391.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Pop Dance Power Hits (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268192.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Shanghai - 2 Albums (1985, 1986) LP [MP3|320 Kbps] <Electronic, Synth-pop, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268032.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ YUKO - Коллекция (2017-2018) [MP3|320 Kbps] <Electro, Folk, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267806.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Inna - Nirvana (2017) Deluxe Edition [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267764.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Francesca Longrigg - True Noise (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266038.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Best Driving EDM 2019 (2018) [MP3|320 Kbps] <Big Room, Dance, Progressive H
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265804.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Tom Rod - Understand (1978) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265351.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - 100 Greatest Party Starters (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265342.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Dido - Still on My Mind (2019) Deluxe Edition [MP3|320 Kbps] <Pop, Folk>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265331.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Take On Me: 80s Anthems - The Ultimate Collection (2019) 5CD [MP3|320 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265315.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Walk the Moon - What If Nothing (2017) [MP3|320 Kbps] <Indie Pop, Indie Rock, El
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264482.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Robbie Williams - The Christmas Present (2019) Deluxe Edition [MP3|320 Kbps] <Po
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264238.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Rebel Force Band - Living In These Star Wars (1977) LP [MP3|320 Kbps] <Electroni
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263991.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Bottle Of Moonshine - Everybody Watches No One Knows (2014) [MP3|320 Kbps] <60's
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263859.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Pablo Alboran - Prometo (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263843.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - #Hits 2019 Die Hits Des Jahres (2019) 2CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263295.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Winter Hits Dance (2019) [MP3|320 Kbps] <Dance, House, Big Room>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263294.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - 100% Clubland 90s (4 CD) (2017) [MP3|320 Kbps] <Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262791.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Clubfete 2020 (63 Club Dance And Party Hits) (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262630.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Christmas Pop Hits (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262618.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - 100 Greatest Karaoke Songs (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262594.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - 100 Greatest Best Songs Ever (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262588.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Camila Cabello - Romance (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262301.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Marcus & Martinus - Moments (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262136.jpg" />
 </div>
 
 

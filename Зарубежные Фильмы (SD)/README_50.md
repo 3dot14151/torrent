@@ -1,3 +1,133 @@
+###  Публикация: 1349884   (1003902) от 03.01.2020
+
+Гемини / Gemini Man (2019) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первоклассный киллер Генри Броган становится мишенью таинственного оперативника, который, кажется, знает наперёд каждый его шаг.Производство: США, Китай / Skydance Media, Jerry Bruckheimer Films, Fosun Group Forever PicturesЖанр: Боевик, фантастикаРежиссер: Энг ЛиАктеры: Уилл Смит, Мэри Элизабет Уинстэд, Клайв Оуэн, Бенедикт Вонг, Дуглас Ходж, Теодора Вулли, Ральф Браун, Линда Эмонд, Андреа Суч, Илья ВолохПеревод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full)Продолжительность: 01:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EB92D2034FED3B8DFD3C9AD0C9BDF2DF9D2DD0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349762   (1003899) от 03.01.2020
+
+Курьер / The Courier (2019) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003899.jpg" />
+</div>
+
+
+###  Подробнее
+
+На первый взгляд, она — всего лишь курьер на черном мотоцикле, стремительно пронзающем ночной Лондон. Но даже в огромном мегаполисе красотке удается ускользнуть от уличных камер, и ее имя невозможно найти ни в одной базе данных. Именно она, дерзкая и неуловимая, бросит вызов могущественному криминальному боссу. И ему лучше не знать, кто на самом деле эта взрывная (   Читать дальше...   )Производство: Великобритания, США / Rollercoaster Angel Productions, Signature FilmsЖанр: Боевик, триллер, драмаРежиссер: Закари АдлерАктеры: Ольга Куриленко, Гэри Олдман, Амит Шах, Алисия Агнесон, Грег Орвис, Крэйг Конуэй, Уильям Моусли, Дермот Малруни, Гордон Александр, Нил ЧапелоуПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52FF539CDD7206B98DA18BC3D51929F156F0DD48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350139   (1003659) от 04.01.2020
+
+Малефисента: Владычица тьмы / Maleficent: Mistress of Evil (2019) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит через несколько лет после того, как Малефисента наложила злые чары на принцессу Аврору. Фильм рассказывает про сложную взаимосвязь между тёмной феей и будущей королевой, о новых союзниках и противниках в деле защиты волшебного леса и магических существах, которые в нем обитают.Производство: США, Великобритания / Roth Films, Walt Disney PicturesЖанр: Фэнтези, приключения, семейныйРежиссер: Хоаким РоннингАктеры: Анджелина Джоли, Элль Фэннинг, Харрис Дикинсон, Мишель Пфайффер, Сэм Райли, Чиветел Эджиофор, Эд Скрейн, Роберт Линдсей, Дэвид Гяси, Дженн МюррэйПеревод: Дублированный (iTunes)Субтитры: Русские (Full, SDH), английскиеПродолжительность: 01:58:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10B3959A6A746D841B7E92E76A05D117F0A1E410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350143   (1003658) от 04.01.2020
+
+Дождливый день в Нью-Йорке / A Rainy Day in New York (2019) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он — из состоятельной семьи Нью-Йорка, она — из небольшого городка в Аризоне. Выросший на Манхэттене юноша мечтает показать ей свой любимый город. Судьба дает ему шанс, когда девушку отправляют взять интервью у известного режиссера. Однако этот дождливый день изменит их жизнь навсегда. В проливной суете мегаполиса он встретит свою давнюю подругу, а девушку затянет (   Читать дальше...   )Производство: США / Gravier Productions, Perdido ProductionsЖанр: Мелодрама, комедияРежиссер: Вуди АлленАктеры: Тимоти Шаламе, Эль Фаннинг, Селена Гомес, Джуд Лоу, Диего Луна, Лив Шрайбер, Сюзанн Смит, Оливия Борхэм-Уинг, Бен Уорхейт, Гриффин НьюманПеревод: Дублированный (iTunes)Субтитры: Английские (Full)Продолжительность: 01:32:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6223AF29CABA8BD4E097AB8FF46B3F843470E609
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349647   (1003636) от 04.01.2020
+
+Собаки не носят штанов / Koirat eivat kayta housuja / Dogs Don't Wear Pants (2019) WEB-DLRip
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003636.jpg" />
+</div>
+
+
+###  Подробнее
+
+После трагической смерти жены мужчина начинает посещать доминатрикс.Производство: Финляндия, Латвия, Helsinki-Filmi, Tasse FilmЖанр: ДрамаРежиссер: Юкка-Пекка ВалькеапяяАктеры: Пекка Странг, Криста Косонен, Илона Хухта, Яни Воланен, Уна Айрола, Иирис Анттила, Эстер Гейслерова, Эллен Карппо, Армандс Рейнис, Самуэль ШипвейПеревод: Многоголосый профессиональныйСубтитры: отсутствуютПродолжительность: 01:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A20EC470EF30BC76C18031AE055FF97435A6428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486076   (1003555) от 05.08.2021
 
 Бартковяк / Bartkowiak (2021) WEB-DLRip [H.264]
@@ -6,7 +136,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003555.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003538.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003467.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003422.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003403.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003395.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003394.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003391.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003190.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003180.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003158.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003133.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003127.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003106.jpg" />
 </div>
 
 
@@ -373,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003099.jpg" />
 </div>
 
 
@@ -399,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003097.jpg" />
 </div>
 
 
@@ -425,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003094.jpg" />
 </div>
 
 
@@ -452,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003093.jpg" />
 </div>
 
 
@@ -478,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002995.jpg" />
 </div>
 
 
@@ -504,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002869.jpg" />
 </div>
 
 
@@ -530,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002774.jpg" />
 </div>
 
 
@@ -541,136 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E423283DE44133835FC73CEAA0BE74BAEE1F8D35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487858   (1002749) от 08.08.2021
-
-Здесь и сегодня / Here Today (2021) HDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Постепенно впадающий в маразм ветеран комедийной сцены Чарли Бёрнс однажды встречает уличную певицу Эмму Пейдж, которая, несмотря на свою взбалмошность, помогаем ему в борьбе с недугом.Производство: США / Astute Films, Big Head Productions, Big Indie PicturesЖанр: Драма, комедияРежиссер: Билли КристалАктеры: Билли Кристал, Тиффани Хэддиш, Пенн Бэджли, Лаура Бенанти, Луиса Краузе, Чад Дженнингс, Дирдре Фрил, Алекс Брайтман, Мэттью Бруссар, Макс Гордон МурПеревод: Профессиональный многоголосый (iTunes)Язык озвучки: Русский, АнглийскийСубтитры: Русские (forced, full), Украинские (full), Английские (full)Продолжительность: 01:57:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C927E1698BD9890046EB410C087B4BF262BB49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487940   (1002741) от 08.08.2021
-
-Чужой: Завет / Alien: Covenant (2017) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время обследования удаленной планеты, расположенной на другой стороне галактики, экипаж колониального корабля «Завет» обнаруживает, что то, что они изначально приняли за неизведанный рай, на самом деле - тёмный и опасный мир. Его единственный житель - синтетический андроид Дэвид, оставшийся в живых после обреченной экспедиционной миссии «Прометей».Производство: США, Великобритания / Twentieth Century Fox, TSG Entertainment, Scott Free ProductionsЖанр: Ужасы, Фантастика, ТриллерРежиссер: Ридли СкоттАктеры: Майкл Фассбендер, Кэтрин Уотерстон, Билли Крудап, Дэнни Макбрайд, Демиан Бичир, Кармен Эджого, Джусси Смоллетт, Калли Эрнандес, Эми Саймец, Натаниель ДинПеревод: Дублированный (BD CEE)Субтитры: ОтсутствуютПродолжительность: 02:02:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCDE19CE7352A353CBF1802B82C304A0008EFD5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487822   (1002700) от 08.08.2021
-
-Прячься / The Boy Behind the Door (2020) WEB-DLRip [H.264] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда мальчика Бобби и его лучшего друга Кевина похищают и отвозят в изолированный загородный дом, у Бобби получается сбежать. Но чтобы спасти друга, он решает вернуться назад. Теперь Бобби придется узнать тайны этого места и посмотреть своим страхам в глаза. Каждый шорох может стоить жизни. Каждый угол таит новую опасность. Каждый шаг может стать последним.Производство: США, Kinogo Pictures, Whitewater FilmsЖанр: ужасыРежиссер: Давид Шарбонье, Джастин ПауэллАктеры: Лонни Чевис, Эзра Дьюи, Кристин Бауэр, Мика Хауптман, Скотт Майкл Фостер, Рич Кероло, Анна Шаффер, Альфредо ТаваресПеревод: Дублированный (Кипарис) iTunesЯзык озвучки: РусскийСубтитры: русские (полные), английские (полные, SDH)Продолжительность: 01:28:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62548932C6AB50726C9C0144A6E27506EE75A0B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487837   (1002690) от 08.08.2021
-
-Начать с нуля (Изменю всё) / Cambio tutto (2020) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джулия — менеджер по маркетингу в компании, где босс не ценит верных сотрудников. Бойфренд Джулии, Раф — свободный художник, который ничего не делает по дому. Ее бывший, Оттавио, собирается сыграть свадьбу, но продолжает отправлять ей сообщения по ночам. А подруга Ванесса нагло пользуется ее безотказностью. Когда на работе появляется 20-летняя блогерша с миллионом (   Читать дальше...   )Производство: Италия / Colorado Film Production, Medusa Film S.p.a.Жанр: КомедияРежиссер: Гуидо КьезаАктеры: Валентина Лодовини, Нери Маркоре, Либеро Де Риенцо, Дино Аббрешия, Андреа Писани, Николя Ночелла, Флора Канто, Chiara Spoletini, Stefano Skalkotos, Danilo ArenaПеревод: Профессиональный многоголосый (iTunes)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:33:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:565E0A10ECB27F1CD3D44B7B60C88326A70C9B4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351027   (1002618) от 08.01.2020
-
-Не верь никому / Trust No 1 (2019) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002618.jpg" />
-</div>
-
-
-###  Подробнее
-
-31 декабря 1999, канун 2000 года. Мировые системы безопасности находятся на грани полного краха. Правительство Соединенных Штатов вынуждено принять экстренные меры предосторожности и создает резервные копии сверхсекретных файлов на двух дисках... Десять лет спустя полицейский из маленького городка, Даг Брэдли, расследует серию убийств, которые он считает частью кровавой (   Читать дальше...   )Производство: США, DR Productions, Motion ForcesЖанр: БоевикРежиссер: Daron NiemerowАктеры: Дуглас Руйяр, Бриттон Пурвис, Чарльз Джусто, Ryan Rouillard, Michele Gomez, Michael Zammito, Scott D Gold, Брэдфорд Экхарт, Пол Блэк, Eric BolesПеревод: Профессиональный (многоголосый)Субтитры: ОтсутствуютПродолжительность: 01:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6FEFC0C0C0FD031645622C482072A6DC2B090FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

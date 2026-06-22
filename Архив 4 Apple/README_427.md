@@ -1,3 +1,56 @@
+###  Публикация: 1577893   (352201) от 20.09.2022
+
+JustStream PRO 2.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352201.jpg" />
+</div>
+
+
+###  Подробнее
+
+JustStream — отличное приложение, которое может отображать изображение с Mac на телевизор, Mac — на Chromecast, Mac — на Apple TV и так далее. Вы можете транслировать видео на телевизор и наслаждаться им на большом экране без каких-либо проводов, кабелей или какого-либо дополнительного оборудования.Тип издания: macOS SoftwareРелиз состоялся: 20.09.2022Разработчик: © 2022 Electronic Team, IncПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:106046A50A4FACB91EBE070CD48BB83EA9C0CEAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577777   (352194) от 20.09.2022
+
+Beyond Compare 4 v.4.4.3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реальность цифровых файлов - они копятся. И у пользователей, как правило, скапливаются одни и те же файлы снова и снова. Так как же вы узнаете, что два огромных файла действительно одинаковые, прежде чем удалить один из них?
+Есть один инструмент, который поможет вам устранять дубликаты, объединять изменения из нескольких источников и поддерживать синхронизацию каталогов. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.06.2022Разработчик: © 2021 Scooter Software, Inc.Поддерживаемая ОС: Mac OS X 10.11 или вышеЯзык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA0D1225389CF3CAFA52B6D154EC57DCB5B61ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256775   (352108) от 23.10.2018
 
 IconJar 1.12 [En]
@@ -6,7 +59,7 @@ IconJar 1.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352108.jpg" />
 </div>
 
 
@@ -35,7 +88,7 @@ Path Finder 8.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351998.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ QuickRes 4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351992.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ Tweak Photos 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351991.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ iVI Video Converter 4 v4.620 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351990.jpg" />
 </div>
 
 
@@ -142,7 +195,7 @@ ProPresenter 6 v6.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351988.jpg" />
 </div>
 
 
@@ -169,7 +222,7 @@ Grids for Instagram 5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351890.jpg" />
 </div>
 
 
@@ -195,7 +248,7 @@ Things 3.7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351882.jpg" />
 </div>
 
 
@@ -223,7 +276,7 @@ Mirror for LG TV 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351815.jpg" />
 </div>
 
 
@@ -252,7 +305,7 @@ VueScan Pro 9.6.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351810.jpg" />
 </div>
 
 
@@ -278,7 +331,7 @@ Doo - Get Things Done 2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351524.jpg" />
 </div>
 
 
@@ -307,7 +360,7 @@ Downie 3.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351517.jpg" />
 </div>
 
 
@@ -336,7 +389,7 @@ ProFind 1.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351490.jpg" />
 </div>
 
 
@@ -362,7 +415,7 @@ Coherence X 3.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351489.jpg" />
 </div>
 
 
@@ -388,7 +441,7 @@ Loopback 2.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351487.jpg" />
 </div>
 
 
@@ -417,7 +470,7 @@ FigrCollage 3.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351486.jpg" />
 </div>
 
 
@@ -443,7 +496,7 @@ BlueHarvest 8 v8.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351485.jpg" />
 </div>
 
 
@@ -470,7 +523,7 @@ Cisdem Duplicate Finder 5.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351484.jpg" />
 </div>
 
 
@@ -498,7 +551,7 @@ RightFont 5 v5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351480.jpg" />
 </div>
 
 
@@ -525,7 +578,7 @@ Vox 2.6.3 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351432.jpg" />
 </div>
 
 
@@ -551,7 +604,7 @@ Dash 3.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351430.jpg" />
 </div>
 
 
@@ -578,7 +631,7 @@ Movist 1.3.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351416.jpg" />
 </div>
 
 
@@ -606,7 +659,7 @@ Audio Hijack 3.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351354.jpg" />
 </div>
 
 
@@ -633,7 +686,7 @@ Gemini 1.5.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351293.jpg" />
 </div>
 
 
@@ -645,61 +698,6 @@ Gemini распределяет данные по типам, например 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6E6A05D72AF4F711AC9EB06B80EE91BBC82C7B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418283   (351235) от 23.10.2020
-
-Adobe Zii 2021 - Universal Patcher 6.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Zii - это небольшая и замечательная утилита, которая помогает вам забыть обо всех проблемах с регистрацией всех существующих продуктов Adobe.Тип издания: macOS SoftwareРелиз состоялся: 23.10.2020Разработчик: TNTПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFD21BE5155ED1F8E5F5C1447BD3304DD98AA1D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953138   (351184) от 03.11.2015
-
-Scrivener 2.7.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scrivener — программа для писателей
-Scrivener — это текстовый процессор и инструмент управления проектами, предназначенный для людей, которым приходится работать с большими объемами текста.
-
-Scrivener сочетает в себе возможности текстового редактора с функциями органайзера и средствами для управления проектом. Все ваши записи в виде отдельного текста, фотографий (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 25 сентября 2015Разработчик: Literature & Latte LtdПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B71EB0C28C4A3DB0CF3E5AF470344FDB6E4C782F
 ```
 
 https://mybot314.ru/tekegram_catalog/

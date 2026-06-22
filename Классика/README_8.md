@@ -6,7 +6,7 @@ W.A. Mozart - Requiem (1976) Compilation, 1998, Teledec Classics [FLAC|Lossless|
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895448.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ L'Orfeo Baroque Orchestra, dirigent Michi Gaigg - Christoph Willibald Gluck: Fiv
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895349.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вокал
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895216.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Andre Rieu - Celebrates ABBA | Music Of The Night (2013) 2CD [FLAC|Lossless|trac
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895034.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Полные собрания сочинений
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894963.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Tessarini Consort: Joza Caras (conductor), Lisa Rautenberg (violin), Jaroslaw Li
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893904.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Magdalena Kozena & Mahler Chamber Orchestra with Marc Minkowski - French Arias (
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893858.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Netrebko, Quasthoff, Terfel, Garanca, Pape. - The Mozart Album (2006) [FLAC|Loss
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893820.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Dvorak - Rusalka (Fleming, Czech Philharmonic Orchestra, dir.Mackerras) (1998) 3
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893796.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Alfred Schnittke - Quasi una sonata, Moz-Art a la Haydn, Suite in the Old Style 
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893443.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Saint-Saens - Carnival of the Animals, Danse macabre, Symphony 3 (Ormandy, Entre
 >>Концерты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893368.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Queenz Of Piano - Queenz Of Piano (2020) [FLAC|24/44.1|Lossless|WEB-DL|tracks] <
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893350.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - 101 Classical Greats (1998) 5CD [FLAC|Lossless|tracks] <Classical, Baroque,
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893308.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Andre Rieu - Romantic Moments II (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891851.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Andre Rieu - Happy Days (2019) [FLAC|Lossless|WEB-DL|tracks] <Classical, Classic
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891772.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Leonid Kogan & Alexander Ivanov-Kramskoy - F.Gragnani, N.Paganini & M.Giuliani (
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891522.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Wiener Philharmoniker - Herbert Von Karajan - Dvorak - Symphonie # 9; Smetana - 
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891457.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Magdalena Kozena - Enchantment (2006) 2 CD [FLAC|Lossless|image + .cue] <Classic
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891449.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Magdalena Kozena, La Cetra, Andrea Marcon - Monteverdi (2016) [FLAC 2.0|96/24|Lo
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891223.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891056.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Wolfgang Amadeus Mozart - Piano Concertos Nos. 23 & 19 (1976) 2012, Deutsche Gra
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891040.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Gustav Mahler - Symphony No. 5 - Berliner Philharmoniker & Claudio Abbado (1993)
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891036.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Orpheus Chamber Orchestra  - Dvorak : Serenades Opp. 22 & 44 (1985) [FLAC|Lossle
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889800.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889745.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ VA - Ballet Masterpieces: The World's Favorite Ballets and Ballet Suites (2009) 
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889080.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ Daniel Behle - George Petrou Gluck: Opera Arias (2014) [FLAC|Lossless|image + .c
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888404.jpg" />
 </div>
 
 

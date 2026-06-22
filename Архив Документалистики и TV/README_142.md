@@ -1,3 +1,29 @@
+###  Публикация: 512960   (663748) от 19.06.2012
+
+Жадность. Солнечный удар (2012.06.19) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663748.jpg" />
+</div>
+
+
+###  Подробнее
+
+ЖАДНОСТЬ — производная страха. Помните — скупой платит дважды. «Жадность» — потребительское расследование. Каждый выпуск посвящен группе товаров и услуг, максимально востребованных покупателем. От сосисок до ОСАГО, от перемороженных продуктов до вредного воздействия бытовой химии... «Жадность» рассказывает о том, как не стать жертвой мошенников. Программа «Жадность» не пугает — она помогает быть бдительным! Как выбирать еду, напитки, обувь, одежду, лекарства? Зачем продавцам салатов нужна туалетная бумага, а продавцам мяса — марганцовка? Даже в самых проверенных магазинах можно найти нарушения прав потребителей. «И основа всего этого — жадность, — уверен директор дирекции документально-публицистических программ Михаил ТУКМАЧЕВ. — С одной стороны — это жадность продавца, который стремится из самой гнилой картошки выбить свой рубль прибыли, а с другой стороны — это жадность покупателя, который стремится купить дорогостоящий товар за минимальные деньги. И наша программа каждую неделю будет наглядно показывать и доказывать, (   Читать дальше...   )В выпуске: Сколько стоит летний отдых? Где дешевле провести две недели - в России или за границей? Как отдохнуть, не лишившись здоровья и не потратив лишнего?Жанр: ТелепередачаПродолжительность: ~ 00:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:931C33BB4A6CF30FD7F476FB7925CAB8725C16F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 512931   (663732) от 19.06.2012
 
 Вечерний Ургант. Выпуски №21-30 (2012) SATRip
@@ -6,7 +32,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663732.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ History Channel: Невероятные проекты древнего мира
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663706.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ NG: История города пиратов / Wicked pirate city (2011) SATRi
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_663601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_663601.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_663498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_663498.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663098.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662926.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662925.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662923.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662920.jpg" />
 </div>
 
 
@@ -252,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662917.jpg" />
 </div>
 
 
@@ -281,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662894.jpg" />
 </div>
 
 
@@ -310,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662893.jpg" />
 </div>
 
 
@@ -339,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662890.jpg" />
 </div>
 
 
@@ -368,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662889.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662887.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662801.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662766.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ NG: Неизвестный Китай. Ледяной город / Lost In China
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_662715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_662715.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ NG: Неизвестный Китай.  По шелковому пути / Lost 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_662655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_662655.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662427.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ Monster Energy Nascar Cup Series-2017, Этап 12 - Charlotte (2017) HDTVRip [H
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662410.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ NG: Секретные материалы древности. Терновый �
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662332.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661893.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661889.jpg" />
 </div>
 
 
@@ -669,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661888.jpg" />
 </div>
 
 
@@ -683,34 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B336E724E437F2E9026A3D516DFC25A026B301CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 341530   (661686) от 25.05.2011
-
-Авто плюс - Наши тесты – Great Wall Coolbear and Great Wall Florid (2009) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_661686.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Наши тесты" - это знакомство с новым, как правило еще не появившимся на рынке автомобилем.
-Только комплексный тест на полигоне и дорогах общего пользования способен выявить все преимущества и недостатки автомобиля.
-Ведущие сами испытывают новинку, моделируя всевозможные ситуации, от спортивных заездов до серьезного бездорожья.Жанр: АвтопередачаПродолжительность: ~00:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58B8397D782AA0295DD3FDF581682E8178024D48
 ```
 
 https://mybot314.ru/tekegram_catalog/

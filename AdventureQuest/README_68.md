@@ -1,3 +1,133 @@
+###  Публикация: 1081971   (151005) от 24.12.2016
+
+Disney Infinity 2.0 (2016) [Ru/Multi] (1.0.2/upd1) License PLAZA [Gold Edition]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disney Infinity 2.0 — видеоигра нового поколения, в которой вас ждут головокружительные приключения с супергероями MARVEL! Выбирайте любимого героя из 20 доступных и отправляйтесь в их родные миры, чтобы узнать новые истории MARVEL. Зовите друзей и проходите уровни в кооперативном режиме. Или же создайте свой собственный, ни на что не похожий мир, и поделитесь им (   Читать дальше...   )Тип издания: LicenseРазработчик: Avalanche Software, Heavy Iron StudiosЖанр: Adventure, Action, 3D, 3rd PersonЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF9DA7082A113DF47F976AC0DD0185B6BF68A590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081975   (150968) от 24.12.2016
+
+Disney Infinity 3.0 (2016) [Multi] (1.0.3/upd1) License PLAZA [Gold Edition]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Соскучились по «Звездным войнам»? Хотите протестировать и оценить созвучную с популярной киношной сагой компьютерную игру? В таком случае добро пожаловать в новую Disney Infinity 3.0!Тип издания: LicenseРазработчик: Avalanche Software, Heavy Iron StudiosЖанр: Adventure, Action, 3D, 3rd PersonЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DC36BE8A0B0AEFA9F890D4D445144ED03FC4D58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825876   (150884) от 18.10.2025
+
+Vasilisa and Baba Yaga / Василиса и Баба Яга (2024) [Ru/Multi] (1.5.7/dlc) Repack Other s [Digital Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это страшное приключение, в котором путешествие Василисы и её служба у Бабы Яги состоят из набора разнообразных по геймплею мини-игр. C Василисой и её куклой вы пройдете путь сказочного героя, преодолеете препятствия, отделяющие мир живых от мира мёртвых, выполните задания жуткой Бабы Яги, чтобы доказать ей, что вы достойны её благосклонности и за это получите в (   Читать дальше...   )Тип издания: RepackРазработчик: Baba Yaga GamesЖанр: Приключенческие игры, Казуальные игрыЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Китайский (упрощенный) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A55C3552722CF433BC78C13BAECA564B1DF1F145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519076   (150229) от 22.12.2021
+
+Cleo a pirate's tale (2021) [Multi] (1.1.5) License GOG [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клео - пиратская сказка - это индивидуально разработанное пиратское приключение в стиле ретро в стиле пиксель-арт, наполненное ностальгическим чутьем, юмором и линейным сюжетом, вдохновленным старыми играми Zelda и классическими приключенческими играми LucasArts. Клео - 14-летняя циничная девушка, которая живет однообразной жизнью со своим отцом в баре. Она знает (   Читать дальше...   )Тип издания: LicenseРазработчик: Christoph SchultzЖанр: Приключение, Квест, ДрамаЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FF97FD297DB38981A34383235C5A90909FA6EAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968863   (149739) от 25.12.2015
+
+Leviathan: The Last Day of the Decade / Левиафан: Последний день Декады (2014-2015) [Ru/En] (1.0) License SKIDROW [Episode 1-5]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149739.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Левиафан: последний день Декады» - это детективная история. Её рассказчик вырос во мрачном, охваченном эпидемией мире. Власть здесь держат 5 кланов, а настоящим королем является вечно спящий, живой мертвец.  Потратив несколько лет жизни, молодой аристократ находит улику, которая позволит наказать убийцу его матери. Но что делать, если за спиной преступника стоит (   Читать дальше...   )Тип издания: LicenseРазработчик: LostwoodЖанр: Приключенческие игры, ИндиЯзык озвучки: -/-Язык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:901BE513F31FD28DE41B3FF5E6BE89DBB3F5BB70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519277   (149106) от 23.12.2021
 
 Scarf (2021) [Ru/Multi] (1.0.1) License FAIRLIGHT
@@ -6,7 +136,7 @@ Scarf (2021) [Ru/Multi] (1.0.1) License FAIRLIGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149106.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Memoria (2013) [Ru/En] (1.2.3.0341) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149081.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ DREDGE (2023) [Ru/Multi] (1.4.0/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148564.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146594.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Broken Sword 2: The Smoking Mirror (2011) [Multi] (3.4.3) License GOG [Remastere
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145967.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Broken Sword: Shadow of the Templars (2010) [Multi] (1.0.744/1.6.0) License GOG 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145884.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Still There (2019) [Ru/Multi] (1.05) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145640.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Deadlight (2016) [Multi] (1.0) License GOG [Director's Cut]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145630.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ KURSK (2018) [Ru/En] (2.1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144970.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Death Stranding (2020) [Ru/Multi] (1.06hf/dlc) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144821.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ First Date: Late To Date (2022) [Ru/Multi] (Build 9491049/0.3.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144680.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ Trine 5: A Clockwork Conspiracy (2023) [Ru/Multi] (1.2a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144447.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ Amnesia: The Dark Descent / Амнезия: Призрак прошлого (201
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144142.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Broken Sword: The Sleeping Dragon / Сломанный меч 3: Спящий д
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144025.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) License GOG [Episodes 1-3
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143856.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ Broken Sword 4: The Angel of Death / Сломанный меч 4: Ангел с�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143815.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Father's Day (2022) [Ru/En] (1.6.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143059.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Nerved (2020) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142931.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Tormented Souls (2021) [Ru/Multi] (Build 7622656) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142673.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ Californium (2016) [Multi] (1.04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141981.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ Amnesia: The Dark Descent / Амнезия. Призрак прошлого (201
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141764.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ Amnesia: The Dark Descent – приключенческая игра с вид�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77D47375934E28A3BDFBCC83A4A67B27C1E1ECE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678964   (141095) от 23.11.2023
-
-Daylight (2014) [Ru/Multi] (Build 432586/dlc) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы просыпаетесь, в заброшенной больнице. Ваш телефон является единственным источником света. Вы заблудились в лабиринтах и пытаетесь найти путь назад, постоянно слыша странные звуки и чувствуя за спиной чье-то жуткое присутствие...Тип издания: RepackРазработчик: Zombie StudiosЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский и другиеЯзык интерфейса: Русский, Английский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A1C5F49A5A0CF74DA66F2833BBE4AF2367FBEDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262265   (139961) от 29.12.2018
-
-The Room Three (2018) [Ru/Multi] (1.0/upd1) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139961.jpg" />
-</div>
-
-
-###  Подробнее
-
-В The Room Three вас снова ждут тактильно решаемые головоломки из предыдущих частей в сочетании со значительно выросшим миром для исследования. Команда Fireproof Games переработала и снабдила новыми текстурами и освещением все объекты и локации, сделав игру по-настоящему живой. В The Room Three вы, не устояв перед зовом неизведанного, прибываете на далекий остров, (   Читать дальше...   )Тип издания: LicenseРазработчик: Fireproof GamesЖанр: Adventure, Puzzle, Logic, CasualЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:222AA46DE0A9F22E531C939244A5F13071BE4B27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679252   (138735) от 24.11.2023
-
-UNCHARTED: Legacy of Thieves Collection (2022) [Ru/Multi] (1.4.21058) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готовы испытать удачу? Отправляйтесь в погоню за собственным наследием и оставьте свой след на карте в игре UNCHARTED: Наследие воров. Коллекция. Насладитесь захватывающими кинематографическими сюжетами и популярнейшими играми культовой серии UNCHARTED вместе с обаятельными и хитрыми ворами – всеми любимыми Натаном Дрейком и Хлоей Фрейзер.Тип издания: LicenseРазработчик: Naughty Dog LLC, Iron Galaxy StudiosЖанр: Action, AdventureЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8628F6EEC2D45AA9450620E6BF2118DD93187023
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273090   (138343) от 30.12.2018
-
-103 (2018) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Помогите Лили использовать ее воображение, чтобы разблокировать ее воспоминания и пережить события в ночь, которая изменила ее жизнь. Узнайте, что произошло и что такое 103.Тип издания: RepackРазработчик: Dystopia InteractiveЖанр: Adventure, Logic, Casual, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B083865E502DECCD4FFC95B38F55C5237040BD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088554   (137875) от 31.12.2016
-
-Of Light and Darkness: The Prophecy (1998) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из самых необычных, сложных и опасных квестов. Сюжет занимателен, но всё-таки не поражает: вам предстоит вступить в битву с Лордом Тьмы, похитившим музыкантов (!), с помощью которых он собирается устраивать в нашем и без того многострадальном мире катастрофы… А спасать вам предстоит Ангела, захваченного Дьяволом… А для этого надо освободить семерых злых призраков…Тип издания: LicenseРазработчик: Tribal DreamsЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94BA4D2750C6883972DE53E683D0551579FE23F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

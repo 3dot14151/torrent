@@ -1,3 +1,55 @@
+###  Публикация: 1530875   (676297) от 11.03.2022
+
+TIDAL Music v2.56.0 [En] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официальное Андроид-приложение сервиса потокового воспроизведения музыки с возможностью прослушивания в качестве Lossless и MQA.Тип издания: Пиратка (Mod)Релиз состоялся: 9 марта 2022 г.Разработчик: TIDAL (NY)Поддерживаемая ОС: Android 6.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC03C16E1FEF13E3CD70F07F3C83EC2A9E3A69A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441182   (676148) от 11.03.2022
+
+Deezer v6.2.48.37 [Ru] - музыка, плейлисты и подкасты (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы делитесь любовью. Мы делимся музыкой. Deezer — это ваш бесплатный музыкальный сервис с 56 миллионами треков, плейлистов и подкастов, а также персональными рекомендациями. Слушайте свои любимые песни и открывайте для себя новые треки с помощью музыкального плеера. Ваша жизнь достойна собственного саундтрека.Тип издания: Пиратка (Premium)Релиз состоялся: 7 марта 2022 г.Разработчик: Deezer MobileПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D44A68A7D1D1C5046735A49FE72D9D51047D7427
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 508700   (673740) от 12.06.2012
 
 HTC Sync 3.2.20 - синхронизация для HTC Android-устройств
@@ -6,7 +58,7 @@ HTC Sync 3.2.20 - синхронизация для HTC Android-устройст
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_673740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_673740.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ AndroiTS Compass Pro 1.01 - Компас (2012) <En>
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_669845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_669845.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ Mobi Calculator PRO 1.4.0 Mod by Kirhe [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667712.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Mobi Calculator PRO 1.4.2 Mod by andrey.utasco [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667671.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ Chicken Invaders / Куриные захватчики 5 версий [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662907.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662635.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ DuckTales: Remastered / Утиные истории 1.0.2 + Mod [Money] [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661753.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ HERE WeGo v2.0.11424.114741 [Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660903.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659647.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659633.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ RSS Reader v1.7.0 [Ru] - чтение RSS-лент
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659622.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658447.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ Cказки для малышей 3.0.3 [Ru]
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657664.jpg" />
 </div>
 
 
@@ -357,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657660.jpg" />
 </div>
 
 
@@ -384,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657565.jpg" />
 </div>
 
 
@@ -411,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657485.jpg" />
 </div>
 
 
@@ -438,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657352.jpg" />
 </div>
 
 
@@ -464,7 +516,7 @@ Where's My Perry / Где же Перри? 1.7.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656301.jpg" />
 </div>
 
 
@@ -492,7 +544,7 @@ Root Browser (File Manager) 2.2.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655109.jpg" />
 </div>
 
 
@@ -518,7 +570,7 @@ CAD Touch Pro v5.09 [Ru/En] - Редактор и просмотрщик фай�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655075.jpg" />
 </div>
 
 
@@ -544,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654084.jpg" />
 </div>
 
 
@@ -570,7 +622,7 @@ Half-Life HD+ADDONS+MODS [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651870.jpg" />
 </div>
 
 
@@ -596,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650705.jpg" />
 </div>
 
 
@@ -624,7 +676,7 @@ Samsung Все Сматфоны и планшеты [Ru]
 >>Прошивки для Android устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650653.jpg" />
 </div>
 
 
@@ -635,66 +687,6 @@ Samsung Все Сматфоны и планшеты [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84E272DF731EC89D677FD821250EA04C638A1EA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517216   (648919) от 30.06.2012
-
-Akimbo Audiobook Player v1.6.1 (30.06.2014) <Ru>
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_648919.jpg" />
-</div>
-
-
-###  Подробнее
-
-•поддерживает все основные форматы аудио книг: M4A, M4B (распознает главы), MP4, MP3, ogg vorbis, WMA and FLAC.
-•запоминает последнюю позицию и последний уровень громкости для каждой книги.
-•настраиваемые кнопки для быстрой перемотки вперед или назад.
-•простое в использовании меню, которое позволит мгновенно перейти на любую позицию в книге.
-•Home Screen Widget.
-•поддержка управления с гарнитуры (beta).
-•считывает обложки и главы аудиокниг.
-•позволяет одним щелчком автоматически загрузить обложки для любой книги, (   Читать дальше...   )Разработчик: Akimbo AppЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292051   (648270) от 28.03.2019
-
-Life Is Strange Anthology [Ru/En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня игры – 16-летняя бунтарка Хлоя Прайс, которая подружилась с самой популярной девушкой школы – Рейчел Эмбер.
-Тайна семьи Рейчел перевернула её жизнь с ног на голову и эта дружба – единственный оплот, который помогает справиться девушкам с их внутренними демонами.Тип издания: Авторская сборкаРелиз состоялся: 2019Разработчик: SQUARE ENIX LtdПоддерживаемая ОС: Android 4.3 +Жанр: ПриключенияЯзык интерфейса: RU, ENG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA9B96760E44E355BF7BB9EF608870C036627850
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1150467   (593722) от 15.07.2017
+
+Ultimate General: Civil War (2017) [Ru/Multi] (1.0.20111) License CODEX
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Гражданской войны в США насчитывает более 50 сражений — от мелких стычек до масштабных битв, которые разворачиваются по несколько дней на сотнях квадратных километров. Ход кампании полностью зависит от действий игрока и результатов сражений. Исторические сражения можно проходить и по отдельности.Тип издания: LicenseРазработчик: Game-LabsЖанр: Strategy, Tactical, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:208601C3C1BC6A56E5F7FA6C0CDF23A3C1A9601B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235301   (587828) от 08.05.2019
 
 Battlestar Galactica Deadlock (2017) [Ru/Multi] (1.2.73/dlc) Repack R.G. Catalyst
@@ -6,7 +32,7 @@ Battlestar Galactica Deadlock (2017) [Ru/Multi] (1.2.73/dlc) Repack R.G. Catalys
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_587828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_587828.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Company of Heroes 2 (2014) [Ru/En] (4.0.0.23166/dlc) Repack =nemos= [Master Coll
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586884.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Fell Seal: Arbiter's Mark (2019) [Ru/Multi] (1.0.3) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583936.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Fell Seal: Arbiter's Mark (2019) [Ru/Multi] (1.0.3) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583887.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Grotesque Tactics: Evil Heroes / Grotesque Tactics: Настоящие него�
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580498.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Meridian: Squad 22 (2016) [En/Hu] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579057.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Meridian: Squad 22 (2016) [En/Hu] (1.0/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575712.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Satellite Reign (2015) [Ru/Multi] (1.13.06) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569965.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Warhammer 40,000: Mechanicus (2018) [Ru/Multi] (1.2.6) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566561.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Warhammer 40,000: Armageddon - Da Orks (2016) [Ru/Multi] (1.0) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566411.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ The Banner Saga 2 (2016) [Ru/Multi] (2.39.03) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564659.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Hard West (2015) [Ru/Multi] (1.5/dlc) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564638.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Savage Resurrection (2016) [Ru/Multi] (1.0.0) License PLAZA
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564559.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Zombie City Defense 2 (2016) [Ru/En] (1.0.0) License PLAZA
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564558.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ Men of War: Condemned Heroes / Штрафбат [Ru/Multi2] (Steam-Rip/1.00.2) 2
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562308.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.2.5/dlc) Repack R
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561160.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ Men of War / В тылу врага 2: Лис пустыни (2009) [Ru/En/Fr] (
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556165.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ Space Rangers HD: A War Apart / Космические рейнджеры HD: Р
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554785.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ Age of Fear: The Undead King (2016) [En] (5.9.5) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554311.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ The Storm Guard: Darkness is Coming (2016) [En] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553391.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ Worms World Party Remastered (2015) [Ru/Multi] (1134) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550699.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ Warhammer 40,000: Dawn of War II (2009-2010) [Ru] (2.6.10236) Repack Xatab [Gold
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548890.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ The Banner Saga 2 (2016) [Ru/Multi] (2.55.47) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548711.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ The Banner Saga 3 (2018) [Ru/Multi] (1.2.2.55.80) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548634.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ Dead Age (2016) [Ru/Multi] (1.7) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545213.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ Dead Age — переживите зомби-апокалипсис с поша�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADFADB3FDEB623FC222B0BC6BC4F17CBD5648519
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238834   (544351) от 01.08.2018
-
-Post Human W.A.R (2017) [Ru/Multi] (1.1.3) License HI2U
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Post Human W.A.R – пошаговая тактическая и психологическая стратегия. На заре третьего тысячелетия человечество вымерло, оставив после себя израненную Землю. Свирепые мутировавшие животные, переоборудованные для войны домашние роботы, а также изобретательные приматы в трико теперь борются за право распоряжаться наследием людей.Тип издания: LicenseРазработчик: Studio ChahutЖанр: Turn-Based StrategyЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3D6A559DA673334DBE7DC74A853EAB599874003
 ```
 
 https://mybot314.ru/tekegram_catalog/

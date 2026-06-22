@@ -1,3 +1,55 @@
+###  Публикация: 1657739   (55070) от 29.05.2024
+
+Lapin (2023) [Multi] (1.8.3.2) Scene Tenoke
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любители загадочных приключений и увлекательных головоломок, скорее всего, найдут для себя что-то особенное в игре Lapin. Погружаясь в визуально привлекательные локации, игрок сталкивается с различными препятствиями и интерактивными элементами, которые добавляют глубину геймплею и делают прохождение незабываемым. Главный герой - милый и очаровательный кролик, который (   Читать дальше...   )Тип издания: SceneРазработчик: Studio DoodalЖанр: Приключенческие игры, ИндиЯзык субтитров: Английский, Корейский, Японский, Китайский и другиеЯзык интерфейса: Английский, Корейский, Японский, Китайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C5F145C7A6312D372512E16B04ADDD2D75A2F41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727687   (54492) от 03.06.2024
+
+F.I.S.T.: Forged In Shadow Torch (2021) [Ru/Multi] (1.200.002) Repack dixen18
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54492.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того, как шесть лет назад животные Города Светоч были побеждены вторгшимся Легионом Роботов в Войне сопротивления, кролик Райтон, бывший боец Сопротивления, держался в тени. Арест его друга означал, что у него не было другого выбора, кроме как надеть свой гигантский металлический кулак и бороться против тех, кто его угнетает. Он не знал, что вскоре попадет (   Читать дальше...   )Тип издания: RepackРазработчик: TiGamesЖанр: Action, Platformer, Adventure, IndieЯзык озвучки: Английский, КитайскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9B2CF991B8ECF23FA3920F0C2824B51808D81FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728389   (54126) от 07.06.2024
 
 Stray (2022) [Ru/Multi] (1.5#368) Repack FitGirl [Soundtrack Edition]
@@ -6,7 +58,7 @@ Stray (2022) [Ru/Multi] (1.5#368) Repack FitGirl [Soundtrack Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54126.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Airhead (2024) [Ru/Multi] (13431795) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53818.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Slavania (2024) [Ru/En] (1.0.1-6160) Repack Wagner
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53759.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Braid (2024) [Multi] (20240603) Scene Tenoke [Anniversary Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53699.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Gargoyles Remastered (2023) [Multi] (1.01.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52444.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Crab God (2024) [Ru/Multi] (1.0.24) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52427.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Crab God (2024) [Ru/Multi] (1.0.24) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51208.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Doodle Adventure of Chameleon (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51194.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Monster Bash HD (2021) [En] (1.1.5.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51087.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Cookie Cutter (2023) [Ru/Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51085.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Crystal Caves HD (2020) [En] (1.1.5.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51045.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Star Leaping Story (2024) [En] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50864.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Ultros (2024) [Multi] (20240403) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50435.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ With My Past (2024) [Ru/Multi] (20240601) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50394.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Braid (2024) [Ru/Multi] (20240603) Repack dixen18 [Anniversary Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49404.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ SANABI (2023) [Ru/Multi] (1.3.35) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49267.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Artisan TD (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48674.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ The Messenger (2018) [Ru/Multi] (2.0.4/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48636.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Gestalt: Steam & Cinder (2024) [Multi] (1.0.6) Scene Skidrow
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48607.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ The Messenger (2018) [Ru/Multi] (2.0.4/dlc) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48566.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ JustAxe (2024) [Ru/En] (1.00) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48551.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Bo: Path of the Teal Lotus (2024) [Ru/Multi] (1.0.6) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48307.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Dystobel (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48293.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Stray (2022) [Ru/Multi] (1.5#368) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48145.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Stray (2022) [Ru/Multi] (1.5#368) Repack dixen18
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:678B009A600D40348A895CCEA75C149ED40E7118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740690   (48024) от 03.08.2024
-
-BioGun (2024) [Ru/Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48024.jpg" />
-</div>
-
-
-###  Подробнее
-
-BioGun погружает пользователей в микроскопический мир, с которым они еще не сталкивались. Миссия ясна: спасти лучшего друга человека от злобной вирусной угрозы. Это не просто взрывной бой с врагами, это стратегический танец выживания в сложном человеческом теле. Это не простая прогулка. Повествование заставляет геймеров думать на ходу, требуя от них быстрых рефлексов (   Читать дальше...   )Тип издания: SceneРазработчик: Dapper Dog DigitalЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9C6CCFBDC1EFAB4DBF17473463E2C74B92DD2EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740674   (47974) от 03.08.2024
-
-First Cut: Samurai Duel (2024) [En] (1.3) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47974.jpg" />
-</div>
-
-
-###  Подробнее
-
-First Cut: Samurai Duel - это хардкорный пиксельный слэшер для любителей суровых рукопашных сражений. У самурая нет цели, только путь, который ему предстоит пройти. Управляйте безбашенным воином, который готов поразить каждого, кто встанет на вашем пути. Оттачивайте свое мастерство с бесконечных схватках с самыми разными противниками, формируйте уникальный боевой (   Читать дальше...   )Тип издания: LicenseРазработчик: Night Eyes InteractiveЖанр: Экшены, ИндиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:786091EAAEBC1FA7D31564DB7F21129B93E8486A
 ```
 
 https://mybot314.ru/tekegram_catalog/

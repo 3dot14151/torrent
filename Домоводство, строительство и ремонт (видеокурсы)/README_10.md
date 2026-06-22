@@ -1,3 +1,30 @@
+###  Публикация: 1733847   (107268) от 30.06.2024
+
+Austin School of Furniture & Design, Austin Waldo | Книжный шкаф из деревянных планок / Shiplap Bookcase (2021) WEBRip [EN, RU / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы ищете отличный проект для начала своего путешествия по деревообработке, то не ищите его дальше.
+Этот простой книжный шкаф из шипованой доски разработан специально для того, чтобы стать отличным первым проектом. Материалы легко достать, а инструментов совсем немного. Но пусть это вас не вводит в заблуждение. В этом проекте использованы хорошие, фундаментальные (   Читать дальше...   )Производство: Austin School of Furniture & DesignЖанр: Обучающее видеоЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 00:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADC6DE96740BDAA530062AB32E94F2AE252A6A69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 449674   (75165) от 09.02.2012
 
 Весь Н. И. Курдюмов (Уроки садоводства) [2005] [Русский]
@@ -6,7 +33,7 @@
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75165.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70309.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ Desertmsk | Конфеты Птичье молоко (2022) WEB-DL [RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69457.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ Desertmsk | Зефир в шоколаде (2022) WEB-DL [RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69454.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69086.jpg" />
 </div>
 
 
@@ -143,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69070.jpg" />
 </div>
 
 
@@ -172,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63598.jpg" />
 </div>
 
 
@@ -201,7 +228,7 @@ Paul Anthony | Техники и приемы для портативного ф
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62578.jpg" />
 </div>
 
 
@@ -227,7 +254,7 @@ Skillbox, Андрей Щедрин | Горшечные растения (2022)
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62367.jpg" />
 </div>
 
 
@@ -256,7 +283,7 @@ Archicad-Master | Моделирование нестандартных фаса
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61752.jpg" />
 </div>
 
 
@@ -285,7 +312,7 @@ Archicad-Master | Практическое GDL-программирование 
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61741.jpg" />
 </div>
 
 
@@ -314,7 +341,7 @@ Archicad-Master | Создание разверток в Archicad по техн�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61739.jpg" />
 </div>
 
 
@@ -343,7 +370,7 @@ Steve Maxwell | Отделка дерева для начинающих (2023) W
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61200.jpg" />
 </div>
 
 
@@ -371,7 +398,7 @@ Local Flowers, Екатерина Фролова | Школа цветочног
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61175.jpg" />
 </div>
 
 
@@ -398,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60808.jpg" />
 </div>
 
 
@@ -424,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60670.jpg" />
 </div>
 
 
@@ -453,7 +480,7 @@ Austin School of Furniture & Design, Philip Morley | Изготовление м
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60473.jpg" />
 </div>
 
 
@@ -480,7 +507,7 @@ Lingerie Design School | Бельевой эксперт. Тариф «Я сам
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60274.jpg" />
 </div>
 
 
@@ -509,7 +536,7 @@ Garden Group, Иван Шаферов | Благоустройство. Тари
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59931.jpg" />
 </div>
 
 
@@ -538,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58690.jpg" />
 </div>
 
 
@@ -567,7 +594,7 @@ Michael Dunbar | Заточка режущего инструмента с по�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58283.jpg" />
 </div>
 
 
@@ -593,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58108.jpg" />
 </div>
 
 
@@ -622,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57798.jpg" />
 </div>
 
 
@@ -648,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_57793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_57793.jpg" />
 </div>
 
 
@@ -676,7 +703,7 @@ Pat Warner | Универсальный фрезер. Приемы работы.
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_57690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_57690.jpg" />
 </div>
 
 
@@ -688,32 +715,6 @@ Pat Warner | Универсальный фрезер. Приемы работы.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:459E8124084EAA661E1953116BC9E8804F419AFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720655   (57595) от 04.05.2024
-
-Pat Warner | Универсальный ручной фрезер (The Versatile Router) (2000) DVDRip [EN, RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Столяры любого уровня квалификации найдут что-то полезное в этом материале о самом универсальном электроинструменте в мастерской. По мнению эксперта по фрезерным станкам Пэта Уорнера, основная идея заключается в использовании фрезера в качестве "чистового" инструмента: выполните всю черновую обработку с помощью других электроинструментов, затем удалите (   Читать дальше...   )Жанр: Обучающий видеофильмЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 00:47:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E15E16E2AA52CCC984621799F32889947A7B10B
 ```
 
 https://mybot314.ru/tekegram_catalog/

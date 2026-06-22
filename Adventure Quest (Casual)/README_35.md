@@ -1,3 +1,107 @@
+###  Публикация: 1559238   (527061) от 24.06.2022
+
+City Legends 2: Trapped in Mirror (2022) [En] (1.0) Unofficial [Colleсtors's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение мистической серии игр City Legends. Когда ваша книга об Ордене злых ведьм становится бестселлером, крупный издатель обращает на это внимание! Прежде чем выпишет вам чек он планирует забрать черновик вашего следующего романа ужасов. Итак, вы едете в Пенсильванию писать о Кровавой Мэри! К счастью для вас, в местном музее есть уникальный экспонат с зеркалом (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:379C9C45C3BEFE62C1EF301EC672F7D9030A4A19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156704   (526955) от 08.08.2017
+
+The Cursed Island: Mask of Baragus / Проклятый Остров: Маска Барагуса (2014) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Включив телевизор, Кейси узнает из новостей, что ее отец пропал без вести на отдаленном проклятом острове. Она сразу решает отправиться туда и разыскать своего отца. На пути девушке приходится преодолевать значительные препятствия - и вот она на острове. Оказывается, отец Кейси исчез вместе со всей своей группой. Однако есть подсказка - Стромберг, один из участников (   Читать дальше...   )Тип издания: UnofficialРазработчик: 2do gamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34971B6D93BA89B8AE7E719B9D441FF8169FB4C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156955   (526348) от 09.08.2017
+
+Myths of the World 11: The Black Sun / Мифы народов мира 11: Черное солнце (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение увлекательной мистической серии игр Myths of the World. На этот раз в городе начались беспорядки из-за ожившей статуи гигантской ящерицы, которая теперь способна превращать людей в камень. Командор вашего родного города пропал без вести, и вас призвали провести расследование. Странное создание перед исчезновением превратило вашего отца в камень. Это гонка (   Читать дальше...   )Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4E5CDA29EEEC9D032009A5835DAEED1EC917A56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157223   (525877) от 10.08.2017
+
+Vermillion Watch 3. Order Zero (2017) [En] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы начинаете расследование по краже редкого антиквариата, но быстро понимаете, что это больше, чем мелкая кража.Пришло время объединится с друзьями и найти преступника, который терроризирует Лондон.Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Поиск предметов, Логическая, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7616C749FBA2EABFFA7950981E3B0FBA6DAA971C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1157212   (525870) от 10.08.2017
 
 Dark Tales 11: Edgar Allan Poe's Lenore [En] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -6,7 +110,7 @@ Dark Tales 11: Edgar Allan Poe's Lenore [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525870.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Grim Tales 13: The White Lady (2017) [En] (1.0) Unofficial [Collector's Edition 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525866.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ The Myth Seekers: The Legacy of Vulcan / Искатели мифов: Насле
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525469.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Sea of Lies 5: Beneath the Surface / Море лжи 5: Тайны глубин 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525168.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ Queen's Quest 2: Stories of Forgotten Past / Королевский квест 2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525156.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ Nevertales 6. Forgotten Pages (2017) [En] (1.0) Unofficial [Collector's Edition 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524764.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ Off the Record 4: Liberty Stone / Не для печати 4: Камень св�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524727.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ Maze 3: Nightmare Realm (2017) [En] (1.0) Unofficial [Collector's Edition / Ко
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524718.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ Myths of the World 12. Fire of Olympus [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524713.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ Mystery Case Files 12: Key To Ravenhearst / За семью печатями 12:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524661.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ Dark Tales 15: Edgar Allan Poe's. Speaking with the Dead / Тёмные исто
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523694.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ Detectives United: Origins / Детективное агенство: Исток
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523517.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ Haunted Train 2: Frozen in Time / Поезд привидений 2: Замор�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523160.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ Spirits of Mystery 5: Chains of Promise (2015) [En] Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522523.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ Enigma Agency: The Case of Shadows / Тайное агентство: Дело �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522416.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ New York Mysteries 2: High Voltage / Загадки Нью-Йорка 2: Выс�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522373.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ Vermillion Watch 6: Parisian Pursuit (2019) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522259.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ Redemption Cemetery 14: Dead Park / Кладбище искупления 14: П
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522127.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ Suburban Mysteries: The Labyrinth of the Past (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521343.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ Mystery Stories: Mountains of Madness / Таинственные истории:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519852.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ Mystery Heritage: Sign of the Spirit. Collector's Edition / Тайное Нас�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519799.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ Grim Facade: The Artist and The Pretender / За гранью жестокост
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519424.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ Grim Facade: The Artist and The Pretender / За гранью жестокост
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CACB34894FED1A45AA76384538EC721330419C25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314385   (519263) от 14.07.2019
-
-Crime Secrets: Crimson Lily / Преступные тайны: Алая лилия (2016) [Ru] (1.0) Unofficial
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте новую увлекательную игру. Отпуск частного детектива в курортном городке прерван жестоким убийством прямо у ворот отеля. Тело жертвы промерзло насквозь, и к нему прикреплена бумажная лилия. Визитная карточка убийцы? Метель отрезала героя от внешнего мира. Теперь надежда только на себя и свои детективные навыки: опрос свидетелей, поиск улик, преследование (   Читать дальше...   )Тип издания: UnofficialРазработчик: One More Level, Artifex MundiЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48C5222E95B3315E78267F2E9ACFA94DB19B82DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241723   (519002) от 18.08.2018
-
-Secret Investigations 3: Revelation / Загадочные расследования 3: Откровение (2018) [Ru] (1.0) Unofficial
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джулия - автор детективов, и ей нужна ваша помощь в расследовании преступлений. Готовы ли вы распутать самые сложные дела и раскрыть все тайны? Что вы думаете о том, чтобы стать главным детективом? Найдите все улики, которые помогут вам раскрыть преступление. Игра включает в себя десять дел с самыми жестокими преступлениями. Используйте свой острый ум и зоркий глаз (   Читать дальше...   )Тип издания: UnofficialРазработчик: Playzzi GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE30E4F856A627845F691E8087EA7953C0EB954
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560742   (518728) от 01.07.2022
-
-Spirits Chronicles 2: Flower of Hope (2022) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение увлекательной игры Spirits Chronicles. Существование цветочного города Лорелай под угрозой, и вы - его единственная надежда. Жители паникуют - на город обрушилась ударная волна, а животные слегли от неизвестной болезни. Вас просят найти источник проблемы и спасти животных, но вскоре вы узнаёте, что странная болезнь - это только начало!Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B11D9B6E0EC3AC431C09C386C1A6DACCC8E80238
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314751   (517975) от 15.07.2019
-
-The Unseen Fears 4: Stories Untold / Невидимые страхи 4: Нерассказанные сказки (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение мистической игры The Unseen Fears. Ах, Прага сказочный город! Детектив собирался приятно провести здесь время, но угодил в новое приключение. Он услышал призыв о помощи, доносящийся из книги сказок. Удастся ли детективу спасти тех, кто оказался заключенным на ее страницах? Или ему суждено стать одним из персонажей?Тип издания: UnofficialРазработчик: GrandMA StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE91FAF1C43CF0AC22A32244B2CAF213E661C2B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1876285   (1073111) от 
+
+NG: Седьмой континент: Антарктика / Continent 7: Antarctica (2016) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экспедиционная группа отправляется на самый загадочный материк планеты - туда, где горизонт растворяется в белизне, а ветер звучит как живое предупреждение. Их путь пролегает через бескрайние ледяные плато, трещины в панцире древних ледников и внезапные шторма, способные в одно мгновение перечеркнуть планы. С каждым пройденным километром испытания становятся жестче: (   Читать дальше...   )Производство: США, National Geographic StudiosЖанр: документальный, наука, исследование, экстримУчастники: Крис БраунингПеревод: Двуголосый профессиональныйЯзык озвучки: русский, английский (студия "Велес", текст читают Дмитрий Стрелков и Марина Гладкая)Субтитры: английскиеПродолжительность: 6 x ~ 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFBADD27CFADFE37220B4CABD797A2D5132C46C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1873208   (1070937) от 27.05.2026
 
 NG: Внутри Заколдованных Лесов / Inside the Enchanted Forests (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6) Pazl Voice
@@ -7,7 +33,7 @@ NG: Внутри Заколдованных Лесов / Inside the Enchanted Fo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070937.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ NG: Внутри Заколдованных Лесов / Inside the Enchanted Fo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070936.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ NG: Дэвид Аттенборо: Океан / Океан с Дэвидом А�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069503.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ NG. Аутсайдеры / Underdogs (2025) WEB-DL [H.265/2160p] [4K, HDR, 10-bi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068602.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ NG. Аутсайдеры / Underdogs (2025) WEB-DL [H.264/1080p] (сезон 1, 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068601.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ NG: Чернобыль: В эпицентре катастрофы / Chernobyl: 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067836.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ NG. Слоны-призраки / Ghost Elephants (2025) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067409.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ NG. Слоны-призраки / Ghost Elephants (2025) WEB-DL [4K, HDR, 10-bit
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067408.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067374.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ NG. Секреты пчёл / Secrets of the Bees (2026) WEB-DL [H.265/2160p] [4
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064457.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ NG. Секреты пчёл / Secrets of the Bees (2026) WEB-DL [H.264/1080p] (�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064448.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ NG: Драконы наяву / Dragons Uncovered (2024) HDTV [H.264/1080p] [VO]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062759.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ NG. Озеро Танганьика. Голубое сердце Африки / 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062196.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ NG. Фашистский лагерь смерти. Большой побег / 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061956.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ NG. Намибия - убежище гигантов / Namibia: Sanctuary of Gia
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058853.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ NG. Титаник: цифровое воскрешение / Titanic: The Digit
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055954.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ NG. Королевство обезьян: линии фронта / Kingdom of 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055484.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ NG. Гепарды: лицом к лицу с Берти Грегори / Cheeta
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052942.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ NG. Гепарды: лицом к лицу с Берти Грегори / Cheeta
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052936.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ NG: Дикие леса Австралии / Australia's Wild Woodlands (2025) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052150.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ NG. Незабываемые дорожные приключения Криса 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051867.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ NG. Незабываемые дорожные приключения Криса 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051861.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ NG: Чудища морей: Доисторическое Приключение
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050282.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ NG. Дикая природа Центральной Америки / Wild Centr
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049941.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ NG. Тайны бычьей акулы / Secrets of the Bull Shark (2020) WEB-DL
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047621.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ NG. Тайны бычьей акулы / Secrets of the Bull Shark (2020) WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BA9783DF098C2935F6B98369CB8E0C194EC8924
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839696   (1046846) от 30.11.2025
-
-NG: Планета рептилий / Planet Reptile (2025) HDTVRip [H.264/720p-LQ] [VO]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Более 12 000 видов рептилий, которые скользят, плавают и даже планируют, обитают по всему миру. Крокодилы, черепахи, змеи и ящерицы имеют предков, таких же древних, как динозавры, и эволюция — их друг. Эти хладнокровные существа приспособились к жизни хитроумными и смертоносными способами: от бронированной кожи и ядовитого яда до рекордной силы укуса и даже кровоточащих (   Читать дальше...   )Производство: США | Wildstar FilmsЖанр: документальный, природаРежиссер: Энн ГаллахерПеревод: Одноголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04B286C2C23A07D20992AB32D95B0DF41425EC11
 ```
 
 https://mybot314.ru/tekegram_catalog/

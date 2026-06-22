@@ -6,7 +6,7 @@ VA - Rap Inspiration: Music For Everyone (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821230.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Rap Ballads: Experimental Hip-Hop and Jazz Rap (2016) [MP3|320 кб/с] <Ra
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819167.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Best Funk Of All Time (2020) [MP3|320 Kbps] <R&B, Soul & Funk>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815438.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Jah Riddim (2020) [MP3|320 Kbps] <Reggae, Soul>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813743.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Female Soul RnB: Mastermix December (2017) [MP3|320 Kbps] <RnB, Hip Soul>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809987.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Mоre Steroids: Rар Аnd Hip Hop Review (2017) [MP3|192-320 Kbps] <Rар,
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800960.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - October Hip Hop Compilation (2021) [MP3|320 Kbps] <Hip Hop, Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798418.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Rap NNM 2020 (Русский Выпуск) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797766.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Soul Connection: True Love (2019) [MP3|320 Kbps] <DnB, Dubstep>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791696.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Vocal Drum And Bass (2018) [MP3|320 Kbps] <Vocal Bass, D&B>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790471.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Red And Black (2018) [MP3|230-320 Kbps] <Rap, Hip Hop, RnB>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790409.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Neon Life: Rap & Hip Hop Collection (2019) [MP3|320 Kbps] <Rap, Hip Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789896.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - One Drop Reggae Vol. 01 (2019) [MP3|320 Kbps] <Reggae, Ska, Soul>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789874.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Trending Topics (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789435.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Summer Jam: Sunny Reggae (2020) [MP3|320 Kbps] <Reggae, Dancehall, Riddim, 
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786724.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Worldwide Rap Singles - Май 2020 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786716.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Matisyahu - Great Artists of My Heart Vol. 06 (2020) [MP3|320 кб/с]<Reggae>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783662.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Romantic Rnb: 200 Best Summer Songs (2020) [MP3|320 Kbps] <R&B, Soul>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783350.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Better Different Intro (2018) [MP3|320 Kbps] <Rap, Hip Hop, RnB>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774393.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Русский регги от ALEXnROCK часть 2 (2019) [MP3|320 Kbps]
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774094.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ VA - Hits of My Soul Vol. 57 (2020) [MP3|320 Kbps] <Rap, Hip-Hop, R&B>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770564.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ VA - Beatport Dancehall: Sound Pack #110 (2020) [MP3|320 Kbps] <Dancehall, Regga
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769849.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ VA - Listen To Your Heart: RnB Classic Mixes (2020) [MP3|320 Kbps] <R&B, Soul>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767640.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ VA - Better World (2019) [MP3|320 Kbps] <Reggae, Dub, SKA>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764530.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ VA - Beatport Dancehall: Electro Sound Pack #116 (2020) [MP3|320 Kbps] <Reggae, 
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763739.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ VA - Rasta On (2019) [MP3|320 Kbps] <Reggae, Dub, Ska>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763527.jpg" />
 </div>
 
 

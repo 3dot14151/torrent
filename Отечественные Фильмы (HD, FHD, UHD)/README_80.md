@@ -1,3 +1,107 @@
+###  Публикация: 1258056   (340531) от 28.10.2018
+
+Прощание (2017) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судьба или случай сводит двух людей на безлюдной остановке. Молодой человек рассказывает об отношениях со своей второй половиной. О сложных жизненных испытаниях, которые стояли перед ними. О прекрасном событии, о котором мечтает каждая девушка. Но он не рассказывает о сложном выборе, который он сделал, о его последнем выборе. Эта встреча навсегда изменит жизнь обоих, (   Читать дальше...   )Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Андрей МарковАктеры: Сергей Юдин, Алиса Шинкарук, София Горбунова, Наталья Пинчук, Евгений ДемидовСубтитры: ОтсутствуютПродолжительность: 00:31:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82A4635EDC187E35D5E60CC2F7433A50293DCFFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257528   (340400) от 28.10.2018
+
+Сердечных дел мастера (2018) HDTVRip [H.265/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тревожный звонок заставляет Вику бросить собственную помолвку и ехать в родной городок на помощь к младшей сестре Ларе, которая сбежала из больницы с сердечным приступом. До такого состояния Лару довел ее новый возлюбленный – кардиолог Калашников – местный мачо, с которым она изменила мужу. Муж застал их и ушел. А Калашников после всего произошедшего отказался продолжать (   Читать дальше...   )Производство: Россия, Паламеда Продакшн, Фабула ПродакшнЖанр: МелодрамаРежиссер: Мария МаханькоАктеры: Анна Попова, Анатолий Руденко, Павел Савинков, Валентина Гарцуева, Алеся КлочкоПеревод: Не требуется (русский)Субтитры: ОтстутствуютПродолжительность: 01:33:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7999979E845B21C8552416D52D0F98E3453FC5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258114   (340318) от 28.10.2018
+
+Ты мой свет (2018) HDTVRip [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340318.jpg" />
+</div>
+
+
+###  Подробнее
+
+В день серебряной свадьбы муж внезапно сообщает Наталье (Мария Глазкова), что уходит от нее. Двадцать пять лет жизни в браке перечеркнуты. Жизнь разрушена и даже любимая работа в цветочном магазине не спасает от уныния, да еще бесцеремонный клиент изводит ее своими придирками. Но Наталья заставляет себя не обращать внимания на трудности и жить дальше ради сына, который (   Читать дальше...   )Производство: Россия /  «Паламеда Продакшн»Жанр: МелодрамаРежиссер: Эдуард ПальмовАктеры: Мария Глазкова, Никита Зверев, Ольга Дятловская, Дмитрий Егоров (III), Ольга Рептух, Анатолий Голуб, Алиса Петрова, Зоя Антонова, Евгений Казакевич, Олег ГарбузСубтитры: ОтсутствуютПродолжительность: 01:30:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6825F8783BC70E87C54366B1878B8C31271A378D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578983   (340261) от 25.09.2022
+
+Огород (2022) WEBRip  [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немолодые женщины живут вдалеке от столицы и каждый день борются за достойное существование. Одной из них повезло: вопреки всему она позволила себе любовь.Производство: Россия / ООО «Кинокомпания «Прометей»Жанр: ДрамаРежиссер: Лариса СадиловаАктеры: Валентина Теличкина, Юрий Кутафин, Ольга Лапшина, Раиса Рязанова, Мария Семенова, Анна Денежкина, София Полунина,  Алла БашироваПеревод: Не требуетсяСубтитры: Русские (Full, SDH)Продолжительность: 01:32:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FDFF0A3CA03DEF18E89E3FE7ACD201A1EF4C5E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 725018   (340163) от 24.11.2013
 
 Я буду рядом (2012) WEB-DL [720p]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340163.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339450.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339173.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338851.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338571.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338510.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_338502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_338502.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338349.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337553.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337273.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337246.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337242.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336552.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336315.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336257.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336248.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335376.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335318.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335208.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334923.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334910.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334778.jpg" />
 </div>
 
 
@@ -566,111 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9156E4065DDE5537E6B52B7E03B2B38291C7A306
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258806   (334105) от 31.10.2018
-
-Счастья! Здоровья! (2018) WEB-DLRip [H.265/720p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три влюблённые пары — татарская, армянская и русская — готовятся сыграть свадьбы. Но выясняется, что для Рината и Гузельки свадьба — это способ добыть деньги, чтобы вернуть дорогую скрипку, для отца Артура важнее всего, чтобы свадьба его сына и москвички-Юли прошла в Армении, а у Светы есть «скелет в шкафу» — её «бывший» Андрей в день свадьбы с Олегом вышел из тюрьмы. (   Читать дальше...   )Производство: Россия, Fresh FilmЖанр: КомедияРежиссер: Марк Горобец, Арман Марутян, Леонид МарголинАктеры: Зоя Бербер, Камиль Ларин, Марина Федункив, Сергей Аброскин, Наталья Рудова, Грант Тохатян, Даниил Вахрушев, Олег Верещагин, Дарья Пынзарь, Стася МилославскаяПеревод: не требуется, русский (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:23:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E71815E959BAF358DFBD73B792012295F0FA2B02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 448707   (333228) от 31.10.2020
-
-О чём ещё говорят мужчины (2011) BDRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит в Москве 31 декабря 2011 года, в офисе рекламного агентства, которым руководит Саша Демидов, и в квартире Камиля.
-Четверо вполне состоятельных сорокалетних мужчин успели дать жизнь трём детям (из первого фильма мы знаем, что у Лёши есть две дочки, а у Камиля — сын). А остальная их жизнь заполнена обманом близких им женщин, своих друзей (   Читать дальше...   )Производство: Россия, Кинокомпания «Квадрат»Жанр: КомедияРежиссер: Дмитрий ДьяченкоАктеры: Леонид Барац, Александр Демидов, Камиль Ларин, Ростислав Хаит, Алёна Бабенко, Елена Подкаминская, Екатерина Вилкова, Виталий Хаев, Анатолий Белый, Денис ШведовПродолжительность: 01:38:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:531E06A3D5E9337B8EBE51D5DC51F35F389FAFCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579949   (333220) от 29.09.2022
-
-Яблоня (2021) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333220.jpg" />
-</div>
-
-
-###  Подробнее
-
-В день рождения сына Николай дарит ему неожиданный и странный подарок, который становится судьбоносным в жизни ребенка.Производство: Россия | Творческое объединение «Яблоня»Жанр: Драма, короткометражныйРежиссер: Ольга АжнакинаАктеры: Владислав Абашин, Елена Николаева, Андрей Андреев, Фёдор Добронравов, Иван Добронравов, Сергей СтепанченкоСубтитры: ОтсутствуютПродолжительность: 00:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F36FAD4844AEDC246BA157E9F9A7F1EA7E96D044
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955168   (333198) от 11.11.2015
-
-Шёпот (2015) HDTVRip [H.264/720p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стася Рокотова молода, привлекательна, учится в аспирантуре и собирается замуж. Но несмотря на все это, она чувствует себя очень одинокой. С женихом Игорем на первый взгляд все складывается нормально, но Стасю не покидает ощущение, что он ее не слышит или не хочет слышать. Мать вспоминает о своей младшей дочери, только когда ей что-то нужно. А со старшей сестрой (   Читать дальше...   )Производство: Россия / Паламеда продакшн, Продюсерский центр "Фабула"Жанр: МелодрамаРежиссер: Глеб ЯкубовскийАктеры: Ольга Иванова, Алексей Демидов, Святослав Астрамович, Марина Денисова, Елизавета Шукова, Ирина Нарбекова, Вера Кавалерова, Дмитрий Гурбанович, Олег Ткачёв, Светлана Кожемякина, Алла Долгая и др.Продолжительность: 01:32:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1401E82E50CC49B9B86BED7A81F4C46F22A4F3DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

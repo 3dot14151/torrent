@@ -1,3 +1,107 @@
+###  Публикация: 1772278   (25804) от 04.03.2025
+
+The Rangers In The South (2025) [Ru/Multi] (1.2.0) Repack Let'sРlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25804.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Rangers in the South — это pixelart action roguelike rpg, действие которого происходит в прекрасном мире 2.5D, вдохновленном классикой SNES. Очищайте земли, создавайте сотни персонажей с уникальными стратегиями и умениями, сражайтесь с ордами врагов, исследуйте разные биомы, процедурно генерируемые подземелья и получайте уникальные предметы!Тип издания: RepackРазработчик: DPA StudiosЖанр: Экшены, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F02B7136742F461BF8EFDD22F4A1FBA567BE6BA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718434   (25803) от 04.03.2025
+
+Eiyuden Chronicle: Hundred Heroes (2024) [Ru/Multi] (1.0.5-p27.1/dlc) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Eiyuden Chronicle: Hundred Heroes – это увлекательный фентезийный экшн, в котором пользователю предстоит сыграть за 100 персонажей и провести их через мир истерзанный войнами. Игрок может сам создавать свои отряды из 3-х героев, исходя из собственных предпочтений. Ведь каждый из них обладает своим оружием и уникальными боевыми или поддерживающими способностями.Тип издания: LicenseРазработчик: Rabbit & Bear StudiosЖанр: Экшены, Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:462C318156C41627A98A18A529907F4857672C1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783148   (25789) от 04.03.2025
+
+Shift'n Slay (2025) [Ru/Multi] (1.00.00) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shift’n Slay – пошаговый тактический рогалик на стероидах, где ты шаг за шагом прорываешься через киберпанковый ад, пытаясь разорвать временную петлю, созданную корпоративными ублюдками. Каждый ход – это пазл, каждая атака – смертоносная цепочка разрушений. Ошибки не прощаются. Враги не стоят на месте, а твои ресурсы ограничены. Здесь не получится просто прожать (   Читать дальше...   )Тип издания: RepackРазработчик: DREBOT game studioЖанр: Ролевые игры, СтратегииЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B14B874C7F188BADAE6C0D4F703DFB83D5961F18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783268   (25685) от 05.03.2025
+
+Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack Decepticon
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая полноценная экшен-RPG в серии игр Final Fantasy. Мрачное фантастичное приключение, в котором судьбу мира решат айконы и управляющие ими доминанты. Узнайте историю Клайва Розфилда - воина, получившего титул "Первого Щита Розарии" и поклявшегося защищать своего младшего брата Джошуа, доминанта Феникса. Нашему герою предстоит пережить трагедию, после (   Читать дальше...   )Тип издания: RepackРазработчик: Square EnixЖанр: Экшены, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C31974B0DC6EDD6AE8326CA7408E32B4FEB0788
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783269   (25677) от 05.03.2025
 
 Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack seleZen
@@ -6,7 +110,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25677.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Broken Roads (2024) [Ru/Multi] (1.3.14955) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25597.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25585.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack FitGirl [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25547.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack Wanterlude [Complete Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25530.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Avowed (2025) [Ru/Multi] (1.2.11.0/dlc) Repack Decepticon [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25493.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Book of Hours (2023) [Ru/Multi] (2025.1.a.11/dlc) License GOG [Perpetual Edition
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25489.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Lies of P (2023) [Ru/Multi] (1.5.0.0/dlc) Repack Decepticon [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25474.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Citizen Sleeper 2: Starward Vector (2025) [En] (1.1.31) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25471.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25462.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ YIIK: A Postmodern RPG (2019) [Multi] (1.5.003) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25398.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Visions of Mana (2024) [Multi] (1.0.3.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25332.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Nightfall Comes (2022) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25323.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Suikoden I & II HD Remaster: Gate Rune and Dunan Unification Wars (2025) [Multi]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25247.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Shift'n Slay (2025) [Ru/Multi] (1.00.07) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25070.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Immortal Hunters (2025) [Ru/Multi] (0.1.1655.fb15f73) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25051.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Tales of Graces f Remastered (2025) [Ru/Multi] (1.0.2/dlc) Repack Let'sРlay [De
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24971.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (2.0.1/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24953.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ The Legend of Heroes Trails through Daybreak (2023) [Ru/Multi] (1.3.5.0/dlc) Rep
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24923.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack Other s [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24843.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Rise of the Ronin (2024) [Ru/Multi] (1.09/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24836.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.008.28601) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24756.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.008.28601) Repack Let'sРlay
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7321B0300D024AF26153FE0D0A66A2B1556A1455
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785171   (24673) от 14.03.2025
-
-Gone Rogue (2023) [Ru/Multi] (1.18) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gone Rogue можно назвать иммерсивным симулятором вора. Технически это изометрический стелс-экшен с элементами тактической ролевой игры. Показанные в проекте события разворачиваются на территории альтернативной Европы. Действие происходит в середине 20-го века. Сюжет повествует о приключениях жителя некого антиутопического тоталитарного государства.Тип издания: RepackРазработчик: AskaLot GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CE311D0EC179E0DAD771CED9874E3B251252C3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785010   (24672) от 14.03.2025
-
-METRO QUESTER: OSAKA (2024) [Multi] (1.0.0) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследуй потерянный мир в Осаке! Хак-н-слэш RPG с исследованием подземелий! Это RPG-игра по исследованию подземелий, действие которой происходит в постапокалиптическом футуристическом мире, созданном мангакой Кадзуши Хагиварой, с глубокой системой игры, разработанной Хиронори Като, которая приносит волнение и сюрпризы, напоминая компьютерные игры 80-х годов с боем (   Читать дальше...   )Тип издания: LicenseРазработчик: Thousand GamesЖанр: Инди, Ролевые игрыЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:474F71B903B55344687B5F04B0F15F24D754F641
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782668   (24660) от 15.03.2025
-
-Eiyuden Chronicle: Hundred Heroes (2024) [Ru/Multi] (1.0.5-p.27.1/dlc) Repack Let'sРlay [Digital Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наша история начинается в одном из уголков Аллраана, представляющем собой переплетение народов, разнообразнейших культур и ценностей. С помощью меча и магических предметов, известных как «рунические линзы», история земли была сформирована на основе альянсов и агрессивных действий проживающих на ней людей, зверолюдей, эльфов и пустынных жителей.Тип издания: RepackРазработчик: Rabbit & Bear StudiosЖанр: Экшены, Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD94B95916FFFD6878683FABF97FDFCBD7341DF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686772   (24646) от 15.03.2025
-
-Wartales (2021) [Ru/Multi] (1.0.40128/dlc) Repack Decepticon
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wartales - ролевое приключение в открытом мире, предлагающее возглавить свою команду наемников, чтобы отправиться на поиски сокровищ. События развиваются в средневековом фэнтезийном мире. Требуется путешествовать континентами, нанимать сопартийцев, исследовать древние гробницы и собирать награды. Сюжет начинается с падения великой Империи Эдоран. Королевство охватила (   Читать дальше...   )Тип издания: RepackРазработчик: Shiro GamesЖанр: Ролевая игра, ПошаговаяЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E4BB2E354BD1428FB3915DB09CAD0EC3B2079AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

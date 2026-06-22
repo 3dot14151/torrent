@@ -1,3 +1,56 @@
+###  Публикация: 1296951   (608644) от 19.04.2019
+
+Б. Пастернак и др. | Крестный Путь. По стихам русских поэтов (2005) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крестный путь воссоздаёт в памяти верующих основные моменты страданий Спасителя. Молящиеся в единении со скорбящей Богородицей мысленно сопровождают Спасителя на Голгофу, совершая 14 стояний, размышляя о Его крестных муках и прославляя Его искупительный подвиг.
+Уже в первые века христианской эры в Иерусалим из разных стран стали устремляться паломники, желавшие явственнее (   Читать дальше...   )Жанр: Молитва, поэзияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB9017FBFEC12CA0924C78A71778B53571045444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912430   (607224) от 28.06.2015
+
+Н. Аширов | Ислам и нации (1975) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая работа известного исследователя мусульманской религии Н. Аширова посвящена вопросу о взаимоотношении религиозного и национального в исламе Мусульманские богословы и проповедники заявляют, что ислам является неотъемлемым элементом общественной жизни, национальной культуры народов Востока. Автор книги аргументированно опровергает эти взгляды и показывает, что (   Читать дальше...   )Жанр: история, религиоведение, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:789E9BA38F007EFA91D4CCA832560A77FFCD9CBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913183   (607136) от 28.06.2015
 
 Евагрий Схоластик | Церковная история. Книги I—VI (2010) [PDF]
@@ -6,7 +59,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607136.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606809.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606265.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606128.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_606083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_606083.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605441.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605437.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605268.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605211.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605203.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605197.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604939.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604393.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604151.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604145.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604052.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603903.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603770.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603765.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603494.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602927.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602561.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602455.jpg" />
 </div>
 
 
@@ -613,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602386.jpg" />
 </div>
 
 
@@ -626,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:032F006532EDCB1395F88FF5B1F57BAF824D2FA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232069   (602282) от 23.06.2018
-
-Е. Трубецкой и др. | Иконы Великой России [Подарочные издания. Мир Православия] (2011) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602282.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге впервые под одной обложкой собраны классические работы об иконописи и иконах величайших русских мыслителей и исследователей христианской культуры и древнерусского искусства. Вы узнаете, для чего нужны иконы, как они создавались и как понимать их символический язык, какое место занимала икона в жизни русского человека в прошлые столетия, какие народные (   Читать дальше...   )Жанр: Православие. Духовно-просветительское изданиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD48B7CDCA790A2EFD93E2EE3857002F1EF311B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298562   (601725) от 28.04.2019
-
-митрополит Иерофей (Влахос) | Жизнь после смерти (2013) [DJVU, PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Жизнь после смерти» дает православный ответ на волнующий каждого человека вопрос: что ожидает нас в будущей жизни. В изложении известного греческого богослова и проповедника владыки Иерофея учение Святых Отцов становится понятным и интересным современному читателю.Жанр: ПравославиеФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BC04267B9EF6CEFDE41D36B18AF13709D40260D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,136 @@
+###  Публикация: 509183   (676210) от 11.06.2012
+
+Tomb Raider: The Angel of Darkness / Tomb Raider: Ангел Тьмы [Ru/En] (RePack) 2003 | R.G. Механики
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676210.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того как продажи игр серии Tomb Raider превысили отметку в 30 миллионов копий, Лара Крофт стала обладательницей титула «Самая известная героиня видеоигр среди людей» и попала в Книгу рекордов Гиннесса. Каждое ее приключение – долгожданный подарок для миллионов игроков. «Ангел тьмы» раскроет одну из самых загадочных и мрачных страниц из жизни Лары Крофт. После очередной экспедиции мисс Крофт будто подменили. Она заперлась в своем имении и, казалось, забыла о приключениях. Только приглашение старого друга и наставника профессора Фон Кроя заставило Лару перешагнуть через порог дома. Однако, когда героиня приехала в назначенное место, оказалось, что ее наставник убит. Подозрения полиции пали на юную красавицу, обнаруженную на месте преступления. Ларе Крофт приходится бежать.(   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E9FF964AB6C84D79787F1623CDB9979FD8B4598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026966   (675778) от 29.06.2016
+
+Action Legion (2016) [En] (1.2.1) Repack Other s
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Action Legion - это аркадный шутер с видом сверху, отсылающий игроков в классике вроде Cannon Fodder. Игрокам предстоит прорубаться через волны противников, используя разнообразное оружие, уничтожая строения и боссов на своем пути.Тип издания: RepackРазработчик: Aeonic EntertainmentЖанр: Action (Top-Down), Arcade, IndieЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C4BB6BFEA2CE1FBCE1BA781EFDC80DBE37836F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008900   (675700) от 29.06.2016
+
+Action Legion (2016) [En] (1.2.1) License CODEX
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Action Legion - это аркадный шутер с видом сверху, отсылающий игроков в классике вроде Cannon Fodder. Игрокам предстоит прорубаться через волны противников, используя разнообразное оружие, уничтожая строения и боссов на своем пути.Тип издания: LicenseРазработчик: Aeonic EntertainmentЖанр: ActionЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06240BDD925961374923449F2D6683FBA61DA63D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030098   (675639) от 29.06.2016
+
+Resident Evil 0 / BioHazard 0 HD Remaster (2016) [Ru/En] (1.0/dlc) Repack R.G. Механики
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Resident Evil 0 рассказывает всю правду о происшествии в особняке, породившем все последующие события серии Resident Evil. В обновленной версии сохранены сюжет и игровой процесс оригинальной игры, дополненные потрясающей HD-графикой, звуком в формате 5.1, возможностью выбора улучшенных элементов управления и поддержкой широкоформатных мониторов.Тип издания: RepackРазработчик: CapcomЖанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86F0388B4A770B9BB8A687F4B99F3D48DCEBD307
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 797638   (674865) от 19.06.2014
+
+Conflict: Anthology / Конфликт: Антология (2002-2008) [Ru]  Repack Fenixx
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концепция игры основана на чрезвычайно популярном совместном прохождении одиночной кампании, при этом игроки могут меняться местами, переключаясь с одного на другого персонажа.
+Двум агентам ЦРУ (при отсутствии реального напарника за него будет играть компьютер) предстоит объехать земной шар, чтобы на мировой политической арене воцарился закон и порядок. Бескомпромиссным борцам за демократию придется найти и обезвредить ядерное оружие, которое новое правительство Венесуэлы сложными путями приобрело у африканского алмазного короля, чтобы грозить Объединенным нациям. Затем они отправятся в Руанду, чтобы найти поставщика и напасть на след производителя урана, который является сумасшедшим профессором, состоящим на службе у влиятельного босса русской мафии.
+При всей внешней простоте сюжета действие игры разворачивается стремительно и непредсказуемо. Детальность воспроизведения множества разнообразных локаций, большая часть которых соответствует реальным географическим объектам, а также фантазия создателей игры, уделивших особое внимание визуальным и графическим эффектам, а также разработке искусственного интеллекта, удивят даже искушенных.
+(   Читать дальше...   )Тип издания: RepackРазработчик: Pivotal GamesЖанр: Action (Tactical / Shooter) / 3D / 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4561D5119A1A1977132B5206E0B508B3B2C70492
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291033   (673722) от 22.03.2019
 
 Lost Planet 3 (2013) [Ru/En] (1.0.10246.0/dlc) Repack xatab
@@ -6,7 +139,7 @@ Lost Planet 3 (2013) [Ru/En] (1.0.10246.0/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673722.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ Assassin's Creed Трилогия [Ru] (RePack) 2008-2011 | R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673606.jpg" />
 </div>
 
 
@@ -59,7 +192,7 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.767.2/dlc) License CPY [20 Year C
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670410.jpg" />
 </div>
 
 
@@ -85,7 +218,7 @@ Sekiro: Shadows Die Twice (2019) [Ru/Multi] (1.02) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670020.jpg" />
 </div>
 
 
@@ -111,7 +244,7 @@ Inversion (2012) [Ru/Multi] (5.48) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668812.jpg" />
 </div>
 
 
@@ -137,7 +270,7 @@ Saints Row: Gat out of Hell (2015) [Ru/Multi] (20170523/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668702.jpg" />
 </div>
 
 
@@ -163,7 +296,7 @@ Brutal Legend (2013) [Ru/Multi] (1.0/dlc) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666314.jpg" />
 </div>
 
 
@@ -189,7 +322,7 @@ Aragami (2016) [Ru/Multi] (01.09) Repack Other s [Collector's Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665769.jpg" />
 </div>
 
 
@@ -215,7 +348,7 @@ Saints Row: Gat out of Hell (2015) [Ru/Multi] (1.0/upd2) License PROPHET
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665306.jpg" />
 </div>
 
 
@@ -241,7 +374,7 @@ Dead Rising (2016) [Ru/En] (1.0.0.1/u3) Repack Mizantrop1337
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665043.jpg" />
 </div>
 
 
@@ -267,7 +400,7 @@ DmC: Devil May Cry (2013) [Ru] (1.0r3/dlc) Repack Other s [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665038.jpg" />
 </div>
 
 
@@ -293,7 +426,7 @@ The First Templar / The First Templar: В поисках Святого Граа
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_664543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_664543.jpg" />
 </div>
 
 
@@ -319,7 +452,7 @@ Saints Row: Gat out of Hell (2015) [Ru/Multi] (1.0/upd2/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664104.jpg" />
 </div>
 
 
@@ -345,7 +478,7 @@ Binary Domain (2012) [Ru/En] (1.0.0.1/dlc) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663976.jpg" />
 </div>
 
 
@@ -371,7 +504,7 @@ Metal Gear Rising: Revengeance (2014) [Ru/Multi] (1.0/upd2) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663964.jpg" />
 </div>
 
 
@@ -397,7 +530,7 @@ RadLINE Quarantine (2017) [En] (1.1.2) License HI2U
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663957.jpg" />
 </div>
 
 
@@ -423,7 +556,7 @@ Vanquish (2017) [Multi] (1.0) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663939.jpg" />
 </div>
 
 
@@ -449,7 +582,7 @@ Aragami (2016) [Ru/Multi] (01.09/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663692.jpg" />
 </div>
 
 
@@ -475,7 +608,7 @@ Reservoir Dogs / Бешеные псы [Ru/En] (RePack) 2006 | R.G. NoLimits-Tea
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_663314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_663314.jpg" />
 </div>
 
 
@@ -501,7 +634,7 @@ Solstice Chronicles: MIA (2017) [Ru/Multi] (1.03) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662656.jpg" />
 </div>
 
 
@@ -527,7 +660,7 @@ Watch_Dogs / Watch Dogs (2014) [Ru/Multi] (1.06.329/dlc) Repack R.G. Catalyst [D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662642.jpg" />
 </div>
 
 
@@ -538,137 +671,6 @@ Watch_Dogs / Watch Dogs (2014) [Ru/Multi] (1.06.329/dlc) Repack R.G. Catalyst [D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8F0D2F09D598F6D62338B7EDC7E26B25EA0ACBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139477   (659706) от 02.06.2017
-
-Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.767.2/dlc) Repack R.G. Catalyst
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rise of the Tomb Raider расскажет о первой экспедиции Лары Крофт, которая сделала ее больше, чем просто искательницей приключений. Лара должна исследовать самые отдаленные и опасные уголки Сибири, чтобы найти секрет бессмертия раньше беспощадной организации "Троица".Тип издания: RepackРазработчик: Crystal DynamicsЖанр: Action, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A772F7541969B7981A488D536DF917A16CAC974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140170   (657530) от 04.06.2017
-
-Castlevania: Lords of Shadow - Антология (2013-2014) [Ru/En] (1.0.2.9u2/1.0.0.1u1/1.0.684579) Repack Mizantrop1337
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657530.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре Castlevania: Lords of Shadow – Mirror of Fate вас ждет знакомый по предыдущим играм серии Castlevania экшен, но на этот раз к платформенному геймплею добавится и 3D-графика. Игрокам предстоит исследовать замок Дракулы и окружающие его территории; искать реликвии, которые помогут улучшить ваши способности; сражаться с ужасными монстрами. Непростые головоломки, (   Читать дальше...   )Тип издания: RepackРазработчик: MercurySteamЖанр: Arcade, AdventureЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E8F0A896748F5E209E68FC4E199BD92B49B7CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539545   (656849) от 26.03.2022
-
-Resident Evil 4 HD Project (2014) [Ru/Multi] (1.1.0) Repack/Mod Decepticon [Ultimate HD Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Resident Evil 4 специальному агенту Леону С. Кеннеди поручается спасти похищенную дочь президента США. Расследование приводит его в захолустную европейскую деревню, населенную агрессивными фанатиками таинственной секты Лос Иллюминадос, стоящей за похищением. Леону предстоит столкнуться с чудовищными мутантами и враждебными селянами, разум которых порабощен паразитами (   Читать дальше...   )Тип издания: Repack/ModРазработчик: CapcomЖанр: 3rd Person, Action, Shooter, HorrorЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0129E81439B02F720A8C3AC975F67CB28E1A835B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515098   (656398) от 25.06.2012
-
-EuroCops / Полиция Европы: Спецподразделения [Ru] (RePack) 2006 | R.G. Repackers
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656398.jpg" />
-</div>
-
-
-###  Подробнее
-
-С террором невозможны компромиссы. С теми, кто превращает жизни людей в разменную монету, нельзя договориться - нелюдей, играющих судьбами ради достижения своих целей, можно лишь уничтожить. И делать это нужно быстро, четко, хладнокровно, без тени сомнения. Иначе уничтожат нас.
-Возглавьте контртеррористический отряд одной из шести европейских держав и уничтожьте коварного, жестокого, изворотливого противника. В ваших руках - жизни невинных людей, жизни детей, женщин и стариков, попавших в лапы одетого в маски зверья. Спасите их. Не дайте террористам сделать свое черное дело.Тип издания: RePackЖанр: Action (Tactical / Shooter) / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C54E9D2EE6CE25C457F0582885D935B8F7CDD04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140834   (654490) от 07.06.2017
-
-Saints Row: Gat out of Hell (2015) [Ru/Multi] (1.0/upd2/dlc) Repack R.G. Catalyst
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654490.jpg" />
-</div>
-
-
-###  Подробнее
-
-После космического абсурда Saints Row IV многие фанаты задавались вопросом, что бы мы могли сделать дальше... И вот ответ - пальнуть Дьяволу в рожу! Играйте как Джонни Гэт или Кинзи Кенсингтон и разорвите ад на мелкие клочки, спасая душу лидера Святых. Исторические фигуры, старые друзья, старые враги, говорящее оружие, несокращенное музыкальное выступлениеТип издания: RepackРазработчик: Deep Silver Volition, High Voltage SoftwareЖанр: Action (Shooter), Add-on (Standalone)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78E9BED2B1899F21FD394800A8BE94D6FF694123
 ```
 
 https://mybot314.ru/tekegram_catalog/

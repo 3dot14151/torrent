@@ -1,3 +1,55 @@
+###  Публикация: 1592328   (184124) от 21.11.2022
+
+Сергей Бубновский | 7 этажей здоровья. Лечение позвоночника и суставов без лекарств (2021) [PDF]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая энциклопедия о сохранении и восстановлении здоровья методами кинезитерапии, без лекарств и операций. Бубновский дает рекомендации для полноценной жизни без боли и хронических заболеваний. В этой книге автор подробно рассматривает особенности семи "этажей" тела от ступней до головы, рассказывает о том, как снимать и предупреждать болевые симптомы, (   Читать дальше...   )Жанр: Нетрадиционная медицинаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A04CED0ADDB60483F523F209A30CA37DA6264BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226636   (183315) от 22.11.2022
+
+С.Н. Иванов | Практическое руководство по эротическому массажу. Искусство возбуждать (2018) [PDF, RTF]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всё, что вы прочитаете в этой книге, основано на знании анатомии, физиологии, психологии, сексологии и различных видов массажа. Расскажем о том, как доставить женщине максимально возможное удовольствие! Эта книга — результат более чем десятилетнего практического опыта выполнения массажа и трехлетнего опыта преподавания. В книге не будет никакой истории массажа, описания (   Читать дальше...   )Жанр: Любовь, эротика, секс, relaxФормат: PDF, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DA71EC677FED4D81ABDDDF7CF954AB360FDFD0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427721   (181950) от 29.11.2020
 
 Дипак Чопра | Аюрведа. Древняя мудрость и современная наука для совершенного здоровья (2018) [EPUB]
@@ -6,7 +58,7 @@
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181950.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175516.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174181.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173751.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170618.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170543.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170148.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166610.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166532.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166117.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165814.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165702.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165581.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163777.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162831.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158584.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156852.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156281.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155976.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155334.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151097.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150601.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150177.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148686.jpg" />
 </div>
 
 
@@ -624,62 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7286B4A488A9F09BBFB929D3FE74FD7FE1984FF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969239   (148660) от 26.12.2015
-
-Иван Кузнецов, Ольга Громова | Лечение позвоночника и суставов. Метод Валентина Дикуля. Упражнения. Процедуры. Мази (2010) [FB2]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Боль в спине, скованность при движении, артрит… Для многих эти слова – не пустой звук, а реальность. За ними страдания, походы по врачам, обследования, болезненное лечение. Но есть и те, кто смог разобраться в своей болезни, понять ее причину, устранить ее, организовать свою жизнь так, чтобы боль ушла.
-
-Эта книга дает каждому из нас возможность победить болезнь. (   Читать дальше...   )Жанр: Здоровье, фитнес, диетыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDD4D8CF6662546D226F12CEFF9EE1020C77A666
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969269   (148479) от 26.12.2015
-
-Кэйти Силкокс | Здоровая, счастливая, сексуальная. Мудрость аюрведы для современных женщин (2016) [FB2]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга – своего рода справочник по женскому здоровью: от сияющей кожи до полноценной сексуальной жизни. Автор, известный на Западе преподаватель йоги, собрала в ней упражнения, медитации, рецепты и древние ведические практики, которые нисколько не противоречат современной жизни и возвращают женщине покой и внутреннее равновесие.
-
-На русском языке публикуется впервые.Жанр: Здоровье, фитнес, диетыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A1335A23E00DEEA2EDD6A2C99716ECFED398CB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

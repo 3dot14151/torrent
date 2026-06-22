@@ -6,7 +6,7 @@
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836274.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ On Your Mark / На старт! [1995, OVA] BDRemux 1080p raw+eng
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801951.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Konohana Kitan / Сказания о Конохане [2017, TV, 12] BDRemux 108
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788962.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Konohana Kitan / Сказания о Конохане [2017, TV, 12] Blu-ray 108
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788957.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Hataraku Maou-sama! / The Devil is a Part-Timer! / Повелитель Тьмы
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788285.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Death Parade / Парад смерти [2015, TV, 12 эп. + 1 OVA] BDRemux 1080
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787754.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Bungo Stray Dogs: Dead Apple | Bungou Stray Dogs: Dead Apple | Великий и
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786948.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Claymore | Клеймор [ТВ-1] [2007, TV, 26 из 26] BDremux raw+rus+eng
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777002.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Violet Evergarden | Виолетта Эвергарден [2018, TV, 13 + SP] BD
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754831.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Ano Hi Mita Hana no Namae o Bokutachi wa Mada Shiranai | Anohana: The Flower We 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749810.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Riding Bean | Боб на колесах [1989, OVA] BDRemux 1080p raw+rus
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703232.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Juubee Ninpuuchou | Ninja Scroll | Манускрипт ниндзя [1993, Movi
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701069.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Sakasama no Patema / Patema Inverted / Патэма наоборот [2013, Movi
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675203.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Ergo Proxy / Эрго Прокси [2006, TV, 23 из 23] BDRemux 1080p raw+eng+
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635011.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614827.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Mimi o Sumaseba | Whisper of the Heart | Шёпот сердца [1995, Movie] B
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604633.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Evangelion Shin Gekijouban: Q | Evangelion: 3.33 You Can (Not) Redo | Еванг
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594768.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Cowboy Bebop: Tengoku no Tobira | Cowboy Bebop: Knockin' on Heaven's Door | Ко
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581082.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Cowboy Bebop | Ковбой Бибоп [1998, TV, 26 эп.] BDRemux 1080i raw+ru
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_581006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_581006.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Kimi no Suizou o Tabetai | Kimi no Suizou wo Tabetai | I Want to Eat Your Pancre
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555723.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Ginga Eiyuu Densetsu Gaiden: Ougon no Tsubasa | Legend of Galactic Heroes (Movie
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551894.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Ginga Eiyuu Densetsu: Waga Yuku wa Hoshi no Taikai | Legend of Galactic Heroes (
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551884.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Fireworks | Uchiage Hanabi, Shita kara Miru ka? Yoko kara Miru ka? | Откуд�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546136.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Roujin Z / Старик Зет [1991] Blu-Ray raw+rus
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516482.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Gekijouban Blood-C: The Last Dark | Кровь-С: Последняя тьма [
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484800.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Kokoro ga Sakebitagatterunda / The Anthem of the Heart / Сердцу хочет
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450237.jpg" />
 </div>
 
 

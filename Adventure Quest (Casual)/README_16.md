@@ -1,3 +1,107 @@
+###  Публикация: 1281179   (755211) от 06.02.2019
+
+Chimeras 5: Mark of Death (2017) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Казалось бы, дело закрыто - преступника опознали, арестовали, судили и казнили за кражу реликвии Химеры и убийство двух охранников. Но вот спустя 12 лет прокурора этого дела находят мертвым, а судья, вызвавший Вас, получил зловещую метку. Он подозревает, что все, кто участвовал в том деле, также оказались под угрозой. Сможете ли вы отследить убийцу и выяснить истину, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00AD903BD9D1EC61C5BF1FBE6D8140BF8CBBC5EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281157   (755083) от 06.02.2019
+
+Legacy: Witch Island 2 (2019) [En] (1.0) Unofficial
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы вернулись на таинственный остров, и стало ясно, что ваше предыдущее приключение не было сном. Остров действительно существует, и ведьма вернула себе силу. Используйте свои знания и смекалку, чтобы разрушить ее владения на острове. Ваш путь лежит через ослепительные островные локации - таинственный лес, горы, пещеры и озера.Тип издания: UnofficialРазработчик: Litera LaboratoriesЖанр: Квест, Поиск предметов, Логическая, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66E0B89B59A4882DF16E78862C34B6D1C48BB258
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281256   (753371) от 07.02.2019
+
+Tiny Tales: Heart of the Forest (2017) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Макс позвонил домой своей матери, он и не думал, что это будет самая долгая поездка, которую он когда - либо совершал. После отчаянного поиска денег, чтобы спасти дом своего детства, он попадает в историю, которая окажется более сложной, чем он предполагал. Что может сделать крошечный человек на земле, измученной засухой и опасностями, чтобы спасти день? Следуйте (   Читать дальше...   )Тип издания: UnofficialРазработчик: Brave GiantЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0C37B04715F9CB46A0DE46CDB98FF6B0CF1B552
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281260   (753367) от 07.02.2019
+
+Dark Dimensions 8: Vengeful Beauty (2017) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Друзья пригласили вас на велосипедную прогулку по живописному Национальному парку Oldforester. Однако это не отдых, а поиски - нужно найти пропавшего человека. Во время путешествия вы понимаете, что кто-то - или что-то - охотится и за вашей группой. Сможете ли вы выжить, или этот парк станет последним, что вы увидели в своей жизни?Тип издания: UnofficialРазработчик: Daily MagicЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:308AA55BBD535DF6B7CA191385C75EFA9273230A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281310   (753234) от 07.02.2019
 
 Legacy: Witch Island 2 / Наследие: Остров ведьмы 2 (2019) [Ru] (1.0) Unofficial
@@ -6,7 +110,7 @@ Legacy: Witch Island 2 / Наследие: Остров ведьмы 2 (2019) [R
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753234.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Myths of the World 14: Love Beyond / Мифы народов мира 14: За �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752835.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Reflections of Life 5: Hearts Taken (2017) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751957.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Chimeras 11: Cherished Serpent / Химеры 11: Заветный Змей (202
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751934.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Legendary Tales: Stolen Life (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751918.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Darkness and Flame 2: Missing Memories (2017) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751873.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Dark Tales 17: Edgar Allan Poe's. The Bells / Тёмные истории 17: Э
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751828.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Myths of the World 6: The Heart of Desolation (2015) [En] Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751644.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ The Andersen Accounts 2: The Price of a Life (2019) [En] (1.0) Unofficial [Colle
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751622.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Royal Legends: Marshes Curse / Королевские легенды: Прокл
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751130.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Ominous Objects 2: Phantom Reflection (2015) [En] Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750124.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Demon Archive: The Adventure of Derek (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749969.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Embrace of Ocean: Story of Hope (2017) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749922.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ PuppetShow 15: Porcelain Smile / Шоу марионеток 15: Фарфоро�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749817.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Spirit of Revenge: Cursed Castle / Месть духа. Проклятый за�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749654.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Haunted Legends 12: Monstrous Alchemy / Легенды о призраках 12:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749219.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Saga of the Nine Worlds: The Gathering (2017) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748042.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Dreadful Tales: The Space Between / Жуткие истории: Кто таит
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747955.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Facility 47 (2015) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747872.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Bonfire Stories: The Faceless Gravedigger (2017) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746551.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Edge of Reality 8: Lost Secrets of the Forest (2022) [En] (1.0) Unofficial [Coll
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746278.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Demonheart (2017) [En] (1.41) Repack Other s [Chapter 1-4]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745835.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Demonheart (2017) [En] (1.41) Repack Other s [Chapter 1-4]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6367E3AB936085468DCF31DD8F53C08B53C9B6CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282364   (745327) от 12.02.2019
-
-The Forgotten Fairytales: The Spectra World (2017) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как преподаватель фольклора, Вы слышали множество мифов и легенд, но Вы не были готовы, когда неизвестный появился на вашем пороге и проклял всю Вашу семью, превратив их в камень! Теперь Вам предстоит отправиться в таинственный мир сказок и легенд из рассказов своей бабушки и остановить злую царицу, стоящую за всем этим хаосом. Но все же тут что-то не так. Что заставило (   Читать дальше...   )Тип издания: UnofficialРазработчик: EleFun GamesЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C57392B617C3A065AADE6229AFFC89EC051AC98A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282354   (745324) от 12.02.2019
-
-Haunted Hotel 14: Personal Nightmare (2017) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя 20 лет Вы получаете письмо, в котором говорится о Вашей пропавшей матери и сестре. Письмо также гласит, что Все ответы Вы найдете в отеле «Фридом». Когда Вы прибываете на место, то обнаруживаете, что в отеле происходит что-то непонятное.Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25D759A29C78B4233C316D277D803EFECB3F6792
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282356   (745320) от 12.02.2019
-
-League of Light 5: Edge of Justice (2017) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вернитесь в знаменитый город Хамелин, чтобы послушать интересный пересказ таинственного флейтиста, который спас город от крыс, но ему отказали в его законных правах. Спустя годы флейтист вернулся в Хамелин, и теперь он хочет отомстить! Исследуйте дымчатых духов, населяющих город, и раскройте правду в этом интригующем приключенческом загадочном приключении!Тип издания: UnofficialРазработчик: MariaglorumЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0F45A31923215D9F216A854B76A6812B4971C51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282499   (745319) от 12.02.2019
-
-Bridge To Another World 4: Escape From Oz (2017) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодняшний день начался, как обычно. Вы отправили своих детей в школу, а сами погрузились в тишину с Вашей собакой Тото. Но Ваш мир перевернулся верх дном, когда внезапно появился торнадо и перенес Ваш дом в необыкновенную страну ОЗ. Теперь вы оказываетесь в центре жестокой конкуренции, контролируемой таинственным Великим Волшебником. Чтобы найти дорогу домой Вы (   Читать дальше...   )Тип издания: UnofficialРазработчик: 4 Friends gamesЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01F2B09F4637E5D743A93B406CA9D3BC219B113D
 ```
 
 https://mybot314.ru/tekegram_catalog/

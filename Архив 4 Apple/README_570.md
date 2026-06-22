@@ -1,3 +1,55 @@
+###  Публикация: 1653786   (205392) от 17.08.2023
+
+Artstudio Pro 5.1.16 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем Artstudio Pro, самое мощное приложение для рисования и редактирования фотографий, доступное как для MacOS, так и для iOS. Преемник нашего знаменитого приложения ArtStudio был переработан, благодаря чему многие новые функции и улучшения в полной мере используют новейшие технологии Metal, iCloud Drive и оптимизированы для 64-битных многоядерных процессоров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.08.2023Разработчик: © Lucky ClanПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E27D364507F0F2326D87DD39C17F8B504DEE1492
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653656   (205390) от 17.08.2023
+
+Dash 7.0.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dash - очень удобное приложение, включающее в себя браузер API документации и примеров фрагментов кода с возможностью поиска, для следующих языков, сред программирования и баз данных.Тип издания: macOS SoftwareРелиз состоялся: 16.08.2023Разработчик: © 2023 Bogdan PopescuПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE334CA0097F552682ED80CADA6F97443EA0C92C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653844   (205386) от 17.08.2023
 
 Swinsian 3.0 Preview 8 [En]
@@ -6,7 +58,7 @@ Swinsian 3.0 Preview 8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205386.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ Capture One 22 Enterprise v.15.4.0.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205366.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ Persecond for Mac 1.6 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205336.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ Widgetter - Desktop Widgets for Mac 1.14.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205304.jpg" />
 </div>
 
 
@@ -116,7 +168,7 @@ WonderPen 2.3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205291.jpg" />
 </div>
 
 
@@ -142,7 +194,7 @@ FontXChange 5.7 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205283.jpg" />
 </div>
 
 
@@ -171,7 +223,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205281.jpg" />
 </div>
 
 
@@ -198,7 +250,7 @@ Dropshare 5.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205231.jpg" />
 </div>
 
 
@@ -225,7 +277,7 @@ OmniReader Pro for Mac 2.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205213.jpg" />
 </div>
 
 
@@ -251,7 +303,7 @@ TechSmith Snagit 2023.2.2 for Mac [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205198.jpg" />
 </div>
 
 
@@ -277,7 +329,7 @@ Yate 6.16.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205192.jpg" />
 </div>
 
 
@@ -305,7 +357,7 @@ Dropzone 4 Pro 4.6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205185.jpg" />
 </div>
 
 
@@ -332,7 +384,7 @@ Folder-Factory 7.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205183.jpg" />
 </div>
 
 
@@ -361,7 +413,7 @@ Tinderbox 9 v.9.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205178.jpg" />
 </div>
 
 
@@ -388,7 +440,7 @@ Pixelmator Pro 3.3.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205165.jpg" />
 </div>
 
 
@@ -415,7 +467,7 @@ VueScan Pro 9.8.15 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205152.jpg" />
 </div>
 
 
@@ -441,7 +493,7 @@ n-Track Studio Suite 9.1.8 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205117.jpg" />
 </div>
 
 
@@ -468,7 +520,7 @@ Lasso 1.5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205102.jpg" />
 </div>
 
 
@@ -494,7 +546,7 @@ Integrity Pro 12.7.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205097.jpg" />
 </div>
 
 
@@ -520,7 +572,7 @@ Aiseesoft iPhone Unlocker for Mac 2.0.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205042.jpg" />
 </div>
 
 
@@ -546,7 +598,7 @@ Sketch 98 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205003.jpg" />
 </div>
 
 
@@ -572,7 +624,7 @@ Allavsoft Video Downloader Converter 3.25.8.8624 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204937.jpg" />
 </div>
 
 
@@ -598,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204930.jpg" />
 </div>
 
 
@@ -624,7 +676,7 @@ Stats 2.9.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204913.jpg" />
 </div>
 
 
@@ -635,58 +687,6 @@ Stats - это приложение с открытым исходным код�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCBFB12C0B032F2EBE43B75D331866264519959E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654653   (204911) от 22.08.2023
-
-Apeaksoft DVD Creator for Mac 1.0.52 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы хотите создать DVD-диск в качестве подарка для любимой или хотите сохранить классический фильм на DVD-диске, чтобы сохранить его навсегда, даже если вы хотите сделать различные DVD-диски для своего клиента, DVD Creator будет вашим лучшим выбором.Тип издания: macOS SoftwareРелиз состоялся: 02.08.2023Разработчик: © 2023 Apeaksoft Studio.Поддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F659AF91172C2A8E029160EE298CEDB646131E89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654687   (204901) от 22.08.2023
-
-LaunchBar 6 v.6.18 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204901.jpg" />
-</div>
-
-
-###  Подробнее
-
-LaunchBar - функциональная замена Spotlight на Mac. После запуска приложения вам необходимо задать комбинацию клавиш, по которой будет открываться строка поиска LaunchBar. По нажатию клавиш в центре экрана будет доступна поисковая строка, в которой вы, как и в Spotlight, можете начать вводить название приложения и затем мгновенно его запустить. Надо отметить, что (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.08.2023Разработчик: © 2023 Objective Development Software GmbHПоддерживаемая ОС: macOS 10.14.4 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DB36FB7B65A6C141376A0701201C6E164729BAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

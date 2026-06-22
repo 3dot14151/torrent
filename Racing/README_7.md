@@ -1,3 +1,81 @@
+###  Публикация: 1043757   (570002) от 17.08.2016
+
+DiRT Rally (2015) [Ru/En] (1.2/dlc) Repack R.G. Games
+
+>>След.
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Созданная компанией Codemasters и испытанная членами сообщества DiRT на дороге в более 95 миллионов километров, DiRT Rally является лучшей игрой в ралли на сегодняшний день. Она непревзойденно передает сущность этого уникального вида гонок — вы пытаетесь не поддаваться эмоциям, несясь по опасным, неровным дорогам на головокружительной скорости, стремясь выжать из (   Читать дальше...   )Тип издания: RepackРазработчик: Codemasters Racing StudioЖанр: Arcade, Racing (Cars), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A562710F5AF7C2666D714863CD364DBE860BB97A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 760434   (568268) от 23.05.2019
+
+Colin McRae: DiRT 2 (2009) [Ru] (1.1.0.0) Repack YelloSOFT
+
+>>След.
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Colin McRae: DiRT 2 сохранила все лучшее, что так полюбилось поклонникам оригинальной игры, и привнесла в жанр множество впечатляющих новшеств. В игре представлены совершенно разные автомобили семи различных классов. Каждая машина обладает уникальными характеристиками и обеспечивает ни с чем не сравнимые ощущения во время заездов. Игроков ожидает без преувеличения (   Читать дальше...   )Тип издания: RePackРазработчик: Codemasters StudiosЖанр: Arcade, Racing (Cars), 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D8CD69489B091C25572C8CA771E53659C71FC44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 693100   (568263) от 23.05.2019
+
+Blur (2010) [Ru/Multi] (1.2) Repack R.G. Catalyst
+
+>>След.
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blur — гоночный боевик, созданный авторами знаменитой серии Project Gotham Racing. Игроки примут участие в заездах по улицам Нью-Йорка, Барселоны, Токио, Лос-Анджелеса и других городов планеты на лицензированных автомобилях всемирно известных марок. Состязаться предстоит не только в скорости: с помощью особых зарядов и их комбинаций игроки смогут выработать эффективную (   Читать дальше...   )Тип издания: RepackРазработчик: Bizarre CreationsЖанр: Arcade, Racing (Cars), 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:390EA8D6791F7E97809ED183AB89991EDBB1246B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152497   (564879) от 23.07.2017
 
 London Racer: Destruction Madness / London Racer: Тотальное разрушение (2005) [Ru/En/Fr] (1.0) License
@@ -6,7 +84,7 @@ London Racer: Destruction Madness / London Racer: Тотальное разру�
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564879.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ GRID Autosport (2014) [Ru/Multi] (1.0.103.1840/dlc) License RELOADED [Complete E
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564661.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Moscow Racer: The Ultimate Racing Game [Ru] (L) 2009
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563757.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Riptide GP: Renegade (2016) [Ru/Multi] (1.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562716.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ GRID Autosport (2014) [Ru/Multi] (1.0.103.1840/dlc) Repack =nemos= [Complete Edi
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562603.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ RIDE 3 (2018) [Multi] (1.0/dlc) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555706.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Distance (2018) [En] (1.3) License PLAZA
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555277.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ RDS - The Official Drift Videogame (2019) [Ru/En] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555275.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ RIDE 3 (2018) [Multi] (1.0upd10/dlc) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554543.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Ocean City Racing: Redux (2016) [En] (1.0) License PLAZA
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550714.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Redout (2016) [Ru/Multi] (1.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544259.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Xpand Rally Xtreme [Ru] (RePack) 2007 | Skorp1oN
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539596.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ Speed Busters: American Highways (1998) [En] (1.0.0.1) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537883.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ Monster Jam Steel Titans (2019) [Ru/Multi] (1.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537666.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ Nascar Racing + Nascar Racing 2 (1994-1996) [En] Repack WinterKiss
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537023.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ Table Top Racing: World Tour (2016) [Ru/Multi] (1.0.2942/dlc) Repack Other s [Bu
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535849.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ Monster Energy Supercross - The Official Videogame (2018) [Multi] (1.0/dlc) Repa
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534608.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ MX vs. ATV Unleashed (2006) [En] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534069.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ Need for Speed 3: Hot Pursuit (1998) [Ru/En] (1.3.0) Repack R.G. Механик�
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532875.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ GRID Autosport (2014) [Ru/Multi] (1.0.103.1840/dlc) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532869.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ Shift 2: Unleashed (2011) [Ru/En] (1.02) Repack R.G. Механики [Limited E
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532868.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ Need for Speed: High Stakes (1999) [Ru/En] (4.5) Repack R.G. Механики
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532864.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ Colin McRae Rally Remastered (2014) [Multi] SteamRip R.G. Games
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531303.jpg" />
 </div>
 
 
@@ -595,84 +673,6 @@ To finish first, first you have to finish!
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F79BE2AC13AB93AD1F91762BA3F9C7D62A4196FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926923   (530921) от 11.08.2015
-
-Project CARS (2015) [Ru/Multi] (2.5.0) Repack R.G. Механики
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Project CARS - это потрясающее гоночное путешествие! Игра Project CARS, протестированная и одобренная страстными поклонниками гонок и реальными гонщиками, принимавшими участие также и в ее создании, представляет собой гоночный симулятор нового поколения, который вобрал в себя невероятную комбинацию фанатской страсти и высокого профессионализма разработчиков.Тип издания: RepackРазработчик: Slightly Mad StudiosЖанр: Racing (Cars) / Simulator / 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Польский,Бразильский (Португальский)Язык интерфейса: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Польский,Бразильский (Португальский)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB2D8413BD8C0D20BDDB5F4D3D41D44526A8768E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927086   (529327) от 12.08.2015
-
-Gas Guzzlers: Combat Carnage / Gas Guzzlers: Убойные гонки (2012) [Ru/En] (1.3.1) Repack R.G. Механики
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gas Guzzlers - динамичные захватывающие гонки на выживание. Игра предлагает множество различных средств передвижения, типов оружия, усовершенствований, бонусов на трассах и оригинальных ландшафтов, а также удобный вид «из-за автомобиля».Тип издания: RepackРазработчик: GamepiresЖанр: Arcade / Racing (Cars) / 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCB10A06B4E587E2C6703C592605A6C59574D737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928631   (521551) от 17.08.2015
-
-NASCAR Racing 3 (1999) [En] (1.2.1.7/dlc) Repack WinterKiss
-
->>Win Старые Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521551.jpg" />
-</div>
-
-
-###  Подробнее
-
-NASCAR Racing 3 - гоночный симулятор, посвященый чемпионату NASCAR. Игрок сможет принять участие в знаменитых кольцевых гонках, сев за руль одной из машин и сорвенуясь с 43-мя реально суцествующими гонщиками чемпионата.Тип издания: RepackРазработчик: Sierra SportsЖанр: Racing (Cars) / Simulator / Sport / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB25DA423530B474E7510A58B41B0ECA5A91160D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1187940   (276748) от 30.11.2017
+
+Сборник 50 flash игр #6 (2017) [En] (1.0.0) Unofficial
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник 50 flash игр, работающих оффлайн. Достаточно просто запустить лаунчер и выбрать любую игру. Заряжайте свои пушки - пришло время сразиться со толпами врагов на своем пути, чтобы выйти победителем из неравной схватки!Тип издания: UnofficialРазработчик: Y8, Box10, Armor GamesЖанр: Action, Arcade, PlatformerЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16C39F4AD4BC8733B356FD82884110DF3DEE71D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078888   (273050) от 16.12.2016
+
+Rad Rodgers: World One (2016) [En] (1.1.4480) License GOG
+
+>>След.
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rad Rodgers: World One – необычный платформер о приключениях сорванца Рэда, очутившегося в мире компьютерных игр. С кем не бывало: проведя бессонную ночь за любимой компьютерной игрой, вы на миг смыкаете глаза и оказываетесь в мире игры. Именно это случилось с Рэдом. К счастью, вместе с ним в прекрасный тропический мир перенеслась и его верная консоль Dusty («Пылинка»), (   Читать дальше...   )Тип издания: LicenseРазработчик: Interceptor EntertainmentЖанр: Arcade (Platform)Язык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8486E9A5D6EEC649A3A1830DAB67EFA4DBAF963F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191408   (264322) от 13.12.2017
 
 MinecraftEdu (2011) [Ru/Multi] (1.7.10 Build 22) License [Minecraft Classroom Edition]
@@ -6,7 +58,7 @@ MinecraftEdu (2011) [Ru/Multi] (1.7.10 Build 22) License [Minecraft Classroom Ed
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264322.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Wonder Boy: The Dragon's Trap (2017) [Multi] (1.02.22) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262646.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Chicken Rush Deluxe / Куриная месть. Снова в деле (P) [Ru]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260133.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Kingdom Chronicles Collectors Edition / Как Джон Непоседа спа�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258631.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Peglin (2024) [Ru/Multi] (1.1.23) Repack Necros
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257619.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Top Secret Finders / СверхОсобый СпецОтдел (P) [Ru] 2012
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256992.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Souldiers (2022) [Ru/Multi] (1.2.1) License GOG [Digital Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255031.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Planet of Lana (2023) [Ru/Multi] (1.0.7.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251757.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Live Novels. Jane Austen's: Pride And Prejudice / Джейн Остин. Гор�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251297.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Death Roads: Tournament (2023) [Ru/Multi] (1.0.9.127) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250474.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Knightica (2025) [Ru/Multi] (1.0.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250336.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Super Mario Bros. Remastered (2025) [Ru/Multi] (1.0.1) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250335.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Tin Hearts (2023) [Ru/Multi] (1.0.0.6) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247735.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Bread & Fred (2023) [Multi] (1.011) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247726.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Moonscars (2022) [Multi] (1.6.009) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247235.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Nocturnal (2023) [Ru/Multi] (1.2.1.747) Repack Let'sРlay [Enhanced Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246318.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Onde (2022) [En] (1.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244231.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Blast Brigade vs. The Evil Legion of Dr. Cread (2022) [Ru/Multi] (1.0.23) Licens
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237858.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Blue Fire (2021) [Ru/Multi] (6.0.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235355.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Nyan Cat: Lost In Space (2015) [En] (1.0.1) Unofficial ALiAS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227218.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Dariusburst: Chronicle Saviours (2015) [Ru/Multi] (1.0) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226960.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Tunnel of Doom (2021) [En] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224370.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Cyjin: The Cyborg Ninja (2021) [Multi] (1.0.0.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216726.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ They Always Run (2021) [Ru/Multi] (1.0.15.920) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216143.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ They Always Run (2021) [Ru/Multi] (1.0.15.920) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEF97F51D23F5D08B83715663681FB78DA7AEAD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079182   (216137) от 26.10.2022
-
-LIMBO (2011) [Ru/Multi] (3.0.0.1a) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216137.jpg" />
-</div>
-
-
-###  Подробнее
-
-По трагическому стечению обстоятельств маленький мальчик оказывается на краю загробного мира – в лимбе, где также блуждает его сестра. Чтобы найти сестренку, ему придется набраться храбрости и проделать нелегкий путь по жутковатому черно-белому миру, наполненному чудовищными тварями, коварными механизмами и сложными головоломками.Тип издания: LicenseРазработчик: Playdead и Double ElevenЖанр: Arcade (Platform), LogicЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EF151CB551ABBE5A89A70254088707A854F39DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566658   (211545) от 30.07.2022
-
-The Tarnishing of Juxtia (2022) [Multi] (1.01) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211545.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Tarnishing of Juxtia сочетает мрачные фэнтезийные визуальные эффекты и навязчиво красивый саундтрек с захватывающим геймплеем 2D-RPG, вдохновленным Souls, и зловещим повествованием. Инновационная и полезная боевая система, ошеломляющее разнообразие снаряжения и способностей, высокодетализированная пиксельная среда и ужасно потускневшие боссы вместе делают The (   Читать дальше...   )Тип издания: LicenseРазработчик: Actual NerdsЖанр: Экшны, Ролевая игра, ПлатформерЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D82C4CC81EF45A11F1BC8420B9DD1E112EA1CBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

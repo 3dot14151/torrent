@@ -1,3 +1,32 @@
+###  Публикация: 608169   (993346) от 25.01.2013
+
+За гранью / Fringe [3 сезон, 1-22 эпизоды] (2010-11) WEB-DL [720p] [LostFilm] ATV/iPad
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оливия Данэм — молодой агент ФБР — вынуждена работать со штатом ученых, чтобы расследовать необъяснимые феномены. Среди работников этого секретного отдела Национальной Безопасности: доктор Уолтер Бишоп — что-то среднее между Эйнштейном и Франкенштейном, его сын с IQ около 200, так и не закончивший школу, с карточными долгами и Нина Шарп, проработавшая на тайную организацию (   Читать дальше...   )Жанр: фантастика, триллер, драма, детективПеревод: Профессиональный многоголосый закадровый (LostFilm)Субтитры: * 3GPP Text - Русские
+* 3GPP Text - АнглийскиеЯзык субтитров: Русский, Английский
+
+Создатели и актеры
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352993   (993164) от 16.01.2020
 
 Хорошие мальчики / Good Boys (2019) BDRip [1080p] ATV
@@ -6,7 +35,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993164.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993149.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992624.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992507.jpg" />
 </div>
 
 
@@ -110,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992498.jpg" />
 </div>
 
 
@@ -139,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992451.jpg" />
 </div>
 
 
@@ -165,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991640.jpg" />
 </div>
 
 
@@ -191,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991637.jpg" />
 </div>
 
 
@@ -217,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990602.jpg" />
 </div>
 
 
@@ -243,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990545.jpg" />
 </div>
 
 
@@ -269,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989724.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988986.jpg" />
 </div>
 
 
@@ -321,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988940.jpg" />
 </div>
 
 
@@ -347,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988819.jpg" />
 </div>
 
 
@@ -373,7 +402,7 @@ SOS, Дед Мороз или Все сбудется!  (2015) WEB-DL [1080p] AT
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988261.jpg" />
 </div>
 
 
@@ -399,7 +428,7 @@ Group | Женский Stand Up (2020) [M4B|AAC]
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987937.jpg" />
 </div>
 
 
@@ -425,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987771.jpg" />
 </div>
 
 
@@ -452,7 +481,7 @@ Superнянь 2 / Babysitting 2 (2015) WEB-DL [1080p] ATV
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987151.jpg" />
 </div>
 
 
@@ -478,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987097.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987085.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987017.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986988.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986925.jpg" />
 </div>
 
 
@@ -611,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986864.jpg" />
 </div>
 
 
@@ -637,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986035.jpg" />
 </div>
 
 
@@ -648,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F6E461D03767A40F193D372FC4BFE88BCB4E587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354954   (985952) от 24.01.2020
-
-Доктор Сон / Doctor Sleep (2019) WEB-DL [1080p] ATV [Theatrical Cut]
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошло много лет с тех пор, как мальчик с паранормальными способностями Дэнни Торранс пережил кошмарный сезон в отеле «Оверлук», где стал свидетелем безумия и гибели своего отца. Повзрослев, Дэн вёл жизнь маргинала-алкоголика, а теперь пытается завязать и устроился на работу в дом престарелых. Там он безошибочно определяет, кому из постояльцев подошла очередь покинуть (   Читать дальше...   )Производство: США, Великобритания / Warner Bros., Intrepid Pictures, Vertigo EntertainmentЖанр: Ужасы, фэнтези, триллер, драмаРежиссер: Майк ФлэнеганАктеры: Юэн Макгрегор, Ребекка Фергюсон, Кайли Кёрран, Брюс Гринвуд, Зан Маккларнон, Клифф Кёртис, Карл Ламбли, Джейкоб Тремблей, Закари Момо, Эмили Элин ЛиндПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), украинские (Forced), английские (Full, SDH)Продолжительность: 02:31:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55CC55435C2E0AA4884AF598337BE20EBA81453F
 ```
 
 https://mybot314.ru/tekegram_catalog/

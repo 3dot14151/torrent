@@ -1,3 +1,29 @@
+###  Публикация: 1516376   (165726) от 11.12.2021
+
+Дорога домой / Back to the Outback (2021) WEB-DLRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Животные из тематического парка вырываются на свободу и отправляются на поиски родного дома.Производство: Австралия, США / Netflix Animation, Reel FX Creative Studios, Weed Road PicturesЖанр: Мультфильм, комедия, приключения, семейныйРежиссер: Гарри Криппс, Клер Де ШенюАктеры: Джеки Уивер, Рэйчел Хаус, Айла Фишер, Гай Пирс, Уэйн Найт, Эрик Бана, Дизель Ла Торрака, Тим Минчин, Джиа Каридес, Энгус ИмриПеревод: Дублированный (Пифагор по заказу Netflix)Язык озвучки: РусскийСубтитры: Русские (forced hardsub)Продолжительность: 01:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B75013176BA99B66AEEA3BF9DEE4E6874CB2141
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345781   (165592) от 16.12.2019
 
 Королевские каникулы / Trouble (2019) WEB-DLRip [H.264]
@@ -6,7 +32,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165592.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165580.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165558.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165018.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165010.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164843.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164830.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164724.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164702.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163486.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162746.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161399.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161351.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159706.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159209.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158836.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158079.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157739.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Angry Birds в кино / The Angry Birds Movie (2016) HDRip [H.264] [Hand Made 
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156280.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ My Little Pony в кино (Мой маленький пони) / My Little Pony
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154523.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151428.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150108.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149890.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149802.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148814.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:386C39B04C26DE5AC57A3022E495E4C0FA652DD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347763   (148135) от 24.12.2019
-
-Клара и волшебный дракон (2019) WEB-DLRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один раз в тысячу лет в сказочном мире появляется волшебный дракончик. Из-за исключительной редкости дракончика похищают силы зла, чтобы использовать его волшебство. По случайности они теряют дракончика. Его находят двое друзей — жизнерадостный енот и ворчливый гном. Друзья отправляются в дальний путь, чтобы вернуть дракончика домой. На своем пути их ждет встреча (   Читать дальше...   )Производство: Украина / "Image Pictures"Жанр: Комедия, ПриключенияРежиссер: Александр КлименкоАктеры: Вероника Лукьяненко, Александр Погребняк, Дмитрий Завадский, Сергей Солопай, Олег Лепенец, Дмитрий Гаврилов (II), Матвей Николаев, Кирилл Никитенко, Вячеслав Дудко, Дмитрий Викулов, Юрий Сосков, Екатерина Башкина, Демьян ШиянПеревод: Профессиональный (дублированный) | iTunesСубтитры: ОтсутствуютПродолжительность: 01:27:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40B41CE5FC9DD5364C8C74DBB532FE4DCBC0F663
 ```
 
 https://mybot314.ru/tekegram_catalog/

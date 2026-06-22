@@ -1,3 +1,111 @@
+###  Публикация: 517173   (646864) от 01.07.2012
+
+Книжная серия | Россия забытая и неизвестная (52 книги) [2001-2012] [FB2, DJVU, PDF][Обновляемая]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Россия забытая и неизвестная - серия исторических книг, которые время от времени, в зависимости от политического строя, изымаются из библиотек, "теряются", "забываются" и вновь появляются на свет.
+Круговорот исторической мысли в природе, хотя уже трудно, для отдельно взятого человека, прожившего всего одно поколение, разобраться, где правда, а где ложь.
+И приходишь к радостному выводу: вся история - вранье, сказки, фантастика...А фантастику можно и почитать.Жанр: ИсторияФормат: FB2, DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58E5E612517A627B0AD6B401295100D147286005
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227427   (646710) от 26.05.2018
+
+Галина Астапенко | Быт, обычаи, обряды и праздники донских казаков XVII - XX вв. (2011) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646710.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге Астапенко Г.Д., научного сотрудника Старочеркасского историко-архитектурного музея-заповедника, на основе архивных материалов, опроса старожилов станицы Старочеркасской, уже ушедших из жизни, рассказывается о быте, обычаях и праздниках донских казаков XVII - нач. XX вв.
+
+В книге вы найдёте главы, рассказывающие о казаках-земледельцах, рыболовах, виноградарях, (   Читать дальше...   )Жанр: История. ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14829FAB8D3C9E16F78FB5C7EB82E6A359E8ABA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906220   (645775) от 08.06.2015
+
+Ф. Я. Кон | Суд над партией «Пролетариат» (1931) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великий Пролетариат (польск. Wielki Proletariat), по собственному названию Интернациональная социально-революционная партия «Пролетариат» (польск. Międzynarodowa Socjalno-Rewolucyjna Partia «Proletariat»), - польская социалистическая революционная партия, действовавшая на территории Российской империи в конце XIX века. Основана в 1882 году путём объединения (   Читать дальше...   )Жанр: история, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4148895B5FDD5E21FB48DB5A04B9525179D6C4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906224   (645653) от 08.06.2015
+
+Ю. Ф. Карякин, Е. Г. Плимак | Запретная мысль обретает свободу. 175 лет борьбы вокруг идейного наследия Радищева (1966) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга воссоздает историю идейной борьбы вокруг первого русского революционного произведения, показывает, как произошло крушение созданной в прошлом веке либеральной легенды о Радищеве, подробно рассказывает о «загадках» «Путешествия из Петербурга в Москву», научных спорах, которые идут в советской исторической науке. Большое место авторы отводят критике современных (   Читать дальше...   )Жанр: история, политологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D0A0108F6483473D1B53B3F4648357580368BD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906416   (645222) от 08.06.2015
 
 Книжная серия | Неведомая Русь [28 книг] (2012-2015) [FB2, DJVU]
@@ -6,7 +114,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645222.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645192.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645184.jpg" />
 </div>
 
 
@@ -84,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644841.jpg" />
 </div>
 
 
@@ -112,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644810.jpg" />
 </div>
 
 
@@ -138,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644755.jpg" />
 </div>
 
 
@@ -165,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643908.jpg" />
 </div>
 
 
@@ -191,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643502.jpg" />
 </div>
 
 
@@ -217,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642922.jpg" />
 </div>
 
 
@@ -243,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641709.jpg" />
 </div>
 
 
@@ -270,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641708.jpg" />
 </div>
 
 
@@ -298,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641615.jpg" />
 </div>
 
 
@@ -324,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641464.jpg" />
 </div>
 
 
@@ -352,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641457.jpg" />
 </div>
 
 
@@ -378,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641358.jpg" />
 </div>
 
 
@@ -405,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641355.jpg" />
 </div>
 
 
@@ -433,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640003.jpg" />
 </div>
 
 
@@ -461,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639911.jpg" />
 </div>
 
 
@@ -487,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639838.jpg" />
 </div>
 
 
@@ -513,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639809.jpg" />
 </div>
 
 
@@ -539,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639448.jpg" />
 </div>
 
 
@@ -565,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638087.jpg" />
 </div>
 
 
@@ -578,112 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6808D2E0BC3E6F870B51352B9CE2A457DC0A56D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906672   (637866) от 12.06.2015
-
-Andrew Jotischky, Caroline Hull | Исторический Атлас Средневекового Мира (2005) [PDF] [En]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исторический Атлас Средневекового Мира (The Penguin Historical Atlas of the Medieval World) прослеживает развитие народов, культур, и вер от варварских вторжений в четвертом столетии до первых путешествий к Новому Миру в шестнадцатом. Богато оформленный атлас иллюстрирует широкие изменения от падения Римской империи к рождению Ислама, возвышению Христианства, и роли (   Читать дальше...   )Жанр: историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:714DF8E3DFE508A73E1F25F9D5C74F848A7DE786
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293485   (637415) от 03.04.2019
-
-Айрис Апфель | Икона по воле случая (2019) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Айрис Апфель такая же яркая и прекрасная, как ее автор. Здесь есть советы и жизненные правила, случаи из детства, истории из настоящего, описания нарядов, тканей и аксессуаров, исторические события, участницей которых была Айрис, размышления о жизни, любви и людях, очерки о стиле и рассуждения на самые разные темы. Страницы, каждая из которых достойна висеть (   Читать дальше...   )Жанр: Биографии и мемуары, Истории из жизни, Мода и стильПеревод: Анастасия СоломинаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FD1E5C8DE8F4A7446FEA8D948C707547B8C7577
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143220   (637336) от 17.06.2017
-
-Д. Эрдэ | Революция на Украине: от керенщины до немецкой оккупации (1927) [DJVU, PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637336.jpg" />
-</div>
-
-
-###  Подробнее
-
-История Октябрьской революции на Украине еще почти совершенно не разработана, имеются лишь отдельные брошюры и статьи, дающие общий очерк революционного движения за первый период советской власти на Украине. Мы плохо знаем даже фактическую историю этих героических дней, еще много и много событий остается не изученными, весьма часто даже совершенно не освещенными. (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1469CD8910F6A6F00561CCC41895A265DB6DE3BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143221   (636947) от 17.06.2017
-
-А. С. Енукидзе и др. (ред.) | Первый Всероссийский съезд Советов р. и с. д. [2 тома] (1930) [DJVU, PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636947.jpg" />
-</div>
-
-
-###  Подробнее
-
-I Всероссийский съезд Советов рабочих и солдатских депутатов проводился с 3 (16) июня по 24 июня (7 июля) 1917 года в Петрограде.
-
-На I Всероссийском Съезде Советов подавляющее большинство составляли меньшевики и с.-р., которым противостояла маленькая группа большевиков. Меньшевики и с.-р. были у власти, — их лидеры, Керенский и Церетели, играли первую роль в коалиционном (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3267689B4E461AB424CB6A69179F479266A4BA5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,112 @@
+###  Публикация: 1347706   (148430) от 24.12.2019
+
+ConceptDraw Office 6.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148430.jpg" />
+</div>
+
+
+###  Подробнее
+
+ConceptDraw Office – пакет приложений для бизнес-продуктивности, разработанный компанией CS Odessa . Пакет ConceptDraw Office включает в себя инструменты для создания и обработки интеллект-карт (mind map), программное обеспечение для управления проектами, и графический редактор для создания бизнес–графики. Приложения в составе ConceptDraw Office поддерживают авторскую (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: CS Odessa Corp.Поддерживаемая ОС: macOS 10.13 High SierraЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80CF1942BC32B9A7587B0493A62C34E481B0C185
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519538   (148417) от 24.12.2021
+
+TunePat Apple Music Converter 1.4.4 [Multi]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148417.jpg" />
+</div>
+
+
+###  Подробнее
+
+TunePat Apple Music Converter для Mac - это мощный инструмент для загрузки и конвертации Apple Music на Mac, который помогает пользователям Apple записывать треки из Apple Music и конвертировать их в распространенные форматы на компьютерах Mac. Для этого не требуется никаких дополнительных приложений, включая приложение Apple Music / iTunes. Просто используйте этот (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.12.2021Разработчик: © 2021 TunePat Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5DCBA23DC2C2936D1E3A5DD6EBB0EBD0F544835
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347750   (148406) от 24.12.2019
+
+IZotope Iris 2 2.02.455 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148406.jpg" />
+</div>
+
+
+###  Подробнее
+
+iZotope Iris предлагает новую концепцию звукового дизайна и манипуляции с семплами в виде «визуального инструмента».
+
+Благодаря технологии визуального отклика от iZotope, Iris позволяет вам обнаружить мир звуков, которые вы даже никогда не слышали. Погрузитесь в спектрограмму Iris для извлечения, наслоения, управления и обнаружения новых звуков из любого аудиофайла. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: iZotope, IncПоддерживаемая ОС: macOS 10.8 Mountain LionЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CC26BCC7B8DDB9B3A4291174FF35CD736D85E5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087102   (148379) от 26.12.2016
+
+Letter Templates for Pages 4.1.2 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Letter Templates – это новый вид ваших документов, созданных в Pages.
+Новый взгляд ваших писем! Современный Letter Templates включает в себя 213 узнаваемых проектов, которые были адаптированы из различных шаблонов Jumsoft для Apple Mail.
+
+Как и его эквиваленты Mail, Letter Templates for Pages представляет исключительную коллекцию писем для бизнеса и личного пользования, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21 декабря 2016Разработчик: JumsoftПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F01F06A90B49A8DC93E01146F3E721918DAEC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271475   (148365) от 24.12.2018
 
 Movavi Screen Recorder Studio 10.1.0 [Multi/Ru]
@@ -6,7 +115,7 @@ Movavi Screen Recorder Studio 10.1.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148365.jpg" />
 </div>
 
 
@@ -32,7 +141,7 @@ PDF Office Max: Acrobat Expert 7.1.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148192.jpg" />
 </div>
 
 
@@ -58,7 +167,7 @@ ACDSee Photo Studio 8 v8.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148125.jpg" />
 </div>
 
 
@@ -85,7 +194,7 @@ Isotropix Clarisse iFX 4.0 SP14 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148070.jpg" />
 </div>
 
 
@@ -111,7 +220,7 @@ Deliver Express 2.7.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148003.jpg" />
 </div>
 
 
@@ -137,7 +246,7 @@ Currency Assistant 3.6.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147879.jpg" />
 </div>
 
 
@@ -164,7 +273,7 @@ FoneLab Location Changer for Mac 1.0.12 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147875.jpg" />
 </div>
 
 
@@ -191,7 +300,7 @@ Affinity Publisher 1.10.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147807.jpg" />
 </div>
 
 
@@ -218,7 +327,7 @@ JixiPix Rip Studio Pro 1.1.18 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147753.jpg" />
 </div>
 
 
@@ -244,7 +353,7 @@ Affinity Designer 1.10.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147708.jpg" />
 </div>
 
 
@@ -271,7 +380,7 @@ Balsamiq Mockups For Desktop 3.5.18 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147697.jpg" />
 </div>
 
 
@@ -298,7 +407,7 @@ Affinity Photo 1.10.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147656.jpg" />
 </div>
 
 
@@ -324,7 +433,7 @@ FoneLab iPhone Password Manager for Mac 1.0.16 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147650.jpg" />
 </div>
 
 
@@ -351,7 +460,7 @@ Spotless 1.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147625.jpg" />
 </div>
 
 
@@ -379,7 +488,7 @@ Wolf 2 - Responsive Designer Pro 2.30.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147622.jpg" />
 </div>
 
 
@@ -405,7 +514,7 @@ Coherence Pro 2.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147608.jpg" />
 </div>
 
 
@@ -431,7 +540,7 @@ Mac FoneLab for iOS 10.2.30 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147549.jpg" />
 </div>
 
 
@@ -457,7 +566,7 @@ Mirror for Samsung TV 3.8.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147535.jpg" />
 </div>
 
 
@@ -485,7 +594,7 @@ Energiza Pro for Mac 1.3.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147518.jpg" />
 </div>
 
 
@@ -511,7 +620,7 @@ Mac FoneLab FoneEraser for iOS 1.0.20 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147513.jpg" />
 </div>
 
 
@@ -537,7 +646,7 @@ Mirror for LG TV 3.8.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147497.jpg" />
 </div>
 
 
@@ -563,7 +672,7 @@ Tipard Blu-ray Player for Mac 6.2.60 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147490.jpg" />
 </div>
 
 
@@ -574,112 +683,6 @@ Tipard Blu-Ray Player отличный видеоплеер для воспро�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28817013B5446E9AE66F446371502DB338803C2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678169   (147482) от 20.11.2023
-
-Apeaksoft iPhone Transfer 2.0.68 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Apeaksoft iPhone Transfer может передавать файлы гибко, чтобы удовлетворить различные потребности пользователей. С безопасностью и высокой скоростью, это делает бесплатной передачу данных между устройствами iOS, ПК и iTunes. Это альтернатива, но превосходит iTunes. Вот что он может сделать для вас. Благодаря высокой скорости 60x вы можете быстро передавать фотографии, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2023Разработчик: © 2023 Apeaksoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E98565FB95EBF157C1E2975DB5460A5649FDBC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519617   (147340) от 25.12.2021
-
-iBoostUp Premium 9.8.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147340.jpg" />
-</div>
-
-
-###  Подробнее
-
-iBoostUp настраивает и оптимизирует ваш Mac, очищая ненужные файлы, фиксируя ваш жесткий диск, предоставляя рекомендации по эффективности, защищая вашу конфиденциальность, удаляя файлы cookie, показывая вам легкодоступную системную информацию и многое другое!
-iBoostUp Memory Booster позволяет вам просматривать подробную информацию о системной памяти и, возможно, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.12.2021Разработчик: © iBoostUp Pty LtdПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:431F7616AD90E54D971EBA40C47FC8997A16A15A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678097   (147170) от 20.11.2023
-
-Keyboard Maestro 11.0.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Keyboard Maestro - мультифункциональная утилита, которая может создавать макросы, для автоматизации каких-либо повторяющихся действий, вызываемых с помощью клавиатурных сочетаний, для приложений, окон, документов, буфера обмена и т.д.
-А что если вам нужно отправить картинку в определенную папку Dropbox или залить на хостинг изображений? В этих случаях цепочка действий (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.11.2023Разработчик: © 1990 - 2023 Stairways Software Pty Ltd.Поддерживаемая ОС: macOS X 10.13 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57AF378F84BD824BDDC44DAFE95F10968D1150EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678232   (147130) от 20.11.2023
-
-Mac FoneLab iOS Unlocker  1.0.56 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для людей, которые забыли код доступа iPhone, могут потерять контроль над вашим iPhone, iPad или iPod touch, вам понадобится FoneLab iOS Unlocker, чтобы удалить 4-значный код доступа, 6-значный код доступа, Touch ID или Face ID проверенным простым способом с наивысшим успехом. оценивайте эффективно. Внимание: удаление пароля iPhone приведет к удалению всех данных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.11.2023Разработчик: © 2023 FoneLab StudioПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB73F08CE032E0ECB6DCF2B8969EDDAE356ED264
 ```
 
 https://mybot314.ru/tekegram_catalog/

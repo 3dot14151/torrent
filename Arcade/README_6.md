@@ -1,3 +1,57 @@
+###  Публикация: 560643   (934230) от 11.03.2013
+
+Worms Revolution + 4 DLC [Ru/En/Multi8] (Repack/0124) 2012 | R.G. Origami
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вихри враждебные веют над ними — в новой игре из легендарной серии юморных походовых стратегий. Передовая 3D-графика делает любимых червячков еще очаровательнее, чем прежде. А еще смертоноснее их делает классический 2D-геймплей, обогащенный на сей раз поистине революционными возможностями. Безжалостные червячки-убийцы отныне способны перемещать предметы, обладающие всеми физическими свойствами, и даже высвобождать природную стихию, буквально смывая противника с уровня бурным потоком. Но самое главное — их индивидуальность . Бесшабашные кольчатые вояки наконец выучились по специальностям и теперь объединяются в отряды с оглядкой на личные качества. И — конечно, несомненно, разумеется — они раздобыли новое оружие!
+
+Червяки всех стран, вооружайтесь! Присоединяйтесь к великой кольчатой армии! Весь мир в труху! Во имя веселья! (   Читать дальше...   )Тип издания: RepackЖанр: Strategy (Turn-based) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Испанский, Итальянский, Немецкий, Польский, Португальский, Русский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E73ABC4A85DB144FEDB199DAF7A9041D0AA8348
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093737   (933122) от 15.01.2017
+
+Toricky (2017) [Ru/Multi] (1.0) License PLAZA
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933122.jpg" />
+</div>
+
+
+###  Подробнее
+
+ТОРИКИ И МОМО ДВЕ ПТИЦЫ-ИССЛЕДОВАТЕЛЯ, КОТОРЫЕ ВСЕГДА ИЩУТ НОВЫЕ ПРИКЛЮЧЕНИЯ. Они отправляются на новое задание в легендарный дворец, называемый «Кристар», где спрятаны таинственные драгоценности.Тип издания: LicenseРазработчик: Atelier Melon-KissaЖанр: Action, Adventure, Casual, IndieЯзык озвучки: ЯпонскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:349075E39C9355618B7D474C8F68B4EABDAC34FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 285206   (933073) от 22.01.2011
 
 Alien Shooter 2: Захват (L) [Ru] 2011
@@ -6,7 +60,7 @@ Alien Shooter 2: Захват (L) [Ru] 2011
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933073.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Trine 3: The Artifacts of Power (2015) [Ru/Multi] (1.11.3102) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932998.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ Brave: The Video Game / Храбрая сердцем (2012) [Ru/Multi] (1.0.0.3
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931588.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ Tinertia (2015) [En/Multi] (1.0.9) SteamRip Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929962.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ RYAN BLACK (2017) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929843.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ Soulcalibur VI / Soulcalibur 6 (2018) [Ru/En] (02.05.00/dlc) Repack xatab [Delux
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928574.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ LEGO MARVEL's Avengers (2016) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927185.jpg" />
 </div>
 
 
@@ -188,7 +242,7 @@ Guns, Gore and Cannoli (2015) [Ru/Multi] (1.2.5) SteamRip Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927175.jpg" />
 </div>
 
 
@@ -214,7 +268,7 @@ Murder by Numbers (2020) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926756.jpg" />
 </div>
 
 
@@ -240,7 +294,7 @@ Go Home Dinosaurs! [En] (Repack) 2013 | FANiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926071.jpg" />
 </div>
 
 
@@ -267,7 +321,7 @@ A Boy and His Blob (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925623.jpg" />
 </div>
 
 
@@ -293,7 +347,7 @@ Guns, Gore & Cannoli (2015) [Ru/Multi] (1.2.5) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925516.jpg" />
 </div>
 
 
@@ -319,7 +373,7 @@ Street Fighter V (2016) [Ru/Multi] License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923751.jpg" />
 </div>
 
 
@@ -345,7 +399,7 @@ Road Fist (2017) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923688.jpg" />
 </div>
 
 
@@ -371,7 +425,7 @@ Oddworld: New 'n' Tasty (2015) [Ru/Multi] (1.06/dlc) Repack R.G. Механик�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920153.jpg" />
 </div>
 
 
@@ -397,7 +451,7 @@ Card City Nights (2014) [En] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913585.jpg" />
 </div>
 
 
@@ -423,7 +477,7 @@ Obliteracers (2016) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912894.jpg" />
 </div>
 
 
@@ -449,7 +503,7 @@ Inside (2016) [Ru/Multi] (10) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911635.jpg" />
 </div>
 
 
@@ -475,7 +529,7 @@ The Fall (2014) [Ru/Multi] (2.31) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911525.jpg" />
 </div>
 
 
@@ -501,7 +555,7 @@ Trine 3: The Artifacts of Power (2015) [Ru/Multi] (1.11.3102) Repack =nemos=
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911050.jpg" />
 </div>
 
 
@@ -527,7 +581,7 @@ Trine Anthology (2013-2015) [Ru/Multi] (2.12/2.01/1.11) Repack Seraph1
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909793.jpg" />
 </div>
 
 
@@ -553,7 +607,7 @@ Never Alone (2014) [Ru/Multi] (1.8/dlc) SteamRip Let'sPlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907892.jpg" />
 </div>
 
 
@@ -579,7 +633,7 @@ Raging Titan (2016) [En] (1.6.11) License PROPHET
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906264.jpg" />
 </div>
 
 
@@ -605,7 +659,7 @@ Oh...Sir!! The Insult Simulator (2016) [En] (1.07) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904425.jpg" />
 </div>
 
 
@@ -616,58 +670,6 @@ Oh...Sir!! The Insult Simulator (2016) [En] (1.07) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:277AF718593E07032DCCA08929073C5CD29ECDC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369328   (903028) от 23.03.2020
-
-One Finger Death Punch 2 (2019) [En] (2.0) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903028.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом ураганном 2D-экшне вы превратитесь в кунг-фу мастера, которому предстоит победить множество врагов. У вас будет шанс открыть более четверти сотни умений, опробовать разнообразное оружие и пройти непростые испытания. Вместе с мастером боевых искусств вам удастся одолеть огромное количество разъяренных противников. Вы сможете помахать разнообразным оружием, (   Читать дальше...   )Тип издания: LicenseРазработчик: Silver Dollar GamesЖанр: Экшн, Сражения, ФайтингЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6AD4CD274E7A57EB0D92528BBD6B354731610C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992245   (901836) от 01.03.2016
-
-The Binding of Isaac: Afterbirth (2015) [En] (1.05) Repack R.G. ILITA
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901836.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Binding of Isaac: Rebirth - полный перезапуск игры The Binding of Isaac. Данная игра будет основываться не на Flash-версии, а как полноценная, с 16-ти битной графикой. Главным героем выступает все тот же многострадающий Исаак. По задумке он спустится в подземелье, чтобы пройти на голос Божий и найти своих родных. В отличии от прошлой игры теперь герою будут встречаться (   Читать дальше...   )Тип издания: RepackРазработчик: Nicalis, Inc., Edmund McMillenЖанр: RPG, Top-downЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B5E46DC16B05297AB5E37DFF2C5A5DB248828B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

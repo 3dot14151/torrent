@@ -1,3 +1,31 @@
+###  Публикация: 1859055   (1060906) от 14.03.2026
+
+В.Ю. Арьков | Анализ рядов динамики в электронных таблицах. Учебное пособие (2020) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060906.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной работе мы рассмотрим раздел «Динамика». Здесь изучают данные, привязанные ко времени. Мы будем опираться на две предыдущие работы: «Анализ распределения (Сводка и группировка)» и «Анализ взаимосвязи (Корреляция и регрессия)».
+Работа выполняется в пакете типа электронных таблиц.
+Как и в предыдущих работах, вначале мы сгенерируем случайные числа и поиграем (   Читать дальше...   )Жанр: Математика, Excel, Google ТаблицыИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:033C9C22C6D93843939525A583ECAF41CE40360D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858108   (1060212) от 08.03.2026
 
 Я. Рабек | Экспериментальные методы в фотохимии и фотофизике (1985) [DJVU]
@@ -6,7 +34,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060212.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060201.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059077.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058403.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056757.jpg" />
 </div>
 
 
@@ -139,7 +167,7 @@ R.W. Chabay, B.A. Sherwood | Matter and Interactions (2015) [PDF, DJVU] [En]
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056677.jpg" />
 </div>
 
 
@@ -165,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056329.jpg" />
 </div>
 
 
@@ -191,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056328.jpg" />
 </div>
 
 
@@ -217,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055906.jpg" />
 </div>
 
 
@@ -243,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055619.jpg" />
 </div>
 
 
@@ -269,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055616.jpg" />
 </div>
 
 
@@ -295,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055615.jpg" />
 </div>
 
 
@@ -322,7 +350,7 @@ P. Grohs, M. Holler, A. Weinmann | Handbook of Variational Methods for Nonlinear
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055303.jpg" />
 </div>
 
 
@@ -348,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055050.jpg" />
 </div>
 
 
@@ -375,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055038.jpg" />
 </div>
 
 
@@ -401,7 +429,7 @@ José Luis Cisneros-Molina, Dũng Tráng Lê, José Seade | Handbook of Geometry
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054873.jpg" />
 </div>
 
 
@@ -427,7 +455,7 @@ M. Hazewinkel (ред.) | Handbook of Algebra [6 книг] (1996 - 2009) [PDF]
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054767.jpg" />
 </div>
 
 
@@ -453,7 +481,7 @@ Alfred Hassner, Irishi Namboothiri, Meir Golan | Organic Syntheses Based on Name
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054633.jpg" />
 </div>
 
 
@@ -479,7 +507,7 @@ Artur Zaporozhets | Smart Charging in Solar Microgrids. Intelligent Forecasting 
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054617.jpg" />
 </div>
 
 
@@ -505,7 +533,7 @@ Abbie Headon | The Periodic Table Illustrated. A Guide to the 118 Chemical Eleme
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054484.jpg" />
 </div>
 
 
@@ -531,7 +559,7 @@ Erico Azevedo, Jose Pissolato Filho | Information Fields Theory and Applications
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054483.jpg" />
 </div>
 
 
@@ -557,7 +585,7 @@ Michael Seeds, Dana Backman, Eric Wegryn | Foundations of Astronomy. 15th Editio
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054482.jpg" />
 </div>
 
 
@@ -583,7 +611,7 @@ Kenneth Kuttler | Real and Functional Analysis. Textbooks in Mathematics (2026) 
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054292.jpg" />
 </div>
 
 
@@ -610,7 +638,7 @@ Alberto Debernardi Pinos, Elijah Liflyand, Sergey Tikhonov и др. | Single and
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054144.jpg" />
 </div>
 
 
@@ -636,7 +664,7 @@ Andreas Meister | Numerical Methods for Linear Systems of Equations. An Introduc
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054143.jpg" />
 </div>
 
 
@@ -649,32 +677,6 @@ In addition to direct algorithms, it presents a wide range of classical and mode
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77BAE95C5FF96D54AB419C91DC5E104D5ACABDB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849405   (1053771) от 23.01.2026
-
-В.Ф. Чудесенко | Сборник заданий по специальным курсам высшей математики (1983) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие написано в соответствии с действующей программой по курсу высшей математики. Оно содержит типовые расчеты по теории функций комплексного переменного, операционному исчислению, уравнениям математической физики, теории вероятностей и математической статистике. Задачи представлены 31 вариантом. Типовые расчеты содержат также теоретические вопросы, упражнения (   Читать дальше...   )Жанр: МатематикаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A7C44ED310EB4D806EA89D6AD14692AF3BB84E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

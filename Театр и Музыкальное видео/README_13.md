@@ -1,3 +1,167 @@
+###  Публикация: 740939   (984497) от 02.01.2014
+
+Легенды Ретро FM (2014) SATRip [эфир от 01.01.2014]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжит новогодний вечер на Пятом незабываемая встреча с легендами 70-х, 80-х и 90-х на концерте "Легенды Ретро FM" - одном из самых масштабных фестивалей популярной музыки в России! Всех, кто соберётся перед экранами своих ТВ, ждут российские и зарубежные суперзвёзды: Ricchi e Poveri, Олег Газманов, Samantha Fox, Алёна Апина, Bad Boys Blue, Самоцветы, (   Читать дальше...   )Производство: Жанр: ТелепередачаПродолжительность: ~ 03:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A1498EEAEF156726AF1613F63637087722A5B2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970641   (984470) от 04.01.2016
+
+Константин Райкин "Мои любимые стихи" (2003) TVRip (Сатирикон)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный актёр, режиссёр, руководитель театра "Сатирикон" Константин Райкин исполняет стихи своих любимых поэтов - Давида Самойлова, Николая Рубцова, Осипа Мандельштама, Николая Заболоцкого. Программу завершают стихи Александра Сергеевича Пушкина. По мнению Райкина, мало кто из поэтов может прозвучать после Пушкина. Съёмки проходили на сцене, за кулисами (   Читать дальше...   )Производство: Россия, Телеканал "Культура", Российский государственный театр "Сатирикон" им. А. РайкинаЖанр: Моноспектакль, литературное чтение, поэзияРежиссер: Пётр КротенкоАктеры: Константин РайкинПродолжительность: 00:25:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D4F1AE81DCF201C65E04139758F9736A19F8470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971477   (984280) от 04.01.2016
+
+Stromae - Racine Carree Live (2015) BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984280.jpg" />
+</div>
+
+
+###  Подробнее
+
+В международной истории, Stromae со своим альбомом Racine Carrée, который разошёлся тиражом более чем 3 млн единиц, представляет вам живой концерт. Это живое видео является уникальным, так как это след этой необыкновенной экскурсии в мир Stromae. Концерт был снят в течение 2 дней сентября, в Centre Bell(Монреаль). Качество снятых кадров является совершенно невероятным, (   Читать дальше...   )01. Introduction	(3:45)
+02. Ta fete (Racine carree)	(4:18)
+03. Batard (Racine carree)	(3:36)
+04. Peace or Violence (Cheese)	(4:43)(   Читать дальше...   )Жанр: Концерт, МузыкаРежиссер: Luc Junior Tam / Gautier & LeducАктеры: StromaeПеревод: ОтсутствуетЯзык субтитров: ENПродолжительность: 01:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0750751F7398C39960AA7146772B820BC504084
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 612580   (983877) от 03.02.2013
+
+DJ Smash & Семён Слепаков/Откат (2013).HDTV
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительность: 00:04:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FE78A467A99BFE5B90341158B8335E76EFB4411
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354626   (983443) от 26.01.2020
+
+In This Moments - 17 Music Videos (2007-2020) WEB-DL [H.264/1080p/720p/480p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983443.jpg" />
+</div>
+
+
+###  Подробнее
+
+2007 In This Moment - Beautiful Tragedy (Official Video)
+2007 In This Moment - Prayers (Official Video)
+2008 In This Moment - Forever (Official Video)
+2009 In This Moment - Call Me (Official Video)(   Читать дальше...   )Производство: Atlantic RecordsЖанр: MetalcoreПродолжительность: 01:24:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D04FC5DBB42616289FDE5C7C4E0B508C4A52045E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355337   (983439) от 26.01.2020
+
+Pet Shop Boys - 3 Music Videos (2012-2020) WEB-DL [H.264/720p/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983439.jpg" />
+</div>
+
+
+###  Подробнее
+
+2012 Pet Shop Boys - Leaving (Promotional Video)
+2020 Pet Shop Boys - Monkey business (Official video)
+2020 Pet Shop Boys (feat. Years & Years) - Dreamland (Official lyric video)Жанр: Synthpop, Dance-PopПродолжительность: 00:11:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF33B513B67039B76F766F99CC9E630CC97647DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 610322   (982450) от 04.02.2013
 
 Кипелов. Концерт "Москва 2005" (2006) DVD5
@@ -6,7 +170,7 @@
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982450.jpg" />
 </div>
 
 
@@ -32,7 +196,7 @@ VA - Millenium Sexy vol.2 - Сборник видеоклипов (2011) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982331.jpg" />
 </div>
 
 
@@ -58,7 +222,7 @@ Scorpions. Концерт "Get Your Sting & Blackout - Live In 3D" ( + доку�
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982318.jpg" />
 </div>
 
 
@@ -88,7 +252,7 @@ Billie Eilish feat. Khalid - Lovely (2018) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982201.jpg" />
 </div>
 
 
@@ -114,7 +278,7 @@ VA - Millenium Sexy - Сборник популярных видеоклипов
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982166.jpg" />
 </div>
 
 
@@ -140,7 +304,7 @@ VA - 50 Самых сексуальных музыкальных видео вс
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982158.jpg" />
 </div>
 
 
@@ -168,7 +332,7 @@ VA - 50 Самых сексуальных музыкальных видео вс
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982061.jpg" />
 </div>
 
 
@@ -194,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981735.jpg" />
 </div>
 
 
@@ -223,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981624.jpg" />
 </div>
 
 
@@ -252,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981621.jpg" />
 </div>
 
 
@@ -281,7 +445,7 @@ Pitbull ft. Shakira - Get It Started (2012) [1080p] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981342.jpg" />
 </div>
 
 
@@ -307,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981335.jpg" />
 </div>
 
 
@@ -341,7 +505,7 @@ Bob Marley And The Wailers - Live at The Rainbow (1977 (Video 1991)) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981328.jpg" />
 </div>
 
 
@@ -376,7 +540,7 @@ Shakira ft. Pitbull - Rabiosa (2011) [1080i] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981297.jpg" />
 </div>
 
 
@@ -402,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981116.jpg" />
 </div>
 
 
@@ -431,7 +595,7 @@ Cirque du Soleil: Delirium (2008) HDRip [EN]
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981081.jpg" />
 </div>
 
 
@@ -457,7 +621,7 @@ Stars Of The 90'S (2004-2006) [H.264] DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981079.jpg" />
 </div>
 
 
@@ -492,7 +656,7 @@ Cirque du Soleil: Delirium (2008) [720p] HDTVRip [EN]
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981077.jpg" />
 </div>
 
 
@@ -518,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981023.jpg" />
 </div>
 
 
@@ -545,7 +709,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981022.jpg" />
 </div>
 
 
@@ -559,171 +723,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48C19D8FB703A5C7C0C234EC3EF4AF494EC8ADC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612891   (981018) от 05.02.2013
-
-Архив Русского Рока - 4 тома. Янка. Егор Летов. Гражданская Оборона (2006-2007) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Насрать На Мое Лицо
-02. Против
-03. Я Не Верю В Анархию
-04. Харакири(   Читать дальше...   )Жанр: Post-punk
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 436699   (980082) от 15.01.2012
-
-Сборник клипов - VA - Various Music part. 2 (2011) WEBRip [H.264/720p-LQ/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rap, Dance, Pop, Trance, House, RockПродолжительность: ~02:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C950FE1CAD8C428959E5D060B1726F4FC1B6F306
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 436676   (980079) от 15.01.2012
-
-Сборник клипов - VA - Various Music (2010-2011) WEBRip [H.264/720p-LQ/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: VariousПродолжительность: ~03:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:376BD0C777FC17330754DAB97A03895ECB047F42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973257   (979134) от 09.01.2016
-
-Поет Лариса Мондрус (60-е годы) DVDRip [H.264] [hand made colored]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лариса Мондрус - ярчайшая звезда эстрады (не только отечественной), с ослепительным блеском пронесшаяся по музыкальному небосводу и оставившая ярчайший след в сердцах миллионов любителей музыки. Для ценителей таланта певицы предлагается видеоматериал, содержащий уникальные записи 60-х годов.Производство: СССРЖанр: МузыкальныйАктеры: Лариса МондрусПродолжительность: 00:15:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF6F6DDA4C501F191BACADBF0D403763FF5F221E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973548   (979129) от 09.01.2016
-
-Новогодний концерт Венского Филармонического оркестра / Vienna New Year's Concert (2016) DVB
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заpодившиеся в темный пеpиод австpийской истоpии, новогодние концеpты отpажают надежду людей на лучшие вpемена. Сегодня эта музыка пpиносит pадость и оптимизм на весь год и будоpажит до глубины души миллионы людей во всем миpе.
-B течение многих десятилетий Bенский филаpмонический оpкестp пpедставляет своей аудитоpии интеpесную пpогpамму с богатым pепеpтуаpом династии (   Читать дальше...   )Производство: Россия, ГТРК КультураЖанр: МузыкаПеревод: Одноголосый закадровый профессиональныйПродолжительность: 02:34:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93036120D0D38ED0E9FB09A09E420EE2F53F0039
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973207   (978815) от 09.01.2016
-
-Рождественская история с Тиной Кароль / Різдвяна історія з Тіною Кароль (2016) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рождество - особый праздник, в этот вечер страна ждет чудо, и мы подготовили его для вас. Хотя в повседневной суете мы почти забыли о сказках, помните, что чудеса случаются не только перед Рождеством, главное - верить.
-
-Главный герой фильма нашел под елкой подарок - книгу, которая переносит его в фантастический мир, полный любви и тепла. В этом мире сказка переплетается (   Читать дальше...   )1. Небо і земля нині торжествують
-2. Добрий вечір тобі, пане господарю
-3. Ой, хто, хто Миколая любить
-4. Щедрик(   Читать дальше...   )Производство: Україна,Жанр: Музыкальный, Колядки, ЩедривкиПродолжительность: 01:10:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9B18CFE4E9C85B3062453C25D728E22FC7E614A
 ```
 
 https://mybot314.ru/tekegram_catalog/

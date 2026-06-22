@@ -1,3 +1,32 @@
+###  Публикация: 719443   (385824) от 05.11.2013
+
+Taneyamagahara no Yoru / Night of Taneyamagahara / Ночь на Танэямагахаре [2006, OVA] DVDRip 480p Raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Танеямагахара представляет собой плоскогорье примерно посередине гор Китаками.
+Там почти всегда облачно, так что, естественно, нередки туманы, дожди и грозы.
+Там есть широкие луга, где пасётся более 800 лошадей.
+В одном из уголков Танеямагахары вокруг костра собралась группа людей.(   Читать дальше...   )Жанр: сказкаРежиссер: Ога КадзуоСубтитры: •Продолжительность: 27 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:581E80E0DE892DAB83F5BBDC65C1B11D79BD1875
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 719411   (385639) от 05.11.2013
 
 Gake no Ue no Ponyo / Ponyo on the Cliff by the Sea / Рыбка Поньо на утесе [2008, MV] BDRip 1080p Raw
@@ -6,7 +35,7 @@ Gake no Ue no Ponyo / Ponyo on the Cliff by the Sea / Рыбка Поньо на
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385639.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ Gochuumon wa Usagi Desuka?? Sing for You | Кролика заказывали? 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385505.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ Gochuumon wa Usagi Desuka?? Dear My Sister | Кролика заказывали
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385504.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ Hashiri Tsuzukete Yokattatte. | Хорошо, что я продолжил бе�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385200.jpg" />
 </div>
 
 
@@ -110,7 +139,7 @@ Gaikotsu Shotenin Honda-san | Skull-face Bookseller Honda-san | Скелет-к�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385132.jpg" />
 </div>
 
 
@@ -136,7 +165,7 @@ Given | Дарованный [2019, TV, 11 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385061.jpg" />
 </div>
 
 
@@ -162,7 +191,7 @@ Uchi no Ko no Tame Naraba, Ore wa Moshikashitara Maou mo Taoseru Kamo Shirenai. 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384519.jpg" />
 </div>
 
 
@@ -188,7 +217,7 @@ Maou-sama, Retry! | Demon Lord, Retry! | Король демонов, попыт
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384510.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ Yuru Yuri San Hai! / Свободу лесбиянкам! Три подружк�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384258.jpg" />
 </div>
 
 
@@ -241,7 +270,7 @@ One Punch Man | One-Punch Man | Ванпанчмен [2015, TV, 12 + 6sp] BDrip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384159.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Jashin-chan Dropkick / Dropkick on My Devil! / Пинок с наскока Дз
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383323.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Merc Storia: Mukiryoku Shounen to Bin no Naka no Shoujo | Merc Storia: The Apath
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383245.jpg" />
 </div>
 
 
@@ -319,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381552.jpg" />
 </div>
 
 
@@ -345,7 +374,7 @@ Blue Thermal | Влюблённые в небо [2022, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381538.jpg" />
 </div>
 
 
@@ -371,7 +400,7 @@ Aria the Benedizione | Ария: Благословение [2021, Movie] BDRip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381534.jpg" />
 </div>
 
 
@@ -398,7 +427,7 @@ Ai no Utagoe o Kikasete | Sing a Bit of Harmony | Спой немного гар
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381464.jpg" />
 </div>
 
 
@@ -424,7 +453,7 @@ Gaikotsu Kishi-sama, Tadaima Isekai e Odekake-chuu | Skeleton Knight in Another 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381457.jpg" />
 </div>
 
 
@@ -451,7 +480,7 @@ Totsukuni no Shoujo (2022) | Девочка из Чужеземья OVA-2 [2022,
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381451.jpg" />
 </div>
 
 
@@ -477,7 +506,7 @@ Totsukuni no Shoujo (2022) | Девочка из Чужеземья OVA-2 [2022,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381448.jpg" />
 </div>
 
 
@@ -503,7 +532,7 @@ Tensai Ouji no Akaji Kokka Saiseijutsu | The Genius Prince's Guide to Raising a 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381414.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ W'z | Уиз [2019, TV, 13 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380919.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Meiji Tokyo Renka | Любовь эпохи Мэйдзи [2019, TV, 12 эп.] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380916.jpg" />
 </div>
 
 
@@ -581,7 +610,7 @@ Karakuri Circus | Цирк марионеток [2018, TV, 36 эп.] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380908.jpg" />
 </div>
 
 
@@ -607,7 +636,7 @@ Amanchu! / Аманчу! [2016, TV, 12 + OVA] BDRip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380799.jpg" />
 </div>
 
 
@@ -633,7 +662,7 @@ No Guns Life (2020) | Жизнь без оружия [ТВ-2] [2020, TV, 12 эп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380464.jpg" />
 </div>
 
 
@@ -644,32 +673,6 @@ No Guns Life (2020) | Жизнь без оружия [ТВ-2] [2020, TV, 12 эп
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:489A866AA6DCE514BE26AFEAB9B31C6CC86235DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314926   (380375) от 22.09.2019
-
-Joshikousei no Mudazukai | Wasteful Days of High School Girl | Бездельные дни старшеклассницы [2019, TV, 12] WEBRip 720p Raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380375.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре повествования три девочки: Танака по прозвищу Дура (из-за низких оценок), Кикучи по прозвищу Отаку (из-за одержимости сёнен-аем) и Сагиномия по прозвищу Робот (потому что гениальная, но бесчувственная). Вместе с другими яркими персонажами они прожигают свою жизнь в старшей школе.Производство: Студия Passione / パッショーネЖанр: комедияРежиссер: Такахаси ТакэоПеревод: SpellSubsЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFAD98ABE61739C670B31FCBE098FD41C2C6B061
 ```
 
 https://mybot314.ru/tekegram_catalog/

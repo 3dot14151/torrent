@@ -1,3 +1,32 @@
+###  Публикация: 1579366   (338041) от 26.09.2022
+
+WebforMyself, Андрей Кудлай | WordPress-Профи. Практика создания плагинов (2022) [unpacked]
+
+>>Мультимедийные материалы
+>>Компьютеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот видеокурс дает уникальные знания. Вы с нуля узнаете, как разрабатывать плагины для WordPress и работать с данной CMS на профессиональном уровне, создавая плагины с нужным функционалом вместо того, чтобы тратить время в попытках найти плагин с недостающими функциями.
+
+Попробуем угадать:Вы – начинающий разработчик на WordPress?
+У вас имеется опыт создания сайтов (   Читать дальше...   )Жанр: ВидеокурсФормат: unpacked
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0571339A13E9EB3D9E55B0286895164F6EB06564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330372   (333091) от 14.10.2019
 
 Алексей Кузьмичев | Цветокоррекция без границ (2019) PCRec [unpacked]
@@ -6,7 +35,7 @@
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333091.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333085.jpg" />
 </div>
 
 
@@ -63,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333083.jpg" />
 </div>
 
 
@@ -89,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332903.jpg" />
 </div>
 
 
@@ -117,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324505.jpg" />
 </div>
 
 
@@ -145,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323084.jpg" />
 </div>
 
 
@@ -171,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322133.jpg" />
 </div>
 
 
@@ -197,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319678.jpg" />
 </div>
 
 
@@ -223,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317101.jpg" />
 </div>
 
 
@@ -249,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312440.jpg" />
 </div>
 
 
@@ -277,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308821.jpg" />
 </div>
 
 
@@ -303,7 +332,7 @@ CHIP | CHIP - DVD приложение к журналу CHIP №12 (декаб�
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308756.jpg" />
 </div>
 
 
@@ -329,7 +358,7 @@ CHIP | CHIP - DVD приложение к журналу CHIP №12 (декаб�
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304609.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ CHIP | CHIP -  DVD приложение к журналу CHIP №11 (ноябр
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295464.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_291444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_291444.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290946.jpg" />
 </div>
 
 
@@ -435,7 +464,7 @@ SpeakFluently | Английский бегло! [Демонстрационна
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290936.jpg" />
 </div>
 
 
@@ -461,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290485.jpg" />
 </div>
 
 
@@ -488,7 +517,7 @@ Schneider Electric | Документация к частотным привод
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285706.jpg" />
 </div>
 
 
@@ -517,7 +546,7 @@ Windows 7 от «А» до «Я» [2011] [EXE]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285682.jpg" />
 </div>
 
 
@@ -543,7 +572,7 @@ CHIP | DVD приложение к журналу CHIP №13 (Декабрь 201
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285346.jpg" />
 </div>
 
 
@@ -569,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284171.jpg" />
 </div>
 
 
@@ -596,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283233.jpg" />
 </div>
 
 
@@ -623,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278885.jpg" />
 </div>
 
 
@@ -651,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276193.jpg" />
 </div>
 
 
@@ -662,32 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CD26C55B775CEA9F006E722092E4AE9A53A90D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 209357   (271641) от 30.11.2018
-
-ИДДК | Иглотерапия и точки Акупунктуры [2007] [ISO]
-
->>Мультимедийные материалы
->>Мультимедийные справочники, Энциклопедии
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта электронная энциклопедия содержит разнообразную теоретическую и практическую информацию по акупунктуре и иглоукалыванию. Рассматриваются различные методы рефлексотерапии, даются советы по выбору специалиста, приведена подробная информация по меридианам и оборудованию для иглоукалывания. Отдельно рассматриваются основные представления Восточной Медицины.Жанр: МедицинаФормат: ISO
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6847B1CB0BECD67416DAF1614D63823DCB6C32A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

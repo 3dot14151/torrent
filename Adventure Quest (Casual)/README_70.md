@@ -1,3 +1,159 @@
+###  Публикация: 1787435   (23509) от 25.03.2025
+
+Lucky Season 2: End of the Rainbow / Сезон удачи 2: Конец радуги (2025) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение сказочной серии игр Lucky Season. Скоро День святого Патрика, и вам не терпится провести его со своими близкими. Но когда вы возвращаетесь в свое поселение, то обнаруживаете, что оно заброшено и заросло странными грибами. Все члены вашей семьи загипнотизированы этими грибами - первой атакой существа из легенд. Удача быстро покидает ваш мир, а опасный (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F2ADA5C252B2B51E5337011D985C860D9E2B71E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787557   (23402) от 26.03.2025
+
+Icebound Secrets: The Frostwood Bane (2025) [Multi] (1.0) Unofficial
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте новое мистическое приключение. Затерянный под толстым слоем снега Фроствуд переживает одну из самых суровых зим в своей истории. Узкие улочки превратились в ледяной лабиринт, а старинные дома застыли во времени. Но настоящий ужас начинается ночью - из темноты появляются сверхъестественные фигуры, напоминающие призраков из старых легенд. Безмолвные и безжалостные, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык субтитров: Английский, Испанский, Французский и другиеЯзык интерфейса: Английский, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74FC73ED536E79D81AEE2AA28AC1A870CA33EB46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787980   (23201) от 28.03.2025
+
+Harmony Chronicles 3: Cat Out of the Bag / Хроники Гармонии 3: Кот в мешке (2025) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение увлекательной игры The Harmony Chronicles. Играя роль Моны, избранного воина Богини Гармонии, вы столкнетесь с кризисом, который угрожает всем магическим мирам. Когда невидимая сила запечатывает замок богини, вы должны отправиться в путешествие по зачарованным землям, чтобы раскрыть источник беспорядков. Древние защитные барьеры были активированы, давая (   Читать дальше...   )Тип издания: UnofficialРазработчик: Jet Dogs StudioЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89F4C88CA67C0A60A111A2F80CC28B6E233D58C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787995   (23199) от 28.03.2025
+
+Enchanted Stories: Mystic Woods / Зачарованные Истории: Таинственный Лес (2025) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте новую мистическую игру. Когда Роуз отправляется в Таинственный лес, чтобы помочь своей бабушке, она узнает шокирующую правду: магия леса слабеет, а беспощадное соглашение о вырубке угрожает уничтожить его сущность. У Роуз не остается другого выбора, кроме как принять наследие бабушки и стать хранительницей. Но кто бы мог подумать, что маленькая красная (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99351FD8A958F2BBB4321303A5B9A85A73B5EA37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788639   (22890) от 31.03.2025
+
+Icebound Secrets: The Frostwood Bane / Тайны ледяного мира: Проклятие Фроствуда (2025) [Ru/Multi] (1.0) Unofficial
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте новое мистическое приключение. Затерянный под толстым слоем снега Фроствуд переживает одну из самых суровых зим в своей истории. Узкие улочки превратились в ледяной лабиринт, а старинные дома застыли во времени. Но настоящий ужас начинается ночью - из темноты появляются сверхъестественные фигуры, напоминающие призраков из старых легенд. Безмолвные и безжалостные, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык субтитров: Русский, Испанский, Французский и другиеЯзык интерфейса: Русский, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E3EFE01DEB04BD38100C601D996A081C300ABCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789246   (22592) от 03.04.2025
+
+Whispered Secrets 16: In the Cards / Нашептанные секреты 16: В картах (2025) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение захватывающей мистической серии игр Whispered Secrets. Вас предстоит расследовать исчезновение любимой всеми сестры-близнеца. Но вы быстро понимаете, что все здесь не так, как кажется на первый взгляд. Это лишь последнее из нескольких подобных исчезновений, и у вас мало зацепок. Несчастные жертвы бесследно пропали. Проблема в том, что если вы ищете неприятности, (   Читать дальше...   )Тип издания: UnofficialРазработчик: GrandMA StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4639A7FA37885207B0A133B661DFB041C16F60B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792168   (21137) от 17.04.2025
 
 StoryKeepers: Hidden Mystery / Хранители историй: Скрытая тайна (2025) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -6,7 +162,7 @@ StoryKeepers: Hidden Mystery / Хранители историй: Скрытая
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21137.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Dark City 10: Barcelona (2025) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21114.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Mystery of Myths: Mystery of the Fjords (2025) [Multi] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21101.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Grim Tales 26: Prisoners of the Past (2025) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20994.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ It Happened Here 4: If Walls Could Talk / Это случилось здесь 4
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20365.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Dark City 10: Barcelona / Мрачный город 10: Барселона (2025
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20062.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Mystery of Myths 2: Mystery of the Fjords / Загадки мифов 2: Тай�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19881.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ A Haunting Novel 2: Surfaced Secrets (2025) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19451.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Bridge to Another World Remastered: Burnt Dreams / Мост в другой ми
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19148.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ Hunter’s Journey: Tears of the Lake (2025) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18634.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ A Haunting Novel 2: Surfaced Secrets / Проклятый роман 2: Тайн
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18078.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ Hunter’s Journey: Tears of the Lake / Путь охотника: Слезы о
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17275.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ Mind Echoes 2: Remnants of the Past (2025) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16066.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ Grim Tales 26: Prisoners of the Past / Страшные сказки 26: Узн�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15967.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ Mind Echoes 2: Remnants of the Past / Эхо разума 2: Отголоски 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14761.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ Five Nights at Freddy's Anthology (2014-2016) [Ru/En] (1.132/1.033/1.032/1.1/1.1
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14227.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ Adventures & Quests: The Black Crystal (2025) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13913.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ Hidden Legacy: Dark Heirloom (2025) [Multi] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13274.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ City Enigma (2025) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12428.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ Hidden Legacy: Dark Heirloom / Скрытое наследие: Темная р�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12267.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ Hidden Legacy: Dark Heirloom / Скрытое наследие: Темная р�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AE4B2AB80D831ADF51E63209308C8DEB223EA36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806181   (11803) от 11.07.2025
-
-Paranormal Files 13: Chaos Weekend (2025) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение мистической серии игр Paranormal Files. Что может пойти не так во время спокойного отдыха на недавно отремонтированном горнолыжном курорте глубоко в горах? Что ж, если вы Рик Роджерс и его команда экспертов по паранормальным явлениям, то у вас может случиться все что угодно! Освободилась таинственная темная сила, которая затем вселилась в вашу милую хозяйку (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11AD5DE38CB8948CD2DE5E08EA3F7E5FC793ED08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806386   (11738) от 12.07.2025
-
-City Enigma / Тайна города (2025) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте новое журналистское расследование. 1928 год. В Новом Орлеане происходит череда трагических несчастных случаев, каждый из которых был зловещим образом предсказан картами Таро. Перед амбициозной молодой журналисткой Флоренс открывается возможность написать блестящую статью. Местные жители шепчутся о ведьме, проклятых гаданиях и мрачных судьбах, предначертанных (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B46E64FC8C36FD578EE54BFDC72C20CD277BA5B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807293   (11105) от 18.07.2025
-
-Fragments of Truth: An MCF Story (2025) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте новую мистическо-детективную игру спин-офф к серии игр "За семью печатями"! Действие происходит через некоторое время после событий игры "За семью печатями 27: Загадка миссис Бишоп". В то время как глава королевского агентства "За семью печатями" пропала без вести, а Мастер-Детектив занимается её поисками, у других сыщиков (   Читать дальше...   )Тип издания: UnofficialРазработчик: GrandMA StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F1AC4249CAD41F8514AA51C6226B3537B5EEDED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808499   (10393) от 25.07.2025
-
-Paranormal Files 13: Chaos Weekend / Паранормальные явления 13: Хаос в уик-энд (2025) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение мистической серии игр Paranormal Files. Что может пойти не так во время спокойного отдыха на недавно отремонтированном горнолыжном курорте глубоко в горах? Что ж, если вы Рик Роджерс и его команда экспертов по паранормальным явлениям, то у вас может случиться все что угодно! Освободилась таинственная темная сила, которая затем вселилась в вашу милую хозяйку (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D680A5A0AEDACD9504C1BE7B3F4602E2F1FEB724
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808507   (10359) от 25.07.2025
-
-Detectives United 8: Vengeance from the Past (2025) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение серии детективных историй Detectives United. Город накрывает волна мистической активности, и Дориану с Анной приходится встретиться лицом к лицу с прошлым в одном из старейших особняков семьи Браун. Но расследование останавливается, потому что они пропадают без вести. Эвану понадобится помощь в поисках друзей, а кто лучше Джеймса Блэкторна может это сделать? (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC40F58EF2E08979BC4F824DB7C2B6C7B280372
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809353   (9829) от 30.07.2025
-
-Fragments of Truth: An MCF Story / Осколки истины: История З7П (2025) [Ru] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте новую мистическо-детективную игру спин-офф к серии игр "За семью печатями"! Действие происходит через некоторое время после событий игры "За семью печатями 27: Загадка миссис Бишоп". В то время как глава королевского агентства "За семью печатями" пропала без вести, а Мастер-Детектив занимается её поисками, у других сыщиков (   Читать дальше...   )Тип издания: UnofficialРазработчик: GrandMA StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:994E4CFFBCA93789F6B52C841E223357DABCBBC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

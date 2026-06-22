@@ -1,4 +1,56 @@
 https://t.me/izofen
+###  Публикация: 1876906   (1073842) от 
+
+Microsoft Office Professional LTSC 2024 16.0.17928.20148 Repack by Adm777Service [Multi]
+
+>>След.
+>>Песочница ПО и сборок Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073842.jpg" />
+</div>
+
+
+###  Подробнее
+
+ISO-образ для установки и автоматической активации Microsoft Office Professional LTSC 2024. Основные преимущества сборки: меньший по сравнению с остальными релизами размер файла и офлайн-активация.Язык интерфейса: Украинский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18697599D31FD23A82904A6C6F335F759FC5F4DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877076   (1073841) от 
+
+Microsoft Office Professional LTSC 2021 16.0.16327.20264 Repack by Adm777Service [Multi]
+
+>>ОС Windows
+>>Песочница ПО и сборок Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Образ для установки и автоматической активации Microsoft Office Professional LTSC 2021. Основные преимущества сборки: украинская версия, небольшой размер файла и офлайн-активация.Язык интерфейса: Украинский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA9A78A6EAE9D549AE1CBDCBF2E4D1672BF1222D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1872712   (1070799) от 24.05.2026
 
 Windows 11 25h2 (24in1) (build 26200.8457) by Izual Soft [v23.05.26] [Ru/En]
@@ -7,7 +59,7 @@ Windows 11 25h2 (24in1) (build 26200.8457) by Izual Soft [v23.05.26] [Ru/En]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070799.jpg" />
 </div>
 
 
@@ -36,7 +88,7 @@ Windows 11 SE 24H2 (build 26100.8328) DiskExpansion by Alexandr1235 [04.2026] [R
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068854.jpg" />
 </div>
 
 
@@ -63,7 +115,7 @@ Task Explorer 1.8.0 [En]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067933.jpg" />
 </div>
 
 
@@ -89,7 +141,7 @@ Windows 10 22h2 (build 19045.6937) (20in1) (x64) by Izual Soft [v12.02.26] [Ru/E
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057040.jpg" />
 </div>
 
 
@@ -118,7 +170,7 @@ Windows 11 25h2 (build 26200.7840) (24in1) (x64) by Izual Soft [v14.02.26] [Ru_E
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056999.jpg" />
 </div>
 
 
@@ -147,7 +199,7 @@ Den Launcher RePack by BlueScreen 1.1 [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056388.jpg" />
 </div>
 
 
@@ -173,7 +225,7 @@ Task Explorer v1.6.6 [Multi]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056361.jpg" />
 </div>
 
 
@@ -199,7 +251,7 @@ Den Launcher 1.0 RePack by Egorчик [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055199.jpg" />
 </div>
 
 
@@ -225,7 +277,7 @@ Microsoft Windows 11 Pro 25H2 [10.0.26200.6584] by Yogi [UKR]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054494.jpg" />
 </div>
 
 
@@ -251,7 +303,7 @@ JGSoft RegexBuddy 4.14.1 Repack [En]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053977.jpg" />
 </div>
 
 
@@ -278,7 +330,7 @@ Windows 11 25h2 (build 26200.7623) (24in1) (x64) NoStore NoApp NoDefender by Izu
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053288.jpg" />
 </div>
 
 
@@ -307,7 +359,7 @@ Windows 10 22h2 (build 19045.6809) (20in1) (x64) NoStore NoApp by Izual Soft [v1
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052997.jpg" />
 </div>
 
 
@@ -336,7 +388,7 @@ Windows 10 22h2 (build 19045.6809) (20in1) (x64) Store NoApp by Izual Soft [v16.
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052996.jpg" />
 </div>
 
 
@@ -365,7 +417,7 @@ Windows 10 22h2 (build 19045.6809) (20in1) (x64) NoStore NoApp Nodefender by Izu
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052995.jpg" />
 </div>
 
 
@@ -394,7 +446,7 @@ Windows 11 25h2 (build 26200.7623) (24in1) (x64) NoStore NoApp by Izual Soft [v1
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052994.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ Windows 11 25h2 (build 26200.7623) (24in1) (x64) Store NoApp by Izual Soft [v15.
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052993.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ Windows 11 24h2 (build 26100.7623) Enterprise LTSC 2024 by Izual Soft [v14.01.26
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052743.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ Microsoft Office LTSC Professional Plus 2024 v.16.0.17932.20620 (Win10/11) Repac
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049164.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ Microsoft Office 2021 VL Professional Plus / Standard 16.0.16130.20218 RePack by
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034985.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ Windows 11 23h2/24h2/25h2 by SURASOFT (v25.11.11) [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255944.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ Windows 7 SP1 with Update [7601.28021] AIO (x64) by SURASOFT (v25.11.11) [Ru/En]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255636.jpg" />
 </div>
 
 
@@ -591,7 +643,7 @@ Windows 10 22H2 19044.6575/19045.6575 by SURASOFT (v25.11.11) [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255635.jpg" />
 </div>
 
 
@@ -620,7 +672,7 @@ Windows 7 SP1 with Update [7601.27974] AIO (x64) by SURASOFT (v25.10.14) [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202444.jpg" />
 </div>
 
 
@@ -649,7 +701,7 @@ Windows 11 25H2 Pro by KDFX (Clear) X64 26200.6901 [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202385.jpg" />
 </div>
 
 
@@ -661,61 +713,6 @@ Windows 11 25H2 Pro by KDFX (Clear) X64 26200.6901 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45A9DBD710E0BD437DE77E89BAF8F534E4BF2B34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828950   (202218) от 25.10.2025
-
-Windows 10 22H2 19044.6456/19045.6456 by SURASOFT (v25.10.14) [Ru]
-
->>ОС Windows
->>Песочница ПО и сборок Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на основе оригинальных образов
-ru-ru_windows_10_business_editions_version_22h2_updated_oct_2025_x64_dvd_d7d4c62c.iso
-ru_windows_10_enterprise_ltsc_2021_with_update_19044.6456_aio_2in1_x64_dvd
-Были интегрированы обновления по 14 октября 2025 года.(   Читать дальше...   )Язык интерфейса: Русский (Russian)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AD5CEF1446B935DF822C3EA7F6853BA7740458D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655500   (193739) от 26.08.2023
-
-BananaUpdateBlocker 1.0.0.1 [Ru]
-
->>ОС Windows
->>Песочница ПО и сборок Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193739.jpg" />
-</div>
-
-
-###  Подробнее
-
-BananaUpdateBlocker - программный продукт от BananaBrain, который способен остановить работу Windows Update без вреда для системы. Работает на технологии BananaRelax.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA5A24428F813EBA369A64C1CAFD0BEED790E682
 ```
 
 https://mybot314.ru/tekegram_catalog/

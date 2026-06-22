@@ -1,3 +1,55 @@
+###  Публикация: 930987   (513874) от 24.08.2015
+
+Mosquito Simulator 2015 v1.3 [En]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mosquito Simulator 2015 - В этой игре вы сможете побывать на месте комара! Почувствовать всё то, что испытывает комар, раздражать людей на отдыхе или в офисе, напиться их крови и конечно же лопнуть от жадности) Но не забывайте, что вас могут и прихлопнуть, так и не дав поживится. В этом и заключается ваша основная задача, летать и раздражать людей своим писком и (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 13 августа 2015 г.Разработчик: LumiSys Kft.Поддерживаемая ОС: Android 4.0+Жанр: Аркады / СимуляторыЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:627B5D91134DF7151C8E37E7DF83327B8311CE78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930998   (513702) от 24.08.2015
+
+Марш Империй / March of Empires v1.0.1b [Ru]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513702.jpg" />
+</div>
+
+
+###  Подробнее
+
+March of Empires / Марш Империй – надоели серые будни? Игра позволит вам стать предводителем одного из трёх наций. Вы можете стать предводителем высокогорных земель, царём северных территорий или султаном необъятной пустыни. Для начала создайте свой замок. Который будет не так-то просто взять штурмом. Стройте новые войска, развивайте военное дело, не забывая при (   Читать дальше...   )Тип издания: ЛицензияРелиз состоялся: 11 августа 2015 г.Разработчик: GameloftПоддерживаемая ОС: Android 4.0+Жанр: СтратегииЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C0E1C30CEAA907C60B84E4462ED2B40493FFA9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930991   (513647) от 24.08.2015
 
 Goblin Defenders 2 v1.6.308 [Ru]
@@ -6,7 +58,7 @@ Goblin Defenders 2 v1.6.308 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513647.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513502.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512716.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512657.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ QKSMS - Quick Text Messenger 3.9.4 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512403.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512399.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512179.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ TelInfoNumber / Информация о номере v 3.4 - 1.7.33 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511635.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ Clime: Прогноз погоды и Радар 1.53.1 Mod by Balatan [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511476.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ Lark Player - YouTube Music & Audio Player 5.31.5 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511453.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511452.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ OGWhatsApp 16.20 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511437.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511314.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511216.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511161.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511066.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ Infinite Flight Simulator v15.08.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510711.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510534.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510449.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510321.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510313.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510155.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ Abracadaball [Игра] (Java)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_510121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_510121.jpg" />
 </div>
 
 
@@ -624,7 +676,7 @@ Mental Hospital III 1.01.02 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509990.jpg" />
 </div>
 
 
@@ -635,58 +687,6 @@ Mental Hospital III 1.01.02 [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55169D25771D53EF1923C327BD5D88087D0A312D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932247   (509987) от 28.08.2015
-
-Vortex Planetarium Astronomy v1.4.5 [En] - виртуальный планетарий
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vortex это виртуальный планетарий на экране вашего планшета, который превратит экран вашего планшет в звездное небо, а сам планшет в телескоп. Приложение, используя встроенный компас, с большой точностью показывает небесные объекты в направлении планшета. Вращайте планшет в пространстве и смотрите, где и, какие небесные объекты находятся в данный момент. Для начала (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 27.07.2015Разработчик: MagicTorch SoftwareПоддерживаемая ОС: Android. Версия зависит от устройстваЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:521547F4F1FB0821CF3213DC47723C1ADF368977
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916633   (509882) от 28.08.2015
-
-UC Cleaner: Очистка памяти v2.7.0.30 [Ru]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваш мобильный телефон становится все более и более медленным? Никаких проблем, просто установите самое умное приложение для увеличения скорости системы и её очистки! UClean - бесплатный оптимизатор, способный помочь Вам удалить лишние файлы, очистить RAM, и управлять своими приложениями. Также он может управлять второстепенными процессами, остановить фоновые приложения (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 27 августа 2015 г.Разработчик: UC Cleaner TeamПоддерживаемая ОС: Android 2.2+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57E2A9BE6169CF4CB0EC577033A9033F30E3358B
 ```
 
 https://mybot314.ru/tekegram_catalog/

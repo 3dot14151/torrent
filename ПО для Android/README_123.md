@@ -1,237 +1,3 @@
-###  Публикация: 1725003   (55746) от 22.05.2024
-
-Говорящий переводчик / Talking Translator 2.6.1 Mod by srajawwal09 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Говорящий переводчик (Talking Translator) - отличное приложение, что пригодится любому путешественнику, человеку общающемуся по работе с иностранцами и так далее. Знать все языки невозможно, а вот общаться с помощью данной программы можно практически с любым собеседником нашей планеты. Поддержка более 100 языков продуктивно устраняет барьеры при контакте на любых (   Читать дальше...   )Тип издания: ProРелиз состоялся: 15.05.2024Разработчик: idealappcenterПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A740AD138E727124E1522C0357ADC0B76B13C3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725027   (55725) от 22.05.2024
-
-AIDA64 2.01 (ARM64) Mod by CMAPTOC [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Информационно-диагностическая утилита для устройств на базе Android. Основываясь на обширных знаниях аппаратной части в AIDA64 для Windows, AIDA64 для Android способна показывать различные диагностические сведения для телефонов, планшетов, умных часов и телевизоров.Тип издания: ModРелиз состоялся: 05.04.2024Разработчик: FinalWire LtdПоддерживаемая ОС: Android 4.2+ (Только для ARM64)Язык интерфейса: Русский, Английский и Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DED5BA7C289E124FCDE00CEFD1D73FAC08C91D9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725096   (55634) от 23.05.2024
-
-Transparent clock & weather / Прозрачные часы и погода 7.01.4 Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прозрачные часы и погода - Pro – это виджет для Android, позволяющий настраивать часы и погоду, которые всегда отображаются на вашем экране. Хотя виджет и выглядит хорошо, больше всего впечатляют его множественные настройки. Можно выбрать отображение температуры в градусах Цельсия или Фаренгейта, время рассвета и заката, влажность, продолжительность дня, фазу луны (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 11.05.2024Разработчик: MACHAPP Software LtdПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43601D90218CE9957DF7DA1FBD09F55D83C64EF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725097   (55626) от 23.05.2024
-
-MiX Camera 8.4 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55626.jpg" />
-</div>
-
-
-###  Подробнее
-
-MiX Camera - это альтернативная камера для Android, разработчики которой вдохновлялись характеристиками и возможностями камеры и механики создания фотографий со смартфона Xiaomi Mi 12. Теперь любой желающий сможет обладать теми факторами и качествами, что и привлекли к ней всех неравнодушных к получению красивых изображений, а так же многое другое. Фильтры, бьюти-эффект (   Читать дальше...   )Тип издания: ProРелиз состоялся: 30.04.2024Разработчик: Beauty Apps StudioПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:988C877F69D84A2D1EE7EA0053A9045E9B8DA827
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725516   (55535) от 24.05.2024
-
-Мульти Таймер Секундомер / Multi Timer StopWatch 2.12.1 (b427) Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мульти Таймер Секундомер / Multi Timer StopWatch - приложение для измерение времени, коротких интервалов и всех других названий и определений беспрерывно текущей жизни. Здесь можно создавать, включать и отключать (одновременно или в определённой последовательности) сразу несколько таймеров (а так же есть функция таймер в таймере) запрограммированных на ту или иную (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 26.04.24Разработчик: LemonClipПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A592DC60D2010CAF5C2826783197F7DAB5895A4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725735   (55430) от 25.05.2024
-
-Foreca Погода / Foreca Weather 4.55.6 (ARM64) Lite-Mod by alenka_persikova [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Foreca Weather - весьма популярное погодное приложение, что завоевало аудиторию за счёт своих качеств, особенностей, а так же удобств в управлении функциями и быстрого восприятия выводимой информации. Отличный стиль и интерфейс, возможность задавать различные параметры на одном экране, понятные значки и описания, статистика, графики, точные прогнозы от метеостанций (   Читать дальше...   )Тип издания: Lite-Mod (облегчённый)Релиз состоялся: 22.05.2024Разработчик: ForecaПоддерживаемая ОС: Android 6.0+ (Только для ARM64)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EFA565E3E43035007E7EDBE20404DD9DCEE7604
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725730   (55403) от 25.05.2024
-
-Foreca Погода / Foreca Weather 4.55.6 Mod by funnysith [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Foreca Weather - весьма популярное погодное приложение, что завоевало аудиторию за счёт своих качеств, особенностей, а так же удобств в управлении функциями и быстрого восприятия выводимой информации. Отличный стиль и интерфейс, возможность задавать различные параметры на одном экране, понятные значки и описания, статистика, графики, точные прогнозы от метеостанций (   Читать дальше...   )Тип издания: Adfree-Mod (без рекламы)Релиз состоялся: 22.05.2024Разработчик: ForecaПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16D7B66226030127E709034E31BAF82BC40E1701
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725724   (55394) от 25.05.2024
-
-n7player Music Player 3.2.10-3002010 Lite-Mod by CMAPTOC [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55394.jpg" />
-</div>
-
-
-###  Подробнее
-
-n7player Music Player - весьма впечатляющий своими возможностями музыкальный проигрыватель, который помимо своего классического спектра функций предлагает пользователям серьёзно поработать с имеющейся библиотекой. Это очень пригодиться если всё "валяется" в одной папке или же альбомов и исполнителей в наличии столько, что существенной разницы между этими (   Читать дальше...   )Тип издания: Lite-Mod (облегчённый)Релиз состоялся: 13.09.2023Разработчик: N7 Mobile Sp. z o.o.Поддерживаемая ОС: Android 6.0+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3612214A9BC10EC4E2951E6DCBA8CF53174CF33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725834   (55362) от 26.05.2024
-
-Цифровое ТВ v3.9.7 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильмы, сериалы, мультфильмы, новости, музыка и спорт - это прямой эфир самых популярных общероссийских телеканалов в отличном качестве специально для Вас! С приложением Цифровое ТВ популярные программы доступны круглосуточно и абсолютно бесплатно. Теперь Вы не пропустите любимые передачи или прямой эфир матчей, стоя в пробке, отдыхая на даче или ожидая рейс в аэропорту. (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 24.05.2024Разработчик: Лайм Эйч ДиПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:537352E91E487E0A8B340762CDAEF202C5765F7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725832   (55337) от 26.05.2024
 
 Rutube v29.4.1 Mod by vadj [Ru/En]
@@ -240,7 +6,7 @@ Rutube v29.4.1 Mod by vadj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55337.jpg" />
 </div>
 
 
@@ -266,7 +32,7 @@ ToonMe v0.7.8 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55324.jpg" />
 </div>
 
 
@@ -292,7 +58,7 @@ Reface: Face Swap AI Generator v4.11.0 Mod by derrin [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55318.jpg" />
 </div>
 
 
@@ -318,7 +84,7 @@ Picturize it v1.1.9.1 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55299.jpg" />
 </div>
 
 
@@ -344,7 +110,7 @@ Windy.app: погода и ветер 50.1.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55118.jpg" />
 </div>
 
 
@@ -370,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55117.jpg" />
 </div>
 
 
@@ -396,7 +162,7 @@ Windy.app: погода и ветер 50.1.0 Lite-Mod by GIP-79 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55111.jpg" />
 </div>
 
 
@@ -422,7 +188,7 @@ Weather app - eWeather HDF v8.8.7 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55027.jpg" />
 </div>
 
 
@@ -449,7 +215,7 @@ AndroPods v1.5.26 Mod by adidas [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54976.jpg" />
 </div>
 
 
@@ -478,7 +244,7 @@ YouTube ReVanced Extended 19.16.39 (RVP v2.225.0) Mod by Number one' + microG Gm
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54752.jpg" />
 </div>
 
 
@@ -504,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54661.jpg" />
 </div>
 
 
@@ -530,7 +296,7 @@ OfficeSuite Pro + PDF v14.5.52368 Extra Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54658.jpg" />
 </div>
 
 
@@ -556,7 +322,7 @@ TapScanner v3.0.24 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54549.jpg" />
 </div>
 
 
@@ -585,7 +351,7 @@ FBReader Premium v3.7.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54458.jpg" />
 </div>
 
 
@@ -611,7 +377,7 @@ Cat Scanner / Сканер породы кошек v17.2.5-G Mod by ModExPro [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54399.jpg" />
 </div>
 
 
@@ -637,7 +403,7 @@ Dog Scanner: Породы собак v17.2.5-G Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54159.jpg" />
 </div>
 
 
@@ -663,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53961.jpg" />
 </div>
 
 
@@ -674,6 +440,240 @@ To-Do List - настолько простой в управлении, наск
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:723D0FB3459A75D0DB4A7A6AC2752CC47B1ACEDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729017   (53881) от 09.06.2024
+
+YouTube ReVanced Extended 17.34.36 (RVP v2.160.10) Mod by Number one' + microG GmsCore [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53881.jpg" />
+</div>
+
+
+###  Подробнее
+
+YouTube ReVanced - это реинкарнация проекта YouTube Vanced. В YouTube ReVanced все функции такие же, как и в предшественнике. Все премиум-функции также доступны и усовершенствованы. В настоящее время вы смотрите видео без рекламы. Поддержка поиска, фонового воспроизведения, плавающего окна, детальная настройка интерфейса, возвращение дизлайков и многое другой. Для (   Читать дальше...   )Тип издания: ModРелиз состоялся: 06.06.2024Разработчик: ReVanced TeamПоддерживаемая ОС: Android 6.0 и 7.0Язык интерфейса: Русский, Английский и Украинский.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9322A1D04543FF8F4F3A9A21912DEEEB57C00C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729000   (53854) от 09.06.2024
+
+Square Home Launcher 3.0.13 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Square Home - красивый, стильный и функциональный лаунчер для мобильных работающих на Android-е. Им предлагается вариация оболочки выполненной в стиле Metro UI от Windows 10. Это очень понравится всем, кто постоянно использует данную операционную систему на других гаджетах. И считает, что подобная механика удобна и понятна для него и для его работы. Красивое исполнение (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 03.06.2024Разработчик: ChYK the devПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B20E46D611BDE49E14A29A1BE9027871BCE8C30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728732   (53848) от 09.06.2024
+
+Российские ТОПО карты (ex. Советские военные карты) PRO v7.2.3 Mod by Nik2001Nik3006 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это приложение для навигации по бездорожью по мировым топографическим картам (главным образом – карты советского генштаба). Кроме русских, есть еще много других подробных и актуальных карт, ортофотопланов и слоев. Несмотря на то, что большинство российских карт в приложении датируются еще 80-ми годами, они отчасти все еще остаются наиболее точными картами для многих (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 01.02.2024Разработчик: ATLOGIS Geoinformatics GmbH & Co. KGПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64609EA5A59E5891ADA97C80F6F65A7603485666
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723123   (53837) от 09.06.2024
+
+SnapEdit - AI photo editor v6.4.4 Mod by Oflarm, 0x7d [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53837.jpg" />
+</div>
+
+
+###  Подробнее
+
+SnapEdit — одно из лучших приложений для редактирования фотографий с использованием искусственного интеллекта, призванное сделать ваше редактирование простым, плавным и увлекательным. Преобразуйте свои фотографии, как никогда раньше, с помощью SnapEdit, идеального приложения для редактирования фотографий, предназначенного для легкого удаления ненужных объектов, улучшения (   Читать дальше...   )Тип издания: Pro / Mod + CloneРелиз состоялся: 07.06.2024Разработчик: SilverAI IncПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:111435733E749D37E01FDC88EB799A0BB3F33FD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729071   (53833) от 09.06.2024
+
+Погода & Радар Pro / Weather & Radar Pro 2024.12 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Weather & Radar - приятное в использовании и полезное в повседневности приложение, что обеспечит пользователями точной, своевременной и актуальной информацией о погоде. Они смогут не только получать данные запустив программу, но и вывести виджет на главный экран и задать ему необходимые параметры. Ну а во включённом режиме человек сможет не только смотреть прогноз (   Читать дальше...   )Тип издания: ProРелиз состоялся: 06.06.2024Разработчик: WetterOnline GmbHПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2578BC948FB08B11D2F29286287B0254157D2385
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729074   (53826) от 09.06.2024
+
+Погода & Радар Pro / Weather & Radar Pro 2024.12 Lite-Mod by -PARAZIT- [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Weather & Radar - приятное в использовании и полезное в повседневности приложение, что обеспечит пользователями точной, своевременной и актуальной информацией о погоде. Они смогут не только получать данные запустив программу, но и вывести виджет на главный экран и задать ему необходимые параметры. Ну а во включённом режиме человек сможет не только смотреть прогноз (   Читать дальше...   )Тип издания: Lite-Mod (облегчённый)Релиз состоялся: 06.06.2024Разработчик: WetterOnline GmbHПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский и Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8A60B95D1D4E0BE4C739D211E28C3EC613F8FA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729274   (53768) от 10.06.2024
+
+Погода 14 дней - Meteored Pro / Weather 14 Days - Meteored Pro 8.2.6_pro Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погода 14 дней - Meteored Pro - погодно-информационное приложение, что понравится любому пользователю предпочитающему комплексные решения той или иной задачи. Тут они получат не только систему позволяющую узнавать прогноз на ближайшие дни, но и целое новостное поле. Для представления полной картины происходящего не только вокруг себя, но и во всём мире. Красивый (   Читать дальше...   )Тип издания: ProРелиз состоялся: 05.05.2024Разработчик: MeteoredПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A987642110851A95063BDBE506037E5FF600F86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729310   (53761) от 10.06.2024
+
+WhatWeather - Метеостанция 1.18.6-pro [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53761.jpg" />
+</div>
+
+
+###  Подробнее
+
+WhatWeather - это программа, что предлагает пользователям функциональную и очень подробную по информативности метеостанцию. Что станет настоящим украшением любого устройства, что больше не используется в мобильной форме. Обновления в реальном времени, возможность оповещений при резких скачках показателей, стильный дизайн, механика настройки различных аспектов, таймеры (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 20.05.2024Разработчик: kolov.comПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5D44580A0E60C5A6CAB05963D3108AB3A3A5A36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729304   (53749) от 10.06.2024
+
+Windfinder Pro: Wind & Weather 3.33.1 ROOT-Mod by youarefinished [Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windfinder - вариация известного и популярного способа получения данных о погоде в нужном месте. Проект предлагает пользователям более профессиональную и функциональную платформу, чем обычные ресурсы подобного толка. Тут они найдут анимированную и детально проработанную карту. На ней будут расположены данные об ветре, волнах, приливах, осадках и так далее. Что делает (   Читать дальше...   )Тип издания: Pro (ROOT-Mod)Релиз состоялся: 31.05.2024Разработчик: WindfinderПоддерживаемая ОС: Android 6.0+Язык интерфейса: Английский, Немецкий, Французский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC8F58275FF432EBD05F08702401F0BD4F3E6360
 ```
 
 https://mybot314.ru/tekegram_catalog/

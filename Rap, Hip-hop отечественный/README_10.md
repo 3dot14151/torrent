@@ -1,3 +1,174 @@
+###  Публикация: 1253906   (377053) от 12.10.2018
+
+Anacondaz - Я тебя никогда (2018) [MP3|320 Kbps] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ни капли не больно
+02. Дубак
+03. Твоему новому парню
+04. На..уй тебя и твоих друзей(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D487652445DD35383D9D59B5F43883CA01A047C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328044   (368005) от 28.09.2019
+
+Влади - Другое слово (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368005.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Увлечение повально
+2. У цветного фонтана
+3. Купидон
+4. Кардиохирург(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:195756F6B10DC6EF1167A35463E568BDA669C93B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176846   (367249) от 23.10.2017
+
+Мот - Добрая музыка клавиш (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367249.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Добрая музыка клавиш
+2. Когда исчезнет Слово
+3. Мысли
+4. Ливень (feat. Артём Пивоваров)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:30:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC900B0C2244CC27F6B442A67D2977DC55C6F620
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177451   (362821) от 25.10.2017
+
+Слава КПСС - Солнце мёртвых (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Соечка
+02 - Мышка-норушка
+03 - Смерти и вина
+04 - Солнце мертвых(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B22F53AEB271DD6CB85A416C5779E9BBE15667B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255758   (361024) от 19.10.2018
+
+ST feat. Ленинград - Балалайка (2018) Single [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361024.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. БалалайкаЖанр: Rap, Hip-HopПродолжительность: 00:02:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8E022D48E56B533FA499AC51725594A65ED0186
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178100   (357646) от 27.10.2017
+
+Макс Корж - Малый повзрослел ч.2 (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357646.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вспоминай меня
+2. Молодость всё прощает
+3. Пьяный дождь
+4. Малиновый закат(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:25:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28D0A215894BCFBA4017F1E3A3FA35D33C94163A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072068   (353847) от 12.11.2016
 
 Грибы - Дом На Колесах ч.1 (2016) [MP3|320 Kbps] <Hip-Hop, House>
@@ -6,7 +177,7 @@
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353847.jpg" />
 </div>
 
 
@@ -35,7 +206,7 @@ Noize MC - #Мэйксамнойз (2015) Single [MP3|320 кб/с]<Rap, Rap-Rock
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353175.jpg" />
 </div>
 
 
@@ -64,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353117.jpg" />
 </div>
 
 
@@ -93,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347815.jpg" />
 </div>
 
 
@@ -121,7 +292,7 @@ Guf - Ещё (2015) [MP3|320 кб/с]<Hip Hop, Rap>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346204.jpg" />
 </div>
 
 
@@ -150,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345193.jpg" />
 </div>
 
 
@@ -179,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333021.jpg" />
 </div>
 
 
@@ -208,7 +379,7 @@ Noize MC - Voyager-2 (2022) Live at Stadium [MP3|320 Kbps] <Rap, Hip-Hop, Rock>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331831.jpg" />
 </div>
 
 
@@ -237,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331751.jpg" />
 </div>
 
 
@@ -266,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330037.jpg" />
 </div>
 
 
@@ -295,7 +466,7 @@ L'One - Автолюбитель (2015) EP [MP3|320 кб/с]<Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318873.jpg" />
 </div>
 
 
@@ -324,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316423.jpg" />
 </div>
 
 
@@ -353,7 +524,7 @@ Pra(Killa'Gramm) - Рэп этот (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314872.jpg" />
 </div>
 
 
@@ -382,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313536.jpg" />
 </div>
 
 
@@ -411,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313009.jpg" />
 </div>
 
 
@@ -440,7 +611,7 @@ Noize MC - No Comments (2018) EP [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311409.jpg" />
 </div>
 
 
@@ -469,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310936.jpg" />
 </div>
 
 
@@ -498,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302167.jpg" />
 </div>
 
 
@@ -527,7 +698,7 @@ ST - ПОЭТ ДУЭТ (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301355.jpg" />
 </div>
 
 
@@ -556,7 +727,7 @@ ATL - Дисторшн [EP] (2017) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301074.jpg" />
 </div>
 
 
@@ -570,180 +741,6 @@ ATL - Дисторшн [EP] (2017) [MP3|320 Kbps] <Rap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C3896BA3A333B35F74234151E8E2C32225FD643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423431   (300251) от 13.11.2020
-
-Jubilee - Меланхолия Drive 2 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Подземные Люди [03:45]
-02. 315 км [03:07]
-03. Все Мои Друзья Мертвы [02:57]
-04. Берёзовый Сок [02:09](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DD8760B2648647EBECF7D3B38C81A05AA6E902E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423432   (300250) от 13.11.2020
-
-БАЗАР - Плохой альбом (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_300250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Омар Хайям [03:11]
-02. Пепе Гвардиола [02:52]
-03. Чудо и бекон [03:25]
-04. Абракадабра [03:09](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:24:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B43835E4B9466A5B786F10F05362D84B0B4007F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423429   (300089) от 13.11.2020
-
-Bumble Beezy - Nosebleed (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Круче, чем ты запланировал (Interlude) [00:30]
-02. Perk [02:50]
-03. Остап Бендер [02:42]
-04. Switch [02:05](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:26:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E4E13E4AAA9E9C8BA308B85526B5217B5AA423C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423438   (300074) от 13.11.2020
-
-Loqiemean - Черная метка (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_300074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Белый работяга [01:49]
-02. Прорубь [03:35]
-03. Метаморфоза [02:15]
-04. Жарко (feat. Куок) [03:05](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:16:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29D62B3E45275EE0F613FF9A6B28D66014E40C8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423434   (299948) от 13.11.2020
-
-Johnyboy - Демоны проснутся в полночь (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_299948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ALCATRAZ [03:20]
-02. Бензин [02:46]
-03. Onlyfans [03:23]
-04. Pass out Freestyle [03:54](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F85E1566263F53576B4089743F4D17D4DC57C5D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423430   (299941) от 13.11.2020
-
-Loc-Dog - РОМАНТИКА 2020 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_299941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Девочка [03:47]
-02. Громче, чем гроза [03:27]
-03. Вспоминай меня [02:38]
-04. Заново [03:07]Жанр: Rap, Hip-HopПродолжительность: 00:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:507D2428AE3BE361E08EB1868F222E5ED1F0B849
 ```
 
 https://mybot314.ru/tekegram_catalog/

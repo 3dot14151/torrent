@@ -1,3 +1,81 @@
+###  Публикация: 1454885   (1025967) от 17.03.2021
+
+Восьмилетняя помолвка / 8-nengoshi no hanayome / The 8-Year Engagement (2017) BDRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основано на реальных событиях. Хисаси и Маи должны были пожениться через три месяца, но Маи серьёзно заболевает и впадает в кому. Хисаси не сдаётся и не бросает свою невесту, парень не перестаёт молиться о её выздоровлении. Но когда Маи приходит в себя, она не может вспомнить ничего об их отношениях.Производство: Япония, Shochiku, Tokyo Broadcasting System (TBS)Жанр: Драма, мелодрамаРежиссер: Такахиса ДзэдзэАктеры: Такэру Сато, Тао Цутия, Кандзи Фурутати, Кэнта Хамано, Кэисукэ Хорибэ, Кадзуки Китамура, Юри Накамура, Тэтта Сугимото, Хироко ЯкусимаруПеревод: Двуголосый любительский (Bonsai Studio)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:59:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E78ACF9054A3EFEB95059163F7740B69CF83F542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454952   (1025963) от 17.03.2021
+
+Горячая дорога / Hotto rodo / Hot Road (2014) HDRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мияити Кадзуки живёт с матерью. Она всегда чувствовала себя нелюбимым ребёнком из-за обстоятельств, связанных со своим рождением. Ей не нравится бойфренд её матери, поэтому девочка в знак протеста становится проблемным ребёнком. Однажды, её знакомят с Харуямой Хироси, безрассудным парнем, членом банды мотоциклистов «Nights». Хироси — «трудный» подросток, который (   Читать дальше...   )Производство: Япония, Chukyo TV Broadcasting Company (CTV), Fukuoka Broadcasting System (FBS), Hiroshima Telecasting (HTV)Жанр: Драма, мелодрамаРежиссер: Такахиро МикиАктеры: Рэна Нонэн, Хирооми Тосака, Ёсино Кимура, Рина Ота, Рёхэй Судзуки, Сэйка ТакэтомиПеревод: Двуголосый любительский (Bonsai Studio)Субтитры: Русские, английские - отдельными файламиПродолжительность: 02:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B2A317B60A5094D637D4DC920589EA96614B8E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454887   (1025950) от 17.03.2021
+
+Лебедь из Синдзюку / Shinjuku suwan / Shinjuku Swan (2015) BDRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит в Кабуки-тё, квартале красных фонарей района Синдзюку. Безработный Сиритори Тацухико случайно знакомится с вербовщиком Маторой. Мужчина промышляет тем, что предлагает молодым девушкам влиться в бизнес развлечений для взрослых. Сиритори Тацухико приглянулся Маторе, и мужчина предложил ему работать вместе. Приступив к работе, Сиритори оказывается (   Читать дальше...   )Производство: Япония, Happinet, Japan Music Entertainment, Kodansha Ltd., Tristone Entertainment Inc.Жанр: КомедияРежиссер: Сион СоноАктеры: Такаюки Ямада, Юсукэ Исейа, Mao Асо, Эрика Савадзири, Кэн Ясуда, Эрина Мано, Го Аяно, Мотоки Фуками, Дзюн Мураками, Косукэ Тоёхара, Нобуаки Канеко, Ю ЯмадаПеревод: Двуголосый любительский (Bonsai Studio)Субтитры: Русские, английские - отдельными файламиПродолжительность: 02:19:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C29CFA99B8A625518085BE4DC3F194758101BD41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455218   (1025770) от 18.03.2021
 
 Воспоминания о завтра (Воспоминания о будущем) / Ashita no kioku / Memories of Tomorrow (2006) WEB-DLRip [DVO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025770.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025626.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025297.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025296.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025084.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024894.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024722.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024205.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024054.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023648.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023569.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023471.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023365.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022978.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022963.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022782.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022579.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022439.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022253.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022248.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021763.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021748.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021403.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:960C13197B8F48AEAACC99906A87165C40771193
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462150   (1021278) от 13.04.2021
-
-Ночь в раю / Nakwonui bam / Night in Paradise (2020) WEB-DLRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из мести за гибель сестры и маленькой племянницы бандит Тхэ-гу убивает босса конкурирующей преступной группировки. Война между кланами неизбежна, и Тхэ-гу по приказу своего босса отправляется залечь на дно на острове Чеджу.Производство: Пак Хун-джонЖанр: Криминал, драмаРежиссер: Пак Хун-джонАктеры: Ом Тхэ-гу, Чон Ё-бин, Чха Сын-вон, Ли Ги-ён, Пак Хо-сан, Чо Дон-ин, Хён Бон-щикПеревод: Двуголосый профессиональный (Pazl Voice)Субтитры: Русские, английские - отдельными файламиПродолжительность: 02:12:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45EE3A4DCBD662285671693AA63A8BE6D6ED51E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462227   (1021252) от 13.04.2021
-
-Восемь сотен (Восемьсот) / Ba Bai / The Eight Hundred (2020) BDRip [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021252.jpg" />
-</div>
-
-
-###  Подробнее
-
-26 октября 1937 года, Японо-китайская война. 400 солдат из 524-го полка 88-й дивизии Народно-революционной армии Китая четыре дня и четыре ночи ведут оборону склада Сыхан в Шанхае от Императорской армии Японии.Производство: Китай / Beijing Diqi Yinxiang Entertainment, Huayi Brothers MediaЖанр: военный, боевик, драма, историяРежиссер: Гуань ХуАктеры: Ван Цяньюань, Чжан И, Цзян У, Хуан Чжичжун, Чжан Цзюнъи, Охо Оу, Ду Чунь, Вижен Вэй, Чжан Юхао, Тан ИсиньПеревод: Многоголосый любительский (STEPonee)Субтитры: Русские, английские - отдельными файламиПродолжительность: 02:22:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC284A64F36E68064D20D89B7F96C32648387EF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462694   (1020886) от 15.04.2021
-
-Первый клон / Seobok (2021) WEB-DLRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший агент разведки Ки-хун неохотно возвращается в строй, чтобы сопроводить в безопасное место первого в мире клонированного человека. Но по пути на их конвой совершается нападение, и теперь Ки-хуну предстоит закончить миссию в одиночку, а его подопечный будет с интересом изучать окружающий мир.Производство: Корея Южная, CJ Entertainment, STUDIO101, TPS CompanyЖанр: Фантастика, БоевикРежиссер: Ли Ён-джуАктеры: Кон Ю, Пак По-гом, Чо У-джин, Чан Ён-нам, Пак Пён-ын, Щин Сон-иль, На Гван-хун, Чон Ми-нам, Ли Он-джон, Хан Джи-хёнПеревод: Дублированный (iTunes)Язык озвучки: РусскийСубтитры: Русские (Forced, Full) отдельноПродолжительность: 01:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BA88A7962D352C28B0D6B01C43BC7A7B50AF272
 ```
 
 https://mybot314.ru/tekegram_catalog/

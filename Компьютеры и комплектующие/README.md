@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066565.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Cloudflare признал Telega шпионским ПО — это привел
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065087.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Windows 11 Pure: Asus начала устанавливать «чистую» �
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058123.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ GreyNoise Labs запустила сервис GreyNoise IP Check, провер�
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046677.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ ProtonVPN конфликтует с антивирусным ПО и вызыв�
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035761.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029701.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Google научила ИИ проектировать компьютерные �
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011347.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009363.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005795.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Microsoft в общих чертах обрисовывала новые пла�
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005088.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Unix исполнилось 50 лет. Что это значит?
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004228.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Google намерен до 2022 года прекратить поддержку
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993127.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ ProtonVPN открыл код всех своих приложений
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980886.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942215.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920508.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918814.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Microsoft готовится к запуску Windows 11 в октябре 2021
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910580.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827881.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_800820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_800820.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Google начнет проверять достоверность изображ
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_769765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_769765.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ NVIDIA выпустит первый в мире суперкомпьютер д
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_767822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_767822.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_584999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_584999.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_517653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_517653.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_496572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_496572.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_468277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_468277.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комплексные вопросы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_334661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_334661.jpg" />
 </div>
 
 

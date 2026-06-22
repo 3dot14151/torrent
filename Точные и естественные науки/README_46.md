@@ -1,3 +1,29 @@
+###  Публикация: 1794663   (19808) от 30.04.2025
+
+Р. Геретшлегер, А.С. Позаментье | Жемчужины геометрии. Треугольники (2025) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Планарная геометрия полна чудес, о которых нам почти не рассказывают на уроках в школе. Даже обычный треугольник – один из основных инструментов геометрии – способен удивить нас неожиданными фактами и закономерностями и дать богатую пищу для размышлений. В этой книге собрана одна из самых больших коллекций любопытных фактов и курьезов, связанных с треугольниками. (   Читать дальше...   )Жанр: МатематикаИздательство: ДМК ПрессФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:219EB8E212B40679309AB0DAC65B6A01DF94C1E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794721   (19790) от 30.04.2025
 
 A.S. Posamentier, R. Geretschlager | Geometric Gems: An Appreciation For Geometric Curiosities [3 книги] (2024 - 2025) [PDF] [En]
@@ -6,7 +32,7 @@ A.S. Posamentier, R. Geretschlager | Geometric Gems: An Appreciation For Geometr
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19790.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ F.J. Rivas | Process Control with MatLAB/Simulink: A Guide for Beginners (2025) 
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19667.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18968.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18523.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18489.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18327.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17410.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17377.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17311.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17129.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17125.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15377.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13773.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13740.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13073.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12859.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11514.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9962.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9844.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9660.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9411.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9362.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9359.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9356.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9340.jpg" />
 </div>
 
 
@@ -657,32 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:095A687E2C03947D60F9C628CA6BCEA051F921AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810439   (9316) от 04.08.2025
-
-Манфредо П. до Кармо | Дифференциальная геометрия кривых и поверхностей (2013) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9316.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге излагается дифференциальная геометрия кривых и поверхностей начиная с базовых понятий вплоть до тонких теорем о глобальном строении. Особенностью книги является ознакомление читателя с основными концепциями современной римановой геометрии на примере дифференциальной геометрии поверхностей. Изложение построено на многочисленных конкретных примерах, иллюстрирующих (   Читать дальше...   )Жанр: МатематикаИздательство: Институт компьютерных исследованийФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5591B8823699745B0B167B5D733CAB7F3C09104A
 ```
 
 https://mybot314.ru/tekegram_catalog/

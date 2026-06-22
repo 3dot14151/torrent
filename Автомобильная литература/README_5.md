@@ -6,7 +6,7 @@
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437706.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426594.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414010.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404630.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404279.jpg" />
 </div>
 
 
@@ -132,32 +132,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 563816   (403307) от 22.10.2012
-
-А.А. Владимиров, С.Н. Погребной | Kia Rio выпуск с 2011 г. Руководство по эксплуатации, техническому обслуживанию и ремонту [2012] [PDF]
-
->>Автомобили
->>Автомобильная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подробное руководство со множеством цветных иллюстраций по эксплуатации, техническому обслуживанию и ремонту автомобилей Kia Rio III с бензиновыми двигателями рабочим объёмом 1.4л и 1.6лФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84762375E11051A8FF2556EB0928BC4D6C254867
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 564643   (402114) от 24.10.2012
 
 В.П.Соловьев (ред.) | Преодоление бездорожья. Разработки СКБ ЗИЛ [2011] [PDF]
@@ -166,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402114.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401682.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400773.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399224.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397608.jpg" />
 </div>
 
 
@@ -289,32 +263,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 566759   (397591) от 28.10.2012
-
-А. В. Воронцов, А. М. Петров, Н. В. Захаров | Skoda Octavia A5. Пошаговый ремонт в фотографиях [2012] [PDF]
-
->>Автомобили
->>Автомобильная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397591.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаем вашему вниманию руководство по ремонту и эксплуатации автомобиля Skoda Octavia А5 (выпуск с 2004 г., рестайлинг в 2009 г.) с кузовами лифтбек и универсал, с бензиновыми двигателями объемом 1,4; 1,6 и 2,0 л. Рассмотрены особенности механической, автоматической и роботизированной коробок передач. В издании подробно рассмотрено устройство автомобиля, даны рекомендации по эксплуатации и ремонту. Специальный раздел посвящен неисправностям в пути, способам их диагностики и устранения.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA53CE77D2721C6B04C38242EDB2DE1CBB09D5D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1172080   (394657) от 06.10.2017
 
 А.П. Кашкаров | Современные электромобили. Устройство, отличия, выбор для российских дорог (2018) [FB2, RTF]
@@ -323,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394657.jpg" />
 </div>
 
 
@@ -349,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392959.jpg" />
 </div>
 
 
@@ -376,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392685.jpg" />
 </div>
 
 
@@ -403,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391079.jpg" />
 </div>
 
 
@@ -430,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389103.jpg" />
 </div>
 
 
@@ -456,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388993.jpg" />
 </div>
 
 
@@ -482,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388950.jpg" />
 </div>
 
 
@@ -510,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386916.jpg" />
 </div>
 
 
@@ -539,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384358.jpg" />
 </div>
 
 
@@ -565,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384002.jpg" />
 </div>
 
 
@@ -597,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374897.jpg" />
 </div>
 
 
@@ -615,33 +563,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 252823   (371062) от 01.11.2010
-
-А. Громаковский | Ошибки начинающих автомобилистов. Советы бывалых [2010] [FB2]
-
->>Автомобили
->>Автомобильная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_371062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Успешно сдав экзамен в ГИБДД и получив заветное удостоверение, вы не сразу станете хорошим водителем и наверняка будете допускать еще немало промахов. Однако лучше учиться на чужих ошибках, чем на собственных.
-Предлагаемая книга ориентирована именно на начинающих водителей. В ней рассмотрены типичные ситуации, в которые попадают новички, поэтому она будет полезна и интересна каждому, кто недавно получил права.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24A240A548800A69B28210F8D2E54CAEB576CB63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1178070   (357976) от 27.10.2017
 
 Александр Куликов | Как проверить автомобиль перед покупкой (2017) [PDF, RTF]
@@ -650,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357976.jpg" />
 </div>
 
 
@@ -676,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357771.jpg" />
 </div>
 
 
@@ -687,6 +608,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9C3849002524E40737CB5DC4A1A2FA021E075B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179788   (341839) от 03.11.2017
+
+Александр Горбунов | Как снизить расходы на бензин на 25000 рублей в год (2017) [PDF]
+
+>>Автомобили
+>>Автомобильная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341839.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге описываются два варианта простого способа, позволяющего экономить на бензине значительные деньги при увеличении мощности автомобиля на 15—20 процентов. Минимальные вложения. Для кого эта книга: для всех, кто ищет способ сократить свои расходы с минимальными вложениями; для предпринимателей, работающих на маршрутных такси, желающих получить преимущество над (   Читать дальше...   )Жанр: ТранспортФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9A7D33B71893E3331DEB80196615F2FB22F3065
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954629   (339347) от 08.11.2015
+
+Владимир Золотницкий | Определение и устранение неисправностей своими силами в автомобиле [5 книг] (2007-2012) [FB2]
+
+>>Автомобили
+>>Автомобильная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любой автомобиль не застрахован от возможных поломок и неисправностей, особенно если он много лет эксплуатируется. Его детали, входящие в многочисленные системы, постепенно изнашиваются, теряют надежность. Случаются и аварии, и различной степени механические повреждения.
+    Автомобилист должен уметь определить причину неисправности и самостоятельно оказывать первую (   Читать дальше...   )Жанр: ТранспортФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC40965CA19D5604C723F530C8BFD25B62A8F40A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957741   (325548) от 19.11.2015
+
+А.В. Кондратьев, Л.Ю. Желтухин и др. | Hyundai Solaris (Седан/Хэтчбек) (2011) [PDF, DJVU]
+
+>>Автомобили
+>>Автомобильная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подробное информационно-справочное со многочисленными цветными иллюстрациями пособие Руководство по ремонту Hyundai Solaris, а также руководство по эксплуатации и техническому обслуживанию Hyundai Solaris, устройство Hyundai Solaris с 2011 г. выпуска, оборудованных бензиновыми двигателями R4, 16V рабочим объемом 1,4 и 1,6 л.
+Это великолепно исполненное красочное (   Читать дальше...   )Жанр: Руководство по эксплуатации, техническому обслуживанию и ремонтуФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDCD0C5B45CF6178C781AB2032CF7B33DA0D109A
 ```
 
 https://mybot314.ru/tekegram_catalog/

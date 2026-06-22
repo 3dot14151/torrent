@@ -1,3 +1,29 @@
+###  Публикация: 1754180   (41127) от 08.10.2024
+
+Больше чем секс / No Strings Attached (2011) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Романтическая комедия о том, как легко мужчины и женщины вступают в сексуальную связь, но как трудно им достичь эмоциональной близости. Главных героев связывают только сексуальные отношения, но со временем они понимают, что на смену физиологическим инстинктам приходит нечто большее.Производство: США, Великобритания / Cold Spring Pictures, Handsomecharlie Films, Katalyst Films, Paramount Pictures, Spyglass Entertainment, The Montecito Picture CompanyЖанр: мелодрама, комедияРежиссер: Айвен РайтманАктеры: Натали Портман, Эштон Кутчер, Кевин Клайн, Кэри Элвес, Грета Гервиг, Лейк Белл, Оливия Тирлби, Лудакрис, Джейк Джонсон, Минди КейлингПеревод: Дублированный (Пифагор)Язык озвучки: Русский, АнглийскийСубтитры: русские (forced, full), английскиеПродолжительность: 01:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED94F3A03CC21C650C3C73F052776C723347D17F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753933   (41124) от 08.10.2024
 
 Роман с камнем / Romancing the Stone (1984) BDRip [H.264/1080p] [Handmade correction AI]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41124.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41122.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41115.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41113.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41108.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41107.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41102.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41097.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41089.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41078.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41077.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41074.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41063.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41041.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_40995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_40995.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_40994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_40994.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_40993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_40993.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40910.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40897.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40817.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40764.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40731.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40725.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40711.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40710.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C005B19E6794166EF32341B07828CA98749632E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754541   (40698) от 11.10.2024
-
-Нокдаун / Cinderella Man (2005) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Потерпев несколько поражений кряду, подававший надежды боксёр-тяжеловес Джим Брэддок вынужден бросить спорт. Во времена Великой депрессии Брэддок берётся за любую работу, чтобы прокормить свою жену Мэй и детей. При этом он всё ещё надеется вернуться на ринг. И однажды ему предоставляется такой шанс. В последнюю минуту Джим заменяет другого боксёра и выходит на поединок (   Читать дальше...   )Производство: США / Imagine Entertainment, Miramax Films, Parkway Productions, Universal PicturesЖанр: драма, мелодрама, биография, спортРежиссер: Рон ХовардАктеры: Рассел Кроу, Рене Зеллвегер, Пол Джаматти, Крэйг Бирко, Пэдди Консидайн, Брюс Макгилл, Дэвид Хубанд, Коннор Прайс, Эриель Уоллер, Патрик ЛуисПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 02:24:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C3D89A295199924DE01532CF960AD48485EFB60
 ```
 
 https://mybot314.ru/tekegram_catalog/

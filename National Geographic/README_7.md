@@ -1,3 +1,81 @@
+###  Публикация: 1511803   (788338) от 22.11.2021
+
+NGW: Львицы: борьба за выживание / Lions: The Hunt For Survival (2021) WEBRip [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Львы - самый страшный, самый культовый хищник в Африке, но лев - это не просто лев. Каждый из них очень отличается от другого. Разные части Африки требуют от львов определенных вещей, чтобы выжить. Секрет в том, чтобы быть очень легко адаптируемым. В конце концов, средства к существованию прайда ложатся на плечи женщины. Она та, кто должен преуспеть. Следуйте за (   Читать дальше...   )Производство: Южная Африка / Earth Touch, National GeographicЖанр: Документальный, Природа, Фауна, ФлораРежиссер: Бенджамин Г. ХьюеттПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6288A028B895397F4A1D6A7C4DF9DE50CB84F2CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511871   (788313) от 22.11.2021
+
+NG. Аляска: Новое Поколение / Life Below Zero: Next Generation (2020) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788313.jpg" />
+</div>
+
+
+###  Подробнее
+
+В самом сердце труднодоступной дикой природы Аляски группа дерзких поселенцев ведет жизнь вдали от общества. Играть по собственным правилам нелегко, ведь они борются за выживание в суровом арктическом климате.Производство: США, BBC Studios, National GeographicЖанр: документальный, природа, выживаниеПеревод: одноголосый профессиональный (Велес)Субтитры: английскиеПродолжительность: 8x ~00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7243AF29E64D5E2A264A677220B5F68AF61655F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276633   (788148) от 16.01.2019
+
+NGW: Дикая Миссисипи, лучшее / Wild Mississippi (2018) HDTVRip [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда эта великая река сначала замерзает на всем своем гигантском протяжении, а потом сметает все на своем пути в период таяния, дикий животный мир отважно противостоит стихиям и бьется на смерть за право на выживание.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31D83E1A639BBEA761B71FDD1EB96CC544516A00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276374   (788142) от 16.01.2019
 
 NG. История десятилетий / The '80s and '90s Greatest (2018) SATRip (серии 01-12, 14-16, 18-20 из 20)
@@ -6,7 +84,7 @@ NG. История десятилетий / The '80s and '90s Greatest (2018) SA
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788142.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ NGW: Дикая Корея. Голос природы / Wild Korea. Voice of nat
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788141.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ NGW: Рожденные в Африке. Школа выживания / Born in
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787593.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ NG: Инстинкт выживания. Острова / Primal survivor. Islan
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787545.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ NGW: Пир гризли / Feast of the Grizzly (2016) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787220.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ NG: Неизвестная планета Земля / One Strange Rock (2018) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786803.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ NG: Неизвестная планета Земля / One Strange Rock (2018) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786661.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ Nat Geo Wild: Уцелевшая природа Европы / Europe's Last Wil
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786097.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ NG: От колыбели до могилы / Cradle to Grave (2016) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785892.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785571.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785563.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ NG: Тайна гималайских мумий / Mystery of the Himalayan Mumm
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785370.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ NGW: Королева скорости / Queen of the chase (2016) HDTVRip [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784032.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ NGW: Дикая Шотландия / Wild Scotland (2013-2016) HDTVRip [H.264/72
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783746.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782057.jpg" />
 </div>
 
 
@@ -389,6 +467,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 201074   (781187) от 14.05.2010
+
+NG: Умные Крысы / Rat Genius  (2006) SATRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_781187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Куда бы мы не шли - они там.. Питаются тем, что мы оставили.. Мы можем даже не замечать их.. Поначалу.
+Но они строят темные царства прямо у нас под ногами. Крысы... Привыкайте к ним, потому что они не собираются уходить!
+Крысы плодятся почти на всех континентах, проникая в наши дома, вызывая ночные кошмары.
+Так почему крыса лидер по выживанию, точно отлаженная машина по завоевыванию мира?!Жанр: Документальный, научно-популярныйПеревод: Одноголосый закадровый, профессиональный
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207483   (780520) от 18.02.2018
 
 NGW: Потерянные миры Индии / India's Lost Worlds (2015) HDTVRip [H.264/1080i] (сезон 1, серии 1-3 из 3)
@@ -397,7 +504,7 @@ NGW: Потерянные миры Индии / India's Lost Worlds (2015) HDTVR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780520.jpg" />
 </div>
 
 
@@ -423,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779943.jpg" />
 </div>
 
 
@@ -449,7 +556,7 @@ NG: Самурайский лук / Samurai Bow (2009) HDTVRip [H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779623.jpg" />
 </div>
 
 
@@ -475,7 +582,7 @@ NGW: Дикая природа Китая / China's wild side (2017) WEB-DLRip [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_779467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_779467.jpg" />
 </div>
 
 
@@ -501,7 +608,7 @@ NGW: Человек среди гепардов / Man among cheetahs (2017) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779249.jpg" />
 </div>
 
 
@@ -527,7 +634,7 @@ NGW: Самый знаменитый в мире тигр / The world's most fam
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779232.jpg" />
 </div>
 
 
@@ -553,7 +660,7 @@ NGW: Чудо-гепард / The miracle cheetah (2017) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779224.jpg" />
 </div>
 
 
@@ -564,111 +671,6 @@ NGW: Чудо-гепард / The miracle cheetah (2017) HDTV [H.264/1080i-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B068B6A12377BA0E99ADB44B9D15D007E1C88C79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210444   (778838) от 02.03.2018
-
-NGW: Пингвинопалуза / Penguin palooza (2017) HDTVRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вокруг огромного континента на самом юге земли, Антарктиды, и близлежащих стран обитают 18 (может быть и 19) видов пингвинов.Производство: США, Nat Geo WildЖанр: Документальный, природа, фаунаРежиссер: Элинор ГрантПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F7173C0DB7D47EFD2548BA6FFC4F5EA0BBBA033
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210352   (778819) от 02.03.2018
-
-Самые странные животные в мире / World's Weirdest Animal Faces (2017) HDTVRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Может быть, природа и сделала этих животных уродливыми, но благодаря этим свойствам они могут выжить в своей среде обитания.Производство: Великобритания, Wildbear Entertainment for National GeographicЖанр: Документальный, природа, фаунаРежиссер: Мартин БэйкерПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44C553BB75075E9A76547FF10E18573BD46FC81A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210437   (778669) от 03.03.2018
-
-NGW: Ужас тигровой акулы / Tiger shark terror (2017) HDTVRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональный ныряльщик Эли Мартинец, специализирующийся на изучении жизни акул, и ученый Мэтью Смукалл погружаются в сумрачный мир Тигровой Бухты, чтобы исследовать, меняется ли поведение акулы после захода солнца.Производство: США, Nat Geo WildЖанр: Документальный, природа, фаунаРежиссер: Энди КасаграндеПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FC72BC48B91CE6C9DA877979814C0358B719EFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210746   (778506) от 04.03.2018
-
-NGW: Потерянные акулы острова Пасхи / Lost sharks of easter island (2011) HDTVRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Энрик Сала, как и его команда, наслышаны о многочисленных легендах про остров Пасхи. Герои документального проекта преодолевают ряд преград, чтобы лично проверить распространенные гипотезы и теории.
-Вскоре участники экспедиции выяснят, что реальность оказалась совершенно не такой, как представлялось после изучения множества доступных источников. Некоторые факты стали (   Читать дальше...   )Производство: США, Nat Geo WildЖанр: Документальный, фаунаРежиссер: Нил ГелинасПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91013222C0A9BD9385B8CDA2387BEC780BBF9FD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

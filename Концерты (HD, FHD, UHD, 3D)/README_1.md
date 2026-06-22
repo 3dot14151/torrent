@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042167.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042151.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041130.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Bob Moses - Falling Into Focus (Live Concert Film) (2020) WEBRip [VP9/2160p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040587.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039354.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038108.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037817.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037548.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ The Rolling Stones - GRRR Live! (2012) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035537.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035527.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035441.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035311.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034838.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033953.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033826.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032172.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029331.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Uriah Heep - Live at Wacken Open Air 2019 (2021) WEBRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028835.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028702.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028152.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027530.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Accept - Герои мирового рока в честь 25-летия АО �
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027509.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Power Tale - Огненный Бог Марранов (2021) WEB-DL [H.264/1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026556.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026404.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025420.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025302.jpg" />
 </div>
 
 

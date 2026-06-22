@@ -1,3 +1,29 @@
+###  Публикация: 1270958   (153938) от 21.12.2018
+
+По праву любви (2018) WEB-DLRip (сезон 1, серии 1-8 из 8)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Николай и Пётр дружат с детства и влюблены в одну девушку — Анну. Девушка выходит замуж за Петра, и Николай вынужден с этим смириться. Чтобы заработать денег, друзья нанимаются на рыболовецкое судно. Пётр погибает в море. Николай возвращается домой и становится опорой для молодой вдовы и маленького сына погибшего друга. Через несколько лет Анна соглашается выйти (   Читать дальше...   )Производство: Украина / «ARTFORMS PRODUKTION» по заказу ТРК "Студия 1+1"Жанр: мелодрамаРежиссер: Майа СомоваАктеры: Анастасия Иванова, Вадим Головко, Александр Рудько, Владлена Марчак, Ольга Радчук, Анастасия Бунина, Елена Бондарева-Репина, Павел Москаль, Владимир Заец, Борис Книженко и др.Язык озвучки: русскийПродолжительность: ~00:48:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3A0BA4590A2601E45179645F781593B6571C21C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434147   (153271) от 23.12.2020
 
 Двое над пропастью (2020) WEBRip (сезон 1, серии 1-4 из 4)
@@ -6,7 +32,7 @@
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153271.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153208.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152365.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149716.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145895.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145795.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144390.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144239.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144173.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142757.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142727.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141355.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140924.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140265.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140230.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139379.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138803.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138457.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137057.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137033.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137027.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136568.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130797.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57768.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55164.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2379F2C8DD706E0DBAA9EA5E06370E3FB251F7B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716562   (54955) от 30.05.2024
-
-Советские джинсы / Padomju dzinsi / Soviet Jeans (2024) WEB-DL [H.264/720p] (сезон 1, серии 1-8 из 8) SDI Media
-
->>След.
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54955.jpg" />
-</div>
-
-
-###  Подробнее
-
-В конце семидесятых годов – в то время, когда по всему СССР распространялась жесточайшая пропаганда против западной культуры – ярый поклонник рок-музыки создал в психиатрической больнице Латвии успешную и нелегальную джинсовую фабрику.Производство: Латвия / Tasse FilmЖанр: Драма, комедияРежиссер: Станислав Токалов, Юрис КурсиетисАктеры: Андрис Кейш, Байба Брока, Гундарс Аболиньш, Янис Скутелис, Игорь Шелеговский, Гинтс Гравелис, Ааму Милонофф, Валентин Новопольский, Арнольд АвотсПеревод: Профессиональный одноголосый (SDI Media)Язык озвучки: Русский, латышскийСубтитры: Латышские (forced), эстонскиеПродолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47D12BDEFF853309C615901F98C9467986A72DE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

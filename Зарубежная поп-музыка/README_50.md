@@ -6,7 +6,7 @@ VA - NOW That's What I Call Music! Vol. 83 (2022) [MP3|320 Kbps] <Hip Hop, Rock,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457908.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Gregoire - Poesies De Notre Enfance (2015) [MP3|320 кб/с]<French Pop, Chanson
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455970.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Bardeux - 2 Albums (1988, 1989) CD [MP3|320 Kbps] <Electronic, Dance-pop, Synth-
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454981.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Kim Wilde - Snapshots / Special Edition (2011) [MP3|230-283 kbps]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454014.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Bananarama - Live at the London Eventim Hammersmith Apollo (2018) [MP3|320 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452727.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - Bravo Hits Vol. 103 (2018) 2CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452721.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ VA - The Sweet Sound of Bossanova (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452714.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Soraya - Dolce Vita (2007) [MP3|320 Kbps] <Eurodance, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452500.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Janet Jackson - Unbreakable (2015) Deluxe Edition [MP3|320 кб/с]<R&B, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451640.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - Power of Love: 80s Love Songs (2018) [MP3|320 Kbps] <Pop  Funk, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451073.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448661.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Sandra - Fading Shades (1995) [OGG|485 Kbps] <Downtempo, Synth-pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447202.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Drezden - Drezden (2018) [MP3|320 Kbps] <Pop, Electronic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446511.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Robert Montecristo - Jo Superboy (1980) Vinyl 7" [MP3|320 Kbps] <Electronic, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446353.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Secret Service - The Lost Box (2012) [OGG|485 Kbps] <Pop Rock, Hi NRG, Synth-pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445101.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Belinda Carlisle - Runaway Horses (Remastered Deluxe) 2CD (2013) [MP3|320 Kbps] 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444739.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Nazia & Zoheb Hassan - 3 Albums (1980-1995) [MP3|320 Kbps] <Electronic, Pop, Dis
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444258.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443148.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ NK (Настя Каменских) - Ecléctica (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443018.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ The Spotnicks - Never Trust Robots (1978) LP [MP3|320 Kbps] <Electronic, Synth-P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442386.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Explorer (by Tony Carey) - Explorer (1982) LP [MP3|320 Kbps] <Electronic, Disco,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441694.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Mylène Farmer - Live 2019 (2019) [OGG|485 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440791.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Londonbeat - Londonbeat (2019) [OGG|485 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438367.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Shania Twain - Greatest Hits (2014) [OGG|485 Kbps] <Pop, Folk, World, & Country>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438295.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ VA - 90er Hits (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438228.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ Sandra - The Long Play (1985) [OGG|485 Kbps] <Synth-pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438192.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 796295   (786060) от 09.04.2017
+
+Persona 3 the Movie | Персона 3. Фильм [2013, MV, 4 фильма] BDrip 720p Hi10P raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Протагонист прибывает на остров Тацуми, где поступает в новую школу и поселяется в общежитие. И тут же начинаются всякие странности: свет по пути от станции метро до общежития отключается, Луна начинает источать странный зелёный свет, улицы заливаются кровью, а все окружающие его люди принимают вид гробов. Спустя некоторое время герой узнаёт про так называемый «Тёмный (   Читать дальше...   )Жанр: боевикРежиссер: Акитая Нориаки (1), Тагути Томохиса (2 и 4), Мотонага Кэйтаро (3)Перевод: 1) I.D.A., 2) DameDesuYoЯзык озвучки: ЯпонскийЯзык субтитров: 1) Русский, 2) АнглийскийПродолжительность: 4 фильма по ~100 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F226046CA731EBB21C8EBFAB669337BDE2835F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 796299   (786048) от 09.04.2017
 
 Persona 3 the Movie | Персона 3. Фильм [2013, MV, 4 фильма] BDrip 1080p Hi10P raw
@@ -6,7 +32,7 @@ Persona 3 the Movie | Персона 3. Фильм [2013, MV, 4 фильма] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786048.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ One Room / Из одной комнаты [2017, TV, 12 из 12] WEBRip 1080p HE
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786036.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Shamanic Princess / Принцесса-шаман [1996, OVA, 6 ep.] DVDRip Hi10
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785906.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e | Classroom of the Elite | До�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784855.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Inukami! | Инуками! [2006, TV, 26 из 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784577.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Inukami! The Movie: Tokumei Reiteki Sousakan Karina Shirou! | Инуками! [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784554.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Inuyashiki | Inuyashiki Last Hero | Инуясики [2017, TV, 11 из 11] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784199.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Senryuu Shoujo | Senryu Girl | Девушка-сэнрю [2019, TV, 12 эп.] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783407.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Koi wa Ameagari no You ni | After the Rain | Любовь похожа на пр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783354.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Dies Irae | Судный день [2017, TV + Web, 18 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783351.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Katsugeki: Touken Ranbu | Дикая пляска мечей: Кацугеки [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783185.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Arslan Senki: Fuujin Ranbu / The Heroic Legend of Arslan: Dust Storm Dance / С�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783061.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Mirai Keisatsu Urashiman | Future Police Urashiman | Урасиман: Поли�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783051.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Touken Ranbu: Hanamaru | Дикая пляска мечей: Ханамару [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782940.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Mayonaka no Occult Koumuin | Midnight Occult Civil Servants | Оккультны
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782189.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Sakura Quest | Квест Сакуры [2017, TV, 25] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781699.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Sakura Wars the Animation | Shin Sakura Taisen the Animation | Сакура: Н�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780949.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ Higashi no Eden Gekijoban I: The King of Eden / Eden of The East the Movie I: Th
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780658.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Yoru wa Mijikashi Aruke yo Otome | The Night Is Short, Walk on Girl | Ночь �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780536.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ Hirune-hime: Shiranai Watashi no Monogatari | Napping Princess | Спящая п
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780045.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ Cardcaptor Sakura: Clear Card Hen - Prologue Sakura to Futatsu no Kuma | Сак�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779231.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ Tamayura: Sotsugyou Shashin / Тамаюра (фильм) [2015, Movie, 4 из 4
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779192.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ DEVILMAN crybaby | Devilman: Crybaby | Человек-дьявол: Плакса
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779049.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ Gin no Guardian II | The Silver Guardian 2 | Серебряный страж [Т
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778930.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ No Game No Life Zero | Нет игры - нет жизни (фильм) [2017, M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778925.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ No Game No Life Zero | Нет игры - нет жизни (фильм) [2017, M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F4581D88B5B53A38E341A9D453640F68A6CA76F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172697   (778459) от 04.03.2018
-
-Taishou Mebiusline: Chicchai-san | Кроха Тайсё [2017, TV, 12+SP] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история о юноше, звать которого Кёичиро Хираги. Он отправился в странствие из провинциального городка в сам Токио с благородной целью поступления в университет. С собой он несёт не только горячее сердце и жажду к знаниям, но ещё и семейный меч, которым смог бы защищаться в пути. Прибыв в Токио, Кёичиро оказывается втянут в заговор императорской армии.Производство: Studio A-CATЖанр: приключенияРежиссер: Ватанабэ СюПеревод: Aniplay ; YakusubЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 13 эп. по 5 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A54824AF09D5AC776D736828D74AB9F3CD8D5BD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

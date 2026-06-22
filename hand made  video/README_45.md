@@ -1,3 +1,29 @@
+###  Публикация: 1466780   (754513) от 09.01.2022
+
+Боги, наверное, сошли с ума / The Gods Must Be Crazy (1980) WEB-DLRip [H.264/720p] [handmade AI remastered]
+
+>>След.
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754513.jpg" />
+</div>
+
+
+###  Подробнее
+
+В дикие, девственные леса Африки с небес падает бутылка «Кока-колы». Здесь же обитает по-детски невинное племя бушменов. Вокруг столкновения двух цивилизаций происходит масса комедийных моментов.Производство: Ботсвана, ЮАР / CAT Films, Mimosa FilmsЖанр: комедия, приключенияРежиссер: Джейми ЮйсАктеры: Н!ксау, Сандра Принслу, Мариус Вейерс, Лоу Вервей, Майкл Тис, Ник Де Ягер, Фаньяна Х. Сидумао, Джо Сикэтси, Брайан О’Шонесси, Кен ГампуПеревод: Многоголосый профессиональный, авторскийСубтитры: английскиеПродолжительность: 01:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74E3423E7EFF885B5539E3A3D762E73F93693118
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 662718   (754445) от 31.05.2013
 
 Мистер Бин / Bean (1997) HDRip [Hand Made Extended Cut]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754445.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754260.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754255.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753842.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752822.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752481.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Europe - Almost Unplugged (live) от ALEXnROCK (2008) WEBRip
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751933.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751131.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749812.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749011.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749008.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748824.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748248.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747908.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747737.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747587.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746541.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746019.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744963.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_744861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744861.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744512.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743880.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ Motley Crue - Видеоколлекция от ALEXnROCK (2018) DVDRip, BDRip [
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742022.jpg" />
 </div>
 
 
@@ -621,7 +647,7 @@ Winger - Live (2007) от ALEXnROCK WEBRip
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741056.jpg" />
 </div>
 
 
@@ -650,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740594.jpg" />
 </div>
 
 
@@ -661,34 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EAE88C570718A124C6E184CB234BC7336CE62D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 784414   (740160) от 08.05.2014
-
-Ливень / Hard Rain (1998) BDRip [720p] [hand made 60fps]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышедшая из берегов река становится причиной крупного наводнения в провинциальном американском городке. Мимо города следует инкассаторский автомобиль, перевозящий несколько миллионов долларов.
-
-Попав в засаду, неопытный охранник Том оказывается один на один с бандой «беспощадного Джима» и бушующей природной стихией. Выжить невозможно…Производство: СШАЖанр: Триллер, Боевик, КриминалРежиссер: Микаэл СаломонАктеры: Морган Фриман, Кристиан Слэйтер, Рэнди Куэйд, Минни Драйвер, Эдвард Эснер, Майкл А. Гурджиан, Дэнн Флорек, Рики Харрис, Марк Ролстон, Питер МёрникПеревод: ДублированныйЯзык субтитров: Rus (полные), Eng (полные)Продолжительность: 01:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71EB53EE2CC86FD4D00AD4B0DBD8C9FB7DD91750
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1564651   (499668) от 19.07.2022
+
+V.A. - The Power of Love Soulful Easy Jazz Instrumentals (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Fade into the Sunset
+02. eJazz Artistry - I Can't Stop Loving You
+03. Chillaxonic - Dream into Reality
+04. Kool&Klean - Share My Life(   Читать дальше...   )Жанр: Smooth Jazz, Easy ListeningПродолжительность: 01:16:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22E1B02D3159D000DB654A6366FC77DC5EDD01CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564647   (499664) от 19.07.2022
 
 VA - John Lennon In Jazz - A Jazz Tribute To John Lennon (2020) Compilation [FLAC|Lossless|image + .cue] <Contemporary Jazz, Fusion Jazz>
@@ -6,7 +35,7 @@ VA - John Lennon In Jazz - A Jazz Tribute To John Lennon (2020) Compilation [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499664.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Oliver Jones Trio - Live at Biddles (1983) Justin Time [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499632.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Count Basie - Four Classic Albums Plus (1957 - 1962) 2CD, 2015, Avid Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499631.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Oliver Jones Trio - Just Friends (1989) Justin Time [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499630.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ The Righteous Brothers - Les Genies du Rock - Rock And Roll Heaven (1995) [MP3|3
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499558.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Leela James - Loving You More... In The Spirit Of Etta James (2012) [FLAC|Lossle
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499276.jpg" />
 </div>
 
 
@@ -186,7 +215,7 @@ Incognito - Surreal (2012) [FLAC|Lossless]<Acid Jazz, Soul, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499109.jpg" />
 </div>
 
 
@@ -212,7 +241,7 @@ Eddie "Lockjaw" Davis - Lock, The Fox / The Fox & the Hounds (1966) 2001, Collec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498629.jpg" />
 </div>
 
 
@@ -241,7 +270,7 @@ Bill Watrous - Bone-ified (1992) GNP Crescendo [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498628.jpg" />
 </div>
 
 
@@ -270,7 +299,7 @@ Benny Goodman Trio & Orchestra - Dance & Sing with the Swinging Band of Benny Go
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498627.jpg" />
 </div>
 
 
@@ -299,7 +328,7 @@ Bireli Lagrene - Acoustic Moments (1991) Blue Note [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498583.jpg" />
 </div>
 
 
@@ -328,7 +357,7 @@ Kingfish - Kingfish (2022) [MP3|320 Kbps] <Classic Rock, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498529.jpg" />
 </div>
 
 
@@ -357,7 +386,7 @@ Z.Z. Hill - The Complete Hill/UA Recordings (1996) [MP3|320 кб/с]<Modern Elec
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498511.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ Rusty Bryant - Fire Eater (1971) /2014, Universal/[FLAC|tracks+.cue]<Jazz-Funk, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498509.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ Memphis Train - No Buts, No Maybes (2015) [MP3|320 кб/с]<Modern Electric Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498454.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ Mick Rothman - Place, Loss, Love & Life (2015) [MP3|320 кб/с]<Blues, Country 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498448.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ Tramp - Tramp (1969) Remastered 2007 [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498442.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ Denny Zeitlin - Live at Maybeck Recital Hall, Vol.27 (1993) Concord Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497812.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ Max Roach with The New Orchestra of Boston and The So What Brass Quintet (1993, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497736.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ VA - 29th Byron Bay Bluesfest 2018 (2018) [MP3|320 Kbps] <Blues, Blues Rock, R'n
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497675.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ The Australian Jazz Quartet - The Australian Jazz Quartet (1955) /2014, Solid Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497662.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ Jimmy Heath - The Quota (1961) /1995, OJC/[FLAC|tracks+.cue]<Hard Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497661.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ Bill Evans & Eddie Gomez - Intuition (1974) /2012, Universal/[FLAC|tracks+.cue]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497660.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ VA - Chicago Blues Masters, Vol. 3 (1997) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497659.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Tommy Dorsey - Quadromania: Well Git It (1935 - 1955) 4CD, 2005, Membran Music [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497642.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3637FB6770E8BCC39E602DBB00AA5F4C6F7C664
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936068   (497552) от 10.09.2015
-
-Janice Hagan - Let's Misbehave! (2004) [MP3|320 кб/с]<Jazz, Cabaret>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All that Jazz (04:06)
-02. Whatever Lola Wants (03:37)
-03. Too Darn Hot (03:59)
-04. Let's Fall in Love (03:49)(   Читать дальше...   )Жанр: Jazz, CabaretПродолжительность: 01:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28A55A7AD876D43F89857983417C032F7C7F11ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

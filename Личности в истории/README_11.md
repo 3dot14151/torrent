@@ -1,3 +1,29 @@
+###  Публикация: 1180427   (339750) от 04.11.2017
+
+Ева Браун: Жизнь и смерть с фюрером / Eva Braun: Life and Death with the Fuhrer (2015) HDTVRip (2 серии из 2)
+
+>>Документалистика и Телепередачи
+>>Личности в истории
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339750.jpg" />
+</div>
+
+
+###  Подробнее
+
+По словам ее биографа, за преувеличенным оптимизмом Евы Браун стояла решительная женщина, которая до самой смерти шла к своей цели. Она свела счеты с жизнью в бункере под рейхсканцелярией в Берлине вместе с Адольфом Гитлером 30 апреля 1945 года. За день до этого Ева Браун, которая много лет была его любовницей, вышла за Гитлера замуж.Телекомпания: Германия, SPIEGEL TV GmbHЖанр: Документальный, война, история, биографияРежиссер: Михаэль КлофтПеревод: ДублированныйПродолжительность: 2 х ~ 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73050792A53E66E9FFCBEEA4324D46F6D06F4A14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180423   (339522) от 04.11.2017
 
 Ева Браун: Жизнь и смерть с фюрером / Eva Braun: Life and Death with the Fuhrer (2015) HDTVRip [H.264/720p-LQ] (2 серии из 2)
@@ -6,7 +32,7 @@
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339522.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338859.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338689.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335338.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332925.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332920.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332217.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327432.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297617.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296990.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295738.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295438.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283654.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ NG. Три вождя / Inside North Korea's Dynasty (2018) SATRip (1-4 сери
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276286.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274345.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272548.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267723.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266947.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264398.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263925.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263774.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259132.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257004.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255365.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253536.jpg" />
 </div>
 
 
@@ -659,32 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96DC36759ACA92123B50EC6DEF6663C25255081F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836194   (252441) от 09.11.2025
-
-NG. Джон Кеннеди. Семь дней, определивших президента / JFK: Seven Days That Made a President (2013) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Личности в истории
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ о днях, ставших для Джона Кеннеди испытанием и определивших его. Семь решающих дней сформировали его как личность и создали легенду. Семь кризисных моментов, когда ему приходилось принимать решения относительно собственного будущего и будущего страны. Джон Фицджеральд Кеннеди - мальчик, страдавший от тяжелой болезни и герой войны. Первый президент эпохи телевидения, (   Читать дальше...   )Производство: Великобритания, США, BLAST FILMS for National Geographic ChannelЖанр: документальный, биография, история, политикаРежиссер: Стив ВеббПеревод: Одноголосый профессиональный (АРК-ТВ, текст читает Игорь Тарадайкин)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:28:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F455247DA3DA16C73EDCE0E4ECC4C888A67DF0D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

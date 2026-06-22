@@ -1,3 +1,107 @@
+###  Публикация: 1156224   (830762) от 04.05.2020
+
+Children of Zodiarcs (2017) [Multi] (1.0.3.7-2f11118c226f) License GOG [Collector's Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Children of Zodiarcs - это сюжетное-ориентированная тактическая jRPG от канадской студии Cardboard Utopia, которая разбавила классический игровой процесс элементами коллекционных карточных игр, бросками изготавливаемых игроками кубиков и некоей новой для жанра тактических jRPG динамической системой битв. Карты ответственны за все доступные персонажам атаки и активируемые (   Читать дальше...   )Тип издания: LicenseРазработчик: Cardboard UtopiaЖанр: Ролевая игра, Стратегия, ТактическаяЯзык субтитров: Английский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:726B975A9D64827EE1DAA6DC042441633CF11B96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005952   (830075) от 10.04.2016
+
+Convoy (2015) [Ru/En] (1.1.51) Repack ARMENIAC
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Convoy - постапокалиптический тактический рпг-рогалик с процедурно генерируемым миром от независимой студии Convoy Games, которые вдохновлялись вселенной Безумного Макса и известным инди-хитом FTL: Faster Than Light. События игры разворачиваются на поверхности планеты. Цивилизация находится на грани уничтожения, а единственным средством выживания стали боевые машины. (   Читать дальше...   )Тип издания: RepackРазработчик: Convoy GamesЖанр: RPG (Rogue,Action), Top-downЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:796E8567F9572DE247AB2FE7E6917B4409CED968
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381013   (829056) от 05.05.2020
+
+Dragon Ball Z: Kakarot (2020) [Ru/Multi] (1.10/dlc) Repack xatab
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dragon Ball Z: Kakarot – долгожданное продолжение серии игр Dragon Ball Z. Игра сделана по мотивам манги и аниме сериала «Драконий Жемчуг». Главный герой Сон Гоку – протагонист вселенной; нам предстоит отправиться с ним в приключение и узнать его историю. События разворачиваются во вселенной «Dragon Ball Z»; развитие происходящего дополнено сайд-квестами и различными (   Читать дальше...   )Тип издания: RepackРазработчик: CyberConnect2 Co. Ltd.Жанр: Экшены, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94A62FCC72F31CDFB03D66EF932036375C7BDDA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 195723   (828340) от 26.04.2010
+
+Fallout [Ru] (P) 1997
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828340.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2077 году разразилась Третья Мировая война. Ядерная война. Всего за два часа большая часть планеты превратилась в радиоактивное пепелище. Лишь немногим счастливчикам удалось укрыться в огромных подземных убежищах до начала войны. Новое поколение людей росло в бункерах, даже не предполагая о существовании внешнего мира. Вскоре в жизни одного из них наступят серьезные перемены: ему предстоит покинуть убежище и подняться на поверхность. Впереди - встреча с новым, пережившим ад ядерной войны миром и его кошмарными обитателями.Тип издания: ПираткаРазработчик: Interplay Productions / Black IsleЖанр: RPG / IsometricЯзык озвучки: РусскийЯзык интерфейса: Русский (Fargus)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502536   (826217) от 15.10.2021
 
 Dungeon Encounters (2021) [Multi] (7222979) License DARKSiDERS
@@ -6,7 +110,7 @@ Dungeon Encounters (2021) [Multi] (7222979) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826217.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ The Tenth Line (2017) [En] (1.0.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825805.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ DeathSpank Trilogy (2010-2011) [Ru/En] (1.0/dlc) Lossless Repack R.G. Revenants
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825680.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Wintermoor Tactics Club (2020) [En] (2020-05-04/dlc) License GOG [Wintermost Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823846.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Dex (2015) [Multi] (5.3.0.0/dlc) Repack R.G. Механики [Enhanced Version]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823810.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Dragon’s Dogma: Dark Arisen (2016) [Ru/En] (1.0/upd7/dlc) Repack =nemos=
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823728.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Megadimension Neptunia VIIR (2018) [Multi] (1.0/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822695.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Tyranny (2016) [Ru/Multi] (1.0.4.0048/dlc) SteamRip Let'sPlay [Overlord Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820216.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Cyber Manhunt (2021) [Multi] (1.3.30/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819071.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ The Dwarves (2016) [Ru/Multi] (1.2.0.74) SteamRip Let'sPlay [Digital Deluxe Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_818459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_818459.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Dragon's Dogma: Dark Arisen (2016) [Ru/En] (1.0.0.18) Repack xatab (обновл
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816591.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Legends Of Dawn (2013) [Ru/Multi] (1.52s) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816348.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ NieR Replicant ver.1.22474487139... (2021) [Multi] (7396468) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815250.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Nanotale - Typing Chronicles (2021) [Ru/Multi] (1.95) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815237.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Dungeon Defenders (2011) [Multi] (8.3/dlc) License PLAZA [Collection Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815007.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Masquerada: Songs and Shadows (2016) [Ru/Multi] (1.22) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814874.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ The Elder Scrolls V: Skyrim (2016) [Ru/Multi] (1.5.23.0.8) License PROPHET [Spec
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814871.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Fallen Legion+ (2018) [Ru/Multi] (1.0) Repack Covfefe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814869.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ This Land Is My Land (2021) [Ru/Multi] (0.0.9.18436) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813356.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Out There: Omega Edition (2015) [Ru/Multi] (2.3) Repack R.G. Origami
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811047.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Planescape: Torment (1999) [Ru/En] (1.1) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810637.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Shadowrun Returns (2013) [Ru/Multi] (1.2.7 (A)) License GOG [Deluxe]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809475.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Shadowrun Returns (2013) [Ru/Multi] (1.2.7 (A)) License GOG [Deluxe]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5AF6BD4BDB9E5EB7C312ED2D0A4DF92F09E5304
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476641   (807660) от 25.10.2021
-
-Alchemist Adventure (2021) [Ru/Multi] (1.211021/dlc) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Открыв глаза в незнакомой лаборатории, ты понимаешь, что совершенно ничего не помнишь. Тебе предстоит совершить грандиозное приключение по заброшенному, но всё еще полному опасности региону под названием Исур, раскрыть все его секреты и узнать мрачную тайну своего прошлого.Тип издания: LicenseРазработчик: Bad MinionsЖанр: Action, Adventure, RPG, SlasherЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:752DFB154CEF87966BE4174B4F3718AE1786D71D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110773   (806569) от 28.03.2017
-
-Titan Quest (2006) [Ru/Multi] (1.42) Repack R.G. Revenants [Anniversary Edition]
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создатель Age of Empires, Брайан Салливан, представляет новую ролевую игру, воссоздающую мифические миры древних Греции и Египта. Потрясающее графическое исполнение и яростный экшен подарят игроку неповторимые ощущения присутствия и вовлеченности в игровой процесс. Сочные, невероятно реалистичные локации древнего мира создают неповторимый фон для эпической борьбы (   Читать дальше...   )Тип издания: RepackРазработчик: Iron Lore EntertainmentЖанр: RPG (Rogue, Action), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4847C0AB09AE9B9D6824DB7C7DCAE6082A5992B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117388   (806568) от 28.03.2017
-
-Overfall (2016) [En] (03/22/2017) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследуйте переменчивые моря загадочного мира. Бейтесь с мощными противниками... или подружитесь с ними. Берите под крыло заблудшие души и узнавайте об их прошлом. В этой фантастической ролевой стратегии вы столкнетесь с историями о невероятном и трагическом, о волшебном и повседневном, о личном и эпическом!Тип издания: LicenseРазработчик: Pera GamesЖанр: Стратегия, Ролевая, Рогалик, Пошаговая, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2080CEAB21220ACAC2D69A9D18AF7EA7D0720C24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119915   (804791) от 29.03.2017
-
-Operation Abyss: New Tokyo Legacy (2017) [En/Ja] (1.0) License PLAZA
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создав шесть игроков, вы во главе с вашим отрядом сможете отправиться в путешествие по глубинам подземелий, под стать типичным dungeon-crawler RPG. Игрок сможет общаться с другими игроками по сети, обмениваясь сообщениями, всплывающими в окне. В игре используется система Rise & Drop, что тоже не удивительно, собирайте трофеи и идите в атаку на гораздо более сильные (   Читать дальше...   )Тип издания: LicenseРазработчик: MAGES, ExperienceЖанр: RPG (Hack-and-slash), 3D, NovellaЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE6F166CA005A409541E5FCDF991D0CF1F5B8352
 ```
 
 https://mybot314.ru/tekegram_catalog/

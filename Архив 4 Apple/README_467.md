@@ -1,3 +1,59 @@
+###  Публикация: 1335075   (288922) от 01.11.2019
+
+Elmedia Player Pro 7.7  (1843) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elmedia Player - мультимедийный плеер для воспроизведения практически всех видео форматов: (FLV, SWF, MOV, MP4, DIVX, RV, RM и даже Silverlight). Это удобный и простой в настройке плеер, который проигрывает медиа файлы локально, а также имеет встроенный веб-браузер, позволяющий заходить на любой сайт и выбирать понравившееся видео для просмотра.
+
+Elmedia Player PRO (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.10.2019Разработчик: Eltima LLCПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D23C0E111CF490205630A5CC026216E04CC625E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335247   (288735) от 01.11.2019
+
+WiFi Explorer Pro 2.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288735.jpg" />
+</div>
+
+
+###  Подробнее
+
+WiFi Explorer быстро определяет конфликты в каналах связи, overlapping сигнала или просто проблемы в конфигурации, которые мешают стабильной работе сигнала в беспроводной сети вашего офиса или дома.
+
+WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавляет набор функций, которые делают его подходящим инструментом для WLAN и ИТ-специалистов. Вы можете использовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Adrian Granados-MurilloПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51F43C7047D63B58D2CFA804A14D140D1D5C65B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 963283   (288684) от 07.12.2015
 
 LilyView 1.1.2 [En]
@@ -6,7 +62,7 @@ LilyView 1.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288684.jpg" />
 </div>
 
 
@@ -33,7 +89,7 @@ File Juicer 4.51 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288544.jpg" />
 </div>
 
 
@@ -61,7 +117,7 @@ UninstallPKG 1.1.0 (1161 ) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288457.jpg" />
 </div>
 
 
@@ -89,7 +145,7 @@ KeyCue 8.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288388.jpg" />
 </div>
 
 
@@ -116,7 +172,7 @@ FruitJuice 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288278.jpg" />
 </div>
 
 
@@ -143,7 +199,7 @@ KCNcrew Pack 11.15.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288152.jpg" />
 </div>
 
 
@@ -169,7 +225,7 @@ Path Finder 8.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288146.jpg" />
 </div>
 
 
@@ -195,7 +251,7 @@ TaskPaper 3.8.2 (336) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288139.jpg" />
 </div>
 
 
@@ -223,7 +279,7 @@ File Cabinet Pro 6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288137.jpg" />
 </div>
 
 
@@ -249,7 +305,7 @@ RapidWeaver 8 8.1 (20462b) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288135.jpg" />
 </div>
 
 
@@ -277,7 +333,7 @@ Sip Pro 1.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288133.jpg" />
 </div>
 
 
@@ -304,7 +360,7 @@ NXPowerLite Desktop 8 v8.0.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288123.jpg" />
 </div>
 
 
@@ -332,7 +388,7 @@ iMazing 2.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288109.jpg" />
 </div>
 
 
@@ -359,7 +415,7 @@ Submerge 3 v3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288017.jpg" />
 </div>
 
 
@@ -387,7 +443,7 @@ Athentech Perfectly Clear Complete 3.6.3.1345 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288014.jpg" />
 </div>
 
 
@@ -415,7 +471,7 @@ Enolsoft PDF Creator 4.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288013.jpg" />
 </div>
 
 
@@ -441,7 +497,7 @@ BetterTouchTool 2.660 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288006.jpg" />
 </div>
 
 
@@ -467,7 +523,7 @@ Remotix VNC & RDP 4.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287983.jpg" />
 </div>
 
 
@@ -496,7 +552,7 @@ SnapNDrag Pro - organize and edit screenshot 4.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287909.jpg" />
 </div>
 
 
@@ -524,7 +580,7 @@ Mellel 4 v4.2.4r5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287902.jpg" />
 </div>
 
 
@@ -552,7 +608,7 @@ TextSoap 8 v8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287899.jpg" />
 </div>
 
 
@@ -578,7 +634,7 @@ iA Writer 5.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287884.jpg" />
 </div>
 
 
@@ -604,7 +660,7 @@ JixiPix Premium Pack 1.1.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287875.jpg" />
 </div>
 
 
@@ -630,7 +686,7 @@ Movavi Screen Recorder 10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287826.jpg" />
 </div>
 
 
@@ -641,61 +697,6 @@ Movavi Screen Recorder 10 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F88814AA0CB5EEB534A4495A3B9D51B163EED4C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263380   (287821) от 19.11.2018
-
-Mach Desktop 3 v3.0.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если Вам наскучила статичная картинка на рабочем столе, то Mach Desktop поможет нарядить десктоп с помощью встроенных видеообоев, QuickTime-роликов и даже Веб-страниц. Mach Desktop предлагает двадцать отличных видеообоев Quartz Compositions и семь QuickTime-видеороликов для рабочего стола. Множество настроек позволяют задать в качестве фона предустановленную заставку, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.11.2018Разработчик: Mach SoftwareПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8645F235837953F22E16A2188A08930B3F89076D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263459   (287813) от 19.11.2018
-
-App Cleaner & Uninstaller Pro 6.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Просмотр установленных приложений и удалить пакет файлов для полного удаления.
-App Cleaner - Лучшее приложение для удаления файлов приложения службы на Mac OS X и деинсталляции приложений *.
-
-* Некоторые приложения не могут быть удалены, поскольку они требуют прав администратора. В этом случае, переключиться на Finder и удалите файл приложения в обычном порядке.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: NektonyПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E34E0DE4F6B6BB4634439235B5141F47AA26F2FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

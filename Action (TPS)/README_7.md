@@ -1,3 +1,133 @@
+###  Публикация: 972700   (981357) от 06.01.2016
+
+Lost Planet 3 (2013) [Ru/Multi] (1.0.10246/dlc) Repack =nemos=
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение фантастического экшена Lost Planet раскрывает новые ужасающие подробности о пресловутой планете E.D.N. III и истории ее колонизации людьми. Экстрим, опасности и острые ощущения? В три раза больше, чем раньше! Главный герой Lost Planet 3 - пилот Джим, покинувший Землю, чтобы выполнить весьма непростой и рискованный, но очень выгодный контракт с корпорацией (   Читать дальше...   )Тип издания: RepackРазработчик: Spark UnlimitedЖанр: Action (Shooter), 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DEB7F539B9DF071B8F37121017ADDC0FA5D2EDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 614549   (980869) от 05.02.2013
+
+Ghostbusters: The Video Game [Ru/En] (RePack) 2009 l R.G. Games
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980869.jpg" />
+</div>
+
+
+###  Подробнее
+
+За основу Ghostbusters: The Videogame была взята именно оригинальная лента двадцатилетней выдержки, поэтому поклонники классики и любители поностальгировать наверняка останутся довольны. Не в последнюю очередь благодаря тому, что сюжет игры создается сценаристами фильма - Дэном Эйкройдом и Гарольдом Рэмисом, а Уильям Атертон (William Atherton), Брайан Дойл-Мюррэй (Brian Doyle Murray) и Энни Поттс (Annie Potts) подарят игровым персонажам свои голоса. Что до геймплея, то вам предстоит при помощи уникального оружия и приспособлений охотиться на привидений в славном городе Нью-Йорке.   (   Читать дальше...   )Тип издания: RePackРазработчик: Terminal RealityЖанр: Action / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5D0415390015F750F2084A3E57B89A757484EE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 614379   (980432) от 05.02.2013
+
+Dead Space 3 (2013) [Ru/Multi] (1.0) 2013 License RELOADED
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980432.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Dead Space 3 Айзек Кларк и не знающий жалости солдат Джон Карвер отправятся далеко в космос, чтобы найти источник нашествия некроморфов. Совершив аварийную посадку на заснеженной планете, Айзек вынужден преодолевать суровые условия окружающей среды в поисках ресурсов и деталей для оружия. Чтобы выжить, придется задействовать все свои инженерные навыки. На холодной планете сокрыт ответ - как покончить с некроморфами, но для этого придется противостоять лавинам, карабкаться по обледеневшим скалам и адаптироваться к чужому миру. Столкнувшись со свирепыми эволюционировавшими тварями, Айзек может объединить усилия, чтобы выжить самому и спасти человечество от апокалипсиса. (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Visceral GamesЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: Английский, Немецкий, Итальянский, Испанский, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Итальянский, Испанский, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Итальянский, Испанский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3AA74266BC35990277C5D0CC8F8638F007DF1E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973487   (979881) от 08.01.2016
+
+Evil Dead: Regeneration (2005) [Ru/En] (1.0) Repack R.G. Revenants
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эксперименты безумного доктора пробудили древнее, но вместе с тем такое знакомое Зло, которое немедленно начало распространяться по округе, уничтожая и извращая все живое на своем пути. Настало время старине Эшу опять спасать мир! На этот раз герою потребуется все его мужество, удача и умение обращаться с оружием, чтобы в очередной раз остановить Зло, но теперь у (   Читать дальше...   )Тип издания: RepackРазработчик: Cranky Pants GamesЖанр: Action, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7C6EA121D12E46B0625129D87356534C09753D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973350   (979786) от 08.01.2016
+
+Lost Planet 2 (2010) [Ru/En] (1.1) Repack =nemos=
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая часть знаменитого футурологического экшена, действие которой разворачивается спустя двенадцать лет после событий, происходивших в оригинальной игре.В результате деятельности людей планета E.D.N. III, где некогда царила вечная мерзлота, изменилась до неузнаваемости: снег и лед уступили место буйным тропическим джунглям и жарким бесплодным пустыням.Тип издания: RepackРазработчик: Capcom EntertainmentЖанр: Action (Shooter), 3D, 1st Person, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B25A254A345E8B11F53BCA40E3C65CC801A02FBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973705   (978651) от 09.01.2016
 
 Zombie Army Trilogy (2015) [Ru/En] (1.8.20.01) Repack R.G. Catalyst
@@ -6,7 +136,7 @@ Zombie Army Trilogy (2015) [Ru/En] (1.8.20.01) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978651.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Onimusha 3: Demon Siege [Ru/En/Multi6] (Repack/1.1.0.0) 2004 | R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978290.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Effie (2020) [Multi] (1.0) License HOODLUM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977338.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Devil's Hunt (2019) [Ru/Multi] (1.05) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976167.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Dead Space 3 (2013) [Ru/En] (1.0.0.1/8dlc) Repack R.G. Games [Limited Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975705.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Outbreak (2017) [En] (1.18.0/dlc) License PLAZA [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974012.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Slaughter 3: The Rebels (2019) [Ru/Multi] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971455.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Scarface: The World is Yours (2006) [En/Ru] (1.0) Repack R.G. Games
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971122.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Evil Dead: Hail to the King (2001) [Ru/En] (1.0.0.0) Repack R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970293.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Tom Clancy's Ghost Recon: Future Soldier [Ru/En/Multi12) [LossLess RePack/1.7/2 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969085.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ Stranglehold Collector's Edition / Stranglehold. Коллекционное из
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968144.jpg" />
 </div>
 
 
@@ -296,7 +426,7 @@ Orcs Must Die! Dilogy / Дилогия. Бей орков! [Ru/En] (RePack) 2011
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965941.jpg" />
 </div>
 
 
@@ -324,7 +454,7 @@ Alan Wake + Alan Wake's American Nightmare [Ru/En] (Repack) 2012 | R.G. Revenant
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964915.jpg" />
 </div>
 
 
@@ -352,7 +482,7 @@ Dark Sector (2009) [Ru] (1.01/fix-vid) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964225.jpg" />
 </div>
 
 
@@ -378,7 +508,7 @@ Devil May Cry 5 (2019) [Ru/Multi] (1.0.3853173/dlc) SteamRip =nemos= [Deluxe Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963934.jpg" />
 </div>
 
 
@@ -404,7 +534,7 @@ Strange Brigade (2018) [Ru/En] (1.47.22.14/dlc) SteamRip =nemos= [Deluxe Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963892.jpg" />
 </div>
 
 
@@ -430,7 +560,7 @@ Red Faction: Armageddon (2011) [Ru/Multi] (1.01/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962815.jpg" />
 </div>
 
 
@@ -456,7 +586,7 @@ Planet Nomads (2019) [Ru/Multi] (1.0.6.3) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962802.jpg" />
 </div>
 
 
@@ -482,7 +612,7 @@ Orcs Must Die: Game of The Year Edition [Ru/En/Multi9] (L) 2011 | PROPHET
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961087.jpg" />
 </div>
 
 
@@ -509,7 +639,7 @@ Terminator Salvation The Video Game (2009) [Ru] (1.0) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960612.jpg" />
 </div>
 
 
@@ -535,7 +665,7 @@ Strange Brigade (2018) [Ru/Multi] (1.47.22.14/dlc) Repack Other s [Deluxe Editio
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957769.jpg" />
 </div>
 
 
@@ -546,143 +676,6 @@ Strange Brigade (2018) [Ru/Multi] (1.47.22.14/dlc) Repack Other s [Deluxe Editio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05EC2F73A4967AC11C201672D0771D963418D73B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977807   (956801) от 28.01.2016
-
-Resident Evil 0 Remaster / Biohazard 0 HD Remaster (2016) [Ru/Multi] (1.0/dlc) SteamRip MarkusEVO (R.G. Games)
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Resident Evil  рассказывает всю правду о происшествии в особняке, породившем все последующие события серии Resident Evil. В обновленной версии сохранены сюжет и игровой процесс оригинальной игры, дополненные потрясающей HD-графикой, звуком в формате 5.1, возможностью выбора улучшенных элементов управления и поддержкой широкоформатных телевизоров. Приготовьтесь раскрыть (   Читать дальше...   )Тип издания: SteamRipРазработчик: CapcomЖанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Японский и другиеЯзык интерфейса: Русский, Английский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AF7967D3863498BAC033BE2796909AD49616C3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088742   (954916) от 01.01.2017
-
-Crusaders of Might and Magic / Крестоносцы меча и магии (1999) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легионы созданий Ада пронеслись по земле, сея ужас и смерть. Однажды они ворвались и в твою деревню, сожгли и убили всех её жителей, в том числе и твою семью. Пробил час отмщения. Ты долго учился, чтобы мечом и магией прорубить дорогу к победе. Повелитель Тьмы выставит против тебя орду ужасных отвратительных тварей. Только быстрота реакции и неутолимая жажда мщения (   Читать дальше...   )Тип издания: LicenseРазработчик: The 3DO CompanyЖанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30ABC286BB7E816990E035CEBBC9914549BC4FCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088803   (954803) от 01.01.2017
-
-Spec Ops: The Line (2012) [Ru/Multi] (1.0.6890.0) License PLAZA
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Необычный кинематографичный шутер от третьего лица, который заставит вас вступить в противостояние не только с реальными противниками, но даже с собственными принципами. Приготовьтесь оказаться в мире, где нет места понятию «нравственность» и на каждом шагу приходится выбирать — кому жить, а кому умереть. Spec Ops: The Line сочетает увлекательную сюжетную кампанию (   Читать дальше...   )Тип издания: LicenseРазработчик: Yager DevelopmentЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1806453F485A2EA45EDD08A2B362714259068592
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 623569   (954711) от 26.02.2013
-
-Blades of Time / Клинки Времени [Ru] (RePack/u5) 2012 | a1chem1st
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитая блондинка — героиня «Ониблэйд» — возвращается!
-
-Аюми — бесстрашная охотница за сокровищами. Она великолепно вооружена и необычайно прекрасна. В поисках ценных трофеев девушка отправляется на таинственный и, конечно же, полный опасностей остров. Как выяснилось, это место богато не только сокровищами — оно буквально пропитано гнетущей магией Хаоса. А очень скоро Аюми поймет, что остров скрывает множество древних тайн и может подарить немало полезных навыков и способностей.
-
-Используя все, что подвернется под руку, девушка должна найти способ расправиться с целой армией кровожадных злодеев, избежать множества хитроумных смертельных ловушек и вырваться из цепких объятий мистического острова.
-
-Колоритные персонажи, сногсшибательные визуальные спецэффекты, горы сокровищ, огромное разнообразие боевых умений — Blades of Time оставит незабываемые впечатления не только у начинающих геймеров, но и у самых взыскательных поклонников приключенческих экшенов.
-(   Читать дальше...   )Тип издания: RePackЖанр: Action (Slasher) / 3D / 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6E67B249FD93F1AFFC56783D515F96B32A52DB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 623789   (954695) от 26.02.2013
-
-Brutal Legend [En/Multi5] (L) 2013 | RELOADED
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brutal Legend - это приключенческий экшн объединяющий в себе интуитивную боевую систему и свободу открытого мира. Происходящие здесь события - это дикий коктейль из 'Властелина Колец' и 'Spinal Tap' с головокружительными погонями, где полно вымышленных рок-групп, а демоны намерены поработить человечество и хеви-метал. Восходящая звезда комедии, актёр и музыкант Джек Блек в роли безумного фаната Эдди Ригза, а также эпизоды с участием лидеров известных метал групп. Это безумное погружение в пучину адского зверя не пропустят как геймеры, так и металлисты.(   Читать дальше...   )Тип издания: ЛицензияЖанр: Action / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский / Multi5Язык интерфейса: Английский / Multi5
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3A5288D51DA266CF3DB9653494B2267E552110B
 ```
 
 https://mybot314.ru/tekegram_catalog/

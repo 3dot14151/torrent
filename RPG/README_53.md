@@ -1,3 +1,107 @@
+###  Публикация: 1714335   (58489) от 26.04.2024
+
+Sons of Valhalla (2024) [Ru/Multi] (1.0.21/dlc) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sons of Valhalla - приключенческий сайд-скроллер с элементами стратегии. Играть предстоит за героя по имени Торальд Олавсон. Он - сын ярла и могущественный викинг. Ему предстоит отправиться на завоевание Англии. Параллельно он преследует личную цель - спасти возлюбленную. Игровой процесс опирается на исторические события. Некогда викинги совершали набеги на христианскую (   Читать дальше...   )Тип издания: LicenseРазработчик: Pixel ChestЖанр: Экшены, Ролевые игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E052A47EB3FC9EFE97ADC3B43E8CC7BE47EB64C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718726   (58452) от 26.04.2024
+
+Royal Order (2024) [En] (1.0) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Royal Order - это вселенная, пропитанная интригами, вероломством и угрозой гибели. В зачарованном роду королевств игрокам предстоит распутать запутанный клубок альянсов и вражды, встретившись лицом к лицу с опасностью, надвигающейся от Свалов, зловещих морских разбойников, держащих в страхе континент Игрит. Тройка стран испрашивает поддержки у всемогущего Высшего (   Читать дальше...   )Тип издания: SceneРазработчик: Nifty VisualsЖанр: Ролевые игры, Симуляторы, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E404C31787568E0935C5FCD6549AE3E10D24E140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719121   (58272) от 28.04.2024
+
+Sand Land (2024) [Multi] (1.0.3/dlc) Scene FAiRLIGHT [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Окунитесь в пустынный мир, где и люди, и демоны страдают от острой нехватки воды, - SAND LAND. Познакомьтесь с дьявольским принцем Вельзевулом, его сопровождающим Вором и бесстрашным шерифом Рао и отправляйтесь вслед за командой в необычное приключение на поиски легендарного источника, спрятанного в пустыне. Конец - это только начало, ведь за пределами этой засушливой (   Читать дальше...   )Тип издания: SceneРазработчик: ILCA, Inc.Жанр: Экшены, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0AD49D21378D05C98657A3F2F759BC88326A233
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719123   (58242) от 28.04.2024
+
+SaGa Emerald Beyond (2024) [Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58242.jpg" />
+</div>
+
+
+###  Подробнее
+
+SaGa Emerald Beyond - это новейшая отдельная игра в серии SaGa. Объединяя все лучшие элементы этой популярной серии, она предлагает каждому игроку собственное уникальное приключение. Используйте фирменную систему блеска и серии приемов в захватывающих сражениях. Встречайтесь с разнообразными персонажами, среди которых есть монстры, роботы и вампиры. Творите свою (   Читать дальше...   )Тип издания: RepackРазработчик: Square EnixЖанр: RPG, Turn-Based, 3DЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3379A6070A9F8E3ABC33D7C6A277DDC612EF875
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719369   (58221) от 29.04.2024
 
 Fallout 4 (2015) [Ru/Multi] (1.10.980/dlc) Scene Rune [Game of the Year Edition]
@@ -6,7 +110,7 @@ Fallout 4 (2015) [Ru/Multi] (1.10.980/dlc) Scene Rune [Game of the Year Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58221.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Fallout 4 (2015) [Ru/Multi] (1.10.980/dlc) Repack FitGirl [Game of the Year Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58211.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Sand Land (2024) [Multi] (1.0.3/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58192.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ The Fall of the Dungeon Guardians (2015) [Ru/Multi] (1.0k) License GOG [Enhanced
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58171.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ King Arthur: Legion IX (2024) [Ru/Multi] (1.0.0) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57065.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ the Dwarf (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57043.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ The Legend of Heroes: Trails of Cold Steel IV (2021) [Multi] (1.2.1/dlc) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56731.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ King Arthur: Legion IX (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56615.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Bloody Heaven 2 (2024) [Multi] (0.04) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56597.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Class of Heroes 2G: Remaster Edition (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56472.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56223.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Maid of the Dead (2024) [Multi] (1.0.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56076.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Athenian Rhapsody (2024) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55955.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Gedonia (2022) [Ru/En] (1.48b) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55729.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Venture to the Vile (2024) [Ru/Multi] (1.0.1) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55639.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Venture to the Vile (2024) [Ru/Multi] (1.0.1) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55631.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Kingdom of Fallen: The Last Stand / Королевство Павших: Пос�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55574.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Crown Wars: The Black Prince (2024) [Ru/Multi] (1.0/dlc) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55572.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Bloody Heaven 2 (2024) [Multi] (0.043) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55543.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ ASTLIBRA Revision (2022) [Multi] (1.3.7/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55529.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ CONSORTIUM (2014) [Ru] (1.26.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55522.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Crown Wars: The Black Prince (2024) [Ru/Multi] (1.0) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55463.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Crown Wars: The Black Prince - пошаговая стратегия, дейст
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F9CE0A4BACA551B186F7F44645F71DCED2B8EF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725913   (55334) от 26.05.2024
-
-Venture to the Vile (2024) [Ru/Multi] (1.0.1) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Venture to the Vile переносит геймеров в загадочный городок Рейнибрук, где теперь царит зловещее влияние, известное только как "Vile". Эта теневая сущность исказила некогда знакомые окрестности, превратив их в коварные ландшафты, полные опасностей и тайн. По мере того как юзеры будут ориентироваться в этой преобразованной среде, они столкнутся с целым рядом (   Читать дальше...   )Тип издания: RepackРазработчик: Studio Cut to BitsЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Японский, Испанский и другиеЯзык интерфейса: Русский, Английский, Японский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C294A0F87386BA198F4652E92621F9AC1362AD13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726292   (55149) от 28.05.2024
-
-C.A.R.D.S. RPG: The Misty Battlefield (2024) [Multi] (1.0/dlc) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55149.jpg" />
-</div>
-
-
-###  Подробнее
-
-C.A.R.D.S. RPG: The Misty Battlefield объединяет в себе карточный баттлер и механику SRPG, предлагая новый подход к тактическому геймплею. Игроки следуют за Велом и батальоном Клаузевица, сражаясь с Фахфтанией и бригадой Хеллмута. Здесь представлено более 100 уникальных карточек, каждую из которых можно собирать, создавая мощные комплекты, необходимые для победы (   Читать дальше...   )Тип издания: SceneРазработчик: ACQUIRE Corp.Жанр: Ролевые игры, СтратегииЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Японский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B92CD4C34493C59136C44FF2FB415565C216110F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726338   (55136) от 28.05.2024
-
-Little-Known Galaxy (2024) [En] (1.0) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Little-Known Galaxy - приключенческая RPG с элементами симулятора, где вы отправитесь исследовать отдаленные уголки необъятного космоса. Космический Альянс нуждается в вас, стажер, поэтому самое время взять под свой контроль космический корабль и отправиться в путешествие. Вместе с командой таких же безбашенных искателей приключений вам предстоит изучить отдаленные (   Читать дальше...   )Тип издания: SceneРазработчик: Carbon & KayЖанр: Приключенческие игры, Казуальные игры, Ролевые игры, СимуляторыЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F2ADB7E1EA13AE7B269F9EE6F9054A6F6188ACA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726329   (55121) от 28.05.2024
-
-CyberHoney (2024) [Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55121.jpg" />
-</div>
-
-
-###  Подробнее
-
-CyberHoney - карточный рогалик, где вы окажетесь в удивительном, но при этом крайне опасном мире. Находясь в самом эпицентре высокотехнологичной войны, вам потребуется дать отпор многочисленным противникам, поэтому самое время прихватить с собой оружие и ступить на поле боя. Сами разработчики называют свой проект военными шахматами, и в этом есть толика правды.Тип издания: RepackРазработчик: aliothgameЖанр: Казуальные игры, Ролевые игры, СтратегииЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, Корейский, КитайскийЯзык интерфейса: Английский, Японский, Корейский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A67A92D5E9E5D7FA3C24613F9B63238F889AE41A
 ```
 
 https://mybot314.ru/tekegram_catalog/

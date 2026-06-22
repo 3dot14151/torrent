@@ -1,3 +1,185 @@
+###  Публикация: 1210767   (778485) от 04.03.2018
+
+NGW: Год диких животных: Сибирь / Siberia's wild year (2017) HDTVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Только наиболее сильные и выносливые животные способны выжить в неимоверно сложных климатических условиях Сибири.Производство: Новая Зеландия, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Дэвид ХэйПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1FA045C2CDDCEB0C9782F24C72050A644C4C145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210891   (778083) от 05.03.2018
+
+BBC. Сокровища Инда / Treasures of the Indus (2014) HDTV  [H.264/1080i-LQ] (Серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед нами могучая река Инд, давшая название целому субконтиненту. По этой реке мы отправимся на 5000 лет назад в древнюю Индию, чтобы найти скрытые сокровища. На берегах Инда развивались древние цивилизации. Мы откроем утраченную буддийскую культуру северного Пакистана, насладимся расцветом архитектуры империи великих моголов и причудливыми храмами южной Индии. (   Читать дальше...   )Производство: Великобритания, Tern Television Production Ltd for BBCЖанр: Документальный, путешествия, история, архитектураРежиссер: Хью Томпсон, Спайк ГейлинджерПеревод: Двуголосый закадровый, профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 3 х ~ 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7F6A07CC962962C6E922369776D0E48F3C46A38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107255   (778065) от 05.03.2018
+
+Nat Geo Wild: Фантастические существа Мадагаскара / Madagaskar's: Fantastic Creatures (2016) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778065.jpg" />
+</div>
+
+
+###  Подробнее
+
+После отсоединения от Африки 160 млн. лет назад животные в поисках спасения попали на Мадагаскар, где креативности эволюции не было предела.Телекомпания: США, Off the FenceЖанр: Документальный, научно-популярный, фауна, флораРежиссер: Колин КоллесПеревод: Одноголосый закадровый, профессиональный,  переведено и озвучено на студии Велес, текст читает Максим СергеевПродолжительность: 00:43:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A95141DA50B5BBDEA0465D6E78FB858A5663A21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209998   (777433) от 07.03.2018
+
+Discovery. Ледяное золото / Ice Cold Gold (2014) HDTVRip [H.264/1080p-LQ] (сезон 2, серии 9 из 9)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Льды Гренландии - завораживающе красивы и исключительно опасны! Но кто знает, может быть за ними скрываются золотые горы?Производство: США, Moxie Pictures, Lone Wolf Documentary GroupЖанр: Реальное ТВПеревод: Одноголосый закадровый, профессиональныйПродолжительность: каждый эпизод ~ 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4B925211BDAE463F92B3E696D105DF04C122358
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211617   (777113) от 08.03.2018
+
+BBC: Венера без прикрас / Venus Uncovered: Ancient Goddess of Love (2017) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессор Беттани Хьюджес отправляется в Средиземноморье, чтобы узнать правду о Венере. Как бессмертная богиня выжила в XXI веке и что ее история рассказывает о нас, людях?Производство: Великобритания, SandStone Global Productions LtdЖанр: Документальный, история, искусствоРежиссер: Мэри Крэйнич, Джек МакиннесПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: АнглийскиеПродолжительность: 00:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D72EF6A1F7472CEB72371959AE71844BE86D6440
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002205   (777088) от 05.05.2016
+
+Discovery: Курс выживания с Беаром Гриллсом / Bear Grylls: Mission Survive (2015) HDTVRip (сезон 1, серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Участникам проекта предстоит провести 12 дней в дикой природе, где они будут добывать еду и воду, искать убежище и защищаться от диких зверей. Игра идет на выбывание: в финале должен остаться только один, который и будет объявлен победителем. Но прежде чем начать обратный отсчет, Беар Гриллс учит звёзд основным правилам, которые помогут им продержаться как можно (   Читать дальше...   )Телекомпания: Великобритания, Shine TV, Bear Grylls Ventures. Discovery ChannelЖанр: Документальный, реалити-шоу, выживание.Перевод: Двуголосый закадровый, профессиональныйПродолжительность: 1 x ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6562D9CD972B45250D388AAF34EFC1BB9DF9479F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205008   (777042) от 08.03.2018
+
+Частная жизнь коронованных особ / Private Lives of the Monarchs (2016) DVB [H.264/720p-LQ] (Серии 5 из 5)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Их знаковые образы, захваченные в знаменитых портретах и ​​картинах, являются частью самой ткани национальной культуры. В тщательно организованных позах цари и королевы истории по-прежнему смотрят на нас сверху вниз и являются мощными символами прошлого века. Но что лежит за помпой и церемонией, коронами и судами? У каждого из них были те же недостатки, (   Читать дальше...   )Производство: Великобритания, Like a Shot Entertainment, UKTVЖанр: Документальный, история, исследованияРежиссер: Брюс БерджессПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FBBFBB5EC1CEF0DD9445A085472801C9D627C2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209999   (776989) от 08.03.2018
 
 Discovery. Секреты подземелья / Secrets of the Underground (2017) HDTVRip [H.264/1080p-LQ] (сезон 2, серия 1-2 из 8) (обновляемая)
@@ -6,7 +188,7 @@ Discovery. Секреты подземелья / Secrets of the Underground (201
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776989.jpg" />
 </div>
 
 
@@ -32,7 +214,7 @@ NG: Инстинкт выживания. Моря-убийцы / Primal survivor
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776716.jpg" />
 </div>
 
 
@@ -58,7 +240,7 @@ NG: Инстинкт выживания / Primal Survivor (2017) WEBRip (Сез�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776343.jpg" />
 </div>
 
 
@@ -84,7 +266,7 @@ NG: Инстинкт выживания / Primal Survivor (2015) SATRip (Сез�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776339.jpg" />
 </div>
 
 
@@ -110,7 +292,7 @@ NG: Тайны корабля-сокровищницы династии Тан /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775733.jpg" />
 </div>
 
 
@@ -136,7 +318,7 @@ NGW: Спасение слонёнка / Baby Elephant Rescue (2018) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775088.jpg" />
 </div>
 
 
@@ -162,7 +344,7 @@ NG: Как устроен интернет. 50 лет онлайн / Inside the 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774937.jpg" />
 </div>
 
 
@@ -188,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774935.jpg" />
 </div>
 
 
@@ -214,7 +396,7 @@ NGW: Рожденные в Африке. Опасная игровая площ�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774233.jpg" />
 </div>
 
 
@@ -241,7 +423,7 @@ NG: C точки зрения науки: Вымирание человечес�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774226.jpg" />
 </div>
 
 
@@ -267,7 +449,7 @@ History Channel: Автомобильная нация / Car Nation (2017) HDTVR
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774212.jpg" />
 </div>
 
 
@@ -293,7 +475,7 @@ NGW: Дикая Корея. За границей / Wild Korea. Voice of nature 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774150.jpg" />
 </div>
 
 
@@ -319,7 +501,7 @@ Animal Planet: Знакомство с пингвинами / Meet the Penguins 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774146.jpg" />
 </div>
 
 
@@ -345,7 +527,7 @@ Discovery: Мир стволовых клеток со Стивеном Хоки
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774075.jpg" />
 </div>
 
 
@@ -372,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774030.jpg" />
 </div>
 
 
@@ -398,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773017.jpg" />
 </div>
 
 
@@ -424,7 +606,7 @@ NG: Как устроен интернет. 50 лет онлайн / Inside the 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772812.jpg" />
 </div>
 
 
@@ -450,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772598.jpg" />
 </div>
 
 
@@ -476,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772517.jpg" />
 </div>
 
 
@@ -487,189 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D7C6A38B0909D49A7957969B009AAF33FA4F839
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278357   (771722) от 25.01.2019
-
-ВВС. Дети королевы Виктории / Queen Victoria's Children (2013) HDTVRip [H.264/720p-LQ] (1-3 серия из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771722.jpg" />
-</div>
-
-
-###  Подробнее
-
-королевы Викторианской и принца Альберта, было девять детей, которые, несмотря на их совершенно разные характеры, оставались дружной семьей. Этот сериал рассказывает историю их жизни с точки зрения влияния на мир, их собственных личных достижений и их роли в воспитании детей.Телекомпания: Великобритания, Blakeway Productions, British Broadcasting Corporation (BBC)Жанр: Документальный, история, биографияПеревод: Документальный дубляж студии «SDI Media» (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 3 х ~ 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFB7F09CE7426DBEC36E69C5491E6A9B3DCBE9BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278457   (771717) от 25.01.2019
-
-Animal Planet: Дом для рептилий. Приключения цепкохвостого сцинка / Scaled (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рептилии конкурируют с кошками и собаками за звание самых популярных домашних питомцев. Грэг Уэст и его команда, состоящая из лучших зоологов и искусных мастеров, предлагают свои уникальные услуги заводчикам и владельцам рептилий, которые мечтают об оригинальном жилище для своих чешуйчатых любимцев. Яркий дизайн и знание особенностей этих животных позволяет делать (   Читать дальше...   )Производство: США, Animal PlanetЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E15C7B76F3FCE6175D3A427ACAB393FBA77687F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 715691   (771166) от 13.05.2016
-
-Discovery. Шахты на Луне / Mining the Moon (2008) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год 2030... На Луну высаживается команда, а на Земле нарастает энергетический и экономический кризис, угрожающий выйти из-под контроля. Задача этой команды - испытание нового комбайна, созданного для добычи из лунной почвы драгоценного природного ресурса и доставки его на Землю. Если комбайн сможет собрать достаточное количество этого редкого элемента, он сможет (   Читать дальше...   )Жанр: Документальный, научная фантастикаПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:43:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39DE8BAC71955EE4132B273FDD7A9D911E4DAEED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 717520   (771148) от 13.05.2016
-
-Тайны древности: Потерянные пирамиды Китая / Ancient Secrets: China's Lost Pyramids (2010) HDTVRip [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_771148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Невероятная власть. Неописуемая роскошь. Удивительнейшие мумии. Огромные богатства.
-Это загробный мир в древнекитайском стиле. Познакомьтесь с тайным, богатым, и трагическим миром китайских усыпальниц - рукотворные горы, которые прославляли власть императоров и повергали династии на колени. От гигантского погребального комплекса первого императора Китая до роскошных (   Читать дальше...   )Жанр: Документальный, познавательный, историяПеревод: Одноголосый закадровый (профессиональный, Студия АРК•ТВ)Продолжительность: 00:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5B634F2BE11EE75FD5614B919B1D9CB10FF1C55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 724436   (771113) от 13.05.2016
-
-NG. Убийство Кеннеди / Killing Kennedy (2013) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта драма рассказывает об уникальных, но в то же время взаимосвязанных путях Ли Харви Освальда и Джона Ф. Кеннеди, двух мужчин, чьи жизни были наполнены смыслом и предназначением. Президентские победы Кеннеди и его промахи наряду с увлечением Освальда марксизмом и его последующим отказом от Америки завершится в Дили Плаза 22 ноября 1963 года. Там, где заканчивается (   Читать дальше...   )Жанр: Документальный, историческая реконструкция, расследованиеПеревод: Одноголосый закадровый (профессиональный, студия АРК-ТВ, И.Тарадайкин)Продолжительность: 01:27:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F22AC24B11D2C3037BFC4C6D8B381A0FDA6F7E1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740911   (771011) от 13.05.2016
-
-NG. Чудо-юдо динозавры / Bizarre Dinosaurs / Weirdest Dinosaurs (2008) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>Доисторический мир
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Их продолжают находить в самых бесплодных землях мира. Одного необычнее другого. Динозавры... Словно собранные из всевозможных, самых необычных частей тела. Непостижимые, ошеломляющие, изящные, уродливые и совершенно удивительные. Это кажется нереальным - череп совсем как реквизит из фантастического фильма... Кто был самым необычным существом в таинственном затерянном (   Читать дальше...   )Производство: США, BBC, National Geographic, DiscoveryЖанр: Документальный, научно-популярный, природаРежиссер: Дженни Кубо /Перевод: Одноголосый закадровый (профессиональный)Продолжительность: 00:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:283C305E75F8CFA4749F614427DE9A02DB0E3DD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 733359   (770953) от 13.05.2016
-
-PBS. Восстание дронов / Rise of the Drones (2013) WEB-DLRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>PBS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Технические трюки из научно-фантастических фильмов стали реальностью, как только появились Дроны. Некоторые из них по размерам схожи с истребителями, другие — с птичками и насекомыми. Разработки этих новейших летательных аппаратов обычно держаться в секрете, но съемочной группе научного телепроекта NOVA (канал PBS) удалось поговорить с инженерами, которые создают (   Читать дальше...   )Жанр: Документальный, научно-популярный, техника, авиацияПеревод: Одноголосый закадровый (профессиональный, студия "Selena International")Продолжительность: 00:52:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:456A5537D3FA74DEC5D8D1D3B69F80DB103E1044
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1396690   (407839) от 04.10.2020
+
+Gibiate | Джибиэйт [2020, TV, 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407839.jpg" />
+</div>
+
+
+###  Подробнее
+
+2030 год. Люди в Японии обращаются в чудовище, чей облик зависит от пола, возраста и расы. Таинственную болезнь прозвали «Джибия», потому что видов монстров так же много, как и диких животных. В опустошённую болезнью Японию переносятся самурай и ниндзя из ранних годов эпохи Эдо. Вместе с врачом они отправляются на поиски лекарства от вируса. Впереди их подстерегают (   Читать дальше...   )Производство: Япония, Lunch BoxЖанр: приключения, фэнтези, ужасы, самурайский боевик, боевые искусстваРежиссер: Комино МасахикоПеревод: struggle & Asedael (Sovetromantica)Язык озвучки: ЯпонскийПродолжительность: 12 эпизодов по ~25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1425B8F795872D30002A5EC6E8275D50344C688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375589   (407748) от 04.10.2020
 
 Fugou Keiji Balance: Unlimited | The Millionaire Detective - Balance: Unlimited | Богатый детектив. Баланс неограничен [2020, TV, 11 эп.] WEBRip 720p raw
@@ -6,7 +32,7 @@ Fugou Keiji Balance: Unlimited | The Millionaire Detective - Balance: Unlimited 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407748.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Ahiru no Sora | Команда мечты [2019, TV, 50 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407743.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Angolmois: Genkou Kassenki | Анголмуа [2018, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407621.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Kakuriyo no Yadomeshi | Повар небесной гостиницы [ТВ-1] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407616.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Akkun to Kanojo | Аккун и его девушка [2018, TV, 25] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407583.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Nobunaga no Shinobi / Ниндзя Нобунаги [2016, TV, 78 + SP] WEBRip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407581.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Bang Dream! 2nd Season | Ура мечте! (ТВ-2) [2019, TV, 13 эп.] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407364.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Tejina Senpai | Magical Sempai | Фокусница-старшеклассниц
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407283.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Sounan Desuka? | Are You Lost? | Бедствие ли это? [2019, TV, 12 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407276.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Nayuta | Наюта [1986, OVA] LDRip 460p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407174.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Uchuu no Kishi Tekkaman | Space Knight Tekkaman | Tekkaman: The Space Knight | �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407144.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Sei Juushi Bismarck | Saber Rider and the Star Sheriffs | Звёздный му�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407135.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Ore o Suki na no wa Omae Dake ka yo | Oresuki | Ты единственная, �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406727.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Kyoukai no Rinne-3 / Риннэ: Меж двух миров-3 [2017, TV, 25 из
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404783.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Isekai Shokudou | Restaurant to Another World | Кафе из другого м�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403868.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Ajin OVA | Полулюди OVA [2016, OVA, 3] DVDRip 576p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403808.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Kyoukai Senjou no Horizon II / Horizon in the Middle of Nowhere II / Гориз�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402739.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Fate/Kaleid Liner Prisma Illya / Судьба: Девочка-волшебниц
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402261.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ Abashiri Ikka / The Abashiri Family / Семейка Абасири [1991, OAV, 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_401895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_401895.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ Tenshi no 3P! | Angel's 3Piece! | Ангельское трио [2017, TV, 12] H
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401315.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ Gekijouban Kuroko no Baske: Last Game | Kuroko's basketbal: Last Game | Баск
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399305.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ Knight's & Magic / Рыцари и магия [2017, TV, 13 эп.] HDTV 720p Raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399213.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ Jikan no Shihaisha | Chronos Ruler | Повелитель хроноса [2017, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399166.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ Shingeki no Bahamut: Virgin Soul | Ярость Бахамута: Непороч
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399148.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ Teekyuu 9 | Теннис - 9 сезон [2017, TV, 12 из 12] WEBRip 720p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398387.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ Teekyuu 9 | Теннис - 9 сезон [2017, TV, 12 из 12] WEBRip 720p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B6A9AFDA65515B8FC612AD3D8B467BA5EEA4316
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153194   (398354) от 02.10.2017
-
-Hajimete no Gal / My First Girlfriend Is a Gal / Моя первая гяру [2017, TV, 10 эп.] WEB-DL 720p Raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398354.jpg" />
-</div>
-
-
-###  Подробнее
-
-В школе народ обычно делится на две категории. В первой - задроты и ботаники, а во второй народ попроще, без закидонов. Обычным ребятам, которые не испытывают никаких трудностей с общением, проще простого найти себе пару и как следует насладиться первой юношеской любовью. У задротов и ботаников с этим дело обстоит на порядок хуже, но ведь они такие же люди, а значит (   Читать дальше...   )Производство: NAZЖанр: комедия, этти, романтика, школа, сёненРежиссер: Фурукава ХироюкиСубтитры: РусскиеПродолжительность: 10 серий по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E81E58C6BAFECA304015E60B94FD8E471764316
 ```
 
 https://mybot314.ru/tekegram_catalog/

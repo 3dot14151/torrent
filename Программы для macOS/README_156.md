@@ -1,3 +1,109 @@
+###  Публикация: 1517624   (162350) от 16.12.2021
+
+Super Photo Upscaler 2.0.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Super Photo Upscaler, основанный на технологии масштабирования изображений AI, представляет собой средство улучшения изображения, которое интеллектуально увеличивает фотографии с низкого разрешения до высокого, сохраняя при этом чистые края без потери качества.
+Новейшая версия Super Photo Upscaler включает в себя Waifu2x «Deep Convolutional Neural Networks», которая (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.04.2021Разработчик: © 2002 - 2021, Effectmatrix Ltd. Co.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC8909BF6A3AD208C0E65EE61A0A2417F1351E3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517729   (162278) от 16.12.2021
+
+VideoProc Vlogger for Mac 1.2 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162278.jpg" />
+</div>
+
+
+###  Подробнее
+
+VideoProc Vlogger - это интуитивно понятное и функциональное программное обеспечение для редактирования видео для всех. Создавайте кинематографические видеоролики для повседневного творчества, особых моментов или праздников.Тип издания: macOS SoftwareРелиз состоялся: 06.12.2021Разработчик: © 2021 Digiarty Software, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E75F44016EE3EEB56B1BDCDBF31F73328F4EDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517750   (162187) от 16.12.2021
+
+Combo Cleaner Premium 1.3.7 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Combo Cleaner  самый простой способ очистки вашего Mac от нежелательных файлов, вирусов и вредоносных программ. Наш механизм защиты от вредоносных программ сертифицирован лабораториями OPSWAT. Combo Cleaner очистит ваш диск от нежелательных файлов и устранит вредоносное ПО (включая рекламное ПО и потенциально нежелательные приложения, вызывающие нежелательные объявления (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.10.2021Разработчик: © 2021 UAB RCS LTПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FC358A45FA2991D1C933038C8CBAEB565607506
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598675   (162143) от 20.12.2022
+
+VSDX Annotator for Mac 1.16.1 U2B [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162143.jpg" />
+</div>
+
+
+###  Подробнее
+
+VSDX Annotator — это инструмент, предназначенный для работы с рисунками MS Visio на Mac. Он предоставляет широкий спектр возможностей для аннотирования, а также позволяет обмениваться визуальными документами в многоплатформенной среде.
+Просмотр, редактирование и преобразование файлов Visio® на Mac. Средство просмотра Visio® визуализирует все содержимое чертежей с (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2022Разработчик: © 2022 NektonyПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B64162EE61CE06FB91D30D822AC3E807FB47E241
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433041   (162137) от 19.12.2020
 
 Kiwi for Gmail 2.0.40 [En]
@@ -6,7 +112,7 @@ Kiwi for Gmail 2.0.40 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162137.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ Entity Pro 1.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162131.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ VSD Viewer for Mac 6.16.1 U2B [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162068.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ Magnet 2.13.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162035.jpg" />
 </div>
 
 
@@ -113,7 +219,7 @@ PhoneRescue for Android 3.8.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162033.jpg" />
 </div>
 
 
@@ -139,7 +245,7 @@ Mac FoneTrans for iOS 9.0.60 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161836.jpg" />
 </div>
 
 
@@ -165,7 +271,7 @@ HitPaw Video Enhancer 1.1.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161819.jpg" />
 </div>
 
 
@@ -191,7 +297,7 @@ App Cleaner & Uninstaller Pro 8.0.4 U2B [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161637.jpg" />
 </div>
 
 
@@ -219,7 +325,7 @@ Tenorshare iCareFone for WhatsApp Transfer 2.5.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161562.jpg" />
 </div>
 
 
@@ -248,7 +354,7 @@ FabFilter All Plug-Ins v2021.12.09 [U2B] STANDALONE, VST, VST3, DPM, AU [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161531.jpg" />
 </div>
 
 
@@ -274,7 +380,7 @@ PDF Search 13.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161484.jpg" />
 </div>
 
 
@@ -300,7 +406,7 @@ Cardhop 2.2.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161483.jpg" />
 </div>
 
 
@@ -327,7 +433,7 @@ KeyTrails 1.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161467.jpg" />
 </div>
 
 
@@ -353,7 +459,7 @@ Rogue Amoeba Farrago 2.0.6 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161465.jpg" />
 </div>
 
 
@@ -379,7 +485,7 @@ Report Kit 1.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161462.jpg" />
 </div>
 
 
@@ -406,7 +512,7 @@ PatterNodes 3 v.3.2.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161461.jpg" />
 </div>
 
 
@@ -433,7 +539,7 @@ BackStory Wallpapers 2.3.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161457.jpg" />
 </div>
 
 
@@ -459,7 +565,7 @@ WidsMob HDR 3.20 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161450.jpg" />
 </div>
 
 
@@ -485,7 +591,7 @@ WidsMob Montage 2.26 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161416.jpg" />
 </div>
 
 
@@ -512,7 +618,7 @@ FrameMagic - Collage Maker Pro 3.6.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161398.jpg" />
 </div>
 
 
@@ -539,7 +645,7 @@ WidsMob ImageConvert - JPG/PNG 3.25 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161393.jpg" />
 </div>
 
 
@@ -565,7 +671,7 @@ WidsMob Panorama 4.28 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161388.jpg" />
 </div>
 
 
@@ -577,110 +683,6 @@ WidsMob Panorama - это профессиональная программа д
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6287EFC17F12072B74DE2DE78753BFF243514D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599048   (161381) от 21.12.2022
-
-Super PhotoCut Pro 2.8.7 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Super PhotoCut интерактивный инструмент для вырезки/отделения переднего плана объекта из фотографий. Собственной, лучший в своем классе алгоритм инструмент маскирования, мгновенно удалит сложные фоны и сделать их прозрачными всего лишь несколькими щелчками мыши. В отличие от существующего программного обеспечения для обработки изображений на рынке, Super PhotoCut (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2022Разработчик: © 2022 EffectMatrix Inc.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8976334DEBFC0CA59D1C080FFD0B853D1B711EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433174   (161325) от 20.12.2020
-
-Color Wheel 4.9 [Multi/Rus]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цифровой, абстрактный, классический - все типы цветовых кругов в одном приложении!Тип издания: macOS SoftwareРелиз состоялся: 18.12.2020Разработчик: Roman SevastyanovПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0296C3D558D2FDE5FA59BE3C8BF865E27BC4E32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598988   (161312) от 21.12.2022
-
-WidsMob Viewer Pro 2.19 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Есть ли способ просмотреть все изображения в одной папке на Mac? Как просмотреть несколько фотографий с быстрой скоростью? Как выбрать и экспортировать нужные фотографии? Для того чтобы иметь приятный опыт работы с фотографиями, WidsMob Viewer может быть решением, которое необходимо принять во внимание.Тип издания: macOS SoftwareРелиз состоялся: 21.12.2022Разработчик: © 2022 WidsMob Technology Co., LimitedПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Арабский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:033556A9359C3F3D81334BC4DCD1E81E8EF62020
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674527   (161279) от 05.11.2023
-
-DMG Canvas 4.0.7 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161279.jpg" />
-</div>
-
-
-###  Подробнее
-
-DMG Canvas создает образы дисков (.dmg). Процедура создания образа состоит из простого перетаскивания нужных файлов в окно приложения. В качестве фона можно использовать файл, созданный в графическом редакторе. Вы сразу видите результат, таким как он будет выглядеть в Finder. Для создания готового образа нажмите кнопку Build. Данная утилита также позволяет добавлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2023Разработчик: © 2006-2023 Araelium GroupПоддерживаемая ОС: OS X 11.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE399C8B9DDCFBDB9D9EE0FE3787E3DD50633CDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

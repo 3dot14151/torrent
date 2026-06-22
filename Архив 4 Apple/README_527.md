@@ -1,3 +1,55 @@
+###  Публикация: 1457417   (236206) от 26.03.2021
+
+System Toolkit 3.3.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236206.jpg" />
+</div>
+
+
+###  Подробнее
+
+System Toolkit - приложение «все-в-одном» для мониторинга информации и профилактики, разработанное для macOS.Тип издания: macOS SoftwareРелиз состоялся: 24.03.2021Разработчик: Sascha SimonПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий, Упрощенный Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5009F9A8AE13230300956CD5AB7A67542D9AFE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457671   (236200) от 26.03.2021
+
+ImageRanger Pro Edition 1.8.0.1723 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236200.jpg" />
+</div>
+
+
+###  Подробнее
+
+ImageRanger - программа позволит найти все нужные изображения в одном сеансе поиска, в нем же можно найти наборы данных внутри самой картинки к которым относятся как определение лица так координаты GPS.Тип издания: macOS SoftwareРелиз состоялся: 23.03.2021Разработчик: XtSense GmbHПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF7709863855E96BB96B1FC8EE2BB1F1F0C60D53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457679   (236194) от 26.03.2021
 
 RapidWeaver 8 v8.8.1 [En]
@@ -6,7 +58,7 @@ RapidWeaver 8 v8.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236194.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ MacCleanse 9.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236184.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Default Folder X 5.5.7  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236170.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ iShowU Instant (Advanced) 1.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236162.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236155.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ Exposure X7 v7.1.0.134 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236140.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Nevercenter CameraBag Pro 2021.00 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236137.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ AudFree Spotify Music Converter for Mac 2.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236131.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ Dark Mode for Safari 3.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236130.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ Graphic Inspector 2 v2.5.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236124.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ MacMagic 1.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236123.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ Dato 3.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236116.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ ExpanDrive 7 v7.7.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236106.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ PhotoSweeper X 4.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236102.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ Exposure Software Blow Up 3 v3.1.4.393 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236100.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ Bootstrap Studio 5.8.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236068.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ GroupsPro 5.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236057.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ Ghost Buster Pro 2.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236056.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ Color Wheel 6.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236053.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ TextMate 2 v2.0.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236050.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ AutoCrypt 2.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236049.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ DirEqual 3.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236036.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ QuickLens 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236031.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ Screen Wonders 1.8.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236020.jpg" />
 </div>
 
 
@@ -628,59 +680,6 @@ Screen Wonders 1.8.0 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D78A2D668DD1FCE6E012E416673AD85370D7A44D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511508   (236015) от 21.11.2021
-
-Exposure Software Snap Art 4 v4.1.3.386 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Snap Art 4 - этот плагин предназначен для превращения фотографий в картины и рисунки, нарисованные от руки различными стилями. Содержит большую библиотеку предварительных заготовок, которые дают возможность одним щелчком мыши создавать картины, написанные или нарисованные маслом, углем, акварелью, цветными карандашами, ручкой и чернилами, пастельными мелками, а также (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.11.2021Разработчик: © 2021 Exposure Software, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F389D4139819F07D47D5E343E7C5DC0E5508A66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640872   (236008) от 19.06.2023
-
-Cisdem PDF Converter OCR 8.0.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cisdem PDF Converter OCR- быстро и аккуратно конвертирует как нативные, так и отсканированные PDF файлы в редактируемые документы.
-Скажите Стоп перепечатыванию PDF документов со сложными макетами и графикой. Используйте Cisdem PDF Converter OCR для конвертирования PDF файлов в Microsoft Word (.docx), PowerPoint (PPTX);, EPUB, RTFD, TEXT, HTML, Keynote, Pages, изображения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.06.2023Разработчик: © 2023 Cisdem Inc.Поддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F8DD638450FF17418C7A4226618E09E1395789E
 ```
 
 https://mybot314.ru/tekegram_catalog/

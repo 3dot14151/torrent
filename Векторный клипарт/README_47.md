@@ -1,3 +1,29 @@
+###  Публикация: 1806929   (11394) от 15.07.2025
+
+Векторный клипарт - RULEBYART - Shift Abstract Vector Shapes [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shift — это коллекция из 15 абстрактных векторных фигур. Эти смещенные 3D-текстуры, напоминающие осколки, представляют собой уникальный набор изолированных графических элементов. Отлично подходит для проектов, требующих высокого разрешения.Формат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2557F0329CE3D2789F1E1A9D90A74D99EAFF717A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817008   (3882) от 07.09.2025
 
 Векторный клипарт - Creative Market -199 Futuristic Graphic Element - 6817411 [EPS, PNG]
@@ -6,7 +32,7 @@
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3882.jpg" />
 </div>
 
 

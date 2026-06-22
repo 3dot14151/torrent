@@ -1,3 +1,81 @@
+###  Публикация: 1858176   (1060136) от 09.03.2026
+
+Choice of Life: Samosbor (2025) [Ru/Multi] (Build 21269692) Repack seleZen
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарная серия Choice of Life возвращается в новом сеттинге! Серые бетонные стены ячейки, закрывать гермодверь при звуке сирены - всё это обыденность в Гигахрущёвке. Всё тут идёт своим чередом, пока блок не изолируют в поисках секретного объекта... Вы простой житель бесконечной Гигахрущёвки. Лучшее что вам светит, это семь смен за станком и миска пищконцентрата, (   Читать дальше...   )Тип издания: RepackРазработчик: Blazing Planet StudioЖанр: Приключенческие игры, Казуальные игры, Ролевые игры, СимуляторыЯзык субтитров: Русский, Английский, ТурецкийЯзык интерфейса: Русский, Английский, Турецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D678CC00A2E4A80926DD6E4771C5455F9438776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858007   (1059989) от 08.03.2026
+
+Onirism (2025) [Ru/Multi] (Build 2213289) Repack seleZen
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Присоединяйтесь к Кэрол в волшебном приключении, чтобы найти ее потерянную плюшевую игрушку Банбана. Используйте причудливые гаджеты и дикое оружие, отправляясь в захватывающее путешествие по фантастическим мирам, где вы будете сражаться с хитрыми и яркими противниками в захватывающих, напряженных боях!Тип издания: RepackРазработчик: Crimson TalesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D85F7B2A53CAF2744762A030085DDE616D485EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857997   (1059986) от 08.03.2026
+
+Subnautica (2018) [Ru/Multi] (83031) Repack dixen18
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Subnautica – это своеобразная и удивительная компьютерная игра, выполненная в инновационном жанре, который состоит из частей песочницы, кинематографической игры, исследовательской адвенчуры и неповторимого квеста, что в целом и составляет эту игру. Кроме того, разработкой игры занимались титулованные и именитые игроделы из студии под названием Unknown Worlds. Поэтому, (   Читать дальше...   )Тип издания: RepackРазработчик: Unknown Worlds EntertainmentЖанр: Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C915405687A0B37EC88C64D7ED738BB2F7A07FEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857941   (1059985) от 08.03.2026
 
 SHE WAS 98 (2026) [Ru/Multi] (Build 21510625) Repack FitGirl
@@ -6,7 +84,7 @@ SHE WAS 98 (2026) [Ru/Multi] (Build 21510625) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059985.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ UNCHARTED: Legacy of Thieves Collection (2022) [Ru/Multi] (1.4.21058) Repack sel
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059983.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Neva (2024) [Ru/Multi] (Build 21964472/dlc) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1059980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059980.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Roots Devour (2026) [Multi] (1.0) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059840.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ The Last Express (1997) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059733.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Children Of Morta (2019) [Ru/Multi] (1.3.376/dlc) Repack FitGirl [Complete Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059731.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Bendy and the Ink Machine (2017) [Ru/Multi] (1.5.2.2) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059730.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ SOMA (2015) [Ru/Multi] (Build 20049349) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059720.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ The Last Express (2013) [Multi] (1.0) License GOG [Gold Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059717.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Survivalist: Invisible Strain (2020) [Ru/Multi] (269) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059378.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Dofamine (2020) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059336.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Grand Theft Auto V (5) (2015) [Ru/Multi] (1.0.1180.1) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059062.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Q.U.B.E. 2 (2018) [Ru/Multi] (2.0.38/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057698.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Temple of the Green Moon / Храм Зеленой Луны (2025) [Ru/En] (2.2)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057611.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Forgotton Anne (2018) [Ru/Multi] (Build 20250418/dlc) Repack Let'sРlay [Collect
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057531.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Disney Villains Cursed Cafe (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057464.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Death Howl (2025) [Ru/Multi] (1.0.0.5.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057011.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (20251218) Scene Rune [Enhanc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057001.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Super Drift Blade (2025) [Multi] (1.0.3.1) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055421.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258.834/dlc) Repack HardwareMining [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055275.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Children of the Sun (2024) [Ru/Multi] (16524106) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055232.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Agatha Christie - Death on the Nile (2025) [Multi] (1.3.0_20251017-215031) Licen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055142.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Bye Sweet Carole (2025) [Multi] (1.0.11) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055102.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Bye Sweet Carole - это уникальная хоррор-игра, сочет
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08F8C7561DA52FAC938E1B9B2B55E26744C18461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851271   (1055012) от 01.02.2026
-
-DYSTHANASIA (2025) [Multi] (1.0.8.1/dlc) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девушка просыпается в холодном, сыром морге. Стены и пол покрыты ещё не высохшими пятнами крови и неузнаваемыми кусками плоти... Жуткие стоны нечеловеческих существ эхом разносятся по воздуху. В этом исследовательском центре, искажённом злом и населённом потусторонними существами, ты можешь бежать, прятаться или использовать инструменты, чтобы попытаться спастись... (   Читать дальше...   )Тип издания: LicenseРазработчик: Madowaku KoboЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Английский, Японский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Японский, Китайский (упрощенный, традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D9F4994008B87ACC66AD7DFF97049A41C60DDD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851018   (1054853) от 31.01.2026
-
-Five Nights In Saransk / Пять ночей в Саранске (2025) [Ru/En] (1.0) Repack seleZen
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы просыпаетесь посреди ночи в своей уютной однокомнатной квартире и замечаете, как вокруг вашей панельной пятиэтажки бродит нечто. Ваша единственная задача – не дать этим странным существам проникнуть внутрь. Для этого вы можете на некоторое время запирать входную дверь и включать свет, так же в вашем распоряжении есть система камер видеонаблюдения, которая поможет (   Читать дальше...   )Тип издания: RepackРазработчик: Pine GamesЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, Ролевые игры, СимуляторыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBFDF467C7089B62C442FD032324C48FB1AAAEB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850697   (1054500) от 29.01.2026
-
-Machinarium / Машинариум (2009) [Ru/Multi] (5738-A) Repack Let'sРlay [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Помоги роботу Йозефу спасти его подругу Берту, похищенную бандитами из Братства Черных Шляп. Machinarium - обладательница множества наград от критиков, приключенческая игра-головоломка, созданная разработчиками популярных игр Samorost и Botanicula. Маленького робота выбросили на свалку, откуда он должен вернуться обратно в город роботов Машинариум, расправиться с (   Читать дальше...   )Тип издания: RepackРазработчик: Amanita DesignЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EC3CB7FD7AA23606073B649ADCD06BDC8CBE385
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,110 @@
+###  Публикация: 1054847   (492380) от 20.09.2016
+
+Я. И. Руднев | Народы мира. Этнографические очерки (1928) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автором сделана достаточно удачная попытка этнографически охарактеризовать многочисленные народы земного шара в их главных физико-антропологических, общественно-социальных, хозяйственных, религиоведческих чертах. Во вводной части тома дан обзор этнографии как описательной части народоведения, определена ее роль в разработке классификации народов мира, определены (   Читать дальше...   )Жанр: История, науковедение, этнография, языкознание, культурология, искусство, социологияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0902AD3778FE7A73A9E29F727FA9DB18E15612E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054212   (492350) от 20.09.2016
+
+А. В. Мелехин (сост.) | Чингисхан. Имперская идея (2016) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492350.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге «Чингисхан. Имперская идея» повествуется о том, что вдохновляло великого правителя и полководца Чингисхана на столь обширные завоевания и каковы были глубинные причины огромных успехов ведомого им народа.
+
+В первом разделе книги вы узнаете об основанном Чингисханом монгольском тэнгэризме как идеологии кочевой империи, которой он придавал не меньше значения, (   Читать дальше...   )Жанр: История, этнография, культурологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:458E05424C645E106A5AEEFC14EEED5AFE221431
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054995   (488358) от 22.09.2016
+
+Шарль Бенар | Воспоминания о 1812 годе. Французский узник в России (1907) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторский перевод (с французского) "Воспоминания о 1812 годе. Французский узник в России" Шарля Бенара, сержанта 4-го линейного полка французской наполеоновской армии с сохранением некоторых оборотов речи и стиля письма, присущих XIX столетию.
+В 19 лет он участвовал в русской кампании 1812 года. Со своим полком прошел от Булонь-сюр-Мер, на западе Франции, (   Читать дальше...   )Жанр: ИсториографияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F362B2AB354471868D57E6F23D1FABF0C90D4CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243712   (488277) от 29.08.2018
+
+А. П. Семенников | Политика Романовых накануне революции [От Антанты - к Германии] (1926) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда царская власть, поддерживаемая широкими слоями буржуазии, начинала войну, то ей рисовался «победоносный мир», который казался обеспеченным, и особенно благодаря «дружбе» и «единению» с союзниками. Но прошли месяцы, истек год войны — победы не было: были лишь тяжелые поражения, все более и более расшатывавшие позиции самодержавия. Постепенно перспектива победоносного (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA6B51086B0A61DD5DF2115DEFDAE55D8EC01334
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243786   (488181) от 29.08.2018
 
 Г. Е. Зиновьев | Год революции [февраль 1917 г. - март 1918 г.] (1925) [DJVU]
@@ -6,7 +113,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488181.jpg" />
 </div>
 
 
@@ -35,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486240.jpg" />
 </div>
 
 
@@ -61,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486098.jpg" />
 </div>
 
 
@@ -87,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486067.jpg" />
 </div>
 
 
@@ -113,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484714.jpg" />
 </div>
 
 
@@ -140,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484713.jpg" />
 </div>
 
 
@@ -166,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484592.jpg" />
 </div>
 
 
@@ -192,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484175.jpg" />
 </div>
 
 
@@ -219,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482200.jpg" />
 </div>
 
 
@@ -245,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480154.jpg" />
 </div>
 
 
@@ -271,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480153.jpg" />
 </div>
 
 
@@ -297,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480149.jpg" />
 </div>
 
 
@@ -323,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480070.jpg" />
 </div>
 
 
@@ -349,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479921.jpg" />
 </div>
 
 
@@ -378,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479692.jpg" />
 </div>
 
 
@@ -404,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478256.jpg" />
 </div>
 
 
@@ -430,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478252.jpg" />
 </div>
 
 
@@ -457,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478250.jpg" />
 </div>
 
 
@@ -483,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478199.jpg" />
 </div>
 
 
@@ -509,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478197.jpg" />
 </div>
 
 
@@ -535,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478195.jpg" />
 </div>
 
 
@@ -561,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478191.jpg" />
 </div>
 
 
@@ -575,110 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E518424F66D8A9967B84CC9444CC0BA833A39E1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160073   (478122) от 23.08.2017
-
-Г.Ф. Александров и др. (сост.) | Иосиф Виссарионович Сталин. Краткая биография (1947) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ио́сиф Виссарио́нович Ста́лин (настоящая фамилия — Джугашви́ли, груз. იოსებ ჯუღაშვილი) — российский революционер грузинского происхождения, советский политический, государственный, военный и партийный деятель, Генералиссимус Советского Союза (1945). С конца 1920-х (   Читать дальше...   )Жанр: историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64E7DC8AC53B7038C30112C39F3F4C9386CD9EE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939009   (478029) от 20.09.2015
-
-А. П. Яхонтов | Переселение и колонизация (1925) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий конспект лекций есть только попытка проследить эволюцию колонизационно-переселенческого дела в России и дать необходимые сведения практическим работникам по переселению и землеустройству.Жанр: История, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D765547BA4AACF4B9FED86E2F4D3D4D89996527
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159980   (477992) от 23.08.2017
-
-Микола Аркас | История Украины-Руси (1908) [DJVU] [UА]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477992.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Начиная Историю Украины, я не задумывался написать научное творение ,- я хотел понятно рассказать землякам моим, то что происходило у нас в стране, от прошлых времён до настоящих. В истории моей уважаемый читатель не найдёт ничего нового, все взято из глубин архивов, она сложена на основе реальных событий, собрана в одну историческую целость, поделена на периоды, (   Читать дальше...   )Жанр: История, РаритетФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3B215D42B41B2E901D1D1214E82268B2D5C4ECE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938794   (477779) от 20.09.2015
-
-Андрей Шарый, Ярослав Шимов | Австро-Венгрия: судьба империи (2010) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477779.jpg" />
-</div>
-
-
-###  Подробнее
-
-“Австро-Венгрия: судьба империи” – увлекательный рассказ о чрезвычайно пестрой и удивительно интересной стране, своего рода европейской Атлантиде, известной российскому читателю гораздо меньше, чем она того заслуживает. Державы Габсбургов давно нет на картах, Первая мировая война уничтожила эту, пожалуй, самую уютную в истории империю, но накопленный ее народами (   Читать дальше...   )Жанр: История, Культурология, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F7FC697E2DE985CC9A19242431CD5A876BB3EDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

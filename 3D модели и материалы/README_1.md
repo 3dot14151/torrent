@@ -1,3 +1,29 @@
+###  Публикация: 1456062   (1025165) от 21.03.2021
+
+3D модели - Evermotion - Archmodels vol. 211 [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Archmodels vol. 211 включает 72 профессиональных высокодетализированных 3D-модели для архитектурной визуализации. В этой коллекции представлены качественные 3d модели уличного реквизита. Текстуры и материалы присутствуют. Все объекты готовы к использованию в ваших визуализациях.Формат: V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B6EE3DDE2CCC48363A2537559195B23B2248CF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456066   (1025162) от 21.03.2021
 
 3D модели - Evermotion - Archmodels vol. 209 [V-Ray|*.max]
@@ -6,7 +32,7 @@
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025162.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025046.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025042.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025041.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025031.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025030.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024834.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024697.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024348.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024283.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024155.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023982.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023936.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023924.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023750.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023743.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023731.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019897.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019860.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019858.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018883.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015672.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014572.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012788.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012342.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90DE26FFDCE8B5D2A707D8F8E277D2B2C83DED09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475944   (1011985) от 09.06.2021
-
-3D модели - Hum3D - BelAZ 75180 Dump Truck 2014 [FBX, MAX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011985.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки BelAZФормат: FBX, MAX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C41F3267997FE525F279603D88DC3E5E12804542
 ```
 
 https://mybot314.ru/tekegram_catalog/

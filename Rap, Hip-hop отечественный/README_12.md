@@ -1,3 +1,177 @@
+###  Публикация: 1340150   (264245) от 22.11.2019
+
+Смоки Мо - Стейкхаус (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264245.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Стейкхаус
+2. Флоу 19
+3. Лучший план
+4. Казино (Skit)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:26:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB5B3CA902725133EAAA653374572CF171FCDFBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624118   (255508) от 05.04.2023
+
+Цинк Уродов (Zinc Freaks, ChipaChip) - Десять10 (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - ОБНАЛ [00:03:47]
+02 - CHICAGO [00:03:25]
+03 - ВЫЙДИ НА БАЛКОН [00:04:53]
+04 - THE GHETTO BOMB [00:03:06](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:01:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87ED8716A66F0D85C10DC91677603EC9D0ABA40A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626742   (255051) от 18.04.2023
+
+Субкультура - 30 (2022) 2CD [MP3|320 Kbps] <Rap, Acoustic Rock>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тяга [00:03:00]
+02. Пиво [00:02:12]
+03. Секс, рок-н-ролл, дрянь [00:04:11]
+04. Без слез (Apocalyptic Mix) [00:04:10](   Читать дальше...   )Жанр: Rap, Acoustic RockПродолжительность: 2 CD, 01:57:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:332371E0FC57AE1238531F71F8221D74507842E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511191   (246001) от 20.11.2021
+
+Сидоджи Дубоshit - BIG FOOT (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GRIND [01:53]
+02. INDEPENDENT (KASKADER) [02:48]
+03. DEATHFLIP [03:01]
+04. BIGFOOT [03:51](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:25:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA43DDED9694F8C424613BEE505356BAFD185D0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511414   (245817) от 21.11.2021
+
+bollywoodFM - Магия (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3 в 1 [01:48]
+02. Дождь (feat. Kasha) [02:28]
+03. Магия [01:50]
+04. Хочу быть как все (feat. Бакей) [01:51](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2B46556536D604014EB5C803DD19173932F1B00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372032   (242064) от 03.04.2020
+
+ГАМОРА - THE BAD (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вставляет нормально [04:55]
+02. Лови [06:07]
+03. Убойный камень [03:22]
+04. Решай неспеша [03:39](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:23:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:650E2E51CF6796034EA89698BEA34B6D564A00EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1544516   (241976) от 16.04.2022
 
 Sagath - Страшные сказки (2022) [MP3|320 Kbps] <Alternative, Hip-Hop, Horrorcore>
@@ -6,7 +180,7 @@ Sagath - Страшные сказки (2022) [MP3|320 Kbps] <Alternative, Hip-H
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241976.jpg" />
 </div>
 
 
@@ -35,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241737.jpg" />
 </div>
 
 
@@ -64,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241733.jpg" />
 </div>
 
 
@@ -93,7 +267,7 @@ Booker - Выбери жизнь (2021) [MP3|320 Kbps] <Rap, Alternative, Punk>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241565.jpg" />
 </div>
 
 
@@ -122,7 +296,7 @@ ChipaChip & Sam Wick - I'm Sorry (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241472.jpg" />
 </div>
 
 
@@ -151,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241465.jpg" />
 </div>
 
 
@@ -180,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241454.jpg" />
 </div>
 
 
@@ -209,7 +383,7 @@ Kuba - Albomba (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241435.jpg" />
 </div>
 
 
@@ -238,7 +412,7 @@ ZippO - Фитиль 2 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241419.jpg" />
 </div>
 
 
@@ -267,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241401.jpg" />
 </div>
 
 
@@ -296,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241391.jpg" />
 </div>
 
 
@@ -325,7 +499,7 @@ Loqiemean - Контроль (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241382.jpg" />
 </div>
 
 
@@ -354,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241375.jpg" />
 </div>
 
 
@@ -383,7 +557,7 @@ OBLADAET - PLAYERS CLUB (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241365.jpg" />
 </div>
 
 
@@ -412,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241350.jpg" />
 </div>
 
 
@@ -441,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241342.jpg" />
 </div>
 
 
@@ -470,7 +644,7 @@ Sagath - Necrotica 2 (Remix Pack) (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241317.jpg" />
 </div>
 
 
@@ -499,7 +673,7 @@ Jahmal TGK - СНЕГОПАД Underground (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241311.jpg" />
 </div>
 
 
@@ -528,7 +702,7 @@ Sagath - Necrotica 2 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235342.jpg" />
 </div>
 
 
@@ -557,7 +731,7 @@ Kussani - жизнь наоборот (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235307.jpg" />
 </div>
 
 
@@ -571,186 +745,6 @@ Kussani - жизнь наоборот (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB8E234166E17A6BC086036C8B3F9FA7BC7D6337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634186   (233523) от 19.05.2023
-
-25/17 - Двадцать лет на волне (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Только для своих (Live 2012)
-02. Голова, чтобы думать (2016)
-03. На городской карте (2008)
-04. Остаться (2022)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:48:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96FC5D9F1C099DF6A524A99248BEEF96E98ADEEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645085   (232857) от 08.07.2023
-
-Рыночные Отношения - 2193 (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Страдать (ft. ОДИН.ВОСЕМЬ)
-02. Слёзы Улиц
-03. Факелы (ft. Бразилец)
-04. Красивая (ft. Брутто)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2513F0D3CCE0F46EC156A3FA9C6CC4C60F227DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965158   (227633) от 13.12.2015
-
-Не будите спящих - Делай свое дело (2015) [MP3|320 кб/с]<Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. WI-FI
-02. Фифа
-03. Давай уедем туда
-04. Каюсь(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 01:05:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3F1A066A30E1E480B4BE48A22FF07E46628D188
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513197   (225258) от 28.11.2021
-
-ATL - Радио Апокалипсис (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 66.6 FM [02:01]
-02. RESET [02:35]
-03. Ящик [03:28]
-04. Behemoth [02:35](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:57:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7851187BAFED7D613BE6FF9FB633B69AA407C89C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587412   (223453) от 10.12.2012
-
-2rbina 2rista - HONDURAS (2012) [MP3|320 кб/с]<Hip-Hop, Reggae,>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_223453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дикий Дикий Урал
- 02. РЖД
- 03. Саша Грэй
- 04. ПАРАГАМДАМ!
- 05. Барракуды (ft. Жара)
- 06. Сенсимилья
- 07. Гондурас (ft. DJ Spot)
- 08. Деньги - Шоу
- 09. Пати пьяно
- 10. Voodoo After Party(   Читать дальше...   )Жанр: Hip-Hop, ReggaeПродолжительность: 00:55:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4174055BBA611B18BA8D447F16B773623211B705
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 871845   (223023) от 15.12.2015
-
-Anacondaz - 5 альбомов+Не альбомные записи (2009-2015) [MP3|320 кб/с] <Pauzern Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа Anacondaz из Астрахани ведет свою современную историю от 2009 года. В эмбриональной форме коллектив образовался ещё в 2005 году в Астрахани, но скрижали, хранившие генетический год Anacondaz начального периода, уже давно превратились в песок. Сейчас коллектив базируется в Москве, что ни на йоту не приблизило музыкантов к снобизму, а, напротив, дало стимул (   Читать дальше...   )Альбомы:
-2009 - Смачные ништяки (Переиздание)
-2011 - Эволюция (EP)
-2013 - Дети и радуга (Переиздание)(   Читать дальше...   )Жанр: Pauzern Rap, Hip-HopПродолжительность: 05:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4C3B1DC4E53AC35B4D4E7E04C0344E2315AC4F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

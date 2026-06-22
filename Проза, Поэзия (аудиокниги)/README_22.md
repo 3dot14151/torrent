@@ -1,3 +1,29 @@
+###  Публикация: 1110242   (853737) от 02.03.2017
+
+Джеймс Боуэн | Уличный кот по имени Боб (2014) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853737.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой истории два главных героя - Джеймс Боуэн, уличный лондонский музыкант, и рыжий Боб, уличный лондонский кот. Они были бездомными и одинокими, но однажды повстречали друг друга... Джеймс погибал от наркотиков и отчаяния, в его жизни не было никакого смысла, пока в ней не появился четвероногий друг, который помог ему справиться с проблемами, принес удачу и стал (   Читать дальше...   )Жанр: зарубежная прозаПродолжительность: 06:24:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B35DED3733651D849B77AAD7F8FB2C08F8B4DFC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001399   (853713) от 28.03.2016
 
 Сергей Чонишвили | Человек-поезд (2014) [MP3, Сергей Чонишвили]
@@ -6,7 +32,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853713.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853658.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851942.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849991.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849110.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848750.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848416.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847464.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847203.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846760.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845152.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845151.jpg" />
 </div>
 
 
@@ -311,6 +337,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 308949   (844210) от 14.03.2011
+
+Стивен Кинг | Метод дыхания [2009] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_844210.jpg" />
+</div>
+
+
+###  Подробнее
+
+В странном клубе собираются странные люди, рассказывающие странные истории. Истории, услышав которые раз, не забудешь больше никогда. Истории о людях, подошедших к краю мрака.
+Много лет назад четверо мальчишек из маленького американского городка отправились в путь на поиски пятого - погибшего. В путь, лежавший через ночь. Через боль. Через страх. В путь, пройдя который, уже не будешь таким, как раньше...Жанр: Мистика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:654A62A3934B064032B9ABBC9AB59F4C77AF7859
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003255   (843494) от 03.04.2016
 
 Михаил Гаёхо | Мост через канал Грибоедова (2015) [MP3]
@@ -319,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843494.jpg" />
 </div>
 
 
@@ -345,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843485.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842811.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841787.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841637.jpg" />
 </div>
 
 
@@ -452,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841599.jpg" />
 </div>
 
 
@@ -478,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841489.jpg" />
 </div>
 
 
@@ -504,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841092.jpg" />
 </div>
 
 
@@ -530,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840106.jpg" />
 </div>
 
 
@@ -557,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839990.jpg" />
 </div>
 
 
@@ -583,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839884.jpg" />
 </div>
 
 
@@ -609,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839778.jpg" />
 </div>
 
 
@@ -620,60 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9A435651BF8CF4801F7B377FCAFADD8139850D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112762   (839410) от 10.03.2017
-
-Борис Акунин | Любовь к истории (Книга 5. Том 1). Нечеховская интеллигенция. Короткие истории о всяком разном (2017) [MP3, Александр Клюквин]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Короткие истории от Бориса Акунина!
-Короткие-то они короткие, но за каждой – удивительная судьба, полузабытый исторический факт, дней старинных анекдот или какая-нибудь «вечная» проблема. Автор переносит слушателя из эпохи в эпоху, из одной точки планеты в другую, и всюду интересно, и всюду есть, над чем задуматься. Приятного прослушивания и полезного размышления.Жанр: Современная русская литератураПродолжительность: 06:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9D0A64663AB0FC94A0DFE54D0C63307F98C2458
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112963   (838417) от 11.03.2017
-
-Александр Терехов | Немцы (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Терехов — автор романов «Мемуары срочной службы», «Крысобой», «Бабаев», вызвавшего бурную полемику)' бестселлера «Каменный мост» (премия «Большая книга», шорт-лист «Русский Букер»), переведенного на английский и итальянский языки.
-Если герой «Каменного моста» погружен в недавнее — сталинское — прошлое, заворожен тайнами «красной аристократии», то главный (   Читать дальше...   )Жанр: Проза, романПродолжительность: 22:17:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85F3F936AD07CBC721EC44374711D44DB6D3E3FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1853263   (1056365) от 12.02.2026
+
+The Ocean Collective - Studio Albums (12 releases) (2003-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Sludge/Post-Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056365.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Ocean - немецкая метал-группа, основанная в Берлине в 2000 году гитаристом Робином Штапсом.2003 - Fogdiver
+2004/2009 - Fluxion
+2006 - Aeolian
+2007 - PrecambrianЖанр: Progressive/Sludge/Post-MetalПродолжительность: 10:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E1491A1BDFA5D5117AD5D8395CDB3AE1B06899B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852899   (1056180) от 10.02.2026
+
+VOLA - Studio Albums (6 releases) (2008-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Djent>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vola — рок-группа из Дании, основанная в Копенгагене в 2006 году.2008 - Homesick Machinery (EP)
+2011 - Monsters (EP)
+2015 - Inmazes
+2018 - Applause of a Distant CrowdЖанр: Progressive Metal, DjentПродолжительность: 04:28:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ECF4B3A272247EEAC7B64F8307F2E64C80C47B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852892   (1056179) от 10.02.2026
+
+Andy Williams - Andy Williams (1970) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Jazz, Pop, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056179.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Unchained Melody
+A2 Do You Mind
+A3 It's All In The Game
+A4 Are You Sincere?(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:30:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AD26A8E0BA563BAC5EB5E535C4A0068B0C83FE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852741   (1056114) от 09.02.2026
 
 Obscurity - Studio Albums (10 releases) (2000-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black/Viking/Death Metal>
@@ -6,7 +93,7 @@ Obscurity - Studio Albums (10 releases) (2000-2026) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056114.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Cliff Richard - Silver (1983) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Synth-pop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055737.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ The Seatbelts - Cowboy Bebop (2020) Original Series Soundtrack [FLAC 2.0|44.1/24
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055626.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Ronnie Romero - Studio Albums (4 releases) (2022-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055507.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Protector - Studio Albums (10 releases) (1987-2022) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055392.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Cliff Richard - Always Guaranteed (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055280.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Cliff Richard - Love Songs (1981) Compilation, Remastered, Stereo, Mono [FLAC 2.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055201.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Queens of the Stone Age (QotSA) - Studio Albums (8 releases) (1998-2023) hand ma
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055135.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Cliff Richard - 100th Single (1989) Single, 45RPM, Limited Edition [FLAC 2.0|192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055134.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Avatarium - Studio Albums (6 releases) (2013-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054470.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Ahola - Studio Albums (2 releases) (2012-2014) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054436.jpg" />
 </div>
 
 
@@ -324,7 +411,7 @@ Avatar (Sweden) - Studio Albums (10 releases) (2006-2025) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054413.jpg" />
 </div>
 
 
@@ -353,7 +440,7 @@ Cliff Richard - She's So Beautiful. Extended Mix From The Musical "Time" (1985) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054412.jpg" />
 </div>
 
 
@@ -382,7 +469,7 @@ VA - Magical Melodies: Nicolai, Rossini, Gounod, Brahms, Tchaikovsky, Wagner - O
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054141.jpg" />
 </div>
 
 
@@ -411,7 +498,7 @@ The Boomtown Rats - Dave (1984) [FLAC|Lossless|image + .cue] <Rock, New Wave, Sy
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054140.jpg" />
 </div>
 
 
@@ -440,7 +527,7 @@ Manuel - This Is Manuel. 14 Tracks From His Fabulous Full-Price Albums (1971) Co
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054120.jpg" />
 </div>
 
 
@@ -469,7 +556,7 @@ VA - Party Mood. The Tremeloes, Anita Harris, Tony Bennett, Louis Armstrong and 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053960.jpg" />
 </div>
 
 
@@ -498,7 +585,7 @@ Jean-Michel Jarre - The Concerts In China (1982) [FLAC 2.0|192/24|image +.cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053643.jpg" />
 </div>
 
 
@@ -527,7 +614,7 @@ Franck Pourcel And His Orchestra - This Is Pourcel. 14 Tracks From His Fabulous 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053571.jpg" />
 </div>
 
 
@@ -556,7 +643,7 @@ Serenity In Murder - Studio Albums (5 releases) (2011-2025) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053468.jpg" />
 </div>
 
 
@@ -585,7 +672,7 @@ Orpheus Omega - Studio Albums (7 releases) (2009-2024) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053389.jpg" />
 </div>
 
 
@@ -614,7 +701,7 @@ Marianas Rest - Studio Albums (5 releases) (2016-2026) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053218.jpg" />
 </div>
 
 
@@ -643,7 +730,7 @@ Deadlock - Studio Albums (11 releases) (1998-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053180.jpg" />
 </div>
 
 
@@ -656,93 +743,6 @@ Deadlock - немецкая метал-группа из Шварценфель�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C12AACE037EC6CE33DBA11740FE921C0BD82FF30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849002   (1053149) от 20.01.2026
-
-Pink Floyd - Animals (2016) Reissue, Remastered, Records 1977 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Psychedelic Rock, Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053149.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Pigs On The Wing (Part One)
-A2 Dogs
-B1 Pigs (Three Different Ones)
-B2 Sheep(   Читать дальше...   )Жанр: Psychedelic Rock, Prog RockПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:304FB3254AA568F969537BC00D26F18CEA4B254B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848729   (1052908) от 18.01.2026
-
-The Musicmakers - Party Sing-Along - 20 All Time Greats (1973) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052908.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 For Me And My Gal
-A2 Shine On Harvest Moon
-A3 By The Light Of The Silvery Moon
-A4 The Yellow Rose Of Texas(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF191AEEF168D6CD3F25ACFEACEC26034A7DAB10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848629   (1052907) от 18.01.2026
-
-Mario Lanza - Mario Lanza Sings Caruso  Favorites (1960) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical, Light Music>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052907.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Vieni Sul Mar
-A2 Senza Nisciuno
-A3 Musica Probita
-A4 Vaghissima Sembianza(   Читать дальше...   )Жанр: Classical, Light MusicПродолжительность: 00:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0086FC9B535DD7B2ADD5FCB8C19F5145030CD0F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,90 +1,3 @@
-###  Публикация: 1154661   (539283) от 31.07.2017
-
-Dodo Marmarosa Trio - Complete Studio Recordings (1946 - 1962) 2CD, 2004, Lone Hill Jazz [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539283.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Mellow Mood [03:15]
-02. Dodo's Blues [03:15]
-03. Raindrops [02:50](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 02:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CB4D26DED4378D7D3D1F9CF19F74C8DE8C17545
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925635   (539216) от 07.08.2015
-
-VA - Electro Jazz (2015) [MP3|320 кб/с]<Electro Jazz, Nu Jazz, Broken Beat>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interpretes Divers - Rhodes Club (03:41)
-02. Interpretes Divers - Hot Times (03:20)
-03. Interpretes Divers - Urban Trumpet (03:31)
-04. Gregory Toucas - Miles from Dream (04:08)(   Читать дальше...   )Производство: Justement MusicЖанр: Electro Jazz, Nu Jazz, Broken BeatПродолжительность: 01:13:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2DE45E1FE22E1D74167AE0F63DDFC9BA70DED90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557599   (539191) от 16.06.2022
-
-Grover Washington Jr. - Come Morning (1981) Elektra [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. East River Drive [4:46]
-02. Come Morning [4:56]
-03. Be Mine (Tonight) [6:26]
-04. Reaching Out [4:09](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10473E339E3AEE86B7453A31E6F6C117B0304E0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557601   (539186) от 16.06.2022
 
 Grover Washington, Jr. - Feels So Good (1975) 1986, Motown [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
@@ -93,7 +6,7 @@ Grover Washington, Jr. - Feels So Good (1975) 1986, Motown [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539186.jpg" />
 </div>
 
 
@@ -122,7 +35,7 @@ Grover Washington Jr. - Then And Now (1988) Columbia [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539163.jpg" />
 </div>
 
 
@@ -151,7 +64,7 @@ Carmen McRae - Book Of Ballads (1959) 2008, Kapp Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539097.jpg" />
 </div>
 
 
@@ -180,7 +93,7 @@ Grainne Duffy - Test Of Time (2011) [FLAC|Lossless|tracks + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539077.jpg" />
 </div>
 
 
@@ -201,6 +114,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 366383   (539034) от 22.07.2011
+
+Laura Fygi - The Best Is Yet To Come (2011) [FLAC|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_539034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best Is Yet To Come (3:17)
+02. Smile (3:37)
+03. Too Darn Hot (3:59)
+04. I've Got A Crush On You (3:50)
+05. This Can't Be Love (3:37)
+06. Cheek To Cheek (3:55)
+07. Fever (3:57)
+08. That Old Black Magic (4:21)
+09. It's Easy To Remember (4:53)
+10. You And The Night And The Music (3:29)(   Читать дальше...)Жанр: Vocal JazzПродолжительность: 00:51:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239398   (538987) от 05.08.2018
 
 Flora Purim - That's What She Said (1976) 1990, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Jazz Fusion, Latin Jazz>
@@ -209,7 +157,7 @@ Flora Purim - That's What She Said (1976) 1990, Original Jazz Classics [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538987.jpg" />
 </div>
 
 
@@ -238,7 +186,7 @@ Marchio Bossa - Come in un quadro (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538971.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ Brian Bromberg - Thicker Than Water (2018) [FLAC|Lossless|WEB-DL|tracks] <Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538879.jpg" />
 </div>
 
 
@@ -296,7 +244,7 @@ VA - Bar Room Blues: A 12-Track Program (2004) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538674.jpg" />
 </div>
 
 
@@ -331,7 +279,7 @@ Divin' Ducks - 5 albums (1992 - 1998) [MP3|224-320 кб/с]<Hard Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538554.jpg" />
 </div>
 
 
@@ -363,7 +311,7 @@ Paul Bley, Franz Koglmann, Gary Peacock - Annette (1992) 2001, HAT HUT Records[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538427.jpg" />
 </div>
 
 
@@ -392,7 +340,7 @@ James Williams - Alter Ego (1984) 1986, Nippon [FLAC|Lossless|tracks + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538306.jpg" />
 </div>
 
 
@@ -421,7 +369,7 @@ Dinah Washington - Jazz Profile (1962 - 1963) 1997, Blue Note [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538305.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ Count Basie - Jazz Profile (1959 - 1961) 1997, Blue Note [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538304.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ Ashford & Simpson - Ashford & Simpson  ‎– The Warner Bros. Years: Hits, Remi
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538087.jpg" />
 </div>
 
 
@@ -508,7 +456,7 @@ Keiko Matsui - Journey To The Heart (2016) [FLAC|Lossless|image + .cue] <Smooth-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538082.jpg" />
 </div>
 
 
@@ -537,7 +485,7 @@ Tedeschi Trucks Band - I Am The Moon: I. Crescent (2022) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537468.jpg" />
 </div>
 
 
@@ -566,7 +514,7 @@ Helen Merrill & Gil Evans - Collaboration (1988) Nippon [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537467.jpg" />
 </div>
 
 
@@ -595,7 +543,7 @@ Blackcoffee - Monona Lake (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537465.jpg" />
 </div>
 
 
@@ -624,7 +572,7 @@ All Night Boogie Band - Taste These Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537464.jpg" />
 </div>
 
 
@@ -653,7 +601,7 @@ Big Man James - Step into the Real Life (2022) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537463.jpg" />
 </div>
 
 
@@ -682,7 +630,7 @@ Bennett Matteo Band - Shake the Roots (2022) [FLAC|Lossless|WEB-DL|tracks] <Elec
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537462.jpg" />
 </div>
 
 
@@ -711,7 +659,7 @@ Big Gilson - Peace in Our Time - Peace in Our Time (2022) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537461.jpg" />
 </div>
 
 
@@ -740,7 +688,7 @@ Ben Hemming - Marked Man (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537453.jpg" />
 </div>
 
 
@@ -754,6 +702,70 @@ Ben Hemming - Marked Man (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D20435686150C89A8193D567B4DEC022284D949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 83053   (537413) от 05.09.2014
+
+Ralph Towner - ANA (1997) [MP3|320kBit/s]<Guitar-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 The Reluctant Bride
+02 Tale of Saverio
+03 Joyful Departure
+04 Green And Golden
+05 I Knew It Was You
+06 Les Douzilles
+07 Veldt
+Seven Pieces for Twelve Strings
+08 Between The Clouds
+09 Child On The Porch(   Читать дальше...   )Жанр: Guitar-JazzПродолжительность: 00:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78EF935DB41B97128615BDC51F6DDA4B2A1DA261
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557731   (537385) от 17.06.2022
+
+Black Banjo - The Beauty And The Burst (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ophelia (4:15)
+02. Full Moon Rising (4:18)
+03. When Will I Be Free (4:13)
+04. When The Smoke Clears (4:25)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B40A6C8E2CC890E7DE5D7A682C14077E4D75A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

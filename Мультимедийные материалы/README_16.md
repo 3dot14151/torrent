@@ -1,3 +1,29 @@
+###  Публикация: 1777347   (28609) от 05.02.2025
+
+Oxford Educational | Журнал по изучению английского языка Easy English №1-112 + аудиокурс (2003-2005) [unpacked, PDF, MP3] [EN, RU]
+
+>>Мультимедийные материалы
+>>Иностранные языки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из самых прогрессивных методик, по изучению английского языка. Разработанная специалистами крупнейшего международного издательства Oxford Educational. Этот курс английского языка получил во многих странах одобрение Министерства образования. Он подойдет, как для новичков, которые хотят изучать язык, но не знают с чего начать, так и для людей, которые хотят улучшить (   Читать дальше...   )Жанр: Журнал, аудиокурсЯзык: английский, русскийФормат: unpacked, PDF, MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B71A16FD8CD248F85FC2DF9AB3628319B6E6B4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780273   (27384) от 17.02.2025
 
 Яндекс.Практикум | Курс «Математика для анализа данных» (2024) [unpacked]
@@ -6,7 +32,7 @@
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27384.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26312.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26192.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26183.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25780.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25349.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Nezabudka  cake | Трайфлы  (2020) [PDF]
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24366.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24194.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23880.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22307.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Judaica Multimedia (Israel) Ltd | Encyclopaedia Judaica CD-ROM Edition v1.0 / Е
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20937.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19218.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16936.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16934.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13501.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ HTML Academy | Доступность веб-интерфейсов (2025) [unpa
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10010.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9445.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9367.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2065.jpg" />
 </div>
 
 

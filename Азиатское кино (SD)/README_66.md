@@ -1,3 +1,81 @@
+###  Публикация: 1738395   (49196) от 22.07.2024
+
+Объединённая зона безопасности / Gongdong gyeongbi guyeok JSA (2000) BDRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по роману «DMZ» Пак Сан Ёна (1997)... 1953-й год стал для Кореи переломным моментом - южная и северная части после трёхлетней войны подписывают соглашение о перемирии. С тех пор за его исполнением следит комиссия нейтральных стран, а территория в районе линии, разделяющей "коммунистов" и "марионеток", получает название "Объединённой (   Читать дальше...   )Производство: Южная Корея / CJ Entertainment, Intz.com, KTB NetworkЖанр: драма, детектив, триллерРежиссер: Чхан Ук ПакАктеры: Ён Э Ли, Бён Хон Ли, Кан Хо Сон, Тхэ У Ким, Ха Гюн Син, Чжу Бон Ки, Кристоф Хофрихтер, Мён Су Ким (II), Хан Ви Ли, Херберт Ульрих, Дэ Ён ЛиПеревод: профессиональный двухголосый, авторскийЯзык озвучки: русский, корейскийСубтитры: русские, английскиеПродолжительность: 01:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05AF5A420349C041EDD7D14FE91150003F22B08A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739788   (48501) от 29.07.2024
+
+Термы Рима / Terumae romae (2012) BDRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древнеримский архитектор Люциус очень расстроен. Его неспособность идти в ногу со временем может стоить ему работы. Друг приглашает его в общественные бани, чтобы подбодрить, а Люциус, благодаря пространственно-временному смещению, всплывает в современной Японии. Потрясённый увиденным, Люциус возвращается в Древний Рим и становится знаменитым, реализуя новые идеи...Производство: Япония / Dentsu, Enterbrain Inc., Filmmakers...Жанр: фантастика, фэнтези, комедияРежиссер: Хидэки ТакэутиАктеры: Хироси Абэ, Ая Уэто, Кадзуки Китамура, Рики Такэути, Каи Сисидо, Мидорико Кимура, Кацуя, Бунмэй Тобаяма, Кэи Иинума, Таро ИватэПеревод: любительский одноголосыйЯзык озвучки: русский, японскийСубтитры: русские (julz_nsk; фансаб-группа Томато), английскиеПродолжительность: 01:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18CFEBD1BC803BDD8E7EED1367C810FDAFC597A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739814   (48488) от 29.07.2024
+
+Термы Рима 2 / Terumae romae II (2014) BDRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48488.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Древнем Риме проектирование общественных бань приносит известность архитектору Люциусу. Он получает заказ на строительство аналогичных бань в Колизее, где они должны помогать гладиаторам в лечении их ран. Но при выполнении заказа архитектор сталкивается с некоторыми трудностями...Производство: Япония / Dentsu, Fuji Television Network Inc., Kadokawa...Жанр: фантастика, фэнтези, комедияРежиссер: Хидэки ТакэутиАктеры: Хироси Абэ, Ая Уэто, Кадзуки Китамура, Каи Сисидо, Рики Такэути, Мидорико Кимура, Кацуя, Акебоно, Кацунори Котоосю, Минору СиракиПеревод: любительский двухголосыйЯзык озвучки: русский, японскийСубтитры: английскиеПродолжительность: 01:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77FCAC81100A089AF056F180B03E55B592CA5BD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740654   (47947) от 03.08.2024
 
 KKN. Дух деревни танцев / KKN Badarawuhi di Desa Penari / Dancing Village: The Curse Begins (2024) WEB-DLRip [H.264] [MVO]
@@ -6,7 +84,7 @@ KKN. Дух деревни танцев / KKN Badarawuhi di Desa Penari / Dancin
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47947.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46927.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46542.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46530.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46491.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46486.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46483.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45253.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45225.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45099.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44506.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44491.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44460.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44175.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44034.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43651.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43632.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43490.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43274.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43067.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42884.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42830.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42194.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFF391B98BC906E38EC2598032C7F54EEA942728
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751890   (42185) от 27.09.2024
-
-Экстремальная работа / Geukhanjikeob / Extreme Job (2019) BDRip [H.264] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы следить за преступниками, полицейские начинают работать под прикрытием в ресторане. Неожиданно их заведение становится невероятно популярным. Как только полицейские понимают, что нашли свое настоящее призвание, они выходят на след крупной банды наркоторговцев. Идеальный ресторан или борьба с наркоторговлей - что выбрать?... По состоянию на июнь 2022 года, картина (   Читать дальше...   )Производство: Южная Корея / About Film, CJ EntertainmentЖанр: комедия, криминал, боевикРежиссер: Бён Хон Ли (II)Актеры: Сын Рён Рю, Ха Ни Ли, Сон Гю Чжин, Дон Хви Ли, Гон Мён, Ха Гюн Син, Чжон Се О, Ый Сон Ким, Хён Мин Ян, Чжун Сок Хо, Чжин Хи Чжан, Чжэ Хон Пак, Ён Гю Сон, Чжон Су Ким, Джун Ок ЛиПеревод: профессиональный многоголосый, любительский многоголосыйЯзык озвучки: русский, корейскийСубтитры: английскиеПродолжительность: 01:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B50A556C6270F3A07E3A41208B385DD5A1A37C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752310   (41990) от 29.09.2024
-
-Убийство / Amsal (2015) BDRip [H.264] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41990.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1933 году борцы за независимость Кореи планируют убийство важных лиц японской администрации — губернатора Кёнсона Мамору Кавагути и прояпонского магната Кан Ин-гука. Агент сопротивления Ём Сок-чин поручает миссию девушке-снайперу Ан Ог-юн, специалисту-подрывнику Хван Док-саму и Чу Сан-оку. Группа прибывает в Кёнсон, не зная, что один из них работает на японцев (   Читать дальше...   )Производство: Южная Корея / Caper Film, Showbox Entertainment, Showbox/MediaplexЖанр: боевик, триллер, историяРежиссер: Дон Хун ЧхвеАктеры: Джианна Чон, Чон У Ха, Чжон Чжэ Ли, Даль Су О, Чжин Ун Чо, Кён Ён Ли, Док Мун Чхве, Ый Сон Ким, Бён Ын Пак, Кён Чжин, Чжи Вон Хо, Сын У Чо, Хэ Сук Ким, Хон Фа Ким, Хи Соп СимПеревод: любительский двухголосыйЯзык озвучки: русский, корейскийСубтитры: русские, английскиеПродолжительность: 02:20:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80342D1C802F83D9368DB56F47895AEBD5A41565
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734970   (41858) от 01.10.2024
-
-Криминальный город. Возмездие / Beomjoe dosi 4 / Beomjoidosi 4 / The Roundup: Punishment (2024) BDRip [H.264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41858.jpg" />
-</div>
-
-
-###  Подробнее
-
-2018 год. Расследуя убийство соотечественника на Филиппинах, детектив Ма Сок-то выясняет, что парень работал на бандитов, содержащих нелегальное онлайн-казино. Поскольку заслуженный следователь ничего не понимает в цифровых технологиях, в команду берут двух новичков из отдела расследований киберпреступлений, а консультантом — старого знакомого Чан И-су.Производство: Южная Корея / ABO Entertainment, B.A. Entertainment, Big Punch Pictures, Hong FilmЖанр: криминал, боевик, детективРежиссер: Хо Мён-хэнАктеры: Ма Дон-сок, Ким Му-ёль, Пак Чи-хван, Ли Дон-хви, Ли Бом-су, Ким Мин-джэ, Ли Джи-хун, Ким До-гон, Ким Джи-хун, Хён Бон-щикПеревод: Дублированный (Студия Позитив), авторский (Юрий Сербин | 18+)Язык озвучки: русский, корейскийСубтитры: русские, английскиеПродолжительность: 01:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E23DA870BBC2ABD1A963E3C49F898E868EF6C72
 ```
 
 https://mybot314.ru/tekegram_catalog/

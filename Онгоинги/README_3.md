@@ -6,7 +6,7 @@ Vigilante: Boku no Hero Academia Illegals 2 | Моя геройская акад
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051177.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kirei ni Shite Moraemasu ka. / Wash It All Away / Можете постират�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051134.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Osananajimi to wa Lovecome ni Naranai / You Can't Be In a Rom-Com with Your Chil
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051131.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Golden Kamuy Saishuushou | Golden Kamuy Final Season | Золотое божес
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051129.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Yuusha-kei ni Shosu: Choubatsu Yuusha 9004 Tai Keimu Kiroku / Sentenced to Be a 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051058.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Majutsushi Kunon wa Miete Iru | Kunon the Sorcerer Can See Through | Волше�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051045.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Hanazakari no Kimitachi e | Hana-Kimi | Для тебя во всём цвету
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051041.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Ikoku Nikki | Дневник другой страны [2026, TV, 1 из 12] WEB
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051035.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Kizoku Tensei: Megumareta Umare kara Saikyou no Chikara o Eru / Noble Reincarnat
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051026.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ The Daily Life of a Part-Time Torturer | Goumon Baito-kun no Nichijou | Повс
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051016.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Gnosia | Гносия [2025, TV, 12 из 24] WEB-DL 1080p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051001.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Tamon's B-Side | Tamon-kun Ima Docchi!? | Какой сейчас Тамон?! [
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050836.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ MF Ghost 3rd Season | MF Призрак [ТВ-3] [2026, TV, 1 из 12 эп.] WEB
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050826.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Yuusha Party o Oidasareta Kiyoubinbou / Jack-of-All-Trades, Party of None / Ма
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050825.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Monster Strike: Deadverse Reloaded | Удар монстра: Перезагру
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049951.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Kingdom 6th Season | Царство [ТВ-6] [2025, TV, 11 из 13] WEB-DL 1080p
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049240.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ One Punch Man 3 | Ванпанчмен [ТВ-3] [2025, TV, 2 из 12 эп. + 1 S
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186105.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Towa no Yuugure | Dusk Beyond the End of the World | Вечность Югурэ
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173529.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Arknights: Fuyukomori Kaerimichi / Arknights: Perish in Frost / Рыцари к�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153701.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Long Zu II: Daowangzhe Zhi Tong | Dragon Raja II -The Mourner's Eyes- | Драк
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136951.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Chitose-kun wa Ramune Bin no Naka / Chitose is in the Ramune Bottle / Читос
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128932.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Kimi to Koete Koi ni Naru | With You, Our Love Will Make It Through | Перес
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128888.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Isekai Quartet 3 | Четвёрка попаданцев [ТВ-3] [2025, TV, 1 �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128882.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Chanto Suenai Kyuuketsuki-chan / Li'l Miss Vampire Can't Suck Right / Вампи
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126108.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Gnosia | Гносия [2025, TV, 1 из 12 эп.] WEBRip
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125890.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Ninja to Gokudou | Ninja vs. Gokudo | Ниндзя и якудза [2025, TV, 1 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121471.jpg" />
 </div>
 
 

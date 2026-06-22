@@ -1,3 +1,113 @@
+###  Публикация: 1631788   (198820) от 07.05.2023
+
+Формула 1. Сезон 2023. Этап 05. Гран-при Майами. Квалификация. (06.05.2023) WEB-DL [H.264/1080p] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этап 5. Арена: Международный автодром Майами (Майами, США).
+Квалификация. 6 мая 2023, суббота.
+
+Картинка с канала F1 TV.Телекомпания: F1 TVЖанр: АвтоспортЯзык озвучки: Русский, Украинский, Грузинский, Английский, Немецкий, Французский, Испанский, Голландский, Португальский.Продолжительность: 01:19:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98A4CBBF00DCA6F572904BEA89373E4B4462A853
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631776   (198806) от 07.05.2023
+
+Формула 1. Сезон 2023. Этап 05. Гран-при Майами. Квалификация (06.05.2023) WEB-DL [H.264/720p] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198806.jpg" />
+</div>
+
+
+###  Подробнее
+
+6 мая 2023, суббота. 23:00 МСК. Этап 5, США. Гран-при Майями. КвалификацияТелекомпания: F1TV HDЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 01:19:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08D5386F9DA8708C3E2BF806B73C5A1B83281EA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632001   (198773) от 08.05.2023
+
+Формула 1. Сезон 2023. Этап 05. Гран-при Майами. Гонка (07.05.2023) WEB-DL [H.264/720p] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198773.jpg" />
+</div>
+
+
+###  Подробнее
+
+7 мая 2023, воскресенье. 22:30 МСК. Этап 5, США. Гран-при Майями. Гонка (57 кругов)Телекомпания: F1TV HDЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 02:01:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD65D4C31608982036E4235E099B577B295E8A71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632006   (198665) от 09.05.2023
+
+Формула 1. Сезон 2023. Этап 05. Гран-при Майами. Гонка (07.05.2023) WEB-DL [H.264/1080p] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этап 5. Арена: Международный автодром Майами (Майами, США).
+Гонка. 7 мая 2023, воскресенье.
+
+Картинка с канала F1 TV.Телекомпания: F1 TVЖанр: АвтоспортЯзык озвучки: Русский, Украинский, Грузинский, Английский, Немецкий, Французский, Испанский, Голландский, Португальский.Продолжительность: 02:01:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AAA3FC1C2DA96D72135F010D82868C76653A564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635981   (197878) от 28.05.2023
 
 Формула 1. Сезон 2023. Этап 07. Гран-при Монако. Квалификация (27.05.2023) WEB-DL [H.264/720p] [50fps] F1TV
@@ -6,7 +116,7 @@
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197878.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197834.jpg" />
 </div>
 
 
@@ -62,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197828.jpg" />
 </div>
 
 
@@ -88,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197564.jpg" />
 </div>
 
 
@@ -114,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197446.jpg" />
 </div>
 
 
@@ -140,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197436.jpg" />
 </div>
 
 
@@ -172,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196930.jpg" />
 </div>
 
 
@@ -198,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196895.jpg" />
 </div>
 
 
@@ -230,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196894.jpg" />
 </div>
 
 
@@ -256,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196273.jpg" />
 </div>
 
 
@@ -282,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196271.jpg" />
 </div>
 
 
@@ -314,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195997.jpg" />
 </div>
 
 
@@ -340,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195887.jpg" />
 </div>
 
 
@@ -370,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195871.jpg" />
 </div>
 
 
@@ -396,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195857.jpg" />
 </div>
 
 
@@ -426,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195328.jpg" />
 </div>
 
 
@@ -452,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195001.jpg" />
 </div>
 
 
@@ -478,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194999.jpg" />
 </div>
 
 
@@ -510,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194997.jpg" />
 </div>
 
 
@@ -540,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193825.jpg" />
 </div>
 
 
@@ -566,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193794.jpg" />
 </div>
 
 
@@ -595,7 +705,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193751.jpg" />
 </div>
 
 
@@ -609,118 +719,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D41B5DE497E2EC5CBD7CC2CBD0BC08446981079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587309   (192969) от 30.10.2022
-
-Формула 1. Сезон 2022. Этап 20. Гран-при Мексики. Квалификация (29.10.2022) WEB-DL [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192969.jpg" />
-</div>
-
-
-###  Подробнее
-
-29 октября 2022, суббота. 23:00 МСК. Этап 20, Мехико. Гран-при Мексики. КвалификацияТелекомпания: F1TV HDЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова), ОригиналСубтитры: ОтсутствуютПродолжительность: 01:15:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24209C466293C9F8125939F21C76FBC4897ED403
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587352   (192956) от 30.10.2022
-
-Формула 1. Сезон 2022. Этап 20. Гран-при Мехико. Квалификация (29.10.2022) WEB-DL [H.264/1080p] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этап 20. Арена: Автодром имени братьев Родригес (Мехико, Мексика)
-Квалификация. 29 октября 2022, суббота.
-
-Попов в начале трансляции квалификации специально уточнил, что это именно Гран-при Мехико.Телекомпания: F1 TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова), Русский (Вячеслав Кобржицкий), Украинский (Максим Подзигун), Грузинский, Английский, Немецкий, Французский, Испанский, Голландский, Португальский.Субтитры: отсутствуютПродолжительность: 01:17:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:649E384B15840562F3682178AA8896273B1E4029
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587281   (192951) от 30.10.2022
-
-Формула 1. Сезон 2022. Этап 20. Гран-при Мексики. Квалификация (29.10.2022) IPTV [H.264/1080i]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192951.jpg" />
-</div>
-
-
-###  Подробнее
-
-29 октября 2022, суббота. 23:00 МСК
-Гран-при Мексики. Квалификация. Этап 20
-Арена: Автодром имени братьев Родригес (Мехико, Мексика)Телекомпания: Setanta SportsЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: отсутствуютПродолжительность: 01:17:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BD2F1679A1FEBC86D994BD246FB730F5E601103
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587570   (192653) от 31.10.2022
-
-Формула 1. Сезон 2022. Этап 20. Гран-при Мехико. Гонка (30.10.2022) WEB-DL [H.264/1080p] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этап 20. Арена: Автодром имени братьев Родригес (Мехико, Мексика)
-Гонка. 30 октября 2022, воскресенье.
-
-Попов в начале трансляции квалификации специально уточнил, что это именно Гран-при Мехико.Телекомпания: F1 TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова), Русский (Вячеслав Кобржицкий), Украинский (Максим Подзигун), Грузинский, Английский, Немецкий, Французский, Испанский, Голландский, Португальский.Субтитры: отсутствуютПродолжительность: 02:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C0F21964FFABD76CCE12872E26DEAAE45DC4947
 ```
 
 https://mybot314.ru/tekegram_catalog/

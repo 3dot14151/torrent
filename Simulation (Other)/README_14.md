@@ -1,55 +1,3 @@
-###  Публикация: 1837386   (256751) от 16.11.2025
-
-Campus Life (2025) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создайте свой собственный путь. Некоторые говорят, что университетские годы – это лучшее время в жизни. Это правда? В этой игре - да! Даже если вы закончили учёбу давно, никогда не поздно вновь насладиться атмосферой студенческих лет. Создайте идеального студента, выбрав лучший набор качеств и навыков.Тип издания: RepackРазработчик: GameFormatic S.A.Жанр: Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E3C9D1E05B1AF9055D7F08A4A8A2BD7F0C4388B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837388   (256748) от 16.11.2025
-
-ServiceIT: You can do IT (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы владелец ИТ-сервисной компании. Выполнение, ремонт и проникновение в сеть для программирования, управления сервером и очистки. Ваши навыки подвергнутся окончательному испытанию, когда вы обнаружите присутствие неуловимого анонимного хакера, намеревающегося саботировать самую суть вашей компании.Тип издания: RepackРазработчик: picture4uЖанр: Казуальные игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Польский, Французский и другиеЯзык интерфейса: Русский, Английский, Польский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25510096A7307DA25F5DD2667DFEB3052959381A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837168   (256637) от 15.11.2025
 
 Bridge Constructor Playground (2014) [Ru/Multi] (1.4-fix) License GOG
@@ -58,7 +6,7 @@ Bridge Constructor Playground (2014) [Ru/Multi] (1.4-fix) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256637.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Bridge Constructor Medieval / Bridge Constructor: Средневековье (20
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256636.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Cash Cleaner Simulator (2025) [Ru/Multi] (1.3.1.628/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256610.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Organs Please (2022) [Ru/En] (1.02) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254662.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Cat Town (2022) [Multi] (1.0) Scene DARKSiDERS
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252477.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Bridge Constructor Stunts (2016) [Ru/Multi] (1.1-fix) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252476.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ Lumberjack's Dynasty (2021) [Ru/Multi] (1.09.1/dlc) License GOG [Digital Support
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252253.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Cats & Cups (2025) [Ru/Multi] (1.0.5) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250931.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ Stormworks: Build and Rescue (2020) [Ru/En] (1.15.5/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250921.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ Trailmakers (2019) [Ru/Multi] (213.503.082.0/dlc) Repack Necros [Ultimate Editio
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250881.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ THW-Simulator 2012 [Ger] (L) 2012 | ALiAS
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250670.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ Phantom Squad (2025) [Ru/Multi] (1.0.0.fb6954) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250502.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ House Flipper 2 / Хаус Флиппер 2 (2023) [Ru/Multi] (1.10.2/dlc) Repac
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250350.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ Trailer Park Tycoon: Raccoon Ranch (2025) [Ru/En ] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250337.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ Car Dealership Simulator (2023) [Multi] (1.2) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247709.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ A Game of Thrones: The Board Game (2020) [Multi] (1.1.0.1494/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247393.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ Necrosmith (2022) [Ru/Multi] (1.3.0.285) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247093.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ Airborne Kingdom (2022) [Multi] (1.10.3) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247056.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ Homeseek (2023) [Ru/Multi] (1.0) Scene Fairlight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246746.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ Mars First Logistics (2025) [Ru/Multi] (Build 20566341) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246260.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ Uplink: Hacker Elite (2001) [En] (1.6) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233750.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ Cities: Skylines II (2) (2023) [Ru/Multi] (1.3.6f1/dlc) Repack seleZen [Ultimate
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230586.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ Factorio (2020) [Ru/Multi] (2.0.72/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230234.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ PC Building Simulator 2 (2022) [Ru/Multi] (1.00.12) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225790.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ PC Building Simulator 2 (2022) [Ru/Multi] (1.00.12) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8E60B61855E46E1F222B4E7172C33042B85428F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1584253   (225089) от 18.10.2022
+
+This Is the Police 2 (2018) [Ru/Multi] (1.0.7) License GOG
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трактуйте законы как вам вздумается в This Is the Police 2, продолжении знаменитой нуар-драмы This Is the Police! Руководите департаментом шерифа, управляйте копами, расследуйте, допрашивайте, заключайте под стражу. Принимайте сложные решения – и постарайтесь сами не угодить за решетку! – в этом коктейле из приключенческой игры, стратегии и пошаговых тактических (   Читать дальше...   )Тип издания: LicenseРазработчик: Weappy StudioЖанр: Adventure, Strategy, SimulationЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:275F1D88072E51B3D574FC99465A6137F16A4D10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342055   (224567) от 01.12.2019
+
+Farmer's Dynasty (2017) [Ru/Multi] (1.00.2019.11.21) Repack xatab
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224567.jpg" />
+</div>
+
+
+###  Подробнее
+
+FARMER’S DYNASTY — это совершенно новый игровой опыт, совмещающий реалистичную имитацию с элементами ролевых игр и классических фермерских симуляторов. Помните старые добрые времена, когда вы навещали дедушку на ферме? Когда вы ездили с ним на тракторе по полям и помогали в работе? Теперь вы вернулись на свою ферму. За прошедшие годы было немало забот в городе, но (   Читать дальше...   )Тип издания: RepackРазработчик: UMEO StudiosЖанр: Симуляторы (Simulator)Язык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:405B224FB8B2097ABF3A705E5355C312A2830F7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

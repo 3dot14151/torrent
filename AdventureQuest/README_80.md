@@ -1,3 +1,133 @@
+###  Публикация: 1728397   (54076) от 07.06.2024
+
+Isles of Sea and Sky (2024) [Ru/Multi] (1.0.14493222) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Isles of Sea and Sky – стратегическое приключение с громадным числом головоломок на логику, внимательность и смекалку. Проект, разработанный двумя программистами, использует пиксельную графику и камеру, расположенную сверху, что отсылает на некоторые классические игры с похожей тематикой и визуальным рядом. Присутствует поддержка геймпадов без дополнительной настройки.Тип издания: RepackРазработчик: Cicada GamesЖанр: Приключенческие игрыЯзык субтитров: Русский, Английский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Китайский (упрощенный) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B2CF8C617AFF0B66E5CFCFE9293DD0ADCB007F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728455   (54067) от 07.06.2024
+
+Tamarindos Freaking Dinner (2024) [En] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tamarindos Freaking Dinner – это невероятно яркое, местами странное и пугающее приключение, в котором игроку предстоит посетить около 50 уникальных комнат и познакомиться с их обитателями. В некоторых диалогах не стоит искать смысла, они просто настолько абсурдны, что от этого кажутся более веселыми и смешными. В зависимости от сказанных фраз и действий, мнения героев (   Читать дальше...   )Тип издания: RepackРазработчик: Celery Emblem™Жанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B046486B7C03D3987E7C68D4ED3F7E99BB5BFC2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728771   (53994) от 08.06.2024
+
+DETECTIVE - Minerva case (2024) [Multi] (1.0) Scene Tinyiso
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53994.jpg" />
+</div>
+
+
+###  Подробнее
+
+DETECTIVE - Minerva case – постарайтесь раскрыть весьма непростое преступление в нашей предельно взрослой и захватывающей игре. А для этого посетите место преступления, отыщите все доказательства и наконец-то раскройте дело! Такая задача вам под силу? Недалекое будущее. Идет 2068 год. Компания, разрабатывающая домашний ИИ вот-вот выпустит свой революционный продукт.Тип издания: SceneРазработчик: k148 Game StudioЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Испанский, Испанский (Латинская Америка)Язык интерфейса: Английский, Испанский, Испанский (Латинская Америка)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A89B32FC96EDA3681313A423508A184A4A39972D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729031   (53870) от 09.06.2024
+
+The Invincible (2023) [Ru/Multi] (12808193) Repack dixen18
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53870.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Invincible представляет собой приключенческую игру с видом от первого лица. Проект использует антураж ретрофутуризма и отсылает к космической гонке между США и СССР в 20 веке. Тайтл выполнен в сеттинге атомпанка. Он может понравиться тем, кто любит атмосферу научно-фантастических триллеров. В основу нелинейного сюжета The Invincible лег роман "Непобедимый" (   Читать дальше...   )Тип издания: RepackРазработчик: Starward IndustriesЖанр: Экшны, Приключение, ФантаcтикаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий,  Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий,  Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBA9D8DA454A93DA4F6492B9316764AB3104EE79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728913   (53863) от 09.06.2024
+
+INDIKA (2024) [Ru/Multi] (14207837) Repack dixen18
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53863.jpg" />
+</div>
+
+
+###  Подробнее
+
+INDIKA - игра от третьего лица с историей о странном мире, в котором религия вступает в противоборство с жестокой реальностью. Игра повествует о молодой монахине, которая отправляется на поиски самой себя бок о бок с рогатым другом. Внешне Индика - обычная, ничем не выдающаяся монахиня. Она всеми силами пытается нести бремя монастырской жизни. Однако скромность и (   Читать дальше...   )Тип издания: RepackРазработчик: Odd MeterЖанр: Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31773611A6EAEF61E65EA75FA8A6633926CB1412
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729041   (53859) от 09.06.2024
 
 The Medium (2021) [Ru/Multi] (1.0.184) Repack dixen18
@@ -6,7 +136,7 @@ The Medium (2021) [Ru/Multi] (1.0.184) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53859.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Lumnis (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53849.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ The Legend of Crystal Valley / Легенда хрустальной долин�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53821.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.0.5b/dlc) License GOG [Digital Deluxe Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53800.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ NUKITASHI Дилогия (2023-2024) [Multi] (1.0.1/1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53676.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Three Goblin Wobblin' (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53651.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ The Wild at Heart (2021) [Multi] (1.1.9.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53599.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Scholar's Mate (2024) [Ru/Multi] (14623931) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53576.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ An English Haunting (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53559.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Scholar's Mate (2024) [Ru/Multi] (14623931) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53534.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Baisu (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53479.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ Enigma Quest (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53477.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53469.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Outer Wilds (2019) [Ru/Multi] (1.1.15/dlc) Repack Wagner
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53467.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Fallen Seeds (2024) [Ru/En] (1.0.15) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53371.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ Tension / Тургор (2008) [Ru] (1.01) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53236.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Q.U.B.E. 10th Anniversary (2022) [Ru/Multi] (1.4.24) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53080.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.2) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52959.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Chiyo (2024) [Multi] (1.0.6.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52925.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ HORROR TALES: The Beggar (2024) [Ru/Multi] (14729589) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52870.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ The Night is Grey (2024) [En] (1.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52819.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ The Night is Grey наполнена мрачной атмосферой тем�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8507DE5220A4F6B9824AFFC302B47E51060518BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615480   (52765) от 20.06.2024
-
-A Castle Full of Cats (2022) [Ru/Multi] (1.08) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52765.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Castle Full of Cats позволяет игрокам отправиться в красочное путешествие, где необходимо заниматься писком предметов в сюрреалистическом мире. Проект является классической визуальной головоломкой, где нужно осматривать внимательно локации, что нарисованы в мультипликационном и ярком стиле. Выйдет найти множество спрятанных кошечек, которые находятся в плену. Проект (   Читать дальше...   )Тип издания: LicenseРазработчик: DevcatsЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E053429E32BE5823EC6672A86C4DF454B935DA6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731569   (52608) от 21.06.2024
-
-Homebody (2024) [Multi] (1.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сурвайвал-хоррор вдохновленный слэшерами 80-х годов, который расскажет о группе друзей, преследуемых безжалостным убийцей. Сюжет расскажет о молодой девушке Эмили, которая однажды собирается со своими друзьями в доме, чтобы посмотреть на звездопад. Однако внезапно в доме отключают свет, а друзья героини начинают исчезать один за одним. Выясняется, что за молодыми (   Читать дальше...   )Тип издания: LicenseРазработчик: Game GrumpsЖанр: Приключенческие игрыЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CBEAA2ECCF0208598F2E86D9D4BE16D31E9DFCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731587   (52597) от 21.06.2024
-
-Alisa (2021) [Multi] (1.18) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сурвайвл хоррор, выполненный в духе классических игр жанра, таких как Resident Evil и Silent Hill. Визуальный стиль во многом вдохновлен нуаром 30-х годов, а героиня позаимствована у Льюиса Кэрролла из "Алисы в стране чудес". Играть предстоит за девушку из Элитного Королевского Агенства по имени Алиса. Она гонится за опасным преступником, который приводит (   Читать дальше...   )Тип издания: LicenseРазработчик: Casper CroesЖанр: Приключение, Экшны, ХоррорыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, ЯпонскийЯзык интерфейса: Английский, Французский, Итальянский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF1700A748A30DE8B052C6EA093350C7D1E08CCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731551   (52589) от 21.06.2024
-
-A Tower Full of Cats (2024) [Ru/Multi] (1.1.6) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52589.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Tower Full of Cats - это уникальная пазл-адвенчура в жанре Hidden Object, которая отправит вас в захватывающее приключение по истории кошек и даже дальше. Здесь вам предстоит собрать кошек из разных эпох и мест и подняться на башню времени, чтобы выполнить задание. Вам предстоит собрать более 500 кошек, в том числе более 100 спрятанных кошек, поэтому игрокам понадобится (   Читать дальше...   )Тип издания: LicenseРазработчик: DevcatsЖанр: Приключенческие игры, Казуальные игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0A6E46FA9EF70DE73F319EBC2D1B2AAFED093C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691580   (52555) от 22.06.2024
-
-Despair: Blood Curse (2024) [Ru/Multi] (1.02) License GOG [18+]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52555.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Despair: Blood Curse вы окажетесь на месте Анны - женщины, переживающей внезапную потерю матери в разгар глобальной пандемии. Но прежде чем горе успевает полностью улечься, приходит тревожное письмо от ее отдалившейся сестры, намекающее на нечто гораздо более зловещее. Шепот древнего проклятия и тайны, погребенные в разрушающихся стенах родового особняка, толкают (   Читать дальше...   )Тип издания: LicenseРазработчик: Crimson SequenceЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D262F3539D81996357093C98ECB16ED2A0B7756E
 ```
 
 https://mybot314.ru/tekegram_catalog/

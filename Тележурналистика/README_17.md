@@ -1,3 +1,107 @@
+###  Публикация: 1100904   (897123) от 05.02.2017
+
+Теория заговора. Продукты, которые мешают похудеть (2017.02.05) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897123.jpg" />
+</div>
+
+
+###  Подробнее
+
+А вы знаете, что есть вполне безобидные или даже полезные продукты, после которых вы легко съедите вместо тарелки супа — кастрюлю, вместе куска мяса — целого поросенка. А все потому, что эти продукты разжигают аппетит настолько, что мы просто не в силах остановиться. И готовы смести со стола буквально все. Сегодня мы назовем все опасные продукты нашего стола.Производство: РоссияТелекомпания: Первый каналЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:762E087628E98D445D028F5B03E0A945ED1C63DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101343   (896123) от 06.02.2017
+
+Один день в серой зоне (2017) HDTVRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поселок Зайцево расположен на линии разграничения между войсками Украины и ДНР. "Серая зона" - так называется эта территория, и для людей, которые здесь живут, война продолжается и днем, и ночью. В этой семье – одни женщины: дочка-первоклассница, мать, бабушка и прабабушка. Работы в посёлке Зайцево нет, живут тем, что вырастили на огороде. На учёбу Маша (   Читать дальше...   )Телекомпания: RTДЖанр: ДокументальныйПродолжительность: 00:27:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:473FC7F61330691048F85CEA20356FB0D7DDB575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993528   (896012) от 05.03.2016
+
+Центральное телевидение (05.03.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня мы вылавливаем новости в телеэфире и Интернете, обсуждаем в очередях и в блогах, обмениваемся ссылками на интересные видеоролики и фото и не делим новости на «официальные» и «из жизни». Чтобы вызвать цепную реакцию, любая тема должна отвечать единственному требованию — быть интересной. Тот же принцип положен в основу нового воскресного проекта НТВ «Центральное (   Читать дальше...   )Телекомпания: НТВЖанр: ДокументальныйПродолжительность: 00:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51B99DA3747CCCA483C145B4F1807C270A0864F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993560   (896000) от 05.03.2016
+
+Новые русские сенсации. Наталья Крачковская. Я искала тебя 25 лет (2016.03.05) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа "Русские сенсации" - это еженедельное документальное приложение к "Программе Максимум". Созданная в лучших традициях расследовательской журналистики, программа развивает и углубляет этот жанр, затрагивая темы, о которых раньше никогда не рассказывало отечественное ТВ. Большинство фильмов - уникальные разработки, слишком громкие и масштабные (   Читать дальше...   )Телекомпания: НТВЖанр: ДокументальныйРежиссер: Глеб Ясиницкий, Андрей Куренков, Дмитрий ЦураСубтитры: ОтсутствуютПродолжительность: ~ 00:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C80C054E7A45AD63A8ABAE4E9B9A76FA27D536E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993330   (895977) от 05.03.2016
 
 Человек и закон (04.03.2016) HDTVRip [H.264/720p-LQ]
@@ -6,7 +110,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895977.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895671.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895664.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895223.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895148.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895125.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895073.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894198.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894156.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894058.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893937.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893876.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893843.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893528.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892413.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892305.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892298.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891655.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891505.jpg" />
 </div>
 
 
@@ -506,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891462.jpg" />
 </div>
 
 
@@ -535,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891192.jpg" />
 </div>
 
 
@@ -561,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889856.jpg" />
 </div>
 
 
@@ -572,110 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6122D582153EFD65178AFCF5AF9C051F7A65893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371875   (888583) от 01.04.2020
-
-Живем как обычно (2019) WEBRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герои фильма — воспитанники Московской Школы-интерната N1, где обучаются слепые и слабовидящие дети. Они исследуют мир, учатся дружить и проводить время вместе с другими детьми, занимаются спортом и музыкой, увлекаются лепкой и рисованием. Ежедневно школьники гуляют с помощью трости, пишут с помощью грифеля и видят с помощью рук. Распорядок дня давно стал привычным (   Читать дальше...   )Производство: Россия / Продюсерский центр "Ералаш"Жанр: ДокументальныйРежиссер: Евгений ЮликовСубтитры: ОтсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9A533CCEDEEBA9FAF6AA8F4261A4E634AB2CBAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995043   (888238) от 09.03.2016
-
-Линия защиты. Война по сценарию (2016.03.09) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждую неделю, в прайм-тайм, фильм-репортаж – о нас, о главных и спорных моментах нашей с вами жизни. Это больше, чем новости. Мы освещаем самые актуальные события и проблемы, а авторы программы готовы взглянуть на них со своей особой, индивидуальной точки зрения. Все интересное, необычное, зрелищное, что заслуживает вашего внимания, найдёт отражение в нашем эфире.Производство: РоссияТелекомпания: ТВЦЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:25:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:982F36BCDDF94F717BDBA02298677F0E6F5C7DDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994882   (888135) от 09.03.2016
-
-Мир нанотехнологий (2015) HDTVRip [720p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл программ о людях, идеях и проектах, которые станут основой российской индустрии будущего, а также о разработках в наноиндустрии, изобретениях в технической области, инновациях и прорывных технологиях в самых разных сферах производства.В этом выпуске: Чудо, стекло которое сделает ненужными привычные всем кондиционеры. Огромный погрузчик, в кабине которого лучше не садится. Цех автомат, сошедший со страниц научной фантастики. Какие технологии имеют право на приставку нано.Телекомпания: Eureka HDЖанр: ТелепередачаПродолжительность: 00:25:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E3835F6D00518C0200B880812B5E78A86C7CD04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103064   (887545) от 11.02.2017
-
-Научное расследование Сергея Малозёмова. Еда живая и мертвая (2017.02.11) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887545.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Еда живая и мертвая» – новый научно-популярный цикл Сергея Малозёмова, репортера с медицинским образованием, автора и ведущего программы «Чудо техники» и научных расследований о климате, технологиях, бессмертии и экологии.Производство: НТВЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0456F428424196A8B4259BC90FDDE3BE09652368
 ```
 
 https://mybot314.ru/tekegram_catalog/

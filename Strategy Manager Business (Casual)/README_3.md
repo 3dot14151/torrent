@@ -1,3 +1,29 @@
+###  Публикация: 249702   (386178) от 25.10.2010
+
+Fix It Up / Починяй-ка. Мастерская Кейт (P) [Ru] (2009)
+
+>>Win Игры
+>>Strategy/Manager/Business (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_386178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Захватывающая бизнес-стратегия на автомобильную тематику. Вместе с обаятельной девушкой по имени Кейт вы будете руководить сетью автосервисов. Дело это непростое, так что приготовьтесь к трудностям! Чтобы привести ваш бизнес к успеху и процветанию, придется хорошо потрудиться. Залог вашего успеха — квалифицированное профессиональное обслуживание. Даже самая невзрачная развалюха должна выйти из ваших рук сверкающей и обновленной. Ремонтируйте машины, сдавайте их в аренду, покупайте новые запчасти и улучшайте оборудование. Эта игра станет приятным сюрпризом для всех автолюбителей. Вас ждет сбалансированная экономическая модель, множество увлекательных уровней и даже комикс по мотивам игрового сюжета. Скорее приступайте, Кейт без вас не обойтись!Тип издания: ПираткаЖанр: Бизнес-симулятор, АркадаЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1178191   (357505) от 27.10.2017
 
 Bounty Train (2017) [Ru/Multi] (1.0.13832/dlc) License GOG [Trainium Edition]
@@ -6,7 +32,7 @@ Bounty Train (2017) [Ru/Multi] (1.0.13832/dlc) License GOG [Trainium Edition]
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357505.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Elven Legend 5: The Fateful Tournament / Эльфийская легенда 5: 
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350671.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Production Line (2017) [En] (1.36) Repack KillaMD
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348488.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Rainblood: Town of Death (P) [En] 2010
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_334603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_334603.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Production Line (2017) [Multi] (1.81/dlc) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308786.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Serious Sam: The Random Encounter (2011) [En] (13.11.2015) Repack R.G. Меха�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304594.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Adventures of Megara 2: Antigone and the Living Toys / Приключения М
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_299347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_299347.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299005.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Lost Artifacts 5: Frozen Queen / Кладоискатели 5: Снежная к
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290718.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Kingdom Rush: Frontiers (2016) [Ru/Multi] (1.3.4/dlc) Repack Other s
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289278.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Gnomes Garden 4: New Home / Сад Гномов 4: Новый Дом (2016) [Ru]
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276831.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Aerie - Spirit of the Forest / Эри - дух леса (P) [Ru] 2010
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274585.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Alice's Wonderland: Cast In Shadow / Алиса в стране чудес: Те
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272283.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Hermes 2: War of the Gods / Гермес 2: Война богов (2019) [Ru] (1
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269482.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ How To Frazzle Out A Neighbor Tycoon's Vacation  / Как достать сос�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257331.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Toy Defense / Солдатики (L) [Ru] 2012
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255982.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Weather Lord  / Повелитель погоды (L) [Ru] 2012
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253851.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Rogue Hex (2025) [Ru/Multi] (1.1.0/dlc) Repack Let'sРlay [Supporter Edition]
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250475.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Microtopia (2025) [Ru/Multi] (1.1.2f2/dlc) Repack Let'sРlay [Supporter Edition]
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250466.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Garden Defense / Огородные войны. Атака жуков (P) [Ru] 2
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248941.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Beyond the Kingdom 2 / За пределами королевства 2 (2025) [
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248619.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Undead Horde (2019) [Ru/Multi] (1.2.2) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247362.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Big Pharma (2015) [Multi] (1.07.10/dlc) Repack Others [The Healthy Profits Bundl
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217829.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Golden Rails 4: Worlds Fair / Золотые рельсы 4: Всемирная 
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211173.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Viking Heroes 3 / Герои викинги 3 (2022) [Ru] (1.0) Unofficial [Coll
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207880.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Viking Heroes 3 / Герои викинги 3 (2022) [Ru] (1.0) Unofficial [Coll
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5E3EC70BD2CB19D1F5D1556D6D29F591EAC58CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611266   (202833) от 11.02.2023
-
-Dwarven Skykeep (2022) [Ru/Multi] (50015) License GOG
-
->>Win Игры
->>Strategy/Manager/Business (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dwarven Skykeep - стратегическая игра, в которой потребуется строить магическую Башню и защищать ее от нападения врагов. Развитием крепости необходимо заниматься в дневное время суток, в то время как с наступлением ночи предстоит сражаться не на жизнь, а на смерть. Управляя талантливым волшебником, сражайтесь с различной нечистью, жгущей книги в библиотеке и затапливающей (   Читать дальше...   )Тип издания: LicenseРазработчик: Hack The PublisherЖанр: Стратегия, Строительство, ФэнтeзиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Китайский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Китайский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E96912F35239A9D1E0A6135B991214684E3CDF58
 ```
 
 https://mybot314.ru/tekegram_catalog/

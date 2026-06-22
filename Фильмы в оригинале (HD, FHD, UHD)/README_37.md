@@ -1,3 +1,135 @@
+###  Публикация: 1055223   (490325) от 21.09.2016
+
+Нина / Nina  (2016) BDRip [H.264/720p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490325.jpg" />
+</div>
+
+
+###  Подробнее
+
+История жизни американской певицы, пианистки и композитора Нины Симон, включая рассказ о ее восхождении к славе и отношениях с ее менеджером Клифтоном Хендерсоном.Производство: ВеликобританияЖанр: драма, биография, музыкаРежиссер: Синтия МортАктеры: Зои Салдана, Дэвид Ойелоуо, Кевин Мамбо, Роналд Гаттман, Шума Голт, Эллисон Сарофим, Майк Эппс, Кит Дэвид, Элла Джойс, Стивенс Гастон, Джессика ОйелоуоПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:30:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8EE4FA5FE70CCB24C6AAFDB538FBA888E317FC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937142   (489894) от 14.09.2015
+
+Восхождение Крэйсов / The Rise of the Krays  (2015) BDRip [H.264/720p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первые годы самых печально известных преступников, которых когда-либо производила Великобритания, изображаются в интуитивной жестокости фильма Восхождение Крэйсов. Лондон, 1961: Ронни и Реджи Крэй начинают господство террора, который вынес бы и определил бы Ист-Энд Лондона в течение многих последующих лет. От защиты ракет для членских клубов, от жестоких уличных (   Читать дальше...   )Производство: Великобритания, Torn Pictures and Saracen Films.Жанр: криминалРежиссер: Закари АдлерАктеры: Николя Степлтон, Кевин Лесли, Саймон Коттон, Мариола Яворска, Марк Престон, Алекса Булл, Пол Блэкуэлл, Алекс Маркс, Филип Ховард, Дэнни Мидуинтер,  Георг НиколоффПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:845BA1AC492C1E835B5993CF693F3615BE78294B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158881   (489798) от 17.08.2017
+
+Охранник / Security (2017) BDRip [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эдди Дикон хотел лишь одного: тихой и скучной работы. Он был согласен на все, что угодно, лишь бы скрыться подальше от людской суеты. И Эдди повезло: его взяли на должность ночного охранника в торговом центре. Но уже в первую смену все идет не по плану.
+Преступники преследуют в ночи девочку, свидетельницу убийства. Для них не помеха даже бронированный полицейский (   Читать дальше...   )Производство: США, Nu Boyana Film Studios, Nu Image / Millennium Films, Security ProductionsЖанр: БоевикРежиссер: Ален ДерошерАктеры: Антонио Бандерас, Бен Кингсли, Лиам МакИнтайр, Габриэлла Райт, Чэд Линдберг, Кунг Ле, Яна Маринова, Марк Смит, Башар Рахаль, Дзиро Ван ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:31:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA1C3BDC8CF27F08628CE0B5D8BFDDAE816A391C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243915   (488044) от 29.08.2018
+
+Клуб миллиардеров / Billionaire Boys Club  (2018) BDRemux [H.264/1080p] [EN / Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лос-Анджелес начала 1980-х. Компания молодых людей решает провернуть аферу, благоприятный исход которой сулит огромные деньги. Схема обогащения оказывается жизнеспособной и вместе с тем - смертельной.Производство: США / Armory Films, Oriah Entertainment , Tibet Born Pictures Limited , Vantage EntertainmentЖанр: триллер, драма, биографияРежиссер: Джеймс КоксАктеры: Энсел Элгорт, Кевин Спейси, Тэрон Эджертон, Эмма Робертс, Райан Роттман, Джереми Ирвин, Томас Кокерел, Боким Вудбайн, Барни Харрис, Валид Зуэйтер, Сьюки Уотерхаус, Билли ЛурдПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: испанскиеПродолжительность: 01:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A659BB2AE2C8AD950C21EB4DDCB6B2AAA576373
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937458   (487948) от 15.09.2015
+
+Анти-социальный / Anti-Social  (2015) WEB-DL [H.264/720p-LQ] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487948.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре событий нам предстоит увидеть историю о жизненном выборе двух братьев. Маркус и Ди две абсолютные противоположности!
+И вот наступает день, когда Ди удается найти свое место на арт-сцене, он даже смог пробиться в высшие круги, Маркус же продолжает заниматься воровством с еще большим стремлением, ведь таким образом он планирует заработать целое состояние. (   Читать дальше...   )Производство: Венгрия, Великобритания, RST Pictures, JRSM Films, Origo Film GroupЖанр: криминалРежиссер: Рег ТревиссАктеры: Грегг Салкин, Меган Маркл, Джош Майерс, Кристиан Беркель, Ричи Кэмпелл, Эндрю Шим, Софи Колкухоун, Кэролайн Форд, Аймен Хамдуши, Майкл МарисПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:56:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3725848C6D97D8ACE3A68E633A09E57361152B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 821262   (487773) от 14.09.2014
 
 Восхождение Сокола / Falcon Rising (2014) WEB-DLRip [H.264/720p-LQ] [EN / EN Sub]
@@ -6,7 +138,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487773.jpg" />
 </div>
 
 
@@ -33,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487724.jpg" />
 </div>
 
 
@@ -59,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487681.jpg" />
 </div>
 
 
@@ -86,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487552.jpg" />
 </div>
 
 
@@ -112,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487403.jpg" />
 </div>
 
 
@@ -138,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485899.jpg" />
 </div>
 
 
@@ -164,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485775.jpg" />
 </div>
 
 
@@ -190,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483872.jpg" />
 </div>
 
 
@@ -217,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483758.jpg" />
 </div>
 
 
@@ -243,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483752.jpg" />
 </div>
 
 
@@ -269,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483481.jpg" />
 </div>
 
 
@@ -295,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482608.jpg" />
 </div>
 
 
@@ -321,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481698.jpg" />
 </div>
 
 
@@ -347,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481303.jpg" />
 </div>
 
 
@@ -373,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481294.jpg" />
 </div>
 
 
@@ -399,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479637.jpg" />
 </div>
 
 
@@ -425,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477690.jpg" />
 </div>
 
 
@@ -451,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477687.jpg" />
 </div>
 
 
@@ -477,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476647.jpg" />
 </div>
 
 
@@ -503,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475541.jpg" />
 </div>
 
 
@@ -529,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475523.jpg" />
 </div>
 
 
@@ -541,136 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC45E2E6E21105ABA9F19E8A1ABB69468DD05992
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160266   (475522) от 24.08.2017
-
-Непостижимое / Inconceivable (2017) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загадочная молодая девушка Кэти вместе со своей дочерью переезжает в новый город, чтобы сбежать от прошлого. Там она быстро находит общий язык с женщиной по имени Анджела Морган, которая живёт с мужем Брайаном и дочерью. Анджела приглашает новую подругу пожить в их гостевом домике и поработать у них в качестве няни. Вскоре Морганы замечают, что Кэти как-то слишком (   Читать дальше...   )Производство: КанадаЖанр: триллер, драмаРежиссер: Джонатан БэйкерАктеры: Николас Кейдж, Джина Гершон, Никки Уилан, Фэй Данауэй, Натали Эва Мари, Леа Хебнер, Джонатан Бейкер, Тайлер Джон Олсон, Джеймс Ван Паттен, Пернилла ТройхаардПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:463F395CDE03B71830CA5D94848841FB585C15EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245364   (473869) от 05.09.2018
-
-Идеальный дом / Ideal Home  (2018) BDRemux [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эрасмус и Пол живут весёлой и беззаботной жизнью, пока на пороге не возникает 10-летний парень - по его собственному заверению, внук Эрасмуса. Привычному существованию приходит конец.Производство: США / Remstar Studios, Baby Cow Films, Lucky Monkey Pictures, Mustard & CoЖанр: драма, комедияРежиссер: Эндрю ФлемингАктеры: Пол Радд, Кейт Уолш, Элисон Пилл, Джейк Макдорман, Стив Куган, Сара Минник, Лора Каннингэм, Джесси Люкен, Фрэнсис Ли МакКейн, Моник Канделария, Стэффорд Дуглас, Дженни ГэбриэлльПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:31:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:756534A1C272DC11CF42D2B7EBC30087AA950602
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160589   (471261) от 26.08.2017
-
-Тетрадь смерти / Death Note (2017) WEBRip [H.264/1080p-LQ] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Способный студент Лайт находит загадочную тетрадь смерти, которая может убить любого, чье имя в нее вписать. Парень решает начать миссию по очистке улиц от преступников. Вскоре студент-линчеватель обнаруживает, что его преследует известный профайлер ФБР, скрывающийся под псевдонимом L.Производство: США, Lin Pictures, Vertigo EntertainmentЖанр: Ужасы, Фэнтези, Боевик, ТриллерРежиссер: Адам ВингардАктеры: Маргарет Куэлли, Лейкит Стэнфилд, Уиллем Дефо, Нат Вулф, Шей Уигэм, Маси Ока, Майкл Шамус Уайлз, Пол МакДжиллион, Олена Медвид, Лия Лам ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 01:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84806492FA84356B646EF084A0A99A3F787BBAF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160576   (471258) от 26.08.2017
-
-Вспомнить заново / Rememory (2017) WEBRip [H.264/720p-LQ] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм расскажет о гениальном ученом, загадочным образом умирающем ровно за день до представления своего уникального открытия — прибора, который может записывать и воспроизводить воспоминания.Производство: США, Канада / First Point Entertainment, Scythia Films, Strophic Productions LimitedЖанр: Драма, Детектив, ФантастикаРежиссер: Марк ПаланскиАктеры: Питер Динклэйдж, Антон Ельчин, Джулия Ормонд, Генри Йен Кьюсик, Эвелин Брошу, Мартин Донован, Джордана Ларги, Кэрри Энн Флеминг, Грэйсин Шиней, Колин Лоуренс ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20CB485A33D7D056FBFA59444296A5FA41DF921B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058031   (470620) от 30.09.2016
-
-Моя пекарня в Бруклине / My Bakery in Brooklyn  (2016) BDRip [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Романтическая комедия о двоюродных сестрах Вивьен и Хлое, получивших в наследство тетушкину пекарню. Дружные с детства героини становятся конкурентками: Хлоя на своей половине устраивает современное заведение для хипстеров, в то время как Вивьен остается верна старым порядкам. Но девушкам придется забыть о разногласиях, когда над семейным наследием нависнет угроза.Производство: Испания, СШАЖанр: мелодрама, комедияРежиссер: Густаво РонАктеры: Эйми Тигарден, Криста Родригез, Гриффин Ньюман, Эрни Сабелла, Бланка Суарес, Уорд Хортон, Летти Серра, Айтор Луна, Энрике Арсе, Энтони Чисхолм, Линда Лавин, Энтони АлессандроПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAF5184E003848BFDDB27EBCFB2CF14129F243DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

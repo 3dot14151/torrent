@@ -1,3 +1,146 @@
+###  Публикация: 506023   (689392) от 05.06.2012
+
+Ария - Классическая Ария (2002) TVRip [Версия 2012 года]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись знаменитого концерта группы Ария, который прошел в Зеленом театре 1 июня 2002 года. Данная версия концерта отличается от предыдущей версии большей продолжительностью (01:57:18, против 01:24:02). Концерт прошел в сопровождении международного симфонического оркестра "Глобалис", дирижер Константин Кримец. В некоторых песнях присутствуют в начале и конце (   Читать дальше...   )01. Увертюра
+02. Здесь куют металл
+03. Волонтёр
+04. Тореро(   Читать дальше...   )Жанр: Концерт, Heavy MetalПродолжительность: 01:57:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFF3D5971EFE50C1439EB94D18AF05C566528A81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 506234   (689389) от 05.06.2012
+
+Вудсток, 3 дня мира и музыки / Woodstock, 3 Days of Piece & Music (1970) [1080p] Blu-ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм о музыкальном фестивале в Вудстоке. Режиссер фильма Майкл Уэдли, в этой работе, не просто запечатлел ряд выступлений популярных исполнителей своего времени, но и создал уникальный портрет поколения шестидесятых годов в Америке. Организаторы фестиваля в Вудстоке анонсировали его как "Три Дня Мира и Музыки" и изначально надеялись собрать аудиторию в 150,000 человек. Фестиваль начался в пятницу, 15 августа 1969 года, но количество его участников быстро перевалило за 450,000, тем самым вызвав огромные пробки на порогах, нехватку пищи и медикаментов, а также вскрыло организационные проблемы. В субботу стали пускать всех, чтобы было где разместить людей, которые всё прибывали просто так, без билетов.
+Одни исполнители сменяли других, музыка играла практически без остановок, даже несмотря на дожди которые периодически принимались поливать гостей и участников фестиваля. Среди зрителей использование психореактивов было самым обычным делом, а санитарные условия были примитивны, да и качество (   Читать дальше...   )Жанр: Рок, документальныйРежиссер: Майкл УодлиАктеры: Richie Havens, Joan Baez, The Who, Sha Na Na, Joe Cocker, Country Joe and The Fish, Arlo Guthrie, Crosby, Stills and Nash, Ten Years After, Santana, Sly and the Family Stone, Jimi Hendrix, Canned Heat, John Sebastian, Jefferson Airplane, Janis JoplinПеревод: нетПродолжительность: 03:44:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028026   (688575) от 23.06.2016
+
+VA - Hellfest Open Air (2016) HDTV [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступления звезд Rock and Metal музыки на ежегодном рок фестивале Hellfest проходящем в этом уикенд june 17-19, 2016 в французском городе Клисон01. Twisted Sister - Destroyer
+02. Twisted Sister - You Can't Stop Rock 'n' Roll
+03. Rammstein - Ramm 4
+04. Rammstein - Reise, Reise(   Читать дальше...   )Производство: ARTEЖанр: Rock, MetalПродолжительность: 01:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E9627B31D1B45A709CB7709DC86BCB9FBFF5307
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 334514   (687640) от 10.05.2011
+
+Песни Весны и Победы (2011) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная видеозапись – компиляция двух концертов, посвященных Дню Победы, проходивших в Государственном Кремлевском дворце в 2008 и 2009 годах.  Часть песен, представленных здесь, имеется в этой раздаче.  Однако, есть песни, которые не вошли в соответствующие телеверсии. В любом случае, это еще один подарок всем ко Дню Победы. Эфир программы: 8 мая 2011 года (Первый (   Читать дальше...   )01.	Иосиф Кобзон - Поклонимся великим тем годам
+02.	Александр Маршал - На безымянной высоте
+03.	Татьяна Буланова - Синий платочек
+04.	Дмитрий Билан - Тёмная ночь(   Читать дальше...   )Производство: Первый каналЖанр: КонцертПродолжительность: 01:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B89461F1990A8469C75C47BE507E0F8272C668F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 897268   (687415) от 12.05.2015
+
+Uriah Heep - Live At Koko (2014) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Uriah Heep выпускают концертный альбом Live At Koko, London 2014. Диск поступил в продажу 20 февраля в Европе и 24 февраля в Северной Америке, причем в разных форматах, как на обычном CD, так и на DVD/Blu-ray.01. Against The Odds
+02. Overload
+03. Traveller In Time
+04. Sunrise(   Читать дальше...   )Жанр: Rock, Prog Rock, Hard RockСубтитры: ОтсутствуютПродолжительность: 01:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7172A9357F3EED5726FB1554E741A510BFFF71FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 506462   (687404) от 06.06.2012
 
 30 seconds to Mars - Rock am Ring 2010 (Comlpete) HDTV [720p]
@@ -6,7 +149,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687404.jpg" />
 </div>
 
 
@@ -32,7 +175,7 @@ Thunder - Stage (2018) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687246.jpg" />
 </div>
 
 
@@ -64,7 +207,7 @@ Scorpions - Hellfest (2015) HDTVRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686091.jpg" />
 </div>
 
 
@@ -95,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685990.jpg" />
 </div>
 
 
@@ -121,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684681.jpg" />
 </div>
 
 
@@ -147,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683984.jpg" />
 </div>
 
 
@@ -173,7 +316,7 @@ Accept - Blind Rage (Live In Chile) (2013/2014)  BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683235.jpg" />
 </div>
 
 
@@ -202,7 +345,7 @@ Evanescence - Live at Verizon Arena (2012) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683179.jpg" />
 </div>
 
 
@@ -228,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_682779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_682779.jpg" />
 </div>
 
 
@@ -257,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682122.jpg" />
 </div>
 
 
@@ -284,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681964.jpg" />
 </div>
 
 
@@ -311,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681957.jpg" />
 </div>
 
 
@@ -337,7 +480,7 @@ Within Temptation / Within Temptation - Black Symphony (2008) (1080p) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_680678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_680678.jpg" />
 </div>
 
 
@@ -363,7 +506,7 @@ Foreigner - Live at the Rainbow '78 (2019) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680129.jpg" />
 </div>
 
 
@@ -391,7 +534,7 @@ Eric Clapton, Steve Winwood, Jeff Beck, Jimmy Page - A.R.M.S. Concert 2 (1983) D
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679600.jpg" />
 </div>
 
 
@@ -420,7 +563,7 @@ Jimmy Page, Robert Plant & friends - California Poison II (1995) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679589.jpg" />
 </div>
 
 
@@ -449,7 +592,7 @@ Paul McCartney - Live at the BBC (2013) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679588.jpg" />
 </div>
 
 
@@ -478,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678568.jpg" />
 </div>
 
 
@@ -504,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_678424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_678424.jpg" />
 </div>
 
 
@@ -533,7 +676,7 @@ Swinging Bach. Bobby McFerrin and Guests (Live in Leipzig) (2000) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678186.jpg" />
 </div>
 
 
@@ -559,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677964.jpg" />
 </div>
 
 
@@ -573,142 +716,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C75ABD527286740B90F80A7E609F98FCFDA719C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222865   (677130) от 03.05.2018
-
-Квартирник на НТВ у Маргулиса. Чиж & Co (29.04.2018) DVD5 [hand made]
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущий программы - российский рок-музыкант Евгений Маргулис, бывший участник легендарной группы «Машина времени» — приглашает на домашние концерты известных рок-музыкантов России. В этом выпуске в гостях у Евгения Маргулиса - группа Чиж & Co.Дата эфира: 29.04.201801.Еду, еду...
-02.Sha-la-la
-03.Такие дела
-04.Мама(   Читать дальше...   )Жанр: РокРежиссер: Кирилл ПапакульАктеры: Чиж & Co, Евгений МаргулисПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:16:56 + 00:27:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C099B8649795F344ECBFD0ADE6D823729E696B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135661   (676723) от 21.05.2017
-
-Борис Васильев - Самый последний день (1973) SATRip (Государственный академический Малый театр)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм-спектакль по одноименной пьесе Бориса Васильева о последнем рабочем дне перед уходом на пенсию милиционера Семена Митрофановича Ковалева, человека большой души, честного и благородного. Но последний день его службы завершился трагически…Производство: СССР, Творческое объединение "Экран", Государственный академический Малый театрЖанр: Спектакль, драма, детективРежиссер: Виталий Иванов, Борис РавенскихАктеры: Михаил Жаров, Юрий Васильев (I), Евгений Весник, Эдуард Марцевич, Тамара Торчинская, Виктор Хохряков, Ирина Ликсо, Вячеслав Езепов, Георгий Оболенский, Татьяна Панкова, Виталий Коняев, Ольга Чуваева, Александр Пронин, Евгений Буренков, Виктория Лепко, Сергей Еремеев, Ярослав Барышев, Борис ТелегинСубтитры: отсутствуютПродолжительность: 01:08:32 + 01:09:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49F94333ACF26718293B3C33280FAF7358D269E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534015   (676563) от 11.03.2022
-
-Квартирник у Маргулиса. Татьяна Зыкина (26.02.2022) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Атмосферный камерный концерт рок-певицы, резидента крупнейших музыкальных фестивалей. Татьяна Зыкина стала известна в конце нулевых. С момента выхода первого альбома прошло больше 10 лет, но ее чувственный соул-рок по-прежнему невероятно подкупает публику и поклонников артистки. В феврале 2022 года вышел новый альбом певицы под названием «Седьмой альбом». Как отметила (   Читать дальше...   )0:00:00 Квартирник
-0:00:05 Химия
-0:06:28 Пока ты снишься
-0:12:36 Водопадами(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:827C16E2C0001030799EDB817684898EE36679D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 337440   (676544) от 15.05.2011
-
-Britney Spears - Till The World Ends (Dance Version) (2011) HDTVRip 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ВидеоклипПродолжительность: 00:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD280A5CC01AB58F4828DCC2CC99D5182B91437B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508679   (676508) от 11.06.2012
-
-DVJ Bazuka - Anything [Без цензуры] (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:02:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:727F61B4722342E3AB9A40D78750649B50DC15C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

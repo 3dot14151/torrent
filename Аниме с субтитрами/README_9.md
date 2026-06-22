@@ -1,3 +1,29 @@
+###  Публикация: 1452852   (1027398) от 08.03.2021
+
+Rou Kyuu Bu! Tomoka no Ichigo Sunday | Баскетбольный клуб! OVA [2013, OVA] DVDRip 480p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бонус к PSP игре Rou Kyuu Bu! Himitsu no Otoshimono (ロウきゅーぶ! ひみつのおとしもの).Производство: Студия Project No.9Жанр: комедияРежиссер: Янаги СинсукэПеревод: Dreamers TeamЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 1 эп. 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0035861A9F6E5FF128FE26C9C7E4C55D21174E9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452861   (1027385) от 08.03.2021
 
 Karakuri Kiden Hiwou Senki | Hiwou War Chronicles | Заводные бойцы: Война Хио [2000, TV, 26] DVDRip 560p raw
@@ -6,7 +32,7 @@ Karakuri Kiden Hiwou Senki | Hiwou War Chronicles | Заводные бойцы:
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027385.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Yotsunoha | Четыре листочка [2008, OVA, 2 из 2] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027380.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Hajime no Ippo: Champion Road | Первый шаг: Путь чемпиона [
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027372.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ Wangan Midnight | Ванганская полночь [2007, TV, 26] DVDRip 480 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027369.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Hajime no Ippo: The Fighting - New Challenger | Первый шаг [ТВ-2] [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027361.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ The Spirit of Wonder | Spirit of Wonder | Дух чудес OVA-1+2 [1992 и 200
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027358.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ Monster Musume no Oisha-san | Monster Girl Doctor | Доктор для деву
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027319.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ Bobby ni Kubittake / Bobby's Girl / Девушка Бобби [1985, MV] DVDrip 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027317.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ Sky Girls / Небесные девочки OVA [2006] DVDrip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027316.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ Tenkuu Shinpan | High-Rise Invasion | Небесное вторжение [2021,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027315.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ Digital Juice / Цифровой Сок (2002, 6 эп.) DVDRip 400p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027291.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ Hajime no Ippo - Mashiba vs Kimura / Первый шаг - Масиба прот
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027284.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ Ayu Mayu Gekijou | Театр Аю и Маю [2006, OVA, 4 + 3 SP] BDRip 1080p r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027242.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ Akane Maniax | Фанаты Аканэ [2004, OVA, 3 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027231.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ Erementar Gerad | Elemental Gelade | Воздушные пираты [2005, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027210.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ Kuutei Dragons | Drifting Dragons | Небесные драконы [2020, Web, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027205.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ Sky Girls / Небесные девочки [2007, TV, 26 + 9 sp] DVDrip 480p ra
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027145.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ Maris the Chojo | The Supergal | Марис Сильнейшая [1986, OVA] DVD
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027063.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ Big Wars: Kami Utsu Akaki Kouya ni | Большие Войны [1993, OVA] DVDRi
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027053.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ Dengeki Oshioki Musume Gootaman / Butt Attack Punisher Girl Gautaman / Гаут�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027004.jpg" />
 </div>
 
 
@@ -542,7 +568,7 @@ Ame to Shoujo to Watashi no Tegami | Rain, the Little Girl, and My Letter | До
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026753.jpg" />
 </div>
 
 
@@ -568,7 +594,7 @@ Saishuuheiki Kanojo: Another Love Song | SaiKano: Another Love Song | Моя д�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026752.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ Key the Metal Idol / Кии - металлический идол [1994, OVA, 15
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026685.jpg" />
 </div>
 
 
@@ -623,7 +649,7 @@ Digital Devil Monogatari Megami Tensei / Digital Devil / Повесть о ци�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026684.jpg" />
 </div>
 
 
@@ -649,7 +675,7 @@ Kaidoumaru | Kai Doh Maru | Кайдомару [2001, OVA] DVDRip 368p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026606.jpg" />
 </div>
 
 
@@ -660,34 +686,6 @@ Kaidoumaru | Kai Doh Maru | Кайдомару [2001, OVA] DVDRip 368p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7604EF2D248E217F3C375837EC68928BE1EA54F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454006   (1026593) от 13.03.2021
-
-Green Legend Ran | Зеленая легенда Рана [1992, OVA, 3 из 3] DVDRip 480p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Земная цивилизация погубила себя отходами собственной жизнедеятельности – загрязнила воду, иссушила почву, истощила недра. Однако настоящий апокалипсис случился, всё-таки, не сам собой: из космоса прибыли пришельцы – Родо, которые выкачали остатки воды и ископаемых, превратив голубую планету в засохший глиняный шар.
-
-Остатки человечества пугливо поклоняются пришлым (   Читать дальше...   )Производство: AICЖанр: приключения, драма, фантастикаРежиссер: Сага СатосиПеревод: SHmeLL & TurpisЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 3 эп. по 45 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B353FBF4A2D7ABA681F491210C7D0C05DF3A8D00
 ```
 
 https://mybot314.ru/tekegram_catalog/

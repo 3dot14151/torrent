@@ -6,7 +6,7 @@ Maxon Cinema 4D R16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531298.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ ScreenFlow 7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531144.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ News Explorer 1.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531067.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ VMware Fusion Pro 8.5.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531052.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Downcast 2.9.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531006.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Xojo 2016r2.1 16.2.1.34484 (2016r2.1) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530674.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ SyncBird Pro 3.7.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530303.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Scrutiny 12 v12.3.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530302.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Stats 2.7.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530301.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Fix My iPhone 2.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530296.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ djay - DJ App & AI Mixer 4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530295.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Typora 1.3.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530171.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ FxFactory Pro 8.0.2 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529990.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Instant Translate – translator, dictionary, voice 3.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529772.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ ExpanDrive 5.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529712.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Soulver 2.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529691.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Mac Blu-ray Player Pro 3.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529674.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Pantone Color Manager 2.1.0 (730) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529611.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ VOX 2.5.4 (2540.63)  [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529509.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Disk Drill Entreprise 3.3.845 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529467.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ CleanMyMac 3.8.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529415.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ IP Scanner Pro 3.50 (3.50.6) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529283.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Tweetbot for Twitter 2.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529279.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ A Better Finder Attributes 6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529256.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ CloudMounter 1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529247.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ VueScan Pro 9.5.57 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528984.jpg" />
 </div>
 
 

@@ -1,3 +1,108 @@
+###  Публикация: 999947   (862947) от 23.03.2016
+
+Арчи Браун | Взлет и падение коммунизма (2014) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Расцвет коммунизма — наиболее важный политический процесс первой половины XX в. не только в России и СССР, но и во всем мире. Во второй половине столетия самой кардинальной политической переменой стало отстранение коммунистов от власти в Европе и упадок коммунизма за ее пределами. Нашумевшая книга Арчи Брауна, переведенная и изданная в девяти странах, представляет (   Читать дальше...   )Жанр: История, Политические партии и движенияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5997939E6684532B0E571C1B43AF8C12EAB1F078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108807   (862351) от 25.02.2017
+
+П.И. Кеппен | О виноделии и винной торговле в России (1832) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862351.jpg" />
+</div>
+
+
+###  Подробнее
+
+В представленном здесь труде дан экскурс в историю потребления вина в России, начиная с эпохи Древней Руси. Приведены подробные сведения о различных сортах винограда и вина, получаемого из него на момент написания работы. Также приводятся статистические сведения, в частности, сведения о производстве вина в России и его импорте в начале XIX в, о пошлинах на ввозимые (   Читать дальше...   )Жанр: история Отечества, история виноделия, раритетФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A11D4B4E10989E8C6FCA341A8F68DC32355FE8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 768455   (862319) от 19.03.2014
+
+А.В. Венков | Казаки против Наполеона. От Дона до Парижа (2013) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известного российского историка А.В. Венкова рассказывает об участии донского казачества в Заграничном походе Русской армии в 1813—1814 гг. Наряду с описанием боевых действий, автор рассказывает о военной подготовке казачества, особенностях тактики, принципах организации разведки и охранения, униформе.
+ В 1813 г. казачество стало основной ударной силой Русской (   Читать дальше...   )Жанр: ИсторияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96E6E466566EAB4D61EF85A89BF37A189864BD3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000477   (859313) от 25.03.2016
+
+Д. И. Чесноков | Советское социалистическое государство (1952) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вопрос о государстве и революции, как и все вопросы марксистской теории, имеет не только громадное теоретическое, но и непосредственное практически-политическое значение. Из всех вопросов марксистской теории вопрос о государстве прежде всего и самым непосредственным образом связан с насущными нуждами освободительной борьбы рабочего класса и всех трудящихся масс. (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE9540AA0FDAB13EE95B32D18CC9C55E5756F67D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000362   (859121) от 25.03.2016
 
 Гали Еникеев, Шихаб Китабчы | Наследие татар. Что и зачем скрыли от нас из истории Отечества (2015) [FB2]
@@ -6,7 +111,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859121.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859098.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858788.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857763.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856661.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855719.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855608.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855601.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855558.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855450.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853895.jpg" />
 </div>
 
 
@@ -295,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853893.jpg" />
 </div>
 
 
@@ -321,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853877.jpg" />
 </div>
 
 
@@ -347,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853874.jpg" />
 </div>
 
 
@@ -375,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853861.jpg" />
 </div>
 
 
@@ -401,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853810.jpg" />
 </div>
 
 
@@ -427,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853767.jpg" />
 </div>
 
 
@@ -453,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852189.jpg" />
 </div>
 
 
@@ -481,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852050.jpg" />
 </div>
 
 
@@ -507,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850999.jpg" />
 </div>
 
 
@@ -533,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850473.jpg" />
 </div>
 
 
@@ -559,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850288.jpg" />
 </div>
 
 
@@ -570,115 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7073BF909FD1709C4FDF33069781B1FB94E50ADC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111273   (848855) от 05.03.2017
-
-Меньшевики интервенты (1931) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848855.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Обвинительная речь Н. В. Крыленко
-
-2. Приговор по делу контрреволюционной организации меньшевиков
-(   Читать дальше...   )Жанр: История, политология, правоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E33228ABD85CE39FCF9DC13654D2328BB45FA11D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111264   (848847) от 05.03.2017
-
-М. Меклер | О победе социализма в одной стране (1926) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848847.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Давно уже сказано, что без революционной теории не может быть и революционного движения, и в настоящее время вряд ли есть надобность доказывать подобную истину» (В. И. Ленин. Задачи русских социал-демократов (конец 1897 г.).— ПСС, 5-е изд, т. 2, с. 462).Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D6D916FA6D91B3509939C8EBC767118523A9046
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111267   (848780) от 05.03.2017
-
-Г. В. Плеханов | О войне (1917) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848780.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 августа 1914 началась Первая Мировая Война, и закончилась эпоха II Интернационала в истории всемирного рабочего движения. Георгий Плеханов несёт свою долю ответственности за бесславный крах этой организации. Подобно своим французским, немецким и английским коллегам Плеханов с началом мировой войны стал ярым оборонцем и сторонником войны с Германией до победного (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74B3FFBEC75AFD81B6698DFCAB3AFDDBD991AE6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002321   (848486) от 31.03.2016
-
-Лев Прозоров | Мифы о Древней Руси (2016) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848486.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Работа историка сильно напоминает работу следователя, имеющего дело с показаниями свидетелей и уликами (данные археологии)…»
-В своей НОВОЙ книге ведущий историк Языческой Руси проводит такое расследование, опровергая самые расхожие, навязчивые и вредные мифы о нашем прошлом.
-Знаете ли вы, что «непобедимые викинги», якобы «наводившие ужас на всю Европу», на самом (   Читать дальше...   )Жанр: История, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC0FAA36A0E41058A6359EC409F9067C1D41698B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,82 @@
+###  Публикация: 1008179   (817841) от 17.04.2016
+
+Я – Стив МакКуин / I Am Steve McQueen (2014) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стив Маккуин – одна из ярчайших кинозвезд Голливуда прошлых лет. Мужественный вид, магнетизм «плохого парня» и сногсшибательная харизма выделяли Маккуина среди коллег по цеху.
+Стив вырос в маленьком городке в пригороде Индианаполиса, служил в морской пехоте США и стал одним из самых высокооплачиваемых и востребованных актеров своего поколения. Широкой публике он (   Читать дальше...   )Телекомпания: США, Network Entertainment, McQueen RacingЖанр: ДокументальныйПеревод: Многоголосый закадровый, профессиональный (Первый канал)Продолжительность: 01:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:506364102F6D5F219B3A6B7A02D88692F268A1DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503827   (817791) от 20.10.2021
+
+Коко Шанель - гордая и непокорная / Chanel, l'insoumise (2021) HDTVRip [H.264/720p] [FR / RU Sub]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как женщина, родившаяся в конце XX века в бедной семье, стала легендарной фигурой французского мира роскоши? Мы оглядываемся на жизнь и карьеру Габриэль Шанель, которая начинала как обычная модистка и превратила свое имя в культовый модный бренд.Производство: Франция, Skopia FilmsЖанр: Документальный, биографическийРежиссер: Эрик БитунПеревод: отсутствуетЯзык озвучки: французскийСубтитры: Русские (неотключаемые, перевод Е.Шмагринской, Hiventy)Продолжительность: 00:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:503F9A4DEC714FEC76F4DA2C10F1AC5080F67688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503820   (817790) от 20.10.2021
+
+Пьер Карден: фабрика будущего / Pierre Cardin: La Fabrique du Futur (2020) HDTVRip [H.264/720p] [FR / RU Sub]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пьер Карден, голос, узнаваемый среди тысяч людей, его романтическая судьба, иконоборческое видение моды и бизнеса, уверенность в себе как лидера индустрии, который знает, что он возглавляет империю. Мода, дизайн, кейтеринг, недвижимость, шоу...Производство: Франция, TV5MONDE Europe HDЖанр: Документальный, биографическийРежиссер: Элиза ШассенПеревод: отсутствуетЯзык озвучки: французскийСубтитры: Русские (неотключаемые, перевод М.Лабори, Hiventy)Продолжительность: 00:51:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1839B2AF1CD78EAD0929B5FE1A76987ABCD12022
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008283   (817453) от 17.04.2016
 
 Неизвестная версия / Невідома версія (2008-2009) SATRip (Сезон 1, серии 1-44 из 44)
@@ -6,7 +85,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817453.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ Imagine Dragons. Дым и зеркала / Imagine Dragons: Smoke + Mirrors Liv
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817133.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817091.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813818.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813789.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813041.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812881.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811359.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810434.jpg" />
 </div>
 
 
@@ -240,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810418.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808295.jpg" />
 </div>
 
 
@@ -293,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808206.jpg" />
 </div>
 
 
@@ -319,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807823.jpg" />
 </div>
 
 
@@ -345,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806280.jpg" />
 </div>
 
 
@@ -372,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805989.jpg" />
 </div>
 
 
@@ -398,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805846.jpg" />
 </div>
 
 
@@ -424,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804290.jpg" />
 </div>
 
 
@@ -451,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803431.jpg" />
 </div>
 
 
@@ -477,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802427.jpg" />
 </div>
 
 
@@ -503,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802244.jpg" />
 </div>
 
 
@@ -529,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801231.jpg" />
 </div>
 
 
@@ -555,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800922.jpg" />
 </div>
 
 
@@ -581,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800374.jpg" />
 </div>
 
 
@@ -592,84 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B85DA81B75F660CD305A138A5B00CABD11FA6006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380068   (800113) от 23.05.2020
-
-Мой серебряный шар (1994-2010) DVB [H.264] (серии 1-19 из ?) (Обновляемая)
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Художественно-просветительская программа Виталия Вульфа. Задумывая этот цикл, авторы проекта руководствовались такими идеями: "Искусство наполняет душевное пространство только тогда, когда в нем есть отблеск идеального, когда открывается личность. То, что сегодня происходит в нашей жизни, повысило цену человеческой индивидуальности, уникальности, авторитета (   Читать дальше...   )Телекомпания: Россия / КультураЖанр: Документальный, Искусство, БиографияСубтитры: русские, телетекст (888)Продолжительность: ~00:40:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3616F4E8B76A1C2FD1E33CEF3C546B92580117B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120899   (798823) от 05.04.2017
-
-Романтика романса. 100 лет со дня рождения Марка Бернеса (2011) TVRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Песни из репертуара Марка Бернеса исполняют Максим Амельченко, Леонид Серебренников, Мария Эшпай, Александр Михайлов, Алексей Черных, Ренат Ибрагимов. В программе использованы фото, видео-, аудиозаписи выступлений Марка Бернеса.Телекомпания: ГТРК "Культура"Жанр: ТелепередачаПродолжительность: 00:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F65CA3AEFC59C2A474D9E97B61385C067DBF68D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273871   (798730) от 04.01.2019
-
-Брюс Ли. Бессмертие дракона / Bruce Lee: Immortal Dragon (2000) SATRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм о творчестве и ролях Брюса Ли - непревзойденного мастера боевых искусств, актёра, постановщика трюковых сцен. Фильм раскрывает многогранную личность «Бессмертного Дракона» на основе эксклюзивных интервью с друзьями, членами его семьи, редких кадров из домашнего видео, съемок со съемочной площадки, отрывков из фильмов с участием Брюса Ли.Производство: СШАЖанр: Документальный, биографияПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:49:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD74D878EA050ACE739ADCB331C820A800125892
 ```
 
 https://mybot314.ru/tekegram_catalog/

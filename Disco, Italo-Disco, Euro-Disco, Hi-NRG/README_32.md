@@ -6,7 +6,7 @@ Emy Care - Dreams Of Fantasy (2019) [MP3|320 Kbps] <Italo Disco, Euro Disco, Syn
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376721.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Disco Bunch Vol 12 (2016) [MP3|320 Kbps] <Funky, Nu Disco, Soulful, Italo D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376247.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Tommy The Bitch - Give It To Me (1979) Reissue CD, 2015, Solid Records [MP3|320 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376165.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Luv' - 7 Albums (1978-1993) [MP3|320 Kbps] <Electronic, Pop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375675.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Van Hinton - Remember Me (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375391.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Sophie - My World (1989) [OGG Vorbis|485 Kbps] <Electronic, Italo-Disco, Eurobea
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375382.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Hi-Gloss - You'll Never Know (1981) Reissue CD, Unidisc, 1992 [MP3|320 Kbps] <El
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374427.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Gotham Flasher - Gotham Flasher (1979) [MP3|320 Kbps] <Electronic, Funk/Soul, Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373190.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Silver Pozzoli - Around My Dreams (1987) CD [MP3|320 Kbps] <Electronic, Italo-Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372440.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Stars On 45 - Disco Collection (2002) [MP3|320 кб/с]<Pop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372333.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Naomi - 2 Albums (2018, 2019) [MP3|320 Kbps] <Electronic, Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372275.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Mozzart - Devil's Rendezvous - Greatest Hits & More (2019) Compilation, Remaster
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372270.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Albert One - Everybody (1988) Reissue CD, ZYX Music, 2001 [MP3|320 Kbps] <Electr
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372166.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Shobizz - Shobizz (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371923.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Studio 57 vol.1 (1983) 2xLP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371401.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Champagne - The Best Of (2007) CD [MP3|320 Kbps] <Disco, Funk-Soul, Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371320.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - ZYX Italo Disco New Generation Vol. 21 (2022) 2CD, Compilation [MP3|320 Kbp
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368372.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Fever - 2 Albums (1979, 1980) LP [MP3|320 Kbps] <Electronic, Funk, Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365475.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Harlow - Taking Off (1980) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364172.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Ryan Paris - 1Album + 1Single (1983, 1984) Vinyl [MP3|320 Kbps] <Electronic, Ita
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363406.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Desireless - Disco Collection (2001) [MP3|320 кб/с]<Pop, Disco, Retro>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363302.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ The Trammps - Disco Inferno (2010) CD, Compilation [MP3|320 Kbps] <Electronic, F
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363147.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Arabesque - Disco Collection (2001) [MP3|320 кб/с]<Pop, Disco, Retro>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363079.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Haddaway - Disco Collection (2001) [MP3|320 кб/с]<Pop, Disco, Retro>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362944.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Saint Tropez - 4 Albums (1977-1982) LP [MP3|320 Kbps] <Funk Soul, Disco, Erotic-
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361816.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Dschinghis Khan - Disco Collection (2001) [MP3|320 кб/с]<Pop, Disco, Retro>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360584.jpg" />
 </div>
 
 

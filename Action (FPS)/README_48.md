@@ -1,3 +1,29 @@
+###  Публикация: 1753530   (41421) от 05.10.2024
+
+Crysis (2007) [Ru/En] (1.1.1.6156) Repack dixen18 [Enhanced Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Crysis - первая игра в популярной трилогии, духовный преемник Far Cry, представляет собой шутер с видом от первого лица, события которого разворачиваются в 2019 году. Простая спасательная операция превратилась в театр новой войны, когда на северокорейский архипелаг начали высаживаться инопланетные захватчики. В вашем распоряжении – сверхсовременный нанокостюм, ваша (   Читать дальше...   )Тип издания: RepackРазработчик: CrytekЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDAA0B94125E0A7C1B3CDCDE6BDEC764ABDB6E3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753731   (41340) от 06.10.2024
 
 Call of Duty - Антология (2003-2012) [Ru] Repack dixen18
@@ -6,7 +32,7 @@ Call of Duty - Антология (2003-2012) [Ru] Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41340.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ BioShock Remastered Dilogy (2016) [Ru/Multi] (1.0/1.0.122864) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41233.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Exophobia (2024) [En] (1.1.0.1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41100.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Wolfenstein: The Old Blood (2015) [Ru/Multi] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41030.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Aliens vs Predator Антология [Ru/En] (RePack) 1999-2002 | R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41029.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ UberSoldier / Восточный фронт: Неизвестная война (
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40816.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Kvark (2023) [Ru/Multi] (1.0.5.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40629.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Kvark (2023) [Ru/Multi] (1.0.5.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40522.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Neckbreak (2019) [Ru/Multi] (1.1) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40484.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.6.0.0/dlc) Repack Other s [Alex Murphy 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40150.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Call of Duty: Black Ops II (2) (2012) [Ru/En] (1.0.0.1 Update 3/dlc) Repack Othe
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39934.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Pneumata (2024) [Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39806.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Forgive Me Father 2 (2023) [Ru/Multi] (1.0.0.38f) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39244.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Forgive Me Father 2 (2023) [Ru/Multi] (1.0.0.38f) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39123.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Devilated (2021) [Multi] (1.0) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38968.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Crime Boss: Rockay City (2023) [Ru/Multi] (1.0.12.0/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38856.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Crime Boss Rockay City (2023) [Ru/Multi] (1.0.12.0/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38675.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Moon Mystery (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38620.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ No Man's Sky (2016) [Ru/Multi] (5.12/dlc) Repack seleZen [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38426.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Ghostrunner 2 (2023) [Ru/Multi] (42294_40/dlc) License GOG [Brutal Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38240.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Descent 3 (2000) [Ru/En] (1.4/dlc) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38160.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Descent (1995) [Ru/En] (1.5) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38156.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Blood II (1998) [Ru/En] (1.21/dlc) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38153.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Crysis: Remastered (2021) [Ru/Multi] (3.0.0) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38063.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Crysis 3 Remastered (2022) [Ru/En] (Build 9460220) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38060.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Crysis 3 Remastered (2022) [Ru/En] (Build 9460220) Repack Wanterlude
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6568E3C928DCA1E4A340DB05C0C0740AAA3C323B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759309   (38058) от 07.11.2024
-
-Metro Awakening (2024) (1.0 build 16229071) Repack seleZen [VR only]
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Metro Awakening - это разработанный специально для VR сюжетный приключенческий шутер от первого лица. Погрузитесь в атмосферу вселенной Metro с элементами исследования, стелса и боев. 2028 год. Пережившие ядерный апокалипсис борются за существование в заброшенной московской подземке - последнем пристанище и могиле цивилизации, этом искусственно созданном чистилище, (   Читать дальше...   )Тип издания: RepackРазработчик: Vertigo GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF8A67A9401DB0E89873D598FFCF35D3A047BB4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

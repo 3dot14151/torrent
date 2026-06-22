@@ -1,3 +1,29 @@
+###  Публикация: 1727354   (9824) от 31.07.2025
+
+Borderlands (2009) [Ru/En] (1.5.0/dlc) Repack FitGirl [Game of the Year Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перезарядитесь и встретьтесь с самим Безумием. Приготовьтесь к безудержному безумству! Сыграйте за одного из четырех веселых наемников и уничтожайте любого, кто встанет на вашем пути! Неотпускающий экшен, постоянные битвы, невероятно большой арсенал оружия, элементы ролевых игр и кооперативный режим на четырех игроков делает Borderlands перевернет ваше представление (   Читать дальше...   )Тип издания: RepackРазработчик: Gearbox SoftwareЖанр: Action (Shooter)Язык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A1C88C99E30CC1496A0B3482548F93136BE0992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809677   (9821) от 31.07.2025
 
 Call of Duty: Modern Warfare (2019) [Ru/En] (8.67/dlc) Repack seleZen
@@ -6,7 +32,7 @@ Call of Duty: Modern Warfare (2019) [Ru/En] (8.67/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9821.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Call of Duty: Modern Warfare (2019) [Ru/Multi] (8.67) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9801.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Borderlands 2 (2012) [Ru] (1.8.4/dlc) Repack EXROW [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9792.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Killing Floor 3 (2025) [Ru/Multi] (Build 19273238/dlc) Repack Other s [Elite Nig
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9595.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Call Of Duty: Black Ops 6 (2024) [Ru/En] (11.1) Repack Yaroslav98
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9507.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Call Of Duty: Black Ops 6 (2024) [Ru/En] (11.1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9504.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Call of Duty Modern Warfare Campaign (2019) [Ru/En] (8.67) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9503.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Call Of Duty: Black Ops 6 (2024) [Ru/En] (11.1) Repack Decepticon [Campaign]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9487.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Call Of Duty: Black Ops 6 (2024) [Ru/Multi] (11.1) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9485.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Call Of Duty: Black Ops 6 (2024) [Ru/Multi] (11.1) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9480.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Ikarus Parkour (2025) [Ru/Multi] (2.7) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9383.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Ikarus Parkour (2025) [Ru/Multi] (2.7) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9249.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ RIPOUT (2024) [Ru/Multi] (1.41:01) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9081.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ RIPOUT (2024) [Ru/Multi] (1.41:01) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8985.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ RoboCop: Rogue City - Unfinished Business (2025) [Ru/Multi] (1.0.3.0/01.020.000/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8977.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ The House of the Dead 2: Remake (2025) [Multi] (1.0) Scene FairLight
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8871.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ RIPOUT (2024) [Ru/Multi] (1.41:01) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8830.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ VLADiK BRUTAL (2024) [Ru/Multi] (1.0.1.1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8577.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Heretic + Hexen (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8501.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Deadzone: Rogue (2025) [Ru/Multi] (1.0 Build 19557379) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8346.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ RAID: World War II (2017) [Ru/Multi] (25.02/dlc) Repack Let'sРlay [Special Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8333.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Deadzone: Rogue (2025) [Ru/Multi] (1.0 Build 19557379) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8294.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Abyssus (2025) [Ru/Multi] (1.0) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8176.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Call of Duty: Modern Warfare II (2) (2022) [Ru/Multi] (9.7/9.40) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8173.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Abyssus (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8156.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Abyssus (2025) [Ru/Multi] (1.0) Repack seleZen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7188813DDEDCA6AA6E9E8951D0EED0242D32395B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812289   (7943) от 14.08.2025
-
-Abyssus (2025) [Ru/Multi] (1.0.1.50519/dlc) Repack FitGirl
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вместе с друзьями окунитесь в стремительный многопользовательский шутер Abyssus. Сражайтесь на великолепных, созданных вручную уровнях в этом приключении в жанре «упрощенного рогалика», которое проверит ваши тактические навыки на прочность. Используйте мощное оружие, питаемое силой глубин, и оснастите его древними технологиями, чтобы получить преимущество над врагами. (   Читать дальше...   )Тип издания: RepackРазработчик: DoubleMoose GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C1DA9E100395369776B2FAFC2C35044BCBDA8B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

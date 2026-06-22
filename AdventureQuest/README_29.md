@@ -1,3 +1,107 @@
+###  Публикация: 1533223   (706799) от 23.02.2022
+
+Q.U.B.E. (2014) [En] (2.8/dlc) License GOG [Director's Cut]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая расширенная версия классической головоломки Q.U.B.E c новым сюжетом от признанного мастера своего дела, сценариста Роба Йескомба. Q.U.B.E: Director's Cut (расширенная версия) - самая полная версия классической головоломки с видом от первого лица, действительно заставляющей шевелить извилинами. Вам предстоит передвигать кубики с помощью высокотехнологичных перчаток. (   Читать дальше...   )Тип издания: LicenseРазработчик: Toxic GamesЖанр: Приключение, От первого лица, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C20363EF9B2C9B18AF05CD94C52756EE7B7FAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532690   (706693) от 23.02.2022
+
+Black Book (2021) [Ru/Multi] (1.0.36/dlc) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в мрачный мир северной мифологии, созданный отечественными разработчиками из Перми! Юной крестьянке Василисе судьбой предначертано стать колдуньей. Идя наперекор своей участи, она решает бросить колдовство и обвенчаться со своим возлюбленным.Тип издания: LicenseРазработчик: MorteshkaЖанр: Стратегия, Приключение, RoguelikeЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Китайский (упрощённый)Язык интерфейса: Русский, Английский, Китайский (упрощённый)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C348F77006855D584886B60B7CDAB3AA42FD28B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287169   (706684) от 05.03.2019
+
+7th Sector (2019) [Ru/Multi] (1.0) License DARKSiDERS
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706684.jpg" />
+</div>
+
+
+###  Подробнее
+
+7th Sector предлагает Вам погрузиться в загадочный мир киберпанка и преодолеть непростой путь, решая разнообразные технические задачи, сталкиваясь с опасностями и собирая по крупицам информацию о мире и происходящих в нем событиях.Тип издания: LicenseРазработчик: Носков СергейЖанр: Adventure, Puzzle, Logic, 3DЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFDD307A1A6A639C0FA28076B94D51F8CC5CA392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260746   (706666) от 05.03.2019
+
+KURSK (2018) [Ru/Multi] (3.0.8/dlc) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706666.jpg" />
+</div>
+
+
+###  Подробнее
+
+KURSK — первая документальная приключенческая игра, основанная на реальных событиях. Вы — шпион, внедренный на борт российской атомной подводной лодки K-141 «Курск», и ваша задача — добыть секретную информацию о суперторпедах «Шквал». Выполняя задание, вы становитесь свидетелем трагических событий, потрясших весь мир.Тип издания: RepackРазработчик: Jujubee S.A.Жанр: Action, Adventure, 3DЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58FFFF51A4905E575683F3531A4058D1890E8F43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260540   (706665) от 05.03.2019
 
 KURSK (2018) [Ru/Multi] (3.0.8/dlc) License CODEX [Collectors Edition]
@@ -6,7 +110,7 @@ KURSK (2018) [Ru/Multi] (3.0.8/dlc) License CODEX [Collectors Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706665.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Sherlock Holmes: Chapter One / Шерлок Холмс: Глава 1 (2021) [Ru/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706574.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ The Station (2018) [En] (B1.53.1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703970.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Matanga (2019) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700804.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Dear Esther: Landmark Edition (2017) [Ru/Multi] (1.0.0.9712) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700788.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_699499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_699499.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Matanga (2019) [Ru/En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699021.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ GRIS (2018) [Ru/Multi] (1.0/upd2) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698908.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Milky Way Prince The Vampire Star (2020) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695434.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ CRIMSON ROOM DECADE (2016) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693882.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ Truberbrook (2019) [Ru/Multi] (1.10) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693511.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ RiME (2017) [Ru/Multi] (1.04) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693411.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ PLAY WITH ME (2018) [Ru/Multi] (1.22.21) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692879.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ Kageroh: Shadow Corridor (2019) [En/Ja/Ko] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691635.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ Inked (2018) [Multi] (20180425-1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691041.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ INFRA (2016) [Ru/Multi] (3.3.0/dlc) License CODEX [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690961.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ The Fan (2017) [En/Fr] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690780.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ Dark Earth (1997) [Ru] (1.1) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690010.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ Peaky Blinders: Mastermind (2020) [Ru/Multi] (1.0) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689874.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ Battletoads (2020) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689855.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ Breached (2016) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688095.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ Asemblance (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688085.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ Asemblance — это приключенческая игра от первог�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47C9457D1B0822B6BE8EA5E139A65D2B1811BB38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481227   (688061) от 05.03.2022
-
-Night Watcher / Ночной смотрящий (2008) [Ru] (1.0) License
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журналист Андрей Лузгин прибывает в город Посольск, чтобы отыскать своего пропавшего друга. По приезду он замечает, что в городе творится что-то странное: люди пропадают без вести, обнаруживаются трупы со страшными увечьями. Лузгин берётся за журналистское расследование, в ходе которого узнаёт много жутких подробностей об этом городе, где проводились секретные исследования (   Читать дальше...   )Тип издания: LicenseРазработчик: Litera LaboratoriesЖанр: AdventureЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C931252474BF419356D6C911167417B94DFA8DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221976   (686745) от 28.04.2018
-
-Loom (1990) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя много лет после ухода Второй Тени, когда сумеречным небом правили драконы, а звезды были многочисленны и ярки, наступила эпоха Великих Гильдий. Кузнецы. Пастухи. Клирики. И все стремятся сберечь от остальных свои секреты. Одной из Гильдий были Ткачи. Веками их интересы простирались куда дальше простого пошива одежды, пока, наконец, они не постигли тайны ткани (   Читать дальше...   )Тип издания: LicenseРазработчик: LucasfilmЖанр: Приключение, Квест, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D59A5A8DEAD20C8D1BF18128F6B29E9C9973C14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113500   (686515) от 16.05.2017
-
-2064: Read Only Memories (2015) [En] (64.0.6c) License GOG [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нео-Сан-Франциско, 2064 год н.э. Ваша унылая жизнь непризнанного журналиста заканчивается, когда появляется первая в мире осознающая себя машина, ПЗУ (полизадачный управляющий) по имени Тьюринг. Вы и этот чудаковатый робот встретитесь со множеством ярких местных обитателей и преодолеете множество испытаний, открывая городские тайны. Read Only Memories – новое приключение (   Читать дальше...   )Тип издания: LicenseРазработчик: MidBossЖанр: Приключение, Квест, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44F88FCFBFFF66F806FA8217E53D9C02909A9551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535317   (686021) от 06.03.2022
-
-Re;Lord 2 ~The witch of Cologne and black cat~ (2021) [En] (1.00/dlc) License GOG [18+]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра продолжает серию с приключениями Уилфрида и его группы, с которой придется путешествовать по фэнтезийному миру. Пользователи смогут узнать историю о сражениях со злобной ведьмой Руин Ирис, что держит в заключении Кельна и Грессена. Протагонист в Re;Lord, освободив регион Херфорт Вильфрид, вынужден отправляться на сражения с тремя колдуньями и поднимать восстание (   Читать дальше...   )Тип издания: LicenseРазработчик: Escu:de, ElementЖанр: Приключение, Визуальные новеллы, ФэнтезиЯзык озвучки: ЯпонскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D49C28C13B5A3BF2257AADDE4F67C5FB6FA347C
 ```
 
 https://mybot314.ru/tekegram_catalog/

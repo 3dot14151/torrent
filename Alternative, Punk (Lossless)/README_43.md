@@ -1,3 +1,61 @@
+###  Публикация: 1255852   (361794) от 19.10.2018
+
+Fires of Waco - Old Ghosts Never Sleep (2011) [FLAC|Lossless|tracks + .cue] <Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Man's Land (1:29)
+ 02. Terra Nullius (3:01)
+ 03. Sometimes You Just Know (2:31)
+ 04. Validity (3:16)(   Читать дальше...   )Жанр: PunkПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7956061B4C6426EC179AFC050B98DA51F626F928
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255836   (361785) от 19.10.2018
+
+Defeater - Travels (2008) [FLAC|Lossless|tracks + .cue] <Melodic Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blessed Burden (3:04)
+ 02. Everything Went Quiet (2:41)
+ 03. Nameless Streets (3:05)
+ 04. Forgiver Forgetter (2:32)(   Читать дальше...   )Жанр: Melodic HardcoreПродолжительность: 00:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:966465C709D36C5C54C74BF77F2C98103403D6D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255840   (361771) от 19.10.2018
 
 Defeater - Empty Days & Sleepless Nights (2011) [FLAC|Lossless|tracks + .cue] <Melodic Hardcore>
@@ -6,7 +64,7 @@ Defeater - Empty Days & Sleepless Nights (2011) [FLAC|Lossless|tracks + .cue] <M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361771.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Beck - One Foot in the Grave (1994) [FLAC|Lossless|tracks + .cue] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361684.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Parcels - Parcels (2018) [FLAC|Lossless|tracks + .cue] <Nu-Disco, Funk, Electro>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361631.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Nothing - Dance on the Blacktop (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361498.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ House Vs. Hurricane - Forfeiture (2008) EP [FLAC|Lossless|tracks + .cue] <Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359186.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Rock Sound: 100% Volume No. 147 (2011) [FLAC|Lossless|tracks + .cue] <Hardc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359166.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Creux Lies - The Hearth (2018) Cleopatra Records [FLAC|Lossless|tracks + .cue] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359133.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ A Silent Film - A Silent Film (2015) [FLAC|Lossless|WEB-DL]<Alternative Rock, In
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358645.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Starcrawler - 3 Albums, 1 Single (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357162.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Carpathian - Nothing To Lose (2006) [FLAC|Lossless|tracks + .cue] <Hardcore, Pun
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357051.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Carpathian - Isolation (2008) [FLAC|Lossless|tracks + .cue] <Hardcore, Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357049.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ The Black Angels - Wilderness of Mirrors (2022) [FLAC|Lossless|tracks + .cue] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357036.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Billy Idol - Essential (2011) Compilation [FLAC|Lossless|tracks + .cue] <Punk-Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356834.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ The Stranglers - All Live And All Of The Night (1987) [FLAC|image+.cue]<Punk, Po
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356203.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ The Stranglers - Dreamtime (1986) [FLAC|image+.cue]<Punk, Post-punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356196.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ The Enemy - It's Automatic (2015) [FLAC|Lossless|WEB-DL]<Alternative Rock, Indie
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356056.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Brutto - Родны Край (2015) [FLAC|image+.cue]<Punk Rock, Alternative roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355450.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ DIIV - Deceiver (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354598.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ The Menzingers - Hello Exile (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354597.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Wilco - Ode to Joy (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354595.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Weezer - Pacific Daydream (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353696.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Hollywood Nightmare - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Metalc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352554.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Maggie Lindemann - Suckerpunch (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352311.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Black Marble - Bigger Than Life (2019) [FLAC|Lossless|tracks + .cue] <Indie-Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352263.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Black Marble - Bigger Than Life (2019) [FLAC|Lossless|tracks + .cue] <Indie-Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DACF67FAECC3C3E8FB1CEAA96F1DD5C42BE4986
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329420   (352248) от 05.10.2019
-
-Nick Cave & The Bad Seeds - Ghosteen (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Spinning Song
-02 - Bright Horses
-03 - Waiting for You
-04 - Night Raid(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 01:08:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:307B0611ED6901A3ECCA1B8FC7244E664410041E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577678   (352191) от 20.09.2022
-
-Gogol Bordello - Solidaritine (2022) [FLAC|Lossless|WEB-DL|tracks] <Gipsy Punk. Folk Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shot of Solidaritine (4:10)
-02. Focus Coin (4:32)
-03. Blueprint (3:01)
-04. The Era of the End of Eras (4:23)(   Читать дальше...   )Жанр: Gipsy Punk. Folk PunkПродолжительность: 00:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39FBB4F878E9688438E3687743F4EC19946F5E0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

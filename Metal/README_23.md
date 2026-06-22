@@ -1,3 +1,119 @@
+###  Публикация: 560546   (863385) от 18.03.2014
+
+Тінь Сонця  - 4 Альбома (2005 - 2014) [MP3|320 кб/с]<Folk, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Меч Арея
+02. Сонцечоловік
+03. Народна Війна
+04. Коли На Серці Сумно(   Читать дальше...   )Жанр: Folk, Power Metal  |Продолжительность: 03:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E50442863B6A9A32C764E779EDF3C98A122B7E0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108582   (863192) от 25.02.2017
+
+Theory - The Art Of Evil (2017) [MP3|320 Kbps] <Progressive Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863192.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Awakening (0:51)
+2. The Art of Evil (5:12)
+3. Sea of Damnation (5:23)
+4. Demon's Domain (6:02)(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:53:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63E8A03F5CBD221F993CF8FDD5B790D46259D929
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376011   (862357) от 16.04.2020
+
+Wartooth - Programmed Dichotomy (2020) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wired to Die [00:07:12]
+02. Scourge [00:05:23]
+03. Benevolent Destroyer [00:07:45]
+04. Predator [00:04:54](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BD14A1BEC0A49961AEDD9274CE8D6EC236DDA06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375986   (862272) от 16.04.2020
+
+God's Speed - 3 Albums (2012-2020) [MP3|320 Kbps] <Psychedelic Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862272.jpg" />
+</div>
+
+
+###  Подробнее
+
+(2012) ...And This Will Soon Pass
+(2015) Mother Of God
+(2020) Mother Of God ((2020 Edition)Жанр: Psychedelic Doom Metal
+Страна: USA (Huntington, West Virginia)Продолжительность: 3 CD, 04:27:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90D362812958BE0A433587BB1E4559B466D18B2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375977   (862040) от 16.04.2020
 
 Therion - Cover Songs 1993-2007 (2020) [MP3|320 Kbps] <Symphonic-Operatic Metal>
@@ -6,7 +122,7 @@ Therion - Cover Songs 1993-2007 (2020) [MP3|320 Kbps] <Symphonic-Operatic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862040.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Artillery - Penalty By Perception (2016) Limited Edition [MP3|320 кб/с] <Thra
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860874.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Vermicide Violence - The Praxis of Prophylaxis (2020) [MP3|320 Kbps] <Deathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860702.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Jarrod Alonge - Beating a Dead Horse (2015) Deluxe Edition [MP3|320 Kbps] <Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860693.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Asking Alexandria - The Black (2016) [MP3|320 кб/с] <Post Hardcore, Metalcore
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860650.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Infrared - No Peace (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859364.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Endless - The Truth, The Chaos, The Insanity (2016) [MP3|320 кб/с] <Power Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859333.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Eternity's End - The Fire Within (2016) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859315.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Metal Church - XI (2016) [MP3|320 кб/с] <Heavy Metal, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859266.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Caliban - Gravity (2016) Deluxe Edition [MP3|320 кб/с]<Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859203.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Moonspell - Night Eternal (2008) Reissue, 2019, Alma Mater Records [MP3|320 Kbps
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859032.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Moonspell - Memorial (2006) 2CD, Reissue, 2020, Alma Mater Records [MP3|320 Kbps
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859022.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Blind The Huntsmen - White Eyes (2017) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857454.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Nox Vorago - Al Chem (2017) [MP3|320 Kbps] <Progressive Metal, Sympho Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857437.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Thunderstone - Apocalypse Again (2016) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855817.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ In Dying Arms - 3 Albums (2011-2016) [MP3|320 Kbps] <Deathcore, Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855198.jpg" />
 </div>
 
 
@@ -469,7 +585,7 @@ Blaze Bayley - Endure and Survive (Infinite Entanglement Part II) (2017) [MP3|32
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853773.jpg" />
 </div>
 
 
@@ -498,7 +614,7 @@ Bloodbound - War Of Dragons (2017) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853736.jpg" />
 </div>
 
 
@@ -527,7 +643,7 @@ Majesty - Rebels (2017) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853719.jpg" />
 </div>
 
 
@@ -556,7 +672,7 @@ Within The Ruins - 5 Albums + 1 EP (2009-2017) [MP3|320 кб/с]<Technical, Prog
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853681.jpg" />
 </div>
 
 
@@ -585,7 +701,7 @@ I Am Abomination - Passion of the Heist II (2020) [MP3|320 Kbps] <Post-Hardcore,
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853671.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Glass Hammer - Dreaming City (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853669.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Glass Hammer - Dreaming City (2020) [MP3|320 Kbps] <Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6025C5884D00F6BC6D19617A60798FEE6276C9F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110499   (852280) от 03.03.2017
-
-Bungler - The Nature Of Being New (2017) [MP3|320 Kbps] <Metalcore, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Finders Keepers, Takers Leavers (02:55)
-02. Ex Wheels (02:32)
-03. Double Glare (02:58)
-04. Rotting Fruit (Is for the Birds) (03:08)(   Читать дальше...   )Жанр: Metalcore, HardcoreПродолжительность: 00:32:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F7CB9F31BAD708BB8A19EFD1EBF0773F3DE2D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110506   (852268) от 03.03.2017
-
-Vitja - Digital Love (2017) [MP3|320 Kbps] <Metalcore, Progressive>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scum (02:47)
-02. D(E)ad (03:57)
-03. No One as Master No One as Slave (04:25)
-04. Roses (03:10)(   Читать дальше...   )Жанр: Metalcore, ProgressiveПродолжительность: 00:47:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99EFE1181E495BF08A33E7E2EC25DED85AB616D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110699   (852172) от 03.03.2017
-
-Warbiff - Pig's Parliament (2017) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852172.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Declaiming War… Blessed for What?
-2. Eternal Violence
-3. Pig's Parliament
-4. Face Your Enemies(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BD926BFD5E3944ECC8D7FEEE3C2194D84B34708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110512   (852170) от 03.03.2017
-
-Trayce - Miragem (2017) [MP3|320 Kbps] <Nu Metal, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nascente (02:11)
-02. Queda Livre (04:41)
-03. Domadores (04:19)
-04. O Culto (03:33)(   Читать дальше...   )Жанр: Nu Metal, Groove MetalПродолжительность: 00:39:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:219CFBDA3F549BD5B441E649535500FDB19B19D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

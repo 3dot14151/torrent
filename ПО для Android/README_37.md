@@ -1,3 +1,31 @@
+###  Публикация: 1468848   (897099) от 02.09.2021
+
+CountThings from Photos v3.23.1 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Считайте элементы из фотографий с вашим мобильным устройством.
+Приложение Count Things from Photos помогает компаниям автоматизировать подсчет. Откройте приложение, выберите правильный Шаблон Подсчета для ваших элементов, сделайте снимок и посчитайте. Если у нас нет шаблона подсчета для ваших нужд, дайте нам знать, и мы сможем создать его.
+Наши клиенты используют (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 30 августа 2021 г.Разработчик: Dynamic Ventures, Inc. d/b/a CountThingsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82EC453A02AAE5C6D418820F34DB6E51EC595533
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 692773   (897054) от 11.02.2015
 
 Руссо туристо v2.2.3 [Ru] - многоязычный иллюстрированный разговорник с русского на иностранные языки (33 языка)
@@ -6,7 +34,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897054.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ PortraitPro v15.0 [En] - редактор портретных фотограф�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893117.jpg" />
 </div>
 
 
@@ -60,7 +88,7 @@ Equalizer FX Pro 1.3.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891663.jpg" />
 </div>
 
 
@@ -86,7 +114,7 @@ TextGrabber Офлайн Распознавание Текста + Перево�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_887245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_887245.jpg" />
 </div>
 
 
@@ -113,7 +141,7 @@ ESET Mobile Security & Antivirus v6.3.66.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887043.jpg" />
 </div>
 
 
@@ -141,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884104.jpg" />
 </div>
 
 
@@ -167,7 +195,7 @@ Adblocker Browser v80.0.2016123424 [Ru/Multi] - Adblock & блокировка �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883766.jpg" />
 </div>
 
 
@@ -193,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883577.jpg" />
 </div>
 
 
@@ -220,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883257.jpg" />
 </div>
 
 
@@ -247,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882102.jpg" />
 </div>
 
 
@@ -273,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881971.jpg" />
 </div>
 
 
@@ -302,7 +330,7 @@ Trigonometry. Unit circle / Тригонометрический круг v3.22 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881708.jpg" />
 </div>
 
 
@@ -328,7 +356,7 @@ Mobile Doc Scanner MDScan OCR 3.7.21 [Ru] - Многостраничный ск�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881308.jpg" />
 </div>
 
 
@@ -356,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880745.jpg" />
 </div>
 
 
@@ -383,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880551.jpg" />
 </div>
 
 
@@ -409,7 +437,7 @@ Notify & Fitness for Mi Band v9.0.6 [Ru/Multi] - Менеджер фитнес �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879643.jpg" />
 </div>
 
 
@@ -435,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879088.jpg" />
 </div>
 
 
@@ -461,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879079.jpg" />
 </div>
 
 
@@ -487,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878759.jpg" />
 </div>
 
 
@@ -513,7 +541,7 @@ MT File Manager 13.03.16 (Mod) [Ru] - Файловый менеджер с ра�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878539.jpg" />
 </div>
 
 
@@ -539,7 +567,7 @@ Snipback - Lifehacker smart voice recorder PRO HD 1.00 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878428.jpg" />
 </div>
 
 
@@ -565,7 +593,7 @@ Password Depot For Android 14.0.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878421.jpg" />
 </div>
 
 
@@ -591,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877075.jpg" />
 </div>
 
 
@@ -617,7 +645,7 @@ Youtube AdAway 3.5.0 [Ru] - Блокировка рекламы с YouTube
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875863.jpg" />
 </div>
 
 
@@ -643,7 +671,7 @@ WiFi Map 3.2.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874379.jpg" />
 </div>
 
 
@@ -656,33 +684,6 @@ WiFi Map 3.2.1 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97C351CC1F3D6205024C6C9BC663338EB598C5C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331700   (874029) от 09.04.2020
-
-Notify & Fitness for Amazfit v9.0.4 [Ru/Multi] - Программа для умных часов Amazfit (обновляемая)
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение для синхронизации данных, прошивки, отслеживания сна и спортивной деятельности умных часов.
-Приложение Notify & Fitness for Amazfit позволяет выводить на экран Amazfit Bip/Arc/Cor имя вызывающего абонента, сообщения из мессенджеров, анализировать результаты тренировки, настраивать уведомления для любого контакта, осуществлять мониторинг сна, обновлять (   Читать дальше...   )Тип издания: Пиратка (Pro версия)Релиз состоялся: 01.04.2020Разработчик: OneZeroBitПоддерживаемая ОС: Android 4.3+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7E6EBDF470A8E4E822780633C974392A3C939D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

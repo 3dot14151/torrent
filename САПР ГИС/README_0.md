@@ -1,3 +1,29 @@
+###  Публикация: 1845378   (1050701) от 31.12.2025
+
+DipTrace 5.2.0.4 + 3D Models [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050701.jpg" />
+</div>
+
+
+###  Подробнее
+
+DipTrace - это многофункциональная САПР по разработке электронных печатных плат и схемотехнической документации для проектов любой сложности, от идеи до готового устройства.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC14D825E6A4911C88666D28A747BE54CE0AF0AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845377   (1050694) от 31.12.2025
 
 Altium Designer 26.1.1 Build 7 [En]
@@ -6,7 +32,7 @@ Altium Designer 26.1.1 Build 7 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050694.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ SkyCAD Electrical Pro 1.3.61.23785 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049052.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Altair PSIM 2026.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048994.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Keysight Advanced Design System 2026 Update 1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048988.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Autodesk AutoCAD 2023 Portable by conservator [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041509.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Zuken CADSTAR 16.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036387.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Proteus Professional 8.15 SP1 Build 34318 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035520.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Apowersoft CAD Viewer 1.0.3.1 Portable by Spirit Summer [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034593.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ OpenSCAD 2021.01 + Portable [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032443.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Synopsys Synplify 2019.03 SP1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032043.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Golden Software Surfer 20.1.195 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026864.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ Nemetschek Vectorworks 2020 SP1 build 512839 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026701.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ ESRI ArcGIS Pro 2.5 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026646.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ Pitney Bowes MapInfo Pro 17.0.3 r19 x64 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026486.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ ESRI ArcGIS Pro + Addons 2.5 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025528.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ Apowersoft CAD Viewer 1.0.4.1 RePack (& Portable) by TryRooM [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011604.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ CorelCAD 2021.5 Build 21.1.1.2097 RePack by KpoJIuK [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007355.jpg" />
 </div>
 
 
@@ -445,6 +471,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484050   (1006195) от 18.07.2021
+
+LiraLand LIRA-SAPR + SAPFIR (ЛИРА-САПР + САПФИР) 2015 R4 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1006195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многофункциональный программный комплекс ЛИРА-САПР, предназначен для проектирования и расчета строительных и машиностроительных конструкций различного назначения (программа расчета конструкций). Расчет выполняется на статические (силовые и деформационные) и динамические воздействия. Выполняется подбор или проверка сечений стальных и(или) железобетонных конструкций. (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:550E43AA209F50FE6E8177576957300662D4BB07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457025   (1005356) от 25.07.2021
 
 Autodesk AutoCAD 2022 [En]
@@ -453,7 +505,7 @@ Autodesk AutoCAD 2022 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005356.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ Blue Marble Global Mapper 17.0.5.123015 (x64) [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988212.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ Altera Quartus II 7.2 Build 175 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968252.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ ProgeCAD Professional 2016 7.2 (16.0.10.23) [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943345.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ PowerSim Professional 9.0.3.464 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910403.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ Abacom Electronics Software 31.01.2017 RePack (& Portable) by Robby [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897129.jpg" />
 </div>
 
 
@@ -601,79 +653,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373712   (878066) от 07.04.2020
+###  Публикация: 1370308   (893156) от 29.03.2020
 
-Autodesk AutoCAD Map 3D 2021 [Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Картографический программный продукт AutoCAD Map 3D предназначен для планирования инфраструктуры и управления ею. Он позволяет работать с данными САПР и ГИС, поступающими из различных источников. Используя комплексные модели систем газо- и электроснабжения, водопровода и канализации, вы сможете упорядочить информацию об объектах, подчинив ее нормам отраслевых стандартов (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCAFD6C6C2026FCC2D4C7D11AD3DE1E1B7F5744D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373710   (878061) от 07.04.2020
-
-Autodesk AutoCAD MEP 2021 [Ru]
+КОМПАС-Штамп V5.6 [Ru]
 
 >>Софт и оболочки для специалистов, Прочее
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_893156.jpg" />
 </div>
 
 
 ###  Подробнее
 
-AutoCAD MEP – это AutoCAD для проектирования отопительных, вентиляционных, электрических и санитарно-технических систем зданий. Привычная среда AutoCAD обеспечивает более высокую точность документации по инженерным системам. Автоматизация чертежных операций и функция выявления коллизий помогают повысить производительность и уменьшить количество ошибок. Сопровождение (   Читать дальше...   )Язык интерфейса: Русский
+Система "КОМПАС-Штамп" ориентирована на автоматизацию проектирования штампов различных конструкций для разнообразных операций холодной листовой штамповки (вырубка, пробивка, отрезка, гибка, отбортовка, формовка и т. д.). "КОМПАС-Штамп" не имеет ограничений ни на операции холодной листовой штамповки, для которых проектируются штампы, ни на конструкции (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94C4F3C7037A325FAA3BB0FA33F28A7A2B405426
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373716   (877969) от 07.04.2020
-
-Autodesk AutoCAD Plant 3D 2021 [Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877969.jpg" />
-</div>
-
-
-###  Подробнее
-
-AutoCAD Plant 3D применяется для проектирования технологического оборудования, трубопроводов и КИП промышленных предприятий, а также для выпуска документации. В распоряжении технических дизайнеров и конструкторов – возможность создания самых современных 3D-проектов в привычной среде AutoCAD.
-
-Возможности проектирования на основе технических требований и библиотеки (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF787FA4FC673EC728EADF5D6FFA5B29F72FCD66
+magnet:?xt=urn:btih:84315B96C5559201032296DD8939D2E7ABA60416
 ```
 
 https://mybot314.ru/tekegram_catalog/

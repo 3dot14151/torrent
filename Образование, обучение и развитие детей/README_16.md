@@ -1,3 +1,117 @@
+###  Публикация: 1355715   (982032) от 27.01.2020
+
+Кэрол Вордерман | Как научить ребенка учиться. Иллюстрированный справочник для родителей (2018) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга о том, как научить ребенка эффективно учиться. Она объясняет родителям, какие универсальные навыки необходимы детям, чтобы они на протяжении всей своей дальнейшей жизни успешно усваивали новые знания. На простых примерах с помощью инфографики показано, каким образом ребенок может овладеть этими навыками и умениями, начиная с орга­низации своего рабочего (   Читать дальше...   )Жанр: Дошкольное образование, детская психология и др.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCF5F5565EE5DC422A2F74929B3298965E17A9C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 741565   (982025) от 04.01.2014
+
+С.И. Зетель | Новая геометрия треугольника (1962) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982025.jpg" />
+</div>
+
+
+###  Подробнее
+
+В XIX в. в элементарной геометрии на плоскости было проведено
+много интересных исследований. Они привели к установлению ряда
+соотношений в треугольнике; к известным классическим «замечатель-
+ным точкам», прямым и окружностям было присоединено много но-
+вых точек, прямых и окружностей. Изложение результатов этих
+исследований составляет большой отдел планиметрии, известный под
+названием «Новой геометрии треугольника». На иностранных языках
+существует ряд сочинений, в которых систематически излагаются
+результаты исследований в области геометрии треугольника. На рус-
+ском языке в 1903 году было выпущено обстоятельное сочинение(   Читать дальше...   )Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62099AE1249F07AFDDB46000F3988642DFE930F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972547   (981989) от 06.01.2016
+
+Александр Коробко-Стефанов | Звук за работой (1957) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нас все время окружают тысячи разных звуков — от гудков паровоза до чуть слышного шелеста травы, от мощных аккордов оркестра до стрекотания кузнечика. Всевозможные звуки всегда а нами, они сопутствуют всей нашей жизни, и представить себе полную тишину просто невозможно.
+Мы хотим рассказать, как приоткрыли завесу в этот таинственный мир, поговорить о том, что же такое (   Читать дальше...   )Жанр: Детская литература, Образовательная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B5C0ABC62191072E3EC1CEA241A4E6C812C7C45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972733   (981730) от 06.01.2016
+
+Владимир Левшин, Эмилия  Александрова | Приключения Нулика. Математическая трилогия (2014) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот солидный том содержит «математическую трилогию», признанную классикой отечественной научно-художественной литературы. «Сказка да не сказка» «Три дня в Карликании» знакомит с непоседливым Нуликом и объясняет, как устроено государство чисел. «Чёрная Маска из Аль-Джебры» — «путешествие в письмах с прологом», в котором Нулик и его друзья помогут снять заклятие таинственному (   Читать дальше...   )Жанр: Познавательная литература, математикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67DC47BD55118E6CD46E12F3C4E12377D40D0E06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 741577   (981440) от 04.01.2014
 
 Н.Я. Виленкин, В.И. Жохов, А.С. Чесноков, С.И. Шварцбурд | Математика 6 (2009) [DJVU]
@@ -6,7 +120,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981440.jpg" />
 </div>
 
 
@@ -32,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980394.jpg" />
 </div>
 
 
@@ -59,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980285.jpg" />
 </div>
 
 
@@ -86,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979095.jpg" />
 </div>
 
 
@@ -112,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979004.jpg" />
 </div>
 
 
@@ -139,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978996.jpg" />
 </div>
 
 
@@ -174,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978611.jpg" />
 </div>
 
 
@@ -200,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978170.jpg" />
 </div>
 
 
@@ -227,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978168.jpg" />
 </div>
 
 
@@ -253,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977984.jpg" />
 </div>
 
 
@@ -279,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977540.jpg" />
 </div>
 
 
@@ -305,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977535.jpg" />
 </div>
 
 
@@ -331,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975680.jpg" />
 </div>
 
 
@@ -357,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975586.jpg" />
 </div>
 
 
@@ -385,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975477.jpg" />
 </div>
 
 
@@ -411,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975469.jpg" />
 </div>
 
 
@@ -437,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974363.jpg" />
 </div>
 
 
@@ -465,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972235.jpg" />
 </div>
 
 
@@ -491,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970817.jpg" />
 </div>
 
 
@@ -519,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970342.jpg" />
 </div>
 
 
@@ -547,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969781.jpg" />
 </div>
 
 
@@ -573,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969651.jpg" />
 </div>
 
 
@@ -585,114 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:001DA37A0434372B73C45B31B36BCD32B6B0BC93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976414   (969449) от 17.01.2016
-
-Кен Робинсон, Лу Ароника | Школа будущего. Как вырастить талантливого ребенка (2016) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Революционный подход к образованию от всемирного эксперта.
-Кен Робинсон — один из самых авторитетных специалистов в образовании. Его выступление по этой теме на TED в 2006 году стало одним из самых популярных за всю историю этого проекта.
-В своей новой книге Кен фокусируется на важнейшей современной проблеме — системе образования. Он протестует против неактуальной (   Читать дальше...   )Жанр: Образование, развитиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52D92ACE7A8D36AB8C8AFC132A23C8399D754A73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977332   (966695) от 20.01.2016
-
-Людмила Соколова, Надежда Андреева | Первый год жизни решает все! 365 секретов правильного развития. Этот удивительный младенец (2015) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966695.jpg" />
-</div>
-
-
-###  Подробнее
-
-За свой первый год ребенок проходит путь развития, сравнимый со всей его дальнейшей жизнью. И каждый день этого года важен. Биологи, исследующие область физиологии поведения, Людмила Соколова и Надежда Андреева, рассказывают в своей книге обо всем, что нужно знать молодым родителям о своем ребенке.
-
-С каким багажом знаний о мире и уникальными возможностями появляется (   Читать дальше...   )Жанр: Воспитание детей, дошкольное обучениеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3E17B97020DADA7ADD6E322854AC616BEABC24A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 746708   (965141) от 17.01.2014
-
-Б. Евгеньев | Ровно в полдень. Книжка о поясном времени (1928) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965141.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге в увлекательной форме рассказывается о таком географическом понятии как "Поясное время". Как это и зачем. О разных странах и народах. Издание 1928 года, поэтому книга интересна и в историческом смысле.Жанр: Детская образовательная литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC215BF37DD6A14E4FC1AA7906A4DFDA270CA988
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979131   (960757) от 25.01.2016
-
-Наталья Караванова | Серия книг "Английский понятный и близкий" [5 книг] (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия книг предназначены для тех, кто только приступает к изучению английского языка или нуждается в повторении базового курса грамматики и фонетики. Созданное специально для русскоязычных учащихся, пособия помогут освоить базовый курс английского и станут прекрасной основой для дальнейшего изучения языка.Жанр: Иностранный язык детямФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B0DA29212B2F31E5DF9D8F3C1AF24D63DA934D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

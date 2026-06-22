@@ -1,3 +1,31 @@
+###  Публикация: 634604   (847161) от 27.03.2014
+
+GJ-bu | Good Job Club | Клуб добрых дел [2013, TV, 12 ep.] BDrip 1080p Hi10P raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847161.jpg" />
+</div>
+
+
+###  Подробнее
+
+В некоторой старшей школе существует «клуб добрых дел», где, как водится, единственный парень по имени Кёя Синомия вынужден развлекать четырех милых и нестандартных девушек. Президент, шумная малышка Мао Амацука, встревает во все, что можно, а если не получается, угадайте, кто виноват? Ее младшая сестра Мэгуми, наоборот, тихая и спокойная хозяюшка, правда, с двойным дном. Интеллектуальный гений Сион Сумэраги мало разбирается в повседневной жизни, а канадская гостья Клара Бернштейн умеет говорить с кошками и обожает есть мясо. И что же объединяет всех этих персонажей? Конечно же, великая сила аниме!
+
+Добрые дела можно понимать по-разному, и для героев на первом месте – борьба со скукой, чем они регулярно и занимаются. Тут все средства хороши – от поедания вкусностей до танцев и армрестлинга, от игр в «братиков и сестричек» до культурных фестивалей. Комедия ситуаций и «весна юности», языковые шутки и молодежные розыгрыши, симпатичные герои и легко узнаваемые пародии – в общем, любители жанра не будут разочарованы! (   Читать дальше...   )Жанр: комедия, повседневностьРежиссер: Фудзивара ЁсиюкиПродолжительность: 12 серий по 23 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFA0E4884D0AAA62A05F8D6FEBA84FAE2D424A11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111568   (846645) от 06.03.2017
 
 Uchuu Patrol Luluco / Space Patrol Luluco / Космический патруль Лулуко [2016, TV, 13 из 13] BDRip 1080p raw
@@ -6,7 +34,7 @@ Uchuu Patrol Luluco / Space Patrol Luluco / Космический патрул�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846645.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ Akagami no Shirayukihime | Красноволосая Белоснежка [2015
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846328.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ D_Cide Traumerei the Animation | Дисайд: Грёзы [2021, TV, 13 эп.] W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845707.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ Lily Cat | Lily C.A.T. | К.О.Т. Лили [1987, OVA] LDrip 480p raw + eng
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845433.jpg" />
 </div>
 
 
@@ -112,7 +140,7 @@ Jormungand / Ёрмунганд [ТВ-1] [2012, TV, 12] BDrip 720p 10-bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845209.jpg" />
 </div>
 
 
@@ -138,7 +166,7 @@ Higurashi no Naku Koro ni: Sotsu | Higurashi: When They Cry - Sotsu | Когда
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844031.jpg" />
 </div>
 
 
@@ -164,7 +192,7 @@ Waga Seishun no Arcadia / Arcadia of My Youth (Harlock Movie 2) / Аркадия
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843444.jpg" />
 </div>
 
 
@@ -190,7 +218,7 @@ Love Hina | Любовь и Хина [2000, TV, 25 TV + 3 OVA + 2 SP] BDRip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842741.jpg" />
 </div>
 
 
@@ -216,7 +244,7 @@ Musaigen no Phantom World | Myriad Colors Phantom World | Красочный м�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842497.jpg" />
 </div>
 
 
@@ -242,7 +270,7 @@ Kanojo to Kanojo no neko OAV / Она и ее кот [1999, OVA] DVDRip raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841522.jpg" />
 </div>
 
 
@@ -268,7 +296,7 @@ Kami-sama Hajimemashita 2 OVA / Очень приятно, Бог OVA-2 [2015, O
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841106.jpg" />
 </div>
 
 
@@ -294,7 +322,7 @@ Magi: Sinbad no Bouken | Маги - Приключение Синбада [2014,
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841058.jpg" />
 </div>
 
 
@@ -321,7 +349,7 @@ Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Виолетта Эве�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840749.jpg" />
 </div>
 
 
@@ -347,7 +375,7 @@ Zegapain | Дзэгапэйн [2006, TV, 26 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839952.jpg" />
 </div>
 
 
@@ -373,7 +401,7 @@ Burn Up! Warrior | Burn-Up W - On the Case & In your Face | Разгон! Дуб
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839895.jpg" />
 </div>
 
 
@@ -399,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839876.jpg" />
 </div>
 
 
@@ -425,7 +453,7 @@ God Eater / Пожиратель Богов [2015, TV, 13 из 13] BDRip 1080p H
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839405.jpg" />
 </div>
 
 
@@ -451,7 +479,7 @@ Kami nomi zo Shiru Sekai: Megami Hen | The World God Only Knows: Goddesses Arc |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838338.jpg" />
 </div>
 
 
@@ -477,7 +505,7 @@ Magica Wars / Mahou Shoujo Taisen / Войны девочек-волшебниц
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838192.jpg" />
 </div>
 
 
@@ -505,7 +533,7 @@ Ookami-san to Shichinin no Nakama-tachi / Волчица и семеро дру�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837565.jpg" />
 </div>
 
 
@@ -533,7 +561,7 @@ Majimoji Rurumo: Kanketsuhen | Magimoji Rurumo: The Conclusion | Ведьмоч�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836685.jpg" />
 </div>
 
 
@@ -559,7 +587,7 @@ Furuba / Fruits Basket / Корзинка фруктов [2001, TV, 26 из 26] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836338.jpg" />
 </div>
 
 
@@ -585,7 +613,7 @@ Megazone 23 | Мегазона 23 OVA-1,2,3 [1985, OVA, 3 эп.] BDRip 1080p Hi1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836326.jpg" />
 </div>
 
 
@@ -611,7 +639,7 @@ Re-Main | Ре-Мейн [2021, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836015.jpg" />
 </div>
 
 
@@ -637,7 +665,7 @@ Cencoroll | Сэнкоролл [2019, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835914.jpg" />
 </div>
 
 
@@ -648,33 +676,6 @@ Cencoroll | Сэнкоролл [2019, Movie] BDRip 1080p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16444837D503BFD48B8929018E8FCE587B68B0F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946836   (833865) от 08.04.2016
-
-Osomatsu-san / Mr. Osomatsu / Возвращение Осомацу-куна [2015, TV, 25+SP] HDTVRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возвращение одного из главных аниме и манги 60-ых на экраны. Четвёртую стену сломали, отсылок напихали, любимых героев вернули. К большинству фирменных шуток вы привыкнете к концу первой серии, а персонажей с легкостью научитесь определять по голосам. Понравится тем, кто помнит и любит Дораэмона, Осомацу-куна и другую классику того времени.
-И не удивляйтесь чёрно-белой (   Читать дальше...   )Производство: Studio PierrotЖанр: комедияРежиссер: Фудзита ЁитиЯзык субтитров: Английский (отключаемый), Русский (отключаемый)Продолжительность: 25 серий по 25 минут+SP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2546AED5E01F86503B61A2B6CDE2B5B62662B35F
 ```
 
 https://mybot314.ru/tekegram_catalog/

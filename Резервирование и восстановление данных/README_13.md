@@ -6,7 +6,7 @@ R-Studio Network 9.5 Build 191603 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3960.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ R-Studio Network 9.5 Build 191603 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3774.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MobiKin Backup Manager for Android 2.0.24 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3245.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ O&O DiskImage Professional 21.1.184 RePack by elchupacabra [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2991.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ R-Studio Network / Technician 9.5 Build 191603 RePack (& Portable) by Dodakaedr 
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2378.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Hasleo Backup Suite 5.4.2.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2369.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ R-Drive Image System Recovery Media Creator 7.3 Build 7310 RePack (& Portable) b
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1875.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Coolmuster Android Assistant 6.0.89 RePack (& Portable) by elchupacabra [Multi/R
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1700.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ R-Drive Image Technician 7.3 Build 7310 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1685.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ AOMEI Backupper Technician Plus 8.0.0 (DC 19.09.2025) RePack by KpoJIuK [Multi/R
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1501.jpg" />
 </div>
 
 

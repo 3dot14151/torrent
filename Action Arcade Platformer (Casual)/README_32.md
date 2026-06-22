@@ -1,3 +1,55 @@
+###  Публикация: 1815530   (5249) от 30.08.2025
+
+Panzer Knights (2020) [Ru/Multi] (1.1.7/dlc) Repack Let'sРlay
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы не будем вам лгать: эти кампании непростые. Война не за горами, и вы, среди всех ваших товарищей, были выбраны для поступления в Panzertruppenschule I. Армии требуется больше элитных командиров танков, «Стальных рыцарей», чтобы привести нас к победе, используя самую доминирующую форму войны: танки. . Есть ли у вас что требуется, чтобы вступить в ряды элиты? Готовы (   Читать дальше...   )Тип издания: RepackРазработчик: 樂磚Joy BrickЖанр: Экшены, ИндиЯзык озвучки: ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:880D9974EA927536381513BECF2A8D92562FD584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764116   (5058) от 31.08.2025
+
+Astral Ascent (2023) [Ru/Multi] (2.2.3/dlc) Repack Let'sРlay
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Astral Ascent — это 2D платформер и упрощённый рогалик, действие которого разворачивается в фэнтезийной реальности в наше время. Четыре героя с уникальными характерами пытаются сбежать из Сада, астральной тюрьмы, которую охраняют 12 богоподобных и коварных Зодиака. Заручитесь помощью верных друзей и попытайтесь сбежать, сразившись с тюремщиками в неравном бою.Тип издания: RepackРазработчик: Hibernian WorkshopЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0491F2D692655576672CAA10B820B9F3FEA1DD30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815759   (5012) от 31.08.2025
 
 Risk of Rain Returns (2023) [Ru/Multi] (1.1.0) Repack Let'sРlay
@@ -6,7 +58,7 @@ Risk of Rain Returns (2023) [Ru/Multi] (1.1.0) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5012.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Risk of Rain Returns (2023) [Ru/Multi] (1.1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4848.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Rusty Rangers (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4549.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Spiritfall (2024) [Ru/Multi] (1.6.28) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4535.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Isles of Sea and Sky (2024) [Ru/Multi] (2.4a) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3522.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ ION Shift (2024) [Ru/Multi] (1.2.3) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3284.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Planet of Lana (2023) [Ru/Multi] (1.1.0.0) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3222.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Atari 50: The Anniversary Celebration (2022) [Multi] (1.04/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2847.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ X-Morph Defense (2017) [Ru/Multi] (SVN_29109.TC_129.DATA_12/dlc) Repack Let'sРl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2835.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ NINJA GAIDEN Ragebound (2025) [Ru/Multi] (cs37801) Repack Let'sРlay [Soundtrack
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_916.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Undead West (2024) [Ru/Multi] (1.0.4.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_706.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Meganoid (2017) [En] (2.2.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_648.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Primal Planet (2025) [Ru/Multi] (1.0.250909.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147.jpg" />
 </div>
 
 

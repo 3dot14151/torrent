@@ -1,3 +1,60 @@
+###  Публикация: 1337723   (272709) от 12.11.2019
+
+Slidepad 1.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272709.jpg" />
+</div>
+
+
+###  Подробнее
+
+С Slidepad не будет больше хлопот с переключением окон. Slidepad приносит многозадачность в стиле iPad на ваш Mac. Использовать Slidepad так же просто, как использовать док-станцию.
+Slidepad позаимствовал концепцию боковой панели у Franz и Station. Он намного более плавный, чем вкладки, и помогает быстро переключаться между различными веб-приложениями.
+Omnibox позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: SlidepadПоддерживаемая ОС: macOS 10.13.4+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2D38C492F5C8C062695BB4EDBF9728852DB2193
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337835   (272708) от 12.11.2019
+
+iClip - Clipboard Recorder & ClipArt Manager 5.5.2b1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272708.jpg" />
+</div>
+
+
+###  Подробнее
+
+iClip - управляйте данными в буфере обмена.
+С iClip, вы быстро сохраните, организуете доступ к битам информации, которые просто не практично сохранять как целые документы. Утилита имеет удобный пользовательский интерфейс и приятную графику.
+
+iClip позволяет быстро заносить и хранить небольшие фрагменты текста и изображений, интернет адреса и другую информацию. Данные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.11.2019Разработчик: Irradiated Software, LLCПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:285E406D82443A754F89D6ED7175A661C967DFFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337817   (272707) от 12.11.2019
 
 Wondershare AllMyMusic 3.0.0 [Multi]
@@ -6,7 +63,7 @@ Wondershare AllMyMusic 3.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272707.jpg" />
 </div>
 
 
@@ -33,7 +90,7 @@ ScreenFlow 8 v8.2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272705.jpg" />
 </div>
 
 
@@ -62,7 +119,7 @@ Unite 2.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272704.jpg" />
 </div>
 
 
@@ -88,7 +145,7 @@ RAW Power 2.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272701.jpg" />
 </div>
 
 
@@ -116,7 +173,7 @@ Smultron 9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272658.jpg" />
 </div>
 
 
@@ -145,7 +202,7 @@ PaintCode 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272655.jpg" />
 </div>
 
 
@@ -173,7 +230,7 @@ Lingon X 4.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272651.jpg" />
 </div>
 
 
@@ -200,7 +257,7 @@ LaunchBar 6.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272647.jpg" />
 </div>
 
 
@@ -229,7 +286,7 @@ Exposure X5 v5.0.2.95 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272638.jpg" />
 </div>
 
 
@@ -255,7 +312,7 @@ Mosaic Pro - Professional-level window management 1.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272635.jpg" />
 </div>
 
 
@@ -284,7 +341,7 @@ Debookee 5.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272594.jpg" />
 </div>
 
 
@@ -311,7 +368,7 @@ Business Templates for Pages 3.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272584.jpg" />
 </div>
 
 
@@ -340,7 +397,7 @@ Adobe Zii 2020 - Universal Patcher v5.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272545.jpg" />
 </div>
 
 
@@ -366,7 +423,7 @@ sdspeed 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272451.jpg" />
 </div>
 
 
@@ -395,7 +452,7 @@ Find Any File (FAF) 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272438.jpg" />
 </div>
 
 
@@ -422,7 +479,7 @@ SSDReporter 1.0.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272399.jpg" />
 </div>
 
 
@@ -451,7 +508,7 @@ TurboCollage 6 v6.0.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272389.jpg" />
 </div>
 
 
@@ -477,7 +534,7 @@ Yoink 3.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272326.jpg" />
 </div>
 
 
@@ -503,7 +560,7 @@ Downie 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272300.jpg" />
 </div>
 
 
@@ -532,7 +589,7 @@ Window Focus 1.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272143.jpg" />
 </div>
 
 
@@ -560,7 +617,7 @@ Sublime Text 3 (3156) Dev [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272085.jpg" />
 </div>
 
 
@@ -587,7 +644,7 @@ File Juicer 4.71 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272068.jpg" />
 </div>
 
 
@@ -615,7 +672,7 @@ CrossOver 16.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272001.jpg" />
 </div>
 
 
@@ -644,7 +701,7 @@ Cisdem DVDBurner 3.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271702.jpg" />
 </div>
 
 
@@ -655,58 +712,6 @@ Cisdem DVD Burner предлагает простое и элегантное р
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78AD8CCA40B57032600B0AD061C913B91977857C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337986   (271697) от 13.11.2019
-
-WebToLayers 1.1.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271697.jpg" />
-</div>
-
-
-###  Подробнее
-
-WebToLayers преобразует веб-сайты в документы Photoshop. Другими словами, приложение позволяет создавать скриншоты веб-страниц, сохраняя каждый элемент в отдельном слое. Приложение сэкономит вам много времени при перепроектировании или улучшении существующих веб-страниц.Тип издания: macOS SoftwareРелиз состоялся: 24.10.2019Разработчик: Jeremy VizziniПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5A497DD7CD6247FE5C21F8E9EC1B12F40931202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337992   (271676) от 13.11.2019
-
-MP3 Gain 4 v4.7.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271676.jpg" />
-</div>
-
-
-###  Подробнее
-
-MP3 Gain для Mac - это простой инструмент, разработанный специально для регулировки и нормализации громкости аудиофайлов (mp3, wma и т.д.). Он автоматически нормализует громкость аудиофайлов и регулирует громкость звуковых дорожек без потерь. Он выполняет статистический анализ, чтобы определить, насколько громко файл на самом деле звучит для человеческого уха.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: SeasoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:043A3BA643CC4771F629A04E3D5BDBBFE2D591AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

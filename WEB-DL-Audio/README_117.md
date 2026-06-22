@@ -6,7 +6,7 @@ Cold Wives - Self-Titled (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <noise-rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51604.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Guided By Voices - Strut Of Kings (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51603.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Orbweavers - New Moon / Silver Moon (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51601.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Madness - Theatre Of The Absurd presents C'Est La Vie (2023) Enhanced Edition, 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51599.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Madeleine Peyroux - Let's Walk (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51598.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Hiatus Kaiyote - Love Heart Cheat Code (2024) [FLAC 24/44.1,48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51592.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Anastacia - Our Songs (2023) Gold Deluxe Edition, 2024, Stars by Edel [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51585.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Cher - Living Proof (2001) Deluxe Edition, 2024, Warner Music UK Limited [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51079.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Deep Purple - Lazy Sod (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51022.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ The Alan Parsons Project - Vulture Culture (1984) Remaster, 2024, Ariola [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50966.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Betty Harris - Soul Perfection (1969) Remastered, 2024, Sansu Records [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50465.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Eminem - The Death of Slim Shady (Coup De Grâce) (2024) [FLAC 24/96|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50249.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Apocalyptica - Plays Metallica, Vol. 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50223.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Jack Magnet Science, Peter Erskine - Future Forecast (2024) [FLAC 24/96|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49718.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Love Music Zone, Smooth Jazz Music Ensemble - Charming Nights: Sensual Collectio
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49631.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Babbba - Cabaret III (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swing>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49616.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Sexual Music Collection, Romantic Piano Ambient - Forbidden Jazz for Night Pleas
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49614.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Babbba - Extended Cabaret (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swin
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49612.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Babbba - Groovy Things (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swing>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49610.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Land Of Talk - Applause Cheer Boo Hiss (3CD) (2007) The Definitive Edition, 2024
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49606.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Al Di Meola - Twentyfour (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Rock, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49603.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49545.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Deep Purple - =1 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49514.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Beth Hart - You Still Got Me (2024) Single [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48975.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Powerwolf - Wake Up The Wicked (Deluxe Version) (2024) [FLAC 24/48,24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48380.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Isomen - 16 Albums (2023-2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48275.jpg" />
 </div>
 
 

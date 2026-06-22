@@ -1,3 +1,32 @@
+###  Публикация: 944004   (444608) от 05.10.2015
+
+Toru Takemitsu (武満徹) - The Film Music Of Toru Takemitsu (1997) [FLAC|Lossless]<Modern Classical, Experimental, Score>
+
+>>East Asian Music
+>>Other Asian (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Music From Rikyu (15:15)
+02. Music Of Training And Rest (From Jose Torres) (04:44)
+03. Funeral Music (From Black Rain) (04:12)
+04. Waltz (From The Face Of Another) (02:13)(   Читать дальше...   )Жанр: Modern Classical, Experimental, ScoreПродолжительность: 00:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0922F93F674B47B3E768C30FF7D21C60C94BF6CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1178327   (352850) от 29.10.2017
 
 VA - NieR: Automata Original Soundtrack (2017) [FLAC 2.0 24/48|Lossless|tracks] <Soundtrack>
@@ -6,7 +35,7 @@ VA - NieR: Automata Original Soundtrack (2017) [FLAC 2.0 24/48|Lossless|tracks] 
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352850.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ Masayoshi Takanaka - The Rainbow Goblins (1981) 2013, Universal [FLAC|Lossless|t
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346467.jpg" />
 </div>
 
 
@@ -63,7 +92,7 @@ Masayoshi Takanaka - Saudade (1982) 1995, Kitty Records [FLAC|Lossless|tracks + 
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344235.jpg" />
 </div>
 
 
@@ -92,7 +121,7 @@ Masayoshi Takanaka - Ukulele Seychelles (2011) Lagoon Records [FLAC|Lossless|tra
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341959.jpg" />
 </div>
 
 
@@ -121,7 +150,7 @@ MONACA — DRAG-ON DRAGOON 3 Original Soundtrack (2014) [FLAC|tracks] <Soundtrac
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321204.jpg" />
 </div>
 
 
@@ -149,7 +178,7 @@ VA — NieR Gestalt & Replicant Original Soundtrack (2010) [FLAC|tracks] <Soundt
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321044.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ Hatsune Miku Symphony 2016 Orchestra Live CD [FLAC|Lossless|image+.cue] <J-Pop, 
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320101.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ Turtles - 2 albums (2003-2004) [FLAC|Lossless]<Korean,hip hop>
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316984.jpg" />
 </div>
 
 
@@ -241,7 +270,7 @@ Ayako Ishikawa - SAKURA SYMPHONY (2016) [FLAC|Lossless|image+.cue+dvdiso] <J-Pop
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289960.jpg" />
 </div>
 
 
@@ -270,7 +299,7 @@ Night Tempo - Japanese Pop Edit (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183122.jpg" />
 </div>
 
 
@@ -299,7 +328,7 @@ Dasu - Nakakapagpabagabag (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5152.jpg" />
 </div>
 
 

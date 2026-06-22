@@ -1,3 +1,107 @@
+###  Публикация: 1867136   (1066563) от 
+
+Устал убивать: Автобиография киллера / Ammazzare stanca (2025) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Италия 1970-х годов. Парень по имени Антонио Загари пишет собственную автобиографию. Он вспоминает свое детство и семью — в первую очередь, отца Джакомо, члена итальянской преступной группировки «Ндрангета». Именно он ввел Антонио в мир мафии, навязав ему образ жизни убийцы. На протяжении нескольких лет парень выполнял грязную работу для группировки, и со временем (   Читать дальше...   )Производство: Италия, Германия / Rai Cinema, Beta Film, Ministero della Cultura (MiC), Emilia-Romagna Film Commission, Calabria Film Commission, Regione Emilia-Romagna, Mompracem, Regione CalabriaЖанр: криминал, драма, биографияРежиссер: Даниеле ВикариАктеры: Габриэль Монтези, Винисио Маркиони, Селена Карамацца, Андреа Фуорто, Томас Трабакки, Кристиана Ваккаро, Рокко Папалео, Эмануэле Песакане, Мириам ГаджиноПеревод: Многоголосый любительский (MUZOBOZ)Язык озвучки: русский, итальянскийСубтитры: русские (full - AI), итальянскиеПродолжительность: 02:09:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:808C017E144B5C799FFE092DFD26ECC271B78C04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867129   (1066560) от 05.05.2026
+
+Высший пилотаж / Spun (2002) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Безработный студент-недоучка Росс знакомится в доме своего дилера Майка с производителем метамфетамина Куком и его подружкой-стриптизёршей. Так начинается головокружительное трёхдневное путешествие Росса по волнам безумия, в котором он потеряет представление не только о времени и месте, но и самом себе...Производство: США / Brink Films, Little Magic Films, Stone Canyon EntertainmentЖанр: драма, комедия, криминалРежиссер: Йонас ОкерлундАктеры: Джейсон Шварцман, Джон Легуизамо, Микки Рурк, Бриттани Мёрфи, Мена Сувари, Петер Стормаре, Эрик Робертс, Патрик ФьюджитПеревод: профессиональный многоголосый (Екатеринбург Арт), профессиональный двухголосыйЯзык озвучки: русский, английскийСубтитры: русские (Глеб Аксёнов), английскиеПродолжительность: 01:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57F14B2B69BECCD11FC7EEE0DFFABD1652782A93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866910   (1066485) от 22.04.2026
+
+Тяжелые деньги / Hard Cash (2001) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отсидев положенный срок, на свободу выходит знаменитый вор Томас Тэйлор, которому нужно размяться и подзаработать после вынужденного отдыха. Вместе со своими надежными напарниками он грабит букмекерскую контору, но вскоре радость сменяется досадой – деньги меченые, а на пороге уже стоит предприимчивый агент ФБР Корнэлл, шантажом заставляющий бесстрашную команду ограбить (   Читать дальше...   )Производство: Аруба, США / Canyon Productions, City Heat Productions, DEJ Productions, Emmett/Furla/Nittolo Films, Millennium FilmsЖанр: боевик, триллер, криминалРежиссер: Предраг АнтониевичАктеры: Кристиан Слэйтер, Вэл Килмер, Сара Доунинг, Винсент Лареска, Бальтазар Гетти, Боким Вудбайн, Дэрил Ханна, Родни Роулэнд, Холлистон Коулмэн, Питер ВудвордПеревод: Дублированный (Мосфильм-Мастер), двуголосый профессиональный (R5, Пирамида Видео)Язык озвучки: Русский, английскийСубтитры: Русские, английские (Full, SDH)Продолжительность: 01:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26D5F57D685039D39CC7D778A87876C60E15711F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866943   (1066467) от 22.04.2026
+
+Бобры-зомби / Zombeavers (2014) BDRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания парней и девушек приезжают на выходные в домик у реки и собираются весело провести время. Огромная речная запруда даёт понять молодёжи, что в этой местности полно бобров, но никто не представляет какими ужасными созданиями могут быть эти только на первый взгляд миролюбивые животные. Когда один из зверушек попадает к ним в дом, молодежь разбирается с ним, (   Читать дальше...   )Производство: США / Armory Films, BenderSpink, Canal+Жанр: ужасы, комедияРежиссер: Джордан РубинАктеры: Билл Бёрр, Кортни Палм, Рэйчел Мелвин, Хатч Дано, Джейк Вири, Рекс Линн, Брент Бриско, Роберт Р. Шафер, Питер Гилрой, Лекси АткинсПеревод: профессиональный многоголосый, любительский одноголосый (den904)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:17:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B04C1A836E640B2B18B077F5EA3F76A0CBF80AFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1866944   (1066466) от 22.04.2026
 
 Удары / Налёты / Golpes (2025) WEB-DLRip [H.264] [MVO]
@@ -6,7 +110,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066466.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066270.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066170.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065903.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065825.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065804.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065784.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065740.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065674.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065668.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065658.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065582.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065524.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065393.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065226.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065108.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065038.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064978.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064896.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064881.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064861.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064728.jpg" />
 </div>
 
 
@@ -563,112 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50B75E059D51C6E1F466F8AF59B51F255CAF6F29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864552   (1064721) от 
-
-Ночь демонов 2 / Night of the Demons 2 (1994) BDRip [H.264] [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа подростков из академии Святой Риты отправляется на вечеринку Дня всех святых в заброшенное поместье Hull House. Несколько лет назад там были убиты несколько человек. Но тело одной девушки так и не нашли.
-Ночь демонов / Night of the Demons (1987)Производство: США / Blue Rider Pictures, Republic Pictures (II)Жанр: ужасы, фэнтези, мелодрама, комедияРежиссер: Брайан Тренчард-СмитАктеры: Кристи Харрис, Дэрин Химс, Роберт Джейн, Мерл Кеннеди, Амелия Кинкейд, Род МакКери, Джонни Моран, Рик Питерс, Дженнифер Родс, Кристин ТейлорПеревод: Авторский (C.Визгунов, В.Дохалов, Ю.Живов, С.Кузнецов)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F20A639DDC6D92CF2203A86FF09262296D50F32F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864558   (1064719) от 
-
-Ночь демонов 3 / Night of the Demons III (1996) BDRip [H.264] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приблизилось время очередного Хэллоуина. Группа подростков после потасовки со стрельбой стали искать место, где бы затаиться, и выбрали «Адский дом», знакомый нам по предыдущим частям. Там их встретила демониха-Анджела, и помимо неё самой подросткам пришлось разбираться в личных взаимоотношениях, что явно способствовало увеличению демонической рождаемости...
-Ночь (   Читать дальше...   )Производство: Канада / Blue Rider Pictures, Flanders Productions, Fries/Schultz Film GroupЖанр: ужасы, фэнтезиРежиссер: Джим КауфманАктеры: Ларри Дэй, Амелия Кинкейд, Кристен Холден-Рид, Грегори Калпакис, Тара Слоун, Кристиан Тессьер, Джоэль Гордон, Патриция Родригез, Стефани Бодер, Йен МакДональдПеревод: Двуголосый профессиональный (ТВ6), авторский (С. Визгунов, А. Дольский)Язык озвучки: Русский, английскийСубтитры: Английские (Full, SDH)Продолжительность: 01:25:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E852646B387B5078190B676263D88B5A3D5B9B8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864369   (1064656) от 
-
-Западня / Entrapment (1999) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Следователь страховой компании Вирджиния Бейкер идёт по следу легендарного вора Роберта Макдугала, который специализируется на уникальных произведениях искусства. Чтобы взять Макдугала с поличным, Бейкер выдаёт себя за преступницу и пытается втереться к нему в доверие. Но её интересует отнюдь не торжество правосудия...Производство: Великобритания, Германия, США / 20th Century Fox Film Corporation, Fountainbridge FilmsЖанр: боевик, триллер, мелодрамаРежиссер: Джон ЭмиелАктеры: Шон Коннери, Кэтрин Зета-Джонс, Винг Реймз, Уилл Пэттон, Мори Чайкин, Кевин Макнэлли, Терри О’Нил, Мадхав Шарма, Дэвид Ип, Тим ПоттерПеревод: Дублированный (Нева-1)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:52:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29C49F55428EE67EF58FB6BDB04DC9503CE8E8AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864265   (1064628) от 
-
-Розмид / Rosemead (2025) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064628.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре фильма находится Ирен, смертельно больная вдова, владеющая небольшой типографией в Лос Анджелесе. Она из последних сил пытается сохранить контроль над жизнью, стремительно выходящей из равновесия. Ее сын Джо страдает шизофренией и отказывается принимать лекарства. Он убежден, что препараты лишают его ясности, и постепенно отдаляется от реальности. Их отношения (   Читать дальше...   )Производство: США / LA Times Studios, The Population, Taiwan Mobile myVideo, Untapped, Yintai EntertainmentЖанр: триллер, драма, криминалРежиссер: Эрик ЛиньАктеры: Люси Лью, Лоуренс Шоу, Орион Ли, Дженнифер Лим, Мэдисон Ху, Джеймс Чен, Элевен Ли, Энзи Дибенедетто, Сьюзан Пурфар, Джейсон ТоттенэмПеревод: ДублированныйЯзык озвучки: русский, английскийСубтитры: русские (forced, full - AI), английские (full, SDH), французскийПродолжительность: 01:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5E4782B1FEC9B451F2242A67112DA8ACA6751B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

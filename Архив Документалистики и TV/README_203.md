@@ -1,3 +1,32 @@
+###  Публикация: 1047787   (548506) от 31.08.2016
+
+Хоккей. КХЛ 2016-2017. Спартак (Москва) – Динамо (Рига) (27.08.2016) HDTV [H.264/1080i-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548506.jpg" />
+</div>
+
+
+###  Подробнее
+
+27 августа 2016, суббота. 17:00 МСК
+Матч № 32
+Стадион: «ВТБ Ледовый дворец» (Москва, Россия), 7134 зрителя (57 % при вместимости 12500)
+(   Читать дальше...   )Телекомпания: КХЛ HDЖанр: СпортЯзык озвучки: Русский (Виталий Магранов, Алексей Бадюков)Продолжительность: 02:15:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B34D6C749DF2A837FE3CBBC3E6ADBBCCEAE848C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046499   (548422) от 31.08.2016
 
 Футбол. Лига Чемпионов 2016-2017. Жеребьёвка Группового этапа (25.08.2016) HDTVRip [H.264/1080p-LQ]
@@ -6,7 +35,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548422.jpg" />
 </div>
 
 
@@ -33,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547926.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547924.jpg" />
 </div>
 
 
@@ -91,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547635.jpg" />
 </div>
 
 
@@ -117,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547630.jpg" />
 </div>
 
 
@@ -146,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547556.jpg" />
 </div>
 
 
@@ -175,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547555.jpg" />
 </div>
 
 
@@ -204,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547554.jpg" />
 </div>
 
 
@@ -233,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547553.jpg" />
 </div>
 
 
@@ -262,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547552.jpg" />
 </div>
 
 
@@ -291,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547486.jpg" />
 </div>
 
 
@@ -320,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547484.jpg" />
 </div>
 
 
@@ -349,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547477.jpg" />
 </div>
 
 
@@ -375,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547316.jpg" />
 </div>
 
 
@@ -404,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547315.jpg" />
 </div>
 
 
@@ -433,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547311.jpg" />
 </div>
 
 
@@ -462,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547107.jpg" />
 </div>
 
 
@@ -491,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546946.jpg" />
 </div>
 
 
@@ -520,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546600.jpg" />
 </div>
 
 
@@ -549,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546599.jpg" />
 </div>
 
 
@@ -578,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546598.jpg" />
 </div>
 
 
@@ -607,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546597.jpg" />
 </div>
 
 
@@ -636,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546595.jpg" />
 </div>
 
 
@@ -665,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546591.jpg" />
 </div>
 
 
@@ -694,7 +723,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546469.jpg" />
 </div>
 
 
@@ -706,35 +735,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9583357B87AF9E946A4AD881E92B0DF2AE71E222
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238461   (546187) от 30.07.2018
-
-Формула 1. Сезон 2018. 12-й Этап. Гран-при Венгрии. Гонка (29.07.2018) HDTV [H.264/1080i-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546187.jpg" />
-</div>
-
-
-###  Подробнее
-
-29 июля 2018 года, воскресенье. 16:10 МСК
-12-й Этап сезона 2018 года. Гран-при Венгрии. Будапешт (Венгрия).
-Гонка
-Кругов:	70 - Длина круга:	4,381 км(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 02:01:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FA4C1A15C8F9A734B1CC5ADF6915929E42431C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

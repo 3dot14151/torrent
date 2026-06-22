@@ -1,3 +1,84 @@
+###  Публикация: 1362095   (950452) от 22.02.2020
+
+Girls und Panzer: Kore ga Hontou no Anzio-sen Desu! | Девушки и Танки: Настоящая Битва за Анцио! [2014, OVA] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950452.jpg" />
+</div>
+
+
+###  Подробнее
+
+OVA, сюжет которой рассказывает о битве против старшей школы Анцио. Хронологически, это 8-ой эпизод TV-сериала.Производство: Actas, ЯпонияЖанр: ПриключенияРежиссер: Мидзусима ЦутомуОзвучка: Одноголосая закадроваяСубтитры: ПолныеПродолжительность: 37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03A76FAC130106A9DDAE8FA408DF5957CF36A920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362094   (950451) от 22.02.2020
+
+Girls und Panzer Gekijouban | Girls und Panzer der Film | Девушки и Танки. Фильм [2015, Movie] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950451.jpg" />
+</div>
+
+
+###  Подробнее
+
+После 63 турнира Сэнся-до японское Министерство образования решает закрыть женскую академию Оарай, несмотря на их недавний триумф на чемпионате. Чтобы сохранить академию, Михо и её команда должны выиграть состязание против университетской команды в Сэнся-до. В этом нелёгком сражении к Михо спешат на помощью старые друзья из других школ, а также новые — из академии (   Читать дальше...   )Производство: Actas, ЯпонияЖанр: ПриключенияРежиссер: Мидзусима ЦутомуОзвучка: Одноголосая закадроваяСубтитры: ПолныеПродолжительность: 02:00:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA2258998D7AE0F28B5436A4EB01E923E1EA3346
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361929   (950450) от 22.02.2020
+
+Stranger Mukoh Hadan | Sword of the Stranger | Меч чужака [2007, Movie] BDRip 1080p raw + rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленький мальчик, чьим единственным другом остаётся верный пёс, удирает от погони. За ним охотятся люди местного князя, который вступил в сделку с посланцами из Китая. Никто не знает, что нужно странным чужакам, но они платят золотом, поэтому рабочие целыми днями трудятся над постройкой странного сооружения, а воины прочёсывают ближайшие деревни. Между тем их добыча (   Читать дальше...   )Производство: Япония / BonesЖанр: Самураи, история, боевые искусстваРежиссер: Масахиро АндоЯзык озвучки: Русский
+Профессиональный многоголосый (KANSAI Studio)
+Любительский многоголосый (Shinobi участники: Hattori Hanzo, Lord Alukart, =dmk=, Lunifera)
+Любительский Одноголосый (Юки Нацуи / Animegroup / ARRU)(   Читать дальше...   )Субтитры: Русские, полные (отключаемые) BakaNyakaПродолжительность: 1 ч 43 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65C89B600EEB89D494E421601FC709B49A96F61A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362096   (950449) от 22.02.2020
 
 Girls und Panzer | Girls & Panzer | Девушки и Танки [2012, TV, 12 ep + 5 OVA + 6 Specials] BDRip 1080p 10-bit raw+rus
@@ -6,7 +87,7 @@ Girls und Panzer | Girls & Panzer | Девушки и Танки [2012, TV, 12 e
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950449.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ Bernard Jou Iwaku. / Miss Bernard Said. / Мисс Бернард сказала
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949928.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ D.Gray-man / Грэй-мен [2006-2008, TV, 103 из 103] SDTVrip 396p raw + ru
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946771.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ Shuumatsu no Izetta / Izetta: The Last Witch / Последняя ведьма �
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945415.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ Soul Eater Not! | Пожиратель Душ! Класс НОТ! [2014, TV, 12 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942306.jpg" />
 </div>
 
 
@@ -137,7 +218,7 @@ Burn Up Excess | Burn-Up Excess | Разгон! Перебор [1998, TV] DVDRip
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940423.jpg" />
 </div>
 
 
@@ -163,7 +244,7 @@ Black Bullet / Черная пуля [2014, TV, 13 ep] BDRip Hi10p 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939784.jpg" />
 </div>
 
 
@@ -189,7 +270,7 @@ Rinne no Lagrange / Lagrange: The Flower of Rin-ne / Цветок вечност
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939693.jpg" />
 </div>
 
 
@@ -215,7 +296,7 @@ Owari no Seraph: Nagoya Kessen Hen | Seraph of the End: Battle in Nagoya | По�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939075.jpg" />
 </div>
 
 
@@ -242,7 +323,7 @@ Owari no Seraph | Seraph of the End: Vampire Reign | Последний Сера
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939074.jpg" />
 </div>
 
 
@@ -269,7 +350,7 @@ Hai to Gensou no Grimgar | Grimgar of Fantasy and Ash | Гримгал Мир И
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939073.jpg" />
 </div>
 
 
@@ -296,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938631.jpg" />
 </div>
 
 
@@ -322,7 +403,7 @@ Irozuku Sekai no Ashita kara | Iroduku: The World in Colors | Из Завтра�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935633.jpg" />
 </div>
 
 
@@ -348,7 +429,7 @@ Gokukoku no Brynhildr | Brynhildr in the Darkness | Брунгильда во Т
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935632.jpg" />
 </div>
 
 
@@ -374,7 +455,7 @@ Akame ga Kill! | Убийца Акамэ! [2014, TV, 24 ep + 24 sp] BDRip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935631.jpg" />
 </div>
 
 
@@ -401,7 +482,7 @@ Shingeki no Bahamut: Genesis / Rage of Bahamut: Genesis / Ярость Баха�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935598.jpg" />
 </div>
 
 
@@ -427,7 +508,7 @@ Charlotte | Шарлотта [2015, TV, 13 ep + 1 sp] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934325.jpg" />
 </div>
 
 
@@ -453,7 +534,7 @@ Bokusatsu Tenshi Dokuro-chan / Убойный ангел Докуро-тян (20
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934208.jpg" />
 </div>
 
 
@@ -481,7 +562,7 @@ Shinmai Maou no Testament Departures | The Testament of Sister New Devil Departu
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932868.jpg" />
 </div>
 
 
@@ -507,7 +588,7 @@ Shinmai Maou no Testament Burst | The Testament of Sister New Devil Burst | Но
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932867.jpg" />
 </div>
 
 
@@ -534,7 +615,7 @@ Shinmai Maou no Testament | The Testament of Sister New Devil | Новый За�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932866.jpg" />
 </div>
 
 
@@ -560,7 +641,7 @@ Hanasaku Iroha: Home Sweet Home | Hanasaku Iroha the Movie: Home Sweet Home | А
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931385.jpg" />
 </div>
 
 
@@ -586,7 +667,7 @@ Hanasaku Iroha | Hanasaku Iroha: Blossoms for Tomorrow | Азбука Цвето
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931384.jpg" />
 </div>
 
 
@@ -597,88 +678,6 @@ Hanasaku Iroha | Hanasaku Iroha: Blossoms for Tomorrow | Азбука Цвето
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EF9412F1DD23E032E09276191CB45FAFAE9ED79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364957   (931380) от 06.03.2020
-
-To Love-Ru: Trouble - Darkness 2nd | To Loveru: Darkness 2 | Любовные Неприятности: Тьма 2 [2015, TV, 14 ep + 1 OVA] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прямое продолжение первого сезона.
-Сможет ли энергичная Момо создать полноценный гарем для Юки Рито? Кому же подчиняется Мэа? И что за «тьма» скрывается в стеснительной девочке-наемнице Ями? Ответы на эти вопросы, в сочетании с полюбившимися юмором и романтикой, можно будет найти в новом сезоне.Производство: XEBEC, ЯпонияЖанр: Комедия, Романтика, ЭттиРежиссер: Оцуки АцусиОзвучка: Одноголосая, Двухголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 14 Эпизодов по 23 Мин; 1 Эпизод 12 Мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF70467114FD8E93BB5759D0B961AA6F18AC1CDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364960   (931379) от 06.03.2020
-
-Motto To Love-Ru: Trouble | Motto To Loveru | Любовные Неприятности [TV-2] [2010, TV, 12 ep] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя год после прибытия на Землю Лала все еще полна решимости влюбить в себя Рито, и прикладывает для этого все силы, хотя и знает, что тот продолжает питать огромную страсть к Харуне. Бедному Рито еще только предстоит знакомство с младшими сестрами Лалы, Момо и Наной, которые делят кров с его собственной сестрой, благоразумницей Микан, а также Селин.
-Нас ждут (   Читать дальше...   )Производство: XEBEC, ЯпонияЖанр: Комедия, Романтика, ЭттиРежиссер: Оцуки АцусиОзвучка: Одноголосая, Двухголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 12 Эпизодов по 23 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2043B219907A0AC56531466941A164A64A55F08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364958   (931378) от 06.03.2020
-
-To Love-Ru: Trouble - Darkness | To Loveru: Darkness | Любовные Неприятности: Тьма [2012, TV, 12 ep + 9 OVA] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931378.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наши любимые сестрички Девилюк набирают обороты! Пока Нана разбирается со своими комплексами относительно тела, Момо уже вовсю приступает к созданию настоящего, всемирного гарема для ею любимого Рито.
-Тем временем объявляется новый персонаж — Мэа, милая и отзывчивая девочка, но не без изъяна...
-Стоит упомянуть и Ями: до неё начинают домогаться все — и старые враги (   Читать дальше...   )Производство: XEBEC, ЯпонияЖанр: Комедия, Романтика, ЭттиРежиссер: Оцуки АцусиОзвучка: Одноголосая, Двухголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 12 Эпизодов по 23 Мин; 9 Эпизодов 26 Мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D57BED8EEA9A7D23F2FA22B0CA433D587CCDA042
 ```
 
 https://mybot314.ru/tekegram_catalog/

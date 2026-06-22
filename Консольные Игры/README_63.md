@@ -1,3 +1,197 @@
+###  Публикация: 460830   (79472) от 01.03.2012
+
+[PSP] Harvey Birdman: Attorney at Law [Русский (текст)] (2008)
+
+>>Консольные Игры
+>>PSP
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Harvey Birdman: Attorney At Law - новая комедийная судебно-процессуальная адвенчура по мотивам популярного мультсериала с Cartoon Network про неудавшегося супергероя, подрабатывающего юристом...
+Магистр юридических наук Харви Бердман - герой одного из входящих в ночной программный блок Adult Swim (абсурдистский юмор, мультики для взрослых, аниме) мультсериалов, посвященного жизни адвокатской конторы "Себбен и Себбен", укомплектованной супергероями из бюджетных мультиков шестидесятых годов, в невероятном количестве производившихся студией Hanna-Barbera. "Анимированную приключенческую игру" по мотивам разработала компания High Voltage Software, сделавшая последнюю, трехмерную серию квеста про Ларри Лаффера Leisure Suit Larry: Magna Cum Laude.
+Маска, крылья, и строгий серый костюм с красным галстуком - вот обличье игрока на протяжении пяти основанных на событиях мультика судебных тяжб... Требуется осматривать места преступления, собирать пропущенные полицией улики, опрашивать свидетелей - героев (   Читать дальше...   )2008Жанр: ПриключенияЯзык интерфейса: Русский (текст)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EABFAD95AB16AE4BD019BFF17A91C2C12C9A95C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456896   (78021) от 23.02.2012
+
+[Xbox360] Hasbro Family Game Night 4 (PAL) [ENG] [KINECT] (2011)
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классика никогда не стареет. Четвертая часть уникального сборника понятных, доступных, а главное — известных и любимых игр Hasbro Family Game Night выходит в свет, чтобы продолжить радовать любителей провести время весело.
+  Hasbro Family Game Night 4 - это универсальное развлечение для игроков всех возрастов, а также отличный способ самовыражения. Вместе со знаменитым мистером Картофельная Голова в качестве наставника вы сможете создать персональную комнату заядлого «игромана». Выбирайте варианты обстановки и украшайте свои владения честно заработанными в различных аттракционах трофеями. Скучно не будет!
+  Hasbro Family Game Night 4 включает в себя следующие мини игры — Connect 4 Basketball, Yatzhee! Bowling, Scrabble Flash, Bop-It Boptagon, Sorry! Sliders.
+  И, естественно, весь сборник рассчитан на поддержку сенсора KINECT для мультиплеера.2011Жанр: Fun/Family GameЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F806BB39458AF1DAB5595E9A7E45377347DBBA7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456099   (77833) от 22.02.2012
+
+[Xbox360] Assassin's Creed: Revelations [Русский / Freeboot / Repack] (2011)
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание:
+ Assassin's Creed: Revelations является последней частью серии с Эцио в роли главного героя. Ему предстоит отправиться в Константинополь по следам Альтаира, в целях дальнейшей разгадки тайны между Тамплиерами и Ассасинами.Это полное опасностей путешествие обещает быть полным открытий и откровений. Путь приводит его в Константинополь, сердце Оттоманской Империи, где растущая армия Тамплиеров угрожает стабильности региона. Но что может армия закованных в железо рыцарей-крестоносцев против безжалостного и бесшумного убийцы...Разработчик: Ubisoft Montreal, Ubisoft Shanghai и Ubisoft MassiveЖанр: Action / 3D / 3rd PersonЯзык интерфейса: Русский текст и звук
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A20246880BAD4D0B6DF991FB60757B06ECEA97A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454320   (77253) от 19.02.2012
+
+[PS3] Child of Eden (MOVE) [PSN] [PAL] [ENG] (2011)
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Child of Eden погрузит вас в самый центр сражений за спасение проекта Lumi. Он предназначен для воспроизведения человеческой личности внутри Эдена, архива всех человеческих воспоминаний. Во время того, как Lumi находится на стадии завершения, в архив вторгается неизвестный вирус. Ваша задача заключается в избавлении Эдена от вируса и восстановлении надежды и мира. В Child of Eden вы полностью погрузитесь в игру, между игровым миром и вами не будет никаких барьеров.
+
+Много внимания в игре уделяется ведению огня по разнообразным объектам, которые будут появляться на ваших экранах, при этом производя музыкальные эффекты во время разрушений. Используя PS Move игроки смогут нацеливаться, для смены оружия тоже можно использовать стандартные контроллеры.2011Жанр: Shooter/Music GameЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455027   (77124) от 19.02.2012
+
+[Wii] Wing Island [ENG] [NTSC] (2007)
+
+>>Консольные Игры
+>>Wii, GameCube
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77124.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Wing Island" - это первый авиасимулятор для игровой консоли Nintendo Wii. В игре "Wing Island" Вы и ваши друзья смогут летать на старых бипланах, вытворяя при этом различные головокружительные трюки и маневры. При использовании  "Wii Remote" игроки смогут почувствовать себя, как будто они действительно летят на самолете. Использование (   Читать дальше...   )Разработчик: Hudson SoftЖанр: СимуляторЯзык интерфейса: ENФормат: Образ в формате WBFS. Инструкция здесь!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5F934DA0AF5A81B2DD1454F1178191B4AB04E1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453648   (76836) от 17.02.2012
+
+[XBox360] Kinect Sports: Season Two (RegionFree)[KINECT][RUS] (2011)
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76836.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Kinect Sports: Season 2 игроку на выбор представлены шесть новых спортивных состязаний, и самые новые возможности, которые раскрывают все преимущества технологии Kinect. Посредством этой технологии все члены семьи и друзья со всего мира смогут играть вместе в специальном режиме Challenge Play, который разработан для Xbox LIVE. И посредством новой игры вы сможете показать весь свой потенциал в соревнованиях с друзьями. Начиная от казуальных игроков и до накаченных суператлетов – все смогут глубже погрузиться в атмосферу игры.
+6 новых видов спорта: Лыжи, Гольф, Большой теннис, Дартс, Американский футбол, Бейсбол.
+Доп. информация: Создайте свой спортивный мир. Календари и расписание новых спортивных мероприятий помогут вам объединяться и соревноваться с друзьями по всему миру;
+Вход и выход в игру. Вы сможете с легкость и быстро вступать и выходить из игры, для того чтобы играть по очереди, отдышаться и дать другим шанс побить рекорды;
+Режим Challenge Play. При помощи режима "Challenge Play" вы сможете (   Читать дальше...   )2011Жанр: Action/Sport gamesЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B60B75D8E2DB23C951372847DB96E6033E9D64F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 452420   (76395) от 15.02.2012
+
+[Xbox360] Wipeout In The Zone [Kinect][NTSC][ENG][Freeboot][Repack](2011)
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wipeout In the Zone предоставит уникальную возможность геймеру испытать на «собственной шкуре» реалии передачи «Жестокие игры» без риска для здоровья! Уникальность игры – поддержка функции Kinect, что обеспечит полное погружение в игру. Разработчик и издатель игры компания ActivisionЖанр: Arcade / 3D / Party gameЯзык интерфейса: ENG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E384836F912A83B8B287965063C53DEDAD68FA94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 452738   (76358) от 15.02.2012
 
 [PS2] Army Men: Sarge's War [Multi5 (English, French, German, Italian, Spanish)] [PAL] (2004)
@@ -6,7 +200,7 @@
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76358.jpg" />
 </div>
 
 
@@ -32,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76172.jpg" />
 </div>
 
 
@@ -59,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75789.jpg" />
 </div>
 
 
@@ -86,7 +280,7 @@ Surf's Up [XBOX360] [Ru] [GOD] [Freeboot] (2007)
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75769.jpg" />
 </div>
 
 
@@ -114,7 +308,7 @@ SPRay [Wii] [NTSC] [ENG] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75727.jpg" />
 </div>
 
 
@@ -140,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75565.jpg" />
 </div>
 
 
@@ -166,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75173.jpg" />
 </div>
 
 
@@ -193,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74774.jpg" />
 </div>
 
 
@@ -224,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_73134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73134.jpg" />
 </div>
 
 
@@ -250,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72685.jpg" />
 </div>
 
 
@@ -284,7 +478,7 @@ Worms Collection (2012) [PS3] [USA] 4.40 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69648.jpg" />
 </div>
 
 
@@ -310,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64428.jpg" />
 </div>
 
 
@@ -340,7 +534,7 @@ Warhawk (2007) [PS3] [EUR] СFW Evilnat 4.91 [License] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60791.jpg" />
 </div>
 
 
@@ -366,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59574.jpg" />
 </div>
 
 
@@ -393,7 +587,7 @@ Super Mario 64 HD (1996) [PS3] [EUR] CFW Evilnat 4.91 [Unofficial] [PT]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54516.jpg" />
 </div>
 
 
@@ -419,7 +613,7 @@ New Super Mario World (1990) [PS3] [EUR] CFW Evilnat 4.91 [Repack] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53155.jpg" />
 </div>
 
 
@@ -445,7 +639,7 @@ Comix Zone (1995) [PS3] [EUR] CFW Evilnat 4.91 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51865.jpg" />
 </div>
 
 
@@ -471,7 +665,7 @@ The Legend of Zelda: Echoes of Wisdom (2024) [Switch] [USA] 18.1.0 [License / 1.
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42699.jpg" />
 </div>
 
 
@@ -497,7 +691,7 @@ Alien: Isolation (2019) [Switch] [USA] 14.0.0 [NSZ] [License / 1.1.4_60709] [Ru/
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42489.jpg" />
 </div>
 
 
@@ -508,188 +702,6 @@ Alien: Isolation (2019) [Switch] [USA] 14.0.0 [NSZ] [License / 1.1.4_60709] [Ru/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56F3E486CE779EFFE42C948FB76B8E591F6B67CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756825   (39532) от 23.10.2024
-
-Сборник русифицированных игр Dendy (1983-2021) [NES] [Famicom] [EmuELEC] [ALL] [Repack] [Ru/Multi]
-
->>Консольные Игры
->>Ромы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dendy (рус. Де́нди) - серия домашних игровых приставок, неофициальный аппаратный клон Famicom третьего поколения от Nintendo. Dendy выпускалась компанией Steepler с конца 1992 года и собиралась на Тайване из китайских комплектующих. В основном она продавалась в России и странах постсоветского пространства. Производственная сборка расширилась и стала осуществляться (   Читать дальше...   )Тип издания: RepackРазработчик: РазныеЖанр: AllЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0849697D3FA7CFA2847D33609765E0BD4467E101
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171026   (38871) от 30.10.2024
-
-Call Of Duty Black Ops 2 (2012) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [En]
-
->>Консольные Игры
->>Wii U
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра для Wii U "Call of Duty: Black Ops II" переносит игроков в 2025 год, где миру грозит новая опасность. Вас ждет потрясающая сюжетная компания в стиле "Call of Duty". Вы будете сражаться на земле и на воздухе, управлять беспилотниками и боевыми роботами. Чтобы сорвать планы главного злодея игры Рауля Мендеса, Вам придется использовать все доступные (   Читать дальше...   )Тип издания: LicenseРазработчик: TreyarchЖанр: Action, First-person shooterЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07972B9935F8D5171E1B822549F0CD2618E7DB21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758336   (38559) от 02.11.2024
-
-S.T.A.L.K.E.R.: Legends of the Zone Trilogy (2024) [Switch] [USA] 18.1.0 [NSZ] [License] [Ru/Multi]
-
->>Консольные Игры
->>Switch
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38559.jpg" />
-</div>
-
-
-###  Подробнее
-
-События разворачиваются в альтернативном мире на территории Украины, в Чернобыльской зоне отчуждения. Согласно сюжету серии, в 2006 году зона подверглась неожиданному аномальному воздействию, «Выбросу», в результате которого физические, химические и биологические процессы на данной территории изменились. Появилось множество аномалий, артефактов и мутантов. В идеях (   Читать дальше...   )Тип издания: LicenseРазработчик: GSC Game World, MatabooЖанр: First Person Shooter, Action, Role-PlayingЯзык озвучки: Русский (опционально), Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D235CFF43EBFB2B1C95188915DB3DAE71AABD23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760462   (37317) от 14.11.2024
-
-Little Big Adventure – Twinsen’s Quest (2024) [Switch] [USA] 18.1.0 [NSZ] [License / 1.0.2] [Ru/Multi]
-
->>Консольные Игры
->>Switch
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настало время новых приключений! Перенеситесь в причудливый мир Твинсана в ремейке приключенческого экшена, вышедшего ещё в 1994 году! В Little Big Adventure - Twinsen's Quest вас ждут обновлённая графика, новая музыка от оригинального композитора и улучшенный игровой процесс. В этом улучшенном и осовремененном ремейке вы опять повстречаете Твинсена.Тип издания: LicenseРазработчик: Adeline Software International, 2.21Жанр: Adventure, Puzzle, ActionЯзык озвучки: Английский, ФранцузкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69247DF3D78CA5BF7FEB5F17E9E9C87166757EFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655292   (29881) от 25.01.2025
-
-Vampire Survivors (2023) [Switch] [USA] 18.1.0 [NSP] [License / 1.12.108 / DLC] [Ru/En]
-
->>Консольные Игры
->>Switch
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пачками косить порождений ночи и дожить до рассвета! Vampire Survivors - казуальная игра в стиле готического хоррора с элементами упрощённого рогалика. Здесь каждое ваше решение может вызвать лавину последствий для орд монстров, с которыми вам предстоит столкнуться. Ад опустел, а все демоны пришли сюда, и теперь уже некуда бежать или прятаться. Вам остается только (   Читать дальше...   )Тип издания: LicenseРазработчик: Luca GalanteЖанр: Action, ArcadeЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36235C674B36034F72BFFD08D43499622A919D2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779452   (27731) от 13.02.2025
-
-The Sly Trilogy (2010) [PS3] [EUR] 3.50 [License] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий подарок поклонникам качественных платформеров и фанатам серии. Встречайте – The Sly Collection. Все 3 части серии на одном blu-ray диске со слегка обновлённой графикой в HD-разрешение и добавлением трофеев.Тип издания: LicenseРазработчик: Sucker Punch Productions, Sanzaru GamesЖанр: ActionЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3065E95B11A8D883D81C367C43F71141682DC021
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780683   (27052) от 20.02.2025
-
-DuckTales: Remastered (2013) [PS3] [EUR] 4.46 [License] [Multi]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27052.jpg" />
-</div>
-
-
-###  Подробнее
-
-DuckTales: Remastered - это красочный, нарисованный вручную ремейк одной из самых милых сердцу 8-битных игр всех времен. Возвращайтесь в золотую эру видеоигр, но с таким уровнем детализации, который удовлетворит в равной мере как самых ярых поклонников диснеевских мультиков, так и фанатов ретро-игр от Capcom. Нарисованные вручную анимированные персонажи, озвученные (   Читать дальше...   )Тип издания: LicenseРазработчик: WayforwardЖанр: Аркада, ПлатформерЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52274D0C4F983252BE89E372D0B4239F7079546F
 ```
 
 https://mybot314.ru/tekegram_catalog/

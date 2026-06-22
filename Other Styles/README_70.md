@@ -1,3 +1,274 @@
+###  Публикация: 506158   (690278) от 05.06.2012
+
+George Skaroulis - Reunion (2007) [FLAC|Lossless]<New Age, Piano solo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fragile (6:44)
+02. Evangelia (5:33)
+03. Reunion (4:26)
+04. Numinous (5:05)
+05. Hopes And Dreams (3:23)
+06. Into The Light (2:12)
+07. Tree Of Life (5:08)
+08. On Friendship's Wings (4:18)
+09. The Calling (5:00)
+10. Snow (3:01)Жанр: New Age, Piano soloПродолжительность: 01:02:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288919   (690230) от 14.03.2019
+
+LeAnn Rimes - Unchained Melody: The Early Years (1997) [FLAC|Lossless|tracks + .cue] <Folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690230.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 	Cowboy's Sweetheart 	2:32
+2 	I Will Always Love You 	4:38
+3 	Blue Moon Of Kentucky 	3:17
+4 	River Of Love 	3:19(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:32:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2D0C8B896F71EF3B6BD1F0178A8917D488EF2A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288907   (690228) от 14.03.2019
+
+Ashley McBryde - Girl Going Nowhere (2018) [FLAC|Lossless|tracks + .cue] <Folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690228.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Girl Goin’ Nowhere (03:25)
+2. Radioland (03:05)
+3. American Scandal (04:02)
+4. Southern Babylon (04:05)(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52655093183FD8E5219EBDA3021F7B53BDBD9984
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289028   (690225) от 14.03.2019
+
+Montgomery Gentry - Here's To You (2018) [FLAC|Lossless|tracks + .cue] <Folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690225.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Shotgun Wedding (03:21)
+2. Better Me (03:26)
+3. Needing a Beer (03:44)
+4. What’cha Say We Don’t (03:40)(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC778595E97BC036E41EBB4003CCAA2E06F4A9C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289021   (690220) от 14.03.2019
+
+Patty Griffin - Patty Griffin (2019) [FLAC|Lossless|tracks + .cue] <Folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690220.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mama's Worried (03:23)
+2. River (05:23)
+3. Where I Come From (04:44)
+4. Hourglass (03:22)(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:56:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40A8F1D4A01213F0E1D55AE954CA457902E6A360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 249652   (690143) от 20.08.2020
+
+VA - Aroma Therapy. Complete 10 CD Collection (2006) [FLAC|Lossless|tracks] <Relax, Sounds Of Nature, Instrumental, Ambient, Chill>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка музыкальных композиций, гармонирующих определенному аромату.
+Воздействие запаха и звука тождественны по результату. Естественно включение в процедуру ароматерапии и специально подобранного музыкального сопровождения, отвечающего вибрациями выбранному аромату. Совместное применение арома и аудио терапии создаст более сильный эффект гармонизации вашего организма (   Читать дальше...   )Жанр: Relax, Sounds Of Nature, Instrumental, Ambient, ChillПродолжительность: 08:55:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE7AFDEB9D4EDE11417394F7BF229AC319F9F3D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 505071   (689597) от 05.06.2012
+
+Юлия Славянская - Всем Россию любящим (2012) [MP3|320 кб/с]<Православная популярная музыка>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689597.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Всех, Россию любящих
+2. Белый Ангел
+3. Так дано много
+4. Молитва Царской Семьи
+5. Что ни день - то новое паденье...
+6. Подъезжали мы под село
+7. Легенда о Царе-мученике
+8. Снежинка и Бог
+9. Светлый день
+10. Завещание матери(   Читать дальше...   )2012Жанр: Православная популярная музыкаПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133880   (689378) от 15.05.2017
+
+Daniel Pemberton - Mal De Pierres / From The Land Of The Moon / Иллюзия любви (Original Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 26 rue Commines, Lyon (01:55)
+02. La fuite (01:22)
+03. Gabrielle (01:18)
+04. Un nouveau depart (01:28)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:37:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AA6006CE1AC69FC937B34D9880542C3E5012B9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134211   (689374) от 15.05.2017
+
+Mandy Hoffman - The Lovers / Любовники (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lovers (Intro & Title) (03:04)
+02. Tell Her! (01:22)
+03. Lying to Lucy (01:38)
+04. Do You Want Some? (01:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AD17FD3368519A9C313E061DC867BF8EBC8384F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221861   (689307) от 27.04.2018
 
 ЕVгеника - Оренбургский пуховый платок (2017) [MP3|320 Kbps] <Folk>
@@ -6,7 +277,7 @@
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689307.jpg" />
 </div>
 
 
@@ -35,7 +306,7 @@ Daniel Pemberton - Mal De Pierres / From The Land Of The Moon / Иллюзия �
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689250.jpg" />
 </div>
 
 
@@ -64,7 +335,7 @@ Mandy Hoffman - The Lovers / Любовники (Original Motion Picture Soundtr
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689247.jpg" />
 </div>
 
 
@@ -93,7 +364,7 @@ Really Slow Motion - Battle Angel (2016) [MP3|320 Kbps] <Soundtrack, Instrumenta
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689244.jpg" />
 </div>
 
 
@@ -122,7 +393,7 @@ Danny Elfman - The Circle / Сфера (Original Motion Picture Soundtrack) (201
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689217.jpg" />
 </div>
 
 
@@ -151,7 +422,7 @@ Audiomachine - Magnus & Magnus: B-Sides (2015) 2 CD [MP3|320 Kbps|CBR] <Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689213.jpg" />
 </div>
 
 
@@ -180,7 +451,7 @@ Hans Zimmer, Lorne Balfe - Genius / Гений (National Geographic Original Ser
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689207.jpg" />
 </div>
 
 
@@ -209,7 +480,7 @@ CherryVata - Daybreak (2017) [FLAC|Lossless|WEB-DL|tracks] <Future Beats, Nu Jaz
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689100.jpg" />
 </div>
 
 
@@ -238,7 +509,7 @@ Danny Elfman - The Circle / Сфера (Original Motion Picture Soundtrack) (201
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689099.jpg" />
 </div>
 
 
@@ -267,7 +538,7 @@ The Romantic Strings Orchestra - Thanks For The Memory (1995) [MP3|320 Kbps] <In
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689090.jpg" />
 </div>
 
 
@@ -296,7 +567,7 @@ Hans Zimmer, Lorne Balfe - Genius / Гений (National Geographic Original Ser
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689082.jpg" />
 </div>
 
 
@@ -325,7 +596,7 @@ Paul Leonard-Morgan - Warhammer 40,000: Dawn of War III (Official Game Soundtrac
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688965.jpg" />
 </div>
 
 
@@ -354,7 +625,7 @@ Llewellyn - Native American Gold (2016) [FLAC|Lossless|WEB-DL|tracks] <New age, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688743.jpg" />
 </div>
 
 
@@ -381,7 +652,7 @@ Mick Douglas - Healing Sound of the Rain (2016) [FLAC|Lossless|WEB-DL|tracks] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688688.jpg" />
 </div>
 
 
@@ -409,7 +680,7 @@ Marcin Przybylowicz - The Witcher 3 Wild Hunt - Hearts Of Stone (Original Soundt
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688506.jpg" />
 </div>
 
 
@@ -438,7 +709,7 @@ Marcin Przybylowicz and Mikolai Stroinski - The Witcher 3 Wild Hunt (Original So
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688392.jpg" />
 </div>
 
 
@@ -467,7 +738,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688278.jpg" />
 </div>
 
 
@@ -481,264 +752,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:656997ACFECE84400AA9CDC1AAFAECC847352167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028678   (688246) от 23.06.2016
-
-Marcin Przybylowicz, Mikolai Stroinski & Piotr Musial - The Witcher 3 Wild Hunt - Blood and Wine (Original Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marcin Przybylowicz - Blood and Wine (02:57)
-02. Mikolai Stroinski - Fanfares and Flowers (03:11)
-03. Piotr Musial - For Honor! for Toussaint! (02:04)
-04. Piotr Musial - Blood Run (02:01)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F688084F44105D9D556DE23B30CBC0C8ACFF55A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551974   (688238) от 23.06.2016
-
-Mumford & Sons - 20 Albums (2008-2016) 7 Albums, 13 EP & Singles [FLAC|Lossless]<Indie Folk, Alternative Rock, British Folk, Folk rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Alternative/Indie Rock, British Folk, Indie Folk, Indie Pop, Alternative Pop/RockФормат: Deluxe EditionПродолжительность: 00:20:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C265B41CA9F1833C697020BAFD9CD19603DB2536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134553   (687429) от 16.05.2017
-
-Danny Bensi & Saunder Jurriaans - LA 92 / Лос-Анджелес 92 (Original National Geographic Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Watts (01:14)
-02. Opening (02:54)
-03. Titles (02:30)
-04. LA 1991 (01:02)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:32:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B11B9ABBF47E778CA6CBC7E1FB778E979C287C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134512   (687345) от 16.05.2017
-
-VA - Los clasicos argentinos - Tango - Vol.18 - Horacio Salgan: La magia de un creador (1996) [MP3|128 Kbps] <Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raul Garello y su Orquesta - Buen amigo
-02. Miguel Calo y su Orquesta - Yuyo verde
-03. Alberto Marino y su Orquesta - Mano cruel
-04. Sexteto Mayor - Kicho(   Читать дальше...   )Жанр: TangoПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:719A77F031D273B5A355BB12F9820E32B2C76EC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134556   (687333) от 16.05.2017
-
-Danny Bensi & Saunder Jurriaans - LA 92 / Лос-Анджелес 92 (Original National Geographic Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Watts (01:14)
-02. Opening (02:54)
-03. Titles (02:30)
-04. LA 1991 (01:02)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:32:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34F47BBC62A329F1B58C31CDCBF9884953E1EF40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134506   (687238) от 16.05.2017
-
-Harry Gregson-Williams - The Zookeeper's Wife / Жена смотрителя зоопарка (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warsaw Zoo, 1939 (05:07)
-02. The Bombings (00:57)
-03. Aftermath (02:48)
-04. The Escape (02:04)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38D4570EEBC430DCE287B246590BF4EF80B56C17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134510   (687218) от 16.05.2017
-
-Daniel Pemberton - The Counselor / Советник (Original Motion Picture Soundtrack) (2013) [FLAC|Lossless|CD|tracks + .cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hunter (01:47)
-02. The Counselor (Titles) (04:10)
-03. The Lovers (01:51)
-04. A Warning (Moral Decisions) (02:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:57:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA32286E111E232B34316E2BADAB5967CFDDC787
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028736   (686767) от 24.06.2016
-
-Elevation - Days of Elijah (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Days of Elijah [00:04:22]
-02. Beautiful One [00:03:48]
-03. Great Is the Lord [00:03:56]
-04. Hungry [00:03:44](   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 02:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5DC46791D4C435EB5A9A8570194D7FA20FB7AEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289435   (686739) от 16.03.2019
-
-Lula Wiles - What Will We Do (2019) [FLAC|Lossless|WEB-DL|tracks] <American Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Gone Wrong 03:56
-02. Hometown 03:12
-03. Nashville, Man 02:54
-04. Independence Day 04:05(   Читать дальше...   )Жанр: American FolkПродолжительность: 00:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CB2E14EDF44744F8DC93D4ABB60FB9B8483850E
 ```
 
 https://mybot314.ru/tekegram_catalog/

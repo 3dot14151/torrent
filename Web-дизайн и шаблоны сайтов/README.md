@@ -1,4 +1,61 @@
 https://t.me/izofen
+###  Публикация: 1876723   (1073382) от 16.06.2026
+
+Ui Kits - UI8 - World Cup Glass Dashboard Cards UI Kit [FIG]
+
+>>Материалы для мультимедиа и дизайна
+>>Web-дизайн и шаблоны сайтов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем набор элементов пользовательского интерфейса World Cup Glass Cards UI Kit — премиальную коллекцию из 50 уникальных дизайнов карточек, вдохновленных стеклом, созданных для футбольных платформ, спортивных панелей мониторинга, мобильных приложений и маркетинговых кампаний.
+
+Эти карточки, выполненные в современной стеклянной эстетике, сочетают в себе многослойность, (   Читать дальше...   )Формат: FIG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7DA54548CBD622E3B50A0800935DE1134E31A47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876151   (1073034) от 
+
+Шаблоны сайта - ThemeForest - JupiterX - Multipurpose WordPress & WooCommerce Theme - 5177775 [PHP, CSS]
+
+>>Материалы для мультимедиа и дизайна
+>>Web-дизайн и шаблоны сайтов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jupiter X — это наше видение идеального конструктора сайтов на WordPress и WooCommerce.
+
+Благодаря более чем десятилетнему опыту работы и непревзойденной гибкости, простоте использования и широким возможностям настройки, Jupiter X стал широко известен в мире веб-разработки.
+(   Читать дальше...   )Формат: PHP, CSS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D607DE71749017CCE97F9EE1C86A995C4571A0C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865124   (1065424) от 13.04.2026
 
 Ui Kits - UI8 - Workly - Freelancer Service Dashboard Admin UI Kit [FIG]
@@ -7,7 +64,7 @@ Ui Kits - UI8 - Workly - Freelancer Service Dashboard Admin UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065424.jpg" />
 </div>
 
 
@@ -35,7 +92,7 @@ Ui Kits - UI8 - Taxita - Taxi Booking Mobile App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064964.jpg" />
 </div>
 
 
@@ -61,7 +118,7 @@ Ui Kits - UI8 - FixWheel - Home Service App Ui Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063876.jpg" />
 </div>
 
 
@@ -87,7 +144,7 @@ Ui Kits - UI8 - Visual Alchemi - Videographer Framer Portfolio [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062911.jpg" />
 </div>
 
 
@@ -115,7 +172,7 @@ Ui Kits - UI8 - Trakr - Affiliate Marketing SaaS UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062703.jpg" />
 </div>
 
 
@@ -141,7 +198,7 @@ Ui Kits - Fitness Management Web App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060379.jpg" />
 </div>
 
 
@@ -167,7 +224,7 @@ Ui Kits - Craftwork - Hero Headers Figma Template [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057960.jpg" />
 </div>
 
 
@@ -193,7 +250,7 @@ Ui Kits - UI8 - StoreWise - Store Management Dashboard UI KIT [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056170.jpg" />
 </div>
 
 
@@ -220,7 +277,7 @@ Ui Kits - UI8 - Trans Shuttle App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055731.jpg" />
 </div>
 
 
@@ -246,7 +303,7 @@ Ui Kits - UI8 - Diva - Women Online Shop App UI Kit [FIG, XD]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055516.jpg" />
 </div>
 
 
@@ -275,7 +332,7 @@ Ui Kits - UI8 - Osmos Foundation [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055285.jpg" />
 </div>
 
 
@@ -303,7 +360,7 @@ Ui Kits - UI8 - Zync – Chat & Team Communication App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054991.jpg" />
 </div>
 
 
@@ -329,7 +386,7 @@ Ui Kits - UI8 - Sport News App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054209.jpg" />
 </div>
 
 
@@ -355,7 +412,7 @@ Ui Kits - UI8 - Sportly - Fittech Web App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054086.jpg" />
 </div>
 
 
@@ -381,7 +438,7 @@ Ui Kits - UI8 - TravelMate Travel Booking App [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052532.jpg" />
 </div>
 
 
@@ -407,7 +464,7 @@ Ui Kits - UI8 - YamYam - Food Delivery App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052124.jpg" />
 </div>
 
 
@@ -433,7 +490,7 @@ Ui Kits - UI8 -  Prompt AI - Premium AI App (MVP) [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051070.jpg" />
 </div>
 
 
@@ -459,7 +516,7 @@ Ui Kits - UI8 - Auth Flow UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049696.jpg" />
 </div>
 
 
@@ -485,7 +542,7 @@ Ui Kits - UI8 - Defyn - Web3 Wallet & DeFi App [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049548.jpg" />
 </div>
 
 
@@ -511,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996299.jpg" />
 </div>
 
 
@@ -542,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905542.jpg" />
 </div>
 
 
@@ -568,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901833.jpg" />
 </div>
 
 
@@ -594,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892196.jpg" />
 </div>
 
 
@@ -626,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884160.jpg" />
 </div>
 
 
@@ -640,58 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:427740A1D24DC563EBD178AFDF6E1CBD372374AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 658045   (806888) от 19.05.2013
-
-Шаблоны сайта - Jarida - WordPress тема для новостного блога или журнала
-
->>Материалы для мультимедиа и дизайна
->>Web-дизайн и шаблоны сайтов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jarida - адаптивный шаблон для Wordpress. Подойдёт для новостного сайта, блога или журнала. Включает конструктор главной страницы, 5 предустановленных скинов, систему отзывов, 28 редактируемых виджетов и многое другое. В качестве инструментария используется TiePanel.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B24648EE2D8B3D0F0AA7A171DE3D48D335C6FACE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386755   (793129) от 30.05.2020
-
-Шаблоны сайта - Elegant Themes - Divi v.4.4.6 [PHP, CSS]
-
->>Материалы для мультимедиа и дизайна
->>Web-дизайн и шаблоны сайтов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Divi Theme v4.4.6 - универсальный шаблон для WordPress, имеет 46 элементов для настройки страниц, что делает ее универсальной и выводит на первое место среди самых удобных тем для создания сайтов.Формат: PHP, CSS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63EFC40C24C34DD10E11D98DF388AC247DA16BAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

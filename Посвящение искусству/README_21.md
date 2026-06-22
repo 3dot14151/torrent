@@ -1,3 +1,81 @@
+###  Публикация: 1531916   (718551) от 17.02.2022
+
+Тёмная звезда: Мир Х. Р. Гигера / Dark Star: HR Gigers Welt (2014) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718551.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Тёмная звезда», снятая в последние месяцы жизни Гигера, даёт зрителю редкую возможность взглянуть на повседневную жизнь художника и его близких. Интервью с родственниками, друзьями и партнёрами по кусочкам создают портрет человека с уникальным взглядом на мир, пугающим и завораживающим одновременно. Но сколько бы историй из его детства, юности и карьеры мы ни слышали, (   Читать дальше...   )Производство: Швейцария, Lucky Film, Schweizer Radio und Fernsehen (SRF), T&C Film AGЖанр: документальный, история, биографияРежиссер: Белинда СаллинПеревод: одноголосый профессиональный (Ozz)Субтитры: русские (Genco Team), английскиеПродолжительность: 01:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E16721C253DFC874FB16DE9DDBDC9B2D35EBDD40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024496   (718050) от 08.06.2016
+
+Бродский не поэт (2015) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история о человеке, который навязал миру свою конституцию. О ленинградском мальчике, который хотел стать мировым поэтом — и стал. Америка и Россия, конечно, главные страны Бродского. Но только в его любимый Италии вдруг понимаешь, что Иосиф Александрович, наш современник, откликавшийся на мобильный, на самом деле жил будто бы до нашей эры и дошел к нам в переводах (   Читать дальше...   )Телекомпания: Россия, ООО "Центральное телевидение"Жанр: Документальный, БиографияПродолжительность: 01:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2550D4410D93C4D4FFD244B6957334BC1858223E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286030   (716557) от 28.02.2019
+
+Я - Пол Уокер / I Am Paul Walker (2018) WEB-DLRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история о талантливом актере, который смог доказать, что любой человек может добиться высот, если будет в себя верить и приложит для этого усилия. Семья Пола не была богатой, поэтому случалось, что парню приходилось попрошайничать, а было время, когда он жил в гараже. Сниматься Пол начал в очень раннем возрасте, сперва это были рекламные ролики, потом комедии, (   Читать дальше...   )Производство: США, Network Entertainment,Paramount NetworkЖанр: ДокументальныйРежиссер: Адриан БайтенхайсПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8230905EE0A6B4673C2D5021395CA692AE6B0948
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024681   (716030) от 09.06.2016
 
 Хулио Иглесиас. Жизнь продолжается (2013) HDTV [H.264/1080i]
@@ -6,7 +84,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716030.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715941.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712879.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712480.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712432.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712127.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712052.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711722.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710752.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710686.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708558.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707399.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707052.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706818.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705986.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705604.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705335.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705075.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700764.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699622.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699520.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698253.jpg" />
 </div>
 
 
@@ -583,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697690.jpg" />
 </div>
 
 
@@ -597,84 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0FB774650FB9EA666F968937EF7F56CB4DA52F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288218   (697497) от 10.03.2019
-
-Памяти Владимира Этуша (10.03.2019) SATRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697497.jpg" />
-</div>
-
-
-###  Подробнее
-
-9 марта скончался народный артист СССР Владимир Этуш. Ему было 96 лет.Телекомпания: 1 каналЖанр: Документальный, Телепередача, ИскусствоПеревод: ОтсутствуетПродолжительность: 00:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B47FB60BAF84D6FB5B98127C820A5C00BFB5CD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403058   (695825) от 17.08.2020
-
-Джованни Беллини и Андреа Мантенья / Rivalen der Renaissance: Bellini und Mantegna (2018) SATRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Андреа Мантенья и Джованни Беллини – два гения Раннего Возрождения в Северной Италии. Они не только были современниками, но и состояли в родстве. Мантенья – сын плотника из Падуи. Беллини принадлежал к знаменитой венецианской династии художников – Якопо и его второго сына, Джентиле. Их биографии пересеклись в 1453 году, когда Мантенья женился на сестре Беллини, Николозии. (   Читать дальше...   )Производство: Германия, TAG/TRAUM FilmproduktionЖанр: Документальный, история, искусствоРежиссер: Маргарета КрейзерПеревод: Двуголосый закадровый, профессиональный (Видеофильм-ТВ)Субтитры: отсутствуютПродолжительность: ~00:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFB8ED85E9F6A5A7675921C3C214AB8CA9A7C032
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402974   (695679) от 17.08.2020
-
-Супергерои / Rise of the Superheroes (2018) WEB-DL [H.264/720p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695679.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о том, как супергерои, такие как Бэтмен, Блейд, Люди Икс, Человек-паук, Железный человек и Черная пантера, сошли со страниц комиксов в кинотеатры и захватили сначала Голливуд, а затем и весь мир.Телекомпания: Великобритания / Symettrica EntertainmentЖанр: ДокументальныйРежиссер: Том О’ДеллПеревод: Многоголосый профессиональный (iTunes)Продолжительность: 01:56:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00D3CE2F100F6ABDBE7C3CDD542F3B767C08964D
 ```
 
 https://mybot314.ru/tekegram_catalog/

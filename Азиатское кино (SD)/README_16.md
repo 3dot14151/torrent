@@ -1,3 +1,81 @@
+###  Публикация: 1377231   (853149) от 21.04.2020
+
+Лающие собаки никогда не кусают / Peullandaseuui gae / Barking Dogs Never Bite (2000) BDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой университетский лектор с беременной подружкой живет в густонаселенном жилом комплексе. Когда постоянно лающая где-то по соседству собака переполняет чашу его терпения, скромный очкарик решает действовать.Производство: Корея Южная / CJ Entertainment, Cinema Service, Uno FilmЖанр: КомедияРежиссер: Пон Джун-хоАктеры: Ли Сон-джэ, Пэ Ду-на, Пён Хи-бон, Ко Су-хи, Ким Хо-джон, Ким Рве-ха, Сон Джон-сон, Ким Джин-гу, Лим Сан-су, Квон Хёк-пхунПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:195A7EF681A6460F908A0534197755E8A22A9D94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377281   (853051) от 21.04.2020
+
+Ведьма / Manyeo / The Witch: Part 1 - The Subversion (2018) BDRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восьмилетняя девочка сбегает с секретной базы в лесу, после чего её, без сознания, находит фермер. 10 лет спустя она счастливо живёт в сельской местности под именем Ку Джа-юн с удочерившей её пожилой парой и ничего не помнит о своём прошлом. Экономическая ситуация для сельского хозяйства складывается неблагоприятная, да ещё приёмная мама страдает болезнью Альцгеймера, (   Читать дальше...   )Производство: Корея Южная / Peppermint & CompanyЖанр: Боевик, триллер, фантастикаРежиссер: Пак Хун-джонАктеры: Ким Да-ми, Чо Мин-су, Чхве У-щик, Пак Хи-сун, Ко Мин-щи, Чхве Джон-у, О Ми-хи, Чон Да-ын, Ким Бён-ок, Ли Джу-вонПеревод: Многоголосый профессиональный (HDrezka Studio), многоголосый любительский (Bonsai Studio)Субтитры: Русские, английские, китайские - отдельными файламиПродолжительность: 02:05:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE178A7538621AB7E3711569990F38197817606
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498875   (852640) от 29.09.2021
+
+Дэмэкин / Demekin (2017) WEBRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852640.jpg" />
+</div>
+
+
+###  Подробнее
+
+На основе одноименного автобиографического романа Сата Масаки, опубликованного в 2009 г. В детстве Масаки Сата терпел издёвки со стороны других детей, его дразнили и обзывали Дэмэкин (пучеглазая золотая рыбка). Мальчик бесстрашно отбивался от обидчиков и в конце концов стал непобедимым в драках. Рыжие волосы, за которые его прежде дразнили, стали визитной карточкой (   Читать дальше...   )Производство: Япония, AMG Entertainment, Stairway, Toei Video Company, Yoshimoto Creative AgencyЖанр: Боевик, комедияРежиссер: Ёситака ЯмагутиАктеры: Кэнтаро Ито, Осаму Фудзики, Сёдаи Фукуяма, Мио Имада, Джои Иванага, Кэисукэ Каминага, Сё Касамацу, Такахиро Куроиси, Кадзунори Мимура, Хая НакадзакиПеревод: Двуголосый любительский (АрхиAsia & Азиатские посиделки)Субтитры: Русские (forced на японские иероглифы)Продолжительность: 01:55:39Реклама: Видеоряд содержит в верхнем правом углу логотипы РГ АрхиAsia и РГ Азиатские посиделки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E514F51566F908CF2D2B69764F9120FE6464BB55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377513   (851946) от 22.04.2020
 
 Госпожа Девятый цветок / Ouyang De zhi dou Jiu Hua Niang / Lady 9 Flower / The Legend of Lady Nine Flower (1969) DVDRip [VO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851946.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851940.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851899.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851896.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851893.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851888.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851886.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851882.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851737.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851150.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850165.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850094.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850008.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850006.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849996.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848415.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848352.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848351.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848348.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848345.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848341.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848339.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848334.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DE0D84CF43DE07DC747A285A6FE423338324AEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378073   (848268) от 24.04.2020
-
-Мисс и миссис Коп (Девушки-копы) / Geolkapseu / Miss & Mrs. Cops (2019) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то давно Ми-ён была легендарным детективом, но вышла замуж и стала работать в центре обслуживания населения в полицейском участке. Там она встречается с новенькой Чи-хе, которую сослали на эту работу в качестве наказания. Судьба даёт обеим шанс проявить себя, и женщины берутся за расследование уголовного преступления.Производство: Южная Корея / CJ Entertainment, Film MomentumЖанр: Боевик, комедия, криминалРежиссер: Чон Да-вонАктеры: Ра Ми-ран, Ли Сон-гён, Юн Сан-хён, Чхве Су-ён, Ём Хе-ран, Ви Ха-джун, Чу У-джэ, Кан Хон-сок, Ким До-ван, Ан Чхан-хванПеревод: Многоголосый любительский (STEPonee)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABDFA8B8F2C3CA844DD9B0EE379913E726C9C72A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378077   (848257) от 24.04.2020
-
-Мистер Сократ / Miseuteo Sokeurateseu / Mr. Socrates (2005) WEB-DLRip [VO, DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ку Дон-хёк живёт жизнью уличного подонка и бродячей собаки. Он выпрашивает деньги у заключенного в тюрьму отца, шантажирует товарища и крадёт деньги у друзей. Однажды парня похищают члены неизвестной банды и начинают тренировать его, одновременно очень жестоко с ним обращаясь. Дон-хёк пытается сбежать, но бандиты ловят его, а обучение становится совсем жёстким. Вскоре (   Читать дальше...   )Производство: Южная Корея / Lotte entertainmentЖанр: Боевик, криминалРежиссер: Чхве Джин-вонАктеры: Ким Рэ-вон, Кан Щин-иль, Ли Джон-хёк, О Гван-нок, Пак Чхоль-мин, Пак Сон-ун, Юн Со-хён, Юн Тхэ-ён, Ку Бон-ун, Ким Ван-гынПеревод: Одноголосый любительский (DeMon); любительский двухголосый (den904, DeadSno) одноголосый любительский (М. Бирюков)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2791DFB04E2AACF20251E1EB7C37415D40B6B9BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378162   (848172) от 24.04.2020
-
-Пока женщины спят / Onna ga nemuru toki / While the Women Are Sleeping (2016) HDRip [AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Писатель средних лет приезжает на курорт со своей женой. Семейная жизнь ему порядком надоела, писательство, честно говоря, тоже, поэтому целыми днями герой зависает в фойе отеля и думает, как радикально поменять собственную жизнь. Однажды его внимание привлекает семейная пара его соотечественников — очень необычная семейная пара. Муж-пенсионер и жена на сорок лет (   Читать дальше...   )Производство: Япония / Creative Associates Limited (CAL)Жанр: ДрамаРежиссер: Уэйн ВанАктеры: Хидэтоси Нисидзима, Такэси Китано, Саюри Оямада, Сиори Куцуна, Хирофуми Араи, Макико Ватанабэ, Рири ФрэнкиПеревод: Авторский (A.Смирнов)Субтитры: отсутствуютПродолжительность: 01:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3122B985B2C454B66A6BD639171B050D6B086514
 ```
 
 https://mybot314.ru/tekegram_catalog/

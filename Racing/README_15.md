@@ -1,3 +1,107 @@
+###  Публикация: 1684840   (127537) от 17.12.2023
+
+Need for Speed: Hot Pursuit 2 (2002) [Ru/En] (2.42) Repack Decepticon
+
+>>Win Старые Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что может утолить жажду скорости? Только очередная часть легендарных гонок. Более 20 роскошных автомобилей от ведущих мировых производителей. Два режима игры - чемпионат и уличные гонки с полицией - по 33 уровня в каждом. Доступна игра за полицию в качестве "копа", где вы можете вызывать подкрепление, вертолеты, сбрасывающие бомбы на злостных нарушителей, (   Читать дальше...   )Тип издания: RepackРазработчик: EA SeattleЖанр: Racing, SimulatorЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA222026170E98282C9D9517109FF0EC1CBE671E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684836   (127535) от 17.12.2023
+
+LEGO 2K Drive (2023) [Multi] (12823980/dlc) Repack dixen18
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127535.jpg" />
+</div>
+
+
+###  Подробнее
+
+LEGO 2K Drive предлагает получить уникальный опыт вождения в мире LEGO, позволяя геймерам гонять где угодно, с кем угодно и строить автомобили своей мечты. Однако на пути к победе не обойтись без препятствий, ведь множество эксцентричных соперников по гонкам с нетерпением ждут, чтобы бросить вызов игрокам в борьбе за желанный трофей Sky Trophy.Тип издания: RepackРазработчик: Visual Concepts EntertainmentЖанр: Racing, ArcadeЯзык озвучки: Английский, Испанский, Итальянский, Корейский и другиеЯзык субтитров: Английский, Испанский, Итальянский, Корейский и другиеЯзык интерфейса: Английский, Испанский, Итальянский, Корейский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFAC80DC91E2950458B4D679807CB5B195544D96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684848   (127527) от 17.12.2023
+
+Need for Speed: Undercover (2008) [Ru/Multi] (252136/dlc) Repack Decepticon [Collector's Edition]
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда в огромном мегаполисе орудует влиятельная криминальная группировка, привычные методы борьбы с преступностью не действуют. Рядовые полицейские, спецагенты и силы ФБР - никто не в силах встать на пути могущественных мафиози и подставить под удар свою семью и близких. Единственный способ собрать улики - заслать шпиона прямо в сердце банды. Это последний шанс, (   Читать дальше...   )Тип издания: RepackРазработчик: EA Black BoxЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF9C385AB2DC99D4401F63A680CD0F558E21A85F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685639   (127161) от 19.12.2023
+
+TRAIL OUT (2022) [Ru/Multi] (2.9st/dlc) Repack Other s
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в фестиваль взрывоопасных гонок ТРЕЙЛ АУТ! Вас ожидают безбашенные гонки в разных уголках планеты, ваша главная цель дожить до финиша и взять главный кубок фестиваля! Аварии машин, крики вылетающих водителей, хайп от фанатов и невиданное разрушение всей трассы - всё это ожидает вас здесь! А так же переживите историю гонщика Михалыча, простая история, (   Читать дальше...   )Тип издания: RepackРазработчик: GOOD BOYSЖанр: Racing, Simulator, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:544BD38F89808D9CC155F9805EE57784F8F18BF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685917   (127024) от 20.12.2023
 
 Need for Speed: The Run (2011) [Ru/En] (1.1.0.0/dlc) Repack Decepticon [Limited Edition]
@@ -6,7 +110,7 @@ Need for Speed: The Run (2011) [Ru/En] (1.1.0.0/dlc) Repack Decepticon [Limited 
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127024.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Need for Speed: ProStreet (2007) [Ru/En] (1.1) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127001.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Need For Speed: Hot Pursuit (2010) [Ru/En] (1.0.5.0s/dlc) Repack Decepticon [Lim
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126720.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Need For Speed: Shift (2009) [Ru/En] (1.0.2.0/dlc) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126691.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Need For Speed: Shift 2 Unleashed (2011) [Ru/En] (1.0.2.2/dlc) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126571.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Need For Speed: Rivals (2013) [Ru/En] (1.4.0.0/dlc) Repack Decepticon [Complete 
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126380.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Need for Speed: Payback (2017) [Ru/En] (1.0.51.15364/dlc) Repack Decepticon [Del
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125669.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Bootlegger's Mafia Racing Story (2024) [En] (1.0) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123494.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ MotoGP 22 (2022) [Multi] (1.0.8.0/dlc) Scene DINOByTES
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123191.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ RC Revolution (2024) [Ru/Multi] (1.0) Scene SKIDROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116769.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ RC Revolution (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116135.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ World Rally Fever: Born on the Road (1996) [En] (1.01) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104420.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ MUD: FIM Motocross World Championship (L) [Multi5/-] 2012
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102328.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Colin McRae Rally + DiRT Antology (1998-2015) [Ru/En] (1.5/1.09/1.1/1.01/1.01/1.
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101602.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ SCAR: Squadra Corse Alfa Romeo / SCAR: Спортивная команда Ал�
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90305.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ Death Track: Resurrection / Death Track: Возрождение [Ru] (RePack/1.2
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89142.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ Carmageddon TDR2000 / Кармагеддон. Колеса смерти [Ru] (Re
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88902.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ Police Force (RePack) [Ru] 2012 | Fenixx
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88529.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ Gran Turismo 4 Prologue [Multi5] (RePack/Emul) 2004 | MarkusEVO
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87498.jpg" />
 </div>
 
 
@@ -504,7 +608,7 @@ Gran Turismo 3 A-spec (RePack/Emul) [Ru/En] 2001 | MarkusEVO
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87285.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ F1 Challenge 99-02  F1 SMT 2012[Ru] (P/Mod) 2003/2012
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86649.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ F1 2010 Fans Edition [Ru/Mod] (RePack/1.01) 2010 l Naitro
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86440.jpg" />
 </div>
 
 
@@ -567,112 +671,6 @@ F1 2010 Fans Edition [Ru/Mod] (RePack/1.01) 2010 l Naitro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A55936D2ECD1DEFD079A2A376CA7D124402293D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475909   (85452) от 30.03.2012
-
-Ridge Racer Unbounded [Multi6/+] (L) 2012 l SKIDROW
-
->>След.
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Культовая гоночная серия Ridge Racers возвращается с великолепной моделью разрушений. В этой безумной гонке больше нет ограничений. Раздави своих соперников и круши все вокруг! Мешают дома, грузовики, ограждения?
-Не стоит объезжать их, тратя драгоценное время. Проруби себе новый путь, и пусть весь город содрогнется!
-Покажите, чего вы стоите за рулем.Тип издания: ЛицензияРазработчик: Bugbear EntertainmentЖанр: Arcade, RacingЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Немецкий, Французкий, Итальянский, Испанский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEA96021E9EF61AA2121FBA0B43012115FADD11C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472797   (84177) от 24.03.2012
-
-Vangers: One for the Road / Вангеры [Ru] (Rip) 1998 | Pilotus
-
->>Win Старые Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальная игра про боевые машинки с разрушаемым ландшафтом и физикой.В игре огромный мир и куча квестов.В Вангерах необычный визуальный стиль,интерфейс может немного запутать, но разобраться в нем просто. Это одна их первых игр в истории использовавших технологию воксельных ландшафтов. Игра получила противоречивые оценки прессы, однако заслужила любовь и признание народа. Эта сюрреалистическая action/adventure игра с элементами RPG была названа одной из самых оригинальных и необычных игр 1998 года и получила высокие оценки за качество исполнения и концепцию. В России Вангеры приобрели статус "культового" проекта и множество поклонников.Тип издания: RipЖанр: Экшен, аркадные гонкиЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACC618AAA10A0EE01CB2C9BDD832AAE02A5D9B0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472180   (83979) от 23.03.2012
-
-Earache Extreme Metal Racing / Адские гонки [Ru/En] (L) 2007
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83979.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Адские гонки» - первый в истории игровой индустрии аркадный автосимулятор, созданный под покровительством «металлической» звукозаписывающей студии. Поклонники тяжелой музыки и компьютерных гонок, несомненно, будут рады такому убойному сочетанию. Игрокам предлагается принять участие в лихих кровопролитных заездах по трассам преисподней. На пути к победе всячески приветствуется вопиюще неспортивное поведение: соперников нужно таранить, перемалывать, распиливать. А вместо препятствий - гуляющие по дорогам зомби. (   Читать дальше...   )Тип издания: ЛицензияЖанр: Arcade / Racing / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C7DDDB7B56C8B94B32FF6D9AC293F0CB3EBE2C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468333   (82375) от 15.03.2012
-
-Road Rash [En] (RePack) 1996 | Pilotus
-
->>След.
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитая мотогонка, где удар ногой по конкуренту порой решает больше, чем количество лошадок в моторе. Бессмертная классика от "Папирус", чудом оказавшаяся на PC.Тип издания: RePackЖанр: Аркадные гонки на мотоциклах на выживаниеЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8D6F21A6F8CD73CFE1B7CD9848B0EC884DD6781
 ```
 
 https://mybot314.ru/tekegram_catalog/

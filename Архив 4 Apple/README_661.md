@@ -1,3 +1,55 @@
+###  Публикация: 1680989   (133471) от 01.12.2023
+
+Wondershare PDFelement Pro OCR 10.1.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133471.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDFelement Pro - профессиональный инструмент, который является решением «все-в-одном» для всех необходимых задач при работе с документами PDF. Вы можете легко создавать новые PDF-файлы с веб-страниц (.html, .htm), изображений (png, .jpeg, jpg, bmp, .tiff, .bmp) и текстовых файлов (.rtf, .rtfd, .txt). Вновь созданные PDF-файлы на 100% совместимы с Adobe Reader, Acrobat (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.11.2023Разработчик: © 2023 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92C51CC77C57993997CFB029D27D07D62758D07F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680878   (133469) от 01.12.2023
+
+YT Saver Video Downloader & Converter for Mac 7.3.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неограниченная загрузка с помощью YT Saver Downloader, с помощью этого приложения вы можете загружать неограниченное количество видео и плейлистов с потоковых сайтов и получать доступ к своим видео в автономном режиме, а также загружать несколько видео одновременно.Тип издания: macOS SoftwareРелиз состоялся: 29.11.2023Разработчик: © 2023 YT Saver StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC8031265C03930BC377A43332927F92D5BF585E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680875   (133467) от 01.12.2023
 
 AnyGo 6.9.0 [Multi/Ru]
@@ -6,7 +58,7 @@ AnyGo 6.9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133467.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ MediaInfo for Mac 23.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133455.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Topaz Video AI for Mac 4.0.6 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133421.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ iTubeGo YouTube Downloader Pro for Mac 7.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133371.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Topaz Photo AI for Mac 2.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133358.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Parallels Desktop Business Edition 19 for Mac 19.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133217.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ OmniReader Pro for Mac 2.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132997.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ Final Cut Pro X 10.0.7 [Multi/Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132889.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ F1 2012 [Ru+multi] [Native]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131187.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ ON1 Portrait AI 2022.1 v16.1.0.11675 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130428.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ Focusplan Pro - Mind Map 1.6.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130390.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ ON1 HDR 2022.1 v16.1.0.11675 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130388.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ ON1 Resize 2022.1 v16.1.0.11675 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130386.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ ON1 NoNoise AI 2022.1 v16.1.0.11675 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130384.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ ON1 Effects 2022.1 v16.1.0.11675 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130382.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ Roxette - Look Sharp! (30th Anniversary Edition) (2022) [AAC|~333 Kbps] <Pop, Ro
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130380.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ RPN Calculator 4.6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130368.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ EverWeb (Standalone) 3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130351.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ PullTube 1.7.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130347.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ Dato 3.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130342.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ Default Folder X 5.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130339.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ My PaintBrush Pro 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130336.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ Wondershare PDFelement Pro 8.5.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130331.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ TunesKit AceMovi Video Editor 4.8.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130328.jpg" />
 </div>
 
 
@@ -627,58 +679,6 @@ TunesKit AceMovi Video Editor может отличаться от множес�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F86E3D60639391459F6C06A4ACF0B7C86A76F6DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524989   (130318) от 18.01.2022
-
-PDF Reader Pro Edition 2.8.7 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130318.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF Reader Pro - это приложение для редактирования PDF, имеющее широкий спектр инструментов. Основываясь на надежных функциях, таких как аннотации, заполнение форм и создание закладок, распознавание текста. PDF Reader Pro позволяет вам «маневрировать» в ваших файлах PDF. PDF Reader Pro Edition предлагает еще больше - объединяет несколько документов, разбивает ваш (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2022Разработчик: © 2014-2022 PDF Technologies, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6635084D0A53077823CC143DCB6A8F0A2BA3EB6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524952   (130306) от 18.01.2022
-
-ProFind 1.9.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благодаря мощным функциям и отличной производительности ProFind обеспечивает расширенный поиск файлов на macOS. А также с поддержку запросов на естественном языке, запуск приложений, поиска скрытого местоположения, поиск внутри невидимых папок и пакетов, сценарии и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2022 Ross TullochПоддерживаемая ОС: macOS X 10.13 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8057C6C068F56876CF88E3E1DE68DD762DEF7F40
 ```
 
 https://mybot314.ru/tekegram_catalog/

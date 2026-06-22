@@ -1,3 +1,426 @@
+###  Публикация: 480978   (87524) от 10.04.2012
+
+Случай в гостинице (1967) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: драма, спектакльРежиссер: Александр ПрошкинПродолжительность: 01:13:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46FC4F39F433E5515249B9ED0FD258665A414A15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480393   (87461) от 09.04.2012
+
+Nightwish- Призрак оперы / Nightwish-Phantom of the opera (2006)[720p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: МузыкаПеревод: ОтсутствуетПродолжительность: 0:05:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7821E8C23966F164F40C2710B7154CC11D7BADA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479834   (87434) от 09.04.2012
+
+Пушкин. Евгений Онегин / читает Сергей Юрский (1999) VHSRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: поэзияРежиссер: Наталия СероваПродолжительность: 02:21:24 + 02:35:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:697F2761F02F2EC3875C9D72CA1DD3AFEC9B6B8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479723   (87234) от 08.04.2012
+
+Bee Gees - The Ultimate DVD only (2009) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop/RockРежиссер: VariosАктеры: Bee Gees: Barry, Robin and Maurice GibbПеревод: ОтсутствуетПродолжительность: 1:05:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479346   (87227) от 08.04.2012
+
+ABBA - Number Ones (2006) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбом-компиляция шведской группы ABBA, выпущенный Universal Music Group в 2006 году. Этот альбом (DVD-версия) включает видеоклипы песен, ставших хитами №1 в ведущих хит-парадах разных стран.1. Gimme! Gimme! Gimme! (A Man After Midnight)
+2. Mamma Mia
+3. Dancing Queen
+4. Super Trouper
+5. SOS
+6. Summer Night City
+7. Money, Money, Money
+8. The Winner Takes It All
+9. Chiquitita
+10. One Of Us(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:54:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479498   (87197) от 08.04.2012
+
+Simon and Garfunkel - The Concert In Central Park, 1981 (2004) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый концерт легендарного дуэта в центральном парке Нью-Йорка в сентябре 1981 года. Они спели для более чем 500.000 зрителей совершенно бесплатно!!!01. "Mrs. Robinson"
+02. "Homeward Bound"
+03. "America"
+04. "Me and Julio Down by the Schoolyard"
+05. "Scarborough Fair" (traditional, arr. Paul Simon and Art Garfunkel)
+06. "April Come She Will"
+07. "Wake Up Little Susie" (Felice and Boudleaux Bryant)
+08. "Still Crazy After All These Years"
+09. "American Tune"
+10. "Late in the Evening"(   Читать дальше...   )Режиссер: Michael Lindsay-HoggПеревод: Отсутствует
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479248   (87167) от 08.04.2012
+
+John Lennon / Lennon - Legend - The Very Best of John Lennon (2003) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classic Rock, ДокументальныйРежиссер: Yoko Ono, James ChadsАктеры: John Lennon, Yoko Ono, Miles Davis, Brian Epstein, Mal EvansПеревод: ОтсутствуетПродолжительность: 01:41:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479549   (86964) от 07.04.2012
+
+Basshunter - Saturday (Uncensored) (2012) [H.264] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A69E401FA02594BB1F3A6F6C16BEAB2B430A38D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479255   (86926) от 07.04.2012
+
+Священные чудовища / Московский театр Сатиры (2000) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спектакль Московского театра Сатиры по пьесе Жана Кокто.
+
+Эстер, примадонна и хозяйка парижского театра, находится на том гребне красоты и славы, за которым неминуемо брезжит период медленного увядания. Она обожает своего мужа Флорана - героя-любовника, премьера "Комеди Франсез". Но вот в их жизнь врывается молодая начинающая актриса Лиан, чьи робость и полудетская угловатость быстро сменяются созвучной новому времени беспардонностью. Эстер с достоинством отступает, чтобы потом, собравшись с неведомыми прежде силами, вернуться обновленной и прекрасной - уже в иную жизнь…Жанр: драма, комедия, спектакльРежиссер: Александр ВилькинПродолжительность: 01:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:256A977999903A6CDF38A73FD39562F76AFBA847
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479494   (86899) от 07.04.2012
+
+Jennifer Lopez ft. Pitbull - Dance Again (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dance, Rap, Hip-hopПродолжительность: 00:04:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EAC9FC51D40B07A45C93B655B94050A711A8D84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479058   (86807) от 06.04.2012
+
+Видеоклипы International Performers in 2011 DVD-5 vol. 05 Пиратская Вечеринка 4.35Gb
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуется
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F46CC9EC22787ECB5ABD9764FC77CF714022A1B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476564   (86689) от 06.04.2012
+
+Осенняя кампания 1799 года / Театр Советской Армии (1986) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеверсия спектакля по одноименной пьесе А. Ремеза в постановке Центрального академического театра Советской Армии.
+
+В августе 1799 года русские войска под командованием А.В.Суворова, разгромив французов в северной Италии, получают неожиданное распоряжение. Вместо похода на Париж им предписывается идти в труднодоступные швейцарские Альпы, где стоит сильная и многочисленная французская армия.Жанр: военный, спектакльРежиссер: Юрий Еремин, Владимир СемаковПродолжительность: 01:10:14 + 01:18:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEDB46FD2FCE369C447C626ECB0284FFDC490DCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477127   (86612) от 05.04.2012
+
+Nightwish -End Of Innocence (2003) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dторой оффициальный DVD группы Nightwish включает:Жанр: Symphonic Power Metal/GothicРежиссер: Timo HaloАктеры: Tarja Turunen, Tuomas Holopainen, Marco Hietala, Jukka Nevalainen, Emppu VuorinenПеревод: ОтсутствуетЯзык субтитров: финский, английский, португальскийПродолжительность: 02:14:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477332   (86544) от 05.04.2012
+
+"Послушайте!" Вечер Светланы Крючковой (2012) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86544.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Мария Петровых - один из самых глубоких
+и сильных поэтов наших..."
+(А. А. Ахматова)
+
+Светлана Крючкова рассказывает о поэте Марии Сергеевне Петровых, её времени и друзьях, и, конечно, читает стихи. В поэтическом вечере принимает участие гитарист Александр Крючков.
+
+    Осип Мандельштам. "Мастерица виноватых взоров..."
+    Давид Самойлов - Марии Петровых
+    Давид Самойлов - Арсению Тарковскому
+    Осип Мандельштам - Марии Петровых(   Читать дальше...   )Жанр: поэзияРежиссер: Анастасия СинельниковаПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2343BCCEDDB0E349CD2A09D3B229FE497F3B9CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478352   (86515) от 05.04.2012
+
+Пушкин. Анджело / читает Сергей Шакуров (1999) TVRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поэму А.С.Пушкина "Анджело" читает народный артист России Сергей Шакуров. Мало кто знает, что поэма А.С. Пушкина "Анджело" представляет собой пересказ комедии Шекспира "Мера за меру", а сюжет пьесы Шекспира был взят из итальянской новеллы эпохи Возрождения. Поэтому в поэме Пушкина переплетены традиции и особенности нескольких культур: английской, итальянской и, конечно, русской.
+
+Программа снималась в Италии. Старинный замок эпохи Возрождения и его интерьеры послужили превосходными декорациями моноспектакля.Жанр: поэзияРежиссер: Галина СамойловаПродолжительность: 00:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC9B647FF51EC15CFBE14292B215A0EC9A78974A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 478632   (86507) от 05.04.2012
 
 Deepside Deejays, Jus Jack, Dada & Sandy Rivera - Lollipop (2012) [H.264/720p] WEBRip
@@ -6,7 +429,7 @@ Deepside Deejays, Jus Jack, Dada & Sandy Rivera - Lollipop (2012) [H.264/720p] W
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_86507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_86507.jpg" />
 </div>
 
 
@@ -32,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86329.jpg" />
 </div>
 
 
@@ -61,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86322.jpg" />
 </div>
 
 
@@ -87,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86308.jpg" />
 </div>
 
 
@@ -117,7 +540,7 @@ Red Hot Chili Peppers: Live at Rock in Rio (2011) [1080i] HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86196.jpg" />
 </div>
 
 
@@ -152,7 +575,7 @@ Red Hot Chili Peppers: I'm With You (Live in Cologne) (2011) [1080i] HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86175.jpg" />
 </div>
 
 
@@ -187,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86121.jpg" />
 </div>
 
 
@@ -213,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86120.jpg" />
 </div>
 
 
@@ -241,7 +664,7 @@ B.B. King: Live (2006) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85969.jpg" />
 </div>
 
 
@@ -276,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85945.jpg" />
 </div>
 
 
@@ -302,7 +725,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_85890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_85890.jpg" />
 </div>
 
 
@@ -313,436 +736,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:251B090A077C905DBAE2C9DCB85B3B530F7E0FAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476649   (85784) от 01.04.2012
-
-Rammstein - Live Aus Moskau 2012-02-11 (2012)[1080p] HDCamRip (Ver. 1)
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полный концерт группы Rammstein в Олимпийском 11 февраля 2012.Жанр: МузыкаПеревод: ОтсутствуетПродолжительность: 02:00:02
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476650   (85765) от 01.04.2012
-
-Armin van Buuren / Ultra Music Festival (2012)[1080p] HDTV
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Omnia - The Fusion (Armin van Buuren’s Intro Edit)
- 02. Cosmic Gate feat. Emma Hewitt - Be Your Sound
- 03. Armin van Buuren vs. Sophie Ellis-Bextor - Not Giving Up On Love (Dash Berlin 4AM Mix)
- 04. The Killers - Mr. Brightside (Marco V Treatment)(   Читать дальше...   )Жанр: Музыка/TranceПродолжительность: 00:59:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476608   (85761) от 01.04.2012
-
-Rammstein - Live Aus Moskau 2012-02-11 (2012) HDCamRip[1080p] (Ver. 2)
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не полный концерт группы Rammstein в Олимпийском 11 февраля 2012 снятый из сектора С-11 на камеру с отличным качеством.01 - Intro
-02 - Sonne (cut)
-03 - Feuer Frei (cut)
-04 - Mutter(   Читать дальше...   )Жанр: МузыкаПеревод: ОтсутствуетЯзык: DEПродолжительность: 01:10:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476396   (85752) от 01.04.2012
-
-Видеоклипы International Performers in 2011 DVD-5 vol. 01 Пиратская Вечеринка 4.35Gb
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуется
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:308B6A76FEB2C578831193D2598865C581F9C58C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476769   (85725) от 01.04.2012
-
-Armin van buuren video asot 550 live in Kiev (2012) (CamRip/DVD5)
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Rayel – 550 senta vs Shogun – Skyfire (accapella) (AVB intro mix)
- 02. Omnia & IRA – The Fusion (Armada)
- 03. Dennis Sheperd & Talla2 XLC – Two Worlds (Euphonic)
- 04. Wezz Devall – Kill Of The Year (Captivating Sounds)
- 05. Orjan Nilsen – Amsterdam (Armind)
- 06. Tritonal – Slave (Tritonal & Ben Gold Club Dub) (Air Up There Recordings)
- 07. W&W – Invasion (Club Mix) (ASOT 550 anthem) (Armada)
- 08. Orjan Nilsen – Between The Rays (Armind)
- 09. Setrise vs Johann Stone – Icesave (Original Mix)
- 10. Gaia – Stellar (Armind)(   Читать дальше...   )Жанр: Музыка/TranceПродолжительность: 01:34:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476015   (85555) от 31.03.2012
-
-Видеоклипы «t.A.T.u.» - All The Things She Said. Пиратская Вечеринка HD x264 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85555.jpg" />
-</div>
-
-
-###  Подробнее
-
-«All the Things She Said» — первый сингл с дебютного англоязычного альбома «200 km/h in the Wrong Lane» группы «Тату», выпущенный 10 сентября 2002 года. Стал первым синглом российских исполнителей, который занял первое место в британском чарте UK Singles Chart, удерживая позицию в течение четырёх недель. По итогам 2003 года сингл занял 6-е место по продажам в Великобритании (   Читать дальше...   )Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуетсяПродолжительность: 00 часа 04 мин 08 сек (00:04:08)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7139303D63F6C06D99794BD8A38368F79774E76A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474534   (85018) от 28.03.2012
-
-Lady GaGa Presents: The Monster Ball Tour at Madison Square Garden (2011) [1080p] BDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85018.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Lady GaGa Presents: The Monster Ball Tour at Madison Square Garden» - это масштабное шоу, снятое 21 и 22 февраля 2011 года в Нью-Йорке во время аншлаговых концертов Леди Гаги в рамках знаменитого «The Monster Ball Tour» – одно из самых значительных событий поп-культуры за последние 20 лет. Леди Гага в сопровождении 10 виртуозных музыкантов и 10 блистательных танцоров (   Читать дальше...   )01. Intro
-02. Dance In The Dark
-03. Glitter And Grease
-04. Just Dance(   Читать дальше...   )Жанр: PopСубтитры: Английские, РусскиеПродолжительность: 01:54:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474313   (84954) от 28.03.2012
-
-Iron Maiden: En Vivo! (2012) BDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84954.jpg" />
-</div>
-
-
-###  Подробнее
-
-«En Vivo!» — что в переводе с испанского означает «Живьём!» — был записан 10 апреля прошлого года в ходе мирового турне в поддержку 15 лонгплея группы. Масштабное зрелище разворачивалось на забитом неистовыми южноамериканскими фэнами стадионе Estadio Nacional, что в Сантьяго. Басист и основатель Стив Харрис по поводу пополнения концертного каталога Мэйден: «Для меня крайне важно было то, что получилось запечатлеть в Южной Америке, так как реакция поклонников в той части света всегда ошеломляла нас, и я хотел отразить это в процессе съёмок. После длительных дискуссий мы остановили свой выбор на шоу в Сантьяго, осознав, что перфоманс на Estadio Nacional стал лучшим во всём туре, а играть на этой престижной площадке для нас особое событие. По причинами известным нашим почитателям, понадобилось много времени, прежде чем отыграть своё первое шоу в Чили. И однажды, когда оно наконец-таки состоялось, отдача была настолько феноменальной, что нам пришлось возвращаться сюда снова, и снова. И каждый наш приезд лучше предыдущего! (   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:55:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EC4D15511F2ADD3DE37A4C8F5842FCAAC972521
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474092   (84939) от 28.03.2012
-
-Hammerfall - Клипы (1997 - 2009) DVDRip-AVC
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Heavy Metal, Power MetalПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30F1B1D93C5EC67326741A32FFD3A23AFE704E6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473570   (84631) от 26.03.2012
-
-Iron Maiden: En Vivo! (2012) [1080p] Blu-Ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84631.jpg" />
-</div>
-
-
-###  Подробнее
-
-EN VIVO! was filmed on April 10, 2011, in front of over 50,000 ecstatic fans at the Estadio Nacional, Santiago, during the Round The World In 66 Days leg of The Final Frontier World Tour, and captures a magnificent performance by the band, ardently embraced by the legendary Latino passion and energy of their Chilean fans. With spectacular stage backdrops, dynamic musicianship and a literally jaw-dropping appearance by Eddie, this live show encapsulates to perfection the heart and soul of Iron Maiden 2011.
-Bass player and founding member Steve Harris comments, For The Final Frontier Tour, it was really important to me that we filmed in South America as we re always so overwhelmed by the fans reaction when we go to that part of the world and I wanted to reflect that in the filming. After much consideration, we chose the Santiago show as we felt it was one of our best performances of the entire tour and to play at the prestigious Estadio Nacional was a landmark moment for us. For reasons known to our fans, it took (   Читать дальше...   )1. Satellite 15
-2. The Final Frontier
-3. El Dorado
-4. 2 Minutes To Midnight
-5. The Talisman
-6. Coming Home
-7. Dance Of Death
-8. The Trooper
-9. The Wicker Man
-10. Blood Brothers(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:55:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473737   (84613) от 26.03.2012
-
-Iron Maiden: En Vivo! (2011/2012) [720p] BDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа Iron Maiden 26 марта 2012 года выпустила концерт "En Vivo" в формате Blu-Ray, двойного DVD, а также саундтрека на CD. Шоу "En Vivo" было снято 10 апреля 2011 года в присутствии 50 тысяч восторженных фанатов на стадионе Estadio Nacional в Сантьяго (Чили) в рамках финальной части глобального тура The Final Frontier World Tour под названием (   Читать дальше...   )01. Satellite 15
-02. The Final Frontier
-03. El Dorado
-04. 2 Minutes To Midnight(   Читать дальше...   )Жанр: Heavy metal, concertПродолжительность: 01:55:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473432   (84515) от 26.03.2012
-
-Iron Maiden - En Vivo! (2012) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84515.jpg" />
-</div>
-
-
-###  Подробнее
-
-EMI 26 марта выпускают новый концертный релиз IRON MAIDEN, "En Vivo!", который будет доступен на Blu-Ray, 2-DVD и 2-CD. Его съемки состоялись на выступлении 10 апреля в Сантьяго перед 50 000 поклонниками, которое проходило в части "Round The World In 66 Days" из "The Final Frontier World Tour", достойно запечатлев как небывалый энтузиазм и самоотдачу чилийских поклонников, так и отразив всю суть IRON MAIDEN образца 2011 года.
-Концерт снимался на 22 HD-камеры и октокам (летающая камера над толпой перед сценой), записан в стерео и 5.1-формате, сведение которого осуществил Kevin "Caveman" Shirley, каждый из них только подчеркивает невероятную атмосферу выступления. Особым моментом релиза станет возможность близкого наблюдения за каждым музыкантом на разделенном экране, а сет-лист плавно варьируется от классических произведений до номеров с последнего альбома.Жанр: Heavy MetalПродолжительность: 01:27:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473037   (84332) от 25.03.2012
-
-Принцесса Турандот (1971) DVDRip
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Комедия, Сказка, Семейный, с элементами капустникаРежиссер: Рубен Симонов, Александр ШоринАктеры: Василий Лановой (Калаф), Юлия Борисова (Турандот), Юрий Яковлев (Пантолоне), Людмила Максакова (Адельма), Михаил Ульянов (Бригелла), Михаил Дадыко (Альтоум), Эрнест Зорин (Труффальдино), Николай Гриценко (Тарталья), Евгений Федоров (Исмаил), Екатерина Райкина (Зелима), Анатолий Кацынский (Тимур), Гарри Дунц (Барах) и другие.Продолжительность: 02:20:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08473766AA3BB816C424AA3CA54040BBCA01C4D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472504   (84295) от 25.03.2012
-
-Angel Voices. Libera in Concert(2007) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы постоянно слушаем музыку, но мы даже не задумывались о том, что есть церковный хор, который как показалось на первый взгляд не отличается от остальных. Но, что мы видим это не просто кучка подростков поющих церковные песнопения, это группа детей профессионально занимающихся музыкой и вокалом. Они дают понять нам, что музыка это не просто слова и мелодия, а это отголоски нашей души. Ив каждой новой песне мы слышим их по разному. Libera — это то к чему стремится каждый 2-ой человек планеты — спокойствие и душевный покой.
-
-Этот концерт дает понять нам, что все к чему мы стремимся это покой и мир в наших сердцах.
-Libera Official websiteЖанр: BoysChoirРежиссер: Phillip ByrdАктеры: Jonathan Barrington, Tiarnan Branson, Oliver Cole, Tom Cole, Liam Connery, Ben Crawley, Tom Cully, Edward Day, Steven Geraghty, Michael Horncastle, Michael Horncastle, Alexander Leggett, Sam Leggett, Zack Lockett, Joshua Madine, Conor O'Donnell, Callum Payne, Fiona Pears, Benedict Philipp, Robert Prizeman, Joseph Snelling, Michael Vereycken, Jakob WoodПеревод: ОтсутствуетЯзык субтитров: АнглийскиеПродолжительность: 0:55:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472517   (84246) от 25.03.2012
-
-Скрипка Ротшильда / Московский ТЮЗ (2010) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84246.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Скрипка Ротшильда" - последняя часть чеховской трилогии "Жизнь прекрасна!" Камы Гинкаса.
-
-Художник Сергей Бархин выстроил на сцене причудливый деревянный городок, в котором протекает бессмысленная жизнь гробовщика Якова Бронзы, которого лишь смерть жены заставляет вспомнить о ценности человеческой жизни, о сочувствии к людям.
-
-Спектакль - лауреат премии "Золотая маска" (2005) в номинациях: "Лучший спектакль большой формы" и "Лучший художник".
-Валерий Баринов и Игорь Ясулович стали лауреатами премии им. К.С. Станиславского (2004).Жанр: драма, спектакльРежиссер: Кама ГинкасПродолжительность: 01:23:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:121726663A7626D5D5860A591BA5974DDFCB1F7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

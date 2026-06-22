@@ -1,3 +1,110 @@
+###  Публикация: 1070962   (364672) от 08.11.2016
+
+Э. Фиммен | Буржуазная и пролетарская Европа [«Акционерное Общество Европа» и Всеевропейский Совет Профессиональных Союзов] (1924) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364672.jpg" />
+</div>
+
+
+###  Подробнее
+
+В своей книжке автор пытается установить главные черты новейшего развития капиталистической организации и указать на национальные и международные проблемы, вытекающие отсюда для профессионального движения.Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:639D6390A63D9F2A718F09E9148D0CE62113E00B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417087   (362715) от 18.10.2020
+
+Ю. Фельштинский, Г. Чернявский | Оруэлл (2019) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Далеко не все, произносящие афоризм "все равны, но некоторые равнее", знают, что цитируют Джорджа Оруэлла. Его собственная жизнь могла бы послужить основой для романа. Он родился в Индии, служил в колониальной полиции в Бирме, скитался по трущобам Парижа, сражался против франкистов в Испании и при этом оставался истинным англичанином. Известный прежде всего (   Читать дальше...   )Жанр: БиографияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F687A0F80D1A6545ADFD42D11270325B899B1F99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177282   (362688) от 25.10.2017
+
+М.П. Погодин | Исследования, замечания и лекции о русской истории [7 томов] (1846-1857) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Михаил Петрович Погодин (11 [23] ноября 1800, Москва — 8 [20] декабря 1875, Москва) — русский историк, коллекционер, журналист и публицист, писатель-беллетрист, издатель.
+
+Сын крепостного, получившего вольную в 1806 году. Начиная с 1820-х годов отстаивал норманскую теорию. В 1826—1844 годах профессор Московского университета. Почётный член Московского университета (   Читать дальше...   )Жанр: История ОтечестваФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8DE2F2C45BB13295023B238287E32E6F383E8A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575817   (362426) от 17.11.2012
+
+Г.В.Носовский , А.Т.Фоменко , Т.Н.Фоменко | Русские корни "древней" латыни. Языки и письменность Великой Империи  [2012] [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное издание выходит в новой редакции, сделанной А.Т. Фоменко. Оно заметно отличается от предыдущих.
+ Согласно результатам авторов, в Великой = "Монгольской" Империи XIII-XVI веков основными языками были славянский и тюркский. Государственным языком Империи был, вероятно, славянский. В мятежную эпоху Реформации, после раскола Империи, в ее отделившихся осколках, реформаторы начали активно создавать новые языки, дабы отделиться от метрополии Империи (Руси-Орды) не только политически, но и в языковом отношении. Для этой цели в XVI-XVII веках новые правители призвали специальных людей, которым было поручено "придумать новые языки". В результате возникла "лингвистика". Однако в основе спешно создаваемых языков ("древне"-латинского, "древне"-греческого, французского, английского, немецкого, испанского, итальянского и т.д.) неизбежно лежал славянский язык в широком его понимании. Другого материала у реформаторов просто не было. Следовательно, помимо их воли, все придуманные (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D7EB803CE677C763EF3796BE3F9C70DB79CC2D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070804   (361877) от 09.11.2016
 
 Биржи и рынки (1924) [PDF]
@@ -6,7 +113,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361877.jpg" />
 </div>
 
 
@@ -34,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361874.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361809.jpg" />
 </div>
 
 
@@ -86,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361656.jpg" />
 </div>
 
 
@@ -112,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361269.jpg" />
 </div>
 
 
@@ -138,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358702.jpg" />
 </div>
 
 
@@ -166,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358696.jpg" />
 </div>
 
 
@@ -192,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358695.jpg" />
 </div>
 
 
@@ -219,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356912.jpg" />
 </div>
 
 
@@ -247,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356911.jpg" />
 </div>
 
 
@@ -275,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356910.jpg" />
 </div>
 
 
@@ -304,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354419.jpg" />
 </div>
 
 
@@ -330,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354394.jpg" />
 </div>
 
 
@@ -359,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354143.jpg" />
 </div>
 
 
@@ -387,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354090.jpg" />
 </div>
 
 
@@ -413,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354084.jpg" />
 </div>
 
 
@@ -439,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353826.jpg" />
 </div>
 
 
@@ -465,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353823.jpg" />
 </div>
 
 
@@ -491,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353662.jpg" />
 </div>
 
 
@@ -518,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353550.jpg" />
 </div>
 
 
@@ -544,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353516.jpg" />
 </div>
 
 
@@ -571,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353447.jpg" />
 </div>
 
 
@@ -582,112 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:699839707E40B4A7EE9B3EA9826433B5389286D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178970   (353178) от 29.10.2017
-
-Жорж Ру | Великие цивилизации Междуречья. Древняя Месопотамия: Царства Шумер, Аккад, Вавилония и Ассирия. 2700–100 гг. до н. э. (2016) [FB2, EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга ассириолога Жоржа Ру охватывает политическую, культурную и экономическую историю трехтысячелетнего периода процветания региона, расположенного между Тигром и Евфратом и некогда называвшегося Месопотамией. Интерес к Древнему Ближнему Востоку и исследовательская работа автора позволили ему описать династии и религии каждой эпохи: искусство, науку и литературу (   Читать дальше...   )Жанр: История, КультурологияФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5871AA84140F6A8B1F0913FE6FA99EE0326E597
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072423   (352395) от 13.11.2016
-
-А. Г. Белобородов (ред.) | Современная преступность [преступление, пол, репрессия, рецидив] (1927) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Относительность понятия преступления, изменчивость содержания, вкладываемого в это понятие, изменение требований, предъявляемых к целесообразно построенной системе репрессии, параллельно с изменением общеполитической и хозяйственной конъюнктуры, — все это, наряду с принципом целесообразности, составляет сумму тех основных положений, исходя из которых конструируется (   Читать дальше...   )Жанр: История, политология, экономика, правоведение, социологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:682C6053EE42D2F4CB762858655AA490AF5A4DA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072390   (352381) от 13.11.2016
-
-Анатолий Железный | Петр Лещенко. Биография, песни, дискография (2008) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352381.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге киевского журналиста Анатолия Железного рассказывается о творческом пути и трагической судьбе замечательного эстрадного артиста русского зарубежья 20 - 40-х годов Петра Константиновича Лещенко. В книге также приведены тексты всех песен, напетых им на грампластинку, и дана подробная дискография грамофонных записей певца.Жанр: Биографии, мемуарыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E5F067A9CF9A4F204E2A2B89EB1412BAB09E61B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072437   (352275) от 13.11.2016
-
-В. П. Беляев, М. И. Рудницкий | Под чужими знаменами (1954) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352275.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Национальная культура буржуазии есть факт (причем, повторяю, буржуазия везде проводит сделки с помещиками и попами). Воинствующий буржуаз­ный национализм, отупляющий, одурачивающий, разъединяющий рабочих, чтобы вес­ти их на поводу буржуазии, — вот основной факт современности.
-
-Кто хочет служить пролетариату, тот должен объединять рабочих всех наций, борясь неуклонно (   Читать дальше...   )Жанр: История, политология, экономика, религиоведение, психологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A898B6A0B59C2C770B7809843A5B972D0E2DEA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

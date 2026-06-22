@@ -1,3 +1,58 @@
+###  Публикация: 1334485   (294973) от 29.10.2019
+
+Progressive Downloader 4.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Progressive Downloader — бесплатный менеджер закачек под Mac.
+Основные особенности:
+Поддержка протоколов HTTP(S), FTP и SFTP(SSH).
+Многопоточное скачивание. Гибкое управление скоростью скачивания с помощью увеличения/уменьшения количества одновременно установленных соединений.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.09.2019Разработчик: macpsdПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C13964F0EEE3A1310D176BCBDE91F454C85C81B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334478   (294972) от 29.10.2019
+
+Paste 2.5.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшая утилита, которая незаметно работает в фоном режиме системы и следит за историей буфера обмена, и готово в любой момент предоставить на выбор нужный фрагмент из истории копирования. Таким образом, упрощая работу пользователя в период подготовки любого материала из массы скопированной информации. Сохраняет все, что вы когда-либо скопировали и позволяет восстановить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.10.2919Разработчик: WirelessheadsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BDB2C6EC17C34B3F5A99A0C82EFE94BC3838AF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334593   (294971) от 29.10.2019
 
 Perfect Horizon Full 1.0.1 [En]
@@ -6,7 +61,7 @@ Perfect Horizon Full 1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294971.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ OCRKit Pro 19.10.28 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294970.jpg" />
 </div>
 
 
@@ -62,7 +117,7 @@ iSkysoft DVD Creator 6.0.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294969.jpg" />
 </div>
 
 
@@ -90,7 +145,7 @@ Carbon Copy Cloner 4.1.6 (4255) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294935.jpg" />
 </div>
 
 
@@ -119,7 +174,7 @@ Recompress 19.10.28 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294883.jpg" />
 </div>
 
 
@@ -147,7 +202,7 @@ Hype 4 Pro v4.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294882.jpg" />
 </div>
 
 
@@ -173,7 +228,7 @@ Wifiner 1.3.182 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294880.jpg" />
 </div>
 
 
@@ -202,7 +257,7 @@ WiFi Signal 4.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294873.jpg" />
 </div>
 
 
@@ -229,7 +284,7 @@ FontExplorer X Pro 7 v7.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294782.jpg" />
 </div>
 
 
@@ -257,7 +312,7 @@ ForkLift 3.3.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294781.jpg" />
 </div>
 
 
@@ -284,7 +339,7 @@ Pixellu SmartAlbums 2 v2.1.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294599.jpg" />
 </div>
 
 
@@ -310,7 +365,7 @@ Adobe Photoshop CC 2019 v20.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294457.jpg" />
 </div>
 
 
@@ -336,7 +391,7 @@ Paragon NTFS for Mac 15.5.71 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294354.jpg" />
 </div>
 
 
@@ -364,7 +419,7 @@ Parallels Desktop for Mac Business Edition 11.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294270.jpg" />
 </div>
 
 
@@ -391,7 +446,7 @@ WebVideoHunter 5.6.8 (232) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294261.jpg" />
 </div>
 
 
@@ -418,7 +473,7 @@ Postbox 5.0.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294193.jpg" />
 </div>
 
 
@@ -445,7 +500,7 @@ Money Pro 1.7.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294189.jpg" />
 </div>
 
 
@@ -474,7 +529,7 @@ Serial 1.2.5 R2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294101.jpg" />
 </div>
 
 
@@ -502,7 +557,7 @@ SnapNDrag Pro 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293541.jpg" />
 </div>
 
 
@@ -531,7 +586,7 @@ iFinance 4.4.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293519.jpg" />
 </div>
 
 
@@ -557,7 +612,7 @@ SQLPro Studio 1.0.320 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293497.jpg" />
 </div>
 
 
@@ -583,7 +638,7 @@ iStatistica 4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293495.jpg" />
 </div>
 
 
@@ -609,7 +664,7 @@ A Better Finder Rename 11 v11.03 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293372.jpg" />
 </div>
 
 
@@ -636,7 +691,7 @@ PeakHour 4.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293364.jpg" />
 </div>
 
 
@@ -649,58 +704,6 @@ PeakHour идеально подходит для мониторинга ваш�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:025B55416E8A2CAA42A8E4154E05605F8C1E5C37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334692   (293363) от 30.10.2019
-
-Fission 2.5.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Соединить или разделить файлы или просто разделить большой файл на несколько частей для последующего редактирования - все это сделает с легкостью Fission, к тому же, без потери качества, в противоположность другим редакторам. Так, что вы можете получить идеальное качество звука даже при редактировании MP3 и AAC файлов. Вырезать одну часть из файл, а на ее место вставить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.10.2019Разработчик: Rogue AmoebaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD09696F95F64FF31B3EAD02361AFEAE435DB162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334610   (293358) от 30.10.2019
-
-Wirecast Pro 13.0.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wirecast предлагает доступное программное обеспечение в качестве альтернативы дорогим аппаратным решениям организации видео-трансляций в сети Интернет. Благодаря Wirecast вы можете выводить на вещание несколько потоков с камер, в реальном времени вставляя в программный поток видеоклипы, изображения, звуки и такие необходимые элементы, как переходы, титры, хрома-кеинг, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Telestream, Inc.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский, Французский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45C24BDC2B671828F43A82E51C1928FB6AB62DDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

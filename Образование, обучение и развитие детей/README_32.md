@@ -1,3 +1,109 @@
+###  Публикация: 1024924   (713409) от 10.06.2016
+
+Амфора | Серия "Игры разума"  5 книг (2015) [PDF, FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия "Игры разума" - отличный интеллектуальный тренажер для мозга: оригинальный, эффективный, нескучный. Испытайте себя, разгадывая головоломки, раскрывая тайны, решая занимательные задачи. Совершите познавательную и приятную "пробежку" по всем областям знаний - от истории, географии, математики до криминалистики, электроники, литературы.Жанр: ГоловоломкиФормат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1121F8FF68D5D3613090A77454E77340755D48BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286292   (712988) от 02.03.2019
+
+К. Арзуманян | Армянские волшебные сказки [CD & Книга] (2009) [MP3, PDF] [RU/AM]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой сборник армянских народных сказок в изложении великого армянского писателя и поэта Ованеса Туманяна (1869-1923), адаптированных (без упрощения текста оригинала) по методу обучающего чтения Ильи Франка®. Уникальность метода заключается в том, что запоминание слов и выражений происходит за счет их повторяемости, без заучивания и необходимости (   Читать дальше...   )Жанр: Сказки, Иностранные языки, Восточные языкиФормат: MP3, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BBD96CEEEF5A1458AF301EF8C02D5840391AD9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130844   (712450) от 03.05.2017
+
+Штефан Рамсторф | Ветер, дождь и облака (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712450.jpg" />
+</div>
+
+
+###  Подробнее
+
+В научно-популярной книге для детей рассматриваются вопросы, связанные с изучением климата и погоды на планете. В доступной и занимательной форме объясняются в деталях все погодные явления, история наблюдений человека за погодой.
+    Юный читатель может найти ответы на многие вопросы, связанные с пониманием процессов, происходящих вокруг него: почему происходит смена (   Читать дальше...   )Жанр: Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51FE1234419FBF6EA28ECE14E680B33DC5CDDCB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219377   (711425) от 15.04.2018
+
+Рената Кирилина, Сергей Кирилин | Как научить ребенка быстро читать. За 6 шагов (2018) [PDF, RTF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как научить ребенка быстро читать? Это один из самых волнующих вопросов, которые могут встать перед родителями. Вроде бы и буквы освоены, и слоги понятны. Но ребенок читает медленно, совершенно не понимает прочитанное. В итоге просит маму помочь объяснить задание, тянет с выполнением уроков, получает оценки хуже, чем может.
+Книга, которую Вы держите в руках, поможет (   Читать дальше...   )Жанр: Обучение и развитие детейФормат: PDF, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93B174716F8D52721AD49D24C4BA448918C48798
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025440   (709314) от 12.06.2016
 
 А. Д. Ботвинников и др. | Черчение (7-8 класс) (1992) [PDF, DJVU]
@@ -6,7 +112,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709314.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707209.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706597.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706462.jpg" />
 </div>
 
 
@@ -113,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705859.jpg" />
 </div>
 
 
@@ -139,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704462.jpg" />
 </div>
 
 
@@ -167,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702665.jpg" />
 </div>
 
 
@@ -194,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702324.jpg" />
 </div>
 
 
@@ -220,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700553.jpg" />
 </div>
 
 
@@ -247,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700536.jpg" />
 </div>
 
 
@@ -274,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700314.jpg" />
 </div>
 
 
@@ -301,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699955.jpg" />
 </div>
 
 
@@ -327,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699757.jpg" />
 </div>
 
 
@@ -353,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694920.jpg" />
 </div>
 
 
@@ -379,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694908.jpg" />
 </div>
 
 
@@ -405,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694706.jpg" />
 </div>
 
 
@@ -431,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694280.jpg" />
 </div>
 
 
@@ -457,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694076.jpg" />
 </div>
 
 
@@ -483,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693919.jpg" />
 </div>
 
 
@@ -510,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691836.jpg" />
 </div>
 
 
@@ -536,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690549.jpg" />
 </div>
 
 
@@ -562,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690437.jpg" />
 </div>
 
 
@@ -573,117 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85F8C77ABF929A6051DDC0CF84A4E44C0EB4C96A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506267   (689582) от 05.06.2012
-
-Е. А. Алябьева | Нравственно-этические беседы и игры с дошкольниками [2003] [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689582.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге представлены материалы бесед для организации внеситуативно-познавательного и личностного общения, дидактические игры по методике телефонного разговора, игры-путешествия в сценарном варианте, блок детских стихов, чтение которых следует сопровождать различными телодвижениями.
- Настоящее издание поможет педагогам обогатить воспитательно-образовательный процесс, пополнить знания детей об окружающем мире, развить у воспитанников познавательные психические процессы, речь, артистизм, выразительность, культуру общения.
- Издание является хорошим методическим пособием для студентов педагогических колледжей, дошкольных факультетов вузов. Его могут использовать учителя начальной школы и родители.
-
-_____________________________________________________________________________________________2003Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3A31E2D6F5B01FE3A47A8DAB6FF54A9C18CB7D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506520   (688206) от 06.06.2012
-
-А. Сурмели | Конкурсы красоты Лучшие сценарии [2005] [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конкурсы красоты - это шоу обречённые на успех, если за организацию берутся профессионалы. Готовые сценарные разработки, советы режиссёру и сценаристу помогут превратить обычную конкурсно-развлекательную программу в необычное и чудесное зрелище, а Золушку - в Принцессу. Книга будет полезна всем, кто так или иначе связан с организацией конкурсно-развлекательных программ.2005Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FA82F664248E6810B8FADB240124CB13C52AA5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222335   (687249) от 28.04.2018
-
-Алексей Лебедев | Шаг за шагом. Букварь для обучения чтению и письму (1917) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687249.jpg" />
-</div>
-
-
-###  Подробнее
-
-С иллюстрациями в тексте. Изданный Вахтеровым в самом конце XIX века Букварь выдержал более 120 изданий. В конце букваря краткая церковнославянская азбука.Жанр: Обучение и развитие детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A49D2D929C9FC24FF45A1D1E8686AF969290A1AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134839   (686673) от 16.05.2017
-
-Кэрол Вордерман | Как объяснить ребенку науку. Иллюстрированный справочник для родителей по биологии, химии и физике (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686673.jpg" />
-</div>
-
-
-###  Подробнее
-
-О книге
-Этот иллюстрированный справочник от автора полюбившихся книг "Программирования для детей" и "Как объяснить ребенку математику" станет отличным помощником для родителей, которые хотят помочь своим детям в освоении биологии, химии и физики.
-
-В книге доступно и наглядно объясняются основные понятия этих важнейших естественнонаучных дисциплин. (   Читать дальше...   )Жанр: Обучение, развитиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:535F6BC79D3B95DDF0DCFE671CDB199E853910B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

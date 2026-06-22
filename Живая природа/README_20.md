@@ -1,3 +1,107 @@
+###  Публикация: 521627   (626747) от 11.07.2012
+
+Nat Geo Wild: Созданные убивать: Большая белая акула / Build For The Kill: Great White Sharks (2011) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый документальный сериал от National Geographic расскажет Вам, как животные эволюционировали в хитрых и жестоких убийц. Мы станем свидетелями, как из слепых и беспомощных они вырастают в сильных и беспощадных хищников.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26907CC18DAD3F142F7FF0F924E23ED6859F51AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 700127   (620851) от 20.07.2016
+
+Горбатые киты. Из огня в лёд / Humpbacks. From Fire to Ice (2008) BDRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самка горбатого кита и ее детеныш... Это рассказ о них. Повесть о первом годе жизни новорожденного кита. У детеныша есть 12 месяцев, чтобы узнать премудрости жизни, 12 месяцев, чтобы научиться выживать в этом полном опасностей подводном мире. Мы проследуем за самками и детенышами горбатых китов во время сезонной миграции через северную часть Тихого океана - от вулканов, (   Читать дальше...   )Жанр: Документальный, видовой, научно-познавательный, исследования, природа, флора, фаунаПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:52:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9D8E304A1DC94C15EEC09C72CE58E1CE210EA3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097705   (617876) от 27.06.2017
+
+Эхо джунглей / Echoes from the Jungle (2006) SATRip (серии 1-11 из 13)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617876.jpg" />
+</div>
+
+
+###  Подробнее
+
+35 летний опыт, отмеченный многочисленными наградами, три года изнурительного и кропотливого исследования дикой природы Индии увенчали грандиозные усилия известных режиссеров Нареша и Раджеша Беди мировым успехом созданного ими документального сериала «Эхо джунглей».Производство: ИндияЖанр: Документальный, природа, флора, фаунаРежиссер: Раджеш БедиПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 11 x ~00:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA1C1AB9AA162498DB67B92A8F0265B3E90046CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910993   (617808) от 22.06.2015
+
+NG. Анаконда: Тихий убийца / Anaconda: Silent Killer (2014) HDTVRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнайте правду об одной из крупнейших и при этом самых скрытных змей на Земле. Оригинальное поведение и неожиданные открытия, запечатлённые камерой, станут штрихами в поразительном и пленительном портрете настоящей анаконды, который опровергнет множество популярных неверных представлений о «гигантских змеях-киллерах» и покажет ошеломляющие новые факты о мирной и (   Читать дальше...   )Телекомпания: NAT GEO WILD HDЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADBB2C27462A0F50C14AACA91A97FE49DE194D00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 700170   (617168) от 22.07.2016
 
 Как устроена природа. Джунгли / How Nature Works. Jungle (2012) BDRip [H.264/1080i-LQ] [Серия 1 из 4]
@@ -6,7 +110,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617168.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615853.jpg" />
 </div>
 
 
@@ -61,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615401.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ NG: Исследование. Столкновение с астероидом. 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615093.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614556.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ BBC: Мир природы. Смертоносные змеи Индии / The N
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611273.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ Nat Geo Wild: Дикая Иберия / Wild Iberia [сезон 1 серии 1-4
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610547.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609791.jpg" />
 </div>
 
 
@@ -218,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607242.jpg" />
 </div>
 
 
@@ -245,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606956.jpg" />
 </div>
 
 
@@ -271,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602855.jpg" />
 </div>
 
 
@@ -297,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601983.jpg" />
 </div>
 
 
@@ -323,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601673.jpg" />
 </div>
 
 
@@ -349,7 +453,7 @@ Nat Geo Wild: Дикая Венеция / Wildes Venedig / Wild Venice (2014) HD
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600940.jpg" />
 </div>
 
 
@@ -375,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600885.jpg" />
 </div>
 
 
@@ -401,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597909.jpg" />
 </div>
 
 
@@ -427,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597667.jpg" />
 </div>
 
 
@@ -453,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597306.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595832.jpg" />
 </div>
 
 
@@ -505,7 +609,7 @@ Nat Geo Wild: Дикая Америка: Гризли против белого 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595529.jpg" />
 </div>
 
 
@@ -532,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594727.jpg" />
 </div>
 
 
@@ -558,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593303.jpg" />
 </div>
 
 
@@ -569,110 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4B784EE2D6B1F9DAAE363EEBF0BC9F736E82542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300754   (592752) от 07.05.2019
-
-Возвращение незваных гостей / The Squatters Return (2018) HDTVRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как объяснить неожиданное возвращение разных видов жуков? Ученые говорят о глобальном потеплении, нашем образе жизни и их генетических мутациях. Справимся ли мы с этими проблемами?Производство: Франция, Arte France Mona Lisa ProductionЖанр: Документальный, природа, флора, фаунаРежиссер: Тири БэрродПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E9A779A96F088B38BDCEA5A7DBD17A9425D69EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551422   (590144) от 15.05.2022
-
-Один дикий день / One Wild Day (2017) WEB-DL [H.264/1080p] (серии 1-3 из 3)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590144.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире природы каждые сутки - это экстремальные приключения... Каждая минута ввергает всё живое в пучину опасностей. В этой программе мы проведем сутки в разных уголках девственной природы нашей планеты. Мы увидим как животные в определенное время суток побеждают в поединке за жизнь. Одни оживают в лучах дневного света, другие в ходе эволюции научились выживать в (   Читать дальше...   )Производство: Великобритания, An Offsrping Films ProductionsЖанр: документальный, природа, флора, фаунаРежиссер: Анвар МамонПеревод: дублированный (SDI Media)Субтитры: английскиеПродолжительность: 3x ~00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:711399A36D947894A32A5F7E948B5A4084417D6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551858   (588956) от 18.05.2022
-
-Окаванго. Поток жизни / Okavango. A Flood of Life (2021) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм раскрывает невероятную историю дельты Окаванго. Снятый в течение полного цикла сезонов, он раскрывает отношения - как людей, так и животных - на земле, где присутствие или отсутствие воды меняет все.Производство: Великобритания, Natural History Film Unit, Icon Films, NHKЖанр: документальный, природа, флора, фаунаРежиссер: Брэд БестелинкПеревод: одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44E19E819741E09FA5A07D4F01F5D67EFA9D9DF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358229   (585229) от 03.07.2011
-
-Маленькие питомцы / Baby Planet (2008) SATRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585229.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире животных многие виды находятся под угрозой исчезновения, поэтому требуется помощь человека в поддержании их популяции. В программе "Маленькие питомцы" показано появление на свет и первые дни жизни детенышей редких животных. Также вы увидите, как эти очаровательные малютки подрастают и становятся любопытными непоседами, а затем - самостоятельными взрослыми особями. Сериал поведает об удивительных историях, случающихся в практике ветеринаров-акушеров, и расскажет о радостях и трудностях. Уделяя особое внимание важной работе зоопарков, заповедников и организаций по охране животных и имея к ним неограниченный доступ, создателям программы удалось заснять мельчайшие подробности сложной и тяжелой работы людей, которые посвятили свою деятельность сохранению самых редких и наиболее важных видов на планете. Их цель: помочь животным вывести здоровое потомство и сохранить популяции, находящиеся под угрозой исчезновения. Каждая серия изобилует съемками малюток в первые дни их жизни. Эти кадры, приоткрывающие (   Читать дальше...)Жанр: ДокументальныйПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 3x~00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9814E8E4C8C63CDBD864447DF448ECF8386DDD24
 ```
 
 https://mybot314.ru/tekegram_catalog/

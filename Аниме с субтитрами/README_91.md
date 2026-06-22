@@ -1,3 +1,29 @@
+###  Публикация: 1191724   (263410) от 16.12.2017
+
+Ushio to Tora TV | Усио и Тора ТВ (сезон 1 и 2) [2015, TV, 26 + 13] BDRip 1080p 10bit raw+eng
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263410.jpg" />
+</div>
+
+
+###  Подробнее
+
+16-летний Усио Аоцуки с детства слышал от отца, настоятеля буддистского храма, истории о различных духах, считая их, впрочем, религиозной чепухой. Парень убедился, что был неправ, когда случайно провалился в храмовый подвал и обнаружил там тигроподобного духа-ёкая, пригвожденного к стене Копьем Зверя – как выяснилось, фамильной реликвией. Сорвав печать, Усио привлек (   Читать дальше...   )Производство: MAPPAЖанр: приключения, фэнтезиРежиссер: Нисимура СатосиПеревод: YakusubЯзык озвучки: Японский и английскийСубтитры: Русские, АнглийскиеПродолжительность: 26+13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B4837C440477A7AAA5B21B8A990C4E43FBF60AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1173272   (263360) от 16.12.2017
 
 Netojuu no Susume / Recommendation of the Wonderful Virtual Life / Рекомендации из замечательной виртуальной жизни [2017, TV, 10] HDTV 720p raw
@@ -6,7 +32,7 @@ Netojuu no Susume / Recommendation of the Wonderful Virtual Life / Рекоме�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263360.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Ballroom e Youkoso | Welcome to the Ballroom | Добро пожаловать �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262997.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Kanojo to Kanojo no Neko: Everything Flows | Она и её кот: Всё те�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262291.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ UQ Holder! Mahou Sensei Negima! 2 | Хранитель вечности! Вол�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261886.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Kakegurui | Compulsive Gambler | Маниакальный игрок [2017, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261859.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Kuttsukiboshi / Сцепленные звёздочки [2010-12, 2 эп. OVA] D
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259129.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ AWOL Compression Re-MIX | Самоволка [1998, OVA, 4 эп.] LDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256669.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ KanColle 2 | Kantai Collection 2 - Itsuka Ano Umi de | Коллекционна�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255292.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Guilty Crown | Корона греха [2011, TV, 22 эп.] BDRip 1080p 10-bit r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255209.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu. 2 / Не л�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255009.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ Boku wa Imouto ni Koi o Suru | Я люблю свою сестрёнку [2005, 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255003.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ Shinseiki Evangelion Gekijouban: The End of Evangelion | Neon Genesis Evangelion
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254939.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ Yuusha-Ou GaoGaiGar Final | Король храбрецов Гаогайгар: 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254844.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ Kidou Senshi Gundam: Cucuruz Doan no Shima | Mobile Suit Gundam: Cucuruz Doan's 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254718.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ Toki no Tabibito / Time Stranger / Путник, странствующий во
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252725.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ Arslan Senki / The Heroic Legend of Arslan - Age of Heroes / Сказание о
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252712.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ Iria: Zeiram the Animation / Ирия: Зейрам [1994, OVA, 6 ep.] Remastere
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252687.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ Muu no Hakugei | The White Whale of Mu | Белый кит континента 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252528.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ Yahari Ore no Seishun LoveCome wa Machigatte Iru. Kan | OreGairu 3 | Как и �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251790.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ HEAVEN IS A PLACE ON EARTH / Gekijouban Hayate no Gotoku! Heaven is a Place on E
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250658.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ Dan Da Dan | Дандадан [ТВ-1] [2024, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250472.jpg" />
 </div>
 
 
@@ -568,7 +594,7 @@ Dr. Stone: Ryuusui | Доктор Стоун (спэшл) [2022, Special, 1 эп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250330.jpg" />
 </div>
 
 
@@ -596,7 +622,7 @@ Ryuugajou Nanana no Maizoukin | Nanana's Buried Treasure | Сокровища Н
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250050.jpg" />
 </div>
 
 
@@ -622,7 +648,7 @@ Boku no Hero Academia 5 | My Hero Academia Season 5 | Моя геройская 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249703.jpg" />
 </div>
 
 
@@ -648,7 +674,7 @@ Egao no Daika | The Price of Smiles | Цена улыбки [2019, TV, 12 эп.]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249647.jpg" />
 </div>
 
 
@@ -659,32 +685,6 @@ Egao no Daika | The Price of Smiles | Цена улыбки [2019, TV, 12 эп.]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED8C602F24B6602F6F6782E31028F30577912B26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118387   (249404) от 23.07.2022
-
-Getsuyoubi no Tawawa / Tawawa on Monday / Встречи с Тававой по понедельникам [2016, TV, 14] BDRip 1080p 10bit HEVC raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычному служащему выпадает шанс встретиться в переполненном поезде с девушкой по имени Ай, которая грудью (в прямом смысле) защитила его от давки. И так они начинают встречаться каждый понедельник на поезде, рассказывая друг другу о случившемся за неделю.Производство: Студия Pine Jam / パインジャムЖанр: повседневностьРежиссер: Мураяма КосукэПеревод: Timecraft (1-13); Shaman Anime (14)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 14 эп. по 5 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D205835D09EBD079B69BDD58E2C044BCDED4495A
 ```
 
 https://mybot314.ru/tekegram_catalog/

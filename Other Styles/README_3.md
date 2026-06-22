@@ -1,3 +1,264 @@
+###  Публикация: 1616672   (1036101) от 03.03.2023
+
+David Arkenstone - Celtic Collection (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. May Dance (4:39)
+02. Celtic Garden (3:46)
+03. Hand In Hand (4:39)
+04. The Voice (4:24)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:23:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3551D7FADB85A6EF9CC97CB4E0B7F60AA0A3D7FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616666   (1036092) от 03.03.2023
+
+VA - Enigma-Forest-Transit 1 (1998) [OGG Vorbis|480 Kbps] <Electronic, Folk, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enigma - Second Chapter
+02. Enigma - The Eyes of Truth
+03. Era - Enae Volare Mezzo
+04. Gregorian - So Sad... (Radio version)(   Читать дальше...   )Жанр: Electronic, New Age, AmbientПродолжительность: 01:14:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9BF4B8627479D3C7BD4B0AC9C0B36F77D03AB94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616785   (1036089) от 03.03.2023
+
+VA - meditation mix (2023) [MP3|320 Kbps] <Meditation, Piano, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johannes Bornlof - River Flows in You (Lullaby Version) (2:47)
+02. Maria Paloma - Gabriel's Oboe (2:10)
+03. Johannes Bornlof - Written on the Sky (1:56)
+04. Maria Paloma - Love Theme from Cinema Paradiso (3:33)(   Читать дальше...   )Жанр: Meditation, Piano, New AgeПродолжительность: 03:54:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD3785B60C715CCE7319E1BE907960B4D61F73C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443024   (1036009) от 27.01.2021
+
+DJ Chill del Mar - Fresh Mix Chillout 2021 [FLAC|Lossless|WEB-DL|tracks] <New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fresh Mix Chillout 2021 (3:39)
+02. Lounge Chillout House (3:41)
+03. Hot Winter Party (3:43)
+04. Cool Drinks and Hot Girls (3:43)(   Читать дальше...   )Жанр: New ageПродолжительность: 01:13:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C147765482517699476D883E01A37B0673DC09B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443332   (1035730) от 28.01.2021
+
+Langhorne Slim - Strawberry Mansion (2021) [FLAC|Lossless|tracks + .cue] <Folk, Indie, Americana>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mighty Soul (01:57)
+02. Dreams (02:19)
+03. No Right Way (02:30)
+04. Lonesome Times (01:53)(   Читать дальше...   )Жанр: Folk, Indie, AmericanaПродолжительность: 00:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:030238033B3B5F5870E24D92C89A29250A9D6A20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444124   (1034913) от 31.01.2021
+
+VA-Enigmatica II / DJ Fact`ry volume 2 (2001) [FLAC|Lossless|tracks + .cue] <Enigmatic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meduzza - Fly Away 5:19
+02. Underground Spirits - Last Exile 4:38
+03. L.C. Puma - Coral Dream 7:27
+04. Lexus - Blind Fantasy 4:39(   Читать дальше...   )Жанр: Enigmatic, New AgeПродолжительность: 00:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:996629C1ED1717BE08790CDBAA676ECC6C3A8E48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443283   (1034891) от 31.01.2021
+
+FolkBeat (FolkBeat RF) - Collection (2 Album, 3 EP, 6 Singles) (2015-2020) [FLAC|Lossless|tracks] <Folk, Electronic, Pop, Dance>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российская музыкальная группа, выступающая на стыке электронной и фолк-музыки. Группа FOLKBEAT была образована студентками музыкального училища Гнесиных Аленой Минулиной, отвечающей за вокал, битбокс, loop station и вокалистками Светланой Шестопаловой, Светланой Ивановой, Марией Зибровой. Музыканты выступают как с собственными произведениями, так и с народными песнями.Коллекция содержит 2 альбома, 3 EP, 6 Синглов
+2015 - In Mixt
+2016 - Светлая встреча
+2015 - Порушка(   Читать дальше...   )Жанр: Folk, Electronic, Pop, DanceПродолжительность: 02:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFD53192941B07951A6C3DC18B348C2805FFE05A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617377   (1034797) от 08.03.2023
+
+Relax Time Zone - Bathroom Wellbeing Relax with Calm Piano (2023) [FLAC|Lossless|tracks] <Relax, Chillout, Jazz>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old Days (3:20)
+02. Better Future (3:07)
+03. Prepare Great Meal (3:33)
+04. Melancholy Mood (3:02)(   Читать дальше...   )Жанр: Relax, Chillout, JazzПродолжительность: 00:53:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2686958339FB11848402843BB62C226840CFCB25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617498   (1034731) от 08.03.2023
+
+VA - Enigma-Forest-Transit 5 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Wave>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Megabyte - Electric Lover
+02. Interface - Strange Touch
+03. Dancing Fantasy - Voodoo Jammin (The Eros Mix)
+04. Software - Present Voice(   Читать дальше...   )Жанр: Electronic, Ambient, New WaveПродолжительность: 01:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:970CEA88FE6E2CA46FC22CF3BB2325C7938FA93B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617225   (1034538) от 09.03.2023
 
 VA - Enigma-Forest-Transit 4 (1998) [OGG Vorbis|480 Kbps] <Electronic, New Age, Downtempo>
@@ -6,7 +267,7 @@ VA - Enigma-Forest-Transit 4 (1998) [OGG Vorbis|480 Kbps] <Electronic, New Age, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034538.jpg" />
 </div>
 
 
@@ -35,7 +296,7 @@ VA - Enigma-Forest-Transit 3 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034536.jpg" />
 </div>
 
 
@@ -64,7 +325,7 @@ Blackmore's Night - Shadow of the Moon (1997) 25th Anniversary Edition, 2023, Mi
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1034352.jpg" />
 </div>
 
 
@@ -93,7 +354,7 @@ Yakuro - The Best (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Downtempo>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033969.jpg" />
 </div>
 
 
@@ -122,7 +383,7 @@ Flaer Smin - The Best (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033513.jpg" />
 </div>
 
 
@@ -151,7 +412,7 @@ Flaer Smin - Karma (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033506.jpg" />
 </div>
 
 
@@ -180,7 +441,7 @@ Yakuro - My Space (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033495.jpg" />
 </div>
 
 
@@ -209,7 +470,7 @@ Baran Yildiz - Interbeing (2019) [FLAC|Lossless|WEB-DL|tracks] <Handpan, World, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033396.jpg" />
 </div>
 
 
@@ -238,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033392.jpg" />
 </div>
 
 
@@ -267,7 +528,7 @@ VA - Romantic Piano - the Rose (1999) [FLAC|Lossless|image + .cue] <Instrumental
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033276.jpg" />
 </div>
 
 
@@ -296,7 +557,7 @@ Deguess - Chillstep Piano Renditions Vol. 1 (2014) [FLAC 2.0|24/44.1|tracks|WEB-
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033267.jpg" />
 </div>
 
 
@@ -325,7 +586,7 @@ Wardruna - Kvitravn (2021) [FLAC 2.0|24/48|tracks + .cue|WEB-DL] <Nordic, Ambien
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033248.jpg" />
 </div>
 
 
@@ -354,7 +615,7 @@ Amure (Alexey Khatsko) - Дискография (2010-2020) [FLAC|Lossless|WEB|t
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033234.jpg" />
 </div>
 
 
@@ -383,7 +644,7 @@ Yulia Monastyrenko - Reflection (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, P
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032507.jpg" />
 </div>
 
 
@@ -412,7 +673,7 @@ VA - Enigma-Forest-Transit 13 (1999) [OGG Vorbis|480 Kbps] <Electronic, Ambient,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032497.jpg" />
 </div>
 
 
@@ -441,7 +702,7 @@ Blackmore's Night - Shadow Of The Moon (2023) 25th Anniversary Edition [FLAC|Los
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032492.jpg" />
 </div>
 
 
@@ -471,7 +732,7 @@ VA - A Cup of Chocolat Piano Winter Music (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031654.jpg" />
 </div>
 
 
@@ -485,264 +746,6 @@ VA - A Cup of Chocolat Piano Winter Music (2021) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33FC095A18B9D74CDB8ABEA5203A10421FE7D0FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447855   (1031331) от 15.02.2021
-
-Go_A - Шум (2021) [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шум (03:59)Жанр: Folk-RockПродолжительность: 00:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F5AED14D17650A0C57F87EF4C3E6817B3867C90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620541   (1031194) от 24.03.2023
-
-VA - Spring Break 2023: Country Hits (2023) [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luke Bryan - Country Girl (Shake It For Me)
-02. Little Big Town - Day Drinking
-03. Josh Ross - Tall Boys
-04. Florida Georgia Line - Sun Daze(   Читать дальше...   )Жанр: CountryПродолжительность: 03:20:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38D2E4E0CCF1A0EC8199C89C0CE07C90E2858629
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447777   (1031010) от 16.02.2021
-
-Sina Vodjani - Священный Будда (1998) Правительство Звука, 2002 [FLAC|Lossless|tracks + .cue] <World, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031010.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот альбом Sina Vodjani вдохновили духовные наставники Мата Амританандамай и Его Святейшество, 17 Кармапа. "Эти люди изменили мою жизнь, - говорит музыкант. - Своей музыкой я всегда пытался донести до людей свет, мир, надежду и благословение. Выпуская компакт-диски, я также могу оказывать материальную поддержку тем, кто в ней нуждается, делать пожертвования (   Читать дальше...   )01. Straight to the Heart (8:10)
-02. Om Mani Padme Hung (5:47)
-03. Milarepa (5:38)
-04. Dorje Chang (3:35)(   Читать дальше...   )Жанр: World, New AgeПродолжительность: 01:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F48B3DA59F5DEBE29265FDC46C3D4E41FFDA297C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448174   (1030910) от 17.02.2021
-
-The Harmony Group - Spanish Guitar Tribute to Abba (2007) Brisa Records, 2015 [FLAC|Lossless|WEB-DL|tracks] <Pop, Guitar, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chiquitita (Instrumental) (4:43)
-02. Gimme Gimme Gimme! (Instrumental) (4:06)
-03. Mamma Mia (Instrumental) (3:28)
-04. Super Trouper (Instrumental) (4:14)(   Читать дальше...   )Жанр: Pop, Guitar, InstrumentalПродолжительность: 01:22:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2CE098FFDF270F21BC8776589B1F2904C927DC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 314732   (1030601) от 18.02.2021
-
-Bernd Steidl - Paganiniana (2001) [FLAC|Lossless|image + .cue] <Instrumental, Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hrx 		        (00:25)
-02. Made in Germany 	(03:06)
-03. Apocalypse 		(04:51)
-04. Paganiniana 1 	(02:02)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 00:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09D78677D48A73194545776A0E48661E5DB5DC34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288570   (1030598) от 18.02.2021
-
-VA - Original Musette (2000) [FLAC|Lossless|image + .cue] <Instrumental, Accordion>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Le p'tit bal du samedi soir (02:39)
-02. Caroussel Java 		(02:51)
-03. Java Militaire 		(02:19)
-04. La Java Bleue 		(02:46)(   Читать дальше...   )Жанр: Instrumental, AccordionПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AE378FF2B6741713BA0298852237A6D79FC21DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 257665   (1030590) от 18.02.2021
-
-VA - Tango Planet – The Best Of Tango (1998) [FLAC|Lossless|image + .cue] <Tango>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Cumparasita - Julio Cortazon Orchestra 	(03:20)
-02. Adios Muchachos - Julio Cortazon Orchestra 	(01:39)
-03. El Choclo - Alle Gould Orchestra 		(02:18)
-04. Rio De La Plata - Armand Frydman & Deni Hekimian 		(02:20)(   Читать дальше...   )Жанр: TangoПродолжительность: 01:11:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E323A2A5ADFE709876BF18B6C60D282B3304D13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 354958   (1030589) от 18.02.2021
-
-Валерий Приказчиков - 2 альбома (2004, 2008) [FLAC|Lossless|image + .cue, tracks] <Surf, Beat>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дебют квартета «Электрон» состоялся в 1963 году в эфире популярной в то время радиостанции «Юность». Участники «Электрона» в разное время учились в музыкальных школах, В. Приказчиков и Е. Гусев занимались в музыкальном училище при Московской консерватории по классу гитары. Но настоящую школу они получили в художественной самодеятельности, в ансамбле гитаристов, которым (   Читать дальше...   )01. Электрон - Вернись 			  (1965) (02:33)
-02. Электрон - Мелодия из к-ф 'Бум' 	  (1965) (02:37)
-03. Электрон - Солнечные часы 		  (1966) (02:35)
-04. Электрон - Веселые туристы 		  (1966) (02:02)(   Читать дальше...   )Жанр: Surf, BeatПродолжительность: 01:18:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE961A8C2B3D5037F1CDA677636D71B9BC8C11B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 295442   (1030584) от 18.02.2021
-
-Оркестр Вермишель - 5 альбомов (1996 - 2010) [FLAC|Lossless|tracks + .cue, image + .cue] <Instrumental, Ethno-Art-Rock>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030584.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Оркестр Вермишель» («Vermicelli Orchestra») — российский инструментальный ансамбль, этно-арт-рок проект. Основатель коллектива и основной автор музыки — Сергей Щураков. Группа образована в 1996 году, состав группы менялся несколько раз и окончательно сформировался к 2000 году. В составе группы играли Илья Порхунов, Виталий Семенов, Наиль Кадыров, Всеволод Гаккель, (   Читать дальше...   )Список альбомов:
-1996 (2001) - Anabasis
-1999 - Византия
-2005 - Марк Аврелий(   Читать дальше...   )Жанр: Instrumental, Ethno-Art-RockПродолжительность: 03:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4ABBE4CD0A8CBE7AA946D345E2223AB9E9FE9F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

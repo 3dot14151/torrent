@@ -1,3 +1,57 @@
+###  Публикация: 1277337   (756692) от 05.02.2019
+
+Глубокий сон / The Big Sleep (1946) BDRip [H.265/1080p-LQ] [10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто-то шантажирует Кармен, распутную младшую дочь старого генерала Стернвуда, и тот нанимает частного детектива Марлоу, чтобы найти и отвадить вымогателей. Тому никак не удаётся выполнить задание — всех подозреваемых поочередно убивают.
+Старшая дочь генерала Вивиан предлагает свою помощь Марлоу, но на чьей она стороне? Таинственная, жесткая, непредсказуемая и сексапильная (   Читать дальше...   )Производство: США / Warner Bros. PicturesЖанр: Фильм-нуар, Триллер, ДетективРежиссер: Ховард ХоуксАктеры: Хамфри Богарт, Лорен Бэколл, Джон Риджли, Марта Викерз, Дороти Мэлоун, Пегги Надсен, Режис Туми, Чарльз Валдрон, Чарльз Д. Браун, Боб СтилПеревод: Многоголосый закадровый x3, Одноголосый закадровый x2Субтитры: русские (полные), английские (полные, для слабослышащих)Продолжительность: 01:53:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:055A10CFA31C2A88CF09AE0214174C4165FA6623
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277281   (756574) от 05.02.2019
+
+Бен / Ben (1972) BDRemux [H.264/1080p] [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой парень Дэвид Гаррисон связывается с бандой крыс, обученных и натренированных опасным и ужасным Беном.
+Продолжение фильма Уиллард / Willard 1971Производство: США / Bing Crosby ProductionsЖанр: Ужасы, триллерРежиссер: Фил КарлсонАктеры: Ли Монтгомери, Джозеф Кампанелла, Артур О’Коннелл, Розмари Мерфи, Мередит Бакстер, Каз Гарас, Пол Карр, Ричард Ван Влит, Кеннет Тоби, Джеймс ЛуизиПеревод: Любительский двухголосыйСубтитры: Русские, английскиеПродолжительность: 01:34:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4597B5035393E4575A54C93FD7D1B513E64835B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430625   (756330) от 08.01.2022
 
 Чудо на 34-ой улице / Miracle on 34th Street (1947) BDRip [H.265/1080p] [10-bit]
@@ -6,7 +60,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756330.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756003.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755909.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755415.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755059.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753185.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752798.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_751334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_751334.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750724.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750372.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749682.jpg" />
 </div>
 
 
@@ -296,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749093.jpg" />
 </div>
 
 
@@ -322,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747498.jpg" />
 </div>
 
 
@@ -348,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746431.jpg" />
 </div>
 
 
@@ -374,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745888.jpg" />
 </div>
 
 
@@ -400,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745831.jpg" />
 </div>
 
 
@@ -427,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745177.jpg" />
 </div>
 
 
@@ -453,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744896.jpg" />
 </div>
 
 
@@ -479,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744322.jpg" />
 </div>
 
 
@@ -506,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743962.jpg" />
 </div>
 
 
@@ -532,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743813.jpg" />
 </div>
 
 
@@ -558,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743227.jpg" />
 </div>
 
 
@@ -584,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742846.jpg" />
 </div>
 
 
@@ -610,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742143.jpg" />
 </div>
 
 
@@ -621,59 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A89E15040A55C949E1A715D64A3A86CFBB3FEF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021163   (742072) от 28.05.2016
-
-Сломанное копье / Broken Lance (1954) BDRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отсидев три года в Аризонской тюрьме, ковбой Джо Деверо выходит на свободу. Он встречается своих трех сводных братьев — Бена, Майка и Денни, которые забросили сельскую жизнь, переехали в город и за время его отсутствия давно поделили семейные земли между собой. В кабинете губернатора городка братья пытаются уговорить Джо, чтобы он покинул штат, они даже готовы заплатить (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: Приключения, ВестернРежиссер: Эдвард ДмитрикАктеры: Спенсер Трэйси, Роберт Вагнер, Джин Питерс, Ричард Уидмарк, Кати Хурадо, Хью О’Брайан, Эдуард Франц, Эрл Холлиман, Э. Г. Маршалл, Карл Бентон РейдПеревод: Многоголосый закадровый, авторскийЯзык субтитров: АнглийскийПродолжительность: 01:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29998465C565E9808C75F459B72AB74AE3939A45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216424   (741935) от 05.04.2018
-
-Мятеж на Баунти / Mutiny on the Bounty (1962) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет основан на романе Чарльза Нордхоффа и Джеймса Нормана Холла.  Ремейк классического фильма 1935 года о событиях на корабле «Баунти».
-Британское Королевское судно «Баунти» под командованием капитана Уильяма Блая (Тревор Ховард) производит доставку саженцев хлебного дерева с Таити на Ямайку. Капитан всеми силами старается выполнить приказ и доставить груз в кратчайшие (   Читать дальше...   )Производство: США. Arcola Pictures, Metro-Goldwyn-MayerЖанр: Драма, ПриключенияРежиссер: Льюис Майлстоун, Кэрол РидАктеры: Марлон Брандо, Тревор Ховард, Ричард Харрис, Хью Гриффит, Ричард Хейдн, Тарита, Перси Херберт, Дункан Ламонт, Гордон Джексон, Чипс Рафферти, Анна ЛиПеревод: Многоголосый закадровыйСубтитры: Русские, английскиеПродолжительность: 03:05:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FE3423C93DE1F376F31C3E3E0B7F31D56954E29
 ```
 
 https://mybot314.ru/tekegram_catalog/

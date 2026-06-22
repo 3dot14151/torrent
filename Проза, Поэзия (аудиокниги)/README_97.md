@@ -1,3 +1,85 @@
+###  Публикация: 1753551   (41359) от 05.10.2024
+
+Игорь Куберский | Лола (2004) [MP3, Борис Хасанов]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы «Лола», «Бианка» и «Ингрид», вошедшие в сборник известного петербургского прозаика Игоря Куберского, представляют собой довольно редкий для современной русской прозы жанр эротического приключения, когда следить за экстремальными, на грани жизни и смерти, ситуациями, в которые попадает главный герой, ничуть не менее интересно, чем за его любовными похождениями. (   Читать дальше...   )Жанр: Русская литература, рассказИздательство: Вира-М (аудио)Продолжительность: 02:07:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF1442CCFBAC650FB98F2DE3786C8DCCE5A56EC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 378269   (41217) от 07.10.2024
+
+Милорад Павич | Ящик для письменных принадлежностей (2006) [MP3, Дарья Мороз]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Современная литература, Искусство таро
+Милорад Павич (1929–2009) – сербский прозаик, поэт и литературовед.
+Название произведения «Ящик для письменных принадлежностей», по сути, определяет структуру этого необычного и захватывающего романа. Открывая один за другим ящички, где хранятся почтовые открытки, прядь волос, глиняная трубка или судовой журнал, (   Читать дальше...   )Жанр: Зарубежная литература, романПеревод: Лариса СавельеваИздательство: Издательский дом «Союз»Продолжительность: 03:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB03EAADD66AAC3A873247C6DF8FD502166F197
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 378264   (41216) от 07.10.2024
+
+Милорад Павич | Последняя любовь в Константинополе (2006) [MP3, Сергей Чонишвили]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Современная литература, Искусство таро.
+Милорад Павич (1929–2009) – сербский прозаик, поэт и литературовед.
+Роман «Последняя любовь в Константинополе», состоящий из частей, озаглавленных по названию карт Таро, продолжает особую игру между автором и читателем, начатую Павичем в его предыдущих произведениях. Так, «Пейзаж, нарисованный чаем» – это роман (   Читать дальше...   )Жанр: Зарубежная литература, романПеревод: Лариса СавельеваИздательство: Издательский дом «Союз»Продолжительность: 04:15:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12CF9CD291875C0C2B7D06B3F76150D007A6B715
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753932   (41180) от 07.10.2024
 
 Милорад Павич | Внутренняя сторона ветра. Роман о Геро и Леандре (2024) [MP3, Владимир Лесных]
@@ -6,7 +88,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41180.jpg" />
 </div>
 
 
@@ -34,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40933.jpg" />
 </div>
 
 
@@ -60,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40745.jpg" />
 </div>
 
 
@@ -87,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40740.jpg" />
 </div>
 
 
@@ -114,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39947.jpg" />
 </div>
 
 
@@ -140,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39914.jpg" />
 </div>
 
 
@@ -167,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39542.jpg" />
 </div>
 
 
@@ -195,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38139.jpg" />
 </div>
 
 
@@ -222,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38072.jpg" />
 </div>
 
 
@@ -250,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38070.jpg" />
 </div>
 
 
@@ -279,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37985.jpg" />
 </div>
 
 
@@ -306,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34631.jpg" />
 </div>
 
 
@@ -332,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31160.jpg" />
 </div>
 
 
@@ -360,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31040.jpg" />
 </div>
 
 
@@ -388,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31038.jpg" />
 </div>
 
 
@@ -416,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29885.jpg" />
 </div>
 
 
@@ -444,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29129.jpg" />
 </div>
 
 
@@ -470,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26243.jpg" />
 </div>
 
 
@@ -496,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25017.jpg" />
 </div>
 
 
@@ -522,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24893.jpg" />
 </div>
 
 
@@ -548,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21032.jpg" />
 </div>
 
 
@@ -574,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21002.jpg" />
 </div>
 
 
@@ -602,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20794.jpg" />
 </div>
 
 
@@ -613,88 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F71E53016E703ADF2A91EF72A30E91D4A8F5B5EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779083   (20261) от 25.04.2025
-
-Василь Быков | Блиндаж (2014) [OPUS, Валерий Стельмащук]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не так давно в домашнем архиве Василя Быкова была обнаружена неоконченная повесть “Блиндаж”, написанная им еще в 1987 году. Библиотечка журнала “Дзеяслоў” (Минск) в 2007 году издала эту повесть отдельной книжкой. Подготовил её к публикации Алесь Пашкевич. Он упорядочил текст, из авторских набросков “смонтировал” план заключительных разделов.Жанр: Военная прозаИздательство: Аудиокнига своими рукамиПродолжительность: 03:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82BA6D092E3AAA36F1609BF1F4C0714DF99BE229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810196   (17597) от 03.08.2025
-
-Маргарита Дюжева | Только не плачь (2022) [MP3, Татьяна Борисова]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Она: Я буду стоять в стороне. Ловить твой взгляд. Смотреть, как ты держишь за руку другую. Я сама отдала тебя ей. Отказалась. Предала. Опустилась на самое дно. Лишь бы ты жил. Остальное не важно.
-
-Он: Увидел тебя и пропал. Нежная, хрупкая, чистая. Весь мир был готов швырнуть к твоим ногам. А ты… Я заберу у тебя все самое ценное. То, ради чего стоит жить. По кускам (   Читать дальше...   )Жанр: современные любовные романыИздательство: ИДДКПродолжительность: 09:17:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F75BA784088FCE968703C924B3AC64F88EAA3E71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811194   (16520) от 08.08.2025
-
-Андрей Платонов | Дед-солдат. Неодушевлённый враг (2025) [MP3, Вячеслав Захаров и др.]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Театр у вас дома.
-Андрей Платонович Платонов (1899–1951) – русский, советский писатель, поэт, публицист, драматург, сценарист, журналист, военный корреспондент и инженер. Участник Великой Отечественной войны.
-Рассказ «Дед-солдат» (1941). «Дед долго жил на свете и так привык жить, что забыл о смерти и никогда не собирался помирать. Все его дети и родные (   Читать дальше...   )Жанр: Русская литература, военная проза, рассказИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4774CB594626D39E69E6818AEFBD9EFBFDB3C24
 ```
 
 https://mybot314.ru/tekegram_catalog/

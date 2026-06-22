@@ -1,3 +1,424 @@
+###  Публикация: 1194040   (213834) от 23.12.2017
+
+Снеговик / The Snowman (2017) WEB-DLRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213834.jpg" />
+</div>
+
+
+###  Подробнее
+
+В течение многих лет в день, когда выпадает первый снег, бесследно исчезают замужние женщины. Сложить все части загадочного пазла под силу только знаменитому детективу. Он потерял покой и сон, ведь время следующего снегопада неумолимо приближается.Производство: Великобритания, США, ШвецияЖанр: Ужасы, триллер, драма, криминал, детективРежиссер: Томас АльфредсонАктеры: Майкл Фассбендер, Ребекка Фергюсон, Шарлотта Генсбур, Йонас Карлссон, Майкл Йэтс, Ронан Вайберт, Дж.К. Симмонс, Вэл Килмер, Давид Денсик, Тоби ДжонсПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  РусскиеПродолжительность: 1:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8400066FC8BA1BB047847D7E2F770DB74BB133C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515099   (213820) от 05.12.2021
+
+VA - Seduction (Chill out Dreams), Vol. 1 (2021) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Diventa Project - Into the Deep (Lazy Hammock Mix) (3:38)
+02. Schwarz & Funk - 5 AM (Original Mix) (5:12)
+03. Maximus, Ensemble Ethnique - Mystery of the Seven Chakras (Original Mix) (3:07)
+04. Peter Pearson - Lost in the Ether (Original Mix) (3:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:28:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:326738C85B423C6F7022C0973119B2AC89E3EA9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515081   (213817) от 05.12.2021
+
+VA - Bossa Lounge Covers (2021) [AAC|~339 Kbps] <Lounge, Downtempo, Bossa Nova, Nu Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zerosospiro - Crazy Little Thing Called Love (3:26)
+02. Banda Brasileira - Stars (3:57)
+03. Silvia Donati, Bossa Nostra - Roxanne (Nao Ligar) (2:52)
+04. Papik, Dario Daneluz, Alan Scaffardi - That's The Way Of The World (5:20)(   Читать дальше...   )Жанр: Lounge, Downtempo, Bossa Nova, Nu JazzПродолжительность: 03:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F86DAA394BF8458D6B1295A9178DF39D7EDF4140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515088   (213749) от 05.12.2021
+
+VA - Dune 1 (2018) [AAC|~317 Kbps] <Chill Out, Downtempo, Organic House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elias Fassos, RisK (Gr) - Anatolia (7:39)
+02. Billy Esteban - Cobra Dance (4:02)
+03. Elias Fassos, RisK (Gr) - Manangel (5:57)
+04. Ali Baba - Dune (Eastern Road) (4:51)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic HouseПродолжительность: 01:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85B192AE5A243A9C1C3EAD40507161526E35848E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426575   (213733) от 25.11.2020
+
+Andrea Scala - Coming Back, Leaving Again (2020) [AAC|~336 Kbps] <Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrea Scala, Roberto Tarenzi - Synthesis (3:08)
+02. Andrea Scala, Francesco Puglisi - Trees (5:30)
+03. Andrea Scala, Roberto Tarenzi - Out Here (5:22)
+04. Andrea Scala, Nicola Costa, Francesco Puglisi - Overnight Walk (5:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:200D8358D35F362269A96D3201388F2184663ADE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426586   (213723) от 25.11.2020
+
+Giovanni Cigui - Rock (2020) [AAC|~360 Kbps] <Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock (3:57)
+02. The Way You Say I Think You Think (4:08)
+03. The Cat and the Garlic (4:01)
+04. Hackney Fields (3:59)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90475FDE6DD9DEECE4E62E6340C6922D8E99E2E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426577   (213719) от 25.11.2020
+
+Giovanni Cigui - Cheewi Beats (2020) [AAC|~344 Kbps] <Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Interlude (Slow) (4:04)
+02. Gian (0:33)
+03. Nine Riders (4:49)
+04. Beat Force (4:41)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A898446C9DD29CBE2D4350D937857ED8F90F4016
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515090   (213709) от 05.12.2021
+
+VA - Dune 2 (2019) [AAC|~326 Kbps] <Chill Out, Downtempo, Organic House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. T-Puse - Changes (7:12)
+02. Martin Hiska - Dust (4:59)
+03. Wassim Younes - Lost Wonders (7:16)
+04. Khaikhan - Fly To India (7:02)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic HouseПродолжительность: 02:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0BF69EDF3FB400A89590C4502E3EC70995A97FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515092   (213703) от 05.12.2021
+
+VA - Dune 3 (2021) [AAC|~338 Kbps] <Chill Out, Downtempo, Organic House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stéphane Salerno, Cafe De Anatolia - Majda (Ask Remix) (7:08)
+02. Jad Halal, Cafe De Anatolia - Amonium Nitrate (5:47)
+03. OrkidZ, Cafe De Anatolia - Camel Ride (5:03)
+04. Nikko Sunset, Dim Angelo - Marvel (4:09)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic HouseПродолжительность: 01:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB0C16CFEAAAA4ED9E6F8E200B4BDF68E9C78384
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426557   (213599) от 25.11.2020
+
+Elton John - Jewel Box (2020) [AAC|~289 Kbps] <Pop, Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213599.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Elton John and Leon Russell - Monkey Suit (4:45)
+1.02. Where To Now St. Peter? (4:14)
+1.03. Mellow (5:32)
+1.04. The Ballad Of Danny Bailey (1909-34) (4:22)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 09:58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2D281F3714140B8C59748FB0333D2F73AB9A15B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 698095   (210865) от 09.08.2022
+
+Pink Floyd - The Best of Pink Floyd: A Foot In the Door (2011) Remastered [AAC|WEB-DL|256 кб/с]<Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey You	(4:40)
+02. See Emily Play	(2:49)
+03. The Happiest Days of Our Lives	(1:33)
+04. Another Brick In the Wall, Pt. 2	(3:49)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0EDEE8F0875DDEDFBCAFAAF624AC53C76B10645
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571109   (210178) от 20.08.2022
+
+Дневная смена / Day Shift (2022) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210178.jpg" />
+</div>
+
+
+###  Подробнее
+
+История трудолюбивого отца, который пытается обеспечить лучшую жизнь 8-летней дочери. Вот только его дневная работа уборщиком бассейнов — лишь прикрытие. Он зарабатывает, выслеживая и убивая вампиров.Производство: США / 87Eleven Entertainment, Impossible Dream EntertainmentЖанр: ужасы, боевик, комедияРежиссер: Дж.Дж. ПерриАктеры: Джейми Фокс, Дэйв Франко, Наташа Лю Бордиццо, Миган Гуд, Карла Соуса, Стив Хоуи, Скотт Эдкинс, Оливер Мазуччи, Снуп Догг, Эрик ЛанжПеревод: Многоголосый профессиональный, дублированныйСубтитры: Русские, украинские, английскиеПродолжительность: 01:53:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97FBAAD91111D5F4DA169987A4C455A26178B1D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571437   (209993) от 22.08.2022
+
+Военные игры / WarGames (1983) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хакеру повезло: он влез в компьютерную сеть Пентагона и стал играть в «войну». Операторы военного ведомства, а вслед за ними и командование решили, что русские начинают Третью мировую войну, и стали готовить ответный удар. Осознав, ЧТО он натворил, парень хочет прекратить игру, однако сделать это оказывается не так просто.Производство: США / Sherwood Productions, United ArtistsЖанр: фантастика, боевик, триллер, драма, приключенияРежиссер: Джон БэдэмАктеры: Мэттью Бродерик, Дэбни Коулмен, Джон Вуд, Элли Шиди, Бэрри Корбин, Уанин Клей, Кент Уильямс, Деннис ЛипскомПеревод: Дублированный, многоголосый профессиональный, двухголосый профессиональныйСубтитры: Русские, английскиеПродолжительность: 01:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE4D9ABB5F29B9DD558795DFC563FC9E2C130947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605176   (209774) от 17.01.2023
+
+Мимино (1977) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Отечественное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209774.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Мимино» — по-грузински «сокол». Так называют друзья героя фильма, летчика Валико Мизандари, по воле режиссера то и дело попадающего в смешные, грустные, а порой драматические ситуации.
+Работая в родном горном селении, Мимино перевозит на вертолете почту, фрукты, овец. Но он давно мечтает о настоящей, большой авиации. Наконец ему удается воплотить свою мечту в жизнь…Производство: CCCP / Мосфильм, Грузия-фильмЖанр: драма, комедияРежиссер: Георгий ДанелияАктеры: Вахтанг Кикабидзе, Фрунзик Мкртчян, Елена Проклова, Евгений Леонов, Руслан Микаберидзе, Закро Сахвадзе, Марина Дюжева, Арчил Гомиашвили, Валентина Титова, Владимир БасовПеревод: Не ребуется (русский)Субтитры: Русские, французские, английскиеПродолжительность: 01:31:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7294FC249182DC6B3AAD38409D4785A2794D821
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580803   (206674) от 03.10.2022
+
+Гарри Гаррисон | Сборник (11 книг). Стальная Крыса (2022) [M4B|AAC, Кирилл Петров и др.]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия научно-фантастических юмористических произведений Гарри Гаррисона о похождениях в отдалённом будущем ловкого галактического мошенника Джеймса Боливара Ди Гриза по прозвищу «Скользкий Джим» и «Стальная Крыса»Жанр: ФантастикаФормат: M4BПродолжительность: 81:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A973546D610D5BECBB2D4961374F5B73A607BE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582572   (206239) от 10.10.2022
 
 Роман Прокофьев | Стеллар (Книга 9). Прометей (2022) [M4B|AAC,  Алиса Тверская, Олег Кейнз]
@@ -6,7 +427,7 @@
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206239.jpg" />
 </div>
 
 
@@ -32,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204779.jpg" />
 </div>
 
 
@@ -58,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202596.jpg" />
 </div>
 
 
@@ -84,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199522.jpg" />
 </div>
 
 
@@ -111,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка Lossless (ALAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198453.jpg" />
 </div>
 
 
@@ -140,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192206.jpg" />
 </div>
 
 
@@ -166,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_186015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186015.jpg" />
 </div>
 
 
@@ -195,7 +616,7 @@ VA - Золотые застольные песни (2006) [AAC|~300 Kbps] <Pop,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185904.jpg" />
 </div>
 
 
@@ -224,7 +645,7 @@ Shygirl - ALIAS (2020) [AAC|~312 Kbps] <Electronic, Grime, Experimental>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185478.jpg" />
 </div>
 
 
@@ -253,7 +674,7 @@ Shakatak - All Around The World - 40th Anniversary Edition (2020) [AAC|~315 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185416.jpg" />
 </div>
 
 
@@ -282,7 +703,7 @@ BTS - BE (2020) [AAC|~318 Kbps] <kpop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185392.jpg" />
 </div>
 
 
@@ -296,438 +717,6 @@ BTS - BE (2020) [AAC|~318 Kbps] <kpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89601B3E332E28EF7DAE0135E5B561F6C4E4EEC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426822   (185278) от 26.11.2020
-
-Крематорий - Hits Hotel (2019) [AAC|~355 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Крематорий (1:54)
-02. Ангел (3:22)
-03. Супермаркет (3:44)
-04. Маша (2:51)(   Читать дальше...   )Жанр: RockПродолжительность: 01:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A98DB692FD2DF3416841EB5D1E278C80F1F1E353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427034   (185247) от 26.11.2020
-
-Parov Stelar - Voodoo Sonic (The Album) (2020) [AAC|~310 Kbps] <Electro, Jazz, Swing>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185247.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Silver Line (2:59)
-1.02. Parov Stelar, Georgia Gibbs - Tango Del Fuego (3:04)
-1.03. Pink Dragon (4:23)
-1.04. Purple Moon (2:49)(   Читать дальше...   )Жанр: Electro, Jazz, SwingПродолжительность: 01:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6315E28F9419F661CF8ED842F14C5E688A01291F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426999   (185084) от 26.11.2020
-
-Новые мутанты / Люди Икс: Новые мутанты / The New Mutants (2020) BDRip [1080p] ATV3
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185084.jpg" />
-</div>
-
-
-###  Подробнее
-
-После нашествия на её резервацию загадочного торнадо и гибели отца Дэниель Мунстар приходит в себя связанной на больничной койке. Доктор Рейес сообщает девушке, что она - единственная выжившая, и теперь вместе с четырьмя подростками находится в специализированном учреждении, где их изучают и учат контролировать свои сверхспособности. Вскоре Дэни выясняет, что покинуть (   Читать дальше...   )Производство: США / 20th Century Studios, Marvel Entertainment, TSG EntertainmentЖанр: Ужасы, фантастика, боевикРежиссер: Джош БунАктеры: Блю Хант, Алиси Брага, Мэйси Уильямс, Аня Тейлор-Джой, Чарли Хитон, Генри Зага, Адам Бич, Томас Ки, Колби Ганнетт, Хэппи АндерсонПеревод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:34:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AA710DB0226F4C08EA293C054D3BB6FF56A87DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427124   (184520) от 27.11.2020
-
-Koan - Munchausen Trilemma (Side A) (2020) [AAC|~325 Kbps] <Ambient, Chillout, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mendace Veritas? (7:27)
-02. Fern Thicket (Blue Mix) (8:55)
-03. Can You Lift Yourself Up by Your Hair? (8:36)
-04. The Mirror of Lady Fragrantia (8:52)(   Читать дальше...   )Жанр: Ambient, Chillout, DowntempoПродолжительность: 01:31:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B9B1CD05E5E178632536185FFDE1EBAA856D17C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427291   (184518) от 27.11.2020
-
-Сборная Союза, Майя Подольская - Ты будешь мой (2020) [AAC|~325 Kbps] <Chanson, Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты будешь мой! (3:20)
-02. Слепая любовь (4:05)
-03. Девчонка-весна (3:49)
-04. Возьмёшь, когда захочешь! (4:17)(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 01:31:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:970BEAA5EDC8E5701F0B6E41C8A7EEC5D3D93B91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427127   (184484) от 27.11.2020
-
-Koan - Munchausen Trilemma (Side B) (2020) [AAC|~320 Kbps] <Ambient, Chillout, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Koan - Deep Koan (Koan Remix) (7:08)
-02. Commitment (Roeth & Grey Remix) (8:37)
-03. How Big Is a Blue Whale (8:46)
-04. Thawed Sounds (8:54)(   Читать дальше...   )Жанр: Ambient, Chillout, DowntempoПродолжительность: 01:23:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B3CC0DD69D61D93347B8D5EE812F40B1A915DA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427300   (184474) от 27.11.2020
-
-Сборная Союза - Золотые оба (2020) [AAC|~342 Kbps] <Chanson, Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Золотые оба (3:47)
-02. Барбарисовый чай (3:43)
-03. Мне с тобой повезло (3:43)
-04. Тот кому повезло с женой (3:27)(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 01:11:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01178E831A7A3608831CB52481B96CB68227E403
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427225   (184414) от 27.11.2020
-
-VA - Deep Sleep Lounge: Chillout Your Mind (2020) [AAC|~313 Kbps] <Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Estación Del Mar - A La Sombra De Un Roble (4:25)
-02. Finland & Aaskoven - Beauty and the Abyss (5:40)
-03. La Estación Del Mar - Descalzo Sobre La Hierba (4:33)
-04. Peter Pearson - Always in My Dream (Original Mix) (5:41)(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 01:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CB6F49DCA385D34462F959AE9F813DB809A7CB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427155   (184354) от 27.11.2020
-
-Roxette - Bag Of Trix Vol. 3 (Music From The Roxette Vaults) (2020) [AAC|~336 Kbps] <Pop, Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Piece Of Cake (3:16)
-02. You Don't Understand Me (Abbey Road Sessions November 15, 1995) (3:42)
-03. Dangerous (Swedish Single Version 1989) (3:46)
-04. Every Day (Studio Vinden Demo March 2000) (3:22)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFF4B974B6AE4055971DC41C97D4E0D6329FB76D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427237   (184314) от 27.11.2020
-
-Wayne Static - Pighammer (2011) [AAC|~344 Kbps] <Industrial>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pighammer (0:28)
-02. Around the Turn (2:27)
-03. Assassins of Youth (3:13)
-04. Thunder Invader (4:47)(   Читать дальше...   )Жанр: IndustrialПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D760D4DD72A7AED6634C0D47DDFEACB9A8DE6CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427079   (184216) от 27.11.2020
-
-Сергей Трофимов (Трофим) - Пересмешник (2020) [AAC|~322 Kbps] <Pop, Chanson>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Эврибади (3:04)
-02. Малибу (2:57)
-03. На море (3:18)
-04. Изоляция (2:44)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF71F6286101BC3DF07F88CD590116BA0B2CF85F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427444   (183606) от 28.11.2020
-
-Loudblast - Manifesto (2020) [AAC|~337 Kbps] <Death Metal>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Todestrieb (3:22)
-02. Relentless Horror (2:17)
-03. Erasing Reality (5:11)
-04. The Promethean Fire (3:59)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:327D5E6FD93780FE1C9941A99C69F3000DD3F708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427556   (183564) от 28.11.2020
-
-DJ Sven, Marc Hartman - The Revival (2018) [AAC|~335 Kbps] <Electro, Techno/House, Disco>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Is the Music (5:23)
-02. Rhythm in My Immy Bo Home (6:08)
-03. Back in the Days (4:59)
-04. Riding in the Disco Train (5:27)(   Читать дальше...   )Жанр: Electro, Techno/House, DiscoПродолжительность: 01:02:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80585AEE1E510F3A0CA1826B2C376FF82FB360D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427447   (183535) от 28.11.2020
-
-The Smashing Pumpkins - CYR (2020) [AAC|~318 Kbps] <Alternative, Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Colour of Love (4:24)
-02. Confessions of a Dopamine Addict (3:14)
-03. Cyr (4:03)
-04. Dulcet in E (3:22)(   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 01:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:344ABC7F79CD0251CFCE45CA88931891A9D2CB17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427507   (183530) от 28.11.2020
-
-VA - Echelon, vol. 1 (2020) [AAC|~291 Kbps] <Rap, Hip Hop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vald - Gotaga (2:18)
-02. Suikon Blaz AD - Echelon Music (3:02)
-03. Rafal - Magneto (2:39)
-04. SIRIUS - Après minuit (3:01)(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 00:30:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFB5051E6E690452F3F6F37F79CE0CAFEDCAF947
 ```
 
 https://mybot314.ru/tekegram_catalog/

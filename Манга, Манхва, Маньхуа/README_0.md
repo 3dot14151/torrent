@@ -6,7 +6,7 @@ Gunnm: Kasei Senki | Gunnm Mars Chronicle | Боевой Ангел Алита: 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865827.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Gakuen Mokushiroku / Highschool of the Dead / Школа мертвяков (200
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844999.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Underdog | Under dog | Сумеречный пёс (2008-2009) [1-17 гл.] [Р�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841948.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Angel Beats! - Heaven's Door / Ангельские ритмы! Врата ра�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834386.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Kimetsu no Yaiba | Demon Slayer | Клинок, рассекающий демо�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790139.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Overlord | Владыка (2014) [9 томов (34 глав + SP)] [Манга] 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780464.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Domina no Do (2009) [1-29 гл.] [Манга] [incomplete] [Русский]
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770490.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Somali to Mori no Kami-sama | Somali and the Forest Spirit | Сомали и Х�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765952.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Jojo no Kimyou na Bouken Part 1: Phantom Blood | Невероятные Прик
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764272.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ JoJo no Kimyou na Bouken Part 2: Sentou Chouryuu | Невероятные При
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758400.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ JoJo no Kimyou na Bouken Part 3: Stardust Crusaders | Невероятные п�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758383.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Ookami Kodomo no Ame to Yuki | Волчьи дети Амэ и Юки (2012) [3 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757796.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Dogs / Псы (2005) [1-11 томов (1-101 глав +2 ответвления)
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747309.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Sewayaki Kitsune no Senko-san | Senko, the Always-Helpful Fox | Заботлив
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744935.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ ReLIFE | Повторная жизнь (2013) [222 главы и 5 спецвы�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741786.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Seishun Buta Yarou wa Bunny Girl Senpai no Yume wo Minai | Этот глупый
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718579.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Bungou Stray Dogs / Bungo Stray Dogs / Величайший из бродячи�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694865.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Ao Haru Ride | Blue Spring Ride | Неудержимая юность (2011) [13
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648405.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Neon Genesis Evangelion / Евангелион Нового Поколения (
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643671.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Otome Game no Hametsu Flag shika nai Akuyaku Reijou ni Tensei shite shimatta... 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642808.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ All You Need Is Kill | Всё, что тебе нужно - это убиват�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633237.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Tonari no Kaibutsu-kun / My Little Monster / Я и Чудовище (2008-2013) 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622448.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Tokyo Ghoul: re | Токийский гуль: Король (2014) [16 томо�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538178.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Chenji Hi-Fu-Mi / Change 123 / Изменяйся 123 (2005) [12 томов / 60
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525590.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Blue Dragon \ Синий Дракон (2006) [1-29] [Русский] [Манга
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525564.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Bastard!! / Ублюдок!! (1988) [1-75 главы] [Манга] [русски
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_525312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525312.jpg" />
 </div>
 
 

@@ -1,3 +1,160 @@
+###  Публикация: 1160791   (471124) от 26.08.2017
+
+Max Payne 3 (2012) [Ru/En] (1.0.0.196) Repack R.G. Механики
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471124.jpg" />
+</div>
+
+
+###  Подробнее
+
+После событий Max Payne 2 прошло восемь лет. Макс уже не коп - он спившийся, сидящий на обезболивающих безработный. Сломленный. Раздавленный. Без цели. Но, волею случая перебравшись в Бразилию, он поступает на службу в частное охранное агентство и получает задание защищать семью успешного торговца недвижимостью. Вскоре Максу на собственной шкуре предстоит почувствовать: (   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar VancouverЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77520D068D3DBC08CBEB9FC29DA1F78C0BBF7A49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548030   (471103) от 16.09.2012
+
+I.G.I. Дилогия [Ru/En] (Rip/RePack/1.0-1.2) 2000-2003 | R.G. Catalyst
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тип издания: RipЖанр: Action (Tactical / Shooter) / 3D / 1st Person / StealthЯзык озвучки: Английский / РусскийЯзык интерфейса: Английский / Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 696180   (468983) от 21.09.2013
+
+Teenage Mutant Ninja Turtles: Out of the Shadows (2013) [Ru/En] (1.0.8767.0) RePack R.G. Catalyst
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Teenage Mutant Ninja Turtles: Out of the Shadows переносит вас в то время, когда началась эта история. В этом файтинге вам предстоит играть за четырех черепашек – Леонардо, Донателло, Микеланджело и Рафаэля – которые спасают Нью-Йорк от злобных мутантов из клана Фут и их главаря Шредера. Фанаты ждут именно таких игр — с кооперативным режимом «drop-in/drop-out», командными приемами и ожесточенными поединками.(   Читать дальше...   )Тип издания: RePackРазработчик: Nickelodeon и Red Fly StudiosЖанр: Action / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABF1E7494FDADD803DD5DB991DB67282D940311E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548217   (468540) от 17.09.2012
+
+The Amazing Spider-Man / Новый Человек-паук [Ru/En/Multi6] (RePack) 2012 | R.G. Механики
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Огромный мегаполис задыхается от власти преступников. На улицах города начинается настоящая война, и только Человек-паук способен очистить родной Нью-Йорк от грабителей, воров и убийц. Питер Паркер вновь надевает свой легендарный костюм и выходит на тропу войны. Но из теней, что сгустились над Манхэттеном, за полетом паутины следит нечто зловещее… и оно жаждет крови.
+Этот невероятно зрелищный экшен по мотивам голливудского блокбастера позволит вам применить самые впечатляющие боевые приемы из арсенала Человека-паука. Вам доведется парить над городом, прыгать по небоскребам, спускаться под землю и сражаться с легендарными злодеями из классических комиксов Marvel. Сюжет игры начинается там, где заканчиваются события фильма. Узнайте, что ждет героев после того, как пройдут финальные титры.(   Читать дальше...   )Тип издания: RepackЖанр: Action / 3D / 3rd PersonЯзык озвучки: Русский, Английский, Немецкий, Французский, Испанский, ИтальянскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Испанский, Итальянский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75B33822A42ECD209EF10C5F15C80DAAAFF76903
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057955   (467858) от 01.10.2016
+
+Unaided: 1939 (2016) [En] (1.0.1 hotfix) License CODEX
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unaided 1939 - хардкорный шутер с видом сверху и элементами, который перенесет вас в 1939 перед начало Второй мировой войны. Германия ещё не напала на Польшу, но напряженность начала подниматься в центральной Европе. Вам предстоит вжиться в роль Виты Бэнкс, британской шпионки, что проникает в Германию за год до начала войны.Тип издания: LicenseРазработчик: Drix StudiosЖанр: Action, Top-Down, StealthЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:131E339D0A231EBB897DC73D60EACC055BD9A3D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245989   (467147) от 08.09.2018
+
+The Evil Within (2014) [Ru/Multi] (1.05/dlc) Repack R.G. Catalyst
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый проект от создателя легендарной серии Resident Evil Синдзи Миками и талантливой команды разработчиков Tango Gameworks, The Evil Within - настоящее воплощение жанра Survival Horror. Мир перевернется с ног на голову, увлекая вас в коварное хитросплетение интриг и непрекращающуюся череду кошмаров.Тип издания: RepackРазработчик: Tango GameworksЖанр: Action, Survival horror, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91B98E24E7106B87DF547D6DA3CD7B100EF4D7C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1058779   (465664) от 02.10.2016
 
 Hybrid Wars (2016) [Ru/Multi] (4.51.9929) Repack Other s
@@ -6,7 +163,7 @@ Hybrid Wars (2016) [Ru/Multi] (4.51.9929) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465664.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ Dead Rising 4 (2017) [Ru/Multi] (1.0/upd4/dlc) R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465051.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ Inversion [Ru/En] (Repack/1.0.u1) 2012 | R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461661.jpg" />
 </div>
 
 
@@ -86,7 +243,7 @@ Haydee (2016) [Ru/En] (1.01) Repack GAMER
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461268.jpg" />
 </div>
 
 
@@ -112,7 +269,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.196) SteamRip Let'sPlay [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461265.jpg" />
 </div>
 
 
@@ -138,7 +295,7 @@ Castlevania: Lords of Shadow 2 (2014) [Ru/Multi] (1.0.0.1/4dlc) Repack R.G. Reve
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459591.jpg" />
 </div>
 
 
@@ -168,7 +325,7 @@ Necromunda: Underhive Wars (2020) [Ru/Multi] (1.0.4.1) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459399.jpg" />
 </div>
 
 
@@ -194,7 +351,7 @@ Quantum Break (2016) [Ru/En] (1.0.118.7029) Repack Dok2
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459030.jpg" />
 </div>
 
 
@@ -220,7 +377,7 @@ Darksiders 2 (2015) [Ru/Multi] (2.1.0.4/dlc) Repack xatab [Deathinitive Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458680.jpg" />
 </div>
 
 
@@ -246,7 +403,7 @@ Zanzarah: The Hidden Portal / Zanzarah: В поисках затерянной �
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456852.jpg" />
 </div>
 
 
@@ -272,7 +429,7 @@ Samurai Warriors 4-II (2015) [En] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454971.jpg" />
 </div>
 
 
@@ -298,7 +455,7 @@ Ultimate Spider-Man [Ru/En] (Repack) 2005 | R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454382.jpg" />
 </div>
 
 
@@ -324,7 +481,7 @@ Teenage Mutant Ninja Turtles: Mutants in Manhattan (2016) [Ru/En] (1.0) Repack x
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452262.jpg" />
 </div>
 
 
@@ -350,7 +507,7 @@ Prototype Dilogy (2009-2012) [Ru/En] (1.0.0.1/1.0/dlc) Repack R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452253.jpg" />
 </div>
 
 
@@ -376,7 +533,7 @@ Way of the Samurai 4 (2015) [En] (1.06.2/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451025.jpg" />
 </div>
 
 
@@ -402,7 +559,7 @@ Control (2019) [Ru/Multi] (1.0) License HOODLUM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450013.jpg" />
 </div>
 
 
@@ -428,7 +585,7 @@ Knights of the Temple 2 / Тамплиеры 2 Портал Тьмы (2005) [Ru/
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449912.jpg" />
 </div>
 
 
@@ -454,7 +611,7 @@ Cross of the Dutchman (2015) [Ru/Multi] (1.0.0) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446467.jpg" />
 </div>
 
 
@@ -480,7 +637,7 @@ Resident Evil 6 (2013) [Ru/En] (1.1.0/dlc) Repack West4it
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445877.jpg" />
 </div>
 
 
@@ -506,7 +663,7 @@ Alan Wake (2012) [Ru] (1.0.7.33.72514) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444485.jpg" />
 </div>
 
 
@@ -517,165 +674,6 @@ Alan Wake (2012) [Ru] (1.0.7.33.72514) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A8847A3DCD44C705897B2058F26DBEFB2C729DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944064   (444053) от 05.10.2015
-
-Raven's Cry (2015) [Ru/En] (1.0.0.3/upd5/dlc) Repack =nemos= [Digital Deluxe Edition]
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленький шотландский мальчик и его семья пытаются спастись от голода в конце 17 века, иммигрировав в Новый Свет. Около Ямайки их корабль атакуют безжалостные пираты. Мальчик по имени Кристофер Рэйвен оказывается единственным выжившим. Кристофер потерял левую руку в этом нападении, но годы спустя, шагая по пути мести, он потерял и свою душу.Тип издания: RepackРазработчик: Reality Pump Studios и Nitro GamesЖанр: Action / RPG / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E06158C63C404E30F5A9C2C63870C8A9BB1CB8B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164280   (443482) от 08.09.2017
-
-Zombie Army Trilogy (2015) [Ru] (1.0) Repack xatab
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zombie Army Trilogy - это шутер от третьего лица, объединяющий в себе хаос совместной игры и жесткие ужасы с наполненными кровью сценами, включающий в себя и первые две игры – Sniper Elite: Nazi Zombie Army 1 & 2, а также новую третью кампанию, повествующую о поднявшемся из мертвых Адольфе Гитлере, который ведет свою мертвую армию на захват Европы.Тип издания: RepackРазработчик: RebellionЖанр: Action (Shooter), 3D, 3rd Person, CompilationЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B610413C27A3164EC3862CE81A4025925AE456E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062154   (443467) от 12.10.2016
-
-Just Cause 2 (2010) [Ru/Multi] (1.0.0.2/dlc) License PROPHET [Compete Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в полное адреналина свободное приключение. В качестве агента Рико Родригеза, вашей целью будет найти и убить вашего друга и наставника, который исчез на островном рае Панау. Здесь, на Панау, вы должны вызвать максимум хаоса на земле, воде и в воздухе, чтобы изменить баланс сил. Используя сочетание из уникального крюка-кошки и парашюта, вы сможете выполнять (   Читать дальше...   )Тип издания: LicenseРазработчик: Avalanche StudiosЖанр: Action (Shooter), Racing, 3D, 3rd PersonЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0D13A772B220E28887198D4934113C32A17E2E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553241   (442988) от 28.09.2012
-
-Chaos Legion / Рыцари Хаоса [En/Ru] (RePack/1.1.0) 2003 | R.G. Catalyst
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Орден святой Овелии был одним из самых могущественных орденов Срединного Мира. Его последователи могли управлять душами и подчинять себе созданий из других миров. Однако Орден захотел еще большей власти. Рыцарям Ордена, среди которых были Зигфрид Вархайт, Виктор Делакруа и Сейла Ривьера, было приказано освободить Дух Очищения ? Азраил, которым Орден возжелал повелевать. Азраил оказался сильнее, чем предполагали кардиналы Святой Овелии, и паладины Ордена были вынуждены запечатать Врата Хаоса. Но Азраил успел найти надежного мессию в Среднем Мире...
-
-    Некоторое время спустя в Лотарле, Священном Граде, высокопоставленный член Ордена Темных Символов подвергся покушению и был убит. Убийца похитил древний запретный талмуд, Апокриф Изарка. Похититель скрылся, однако в нем опознали бывшего рыцаря Ордена? Виктора Делакруа. Говорили, что он отправился в Запретный Город, Изарк, неся разрушение и оставляя на своем пути полчища монстров. Азраил заронил свое зерно в душу Делакруа. Виктор, получивший огромную силу, считает, что (   Читать дальше...   )Тип издания: RePackЖанр: Action / 3D / 3rd PersonЯзык озвучки: Английский / РусскийЯзык интерфейса: Английский / Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44C7FB2B2C7E0DC73D314E0D39DD55085AF07DB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537939   (442822) от 28.09.2012
-
-The Amazing Spider-Man / Новый Человек-паук + DLC [Ru/En/Multi6] (RePack/u1) 2012 l R.G. Catalyst
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Огромный мегаполис задыхается от власти преступников. На улицах города начинается настоящая война, и только Человек-паук способен очистить родной Нью-Йорк от грабителей, воров и убийц. Питер Паркер вновь надевает свой легендарный костюм и выходит на тропу войны. Но из теней, что сгустились над Манхэттеном, за полетом паутины следит нечто зловещее… и оно жаждет крови. Этот невероятно зрелищный экшен по мотивам голливудского блокбастера позволит вам применить самые впечатляющие боевые приемы из арсенала Человека-паука. Вам доведется парить над городом, прыгать по небоскребам, спускаться под землю и сражаться с легендарными злодеями из классических комиксов Marvel. Сюжет игры начинается там, где заканчиваются события фильма. Узнайте, что ждет героев после того, как пройдут финальные титры! (   Читать дальше...   )Тип издания: RePackРазработчик: BeenoxЖанр: Action / 3D / 3rd PersonЯзык озвучки: Английский, Русский, Немецкий, Французский, Испанский, ИтальянскийЯзык интерфейса: Английский, Русский, Немецкий, Французский, Испанский, Итальянский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D451CE308D212C68424CB0FE72126508A78B69E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553460   (442814) от 28.09.2012
-
-The Amazing Spider-Man / Новый Человек-паук [Ru] (RePack/1.0u1) 2012 | Audioslave
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Огромный мегаполис задыхается от власти преступников. На улицах города начинается настоящая война, и только Человек-паук способен очистить родной Нью-Йорк от грабителей, воров и убийц. Питер Паркер вновь надевает свой легендарный костюм и выходит на тропу войны. Но из теней, что сгустились над Манхэттеном, за полетом паутины следит нечто зловещее… и оно жаждет крови.
- Этот невероятно зрелищный экшен по мотивам голливудского блокбастера позволит вам применить самые впечатляющие боевые приемы из арсенала Человека-паука. Вам доведется парить над городом, прыгать по небоскребам, спускаться под землю и сражаться с легендарными злодеями из классических комиксов Marvel. Сюжет игры начинается там, где заканчиваются события фильма. Узнайте, что ждет героев после того, как пройдут финальные титры.(   Читать дальше...   )Тип издания: RePackЖанр: Action / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50AD03820958FB25D35315BE7031BDC24122DDDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

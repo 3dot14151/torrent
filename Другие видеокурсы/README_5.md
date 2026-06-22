@@ -1,3 +1,32 @@
+###  Публикация: 1123475   (786327) от 08.04.2017
+
+top3travel | Самостоятельное путешествие в Барселону (2015) PCRec
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786327.jpg" />
+</div>
+
+
+###  Подробнее
+
+ПОЧЕМУ БАРСЕЛОНА – ОДИН ИЗ САМЫХ ПОПУЛЯРНЫХ ГОРОДОВ среди самостоятельных путешественников?
+1) Это город с многовековой историей. Старинные соборы, узкие средневековые улочки, красивые площади.
+2) Также в Барселоне работал величайший архитектор Антонио Гауди, которому не было и нет равных во всём мире. Смотря на его здания, ощущаешь себя как в сказке.
+3) Рядом с (   Читать дальше...   )Жанр: Путешествие,видеогидПродолжительность: 03:22:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8AF41A976D2B12C6C1BF5427CDAEE222203BD8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123604   (786318) от 08.04.2017
 
 top3travel | Самостоятельное путешествие в Париж (2014) PCRec
@@ -6,7 +35,7 @@ top3travel | Самостоятельное путешествие в Париж
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786318.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ top3travel | Самостоятельное путешествие в Итали
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786282.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ top3travel | Путешествие в Стамбул (2015) PCRec
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786113.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785585.jpg" />
 </div>
 
 
@@ -120,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784790.jpg" />
 </div>
 
 
@@ -149,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782184.jpg" />
 </div>
 
 
@@ -178,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770955.jpg" />
 </div>
 
 
@@ -204,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770300.jpg" />
 </div>
 
 
@@ -230,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765289.jpg" />
 </div>
 
 
@@ -257,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_747280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_747280.jpg" />
 </div>
 
 
@@ -289,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745275.jpg" />
 </div>
 
 
@@ -318,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742552.jpg" />
 </div>
 
 
@@ -344,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730878.jpg" />
 </div>
 
 
@@ -373,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730732.jpg" />
 </div>
 
 
@@ -402,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728410.jpg" />
 </div>
 
 
@@ -430,7 +459,7 @@ Skillbox, Борис Куприянов и др. | Как выбирать кн�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728330.jpg" />
 </div>
 
 
@@ -459,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727292.jpg" />
 </div>
 
 
@@ -486,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726247.jpg" />
 </div>
 
 
@@ -515,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722432.jpg" />
 </div>
 
 
@@ -543,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718523.jpg" />
 </div>
 
 
@@ -572,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718436.jpg" />
 </div>
 
 
@@ -601,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718430.jpg" />
 </div>
 
 
@@ -630,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718424.jpg" />
 </div>
 
 
@@ -659,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711107.jpg" />
 </div>
 
 
@@ -688,7 +717,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707395.jpg" />
 </div>
 
 
@@ -702,35 +731,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:749BC73B240D7DAC94CB02D49CFC9E4506842966
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131682   (706305) от 06.05.2017
-
-Радислав Гандапас | Ораторское искусство 2.0 (2014) CamRip [H.264/720p]
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот мастер-класс по уникальности и ценности содержания считается VIP-программой Радислава.
-
-Сейчас, в начале XXI века, ораторское искусство переживает период упадка. Трудно назвать блестящего оратора, который был бы нашим современником. Трудно вспомнить хоть одно выступление, на котором не было бы скучно.
-(   Читать дальше...   )Жанр: Ораторское искусствоПродолжительность: 03:02:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E722BE1D68A05C288FF73C55D7B7D8574FA61642
 ```
 
 https://mybot314.ru/tekegram_catalog/

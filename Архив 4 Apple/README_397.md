@@ -1,3 +1,59 @@
+###  Публикация: 1066556   (412378) от 26.10.2016
+
+iTrash 3.5.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412378.jpg" />
+</div>
+
+
+###  Подробнее
+
+iTrash (известная ранее как AppTrasher) утилита для деинсталляции софта.
+Приложения распределяют несколько файлов всюду по Вашим системным устройствам хранения. Удаление самого приложения - главным образом недостаточно и оставляет несколько файлов нетронутыми. iTrash использует специальный алгоритм поиска, чтобы найти все связанные файлы и при необходимости удаляет (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04 сентября 2016Разработчик: osxbytesПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский, Немецкий, Итальянский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B2AF2D3E513EDD2BFB34E8E14989F377247E9C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066664   (412246) от 26.10.2016
+
+Calendar 366 Plus 1.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Calendar 366 Plus - календарь событий и напоминаний для меню бара
+Посмотреть, добавлять, редактировать и удалять свои мероприятия легко. Создать и выполнить ваши напоминания с помощью всего одного клика. Calendar 366 Plus предоставит вам легкий доступ ко всем календарям, а также сделает более легким управление  событиями и напоминаниями.
+
+Нажмите на иконку и получите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26 октября 2016Разработчик: n.spektorПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Немецкий и Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC0F269F3B5ECB2A6B7482A349F0C851307074D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066598   (412243) от 26.10.2016
 
 SQLPro for Postgres - PostgreSQL database manager 1.0.92 [En]
@@ -6,7 +62,7 @@ SQLPro for Postgres - PostgreSQL database manager 1.0.92 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412243.jpg" />
 </div>
 
 
@@ -35,7 +91,7 @@ SQLPro for SQLite - database and coredata manager 1.104 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412236.jpg" />
 </div>
 
 
@@ -64,7 +120,7 @@ Yummy FTP Pro 1.11.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412232.jpg" />
 </div>
 
 
@@ -93,7 +149,7 @@ Fresh 3.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412230.jpg" />
 </div>
 
 
@@ -122,7 +178,7 @@ SQLPro for MySQL - GUI Database management studio 1.0.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412088.jpg" />
 </div>
 
 
@@ -151,7 +207,7 @@ Duplicate File Finder Pro 4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412079.jpg" />
 </div>
 
 
@@ -180,7 +236,7 @@ Wondershare Video Converter Ultimate 5.6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412077.jpg" />
 </div>
 
 
@@ -206,7 +262,7 @@ Shortcut Bar 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412075.jpg" />
 </div>
 
 
@@ -234,7 +290,7 @@ Swift Publisher 4.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412072.jpg" />
 </div>
 
 
@@ -260,7 +316,7 @@ Keyboard Maestro 7.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411928.jpg" />
 </div>
 
 
@@ -287,7 +343,7 @@ Shimo 4.1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411906.jpg" />
 </div>
 
 
@@ -316,7 +372,7 @@ Commander One Pro Pack  - FTP клиент, RAR/7zip архиватор 1.7.4 [M
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411794.jpg" />
 </div>
 
 
@@ -345,7 +401,7 @@ Tuxera NTFS 2014 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411627.jpg" />
 </div>
 
 
@@ -373,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411533.jpg" />
 </div>
 
 
@@ -399,7 +455,7 @@ BusyCal 3.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411307.jpg" />
 </div>
 
 
@@ -426,7 +482,7 @@ A Better Finder Rename 10.34 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411306.jpg" />
 </div>
 
 
@@ -453,7 +509,7 @@ Postbox 6.1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411172.jpg" />
 </div>
 
 
@@ -479,7 +535,7 @@ Mirror for LG TV 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411166.jpg" />
 </div>
 
 
@@ -508,7 +564,7 @@ Resolutionator 1.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411161.jpg" />
 </div>
 
 
@@ -537,7 +593,7 @@ Path Finder 7.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411110.jpg" />
 </div>
 
 
@@ -563,7 +619,7 @@ Ableton Live Suite 9.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411103.jpg" />
 </div>
 
 
@@ -591,7 +647,7 @@ Microsoft Office Standard 2016 Volume License Edition v15.13.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410625.jpg" />
 </div>
 
 
@@ -618,7 +674,7 @@ File Cabinet Pro 4.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410615.jpg" />
 </div>
 
 
@@ -647,7 +703,7 @@ Gestimer 1.1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410598.jpg" />
 </div>
 
 
@@ -661,64 +717,6 @@ Gestimer красивое приложение для вашего (   Чита
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CCA5426F80027A7E0C98DBE58094D90240C9B08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168334   (410565) от 23.09.2017
-
-Carbon Copy Cloner 5.0.2 (5102) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Carbon Copy Cloner – утилита для резервного копирования данных.
-Carbon Copy Cloner - утилита для клонирования дисков и резервирования данных, пользующаяся заслуженной популярностью у пользователей Mac OS X, благодаря высокой скорости работы и простому интерфейсу.
-
-Новая версия может похвастаться абсолютно новым пользовательским интерфейсом, а также рядом добавленных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.09.2017Разработчик: Bombich Software, IncПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8C997A1D958B62C03504F302C844DA5E0FA58DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168309   (410561) от 23.09.2017
-
-Geekbench 4.1.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Geekbench 4 – бенчмарк для измерения производительности в реальных задачах
-Когда мы покупаем Mac или когда мы хотим быть уверены, что все компоненты нашей системы работают хорошо, мы, как правило, используем программы для выполнения тестов.
-
-Geekbench 4 предлагает обновленный интерфейс и ряд новых бенчмарков, которые созданы специально для измерения быстродействия (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.09.2017Разработчик: Primate Labs Inc.Поддерживаемая ОС: macOS 10.10.5 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:073DD3C41FC6300FE8A36A2FF130DF4FBA6006C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Frank Sinatra - Reprise Rarities - Vol. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025746.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Stan Getz meets Joao & Astrud Gilberto (1964) 1989, Giants Of Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025313.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Karl Frierson - Soulprint (2006) [FLAC|Lossless]<Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025196.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Uralsky All Stars (Уральский Диксиленд) - Russian Roulette
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025078.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Benny Goodman - 1937 (1996) Classics [FLAC|Lossless|image + .cue] <Swing, Big Ba
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024958.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Diego Imbert & Alain Jean-Marie - Interplay: The Music of Bill Evans (2020) Treb
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024771.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Dinah Shore - Taking A Chance On Love (1940-e - 1950-e) 1996, Promo Sound [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024079.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Von Freeman - Live At The Dakota (2001) Premonition Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023339.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Dr. Lonnie Smith - Breathe (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023157.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Swingrowers - Hybrid (2021) Japan [FLAC|Lossless|image + .cue] <Nu-Jazz, Electro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023125.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Swingrowers - Hits & Remixes (2017) Japan [FLAC|Lossless|image + .cue] <Nu-Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022824.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Chet Baker - Sings Again (1985) 2020, Solid Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022618.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Sassy Swingers - So Sassy (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022612.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Martine - Martine (2020) [FLAC|Lossless|image + .cue] <Jazz-Rock, Progressive Ro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022479.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Johnny Dodds - Wild Man Blues (1923 - 1940) 1997, ASV [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022379.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Eliane Elias - Illusions (1987) Denon [FLAC|Lossless|tracks + .cue] <Contemporar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022298.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Arcing Wires - Prime (2020) [FLAC|Lossless|image + .cue] <Jazz-Rock, Heavy Prog>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022133.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Sasi Shalom - Nedyaj (2021) [FLAC|Lossless|WEB-DL|tracks] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022132.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Jonny King - In From The Cold (1994) Criss Cross [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022131.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Best Of Green Hill Music: The Jazz Collection (2021) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022093.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Donald Byrd and The Blackbyrds - The Jazz Funk Collection (2020) 3xCD, Compilati
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022088.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Americans In Paris: The City Of Love And All That Jazz (1952 - 1959) 10CD, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021926.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Warren Vache - Iridescence (1981) 1991, Concord [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021820.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Stan Getz - Modern Jazz Archive (1950 - 1980) 2CD, 2004, Membran Music [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021641.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Yaniv Taubenhouse - Perpetuation: Moments In Trio, Vol.II (2019) Fresh Sound Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021640.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ V.A. - Women Of Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021598.jpg" />
 </div>
 
 

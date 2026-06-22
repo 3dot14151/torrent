@@ -1,4 +1,32 @@
 https://t.me/izofen
+###  Публикация: 1876896   (1073538) от 17.06.2026
+
+Whonix LXQt 18.1.4.2 (образ для VirtualBox) [x64]
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Whonix — это дистрибутив Linux на основе Debian, который разработан для обеспечения повышенной безопасности и конфиденциальности. Высокая анонимность достигается средствами VirtualBox и Tor. Whonix снижает угрозу от распространенных векторов атак, сохраняя при этом удобство использования.
+
+Сильно перенастроенная база Debian запускается на нескольких виртуальных машинах, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:309AED29743478BFE71C8BE651555CCCC9E51B02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1872226   (1070497) от 22.05.2026
 
 CrossOver Linux 26.1.0 [x64] (deb, rpm, bin)
@@ -7,7 +35,7 @@ CrossOver Linux 26.1.0 [x64] (deb, rpm, bin)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070497.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ VMware Workstation Pro 26H1 26.0.0.25388281 [En] [x64] (bundle)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070496.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ Tor Browser 15.0.14 [Multi/Ru] (tar.xz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070495.jpg" />
 </div>
 
 
@@ -87,7 +115,7 @@ Red Hat Enterprise Linux 10.2 [x86_64, aarch64] 4xDVD 1xWSL
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070220.jpg" />
 </div>
 
 
@@ -115,7 +143,7 @@ RAR for Linux 7.22 [x64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069863.jpg" />
 </div>
 
 
@@ -141,7 +169,7 @@ Ubuntu 26.04 Resolute Raccoon LTS [amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066950.jpg" />
 </div>
 
 
@@ -170,7 +198,7 @@ Zimbra OSE (Open Source Edition) 10.1.16 [x64, amd64] (tgz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066208.jpg" />
 </div>
 
 
@@ -197,7 +225,7 @@ Zorin OS 18.1 Pro & Pro Lite 18.1 [X86_64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066206.jpg" />
 </div>
 
 
@@ -225,7 +253,7 @@ Zorin OS 18.1 Pro [X86, amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065867.jpg" />
 </div>
 
 
@@ -253,7 +281,7 @@ SystemRescue v13.00 [x64]
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064295.jpg" />
 </div>
 
 
@@ -279,7 +307,7 @@ Parted Magic 2026.03.20 [x64]
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061977.jpg" />
 </div>
 
 
@@ -305,7 +333,7 @@ DeaDBeeF for Linux 1.10.2 [x86_64] (deb, rpm, pkg.tar.xz, tar.bz2)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061599.jpg" />
 </div>
 
 
@@ -333,7 +361,7 @@ DeaDBeeF for Linux 1.10.1 [x86_64] (deb, rpm, pkg.tar.xz, tar.bz2)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061270.jpg" />
 </div>
 
 
@@ -361,7 +389,7 @@ Uncom 2.5 LTS [x86_64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060789.jpg" />
 </div>
 
 
@@ -387,7 +415,7 @@ Winux 11.26.03.1 [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060779.jpg" />
 </div>
 
 
@@ -413,7 +441,7 @@ GreenLinux 22.3.0 Kursk [x86_64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060753.jpg" />
 </div>
 
 
@@ -441,7 +469,7 @@ MiniOS (все редакции, вкл. Flux) 5.1.1 (Flux 5.1.2) [amd64, i386] 
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058122.jpg" />
 </div>
 
 
@@ -467,7 +495,7 @@ Kali Linux 2025.4 [amd64, arm64] 9xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058107.jpg" />
 </div>
 
 
@@ -493,7 +521,7 @@ RAR for Linux 7.20 [x64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056130.jpg" />
 </div>
 
 
@@ -519,7 +547,7 @@ ALT Linux 10.2.1 СП [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055098.jpg" />
 </div>
 
 
@@ -545,7 +573,7 @@ Astra Linux Special Edition 1.6.16 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053828.jpg" />
 </div>
 
 
@@ -573,7 +601,7 @@ openmediavault 8.0.4 [amd64]
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053458.jpg" />
 </div>
 
 
@@ -593,6 +621,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848812   (1053293) от 21.01.2026
+
+TrueNAS Community 25.10.1 - Goldeye [amd64] 1xCD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1053293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив TrueNAS Community от компании iXsystems, в котором используется ядро Linux и пакетная база Debian (ранее выпускаемые продукты данной компании, в том числе TrueOS, PC-BSD, TrueNAS и FreeNAS, основывались на FreeBSD).
+Как и TrueNAS CORE (FreeNAS), TrueNAS Community может быть загружен и использован бесплатно. Исходные тексты специфичных для TrueNAS SCALE (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E5A23F9FA44D4981D0B9B79D6D265A7B16AF48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846053   (1051008) от 05.01.2026
 
 EN-OS 1.0 [x86_64] 1xDVD
@@ -601,7 +656,7 @@ EN-OS 1.0 [x86_64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051008.jpg" />
 </div>
 
 
@@ -629,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049589.jpg" />
 </div>
 
 
@@ -640,58 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8960800D235229F8A107D454600ACEA0EA93D605
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843176   (1049113) от 19.12.2025
-
-Cisco Modelling Lab 2.9.1 [x86_64] 1xDVD+.OVA
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049113.jpg" />
-</div>
-
-
-###  Подробнее
-
-CML 2.9 — это мощный инструмент для сетевой симуляции, пришедший на смену VIRL. В отличие от GNS3 или EVE-NG, CML поставляется с официальными, оптимизированными образами Cisco. Версия 2.9 включает обновленный пользовательский интерфейс, улучшенную производительность и расширенную поддержку API для автоматизации (PyATS, Ansible).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EC62D7AFAC49206466B9FD6FFB6B5EB5B15F9B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843214   (1049082) от 19.12.2025
-
-Mikrotik Router OS 7.20.6 [x86] 1xCD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049082.jpg" />
-</div>
-
-
-###  Подробнее
-
-RouterOS v7 — это операционная система на базе ядра Linux (5.6.3+), предназначенная для создания маршрутизаторов на базе обычного ПК или сервера. В отличие от 6-й версии, v7 поддерживает современные многоядерные процессоры, новые драйверы сетевых карт и лишена ограничения в 16 ГБ оперативной памяти.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A1EC8A73E3CAA65A2C1E6FA7853B3275C052B03
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1758278   (38669) от 01.11.2024
+
+Dragon Age: The Veilguard (2024) [Ru/Multi] (1.0.0.0/dlc) Repack FitGirl [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вас ждёт Тедас - красочный мир, полный суровой дикой природы, коварных лабиринтов и сияющих городов, а также жестоких сражений и тайной магии. И теперь два порочных древних бога вырвались из оков вековой тьмы и одержимы желанием уничтожить мир. Тедасу нужен кто-то, на кого можно положиться. И этим новым героем Dragon Age станет Рук. Будьте тем, кем захотите, и играйте, (   Читать дальше...   )Тип издания: RepackРазработчик: BioWareЖанр: Экшены, Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6C1FCFD3C71AE2DD52160A0D3EEC777DB945A7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758185   (38653) от 01.11.2024
+
+Dragon Age: The Veilguard (2024) [Ru/Multi] (Build 16179329/dlc) Scene Rune [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вас ждёт Тедас - красочный мир, полный суровой дикой природы, коварных лабиринтов и сияющих городов, а также жестоких сражений и тайной магии. И теперь два порочных древних бога вырвались из оков вековой тьмы и одержимы желанием уничтожить мир. Тедасу нужен кто-то, на кого можно положиться. И этим новым героем Dragon Age станет Рук. Будьте тем, кем захотите, и играйте, (   Читать дальше...   )Тип издания: SceneРазработчик: BioWareЖанр: Экшены, Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:758EB36764C30A26E8E5201F53E0E0DBDEB61EB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758221   (38649) от 01.11.2024
+
+Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.0.37.0) Scene Rune
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие Horizon Zero Dawn происходит в постапокалиптическом мире, захваченном роботами. Игрок управляет охотницей по имени Элой, отвергнутой собственным племенем. В течение игры Элой под управлением игрока исследует окружающий мир, посещает различные поселения и охотится на механических зверей, чьи тела может разбирать для получения полезных ресурсов. Отправьтесь (   Читать дальше...   )Тип издания: SceneРазработчик: Guerrilla Games, Nixxes SoftwareЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F131FC3C09EBB2DA907962E1BE4EFB8B835EF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758464   (38550) от 02.11.2024
+
+Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.0.37.0/1.0.38.0) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследуйте обширный и яркий мир грозных машин и загадочных руин давно забытой цивилизации, воссозданный на PC с потрясающей графикой и множеством новых возможностей. Вооружитесь луком и копьем в роли Элой - юной охотницы на машины, изгнанной из своего племени. Путешествуя вместе с ней, вы постепенно узнаете правду об этом загадочном мире и ее собственной миссии по (   Читать дальше...   )Тип издания: RepackРазработчик: Guerrilla Games, Nixxes SoftwareЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1B2AB65532BEF825AC69EBAF605AF695BF5D605
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758485   (38523) от 02.11.2024
 
 Farmagia (2024) [Multi] (1.0.1/dlc) Scene Tenoke
@@ -6,7 +110,7 @@ Farmagia (2024) [Multi] (1.0.1/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38523.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Chrono Ark (2024) [Multi] (1.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38515.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.0.38.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38466.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (1.0.0.0/dlc) Repack Other s [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38249.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Atlas Fallen: Reign Of Sand (2023) [Ru/Multi] (1.119040/dlc) Repack LetsPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38221.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37928.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Dust to the End (2020) [Ru/Multi] (1.0.4.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37798.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ The Life and Suffering of Sir Brante (2021) [Ru/En] (1.05.1) License GOG [Digita
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37731.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ MasterQuest Fantasy (2024) [En] (1.0.5b) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37692.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Dungeon Defenders (2011) [Multi] (9.6.1/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37672.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Dustland Delivery (2024) [Multi] (1.20.757) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37643.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Deathbound (2024) [Ru/Multi] (1.2.0gf) License GOG [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37531.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Warm Snow (2022) [Ru/Multi] (3.1.0.1/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37489.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Warhammer 40,000: Inquisitor - Martyr (2018) [Ru/Multi] (2.9.4/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37450.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Dawn of the Ashen Queen (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37430.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Populous™: The Beginning (1998) [En] (1.02/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37056.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Wolcen: Lords of Mayhem (2020) [Ru/Multi] (1.1.7.16.12/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36922.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Dread Dawn (2024) [Ru/Multi] (2024.11.17.1029) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36896.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Dragon's Dogma 2 (2024) [Ru/Multi] (1.0.0.1) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36832.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Astor: Blade of the Monolith (2024) [Ru/Multi] (1.0) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36804.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ V Rising (2024) [Ru/Multi] (1.0.10.1/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36716.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Beloved Rapture (2024) [En] (1.1.8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36714.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Beloved Rapture представляет собой авторскую jRPG, с�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1496764F88C7311D70E4F1B270728D6C4E20D65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411075   (36536) от 22.11.2024
-
-Vaporum: Lockdown (2020) [Ru/Multi] (Patch 5) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vaporum: Lockdown — это приквел знаменитой игры с приключениями в подземельях и обстановкой в стиле стимпанк Vaporum. Это одиночная игра с одним персонажем, передвижением по сетке и видом от первого лица в оригинальной стимпанковой обстановке, вдохновленная такой классикой жанра, как Dungeon Master I и II, играми серии Eye of the Beholder и более современными Legend (   Читать дальше...   )Тип издания: LicenseРазработчик: Fatbot Games, s. r. o.Жанр: Ролевая игра, Экшны, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB5341EB473240004582D82DD26AE9192185C2F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761717   (36527) от 22.11.2024
-
-Expeditions: Rome (2022) [Ru/Multi] (1.6.0.741.23995/dlc) Repack Let'sРlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы — юный легат. Вашего отца убили, вы бежали из Рима, и теперь подавляете восстание греков. Накапливайте военную мощь и опыт. Станьте силой, с которой придется считаться. В Expeditions: Rome вам предстоит завоевать весь мир от Греции до Галлии. Только вам решать, каким станет Рим для варваров. Вы будете действовать силой или переговорами? Найдете свое место в Сенате (   Читать дальше...   )Тип издания: RepackРазработчик: Logic ArtistsЖанр: Ролевые игры, СтратегииЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCE443769BD56636C346D0964BBFF0A958650DC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761988   (36375) от 23.11.2024
-
-Alaloth: Champions of The Four Kingdoms (2022) [En] (1.0) Scene Rune
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экшн РПГ Alaloth: Champions of The Four Kingdoms переносит игрока в магическое средневековье. История берет свое начало в Долине Штормов – месте, где пересекаются четыре легендарных народа: Люди, Эльфы, Гномы и Орки. Именно здесь заточен жестокий бог Алалот. Из самого царства мертвых он отравляет все королевства своим злом. Уже скоро на этот мир грянут монстры, бури, (   Читать дальше...   )Тип издания: SceneРазработчик: Gamera InteractiveЖанр: Ролевая игра, Приключение, ФэнтeзиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:938536BF3D8896A839BD03F29E6CFE0EE5ED2337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181156   (36324) от 24.11.2024
-
-Vaporum (2017) [Ru/Multi] (Patch 15) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vaporum - это однопользовательская ролевая игра с системой перемещения по клеткам, видом от первого лица и атмосферой старого доброго стимпанка. На создание Vaporum разработчиков вдохновили такие классические игры, как Dungeon Master I и II, серия Eye of the Beholder и сравнительно недавно изданные Legend of Grimrock I и II. Оказавшись на острове посреди бушующего (   Читать дальше...   )Тип издания: LicenseРазработчик: Fatbot Games, s. r. o.Жанр: Ролевая игра, Приключение, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Польский и другиеЯзык интерфейса: Русский, Английский, Польский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44236277C8649EF0F210DC7AD5E0BD5A882AC8E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

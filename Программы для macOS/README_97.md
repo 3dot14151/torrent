@@ -1,3 +1,114 @@
+###  Публикация: 1572935   (416896) от 29.08.2022
+
+Author 8.2 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Author это - полный контроль над процессом авторства с помощью расширенной копии цитирования, расширенного глоссария, расширенных представлений, вырезок и многого другого.
+Когда вы будете готовы поделиться своей работой в формате PDF, вы получите автоматически созданный справочный раздел. Вы также можете публиковать сообщения в WordPress.Тип издания: macOS SoftwareРелиз состоялся: 26.08.2022Разработчик: © 2007-2021 The Augmented Text Company LTD, UKПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07FED8E2554F95314495E40E1B174D608E1D77D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066015   (416855) от 24.10.2016
+
+StatusDuck 0.82 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416855.jpg" />
+</div>
+
+
+###  Подробнее
+
+StatusDuck реализует управление приложениями находящимися в Doc , используя пространство панели меню.
+Мгновенно увидеть запущенные приложения. Легко  приложение и без необходимости использовать Cmd-Q, или проходящие через пункты меню
+Прикрепите ваши любимые папки в строке меню (Отбросьте папку на StatusDuck, удерживая клавишу Command вниз)
+Переключение между приложениями. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: декабрь 2014Разработчик: StatusDuck ApplicationПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E4FA411B85DFD8D3BF8B227674E39F70175FACA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 248353   (416759) от 21.10.2010
+
+iLife '11 [Multi/Rus]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_416759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор программ для работы с фото, видео, звуком, создания веб-страниц и DVD-Video дисков.
+Соответственно в комплекте iPhoto '11, iMovie '11, GarageBand '11, iWeb (v3.0.2), iDVD (v7.1)
+и электронная документация.MacOS XНазвание программы: Apple iLife'11Язык интерфейса: Многоязыковой, в тч Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573081   (416682) от 29.08.2022
+
+FruitJuice - Active Battery Health and Monitoring 2.5.4 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416682.jpg" />
+</div>
+
+
+###  Подробнее
+
+FruitJuice - правильный уход за батареей MacBook
+FruitJuice - приложение тесно интегрированное с онлайн-сервисом, которые совместно помогут максимизировать жизненный цикл батареи вашего Macbook и максимально эффективно увеличить время автономной работы, в точном соответствии с рекомендациями компании Apple . Приложение отслеживает состояние батареи в режиме реального (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.08.2022Разработчик: © 2010-2022 The Battery Project, LLCПоддерживаемая ОС: OS X 10.9 и вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47E02BF41A3E54A7BC07A20659164456CF09370F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325172   (416555) от 13.09.2019
 
 Clearview 2.3.1 [En]
@@ -6,7 +117,7 @@ Clearview 2.3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416555.jpg" />
 </div>
 
 
@@ -33,7 +144,7 @@ WinZip Mac Pro 10 v.10.6.6200 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416493.jpg" />
 </div>
 
 
@@ -60,7 +171,7 @@ ExLibris 10.1.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416183.jpg" />
 </div>
 
 
@@ -89,7 +200,7 @@ Toast Titanium 15.1 (4486) [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416005.jpg" />
 </div>
 
 
@@ -115,7 +226,7 @@ Imagenomic Portraiture 3 for Adobe Lightroom 3.5.2.3520 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415907.jpg" />
 </div>
 
 
@@ -141,7 +252,7 @@ NetNewsWire 4.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415851.jpg" />
 </div>
 
 
@@ -168,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415600.jpg" />
 </div>
 
 
@@ -194,7 +305,7 @@ JetBrains AppCode 2020.2.3 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415571.jpg" />
 </div>
 
 
@@ -220,7 +331,7 @@ iZotope - RX 8 Audio Editor Advanced STANDALONE, VST, VST3, AAX 8.1.0.544 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415390.jpg" />
 </div>
 
 
@@ -247,7 +358,7 @@ Notefile 2.7.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415095.jpg" />
 </div>
 
 
@@ -273,7 +384,7 @@ FiveNotes 2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415055.jpg" />
 </div>
 
 
@@ -299,7 +410,7 @@ QuickLinks 2.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414915.jpg" />
 </div>
 
 
@@ -325,7 +436,7 @@ Dark Mode Switch 1.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414911.jpg" />
 </div>
 
 
@@ -351,7 +462,7 @@ TextMan 1.7.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414782.jpg" />
 </div>
 
 
@@ -377,7 +488,7 @@ Wake on Lan for Mac 1.0.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414780.jpg" />
 </div>
 
 
@@ -403,7 +514,7 @@ One Switch 1.26.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414757.jpg" />
 </div>
 
 
@@ -429,7 +540,7 @@ Flowstate 1.33 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414753.jpg" />
 </div>
 
 
@@ -457,7 +568,7 @@ Wondershare DVD Creator 6.1.8 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414654.jpg" />
 </div>
 
 
@@ -484,7 +595,7 @@ Cool Menu 1.5.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414644.jpg" />
 </div>
 
 
@@ -510,7 +621,7 @@ Chaos Control Premium 1.16 [En/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414642.jpg" />
 </div>
 
 
@@ -538,7 +649,7 @@ Boring Old Menu Bar 1.23 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414634.jpg" />
 </div>
 
 
@@ -564,7 +675,7 @@ SmartSound SonicFire Pro 6 v.6.6.9 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414624.jpg" />
 </div>
 
 
@@ -575,116 +686,6 @@ SmartSound Sonicfire Pro 6 - популярное приложение, пред
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:189F4C8890A69D019BF84D2F991BA5083624B57C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066254   (414467) от 25.10.2016
-
-GoodTimes 1.3.3 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414467.jpg" />
-</div>
-
-
-###  Подробнее
-
-GoodTimes - самый простой и удобный инструмент для создания коллажей из ваших фотографий, связанных той или иной темой. Выберите шаблон и просто перетащите в него фото. GoodTimes создаст коллаж, имитирующий, например, разбросанные отпечатки, как если бы вы фотографировали свой стол, стену с развешенными фотографиями и многое другое.
-
-Поделитесь вашим коллажем в социальных (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 25 октября 2016Разработчик: Vogelbusch & CoПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский, Французский, Немецкий и Португальский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD4EC0D89E0696CA1EE0DF73FCE0A6B3422E772F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573300   (414422) от 30.08.2022
-
-KeyKey — Typing Practice 2.9.1 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414422.jpg" />
-</div>
-
-
-###  Подробнее
-
-KeyKey — учимся слепому набору.
-Слепая десятипальцевая печать — штука полезная. Даже если вы пишете только комментарии в соцсетях, представьте как здорово общаться не отвлекаясь на набор и исправление ошибок. Ну а блогерам, маркетологам, журналистам этот навык жизненно необходим.
-Чтобы научится слепому набору не нужны учителя и дорогостоящие курсы. KeyKey работает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.08.2022Разработчик: © Sergiy Vynnychenko & Vlad GorohovskyПоддерживаемая ОС: macOS X 10.12 или вышеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:145F7890A1F0D5FBE8C255242B14A10C721503EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 822973   (413955) от 17.10.2014
-
-OS X Server 3.2.2 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413955.jpg" />
-</div>
-
-
-###  Подробнее
-
-С новым сервером OS X Server ваш бизнес, домашний офис или учебное заведение станут ещё эффективнее. Его невероятно легко устанавливать и настраивать, и им легко управлять.
-
-OS X Server — новое поколение серверного ПО Apple, созданное для устройств с OS X и iOS. OS X Server позволяет легко обмениваться файлами, планировать встречи, синхронизировать контакты, разрабатывать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 октября 2014Разработчик: Apple Inc.Поддерживаемая ОС: OS X 10.9.5 +Язык интерфейса: Английский, Голландский, Испанский, Итальянский, Китайский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69A24210F79651095FB7103000451BD0D8A7D31E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 832064   (413947) от 17.10.2014
-
-Apple Aperture 3.6 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aperture сочетает инструменты управления и высокую скорость, необходимую профессионалам для решения самых сложных задач обработки фотографий, с простотой обучения, которая необходима пользователям iPhoto для освоения передового инструмента работы с фотографиями. Программа полностью оптимизирована для дисплея Retina на новом MacBook Pro, поэтому Вы можете просматривать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 октября 2014Разработчик: Apple IncПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Немецкий, Французский, Японский и Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E9D112785FD59915B4A7C2E4BE299427DD661A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

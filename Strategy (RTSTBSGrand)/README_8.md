@@ -1,3 +1,31 @@
+###  Публикация: 513457   (578250) от 25.07.2012
+
+Napoleon: Total War + 8 DLC [Ru] (RePack/1.3.0.1754.335753) 2010 | Fenixx
+
+>>След.
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый проект призван воплотить все лучшие черты знаменитых исторических стратегий культовой серии Total War.
+Вниманию игроков будут представлены три сюжетные кампании — важнейшие военные походы Наполеона Бонапарта, которые ознаменовали ключевые этапы его правления — от триумфального восхождения на трон до бесславного падения.
+Игроки получат возможность выступить в роли легендарного французского полководца или же стать во главе одной из противостоящих ему армий. В трех игровых кампаниях будут представлены основные Наполеоновские войны, начиная победоносными операциями в Италии и Египте, благодаря которым генерал-корсиканец совершил головокружительный взлет и стал императором, до фиаско русской кампании 1812 года и поражения в битве при Ватерлоо — последнем масштабном сражении Бонапарта, ознаменовавшем конец целой эпохи в истории Европы. (   Читать дальше...   )Тип издания: Repack (Лицензии)Разработчик: The Creative AssemblyЖанр: Strategy (Real-time / Turn-based) / 3DЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47718ADECDDCAFFF4A5A995B6378CFF8A9C06951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234030   (574077) от 03.07.2018
 
 Eador: Genesis / Эадор. Сотворение (2009) [Ru/Multi] (1.05.2 Language Update) License GOG
@@ -6,7 +34,7 @@ Eador: Genesis / Эадор. Сотворение (2009) [Ru/Multi] (1.05.2 Lang
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574077.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ Sacrifice / Жертвоприношение (2000) [Ru/En] (15.08.2016) License
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573983.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ Dungeons 3 / Dungeons III (2017) [Ru/Multi] (1.6/dlc) Repack R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573893.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ Ultimate General: Civil War (2017) [Ru/Multi] (1.0) Repack Covfefe
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570090.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ War For The Overworld (2015) [Ru/Multi] (2.0.7/dlc) Repack R.G. Catalyst [Underl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566573.jpg" />
 </div>
 
 
@@ -136,7 +164,7 @@ Dungeons 3 (2017) [Ru/En] (1.6.0/dlc) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566557.jpg" />
 </div>
 
 
@@ -162,7 +190,7 @@ Hostile Waters: Antaeus Rising / Враждебные воды: Территор
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_564565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_564565.jpg" />
 </div>
 
 
@@ -188,7 +216,7 @@ Master of Orion: Conquer the Stars (2016) [Ru/Multi] (55.1.1/dlc) Repack R.G. Ca
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562738.jpg" />
 </div>
 
 
@@ -214,7 +242,7 @@ Stellaris (2016) [Ru/Multi] (1.2.5.24012/dlc) Repack от Let'sPlay [Galaxy Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562622.jpg" />
 </div>
 
 
@@ -240,7 +268,7 @@ Aggression: Reign over Europe / Агрессия (2007) [Ru] (1.23) Repack R.G. 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560308.jpg" />
 </div>
 
 
@@ -266,7 +294,7 @@ Fragile Allegiance (1997) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557956.jpg" />
 </div>
 
 
@@ -292,7 +320,7 @@ Iron Heart (2019) [Ru/Multi] (1.0) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555603.jpg" />
 </div>
 
 
@@ -318,7 +346,7 @@ The Hive (2016) [En] (1.01) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552586.jpg" />
 </div>
 
 
@@ -344,7 +372,7 @@ Warparty (2019) [Ru/Multi] (1.0.9) Repack R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551766.jpg" />
 </div>
 
 
@@ -370,7 +398,7 @@ Re-Legion (2019) [Ru/Multi] (1.3.1.314) Repack R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547505.jpg" />
 </div>
 
 
@@ -396,7 +424,7 @@ MarZ: Tactical Base Defense (2019) [Ru/Multi] (1.0/upd8) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547495.jpg" />
 </div>
 
 
@@ -422,7 +450,7 @@ Plague Inc: Evolved (2016) [Ru/Multi] (1.16.3/dlc) License HI2U
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544355.jpg" />
 </div>
 
 
@@ -448,7 +476,7 @@ Star Wars: Galactic Battlegrounds Saga (2002) [Ru/Multi] (1.10/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543378.jpg" />
 </div>
 
 
@@ -474,7 +502,7 @@ Sudden Strike: Resource War / Sudden Strike: Битва за ресурсы (200
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542208.jpg" />
 </div>
 
 
@@ -500,7 +528,7 @@ Sudden Strike 3: Arms for Victory (2007) [Multi] (1.4) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542196.jpg" />
 </div>
 
 
@@ -526,7 +554,7 @@ Victoria 2 / Виктория 2 + DLC [En/Ru] (L) 2010
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539286.jpg" />
 </div>
 
 
@@ -552,7 +580,7 @@ Imperialism 2: The Age of Exploration (1999) [En] (1.03) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533842.jpg" />
 </div>
 
 
@@ -578,7 +606,7 @@ Command & Conquer - Generals: Zero Hour (2009) [Ru] (1.00) Mod/Portable [Multipl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531330.jpg" />
 </div>
 
 
@@ -604,7 +632,7 @@ Cossacks Anthology / Козаки Антология (2003) [En] (1.15/1.30/1.35
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530220.jpg" />
 </div>
 
 
@@ -630,7 +658,7 @@ Total War: ROME II (2013) [Multi] (2.4.0/dlc) License CODEX [Emperor Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529535.jpg" />
 </div>
 
 
@@ -641,32 +669,6 @@ Total War: ROME II (2013) [Multi] (2.4.0/dlc) License CODEX [Emperor Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFF75C0B0B87D10067DD1E5D391F958C7A573005
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927014   (529319) от 12.08.2015
-
-Hearts of Iron: Trilogy / День Победы: Трилогия (2002-2009) [En] (1.06с /1.3а /4.02) License GOG
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третья часть глобальной стратегии о самой жестокой войне человечества достигла поистине исполинских масштабов и, наконец, обрела трёхмерность. Для управления доступно 150 государств, в которые входит в общей сложности 10 тысяч провинций, существовавших на карте мира в период с 1936 по 1948 год. На сегодняшний день — это мировой рекорд! Игроки будут избавлены от мелких (   Читать дальше...   )Тип издания: LicenseРазработчик: Paradox EntertainmentЖанр: Strategy (Real-time / Grand strategy) / Top-downЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EFF856766417DD877148B8B2D7AE4A603054589
 ```
 
 https://mybot314.ru/tekegram_catalog/

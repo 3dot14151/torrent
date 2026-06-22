@@ -1,3 +1,166 @@
+###  Публикация: 1104346   (877667) от 16.02.2017
+
+Сборник - Spirit of Freedom (50 clips) (2017) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877667.jpg" />
+</div>
+
+
+###  Подробнее
+
+50 работ, которые притягивают своей мелодичностью и красотой, целительной энергии солнечного света заставляя слушателя замирать и на время отключаться от всех проблем,  Все клипы наполнены мягкими электронными ритмами, и они успокаивают, расслабляют, снимают усталость и дарят надежду... Лучшая фраза, которой я могу описать эти музыкальные клипы, пожалуй будет "охлажденная (   Читать дальше...   )01. Michel Pepe - Divine osmose [05:50]
+02. Al Conti - Anima Aeterna [05:34]
+03. Djeff Z - History [07:45]
+04. Enigma - Amen [04:53](   Читать дальше...   )Жанр: Ambient, Chillout, New AgeПродолжительность: 04:14:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:015A3096B4AAB09FDE12309DDFF8E37805648B45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104708   (877550) от 16.02.2017
+
+Шоу Оли Поляковой (2017) WEB-DL [1080p]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женщина-праздник, Суперблондинка украинской эстрады представит зрителям грандиозное постановочное шоу "Оля Полякова". На одной сцене в одном масштабном проекте соединились карнавал Рио-де-Жанейро и Диснеевская сказка. Певица исполнит 14 суперхитов и подарит зрителям незабываемый музыкальный вечер.Производство: Украина, ИнтерЖанр: Музыкальный. концертРежиссер: Марина ШалеваАктеры: Оля ПоляковаСубтитры: НетПродолжительность: 01:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E07BD1F0F7D3A529B7F765E6A761A26A8BDDAAB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 264515   (877063) от 23.02.2011
+
+Видеоклипы / Music Videos [MPG] [VCD, SVCD]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lo-Fi. Качество многих клипов (особенно российских) оставляет желать большего, но это всё же лучше, чем совсем ничего.Жанр: Pop, Pop Rock, AlternativeФормат: MPGПродолжительность: 3:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A97DE3F4896393B827DF25616A3FE5E4C96D38D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373749   (876708) от 08.04.2020
+
+Alestorm - Treasure Chest Party Quest (2020) WEBRip [H.264/1080p-LQ] <Scottish Pirate Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: Napalm RecordsЖанр: Scottish Pirate MetalПродолжительность: 00:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:381A29048D189599F81DF0D5E2AF68D8198FAF9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373770   (876619) от 08.04.2020
+
+ILL NINO - 18 Music Videos (2001-2020) WEBRip [H.264/480p/720p/1080p/2160p-LQ] <Nu-Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876619.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 2001 ILL NINO - God Save Us DVDRip
+002 2001 ILL NINO - Unreal DVDSRip
+003 2001 ILL NINO - What Comes Around DVDRip
+004 2003 ILL NINO - How Can I Live  DVDRip(   Читать дальше...   )Жанр: Nu-MetalПродолжительность: 01:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8153C1938D383EA8F86D67E88D424363F51366F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373709   (876612) от 08.04.2020
+
+Юлия Чичерина - Фонтан счастья/Рынок-лабиринт (2020) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Юлия Чичерина - Фонтан счастья
+Манасаровар — озеро живой воды, считается источником жизни, максимальная глубина 90 метровЖанр: Альтернативный РокПродолжительность: 00:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:768A4D3BC1BCABEA64C3BA2F61A9D3A7E287B3BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 299864   (875943) от 24.02.2011
 
 Праздничный парад звезд (2011.02.23) SATRip
@@ -6,7 +169,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875943.jpg" />
 </div>
 
 
@@ -35,7 +198,7 @@ Mariza - Concerto em Lisboa / Live at Lisbon  (2006) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875637.jpg" />
 </div>
 
 
@@ -64,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875521.jpg" />
 </div>
 
 
@@ -93,7 +256,7 @@ Megadeth - коллекция видеоклипов (1986-2011) [H.264] DVDRip,
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_875484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875484.jpg" />
 </div>
 
 
@@ -128,7 +291,7 @@ Metallica - The Videos 1989-2004 [iTunes M4V Album] (2006) [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875237.jpg" />
 </div>
 
 
@@ -157,7 +320,7 @@ Feuerschwanz - Das Elfte Gebot (2020) WEBRip [H.264/1080p-LQ]<Mitellater Folk-Ro
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874435.jpg" />
 </div>
 
 
@@ -183,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873388.jpg" />
 </div>
 
 
@@ -209,7 +372,7 @@ Major Lazer feat. Busy Signal & The Flexican & FS Green - Watch Out For This (Bu
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873265.jpg" />
 </div>
 
 
@@ -235,7 +398,7 @@ Disbelief - The Ground Collapses (2020) WEBRip [H.264/1080p-LQ] <Thrash, Sludge 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872834.jpg" />
 </div>
 
 
@@ -261,7 +424,7 @@ Megatherium - The Eye (2020) WEBRip [H.264/1080p-LQ]<Psychedelic Stoner, Doom Me
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872828.jpg" />
 </div>
 
 
@@ -287,7 +450,7 @@ Sodom - Napalm In The Morning (Apocalypse Now!) (2009) WEBRip [H.264/720p-LQ]<Th
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872579.jpg" />
 </div>
 
 
@@ -313,7 +476,7 @@ Metallica – Quebec Magnetic (2012)[iTunes Movie – HD]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871597.jpg" />
 </div>
 
 
@@ -341,7 +504,7 @@ Paul van Dyk - Music Video (Подборка из 11 клипов) (2000-2009) D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871447.jpg" />
 </div>
 
 
@@ -369,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870798.jpg" />
 </div>
 
 
@@ -398,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870602.jpg" />
 </div>
 
 
@@ -424,7 +587,7 @@ Pink Floyd - The Later Years 1987-2019 (2019) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870240.jpg" />
 </div>
 
 
@@ -450,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870204.jpg" />
 </div>
 
 
@@ -479,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869527.jpg" />
 </div>
 
 
@@ -508,7 +671,7 @@ Styx And The Contemporary Youth Orchestra: One With Everything (2006) [1080i] Bl
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868053.jpg" />
 </div>
 
 
@@ -537,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867871.jpg" />
 </div>
 
 
@@ -548,169 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18E29452A93990FBB9B24F6E2CADE95B9F398786
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106987   (867434) от 22.02.2017
-
-Оля Полякова - Большой сольный концерт Stereo Plaza (2015) WEB-DL [1080p]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый, большой концерт Всея-Блондинки Украины в Киеве. Весело, задорно! Живой вокал, красивые наряды, задорные танцы и атмосфера дружбы и веселья.01. Вступление "Жила-была, черная дыра..."
-02. "Russian Style (Пум-Пум)"
-03. Разговор с залом
-04. "Мальчикам ЭТО нравится"(   Читать дальше...   )Производство: УкраинаЖанр: Музыкальный, концертРежиссер: Елена АлексееваАктеры: Оля ПоляковаСубтитры: НетПродолжительность: 01:26:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4EF30CD90098FB5A4236B8C7BF8220786D37358
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 644421   (867127) от 17.04.2013
-
-Gangnam Style 3D / PSY - Gangnam Style (2012) HDRip [H.264/1080p]  [ Горизонтальная анаморфная стереопара 3D]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отрывайтесь по-полной в 3d-клипе с «Gangnam Style»  — синглом южнокорейского исполнителя и автора песен PSY! Песня в 2012 году стала первой в рейтинге Gaon Chart, а её видеоклип на YouTub сделал певца миллионером. В 3d ролике  комически танцующий PSY,  в двух местах в Каннамгу (район в Сеуле) и в восьми, которые находятся в Инчхоне и провинции Кёнгидо. В 3д-видеоклипе PSY задействовано много корейских актёров, а девушка – корейская певица Хёна.Жанр: Музыка, Dance, PopПеревод: ОтсутствуетПродолжительность: 00:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B42D7985B869CC4A45DEB4BCBED6FF2B1A97BC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 766413   (867087) от 16.03.2014
-
-Демонстрационный DVD-Video диск #2. Dolby Digital 6.1, DTS Multichannel Sound 6.1 [DVD5]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Демонстрационные музыкальные клипыПродолжительность: 01:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFDA5F313A85175D4B1C3F56BEFA9CDDEB97EE4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375037   (867033) от 13.04.2020
-
-Torrential Rain - Home Alone (2020) WEBRip [VP9/2160p-LQ]<Electronic Metalcore>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Torrential Rain - Home AloneЖанр: Electronic MetalcoreПродолжительность: 00:04:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FA4F979839B1A4144235FF3BB0107EECAE334FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 302073   (866889) от 01.03.2011
-
-Кипелов - Жить вопреки (Бонус-DVD) (2011) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Музыка / Heavy MetalПродолжительность: интервью: 00:37:53
-фотогалерея: 00:05:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6D8F662B568624635B918850F994158FEC493DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998921   (865722) от 21.03.2016
-
-Сплин - Сигнал Из Космоса (Концерт в ДК им. Горбунова) (02.04.2010) DVB
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа "Сплин" в представлении не нуждается. Уже легенда, еще не ветераны. В их песнях нет дидактики. Они ничему не учат, не наставляют и не заставляют. Они напрочь лишены морали в общепринятом значении этого слова. Новый материал на каждом концерте. Новый состав - новые люди. В каком настроении выйдет на сцену Александр Васильев - всякий раз неизвестно, (   Читать дальше...   )01. Выхода нет
-02. Шато Марго
-03. Добро пожаловать!
-04. Чердак(   Читать дальше...   )Производство: Первый каналЖанр: Музыка, КонцертРежиссер: Первый каналАктеры: Александр Васильев, Алексей Мещеряков, Дмитрий Кунин, Вадим Сергеев, Николай РостовскийПродолжительность: 01:02:10Реклама: в отдельных кадрах присутствует реклама (бегущая строка)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BC926C136D32608A6E5CFFE180A7F2D3B6E3CEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

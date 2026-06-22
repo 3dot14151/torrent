@@ -1,3 +1,107 @@
+###  Публикация: 1066540   (410911) от 26.10.2016
+
+Золото Рейна: Лица одной реки / Rheingold: Gesichter eines Flusses (2014) BDRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_410911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рейн - центр европейской души. Крупнейшая и наиболее важная река континента. На протяжении тысяч лет, на своем пути от Альп до Северного моря он формирует уникальные культурные ландшафты, в которых люди и природа взаимно влияли друг на друга. На своем пути от массива Готтхард к морю, он пересекает шесть стран: Швейцарию, Австрию, Лихтенштейн, Германию, Францию и (   Читать дальше...   )Телекомпания: Германия /  Vidicom Media Productions, Südwestrundfunk (SWR)Жанр: Документальный, ВидовойПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 01:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEB1C717C9226638976E103B878AE69A543635A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164527   (410241) от 23.09.2017
+
+Дэвид Аттенборо: Дикий город / David Attenboroughs: Wild City (2015) HDTVRip [H.264/720p-LQ] (серии 1-2 из 3)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410241.jpg" />
+</div>
+
+
+###  Подробнее
+
+На один градус севернее экватора находится маленький остров, процветающий тропический рай. А буквально из джунглей вырос один из самых динамично развивающихся городов мира - Сингапур, одна из самых густонаселенных стран на планете. Там, где когда-то были тропические джунгли, сейчас расположены 665 квадратных километров асфальта и небоскребов. Но даже при населении (   Читать дальше...   )Производство: Сингапур, Beach House Pictures Pte LtdЖанр: Документальный, научно - познавательный, фауна, флораРежиссер: Клэр КлементсПеревод: Одноголосый закадровый, профессиональный (Видеофильм - ТВ)Субтитры: отсутствуютПродолжительность: 2x~00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:952815C0B1A09A23DCF92E5E1B8E603BDCD0166F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 557992   (406561) от 15.10.2012
+
+Сфера колдовства / La cle des champs (Das Wunder der Natur) (2011)  [H.264] BDRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм от создателей «Микрокосмос» - это невероятно трогательная история дружбы мальчика (Симон Делане) и девочки (Линдси Енок), обрамленная красотой живой природы... «Детская любовь - большое везение. Ни одному из нас не удалось ее пережить», - сообщили на презентации фильма «Сфера колдовства» его режиссеры Клод Нуридзани и Мари Перенну. По их замыслу, пруд - это символ взрослого мира, в который должен войти ребенок, а чувства мечтательного, замкнутого мальчика к девочке в красном платье - лучшее, что могло с ним случиться.... Французский мальчик лет десяти проводит каникулы в деревне. Скучный мир взрослых людей его мало занимает, чего не скажешь о мире природы: на краю деревни раскинулся пруд, волшебный в своем многообразии...Жанр: Документальный, фэнтези, семейныйРежиссер: Клод Нуридзани, Мари ПеренуВ ролях: Симон Делане, Линдси Енок, Жан-Клод Айриньяк, Дени ПодалидесПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:21:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B96A9E6568D8BD365B2B875579B2E27198160DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170818   (398561) от 02.10.2017
+
+Бесценные рифы острова Окинава / Okinawa's Precious Reefs (1998) HDTV [H.264/1080i-LQ]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы побываем в районе архипелага Рюкю и островов Кирама, где находятся знаменитые рифы. Здесь обитает около 400 видов кораллов всевозможных форм и расцветок. Колонии кораллов обеспечивают питанием многие формы жизни, являются убежищем для разных морских созданий. Мы узнаем, как образуются рифы, как размножаются и питаются кораллы, кто живёт в коралловых лесах, и почему (   Читать дальше...   )Производство: Япония, NHKЖанр: Документальный, флора, фаунаРежиссер: Тетсухиро Сузуки, Юко МиякеПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22331589F6F9F192F073D614A72752A5CB6680D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171234   (397522) от 03.10.2017
 
 Тайны природы. Кубинский панцирник: уцелевший в болотах / Cuban Gar: Survivor of the Swamp (2006) HDTV [H.264/1080i-LQ]
@@ -6,7 +110,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397522.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395696.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394726.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393833.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393826.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386859.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386749.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384820.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384628.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383121.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382867.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382865.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378725.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377233.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376914.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375560.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374498.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374383.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374219.jpg" />
 </div>
 
 
@@ -504,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372261.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372036.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371292.jpg" />
 </div>
 
 
@@ -568,112 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36D79706820CDFF82D826AFF3A920C8C9ED71CC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069891   (371182) от 05.11.2016
-
-Два Океана / Two Oceans (2011) HDTV [H.264/1080i] (серии 1-3 из 3)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия документальных фильмов о флоре и фауне южного берега Африки - уникальной климатической зоны на стыке двух океанов.Телекомпания: ЮАР, homebrew FILMS, Off The Fence B.VЖанр: Документальный, флора, фаунаРежиссер: Клаудио Веласкес РохасПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 3х ~ 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0791A9BEE69E74D2AE8DAD982C521B58497FB99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069993   (371157) от 05.11.2016
-
-Горбатые киты / Humpback Whales (2015) BDRip3D [H.264/1080p][вертикальная анаморфная стереопара][ENG]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прокомментированное дважды лауреатом премии "Золотой Глобус" Эваном МакГрегором, это - экстраординарное путешествие в сказочный мир одного из самых впечатляющих животных планеты. Съемки велись в красивейших местах Аляски, Гавайев и отдаленных берегов Тонги; во время этого приключения вы узнаете, как общаются киты между собой, как они поют, питаются, играют (   Читать дальше...   )Телекомпания: Pacific LifeЖанр: Документальный, ВидовойРежиссер: Грег МакГилвриПеревод: ОтсутствуетЯзык субтитров: английскийПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ECD85527C4D44F396998C3FE7E91CED26F4B76C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069838   (371015) от 05.11.2016
-
-Чудесный лес / Metsan tarina (2012) BDRip3D [H.264/1080p] [вертикальная анаморфная стереопара] [ENG]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371015.jpg" />
-</div>
-
-
-###  Подробнее
-
-В фильме показана разнообразная и насыщенная жизнь обитателей леса. Красочные пейзажи разных времен года будут фоном интересных событий жизни птиц, насекомых, а также мелких грызунов и крупных хищников.Жанр: Документальный, ВидовойРежиссер: Kim Saarniluoto, Вилле СухоненПеревод: ОтсутствуетЯзык озвучки: английскийПродолжительность: 01:15:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64EA3DA57BB5D6A19E750CF5772F01CF5DE93EAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534241   (370622) от 05.11.2016
-
-Коралловый риф 3D / Faszination Korallenriff 3D (2011) BDrip [H.264/1080p] [Вертикальная анаморфная стереопара]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивый и расслабляющий фильм в формате 3D приглашает Вас отправится в коралловое путешествие. Яркие краски обитателей кораллового Мира, флора и фауна которую могут увидеть только профессиональные ныряльщики. От шаровых рыб, морских ежей, до гигантский акул. Вы будете удивлены многочисленности глубоководных жителей нашей планеты. Самые современные 3D-технологии (   Читать дальше...   )Жанр: ДокументальныйРежиссер: Бенжамин КраузеПеревод: |Одноголосый закадровый|Субтитры: нет
-
-Похожие раздачиПродолжительность: 00:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88A20C58E80036F1235CDDEF81CA29FB3FC4790E
 ```
 
 https://mybot314.ru/tekegram_catalog/

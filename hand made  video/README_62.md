@@ -1,3 +1,29 @@
+###  Публикация: 1410353   (437918) от 20.09.2020
+
+Хищники / Predators (2010) HybridRip [H.264] [Open Matte] [Extended Fan Cut]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наемник Ройс невольно вынужден возглавить группу профессионалов, выполняющих загадочную миссию на неизвестной планете. За исключением опального доктора все они — хладнокровные убийцы: наемники, гангстеры, осужденные и участники отрядов смерти — людские «хищники». Но когда их начинает систематически преследовать и истреблять невообразимое чудовище, становится очевидно, (   Читать дальше...   )Производство: США / Twentieth Century Fox Film Corporation, Troublemaker Studios, Davis EntertainmentЖанр: фантастика, боевик, триллер, приключенияРежиссер: Нимрод АнталАктеры: Эдриан Броуди, Олег Тактаров, Лоренс Фишбёрн, Дэнни Трехо, Тофер Грейс, Алиси Брага, Уолтон Гоггинс, Луис Одзава Чжанцзянь, Махершала Али, Кэри ДжонсПеревод: ДублированныйСубтитры: русские (форс, полные), английскиеПродолжительность: 01:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E5724A3E06CBD6C94BF19552C5F4E02F7B089E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410157   (437732) от 20.09.2020
 
 Приключения Шерлока Холмса и доктора Ватсона. Король шантажа. (1980) DVDRip [H.264/1080p-LQ] [handmade remastered upscale AI]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437732.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437027.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436998.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Winger - Live (2007) от ALEXnROCK WEBRip [H.264/1080p-LQ]
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435146.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434383.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433272.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431556.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431446.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430664.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430133.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430131.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428811.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428086.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427650.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427399.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424558.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424477.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423072.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ Europe - Live in Sweden 1986 (The Final Countdown Tour) от ALEXnROCK (2006) DV
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422273.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422113.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420999.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420922.jpg" />
 </div>
 
 
@@ -592,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420763.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419102.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418763.jpg" />
 </div>
 
 
@@ -655,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B7BE84102B41409CEEB41C5FBB39604A53D19EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167010   (418723) от 19.09.2017
-
-Пираты Карибского моря: Мертвецы не рассказывают сказки / Pirates of the Caribbean: Dead Men Tell No Tales (2017) BDRip [H.264/1080p-LQ] [handmade 16:9]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исчерпавший свою удачу капитан Джек Воробей обнаруживает, что за ним охотится его старый неприятель, ужасный капитан Салазар и его призрачные пираты. Они только что сбежали из Дьявольского треугольника и намерены уничтожить всех пиратов, включая Джека. Поможет спастись лишь могущественный артефакт — трезубец Посейдона, который дарует своему обладателю полный контроль (   Читать дальше...   )Производство: США / Walt Disney PicturesЖанр: фэнтези, боевик, комедия, приключенияРежиссер: Хоаким Роннинг, Эспен СандбергАктеры: Джонни Депп, Кира Найтли, Кая Скоделарио, Дэвид Уэнэм, Орландо Блум, Джеффри Раш, Брентон Туэйтс, Хавьер Бардем, Голшифте Фарахани, Стивен ГрэмПеревод: Дублированный (Лицензия BD EUR)Субтитры: Русские (форсированные, полные), английские (полные)Продолжительность: 02:09:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E4F0A6A914FC9BD740D0D1AD5D2EC5794A1AC16
 ```
 
 https://mybot314.ru/tekegram_catalog/

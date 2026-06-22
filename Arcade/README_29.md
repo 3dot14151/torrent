@@ -1,3 +1,55 @@
+###  Публикация: 403301   (387947) от 26.10.2011
+
+Zombie Driver: Summer of Slaughter / Смертельная гонка: Тропический драйв (L) [Ru] 2011 | R.G. Игроманы
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы всегда мечтали расслабиться на уютном песчаном пляже, в тени под пышными пальмами, где слышен лишь умиротворяющий шелест волн… и вопли жаждущих отведать ваших мозгов зомби! Заражение настигло и этот райский уголок, и лишь самые отчаянные водители, превратившие свои машины в настоящие "колесницы смерти", смогут выжить в битве против бесчисленных орд живых (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Exor StudiosЖанр: Arcade / Racing (Cars) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A47C0C8B7CE6369847FFB495825D3A7158AC4BF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059936   (386336) от 29.10.2016
+
+Shu (2016) [Multi] (1.1.0/u1) License HI2U
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра в жанре экшен-приключения. Когда великий и ужасный шторм уничтожает деревню Шу, он отправляется в отчаянное путешествие, чтобы выжить. В своих странствиях герой будет сталкиваться с различными персонажами, которые нуждаются в его помощи. В обмен на помощь они будут предоставлять Шу уникальные специальные способности, которые он может использовать, чтобы пройти (   Читать дальше...   )Тип издания: LicenseРазработчик: Coatsink Software, Secret Lunch GamesЖанр: Action, AdventureЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDCA66771B8DDDF4B19A643D5ADF5B6390AF59CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 250017   (385977) от 25.10.2010
 
 Антология: Teenage Mutant Ninja Turtles [Ru] (RePack) 2003 - 2007 | !Sagat!
@@ -6,7 +58,7 @@
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_385977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_385977.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Mortal Kombat Trilogy (1996) [En] (1.0hf) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383150.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Destroy All Humans! 2 - Reprobed (2022) [Ru/Multi] (1.0.362/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383148.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Hell Yeah! Wrath of the Dead Rabbit [En] (RePack/1.0u1/2 DLC) 2012 | R.G. Shift
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382590.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ Mark of the Ninja (2012) [Ru/Multi] (1.0) Repack R.G. Revenants [Special Edition
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381939.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ My Memory of Us (2018) [Ru/Multi] (1.0) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381243.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ X-Morph: Defense (2017) [Ru/Multi] (1.12/dlc) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379100.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ Valthirian Arc Hero School Story (2018) [Ru/Multi] (1.0) License HOODLUM
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379090.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ Deadlight [Ru/En] (Repack/1.0.9249.u.1) 2012 | R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377397.jpg" />
 </div>
 
 
@@ -251,7 +303,7 @@ Magnetic: Cage Closed (2015) [Ru/Multi] (1.09-p2/dlc) Repack R.G. Механик
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374131.jpg" />
 </div>
 
 
@@ -277,7 +329,7 @@ Sprill: The Mystery of The Bermuda Triangle / Сприлл: Тайна Берм�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_373304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_373304.jpg" />
 </div>
 
 
@@ -304,7 +356,7 @@ Farm Together (2018) [Ru/Multi] (1.0/dlc) License HOODLUM
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372251.jpg" />
 </div>
 
 
@@ -330,7 +382,7 @@ WWE 2K18 (2017) [Multi] (1.0/dlc) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371228.jpg" />
 </div>
 
 
@@ -356,7 +408,7 @@ AIRHEART - Tales of broken Wings (2018) [Multi] (1.09) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369783.jpg" />
 </div>
 
 
@@ -382,7 +434,7 @@ NBA 2K Playgrounds 2 (2018) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367620.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ Alien Breed Trilogy (2010) [Ru/En] (12.10.2015) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367124.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ TEKKEN 7 (2017) [Ru/Multi] (3.30/dlc) SteamRip =nemos=
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366850.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.0.15/dlc) Repack Other s [Cultist Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365663.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ SEUM: Speedrunners from Hell (2016) [Ru/Multi] (3266/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365557.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ Velocity Stream (2015) [En] (1.0) License POSTMORTEM
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365202.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ Mortal Kombat 11 (2019) [Ru/Multi] (0.318) License EMPRESS [Premium Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364519.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ Realms of Chaos (1995) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364030.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ Batman: Arkham Origins Blackgate (2014) [Ru/Multi] (F1-RLS-33278) SteamRip R.G. 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363281.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ TEKKEN 7 (2017) [Ru/Multi] (3.30/dlc) License EMPRESS [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362186.jpg" />
 </div>
 
 
@@ -627,58 +679,6 @@ TEKKEN 7 (2017) [Ru/Multi] (3.30/dlc) License EMPRESS [Ultimate Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31F66D2B9F7C3F88AF520F54AB5FB52514F05F49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576912   (361049) от 16.09.2022
-
-Blind Fate: Edo no Yami (2022) [Ru/Multi] (1.0.1) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Эдо, мрачную эпоху машин, когда Сегунат правит Японией, используя свое верное и безжалостное оружие - вас. Вы выполняете приказы. Подчиняетесь. Убиваете. Пока вас не лишают зрения, вынуждая учиться «видеть» мир в ином свете.Тип издания: LicenseРазработчик: Troglobytes GamesЖанр: Экшны, Приключeние, ExplorationЯзык озвучки: Русский, Английский, ЯпонскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C42958EE6086EEA3CD1C03968C203D613242CAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417196   (359730) от 19.10.2020
-
-Streets of Rage 4 / Bare Knuckle 4 (2020) [Ru/Multi] (4g-r10450) Repack R.G. Механики
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Streets of Rage 4 – Это новая часть одной из лучших игр в жанре beat ’em up, сочетающая в себе забористый саундтрек в стиле девяностых и старое доброе насилие! Наши старые друзья возвращаются: Axel, Blaze и Adam объединяются со своими новыми товарищами Floyd Iraia и Cherry Hunter. Наши герои более чем готовы наставить преступников на путь истинный под ритмичный завораживающий (   Читать дальше...   )Тип издания: RepackРазработчик: Dotemu, Guard Crush Games, LizardcubeЖанр: Экшены, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77E2D60EEC56CBECDB66C410D73B50E600238EAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

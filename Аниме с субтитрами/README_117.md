@@ -1,3 +1,29 @@
+###  Публикация: 1711529   (112506) от 30.03.2024
+
+Tenchi Muyou! GXP: Paradise Shidou Hen | Тэнти - лишний! GXP Зарождение рая [2023, OVA, 6 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой Сэйна Ямада мечтает о карьере космического пилота, но ему не удаётся поступить в специализированную академию. Вместо этого он принимает работу в космической корпорации Galaxy Police, где начинает работать в отделе по обработке данных. Однако, его жизнь меняется, когда он становится случайным свидетелем крушения космического корабля рядом с резиденцией (   Читать дальше...   )Производство: Saber ProjectЖанр: приключенияРежиссер: Нэгиси ХиросиПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские (мультисаб)Продолжительность: 6 эп. по 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A4617D57EE36BC6E8FD02D495BB72046E1319C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823034   (112406) от 09.10.2025
 
 Wandance | Один танец [2025, TV, 1 из 12] WEBRip 720p raw
@@ -6,7 +32,7 @@ Wandance | Один танец [2025, TV, 1 из 12] WEBRip 720p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112406.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Tondemo Skill de Isekai Hourou Meshi 2 | Кулинарные скитания �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112390.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Kurayukaba | Краюкаба [2024, Movie] WEBRip 544p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111567.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Kuro no Shoukanshi | Black Summoner | Чёрный призыватель [2022,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111503.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Tensei Shitara Slime Datta Ken: Coleus no Yume | О моём перерожде�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111418.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Boku no Hero Academia: Yuuei Heroes Battle | Моя геройская акад�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111398.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Isekai Yakkyoku | Parallel World Pharmacy | Аптека в другом мир�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110600.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Kimi wa Houkago Insomnia | Insomniacs After School | Бессонница пос
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110593.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Fruits Basket: Prelude | Корзинка фруктов: Прелюдия [2022
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110502.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Noumin Kanren no Skill Bakka Agetetara Naze ka Tsuyoku Natta. | Каким-то 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110133.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Kono Healer, Mendokusai | Don't Hurt Me, My Healer! | Этот хилер мен
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110127.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Takt Op.Destiny | Такт. Опус Дестини [2021, TV, 12 эп.] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110109.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Akuyaku Reijou nano de Last Boss o Katte Mimashita | Я оказалась зл�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110108.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Undead Girl Murder Farce | Фарс убитой нежити [2023, TV, 13 эп
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110106.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Isekai Nonbiri Nouka | Farming Life in Another World | Фермерская жи
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109844.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Dark Gathering | Тёмное собрание [2023, TV, 25 эп.] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109836.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Seiken Gakuin no Maken Tsukai | The Demon Sword Master of Excalibur Academy | М
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109813.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Omamori Himari | Защитница Химари [2010, TV, 12 эп.] BDRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108506.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Great Pretender: Razbliuto | Великий притворщик: Разблют
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107261.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Kinsou no Vermeil: Gakeppuchi Majutsushi wa Saikyou no Yakusai to Mahou Sekai o 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107259.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Sokushi Cheat ga Saikyou Sugite, Isekai no Yatsura ga Marude Aite ni Naranaindes
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106462.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Majo to Yajuu | The Witch and the Beast | Ведьма и зверь [2024, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106461.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ S-Rank Musume | Boukensha ni Naritai to Miyako ni Deteitta Musume ga S Rank ni N
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106433.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106427.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ Spy Kyoushitsu | Spy Classroom | Шпионский класс [2023, TV, 24 э�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106404.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ Spy Kyoushitsu | Spy Classroom | Шпионский класс [2023, TV, 24 э�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:950CD286E0E1E6664F806E70DD74B1FEBD071FF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822884   (104440) от 09.10.2025
-
-The Dark History of the Reincarnated Villainess | Tensei Akujo no Kurorekishi | Тёмное прошлое перевоплощённой злодейки [2025, TV, 1 из 12 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104440.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Конохи Сато тёмное прошлое. В конце концов, она провела свои подростковые годы, пиша самовлюблённые фэнтезийные романтические фанфики — свою Тёмную Историю. Но поскольку теперь она стала самой отвратительной злодейкой этой истории, помнить каждую деталь — вопрос жизни и смерти. Избежав первых нескольких флагов смерти, Сато внезапно оказывается в неведении, когда (   Читать дальше...   )Производство: студия Studio Deen / スタジオディーンЖанр: романтика, фэнтезиРежиссер: Сакурай ХироакиПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADC6CF5BB679F05741D97D368BA69E0A0231868F
 ```
 
 https://mybot314.ru/tekegram_catalog/

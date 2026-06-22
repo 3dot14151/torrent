@@ -1,3 +1,213 @@
+###  Публикация: 915663   (591812) от 06.07.2015
+
+Discovery: Разрушители легенд. Спецвыпуск Симпсоны / MythBusters. The Simpsons Special (2015) WEB-DLRip (Сезон 15, эпизод 01) Jetvis Studio
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591812.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Одноголосый закадровый - Jetvis StudioПродолжительность: ~ 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:126E9A6958762635FAFCE3A274DC891969C86B71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915467   (591776) от 06.07.2015
+
+Animal Planet. Природа Ближнего Востока / Wildest Middle East (2014) HDTVRip (Сезон 1, серии 1-5 из 5)
+
+>>Зарубежные TV-бренды
+>>Animal Planet
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Природа Ближнего Востока потрясает своей красотой. Она кажется пустынной, но присмотритесь, и вам откроется всё богатство местной фауны и флоры.Телекомпания: США, Animal PlanetЖанр: Документальный, ТелепередачаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: Серия по ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFDC49E75EE56D32F7A8AE8BB61AC043331508D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915672   (591775) от 06.07.2015
+
+Discovery: Разрушители легенд. Спецвыпуск Индиана Джонс / MythBusters. The Busters of the Lost Myths (2015) WEB-DL [H.264/720p-LQ] (Сезон 15, эпизод 02) Jetvis Studio
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591775.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Одноголосый закадровый - Jetvis StudioПродолжительность: ~ 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28A060D4E213F3737CC45C48DC2BA23002E49C57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915671   (591772) от 06.07.2015
+
+Discovery: Разрушители легенд. Спецвыпуск Симпсоны / MythBusters. The Simpsons Special (2015) WEB-DL [H.264/720p-LQ] (Сезон 15, эпизод 01) Jetvis Studio
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591772.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Одноголосый закадровый - Jetvis StudioПродолжительность: ~ 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EF2844342730EBC543B62059820599861F60622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916119   (591335) от 07.07.2015
+
+BBC: Зараженный. Жизнь с паразитами / Unfested! Living With Parasites (2014) SATRip ("Видеофильм ТВ")
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Паразиты. У большинства людей они просто вызывают омерзение. Даже слово - паразит - оскорбление. Может паразиты и отвратительны, но для Майкла Мосли они уникальны. Их жизненный цикл поразителен. Мало кто на Земле сравнится с ними по умению приспосабливаться. Чтобы больше узнать об этих удивительных созданиях, Майкл сознательно заразит себя различными видами паразитов, (   Читать дальше...   )Производство: Великобритания, BBC, Science ProductionЖанр: ДокументальныйРежиссер: Натан УильямсПеревод: Одноголосый закадровый, профессиональный (Фильм озвучен компанией "Видеофильм ТВ")Продолжительность: 00:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3E940A4D4C5AA09B69EFE8FECE303E5A4231D26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551022   (591157) от 13.05.2022
+
+Кошачьи войны: Лев против Гепарда / Cat Wars: Lion vs. Cheetah (2011) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591157.jpg" />
+</div>
+
+
+###  Подробнее
+
+На просторах Серенгети в Африке на плёнку был запечатлен потрясающий акт жестокости, совершенный двумя высшими хищниками. Столкновения между львами и гепардами случаются так редко, что задокументировать такую стычку удалось впервые. Как и после неприглядной атаки из засады, после нападения выжившие разбегаются кто куда, а тела погибших жутко изуродованы. Но почему (   Читать дальше...   )Производство: США, National Geographic TelevisionЖанр: документальный, фаунаПеревод: одноголосый профессиональныйСубтитры: английскиеПродолжительность: 00:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67FB7A4DFF14FBA36742D98C632CBFB11C9487C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916287   (590850) от 08.07.2015
+
+Лондонский Музей естествознания вживую с Дэвидом Аттенборо / David Attenborough's Natural History Museum Alive (2014) BDRip
+
+>>Зарубежные TV-бренды
+>>Доисторический мир
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэвид Аттенборо приглашает зрителей в путешествие по Лондонскому музею естествознания. Когда двери музея заперты и наступает ночь, Аттенборо рассказывает о некоторых из самых увлекательных вымерших животных, которые оживают на его глазах: динозавры, фауна ледникового периода и гигантские рептилии.Телекомпания: Великобритания, Colossus Productions, Sky TVЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйЯзык субтитров: русский, английскийПродолжительность: 01:06:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02DDFA90FDCDB983FC44CA062B51D28ECD74723F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916455   (590825) от 08.07.2015
+
+Da Vinci Learning: BBC: Музыка простых чисел / The Music of the Primes [серии 1-3 из 3] (2006) SATRip
+
+>>Зарубежные TV-бренды
+>>Da Vinci Learning
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тайна простых чисел не дает покоя математикам уже многие века. Это величайшая нерешенная загадка математики - и тот, кто разгадает ее, обессмертит свое имя!
+Мир математики немыслим без них – без простых чисел. Что такое простые числа, что в них особенного и какое значение они имеют для повседневной жизни?
+В этих выпусках программы "Музыка простых чисел" (   Читать дальше...   )Телекомпания: BBC, Open University PartnershipЖанр: Документальный, научно-познавательныйРежиссер: Kieran SmythПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 3x~00:26:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:020D9ADD46DB791DE98E3310FB8743C75DB156ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912267   (590388) от 09.07.2015
 
 Discovery. Гаражное золото / Garage Gold (2014) HDTVRip [Сезон 2, серии 1-6] [Обновляемая]
@@ -6,7 +216,7 @@ Discovery. Гаражное золото / Garage Gold (2014) HDTVRip [Сезо�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590388.jpg" />
 </div>
 
 
@@ -32,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589748.jpg" />
 </div>
 
 
@@ -58,7 +268,7 @@ NG: Дикая сторона кошек / Wild Side of Cats (2012) HDTVRip [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589503.jpg" />
 </div>
 
 
@@ -84,7 +294,7 @@ NG: Дикая река Конго / Wild Congo (2013) HDTVRip [H.264/720p-LQ] (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589172.jpg" />
 </div>
 
 
@@ -110,7 +320,7 @@ Discovery. Мужские берлоги / Epic Man Cave Builds (2015) HDTVRip [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588931.jpg" />
 </div>
 
 
@@ -136,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588248.jpg" />
 </div>
 
 
@@ -162,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587910.jpg" />
 </div>
 
 
@@ -189,7 +399,7 @@ BBC: Дикая Африка и Маленькие гиганты / Wild Africa 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587015.jpg" />
 </div>
 
 
@@ -218,7 +428,7 @@ NGW: Дикие охотники. Змеи / Wild Hunters. Snakes (2019) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586168.jpg" />
 </div>
 
 
@@ -245,7 +455,7 @@ NG: Миссия Плутон (Встреча с Плутоном) / Mission Plu
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585749.jpg" />
 </div>
 
 
@@ -271,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585586.jpg" />
 </div>
 
 
@@ -297,7 +507,7 @@ Animal Planet: В дикие края с Эваном. Киты и акулы / 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585103.jpg" />
 </div>
 
 
@@ -324,7 +534,7 @@ BBC: Галапагосы / Galapagos (2006) HDTVRip [720p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_584600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_584600.jpg" />
 </div>
 
 
@@ -350,7 +560,7 @@ BBC: Прогулки с чудовищами / Walking with Beasts (2001) 2хDV
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_584590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_584590.jpg" />
 </div>
 
 
@@ -377,7 +587,7 @@ Discovery: Под Нью Йорком / UnderNew York (2008) IPTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584136.jpg" />
 </div>
 
 
@@ -403,7 +613,7 @@ Discovery: Спасение подлодки - Специальный выпус
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584050.jpg" />
 </div>
 
 
@@ -429,7 +639,7 @@ Animal Planet: Cинее царство (Лазурная страна). Кит�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583816.jpg" />
 </div>
 
 
@@ -455,7 +665,7 @@ BBC: Мир природы. Бабочки. Британская страсть 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583811.jpg" />
 </div>
 
 
@@ -466,216 +676,6 @@ BBC: Мир природы. Бабочки. Британская страсть 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5B1B98D4CBB37D404680D22F5D7E9E1F130EC22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 359507   (583094) от 05.07.2011
-
-Discovery: Любитель опасностей / Dangerman (2004) IPTVRip [4 из 4]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Идеальная буря / The Perfect Storm
-Любитель экстремальных съемок Джеф Макклей отправляется на Тайвань, Южную Корею и США, чтобы сделать фотографии разрушительных тайфунов и ураганов прямо изнутри.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 4x~00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF237EF8A6A3FC37184E262033D30809369FAB03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280864   (582972) от 13.05.2019
-
-Animal Planet: Дикие реки Африки / Wild Africa. Rivers of Life (2016) HDTV [H.264/1080i] (Сезон 1, серии 7 из 7)
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Африка - не безжизненная пустыня. Ее земли питают реки, артерии черного континента. Животворящие потоки подстраиваются под ландшафт и формируют облик материка, пробегая по выжженным солнцем пустыням, пробивая дорогу через кустарниковые заросли, мирно журча по травянистым саваннам. Программа исследует, как река рождается и набирает силу, каким образом влияет на окружающую (   Читать дальше...   )Производство: Южная Африка, Lion Mountain Media, Warehouse 51 Productions, ZDF Enterprises, Animal PlanetЖанр: Документальный, природа, флора, фаунаПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E21743DE1C69B9A4396582FB06A82542C84EA646
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 109208   (582557) от 19.07.2015
-
-BBC: Секреты Рейха. Тайны нацизма / BBC: Secrets of World War II (1998) 3xDVD5 (части 1-6 из 6)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_582557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия "Секреты Рейха. Тайны нацизма" представляет собой уникальную компиляцию из 300000 часов архивных киноматериалов времен Второй Мировой войны, многие из которых даже сегодня выглядят сенсационными. Сочетание военной кинохроники, часть из которой представлена никогда не публиковавшимися ранее цветными (!) материалами, красочных карт и схем, а также компьютерной (   Читать дальше...   )Жанр: ДокументальныйРежиссер: Джонатан Мартин (Jonathan Marthin)Перевод: Одноголосый профессиональныйПродолжительность: 05:12:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302133   (582144) от 14.05.2019
-
-NGW: Хищник в раю. На мелководье / Predator in Paradise. In the Shallows (2019) HDTV [H.264/1080i]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_582144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все живые существа вдоль побережья вынуждены выживать в этих бесконечно меняющихся ландшафтах, где суша встречается с морем, и все их существование неразрывно связано с водой.
-Совсем рядом с берегом, на мелководье буквально кишит жизнь, и все здесь борются за выживание.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Карен ГринфилдПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CF0C2F7A4F8F6CC8245FC08652AD54B71E01C68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295895   (582055) от 14.05.2019
-
-От бездомной собаки до супер пса / Rescue Dog to Super Dog (2017) HDTVRip (Сезон 1, серии 6 из 6)
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нейт Шоумер и Лора Лондон - профессиональные дрессировщики собак. Они стараются найти людей с особыми потребностями и подходящих им собак, чтобы обучить их выполнять определенные задачи, которые улучшат качество повседневной жизни этих людей.Производство: США, Animal Planet, Plimsoll ProductionsЖанр: Документальный, природа, фаунаПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~ 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1B19BB2DCFEBC8C6A5AD755D67911DBB093715D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919573   (580913) от 21.07.2015
-
-Что такое свет / Light Fantastic (2004) DVDRip (серии 1-4 из 4)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свет - основа жизни на нашей планете. Отвечая на вопросы "Почему небо голубое?" и "Почему трава зеленая?" можно давать однозначный ответ - "Благодаря свету". Эта неотъемлемая часть нашей жизни, но мы все еще стараемся понять феномен света. Многие известные ученые, начиная с Аристотеля, Галилео Галилея, Ньютона и Леонардо да Винчи, и (   Читать дальше...   )Телекомпания: Британская широковещательная корпорация (англ. British Broadcasting Corporation)Жанр: ДокументальныйРежиссер: Аннабель Джилингс / Annabel Gillings, Джереми Тернер / Jeremy Turner, Ник Дэвидсон / Nick Davidson, Пол Сен / Paul SenПеревод: Одноголосый закадровый, профессиональныйЯзык субтитров: русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91EA8F9F74B120DB628CF24752C8AB8953B392DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553900   (580873) от 27.05.2022
-
-Дикие кошки Таиланда / Thailand's Wild Cats (2021) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580873.jpg" />
-</div>
-
-
-###  Подробнее
-
-В джунглях Таиланда скрыто древнее царство - последнее убежище тайских диких кошек. Эти почти невидимые идеальные охотники все время проводят в поисках добычи, выборе партнера и защите своего потомства. В этом непроходимом лесу, где живут дымчатый леопард, азиатская кошка-рыболов и король джунглей - тигр, разворачиваются драмы невиданного напряжения и масштаба.Производство: Великобритания, Южная Африка, Warehouse 51 Productions, Lion Mountain Media, National GeographicЖанр: документальный, природа, флора, фаунаРежиссер: Питер ЛамбертиПеревод: дублированныйСубтитры: английскиеПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F01E2667F590A310BE360593A3F90FE758F1C9B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530451   (580813) от 21.07.2015
-
-NG: Секретные материалы древности: Меч в камне / Ancient X-files: Sword In The Stone (2012) SATRip
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580813.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом увлекательном сериале современные ученые и археологи исследуют странные явления и нераскрытые тайны древности и знакомят зрителей со своими открытиями. От мрачных и жутких свидетельств о вампирах Восточной Европы до невероятных предположений о том, что Мария Магдалина могла бежать во Францию, каждое расследование погружает зрителя в покрытое завесой тайны (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC262BC32A4F338379C0FE6057AD0F7B110BF24E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,111 @@
+###  Публикация: 1561221   (515520) от 04.07.2022
+
+Елена Правдина | Говорят, в IT много платят. Как построить успешную карьеру разработчика, оставаться востребованным и не выгорать (2021) [MP3, Елена Правдина, Елена Калиниченко]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Льюис Кэрролл как-то сказал: «Здесь приходится бежать со всех ног, чтобы только оставаться на месте, а чтобы куда-то попасть, надо бежать как минимум вдвое быстрее».
+
+ЭТО МИР IT. МИР, ГДЕ ТЕХНОЛОГИИ РАЗВИВАЮТСЯ БЫСТРЕЕ, ЧЕМ ВЫРАСТАЮТ НОВЫЕ ПОКОЛЕНИЯ.
+(   Читать дальше...   )Жанр: Личная эффективность, Поиск работы / карьера, ПрограммированиеПродолжительность: 08:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CFA6464519074099791F01E05748BA2C379266E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562121   (512516) от 07.07.2022
+
+Сэнди Скотницки, Кристофер Шульган | Бьюти-минимализм. Чем опасен гиперуход за кожей и что делать, чтобы не навредить себе (2021) [MP3, Люба Петрова]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бьюти-индустрия переживает бум, а блогеры и инфлюенсеры каждый день рассказывают подписчикам о новых чудодейственных средствах и универсальных рецептах красоты. Однако увлечение новинками может угрожать не только вашему кошельку. Канадский дерматолог с двадцатилетним стажем Сэнди Скотницки уверена, что главный враг здоровой кожи – гиперуход, то есть злоупотребление (   Читать дальше...   )Жанр: косметика и косметологияПеревод: Анна ВласюкПродолжительность: 08:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14387AD919287A6509AA182899912D7276A61AE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562334   (511484) от 08.07.2022
+
+Скотт Беркун | Дизайн всего. Как появляются вещи, о которых мы не задумываемся (2021) [MP3, Сергей Двинянинов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы редко задумываемся о том, что привычные вещи, которыми мы пользуемся каждый день, спроектированы дизайнерами: от кнопок в лифте и молотка до приложения для смартфона. Чем-то мы пользуемся с удовольствием, а что-то кажется неудобным и странным. Чтобы получился действительно функциональный и привлекательный продукт, дизайнеру нужно пройти огромный путь и ответить (   Читать дальше...   )Жанр: дизайн, креатив / идеиПеревод: Варвара ВасильеваПродолжительность: 03:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:554BE568837EF8C858DB970261E9D4B25F7D8F11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562383   (509216) от 09.07.2022
+
+Ноэль Фицпатрик | Слушая животных. История ветеринара, который продал Астон Мартин, чтобы спасать жизни (2020) [MP3, Андрей Крупник]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ноэль Фицпатрик вырос на ферме в Ирландии, ухаживая за скотом и обрабатывая землю. Пережив, благодаря поддержке любимого пса, травлю в школе, и роковую ночь, когда Ноэль не смог спасти двух новорождённых ягнят, он обрёл мечту – лечить животных как самый настоящий супергерой.
+За годы тяжёлой работы, переездов и бесчисленного количества исследований, он как никогда (   Читать дальше...   )Жанр: истории из жизни, книги о путешествиях, природа и животныеПеревод: Т. О. НовиковаПродолжительность: 12:56:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:209D0AA3CFF4CE1D042EEF9DE99D953263A207EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562387   (509117) от 09.07.2022
 
 Юсси Конттинен | Сибирь научит. Как финский журналист прожил со своей семьёй год в Якутии (2021) [MP3, Андрей Барабанщиков]
@@ -6,7 +114,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509117.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496508.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494776.jpg" />
 </div>
 
 
@@ -86,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494558.jpg" />
 </div>
 
 
@@ -112,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493330.jpg" />
 </div>
 
 
@@ -138,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492713.jpg" />
 </div>
 
 
@@ -164,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491523.jpg" />
 </div>
 
 
@@ -190,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489522.jpg" />
 </div>
 
 
@@ -216,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488549.jpg" />
 </div>
 
 
@@ -243,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488531.jpg" />
 </div>
 
 
@@ -269,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488462.jpg" />
 </div>
 
 
@@ -297,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487415.jpg" />
 </div>
 
 
@@ -323,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485614.jpg" />
 </div>
 
 
@@ -349,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483392.jpg" />
 </div>
 
 
@@ -375,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482510.jpg" />
 </div>
 
 
@@ -403,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481765.jpg" />
 </div>
 
 
@@ -429,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_467999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_467999.jpg" />
 </div>
 
 
@@ -456,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467865.jpg" />
 </div>
 
 
@@ -483,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466016.jpg" />
 </div>
 
 
@@ -509,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465733.jpg" />
 </div>
 
 
@@ -535,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464620.jpg" />
 </div>
 
 
@@ -561,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_461386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_461386.jpg" />
 </div>
 
 
@@ -572,111 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569351   (453664) от 12.08.2022
-
-Джошуа Беккер | Дом минималиста (2020) [MP3, Андрей Крупник]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представьте жизнь, о которой всегда мечтали. Продуктивная. Осознанная. Избавленная от беспорядка и окруженная покоем и безмятежностью. Вы можете полюбить ваш дом еще больше, владея меньшим и организуя окружающее пространство. Применяя минимализм, вы сможете сосредоточиться самом важном: общении с близкими, путешествиях, любимом хобби и на том, чтобы жить более насыщенной (   Читать дальше...   )Жанр: СаморазвитиеПродолжительность: 07:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E15ACB18D994262BD291848A9DBA1E693AA99A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570160   (445009) от 16.08.2022
-
-Стивен Пинкер | Просвещение продолжается (2021) [MP3, Стефан Барковский]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вам кажется, что мир катится в пропасть, оглянитесь вокруг. Люди теперь живут дольше, они здоровее, свободнее и счастливее, чем когда бы то ни было.
-В захватывающем дух обзоре состояния человечества в третьем тысячелетии психолог и популяризатор науки Стивен Пинкер призывает нас отвлечься от сенсационных заголовков новостей и катастрофических предсказаний, которые (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 25:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A35DDB214A74BE4F05314A5DDA8FE0F0C40AF6AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061910   (441606) от 13.10.2016
-
-Владимир Мегре | Энергия Жизни (2013) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия книг объединена общей сюжетной линией; повествование ведётся от лица автора. Главной героиней является Анастасия — женщина, живущая в сибирской тайге. Все основополагающие идеи книг изложены от её лица. Основной идеей книг является идея создания «родовых поместий». В книге «Энергия Жизни» - притчи Анастасии о жизни человека, о достижении любви, представления (   Читать дальше...   )Жанр: ЭзотерикаПродолжительность: 09:57:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB84380C4271AC74332A708C9BF8745DC9C6A8AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570686   (440484) от 18.08.2022
-
-Коллектив авторов | Лекции по литературе (Лекторий ВШЭ) (2018) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Понятийная система русского языка XIX века, на первый взгляд, не содержит никаких секретов и чрезвычайно близка сегодняшнему словоупотреблению. Между тем зачастую оказывается, что привычные для нашего слуха категории в прошлом имели совсем иное значение, связывались с социальными и литературными практиками, не имеющими аналогов в современной культуре. Одному такому (   Читать дальше...   )Жанр: классическая прозаПродолжительность: 11:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DDC8B9370CF6AE0CA6A4D160D9FFD5210C5285E
 ```
 
 https://mybot314.ru/tekegram_catalog/

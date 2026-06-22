@@ -1,3 +1,81 @@
+###  Публикация: 1474097   (1013163) от 01.06.2021
+
+Ultreïa / Ultreia (2021) [Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленький робот Нимо, подпитываемый большой потерей, становится паломником и решает пересечь дикий мир, чтобы найти смысл жизни и смерти. У него также есть загадочная цель: отомстить за смерть отца. Ultreïa - это мистический мир, населённый роботами. Под покровом пейзажа скрываются пещеры, заполненные огромными существами, живущими в темноте. Путешествие проведёт (   Читать дальше...   )Тип издания: LicenseРазработчик: Olivier De RopЖанр: Adventure, QuestЯзык субтитров: Английский, ФранцузскийЯзык интерфейса: Английский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D820BDBF55652D21261191F8AB6B1EC62566F8B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474346   (1012995) от 02.06.2021
+
+Rusty Lake Paradise (2018) [Ru/Multi] (1.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Якоб, старший сын семьи Эйландеров, возвращается на Райский остров после смерти матери. Со времен её таинственной кончины остров находится под гнётом десяти бедствий. Найдите скрытые воспоминания матери и примите участие в странных семейных ритуалах, чтобы положить конец испытаниям. Rusty Lake Paradise - третья отличная игра в жанре point-and-click adventure от Rusty (   Читать дальше...   )Тип издания: LicenseРазработчик: Rusty LakeЖанр: Adventure, Puzzle, Quest, SurrealismЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Датский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Датский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E10529E9ECEC3D6BE684CC7B700D7969A6A6335A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474343   (1012994) от 02.06.2021
+
+Rusty Lake Hotel (2016) [Ru/Multi] (1.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пригласите наших гостей в Rusty Lake Hotel  и сделайте так, чтобы они остались довольны. На этой неделе будет 5 ужинов. Убедитесь, что за каждый ужин стоит умереть! Rusty Lake Hotel - это уникальная игра-головоломка с сюрреалистической странной обстановкой, вдохновлённая сериалом Дэвида Линча "Твин Пикс".Тип издания: LicenseРазработчик: Rusty LakeЖанр: Adventure, Puzzle, Quest, SurrealismЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34F7F6D14E3A21204B2C7EE4AD249A5A97409C45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474350   (1012991) от 02.06.2021
 
 Cube Escape Collection (2020) [Ru/Multi] (1.0) License GOG
@@ -6,7 +84,7 @@ Cube Escape Collection (2020) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012991.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Rusty Lake: Roots (2016) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012963.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Röki / Roki (2020) [Ru/Multi] (3.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012764.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Sludge Life (2021) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012652.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Backbone (2021) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012058.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Pacify (2019) [Ru/Multi] (4.24) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011436.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Visage (2020) [Ru/Multi] (3.04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011184.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Minute of Islands (2021) [Multi] (6616315) License Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011043.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Paradise Lost (2021) [Ru/Multi] (cl12558.1414.shipping) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010220.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Exit From (2021) [Ru/Multi] (1.1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010056.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ Sherlock Holmes: The Devil's Daughter (2016) [Ru/Multi] (47726) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009734.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ Minute of Islands (2021) [Multi] (1.0) License GOG [Digital Collector's Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009369.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ Overboard! (2021) [En] (1.3.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007662.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ Wonhon: A Vengeful Spirit (2021) [Ru/Multi] (1.0.4r) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006566.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ Lona: Realm of Colors (2021) [En] (0.1.23) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006448.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ Paper Beast (2020) [Ru/Multi] (1.0) License GOG [Folded Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006238.jpg" />
 </div>
 
 
@@ -415,6 +493,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485006   (1005650) от 23.07.2021
+
+Last Stop (2021) [Ru/Multi] (7027314) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1005650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Last Stop – приключенческая игра от третьего лица, действие которой происходит в наши дни в Лондоне. Написанная и разработанная студией Variable State, создателями удостоенной наград игры Virginia, игра Last Stop рассказывает три взаимосвязанные истории трёх главных героев, которыми управляет игрок.Тип издания: LicenseРазработчик: Variable StateЖанр: Adventure, Sci-Fi, Mystery, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB580B8B163BD48733EDC3BFEF95B595915ECBEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1485168   (1005539) от 24.07.2021
 
 Summer of '58 (2021) [Ru/En] (1.0) Repack Other s
@@ -423,7 +527,7 @@ Summer of '58 (2021) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005539.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ Creepy Tale 2 (2021) [Ru/Multi] (1.1.7) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005034.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ Omno (2021) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004806.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ Horror Tales: The Wine (2021) [Ru/Multi] (Build 6722952) License Fairlight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004670.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ HORROR TALES: The Wine (2021) [Ru/Multi] (Build 6722952) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004650.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ Night Delivery (2021) [Multi] (1.10) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004537.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ Night Delivery|例外 配 達 (Ночная доставка) — психоло
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:613D128381A5A82260A69F2E02F61BD551556CDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349419   (1004398) от 01.01.2020
-
-A Plague Tale: Innocence (2019) [Ru/Multi] (1.07/dlc) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004398.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Plague Tale: Innocence – это невероятный средневековый мир, благодаря поразительным декорациям и таланту опытных разработчиков оживающий под незабываемую музыку, что пробирает до глубины души. Осмелитесь ли вы открыть ужасающую страницу историиТип издания: LicenseРазработчик: Asobo StudioЖанр: Adventure, Action, Stealth, 3rd PersonЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6DC97C0058B39CE92A83EC1829C07E56A60D589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349614   (1004186) от 02.01.2020
-
-Back to the Future: The Game (2010) [Multi] (1.0.0.8) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Back to the Future — компьютерная игра в жанре квест, разработанная "Telltale Games" по мотивам одноимённой кинотрилогии. Автор сценария трилогии Боб Гейл помогал авторам студии Энди Харцеллу и Майклу Стеммлу в разработке сюжета, а Майкл Джей Фокс и Кристофер Ллойд позволили использовать образы, сыгранные ими в кино.   Кроме того, Кристофер Ллойд вновь озвучил (   Читать дальше...   )Тип издания: LicenseРазработчик: Telltale GamesЖанр: Фантастика, Приключение, КвестЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF5251B3C632A42FEAA2960DCC71148B9E9A151F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487110   (1003974) от 03.08.2021
-
-Submerged (2015) [Ru/Multi] (1.1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Submerged — приключение от третьего лица, действие которого происходит в затонувших руинах прекрасного мира. Возьмите на себя роль Мику (Miku) и Таку (Taku) — один проклят таинственной силой, а другая полна решимости спасти брата и не позволить проклятью разлучить их.Тип издания: RepackРазработчик: Uppercut Games Pty LtdЖанр: Adventure, Action, RPG, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E130FC940479781DD93859042C7466309363D51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349880   (1003925) от 03.01.2020
-
-Secret Files: Tunguska (2009) [En] (1.02) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разгадайте одну из величайших загадок нашего времени! 30 июня 1908 года в Сибири в районе реки Подкаменная Тунгуска произошел гигантский взрыв. Сила взрыва была в 1000 раз больше того, что уничтожил Хиросиму. На площади более 2000 квадратных километров лес был практически уничтожен, вековые деревья валились, как спички. Звук взрыва был слышен почти за 1000 километров (   Читать дальше...   )Тип издания: LicenseРазработчик: Animation ArtsЖанр: Приключение, Квест, СовременностьЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A11848A15CE221BA58BD9A87A63C0E4C47A7DEEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,263 @@
+###  Публикация: 1778368   (28309) от 08.02.2025
+
+Serious Sam 2 / Крутой Сэм 2 (2005) [Ru] (2.091) Repack EXROW
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Serious Sam 2 - продолжение легендарного шутера с видом от третьего лица с легендарным серьезным Сэмом в главной роли. Как и прежде, вас ожидает бесконечная борьба с ордами инопланетных захватчиков, которые посланы загадочным злодеем Менталом. Но теперь вы сможете передвигаться не только на своих двоих, но и использовать различный транспорт, позволяющий увеличить (   Читать дальше...   )Тип издания: RepackРазработчик: CroteamЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D21DA428E0E713B4D6407E892C6114213601B9D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746222   (27672) от 14.02.2025
+
+Resident Evil 2 (1999) [Multi] (1.0 HotFix 2) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Resident Evil 2 1999 - продолжение культовой серии зомби-хорроров за авторством Синдзи Миками и компании Capcom. На этот раз события переносятся в город Раккун Сити, после того, как Т-вирус вырвался из особняка Спенсера и заразил весь мегаполис. Корпорация Umbrella посылает отряд специально обученных бойцов, чтобы выкрасть штамм более опасного G-вируса из рук ученого (   Читать дальше...   )Тип издания: LicenseРазработчик: CapcomЖанр: Хоррор, ЭкшеныЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AA8D289A37AEF3B0CBC451FFFB3A1192E664BF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780274   (27352) от 17.02.2025
+
+StarCraft & Brood War (1998) [Ru] (1.16.1/dlc) Repack EXROW
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27352.jpg" />
+</div>
+
+
+###  Подробнее
+
+StarCraft — легендарная стратегия в реальном времени в научно-фантастическом сеттинге от создателей серии Warcraft. В игре вам предстоит присоединиться к одной из трех враждующих сторон — высокотехнологичных терранов, протоссов с мощными псионными возможностями и насекомоподобными зергами. Каждая из рас обладает собственной тактикой развития, оригинальными юнитами (   Читать дальше...   )Тип издания: RepackРазработчик: Blizzard EntertainmentЖанр: RTSЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5781FF1F9FA7D2A97F64B93CAC45413889DA1C69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780469   (27154) от 19.02.2025
+
+WarCraft II (2) (1995) [Ru] (2.02b/dlc) Repack EXROW [Battle.net Edition]
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вернитесь в эпоху хаоса и обрушьте на соперников, играющих за людей или орков все свои навыки, приобретенные в жестоких баталиях Warcraft: Orcs and Humans. Проявите свое мастерство в самых эпических сражениях Warcraft II в истории. Чемпионы, желающие испытать игру в ее подлинном облике, могут насладиться ей в том виде, в котором она появилась в 1999 году.Тип издания: RepackРазработчик: Blizzard EntertainmentЖанр: RTSЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1D551184FCD941B996A3D06DCFF5444CBE2A1F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780799   (27019) от 20.02.2025
+
+Bully (2008) [Ru] (1.2) Repack EXROW [Scholarship Edition]
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятнадцатилетний хулиган Джимми Хопкинс поступает в академию Булворт — закрытое учебное заведение с весьма сомнительной репутацией. В его стенах юному герою предстоит с лихвой хлебнуть подростковых радостей — со всеми вытекающими последствиями. Разгульный образ жизни, сложные взаимоотношения с девушками, жестокие потасовки со старшекурсниками, козни одноклассников, (   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar Vancouver, Rockstar New EnglandЖанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6372D86D5C829DF8A5B8A0D23D1E1DECF1D50EDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781087   (26941) от 21.02.2025
+
+Overlord + Raising Hell (2007) [Ru] (1.4/dlc) Repack EXROW
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приготовьтесь к искушению, соблазнению и возбуждению, станьте Властелином, от вашего выбора в любой данной ситуации зависит, насколько безнравственны вы станете. Ваши действия влияют на игровой мир. С невероятной силой в ваших руках и командой злобной мелочи для исполнения ваших злых приказов, как можно устоять перед соблазном стать абсолютным деспотом? Думай Зло, (   Читать дальше...   )Тип издания: RepackРазработчик: Triumph StudiosЖанр: Action, 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE1987A619DA7841307902986F7BA6638A6A16E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781277   (26842) от 22.02.2025
+
+Dino Crisis 2 (2002) [Multi] (1.0hf2) License GOG
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошел год с момента операции по спасению доктора Кирка. Третья энергия, являющаяся одновременно источником "предельно чистой энергии" и потенциальным "абсолютным оружием", оказалась опасно непредсказуемой. Правительство, перехватив контроль над проектом у доктора Кирка, продолжило его разработку. Затем “несчастный случай” произошел снова.Тип издания: LicenseРазработчик: CapcomЖанр: Экшны, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9851D25636A140856A8D33151C0E1C9D485CEE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781273   (26819) от 22.02.2025
+
+Dino Crisis (2000) [Multi] (1.0hf2) License GOG
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Громче рева динозавров были только голоса геймеров по всему миру, требовавших возвращения классической игры в жанре survival horror. Мы прислушались – и теперь легендарный Dino Crisis вернулся, полностью воспроизводимый на современных ПК. Благодаря огромным усилиям Capcom и GOG, культовая фраза Регины "вымерли!" больше не относится к самой игре.Тип издания: LicenseРазработчик: CapcomЖанр: Экшн, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBA80C2870927A63E70F0DCB680C7DB7705682F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781681   (26597) от 24.02.2025
+
+Overlord 2 (2009) [Ru] (1.0) Repack EXROW
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эх, права была знаменитая старушка с крысой на поводке – хорошими делами прославиться нельзя! Прогрессивное человечество уже накушалось приторных героических деяний и теперь хочет рассола. То есть – возможности убивать, жечь, грабить и безраздельно властвовать над телами красавиц. Что же, продолжение эпохального и нереально популярного экшена Overlord предоставит (   Читать дальше...   )Тип издания: RepackРазработчик: Triumph StudiosЖанр: Action, 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0238067D10F13C6391936A1AA7EB785882400F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781871   (26413) от 26.02.2025
+
+Need for Speed: Carbon (2006) [Ru/Multi] (1.4) Repack Wanterlude [Collector's Edition]
+
+>>Win Старые Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Need for Speed Carbon – экшен гонки с открытым игровым миром, в которой игрок будет путешествовать по Палмонту. Главному персонажу предстоит раскрыть преступление, в ходе которого была украдена сумка с огромным количеством денег. Вы должны выигрывать в гонках, внедряясь в криминальную жизнь, чтобы добраться до правды преступления.Тип издания: RepackРазработчик: EA Black BoxЖанр: Simulation, RacingЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:599AD5DCF2C7F3030B97E272416ADBF8038B2BDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782079   (26315) от 27.02.2025
 
 FlatOut 2 (2006) [Ru] (1.2) Repack EXROW
@@ -6,7 +266,7 @@ FlatOut 2 (2006) [Ru] (1.2) Repack EXROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26315.jpg" />
 </div>
 
 
@@ -32,7 +292,7 @@ Warcraft 3: The Reign of Chaos (2003) [Ru] (1.26a/dlc) Repack EXROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26212.jpg" />
 </div>
 
 
@@ -58,7 +318,7 @@ Combat Mission: Afrika Korps (2003) [Multi] (1.03 rdna fix) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25876.jpg" />
 </div>
 
 
@@ -84,7 +344,7 @@ Combat Mission: Barbarossa to Berlin (2002) [En] (1.03 rdna fix) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25858.jpg" />
 </div>
 
 
@@ -110,7 +370,7 @@ The Dame Was Loaded (1996) [Multi] (1.0cs) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24802.jpg" />
 </div>
 
 
@@ -136,7 +396,7 @@ Heretic: Shadow of the Serpent Riders (1994) [En] (1.3/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24215.jpg" />
 </div>
 
 
@@ -162,7 +422,7 @@ Hexen: Deathkings of the Dark Citadel (1996) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24191.jpg" />
 </div>
 
 
@@ -188,7 +448,7 @@ HeXen II (2) (1997) [En] (1.11 music fix) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24182.jpg" />
 </div>
 
 
@@ -214,7 +474,7 @@ The Original Strife (1996) [En] (1.1.2b) License GOG [Veteran Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24091.jpg" />
 </div>
 
 
@@ -240,7 +500,7 @@ Vampire: The Masquerade - Redemption (2000) [Ru/En] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23912.jpg" />
 </div>
 
 
@@ -266,7 +526,7 @@ N.I.C.E. 2 / BreakNeck (2000) [Multi] (1.1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23850.jpg" />
 </div>
 
 
@@ -292,7 +552,7 @@ Have a N.I.C.E day! (1997) [Multi] (1.0.4) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23823.jpg" />
 </div>
 
 
@@ -318,7 +578,7 @@ Men of Valor (2004) [Ru/Multi] (1.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22935.jpg" />
 </div>
 
 
@@ -344,7 +604,7 @@ Men of Valor (2004) [Ru] (1.3) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22910.jpg" />
 </div>
 
 
@@ -370,7 +630,7 @@ Jagged Alliance 2 (1999) [Ru/En] (26614298) Repack Wanterlude
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22832.jpg" />
 </div>
 
 
@@ -396,7 +656,7 @@ Heroes of Might and Magic IV (4) (2004) [Ru/En] (3.0/dlc) Repack Wanterlude [Com
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22768.jpg" />
 </div>
 
 
@@ -407,266 +667,6 @@ Heroes of Might and Magic IV (4) (2004) [Ru/En] (3.0/dlc) Repack Wanterlude [Com
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8275AF1DAF5B0CC3845B2B089DD48835036533CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789986   (22219) от 07.04.2025
-
-Dark Messiah of Might and Magic (2006) [Ru/En] (1.02) Repack Let'sРlay
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Action-RPG нового поколения, созданная на новейшей версии движка Source от Valve. Погрузитесь в знаменитую вселенную Might & Magic, темный и загадочный мир, где вас ждут постоянные сражения и кровопролитные схватки. Меч, магия, коварный удар в спину - выберите свой путь к славе.Тип издания: RepackРазработчик: Arkane StudiosЖанр: Экшены, Ролевые игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15E8F710FB0FE74A68ECB6AD23C3E8416802A6C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790168   (22098) от 08.04.2025
-
-Jagged Alliance 2/1 Metavira (2013) [Ru] (1.0.8) Repack/Mod dark_elf2
-
->>Win Старые Игры
->>AddOn/DLC/Mod для Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект «Jagged Alliance 2/1 Metavira» представляет собой реинкарнацию первой части игры Jagged Alliance (далее JA1) на движке Jagged Alliance 2 (далее JA2), выполненную достаточно близко к оригиналу в плане сюжета, карт и оружейной линейки (в классическом варианте).Тип издания: Repack/ModРазработчик: Sir-Tech SoftwareЖанр: Strategy (Turn-based, Tactical), RPG, IsometricЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91BDD6A34699C7588755DC0DB8E87BC4CE6D71C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790634   (21902) от 10.04.2025
-
-Prey (2006) [Ru] (1.4) Repack/Mod seleZen
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научно-фантастическая компьютерная игра в жанре шутера от первого лица, разработанная Human Head Studios и изданная 3D Realms и 2K Games в 2006 году. В России локализована и издана компанией 1С. В игре используется немного модифицированный графический движок Doom 3. В октябре 2006 3D Realms объявило, что благодаря коммерческому успеху на платформах PC и Xbox 360 (   Читать дальше...   )Тип издания: Repack/ModРазработчик: Human Head StudiosЖанр: Шутер от первого лицаЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94C97738AFAAD46C06BFE75034AD80A4305ED397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792704   (20632) от 22.04.2025
-
-O.D.T.: Escape... or Die Trying (1998) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в атмосферу таинственности, магии и хаоса. Сражайтесь в невероятных многоуровневых 3D-мирах в поисках волшебной зеленой жемчужины, которая поможет спасти миллионы людей от уничтожения. С рукопашным боем, разрушительной силой оружия и удивительными магическими заклинаниями, O.D.T. ведет вас вглубь таинственной башни, полной ужасных врагов и скрытых опасностей (   Читать дальше...   )Тип издания: LicenseРазработчик: Psygnosis LimitedЖанр: Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:635317622734E4DE0BF784410C03EF57E24F5AB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793328   (20497) от 23.04.2025
-
-The Fifth Disciple / Пятый чародей (2002) [Ru] (1.0) License
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пятый чародей - приключенческая игра с ролевыми элементами. Десять лет. Долгих десять лет прошло с тех пор, как шестеро отважных воинов уничтожили первого из демонов Ада, вернув в родные земли жизнь и радость. Увы, возвратиться живыми в свои владения удалось не всем доблестным героям.Тип издания: LicenseРазработчик: Napoleon GamesЖанр: Adventure, RPGЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB90409C79D1A350F50B41B9B7B7EBA65FB4A034
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635974   (20439) от 24.04.2025
-
-The Blackwell Epiphany (2014) [En] (3.3c) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blackwell Epiphany - заключительная часть серии поинт-н-клик приключений, в которой Роза Блэквелл берется за таинственное дело. Сэм Дуркин подкидывает девушке новое задание, связанное с одним заброшенным домом. Во главе этой истории стоит призрак, но добраться до него не так просто. Дело в том, что у героини есть призрак-напарник по имени Джои Мэллоун. Они не могут (   Читать дальше...   )Тип издания: LicenseРазработчик: Wadjet Eye GamesЖанр: Приключение, Квест, ДетeктивЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B943C68FB2D28B548A715880BBDB13FBE1BAD3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635980   (20427) от 24.04.2025
-
-Resonance (2012) [En] (3.1c) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20427.jpg" />
-</div>
-
-
-###  Подробнее
-
-После загадочной смерти ученого-физика начинается настоящая охота за его последним, зловещим изобретением, все записи о котором хранятся в секретной подземной лаборатории. Игроку будет доступно четыре персонажа, чьи судьбы переплетутся во время погони за секретами исследователя. Героям придется научиться доверять друг другу и работать сообща – чтобы преодолеть все (   Читать дальше...   )Тип издания: LicenseРазработчик: xii games, Wadjet Eye GamesЖанр: Приключение, Квест, ДeтективЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9733F735DF814ADB90ACC12E4189F7EB1BC6C792
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635730   (20414) от 24.04.2025
-
-The Blackwell Convergence (2009) [En] (3.1c) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Black Convergence - третья часть известной приключенческой серии игр. Как и в первом эпизоде («Наследие Блэквелла»), геймплей позволяет сыграть роль Розангелы Блэквелл - медиума, журналиста и писателя, обладающего паранормальными способностями. Действие происходит в Нью-Йорке, через несколько месяцев после расследования серии загадочных самоубийств. Розангела снова (   Читать дальше...   )Тип издания: LicenseРазработчик: Wadjet Eye GamesЖанр: Adventure, Quest, Detective, MysteryЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:420714B27D4E23DE768179EB8F6DEE13DBB1036B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205760   (20041) от 28.04.2025
-
-Robin Hood: The Legend of Sherwood / Робин Гуд. Легенда Шервуда (2002) [En] (1.1 HotFix 2) License GOG
-
->>Win Старые Игры
->>Strategy Tactical (RTS/TBS/Wargame)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Англия, 1190 год. Ричард Львиное сердце находится в плену, в то время как его брат, принц Иоанн Безземельный, жестоко правит королевством, притесняя народ. Силой оружия тиран заставил население подчиняться своей воле. И только один человек с группой лихих сподвижников оказался достаточно смел, чтобы бросить вызов сатрапу. Имя ему Робин Гуд. Играйте за легендарного (   Читать дальше...   )Тип издания: LicenseРазработчик: Spellbound StudiosЖанр: Strategy (Real-time, Tactical), Arcade, IsometricЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91DA7567182C7BC64359DE9304C5F440020FF5A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787763   (19718) от 01.05.2025
-
-Garry's Mod (2006) [Ru/Multi] (2025.04.30) Repack Pioneer
-
->>Win Старые Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Garry's Mod - физическая песочница. В отличие от обычных игр, здесь не существует каких-либо определённых целей или задач. Мы даём вам инструменты и оставляем вас играть. Вы создаете объекты и соединяете их вместе для создания ваших собственных конструкций - машина ли это, ракета, катапульта или нечто пока без названия - это зависит от вас. Если с конструированием (   Читать дальше...   )Тип издания: RepackРазработчик: Facepunch StudiosЖанр: Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Русский, Английский, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7903F367D82DB6E78D675BA1A552A1AAECD97B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

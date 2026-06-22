@@ -1,3 +1,55 @@
+###  Публикация: 1530809   (244661) от 12.02.2022
+
+Infuse PRO 7 v7.3.4 U2B [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Infuse - прекрасный способ смотреть практически любой формат видео на вашем iPhone, iPad, Apple TV и Mac. Не нужно конвертировать файлы! Infuse оптимизирован для macOS 11 с мощными параметрами потоковой передачи, синхронизацией Trakt и непревзойденной поддержкой AirPlay и субтитров. Великолепный интерфейс, точный контроль и плавное воспроизведение.Тип издания: macOS SoftwareРелиз состоялся: 09.02.2022Разработчик: © 2022 Firecore, LLCПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B1155B2E5134ACBD89BD4F326ED8A0FD53F118A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452543   (244633) от 06.03.2021
+
+Multitouch 1.24.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легко добавлять жесты в macOS с Multitouch. Multitouch позволяет связать пользовательское действие с определенным магическим трекпадом или магическим жестом мыши. Например, нажатие на три пальца может выполнить вставку. Улучшите свой рабочий процесс, выполнив сочетания клавиш, контролируя вкладки своего браузера, выполняя средний щелчок мышью и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 06.03.2021Разработчик: Brass Monkery LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:886D6D8DF863BC3E87255A56C1D4C48998B606A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452547   (244627) от 06.03.2021
 
 Scrutiny 10 v10.3.1 [En]
@@ -6,7 +58,7 @@ Scrutiny 10 v10.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244627.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Dropshare 5.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244619.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ Sketch 83.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244587.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Screens 4 v4.8.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244586.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ iTubeGo YouTube Downloader Pro for Mac 6.9.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244554.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ Bootstrap Studio 5.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244553.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ Logicly 1.12.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244550.jpg" />
 </div>
 
 
@@ -196,7 +248,7 @@ Time Sink 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244538.jpg" />
 </div>
 
 
@@ -223,7 +275,7 @@ Blur n Bokeh 3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244465.jpg" />
 </div>
 
 
@@ -250,7 +302,7 @@ Metasequoia 4 v4.7.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244358.jpg" />
 </div>
 
 
@@ -276,7 +328,7 @@ Airtool 2 v2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244349.jpg" />
 </div>
 
 
@@ -302,7 +354,7 @@ Templates for Pages – DesiGN 7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244311.jpg" />
 </div>
 
 
@@ -329,7 +381,7 @@ ScreenFlow 10.0.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244310.jpg" />
 </div>
 
 
@@ -357,7 +409,7 @@ Boxy SVG 3  v3.78.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244285.jpg" />
 </div>
 
 
@@ -383,7 +435,7 @@ Data Guardian 6 v.6.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244284.jpg" />
 </div>
 
 
@@ -409,7 +461,7 @@ DockMate Beta 0.8.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244244.jpg" />
 </div>
 
 
@@ -435,7 +487,7 @@ SiteSucker 4.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244237.jpg" />
 </div>
 
 
@@ -463,7 +515,7 @@ Principle 6 v6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244210.jpg" />
 </div>
 
 
@@ -489,7 +541,7 @@ Things 3 v3.17.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244202.jpg" />
 </div>
 
 
@@ -516,7 +568,7 @@ Allavsoft Video Downloader Converter 3.23.3.7740 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244181.jpg" />
 </div>
 
 
@@ -542,7 +594,7 @@ iNet Network Scanner 2.7.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244172.jpg" />
 </div>
 
 
@@ -569,7 +621,7 @@ NeoFinder Business 8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244139.jpg" />
 </div>
 
 
@@ -595,7 +647,7 @@ Lyn 2.0.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244135.jpg" />
 </div>
 
 
@@ -621,7 +673,7 @@ BusyCal 3 v3.12.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244120.jpg" />
 </div>
 
 
@@ -633,59 +685,6 @@ BusyCal - программа на Mac OS X, которая поможет вам
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:919D1A3D61ADFDDF7B69CE2FD17876994C73D7A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536641   (244119) от 12.03.2022
-
-Loopback 2.2.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Синхронизация аудио между приложениями на вашем Mac.
-Создание виртуальных звуковых устройств, чтобы взять звук от приложений и аудио устройств ввода, а затем отправить его к аудио приложению обработки. Loopback дает вам силу студии микшерного пульта, прямо на вашем компьютере. Настройка виртуального звукового устройства из нескольких источников легко. Просто добавьте (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.03.2022Разработчик: © 2022 Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский, Немецкий, Французский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E804E5F01FF5704408D882638296F5540EF8DEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454341   (244115) от 14.03.2021
-
-Hookshot 1.19 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hookshot - позволяет привязывать окна с помощью перетаскивания, сочетаний клавиш или строки меню.Тип издания: macOS SoftwareРелиз состоялся: 13.03.2021Разработчик: Ryan HansonПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0020A2C7EE37CCA2AD21831DE35DF988DBCAE79
 ```
 
 https://mybot314.ru/tekegram_catalog/

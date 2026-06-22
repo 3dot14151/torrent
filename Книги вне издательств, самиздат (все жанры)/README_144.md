@@ -1,3 +1,116 @@
+###  Публикация: 1771565   (6199) от 24.08.2025
+
+Саша Токсик, Яростный Мики | Цикл "Лорд Системы" [25 книг] (2023-2025) [FB2] (Обновляемая)
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Планета Земля сгорела в ядерном огне.
+Но мудрая и добрая Система перенесла всех людишек в новый мир.
+Каждого наградили новым именем, стартовым бонусом и бодрящим пинком под зад.
+Кто-то получил меч, кто-то корону, а я...(   Читать дальше...   )Жанр: РеалРПГ, Боевое фэнтези, Попаданцы в магические мирыИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3022687D40910A174D42919F6FE565E6134937E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814434   (6133) от 24.08.2025
+
+Кутрис | Цикл "Фракиец" [3 книги] (2023-2025) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Античность, первый век до нашей эры, и в эти древние времена на Землю приходит Система Древней Игры, что наделяет некоторых "счастливчиков" невероятными способностями, которые раньше были присущи только богам и героям из легенд и мифов.
+Главный герой оказывается ввергнут в захватывающие и опасные приключения,
+как на земле, так и в других мирах.
+(   Читать дальше...   )Жанр: РеалРПГ, Боевая фантастика, ПопаданцыИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA33C09582746606AEBC2B3BC220A35D4B8DBBB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814380   (6128) от 24.08.2025
+
+Пётр Жгулёв | Цикл "Real-Rpg. Город Гоблинов" [13 книг] (2018-2025) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6128.jpg" />
+</div>
+
+
+###  Подробнее
+
+В наш мир пришла Система. Великая Игра, вовлекшая в себя бесчисленное количество миров. Герой становится одним из Игроков. Тех, кому повезло вытащить счастливый билет и обрести шанс на силу, богатство и власть. Или же просто смертников, обреченных рано или поздно сложить голову? Пешек в руках богов? Вот только даже пешка может дойти до конца поля и стать кем-то большим... (   Читать дальше...   )Жанр: РеалРПГ, Боевое фэнтези, Попаданцы в магические миры, УсяИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1159989A4B3144F230EAFCE8056C2621CB0441E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807040   (6039) от 25.08.2025
+
+Ян Бадевский | Цикл "Механика невозможного" [10 книг] (2023-2025) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я - убийца. Лучший в своём роде, поскольку веками перерождаюсь и совершенствую своё мастерство.
+Дожив до старости и благополучно скончавшись в кругу семьи, я рассчитывал попасть в будущее,
+но вместо этого перенсёсся в 1978 год.
+Вместо СССР - Российская империя. Вместо нормального правительства - враждующие кланы.(   Читать дальше...   )Жанр: Бояръ-Аниме, Попаданцы в магические миры, Боевое фэнтезиИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2692178682E91AC0EB7701813593AFA9D9C7EFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1814487   (6004) от 25.08.2025
 
 Ян Бадевский | Цикл "Преддверье" [6 книг] (2016-2020) [FB2]
@@ -6,7 +119,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6004.jpg" />
 </div>
 
 
@@ -32,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5903.jpg" />
 </div>
 
 
@@ -61,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5829.jpg" />
 </div>
 
 
@@ -87,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5812.jpg" />
 </div>
 
 
@@ -115,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5727.jpg" />
 </div>
 
 
@@ -144,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5567.jpg" />
 </div>
 
 
@@ -173,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5566.jpg" />
 </div>
 
 
@@ -200,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5531.jpg" />
 </div>
 
 
@@ -226,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5529.jpg" />
 </div>
 
 
@@ -255,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5527.jpg" />
 </div>
 
 
@@ -281,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5523.jpg" />
 </div>
 
 
@@ -307,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5388.jpg" />
 </div>
 
 
@@ -333,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5355.jpg" />
 </div>
 
 
@@ -359,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5341.jpg" />
 </div>
 
 
@@ -385,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4990.jpg" />
 </div>
 
 
@@ -411,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4989.jpg" />
 </div>
 
 
@@ -438,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4977.jpg" />
 </div>
 
 
@@ -464,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4959.jpg" />
 </div>
 
 
@@ -490,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4952.jpg" />
 </div>
 
 
@@ -516,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4942.jpg" />
 </div>
 
 
@@ -542,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4937.jpg" />
 </div>
 
 
@@ -570,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4827.jpg" />
 </div>
 
 
@@ -581,112 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:025C065F69D6AB8370904919C9222EBBB10C2102
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815894   (4800) от 01.09.2025
-
-Игорь Гринчевский | Ломоносов Бронзового века [2 книги] (2025) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Попаданцам обычно везёт. Янки, попавший ко двору короля Артура в точности помнил дату солнечного затмения, другие знают, когда произойдёт Великая Депрессия и как на ней нажиться. Третьи в точности знают координаты ценнейших месторождений. А что делать обычному школьному учителю химии, попавшему во времена, когда Бронзовый век еще не закончился. а Железный - только (   Читать дальше...   )Жанр: Фантастика, попаданцы, приключенияИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CA019A87C1042A2F8EC45DB494C2A61E74EDDC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737340   (4760) от 02.09.2025
-
-Юрий Винокуров, Олег Сапфир | Цикл "Кодекс Охотника" [37 книг] (2022-2025) [FB2] (Обновляемая)
-
->>След.
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он был Охотником и чтил Кодекс. За свои заслуги перед человечеством и "правильную" жизнь ему была положена награда. Новая жизнь после смерти и новый Мир, где он мог бы заслуженно отдохнуть.
-Но, что-то пошло не так. Ему снова нужно сражаться. В отличие от прошлой жизни, здесь ему противостоят Монстры, куда более страшные, чем в прошлой. Более хитрые, жестокие (   Читать дальше...   )Жанр: Бояръ-Аниме, Попаданцы, Боевое фэнтезиИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:233A3610B835525E8FAAB87F4953588D46713E59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788182   (4716) от 02.09.2025
-
-Дмитрий Распопов | Цикл "30 сребреников" [6 книг] (2024-2025) [FB2] [Обновляемая]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4716.jpg" />
-</div>
-
-
-###  Подробнее
-
-XV век. На Пиренейском полуострове медленно умирает Реконкиста. Но католические короли, судьба которых объединить под собой королевства Кастилии и Леона, Арагонское королевство, Гранадский эмират и Наваррское королевство уже родились и вскоре будут готовы заявить о себе во всём мире.
-И хорошо, если рядом с ними будет человек из будущего, миссия которого найти те (   Читать дальше...   )Жанр: Попаданцы во времени, Исторические приключения, Альтернативная историяИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE1DCFF7A84C28E0D8E670A722E9F5D95A6C0D54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813113   (4706) от 02.09.2025
-
-Инди Видум | Цикл "Петя и Валерон" [2 книги] (2025) [FB2] [Обновляемая]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4706.jpg" />
-</div>
-
-
-###  Подробнее
-
-В теле убитого гимназиста, Петра Воронова, я оказался не по своему желанию, а выполняя поручение бога. Теперь мне предстоит выжить в мире ,где магия соседствует с техникой, а за мной охотятся убийцы. С чужими воспоминаниями, скудными навыками и револьвером в руках я отправляюсь в таинственный Лабиринт, где рассчитываю получить ответы на вопросы, но могу ли я доверять (   Читать дальше...   )Жанр: Попаданцы в магические миры, РеалРПГ, Бояръ-АнимеИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D17B13F4E9D974424174FBF1C945E275395523C
 ```
 
 https://mybot314.ru/tekegram_catalog/

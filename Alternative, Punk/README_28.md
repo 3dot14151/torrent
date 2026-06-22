@@ -1,3 +1,32 @@
+###  Публикация: 953878   (346607) от 05.11.2015
+
+Celldweller - End of an Empire (2015) 2CD Deluxe Edition [MP3|320 кб/с]<Industrial, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. End of an Empire
+02. Heart On
+03. Down to Earth
+04. New Elysium(   Читать дальше...   )Жанр: Industrial, AlternativeПродолжительность: 01:58:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD1627AE27EE688364C5394D2758257FE913CA04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257416   (345360) от 26.10.2018
 
 Bullet for My Valentine - Gravity (2018) Deluxe Edition [MP3|320 Kbps] <Melodic Metalcore, Alternative Rock>
@@ -6,7 +35,7 @@ Bullet for My Valentine - Gravity (2018) Deluxe Edition [MP3|320 Kbps] <Melodic 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345360.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Foo Fighters - Sonic Highways (2014) [MP3|320 кб/с]<Alt. Rock, Post-Grunge>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344349.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Emptyself (Eric Johanson) - 2 Альбома, 2 Сингла (2005-2013) [OGG| 4
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339861.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Oh Hiroshima - In Silence We Yearn (2015) [OGG| 469-499 кб/с]<Alternative, Ex
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337352.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ Celldweller - End of an Empire (2015) Collector's Edition 5-CD Box Set [MP3|320 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335155.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Skindred - Дискография (2000-2015) [MP3|192-320 kbps]<Ragga, Punk, Me
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333339.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ Moondog Matinee - Carry Me, Rosie (2015) [MP3|320 кб/с]<Alternative, Heavy Bl
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332569.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ Kurt Cobain - Montage of Heck: The Home Recordings (2015) Deluxe Edition [MP3|32
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332322.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ Icon For Hire - The Reckoning (2022) [MP3|320 Kbps] <Alt. Rock, Female Vocal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332137.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ ParkingLotGrass - Tusk at Hand (2015) [MP3|320 кб/с]<Alt. Rock, Modern Hard R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329445.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Sara Lov - Some Kind of Champion (2015) [MP3|320 кб/с]<Alternative, Dream Pop
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329436.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Black Ferns - Black Ferns (2015) [OGG|448-488 кб/с]<Alternative Rock, Psyched
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326766.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Zonder Kennedy & The Scoville Junkies - Hot Water Music (2015) [MP3|320 кб/с]
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323986.jpg" />
 </div>
 
 
@@ -372,41 +401,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 263710   (323277) от 28.11.2010
-
-Delorentos - You Can Make Sound (2009) [MP3|320 kbps]<Indie-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_323277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sanctuary (04:01)
-02. Secret (04:01)
-03. Hallucinations (03:28)
-04. You Say You'll Never Love Her (03:46)
-05. Leave Me Alone (04:08)
-06. Editorial (04:37)
-07. Body Cold (03:42)
-08. Let The Light Go Out (03:58)
-09. Soulmate (03:48)
-10. You Can Make Sound (04:40)(   Читать дальше...)Жанр: Indie-RockПродолжительность: 00:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:740CC040C5E9E1261525966AB012A35372C12262
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259331   (321259) от 03.11.2018
 
 Hollywood Undead - PSALMS (2018) EP [MP3|320 Kbps] <Alternative Rock, Rapcore>
@@ -415,7 +409,7 @@ Hollywood Undead - PSALMS (2018) EP [MP3|320 Kbps] <Alternative Rock, Rapcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321259.jpg" />
 </div>
 
 
@@ -444,7 +438,7 @@ Caffeine Cafe - Cut The Time (2014) [MP3|320 кб/с] Авторская раз�
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321231.jpg" />
 </div>
 
 
@@ -473,7 +467,7 @@ Andrea Schroeder - Void (2016) [MP3|320 Kbps] <Indie Rock, Alt. Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320997.jpg" />
 </div>
 
 
@@ -502,7 +496,7 @@ Diamanda Galas - Malediction and Prayer (1998) [MP3|~225 кб/с (V1)]<Avant-Gar
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320950.jpg" />
 </div>
 
 
@@ -537,7 +531,7 @@ Tempo Bay - Disco Ball (2017) Single [MP3|320 Kbps] <Indie Rock, Dance Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319338.jpg" />
 </div>
 
 
@@ -563,7 +557,7 @@ Foo Fighters - Saint Cecilia (2015) EP [MP3|320 кб/с]<Alt. Rock, Post-Grunge,
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319123.jpg" />
 </div>
 
 
@@ -592,7 +586,7 @@ Evanescence - Synthesis (2017) [MP3|320 Kbps] <Alternative Metal, Symphonic Rock
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318779.jpg" />
 </div>
 
 
@@ -621,7 +615,7 @@ Seventh - Decide (2002) [MP3|128 кб/с]<Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317829.jpg" />
 </div>
 
 
@@ -656,7 +650,7 @@ The Delmonas - Delmonas 5 • The Delmonas (1993) [MP3|VBR 228-324 кб/с]<Punk
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317314.jpg" />
 </div>
 
 
@@ -685,7 +679,7 @@ Pete Yorn & Scarlett Johansson - Break Up (2009) [MP3|320 Kbps] <Indie Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316118.jpg" />
 </div>
 
 
@@ -714,7 +708,7 @@ Celldweller - Satellites (2022) [MP3|320 Kbps] <Alternative, Industrial>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314316.jpg" />
 </div>
 
 
@@ -743,7 +737,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312398.jpg" />
 </div>
 
 

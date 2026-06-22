@@ -1,3 +1,55 @@
+###  Публикация: 1467270   (239803) от 03.05.2021
+
+Library Monkey Pro 3.1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Library Monkey Pro предоставляет полный набор звуковых инструментов для современных, быстро меняющихся производственных сред. Управляйте бесчисленными активами с помощью расширенного менеджера библиотек, создавая наборы и смарт-наборы, вызывайте недавние поисковые запросы, создавайте несколько подборок и многое другое. Скопируйте свои библиотеки компакт-дисков с (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2021Разработчик: Monkey Tools, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85A1E1A70885796625F192C1A22ED7B68826A3FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467440   (239796) от 03.05.2021
+
+Word Counter Pro 3.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Word Counter Pro - это простое и мощное приложение для писателей. С помощью Word Counter Pro вы можете просматривать статистику вашего письма, такую ​​как количество слов, количество символов, количество предложений, количество строк, количество абзацев и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 2021Разработчик: App Tyrant CorpПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CDA5C397D4F08E470D19725E2255E10724FF47A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467273   (239766) от 03.05.2021
 
 Sound Grinder Pro 3.1.1 [En]
@@ -6,7 +58,7 @@ Sound Grinder Pro 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239766.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Acon Digital Acoustica Premium Edition 7.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239757.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Smart Disk Image Utilities 2.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239740.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Video Converter X2 for Mac 1.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239724.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ Money Pro - Personal Finance 2.7.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239722.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ TG Pro (Temperature Gauge Pro) 2.79 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239705.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ DockView 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239701.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ Integrity Plus 12.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239692.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ PDFpen 13 v13.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239688.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ Dropzone 4 Pro v 4.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239683.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ Posterino 3 v3.10.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239671.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ TextMan 1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239667.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ Brightly Pro 2.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239661.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ Valentina Studio Pro 12.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239654.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ SponsorBlock for YouTube 5.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239644.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ Blocs 4.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239636.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ PowerPhotos 1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239617.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ Yate 6.4.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239607.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ GraphicConverter 11 v11.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239604.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ Cinemagraph Pro 2.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239592.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ DirEqual 4.4.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239583.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ System Toolkit 5.6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239572.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ Meta 2.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239564.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ Alfred 4 Powerpack 4.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239563.jpg" />
 </div>
 
 
@@ -630,60 +682,6 @@ Alfred 4 Powerpack 4.2.1 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB441277F80617CFDB6A51DCA76890F13301AA54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622116   (239560) от 27.03.2023
-
-Money Pro - Personal Finance 2.8.12 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Money Pro сократит расходы и покажет полную картину Ваших финансов. Money Pro - это единая программа для ведения бюджета, отслеживания операций по счетам и напоминания о предстоящих платежах. Money Pro отлично подходит для ведения домашнего бюджета, а также для финансового планирования малого бизнеса.
-Удобная синхронизация (iPhone, iPad, Mac). Money Pro является (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.03.2023Разработчик: © 2015-2019 iBear LLCПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07E9B4A764748DC90B72186E32944FCA1F57E53F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572955   (239555) от 29.08.2022
-
-Downcast 2.11.13 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downcast - популярное приложение подкаста iOS теперь доступно для OS X. Загрузка, проигрывание и синхронизация. Ваши любимые подкасты с интуитивным интерфейсом, созданным исключительно для подкастов.
-Downcast – программа для загрузки и прослушивания подкастов без необходимости использовать iTunes. Поиск, подписка и скачивание видео и аудио подкастов любого размера, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.08.2022Разработчик: © 2012-2022 Jamawkinaw Enterprises LLCПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1506A07BA220AF7AE90E92F7752ED59802407292
 ```
 
 https://mybot314.ru/tekegram_catalog/

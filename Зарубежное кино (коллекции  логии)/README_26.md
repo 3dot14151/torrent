@@ -1,3 +1,110 @@
+###  Публикация: 1582652   (59895) от 13.04.2024
+
+Матрица / The Matrix (1999 - 2021) BDRemux [VC-1/H.264/1080p] [Коллекция]
+
+>>След.
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59895.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Матрица» - американская научно-фантастическая медиафраншиза в жанре киберпанк. Началась с фильма «Матрица», снятого в 1999 году братьями Эндрю и Ларри Вачовски. Позднее, в 2003 году, вышло два продолжения: «Матрица: Перезагрузка» и «Матрица: Революция». В том же 2003 году был выпущен аниме-сериал «Аниматрица». Также по мотивам фильмов были выпущены сборники веб-комиксов (   Читать дальше...   )Производство: США / Warner Bros., Village Roadshow PicturesЖанр: фантастика, боевикРежиссер: Энди Вачовски, Ларри ВачовскиАктеры: Киану Ривз, Лоренс Фишбёрн, Кэрри-Энн Мосс, Хьюго Уивинг, Глория Фостер, Джо Пантольяно, Маркус Чонг, Джулиан Араханга, Мэтт Доран, Белинда МакКлори, Моника Беллуччи, Брюс Спенс, Джада Пинкетт Смит, Хэролд Перрино, Гарри Дж. Ленникс, Хельмут Бакайтис, Яхья Абдул-Матин II, Джонатан Грофф, Джессика Хенвик, Нил Патрик Харрис,  Джада Пинкетт Смит, Приянка Чопра Джонас, (   Читать дальше...   )Перевод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:16:18 / 02:18:15 / 02:09:16 / 02:27:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F8D5E92B43003011A4CDB242A201B0952334AFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310251   (58950) от 22.04.2024
+
+Чужой: Антология / Alien: 40th Anniversary Short Films (2019) WEB-DLRip [H.264/1080p-LQ] (фильмы 1-6 из 6) [PR]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58950.jpg" />
+</div>
+
+
+###  Подробнее
+
+В честь 40-летней годовщины выхода на экраны самого первого «Чужого» с неподражаемой Сигурни «Рипли» Уивер в главной роли, студия 20th Century Fox выпустила антологию Alien: 40th Anniversary Shorts из шести короткометражек, посвященных вселенной Чужих. Их сняли молодые режиссеры новой волны и попытались вдохнуть новую жизнь в буксующую в последнее время франшизу, (   Читать дальше...   )Производство: США / 20th Century Fox, TongalЖанр: ужасы, фантастика, короткометражкаРежиссер: Сэм Спир, Кайли Спир, Келси Тейлор, Крис Рединг, Эйдан БрезоникАктеры: Джеймс Пэкстон, Шэрон Дункан-Брюстер, Гайя Уайсс, Обри Вейкинг, Джолин Андерсен, Тэннер Риттенхаус, Эмбер Гастон, Брендан Тейлор, Стефани Чо, Адам Синклер, Кристофер Мюррэй и другиеПеревод: Многоголосый закадровый, профессиональный (LostFilm)Продолжительность: фильмы по ~00:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E530CB48E19B9141D82B9434491968C22FEAC119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542446   (58837) от 23.04.2024
+
+Сандра Буллок: Коллекция фильмов (1987-2021) DVDRip, HDTVRip, WEB-DLRip, HDRip, BDRip [H.264]
+
+>>След.
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция фильмов с участием Сандры Буллок.
+У Сандры Буллок есть своя звезда на «Аллее славы» в Голливуде. Ее фильмография наполнена и крайне гениальными картинами, и полными провалами. Она по праву считается звездой киноиндустрии мирового класса.
+   Актриса появляется на экране нечасто, Сандра может позволить себе выбирать сценарии на свой вкус. На гребне успеха Сандра (   Читать дальше...   )Производство: Разные студии.Жанр: Драма, комедия, мелодрама ...Режиссер: Различные в разных фильмах.Актеры: Сандра Буллок и другие.Перевод: Дублированный, профессиональный многоголосый, профессиональный двухголосый, авторскийСубтитры: Русские, английскиеПродолжительность: ~81:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB958602901BF9A982DD35995A1D2645A3F6F93E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560925   (58604) от 25.04.2024
+
+Джулия Робертс: Коллекция фильмов (1988-2018) DVDRip, HDTVRip, WEB-DLRip, HDRip, BDRip [H.264]
+
+>>След.
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция фильмов с участием Джулии Робертс.
+Американская актриса кино и телевидения, продюсер. Джулия Робертс (настоящее имя - Джули Фиона Робертс). Так случилось, что с детства она была окружена разными актерами, режиссерами и прочими театралами и другими людьми, посещавшими магазинчик "Актера и Писателя", которым владели ее родители. Поэтому и у нее (   Читать дальше...   )Производство: Разные студии.Жанр: Драма, комедия, мелодрама ...Режиссер: Различные в разных фильмах.Актеры: Джулия Робертс и другие.Перевод: Дублированный, профессиональный многоголосый, авторскийСубтитры: Русские, английскиеПродолжительность: ~80:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21F13E28F113D5E0F68800C51762529889D20CEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179286   (58421) от 27.04.2024
 
 Обитель зла / Resident Evil (2002/2004/2007/2010/2012/2016) BDRip [H.264/1080p-LQ] [Гексалогия]
@@ -6,7 +113,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58421.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58249.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57472.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57146.jpg" />
 </div>
 
 
@@ -111,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56906.jpg" />
 </div>
 
 
@@ -137,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56825.jpg" />
 </div>
 
 
@@ -163,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56611.jpg" />
 </div>
 
 
@@ -189,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56207.jpg" />
 </div>
 
 
@@ -215,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55477.jpg" />
 </div>
 
 
@@ -242,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55462.jpg" />
 </div>
 
 
@@ -269,7 +376,7 @@ Zомбилэнд  / Zombieland (2009, 2019) BDRemux [H.264/1080p] [Дилоги
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54656.jpg" />
 </div>
 
 
@@ -295,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54538.jpg" />
 </div>
 
 
@@ -321,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53594.jpg" />
 </div>
 
 
@@ -347,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53465.jpg" />
 </div>
 
 
@@ -373,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52552.jpg" />
 </div>
 
 
@@ -400,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51454.jpg" />
 </div>
 
 
@@ -426,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50937.jpg" />
 </div>
 
 
@@ -453,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49886.jpg" />
 </div>
 
 
@@ -479,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49670.jpg" />
 </div>
 
 
@@ -505,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49335.jpg" />
 </div>
 
 
@@ -531,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49333.jpg" />
 </div>
 
 
@@ -557,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48945.jpg" />
 </div>
 
 
@@ -569,114 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B2910DFCA6DA630A18AF56589503F14DE793E45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738995   (48882) от 25.07.2024
-
-Аквамен / Aquaman (2018-2023) HybridRip, BDRip [AV1/1080p] [10-bit] [Дилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аквамен (Aquaman) — персонаж Расширенной вселенной DC (DCEU), основанный на одноимённом супергерое DC Comics. Сюжет знакомит зрителей с историей происхождения получеловека-полуатланта Артура Карри и ключевыми событиями его жизни.
-Действие фильма разворачивается в необъятном и захватывающем подводном мире семи морей, а  — теми, что заставят его не только столкнуться (   Читать дальше...   )Производство: США / DC Comics, DC Entertainment, Panoramic Pictures, Warner Bros. PicturesЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джеймс ВанАктеры: Джейсон Момоа, Эмбер Хёрд, Дольф Лундгрен, Николь Кидман, Джули Эндрюс, Патрик Уилсон, Уиллем Дефо, Грэм МакТавиш, Талия Джейд, Джимон Хонсу, Темуэра Моррисон, Майкл Бич, Яхья Абдул-Матин II,  Яни Жао, Винсент Риган, Мартин Шорт, Рэндалл ПакПеревод: Дублированный (Мосфильм-Мастер, SC Produb, Любительский)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 02:23:17 / 02:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAC6B260FAAFE6C333B3A25A97C1805CCBC9A1BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503049   (48833) от 26.07.2024
-
-Отряд самоубийц / Suicide Squad (2016, 2021) BDRip [H.264/720p] [Дилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Правительство решает дать команде суперзлодеев шанс на искупление. Подвох в том, что их отправляют на выполнение миссии, где они, вероятнее всего, погибнут.Производство: США, Канада, Великобритания  / Atlas Entertainment, DC Comics, DC EntertainmentЖанр: фантастика, боевик, фэнтези, приключенияРежиссер: Дэвид Эйр, Джеймс ГаннАктеры: Марго Робби, Уилл Смит, Джаред Лето, Джай Кортни, Кара Делевинь, Джей Эрнандес, Юэль Киннаман, Виола Дэвис, Адевале Акинойе-Агбаже, Скотт Иствуд, Идрис Эльба, Давид Дастмалчян, Сильвестр Сталлоне, Алиси БрагаПеревод: Дублированный, профессиональный многоголосый, любительский двухголосый, авторский (одноголосый)Субтитры: русские, английскиеПродолжительность: 02:14:33 / 02:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE313FD43FBE002E163BE6F8DEB1AEA0C1AD463
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065124   (48734) от 27.07.2024
-
-Джеймс Бонд. Агент 007: Коллекция / James Bond Collection (1962 - 2015) BDRip [H.265/1080p]
-
->>След.
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коммандер ВМФ Великобритании, также известный как «агент 007» - главный персонаж романов британского писателя Яна Флеминга о вымышленном агенте MI6. Получил широкую популярность после начала экранизации романов Флеминга.
-
-Серия фильмов о Джеймсе Бонде именуется «бондианой» и является одной из самых продолжительных серий фильмов в истории. С 1962 по 2015 годы вышли (   Читать дальше...   )Производство: США, Великобритания, Чехия, Германия, Багамы, Мексика / Metro-Goldwyn-Mayer, Danjaq, Eon Productions Ltd., Babelsberg Film GmbH, Casino Royale, Casino Royale Productions, Columbia Pictures, Stillking Films, United Artists, B24Жанр: Боевик, Криминал, Приключения, ТриллерРежиссер: Теренс Янг, Гай Хэмилтон, Льюис Гилберт, Питер Р. Хант, Джон Глен, Ирвин Кершнер, Роджер Споттисвуд, Майкл Эптед, Ли Тамахори, Мартин Кэмпбелл, Марк Форстер, Сэм МендесАктеры: Шон Коннери (1962—1967; 1971), Джордж Лэзенби (1969), Роджер Мур (1973—1985), Тимоти Далтон (1987—1989), Пирс Броснан (1995—2002), Дэниел Крэйг (2006—2015)Перевод: Многоголосый закадровый; дублированныйЯзык субтитров: РусскийПродолжительность: В каждом фильме разная
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99E4724E0D1B37D8B7773F32FE47CC7FE664CB09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739980   (48415) от 30.07.2024
-
-Superнянь 1-2 / Babysitting 1-2 (2014-2015) BDRip [AV1/1080p] [10-bit] [Дилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из-за отсутствия няни на выходные Марк Шаудель доверяет своего сына Реми Франку, своему сотруднику. Утром Марка и его жена Клэр просыпаются по звонку из полиции. Реми и Франк пропали…
-Франк, фанат комиксов, работает в редакции Schaudel, где он всего лишь агент на стойке регистрации. Когда он представляет свои рисунки своему боссу, тот пользуется случаем, чтобы заставить (   Читать дальше...   )Производство: Франция / Axel Films, Cinéfrance 1888, Good Lap Production, Madame Films, Universal Pictures International (UPI)Жанр: комедияРежиссер: Николя Бенаму, Филипп ЛашоАктеры: Филипп Лашо, Алис Давид, Венсан Дезанья, Тарек Будали, Жюльен Аррути, Грегуар Людиг, Давид Марсе, Жерар Жюньо, Клотильда Куро, Филипп ДюкенПеревод: Дублированный (iTunes)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:24:04 / 01:33:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06F00EC43122F4AEDD10F4D5F4E256CDCDA23AE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

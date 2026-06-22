@@ -1,3 +1,56 @@
+###  Публикация: 1525779   (129323) от 21.01.2022
+
+Wondershare Recoverit 10.0.9 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплексный набор для восстановления данных (ранее Wondershare Data Recovery).
+Wondershare Recoverit - профессиональное приложение, которое поможет вам восстановить удаленные, отформатированные и потерянные данные с любого внешнего диска установлена на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 20.01.2022Разработчик: © 2022 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:826799075105BAA74C6F95CE36E502A86FCD84B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525688   (129198) от 21.01.2022
+
+Sketch 82.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сделайте набросок графического дизайна для цифрового мира. Мощные инструменты и элегантный интерфейс в одном отмеченном наградами пакете. Потому что создание красивых вещей должно быть радостью, а не обузой.Тип издания: macOS SoftwareРелиз состоялся: 21.01.2022Разработчик: © 2022 Sketch B.V.Поддерживаемая ОС: macOS 10.15 or laterЯзык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B8B9CD3851BADB9A5DA808A5F0BE7FF7266E3C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525781   (129155) от 21.01.2022
 
 Rectangle Pro 2.1.1 [Multi]
@@ -6,7 +59,7 @@ Rectangle Pro 2.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129155.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ DirEqual 4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129136.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ Bartender 4 v4.1.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129134.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ EdgeView 3 v3.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129126.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ uDock 2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129122.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ Battery Indicator for Mac 2.12.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129120.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ Mirror for Fire TV  2.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129118.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ Bartender 4 v4.1.29 beta U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129112.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ FontLab 8 v.8.3.0.8762 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123263.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ Fork 2.38 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123261.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ Final Draft 13 v.13.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123260.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ Money Pro - Personal Finance 2.10.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123257.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ Path Finder 2166 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123250.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ Navicat Premium 16.3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123112.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ Wondershare PDFelement Pro OCR 10.2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123108.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ Little Snitch 5.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123107.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ SiteSucker Pro 5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123093.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ Pixelmator Pro 3.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123083.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ Proxyman for Mac 4.16.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123059.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ Boxy SVG 4.21.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123052.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ SiteSucker 5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123051.jpg" />
 </div>
 
 
@@ -562,7 +615,7 @@ Noir – Dark Mode for Safari 2024.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123048.jpg" />
 </div>
 
 
@@ -590,7 +643,7 @@ MarsEdit 5.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123047.jpg" />
 </div>
 
 
@@ -616,7 +669,7 @@ XMind Pro 2024 24.01 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122958.jpg" />
 </div>
 
 
@@ -627,59 +680,6 @@ XMind – это лучшее программное обеспечение дл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D28F9EBD66592DCE1EE493D117FE71344E4B0D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691852   (122943) от 14.01.2024
-
-Ableton Live Suite 11 v.11.3.20 U2B [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Live - это быстрое и гибкое программное обеспечение для создания и исполнения музыки. Он включает в себя эффекты, инструменты, звуки и всевозможные творческие функции - все, что вам нужно для создания любой музыки. Создавайте в традиционном линейном расположении или импровизируйте без ограничений временной шкалы в режиме просмотра сеансов Live. Свободно перемещайтесь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2023Разработчик: © 2022 AbletonПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FEF5976596C93B0BBF5F334158E388281379B12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691964   (122914) от 14.01.2024
-
-Bookends 14.2.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bookends - мощное приложение, которое представляет собой полнофункциональную библиографическую, справочно-информационную систему для студентов и профессионалов. Доступ к данным приложения можно получить из программ: Mellel, Nisus Writer Pro, MS Word (включая MS Word 2011), а так же Apple Pages и OpenOffice.
-Bookends позволяет сканировать существующие файлы и автоматически (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.01.2024Разработчик: © 2024 Sonny SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8679DC7D3594D895C4329D92E94A72176D9C7C58
 ```
 
 https://mybot314.ru/tekegram_catalog/

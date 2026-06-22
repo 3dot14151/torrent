@@ -1,3 +1,37 @@
+###  Публикация: 469622   (82779) от 17.03.2012
+
+[Специалист] Microsoft Excel 2010/ 2007. Уровень 4. Макросы на VBA [2012] PCRec
+
+>>След.
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание: По окончании курса Вы будете уметь:
+Записывать макросы и усовершенствовать автоматически сгенерированный программный код
+Работать с редактором Visual Basic, создавать процедуры на VBA
+Программно обращаться к рабочим книгам, листам и диапазонам ячеек, изменять их свойства
+Программировать многократно повторяющиеся операции с помощью циклов
+Создавать и применять пользовательские функции
+Использовать пользовательские кнопки и события рабочих книг и листов для запуска макросов
+Выполнять программную обработку ошибок. Отлаживать и тестировать программы
+Устанавливать защиту проекта VBAЖанр: ITПродолжительность: 11:24 примерно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D64F30391071B0199AF7BD7FC1E5D6FF82DBDDBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 457570   (78391) от 25.02.2012
 
 Алексей Дюльгер | Шахматы: Французская защита [2008] PCRec
@@ -6,7 +40,7 @@
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78391.jpg" />
 </div>
 
 
@@ -32,7 +66,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78367.jpg" />
 </div>
 
 
@@ -58,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77989.jpg" />
 </div>
 
 
@@ -87,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62990.jpg" />
 </div>
 
 
@@ -116,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62780.jpg" />
 </div>
 
 
@@ -145,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58382.jpg" />
 </div>
 
 
@@ -174,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53286.jpg" />
 </div>
 
 
@@ -200,7 +234,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53264.jpg" />
 </div>
 
 
@@ -226,7 +260,7 @@ Pluralsight | Разработка печатных плат с Eagle (2015) PCR
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51893.jpg" />
 </div>
 
 
@@ -252,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51537.jpg" />
 </div>
 
 
@@ -278,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51531.jpg" />
 </div>
 
 
@@ -304,7 +338,7 @@ Klaus | Авторский курс "Зеркало Интернета 3. Моб
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51523.jpg" />
 </div>
 
 
@@ -333,7 +367,7 @@ Diodov.net, Дмитрий Забарило | Электроника для на
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46666.jpg" />
 </div>
 
 
@@ -360,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44352.jpg" />
 </div>
 
 
@@ -386,7 +420,7 @@ EducationMarine, Василий Березовский | Chief officer on oil ta
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39432.jpg" />
 </div>
 
 
@@ -415,7 +449,7 @@ Sinclair Intimacy Institute, Марк Шон | Pro секс: Взрослые и
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39153.jpg" />
 </div>
 
 
@@ -441,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39147.jpg" />
 </div>
 
 
@@ -467,7 +501,7 @@ Pro секс: Наслаждение запретными удовольстви
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39036.jpg" />
 </div>
 
 
@@ -493,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28054.jpg" />
 </div>
 
 
@@ -522,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25582.jpg" />
 </div>
 
 
@@ -551,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17650.jpg" />
 </div>
 
 
@@ -577,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16761.jpg" />
 </div>
 
 
@@ -606,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11216.jpg" />
 </div>
 
 
@@ -634,7 +668,7 @@ Yesdress nostress, Анастасия Кульбацкая | Самый крут
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9301.jpg" />
 </div>
 
 

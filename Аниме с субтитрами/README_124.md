@@ -1,3 +1,29 @@
+###  Публикация: 1603250   (48950) от 25.07.2024
+
+Maou Gakuin no Futekigousha II | The Misfit of Demon King Academy II | Непризнанный школой владыка демонов [ТВ-2] [2023, TV, 24 эп.] WebRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды могущественный Король Демонов Тирании Анос Вольдигод пожертвовал собой во имя установления мира между расами, решив переродиться через пару тысяч лет. И его план удался: реальность, в которой он очнулся, действительно стала куда более мирной. Правда, и её жители, не обременённые постоянными войнами, стали куда слабее и забыли многие простейшие заклинания, (   Читать дальше...   )Производство: студия Silver LinkЖанр: приключения, фэнтезиРежиссер: Онума СинПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CF26384D52455AF76919FC51F88B9096ED3DDBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702896   (47185) от 11.08.2024
 
 Sousou no Frieren | Frieren: Beyond Journey's End | Провожающая в последний путь Фрирен [2023, TV, 28 эп.] BDRip 1080p raw
@@ -6,7 +32,7 @@ Sousou no Frieren | Frieren: Beyond Journey's End | Провожающая в п
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47185.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Kusuriya no Hitorigoto | The Apothecary Diaries | Записки аптекар�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47157.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Bofuri | Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu. 2 |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47144.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ Lv2 kara Cheat datta Moto Yuusha Kouho no Mattari Isekai Life | Chillin' in Anot
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47123.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Mato Seihei no Slave | Chained Soldier | Раб спецотряда [ТВ-1] [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47075.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Isekai Suicide Squad | Отряд самоубийц в другом мире [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46524.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ Bye Bye, Earth / Пока, Земля [2024, TV, 10] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43716.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Mob kara Hajimaru Tansaku Eiyuutan / A Nobody's Way Up to an Exploration Hero / 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43612.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Megami no Cafe Terrace 2 / The Cafe Terrace and Its Goddesses 2 / Терраса
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43093.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ Gimai Seikatsu / Days with My Stepsister / Жизнь со сводной сес
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43088.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ Giji Harem | Pseudo Harem | Псевдогарем [2024, TV, 12 из 12] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42989.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ Ore wa Subete o Parry Suru: Gyaku Kanchigai no Sekai Saikyou wa Boukensha ni Nar
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42981.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ Madougushi Dahlia wa Utsumukanai / Dahlia in Bloom: Crafting a Fresh Start With 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42877.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ Karasu wa Aruji o Erabanai | Yatagarasu: The Raven Does Not Choose Its Master | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42875.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ Nanare Hananare / Narenare: Cheer for You! / Слушайте Хананарэ [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42783.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ VTuber Nanda ga Haishin Kiriwasuretara Densetsu ni Natteta / Легенда о �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42775.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ Shinmai Ossan Boukensha, Saikyou Party ni Shinu Hodo Kitaerarete Muteki ni Naru.
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42700.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ Mayonaka Punch | Полуночный удар [2024, TV, 12 эп.] WEBRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42679.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ Katsute Mahou Shoujo to Aku wa Tekitai Shite Ita. | The Magical Girl and the Evi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42599.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ Shy | Стесняшка [2023, TV, 24 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42583.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Koi wa Futago de Warikirenai / Love Is Indivisible by Twins / Любовь бл�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42440.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ NieR:Automata Ver1.1a | Ниер: Автoмaтa Ver 1.1a [2023, TV, 24 эп.] We
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42272.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ Senpai wa Otokonoko / Senpai is an Otokonoko / Моя сэмпай — паре�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42254.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ Naze Boku no Sekai o Dare mo Oboeteinai no ka? / Why Does Nobody Remember Me in 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42160.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ Tensui no Sakuna-hime | Sakuna: Of Rice and Ruin | Сакуна: Рис и ру�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42138.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ Tensui no Sakuna-hime | Sakuna: Of Rice and Ruin | Сакуна: Рис и ру�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3E54297621753CA2396C373A05FCB78CD3BF3D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737763   (42131) от 28.09.2024
-
-Dungeon no Naka no Hito | Dungeon People | Люди подземелья [2024, TV, 12 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Воровка по имени Клэй отправляется в подземелье, наполненное монстрами и ловушками, чтобы найти пропавшего отца. Когда она попадает на уровень, куда ещё не ступала нога искателя приключений, на её пути появляется могущественная смотрительница подземелья и предлагает... работу! Теперь вместо того чтобы исследовать подземелье, Клей должна определять задачи для новых (   Читать дальше...   )Производство: студия OLM / オー・エル・エムЖанр: приключенияРежиссер: Ямаи СаякаПеревод: Funimation; Sanae TeamЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB4091304D65A4C683D727A2052F0B08DB13C69E
 ```
 
 https://mybot314.ru/tekegram_catalog/

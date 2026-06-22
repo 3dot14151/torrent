@@ -6,7 +6,7 @@ Discovery: Новый Мир. Мегаполис будущего / Discovery: N
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954529.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Discovery. Розетта: столкновение с кометой (В пог
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939207.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Discovery: Вселенная Стивена Хокинга: Инопланет�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934254.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Discovery: Грандиозное ограбление / Mega Heist (2009) SATRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930155.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929681.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929033.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_928792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_928792.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927631.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927599.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927538.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927439.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Discovery: Один день в Освенциме / One Day In Auschwitz  (2015
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925811.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Discovery: Поиск пришельцев. Урожай пришельцев / 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924691.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924248.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924242.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924079.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924006.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Discovery: Недружелюбная Вселенная ( Плохая Всел
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923674.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Discovery: Техногеника. Кругобайкальская железн
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922432.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Discovery:Разрушители легенд. В погоне за ураган
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922293.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Discovery: Загадки всемирной истории: Внутри бун
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920192.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Discovery: Недружелюбная Вселенная. Нападение п�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920178.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Discovery: Американский Чоппер / American Chopper [Season 6] (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919879.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Discovery: Как выжить среди акул / Surviving Sharks (2007) SAT
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918745.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917465.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Discovery. Техногеника. Родина-мать и Останкинск
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916771.jpg" />
 </div>
 
 

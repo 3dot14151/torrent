@@ -1,3 +1,82 @@
+###  Публикация: 1462440   (1021171) от 14.04.2021
+
+Гяру и динозавр | Gal to Kyouryuu | Gal & Dino [TV-1] [2020, TV, 12 из 12] WEBRip 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гяру Каэде с перепоя пригласила домой динозавра. Теперь он живёт в её комнате, ест лапшу, смотрит телевизор и даже играет в карты с друзьями девушки. Так начинается милая и душевная история о необычных соседях.
+Причём, как в рисованном виде, так и в виде игрового сериала с актёрами.Производство: Япония, студия Kamikaze Douga / 神風動画Жанр: комедия, повседневность, дорамаРежиссер: Аоки ДзюнЯзык озвучки: Русский закадровый (Wakanim.tv)Субтитры: Русские надписи (неотключаемые)Продолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3362443C2F396A8CCB1D50DC09C4FE6BFC38592
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415791   (1021057) от 14.04.2021
+
+Yuukoku no Moriarty | Moriarty the Patriot | Патриот Мориарти [часть 1] [2020, TV, 11 из 11] WEB-DL 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конец XIX века. В ходе промышленной революции Англия добивается процветания и уверенно наращивает своё влияние. Однако, вопреки техническому прогрессу, в стране до сих пор господствует прочно укоренившийся сословный строй, из-за которого аристократия, не составляющая и 3% населения, доминирует над всеми остальными. В то время как знать по праву рождения наделена (   Читать дальше...   )Производство: Япония, студия Production I.GЖанр: драма, исторический, сёнэнРежиссер: Номура КадзуяЯзык озвучки: Русский закадровый (Wakanim.tv)Субтитры: Русские надписи (неотключаемые), Русский (внешние)Продолжительность: 11 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5B531C7E598186EC986AE7FBA8F93BEF96ECFB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462560   (1020758) от 16.04.2021
+
+Domestic na Kanojo | Домашняя девушка [2019, TV, 12 из 12] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старшеклассник Нацуо Фудзии безответно влюблен в свою учительницу Хину. Чувства гложут его, и в надежде хоть немного развеяться он идёт с друзьями на групповое свидание. Там Нацуо знакомят с молчаливой девушкой Руи, и их встреча заканчивается сексом. После они расходятся, намереваясь больше никогда не встретиться вновь… Однако судьба рассудила иначе: отец Нацуо приводит (   Читать дальше...   )Производство: студия Diomedea / ディオメディアЖанр: романтика, драма, эччиРежиссер: Ибата СётаПеревод: SovetRomantica (KuroKaze & Yamada)Язык озвучки: Японский и русский (Многоголосая, закадровая KANSAI Studio)Субтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7FC0FF9E6CF034BB83A97D444DC750B92BC2024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463079   (1020591) от 17.04.2021
 
 Sankarea | Санка Рэа [2012, TV, 12 эп. + 1 SP +2 OVA] BDRip 1080p 10-bit raw+rus
@@ -6,7 +85,7 @@ Sankarea | Санка Рэа [2012, TV, 12 эп. + 1 SP +2 OVA] BDRip 1080p 10-b
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020591.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ Btooom! | Взрыв! [2012, TV 12 из 12] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020434.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ Rosario to Vampire | Розарио + Вампир [TV1 + TV2] [2008, TV, 26 э�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020399.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020252.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ Kanata no Astra | Astra Lost in Space | Астра, затерянная в ко
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019932.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ Ansatsu Kyoushitsu | Assassination Classroom | Класс убийц [ТВ-2] [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019443.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ Ansatsu Kyoushitsu | Assassination Classroom | Класс убийц [ТВ-1] [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019440.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ Ishuzoku Reviewers | Interspecies Reviewers | Межвидовые реценз�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019209.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ Enen no Shouboutai | Пламенная бригада пожарных [ТВ-1]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019193.jpg" />
 </div>
 
 
@@ -240,7 +319,7 @@ Obsolete (2020) | Устаревший (2020) [2020, Web, 6 из 6] BDRip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018708.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ Obsolete | Устаревший [2019, Web, 6 из 6] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018689.jpg" />
 </div>
 
 
@@ -292,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018334.jpg" />
 </div>
 
 
@@ -318,7 +397,7 @@ Darwin's Game | Игра Дарвина [2020, TV, 11 из 11] BDRip 1080p HEVC 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017882.jpg" />
 </div>
 
 
@@ -344,7 +423,7 @@ Omoi, Omoware, Furi, Furare | Love Me, Love Me Not | Любит - не люби�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017868.jpg" />
 </div>
 
 
@@ -370,7 +449,7 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka III | Danmachi III | М�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017330.jpg" />
 </div>
 
 
@@ -396,7 +475,7 @@ Natsume Yuujinchou | Natsume's Book of Friends | Тетрадь дружбы Н�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017038.jpg" />
 </div>
 
 
@@ -422,7 +501,7 @@ Somali to Mori no Kamisama | Somali and the Forest Spirit | Сомали и Ду
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016564.jpg" />
 </div>
 
 
@@ -448,7 +527,7 @@ Evangelion. 3.33 You Can [Not] Redo | Евангелион. 3.33 Ты (не) И�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016507.jpg" />
 </div>
 
 
@@ -474,7 +553,7 @@ Enen no Shouboutai: Ni no Shou | Пламенная бригада пожарн�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016344.jpg" />
 </div>
 
 
@@ -500,7 +579,7 @@ Mach Go Go Go | Speed Racer | Гонщик Спиди [1967, TV, 52 из 52] BDR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015282.jpg" />
 </div>
 
 
@@ -526,7 +605,7 @@ Saiyuuki | Alakazam the Great | Путешествие на Запад | Вел�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013988.jpg" />
 </div>
 
 
@@ -553,7 +632,7 @@ Eizouken ni wa Te o Dasuna! | Keep Your Hands Off Eizouken! | Руки проч�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013521.jpg" />
 </div>
 
 
@@ -579,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011272.jpg" />
 </div>
 
 
@@ -590,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD9A101CC029FB841CE90009B448ABBD881B8C86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477123   (1011093) от 14.06.2021
-
-Kikou Ryouhei Mellowlink | Armor Hunter Mellowlink | Бронебойщик Меллоулинк [1988, OVA, 12 из 12] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011093.jpg" />
-</div>
-
-
-###  Подробнее
-
-В галактике Астрагиус уже начинает утихать столетняя война между империями Гильгамеш и Баларант. За неподчинение приказу лейтенанта Швеппса и его взвод пилотов ВОТОМов отправляют на передовую в качестве бронебойщиков для прикрытия отступления своих войск. Вооружённые старыми противотанковыми винтовками и не имея поддержки союзных ВОТОМов, бойцы Швеппса были уничтожены. (   Читать дальше...   )Производство: Sunrise / サンライズЖанр: приключения, фантастика, мехаРежиссер: Канда ТакэюкиПеревод: TancistЯзык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5859C46BA670614DCAD4035928D3A12654F315FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477365   (1010732) от 16.06.2021
-
-Air | Высь [2005, TV, 12 эп.] SDTV 720p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Столетия назад в средневековой Японии ещё можно было встретить мистических крылатых дев, имеющих связь с потусторонним миром и обладающих мощными магическими силами. Они были призваны помогать людям, но в суровой реальности той эпохи стали заложницами сильных мира сего, использующих их как оружие в войнах. Эти чистые душой существа не могли выжить в людской грязи, (   Читать дальше...   )Производство: Япония, Kyoto AnimationЖанр: драма, романтика, мистикаРежиссер: Исихара ТацуяЯзык озвучки: Русский от AniDub (Azazel, Esther, Jade)Субтитры: ОтсутствуютПродолжительность: ТВ, 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F3D3F2F42542B4BC3B9E8F9E2DBC1D5F827EF4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478901   (1009918) от 21.06.2021
-
-Gekijouban Gintama Kanketsuhen: Yorozuya yo Eien Nare | Gintama: Movie 2 | Гинтама (фильм второй) [2013, Movie] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интересно, что бы случилось, если бы Белого Демона никогда не существовало? В один прекрасный день мир сошёл с ума, и теперь Эдо ввергнут в настоящий хаос. Гинтоки Саката отныне живёт в альтернативной реальности, будущем, в котором ему места не нашлось. Но что же случилось с Ёродзуей? А с остальными? Но важнее всего: кто за всем этим стоит? Похоже, Гинтоки снова (   Читать дальше...   )Производство: Япония, SunriseЖанр: Комедия, приключения, полнометражныйРежиссер: Ёити ФудзитаЯзык озвучки: Русский, японскийПродолжительность: 01:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D51831BB99385AEF8C331DA9AC6231096D41087
 ```
 
 https://mybot314.ru/tekegram_catalog/

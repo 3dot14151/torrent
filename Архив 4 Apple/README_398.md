@@ -1,3 +1,61 @@
+###  Публикация: 1168334   (410565) от 23.09.2017
+
+Carbon Copy Cloner 5.0.2 (5102) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Carbon Copy Cloner – утилита для резервного копирования данных.
+Carbon Copy Cloner - утилита для клонирования дисков и резервирования данных, пользующаяся заслуженной популярностью у пользователей Mac OS X, благодаря высокой скорости работы и простому интерфейсу.
+
+Новая версия может похвастаться абсолютно новым пользовательским интерфейсом, а также рядом добавленных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.09.2017Разработчик: Bombich Software, IncПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8C997A1D958B62C03504F302C844DA5E0FA58DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168309   (410561) от 23.09.2017
+
+Geekbench 4.1.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Geekbench 4 – бенчмарк для измерения производительности в реальных задачах
+Когда мы покупаем Mac или когда мы хотим быть уверены, что все компоненты нашей системы работают хорошо, мы, как правило, используем программы для выполнения тестов.
+
+Geekbench 4 предлагает обновленный интерфейс и ряд новых бенчмарков, которые созданы специально для измерения быстродействия (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.09.2017Разработчик: Primate Labs Inc.Поддерживаемая ОС: macOS 10.10.5 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:073DD3C41FC6300FE8A36A2FF130DF4FBA6006C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573618   (410549) от 01.09.2022
 
 WidsMob Montage 2.23 [Multi/Ru]
@@ -6,7 +64,7 @@ WidsMob Montage 2.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410549.jpg" />
 </div>
 
 
@@ -33,7 +91,7 @@ Mp3tag 1.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410547.jpg" />
 </div>
 
 
@@ -59,7 +117,7 @@ Aspect Ratio X 2.1.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410546.jpg" />
 </div>
 
 
@@ -85,7 +143,7 @@ WidsMob Panorama 4.26 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410540.jpg" />
 </div>
 
 
@@ -112,7 +170,7 @@ Color UI 2.2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410488.jpg" />
 </div>
 
 
@@ -138,7 +196,7 @@ PhotosRevive 2.0.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410486.jpg" />
 </div>
 
 
@@ -164,7 +222,7 @@ Cisdem Duplicate Finder 6.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410482.jpg" />
 </div>
 
 
@@ -191,7 +249,7 @@ MWeb Pro 4.3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410481.jpg" />
 </div>
 
 
@@ -218,7 +276,7 @@ Jettison 1.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410476.jpg" />
 </div>
 
 
@@ -245,7 +303,7 @@ AudKit Spotify Music Converter for Mac 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410397.jpg" />
 </div>
 
 
@@ -271,7 +329,7 @@ Viwizard Spotify Music Converter for Mac 2.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410327.jpg" />
 </div>
 
 
@@ -297,7 +355,7 @@ Rhinoceros 7 v.7.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410323.jpg" />
 </div>
 
 
@@ -324,7 +382,7 @@ Navicat Premium Essentials  16.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410321.jpg" />
 </div>
 
 
@@ -350,7 +408,7 @@ Typora 1.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410319.jpg" />
 </div>
 
 
@@ -376,7 +434,7 @@ hr - Task timer as simple as it's name 1.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410174.jpg" />
 </div>
 
 
@@ -404,7 +462,7 @@ CrossCode v.1.2.0 (2018) [Multi] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409961.jpg" />
 </div>
 
 
@@ -432,7 +490,7 @@ DMG Canvas 2.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409911.jpg" />
 </div>
 
 
@@ -459,7 +517,7 @@ HoudahSpot 4.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409752.jpg" />
 </div>
 
 
@@ -488,7 +546,7 @@ MacBooster 4.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409618.jpg" />
 </div>
 
 
@@ -517,7 +575,7 @@ Tweetbot for Twitter 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409543.jpg" />
 </div>
 
 
@@ -546,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409536.jpg" />
 </div>
 
 
@@ -572,7 +630,7 @@ BusyCal 2.6.9 & BusyContacts 1.0.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409446.jpg" />
 </div>
 
 
@@ -598,7 +656,7 @@ Amadeus Pro 2.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409435.jpg" />
 </div>
 
 
@@ -624,7 +682,7 @@ PullTube 0.11.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409433.jpg" />
 </div>
 
 
@@ -637,60 +695,6 @@ PullTube предлагает Вам (   Читать дальше...   )Тип
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D991B139167001335028A3A576BD5CB5B2C2AC70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252508   (409432) от 05.10.2018
-
-TaskPaper 3.8.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409432.jpg" />
-</div>
-
-
-###  Подробнее
-
-TaskPaper - простое приложение для создания и ведения списков дел, которое на первый взгляд напоминает обычный редактор текста, но в умелых руках превращается в серьезный инструмент продуктивности.
-
-Сразу после запуска открывается главное окно утилиты, в котором изложены практически все основные моменты работы с ней. Список задач и проектов — на самом деле является (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.10.2018Разработчик: Hog Bay SoftwareПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DA04A7CBCB5BA9245FE779D1383FD7C5DCD311C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252563   (409424) от 05.10.2018
-
-PowerTunes 1.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409424.jpg" />
-</div>
-
-
-###  Подробнее
-
-PowerTunes – программа, позволяющая пользователям создавать несколько медиатек iTunes, организовывать музыку в нескольких папках и обмениваться музыкой и медиатеками между несколькими пользователями на одном компьютере. Помимо простого создания и отслеживания вашей библиотеки, PowerTunes также предлагает множество дополнительных функций, которые помогут организовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.10.2018Разработчик: Fat Cat SoftwareПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A93F4C1288432DAF25608740EA8F1C340BBBD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

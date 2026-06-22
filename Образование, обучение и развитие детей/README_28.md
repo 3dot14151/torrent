@@ -1,3 +1,107 @@
+###  Публикация: 1211956   (776833) от 09.03.2018
+
+Я.И. Перельман | Занимательная физика. Книга вторая (1936) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776833.jpg" />
+</div>
+
+
+###  Подробнее
+
+В предлагаемой книге, как и в первой, составитель стремится не столько сообщить новые знания, сколько оживить и освежить те простейшие сведения по физике, которые у читателя уже имеются. Цель книги - возбудить деятельность научного воображения, приучить мыслить в духе физики и развить привычку к разностороннему применению своих знаний. Поэтому в «Занимательной физике» (   Читать дальше...   )Жанр: Познавательная литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0C6645079AAF110190557A2070B2941B6BBE7F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211939   (776829) от 09.03.2018
+
+Я.И. Перельман | Знаете ли вы физику (1935) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая книга, почти не выходящая из рамок элементарной физики, предназначается для читателя, прошедшего физику в полной средней школе и убежденного поэтому, что начала этой науки ему хорошо известны и переизвестны...Жанр: Познавательная литература, учебное пособиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D95560D394CD07401DE477ED9D6217F14531188D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211930   (776827) от 09.03.2018
+
+Яков Исидорович Перельман | Практические занятия по геометрии (1923) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776827.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге имеется в виду лишь усвоение фактического материала школьной геометрии и не затрагивается вопрос о прохождении теоретического курса, обосновывающего этот материал. Автор полагает, что независимо от тех изменений, какие должно претерпеть преподавание теории, следует искать способов улучшить усвоение фактического материала геометрии, далеко не удовлетворительное (   Читать дальше...   )Жанр: Практическое пособие. ГеометрияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:288A3777362BAD0C94C2EC328B4C50D506A47873
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211954   (776825) от 09.03.2018
+
+Я.И. Перельман | Занимательная физика. Книга вторая (1949) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга написана известным популяризатором и педагогом и содержит, как указано в подзаголовке, «парадоксы, головоломки, задачи, опыты, замысловатые вопросы и рассказы из области физики». Книга по характеру изложения и по объему знаний, предполагаемых у читателя, рассчитана на учащихся средней школы и на лиц, занимающихся самообразованием в таком же объеме.Жанр: Познавательная литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:643A9388FBC9F6A4803B94A89098CC86B7218202
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211946   (776817) от 09.03.2018
 
 Я.И. Перельман | Занимательные задачи и опыты (1959) [DJVU]
@@ -6,7 +110,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776817.jpg" />
 </div>
 
 
@@ -34,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776775.jpg" />
 </div>
 
 
@@ -61,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776459.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776425.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776409.jpg" />
 </div>
 
 
@@ -141,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776081.jpg" />
 </div>
 
 
@@ -167,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776080.jpg" />
 </div>
 
 
@@ -193,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776055.jpg" />
 </div>
 
 
@@ -219,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776053.jpg" />
 </div>
 
 
@@ -245,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776047.jpg" />
 </div>
 
 
@@ -271,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776042.jpg" />
 </div>
 
 
@@ -298,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775725.jpg" />
 </div>
 
 
@@ -324,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775112.jpg" />
 </div>
 
 
@@ -350,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774924.jpg" />
 </div>
 
 
@@ -376,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774774.jpg" />
 </div>
 
 
@@ -402,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774161.jpg" />
 </div>
 
 
@@ -428,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771834.jpg" />
 </div>
 
 
@@ -454,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771623.jpg" />
 </div>
 
 
@@ -481,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771487.jpg" />
 </div>
 
 
@@ -508,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771473.jpg" />
 </div>
 
 
@@ -534,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771461.jpg" />
 </div>
 
 
@@ -560,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771453.jpg" />
 </div>
 
 
@@ -573,112 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:289A657F2610B2DD5E8164F883FC1711D2B0924D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277075   (771441) от 25.01.2019
-
-А.Г. Мордкович, П.В. Семенов | Учебник Алгебра 11 класс  (2014) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник представляет собой первую часть комплекта из двух книг, пред¬назначенных для изучения курса алгебры и начал математического анализа в 11-м классе как на базовом, так и на углублённом уровне (вторая часть — задачник). Отличительные особенности учебника — доступное изложение материала, большое число подробно решённых примеров, приоритет функционально-графической (   Читать дальше...   )Жанр: Школа УчебникиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F65D888B3AF3922DFA5A589A7930B02C355C0B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486794   (771277) от 22.06.2020
-
-И.С.Соминский, Л.И.Головина, И.М.Яглом | О математической индукции (1967) [Раритет] [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771277.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1950 г. в издаваемой Гостехиздатом—Физматгизом — издательством «Наука» серии небольших книжек «Популярные лекции по математике», рассчитанных в первую очередь на учащихся средней школы, появилась брошюра И. С. Соминского «Метод математической индукции». Эта брошюра доступно излагала содержание метода индукции, широко применяющегося в самых разнообразных разделах (   Читать дальше...   )Жанр: Методическое пособиеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:700F88D994F20E1A956081B45285FB6C5A17ED58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016674   (770506) от 14.05.2016
-
-Илья Мазурук | Наша авиация (1954) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770506.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книжке я расскажу вам, ребята, как русские люди учились летать и как они первыми в мире придумали и построили воздушные шары, самолеты, планеры, парашюты. Я расскажу также о смелых, преданных своей великой Родине людях нашей авиации и о наших прекрасных воздушных машинах.Жанр: Детская образовательная литература. Транспорт и авиацияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F02E6197EE3C30BA4987B51977295E5741FC5C8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016400   (770293) от 14.05.2016
-
-Н. Верзилин | Путешествие с домашними растениями (1965) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770293.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Путешествие с домашними растениями» — это книга о широко распространенных в комнатной культуре растениях.
-Автор ее, профессор Николай Михайлович Верзилин, написал и другие книги, хорошо известные'детям и учителям ботаники. Эта книга написана в форме «путешествия» по местам, откуда произошли домашние растения.
-В ней юный читатель найдет много интересных сведений (   Читать дальше...   )Жанр: Детская образовательная литература. Ботаника. Научно-популярная литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:684C717A072FD674809275A3D3AF479D35E37F6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

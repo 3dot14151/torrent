@@ -1,3 +1,29 @@
+###  Публикация: 1141976   (646107) от 12.06.2017
+
+А.А. Ловыгин, Л.В. Теверовский | Современный станок с ЧПУ и CAD/CAМ система. 4-е издание (2015) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы держите в руках уже четвертое, полноцветное издание книги, которое адресовано всем, кто хочет быстро разобраться с основами автоматизированного программирования обработки на станках с ЧПУ: студентам и выпускникам технически колледжей и вузов, инженерам-технологам, инженерам-конструкторам, операторам и наладчикам станков с ЧПУ, руководителям участков механической (   Читать дальше...   )Жанр: Механика, электроника, программированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3DCE756C0893A0DB36E4E6F4560DADAFEA79570
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032077   (645340) от 07.07.2016
 
 С.В. Гапоненко | Акустические системы своими руками (2013) [DJVU]
@@ -6,7 +32,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645340.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644702.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644475.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642718.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640652.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640506.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639870.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639540.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639227.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637749.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635127.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635124.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634836.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634073.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632431.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632273.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632154.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629014.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628204.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628043.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627933.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627644.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625692.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623933.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623858.jpg" />
 </div>
 
 
@@ -657,32 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D18FBD3329556C8754D991139215038528C657C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910083   (623708) от 19.06.2015
-
-Д. Дардари и др. (ред.) | Методы спутникового и наземного позиционирования (2012) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга содержит обзор последних результатов научных исследований в области обработки сигналов для определения местоположения и навигации, в ней впервые объединены спутниковое и наземное позиционирование.В обзоре рассматриваются как «классические» технологии позиционирования с помощью спутниковых систем, так и новые темы: нахождение конечных пределов точности систем (   Читать дальше...   )Жанр: Электроника, навигацияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E339B529D7089671DFC4EEE4C7811234D998A17E
 ```
 
 https://mybot314.ru/tekegram_catalog/

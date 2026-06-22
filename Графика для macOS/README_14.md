@@ -6,7 +6,7 @@ Rebelle 1.5.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436602.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Alien Skin Bokeh 2.0.0.339 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436261.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ SILKYPIX Developer Studio Pro 8E 8.0.24.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435880.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Darkroom: Photo & Video Editor 6.0.7 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433936.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Capture One Pro 10 v10.2.105 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432209.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Intensify CK (Pro) 1.2.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432142.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Raya Pro 2.0 & InstaMask 1.0 fix - panel for Adobe Photoshop [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430039.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ WaterMarker 2.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429329.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Xee 3.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424708.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Artstudio Pro 2.3.25 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422969.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Photo Mechanic 6 v6.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422411.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ onOne Perfect Photo Suite Premium Edition 9.5.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422240.jpg" />
 </div>
 
 
@@ -325,6 +325,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 246963   (421397) от 19.10.2010
+
+Preps 5.3.3 [Eng] (PPC)
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_421397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Preps – это мощный пакет предназначенный для выполнения электронного спуска полос из отдельных страниц перед выводом на плёнку или пластину. Preps используется и как отдельное приложение в PostScript или PDF среде, и как компонента популярных систем допечатной подготовки таких как Apogee, Brisque, Prinergy и Rampage.
+Preps – один из наиболее популярных программных пакетов для изготовления электронного спуска полос. Гибкость настроек Preps позволяет интегрировать его в любую рабочую среду с учётом всех индивидуальных особенностей. Preps позволяет не только изготавливать журнальные раскладки, но и специализированные книжные и газетные раскладки для печати на роллевых машинах. С помощью Preps можно изготавливать сложные этичеточные и упаковочные раскладки, включая раскладки с гнездованием. Preps может комбинировать на одном печатном листе страници, предоставленные в PostScript, PDF, EPS, DCS, TIFF и Delta List. Кроме этого, если формат печатной машины больше, чем формат выводного устройства, то Preps може корректно (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 246425   (421215) от 19.10.2010
 
 Imagenomic Plug-in Suite
@@ -333,7 +360,7 @@ Imagenomic Plug-in Suite
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_421215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_421215.jpg" />
 </div>
 
 
@@ -361,7 +388,7 @@ Tonality CK (Pro) 1.4.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420172.jpg" />
 </div>
 
 
@@ -389,7 +416,7 @@ Perfectly Clear Plugin for Photoshop and Lightroom 2.0.1.23 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419773.jpg" />
 </div>
 
 
@@ -409,6 +436,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 247668   (419351) от 20.10.2010
+
+Capture One Pro 5.2.1 [Eng]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_419351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Capture One Pro один из самых мощных профессиональных конверторов цифровых фотографий в формате RAW с поддержкой широкого модельного ряда современных фотокамер. Программа позволяет в одиночном и пакетном режимах конвертировать "на лету" файлы в полноразмерный TIFF (RGB / CMYK) и JPG форматы, корректировать баланс белого, эффективно обрабатывать "пересвеченные" и "недосвеченные" снимки, тонко настроить резкость снимка и устранять цветные шумы.
+
+Capture One позволяет использовать несколько вариантов корректировки одного и того же изображения. В качестве шаблона используется исходный RAW, а не результат предыдущих корректировок. Рабочая область делится на несколько областей. Их количество равняется числу вариантов обработки исходного цифрового негатива.Настройка баланса белого осуществляется с помощью регуляторов цветовой температуры и оттенка. Кроме того, имеется возможность выбора сюжетных программ, традиционных для многих фотокамер. Вы можете также воспользоваться пипеткой. На фотографии (   Читать дальше...   )2010Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947693   (417801) от 17.10.2015
 
 Focus CK (Pro) 1.1.0 [En]
@@ -417,7 +472,7 @@ Focus CK (Pro) 1.1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417801.jpg" />
 </div>
 
 
@@ -443,7 +498,7 @@ Brightly Pro 2.1.7 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417261.jpg" />
 </div>
 
 
@@ -469,7 +524,7 @@ Metadata Converter Pro for Mac 1.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417259.jpg" />
 </div>
 
 
@@ -495,7 +550,7 @@ Imagenomic Portraiture 3 for Adobe Lightroom 3.5.2.3520 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415907.jpg" />
 </div>
 
 
@@ -521,7 +576,7 @@ Imagenomic Portraiture for Photoshop СС2015.5-СС2019 3.5.2 build 3520 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415897.jpg" />
 </div>
 
 
@@ -547,7 +602,7 @@ GoodTimes 1.3.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414467.jpg" />
 </div>
 
 
@@ -575,7 +630,7 @@ Apple Aperture 3.6 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413947.jpg" />
 </div>
 
 
@@ -601,7 +656,7 @@ Canvas Draw 5 v5.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413194.jpg" />
 </div>
 
 
@@ -629,7 +684,7 @@ FX Photo Studio CK (Pro) 3.1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413162.jpg" />
 </div>
 
 
@@ -643,62 +698,6 @@ MacPhun (создатели FX Photo Studio) учли опыт разработ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE71A4DD3FAC9046F550C649231C2B43E130567C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066563   (412248) от 26.10.2016
-
-Photo Batcher 1.2.4 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Batcher - программа для пакетной обработки цифровых фотографий и изображений. Позволяет конвертировать, вращать изображения, изменять их размер, корректировать цвета, накладывать спецэффекты и водяные знаки.
-
-Поддерживает форматы JPEG, JPEG2000, PNG, TIFF, TGA, GIF, BMP, PICT, PSD, PDF и др.Тип издания: OS X SoftwareРелиз состоялся: 2015Разработчик: osxbytesПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский, голландский, французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:076792FE33FA138A025EB177577B5B34B9C35C26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066352   (409069) от 27.10.2016
-
-FilmConvert Pro All Packs 2016 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все камеры в одном паке
-Дополнительный пакеты профилей камер для плагинов FilmConvert и для Стандартного приложения.
-Эти дополнительные пакеты данных предназначены для повышения точности цветопередачи для камеры.Тип издания: macOS SoftwareРелиз состоялся: 2016Разработчик: Film ConvertПоддерживаемая ОС: 10.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90D5CC7952DB6476F5489C5BD789B631384CE8F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

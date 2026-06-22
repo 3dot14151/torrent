@@ -1,3 +1,58 @@
+###  Публикация: 1258004   (341347) от 28.10.2018
+
+Qbserve 1.79 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отслеживание рабочего времени с комфортом.
+Qbserve в автоматическом режиме отслеживает время потраченное на работу и помогает повысить производительность. Qbserve обнаруживает деятельность автоматически с постоянно расширяющейся базой данных (более 5500 сайтов , приложений и игр ) .
+
+Qbserve дает мгновенные ответы на вопросы о том, как вы проводите свое время за (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2018Разработчик: QotoQotПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:436348EEEB085738DD07096CC827D9190E0A1A19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257925   (341344) от 28.10.2018
+
+WebScraper 4.7.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341344.jpg" />
+</div>
+
+
+###  Подробнее
+
+WebScraper использует механизм Integrity v8 для быстрого сканирования веб-сайта и может выводить извлеченные данные (в настоящее время) в виде CSV или JSON. Плюс загружайте изображения в папку.Тип издания: macOS SoftwareРелиз состоялся: 26.10.2018Разработчик: PeacockMediaПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4600969E4AF24489887DB86CF268F31C00C900C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330268   (341311) от 10.10.2019
 
 Fantastical 2 v2.5.11 [Multi]
@@ -6,7 +61,7 @@ Fantastical 2 v2.5.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341311.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ Devonthink Pro Office 3 v3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341307.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ Movist Pro 2.2.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341305.jpg" />
 </div>
 
 
@@ -89,7 +144,7 @@ Adguard 2.1.4.619 nightly (CL - 1.5.60)[Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341291.jpg" />
 </div>
 
 
@@ -115,7 +170,7 @@ Teorex Inpaint 8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341276.jpg" />
 </div>
 
 
@@ -142,7 +197,7 @@ Photo Editor 6 Movavi v6.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341270.jpg" />
 </div>
 
 
@@ -170,7 +225,7 @@ Cisdem Video Converter 3.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341214.jpg" />
 </div>
 
 
@@ -197,7 +252,7 @@ MacX MediaTrans 6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341211.jpg" />
 </div>
 
 
@@ -225,7 +280,7 @@ Coda 2 v2.7.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341141.jpg" />
 </div>
 
 
@@ -252,7 +307,7 @@ MacFamilyTree 9 v9.0.9 MAS + iCloud [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341121.jpg" />
 </div>
 
 
@@ -280,7 +335,7 @@ Logic Pro X 10.4.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340996.jpg" />
 </div>
 
 
@@ -306,7 +361,7 @@ Mindjet MindManager 12 v12.1.190 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340841.jpg" />
 </div>
 
 
@@ -332,7 +387,7 @@ TextMate 1.5.10 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_340772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_340772.jpg" />
 </div>
 
 
@@ -363,7 +418,7 @@ Kiwi for Gmail 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340553.jpg" />
 </div>
 
 
@@ -390,7 +445,7 @@ Allegorithmic Substance Painter 2018.2.3.2496 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340513.jpg" />
 </div>
 
 
@@ -416,7 +471,7 @@ SSH Shell 16.09 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340443.jpg" />
 </div>
 
 
@@ -445,7 +500,7 @@ iMazing 2.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340361.jpg" />
 </div>
 
 
@@ -472,7 +527,7 @@ TextLab 1.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340279.jpg" />
 </div>
 
 
@@ -498,7 +553,7 @@ PullTube 1.5.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340241.jpg" />
 </div>
 
 
@@ -524,7 +579,7 @@ Gestimer 1.1.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340137.jpg" />
 </div>
 
 
@@ -553,7 +608,7 @@ Xliff Editor 2.8.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340132.jpg" />
 </div>
 
 
@@ -581,7 +636,7 @@ Middle 1.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340131.jpg" />
 </div>
 
 
@@ -607,7 +662,7 @@ Posterino 3 v3.8.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340129.jpg" />
 </div>
 
 
@@ -635,7 +690,7 @@ VideoDuke 1.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340123.jpg" />
 </div>
 
 
@@ -648,61 +703,6 @@ VideoDuke 1.13 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA5E5C97ED6E01B4346A8C57D7DD69A6E5D46CDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419538   (340121) от 28.10.2020
-
-MWeb: Markdown writing, note taking, static blog generator 3.4.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340121.jpg" />
-</div>
-
-
-###  Подробнее
-
-MWeb: Markdown редактор, ведение заметок и генератор статических блогов.
-MWeb оддерживает расширенный синтаксис Github: TOC, Table, Fenced code block, LaTex,Task lists, Footnote и др. MWeb имеет красиво оформленную темную тему и предлагает интересные функции, как прокрутка, папки Drag & Drop, вставку изображения и др.. MWeb поддерживает LaTex Просмотр в on-редакторе! (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2020Разработчик: CoderForArt IncПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Упрощенный китайский, Традиционный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC61163362456B7A89EF35512066185408D8789
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419446   (340120) от 28.10.2020
-
-URL Manager Pro 5.4.4 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340120.jpg" />
-</div>
-
-
-###  Подробнее
-
-URL Manager Pro  - менеджер закладок для браузеров
-URL Manager Pro X - менеджер закладок для Safari, OmniWeb, Mozilla, Netscape, iCab и Camino браузеров, с мгновенным доступом как из меню браузера, так и из любого приложении через системное меню.
-Приложение полностью контролирует и управляет закладками: копирование между браузерами, редактирование, удаление, поиск (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.10.2020Разработчик: Alco BlomПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Голландский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18C1BE2A5D295B3970C5F7508411D6E5F60AC363
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Andy Kirk & Mary Lou Williams - Mary's Idea (1936 - 1941) 1993, GRP [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035228.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Grachan Moncur III Octet - Exploration (2004) Capri Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035079.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Gary Smulyan - Gary Smulyan with Strings (1996) [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034968.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Dave Brubeck - Lullabies (2010) 2020, Verve Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034960.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Smooth Lounge Piano - Peaceful Winter Dreams (2021) [FLAC|Lossless|WEB-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034936.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Richard Elliot - Authentic Life (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034924.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Harry James - 1939 - 1940 (1997) Classics [FLAC|Lossless|image + .cue] <Swing, B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034704.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Weather Report - Tale Spinnin' (1994) [FLAC|Lossless|tracks + .cue] <Fusion, Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034702.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Bob Wilber - Bob Wilber and The Scott Hamilton Quartet (1977) 1993, Chiaroscuro 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034688.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Bar-Kays - The Best Of Bar-Kays (1993) [FLAC|Lossless|tracks + .cue] <Funk, Rhyt
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034622.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Bertha Hope - Elmo's Fire (1991) SteepleChase [FLAC|Lossless|tracks + .cue] <Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034572.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Dinah Washington - Drinking Again (1962) 1989, Roulette [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034571.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ L.A. 4 - Executive Suite (1982) 1995, Concord Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034569.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Nancy Wilson - Yesterday's Love Songs & Today's Blues (1963) 1991, Capitol Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034468.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Buddy De Franco (DeFranco) - Pretty Moods (1954) 2013, Universal [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034245.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Buddy De Franco (DeFranco) - Bravura: Complete 1959 Septette Sessions (2011) 2CD
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034242.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Giorgi Mikadze - Georgian Microjamz (2020) [FLAC|Lossless|tracks + .cue] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034233.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Buddy De Franco (DeFranco) - Blues Bag (1964) 2000, Koch Jazz [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034185.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Sun Ra - The Complete Remastered Recordings On Black Saint & Soul Note (1986 - 1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034176.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Dinah Washington - Mad About the Boy: 25 Classics (2000) Delta Entertainment [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034175.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Vered Dekel - Make Way For Love (2004) [FLAC|Lossless|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034009.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Dexter Gordon - 1943 - 1947 (1998) Classics [FLAC|Lossless|image + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033959.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Azymuth - Aurora (2011) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Blues, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033933.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Dinah Washington - Sings The Blues (2006) Going For A Song [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033920.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Frank Butler - Wheelin' And Dealin' (1978) 1987, Break Time [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033799.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Eddie Condon - 1938 - 1940 (1994) Classics [FLAC|Lossless|image + .cue] <Dixiela
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033796.jpg" />
 </div>
 
 

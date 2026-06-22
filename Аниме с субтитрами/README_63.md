@@ -1,3 +1,32 @@
+###  Публикация: 1551059   (579949) от 28.05.2022
+
+Slow Loop | Медленная петля [2022, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нелюдимая и замкнувшаяся в себе после смерти отца Хиёри и жизнерадостная и общительная Кохару встретились у моря. Казалось, ничто не должно объединять девушек, однако выясняется, что они скоро станут сводными сёстрами.
+И это станет началом заветных воспоминаний, которые они обе будут переживать, укрепляя свои сестринские отношения и ловя рыбу.
+
+Очень милый сёдзё-сериал, (   Читать дальше...   )Производство: Студия ConnectЖанр: повседневностьРежиссер: Акитая НориакиПеревод: 1-9 Wakanim (оформление, лирика  - мои), 10-12 пришлось самостоятельно делать с ансаба.Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBC5583D8F9F362D90D783C5900C2B833500FF95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 360712   (579728) от 08.07.2011
 
 Kampfer: Fur die Liebe | Кемпфер (спэшл) [2011, OVA, 2 эп.] BDRip 1080p raw
@@ -6,7 +35,7 @@ Kampfer: Fur die Liebe | Кемпфер (спэшл) [2011, OVA, 2 эп.] BDRip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_579728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_579728.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ Evangelion Shin Gekijouban: Ha / Evangelion 2.22: You Can (Not) Advance / Ева
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579501.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ Evangelion Shin Gekijouban: Jo / Evangelion 1.11: You are (not) alone / Еван
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579428.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ Uchi no Maid ga Uzasugiru! | UzaMaid! | Наша служанка слишком
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578116.jpg" />
 </div>
 
 
@@ -110,7 +139,7 @@ Golden Time / Золотая Пора [2013, TV, 24] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577943.jpg" />
 </div>
 
 
@@ -136,7 +165,7 @@ Alice or Alice | Алиса или Алиса: Брат-сестролюб и е
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577790.jpg" />
 </div>
 
 
@@ -162,7 +191,7 @@ Boku wa Tomodachi ga Sukunai Next | Haganai Next | У меня мало друз
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577781.jpg" />
 </div>
 
 
@@ -188,7 +217,7 @@ Ginga Eiyuu Densetsu: Die Neue These - Kaikou | Легенда о героях �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577635.jpg" />
 </div>
 
 
@@ -216,7 +245,7 @@ Tada-kun wa Koi o Shinai | Tada Never Falls in Love | Тада-кун не вл�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577516.jpg" />
 </div>
 
 
@@ -242,7 +271,7 @@ Mahou Shoujo Ore | Magical Girl Ore | Я — девочка-волшебница
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577515.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ DMC | Detroit Metal City | Detroit Metal City: The Animated Series | Детро�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576895.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ Gekijouban Ao no Exorcist / Ao no Exorcist The Movie / Синий Экзорци
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576794.jpg" />
 </div>
 
 
@@ -320,7 +349,7 @@ Rinne no Lagrange: Flower declaration of your heart S2 / Сердца твоег
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576567.jpg" />
 </div>
 
 
@@ -346,7 +375,7 @@ Gin no Saji (2014) / Silver Spoon (2014) / Серебряная ложка [ТВ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576338.jpg" />
 </div>
 
 
@@ -372,7 +401,7 @@ New Game! OVA | Новая игра! OVA [2017, OVA, 1] DVDRip 576p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575920.jpg" />
 </div>
 
 
@@ -398,7 +427,7 @@ Hantsu x Trash / Охотник и корзина / Трэш и Угар [2015, 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575838.jpg" />
 </div>
 
 
@@ -426,7 +455,7 @@ Shin Ikkitousen | Новые школьные войны: Истинная си�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575457.jpg" />
 </div>
 
 
@@ -452,7 +481,7 @@ Butlers: Chitose Momotose Monogatari | Butlers x Battlers | Дворецкие: 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574409.jpg" />
 </div>
 
 
@@ -478,7 +507,7 @@ Otaku ni Koi wa Muzukashii | Wotakoi: Love is Hard for Otaku | Любовь - п
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_574405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_574405.jpg" />
 </div>
 
 
@@ -504,7 +533,7 @@ Shirokuma Cafe | Polar Bear Cafe | Кафе «У Белого Медведя» [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574323.jpg" />
 </div>
 
 
@@ -530,7 +559,7 @@ Fumikiri Jikan | Crossing Time | Ожидание на железнодорож�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574089.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Kuroko no Basuke / Kuroko's Basketball / Баскетбол Куроко [ТВ-1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573990.jpg" />
 </div>
 
 
@@ -582,7 +611,7 @@ Dorei-ku The Animation | Doreiku the Animation | Я и 23 раба [2018, TV, 12
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573964.jpg" />
 </div>
 
 
@@ -608,7 +637,7 @@ Bubble | Пузырь [2022, ONA] WebRip 1080p raw+eng
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573815.jpg" />
 </div>
 
 
@@ -634,7 +663,7 @@ Kokkoku | Миг за мигом [2018, TV, 12 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572727.jpg" />
 </div>
 
 
@@ -645,32 +674,6 @@ Kokkoku | Миг за мигом [2018, TV, 12 эп.] BDrip 1080p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA80B4DB76537CD846FFBBF03EE030467DC11085
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234116   (572620) от 04.07.2018
-
-Kujira no Kora wa Sajou ni Utau | Children of the Whales | В песках поющие китята [2017, TV, 12 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в мире, покрытом песком. Четырнадцатилетний юноша Чакуро живёт на гигантском плавучем острове под названием Грязевой Кит, который дрейфует по безбрежному песчаному морю. Чакуро и его друзья время от времени находят другие острова, но ни один из них не обитаем. Однажды Чакуро отправляется на остров, не уступающий размерами Грязевому Киту, (   Читать дальше...   )Производство: студия J.C. StaffЖанр: приключения, фэнтезиРежиссер: Исигуро КёхэйПеревод: цыпа & UnnmdЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E53A44DAB67CAE06F92FCBDC537B5C0488FE9A91
 ```
 
 https://mybot314.ru/tekegram_catalog/

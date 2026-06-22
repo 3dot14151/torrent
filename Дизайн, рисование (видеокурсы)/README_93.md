@@ -6,7 +6,7 @@ Granich.Design, Саша Буяк, Вадим Гранич | Графсисте�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123847.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Skillshare | Affinity Photo Master Class iPad Edition (2020) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123799.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Bazanova Art, Ольга Базанова | Практика художника 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123707.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123689.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Udemy | Adobe After Effects – From Zero to Beyond (2022) WEB-DL [EN, RU / EN S
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123603.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123566.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Enterclass, Татьяна Каштальян | Садовый букет (2023)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123522.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123214.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123205.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123177.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ tishbyme, Кристина Дмитриева | Mастер класс по ди
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122868.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122827.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Liveclasses, Антон Мартынов | Adobe Firefly в Photoshop: быст�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122670.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Udemy, Jeremy Hazel, Lindsay Marsh | Learn the Entire Affinity Suite: Photo, Des
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122597.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122582.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ zbrush3d.com, Александр Галевский | Zbrush Проекты с �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122129.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ CG Boost, Louis du Mont | Robotic Planet (2023) PCRec [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122111.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ CG Boost, Zach Reinhardt | Sphynx Cat Sculpting in Blender 3D (2018) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122083.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Udemy, Canopy Games, Paul Caggegi | Illustrating with the Grease Pencil in Blend
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122082.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Color school, Анна Давидян | Фотография в интерьер
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122059.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ lectoroom, Елена Базанова | Подсолнухи акварелью
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121881.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Stepik, Дмитрий Фокеев | Веб дизайн в Figma с нуля �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121657.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Artilike, Жанна Губина | Акварельный видеокурс - 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121565.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Enterclass, Анна Хопта | Белое на белом (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121534.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Udemy, Phil Ebiner | Affinity Photo Complete Guide to Photo Editing in Affinity 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120694.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Bazanova Art, Ольга Базанова | Практика художника 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120551.jpg" />
 </div>
 
 

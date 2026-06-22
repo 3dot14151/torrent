@@ -1,3 +1,107 @@
+###  Публикация: 1063397   (434207) от 16.10.2016
+
+Училка (2015) WEB-DL [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Внезапную тишину школьных коридоров оглашает выстрел. Доведенная до крайности учительница истории берет в заложники целый класс. Но вскоре ситуация в корне меняется и заложницей становится она сама…Производство: Россия, Russian Film Group, Startfilm GroupЖанр: Драма, Боевик, КриминалРежиссер: Алексей ПетрухинАктеры: Ирина Купченко, Анна Чурина, Роза Хайруллина, Андрей Мерзликин, Алиса Гребенщикова, Ольга Егорова, Анастасия Пономарева, Дарья Дубникова, Акмал Аблаев, Алексей ЛукинПеревод: Не требуется (русский) iTunesПродолжительность: 02:06:55Реклама: Релиз без рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EEA74AA09FB843930AB52F8A8694E8F10FD2A80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063330   (434202) от 16.10.2016
+
+Все о мужчинах (2016) BDRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история о том, какими разными могут быть мужчины. О том, что мужчины — это, в первую очередь, сложные решения и настоящие поступки. О том, в чем мужчины могут быть сильны, а в чем комичны. О том, за что их можно и нужно любить…Производство: РоссияЖанр: КомедияРежиссер: Михаил Жерневский, Леонид МарголинАктеры: Дмитрий Нагиев, Анна Хилькевич, Игорь Верник, Сергей Белоголовцев, Грант Тохатян, Владимир Епифанцев, Екатерина Скулкина, Елена Борщева, Виктор Степанян, Ян Цапник.Перевод: Не требуется (Русский, Лицензия BD RUS)Субтитры: ОтсутствуютПродолжительность: 01:18:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D9A8848E4888F36D228A2321A1BBEA47B21FFDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410622   (433474) от 22.09.2020
+
+Вор (1997) WEB-DLRip [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие картины разворачивается в двух эпохах - в послевоенное и в наше время. Главный герой фильма - сначала ребенок, потом - взрослый человек, военный. В 1952 году шестилетний Саня и его мать Катерина едут в поезде. Их случайный попутчик, офицер Анатолий очаровывает и Катю и Саню. Катя и Анатолий решают жить вместе. Сильный и добродушный Толян почти заменяет безотцовщине (   Читать дальше...   )Производство: компания "НТВ-Профит", компания Roissy Films, компания Productions Le PontЖанр: ДрамаРежиссер: Павел ЧухрайАктеры: Владимир Машков, Екатерина Редникова, Миша Филипчук, Дима Чигарев, Юрий Беляев, Амалия Мордвинова, Лидия Савченко, Анатолий Кощеев, Аня Штукатурова, Эрвант Арзуманян, Наталья Позднякова, Ольга Пашкова, Людмила Селянская, Галина Петрова, Виктор БунаковСубтитры: отсутствуютПродолжительность: 01:33:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:842BCA23A9DE535F5674783254697A1C4127AB9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249563   (432983) от 24.09.2018
+
+Очень редкая работа (2018) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Охотник на людей со сверхспособностями, придя в себя в незнакомом месте, пытается вспомнить, что произошло с ним на последнем задании.Производство: РоссияЖанр: Короткометражный, фантастика, триллерРежиссер: Олег ВоробьевАктеры: Артём Маслихов, Юлия Калашникова, Вилен БабичевСубтитры: ОтсутствуютПродолжительность: 00:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CDAF5A2950F15A7C34005A0CC8726940635BCDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945331   (432958) от 10.10.2015
 
 Развод по собственному желанию (2015) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432958.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432483.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431720.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430770.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430435.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430020.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428641.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428243.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427809.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426877.jpg" />
 </div>
 
 
@@ -271,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426672.jpg" />
 </div>
 
 
@@ -297,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426132.jpg" />
 </div>
 
 
@@ -323,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425407.jpg" />
 </div>
 
 
@@ -349,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425382.jpg" />
 </div>
 
 
@@ -376,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425295.jpg" />
 </div>
 
 
@@ -402,7 +506,7 @@ Last Quest (2019) WEBRip [H.264/1080p-LQ]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425287.jpg" />
 </div>
 
 
@@ -428,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425169.jpg" />
 </div>
 
 
@@ -454,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424793.jpg" />
 </div>
 
 
@@ -480,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424775.jpg" />
 </div>
 
 
@@ -506,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424632.jpg" />
 </div>
 
 
@@ -532,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424482.jpg" />
 </div>
 
 
@@ -558,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424415.jpg" />
 </div>
 
 
@@ -569,111 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0648D061F83669296C543EC4A74BB1124D3654F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250102   (424319) от 28.09.2018
-
-Упражнения в прекрасном (2011) WEBRip [H.264/720p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на одноимённом спектакле, который был поставлен в театре им. Моссовета.
-Пережив безумные юношеские надежды, люди обычно соглашаются на роль участника массовки. Но некоторые всю жизнь чувствуют в себе силушку и предназначение свыше. И что-то делают, делают, делают. Создают. Или крадут-убивают, но уж в невероятных масштабах. В этой истории герои не крадут (   Читать дальше...   )Производство: РоссияЖанр: КомедияРежиссер: Виктор ШамировАктеры: Виктор Шамиров, Гоша Куценко, Константин Юшкевич, Ксения Радченко, Павел Савинков, Ирина Апексимова, Дмитрий Осинцев, Дарья Плавинская, Александр Евдокимов, Ирина КирилловаСубтитры: ОтсутствуютПродолжительность: 01:33:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59588C09A33DB9C1588D8CA41337B5460345FA5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250485   (423888) от 28.09.2018
-
-Дневной дозор (2005) BDRip [H.265/1080p-LQ] [10-bit]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ночью в подъезде своего дома убита молодая девушка. На теле не обнаружено никаких следов насилия... Зыбкое равновесие между Светлыми и Тёмными было нарушено. И чаша весов склоняется в сторону Тёмных. Но убитая - тёмная иная, а значит, под подозрением Светлые.Производство: Россия \ Первый канал, Кинокомпания Таббак, Базелевс-ПродакшнЖанр: Фантастика, Боевик, ТриллерРежиссер: Тимур БекмамбетовАктеры: Константин Хабенский, Мария Порошина, Владимир Меньшов, Галина Тюнина, Виктор Вержбицкий, Жанна Фриске, Дмитрий Мартынов, Валерий Золотухин, Алексей Чадов, Нуржуман ИхтымбаевСубтитры: Русские (форсированные)Продолжительность: 02:25:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF13829DE58A4F2BF5991D78843C651DD2949571
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 709063   (423452) от 11.10.2013
-
-Шлюха (2012) WEB-DLRip [H.264/720p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Яркая, и беззаботная жизнь 4-х выпускников престижного ВУЗа заканчивается после безумной ночи и встречи со «шлюхой». Четверо друзей после вручения диплома и громкой праздничной феерии неожиданно для себя оказываются вовлеченными в криминальный трэш: утро в чужой квартире и мертвая проститутка на полу. Кто убил ее? Зачем? Впавший в амнезию четвертый или бьющийся в (   Читать дальше...   )Жанр: Короткометражный, КриминалРежиссер: Дмитрий СуворовАктеры: Александр Пархоменко, Данила Якушев, Кирилл Каганович, Дмитрий Лещук, Марина Голуб, Мила НовиковаПродолжительность: 00:23:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C44B9B179A99AF69D89A1F69A1321FBABAB13BBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572448   (423383) от 26.08.2022
-
-Зимние грёзы (2022) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сергей Степанов учится в одном из университетов города. Он влюблён в свою однокурсницу, Анастасию Авдееву, с которой дружит очень давно. Неожиданно, он узнаёт, что у неё серьёзные отношения с некием Андреем. На следующий день, после занятий, он принимает решение сознаться в своих чувствах...Производство: Россия / Молодёжное творческое кинообъединение "ЮНОСТЬ"Жанр: драмаРежиссер: Сергей СаликовАктеры: Сергей Саликов, Дарина Лохмакова, Вероника Ермакова, Екатерина Макарова.Субтитры: отсутствуютПродолжительность: 00:57:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61F34E6764975DC6B4F8EA5E27CB6CCFBF4E56FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 943324   (444924) от 05.10.2015
+
+Clutch - Psychic Warfare (2015) [MP3|320 кб/с]<Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Affidavit
+02. X-Ray Visions
+03. Firebirds
+04. A Quick Death in Texas(   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5EB7101F3018D8842B6A5F8915D05EDD839996B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164156   (444120) от 08.09.2017
+
+Mollies Revenge - Every Dirty Word (1997) LP Version [MP3|192 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weed		3:22
+02. Cruel Angel		3:40
+03. Humble		3:58
+04. Threshold		4:32(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:909BAC82A7B94683C37E99728553E9D1EB5E0DD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570179   (438052) от 19.08.2022
+
+Reign Of Glory - All Will Bow (2022) [MP3|320 Kbps] <Hard & Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever And Ever 03:51
+02. Welcome To Reality 03:52
+03. Rise Of Aslan 05:13
+04. Samson's Kryptonite 04:03(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B02DAA3535C29DE78D772FD954BBA87D80724A4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945355   (436016) от 09.10.2015
 
 Old Man's Will - Hard Times - Troubled Man (2015) [MP3|320 кб/с]<Hard Rock>
@@ -6,7 +93,7 @@ Old Man's Will - Hard Times - Troubled Man (2015) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436016.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ H.E.A.T - Force Majeure (2022) Japanese Edition [MP3|320 kbps] <Hard Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433950.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Electric Hoodoo - Electric Hoodoo (2015) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433924.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Bolder Damn - Mourning (1971) Reissue, 2008, Erebus Records [MP3|320 Kbps] <Hard
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432752.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Kee Marcello - Scaling Up (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430236.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Atlas - Parallel Love (2020) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427478.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Out Of The Earth - Out Of The Earth (2015) [MP3|320 кб/с]<Stoner Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427364.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Rose Tattoo - Angry Metal / 20 Great Tracks (1993) Compilation, Repertoire Recor
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426798.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Kiss - Monster (2012) [MP3|320 кб/с]<Hard Rock, Glam Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424021.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ The Wildhearts ‎– 30 Year Itch - Bonus Tracks (2020) [MP3|320 Kbps] <Hard Ro
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423075.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ iLL - Gotten Gains (2012) [MP3|320 кб/с]<Stoner Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422674.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Tyketto - Reach (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421631.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Coney Hatch - Coney Hatch (1982) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420557.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Burner - Baptized In Gasoline (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418043.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ The Fae - 2 Albums (2020-2022) [MP3|320 Kbps] <Stoner, Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417119.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Eddie Lee - Breakout (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416026.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Fumed - Fumed (2017) [MP3|320 Kbps] <Hard Rock, Stoner>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415084.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Stone Nomads - Fields of Doom (2022) [MP3|320 Kbps] <Stoner, Doom, Sludge>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414913.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Nonoise - Beetah Duh'Dhul' (2022) [MP3|320 Kbps] <Psych Doom, Sludge, Stoner, Sp
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414910.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Freight Train Rabbit Killer - Hammer Of Judgment (2022) [MP3|320 Kbps] <Psych Do
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414908.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ The Volume - The Volume (2022) [MP3|320 Kbps] <Heavy Prog, Psych, Stoner>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414783.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ BlackRain - Dying Breed (2019) [MP3|320 Kbps] <Hard Rock, Glam Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414490.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Corey Taylor - CMFT (2020) [MP3|320 Kbps] <Hard Rock, Alternative>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413731.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Corey Taylor - CMFT (2020) [MP3|320 Kbps] <Hard Rock, Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C4AC8D39BCDF3473BCFEEC185628C1B5D1F8EB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412888   (413466) от 01.10.2020
-
-Bon Jovi - 2020 (2020) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Limitless (03:42)
- 02. Do What You Can (04:20)
- 03. American Reckoning (04:42)
- 04. Beautiful Drug (03:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:184373691902F30B2DC5BB98CADC1B08E08901ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167738   (412844) от 22.09.2017
-
-Redhouse - One More Squeeze (1976) [MP3|224 Kbps] <Hard Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Got Love
-02. I Like Dancing
-03. Love Your Lady
-04. Little Paul(   Читать дальше...   )Жанр: Hard Rock, Progressive RockПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85662DBABB12B343DDD4C910432D9C7B2813525C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573407   (412670) от 31.08.2022
-
-KrazarK - KrazarK (2018) EP [MP3|320 Kbps] <Heavy Rock, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Dark City [00:06:43]
-02 Keep Your Fire Alive [00:04:32]
-03 No Pride [00:04:23]
-04 Southern Metal Fest [00:05:12](   Читать дальше...   )Жанр: Heavy Rock, StonerПродолжительность: 00:26:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D29BCD28D84526A555BDD8FE32D3F62EDF4862
 ```
 
 https://mybot314.ru/tekegram_catalog/

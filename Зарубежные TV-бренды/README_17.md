@@ -1,3 +1,81 @@
+###  Публикация: 993254   (865954) от 21.03.2016
+
+BBC. Наша Первая мировая / Our World War (2014) HDTVRip [H.264/720p-LQ] (серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современные методы войны безжалостны, сто лет назад они были невообразимыми. Только побывавшие там, знают, на что это было похоже. Во время Первой мировой войны, британские войска сталкиваются с ужасами битвы при Монсе в 1914 году, внутренними противоречиями в 1916 году и новой войной - танковой в 1918 году. Фильм основан на рассказах очевидцев.Телекомпания: Великобритания, BBCЖанр: Документальный, война, история, постановочныйПеревод: Русский дубляжПродолжительность: 3 х ~ 00:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14113ACB34AD19AAD0772948AAADBC29E2FF2283
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107741   (865925) от 23.02.2017
+
+Discovery. Города живые и мёртвые. Губаха HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865925.jpg" />
+</div>
+
+
+###  Подробнее
+
+В каждой серии мы показываем один мертвый город и один живой, всегда объединенные некой ниточкой - сюжетной линией. Это города, которые имеют или имели либо общую экономическую составляющую, либо общее единое происхождение как моногорода вокруг однотипных предприятий, либо исторически как-то связанные.Почему город с многовековой историей, где добывали уголь с 1721 года, стал призраком?Телекомпания: Discovery ChannelЖанр: Документальный, ТелепередачаПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8BB677D0A4AF6D61DAB5237A6B762EBE1AB4D36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107736   (865918) от 23.02.2017
+
+Discovery. Города живые и мёртвые. Аксай HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865918.jpg" />
+</div>
+
+
+###  Подробнее
+
+В каждой серии мы показываем один мертвый город и один живой, всегда объединенные некой ниточкой - сюжетной линией. Это города, которые имеют или имели либо общую экономическую составляющую, либо общее единое происхождение как моногорода вокруг однотипных предприятий, либо исторически как-то связанные.Первое письменное упоминание о небольшом городе Аксае, расположенном всего в 10 км от Ростова-на-Дону, относится к 1570. Сегодня здесь кипит жизнь, и все было бы совершенно обычно, если бы не одно «но»… Под Аксаем есть ещё один город – Аксайские катакомбы. Здесь под ногами десятки километров пещер, штолен, коридоров, бункеров как природного, так и техногенного происхождения. (   Читать дальше...   )Телекомпания: Discovery ChannelЖанр: Документальный, ТелепередачаПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:707C25F2077869B15E5F905EE089CEB2E0EC64E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 300977   (865572) от 02.03.2011
 
 Animal Planet:Дикие и опасные. Нападение леопарда / Animal Planet:Untamed and Uncut. Leopard Attaск (2008) IPTVRip
@@ -6,7 +84,7 @@ Animal Planet:Дикие и опасные. Нападение леопарда 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865572.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ NG: Суперспособности животных / Animal Superpowers (2012
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864413.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Discovery. Города живые и мёртвые. Совза - Вытегр�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864261.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ BBC. Наша Первая мировая / Our World War (2014) HDTVRip (1-3 с
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864193.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ History Channel. Мифы и правда о Карле Великом / Karl de
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864186.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864180.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863435.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Discovery. Гонка на вымирание / Racing Extinction (2015) BDRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862538.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862148.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Viasat History: Тени средневековья / Medieval Dead (2013-2016) 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860319.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ History Channel. Ланкастер на войне / The Lancaster at War (2009
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858978.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858771.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858653.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ Discovery: Самогонщики (серии 1-6 + спецвыпуск) / Disc
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858526.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ Discovery: Будущее с Джеймсом Вудсом. Как стать с
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857370.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ BBC: История Единицы с Терри Джонсом / The Story of 1
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856325.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ NG: Дикая Флорида  / Wild Florida (2013) BDRip [H.264/720p] (сер�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855970.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ Discovery: Смертельный улов / Deadliest Catch (2005) TVRip (Се�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854542.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ NG: Доисторические хищники / Prehistoric Predators  (2009) 
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854308.jpg" />
 </div>
 
 
@@ -504,7 +582,7 @@ NG: Дикая природа России / Wild Russia (2009) BDRip [H.264/720
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854303.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ BBC: Серенгети / Serengeti II (2021) WEBRip [H.264/720p] (сезон 2,
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854073.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854035.jpg" />
 </div>
 
 
@@ -582,7 +660,7 @@ BBC. Биологические часы: как они работают? / Body
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853261.jpg" />
 </div>
 
 
@@ -593,84 +671,6 @@ BBC. Биологические часы: как они работают? / Body
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A18C60D25A46A1EA14E2A3E51BBD02E203BF614
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 110852   (852128) от 24.03.2014
-
-BBC: Что такое свет / Light Fantastic (2004) [2 х DVD5]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свет - основа жизни на нашей планете. Отвечая на вопросы "Почему небо голубое?" и "Почему трава зеленая?" можно давать однозначный ответ - "Благодаря свету". Эта неотъемлемая часть нашей жизни, но мы все еще стараемся понять феномен света. Многие известные ученые, начиная с Аристотеля, Галилео Галилея, Ньютона и Леонардо да Винчи, и (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровыйПродолжительность: 3:20:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001688   (851925) от 29.03.2016
-
-BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 7]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь с хищниками (Заповедник) / Living with PredatorsВ этом выдающемся документальном сериале в деталях рассмотрены отношения между хищниками и их добычей. Вместо того, чтобы сосредотачиваться на кровавых подробностях охоты, в сериале с беспрецедентной тщательностью исследуются методы, с помощью которых хищники добывают еду, а их добыча старается избежать смерти.Телекомпания: BBC / BBC Worldwide / BBC America / CCTV9 / NDR NaturfilmЖанр: Документальный, научно-познавательный, природа, флора, фаунаПеревод: Двухголосый закадровый, профессиональный (AlexFilm)Озвучка: Владимир Курдов и Наталья ЛанцПродолжительность: 00:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5DC2D78836C48E55337888E9A34969774E05C1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001747   (851869) от 29.03.2016
-
-BBC: Захватывающая история криминалистики / Catching History's Criminals: The Forensics Story (2015) HDTVRip (3 серий из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удивительный мир криминалистики оказывается под микроскопом доктора Габриэлы Вестон, которая решает изучить историю науки, стоящей за борьбой с преступностью. От использования ДНК для реконструкции лица убийцы до волосинки, рассказывающей о том, где жила жертва. Благодаря современным технологиям и историческим материалам, мы увидим полицейские дела и узнаем о культуре, (   Читать дальше...   )Производство: Великобритания, BBC Scotland, Open University PartnershipЖанр: Документальный, история, криминалистикаРежиссер: Грем РасселПеревод: Одноголосый закадровый, профессиональный (SDI Media)Продолжительность: 3x~00:52:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7328CBA8BDF73D54EF02943184FB771BAEDDEA93
 ```
 
 https://mybot314.ru/tekegram_catalog/

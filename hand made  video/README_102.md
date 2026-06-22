@@ -1,3 +1,29 @@
+###  Публикация: 738872   (143056) от 29.12.2013
+
+Молодой детектив Ди: Восстание морского дракона / Young Detective Dee: Rise of the Sea Dragon (2013) BDRip [1080p] 3D [Вертикальная анаморфная стереопара] [Hand Made 16:9]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143056.jpg" />
+</div>
+
+
+###  Подробнее
+
+В море с огромным кораблем, происходит необъяснимое, без причин, оно просто развалилось на куски. Как такое может случится, при отсутствии шторма и других фактров? Выяснить причины поручают детективу Ди. Отправившись на место крушения, он узнает, что там обитает очень древнее чудовище, похожее на морского дракона, которое уже сотни лет уничтожает всех, кто заплывает (   Читать дальше...   )Жанр: Боевик, Триллер, ДетективРежиссер: Цуй ХаркАктеры: Анджела Бейби,  Марк Чао,  Чэнь Кунь,  Уилльям Фэн,  Дун Ху,  Ким Бом,  Карина Лау,  Линь Гэн Синь,  Zhaoxu Lin,  Цзинцзин МаПеревод: Двуголосый закадровый / Green TeaПродолжительность: 02:13:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:659833AE35BCDCEA6624ECF718DDDEA8EC96FC18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969579   (142312) от 29.12.2015
 
 Агенты А.Н.К.Л. / The Man from U.N.C.L.E. (2015) BDRip [H.264/720p] [hand made 60fps]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142312.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142305.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142174.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142106.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141862.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141681.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141467.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141452.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141441.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141296.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141267.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141032.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139911.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139869.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139606.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139106.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139090.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ Mylene Farmer - Видеоколлекция от ALEXnROCK (2017) BDRip, DVDRip
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137656.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137634.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137447.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137284.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137279.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137224.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137153.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137038.jpg" />
 </div>
 
 
@@ -655,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F76C7B646C802954A5A256FC7B7C2251B2D1F9BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679436   (137035) от 25.11.2023
-
-Легенда / Legend (2015) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Близнецы Реджи и Ронни Крэй — культовые фигуры преступного мира Великобритании 1960-х. Братья возглавляли самую влиятельную бандитскую группировку Ист-Энда. В их послужном списке были вооруженные грабежи, рэкет, поджоги, покушения, убийства и собственный ночной клуб, куда доезжали даже голливудские знаменитости. Среди их жертв — криминальные авторитеты Джек МакВитти (   Читать дальше...   )Производство: Великобритания, Франция, США / Anton, Cross Creek Pictures, Working FilmsЖанр: криминал, триллер, драмаРежиссер: Брайан ХелгелендАктеры: Том Харди, Эмили Браунинг, Дэвид Тьюлис, Даффи, Кристофер Экклстон, Чазз Пальминтери, Пол Андерсон, Джошуа Хилл, Колин Морган, Тара ФитцджеральдПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:11:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24268D19D456FD0EFBD724E6BFD5ABB29C318507
 ```
 
 https://mybot314.ru/tekegram_catalog/

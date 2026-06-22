@@ -1,3 +1,87 @@
+###  Публикация: 1731850   (107584) от 22.06.2024
+
+Николай Сладков | Осиновый невидимка (2017) [MP3, Светлана Репина]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Николай Иванович Сладков (1920–1996) – советский детский писатель.
+Книга раскрывает перед читателем загадочный мир леса. Автор обращается к юным натуралистам с призывом беречь и охранять все живое; учит доброте, терпению и выносливости следопыта.
+Прочитано по изданию: Ленинград, Детская литература, 1979 год.
+(   Читать дальше...   )Жанр: Русская литература для детей, классика, рассказИздательство: Нигде не купишьПродолжительность: 08:14:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:683AA3141C52720CF0BFC5C9864C930881CF7809
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731847   (107583) от 22.06.2024
+
+Николай Сладков | Лесные тайнички (2011) [MP3, Олег Мартьянов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Лучшее – детям.
+Николай Иванович Сладков (1920–1996) – советский детский писатель.
+Книги известного писателя-натуралиста Николая Ивановича Сладкова, друга и единомышленника Виталия Бианки, хорошо знакомы читателям. Его рассказы и сказки о животных включены в школьную программу. В них он пишет о том, как прекрасна и неповторима жизнь природы, о загадках, (   Читать дальше...   )Жанр: Русская литература для детей, классика, проза, рассказИздательство: Аудиокнига (АСТ)Продолжительность: 06:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D37C3929B663C8497F5EBA1C941775DC05028B14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731842   (107578) от 22.06.2024
+
+Николай Сладков | Вот иду я по лесу (Аудиоспектакль) (2013) [MP3, Зинаида Бокарёва и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Мелодия – детям, Из архива «Гостелерадиофонда».
+Вы, конечно, читали книги, смотрели кинофильмы и телепередачи о природе далёких стран, о редких животных: зверях и птицах, рыбах и насекомых. А знаете ли вы, что и рядом с вами, вокруг вас мир природы не менее чудесен и загадочен? Присмотритесь, прислушайтесь, постойте в лесу тихо-тихо, и вы сами убедитесь (   Читать дальше...   )Жанр: Русская литература для детей, классика, рассказ, сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B2A25FDA701B59C7E8E84A6601E12E68CFAB39D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1732752   (107433) от 26.06.2024
 
 Народ | Сказки и потешки для самых маленьких (2010) [MP3, Александр Бордуков, Вениамин Смехов]
@@ -6,7 +90,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107433.jpg" />
 </div>
 
 
@@ -33,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107218.jpg" />
 </div>
 
 
@@ -60,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107191.jpg" />
 </div>
 
 
@@ -91,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107168.jpg" />
 </div>
 
 
@@ -118,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107163.jpg" />
 </div>
 
 
@@ -147,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107119.jpg" />
 </div>
 
 
@@ -175,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107078.jpg" />
 </div>
 
 
@@ -203,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107077.jpg" />
 </div>
 
 
@@ -232,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107076.jpg" />
 </div>
 
 
@@ -259,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107000.jpg" />
 </div>
 
 
@@ -286,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106999.jpg" />
 </div>
 
 
@@ -315,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106995.jpg" />
 </div>
 
 
@@ -342,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106956.jpg" />
 </div>
 
 
@@ -370,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106949.jpg" />
 </div>
 
 
@@ -396,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106947.jpg" />
 </div>
 
 
@@ -422,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106923.jpg" />
 </div>
 
 
@@ -448,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106922.jpg" />
 </div>
 
 
@@ -474,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106843.jpg" />
 </div>
 
 
@@ -500,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106700.jpg" />
 </div>
 
 
@@ -526,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106648.jpg" />
 </div>
 
 
@@ -552,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106647.jpg" />
 </div>
 
 
@@ -578,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106642.jpg" />
 </div>
 
 
@@ -604,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106641.jpg" />
 </div>
 
 
@@ -617,88 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A180BB426BD1F3A2053A30DEA7668B662D2FD94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736568   (106640) от 13.07.2024
-
-Юлия Яковлева | Ленинградские сказки (Книга 1). Дети ворона (2022) [MP3, Роза Шмуклер]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему-то ночью уехал в командировку папа, а через несколько дней бесследно исчезли мама и младший братишка, и Шурка с Таней остались одни. «Ворон унёс» — шепчут все вокруг. Но что это за Ворон и кто укажет к нему дорогу? Границу между городом Ворона и обычным городом перейти легче лёгкого — но только в один конец. Лишь поняв, что Ворон в Ленинграде 1938 года — повсюду, (   Читать дальше...   )Жанр: детская проза, историческая литератураИздательство: СамокатПродолжительность: 05:12:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7521EE5E3145A09043CD94CF6E2DFB434B7B290
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736700   (106638) от 13.07.2024
-
-Екатерина Мурашова | Лекция «Подростковый возраст и подростковый кризис» (2015) [MP3, Екатерина Мурашова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подростковый кризис – это не запрос на взрослость, а запрос на пересмотр договора. И если родители не соглашаются его пересмотреть, не признают этой необходимости, тогда и начинается кризис.
-
-О том, как этого избежать – на лекции психолога Катерины Мурашовой.Жанр: детская психология, подростковая психология, психология личностиИздательство: Лекторий "Прямая Речь"Продолжительность: 01:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D776A374A0CF4D3614C60C6CC90A3E30A0E22B19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736719   (106634) от 13.07.2024
-
-Памела Трэверс | Мэри Поппинс (2021) [MP3, Мария Миронова и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106634.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Мэри Поппинс» – музыкальный аудиоспектакль по первой части знаменитой сказки британской писательницы Памэлы Треверс с Марией Мироновой в главной роли. Однажды на пороге самого обычного дома самой обычной семьи Бэнксов появилась необыкновенная няня по имени Мэри Поппинс – и с тех пор каждый их день наполнен волшебными приключениями.
-
-Аудиоспектакль поставлен по самому (   Читать дальше...   )Жанр: аудиоспектакль, детская классика, детские приключения, зарубежные детские книги, сказкиИздательство: ВимбоПродолжительность: 03:20:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99D79A58A680D7A93AA84CF1F69E5B9145F0F20C
 ```
 
 https://mybot314.ru/tekegram_catalog/

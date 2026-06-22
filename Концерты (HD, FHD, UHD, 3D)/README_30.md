@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350011.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kreator - Dying Alive 2012 (2013) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349051.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Avantasia - The Flying Opera: Around The World In Twenty Days (2011) BDRip [H.26
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348902.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ The Rolling Stones: Sweet Summer Sun - Hyde Park Live (2013) Blu-ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347882.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Accept - Rock Hard Festival (2022) HDTV [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347605.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Joe Cocker / Fire it Up Live (2013) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347464.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346683.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Eagles: Live from the Forum MMXVIII (2020) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346437.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345694.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ P!nk (Pink)  Rock in Rio (05.10.2019) HDTV [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343257.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Yanni - Live At El Morro, Puerto Rico (2011) H264  HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_342321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_342321.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ The Rolling Stones: Charlie Is My Darling (1965/2012) [1080p] Blu-ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_340047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_340047.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_339756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_339756.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Led Zeppelin - Celebration Day (Live at London O2 Arena 2007) (2012) BDRip [H.26
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_339623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_339623.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338417.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Eric Clapton: Planes, Trains and Eric (2014) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336903.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Jeff Lynne's ELO - Live at Glastonbury 2016 (2016) HDTV [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335245.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Kylie Minogue: Kiss Me Once - Live At The SSE Hydro, Glasgow (2014) UHDTVRip [H.
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335218.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334852.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334346.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Bon Jovi - In Concert BBC Radio 2 (2013) HDTVRip [H.264/1080i-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333786.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332477.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Avril Lavigne - Live at The Roxy Theatre (2007) HDTVRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_331450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_331450.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330900.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330815.jpg" />
 </div>
 
 
@@ -712,7 +712,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330805.jpg" />
 </div>
 
 

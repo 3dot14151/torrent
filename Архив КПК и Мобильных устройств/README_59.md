@@ -1,3 +1,29 @@
+###  Публикация: 532173   (537864) от 07.08.2012
+
+[Программа] (Android 2.0+) iHome 1.5.0 (Full) - Лаунчер с 3D эффектами
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лаунчер с 3D эффектами. Порт с iPhone.Разработчик: NetDragon Websoft IncЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 463212   (537851) от 07.08.2012
 
 [Программа] (Android 2.1+) TouchRetouch 3.1.1 - Редактирование фото /обновлено 06.08.12/
@@ -6,7 +32,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537851.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Can Knockdown 2 v1.0.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537108.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Can Knockdown 3 Full v 1.27 + Мод [En/Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536952.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Defenders v1.8.60680-1.8.60683 Мод [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536825.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536439.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536044.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536024.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Fleksy Keyboard - Happy Typing 6.2.4 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535165.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Plague Inc. v.1.10.2 Мод [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534827.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ KeepSafe Plus v3.7 [Ru/Multi] - скрытие ваших личных фото 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534360.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ PlayerXtreme - Media Player v0.10.1 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534267.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ Rutube v26.0.68 Ad-Free by Alex.Strannik [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533272.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532554.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532187.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ Five Nights at Freddy's 4 1.00 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531018.jpg" />
 </div>
 
 
@@ -396,6 +422,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 367882   (530737) от 26.07.2011
+
+[Программа](WindowsMobile) Навител/Navitel v5.0.1.26 Cодружество+Вост.Европа+ФО
+
+>>След.
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_530737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Навител Навигатор — уникальная и точная система навигации, включающая в себя подробные навигационные карты всей России, а также бесплатные сервисы «Навител.Пробки» и «Навител.SMS». Навигационная карта России для Навител включает в себя 118 000 населенных пунктов страны, из них 1 714 городов и населенных пунктов — с подробной улично-дорожной сетью и полными адресными планами (с детализацией «до дома»). Среди прочих, для Навител доступны самые подробные карты Московской и Ленинградской областей. Подробные карты 64 регионов России. На карту России нанесены более 400 000 точек POI (АЗС, ГИБДД, кафе, рестораны, мотели, гостиницы и т.д.), а также включена информация о месторасположении камер наблюдения за скоростью движения (SPEEDCAM). Навител Навигатор позволяет использовать сторонние любительские карты, созданные и обновляемые самими пользователями, в популярном картографическом редакторе GPSMapEdit.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1050919   (530572) от 12.09.2016
 
 Rocket Viper 2 2.41 [En]
@@ -404,7 +456,7 @@ Rocket Viper 2 2.41 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530572.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ Dubstep Hero [Игра] (Android 2.1 и выше.)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529999.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529642.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529068.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ SuperPhoto 2.4.3 [Ru/Multi] - Создание  фотографий с множ
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528329.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527344.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ Xodo PDF Reader & Editor Pro 8.0.12 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527052.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_526775.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526482.jpg" />
 </div>
 
 
@@ -626,59 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEE423F4B492C375EF94EABFC4023D3D301E9891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986329   (526478) от 16.09.2016
-
-Crossty v1.5.15 [Ru/Multi] - мобильное приложение для просмотра вышивальных схем
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Crossty открывает интерактивные форматы схем для вышивки, такие как XSD (Pattern Maker) и PAT (PCStitch). Перемещайтесь по схеме, приближайте и отдаляйте без потери качества, подсвечивайте нужные элементы схемы, получайте информацию о цвете, типе стежка, количестве сложений нити и составе бленда, отмечайте то, что уже отшито. С этим приложением мобильное устройство (   Читать дальше...   )Тип издания: Пиратка (Full с Маркета)Релиз состоялся: 02.09.2016Разработчик: Zvezdolet PublishingПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66D97676B5ABF80B4343001E963E2F535045AED2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 368500   (525601) от 01.08.2011
-
-Скорая помощь / ER (Полные 1-14 сезоны, 309 серий) / ER (Майкл Крайтон) [1994-2008, Драма, DVDRip, 480 х 272]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_525601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герои остросюжетного сериала «Скорая помощь» - врачи чикагской городской больницы. Они оказывают экстренную помощь пациентам, спасают человеческие жизни, забывая порой о себе и совершенно не думая о том, что их каждодневная работа граничит с героизмом. Выполняя свой профессиональный долг, врачи «Скорой помощи» влюбляются, разводятся, плетут интриги, надеются на лучшее и... в общем, у них все как у людей, несмотря на трудную работу и высокое призвание.
-Лучший сериал компании WARNER BROS. Обладатель 19 премий самой престижной награды США - "Эмми". "Скорая помощь" - это переплетение мелодрамы и триллера, драмы и комедии. Герои сериала любят, разводятся, надеются и переживают - проходят через все испытания на грани жизни и смерти.Жанр: ДрамаРежиссёр: Майкл КрайтонВ ролях: Джордж Клуни (1994-1999,2000), Ной Уайл (1994-2005, 2006), Пол МакКрейн (1997-2003), Джулианна Маргулис (1994-2000), Шерри Стрингфилд (1994-1997, 2001-2005), Эрик Ла Саль (1994-2002), Алекс, Кингстон (1997-2004), Глория Рубен(1994-1999), Лора Иннес (1995-2007), Горан Вишнич (1999-2007)Перевод: Профессиональный (многоголосый закадровый)Формат: *.mp4Продолжительность: 45
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

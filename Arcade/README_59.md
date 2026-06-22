@@ -1,3 +1,55 @@
+###  Публикация: 1803383   (13815) от 22.06.2025
+
+Reality Rash (2025) [Multi] (1.0.1) Scene Tenoke
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Reality Rash начинается после того, как корпоративная машина, созданная для навигации между различными реальностями, терпит критический сбой. Этот инцидент заставляет 4 отдельных измерения слиться в единое пространство. В результате технологической аварии 4 ключевых ядра устройства теряются и оказываются разбросаны по смешавшимся мирам. Событие запускает 72-часовой (   Читать дальше...   )Тип издания: SceneРазработчик: Give your jumpsЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Английский, Бразильский ПортугальскийЯзык субтитров: Английский, Китайский (упрощенный), Бразильский Португальский и другиеЯзык интерфейса: Английский, Бразильский Португальский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A60FF77765C0EFE770033802260952A60FEA867D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803368   (13781) от 22.06.2025
+
+Goat Simulator 3 (2022) [Ru/Multi] (1.1.4.3_410056/dlc) Repack EXROW
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Собирайте стадо и отправляйтесь в Goat Simulator 3 - новую, реалистичную «песочницу» на ферме. Присоединитесь к Пилгор на острове Сан-Ангора и приготовьтесь к головокружительным приключениям. Облизывайте, бодайте и ломайте всё, что захочется в огромном новом мире. Убивайте время самым бесцельным способом со времён оригинальной Goat Simulator! Мы не будем объяснять (   Читать дальше...   )Тип издания: RepackРазработчик: Coffee Stain North ABЖанр: Экшены, АркадыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F43EE7E38BA834A32A2EC644E15066C6D399117F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803599   (13660) от 24.06.2025
 
 TRON: Catalyst (2025) [Ru/Multi] (0.10.3 CS:16422) Repack FitGirl
@@ -6,7 +58,7 @@ TRON: Catalyst (2025) [Ru/Multi] (0.10.3 CS:16422) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13660.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Suit for Hire (2021) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13633.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ VVVVVV (2010) [Ru/Multi] (2.4.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13528.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ DRAGON BALL: Sparking! ZERO (2024) [Ru/Multi] (2013.012.003.008.007/dlc) Scene R
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13471.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Capcom Fighting Collection 2 (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13407.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Nanomon Virtual Pet (2025) [Ru/Multi] (1.0.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13170.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ POPUCOM (2025) [Ru/Multi] (1.0.1/dlc) Repack FitGirl [Too Many Clothes Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13009.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Leftovers KO! (2025) [Multi] (1.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12985.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ POPUCOM (2025) [Ru/Multi] (1.0.1) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12958.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Entropy Survivors (2024) [Ru/Multi] (1.5.1.23830) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12881.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ STAR WARS: Episode I: Jedi Power Battles (2025) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12823.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Frog Jump (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12601.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Don't Mess With Bober (2025) [Ru/Multi] (Build 19026706) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12385.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Don't Mess With Bober (2025) [Ru/Multi] (1.0.3) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12336.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Grandma, No! (2025) [Ru/Multi] (20250522R) Repack FitGirl [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12155.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Mad Restaurant People (2018) [Multi] (1.7.0.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11703.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Ale & Tale Tavern (2024) [Ru/Multi] (1.5.8) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11371.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Strike Mission (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10926.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Dust Raiders (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10561.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Rooftops & Alleys: The Parkour Game (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10250.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Kick'n Hell (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10177.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Starmetal Crusaders (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10173.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Codename: Ocean Keeper (2024) [Ru/Multi] (1.0.4) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9922.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Our War: Firepower Suppression (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9875.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Our War: Firepower Suppression (2025) [Ru/Multi] (1.0) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:825F558354A4198760A536C0C76EFCD5DF162114
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 57527   (9818) от 31.07.2025
-
-Redneck Kentucky and the Next Generation Chickens / Куриное побоище (2007) [Ru] (1.0) License
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9818.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Redneck Kentucky And The Next Generation Chickens" - идейный продолжатель жутко популярного в свое время виртуального тира "Moorhuhn". Те, кто убивал рабочие часы за массовым отстрелом куриц, непременно поспешат участвовать в новом антикурином походе. Игра унаследовала простой и увлекательный игровой процесс, всепроникающий юмор и кучи летающих (   Читать дальше...   )Тип издания: ЛицензияРазработчик: City Interactive S.A.Жанр: ЭкшеныЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED388EF06AD9CD06C84DEFED9DEEEDB2C814CDBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809593   (9794) от 31.07.2025
-
-Mortal Kombat 4 (1997) [En] (2.1) License GOG
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тысячи лет назад Шиннок восстал против остальных Старших Богов, дабы получить непревзойденную власть, он решил захватить молодое Земное Царство. С помощью мистических свойств амулета ему удалось проникнуть в Земное Царство, незамеченным Старшими Богами. И тогда молодой Бог Грома и защитник Земли Рейден повёл войну против Шиннока. Во время этой войны была уничтожена (   Читать дальше...   )Тип издания: LicenseРазработчик: Midway GamesЖанр: Аркады, ФайтингиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1BD85849D2F197C5BC67D5C28F5E003DF107155
 ```
 
 https://mybot314.ru/tekegram_catalog/

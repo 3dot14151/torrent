@@ -1,3 +1,88 @@
+###  Публикация: 1711577   (112463) от 30.03.2024
+
+Чарльз Диккенс | Давид Копперфильд (2010) [MP3, Пётр Каледин]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: «Детская аудиокнига».
+«Давид Копперфильд» – самый популярный роман Диккенса (1812–1870), переведенный на все языки мира, экранизировавшийся десятки раз – и по-прежнему завораживающий читателя своей простотой и совершенством.
+Это история бесконечно обаятельного молодого человека, готового преодолеть любые преграды, претерпеть любые лишения и ради любви (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, романИздательство: Студия «АРДИС»Продолжительность: 03:32:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE9D23A936F1803C0B9E4A6C6C8C8D5A875B66C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712031   (112268) от 01.04.2024
+
+Марк Твен | Приключения Тома Сойера (2004) [MP3, Сергей Кирсанов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детская аудиокнига.
+Марк Твен (1835–1910) – американский писатель.
+«Приключения Тома Сойера» (1876) – повесть о Томе и его друзьях. Том – мальчик из благонравной семьи, но ему не по вкусу жить по правилам провинциального городка, где мало места свободе и романтике. Он мечтает о вольной жизни, приключениях и подвигах. И поэтому никакие запреты взрослых (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, повестьИздательство: Студия «АРДИС»Продолжительность: 09:28:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C501234B14E5551921ED3E2537154509A26E5850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712449   (112190) от 02.04.2024
+
+Рудольф Распэ, Эрнст Теодор Амадей Гофман и др. | Сказки немецких писателей. Барон Мюнхгаузен (2013) [MP3, Татьяна Телегина]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детям.
+Послушайте замечательные сказки Рудольфа Распэ, Новалиса, Эрнста Теодора Амадея Гофмана, Братьев Гримм, Вильгельма Гауфа и других немецких писателей.
+В оформлении использована музыка средневековья и раннего барокко.
+Издается без сокращений.(   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, приключения, рассказИздательство: Студия «АРДИС»Продолжительность: 08:04:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B436DF8C8F0539F57B84D7D509822C695E964CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1712447   (112167) от 02.04.2024
 
 Рудольф Распэ | Приключения барона Мюнхаузена (2004) [MP3, Кирилл Гребенщиков]
@@ -6,7 +91,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112167.jpg" />
 </div>
 
 
@@ -34,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112163.jpg" />
 </div>
 
 
@@ -62,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111726.jpg" />
 </div>
 
 
@@ -91,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111646.jpg" />
 </div>
 
 
@@ -119,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111644.jpg" />
 </div>
 
 
@@ -146,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111643.jpg" />
 </div>
 
 
@@ -174,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111639.jpg" />
 </div>
 
 
@@ -202,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111638.jpg" />
 </div>
 
 
@@ -230,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111636.jpg" />
 </div>
 
 
@@ -259,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111610.jpg" />
 </div>
 
 
@@ -286,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111517.jpg" />
 </div>
 
 
@@ -313,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111489.jpg" />
 </div>
 
 
@@ -340,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111449.jpg" />
 </div>
 
 
@@ -367,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111431.jpg" />
 </div>
 
 
@@ -394,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111424.jpg" />
 </div>
 
 
@@ -421,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111159.jpg" />
 </div>
 
 
@@ -448,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111105.jpg" />
 </div>
 
 
@@ -475,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111098.jpg" />
 </div>
 
 
@@ -504,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111091.jpg" />
 </div>
 
 
@@ -533,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111090.jpg" />
 </div>
 
 
@@ -562,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111011.jpg" />
 </div>
 
 
@@ -591,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111005.jpg" />
 </div>
 
 
@@ -619,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110923.jpg" />
 </div>
 
 
@@ -631,87 +716,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5379A281B1D3A84B0E156B85155849708ED99A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718519   (110920) от 25.04.2024
-
-Евгений Клюев | Учителя всякой всячины (2013) [MP3, Евгений Клюев]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Детям.
-Поэт и писатель Евгений Клюев – автор нашумевших романов, ставших классикой современной прозы абсурда, а также чудесных произведений для детей. Ребёнок, послушав эти добрые и смешные, мудрые и трогательные стихи и сказки, на мгновение станет взрослым... А взрослый – непременно захочет вспомнить игры, забавы и шутки своего беззаботного детства, (   Читать дальше...   )Жанр: Русская литература для детей, стихи, сказкаИздательство: Студия «АРДИС»Продолжительность: 01:06:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CEDE67054DF71962B662A4F2B53F434DDAAF480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719426   (110571) от 29.04.2024
-
-Ганс Христиан Андерсен | Райский сад. Сказки и истории (2005) [MP3, Рафаэль Клейнер и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Детская библиотека.
-Знаменитый датский писатель Ганс (Ханс) Христиан Андерсен (1805–1875) является не только одним из величайших сказочников мира, но и глубоко и истинно христианским писателем. Герои лучших его сказок не опускают руки в жизненных невзгодах, не ропщут, а всегда смиренно надеются на милосердие Бога, верят в Его благой Божественный Промысел, (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: ДеоникаПродолжительность: 09:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9375EEFDD64277013BBFC42675AC9BD24AD3F60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719499   (110565) от 29.04.2024
-
-Тоня Шипулина | Усы, лапы, хвост (Книга 1). Рюмы и норики (2024) [MP3, Сергей Азеев]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описание:
-Рюм по имени Пип и норик по имени Йосло очень разные. Один – низенький, со смешным пятачком, который чует чужаков на расстоянии. Другой – высокий, с длинными ушами, длинными же лапами и хвостом. Пип и Йосло принадлежат к двум враждующим уже сотню лет семьям. У рюмов сытая и безопасная жизнь, а у нориков нет ни того ни другого. Норики живут во власти прожорливой (   Читать дальше...   )Жанр: Детская литература. СказкаИздательство: АбрикобуксПродолжительность: 01:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE732B583986DF1AEDF76B67E0D7CB6536B6D56
 ```
 
 https://mybot314.ru/tekegram_catalog/

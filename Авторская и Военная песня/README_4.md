@@ -1,119 +1,3 @@
-###  Публикация: 1606974   (203570) от 25.01.2023
-
-Владимир Высоцкий - Песни о ... 6CD Box Set (2002) [MP3|320 Kbps] <Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Городской романс
-02. О нашей встрече
-03. Ребята, напишите мне письмо
-04. Песня про несчастную любовь(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 06:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C3CC82E9C91E68F9C93F466774129C85DCC650C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631430   (198881) от 06.05.2023
-
-VA - Белорусский вокзал <<Лучшие песни военных лет>> (2004) [MP3|320 Kbps] <Военная песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Инна Афанасьева - Тёмная ночь
-02. гр. J Морс - Землянка
-03. виа Харлi - Бери шинель, пошли домой
-04. Наташа Кудрина - Мы за ценой не постоим ( Песня из к/ф Белорусский вокзал )(   Читать дальше...   )Жанр: Военная песняПродолжительность: 00:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C387168F8E31A4CD57274716BB3E54879A5A2963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505575   (188607) от 14.11.2022
-
-Владимир Высоцкий - Записи Константина Мустафиди (1972 - 1974) [MP3|224 Kbps] <Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_188607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начав записывать песни Владимира Семёновича в январе 1972 года, К.Мустафиди пополнял коллекцию в течении нескольких лет. Лучшая по тем временам магнитофонная техника позволила сохранить голос поэта и исполнителя во всей звуковой палитре. Записи у Мустафиди включают почти все песни, написанные до 1973 года, за единичными исключениями. Также есть несколько песен более (   Читать дальше...   )Оригинал первый. 7 января 1972 - апрель 1972 года.
-Оригинал второй. Май - декабрь 1972 года.
-Оригиналы третий и пятый. Октябрь - декабрь 1973 года.
-Оригинал четвертый. 1973 год.(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 12:17:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5408CFDE7E898E4DBE9FF484EB77C9744E9C24B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428483   (179780) от 02.12.2020
-
-Олег Митяев - Спокойно и просто (2020) [MP3|320 Kbps] <Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179780.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Спокойно и просто (Женщина)
-2. Никому не хватает любви
-3. Мой отец
-4. Мама(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 01:15:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C55F88DFF950387A1804EA9FC47C3CA04418C30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 52197   (177815) от 06.10.2023
 
 Игорь Тальков - нигде не издававшиеся песни (1987-1991) [MP3|192 Kbps] <Авторская песня>
@@ -122,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177815.jpg" />
 </div>
 
 
@@ -151,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168568.jpg" />
 </div>
 
 
@@ -180,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168543.jpg" />
 </div>
 
 
@@ -209,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168466.jpg" />
 </div>
 
 
@@ -238,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168356.jpg" />
 </div>
 
 
@@ -267,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167935.jpg" />
 </div>
 
 
@@ -296,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161645.jpg" />
 </div>
 
 
@@ -325,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161251.jpg" />
 </div>
 
 
@@ -354,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150635.jpg" />
 </div>
 
 
@@ -383,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139585.jpg" />
 </div>
 
 
@@ -412,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133699.jpg" />
 </div>
 
 
@@ -441,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128088.jpg" />
 </div>
 
 
@@ -470,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125184.jpg" />
 </div>
 
 
@@ -499,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119925.jpg" />
 </div>
 
 
@@ -528,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119786.jpg" />
 </div>
 
 
@@ -557,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119332.jpg" />
 </div>
 
 
@@ -586,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118158.jpg" />
 </div>
 
 
@@ -615,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116055.jpg" />
 </div>
 
 
@@ -644,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112587.jpg" />
 </div>
 
 
@@ -673,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109816.jpg" />
 </div>
 
 
@@ -702,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109048.jpg" />
 </div>
 
 
@@ -728,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106818.jpg" />
 </div>
 
 
@@ -742,6 +626,122 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B87EB3AC31CB21CDD3331FCF10438E84B777369
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736644   (106653) от 13.07.2024
+
+Александр Городницкий  - 2 Альбома (1997-1998) [MP3|320 Kbps] <Авторская песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Снег
+02. А женам надоели расставанья...
+03. Бухта Тикси / Две весны
+04. Песня полярных летчиков(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 01:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A544BD528397BAC0DE9F5B370A341C1C9073A53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736594   (106636) от 13.07.2024
+
+Виталий Заиграев - Для своих (2024) [MP3|320 Kbps] <Военная песня, Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - За Донбасс [00:04:07]
+02 - Война [00:02:55]
+03 - После войны [00:02:55]
+04 - Герои России [00:03:33](   Читать дальше...   )Жанр: Военная песня, ChansonПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EBDCDC8D336BECDA244E12D6152172B8BF35489
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736498   (106601) от 14.07.2024
+
+Слава Благов - Первый (2024) [MP3|320 Kbps] <Pop>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Такая хорошая [00:03:27]
+02 - Она любила виски [00:03:08]
+03 - Соседи [00:04:20]
+04 - Голос кубинских улиц [00:04:20](   Читать дальше...   )Жанр: PopПродолжительность: 00:54:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F96B992DA4AAEB1395F95119749376B189EFE215
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742062   (105591) от 10.08.2024
+
+Марина Вайсберг - Я женщина приличная (2024) [MP3|320 Kbps] <Авторская песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Булка [00:01:40]
+02 - Вася [00:01:56]
+03 - Тюльпаны [00:01:30]
+04 - Жрушка [00:01:29](   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:24:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:053A515020818F949570491629D61C2DA9ECB94E
 ```
 
 https://mybot314.ru/tekegram_catalog/

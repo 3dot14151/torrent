@@ -1,3 +1,32 @@
+###  Публикация: 1028038   (693041) от 21.06.2016
+
+Футбол. Чемпионат Европы 2016. Группа B. 3-й тур. Словакия - Англия (20.06.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693041.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 июня 2016, понедельник. 22:00 МСК
+Группа B. 3-й тур
+
+Стадион: Жеффруа-Гишар (Сент-Этьен, Франция) , 39 051 зритель (93 % при вместимости 42 000)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Денис Казанский, Роман Трушечкин)Продолжительность: 01:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9100586E5EF526C6EC73FB28ED802AE44E82A322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028033   (692977) от 21.06.2016
 
 Футбол. Чемпионат Европы 2016. Группа B. 3-й тур. Словакия - Англия (20.06.2016) HDTV [H.264/1080i]
@@ -6,7 +35,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692977.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692976.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692974.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692873.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692760.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692707.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692685.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692684.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692432.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ BBC. Horizon: Бог внутри нас / God on the Brain (2003) TVRip
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692380.jpg" />
 </div>
 
 
@@ -290,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_692355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_692355.jpg" />
 </div>
 
 
@@ -319,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692347.jpg" />
 </div>
 
 
@@ -348,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692195.jpg" />
 </div>
 
 
@@ -376,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692085.jpg" />
 </div>
 
 
@@ -405,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692072.jpg" />
 </div>
 
 
@@ -434,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692061.jpg" />
 </div>
 
 
@@ -463,7 +492,7 @@ BBC: Галапагосы / BBC: Galapagos (2006) [1080p] HD-DVDRip
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_691907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_691907.jpg" />
 </div>
 
 
@@ -491,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691847.jpg" />
 </div>
 
 
@@ -520,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691546.jpg" />
 </div>
 
 
@@ -546,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691537.jpg" />
 </div>
 
 
@@ -575,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691490.jpg" />
 </div>
 
 
@@ -601,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691476.jpg" />
 </div>
 
 
@@ -627,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690978.jpg" />
 </div>
 
 
@@ -656,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690977.jpg" />
 </div>
 
 
@@ -685,7 +714,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690976.jpg" />
 </div>
 
 
@@ -699,35 +728,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4FD2DB306057E656C2FE9231B9539849457B1BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028324   (690975) от 22.06.2016
-
-Футбол. Чемпионат Европы 2016. Группа D. 3-й тур. Хорватия - Испания (21.06.2016) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690975.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 июня 2016, вторник. 22:00 МСК
-Группа D. 3-й тур.
-
-Стадион: Матмут-Атлантик (Бордо, Франция) , 37 245 зрителей (87 % при вместимости 43 000)(   Читать дальше...   )Телекомпания: Первый HDЖанр: СпортЯзык озвучки: Русский (Виктор Гусев)Продолжительность: 01:48:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F613F806E5622CA45166B0332268AB194999CBD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

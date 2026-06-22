@@ -1,3 +1,257 @@
+###  Публикация: 927239   (529517) от 12.08.2015
+
+Голубой огонек 1963года (2005) DVDRip [H.264] [hand made colored]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Праздничные Новогодние "Голубые огоньки" 62-го — 70-го годов (точнее все то, что ценой неимоверных усилий удалось собрать, скомпоновать и все-таки выпустить, используя материалы, чудом сохранившиеся в Государственном Телерадиофонде). На черно-белой пленке возникают знакомые лица — лица известных актеров, музыкантов, телевизионных ведущих. Советские космонавты (   Читать дальше...   )01. Танец снежинок (Женск. танц. группа)
+02. Интермедия "Дед Мороз и Снегурочка" (Л.Миров, М.Новицкий)
+03. Подожди (Л.Клемент)
+04. Кукольный номер "Оркестр" (Студенты Ленингр.кораблестроит. института)(   Читать дальше...   )Производство: СССР/Россия, ГостелерадиофондЖанр: Фильм-концерт, телепередачаАктеры: Артисты советской эстрадыПродолжительность: 01:06:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70D4FB52E0020F68BDACDEB4D542330E8AEA50CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927102   (529508) от 12.08.2015
+
+Alice Cooper - Raise the Dead – Live from Wacken (2014) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт,  дословно названный "Восстание Мертвых", который состоялся на открытой площадке Wacken 3 августа 2013 года.01. Hello Hooray 02:40
+02. House Of Fire 03:30
+03. No More Mr Nice Guy 03:03
+04. Under My Wheels 02:54(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy Metal, Glam Metal, Shock RockПродолжительность: 01:28:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0558FA1E5017ABF5355E0867EDC7BC0FED7D21D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927199   (529450) от 12.08.2015
+
+Алексей Брянцев - Лучшие песни о любви. Видеоальбом (2015) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алексей Брянцев - Лучшие песни о любви. Видеоальбом1. Мне не хватает твоих глаз
+2. Как будто мы с тобой
+3. Спасибо что ты есть
+4. Привет, малыш(   Читать дальше...   )Производство: РоссияЖанр: МузыкаПеревод: ОтсутствуетСубтитры: НетПродолжительность: 01:24:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77D550D0B6EEAD50FFF89212DD272B755A1AD8A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927071   (529395) от 12.08.2015
+
+Eagles - Farewell I Tour - Live From Melbourne (2004/2013) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта феноменально успешная группа Eagles, была как саундтрек к жизни целого поколения, и они все еще находят новые аудитории. Этот концерт включает в себя все лучшие хиты Eagles и был записан 14, 15 и 17 ноября 2004 года в Мельбурне во время их прощального турне.01. The Long Run
+02. New Kid In Town
+03. Wasted Time
+a. Wasted Time(   Читать дальше...   )Производство: Австралия | Warner Music GroupЖанр: RockРежиссер: Carol DoddsПродолжительность: 02:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D8FF3B18952B8BC754545205DD61B36273619ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926939   (529387) от 12.08.2015
+
+Аркадий Кобяков - Сборник видеоклипов (2014) WEBRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Всё позади
+02. Мерцание звёзд
+03. Некуда бежать
+04. Я не забуду(   Читать дальше...   )Производство: РоссияЖанр: Музыка, клипыПеревод: ОтсутствуетПродолжительность: 00:30:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06CBAC3391EA7D4B5538CED796F8AEF514E40B4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051936   (529203) от 13.09.2016
+
+Легенда о любви (1969) DVDRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529203.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу сюжета положена очень старинная легенда - "возраст" ее исчисляется столетиями. Только на выжженной, изнемогающей от жажды земле могло родиться сказание о Ферхаде, пробившем гору железной палицей, чтобы добыть людям воду, для чего ему пришлось пожертвовать своей любовью к Ширин.
+Премьера балета Ю.Григоровича "Легенда о любви" состоялась (   Читать дальше...   )Жанр: Фильм-балетРежиссер: СССР, ЦТАктеры: Юрий Григорович, Евгений МачеретПеревод: ОтсутствуетПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2127BF8E4CAA67DD67DAF4B00B7C80D96AE0602
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 367354   (529054) от 27.07.2011
+
+Сборник видео клипов (2011) DVDRip-AVC / HDRip-AVC
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_529054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник видео клиповФормат: MKVПродолжительность: 03:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCBAC632A24630AD1C8260DD4BA2111A4D76699D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 368596   (528145) от 28.07.2011
+
+Lara Fabian - En Toute Intimite a l'Olympia (2003) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lara Fabian - это уже не просто имя - это знак качества. En toute intimite представляет собой живой альбом, состоящий из ее лучших песен и песен других знаменитых исполнителей.01. Intro Bambina
+02. J'y crois encore
+03. Comme ils disent
+04. Caruso(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A9BD7A24D2012C619E169918775FBD1815D2552
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052401   (528072) от 14.09.2016
+
+Максим Горький - Варвары (1953) DVDRip (2 части) (Малый театр)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Драматический фильм-спектакль по одноименной пьесе М. Горького.
+Спектакль полон событиями и действиями: на наших глазах строятся и распадаются любовные многоугольники, происходят жаркие объяснения в любви и ненависти, случаются ограбление, попытка убийства, разрывы мужей с жёнами и детей с отцами. В сонный провинциальный городок приезжают столичные инженеры, и обыватели (   Читать дальше...   )Производство: СССР, Киностудия им. М. ГорькогоЖанр: Фильм-спектакль, драма, экранизацияРежиссер: Леонид Луков, Константин ЗубовАктеры: Евдокия Турчанинова, Евгений Велихов, Елена Гоголева, Николай Анненков, Ксения Тарасова, Павел Оленев, Константин Зубов, Ирина Ликсо, Николай Шамин, Павла Богатыренко, Владимир Головин (II), Валентина Орлова, Александр Коротков, Аркадий Смирнов, Пётр Старковский (Староверкин), Валентина Темкина, Владимир Савельев (II), Владимир Вилль, Николай Сивов, Геннадий Сергеев, (   Читать дальше...   )Продолжительность: 2 х ~ 01:25:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5581648982D2E84FBAEDFF557BB1DBF9B2150255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1313111   (528037) от 07.07.2019
 
 Квартирник НТВ у Маргулиса. Андрей Макаревич и Евгений Маргулис (06.07.2019) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +260,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528037.jpg" />
 </div>
 
 
@@ -32,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527747.jpg" />
 </div>
 
 
@@ -61,7 +315,7 @@ Slipknot - Клипография [1999-2010, Nu Metal, DVDRip-AVC]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527353.jpg" />
 </div>
 
 
@@ -87,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526607.jpg" />
 </div>
 
 
@@ -113,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526579.jpg" />
 </div>
 
 
@@ -140,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526565.jpg" />
 </div>
 
 
@@ -167,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526523.jpg" />
 </div>
 
 
@@ -193,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_526499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_526499.jpg" />
 </div>
 
 
@@ -220,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526466.jpg" />
 </div>
 
 
@@ -246,7 +500,7 @@ Paul McCartney (The Beatles) & Wings - "Lightspeed" (2006) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_525983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525983.jpg" />
 </div>
 
 
@@ -272,7 +526,7 @@ DJ Bobo - The Magic Live Concert (1998) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525603.jpg" />
 </div>
 
 
@@ -301,7 +555,7 @@ Mylene Farmer - Mylenium Tour (2000) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525578.jpg" />
 </div>
 
 
@@ -330,7 +584,7 @@ Madonna: The Confessions Tour Live from London (2006) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525316.jpg" />
 </div>
 
 
@@ -359,7 +613,7 @@ Dr.Alban-41 клип (1990-2008) HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_525202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525202.jpg" />
 </div>
 
 
@@ -385,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524465.jpg" />
 </div>
 
 
@@ -411,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524200.jpg" />
 </div>
 
 
@@ -437,7 +691,7 @@ VA - Летний марафон № 182 / (Задорный Country Хит) (20
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523972.jpg" />
 </div>
 
 
@@ -451,259 +705,6 @@ VA - Летний марафон № 182 / (Задорный Country Хит) (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7ED72BF7C8115614AA1B0755D09FD008A0DD855
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927693   (523941) от 14.08.2015
-
-Alice Cooper - Live at Montreux (2005)  BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523941.jpg" />
-</div>
-
-
-###  Подробнее
-
-Живые выступления легендарного Элиса Купера всегда пропитаны духом рока и являют собой великолепное театральное действо. Одним из последних представлений «Великого и Ужасного» был живой концерт на известном фестивале в городе Монтре. В ходе этого шоу Элис исполнил все классические хиты группы, дополненные треками с последнего на тот момент альбома «Dirty Diamonds».01. Department Of Youth
-02. No More Mr. Nice Guy
-03. Dirty Diamonds
-04. Billion Dollar Babies(   Читать дальше...   )Жанр: RockПродолжительность: 01:33:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B84BB714DFFE21496E3E453740CEACB9F4A46ADB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 371184   (523911) от 04.08.2011
-
-Nazareth - Live in Minsk (2007) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Flight Tonight
-02. I Want To Do Everything For You
-03. Holiday
-04. Dream On(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:02:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47DABF0F45185796CF5C77696B7A64E0BCCDD754
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927737   (523896) от 14.08.2015
-
-Голубой огонек - "В первый час..." (1965) SATRip [H.264] [colourization]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523896.jpg" />
-</div>
-
-
-###  Подробнее
-
-В первый час нового 1966 года все советские граждане (у кого, конечно, был телевизор) смотрели праздничную программу с участием Павла Рудакова, Сергея Лаврова, Ларисы Мондрус, Татьяны Шмыги, Леонида Енгибарова, Аркадия Райкина, братьев Сазоновых, Иосифа Кобзона, Майи Кристалинской, Муслима Магомаева, вокального октета «Лайне» и эстрадного оркестра под управлением (   Читать дальше...   )01. Идет к нам Новый год (Т.Шмыга)
-02. Нас звезды ждут (Л.Мондрус)
-03. Милый мой фантазер (Л.Мондрус)
-04. Все равноты будешь мой (Октет "Лайне", эстр.орк.п/у Э.Рознера)(   Читать дальше...   )Производство: СССР, ГостелерадиофондЖанр: Фильм-концерт, телепередачаРежиссер: ЦТАктеры: Л. Мондрус, Т. Шмыга, Л. Енгибаров, А. Райкин, И. Кобзон, М. Магомаев, оркестр п/у Э. Рознер, Э. Хиль, квартет "Аккорд", Ю. Гагарин и др.Продолжительность: 01:08:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D897C3CC4B614F363E8008EF39551CFC724F0484
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 371426   (523830) от 04.08.2011
-
-Motley Crue - Lewd Crued And Tattooed (2000) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kickstart
-02. Same’ol Situation
-03. Primal Scream
-04. Punched In The Teeth By Love(   Читать дальше...   )Жанр: Концерт, Hard-rockПродолжительность: 01:16:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EBFA3D3FA699B5253295E3825EEABDBCB2970E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559665   (523383) от 26.06.2022
-
-Алые Паруса-2022. Выпускной бал в Санкт-Петербурге (2022) WEB-DL [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юбилейный, 30-й праздник выпускников «Алые паруса» вновь озаряет Петербург залпами салютов, провожающих вчерашних школьников в новую жизнь. Создатели всемирно известного события в этом году выбрали главной его темой вечные ценности, которые вдохновляют и дарят веру в будущее. Центральная часть празднования - запуск фейерверков и шествие брига «Россия». Выпускников (   Читать дальше...   )Телекомпания: 5 каналЖанр: ТВ-шоу, Реальное ТВ, КонцертПродолжительность: 03:07:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9877DE905FE0495538196C7297C7E24B0FF19989
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928048   (523212) от 15.08.2015
-
-The Rolling Stones - One More Shot Live (2012) DVDRip [H.264]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kонцерт The Rolling Stones в рамках тура в честь своего 50-летнего юбилея в   Newark Prudential Center NJ,  15 декабря 2012 года.01. Gorilla Intro (with Batala Drummers)
-02. Get Off of My Cloud
-03. The Last Time
-04 It’s Only Rock 'N' Roll (But I Like It)(   Читать дальше...   )Жанр: RockПродолжительность: 02:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28FA932D9806B66C18799C726D29176CCE868A8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928538   (521782) от 17.08.2015
-
-Элвис в фильмах 50-х / Elvis in the Movies the 50's (2005) DVDRip [H.264] [hand made colored]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеонарезка музыкальных фрагментов из художественных фильмов с участием Элвиса Пресли.
-Фильмы:Производство: СШАЖанр: МузыкальныйАктеры: Элвис ПреслиПеревод: ОтсутствуетПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E478008511FD862B53BC9140F5DD865C7FA793FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533875   (521598) от 12.08.2012
-
-Я, Фейербах (1993) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старый актер Фейербах (Зиновий Гердт) приходит в театр на прослушивание, но вместо пригласившего его режиссера застает там скучающего ассистента (Владислав Демченко). Такое бестактное отношение к себе, оскорбляет актера. Он уходит, но через некоторое время возвращается, чтобы дождаться режиссера ... Пронзительная, трагическая история старого актера, его интриги, надежды на величие и понимание несбыточности надежд ... Фильм-спектакль по пьесе Танкред Дорст (при участии Урсулы Элер).Жанр: ДрамаРежиссер: Валерий ФокинАктеры: Зиновий Гердт, Владислав Демченко, Лидия Сергеева, Рома ТрофимовПродолжительность: 01:25:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6466B239D22B20808AE23061843A524B5D3FD656
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241278   (520958) от 16.08.2018
-
-Сборник клипов - Promo Only Hair Bands from ALEXnROCK 2 (2006) WEBRip [H.264/720p-LQ] [hand made 'реставрация']
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520958.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошел самый добротный хард рок 80х. Это единственный лицензионный сборник выпущенный на двд, достойного содержания в котором почти ничего не нужно менять. Сборник состоит из 4х частей. Это 2я. Сделал легкий ремастеринг видео, звук не трогал. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00 Intro
-01 Ozzy Osbourne - Crazy Train
-02 Motley Crue - Smokin' In The Boys Room
-03 Judas Priest - Living After Midnight(   Читать дальше...   )Жанр: RockПродолжительность: 02:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:673272A393D00013BE3C126C0C1EBB5A870816BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

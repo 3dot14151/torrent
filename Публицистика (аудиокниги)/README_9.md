@@ -1,3 +1,58 @@
+###  Публикация: 1330733   (338687) от 11.10.2019
+
+Джон Мэддокс Робертс, Одд Арне Уэстад | Мировая история (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эпохальный труд знаменитых английских ученых представляет собой не только настоящий кладезь сведений и бесчисленных фактов на основе огромной источниковедческой базы. Принципиальная новизна авторской концепции в том, что из тьмы этих фактов и событий особо выделены ключевые, наиболее значимые, поворотные моменты истории человечества от самого его зарождения до настоящего (   Читать дальше...   )Жанр: История, научная литератураПродолжительность: 84:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FDE23B7A402D7FB469878813780D73B0BA65CCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330937   (334662) от 13.10.2019
+
+Хантер Томпсон | Лучше, чем секс (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мог ли «великий и ужасный» Хантер Томпсон повторить успех своего легендарного «Страха и отвращения в Лас-Вегасе»? Как оказалось – мог. Перед вами – «Лучше, чем секс».
+Книга – скандал, книга – сенсация.
+Книга, в которой Томпсон, с присущим ему умением называет вещи своими именами, раскрывает тайны большой политики.
+Как стать президентом?(   Читать дальше...   )Жанр: ПублицистикаПродолжительность: 08:26:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DA6D58B1AAFFBC72D1F8DE1ABFCB266C935D3AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331083   (334542) от 13.10.2019
 
 Евгений Сатановский | Записные книжки дурака (2018) [MP3]
@@ -6,7 +61,7 @@
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334542.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329766.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328804.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322999.jpg" />
 </div>
 
 
@@ -112,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322996.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320741.jpg" />
 </div>
 
 
@@ -164,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320578.jpg" />
 </div>
 
 
@@ -190,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319445.jpg" />
 </div>
 
 
@@ -216,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318344.jpg" />
 </div>
 
 
@@ -242,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315793.jpg" />
 </div>
 
 
@@ -268,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313654.jpg" />
 </div>
 
 
@@ -294,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313312.jpg" />
 </div>
 
 
@@ -323,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313062.jpg" />
 </div>
 
 
@@ -349,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304301.jpg" />
 </div>
 
 
@@ -375,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304081.jpg" />
 </div>
 
 
@@ -401,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297614.jpg" />
 </div>
 
 
@@ -427,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296666.jpg" />
 </div>
 
 
@@ -453,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294822.jpg" />
 </div>
 
 
@@ -479,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294084.jpg" />
 </div>
 
 
@@ -505,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286100.jpg" />
 </div>
 
 
@@ -531,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285016.jpg" />
 </div>
 
 
@@ -557,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284265.jpg" />
 </div>
 
 
@@ -583,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274379.jpg" />
 </div>
 
 
@@ -609,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272436.jpg" />
 </div>
 
 
@@ -622,61 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3B35C1B76630F142B34EB4CBECF2AEBB6EC9413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188881   (271972) от 04.12.2017
-
-Михаил Зыгарь | Империя должна умереть (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Революции не происходят неожиданно, империи не гибнут ни с того ни с сего. Главный урок, который мы можем вынести из революции 1917 года, – понимание того, почему император и его окружение в обстановке, которая требовала кардинальных внутренних реформ, не только на эти реформы не решились, но, наоборот, всеми силами пытались повернуть развитие страны вспять, усиливая (   Читать дальше...   )Жанр: ПублицистикаПродолжительность: 17:22:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:692B4382785835E6F6BCC1EFCDC4D759E59143BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338048   (270519) от 14.11.2019
-
-Сергей Александрович Непушкин. | "Русские немцы" и "Троянский конь" Гитлера западные "фольксдойче" разные понятия. (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270519.jpg" />
-</div>
-
-
-###  Подробнее
-
-В очерке автор расставляет акценты и показывает в чём огромная разница между этими двумя терминами.
-
-На постере
-Слева:(   Читать дальше...   )Жанр: публицистикаЯзык озвучки: русскийПродолжительность: 00:20:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:894CD7A5C20570ABE2F9B12EA216A5ACC0CAD780
 ```
 
 https://mybot314.ru/tekegram_catalog/

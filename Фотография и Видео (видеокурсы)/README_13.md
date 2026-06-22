@@ -6,7 +6,7 @@ Ultimate Photo Course | The Ultimate Wildlife Photography Bundle (2021) PCRec [A
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588876.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kelly Brown | Newborn Poses Bundle (2020) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588873.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Nate Photographic, Nate Johnson | Lightroom Mastery Bundle (2008) PCRec [AD] [EN
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588848.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Arno de Bruijn | Online Workshop Off-Camera Flash + MagMod (2022) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588454.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587825.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586089.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Profileschool | Фотография. Базовый уровень (2014) PCRec
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585161.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Profileschool | Фотография. Продвинутый уровень (201
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583223.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Corey Barker | KelbyTraining - Photoshop CS5 Down and Dirty Tricks [2010] DVDRip
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579653.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573886.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Profileschool | Мастер-класс - Предметная ретушь (201
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566497.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ SLR Lounge | Photographing the Bride & Groom Bundle (2016) WEB-DL [AD] [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563083.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560303.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557630.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Motion Design School, Ihor Karas | Logo Animation in After Effects (2020) WEB-DL
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556859.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553387.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552573.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550851.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545216.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540168.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ SLR Lounge | Lighting Bundle Vol. 1-4 (2021) WEB-DL [AD] [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539053.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538349.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538313.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Amlab | Все курсы от Amlab (2019) PCRec
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531331.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Dylan Patrick | Кинематографичные хедшоты / The Cinemati
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524757.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Mike Kelley | Где искусство встречается с архитек
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523854.jpg" />
 </div>
 
 

@@ -1,3 +1,114 @@
+###  Публикация: 1328045   (368014) от 28.09.2019
+
+Александр Безликий | Война света и тьмы (2019) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Некромант, гонимый объединенной армией света. Нет покоя. Окружающие NPC только и ждут, когда он расслабится, чтобы напасть. Драгонлэнд — новая ММО-игра для капсул виртуальной реальности, в которую Дмитрия угораздило попасть, подписав договор с игровой компанией. Все на самом деле так плохо? Или же нет?
+
+Драгонлэнд - 1Жанр: Фантастика, Фэнтези, ЛитРПГФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9387197B3B60121A0F647C2105FCC5B866851636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327954   (367882) от 28.09.2019
+
+Константин Стоминин | Нуб из Другого Мира (2019) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всем нам знакомы истории о невольных путешественниках во времени, случайных попаданцах в другие миры или вселенные. Мы привыкли к мысли о том, что человек легко может оказаться в незнакомом ему Эльфийском Лесу или же на некой платформе Комплекса Юпитер-4 через сто лет после ядерной войны. Отчасти мы сами знаем план действий в такой ситуации, ведь многие авторы любезно (   Читать дальше...   )Жанр: Фантастика, Фэнтези, ЛитРПГФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62C843AA66E6AC222151C479895845EEA10249C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327947   (367862) от 28.09.2019
+
+Владимир Кощеев | Ультиматум (2019) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда все, что у тебя осталось – лишь ты сам и вера в собственные силы, самое время, чтобы ввязаться в войну на далекой изолированной Тау Маре.
+Но если ты не на стороне объединившихся мутантов, не поддерживаешь разрозненных людей и не стремишься вернуться в лоно прилетевшей корпорации, настало время поставить свой Ультиматум.
+
+Тау Мара - 3(   Читать дальше...   )Жанр: Фантастика, Фэнтези, Боевая фантастика, ПостапокалипсисФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:470CCFDA3E2082D521967F8507D519128038DBA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327943   (367740) от 28.09.2019
+
+Владимир Кощеев | Некромант из криокамеры 2 (2019) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Позади гонка пантеонов, битва за Карнат и будущее воинов Смерти. Сегодня – забота о завоеванном городе и дорогих мне людях. На горизонте маячит возможность сесть на первый корабль, идущий к Архипелагу Вульфа.
+Мир трещит по швам. Варвары нападают с севера. Светлые на востоке поднимают головы, становясь под знамена принца Империи.
+Я – Макс Повелитель Мертвых. И я готов (   Читать дальше...   )Жанр: Фантастика, Фэнтези, Стимпанк, ЛитРПГФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FBC302F8D71D16257F018EC9C4CE5895AF745A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327945   (367718) от 28.09.2019
 
 Владимир Кощеев | Некромант из криокамеры 3 (2019) [FB2]
@@ -6,7 +117,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367718.jpg" />
 </div>
 
 
@@ -32,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367508.jpg" />
 </div>
 
 
@@ -58,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367420.jpg" />
 </div>
 
 
@@ -84,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367258.jpg" />
 </div>
 
 
@@ -110,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_366964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_366964.jpg" />
 </div>
 
 
@@ -136,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366554.jpg" />
 </div>
 
 
@@ -163,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365876.jpg" />
 </div>
 
 
@@ -191,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365544.jpg" />
 </div>
 
 
@@ -220,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365535.jpg" />
 </div>
 
 
@@ -249,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365015.jpg" />
 </div>
 
 
@@ -277,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364000.jpg" />
 </div>
 
 
@@ -303,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363559.jpg" />
 </div>
 
 
@@ -329,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363347.jpg" />
 </div>
 
 
@@ -355,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363060.jpg" />
 </div>
 
 
@@ -383,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362727.jpg" />
 </div>
 
 
@@ -409,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362588.jpg" />
 </div>
 
 
@@ -435,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362071.jpg" />
 </div>
 
 
@@ -463,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361635.jpg" />
 </div>
 
 
@@ -489,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360859.jpg" />
 </div>
 
 
@@ -515,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360857.jpg" />
 </div>
 
 
@@ -543,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360847.jpg" />
 </div>
 
 
@@ -572,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360546.jpg" />
 </div>
 
 
@@ -585,115 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36C4EA93D292814EC8033153FD4354EB162338F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416602   (360388) от 19.10.2020
-
-Хулия Наварро | Глиняная Библия (2007) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ирак накануне американского вторжения. Группа археологов занята поисками глиняных табличек с самым ранним изложением текстов Книги Бытия, предположительно продиктованных праотцом Авраамом.
-Лагерь ученых становится местом столкновения различных интересов. Крупные дельцы – торговцы раритетами – во что бы то ни стало хотят заполучить уникальную находку. Здесь же, в (   Читать дальше...   )Жанр: Детектив, ТриллерФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EC2362B6F4D965D552E003843265C903378D9F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417119   (360252) от 19.10.2020
-
-Марк Оскобин | Гримуар Геймера (2020) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готовился зубрить конспекты, а нашёл книгу, превращающую реальность в игровое поле. Сессия перестала быть томной.
-Ожидал града плюшек? Получи игру на выживание и пятнадцать заданий без права на ошибку. Помни — на этом экзамене нет пересдачи.
-РеалРПГ + иные измерения. На центральном плане не прокачка характеристик, а выполнение заданий.
-(   Читать дальше...   )Жанр: Фантастика, Фэнтези, ЛитРПГФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00F4DC1EB9C3F10C316ED51C65B6F78FBA5C26B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416600   (360240) от 19.10.2020
-
-Хулия Наварро | Стреляй, я уже мертв (2016) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывают в жизни мгновения, когда единственный способ спастись — это умереть или убить.
-В конце XIX века, на последнем этапе царизма в России, семье Цукеров, преследуемой за иудейскую веру, приходится бежать из страны, от кошмара и несправедливости. Прибыв на Землю Обетованную, Самуэль Цукер приобретает землю у арабской семьи Зиядов, возглавляемой Ахмедом. Между ним (   Читать дальше...   )Жанр: Историческая проза, Исторические приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB3370FE39262BAD221A51DAA7CABFCB348DAC91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416604   (360228) от 19.10.2020
-
-Карен Мейтленд | Убить сову (2017) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Блистательный новый роман автора «Компании лжецов», названного «жемчужиной средневековой мистики» и «атмосферной историей предательства и чуда», история деревни, ставшей полем битвы, и кучки храбрых женщин, восставших против зла, незабываемая бурная смесь ярости, похоти и тайн.Жанр: Историческая проза, Мистика, ТриллерФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A78AAFE7B3E8EDF04D32407BB783144271C1BC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

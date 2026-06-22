@@ -6,7 +6,7 @@ NEMOPHILA - 5th Anniversary. JIGOKU NO YURUFUWA LIVE at NIPPON BUDOKAN (2024) BD
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6645.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Whitney Houston - Концерт в Южной Африке / Whitney Houston - 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5569.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5013.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3939.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2760.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1665.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_287.jpg" />
 </div>
 
 

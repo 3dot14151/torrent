@@ -1,3 +1,84 @@
+###  Публикация: 1621928   (244873) от 26.03.2023
+
+Altair SimSolid 2022.2.1 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244873.jpg" />
+</div>
+
+
+###  Подробнее
+
+SIMSOLID – разработка одноименной американской компании SIMSOLID Corporation, программный продукт, разработанный специально для инженеров-конструкторов, который позволяет проводить прочностной анализ деталей со сложной геометрией и крупных сборок.
+
+Главное преимущество SIMSOLID – автоматизированное упрощение сложной геометрии и автоматическая генерация КЭ-сетки. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA73910372AC8BB2C6BC91953916B5B1C960F28F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621913   (244817) от 26.03.2023
+
+Altair Flux & FluxMotor 2022.2.0 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Altair Flux- программный продукт для электромагнитного и термодинамического низкочастотного анализа.
+Altair FluxMotor — автономная программа ориентированная на предварительное проектирование электрических двигателей.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:704C365520BFF3E94C9B77F51C97FC0999577104
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621717   (244740) от 25.03.2023
+
+Altair Activate 2022.2.1 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Altair Activate позволяет конструкторам моделировать и оптимизировать мультидисциплинарные системы. Использование различных оптимизационных моделей обеспечивают выполнение всех поставленных конструкторских требований и выявление проблем на ранней стадии проектирования.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08EFB7D43D9299D9387057F694BD9B78B6EBEFE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630959   (236468) от 03.05.2023
 
 Altair SimLab 2022.3 [En]
@@ -6,7 +87,7 @@ Altair SimLab 2022.3 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236468.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ Keysight EMPro 2023 Update 0.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231260.jpg" />
 </div>
 
 
@@ -61,7 +142,7 @@ Geomagic Control X 2020.1.1 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230450.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Gstarsoft GstarCAD 2016 Build 151116 (x64) [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219587.jpg" />
 </div>
 
 
@@ -113,7 +194,7 @@ CSoft WiseImage Pro Standalone 22.0.1741 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214346.jpg" />
 </div>
 
 
@@ -139,7 +220,7 @@ Cabinet Vision 2021.1.0.571 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211397.jpg" />
 </div>
 
 
@@ -165,7 +246,7 @@ Infolytica MagNet 7.4.1.4 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209671.jpg" />
 </div>
 
 
@@ -191,7 +272,7 @@ Siemens HyperLynx VX2.10 Build 19246144 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208636.jpg" />
 </div>
 
 
@@ -219,7 +300,7 @@ Avia Systems - Scan2CAD 10.4.16 Repack by F4CG [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207900.jpg" />
 </div>
 
 
@@ -246,7 +327,7 @@ Keysight Genesys 2023 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207219.jpg" />
 </div>
 
 
@@ -274,7 +355,7 @@ Mentor Graphics ModelSim 2020.4 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206264.jpg" />
 </div>
 
 
@@ -300,7 +381,7 @@ Mentor Graphics QuestaSim 2021.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206189.jpg" />
 </div>
 
 
@@ -326,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202189.jpg" />
 </div>
 
 
@@ -352,7 +433,7 @@ CADopia Pro 22 v.21.2.1.3514 (x64) [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201603.jpg" />
 </div>
 
 
@@ -378,7 +459,7 @@ LeoCAD 23.03 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201035.jpg" />
 </div>
 
 
@@ -406,7 +487,7 @@ AWR Design Environment 17.02R Build 17492 Rev2 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200711.jpg" />
 </div>
 
 
@@ -432,7 +513,7 @@ Pulsonix 10.5 build 7883 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200707.jpg" />
 </div>
 
 
@@ -458,7 +539,7 @@ Altium CircuitStudio 1.1.0 build 44421 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200672.jpg" />
 </div>
 
 
@@ -484,7 +565,7 @@ NI Circuit Design Suite 14.3 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200639.jpg" />
 </div>
 
 
@@ -511,7 +592,7 @@ Micro-Cap 12.2.0.5 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200496.jpg" />
 </div>
 
 
@@ -537,7 +618,7 @@ SIMetrix/SIMPLIS 8.40 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200390.jpg" />
 </div>
 
 
@@ -564,7 +645,7 @@ Simulia Abaqus 6.13-1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200380.jpg" />
 </div>
 
 
@@ -590,7 +671,7 @@ OrCAD Capture PSpice Lite 17.2 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200273.jpg" />
 </div>
 
 
@@ -601,87 +682,6 @@ OrCAD Capture PSpice Lite 17.2 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:924DBE1716A8A152B747CFA456FA217679D5B8C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633479   (198385) от 15.05.2023
-
-VectorWorks Design Suite 2023 SP4 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Созданный на базе Vectorworks Fundamentals, Designer обладает всеми возможностями проектирования и BIM-технологий Vectorworks Architect, Landmark и Spotlight. Это самый экономичный способ получить весь набор технологий Vectorworks в одном, простом в использовании программном интерфейсе.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9205994DF69D3C1E24811E56FEE3DD2F3968F541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645679   (195924) от 10.07.2023
-
-IronCAD 2023 v25.0 Product Update 1 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195924.jpg" />
-</div>
-
-
-###  Подробнее
-
-IRONCAD - это доступное и мощное программное обеспечение для работы в среде 2D CAD с простым в освоении пользовательским интерфейсом и уникальными возможностями интеграции с 3D. С помощью IRONCAD можно анализировать, использовать, визуализировать и ссылаться на 3D-модели, созданные заказчиками и коллегами, работая при этом в среде 2D CAD с привычным пользовательским (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24689352129627531505B29BB71BD778A575949C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647003   (195595) от 16.07.2023
-
-Autodesk DWG TrueView 2024 (x64) [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Autodesk DWG TrueView - удобная программа для просмотра файлов DWG и DXF-формата, которые чаще всего используются в CAD-приложениях.
-
-Выбранные проекты отражаются в 3D-режиме, c возможность их конвертации. Присутствует возможность масштабирования и управления слоями, а также измерения объема, площади, радиуса углов и прочих параметров модели.
-(   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D60DDB3AEBFCBEC9B3457B126DE05893453EF0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

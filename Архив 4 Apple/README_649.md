@@ -1,3 +1,57 @@
+###  Публикация: 1271818   (147481) от 25.12.2018
+
+MacFamilyTree 8 v8.3.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147481.jpg" />
+</div>
+
+
+###  Подробнее
+
+MacFamilyTree 8 поможет вам запечатлеть историю своей семьи и превратит данные и факты в отчёты и впечатляющие графики.
+
+MacFamilyTree 8 предлагает множество вариантов захвата и визуализации истории вашей семьи. Теперь от того, как вы хотите проиллюстрировать свои семейные отношения - MacFamilyTree 8 найдёт правильное решение, предлагая различные типы отчётов, диаграмм (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: декабрь 2018Разработчик: Synium Software GmbHПоддерживаемая ОС: macOS 10.10.0+Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1480AA8C4BF4C60B51BDF19E00256AD388C602B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588757   (147459) от 15.12.2012
+
+Modern Combat 4: Zero Hour [4.3+jailbreak]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучший шутер от первого лица возвращается на мобильные девайсы с новой историей! В результате ядерной катастрофы, единственный шанс избежать глобальных разрушений падает на небольшой взвод элитных солдат, которые должны спасти мир от лидеров террористической группы.Тип издания: ЛицензияЖанр: Шутер от первого лицаЯзык интерфейса: Мультиязычный (Русский присутствует)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271689   (147444) от 25.12.2018
 
 Pixelmator 3.8 [En]
@@ -6,7 +60,7 @@ Pixelmator 3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147444.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ AnyTrans for Android 6.4.1 (build 20181220 ) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147437.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ Downie 4 v.4.6.34 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147348.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ Topaz Photo AI for Mac 2.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147339.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ Geekbench 5 v5.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147331.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ TG Pro (Temperature Gauge Pro) 2.64 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147329.jpg" />
 </div>
 
 
@@ -168,7 +222,7 @@ DxO PhotoLab 7 ELITE Edition 7.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147327.jpg" />
 </div>
 
 
@@ -195,7 +249,7 @@ Movavi PDF Editor 3.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147317.jpg" />
 </div>
 
 
@@ -221,7 +275,7 @@ ForkLift 4 v.4.0.5 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147313.jpg" />
 </div>
 
 
@@ -247,7 +301,7 @@ UniConverter 11.6.2.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147225.jpg" />
 </div>
 
 
@@ -275,7 +329,7 @@ BetterDisplay Pro for Mac 2.0.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147207.jpg" />
 </div>
 
 
@@ -301,7 +355,7 @@ Colibri 2.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147127.jpg" />
 </div>
 
 
@@ -328,7 +382,7 @@ Beyond Compare 4 v4.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147102.jpg" />
 </div>
 
 
@@ -355,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146972.jpg" />
 </div>
 
 
@@ -383,7 +437,7 @@ URL Manager Pro 4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146860.jpg" />
 </div>
 
 
@@ -412,7 +466,7 @@ Multitouch 1.21.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146835.jpg" />
 </div>
 
 
@@ -438,7 +492,7 @@ Smooze 1.9.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146829.jpg" />
 </div>
 
 
@@ -464,7 +518,7 @@ Magnet - Snap windows into various sizes and positions 1.10.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146615.jpg" />
 </div>
 
 
@@ -490,7 +544,7 @@ Cisdem Document Reader 4 v4.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146479.jpg" />
 </div>
 
 
@@ -516,7 +570,7 @@ GrandTotal 6 v6.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146469.jpg" />
 </div>
 
 
@@ -544,7 +598,7 @@ iNotepad Pro 4.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146461.jpg" />
 </div>
 
 
@@ -570,7 +624,7 @@ Timemator 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146451.jpg" />
 </div>
 
 
@@ -596,7 +650,7 @@ iA Writer 5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146444.jpg" />
 </div>
 
 
@@ -622,7 +676,7 @@ Davinci Resolve Studio 18.6.3 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146434.jpg" />
 </div>
 
 
@@ -635,61 +689,6 @@ Davinci Resolve Studio 18.6.3 [Multi/Rus]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A354DE843D77DCF65C895C44AFEE9EC763E13BD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348156   (146423) от 26.12.2019
-
-InstaCal 1.9.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146423.jpg" />
-</div>
-
-
-###  Подробнее
-
-InstaCal - это недостающий календарь меню, которого заслуживает macOS.
-InstaCal - это доступное и в то же время мощное приложение для работы с календарем, которое всегда под рукой, и всегда доступно в строке меню вашего Mac. InstaCal быстрый и удобный, и может быть открыт в любое время с помощью настраиваемого сочетания клавиш. Оттуда вы можете просматривать события (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Higher Bar, LLCПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEC3894C1C0552C2201D43F5D11AEC30884E066A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348141   (146382) от 26.12.2019
-
-WindowSwitcher 1.26 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146382.jpg" />
-</div>
-
-
-###  Подробнее
-
-WindowSwitcher - позволяет Вам быстро находить и переключаться между открытыми окнами приложения (все окна, только активные окна, активные окна приложения) и управлять позицией окон на экране, например, прямо из списка окон, помещать окно Safari слева и окно Pages справа, таким образом, удобно искать и аннотировать информацию в Интернете.
-
-Переключение между окнами (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2019Разработчик: MacPlus SoftwareПоддерживаемая ОС: macOS 10.12 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF7252B0938413DC345DB97578F09F5C20D862B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

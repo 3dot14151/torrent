@@ -1,3 +1,30 @@
+###  Публикация: 1394300   (764277) от 04.07.2020
+
+OpenMediaVault (Usul) 5.3.9 [amd64] 1 CDxCD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Openmediavault это сетевое хранилище следующего поколения (NAS), решение основанное на Debian Linux. Он содержит службы, такие как SSH, (S) FTP, SMB / CIFS, Rsync, BitTorrent клиент и многое другое. Благодаря модульной конструкции он может быть расширен с помощью плагинов.
+OpenMediaVault в первую очередь предназначен для использования в домашних условиях или небольших (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D9B4520BBBD44BEA7F7EC0633547FD6E155D239
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394413   (764212) от 04.07.2020
 
 pfSense Community Edition 2.4.5p1 [amd64] 1xCD, 3xIMG
@@ -6,7 +33,7 @@ pfSense Community Edition 2.4.5p1 [amd64] 1xCD, 3xIMG
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764212.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ OPNSense 17.1.4-OpenSSL [i386, amd64] 2xCD, 6xIMG
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764151.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ Proxmox VE 5.1 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757774.jpg" />
 </div>
 
 
@@ -88,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733303.jpg" />
 </div>
 
 
@@ -115,7 +142,7 @@ Openfiler 2.99.1 + 2.99.2 [x86_64] 2xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666993.jpg" />
 </div>
 
 
@@ -142,7 +169,7 @@ Rescatux 0.41b1 [i386, i486, x86-64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664036.jpg" />
 </div>
 
 
@@ -170,7 +197,7 @@ Rockstor 3.9.1 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655436.jpg" />
 </div>
 
 
@@ -198,7 +225,7 @@ FreeNAS 11.1-U4 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655372.jpg" />
 </div>
 
 
@@ -224,7 +251,7 @@ Parted Magic 2019.03.17 [i686/amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652088.jpg" />
 </div>
 
 
@@ -250,7 +277,7 @@ Parted Magic 2017.06.12 [i686/amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642258.jpg" />
 </div>
 
 
@@ -276,7 +303,7 @@ Parted Magic 2016.07.12 [i686/amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622285.jpg" />
 </div>
 
 
@@ -302,7 +329,7 @@ Proxmox VE 5.0 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603807.jpg" />
 </div>
 
 
@@ -331,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599473.jpg" />
 </div>
 
 
@@ -359,7 +386,7 @@ MikroTik RouterOS 5.26 [x86] 5.26 Level 6 [x86] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578554.jpg" />
 </div>
 
 
@@ -385,7 +412,7 @@ Parted Magic 2019.05.30 [i686/amd64] 1xDVD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555731.jpg" />
 </div>
 
 
@@ -411,7 +438,7 @@ Parted Magic 2018.08.06 [i686/amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534602.jpg" />
 </div>
 
 
@@ -437,7 +464,7 @@ NAS4Free 9.3.0.2.1681 (Nayla) [amd64, i386] 2xCD, 4xIMG
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531024.jpg" />
 </div>
 
 
@@ -458,6 +485,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927191   (529329) от 12.08.2015
+
+OpenMediaVault 2.1 [x86+x64] 2xCD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_529329.jpg" />
+</div>
+
+
+###  Подробнее
+
+OpenMediaVault это сетевое хранилище следующего поколения (NAS), решение основанное на Debian Linux. Он содержит услуги, такие как SSH, (S) FTP, SMB / CIFS, DAAP медиа-сервер, Rsync, BitTorrent клиент и многое другое. Благодаря модульной конструкции он может быть расширен с помощью плагинов.
+OpenMediaVault в первую очередь предназначен для использования в домашних (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2879076159C34F979C311E656CACF26DBCC95EDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927758   (523818) от 14.08.2015
 
 Parted Magic 2015_08_12 [i686,amd64] 1xCD
@@ -466,7 +520,7 @@ Parted Magic 2015_08_12 [i686,amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523818.jpg" />
 </div>
 
 
@@ -492,7 +546,7 @@ NAS4Free 10.2.0.2.1778 (Prester) [amd64, i386] 2xCD, 4xIMG
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520199.jpg" />
 </div>
 
 
@@ -521,7 +575,7 @@ FreeNAS 8.2.0 [x86, x64] (2xCD)
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492820.jpg" />
 </div>
 
 
@@ -549,7 +603,7 @@ Proxmox VE 4.3 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472503.jpg" />
 </div>
 
 
@@ -577,7 +631,7 @@ SystemRescueCD 6.1.8 [x86/x64] 2xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453166.jpg" />
 </div>
 
 
@@ -603,7 +657,7 @@ Parted Magic 2015_09_29 [i686, amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453094.jpg" />
 </div>
 
 
@@ -629,7 +683,7 @@ XigmaNAS 12.0.0.4.6766 [amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433227.jpg" />
 </div>
 
 
@@ -642,60 +696,6 @@ XigmaNAS — свободная операционная система для �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C17CE0087EB8A4C859367BAF72EBDA44C266A13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324101   (418132) от 12.09.2019
-
-Parted Magic 2019.09.03 [i686/amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Parted Magic — готовое решение для работы с разделами жесткого диска на базе загрузочного LiveCD. Дистрибутив включает полноценную операционную систему. Последняя, в свою очередь, кроме управления разделами, может также производить настройку установленной системы, работать с сетью интернет, а также производить любые операции с данными (удаление, восстановление, перенос (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65EF8FF83787C2EA979409702F68AFD586D09063
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413184   (409331) от 03.10.2020
-
-OPNSense 20.7-OpenSSL 20.7 [amd64] 1xCD, 3xIMG
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект OPNsense - форк дистрибутива для создания межсетевых экранов pfSense.
-
-OPNsense is an open source, easy-to-use and easy-to-build FreeBSD based firewall and routing platform. OPNsense includes most of the features available in expensive commercial firewalls, and more in many cases. It brings the rich feature set of commercial offerings with the benefits of (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAAE2F72B6BA81F0AC1A22FF0839E38DCA00C908
 ```
 
 https://mybot314.ru/tekegram_catalog/

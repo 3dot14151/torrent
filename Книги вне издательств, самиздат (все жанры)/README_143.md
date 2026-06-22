@@ -1,3 +1,110 @@
+###  Публикация: 1807137   (11179) от 17.07.2025
+
+Екатерина Першина (авт.-сост.) | Чтобы лето не кончалось. Сборник летней выпечки (2023) [PDF]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лето - прекрасная пора, наполненная солнечными днями и уютными вечерами у костра, запахом скошенной травы и бодрящей свежестью реки. Ну и, конечно же, лето ассоциируется у всех с урожаем!
+В своём сборнике я собрала 15 разнообразных, простых и универсальных рецепта сладкой выпечки. Для каждого рецепта можно использовать различные фрукты и ягоды, благодаря чему 15 (   Читать дальше...   )Жанр: кулинария, кондитерские изделия, выпечкаИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:323D1B367888F1CD4B86F9DBC9C7A4FD7A5EA9BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802088   (11023) от 19.07.2025
+
+Марцин Подлевский | Цикл "Глубина": Прыгун, Возвращение, Натиск, Бесконечность [4 книги] (2020-2025) [EPUB]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в новое измерение постапокалипсиса. Это Выжженная Галактика – Млечный путь, который много лет назад был разрушен серией чудовищных войн. Это космос, в котором люди выживают в остатках погасших систем, искусственный интеллект вызывает страх, а представители иного разума, изгнанные в дальние пределы космоса, стали героями пугающих легенд. Это вселенная (   Читать дальше...   )Жанр: Фантастика, космоопераПеревод: Кирилл Плешков ("Прыгун"), остальные 3 книги — pop4tuneИздательство: РазличныеФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9918D8F6DCA0D303026F8E218241C4C4E87CA3C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807788   (10958) от 20.07.2025
+
+Д. Васильева | Промтинг с нуля. Как научиться говорить с нейросетями и решать любые задачи с помощью ИИ (2025) [PDF, EPUB]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга — практическое руководство по работе с нейросетями. Здесь вы узнаете, как устроен искусственный интеллект, что такое промтинг и как правильно формулировать запросы, чтобы получать точные, полезные и мощные результаты от ИИ.
+Без теории и заумных слов — только практика, шаблоны, реальные примеры и пошаговые инструкции. Научитесь создавать тексты, генерировать (   Читать дальше...   )Жанр: искусственный интеллект, нейронные сетиИздательство: СамиздатФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A750AB4969A295BD8CE16A0CC2966CF2C9AD1B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807778   (10879) от 20.07.2025
+
+Андрей Миллиардов | Навыки коммуникации (2025) [FB2, DOCX]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Навыки коммуникации. Как быть понятным и убедительным» – это глубокое и практическое руководство для тех, кто хочет говорить ясно, влиять через слова и выстраивать настоящие связи с людьми.
+Здесь раскрываются психологические, лингвистические и поведенческие аспекты общения – от уверенной самопрезентации до конструктивных переговоров, от силы активного слушания (   Читать дальше...   )Жанр: психология общения, самосовершенствованиеИздательство: СамиздатФормат: FB2, DOCXКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:154C07E7156BEE562D80C2E38C295A42DB7BF705
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808721   (10309) от 26.07.2025
 
 Евгений Гарцевич | Цикл "Отмороженный" [14 книг] (2023-2025) [FB2]
@@ -6,7 +113,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10309.jpg" />
 </div>
 
 
@@ -35,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10279.jpg" />
 </div>
 
 
@@ -61,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10009.jpg" />
 </div>
 
 
@@ -90,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9972.jpg" />
 </div>
 
 
@@ -116,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9906.jpg" />
 </div>
 
 
@@ -142,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9893.jpg" />
 </div>
 
 
@@ -171,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9806.jpg" />
 </div>
 
 
@@ -199,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9790.jpg" />
 </div>
 
 
@@ -226,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9449.jpg" />
 </div>
 
 
@@ -252,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9334.jpg" />
 </div>
 
 
@@ -281,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8277.jpg" />
 </div>
 
 
@@ -308,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8190.jpg" />
 </div>
 
 
@@ -335,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7542.jpg" />
 </div>
 
 
@@ -361,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7360.jpg" />
 </div>
 
 
@@ -387,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7276.jpg" />
 </div>
 
 
@@ -413,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7152.jpg" />
 </div>
 
 
@@ -442,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7131.jpg" />
 </div>
 
 
@@ -471,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6652.jpg" />
 </div>
 
 
@@ -497,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6297.jpg" />
 </div>
 
 
@@ -523,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6271.jpg" />
 </div>
 
 
@@ -549,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6216.jpg" />
 </div>
 
 
@@ -578,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6205.jpg" />
 </div>
 
 
@@ -589,119 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4DF82A28700A28FC5879346759BADC0CF0183FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771565   (6199) от 24.08.2025
-
-Саша Токсик, Яростный Мики | Цикл "Лорд Системы" [25 книг] (2023-2025) [FB2] (Обновляемая)
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Планета Земля сгорела в ядерном огне.
-Но мудрая и добрая Система перенесла всех людишек в новый мир.
-Каждого наградили новым именем, стартовым бонусом и бодрящим пинком под зад.
-Кто-то получил меч, кто-то корону, а я...(   Читать дальше...   )Жанр: РеалРПГ, Боевое фэнтези, Попаданцы в магические мирыИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3022687D40910A174D42919F6FE565E6134937E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814434   (6133) от 24.08.2025
-
-Кутрис | Цикл "Фракиец" [3 книги] (2023-2025) [FB2] [Обновляемая]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Античность, первый век до нашей эры, и в эти древние времена на Землю приходит Система Древней Игры, что наделяет некоторых "счастливчиков" невероятными способностями, которые раньше были присущи только богам и героям из легенд и мифов.
-Главный герой оказывается ввергнут в захватывающие и опасные приключения,
-как на земле, так и в других мирах.
-(   Читать дальше...   )Жанр: РеалРПГ, Боевая фантастика, ПопаданцыИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA33C09582746606AEBC2B3BC220A35D4B8DBBB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814380   (6128) от 24.08.2025
-
-Пётр Жгулёв | Цикл "Real-Rpg. Город Гоблинов" [13 книг] (2018-2025) [FB2] [Обновляемая]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6128.jpg" />
-</div>
-
-
-###  Подробнее
-
-В наш мир пришла Система. Великая Игра, вовлекшая в себя бесчисленное количество миров. Герой становится одним из Игроков. Тех, кому повезло вытащить счастливый билет и обрести шанс на силу, богатство и власть. Или же просто смертников, обреченных рано или поздно сложить голову? Пешек в руках богов? Вот только даже пешка может дойти до конца поля и стать кем-то большим... (   Читать дальше...   )Жанр: РеалРПГ, Боевое фэнтези, Попаданцы в магические миры, УсяИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1159989A4B3144F230EAFCE8056C2621CB0441E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807040   (6039) от 25.08.2025
-
-Ян Бадевский | Цикл "Механика невозможного" [10 книг] (2023-2025) [FB2] [Обновляемая]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я - убийца. Лучший в своём роде, поскольку веками перерождаюсь и совершенствую своё мастерство.
-Дожив до старости и благополучно скончавшись в кругу семьи, я рассчитывал попасть в будущее,
-но вместо этого перенсёсся в 1978 год.
-Вместо СССР - Российская империя. Вместо нормального правительства - враждующие кланы.(   Читать дальше...   )Жанр: Бояръ-Аниме, Попаданцы в магические миры, Боевое фэнтезиИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2692178682E91AC0EB7701813593AFA9D9C7EFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

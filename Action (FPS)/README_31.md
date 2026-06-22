@@ -1,3 +1,29 @@
+###  Публикация: 1421040   (317011) от 05.11.2020
+
+PositronX (2020) [En] (1.0.1) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317011.jpg" />
+</div>
+
+
+###  Подробнее
+
+PositronX — это футуристичный роуглайт-шутер со случайной генерацией уровней, предметов и врагов. Динамичный экшн, изобретательная система передвижения, управление временем и потрясающая графика сделают каждое прохождение незабываемым. Сражайтесь с полчищами машин в динамичном классическом шутере со случайной генерацией уровней.Тип издания: LicenseРазработчик: Scorpius GamesЖанр: Шутер, От первого лицаЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D6527E2F2602069934508D30F0D085C0BD28901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182375   (316178) от 10.11.2017
 
 Crimson Earth 2 (2017) [En] (2.0) License PLAZA
@@ -6,7 +32,7 @@ Crimson Earth 2 (2017) [En] (2.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316178.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Call of Duty: WWII (2017) [Ru/En] (1.3.1.15989/mp) Repack R.G. Revenants
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316153.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ In Sound Mind (2021) [Ru/Multi] (1.016) License GOG [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315835.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Get Even (2017) [Ru/Multi] (1.0/Upd1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315597.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ NecroVisioN: Lost Company / NecroVisioN: Проклятая рота (2010) [Ru/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311426.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ NecroVision (2009) [Ru/En] (1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311293.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ The Dark Occult (2018) [Ru/Multi] (1.0.8) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311091.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Painkiller (2004) [Ru/En/Fr] (1.64_lang_update/dlc) License GOG [Black Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311055.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Serious Sam HD: The First Encounter / Крутой Сэм HD: Первая кр�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305972.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Serious Sam: The First Encounter / Крутой Сэм: Первая кровь 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304579.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Serious Sam: The Second Encounter / Serious Sam. Второе пришестви
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304575.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Agony UNRATED (2018) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304435.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Breaking Bones (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303817.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ One Day For Ched (2012) [En] (1.0.5/dlc) Repack Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303751.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Unforgiving - A Northern Hymn (2017) [Ru/Multi] (1.1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302570.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Homefront [Ru/En] (Rip/1.0.384501) 2011 | R.G. Games
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302151.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ Radiation Island (2016) [Ru/Multi] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301668.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ Genesis Alpha One (2020) [Ru/Multi] (147.8763/dlc) License GOG [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301517.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ Hollow (2017) [Ru/Multi] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300659.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ Radiation Island (2016) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_299342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_299342.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.05/2dlc) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298993.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ Hollow (2017) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298439.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ Megaton Rainfall (2017) [Ru/Multi] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298435.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ Borderlands: The Pre-Sequel (2014) [Ru/En] (1.0.7/dlc) Repack Mizantrop1337
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298430.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ F.E.A.R. 2: Project Origin (2009) [Ru/En] (1.05/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298331.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ F.E.A.R. 2: Project Origin — продолжает популярную сер�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48F2CC61D51111359A8C624278ECA0FB79FF631C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 158673   (297964) от 17.12.2009
-
-Killing Floor & Defence Alliance 2 [Ru/En] (L) 2009
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_297964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мутанты и прочие зомби сбежали из секретной подземной лаборатории, и теперь группе отважных смельчаков (кооператив рассчитан на шестерых) предстоит перестрелять несколько сотен гниющих тел на улицах Лондона. Для зачистки местности можно использовать шестнадцать видов оружия, а также экспериментировать с системой перков.Тип издания: LЖанр: Action (Shooter) / 3D / 1st PersonЯзык интерфейса: Русский (текст)
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

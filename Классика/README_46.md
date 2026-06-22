@@ -6,7 +6,7 @@ VA - Morining Classic, Classical Music Anthology for Waking up Refreshed (2021) 
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219363.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Rimsky-Korsakov, Mussorgsky - Works for Piano Trio (The Bekova Sisters) (1999) [
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218423.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ J.S. Bach, F. Stiedry - The Art Of Fugue (orchestral version) - Hans Zender (200
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_218259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218259.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Grieg - Cello Concerto, Songs for Cello and Orchestra (Vernon Handley & London P
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_218169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218169.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Andrea Bocelli - Believe (2020) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Classical 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_218057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218057.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - The Classical Album (2016) 2CD [MP3|320 Kbps] <Classical, Orchestral, Symph
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215589.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Philip Glass - Annunciation (2019) [FLAC|Lossless|image + .cue] <Classical/Minim
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214400.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ The Piano Guys - The Piano Guys (2013) [FLAC|Lossless|WEB-DL|tracks] <Classical 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214230.jpg" />
 </div>
 
 
@@ -229,35 +229,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653677   (214199) от 17.08.2023
-
-Anne Louise Brillon de Jouy, Nicolas Horvath  Complete Piano Sonatas - Complete Piano Sonatas (2021) 2 x CD [FLAC|Lossless|image + .cue] <Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_214199.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-[1]-[2] Sonnatte in A minor
-[3]-[4] Sonata No.1 in C minor
-[5]-[6] Sonata No.2 in B flat major(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:58:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:414916EF4A1158204257D2153CBC2BB5919989B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641822   (210623) от 24.06.2023
 
 Johann Sebastian Bach, Phantasm - The Well-Tempered Consort-III (2022) [FLAC|Lossless|image + .cue] <Classical, Baroque>
@@ -266,7 +237,7 @@ Johann Sebastian Bach, Phantasm - The Well-Tempered Consort-III (2022) [FLAC|Los
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210623.jpg" />
 </div>
 
 
@@ -295,7 +266,7 @@ Atlanta Symhonic Orchestra & Chorus - Carl Orff: Carmina Burana (1981) Remaster,
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208214.jpg" />
 </div>
 
 
@@ -324,7 +295,7 @@ The WHOOP Group - Crimes II (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206514.jpg" />
 </div>
 
 
@@ -353,7 +324,7 @@ VA - Piano Black & White (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206152.jpg" />
 </div>
 
 
@@ -382,7 +353,7 @@ Kirill Kondrashin, Moscow Philharmonic Orchestra - Shostakovich: Symphony No. 5 
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195092.jpg" />
 </div>
 
 
@@ -403,35 +374,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655108   (193917) от 24.08.2023
-
-Kozeluch, Marius Bartoccini & Ilario Gregoletto - Complete Music For Piano 4-Hands (2022) 2 x CD [FLAC|Lossless|image + .cue] <Classical, Fortepiano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193917.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-Sonata for keyboard 4-hands Op.4 in F
-1. I. Allegro molto
-2. II. Adagio(   Читать дальше...   )Жанр: Classical, FortepianoПродолжительность: 01:24:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5463252875C3D8EA62F7C0721E7052CC7A9DA15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001555   (193881) от 23.08.2023
 
 Borodin / А.Бородин - Prince Igor / Князь Игорь (2001) 3 CD, Disc Set [APE|Lossless|image + .cue] <Opera>
@@ -440,7 +382,7 @@ Borodin / А.Бородин - Prince Igor / Князь Игорь (2001) 3 CD, D
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_193881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193881.jpg" />
 </div>
 
 
@@ -469,7 +411,7 @@ André Rieu - Voila! The Music of André Rieu (2023) [FLAC|Lossless|WEB-DL|track
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193811.jpg" />
 </div>
 
 
@@ -498,7 +440,7 @@ VA - Greatest Hits of Piano Music (2022) [FLAC|Lossless|WEB-DL|tracks] <Classica
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191020.jpg" />
 </div>
 
 
@@ -527,7 +469,7 @@ Andrea Bocelli - My Christmas (2022) Fireside Edition [FLAC|96/24|Lossless|WEB-D
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190264.jpg" />
 </div>
 
 
@@ -556,7 +498,7 @@ Andrea Balzani, Francesco Digilio - Wings of Wind (2022) [FLAC|Lossless|WEB-DL|t
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188801.jpg" />
 </div>
 
 
@@ -585,7 +527,7 @@ Max Richter, Vivaldi - The New Four Seasons Vivaldi Recomposed (2022) [FLAC|Loss
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188723.jpg" />
 </div>
 
 
@@ -615,7 +557,7 @@ Raphael Feuillatre - Visages Baroques (2023) [FLAC|Lossless|image + .cue] <Class
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185935.jpg" />
 </div>
 
 
@@ -644,7 +586,7 @@ J. S. Bach, Frank Peter Zimmermann - Sonatas & Partitas Vol.1 (2021) [FLAC|Lossl
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180961.jpg" />
 </div>
 
 
@@ -673,7 +615,7 @@ David Garrett - Alive - My Soundtrack (2020) 2CD Deluxe Edition [FLAC|Lossless|i
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180631.jpg" />
 </div>
 
 
@@ -702,7 +644,7 @@ The Piano Guys - 10 (2020) 2CD [FLAC|Lossless|tracks + .cue] <Classical Crossove
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179537.jpg" />
 </div>
 
 
@@ -731,7 +673,7 @@ Yevgeny Kissin, Berg, Chopin, Gershwin, Khrennikov - The Salzburg Recital (2022)
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177921.jpg" />
 </div>
 
 
@@ -745,6 +687,64 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F1686C4DBB2B0F76FA82A7BBEF6B2506D48BFB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594318   (176580) от 03.12.2022
+
+VA - The Best 50 of Piano Classical Music (2022) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
+02. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
+03. Vyacheslav Gryaznov, Katya Kramer-Lapin - Peer Gynt Suite No. 1, Op. 46 I. Morning Mood (Arr. for 2 Pianos) (3:39)
+04. Maria Nemtsova - The Nutcracker Suite, Op. 71a I. March (Arr. for Piano) (2:04)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:18:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F746852BF458B6AEDDBF6799DBA95160B52F464A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666300   (175804) от 09.10.2023
+
+Consuelo - Золотое сердце России (2023) [FLAC|Lossless|WEB-DL|tracks] <neoclassical/crossover/art-rock/ethno/progressive>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Конквистадор [00:02:51]
+02. Беатриче [00:02:54]
+03. В моих садах цветы [00:03:18]
+04. Она [00:04:33](   Читать дальше...   )Жанр: neoclassical, crossover, art-rock, ethno, progressiveПродолжительность: 00:53:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11EC3FF8201809C9F5768C52F6297A600822742E
 ```
 
 https://mybot314.ru/tekegram_catalog/

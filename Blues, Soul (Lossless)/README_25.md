@@ -6,7 +6,7 @@ Cow Cow Davenport - The Essential (1920-1930) 2003, 2CD, Classic Blues[FLAC|imag
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967838.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ray Charles - Original Motion Picture Soundtrack (2004) Rhino[FLAC|tracks+.cue] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967791.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Ray Charles - The Birth Of Soul (1952-1959) 2CD, 2004, Atlantic Records[FLAC|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965682.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Tino Gonzales - Nuke The World (2003) [FLAC|Lossless|image + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960931.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Vargas Blues Band - From The Dark (2014) [FLAC|Lossless]<Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958982.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Beatles Blues: The Blues Meets the Beatles (2001) [FLAC|Lossless|tracks + .
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958036.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Soul Love (2020) [FLAC|Lossless|WEB-DL|tracks] <Soul, R&B, Jazz>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956998.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Jeff Healey Band - 5 Альбомов (1988 - 2000) [FLAC|Lossless|tracks + 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952714.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Scott McKeon - Trouble (2010) [FLAC|Lossless|image + .cue] <Blues, Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950907.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ The Blues Mystery - Diesel Rock (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950662.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Blues Cousins - KGB Blues (2011) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950595.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Dazz Band - Greatest Hits (1986) [FLAC|Lossless|tracks + .cue] <Soul, Funk, Disc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949559.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Cee Cee James, Seriously Raw - Live At Sunbanks (2010) Live [FLAC|Lossless|image
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947696.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Little Mike & The Tornadoes - Heart Attack (1990) [FLAC|Lossless|image + .cue] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947694.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Tony Joe White - Live In Amsterdam (2010) [FLAC|Lossless|tracks + .cue] <Blues, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947665.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Jordan Officer - I'm Free (2014) [FLAC|Lossless|tracks + .cue] <Blues, Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947588.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947489.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ The Dahman Beck Band - Show A Little Soul (2013) [FLAC|Lossless|image + .cue] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946160.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Duke Robillard - Plays The Blues: The Rounder Years (1997) [FLAC|Lossless|image 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946102.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ John McClean and The Clan - Exile (2017) WEB [FLAC|Lossless|tracks] <contemporar
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945000.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Jonny Lang - Long Time Coming (2003) [APE|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943148.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Randall Bramblett - Devil Music (2015) [FLAC|Lossless|image + .cue] <Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943130.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ The Sean Webster Band - Long Time Coming (2003) [FLAC|Lossless|image + .cue] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941756.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Amanda Fish Band - Down In The Dirt (2015) [FLAC|Lossless|tracks + .cue] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941752.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Lal And The People - Bad Case Of Blues (2016) [FLAC|Lossless|WEB-DL|tracks +.cue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941671.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Bill Durst - 3 CD (2012-2015) WEB [FLAC|Lossless|tracks + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941315.jpg" />
 </div>
 
 

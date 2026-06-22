@@ -1,119 +1,3 @@
-###  Публикация: 1413494   (408544) от 04.10.2020
-
-Mal Waldron - Soul Eyes (1997) BMG [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Judy [3:41]
-02. Soul Eyes [7:22]
-03. Fire Waltz [5:02]
-04. Spaces [6:57](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Vocal JazzПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F9E52DEE7D0C11562ABBD3566D2A3E6A7705DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413490   (408541) от 04.10.2020
-
-Oscar "Papa" Celestin & Sam Morgan - Recorded In New Orleans (1925 - 1928) 1995, Jazz Oracle [FLAC|Lossless|tracks + .cue] <Ragtime, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Original Tuxedo Rag [2:38]
-02. Careless Love [3:06]
-03. Black Rag [2:34]
-04. I'm Satisfied You Love Me [3:18](   Читать дальше...   )Жанр: Ragtime, New Orleans JazzПродолжительность: 01:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C79BDE7F246A7EB8028C6EEEF4D4E24815701C75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413488   (408535) от 04.10.2020
-
-Nancy Wilson - Spotlight on Nancy Wilson (1959 - 1968) 1995, Capitol Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What a Little Moonlight Can Do [2:27]
-02. Little Girl Blue [2:51]
-03. My One and Only Love [3:01]
-04. The Best Is Yet to Come [2:22](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB2F0B79747B5DBC2D40684EB792D9AD0A9AF512
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067215   (408480) от 28.10.2016
-
-Eric Alexander - Second Impression (2016) HighNote Records[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Second Impression [06:21]
- 02.So Many Stars [05:44]
- 03.Blues for Mo [05:18]
- 04.Jennie's Dance [05:55](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 00:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:117724B083FA6881BE853E29A6263678B2134BC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067099   (408478) от 28.10.2016
 
 Harvie Swartz - In A Different Light (1990) [WavPack|Lossless|image + .cue] <Jazz, Post-Bop>
@@ -122,7 +6,7 @@ Harvie Swartz - In A Different Light (1990) [WavPack|Lossless|image + .cue] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408478.jpg" />
 </div>
 
 
@@ -151,7 +35,7 @@ Mike LeDonne & The Groover Quartet - That Feelin' (2016) Savant Records[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408476.jpg" />
 </div>
 
 
@@ -180,7 +64,7 @@ Dean Martin - Singles (1949-1962) 2001, EMI[FLAC|Lossless|tracks + .cue] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408468.jpg" />
 </div>
 
 
@@ -209,7 +93,7 @@ Louis Armstrong & King Oliver With Bessie Smith - High Society (1923 - 1926) 199
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408434.jpg" />
 </div>
 
 
@@ -238,7 +122,7 @@ Grant Green - Visions (1971) /2009, EMI Music/[FLAC|tracks+.cue]<Hard Bop, Soul 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408398.jpg" />
 </div>
 
 
@@ -267,7 +151,7 @@ Nat King Cole - Top Pops (1963) 2007, Collectors' Choice Music[FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408394.jpg" />
 </div>
 
 
@@ -296,7 +180,7 @@ Art Blakey and His Jazz Messengers - Art's Break! (1972) /2014, Studio Songs/[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408272.jpg" />
 </div>
 
 
@@ -325,7 +209,7 @@ Willie Lewis - 1936 - 1938 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408167.jpg" />
 </div>
 
 
@@ -354,7 +238,7 @@ Sainkho Namtchylak - Cyberia - Suite For The Voice A Cappella (2011) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_408116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_408116.jpg" />
 </div>
 
 
@@ -386,7 +270,7 @@ Essence Featuring Jaco Pastorius - Last Flight (1984) 1989 DIW Records, Disk Uni
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_408010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_408010.jpg" />
 </div>
 
 
@@ -414,7 +298,7 @@ Katie Melua - Ultimate Collection (2018) 2CD [FLAC|Lossless|WEB-DL|tracks] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407805.jpg" />
 </div>
 
 
@@ -443,7 +327,7 @@ David Rogers Sextet - The World Is Not Your Home (2007) Jumbie Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407633.jpg" />
 </div>
 
 
@@ -472,7 +356,7 @@ Joe Chambers - Samba de Maracatu (2021) Blue Note [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_407551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_407551.jpg" />
 </div>
 
 
@@ -501,7 +385,7 @@ Pee Wee Russell - Weary Blues (1933 - 1963) 4CD, 2005, Membran Music [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407548.jpg" />
 </div>
 
 
@@ -530,7 +414,7 @@ Joey Alexander - Origin (2022) Mack Avenue [FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407544.jpg" />
 </div>
 
 
@@ -559,7 +443,7 @@ Dizzy Gillespie - Dizzy's Diamonds: The Best Of The Verve Years (1950 - 1964) 3C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407433.jpg" />
 </div>
 
 
@@ -588,7 +472,7 @@ The Swingaroos - Music  Of The Night (2019) [FLAC|Lossless|WEB-DL|tracks] <Retro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407424.jpg" />
 </div>
 
 
@@ -617,7 +501,7 @@ The Vanguard Jazz Orchestra - Forever Lasting: Live in Tokyo (2010) 2011, 2CD, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407267.jpg" />
 </div>
 
 
@@ -646,7 +530,7 @@ Samarabalouf - NoNo Future (2020) [FLAC|Lossless|tracks + .cue] <Swing, Gypsy.Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406830.jpg" />
 </div>
 
 
@@ -675,7 +559,7 @@ Louis Armstrong - Big Bands, Vol.1 (1930 - 1931) 1988, JSP Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406828.jpg" />
 </div>
 
 
@@ -704,7 +588,7 @@ Buster Poindexter - Buster's Happy Hour (1994) [FLAC|Lossless]<Swing, Neo-Swing,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_406712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_406712.jpg" />
 </div>
 
 
@@ -739,7 +623,7 @@ VA - Verve Today (2010-2012) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_406672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_406672.jpg" />
 </div>
 
 
@@ -749,6 +633,136 @@ VA - Verve Today (2010-2012) [FLAC|Lossless]<Jazz>
 02. Chihiro Yamanaka;Soul Searchin' [04:26]
 03. Alice Francis;Sista [03:43]
 04. Trombone Shorty Feat. Cyril & Ivan Neville;Nervis [03:10](   Читать дальше...   )Жанр: JazzПродолжительность: 01:14:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561003   (406349) от 16.10.2012
+
+VA - The Sound Gallery (1995-1996) 2CD[FLAC|Lossless]<Jazz, Instrumental, Jazz-Funk, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_406349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laurie Johnson - Jason King Theme [02:04]
+02. Keith Mansfield - Powerhouse Pop [02:31]
+03. The Scottmen - The Good Word [02:49]
+04. James Clarke - Two Line Blacktop [01:54]
+05. David Lindup - Zodiac [03:09]
+06. Alan Moorhouse - That's Nice [02:15]
+07. Lord Sitar - I Can See For Miles [03:43]
+08. Paris Studio Group - Accroche toi, Caroline [02:51]
+09. Francis Lai - Marseillaise Generique [02:11]
+10. Franck Pourcel - Francis Francis [02:11](   Читать дальше...   )Жанр: Jazz, Instrumental, Jazz-Funk, Easy ListeningПродолжительность: 01:08:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561864   (405968) от 18.10.2012
+
+Carlos Garnett - Under Nubian Skies (1997) [FLAC|Lossless]<Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing Daffodils
+02. Blues for John C.
+03. My One and Only Love
+04. Happy Children Song
+05. What
+06. Under Nubian Skies
+07. Epitapher Zackerism
+08. Mango Walk
+09. Down & Up AgainЖанр: Hard Bop, Post-BopПродолжительность: 01:04:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561849   (405917) от 18.10.2012
+
+Julie London - Sophisticated Lady & For The Night People (1998) [FLAC|Lossless]<Jazz, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sophisticated LadyЖанр: Jazz, VocalПродолжительность: 01:10:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561902   (405861) от 18.10.2012
+
+Emilie-Claire Barlow - 2 альбома (2005, 2009) [FLAC|Lossless]<Jazz, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All I Do Is Dream Of You [03:59]
+02. C'est merveilleux [03:49]
+03. You're Driving Me Crazy [03:04]
+04. Comin' Home Baby [04:24]
+05. Haven't We Met [03:03]
+06. I'm Glad There Is You [05:01]
+07. Chez moi [02:53]
+08. Is You Is Or Is You Ain't My Baby [05:03]
+09. Jardin d'hiver [04:01]
+10. La Vem A Baiana [02:49](   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 00:48:45
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,440 @@
+###  Публикация: 449524   (75046) от 09.02.2012
+
+Кремлёвские куранты (1967) SATRip (фильм-спектакль)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Историко-революционный, драма, фильм-спектакльРежиссер: Мария Кнебель, Иосиф РаевскийАктеры: Борис Смирнов, Василий Марков, Лев Золотухин, Борис Ливанов, Алла Тарасова, Маргарита Анастасьева, Дмитрий Шутов, Виктор Новосельский, Татьяна Забродина, Анастасия Зуева, Михаил Медведев, Зенон Смулко, Владимир Белокуров, Владимир Захаров, Валерия Дементьева, Евгения Ханаева, Мария Титова, Софья Гаррель, Юрий Недзвецкий, Владимир Кириллин, Владислав Буш, Владимир (   Читать дальше...   )Продолжительность: 02:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B63FD3514C34FBF8F06B1367738AE366B518E3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 448414   (74681) от 07.02.2012
+
+Van Canto - Клипы (2006-2011) DVDRip, WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74681.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 клиповKings of Metal (Official)
+Last Night of the Kings (Official)
+Magic Taborea (Official)
+Primo Victoria feat. Joakim Broden (Sabaton) Napalm Records(   Читать дальше...   )Формат: AVI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D5FA095EB1E6BB65AC868C607A608046F1EC381
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447890   (74637) от 07.02.2012
+
+Van Canto - Live at Wacken (2008) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74637.jpg" />
+</div>
+
+
+###  Подробнее
+
+У группы ударник и пять вокалистов, которые с помощью голоса заменяют почти все нужные музыкальные инструменты.
+Группа имеет кавер-версии других исполнителей, среди которых Metallica («Battery», «Master of Puppets»), Iron Maiden («Fear Of the Dark»), Blind Guardian («Bard’s Song — In the Forest»), Nightwish («Wishmaster»), Deep Purple («Stormbringer»), Manowar («Kings (   Читать дальше...   )01. Pathfinder (Live At Wacken 2008) (Bonus DVD)
+02. Kings Of Metal (Live At Wacken 2008) (Bonus DVD)
+03. Rain (Live At Wacken 2008) (Bonus DVD)
+04. The Bard´s Song (Live At Wacken 2008) (Bonus DVD)(   Читать дальше...   )Жанр: Концерт, A Capella MetalПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D4A2193FE1115C7F92BE06C97C4D5D2FA9E8BE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447242   (74540) от 06.02.2012
+
+Лучшие Онлайн Клипы 2011 / The Best Online Clips 2011 (2012) DVD9
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Форум онлайн видеоклипов подытожив прошедший год и решил совместно со студией видео монтажа, M.O.Y.D. Studio (http://moydstudio.com.ua), создать DVD под название “The Best Online Clips 2011”.  Для этого было отобрано 35 клипов из рейтинга просмотра в онлайн.Skrillex - First Of The Year
+Dominator  - After Video
+LMFAO - Sexy and I Know It
+Rihanna - Man Down
+Coldplay – Paradise
+Pitbull - Rain Over Me ft. Marc Anthony
+LMFAO - Party Rock Anthem ft. Lauren Bennett
+Beyoncé - Love On Top
+SEREBRO - Мама Люба
+Jennifer Lopez - On The Floor ft. Pitbull(   Читать дальше...   )Жанр: POPФормат: AC-3Продолжительность: 02:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0FB0A490FE94F80FE32E0B0BDD2C111F030E64D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447937   (74518) от 06.02.2012
+
+The Rolling Stones: Let's Spend the Night Together (1981/2011) [1080p] Blu-ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74518.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Under My Thumb - (Tempe, Arizona, 13 December 1981 (outdoor stadium show))
+2. Let's Spend the Night Together - (Tempe, 13 December 1981)
+3. Shattered - (Tempe, 13 December 1981)
+4. Neighbours - (Tempe, 13 December 1981)(   Читать дальше...   )Жанр: rockРежиссер: Хэл ЭшбиАктеры: Мик Джаггер, Кит Ричардс, Чарли Уоттс, Билл Уаймен, Ронни Вуд, Йен Стюарт, Ian McLagan, Эрни Уоттс, Бобби Кис, Джерри ХоллПродолжительность: 01:30:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447318   (74337) от 05.02.2012
+
+Foreigner - Rockin' at the Ryman (2011) [1080i] Blu-Ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт 16 марта 2010 года в Ryman Theatre, в Нашвилле, США. Прозвучали как композиции из нового альбома, так и всеми любимые хиты группы.…
+
+Filmed on the 16th March 2010, ROCKIN' AT THE RYMAN finds 80s pop sensation Foreigner back doing what they do best; rocking out loud. Blu-Ray versions of the live concert in the famous Rayman Theatre, be sure to stay updated for the new Foreigner experience about to take place! Recorded with the highest equipment to capture the rocking that actually took place, this concert included the full-set for ultimate listening and viewing pleasure. This new announcement is certainly a dream come true for any fan or new listener, including all of the hits from their album “Can’t Slow Down” like “Double Vision”, “Cold As Ice” to “Jukebox Hero”, “Hot Blooded” and “Urgent”. This is something you really have to see for yourself, and with the new DVD/Blu-ray disc quality, you can experience it as if you were there.01. Double Vision
+02. Head Games
+03. Cold As Ice
+04. In Pieces
+05. Blue Morning, Blue Day
+06. Waiting For A Girl Like You
+07. When It Comes To Love
+08. Dirty White Boy
+09. Starrider
+10. Feels Like The First Time(   Читать дальше...   )Жанр: RockВ ролях: Mick Jones, Kelly Hansen, Jeff Pilson, Tom Gimbel, Michael Bluestein, Jason BonhamПродолжительность: 01:46:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 445817   (73607) от 02.02.2012
+
+Юбилейный вечер Олега Газманова (2012) IPTVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все звёзды "Новой волны" в "Артеке". В 60 лет все только начинается! Российский певец, композитор и поэт, заслуженный артист Российской Федерации и народный артист России Олег Газманов в ноябре отметил свой юбилей праздничной программой, в которой приняли участие друзья и коллеги юбиляра, которые исполнили песни Газманова. А сам юбиляр, помимо (   Читать дальше...   )01.Танцуй пока молодой
+02.Свежий ветер
+03.Доля(Н. Басков)
+04.На заре(Г. Лепс)(   Читать дальше...   )Жанр: ТВ-шоу, концертПродолжительность: 01:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56E2597C4BFA4732B3EC1B9F94FE04C277C0814A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 443590   (72869) от 29.01.2012
+
+Мещанин во дворянстве (1977) DVB
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мещанин во дворянстве - блестящая, искрометная комедия классика французской литературы Жана Батиста Мольера. Попытки необразованного, невежественного, неотесанного мужлана с большими деньгами выглядеть как благородный дворянин не могут не вызывать смех. Главный герой то и дело попадает в нелепые ситуации, а окружающие не упускают возможности воспользоваться его манией (   Читать дальше...   )Жанр: комедияРежиссер: Владимир ШлезингерПродолжительность: 01:36:00 + 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFD287E9FC6EE3E79C05D9A3FA59DCF6A86FA62E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 441961   (72364) от 26.01.2012
+
+Melanie C - Live Hits (Live) (2006) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мелани Джейн Чисхолм (англ. Melanie Jayne Chisholm) — британская певица, автор песен. Наиболее известна как участница самой популярной в истории развития музыкального бизнеса девичьей группы «Spice Girls», где выступала под псевдонимом «Sporty Spice» (Спортивная Перчинка). Она также известна под псевдонимами «Mel C» или «Melanie C».
+В октябре 2006 года Мел Си выпустила (   Читать дальше...   )01."Beautiful Intentions"
+02."Yeh Yeh Yeh"
+03."Home"
+04."Northern Star"(   Читать дальше...   )Жанр: Концерт, PopПродолжительность: 00:56:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 441629   (72242) от 25.01.2012
+
+Сурганова и Оркестр  (23.01.2012) В программе LIVEнь.<Rock> TvRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Светлана Сурганова и оркестр в прямом эфире телеканала Дождь в программе Михаила Козырева LIVEнь. Программа транслировалась 23 января 2012 года.01.	Далеко
+02.	Мураками
+03.	Неужели не я
+04.	Интервью(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:250CC12CA75F6AE20673F4ED7E42DD41262C1FB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776220   (71368) от 30.01.2025
+
+Квартирник у Маргулиса. «Комната культуры» (25.01.2025) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа «Комната культуры» была основана 28 марта 2022 года уроженцами Барнаула Женей Трофимовым и Романом Рудыкой. Дебютный альбом группы «Кассета с тремя сторонами» стал открытием в жанре поп-рока, а их песня «Поезда»00:00:06 Привет
+00:05:28 Я даже не знаю
+00:13:42 На тех полюсах
+00:21:05 Номер(   Читать дальше...   )Производство: Россия | "ФРИДОМ"Жанр: Поп-рокЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0289FA1C6F3F5D2948EA01093866ABE19AA3D228
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776430   (71260) от 01.02.2025
+
+МузЛофт / МузLoft. Антон и Виктория Макарские (2025) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антон и Виктория Макарские. Всё о мюзиклах и семье.
+Пожалуй, самая музыкальная, самая поющая и самая образцовая семья посетила Музлофт! Главное сделала этот концерт на 200%! Просто включите и наслаждайтесь!Производство: Россия | Y-GenerationУчастники: Антон и Виктория МакарскиеПродолжительность: 01:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10EEFA320D051A71CC8BF38CA9C3CA212DD4B9B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776608   (71255) от 01.02.2025
+
+МузЛофт-подкаст / МузLoft. Согдиана (2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Согдиана. Кастинги ничего не значат! О Фабрике, Новой волне и уверенности в себе.
+В нашу музыкальную подкастошную заглянула одновременно и российская и узбекская исполнительница. Ее хит «Сердце-магнит» по-любому знаком всем кому сейчас 30-ть с хвостиком. Включайте выпуск и ловите нотки ностальгии!Производство: Россия | Y-GenerationУчастники: СогдианаПродолжительность: 01:02:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F889BCAD45E603DBBF5040F59B30B540AAD0B12B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776437   (71251) от 01.02.2025
+
+МузЛофт / МузLoft. Диана Анкудинова (2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диана Анкудинова. Жору съели журавли. Опасные поклонники и ответ хейтерам.
+В гостях обладательница множества вокальных наград и необычного голоса. А с недавнего времени ещё и автор собственных песен. В общем обо всех этих регалиях Диана расскажет в выпуске. С вас только хорошее настроение и часик времени.Производство: Россия | Y-GenerationУчастники: Диана АнкудиноваПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BC5037D8F130EB410953753FB1D00ACF6290A4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776494   (71230) от 01.02.2025
+
+МузЛофт-подкаст / МузLoft. TESTOSTERON (2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71230.jpg" />
+</div>
+
+
+###  Подробнее
+
+TESTOSTERON. Кто решает в группе и кто отвечает за базар.
+В гости на музыкальные посиделки заглянули обладатели хита «Это не женщина - это беда», братья и основатели группы Тестостерон. Ребята расскажут о насыщенной жизни как на сцене, так и за ее пределами. А главное, ответят на вопрос: «как делят девушек?».Производство: Россия | Y-GenerationУчастники: TESTOSTERONПродолжительность: 01:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A9BE940D4F2EDF035A44E4176C6251A6F208DA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776472   (71227) от 01.02.2025
 
 МузЛофт / МузLoft. Лео и Akmal' (2024) WEBRip [H.264/1080p]
@@ -6,7 +443,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71227.jpg" />
 </div>
 
 
@@ -33,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71205.jpg" />
 </div>
 
 
@@ -62,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70866.jpg" />
 </div>
 
 
@@ -91,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70742.jpg" />
 </div>
 
 
@@ -117,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70711.jpg" />
 </div>
 
 
@@ -146,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70155.jpg" />
 </div>
 
 
@@ -173,7 +610,7 @@ Paul Van Dyk - Live at Mayday (2000) TVRip [H.264/1080p-LQ] [hand made Upscale A
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70000.jpg" />
 </div>
 
 
@@ -202,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69713.jpg" />
 </div>
 
 
@@ -229,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69652.jpg" />
 </div>
 
 
@@ -258,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69285.jpg" />
 </div>
 
 
@@ -287,7 +724,7 @@ Paul Van Dyk - Live at opening Kazantip Z17 (2009) TVRip [H.264/1080p] [hand mad
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69262.jpg" />
 </div>
 
 
@@ -299,423 +736,6 @@ Paul Van Dyk - Live at opening Kazantip Z17 (2009) TVRip [H.264/1080p] [hand mad
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60C6EC311429BAC89420A883C2C9F1C97970AF3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785744   (69173) от 17.03.2025
-
-Don Juan Dracula - Burn (SnifferGod Rework) (2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Don Juan Dracula вернулись! Когда-то их называли одной из самых энергичных и новаторских групп Норвегии. Они покорили крупнейшие фестивали страны, очаровали публику в Нью-Йорке и оставили свой след на сценах Пекина. После 15 долгих лет в тени группа наконец воссоединилась, чтобы написать следующую главу своей легендарной истории.
-Благодаря своему уникальному звучанию (   Читать дальше...   )Производство: НорвегияЖанр: FuturePop, SynthpopПродолжительность: 00:05:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE3EBE4EBDD19608B5DFF673C95849DFF10A20D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788429   (67938) от 12.04.2025
-
-Scooter - Jumping all over the world - Live in Berlin (2008) DVDRip [H.264/1080p-LQ] [hand made upscale AI]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видео с концерта записанного в Берлине в 2008 году, в рамках концертного тура "Jumping All Over The World". Специальным гостем на протяжении всего тура, была танцевальная команда "Sheffield Jumpers".01. Intro
-02. Call Me Manana
-03. Jumping All Over The World
-04. The Question Is What Is The Question?(   Читать дальше...   )Производство: ГерманияЖанр: ScooterTechno, Happy Hardcore, JumpStyleРежиссер: Mark AchterbergАктеры: H.P. Baxxter, Rick J. Jordan, Michael SimonСубтитры: РусскиеПродолжительность: 01:27:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:353DC684206E2F57977147C6FF96B7F641AC7A83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789770   (67931) от 12.04.2025
-
-Paul Van Dyk - Live at Green Valley (2010) HDTVRip [H.265/2160p] [hand made upscale AI]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись диджейского сета Пола Ван Дайка, который он представил в ночном клубе «Green Valley» 14 ноября 2010 года (Бразилия). Запись ТВ трансляции была взята с Австрийского ТВ канала «ServusTV».01. PvD ft. Vega 4 - Time of our lives (UK club mix)
-02. Mike Shiver vs. Fandy - Sique (Ronski speed rmx)
-03. Tritonal - Sky nights (David Forbes rmx)
-04. John O'Callaghan ft. Sarah Howells - Find yourself (Heatbeat rmx)(   Читать дальше...   )Производство: Бразилия / Red Bull Media HouseЖанр: Trance, Progressive TranceСубтитры: Русские, английские (hardsub)Продолжительность: 02:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0691C6310B7B0566C19D8997AC429F288765423C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792647   (67638) от 20.04.2025
-
-Scooter - Live in Dnepropetrovsk (1999) VHSRip [H.264/1080p-LQ] [hand made upscale AI]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт группы, который состоялся на стадионе «Метеор» в Днепропетровске. Именно с него начался гастрольный тур Scooter по Украине в 1999 году.01. Keyser soze / Watch out
-02. Faster Harder Scooter
-03. I'm raving
-04. The age of love(   Читать дальше...   )Производство: УкраинаЖанр: Techno, Happy HardcoreРежиссер: Jens TheleУчастники: H.P. Baxxter, Rick J. Jordan, Axel CoonПродолжительность: 01:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:330AA1F0E74DFDFF4F1756863BB3DBFA69EB77A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797513   (66816) от 16.05.2025
-
-МузЛофт-Дети / МузLoft. Любава Соляная (2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любава Соляная. Про финансовую грамотность и дуэт с Лазаревым.
-Если вас удивляет или веселит фамилия этой талантливой девочки, то обязательно смотрите выпуск, она всё про неё расскажет. А ещё споет такой разнообразный набор песен, что понравится абсолютно каждому.Производство: Россия | Y-GenerationУчастники: Любава СолянаяПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E277C684F542AC7C898C5C655FA5C95A7D40CE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797512   (66810) от 16.05.2025
-
-МузЛофт-подкаст / МузLoft. Dabro (2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dabro. Первый конфликт в истории Музлофт.
-Таких жарких споров и дебатов в истории нашей программы ещё не было. Может именно вы рассудите кто прав в споре наших музыкантов и братьев из Казани.Производство: Россия | Y-GenerationУчастники: DabroПродолжительность: 00:56:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27E833B7B793304E3693DC943BA2DD3945ED9DE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795505   (66806) от 16.05.2025
-
-Scooter - Live at Highfield festival (2016) WEBRip [H.264/1080p-LQ] [hand made upscale AI]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт состоялся в рамках фестиваля "Highfield" 19 августа 2016 года в Лейпциге на сцене "Blue Stage".01. Ten seconds before sunrise / Ace
-02. Oi
-03. Riot
-04. One (Always hardcore)(   Читать дальше...   )Производство: ГерманияЖанр: ScooterTechno, Hard Trance, Happy HardcoreРежиссер: Jens TheleУчастники: H.P. Baxxter, Michael Simon, Phil SpeiserПродолжительность: 01:13:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDD6FD1CEF64602A18469AE12D052CD73D70222D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793467   (66805) от 16.05.2025
-
-NiziU - Need U (2021) WEBRip [H.265/2160p] [60fps, Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: ЯпонияЖанр: JpopРежиссер: NiziUАктеры: Мако, Рио, Майя, Рику, Аяка, Маюка, Рима, Миихи и НинаПродолжительность: 00:04:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B7324F2FBAFD25697EAAB7EE7E6D876AA2ED8B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797688   (66794) от 17.05.2025
-
-Scooter - Live at Rocco del Schlacko festival (2019) WEBRip [H.264/1080p-LQ] [hand made upscale AI]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт состоялся в рамках фестиваля "Rocco del Schlacko" 8 августа 2019 года в городе Пютлинген.01. Intro (100% Scooter - 25 Years Wild & Wicked)
-02. One (Always Hardcore)
-03. Bora! Bora! Bora!
-04. Oi(   Читать дальше...   )Производство: ГерманияЖанр: Techno, Happy Hardcore, JumpstyleРежиссер: Jens TheleУчастники: H.P. Baxxter, Michael Simon, Sebastian SchildeПродолжительность: 01:11:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31ED7369CBA8BDA1B07D11545F251E0E21075A9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797706   (66750) от 18.05.2025
-
-Квартирник у Маргулиса. Dabro (17.05.2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллектив Dabro был основан в 2013 году братьями Иваном и Михаилом Засидкевичами. Их творчество — это удивительное сочетание искренних, жизненных текстов и драйвовой музыки на актуальные темы, которое заставляет танцевать даже самых сдержанных слушателей. Коллектив нашел свое призвание в жанре уличной романтики, сочетая гитарные партии, ритмичные биты и хип-хоп-речитативы. (   Читать дальше...   )00:00:06 Дальше-больше
-00:06:19 Услышит весь район
-00:12:30 Ты люби так же
-00:20:49 Давай навсегда(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Хип-хопЯзык: РусскийПродолжительность: 01:13:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:136AA3B9266F8E8D49B39C6D2C0216C57C2D8B62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796491   (66749) от 18.05.2025
-
-Suzy - Come back (2025) WEBRip [H.265/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: КореяЖанр: Ballad / KpopРежиссер: Suzy KangПродолжительность: 00:05:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FF5D4FC67D7BA04AAA4D0FFE5EC7CBBE3F69475
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797649   (66745) от 18.05.2025
-
-Юлия Савичева x TRITIA – Каплями (2025) WEBRip [H.264/1080p/1440/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Премьера клипа. Юлия Савичева, TRITIA – Каплями (Official video)Производство: РоссияЖанр: Поп-рокРежиссер: Андрей АкутинПродолжительность: 00:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF57D9181F0CEF6433A87A02938E28CFBE3DD093
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798420   (66621) от 22.05.2025
-
-Владимир Пресняков – Только ты никогда (2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Пресняков - Только ты никогда (Official Video)
-
-Песня «Только ты никогда» основана на реальных событиях. Она о самом большом и светлом чувстве, которое будет, несмотря ни на что, всегда жить в сердце родителей.Производство: РоссияЖанр: PopРежиссер: Надя Михалкова, Артемий АбрамовАктеры: Анастасия Тарасова, Иван Бровин, Самсонова Софья, Первакова НадеждаПродолжительность: 00:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0E4F35D7ED6E581183A0643392BA4B8F0831D54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799344   (66487) от 27.05.2025
-
-МузЛофт-Дети / МузLoft. Кирилл Усов (2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кирилл Усов. Из хоккеиста в вокалисты. Мечты о дуэте с Ларой Фабиан и Биланом.
-От репертуара этого парня можно просто сойти с ума. А ещё он участник шоу «Голос. Дети», заменил барабанщика в Музлофте и… А что ещё он сделал в этом выпуске, ты узнаешь, если посмотришь его до конца!Производство: Россия | Y-GenerationУчастники: Кирилл УсовПродолжительность: 00:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C44A7E86F57D86C1C89CE2ACB378D453004EFEF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800152   (66303) от 01.06.2025
-
-Квартирник у Маргулиса. Группа «TRITIA» (31.05.2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа TRITIA была основана в 2014 году в Хабаровске и изначально носила название FreeQ Brothers. Перемены в творчестве заставили музыкантов задуматься о смене названия, и коллектив был переименован в TRITIA.00:00:06 Потрачено
-00:05:27Сердце
-00:10:09 Слеза
-00:15:58 Просто так(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Альт-рок, АльтернативаЯзык: РусскийПродолжительность: 01:03:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E10B346B3D2CB761030C81BC1C35BBDF194ED95
 ```
 
 https://mybot314.ru/tekegram_catalog/

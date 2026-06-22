@@ -1,3 +1,81 @@
+###  Публикация: 1868052   (1067104) от 28.04.2026
+
+Aphelion (2026) [Ru/Multi] (1.03.1628077/dlc) Repack Let'sРlay [Deluxe Edition]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оказавшись на замёрзшей планете, астронавт Ариадна должна преодолеть опасную и ненадёжную местность, где рыщет чудовище, чтобы спасти своего раненого напарника Томаса. Отправляйтесь в научно-фантастическое приключение и исследуйте чуждый мир - но старайтесь не шуметь!Тип издания: RepackРазработчик: DON'T NODЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1360C3E70419A21DEBF2C6543E41C36ED621C046
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866479   (1066129) от 20.04.2026
+
+The Long Dark (2017) [Ru/Multi] (2.52 Build 179852/dlc) Repack FitGirl [Quiet Apocalypse Bundle]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра про выживание в мире, где нет электричества. The Long Dark - это вечная темень на локациях, шикарная графика от разработчиков, полюбивших небо и звезды, как свой второй дом. Игроков обрадовало то, что весь геймплей делится на два режима. Первый - сюжетное прохождение 5-ти эпизодов, совокупная длительность которых - 60-70 часов, в зависимости от следованию сюжета. (   Читать дальше...   )Тип издания: RepackРазработчик: Hinterland Studio Inc.Жанр: Приключенческие игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4299837DA6B08B3817CF8F3ADEF90E5912FDC356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865370   (1065249) от 15.04.2026
+
+Resident Evil Requiem (2026) [Ru/Multi] (1.1.2.0/dlc) Repack Let'sРlay [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реквием по мертвым. Кошмар для живых. Resident Evil Requiem, новейшая и самая захватывающая часть культовой серии Resident Evil, знаменует новую эпоху жанра survival horror. Пройдите сквозь пробирающий до дрожи ужас и сумейте выжить вместе с аналитиком ФБР Грейс Эшкрофт и легендарным агентом Леоном С. Кеннеди. Их истории и стили игры переплетаются, создавая душераздирающие, (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8D536F02AA993A1CC20F697CCF85C40431D3E58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865388   (1065180) от 15.04.2026
 
 Possessor(s) (2025) [Ru/Multi] (v1) License GOG
@@ -6,7 +84,7 @@ Possessor(s) (2025) [Ru/Multi] (v1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065180.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Resident Evil Requiem (2026) [Ru/Multi] (Build 22277314/dlc) Repack Other s [Del
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065072.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Resident Evil Requiem (2026) [Ru/Multi] (Build 22277314/dlc) Repack Decepticon [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065064.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Resident Evil Requiem (2026) [Ru/Multi] (Build 22277314/dlc) Repack HardwareMini
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065024.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Resident Evil Requiem (2026) [Ru/Multi] (Build 22277314/dlc) Repack seleZen [Del
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064759.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Neva (2024) [Ru/Multi] (1.2/dlc) License GOG [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064758.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Resident Evil Requiem (2026) [Ru/Multi] (Build 22277314/dlc) Repack FitGirl [Del
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064755.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Marshmallow All the Way Home (2025) [Multi] (1.0.0/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064386.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Total Chaos (2025) [Ru/Multi] (1.0.231) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064385.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Tormented Souls II (2) (2025) [Ru/Multi] (1.4.3/dlc) License GOG [Digital Deluxe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064255.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Hail to the Rainbow (2025) [Ru/Multi] (0.51) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064171.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ The Mortuary Assistant (2022) [Ru/Multi] (3.0.2) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063923.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Tasomachi: Behind the Twilight (2021) [Multi] (20220419/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062270.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Duke Grabowski, Mighty Swashbuckler (2016) [Ru/Multi] (1.1.0.15) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061710.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Umigari (2026) [Ru/Multi] (1.6.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061115.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Millennium Dream (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060797.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Legends of Savvarah: Flowers and Scorpions (2026) [Ru/En] (Build 21632093) Repac
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060786.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (3.0
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060684.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Out of Sight (2025) [Ru/Multi] (1.1.93/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060682.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ The Green Light (2026) [Ru/Multi] (0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060677.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ The Green Light (2026) [Ru/Multi] (0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060676.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Tormented Souls II (2) (2025) [Ru/Multi] (1.4.0/dlc) Repack dixen18 [Digital Del
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060606.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Log.in (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060139.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Login - это приключенческая игра мистерия × хо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F4B08D5C40C8D7E26D77FD1E818D2E43BC5C4F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858176   (1060136) от 09.03.2026
-
-Choice of Life: Samosbor (2025) [Ru/Multi] (Build 21269692) Repack seleZen
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарная серия Choice of Life возвращается в новом сеттинге! Серые бетонные стены ячейки, закрывать гермодверь при звуке сирены - всё это обыденность в Гигахрущёвке. Всё тут идёт своим чередом, пока блок не изолируют в поисках секретного объекта... Вы простой житель бесконечной Гигахрущёвки. Лучшее что вам светит, это семь смен за станком и миска пищконцентрата, (   Читать дальше...   )Тип издания: RepackРазработчик: Blazing Planet StudioЖанр: Приключенческие игры, Казуальные игры, Ролевые игры, СимуляторыЯзык субтитров: Русский, Английский, ТурецкийЯзык интерфейса: Русский, Английский, Турецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D678CC00A2E4A80926DD6E4771C5455F9438776
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858007   (1059989) от 08.03.2026
-
-Onirism (2025) [Ru/Multi] (Build 2213289) Repack seleZen
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Присоединяйтесь к Кэрол в волшебном приключении, чтобы найти ее потерянную плюшевую игрушку Банбана. Используйте причудливые гаджеты и дикое оружие, отправляясь в захватывающее путешествие по фантастическим мирам, где вы будете сражаться с хитрыми и яркими противниками в захватывающих, напряженных боях!Тип издания: RepackРазработчик: Crimson TalesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D85F7B2A53CAF2744762A030085DDE616D485EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857997   (1059986) от 08.03.2026
-
-Subnautica (2018) [Ru/Multi] (83031) Repack dixen18
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Subnautica – это своеобразная и удивительная компьютерная игра, выполненная в инновационном жанре, который состоит из частей песочницы, кинематографической игры, исследовательской адвенчуры и неповторимого квеста, что в целом и составляет эту игру. Кроме того, разработкой игры занимались титулованные и именитые игроделы из студии под названием Unknown Worlds. Поэтому, (   Читать дальше...   )Тип издания: RepackРазработчик: Unknown Worlds EntertainmentЖанр: Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C915405687A0B37EC88C64D7ED738BB2F7A07FEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

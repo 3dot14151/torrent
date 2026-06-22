@@ -1,55 +1,3 @@
-###  Публикация: 1373403   (32892) от 27.12.2024
-
-The Universim (2018) [Ru/Multi] (1.2.0.48225) License GOG [Collector's Edition]
-
->>След.
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32892.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Universim, симулятор бога, в котором успех вашей цивилизации зависит от грамотного управления планетой и собственным гневом. Ваши забавные человечки научились добывать огонь! Не успеете вы оглянуться, как они начнут строить деревни, затем города, затем впечатляющие приспособления, высасывающие из земли все соки, а затем, вероятно, и космические корабли, которые (   Читать дальше...   )Тип издания: LicenseРазработчик: Crytivo GamesЖанр: Simulation, Strategy, SandboxЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DEC6260B44E924C06DDD14878377231CC9A3E4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484033   (32577) от 30.12.2024
-
-Transport Fever 2 (2019) [Ru/Multi] (35924.0/dlc) License GOG (обновляемая)
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Transport Fever 2 – классический симулятор транспорта, продолжающий традиции серии, в котором вам предстоит построить собственную транспортную бизнес-империю. Откройте для себя совершенно новый мир, управляя транспортными маршрутами на суше, воде и в воздухе. Добейтесь прогресса, и путь к успеху гарантирован.Тип издания: LicenseРазработчик: Urban GamesЖанр: Simulator, StrategyЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F039D84C029D02D9A633EFE630A94B249E489A54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770067   (32510) от 30.12.2024
 
 Recycling Center Simulator (2024) [Ru/Multi] (1.1.6) Repack FitGirl
@@ -58,7 +6,7 @@ Recycling Center Simulator (2024) [Ru/Multi] (1.1.6) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32510.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Architect Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32471.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ My Time at Sandrock (2023) [Ru/Multi] (1.4.2/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32376.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ MiSide (2024) [Ru/Multi] (0.9) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32271.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ On Your Tail (2024) [Multi] (1.0.1) Repack FitGirl [Deluxe Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32235.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Flashing Lights - Police, Firefighting, Emergency Services Simulator (2023) [Ru/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32025.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ The Universim (2018) [Ru/Multi] (1.2.0.48225) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32021.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Garry's Mod (2006) [Ru/Multi] (Build 162138607) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31950.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ Beach Invasion 1945 - Pacific (2023) [Ru/Multi] (1.0/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31828.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ Shop Simulator: Supermarket (2024) [Ru/Multi] (1.0.5.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31810.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ Gold Mining Simulator (2017) [Ru/Multi] (1.8.2.858/dlc) Repack Let'sРlay [Gold 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31453.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ My Summer Car (2016) [En] (241230-03) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31422.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ Per Aspera (2020) [Ru/Multi] (1.8.3.63441/dlc) Repack FitGirl [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31409.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ Farm Manager 2021 (2021) [Ru/Multi] (1.1.20241030.529/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31387.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ Guardian's Guide (2025) [En] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31292.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ Teardown (2022) [Ru/Multi] (20241204/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31229.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ Construction Simulator 3 (2024) [Ru/Multi] (0.9) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31213.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ Construction Simulator 2 US (2018) [Ru/Multi] (0.9) License GOG [Pocket Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31140.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ Chocolate Factory Simulator (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31117.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ While We Wait Here (2024) [Ru/Multi] (Build 16641425) Repack FitGirl [Soundtrack
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30960.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ I Am Future: Cozy Apocalypse Survival (2023) [Ru/Multi] (1.1.0.006r) Repack FitG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30881.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ Tavern Master: Complete (2021) [Ru/Multi] (2.1.1/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30779.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ Chocolate Factory Simulator (2025) [Ru/Multi] (1.0.15) Repack R.G. Freedom
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30586.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ Car Mechanic Simulator 2021 (2021) [Ru/Multi] (1.0.37/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30499.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ Car Mechanic Simulator 2021 - симулятор механика, позвол�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:648494B8AED1FC596B4D3DB761A01CCD8E28F547
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774145   (30486) от 19.01.2025
+
+AquaFantasia (2024) [Ru/Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Захватывающая и расслабляющая игра на пассивном управлении. Покупайте маленьких рыбок, медленно выращивайте их, продавайте или позвольте им зарабатывать для вас деньги! Затем покупайте морские темы, наполненные фантазией, сочетайте различных редких рыб, чтобы получить уникальный аквариум. Эпические рыбы могут вести своих сородичей в плавании по океану, а легендарные (   Читать дальше...   )Тип издания: SceneРазработчик: SunnyCitrusЖанр: Казуальные игры, СимуляторыЯзык озвучки: Русский, Английский, Немецкий, Японский и другиеЯзык субтитров: Русский, Английский, Немецкий, Японский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B1B4FA790D80F325F746721DDED3BCDB169F376
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774152   (30478) от 19.01.2025
+
+Heart's Medicine - Hospital Heat (2017) [Ru/Multi] (1.0.0.9) Scene F4CG
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Heart's Medicine - Hospital Heat - это долгожданное продолжение Heart's Medicine - Time to Heal, где вас ждет бесконечно трогательный и драматичный сюжет о жизни больницы, авторские мелодии, отлично проработанная анимация, затягивающий игровой процесс и очень, очень много любви к людям. Если вы любите игры, в которых главное - отличный сюжет, то можете быть уверены: (   Читать дальше...   )Тип издания: SceneРазработчик: Blue Giraffe, GameHouseЖанр: Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86392DCC63C4554219849DF992626E33DACB52A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

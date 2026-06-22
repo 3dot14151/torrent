@@ -1,244 +1,3 @@
-###  Публикация: 1764352   (35052) от 06.12.2024
-
-YTDLnis 1.8.1.2 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35052.jpg" />
-</div>
-
-
-###  Подробнее
-
-YTDLnis — это бесплатный загрузчик видео/аудио с открытым исходным кодом, использующий yt-dlp для Android 7.0 и более поздних версий.Тип издания: FreeПоддерживаемая ОС: Android 7.0 и вышеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31837D0B64BAEC46D943DB2FD493713FABBB42F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764429   (34966) от 07.12.2024
-
-AI ChatBot AI Friend Generator v4.0.0.0 Mod by serborkr [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34966.jpg" />
-</div>
-
-
-###  Подробнее
-
-AI Chat Bot на базе ChatGPT, ChatGPT-4, GPT-4o и Gemini, лучший помощник на базе искусственного интеллекта, который может помочь вам практически в любой сфере жизни. Независимо от того, являетесь ли вы студентом, профессионалом или просто тем, кто хочет пообщаться, просто спросите AI Chat! AI Chat на базе ChatGPT и технологии GPT здесь, чтобы помочь вам.Тип издания: VIPРелиз состоялся: 03.11.2024Разработчик: VIDEOSHOW Video Editor & Maker & AI Chat GeneratorПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:212AD244686F01ED9F2E5D30E6C9A64AE3029FB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764442   (34936) от 07.12.2024
-
-Xcast.tv / Трансляция на телевизор v2.3.8.2 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Cast to TV позволяет передавать все локальные видео, музыку и изображения на Chromecast, Amazon Fire Stick или Fire TV, Xbox One, Smart TV или иные устройства DLNA. Установите Cast to TV и смотрите видео по телевизору прямо сейчас!Тип издания: ModРелиз состоялся: 06.12.2024Разработчик: InShot Inc.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D971CCCCCC793CF3A2C825492E898DF4F580DCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764425   (34926) от 07.12.2024
-
-Фитнес тренер FitProSport v4.102 Paid [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вместе с персональным фитнес тренером «FitProSport» Ваши занятия станут максимально эффективными!Тип издания: Paid / Full с МаркетаРелиз состоялся: 06.12.2024Разработчик: FitProSportПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55284C06E7B7964EDA9F3879A53F5A47EE8C3DE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764423   (34923) от 07.12.2024
-
-WPS Office + PDF v18.14 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34923.jpg" />
-</div>
-
-
-###  Подробнее
-
-WPS Office - очень полезное, офисное приложение для любого пользователя мобильных устройств. Проект обладает всеми необходимыми функциями, что позволяют работать со всеми документами и файлами пакета программ Microsoft Office. Открытие, редактирование, объединение и многое другое подвластно всем желающим без установки оригинального программного обеспечения. Ну а (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 06.12.2024Разработчик: WPS SOFTWARE PTE. LTD.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B68B58523B6F4554131A98133F2F1FF9E914D05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761685   (34804) от 08.12.2024
-
-Hear Clear / Услышать на расстоянии v1.1.9.1 Mod by 0x7d [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшое приложение, призванное помочь улучшить восприятие речи слабослышащим. В наличии возможность записи с встроенного микрофона, микрофона наушников или BT-микрофона. В наличии несколько предустановок эквалайзера и настройка предусиления. Обработанные звукозаписи можно сохранять в памяти устройства.Тип издания: PremiumРелиз состоялся: 07.12.2024Разработчик: Ronasoft MediaПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:616CD09CF7DB48238CDF72E7564A55939FFFBDF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764870   (34745) от 09.12.2024
-
-Яндекс Музыка, Книги, Подкасты PLUS 2024.12.1 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Яндекс.Музыку можно слушать онлайн и без интернета. Десятки миллионов треков в одном приложении.
-🔑 Активирована подписка Plus, удалена реклама, музыка в высоком качестве, работают тексты песен, поддержка arm7 и arm64 устройств.Тип издания: ModРелиз состоялся: 04.12.2024Разработчик: Direct Cursus Computer Systems Trading LLCПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C538E8E868E9E372EA4F92E43FA0912032C60351
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764829   (34736) от 09.12.2024
-
-MiHome v9.10.700 Mod by Vevs [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая быстрая и качественная модификация MiHome.
-Управление и связь с устройствами.
-Подключение устройств к сети.
-Подключение устройств друг к другу.Тип издания: ModРелиз состоялся: 9.12.2024Разработчик: Beijing Xiaomi Mobile Software Co.,LtdПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:944C880B6EDE2402002A5C0E690022994BD2617B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765101   (34645) от 10.12.2024
-
-Blasphemous 1.0.0 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34645.jpg" />
-</div>
-
-
-###  Подробнее
-
-На земли Квстодии и всех ее обитателей пало ужасное проклятье, которое называют просто Чудом.
-
-Вам предстоит примерить на себя роль Кающегося — единственного, кто выжил в бойне под названием «Безмолвное горе». Герой попал в ловушку бесконечного цикла смерти и возрождения, и теперь ему предстоит спасти мир от ужасной судьбы, добравшись до причины всех мучений.
-(   Читать дальше...   )Тип издания: PaidРелиз состоялся: 2 дек. 2024 г.Разработчик: The Game KitchenПоддерживаемая ОС: Android 7.1+ (arm64-v8a)Жанр: ЭкшнЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA9ACDE0ED30A0DBA2BDDCA2F3EAFFE61C319450
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765090   (34630) от 10.12.2024
 
 PicLab - Photo Editor v2.10.0 Mod by Balatan [En]
@@ -247,7 +6,7 @@ PicLab - Photo Editor v2.10.0 Mod by Balatan [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34630.jpg" />
 </div>
 
 
@@ -273,7 +32,7 @@ Monument Valley 3 v1.0.14999 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34527.jpg" />
 </div>
 
 
@@ -301,7 +60,7 @@ Machinarium 3.1.8 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34444.jpg" />
 </div>
 
 
@@ -327,7 +86,7 @@ Kovoclak 1.12 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34409.jpg" />
 </div>
 
 
@@ -353,7 +112,7 @@ Little Nightmares 124 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34354.jpg" />
 </div>
 
 
@@ -382,7 +141,7 @@ Age of History 3 1.035 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34334.jpg" />
 </div>
 
 
@@ -411,7 +170,7 @@ Very Little Nightmares 1.2.4 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34303.jpg" />
 </div>
 
 
@@ -439,7 +198,7 @@ Pine: A Story of Loss 1.4 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34289.jpg" />
 </div>
 
 
@@ -468,7 +227,7 @@ Meadowfell v1 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34288.jpg" />
 </div>
 
 
@@ -496,7 +255,7 @@ The Abandoned Planet v1.2.5 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34282.jpg" />
 </div>
 
 
@@ -524,7 +283,7 @@ The Rise of the Golden Idol v1.2 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34279.jpg" />
 </div>
 
 
@@ -552,7 +311,7 @@ Death’s Door v1.2.5 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34274.jpg" />
 </div>
 
 
@@ -581,7 +340,7 @@ Civilization VI: NETFLIX 1.2.5 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34236.jpg" />
 </div>
 
 
@@ -609,7 +368,7 @@ TV+ v2.0.2 Mod by vadj [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34212.jpg" />
 </div>
 
 
@@ -636,7 +395,7 @@ Dune: Imperium Digital 2.1.5 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34208.jpg" />
 </div>
 
 
@@ -665,7 +424,7 @@ Balatro 0.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34206.jpg" />
 </div>
 
 
@@ -694,7 +453,7 @@ Dead Cells: Netflix Edition v3.3.25 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34141.jpg" />
 </div>
 
 
@@ -707,6 +466,254 @@ Dead Cells: Netflix Edition v3.3.25 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A36F828CF9BB651714CF31989727AEE57F8F6BCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766021   (34138) от 15.12.2024
+
+Trudograd 1.0.75 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трудоград - это отдельное сюжетное расширение для ATOM RPG - пошаговой ролевой игры, действие которой происходит в постапокалиптическом Советском Союзе. Она вдохновлена классическими играми cRPG прошлого, такими как ранние серии Fallout, Wasteland и Baldur’s Gate.
+
+22 года назад СССР и Западный блок уничтожили друг друга в ядерном аду. Миллионы людей погибли мгновенно, (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 30 июл. 2024 г.Разработчик: ATENT GAMES LTDПоддерживаемая ОС: Android 7.0+Жанр: РПГЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45C31398A4C3BB0DAF2FC8014B7BE3D3761CA21B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765840   (34118) от 15.12.2024
+
+Forgotten Memories: Remastered 1.9.102 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34118.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре "Forgotten Memories" вы принимаете роль Розы Хокинс, решительного полицейского детектива, которая оказывается втянутой в паутину загадочных событий во время расследования странного дела. Пробуждаясь в мрачном незнакомом месте, Роза встречает Ноа, загадочную и впечатляющую женщину, которая предлагает ей сделку. Этот рискованный союз обещает помочь (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 1 дек. 2024 г.Разработчик: Psychose Interactive Inc.Поддерживаемая ОС: Android 8.0+ (arm64-v8a)Жанр: ПриключенияЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04F7BD126D48613B37179EB0A4A285D68562BAFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765987   (34112) от 15.12.2024
+
+Conquistadorio v25 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляйтесь в захватывающее приключение с игрой Conquistadorio! Исследуйте загадочный мир, полный испытаний, головоломок и увлекательного сюжета. Присоединитесь к нашему харизматичному главному герою в драматической истории с крутыми рисунками, забавной анимацией и многим другим. Скачайте игру прямо сейчас и окунитесь в захватывающий мир приключений!Тип издания: PaidРелиз состоялся: 25 ноября 2024Разработчик: Morion StudioПоддерживаемая ОС: Android 8.1+Жанр: ПриключенияЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:072DAE0E54978C03D81BC07C70738D36BF6DB33B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766010   (34095) от 15.12.2024
+
+GRIS 1.0.3 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грис — наивная девочка, запершаяся в собственном мире из-за боли, окутавшей ее в реальности. Ее скорбь находит воплощение в ее платье, которое дает разные способности, позволяющие лучше ориентироваться в своем мире. По ходу сюжета Грис эмоционально крепнет и начинает видеть свой мир немного иначе, открывая все новые и новые пути.
+
+GRIS — медитативная и умная игра, (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 22 нояб. 2023 г.Разработчик: DevolverDigitalПоддерживаемая ОС: Android 5.1+Жанр: ПриключенияЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5409832A24B7AB226B2AEE794988583E81EBBC35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765865   (34075) от 15.12.2024
+
+Gomorrah v1.0.4 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие игры "Гоморра" происходит в пригороде итальянского города Неаполь. Это запутанная история о размытых границах между добром и злом.
+
+Вы - Нина, дочь босса мафии Серхио Миньеро. В ночь вашего 18-летия вы чудом выживаете после жестокого нападения на вечеринке, но ваш отец безжалостно убит.
+(   Читать дальше...   )Тип издания: PaidРелиз состоялся: 19 июл. 2024 г.Разработчик: 34BigThings srlПоддерживаемая ОС: Android 5.0+ (arm64-v8a)Жанр: ПриключенияЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DDB93201ED0B95AE5132A013EB8A9B84F9F441B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766004   (34071) от 15.12.2024
+
+Endling *Extinction is Forever 1.3.2 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сможет ли лиса-мать сохранить в живых своих маленьких детенышей?
+Испытайте мир, разоренный человечеством. Посмотрите на него глазами последней лисы на Земле в этом экологически сознательном приключении.
+Откройте для себя разрушительную силу человеческой расы, которая изо дня в день портит, загрязняет и эксплуатирует самые ценные ресурсы природной среды.
+Исследуйте (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 24 апр. 2023 г.Разработчик: HandyGamesПоддерживаемая ОС: Android 9+Жанр: ПриключенияЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97CAA9AFE58816CCDF1F7C337AA6D79C0FF2FCE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765868   (34060) от 15.12.2024
+
+Carrion 1.0.35 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34060.jpg" />
+</div>
+
+
+###  Подробнее
+
+CARRION — хоррор, в котором вам предстоит оказаться в роли хищника, аморфного существа неизвестного происхождения. Выслеживайте и пожирайте всех, кто причастен к вашему заточению, сея страх и панику в каждом уголке лаборатории. Растите, эволюционируйте и обретайте все новые сокрушительные способности на своем пути к свободе и кровавому возмездию.Тип издания: UnlockedРелиз состоялся: 19 нояб. 2024 г.Разработчик: DevolverDigitalПоддерживаемая ОС: Android 6.0+Жанр: ЭкшнЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:835B107DA44A61D7D5C87700F3AA62B7112B6BCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766165   (34017) от 16.12.2024
+
+Metrolist 10.7.0 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наслаждайтесь музыкой YouTube наилучшим образом с помощью этого удивительного приложения. Благодаря красивому дизайну и расширенным функциям Metrolist преображает ваши впечатления от прослушивания музыки, придавая ей красоту и мощь.
+Это приложение позволяет вам слушать любую песню или музыкальное видео на YouTube, даже если ваш телефон заблокирован. Вы можете скачать (   Читать дальше...   )Тип издания: FreeПоддерживаемая ОС: Android (о минимальной версии данных нет)Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF500AE6F9D6997752C97C83DD613A6855F70243
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766186   (34015) от 16.12.2024
+
+Skul: The Hero Slayer v1.0.9 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skul — это динамичный экшен с элементами rogue-lite, где терять голову в гуще битвы не только можно, но и нужно!
+Более 100 доступных персонажей с уникальными способностями и огромный ассортимент предметов позволяют экспериментировать с самыми неожиданными комбинациями для победы над хитрыми и сильными противниками.
+Замок короля демонов пал
+Все новые и новые людские (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 2 дек. 2024 г.Разработчик: PlaydigiousПоддерживаемая ОС: Android 10+ (arm64-v8a)Жанр: ЭкшнЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB2960341B6393FA82221166AAA6B071CAC467EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

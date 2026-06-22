@@ -1,3 +1,108 @@
+###  Публикация: 1741792   (47455) от 08.08.2024
+
+Дж. Кеннан | Сибирь и ссылка (1906) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47455.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1870 году в Нью-Йорке вышла книга Кеннана «Кочевая жизнь в Сибири». Автор* к тому времени окончательно увлекся журналистикой, читал лекции о сибирских впечатлениях, еще раз побывал в Петербурге, совершил путешествие по Волге и Кавказу. В начале 80-х одну из лекций в Американском географическом обществе Кеннан посвятил теме «Сибирь – место ссылки», и в этой лекции (   Читать дальше...   )Жанр: монографияПеревод: И.Н. КашинцеваЯзык: Русский (дореформенный)Издательство: Москва: «Книгоиздательство Логос»Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3553A165D479982DE670415669ED0C8DD4B81B24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741815   (47447) от 08.08.2024
+
+Дж. Кеннан | Голос за русский народ (ответ на "Голос за Россию") (1896) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47447.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1891 году вышла в свет двухтомная книга Кеннана "Сибирь  и ссылка" (Siberia and the Exile System), включавшая интервью, данные и рисунки Дж.А.Фроста. Книга вкупе с лекционной деятельностью ее автора оказала серьезное влияние на американское общественное мнение. Прослушавший одно из выступлений Кеннана Марк Твен воскликнул: "Если такое правительство (   Читать дальше...   )Жанр: Историческая публицистикаЯзык: Русский дореформенныйИздательство: Carouge-Geneve: М.К. ЭлпидинФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A127AE8D17C41B114E57D805485CA2B13CE7A13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743030   (46875) от 14.08.2024
+
+Б.Н. Миронов | Российская империя. От традиции к модерну [3 книги] (2014) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Необычайно интересное и информативное издание, представляющее собой глубокую переработку предшествующей трехтомной "Социальной истории России периода империи", является обобщающим, фундаментальным, комплексным и системным исследованием социальной истории России периода империи с конца XVII в. до 1917 г.
+Автор сосредоточен на социальной и экономической истории (   Читать дальше...   )Жанр: МонографияИздательство: Санкт-Петербург: Дмитрий БуланинФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D563D20BDBA2CEB7EB3C30DAB38F81BF77083AF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742986   (46855) от 14.08.2024
+
+В.М. Бокова, Л.Г. Сахарова (составители) | Институтки. Воспоминания воспитанниц институтов благородных девиц. 4-е издание (2008) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воспитанницы институтов благородных девиц, с раннего детства изолированные от дома и семьи, отличались повышенной эмоциональностью и чувствительностью, оторванностью от быта, специфическими обычаями, речью и стилем общения. Включенные в книгу воспоминания пяти институток, охватывающие период с конца XVIII в. до начала XX в., выразительно рисуют этот своеобразный (   Читать дальше...   )Жанр: Мемуары, дневники, автобиографииИздательство: Москва: Новое литературное обозрениеФормат: DJVU, PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BC4CF560E83CE0DDA123E1ACEC24355CA8A3ACE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743505   (46588) от 16.08.2024
 
 Д.Н.Блудов | Последние часы жизни императора Николая I (1855) [PDF]
@@ -6,7 +111,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46588.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46034.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43468.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42664.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42259.jpg" />
 </div>
 
 
@@ -139,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42014.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41985.jpg" />
 </div>
 
 
@@ -191,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41980.jpg" />
 </div>
 
 
@@ -217,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41979.jpg" />
 </div>
 
 
@@ -244,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41050.jpg" />
 </div>
 
 
@@ -270,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40410.jpg" />
 </div>
 
 
@@ -296,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40076.jpg" />
 </div>
 
 
@@ -323,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39762.jpg" />
 </div>
 
 
@@ -349,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39218.jpg" />
 </div>
 
 
@@ -375,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39119.jpg" />
 </div>
 
 
@@ -403,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39081.jpg" />
 </div>
 
 
@@ -429,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38865.jpg" />
 </div>
 
 
@@ -457,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38312.jpg" />
 </div>
 
 
@@ -483,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37986.jpg" />
 </div>
 
 
@@ -509,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36608.jpg" />
 </div>
 
 
@@ -535,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36495.jpg" />
 </div>
 
 
@@ -561,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36247.jpg" />
 </div>
 
 
@@ -573,112 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3B5B23D5D7DF3CB01B5E9FA2928A0847220CB63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763064   (35754) от 29.11.2024
-
-В. Мзареулов (сост.) | От СМЕРШа не уйти. Розыск агентуры противника в советском тылу (2023) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35754.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Возьми их всех! Возьми их теплыми! Умри, но сделай! А лучше сделай и не умирай!..» Это не девиз – офицеры Главного управления контрразведки «Смерш» не жаловали пустые девизы. Они делали свою работу – в равной степени далекую и от садизма и от романтики, и от диссидентских легенд о репрессиях и от патриотических легенд о наведении ужаса на врагов народа. Просто на (   Читать дальше...   )Жанр: история России, историческая и военная литератураИздательство: Алгоритм, ООО «Издательство Родина»Формат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A60C396D2A88B3C2B1807A8D46B93A89347DA762
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763643   (35455) от 02.12.2024
-
-А.Ф. Риттих | Славянский мир (2013) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35455.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге «Славянский мир. Историко-географическое и этнографическое исследование» публикуется главное произведение выдающегося русского мыслителя, этнографа, картографа Александра Федоровича Риттиха «Славянский мир», ставшее своего рода манифестом славянского движения. В книге собраны обширные историко-этнографические сведения о славянах. «Великое славянское племя, (   Читать дальше...   )Жанр: этнография, историяИздательство: Институт русской цивилизацииФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EB41E08CFD54185FBC5DD01931E014946325C7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763641   (35445) от 02.12.2024
-
-М.Ф. Миркович, А.Ф. Риттих | Этнографическая карта славянских народностей. Второе издание (1875) [PDF, JPG]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этнографическая карта распределения славянских народностей, составленная М.Ф. Мирковичем и дополненная А.Ф. Риттихом. Статистические таблицы распределения славян: по государствам и народностям; по вероисповиданиям, азбукам и литературным языкам (наречиям) с объяснительной запиской А.С. Будиловича.
-Карта в релизе представлена отдельным файлом в масштабе 1: 2 520 000Жанр: этнография, картыИздательство: Отдел Славянского Благотворительного КомитетаФормат: PDF, JPGКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:503F8B63BCF1CCA0496A46A193C1522458D7A285
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763788   (35356) от 03.12.2024
-
-Б.А. Рыбаков | Язычество древних славян [2 книги] (1981, 2013) [PDF, DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга принадлежит перу выдающегося историка и археолога, знатока культуры древней и средневековой Руси акад. Б.А. Рыбакова, основоположника отечественной школы медиевистов, и является первым томом его фундаментального исследования по истории зарождения и развития язычества древнейшего славянского этноса.
-Книга раскрывает истоки народного мировоззрения русских, украинцев, (   Читать дальше...   )Жанр: история, язычество, религияИздательство: Наука, Академический ПроектФормат: PDF, DJVUКачество: Различное
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86F6A9A7C3CB0D16A0682EC60CCB1F3437D16E89
 ```
 
 https://mybot314.ru/tekegram_catalog/

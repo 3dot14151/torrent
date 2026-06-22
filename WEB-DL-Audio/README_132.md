@@ -6,7 +6,7 @@ Cruel Addiction - Confess (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26996.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ David Rose - Perfect Harmony Sings (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26994.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Lacuna Coil - Sleepless Empire (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Got
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26873.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Dirkschneider - Balls To The Wall Reloaded (2025) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26257.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Lisa - Alter Ego (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electropop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26047.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Medusian - Library (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Extreme Symphon
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25734.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Jethro Tull - Curious Ruminant (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Prog 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25521.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ serpentwithfeet - GRIP SEQUEL (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R&B,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25516.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Lady Gaga - Mayhem (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25504.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Thomas Anders - … Sings Modern Talking: The 1st Album (2025) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25441.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Disturbed - The Sickness (2000) 25th Anniversary Deluxe Edition, 2025, Reprise [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25106.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Lights Of Skadi - A Cinematic Experience (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24998.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Machinedrum - 3RMX82 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bass, Drum & 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24995.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Lacrimosa - Dark is this Night (2025) Maxi-Single [FLAC 16,24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24994.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Sasami - Blood On The Silver Screen (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24990.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Zopa - Diamond Vehicle (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24786.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24508.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Moby - Everything Is Wrong Non-Stop Dj Mix By Evil Ninja Moby (1996) digital re-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24178.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Cradle Of Filth - The Screaming Of The Valkyries (2025) [FLAC 24/44.1|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23948.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Adriano Celentano - Mr. Celentano (2025) Remaster [FLAC 24/44.1|Lossless|image +
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23729.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23632.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Helloween - March of Time (The Best of 40 Years) (2025) Remastered, Compilation 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23216.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ polnalyubvi - Прощай и люби меня (2025) [FLAC 24/96|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22285.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Primal Scream - Come Ahead: The Remixes Vol 1 (2024) Vocals, 2025, BMG[FLAC 24/9
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22268.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Haddaway - The Album (1993) Remastered, 2025, Craft Recordings [FLAC 24/48|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22262.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ Elton John, Brandi Carlile - Who Believes In Angels? (2025) [FLAC 24/96|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22258.jpg" />
 </div>
 
 

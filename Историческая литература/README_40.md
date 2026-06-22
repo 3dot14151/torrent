@@ -1,3 +1,110 @@
+###  Публикация: 1289406   (686639) от 16.03.2019
+
+А. Н. Чистозвонов | Гентское восстание [1539-1540 г.г.] (1957) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гентское восстание представляет собою один из наиболее ярких эпизодов социально-политической, классовой борьбы в Нидерландах кануна буржуазной нидерландской революции XVI в. Его историческое значение тем более велико, что революция и война за независимость во Фландрии в известной степени начались с того, на чем закончилось гентское восстание 1539—1540 гг.,— с отмены (   Читать дальше...   )Жанр: История, политология, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AB6EA35C455975FD667EC12A0A74164D81BE417
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535354   (686568) от 06.03.2022
+
+Роман Бродский | Дальневосточная политика США накануне первой мировой войны (1968) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686568.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматривается дальневосточная политика США между русско-японской и первой мировой войнами, дается анализ русско-американских отношений в этот период. Автор показывает формы и методы дальневосточной экспансии США. Много внимания он уделяет освещению американских проектов интернационализации маньчжурских железных дорог, маневрам США в связи с проблемой организации (   Читать дальше...   )Жанр: Монография, история, дипломатия, политология, империализмФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CF7E139F447211E282C2515BA991DAAE80C12ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289399   (686473) от 16.03.2019
+
+А. Н. Львов | В стране Амон-Ра [очерки Египта] (1911) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагая вниманию благосклонного читателя настоящую мою книгу, я нахожу нужным сказать несколько предварительных слов о ней.
+Книга эта, ближе всего, подходит к тому роду литературы, который в теориях словесности определяется термином "путешествия". Фундамент книги - мои личные впечатления, и на этом фундаменте сделаны исторические надстройки.
+
+Мне казалось (   Читать дальше...   )Жанр: ИсторияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBA47A95B45966B35568C0C4E400115B13FA7898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403905   (686319) от 22.08.2020
+
+Хелен Пэриш | Краткая история. Реформация (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда в октябре 1517 года Мартин Лютер прикрепил свои 95 тезисов к двери церкви Всех Святых в Виттенберге, он потряс основы западного христианства. Под сомнение были поставлены все догмы, традиции и приоритеты… Идеи Лютера о реформировании религиозных доктрин и практик и последовавшие протесты против продажи индульгенций раскололи Церковь. Но Реформация в итоге вышла (   Читать дальше...   )Жанр: Популярно об историиПеревод: Валентина ФеоклистоваФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDC106D02F5F3A2427E00BF3E565FEE1C50AA11B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289420   (686245) от 16.03.2019
 
 Рут Гудман | Искусство провокации. Как пьянствовали в Британии эпохи Возрождения (2019) [PDF, FB2]
@@ -6,7 +113,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686245.jpg" />
 </div>
 
 
@@ -33,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685303.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685302.jpg" />
 </div>
 
 
@@ -87,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685299.jpg" />
 </div>
 
 
@@ -113,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685067.jpg" />
 </div>
 
 
@@ -142,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684984.jpg" />
 </div>
 
 
@@ -170,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684969.jpg" />
 </div>
 
 
@@ -196,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684125.jpg" />
 </div>
 
 
@@ -222,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683978.jpg" />
 </div>
 
 
@@ -248,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683721.jpg" />
 </div>
 
 
@@ -277,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683132.jpg" />
 </div>
 
 
@@ -306,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683128.jpg" />
 </div>
 
 
@@ -334,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683122.jpg" />
 </div>
 
 
@@ -363,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683040.jpg" />
 </div>
 
 
@@ -389,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683039.jpg" />
 </div>
 
 
@@ -417,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683028.jpg" />
 </div>
 
 
@@ -443,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683026.jpg" />
 </div>
 
 
@@ -471,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682916.jpg" />
 </div>
 
 
@@ -497,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681778.jpg" />
 </div>
 
 
@@ -523,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681201.jpg" />
 </div>
 
 
@@ -549,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681100.jpg" />
 </div>
 
 
@@ -577,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680153.jpg" />
 </div>
 
 
@@ -590,112 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45E37CEA53835C1793835F367CD452E04B22B518
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135679   (679510) от 20.05.2017
-
-Д. Ибаррури | Октябрьская социалистическая революция и испанский рабочий класс (1960) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679510.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящий выпуск «Библиотечки по научному социализму» входят четыре работы председателя Коммунистической партии Испании товарищ Долорес Ибаррури: «Октябрьская социалистическая революция и испанский рабочий класс», «Коммунистический Интернационал и Народный фронт», «40 лет Коммунистической партии Испании, ее корни, идеологическая основа и деятельность» и «Обращение (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2AE8EB023C07D5D75F7DA8C1035CC1C910DD44D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135680   (679509) от 20.05.2017
-
-Г. К. Орджоникидзе | Под знаменем ленинизма и единства ленинской партии (1960) [DJVU, PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Помещенные в настоящем выпуске «Библиотечки по научному социализму» работы — «О федерации Закавказских республик», «О Союзе Советских Социалистических Республик», «Под знаменем ленинизма и единства ленинской партии», «О шахтинском деле и задачах молодых пролетарских специалистов» — написаны верным учеником и соратником В. И. Ленина Г. К. Орджоникидзе.
-
- В них освещается (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E87895304EB628952B870288EA0E32CE8EF925C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135678   (679508) от 20.05.2017
-
-А. Айру | Феллахи Египта (1954) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679508.jpg" />
-</div>
-
-
-###  Подробнее
-
-В предлагаемой вниманию советского читателя книге А. Айру «Феллахи Египта» описывается жизнь 14 миллионов крестьян Египта - страны, многострадальный народ которой свыше 70 лет борется за свою национальную независимость против английских оккупантов, а в последнее время и против американских империалистов, желающих заменить английское иго американским ярмом. Автор (   Читать дальше...   )Жанр: История, политология, культурология, экономика, искусствоФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8578EC6224EBC048EF446FC6A6D7CEAC3017CB07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135670   (679426) от 20.05.2017
-
-Н. Н. Варварцев | Национализм в обличье советологии (1984) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679426.jpg" />
-</div>
-
-
-###  Подробнее
-
-В монографии анализируются социально-политические основы составной части советологии - буржуазного «украиноведения», роль государственно-монополистического механизма в его возникновении и функционировании. Раскрываются особенности деятельности центров «украинских исследований», тенденциозная направленность их источниковой базы, механизм распространения антикоммунистических (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A48517B5AC041294C9754F65B70390D2FB2CECFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

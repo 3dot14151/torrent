@@ -1,3 +1,107 @@
+###  Публикация: 915423   (214854) от 19.12.2015
+
+National Geographic. Взлом системы / Hacking the System (2014) IPTVRip [Серии 1-12 из 12]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брайан Брашвуд  сделал карьеру, думая, как преступник, и теперь он здесь, чтобы показать нам, как избегать людей, которые обманывают систему. Кроме того, он будет давать нам юридические советы и рассказывать о разных уловкахТелекомпания: США, National GeographicЖанр: Документальный, ТелепередачаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: Серия по ~00:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A1D981E9377CED3DEEEE83E50EBCA219355623
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270425   (214041) от 18.12.2018
+
+NGW: Вдоль по Окаванго / Into the Okavango (2018) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда молодых исследователей отправляется в свое первое эпическое четырехмесячное путешествие вдоль реки Окаванго. Им предстоит преодолеть расстояние в 1500 миль и пересечь три страны, чтобы сделать свой вклад в спасение уникальной речной системы, питающей дельту реки Окаванго, эту одну из последних оставшихся на земле диких заболоченных территорий.Производство: США, Ангола, Ботсвана, Намибия, Южная Африка, США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Нил ГелинасПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 01:33:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F9A6CC618EB1FB5D9BE043CF0C9B45E906C83EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560648   (212938) от 01.07.2022
+
+Инстинкт выживания / Primal Survivor (2019) WEB-DL [H.264/1080p] (сезон 4, серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Его зовут Хэйзен Одел и он - инструктор по выживанию и проводник по дикой местности. Он жил и обучался в разных племенах по всему миру, благодаря чему он овладел удивительными методами выживания в природе, свойственных коренному населению. Теперь он путешествует по самым удаленным уголкам планеты, чтобы подвергнуть суровым испытаниям свои знания, навыки и выносливость (   Читать дальше...   )Производство: Великобритания, Icon Films, National GeographicЖанр: документальный, приключения, экстримРежиссер: Стивен Ширман, Клер ДорнанПеревод: одноголосый профессиональный (Велес)Субтитры: английскиеПродолжительность: 3x ~00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F13533DAAEC2809EF168299CB072B98458460A1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565853   (211932) от 26.07.2022
+
+NG. Прекрасная Америка / America the Beautiful (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) [VO]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал показывает захватывающие дух пейзажи и дикую природу Америки, у которой уникальная география. Рассказывает Майкл Б. Джордан.Производство: США / National Geographic, Disney+Жанр: Документальный, приключения, природаРежиссер: Tom StephensПеревод: Одноголосый профессиональный (Jaskier)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: ~00:48:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CE43980BC97B24ADDDC29D5B2434848792629F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638948   (211820) от 10.06.2023
 
 NG. Разрушительный ураган Сэнди / Superstorm New York: What Really Happened (2012) WEB-DL [H.264/1080p]
@@ -6,7 +110,7 @@ NG. Разрушительный ураган Сэнди / Superstorm New York: 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211820.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211586.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NG. Затонувшие сокровища нубийских фараонов 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210877.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210231.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ NG. В поисках динозавров на Аляске / Hunting Alaskan D
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210215.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ NG. Путь гепарда / The Way Of the Cheetah (2022) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210010.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ NG. Настоящая чёрная пантера / The Real Black Panther (202
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209976.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208942.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208686.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208081.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207459.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207391.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206807.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ NG: Апокалипсис: Первая мировая война (5 серий
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206647.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206572.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ NG. Загадка акул Мауи / Maui Shark Mystery (2022) WEB-DL [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206528.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205978.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ NG: Человек-волк / The Wolfman (2006) HDTVRip [720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205049.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204335.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204296.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ NG: Безграничный / Без границ: с Крисом Хемсво
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203029.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201678.jpg" />
 </div>
 
 
@@ -563,111 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A6092697E5BE8874F78AED81DD1A69194FA38EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 710911   (201195) от 16.03.2023
-
-NG. Реальность или фантастика? Бермудский треугольник / Is it Real? Bermuda triangle (2006) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201195.jpg" />
-</div>
-
-
-###  Подробнее
-
-В загадочном Бермудском треугольнике многие десятки и даже сотни лет бесследно пропадают корабли и самолеты. Что это? - природная аномалия, результат действия каких-то неземных сил или грандиозная мистификация?
-Программа "Реальность или фантастика" рассматривает доводы тех, кто полагает, что наконец-то нашел разгадку.Жанр: документальный,  научно-популярный, исследованиеПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:527E74E24B61B70F1892B42DB9710B59005A158F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627412   (199545) от 19.04.2023
-
-NG. НЛО: Расследование неизвестного / UFOs: Investigating the Unknown (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-5 из 5) Влад Дорф
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие люди искренне верят в существование инопланетного разума. Некоторые уверены в том, что представители иных рас прибывали на нашу Землю, но были крайне осторожны и оставались незамеченными. Каждый новый эпизод этого проекта – захватывающее расследование, в ходе которого нам предстоит узнать очень многое относительно неопознанных летающих объектов, которые были (   Читать дальше...   )Производство: США / National Geographic ChannelЖанр: документальныйПеревод: Одноголосый любительскийЯзык озвучки: Русский, АнглийскийСубтитры: Английские (SDH)Продолжительность: ~00:40:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:446D92372205D65429B3CBF37EE47D40A2A7EB75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638601   (197323) от 09.06.2023
-
-NG: Расследования Авиакатастроф / Mayday / Air Crash Investigation (2023) HDTV [H.264/1080p-LQ] (сезон 23, серии 1-10 из 10)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конечно, вряд ли найдется хотя бы один человек, который не боялся бы оказаться в авиакатастрофе. В этих обстоятельствах ты должен справиться со своим волнением и прожить этот путь в самолете. Большая часть тех, кто летит в лайнере, задается вопросом, останутся ли они в живых или упадут в море или в горах. Кроме того, каждый странный попутчик может представляться (   Читать дальше...   )Производство: Канада, Cineflix Productions, National GeographicЖанр: документальный, история, катастрофыРежиссер: Тим Волочатюк, Марк Мэйнгай, Джордж Д’АматоУчастники: Джонатан Арис, Стивен Богарт, Джон КоксПеревод: двуголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: серии ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5712F48B8CE1FC8A4A0BBA61C60CAAF50E4ACBDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638757   (197310) от 10.06.2023
-
-NG: Владычицы морей / Shark Queens (2022) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Считается, что в мире животных доминирующую роль играют самцы. Но неужели самые большие и свирепые акулы - это самки? Новейшие исследования расскажут нам, кто на самом деле правит волнами...Производство: США, Великобритания, Best Production Company, The Big Sky, National GeographicЖанр: документальный, история, исследованияРежиссер: Бен Уилсон, Джек УилсонПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 00:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:590986823C3376D726F075A37B038E2528F043FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

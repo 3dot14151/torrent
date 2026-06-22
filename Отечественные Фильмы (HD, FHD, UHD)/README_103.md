@@ -1,3 +1,108 @@
+###  Публикация: 1634686   (198072) от 22.05.2023
+
+Я не плачу (2023) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198072.jpg" />
+</div>
+
+
+###  Подробнее
+
+За неуплату долгов в квартиру матери-одиночки заявляется вышибала, который требует вернуть долг и угрожает ей и ее ребенку. Чтобы защитить сына, мать готова на все.Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Василиса ДоленкоАктеры: Константин Третьяков, Адам Кумаев, Анастасия УшаковаСубтитры: русскиеПродолжительность: 00:12:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1733A9C63704766F2E6D0B6A642F3A252BCECBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610035   (197998) от 25.05.2023
+
+Доверие (2022) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197998.jpg" />
+</div>
+
+
+###  Подробнее
+
+35-летние мужчина и женщина давно живут вместе. Они любят поесть перед телевизором, поиграть в кристаллики, сидя рядом в застиранных футболках, попить пива в постели перед сном. Они полностью принимают друг друга и даже легко обмениваются телефонами. Или их доверие лишь хитрая манипуляция одного из партнеров?Производство: РоссияЖанр: Короткометражный, драма, комедияРежиссер: Анастасия ДенисоваАктеры: Анна Котова-Дерябина, Макар ЗапорожскийСубтитры: отсутствуютПродолжительность: 00:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AFE0DB49DC56F959CC8BE359B4A3D09E76ECB29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450318   (197944) от 25.05.2023
+
+Мы из будущего 2 (2010) BDRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они встретились на поле «реконструкции военных событий» и хотели поиграть в войну. Но война решила поиграть с ними…
+Герои первой части фильма, Борман и Череп, попадают в 1944 год, и вместе с ними в прошлом оказываются еще двое — молодые украинцы Таран и Серый, «игравшие » в войну на другой стороне. Каждый из них совершит свой подвиг, чтобы вернуться домой и сберечь (   Читать дальше...   )Производство: Россия, кинокомпания "А-1 кино видео"Жанр: Фантастика, боевик, приключения, военныйРежиссер: Александр Самохвалов, Борис РостовАктеры: Игорь Петренко, Владимир Яглыч, Алексей Барабаш, Дмитрий Ступка, Екатерина Климова, Владислав Резник, Денис Карасев, Иван Краско, Остап Ступка, Кирилл ПолухинСубтитры: АнглийскиеПродолжительность: 01:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51941BDB67695DB4A4392FEC532BBAE0A738F113
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628678   (197647) от 31.05.2023
+
+Фига.Ro (2009) WEBRip [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды утром в рекламной компании «Фига.Rо» появляются красивая девушка и культурный мужчина. Через две минуты парочка берет в заложники бизнесмена Ивана, хозяина офиса, окна которого выходят на здание спецслужб...Производство: РоссияЖанр: драма, комедияРежиссер: Рано КубаеваАктеры: Андрей Молочный, Иван Охлобыстин, Дарья Екамасова, Светлана Ефремова, Егор Андреев, Светлана Бобкина, Светлана Германова, DJ SmashПродолжительность: 01:32:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08EE464866AFC65182C954FEF33A828CA4DF46AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637303   (197601) от 03.06.2023
 
 Стрелец неприкаянный (1993) WEB-DL [H.264/1080p]
@@ -6,7 +111,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197601.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197421.jpg" />
 </div>
 
 
@@ -60,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197274.jpg" />
 </div>
 
 
@@ -86,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197060.jpg" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196855.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196816.jpg" />
 </div>
 
 
@@ -164,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196004.jpg" />
 </div>
 
 
@@ -190,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195946.jpg" />
 </div>
 
 
@@ -216,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195943.jpg" />
 </div>
 
 
@@ -242,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195841.jpg" />
 </div>
 
 
@@ -268,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195774.jpg" />
 </div>
 
 
@@ -294,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195598.jpg" />
 </div>
 
 
@@ -320,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195580.jpg" />
 </div>
 
 
@@ -346,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195492.jpg" />
 </div>
 
 
@@ -372,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195462.jpg" />
 </div>
 
 
@@ -398,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195041.jpg" />
 </div>
 
 
@@ -424,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194823.jpg" />
 </div>
 
 
@@ -450,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194813.jpg" />
 </div>
 
 
@@ -476,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194799.jpg" />
 </div>
 
 
@@ -502,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_194749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194749.jpg" />
 </div>
 
 
@@ -529,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194672.jpg" />
 </div>
 
 
@@ -555,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194641.jpg" />
 </div>
 
 
@@ -566,110 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FD8A71D110E66FCD6899AFE10DDD26240C1B714
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651616   (194605) от 07.08.2023
-
-Король и Шут: Сказка о Горшке и Князе (2023) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два трубадура Горшок и Князь хотят стать королевскими менестрелями и вызываются на поиски пропавшей Принцессы. Храбрецы отправляются за ней прямиком в дремучий лес, полный смертельных опасностей. Им предстоит встреча с загадочным Лесником, проклятым Горбуном, обворожительной Феей Мух, огромным страшным зверем и Колдуном. Выдержит ли дружба Горшка и Князя столько (   Читать дальше...   )Производство: Россия / Лунапарк, Лига Фильм, Плюс СтудияЖанр: фэнтезиРежиссер: Рустам МосафирАктеры: Константин Плотников, Влад Коноплёв, Валери Зоидова, Вера Вольт, Дарья Мельникова, Александр Клюквин, Александр Адабашьян, Филипп Дьячков, Алексей Фаддеев, Елена СоломинаСубтитры: отсутствуютПродолжительность: ~01:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBEA2235C8DAFB30095A08820DAC707516FC1C3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651621   (194597) от 07.08.2023
-
-Король и Шут: Сказка о Горшке и Князе (2023) WEBRip [H.265/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два трубадура Горшок и Князь хотят стать королевскими менестрелями и вызываются на поиски пропавшей Принцессы. Храбрецы отправляются за ней прямиком в дремучий лес, полный смертельных опасностей. Им предстоит встреча с загадочным Лесником, проклятым Горбуном, обворожительной Феей Мух, огромным страшным зверем и Колдуном. Выдержит ли дружба Горшка и Князя столько (   Читать дальше...   )Производство: Россия / Лунапарк, Лига Фильм, Плюс СтудияЖанр: фэнтезиРежиссер: Рустам МосафирАктеры: Константин Плотников, Влад Коноплёв, Валери Зоидова, Вера Вольт, Дарья Мельникова, Александр Клюквин, Александр Адабашьян, Филипп Дьячков, Алексей Фаддеев, Елена СоломинаСубтитры: отсутствуютПродолжительность: ~01:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74816A1EEF140C9C8479677A0211C10B2ADF73EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 424362   (194589) от 07.08.2023
-
-Выкрутасы (2010) [720p] BDRip
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_194589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слава Колотилов, простой школьный учитель из сонного приморского городка с небанальным названием «Пальчики», приехал покорять Москву с рукописью романа в руках, а покорил… красавицу Надю. Уже близится свадьба, ресторан заказан и гости приглашены, но цепкие Пальчики не дают Славе вырваться к суженой, подстраивая череду «непреодолимых обстоятельств». Вот и приходится (   Читать дальше...   )Жанр: Мелодрама, Комедия, Семейный, СпортРежиссер: Леван ГабриадзеАктеры: Константин Хабенский, Милла Йовович, Иван Ургант, Сергей Гармаш, Владимир Меньшов, Ольга Тумайкина, Галина Логинова, Сергей Селин, Сергей Шеховцов, Александр Кержаков, Александр Робак, Роман Мадянов, Александр ФарберПеревод: ОригинальныйПродолжительность: 01:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:334A474B45965C5001CF1F72A962521C0189A6EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652000   (194487) от 09.08.2023
-
-Голова-жестянка (2023) WEB-DL [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194487.jpg" />
-</div>
-
-
-###  Подробнее
-
-16-летняя Женя, которую все зовут Жесть, сполна оправдывает свое прозвище: жестит и разрушает отношения со всеми вокруг. Такой она стала после сотрясения мозга и травмы ноги. Теперь она хромает и видит мир далеко не в розовом цвете. В своей травме Женя винит лучшего (а теперь бывшего) друга Приходько и направляет на него весь свой гнев и искрометный цинизм. Но, кроме (   Читать дальше...   )Производство: Россия / QS FILMS, Киномир, Segezha GroupЖанр: драма, комедияРежиссер: Иван КапитоновАктеры: Варвара Володина, Олег Чугунов, Сергей Гилев, Татьяна Яковенко, Анна Попова, Даниил Вершинин, Наталья Кудряшова, Владимир Селезнев, Юрий Ицков, Дима МальковЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:55:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCEE8ACF035C5DACC4E6FD89E3BB42BAB572083F
 ```
 
 https://mybot314.ru/tekegram_catalog/

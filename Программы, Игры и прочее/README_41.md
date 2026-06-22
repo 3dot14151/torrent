@@ -1,3 +1,29 @@
+###  Публикация: 1366925   (920574) от 13.03.2020
+
+Happy Color – Color by Number v2.2.1 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Color by Number – New Coloring Book - это увлекательная мультимедийная игра в которой вам предстоит создавать из обычного черно-белого полотна настоящие шедевры. Для простоты рисунок уже будет создан и поделен на различные части, вы же должны додумать его и закрасить эти самые части. Игра подойдет для всех возрастов и вы сможете не только увлечь вашего ребенка, но (   Читать дальше...   )Тип издания: Mod (Бесконечные подсказки)Релиз состоялся: 30.10.2018Разработчик: X-FlowПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:747689F7526C4015C9F43F053AD87C669C009602
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366737   (920569) от 13.03.2020
 
 Progressbar95 v0.500 [Ru/En]
@@ -6,7 +32,7 @@ Progressbar95 v0.500 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920569.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ LEGO Star Wars Microfighters v1.0.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920298.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Star Wars: Rivals v6.0.2 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920141.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ PC Creator - PC Building Simulator v1.0.57 + Mod [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920137.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ WiFi Analyzer Premium v1.3 build 8 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920134.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Pro QR & Barcode Scanner PDF417 Scanner, Reader v2.1.0.7 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920133.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ XRecorder Pro 1.2.2.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920082.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Star Wars: Knights of the Old Republic (KOTOR) + Mod v1.0.7 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919785.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ GameKeyboard + v6.1.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919126.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Groovepad - Music & Beat Maker v1.1.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918977.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Oreny - Icon Pack v1.6.2.4.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918970.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918966.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Analog Electronic Toolbox v3.77 [En] - набор инструментов дл�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918862.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ GT Recovery - Undelete,Restore 2.6.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918853.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ Gym Pro - Домашние тренировки v112.5 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918756.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ Hungry Shark VR v1.0 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918629.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ Mod Master For Minecraft v3.9.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918492.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Speedcam Downloader v4.0.7 [Ru] - закачка файлов радаров д�
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918218.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ ProCam X (HD Camera Pro) 1.16 (Paid) [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917096.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ iGO Primo NextGen 9.18.27.682862  arimi @ Vamibg skin mod [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916722.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ PhotoPills v1.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915776.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ SimpleRockets 2 v0.9.205 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915672.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ DraStic DS Emulator vr2.5.2.0a build 101 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915668.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ AIDE Premium Key v3.0.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915543.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ App Cloner v2.1.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915526.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ App Cloner - Хотите играть сразу с нескольких акк
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CD3E33523E35830BFD4E916D13CA3DB0109975E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367365   (915404) от 16.03.2020
-
-Маруся - голосовой помощник! v1.0.1 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маруся - новый голосовой ассистент от студии Mail.Ru который умеет не только отвечать на вопросы, но и выполнять различные поручения, так для этого вам необходимо либо набрать вопрос в текстовом режиме или же озвучить его голосом. Кроме этого разработчики добавили целый ряд уже заготовленных форматов и моделей вопросов и действий, так что наиболее популярные фразы (   Читать дальше...   )Тип издания: Mod (Отвязан от сервисов Google Play)Релиз состоялся: 17.06.2019Разработчик: Mail.Ru GroupПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7DB710244F65504B7FF24DACD6B750952B989DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

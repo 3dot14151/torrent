@@ -1,3 +1,55 @@
+###  Публикация: 1518338   (154680) от 19.12.2021
+
+Webbed (2021) [Ru/Multi] (1.04b) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перепрыгивайте с дерева на дерево, плетите липкую паутину и знакомьтесь с другими насекомыми! Станьте очаровательным паучком своей мечты! "Пау!" - это история весёлой паучихи, которая отправляется в путешествие, чтобы спасти своего возлюбленного от большой и страшной птицы-шалашника. Во время исследования опасных зарослей Вы можете положиться только на (   Читать дальше...   )Тип издания: LicenseРазработчик: Sbug GamesЖанр: Приключение, Головоломка, ПлатформерЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0234D9722DD513555336A57032EEA531CAD8043B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 854099   (153383) от 27.12.2014
+
+Braid (2009) [Ru/Multi] (1.0) SteamRip Let'sPlay
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Braid — это выполненный в живописном стиле платформер-головоломка, который дает вам возможность управлять течением времени множеством странных и необычных способов. Начав с городского особняка, вы посетите разнообразные миры и разгадаете множество головоломок, спасая похищенную принцессу. В каждом мире вы по-своему влияете на поведение времени, и природа головоломок (   Читать дальше...   )Тип издания: SteamRipРазработчик: Number NoneЖанр: Arcade (Platform) / LogicЯзык озвучки: -//-Язык субтитров: Русский, Английский, Немецкий, Французский, Итальянский, ИспанскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Итальянский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5544175AE8A376A5B0436AC67D321BF7028A184
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1826161   (152348) от 18.10.2025
 
 New Super Lucky's Tale (2020) [Ru/Multi] (Build 10670184) Repack Let'sРlay
@@ -6,7 +58,7 @@ New Super Lucky's Tale (2020) [Ru/Multi] (Build 10670184) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152348.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Dungetris (2017) [Ru/Multi] (1.0) Unofficial SiMPLEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151148.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Dead Island Retro Revenge (2016) [Ru/Multi] (build 1160760) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150680.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ The Last Faith (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150588.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Celeste (2018) [Ru/Multi] (1.2.5.1) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148262.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Super Meat Boy Forever (2020) [Ru/Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147018.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Waking Mars [En] (L) 2012 | -JAGUAR-
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146967.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ March of Shrooms (2023) [En] (m309e) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146794.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Celeste (2018) [Ru/Multi] (1.2.5.1) Repack R.G. Revenants
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144992.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Bzzzt (2023) [Multi] (1.001) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144741.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ YOHANE THE PARHELION -BLAZE in the DEEPBLUE- (2023) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143128.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ The Cave (2013) [Ru/En] (1.0/u2) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141934.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Bladed Fury (2018) [En/Ch/Jp] (1.0.1819) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141717.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ RaceTime: Undercover (2017) [Ru/En] (1.0.2) License
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139420.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Teslagrad (2013) [Ru/Multi] (1.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137532.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Grave Danger (2016) [En] (1.0.1) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137373.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Cramped Room of Death (2023) [Multi] (1.0.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137294.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Duke of Alpha Centauri (2016) [En] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137232.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Dark Light (2020) [Multi] (1.0.6.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137012.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Jump King (2019) [Ru] (Build 14374430) Repack Necros
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136720.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132887.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Ghost Song (2022) [Ru/Multi] (1.2.12b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132458.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Basement Collection [En] (Repack) 2012 | R.G. Origami
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131885.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ SteamWorld Dig 2 (2017) [Ru/Multi] (1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131550.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ SteamWorld Dig 2 (2017) [Ru/Multi] (1.1) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CA33C9E76B4A5BFFA306D9AD98802112CEE354B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682649   (130919) от 08.12.2023
-
-Blasphemous II (2) (2023) [Ru/Multi] (1.1.0-cs44446) Repack dixen18
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая часть серии Blasphemous сулит вам новую встречу с Кающимся, чья история продолжится в Wounds of Eventide - бесплатном дополнении к основной игре. Сердце небес возвестило о возвращении Чуда и предсказало рождение необычного ребенка. Лишившись вечного покоя и проснувшись на незнакомой земле, Кающийся оказывается вовлеченным в бесконечный цикл жизни, смерти и (   Читать дальше...   )Тип издания: RepackРазработчик: The Game KitchenЖанр: Экшны, MetroidvaniaЯзык озвучки: Английский, ИспанскийЯзык субтитров: Русский, Английский, Немецкий, ИспанскийЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:205A4EC4153EAFC68FEF14ED90AD8832EBE74745
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682902   (130778) от 09.12.2023
-
-Blanc (2023) [Ru/Multi] (1.33) Repack dixen18
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blanc - это атмосферная и трогательная адвенчура для всей семьи. Спрятанный где-то в заснеженных просторах лежит таинственный мир - удивительная вселенная, в которой два малыша - волчонок и олененок, отправятся в путешествие, чтобы найти свои семьи. Это не просто игра, это эмоциональная история о дружбе, доверии и выживании в неизведанных дебрях. В этом невероятном (   Читать дальше...   )Тип издания: RepackРазработчик: Casus LudiЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2498982078F6FD89366A1C8271E3CE2CC83B5D59
 ```
 
 https://mybot314.ru/tekegram_catalog/

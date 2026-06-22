@@ -1,3 +1,81 @@
+###  Публикация: 1685274   (127214) от 18.12.2023
+
+Валентин Распутин | Прощание с Матёрой. Пожар (2023) [MP3, Олег Исаев]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127214.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Прощание с Матёрой» – история о затоплении острова ради строительства Братской ГЭС. Деревне Матере суждено уйти на дно искусственно созданного моря – вместе с историей целых поколений, живших на этой земле прежде. На защиту своей маленькой родины выходят старики. Они не могут смириться с уничтожением изб, в которых родились и выросли, могил, где похоронены их предки, (   Читать дальше...   )Жанр: Советская литератураИздательство: Аудиокнига АСТПродолжительность: 14:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:066F41038BF73FA2E812FA501EEFCF2E7EE73ABC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686535   (126511) от 23.12.2023
+
+Виктор Пелевин | Пространство Фридмана (2018) [MP3, Всеволод Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Значительная часть современной массовой культуры работает по схеме, которую в профессиональных кругах называют «Мельница-3»: небогатые люди продают совсем бедным свои фантазии о жизни богатых, очень богатых и сказочно богатых. Иногда эта схема разнообразится какой-нибудь яркой деталью: небогатый человек демонстрирует жёлтой прессе свой домик на Рублёвке или выдаёт (   Читать дальше...   )Жанр: Изобретения, Постмодернизм, Сатира, Современная русская литература, Философская проза, Философская фантастикаИздательство: СОЮЗПродолжительность: 00:30:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24CE5CC45598A1DF0A7D28A1799D92464B4B2049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686543   (126509) от 23.12.2023
+
+Виктор Пелевин | Македонская критика французской мысли (2020) [MP3, Всеволод Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главному герою повести – философу Насыху Нафикову – по прозвищу Кика, с детства не давал покоя вопрос о том, что происходит с душами после смерти. Путём сложнейших умозаключений Кика приходит к выводу, что после смерти человека остаётся некая форма, так называемая «человеконефть», воплощённая в товарно-денежном эквиваленте. То есть по сути мы превращаемся в денежную (   Читать дальше...   )Жанр: Постмодернизм, Психологическая проза, Сатира, Современная Россия, Современная русская литература, Философская прозаИздательство: СОЮЗПродолжительность: 01:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57E39E66E7EB4639D5CC4172BC16A91723001B57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686526   (126481) от 23.12.2023
 
 Виктор Пелевин | Who by fire (2020) [MP3, Всеволод Кузнецов]
@@ -6,7 +84,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126481.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126238.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126229.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126069.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126043.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126042.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125828.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125205.jpg" />
 </div>
 
 
@@ -218,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125174.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124891.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124874.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124163.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123580.jpg" />
 </div>
 
 
@@ -349,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123533.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121142.jpg" />
 </div>
 
 
@@ -404,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121110.jpg" />
 </div>
 
 
@@ -430,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120976.jpg" />
 </div>
 
 
@@ -456,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120822.jpg" />
 </div>
 
 
@@ -482,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120461.jpg" />
 </div>
 
 
@@ -508,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120282.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119946.jpg" />
 </div>
 
 
@@ -560,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119569.jpg" />
 </div>
 
 
@@ -587,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119538.jpg" />
 </div>
 
 
@@ -600,85 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17E0F2E53CEE32A697659AB15F29B0E99C98E952
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696637   (119493) от 03.02.2024
-
-Булат Окуджава | Песни и стихи. Том 3 (2006) [MP3, Булат Окуджава, Валентин Никулин и др.]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Булат Шалвович Окуджава (9 мая 1924 – 12 июня 1997) поэт, композитор, прозаик, актёр и сценарист. Автор около двухсот авторских и эстрадных песен, написанных на собственные стихи, один из наиболее ярких представителей жанра авторской песни в 1950–1980 годы и автор лирическо-философской прозы.
-Булат Окуджава обладал редким даром: мудрые вещи излагать простыми словами, (   Читать дальше...   )Жанр: Русская литература, классика, поэзия, песниИздательство: ИДДКПродолжительность: 01:52:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4C742B941CA94240754BFC01B5C37D71B710C51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696850   (119329) от 04.02.2024
-
-Сергей Тельканов | Прыжок в ночь (2023) [MP3, Diodand]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой лейтенант Леонид Савочкин во время Великой Отечественной сопровождает разведчиков за линию фронта на самолете. Но очередной неразговорчивый пассажир в последний момент перед прыжком стреляет в лейтенанта. В ярости и недоумении Савочкин прыгает за ним в ночное небо, чтобы узнать причину выстрела.Жанр: Военная повестьИздательство: Аудиокнига своими рукамиПродолжительность: 01:26:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6049E1A1476F257BFAC18673C05FB9CBECF6A8DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699281   (117950) от 12.02.2024
-
-Евгений Белянкин | Застава (1978) [MP3, Николай Караченцов]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117950.jpg" />
-</div>
-
-
-###  Подробнее
-
-О советских пограничниках, их борьбе с агентами шпионско-эмигрантских центров, размещенных в Скандинавских странах.Жанр: Приключения, ПовестьИздательство: Старое Радио, ГостелерадиофондПродолжительность: 01:21:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9619CD0DB43F586A9186F01A6B9F62537FC365E
 ```
 
 https://mybot314.ru/tekegram_catalog/

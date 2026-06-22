@@ -1,3 +1,112 @@
+###  Публикация: 1705013   (63685) от 07.03.2024
+
+HitPaw Video Converter for Mac 4.0.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конвертируйте видео и музыку без потерь с невероятной скоростью в/из более чем 1000 форматов: MP4, MOV, AVI, VOB, MKV и т. д. Не только для обычных кодеков, но и для продвинутых кодировщиков VP9, ​​ProRes и Opus. Это решает все ваши проблемы с неподдерживаемыми форматами и позволяет воспроизводить ваши видео на любой платформе и устройстве.
+Скачивайте (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.03.2024Разработчик: © 2024 HitPawПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA6F55F5ECF772061DC5486921584E465BB08452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705338   (63652) от 08.03.2024
+
+App Cleaner & Uninstaller Pro 8.2.7 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63652.jpg" />
+</div>
+
+
+###  Подробнее
+
+App Cleaner - это приложение для просмотра установленных приложений и деинсталлирования пакета файлов для полного удаления.
+App Cleaner - лучшее приложение для удаления файлов приложения службы на macOS X и деинсталляции приложений.
+Удалить служебные файлы приложения. Убедитесь, что они не съедают драгоценное пространство на вашем Mac с этим полезным приложением, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.03.2024Разработчик: © 2024 NektonyПоддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:808A4E3C6DDD03D8BB3CA30556CAACAEBF342333
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705297   (63618) от 08.03.2024
+
+Capture One 23 Pro 16.3.7.10 [En/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Capture One 23 Enterprise — решение для редактирования фотографий для студий обработки изображений и платформ электронной коммерции. Его аутентичная реалистичная обработка цветов, беспрепятственный процесс редактирования и самое быстрое в отрасли подключение дают вам полный творческий контроль, что делает его имя нарицательным в студиях по всему миру. Компания Capture (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.03.2024Разработчик: © 2023 Phase OneПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
+* язык интерфейса приложения зависит от дефолтного языка операционной системы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DBEE2DF1BE8F79DBA09DC0502F5D2BF4AAECBA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705311   (63609) от 08.03.2024
+
+Capture One 23 Enterprise 16.3.7.10 [En/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Capture One 23 Enterprise — решение для редактирования фотографий для студий обработки изображений и платформ электронной коммерции. Его аутентичная реалистичная обработка цветов, беспрепятственный процесс редактирования и самое быстрое в отрасли подключение дают вам полный творческий контроль, что делает его имя нарицательным в студиях по всему миру. Компания Capture (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.03.2024Разработчик: © 2024 Phase OneПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский, Немецкий и др.
+* язык интерфейса приложения зависит от дефолтного языка операционной системы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4637F73B8B1654502C9EAF58AD214A971FFB7FDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705251   (63592) от 08.03.2024
 
 Navicat Premium 16.3.7 [Multi]
@@ -6,7 +115,7 @@ Navicat Premium 16.3.7 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63592.jpg" />
 </div>
 
 
@@ -32,7 +141,7 @@ DCommander 3 Premium for Mac v.3.9.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63493.jpg" />
 </div>
 
 
@@ -59,7 +168,7 @@ Aiseesoft iPhone Unlocker for Mac 2.0.38 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63295.jpg" />
 </div>
 
 
@@ -85,7 +194,7 @@ Clearview X 3.5.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63287.jpg" />
 </div>
 
 
@@ -111,7 +220,7 @@ DearMob iPhone Manager 6.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63269.jpg" />
 </div>
 
 
@@ -138,7 +247,7 @@ BetterDisplay Pro for Mac 2.2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63239.jpg" />
 </div>
 
 
@@ -164,7 +273,7 @@ Ableton Live Suite 11 v.11.3.22 U2B [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63210.jpg" />
 </div>
 
 
@@ -190,7 +299,7 @@ Cisdem Video Converter 7.13.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63203.jpg" />
 </div>
 
 
@@ -217,7 +326,7 @@ Shottr for Mac 1.7.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63177.jpg" />
 </div>
 
 
@@ -243,7 +352,7 @@ TG Pro (Temperature Gauge Pro) 2.92 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63097.jpg" />
 </div>
 
 
@@ -270,7 +379,7 @@ Rhinoceros 8 v.8.5 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63089.jpg" />
 </div>
 
 
@@ -297,7 +406,7 @@ BetterTouchTool 4.443 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63074.jpg" />
 </div>
 
 
@@ -323,7 +432,7 @@ TechTool Pro 19 v.19.0.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63057.jpg" />
 </div>
 
 
@@ -350,7 +459,7 @@ PDF Expert 3.9.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63050.jpg" />
 </div>
 
 
@@ -377,7 +486,7 @@ PDF Reader Pro 3.3.1.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63003.jpg" />
 </div>
 
 
@@ -403,7 +512,7 @@ BoltAI 1.15.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62972.jpg" />
 </div>
 
 
@@ -430,7 +539,7 @@ DxO PhotoLab 7 ELITE Edition 7.5.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62955.jpg" />
 </div>
 
 
@@ -457,7 +566,7 @@ Audio Hijack 4.3.2 U2B [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62953.jpg" />
 </div>
 
 
@@ -484,7 +593,7 @@ Parallels Desktop Business Edition 19 for Mac 19.3.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62937.jpg" />
 </div>
 
 
@@ -511,7 +620,7 @@ FonesGo WhatsApp Transfer for Mac 8.5.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62675.jpg" />
 </div>
 
 
@@ -537,7 +646,7 @@ FxFactory Pro 8.0.14 U2B [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62673.jpg" />
 </div>
 
 
@@ -564,7 +673,7 @@ Navicat Charts Viewer for Mac 1.2.17 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62549.jpg" />
 </div>
 
 
@@ -575,110 +684,6 @@ Navicat Charts Viewer — это простой в использовании и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E187F221872B124FE1F8D3FCA5621ADB4257E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707789   (62548) от 18.03.2024
-
-CheckBook Pro 2.7.29 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62548.jpg" />
-</div>
-
-
-###  Подробнее
-
-CheckBook Pro - это не просто базовый инструмент регистрации чеков и создания отчетов, в нем есть все! Это ваш очень простой менеджер по личным финансам и многое другое. Получите отчет для всех ваших учетных записей одновременно. Поиск транзакций по любой комбинации критериев. Сгруппируйте свои транзакции в папки. Изменить детали группы транзакций в один штрих. CheckBook (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.03.2024Разработчик: © 2002-2022 Splasm Software, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:577F8DB2CD21494F8DED8BB1FAD459651053AAFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707796   (62530) от 18.03.2024
-
-ON1 NoNoise AI 2024 for Mac v18.2.0.15224 U2B [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62530.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это лучшее программное обеспечение шумоподавления для фотографии. Быстро удаляйте шумы и получайте самые четкие детали на фотографиях с ON1 NoNoise AI. Приложение разумно удаляет все шумы изображения, разумно восстанавливая и улучшая детали. Оно интегрируется в ваш рабочий процесс, поддерживая распространенные фоторедакторы и форматы файлов, в том числе сохраняя (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.07.2022Разработчик: © 2022 ON1, Inc.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3318442703434DE2F5DE54219F58A9696FCE6C3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707792   (62529) от 18.03.2024
-
-Live Wallpaper & Themes 4K Pro for Mac 19.7 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Live Wallpaper & Themes 4K позволяют использовать живые обои на рабочем столе/экранной заставке. Приложение предоставляет тысячи живых обоев в мастерской, потребляя при этом как можно меньше системных ресурсов.Тип издания: macOS SoftwareРелиз состоялся: 09.03.2024Разработчик: © 2024 WHBALZAC IncПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Упрощенный китайский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99F6F1EA9E4A64DAD1026A07EFE25EFBD38F9642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708075   (62488) от 19.03.2024
-
-JetBrains WebStorm for Mac 2023.3.5 Intel/ARM [En]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62488.jpg" />
-</div>
-
-
-###  Подробнее
-
-WebStorm - Легкий, но мощный IDE, прекрасно оборудованный для комплексной разработки на стороне клиента и на стороне сервера разработки с Node.js. WebStorm поможет вам писать код лучше благодаря умному завершению кода, на лету обнаружения ошибок, мощной навигации и рефакторингу. Поддержка новейших технологий IDE обеспечивает поддержку первого класса для JavaScript, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.03.2024Разработчик: © 2000-2024 JetBrains s.r.o.Поддерживаемая ОС: macOS 10.15 (Intel)+, macOS 12.0 (ARM)Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8CB7D5B8A5076826011C32A57CCE9672F8654D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

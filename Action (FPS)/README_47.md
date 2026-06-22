@@ -1,3 +1,29 @@
+###  Публикация: 1731180   (44382) от 07.09.2024
+
+Chornobyl Liquidators (2024) [Ru/Multi] (1.02.18/dlc) Repack Decepticon
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chornobyl Liquidators - симулятор ликвидатора Чернобыльской катастрофы. Окажитесь в списке тех, кто оказался максимально близок в последствиям катастрофы. События игры развиваются в первые минуты после аварии. Здесь нет монстров и мутантов, никто не борется со всемирным злом. Игра опирается на историческую достоверность и реализм.Тип издания: RepackРазработчик: Live Motion GamesЖанр: Экшены, Приключенческие игры, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Польский, Французский и другиеЯзык интерфейса: Русский, Английский, Польский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCD8B7849C7BE87674191D5F01E3338C50E4542F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725822   (44168) от 09.09.2024
 
 MULLET MADJACK (2024) [Ru/Multi] (1.1) Scene Tenoke
@@ -6,7 +32,7 @@ MULLET MADJACK (2024) [Ru/Multi] (1.1) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44168.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Green Hell (2019) [Ru/Multi] (2.9.1) Repack Wagner
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44069.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Son and Bone (2024) [En] (1.0) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43961.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ I Am Your Beast (2024) [En] (1.0) Scene SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43933.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Diluvian Ultra (2023) [Ru/Multi] (3.5.24) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43846.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Crysis 2 (2011) [Ru/En] (1.9) Repack dixen18 [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43622.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ MULLET MADJACK (2024) [Ru/Multi] (1.1) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43615.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Far Cry (2004) [Ru/En] (1.04) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43613.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ MULLET MADJACK (2024) [Ru/Multi] (1.1) Repack Wagner
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43564.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Borderlands: Trilogy (2013-2019) [Ru/Multi] (1.5.0/1.8.5/1.0.9/dlc) Repack dixen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43542.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Son and Bone (2024) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43508.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Far Cry 2 (2008) [Ru/En] (1.03) Repack dixen18 [Fortune's Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43507.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ I Am Your Beast (2024) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43501.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Bioshock Dilogy / Дилогия Bioshock (2007-2010) [Ru/En] (1.1/1.1/dlc) Repa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43409.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Borderlands (2019) [Ru/En] (1.5.0/dlc) Repack xatab [Game of the Year Enhanced]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43226.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Chains of Fury (2024) [Ru/Multi] (1.0.0.2) Scene SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43195.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Far Cry 3 Dilogy (2012-2013) [Ru/En] (1.05/1.02/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43121.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Far Cry 4 (2014) [Ru/Multi] (1.10/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43118.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Half-Life: Alyx (2020) [Ru/Multi] (1.5.4/dlc) Repack dixen18 [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43109.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Chains of Fury (2024) [Ru/Multi] (1.0.0.2) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43104.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Crysis 3 (2013) [Ru/En] (1.3) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43017.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Crysis 3 Remastered (2022) [Ru/En] (1.0) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42687.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42119.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Pneumata (2024) [Multi] (1.05) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41940.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Chernobylite (2019) [Ru/Multi] (49411/dlc) Repack Other s [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41844.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Chernobylite (2019) [Ru/Multi] (49411/dlc) Repack Other s [Deluxe Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01904A2F1F02C6D8E6590913472A3DB7262EE271
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753530   (41421) от 05.10.2024
-
-Crysis (2007) [Ru/En] (1.1.1.6156) Repack dixen18 [Enhanced Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Crysis - первая игра в популярной трилогии, духовный преемник Far Cry, представляет собой шутер с видом от первого лица, события которого разворачиваются в 2019 году. Простая спасательная операция превратилась в театр новой войны, когда на северокорейский архипелаг начали высаживаться инопланетные захватчики. В вашем распоряжении – сверхсовременный нанокостюм, ваша (   Читать дальше...   )Тип издания: RepackРазработчик: CrytekЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDAA0B94125E0A7C1B3CDCDE6BDEC764ABDB6E3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

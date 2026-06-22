@@ -1,3 +1,109 @@
+###  Публикация: 1700562   (116998) от 17.02.2024
+
+Smooze Pro 2.0.72 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smooze одушевляет ваш скролл и добавляет функциональность к вашей не оригинальной Apple мыши (прокрутки колеса мыши).Тип издания: macOS SoftwareРелиз состоялся: 16.02.2024Разработчик: © 2024 Segev SherryПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB8C83B55641D62784DC7926BFBBCB5C797B200
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700812   (116897) от 18.02.2024
+
+PingPlotter Pro for Mac 5.24.3.7253 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116897.jpg" />
+</div>
+
+
+###  Подробнее
+
+PingPlotter Pro – приложение, которое предоставляет пользователю широкий спектр возможностей в процессе сетевого мониторинга и устранения возникающих неполадок. Программа способна выводить графический отчет об эффективности маршрута, тестирует производительность сети в течение заданного периода времени и уведомляет пользователя при возникновении сбоев в работе. PingPlotter (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.06.2023Разработчик: © 1998-2024 Pingman Tools, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4412161750AF9359117C4FD7B2DA5B9D3CDDC66E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700838   (116893) от 18.02.2024
+
+Total Video Player for Mac 3.1.4 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total Video Playerr Pro является мощным, полнофункциональным HD медиа-плеером, поддерживающего разрешение 1080p, видео форматы - AVI, MKV, MP4, H264, Mov, FLV, WMV, 3GP и множество других популярных видео, а также аудио -  Mp3, Wma, Ogg, Mpeg-1,Mpeg-2 и  др. Нет проблем с воспроизведением Blu-ray, DVDs, VCDs, SVCDS и DVB. Нет необходимости устанавливать какие-либо (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.02.2024Разработчик: © 2024 eTinySoft Inc.Поддерживаемая ОС: macOS 10.13 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C86AC9A2803253F0592D223523FE93FBFE874F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700828   (116868) от 18.02.2024
+
+iTranslate 1.5.2 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116868.jpg" />
+</div>
+
+
+###  Подробнее
+
+iTranslate, наиболее популярный инструмент переводчиков на App Store, теперь и на вашем Mac.
+iTranslate для Mac позволяет вам получить доступ к более чем 80 языкам. Оно создано в качестве приложения строки состояния, всегда находится всего лишь в одном щелчке мышью или в одном нажатии клавиши и готово помочь вам решить любую проблему с переводом.
+iTranslate оптимизировано (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.03.2023Разработчик: © 2023 iTranslate GmbHПоддерживаемая ОС: macOS X 10.12 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:798C929FAED0B8AAB84C804B4EFBFB54EF335736
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700729   (116845) от 18.02.2024
 
 BusyContacts 2024.1.2 [Multi]
@@ -6,7 +112,7 @@ BusyContacts 2024.1.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116845.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ Iridient Developer for Mac 4.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116842.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ BusyCal 2024.1.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116839.jpg" />
 </div>
 
 
@@ -86,7 +192,7 @@ SnippetsLab 2.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116820.jpg" />
 </div>
 
 
@@ -112,7 +218,7 @@ DriveDX 1.12.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116778.jpg" />
 </div>
 
 
@@ -138,7 +244,7 @@ DjVu Reader Pro 2.7.1 [Ru/En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116758.jpg" />
 </div>
 
 
@@ -165,7 +271,7 @@ MAMP PRO 6 v.6.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116745.jpg" />
 </div>
 
 
@@ -191,7 +297,7 @@ DriveDX 1.11.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116723.jpg" />
 </div>
 
 
@@ -217,7 +323,7 @@ NCH Crescendo Masters Pro 10.12 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116655.jpg" />
 </div>
 
 
@@ -243,7 +349,7 @@ AlDente Pro fo Mac 1.25.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116600.jpg" />
 </div>
 
 
@@ -269,7 +375,7 @@ Native Instruments Guitar Rig 8 Pro for Mac 8.1.11 beta [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116584.jpg" />
 </div>
 
 
@@ -295,7 +401,7 @@ AnyMP4 Video Repair for Mac 1.0.8 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116557.jpg" />
 </div>
 
 
@@ -321,7 +427,7 @@ Merlin Project 3.1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116552.jpg" />
 </div>
 
 
@@ -347,7 +453,7 @@ Aiseesoft Video Repair for Mac 1.0.20 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116541.jpg" />
 </div>
 
 
@@ -373,7 +479,7 @@ Aiseesoft Mac FoneTrans 9.2.36 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116540.jpg" />
 </div>
 
 
@@ -399,7 +505,7 @@ Stats 2.10.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116525.jpg" />
 </div>
 
 
@@ -425,7 +531,7 @@ PhotoMill X 2.5.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116523.jpg" />
 </div>
 
 
@@ -453,7 +559,7 @@ JixiPix Artista Impresso Pro 1.8.26 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116511.jpg" />
 </div>
 
 
@@ -480,7 +586,7 @@ Markdown + 3.3.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116503.jpg" />
 </div>
 
 
@@ -506,7 +612,7 @@ Sound Siphon 3.6.7 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116488.jpg" />
 </div>
 
 
@@ -532,7 +638,7 @@ Iris 1.6.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116476.jpg" />
 </div>
 
 
@@ -558,7 +664,7 @@ Music Tag Editor Pro 7.5.3 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116385.jpg" />
 </div>
 
 
@@ -571,112 +677,6 @@ Music Tag Editor - редактор музыкальных тегов помож
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F33C277BD0C76CBF2565FD6E482CB7A78F5A74C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701567   (116376) от 21.02.2024
-
-Path Finder 2168 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов,  управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.02.2024Разработчик: © 2022 CocoatechПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:036E8DA706A4D8CA246BB46BEC47C6B5DD2ED534
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701569   (116353) от 21.02.2024
-
-PhotoSweeper X 4.8.5 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116353.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoSweeper — отличный способ поиска дубликатов изображений
-Проблема очистки компьютера остро стоит у многих пользователей. При «обычной» эксплуатации жесткий диск забивается ненужными файлами не очень быстро, но у тех, кто активно работает с определенными типами файлов, проблема с появлением дубликатов файлов весьма актуальна. Наиболее острую необходимость в приложениях (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21.02.2024Разработчик: © 2024 Overmacs TeamПоддерживаемая ОС: macOS X 10.13 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67A505157F19A17AB5EA8E9F19845A6A54E652D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701572   (116329) от 21.02.2024
-
-Texifier 1.9.25 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Texifier — это редактор LaTeX, предназначенный для простой навигации, редактирования и верстки проектов любого размера. Откройте корневой файл LaTeX, и Texifier просканирует его, откроет все файлы, на которые есть ссылки, извлечет структуру документа для отображения в представлении схемы и настроит наборщик в соответствии с пакетами и инструментами, используемыми (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.02.2024Разработчик: © 2011-2024 Valletta Ventures (UK) Ltd.Поддерживаемая ОС: macOS 12.0 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F07E993692CD7FA50D4453EC92B01784B0F96EE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701593   (116328) от 21.02.2024
-
-DirEqual 5.8 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116328.jpg" />
-</div>
-
-
-###  Подробнее
-
-DirEqual - это инструмент сравнения папок, который упрощает сравнение локальных файлов и папок на вашем Mac. DirEqual отображает сравниваемые каталоги рядом в виде расширяемых деревьев, а размер и дата указываются для каждого элемента. Различия между каталогами обозначены цветом и легко различимы значками.
-Чтобы скопировать или удалить файлы / папки, щелкните отдельный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.02.2024Разработчик: © 2023 by Naarak-StudioПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C2167DFDA85F17E74E7551A9952EE2316F4CD5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

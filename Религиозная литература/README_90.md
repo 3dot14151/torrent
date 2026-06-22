@@ -1,3 +1,109 @@
+###  Публикация: 1625737   (255305) от 11.04.2023
+
+Епископ Иаков (Тисленко) | Иноческий молитвослов (2014) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255305.jpg" />
+</div>
+
+
+###  Подробнее
+
+В честь 1000 летия подвига жизни во Христе Крестителя Руси – святого равноапостольного князя Владимира. Сей молитвослов издан благословением Преосвященного Иакова, епископа Нарьян-Марского и Мезенского.Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF767C35AEBF0032955B326343E39F34C1953A8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625754   (255298) от 11.04.2023
+
+Преподобный Ефрем Сирин | Избранные творения (2014) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемые читателю в этой книге избранные творения одного из величайших подвижников первых веков христианства – преподобного Ефрема Сирина – помогут каждому христианину продвинуться на пути к спасению – главной задаче в жизни любого человека.
+
+Издание рассчитано на широкий круг православных читателей.Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE8CEA9AC8C4184043EC2A31AF643AC04A74CED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627627   (255021) от 19.04.2023
+
+Священник Андрей Горбунов | Тайна зверя. Опыт объяснения пророчеств Апокалипсиса (2004) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта брошюра предназначена для тех, кто имеет духовный слух и способен услышать предупреждение Божие: «Кто имеет ухо, да слышит» (Откр. 13, 9). Основной отрицательный образ Апокалипсиса - «зверь». Что означает этот образ? В чем различие между «зверем из моря», «зверем из земли» и «зверя из бездны»? Как понимать слова Апокалипсиса о «числе имени зверя», о «говорящей (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DA536DF74A064EC81969B235F524AC065E00AB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629721   (254752) от 27.04.2023
+
+Святитель Феофан Затворник | Что есть духовная жизнь и как на нее настроиться (2013) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Святитель Феофан Затворник (в миру Георгий Васильевич Говоров; 1815–1894) – богослов, публицист-проповедник. Он занимает особое место среди русских проповедников и святителей XIX века. Святитель видел свое служение Церкви Божией в подвиге духовно-литературного творчества. «Писать, – говорил он, – это служба Церкви нужная». Всю свою пастырскую деятельность он посвятил (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E275736691C1DF64D56BA1BF7F4AB6F04D763C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1629715   (254751) от 27.04.2023
 
 Преподобный Исаак Сирин | Cлова подвижнические (2021) [PDF, FB2, EPUB, MOBI]
@@ -6,7 +112,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254751.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254750.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254023.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252895.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252425.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250605.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250310.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250298.jpg" />
 </div>
 
 
@@ -216,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250265.jpg" />
 </div>
 
 
@@ -242,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249805.jpg" />
 </div>
 
 
@@ -268,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249790.jpg" />
 </div>
 
 
@@ -296,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249786.jpg" />
 </div>
 
 
@@ -322,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249750.jpg" />
 </div>
 
 
@@ -350,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246004.jpg" />
 </div>
 
 
@@ -376,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245800.jpg" />
 </div>
 
 
@@ -402,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245772.jpg" />
 </div>
 
 
@@ -430,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245401.jpg" />
 </div>
 
 
@@ -456,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245398.jpg" />
 </div>
 
 
@@ -482,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245393.jpg" />
 </div>
 
 
@@ -508,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245380.jpg" />
 </div>
 
 
@@ -534,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245374.jpg" />
 </div>
 
 
@@ -562,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245362.jpg" />
 </div>
 
 
@@ -575,118 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E1606705916FFEB05AB408389EB288F56D4DF9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631202   (245254) от 04.05.2023
-
-Сатисъ | Молитвослов православной семьи (2017) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молитва семьи, как молитва малой Церкви Христовой, угодна Богу, радует ангелов, стремительно восходит к небесам. Православной семье, для помощи в молитве, и преподносит наше издательство сей Молитвослов – если не на все, то на многие случаи жизни.
-
-Да будут молитвы наших семей благоугодны и благоприятны Богу Вышнему!Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CB7352FED1F41C4EFF5C9B06F16970FD458A01A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624244   (245248) от 05.04.2023
-
-Монах Иосиф Дионисиатис | Старец Арсений Пещерник, сподвижник Иосифа Исихаста (2002) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245248.jpg" />
-</div>
-
-
-###  Подробнее
-
-К старцу Арсению поистине может быть отнесено евангельское: вот подлинно Израильтянин, в котором нет лукавства. От природы он был прямым, простым, беззлобным, кротким, послушным и исключительно редким подвижником, также и нестяжательным. К старцу Арсению всегда можно было отнести евангельское: да, да; нет, нет.
-
-Никогда он не злопамятствовал, что бы ты ему ни сделал, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D060C48EAE1E96BE519126B2F75A00BED40EEB55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624241   (245225) от 05.04.2023
-
-Протоиерей Валентин Свенцицкий | Диалоги (2015) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Протоиерей Валентин Свенцицкий (1881–1931) – выдающийся проповедник Русской Церкви. Одно из его наиболее значительных сочинений «Диалоги» написано в классической форме диалогов между неверующим интеллигентом и православным священником, разъясняющим основы веры.
-
-Книга неоднократно переиздавалась и была популярна среди образованной молодежи. Проблемы, освещенные в (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5A97D495E5FBC01FE8762F80A133BC51F6AB309
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266196   (245187) от 01.12.2018
-
-Свт. Игнатий Брянчанинов, Св. Иоанн Дамаскин | О ереси и расколе (2005) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ересь - слово греческое - значит вообще какое-либо отдельное учение. Так Христианское учение при появлении своём иногда называлось ересию (Деян. 28, 22). Но впоследствии название ересь усвоилось единственно произвольному и ложному учению о Христианстве, отделявшемуся и отличавшемуся от учения Единой Святой Соборной Апостольской Церкви.
-
-Христианство есть Божие Учение, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF (для Amazon Kindle, Sony Reader и др.)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9F658BCC20FE69CD3C8B0244D4004B5A6D3196D
 ```
 
 https://mybot314.ru/tekegram_catalog/

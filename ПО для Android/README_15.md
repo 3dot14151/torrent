@@ -1,3 +1,29 @@
+###  Публикация: 1842955   (1049044) от 17.12.2025
+
+HiPER Calc Pro v11.2.9 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный и стильный научный калькулятор с обширными настройками внешнего вида. В наличии несколько удобных тем оформления, построение графиков и возможность поделиться подробным результатом вычислений в виде изображения. Поддерживается смена системы счисления. Реализовано вычисление превеликого числа функций.Тип издания: Pro / ModРелиз состоялся: 16.12.2025Разработчик: HiPER LabsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0143CF786F64AAED7FD38656ACB899CAD1D4F482
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842954   (1049043) от 17.12.2025
 
 Конвертер Валют Плюс v3.1.7 Mod by vadj [Ru/Multi]
@@ -6,7 +32,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049043.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Smart AudioBook Player Pro v11.6.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049042.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ PianoMeter – Piano Tuner v4.1.1 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049039.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ One Read / Все Документы Читатель - Офис v1.2.7 Mod by v
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049037.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Plus Messenger (Telegram+)  v12.2.10.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049036.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Xiaomi Home (Ранее. MiHome) v11.0.622 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048925.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Sketchbook v6.2.4 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048888.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048887.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Vanced Tube v5.5.80.314 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048886.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Grok - ИИ ассистент v1.0.89-release.00 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048875.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Vanced Tube v5.5.80.306 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048675.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048674.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Photo Editor v12.3 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048487.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Photo Editor v12.3 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048486.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ HiPER Calc Pro v11.2.9 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048475.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v16.5.6 Mod b
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048467.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ MobiOffice: Word, Sheets, PDF Premium v16.0.58429 Extra Mod by Balatan [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048458.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Moon+ Reader Pro v10.3 (b1003000) Mod by Lucky Las [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048391.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048383.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ Listen Audiobook Player v5.4.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048382.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ Remini / Улучшение Фото v3.7.1213.202518225 Mod by Mixroot [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048381.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ Grok - ИИ ассистент v1.0.87-release.00 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048378.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048377.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ AirBrush: ИИ Фоторедактор v7.22.0 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048372.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ SnapEdit - AI photo editor v7.5.7 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048371.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ SnapEdit — одно из лучших приложений для редакт
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02C82E1DDC1D63A2CBA86C74A19A71C723650B5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841827   (1048316) от 13.12.2025
-
-Exo Player - Видеоплеер и IPTV v2.1.1 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшой видеопроигрыватель с поддержкой 4K и 8К и расширенными возможностями. Позволяет транслировать видео через Google Cast, устанавливать в качестве статуса WhatsApp да воспроизводить оное в плавающем окне. 📱Приложение работает безупречно, что позволяет смотреть видео без задержек и перерывов. Он также оптимизирован для использования аккумулятора, поэтому (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 12.12.2025Разработчик: I N F I N I T YПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5C572A981E5DAF1D2BACB9CCE75B206246759FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

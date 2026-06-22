@@ -1,3 +1,81 @@
+###  Публикация: 1339939   (264674) от 21.11.2019
+
+Марк Харитонов | Учитель вранья (2018) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герои сказочной повести "Учитель вранья", пятилетняя Таська и её брат, второклассник Тим, увидели однажды объявление, что на 2-й Первоапрельской улице, в доме за синим забором, дают уроки вранья. И хотя Таська уверяла брата, что врать-то она умеет, они всё-таки решили отправиться по указанному адресу… А что из этого вышло, вы узнаете, прочитав эту необычную (   Читать дальше...   )Жанр: Детская литература, приключениеПродолжительность: 04:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D71A9957F8FB59ADAB20B02AB2D46CBB86B8C42C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339916   (264673) от 21.11.2019
+
+Вениамин Каверин | Кнопка. Рассказы. Сказки. Сборник (1942-1961-1980) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это была маленькая, румяная девушка, с короткими косичками, перевитыми лентами и торчавшими над открытыми ушами. У нее было много прозвищ — Мячик, Чижик, а один боец, когда она еще работала в госпитале, прозвал ее Пучок энергии. Это было очень меткое прозвище, потому что она действительно была похожа на пучок, состоявший из топота быстрых ног, скороговорки, румянца (   Читать дальше...   )Жанр: Радиоспектакль. Детская литератураПродолжительность: 03:30:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65FF162194C02D50A6335D6055B3F403C9D09EF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340692   (263618) от 24.11.2019
+
+Тоон Теллеген | Однажды в полдень (2019) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тоон Теллеген — достаточно известный скандинавский пиатель, — не столько по произведениям крупных форм, сколько по свои циклам сказок. Написанные в первую очередь для взрослых читателей, но использующие классические и понятные детям аллегории и олицетворения с животными, сказки обличают и повествуют о всем близким явлениям жизни — общественной и личной. Философский (   Читать дальше...   )Жанр: Сказки, притчиПродолжительность: 00:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7BE03CE3B6BB02DABAA027F0F6ED676C3171701
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340926   (262927) от 26.11.2019
 
 Юрий Яковлев, Сергей Михалков, Василий Жуковский | Багульник. (Сборник) (1969-1976) [MP3]
@@ -6,7 +84,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262927.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262625.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262346.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262327.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262046.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_261300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261300.jpg" />
 </div>
 
 
@@ -168,7 +246,7 @@ VA - Детские Песни (Созвездие Хитов 3 CD) (2004) [FLAC
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260551.jpg" />
 </div>
 
 
@@ -203,7 +281,7 @@ VA - Детские Песни (Созвездие Хитов 3 CD) (2004) [MP3|
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260549.jpg" />
 </div>
 
 
@@ -238,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259824.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ VA - Mini Disco/Мини Диско 108 песен (1970-2012) [MP3|128 кб/с]
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259729.jpg" />
 </div>
 
 
@@ -301,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259689.jpg" />
 </div>
 
 
@@ -327,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259681.jpg" />
 </div>
 
 
@@ -354,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259428.jpg" />
 </div>
 
 
@@ -380,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259065.jpg" />
 </div>
 
 
@@ -406,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258610.jpg" />
 </div>
 
 
@@ -432,7 +510,7 @@ VA - Мои Любимые Песенки - Песни В.Шаинского (20
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258135.jpg" />
 </div>
 
 
@@ -467,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257780.jpg" />
 </div>
 
 
@@ -496,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257777.jpg" />
 </div>
 
 
@@ -523,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257510.jpg" />
 </div>
 
 
@@ -551,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257509.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256826.jpg" />
 </div>
 
 
@@ -608,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256822.jpg" />
 </div>
 
 
@@ -637,7 +715,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256818.jpg" />
 </div>
 
 
@@ -651,93 +729,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B7A13EA8B66DD1C7052C92F3F4D6719CA2AE176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837305   (256813) от 15.11.2025
-
-Нина Гарская | Парцифаль (Инсценировка) (2022) [MP3, Всеволод Абдулов, Алексей Борзунов и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Мелодия – детям, «В фонотеку школьника. Былины и сказания».
-Нина Викторовна Гарская – автор инсценировок для Всесоюзного радио CCCР.
-Инсценировка Нины Гарской о герое куртуазного эпоса – Персивале, также Паерцифаль, Паерсифаль. Миф о Персивале образует одну из ветвей сказания о короле Артуре и его рыцарях, входит в цикл романов Круглого стола.
-Легенды (   Читать дальше...   )Жанр: Литература для детей, приключения, легенды и сказанияИздательство: МФГУП «Фирма Мелодия»Продолжительность: 01:25:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4A485BDB9BF315F6B6D557DEE478FC938C654BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837306   (256812) от 15.11.2025
-
-Нина Гарская | Тангейзер (Инсценировка) (2022) [MP3, Георгий Менглет, Нина Архипова и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Мелодия – детям, «В фонотеку школьника. Былины и сказания».
-Нина Викторовна Гарская – автор инсценировок для Всесоюзного радио CCCР.
-Инсценировка Нины Гарской о немецком средневековом поэте периода позднего миннезанга – Тангейзере.
-(   Читать дальше...   )Жанр: Литература для детей, приключения, легенды и сказанияИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:44:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E5CA7B679D0837ADF9C29B4D603BE26A0C6E8D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837309   (256811) от 15.11.2025
-
-Нина Гарская | Тристан и Изольда (Инсценировка) (2022) [MP3, Георгий Менглет, Нина Архипова и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Мелодия – детям, «В фонотеку школьника. Былины и сказания».
-Нина Викторовна Гарская – автор инсценировок для Всесоюзного радио CCCР.
-Инсценировка по материалам издания французского учёного и писателя Жозефа Бедье – «Роман о Тристане и Изольде».
-В средние века Европа зачитывалась повестью о страстной и трагической любви Тристана и Изольды. «Быть любимым, (   Читать дальше...   )Жанр: Литература для детей, приключения, легенды и сказанияИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:51:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68604B08828E7F55A960D15608FD4AABACA9737C
 ```
 
 https://mybot314.ru/tekegram_catalog/

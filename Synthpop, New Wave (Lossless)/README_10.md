@@ -1,3 +1,61 @@
+###  Публикация: 1404181   (684269) от 23.08.2020
+
+Midnight Danger - Chapter 2: Endless Nightmare (2020) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Darksynth, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Visions (1:49)
+02. The Eyes of Darkness (4:15)
+03. Back From the Dead (4:07)
+04. Night Escape (4:43)(   Читать дальше...   )Жанр: Retrowave, Darksynth, SynthwaveПродолжительность: 00:46:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F6343B130A06D868E9277E1648261A3AF1D60B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535664   (682511) от 08.03.2022
+
+Kobra Force - Nomads (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Star Wanderers (3:26)
+02. Shiver (4:38)
+03. Nomad (4:30)
+04. Magenta Skyline (3:50)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A625BB8EF3B6505DCCE9EF1F8D75A93FBDD5EA2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290217   (680119) от 19.03.2019
 
 Alphaville - Forever Young (2019) 3CD Super Deluxe Limited Edition [FLAC|Lossless|image + .cue] <Synthpop, New-Wave>
@@ -6,7 +64,7 @@ Alphaville - Forever Young (2019) 3CD Super Deluxe Limited Edition [FLAC|Lossles
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680119.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Faderhead - Anima In Machina (2016) Limited Edition, Compilation [FLAC|Lossless|
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677002.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Erasure - World Be Gone (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New-Wave
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676730.jpg" />
 </div>
 
 
@@ -96,7 +154,7 @@ Johan Tronestam - Best of Johan Tronestam 2010-2013 (2015) [FLAC|Lossless|WEB-DL
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676686.jpg" />
 </div>
 
 
@@ -125,7 +183,7 @@ Martin L. Gore (Depeche Mode) - MG (2015) [FLAC|Lossless]<Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659727.jpg" />
 </div>
 
 
@@ -154,7 +212,7 @@ Kraftwerk - Remixes (2022) 2CD [FLAC|Lossless|tracks + .cue] <Electronic, Synthp
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656044.jpg" />
 </div>
 
 
@@ -183,7 +241,7 @@ Firstworld - Im Right Here (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Syn
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650687.jpg" />
 </div>
 
 
@@ -212,7 +270,7 @@ Sea Of Sin - Future Pulse (2018) [FLAC|Lossless|image + .cue] <ElectroPop, Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650389.jpg" />
 </div>
 
 
@@ -241,7 +299,7 @@ Devon Church - We Are Inextricable (2018) [FLAC|Lossless|tracks + .cue] <Electro
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648842.jpg" />
 </div>
 
 
@@ -270,7 +328,7 @@ Bella Technika - Section (2019) PDV Records [FLAC|Lossless|WEB-DL|tracks] <Elect
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648640.jpg" />
 </div>
 
 
@@ -299,7 +357,7 @@ Kavinsky - Дискография (2006-2022) [FLAC|Lossless|WEB-DL|tracks] <Syn
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648296.jpg" />
 </div>
 
 
@@ -328,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646859.jpg" />
 </div>
 
 
@@ -355,7 +413,7 @@ Nickolay Fedorenko - Коллекция (2013-2022) [FLAC|Lossless|WEB-DL|tracks
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646853.jpg" />
 </div>
 
 
@@ -384,7 +442,7 @@ Secret Service - MusicBox (2003) [FLAC|Lossless|tracks + .cue] <Pop, Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646649.jpg" />
 </div>
 
 
@@ -413,7 +471,7 @@ Chris van Buren - Hope and Destiny (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthpo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645281.jpg" />
 </div>
 
 
@@ -442,7 +500,7 @@ Chris van Buren - New Horizons (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645199.jpg" />
 </div>
 
 
@@ -471,7 +529,7 @@ Wolf and Raven - Ace of Space (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645195.jpg" />
 </div>
 
 
@@ -500,7 +558,7 @@ Wolf and Raven - Renegades (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645194.jpg" />
 </div>
 
 
@@ -529,7 +587,7 @@ Wolf and Raven - Lair of the Dragon (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthp
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645193.jpg" />
 </div>
 
 
@@ -558,7 +616,7 @@ Chris van Buren - Tierra Del Fuego (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645185.jpg" />
 </div>
 
 
@@ -587,7 +645,7 @@ M.I.N.E (Marcus Meyn of Camouflage) - Unexpected Truth Within (2018) [FLAC|Lossl
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644737.jpg" />
 </div>
 
 
@@ -616,7 +674,7 @@ Dynalectric Orchestra - Signal Upon Arrival (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642842.jpg" />
 </div>
 
 
@@ -645,7 +703,7 @@ Dmitriy N'Elpin (Dmitriy Nelepin) - Universe 2 Beyond Consciousness (2021) [FLAC
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642728.jpg" />
 </div>
 
 
@@ -674,7 +732,7 @@ Missing Persons - Spring Session M (1982) Reissue, 1995, CEMA Special Markets [F
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640907.jpg" />
 </div>
 
 
@@ -688,64 +746,6 @@ Missing Persons - Spring Session M (1982) Reissue, 1995, CEMA Special Markets [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD51250C25C2E94EA989258804E673584C605367
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033539   (637848) от 11.07.2016
-
-Space - All Gold Of The World (2002) [FLAC|Lossless|image + .cue] <Electronic>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Symphony 05:00
-02. Just Blue 04:31
-03. Magic Fly 04:20
-04. Secret Dream 04:29(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:10:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E10D57377399DB62A9BBC22B8C7E3FF871EEBCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542552   (635323) от 08.04.2022
-
-Sally Shapiro - Sad Cities (The Remixes) (2022) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forget About You (Johnny Jewel's Amnesia Remix)04:15
-02. Tell Me How (Sunglasses Kid Remix) 05:11
-03. Believe In Me (Italoconnection Remix) 06:45
-04. Million Ways (Gerd Janson Remix) 06:22(   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:04:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:010F6B55E718AD3E739E7275EADF08821F16132A
 ```
 
 https://mybot314.ru/tekegram_catalog/

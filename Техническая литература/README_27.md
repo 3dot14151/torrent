@@ -1,3 +1,55 @@
+###  Публикация: 1182814   (314490) от 11.11.2017
+
+Г.Т. Широкий и др. | Строительное материаловедение (2015) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приведен спектр основных современных отечественных и зарубежных строительных материалов и изделий, широко используемых в строительном комплексе Республики Беларусь. Представлена информация, соответствующая нормативным документам Республики Беларусь, европейским и международным стандартамЖанр: Материаловедение, строительствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C6223FE4EC090865F8ED3623286B9D649DBCE95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182942   (312061) от 12.11.2017
+
+К.Г. Кязимов | Справочник работника газового хозяйства (2006) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приведены сведения о стандартах на качество газового топлива, составе природных газов, системе газораспределения городов, об эксплуатации подземных газопроводов, контрольно-измерительных приборах, средствах автоматизации. Рассмотрены наиболее распространенные конструкции газовых плит, водонагревателей, печных горелок. Включены данные о газовом оборудовании коммунально-бытовых (   Читать дальше...   )Жанр: Коммунальное хозяйствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:711DD776476802CBFE1B910637E673B5F849B970
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959733   (311747) от 26.11.2015
 
 А.В. Родин (ред.), Н.А. Тюнин (ред.) | Современные бюджетные ЖК телевизоры (2015) [DJVU]
@@ -6,7 +58,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311747.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308143.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307406.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307367.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305328.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304712.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300766.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_299376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_299376.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293988.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293148.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292854.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292810.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292767.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292756.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292550.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ Service Manuals for Notebook | Сервис Мануалы для ноутбук
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292262.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290217.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289211.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289200.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288777.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287268.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287258.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285532.jpg" />
 </div>
 
 
@@ -618,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285463.jpg" />
 </div>
 
 
@@ -630,61 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD789F98672CED0474093F3802EED1DF114F3275
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964100   (282242) от 11.12.2015
-
-А.И. Солдатов и др. | Приборы контроля на основе акустических волноводов (2011) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Монография посвящена анализу современного состояния специфических контрольно-измерительных приборов, главным элементом которых является акустический волновод. Рассмотрены вопросы теоретического и экспериментального исследования характеристик акустических волноводов методами, основанными на разложении по нормальным волнам, и методом, основанным на законах геометрической (   Читать дальше...   )Жанр: Измерения, электроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:559CB377A9BB80020A45CD0856FD7BB8F03E504F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 272936   (277111) от 20.12.2010
-
-А.Г.Морозов | Расчет электрических машин постоянного тока [1972] [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Электрические машины постоянного тока находят широкое применение в различных отраслях нашей промышленности. Несмотря на то, что выпуск их велик, намечается его дальнейшее увеличение.
- Значительное распространение электродвигателей постоянного тока объясняется тем, что они обладают ценными свойствами: высокими пусковыми, тормозными и перегрузочными моментами, сравнительно высоким быстродействием, что существенно при реверсировании и торможении; допускают широкое и плавное регулирование скорости вращения.
- В книге рассматриваются общие вопросы проектирования электрических машин постоянного тока, приводятся расчеты обмотки якоря, магнитной цепи, обмотки возбуждения, компенсационной обмотки, вентиляции и др.
- Для студентов нетехнических ВТУЗ-ов, по специальности электротехникаЖанр: ЭлектротехникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CB16D20E501863442B624F7963B6CE3215F01B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

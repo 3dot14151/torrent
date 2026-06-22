@@ -1,3 +1,29 @@
+###  Публикация: 1461579   (1021747) от 10.04.2021
+
+Добрая ведьма / The Good Witch (2008) DVDRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021747.jpg" />
+</div>
+
+
+###  Подробнее
+
+В провинциальный городок приезжает молодая жизнерадостная девушка Кассандра. Ее улыбка мила, а сердце исполнено добротой. Героиня готова оказать помощь всякому, кому она понадобится. Ее поведение шокирует замкнутых горожан, к тому же по слухам Кассандра - самая настоящая колдунья! Вздорная и завистливая жена мэра, которая крепко держит в ежовых рукавицах не только (   Читать дальше...   )Производство: Канада  /  Hallmark Channel, Whizbang Films Inc.Жанр: Фэнтези, Драма, СемейныйРежиссер: Крэйг ПрайсАктеры: Кэтрин Белл, Крис Поттер, Питер МакНейл, Мэттью Найт, Катрин Дишер, Аллан Ройал, Паула Бодро, Ханна Эндикот-Дуглас, Джесси Бостик, Ной КэппиПеревод: Многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:24:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83B276726A5AACA0B383254EA417D0B7015C1829
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466617   (1018415) от 30.04.2021
 
 Том и Джерри / Tom and Jerry (2021) WEB-DLRip [H.264]
@@ -6,7 +32,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018415.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018253.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018046.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015094.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014939.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013691.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013515.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013294.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013183.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003751.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993728.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992245.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989990.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987563.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985161.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983894.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981732.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980665.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980643.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980640.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980629.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980159.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979679.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978407.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978113.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4ED828E49F99DEE26163DAB81AA868B5DBDC2E92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974058   (978061) от 10.01.2016
-
-Девочка из океана / Ocean Girl (1994)  DVDRip  (1 сезон, 1-13 из 13)
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал о прекрасной Нери, ее друзьях, Джейсоне и Бретте, юных жителях подводной научно-исследовательской станции ОРКА. Нери, девочка из океана — смелая и находчивая, может плавать с необычайной скоростью. Но самая необычная ее способность — телепатически разговаривать и понимать 40-тонного горбатого кита по имени Чарли.Производство: АвстралияЖанр: Фантастика, Фэнтези, Приключения, СемейныйРежиссер: Марк ДефристАктеры: Марцена Годецки, Дэвид Хоффлин, Джеффри Уолкер, Алекс Пиндер, Керри АрмстронгПеревод: Многоголосый закадровыйСубтитры: отсутствуютПродолжительность: ~00:23:00 х серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:217C860905999F064C31034CB8D91AE43D4C68A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

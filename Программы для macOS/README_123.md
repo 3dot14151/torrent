@@ -1,3 +1,112 @@
+###  Публикация: 1108465   (241868) от 25.02.2017
+
+Short Menu 2.4 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Short Menu - создаем короткие ссылки
+Short Menu - маленькая утилитка для создания коротких ссылок, которая принимает URL из буфера обмена и после нажатия на кнопку вы получаете короткую ссылку на нужную страницу. Приложение поддерживает более 20 служб сокращения ссылок.
+
+ Утилита поддерживает следующие сервисы коротких ссылок: tinyurl.com, bit.ly, j.mp, ur.cx, 2ty.cc, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 24 февраля 2017Разработчик: Appiculous UGПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BC8CC53C59E32BEE5A0008BABEE051CDE30621E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546292   (241808) от 23.04.2022
+
+MarkMyWords 2.4.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241808.jpg" />
+</div>
+
+
+###  Подробнее
+
+MarkMyWords предлагает простые функции форматирования и структурирования содержания статей, которые будут опубликованы в «Интернете» и остаются независимыми от платформы при использовании текстовых документов.Тип издания: macOS SoftwareРелиз состоялся: 19.04.2022Разработчик: © Xelaton SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D5729B421DB50BA186B2ED68507E85CCCCDE0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628984   (241714) от 25.04.2023
+
+batchRESIZE 1.76 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скопируйте и измените размер всей папки изображений одним простым щелчком мыши. Разрешение снимков современных камер становится все выше и выше, но иногда совсем необязательно, чтобы оно было таким большим, а большой размер файла затрудняет обмен. batchRESIZE поддерживает различные форматы файлов и может как увеличивать, так и уменьшать размер изображения.Тип издания: macOS SoftwareРелиз состоялся: 24.04.2023Разработчик: © 2011 - 2023 dragonBTVПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63F39EC8D8F68C35A73BC977DCC96481169D42AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628979   (241675) от 25.04.2023
+
+Magic Sort List 3.5.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241675.jpg" />
+</div>
+
+
+###  Подробнее
+
+У вас есть список чего-либо, который не отсортирован и не имеет таблицы, но готовой к его сортировке? Не отчаивайтесь, Magic Sort List поможет вам в этом.
+Magic Sort List поставляется с нашим революционным механизмом сортировки, который мы усовершенствовали и доработали за прошедшие годы.
+Другое приложение для данных целей хорошо сортирует алфавитный список, но не (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.04.2023Разработчик: © 2022 Complete Magic AppsПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD75F4263044A9E2353594268C1C3937E19F25D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1628990   (241650) от 25.04.2023
 
 Image Plus - Easy Photo Editor 1.4 [En]
@@ -6,7 +115,7 @@ Image Plus - Easy Photo Editor 1.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241650.jpg" />
 </div>
 
 
@@ -32,7 +141,7 @@ InstaGrid 3.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241504.jpg" />
 </div>
 
 
@@ -58,7 +167,7 @@ Crop Any Video 2.0.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241190.jpg" />
 </div>
 
 
@@ -87,7 +196,7 @@ Any Media Info 2.1.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241168.jpg" />
 </div>
 
 
@@ -114,7 +223,7 @@ Later - Create Quick Reminders With Presets 1.0.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240949.jpg" />
 </div>
 
 
@@ -143,7 +252,7 @@ iShowU Studio 2 v2.3.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240947.jpg" />
 </div>
 
 
@@ -170,7 +279,7 @@ TweetShot 4.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240815.jpg" />
 </div>
 
 
@@ -196,7 +305,7 @@ Faxbot 2.6.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240777.jpg" />
 </div>
 
 
@@ -223,7 +332,7 @@ Dial!List 1.9.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240643.jpg" />
 </div>
 
 
@@ -251,7 +360,7 @@ ShredIt X 6.4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240552.jpg" />
 </div>
 
 
@@ -278,7 +387,7 @@ JPEG Jackal PRO 2.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240378.jpg" />
 </div>
 
 
@@ -304,7 +413,7 @@ Aiseesoft Mac Video Enhancer for Mac 9.2.32 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240268.jpg" />
 </div>
 
 
@@ -332,7 +441,7 @@ Mitti 2.2.9 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240222.jpg" />
 </div>
 
 
@@ -359,7 +468,7 @@ AnyMP4 DVD Copy 3.1.36 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240206.jpg" />
 </div>
 
 
@@ -385,7 +494,7 @@ TinkerTool System 6 v6.98 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240182.jpg" />
 </div>
 
 
@@ -411,7 +520,7 @@ Screaming Frog SEO Spider 17.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240017.jpg" />
 </div>
 
 
@@ -437,7 +546,7 @@ Semulov 2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240010.jpg" />
 </div>
 
 
@@ -464,7 +573,7 @@ Handy Note 1.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239966.jpg" />
 </div>
 
 
@@ -490,7 +599,7 @@ WebScraper 4.15.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239890.jpg" />
 </div>
 
 
@@ -516,7 +625,7 @@ Sound Grinder 4.1.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239874.jpg" />
 </div>
 
 
@@ -543,7 +652,7 @@ Circular Studio 2.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239790.jpg" />
 </div>
 
 
@@ -570,7 +679,7 @@ References.Design 2.4.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239748.jpg" />
 </div>
 
 
@@ -581,117 +690,6 @@ References.Design 2.4.1 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75CEC566EE76B30E988A57BE3FCE5CCE61E84B63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422047   (239746) от 07.11.2020
-
-Alfred 4 Powerpack 4.2.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лаунчер приложений для macOS. Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
-
-Вызвать окно Alfred очень просто — по-умолчанию используется сочетание клавиш Alt+Space (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2020Разработчик: Running with Crayons LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E17EB287DFAA80CC59F3FDCFBBDE0B62764A7146
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621759   (239741) от 26.03.2023
-
-Clipsy: Clipboard Manager 2.0 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Clipsy записывает в буфер обмена историю скопированного текста, изображений, ссылок, снимков экрана и т. д. И позволяет вызывать / вставлять их в любое время и прямо у вас под рукой. Незаметно запускается из строки меню, позволяя быстро найти фрагмент текста, который вы так долго искали.Тип издания: macOS SoftwareРелиз состоялся: 25.03.2023Разработчик: © 2023 AppYogi SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A339222F9561CFC6A9B75C6CA56EE311A3CB0AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467494   (239679) от 04.05.2021
-
-DeskCover 1.8 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивая альтернатива HazeOver and UnDistracted
-DeskCover - скрывает иконки рабочего стола за красивой обложкой и автоматически подсвечивает окно активного приложения, скрывая все остальное.
-DeskCover это простое приложение, которое позволяет скрыть весь беспорядок на рабочем столе одним щелчком мыши или используя глобальную горячую клавишу.  Так же DeskCover поможет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2021Разработчик: MacPlus SoftwareПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D893F9FC309D0BC5A5FE20C14A2659BFA6673C3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467499   (239651) от 04.05.2021
-
-MaxSnap 1.74 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239651.jpg" />
-</div>
-
-
-###  Подробнее
-
-MaxSnap - мощный менеджер окон, который позволяет:
-• Перемещать, упорядочивать и изменять размеры окон с помощью значка на панели меню или сочетаний клавиш
-• Option / Alt-Drag - перемещение и изменение размеров окон без использования окна заголовка окна
-• Быстрое перемещение окон с помощью жестов мультитачТип издания: macOS SoftwareРелиз состоялся: 2021Разработчик: MacPlus SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E3ADFEE3734DC5D94A047B45ED6F7E35DDE2FF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

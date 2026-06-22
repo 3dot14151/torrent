@@ -1,3 +1,55 @@
+###  Публикация: 1769800   (100569) от 30.12.2024
+
+Смехополис (2022-2023) WEBRip [H.264/1080p] (сезон 1, выпуск 1-4 из 4)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cмexoпoлиc – уникaльнoe мecтo, oбитaтeли кoтopoгo вce вpeмя удeляют вeceлью и живут дaлeкo нe тaк, кaк oбычныe люди. Oни шутят c утpa и дo пoзднeгo вeчepa, вeдь этo и ecть иx paбoтa – пpинocить paдocть зpитeлям. Извecтнeйшиe apтиcты poccийcкoгo экpaнa пpeoбpaжaютcя дo нeузнaвaeмocти, пpeвpaщaяcь в caмыx paзныx пepcoнaжeй, и paзыгpывaют пpeзaбaвнeйшиe cцeнки, нaпoлнeнныe (   Читать дальше...   )Телекомпания: Россия | «НТВ»Жанр: Юмор, кoмeдияРежиссер: Лeoнид Koнoвaлoв, Aнacтacия Пpoшкинa, Eвгeний CвeтлoвАктеры: Марина Федункив, Юлия Михалкова, Наталья Громушкина, Лика Кашириная, Валентина Коркина, Олег Акулич, Виталий Ленский, Валерий Трошин, Евгений Воскресенский, Дмитрий Колчин и др.Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: ~01:00:00 выпуск
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42CD321AF1F8634EE946A19E975E63B1794C7748
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487236   (100419) от 24.04.2012
+
+Каникулы в Мексике - 2. Ночь на вилле. Выпуск №36 (2012.04.23) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100419.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:12:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED1CA38D0F9485EC857865ED0E3678FD3C4411E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 487234   (100315) от 23.04.2012
 
 Каникулы в Мексике - 2. Выпуск №36 (2012.04.23) SATRip
@@ -6,7 +58,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100315.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100134.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99935.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99890.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99865.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99538.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99419.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99374.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99295.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99193.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_98798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98798.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_98711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98711.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_98519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98519.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_98512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98512.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_98465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98465.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_98454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98454.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_98110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98110.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97959.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97544.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97395.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_97304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_97304.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97015.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_96595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_96595.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_96585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_96585.jpg" />
 </div>
 
 
@@ -615,61 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F585C292D1636073972662F0B6F99CA6C59C4010
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466836   (96509) от 13.03.2012
-
-Настоящие Афeристы Выпуск 2 (2012) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_96509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наши эксперты рассказывают, как избежать самых невероятных видов мошенничества. Ответственного за доставку обманом заставляют расстаться с развозным товаром.Жанр: ТелепередачаПродолжительность: 00:22:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48C16783D8C5C5E0542A07838333A2DA5F0BA084
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465625   (96235) от 10.03.2012
-
-Украина чудес / Україна чудес, Выпуск 7-9 (2012) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_96235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Съемки проекта "Украина чудес" - это 52 человека съемочной группы, 5 камер, один кран, более 420 часов съемок, более 5 километров электрического кабеля и целая тонна "волшебного" реквизита.
-Главный продюсер Нового канала Дмитрий Царенко:
-- Эти ребята перевернут наше с вами представление о законах природы, роздвинуть границы реального мира и мира магии. Они оставят зрителей в состоянии полного недоумения: "Как, разве такое возможно?" Этот проект уникален. К нам еще никто не делал ничего подобного. Это симбиоз программ о путешествиях и грандиозных магических шоу лучших иллюзионистов мира. Через призму своего магического дара брать Сафронова расскажут легенды девяти городов Украины.
-Съемки шоу "Украина чудес" пройдут в девяти городах страны: Черновцы, Каменец-Подольский, Львов, Одесса, Ялта, Севастополь, Харьков, Донецк и Киев. Гуляя по городам, иллюзионисты буквально на всех углах будут делать маленькие чудеса, поражая прохожих. Жители городов станут не только свидетелями, (   Читать дальше...   )Жанр: ТелепередачаПродолжительность: 02:08:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:835B0B611A49E6A84B9452B94F2DDFF049917DF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

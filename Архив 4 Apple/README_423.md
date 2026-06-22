@@ -1,3 +1,58 @@
+###  Публикация: 1328859   (358924) от 02.10.2019
+
+Affinity Photo 1.7.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Affinity Photo переопределяет границы профессионального программного обеспечения для редактирования фотографий на Mac. С тщательной ориентацией на рабочий процесс он предлагает сложные инструменты для улучшения, редактирования и ретуширования ваших изображений в невероятно интуитивно понятном интерфейсе со всеми требуемыми мощностями и производительностью.Тип издания: macOS SoftwareРелиз состоялся: 01.10.2019Разработчик: Serif (Europe) LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAE3ECDD7927CE0245E5069273B3864CD9944372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256037   (358906) от 20.10.2018
+
+Softorino YouTube Converter 2 v2.0.23 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Softorino YouTube Converter — почти YouTube Red, только бесплатно
+YouTube на iPhone и iPad без рекламы, с поддержкой офлайн-просмотра да ещё и даром. Думаете, это невозможно? А вот и не угадали!
+
+SYC 2 устанавливает совершенно новый уровень для загрузчиков видео, музыки и рингтонов. Он включает в себя: новый быстродействующий движок, поддержку для каждого устройства (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.10.2018Разработчик: Softorino Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:814646DA741C91DD4C0EC77311669F5617CE743E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256153   (358744) от 20.10.2018
 
 Rhinoceros 5 v5.5.2 [Multi]
@@ -6,7 +61,7 @@ Rhinoceros 5 v5.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358744.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ Audirvana Plus 3.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358706.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ TrashMe 2.1.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358694.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358681.jpg" />
 </div>
 
 
@@ -113,7 +168,7 @@ RightFont 2.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358642.jpg" />
 </div>
 
 
@@ -142,7 +197,7 @@ TechTool Pro 9.5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358524.jpg" />
 </div>
 
 
@@ -169,7 +224,7 @@ Boinx FotoMagico 4.6.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358455.jpg" />
 </div>
 
 
@@ -196,7 +251,7 @@ A Better Finder Attributes 7 v7.03 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358434.jpg" />
 </div>
 
 
@@ -222,7 +277,7 @@ Scrutiny 9 v9.13.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358431.jpg" />
 </div>
 
 
@@ -249,7 +304,7 @@ Coherence X 3.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358430.jpg" />
 </div>
 
 
@@ -275,7 +330,7 @@ Rogue Amoeba Farrago 1.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358427.jpg" />
 </div>
 
 
@@ -301,7 +356,7 @@ Tidy Up 5 v5.3.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358425.jpg" />
 </div>
 
 
@@ -327,7 +382,7 @@ PhotoMill X 1.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358424.jpg" />
 </div>
 
 
@@ -356,7 +411,7 @@ BlueHarvest 8 v8.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358422.jpg" />
 </div>
 
 
@@ -383,7 +438,7 @@ AudioFinder 6.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358418.jpg" />
 </div>
 
 
@@ -410,7 +465,7 @@ Get Backup Pro 3 v3.5.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358417.jpg" />
 </div>
 
 
@@ -436,7 +491,7 @@ A Better Finder Rename 11 v11.24 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358415.jpg" />
 </div>
 
 
@@ -463,7 +518,7 @@ goPanel 2 v2.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358412.jpg" />
 </div>
 
 
@@ -492,7 +547,7 @@ NAMO 1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358408.jpg" />
 </div>
 
 
@@ -518,7 +573,7 @@ Reeder 5 v5.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358264.jpg" />
 </div>
 
 
@@ -544,7 +599,7 @@ MacBooster 8 Pro 8.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358257.jpg" />
 </div>
 
 
@@ -570,7 +625,7 @@ Maxon Cinema 4D R20.026 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358175.jpg" />
 </div>
 
 
@@ -598,7 +653,7 @@ Sketch 69.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358074.jpg" />
 </div>
 
 
@@ -625,7 +680,7 @@ Transmit 5.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357979.jpg" />
 </div>
 
 
@@ -636,61 +691,6 @@ Transmit представляет собой отличный FTP (File Transfer
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F436376D5F50A715F559A8109E32C5E165DF7065
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178161   (357859) от 27.10.2017
-
-Взрывная блондинка / Atomic Blonde (2017) WEB-DL [720p] ATV
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Агент Лоррейн Бротон, бриллиант в короне Секретной разведывательной службы Ее Величества, не просто мастер шпионажа: она бомбически сексуальна, взрывоопасна и использует весь арсенал своих уникальных умений во время невыполнимых миссий. В неспокойном Берлине, куда ее направляют с заданием вернуть бесценное досье, она вынуждена объединиться с агентом под прикрытием (   Читать дальше...   )Производство: СШАЖанр: Боевик, триллер, детективРежиссер: Дэвид ЛитчАктеры: Шарлиз Терон, Джеймс МакЭвой, Эдди Марсан, Джон Гудман, Тоби Джонс, Джеймс Фолкнер, Роланд Мюллер, София Бутелла, Билл Скарсгард, Сэм ХаргрейвПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  АнглийскиеПродолжительность: 01:55:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7C2CC839F5E4787478CA4B27D087B40BB7070AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178120   (357856) от 27.10.2017
-
-Remotix VNC, RDP & NEAR 5.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Remotix это быстрый, удобный и безопасный VNC и RDP клиент для удаленного доступа к компьютерам
-Remotix - быстрое и мощное приложение для удаленного доступа к другому Mac или PC.
-
-К основным особенностям, по сравнению с другими кгиентами, можно отнести:  Полноэкранный доступ, в т.ч. с поддержкой входа в Mac OS X,  Синхронизация буфера обмена,  Несколько конфигураций (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25 октября 2017Разработчик: Nulana LTDПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E42F51177D9846E24A97C603246E3E9B8E254B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

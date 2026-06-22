@@ -6,7 +6,7 @@ Momo e no Tegami / A Letter to Momo / Письмо для Момо [2011, Movie]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145060.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hells / Hells Angels / Ангелы Ада [2008, MV] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145019.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Bermuda Triangle: Colorful Pastorale | Бермудский треугольни
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143705.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sidonia no Kishi: Daikyuu Wakusei Seneki | Knights of Sidonia: Battle for Planet
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142472.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Vivy: Fluorite Eye's Song | Виви: Песнь флюоритового гла
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141783.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Idolish Seven: Second Beat! | Семёрка идолов (ТВ-2) [2020, TV, 15
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139225.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Saenai Heroine no Sodatekata Fine | Saekano: How to Raise a Boring Girlfriend.fi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138766.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Hachigatsu no Cinderella Nine | Cinderella Nine | Девять золушек в
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138165.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Niji-iro Hotaru: Eien no Natsuyasumi | Rainbow Fireflies | Радужные св
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138117.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Kouya no Kotobuki Hikoutai | The Magnificent Kotobuki | Пустынная эс�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138067.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Santa Company | Компания Санты [2014, Movie] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137982.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Sword Art Online: Alicization | Мастера меча онлайн: Алиси
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137834.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Nande Koko ni Sensei ga!? | Why the Hell Are You Here, Teacher!? | Что зде
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137687.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Code Geass: Fukkatsu no Lelouch | Code Geass: Lelouch of the Resurrection | Ко
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137586.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Arknights: Holy Knight Light / Рыцари ковчега: Святые рыц�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136601.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Acchi Kocchi / Там-сям [2012, TV, 12 + 1Sp] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_135550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135550.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Afro Samurai Resurrection (Director's Cut) | Афросамурай: Воскр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132814.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Elfen Lied / Эльфийская песнь [2004, 13 +1 эп.] BDRip Hi10p 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131210.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Mahou Kishi Rayearth 2 | Magic Knight Rayearth 2 | Рыцари магии 2 [19
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130986.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Mahou Kishi Rayearth | Magic Knight Rayearth | Рыцари магии [1994, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130971.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Maou 2099 | Повелитель демонов 2099 [2024, TV, 12 эп.] BDRip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128582.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Amrita no Kyouen | Праздник Амриты [2023, Movie] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128451.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Mashin Eiyuuden Wataru: Nana Tamashii no Ryuujinmaru | Маленькие спа
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125844.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Chou Mashin Eiyuuden Wataru | Mashin Hero Wataru 3 | Маленькие спас
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125843.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Mashin Eiyuuden Wataru: Owarinaki Toki no Monogatari | Маленькие спа
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125842.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Mashin Eiyuuden Wataru 2 | Mashin Hero Wataru 2 | Маленькие спаса�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125841.jpg" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1566921   (239781) от 23.08.2022
+
+Женщины, которые играют рок / Women Who Rock (2022) WEB-DL [H.264/1080p] (серии 1-4 из 4)
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитые женщины-музыканты обсуждают правду, неповиновение, художественное самовыражение, с трудом завоеванный успех, а также идеи и истории, лежащие в основе их вневременной музыки.Производство: СШАЖанр: Документальный, музыкаРежиссер: Джессика ХопперПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: ~00:56:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1671145093B25755FB61195A465C1E5DF6632CB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627605   (239749) от 19.04.2023
+
+История металла и ужасов / The History of Metal and Horror (2022) WEB-DL [H.264/1080p] [DVO]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239749.jpg" />
+</div>
+
+
+###  Подробнее
+
+История металла и ужасов - это документальный фильм, который исследует историю музыки хэви-метал и ужасов, а также то, как эти два жанра слились воедино с течением времени. Различные исполнители металла рассказывают о своем первом знакомстве с ужасами, о своих любимых фильмах ужасов, о своем влиянии и многом другом. Иконы фильмов ужасов также обсуждают, как их фильмы (   Читать дальше...   )Производство: США, M.A.S. ProductionsЖанр: документальный, история, кинематографРежиссер: Майк ШиффПеревод: двуголосый любительский  (Pazl Voice)Язык озвучки: русскийСубтитры: русские (Pazl Voice), английскиеПродолжительность: 01:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77E5BFD5449BA9C20C5AC6E3CF803D089195181D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635680   (239678) от 26.05.2023
+
+Милиус / Milius (2013) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он великолепный рассказчик и один из самых плодовитых голливудских сценаристов прошлого века. Он большой друг Стивена Спилберга, Джорджа Лукаса и Фрэнсиса Форда Копполы, с которыми учился в одной киношколе. Он сотворил Арнольда Шварценеггера и писал эффектные речи для Шона Коннери. Выше его работ – только его личность. Дзен-анархист, мишка Тедди с автоматом Калашникова, (   Читать дальше...   )Производство: США, Chop Shop Entertainment, Haven EntertainmentЖанр: документальный, история, биографияРежиссер: Джои Фигуроа, Зак НатсонПеревод: субтитры (bugman6)Язык озвучки: английскийСубтитры: русские, английскиеПродолжительность: 01:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91478FCE331AAFCD5C6D9925FBE0B7DC0E84DF34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637833   (239606) от 06.06.2023
 
 Ванны над Бродвеем / Bathtubs Over Broadway (2018) WEB-DL [H.264/1080p] Синема УС
@@ -6,7 +84,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239606.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ RTG. Императорский фарфоровый завод (2009) TVRip
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239585.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239505.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_239055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_239055.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238545.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_238493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238493.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238491.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237860.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237503.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236883.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236793.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236492.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236360.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236308.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_236175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_236175.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235885.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ RTG. Ювелирное искусство Костромы (2012) SATRip
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235523.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235452.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235437.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235151.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_234843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234843.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_234834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234834.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234560.jpg" />
 </div>
 
 
@@ -589,85 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66472435F261175F2937BE584E440A86453F3C29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621985   (234457) от 27.03.2023
-
-Между Богом и Элвисом / God Is the Bigger Elvis (2012) SATRip [H.264]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Правдивая история об актрисе Долорес Харт, которая оставила успешную голливудскую карьеру, чтобы стать монахиней. Дебютировавшая в возрасте 19 лет в фильме "Любить тебя / Loving You" (1957) с участием Элвиса Пресли, для которого это была вторая роль в кино, Долорес Харт в 25 лет решает оставить Голливуд и уединиться в бенедиктинском аббатстве "Царицы (   Читать дальше...   )Производство: СШАЖанр: документальный, история, искусство, биографияРежиссер: Режин де Лапиз, Кристоф СупироПеревод: двуголосый профессиональный (SDI Media)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: серии x ~00:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A611A32AD55E312D944910EAFFE6884CA9F7C17F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633499   (234426) от 15.05.2023
-
-Первые шаги анимации / Incunables de l'animation (1833-1897) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из коллекции Французской синематеки.
-Вашему вниманию предлагаются неопубликованные ранее некоторые из самых красивых образцов ранней анимации.Производство: ФранцияЖанр: документальный, экспериментальная анимацияРежиссер: Маду, Эмиль Рейно, Эдвард Мейбридж, Оттомар Аншютц, Этьен-Жюль Маре, Жорж МельесПеревод: субтитрыЯзык озвучки: немое киноСубтитры: русские, французские интертитрыПродолжительность: 00:18:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECF7ED053C354BBFAD39CE037546FC62EB4532E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633423   (234348) от 15.05.2023
-
-Милиус / Milius (2013) WEBRip [H.264/1080p] [EN / RU, EN Sub]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он великолепный рассказчик и один из самых плодовитых голливудских сценаристов прошлого века. Он большой друг Стивена Спилберга, Джорджа Лукаса и Фрэнсиса Форда Копполы, с которыми учился в одной киношколе. Он сотворил Арнольда Шварценеггера и писал эффектные речи для Шона Коннери. Выше его работ – только его личность. Дзен-анархист, мишка Тедди с автоматом Калашникова, (   Читать дальше...   )Производство: США, Chop Shop Entertainment, Haven EntertainmentЖанр: документальный, история, биографияРежиссер: Джои Фигуроа, Зак НатсонПеревод: субтитрыЯзык озвучки: английскийСубтитры: русские, английскиеПродолжительность: 01:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16DE959655E0D48A5B74A7A3C7A14D99F37CFCA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

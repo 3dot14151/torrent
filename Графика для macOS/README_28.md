@@ -1,3 +1,55 @@
+###  Публикация: 1680704   (133949) от 30.11.2023
+
+SILKYPIX Developer Studio Pro 11 for FUJIFILM 11.4.13.0 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133949.jpg" />
+</div>
+
+
+###  Подробнее
+
+SILKYPIX Developer Studio Pro11 для FUJIFILM предназначен для камеры FUJIFILM, выпущенной ограниченным тиражом. Это программное обеспечение для обработки формата RAW, которое оказывает мощную поддержку при создании собственных фоторабот с помощью различных функций настройки, таких как «Режимы композитинга», «Инструмент частичной коррекции» и «Dehaze» включены в профессиональное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.11.2023Разработчик: © 2022 Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 13.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3641EF84F64D25183EEBF90D4C1C124C2D0373C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680802   (133911) от 30.11.2023
+
+PhotoFoundry for Mac 1.2.5 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональная пакетная обработка фотографий. Фильтры, фотоэффекты, изменение размера, водяные знаки. Всё, что вы искали в приложении для редактирования фотографий.Тип издания: macOS SoftwareРелиз состоялся: 30.11.2023Разработчик: © 2023 ENSILI.COПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8DA6C11CD67B66390295C49ACDA888AA6CD8134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680711   (133892) от 30.11.2023
 
 SILKYPIX Developer Studio Pro 11 for Panasonic 11.3.13.0 [En]
@@ -6,7 +58,7 @@ SILKYPIX Developer Studio Pro 11 for Panasonic 11.3.13.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133892.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Aperture Update 3.4.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133880.jpg" />
 </div>
 
 
@@ -64,7 +116,7 @@ Capture One 23 Enterprise 16.3.2.32 [En/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133833.jpg" />
 </div>
 
 
@@ -91,7 +143,7 @@ Pixea Plus for Mac 5.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133820.jpg" />
 </div>
 
 
@@ -117,7 +169,7 @@ Photo Mechanic Plus 6 v.6.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133615.jpg" />
 </div>
 
 
@@ -143,7 +195,7 @@ Toon Boom Animate Pro 2 + Videotutorial [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133321.jpg" />
 </div>
 
 
@@ -169,7 +221,7 @@ EdgeView 4..4.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133105.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ DxO PureRAW 3 for Mac v.3.9.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122575.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ MetaImage for Mac 2.6.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122517.jpg" />
 </div>
 
 
@@ -249,7 +301,7 @@ Lyn 2.3.7 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122381.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ Color Folder - Custom Icons for Mac 3.8 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122331.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ MetaRename for Mac 1.0.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122136.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ PhotosRevive for Mac 2.1.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121858.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ Sketch 99.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121598.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ Aiseesoft HEIC Converter 1.0.36 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121037.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ ApolloOne - Photo Video Viewer Pro 3.3.8 (patch only) [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120972.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ FoneLab HEIC Converter 1.0.18 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120967.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ Topaz Gigapixel AI for Mac 7.0.0 U2B [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120805.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ Adobe Photoshop for Mac 2024 v.25.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120383.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ Canvas X Draw 7.0.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120332.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ Amadine 1.5.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120252.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ Imagenomic Professional Plugin Suite For Adobe Photoshop 2024 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120028.jpg" />
 </div>
 
 
@@ -591,7 +643,7 @@ Imagenomic Noiseware for PS (Mac) 6.0.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119953.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ My PaintBrush Pro 2.4.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119790.jpg" />
 </div>
 
 
@@ -628,59 +680,6 @@ My PaintBrush для Mac — это мощное многослойное при
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:775898614DCFF357BA249AEA6F35E43B581D0AAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696526   (119533) от 03.02.2024
-
-HitPaw Photo AI for Mac 3.1.0 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119533.jpg" />
-</div>
-
-
-###  Подробнее
-
-HitPaw AI поможет вам восстановить старые фотографии и раскрасить черно-белые фотографии, чтобы вернуть старые фотографии к жизни одним щелчком мыши. Вы можете легко восстановить старые фотографии и сделать их яркими.
-Лучший «увеличитель» изображений с искусственным интеллектом, который делает изображения менее размытыми и увеличивает их без потери качества. Этот (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.01.2024Разработчик: © 2024 HitPawПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:590908500613A40B16ED23D8593D6E9A7178AC33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696521   (119514) от 03.02.2024
-
-HitPaw Watermark Remover for Mac 2.4.4 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда вам нужно быстро удалить водяной знак с одного из ваших изображений или видео, лучше всего прибегнуть к специализированным программным решениям, чтобы гарантировать получение высококачественных результатов. HitPaw Watermark Remover - одна из таких утилит. В общем, HitPaw Watermark Remover может пригодиться, когда вам нужно «стереть» водяной знак с ваших изображений (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.01.2024Разработчик: © 2023 HitPawПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE7B651751E2E5C4F493868FB15C857A17A14D8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

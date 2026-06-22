@@ -1,3 +1,107 @@
+###  Публикация: 1168744   (405053) от 25.09.2017
+
+В. И. Ленин | Задачи союзов молодежи (1986) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405053.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящем издании опубликована речь, произнесенная В. И. Лениным на III Всероссийской съезде Коммунистического союза молодежи 2 октября 1920 года. Ленин говорил об основных задачах Союза и об организации молодежи в социалистической республике вообще, акцентируя ведущую роль молодого поколения в создании коммунистического общества.Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01FAD07583555496EBEDBE2272FC7B38485219C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168748   (404999) от 25.09.2017
+
+По поводу так называемого «народного капитализма» (1958) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404999.jpg" />
+</div>
+
+
+###  Подробнее
+
+На расширенном заседании редакционной коллегии журнала «Международная жизнь» 18 и 19 апреля 1957 года состоялось обсуждение вопросов, связанных с теорией так называемого «народного капитализма», получившей ныне широкое распространение в США и некоторых других странах Запада. В обсуждении приняли участие ученые, журналисты и лекторы по международным вопросам.Жанр: История, политология, экономика, журналистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B0933640413046E7ED01295FEC69E88FBFADC96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 563257   (404751) от 21.10.2012
+
+Книжная серия | «Реликвии и сокровища мира» [2010-2011] [FB2, djvu]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Название серии «Реликвии и сокровища мира» говорит само за себя. Даже искушенный читатель найдет для себя много интересного в книгах этой серии. Сокровища потерянных цивилизаций и хранилища древних реликвий; реликвии правителей мира и религиозные святыни мира; исчезнувшие сокровища Романовых и клады России, а также: Свитки Мертвого моря и Александрийский кодекс, Библия Гуттенберга и "Апостол" Ивана Федорова… Авторы книг, большей частью профессиональные исследователи, пишут историю — историю реликвий и сокровищ, и людей, которые их создавали, или обладали ими.Формат: FB2, djvu
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C889AE4AC26D3C791347B3D9140DF54299A7D422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 563050   (404692) от 21.10.2012
+
+Григорий Кваша | Теория войн [2011] [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая книга Григория Кваши "Теория войн" беспрецедентна и не имеет аналогов. Жалкие попытки создания теоретической истории другими авторами - это, как правило, пустые рассуждения о том, что все катится в тартарары. Главное достоинство книги - это превращение истории в такую же точную науку, как физика или механика.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77EDA1183E09895236727C6F476C8A78561A1298
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169278   (403188) от 27.09.2017
 
 А. Т. Лукачевский | Безбожники, стройте колхозы (1930) [DJVU]
@@ -6,7 +110,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403188.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401728.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399818.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399813.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399811.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399729.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399625.jpg" />
 </div>
 
 
@@ -192,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399158.jpg" />
 </div>
 
 
@@ -219,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398626.jpg" />
 </div>
 
 
@@ -245,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397525.jpg" />
 </div>
 
 
@@ -271,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396543.jpg" />
 </div>
 
 
@@ -297,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394166.jpg" />
 </div>
 
 
@@ -325,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393983.jpg" />
 </div>
 
 
@@ -351,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393981.jpg" />
 </div>
 
 
@@ -377,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393975.jpg" />
 </div>
 
 
@@ -404,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393235.jpg" />
 </div>
 
 
@@ -430,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393184.jpg" />
 </div>
 
 
@@ -456,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393167.jpg" />
 </div>
 
 
@@ -482,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393037.jpg" />
 </div>
 
 
@@ -508,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391094.jpg" />
 </div>
 
 
@@ -537,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390559.jpg" />
 </div>
 
 
@@ -563,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390519.jpg" />
 </div>
 
 
@@ -575,112 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03EF3AFFDE43DA71A39A471E5A06621C01BCA667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252907   (388032) от 07.10.2018
-
-И. Пинксис и др. | Революционная Лиепая (1956) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник популярных статей «Революционная Лиепая» является первой в исторической литературе Советской Латвии попыткой познакомить трудящихся нашей республики с историей Лиепаи — одного из крупнейших промышленных и культурных центров Советской Латвии, со славными революционными традициями этого города в борьбе за советскую власть, а также с его достижениями в социалистическом (   Читать дальше...   )Жанр: История, политология, документалистика, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD3C7CE29F0566D04096D020E01DB98D37E8BED7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252911   (388028) от 07.10.2018
-
-Я. А. Балагуров (ред.) | Кижское восстание [1769-1771] (1977) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление олонецких приписных крестьян в 1769-1771 годах было наиболее значительным событием в истории Карелии феодальной эпохи. Движение крестьян охватило русские, карельские и вепсские погосты и волости с населением около 40 тыс. человек. Центром движения стала территория старинного Кижского погоста. В настоящем сборнике представлены документы, рассказывающие (   Читать дальше...   )Жанр: История, политология, документалистика, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5376D6FFE03AB06E6E6C07326C92AA754A0C90F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253085   (387713) от 07.10.2018
-
-Андрей Гусаров | Исторические здания Петербурга. Прошлое и современность. Адреса и обитатели (2018) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вновь мы обращаемся к прошлому петербургских зданий, продолжая рассказ, начатый в книге «Знаменитые петербургские дома». Новое путешествие по Северной столице начнем по традиции с главной городской магистрали – Невского проспекта – и прогуляемся далее по историческому центру, старым Литейной и Рождественской частям, посетим Петроградскую сторону и Васильевский остров. (   Читать дальше...   )Жанр: История; Архитектура; ИскусствоФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B29A235EB2968B44E95B1EF0E24DD22F875E4D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252929   (387696) от 07.10.2018
-
-В. И. Ленин и др. | Ленинский сборник [40 томов из 40] (1924-1985) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387696.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Ленинские сборники" - это сборники, в которых опубликованы рукописи подготовительных материалов к произведениям и выступлениям В. И. Ленина, проекты постановлений, наброски, конспекты и тезисы по различным вопросам, а также письма, телеграммы и записки, написанные Лениным за период 1895-1923 гг.
-
-Единого порядка размещения материала в "Л. с." (   Читать дальше...   )Жанр: История, политология, экономика, философия, правоведение, логика, документалистика, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC0F50BD4AF818B84B34A694390970BD1EE3E1B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

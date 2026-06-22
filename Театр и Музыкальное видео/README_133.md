@@ -1,3 +1,423 @@
+###  Публикация: 1764380   (101549) от 07.12.2024
+
+Coldplay - A Sky Full Of Stars (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101549.jpg" />
+</div>
+
+
+###  Подробнее
+
+«A Sky Full of Stars» (в переводе с англ. — «Небо, полное звёзд») — третий сингл британской группы Coldplay из их шестого студийного альбома Ghost Stories. В альтернативном клипе, снятом дизайн-студией Artisan, группа исполняет песню в темной комнате, где на пол проецируется анимация из звезд. Музыканты взаимодействуют с проекцией, а звезды кружатся и (   Читать дальше...   )Жанр: EDM, поп, альтернативный рокПродолжительность: 00:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:057DF79FD55CE91A6942322572F75A769D696E5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480897   (99257) от 10.04.2012
+
+Ковалева из провинции (1975) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ТелеспектакльРежиссер: Игорь Владимиров, Майя МарковаАктеры: Алиса Фрейндлих, Анатолий Равикович, Алексей Петренко, Овсей Каган, Валерий Кузин, Ефим Каменецкий, Галина Никулина, Леонид Дьячков, Михаил Девяткин, Владимир Цибин, Цицилия Файн, Алексей Розанов, Ольга Осипова, Лидия ТрубниковаПродолжительность: 02:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A326604057C89DE8562A80B7FA78CDDCF3CC730
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479492   (98968) от 07.04.2012
+
+Джиган - Нас больше нет (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Hip-HopПродолжительность: 00:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C99C2926B8B611E33FE757B8ABBBE81391EAC03D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479502   (98957) от 07.04.2012
+
+INNA - WOW (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5831ED6424E6FC8EBDF5DC3FEF21C5E30447B77D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475198   (98113) от 30.03.2012
+
+Музыкальный коллектив Петра Налича, концерт в клубе Б1 MAXIMUM (2009) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Авторская песняРежиссер: Gala-recordsАктеры: МКПН
+
+Обложку DVD нарисовал, как всегда, сам Пётр. На самом диске есть бонусыПродолжительность: 01:16:32 (концерт - 58:32, интервью - 8:41, ролики - 8:24)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDCFD76BB20BBCA6735850FEC05C03293F02DD04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470506   (97249) от 19.03.2012
+
+Alexandra - Mowisz Mi, Ze Przepraszasz (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_97249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD320606177A447E5301985D66DD17498B383474
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468000   (96840) от 16.03.2012
+
+Сурганова и Оркестр  (15.11.2011) концерт в Киеве ЦКИ НАУ <Rock> CamRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96840.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Интро
+ 002 Увидимся скоро
+ 003 Хвала
+ 004 SanctumSanctorum(   Читать дальше...   )Жанр: RockПродолжительность: 02:07:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B1F2F8220CD74837F2807051ACD97FAEC87CD96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462395   (95522) от 04.03.2012
+
+Сурганова и Оркестр (21.04.2006) в клубе Порт<Rock> CamRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт 21.04.2006 был приурочен ко Дню Рождения группы, три годика уже. В этот же день начались продажи нового DVD группы, получившего название “Кругосветка” – двойной праздник. Не будет лишним упомянуть, что перед выступлением где-то час как раз и крутили этот DVD.
+ Праздничное выступление началось с песни “В небе полном звезд” – с той самой, которая первая на первом, (   Читать дальше...   )01. Интро
+02. В небе полном звезд
+03. Обещанный снег
+04. Не покинет(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04DDDBD7B248B8F4AEBF1D27684A83C87B31CB39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459312   (94904) от 28.02.2012
+
+Celia ft. Shaggy - Dame (2011) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A759CF3F616375E95A6AD01EADB165B32F688731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822063   (94645) от 05.10.2025
+
+Квартирник у Маргулиса. Группа «Гран-КуражЪ» (04.06.2025) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа основана в 2004 году гитаристом и автором песен Михаилом Бугаевым. В 2006-м музыканты выпустили дебютный альбом «Вечная игра». Их творчество в жанре хеви-метал с выраженными элементами пауэр-метала балансирует между жесткой энергией и мелодичностью. Основные темы песен группы — человеческие эмоции, отношения между людьми, мифология, история, войны, политика (   Читать дальше...   )00:00:05 Царство диких людей
+00:08:10 Скоморох
+00:17:07 Бессмертна ложь
+00:26:35 Моргана(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Хеви-метал, пауэр-металЯзык: РусскийПродолжительность: 01:20:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0F89A0B80B0146B7934899240D6F57F108A3A6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822137   (94506) от 05.10.2025
+
+Праздничный концерт ко Дню учителя (2025) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый канал представляет телеверсию большого концерта, посвященного Дню учителя. Со сцены прозвучали самые любимые песни и самые теплые пожелания педагогам.Телекомпания: Россия | «Первый канал»Жанр: Поп, эстрадаУчастники: Юрий Антонов, Лариса Долина, Полина Гагарина, Shaman, Стас Михайлов, Александр Иванов, Стас Пьеха, Александр Панайотов, Дмитрий Колдун, Денис Майданов, Александра Воробьева, Дмитрий Маликов, «Домисолька», «Тодес», «Непоседы» и др.Продолжительность: 01:34:59 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CC801CC8F5E9A376456B00AA5D8C4DF26D4DA32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455296   (94209) от 23.02.2012
+
+Dekolte - Без тебя (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D20CE3B64AA6867C5059AA4451C7C09859BB0FFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489047   (91070) от 27.04.2012
+
+Pretenders - Loose in L.A. (2003/2012) BDRip [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Блю-рей издание концерта01. Lie to Me
+02. Time
+03. Message of Love
+04. My Baby
+05. Talk of the Town
+06. You Know Who Your Friends Are
+07. Time the Avenger
+08. The Homecoming
+09. Up the Neck
+10. Fools Must Die(   Читать дальше...   )Жанр: RockПродюсер: Geoff KempinАктеры: Chrissie Hynde, Adam Seymour, Martin Chambers, Andy Hobson, Zeben JamesonПеревод: Отсутствует, оригиналПродолжительность: 01:58:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487711   (90867) от 26.04.2012
+
+Стар Трэк. Видеоколлекция 20 / Star Track. Video Collection 20 (2006) VHSRip(DVD9)
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеозаписи концертов групп: Deep Purple, Rainbow, Ian Gillan Band.Жанр: Hard RockРежиссер: RagnaRock LTDАктеры: Deer Purple, Rainbow, Ian Gillan BandПеревод: ОтсутствуетПродолжительность: 09:01:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487345   (90425) от 24.04.2012
+
+Chloe Agnew (Celtic Woman) Walking In The Air (2005) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walking in the Air [3:39]
+02. Nella Fantasia (Featuring David Agnew) [3:44]
+03. Someday [4:20]
+04. Vivaldi's "Rain" [2:17]
+05. The Prayer [4:19]
+06. Panis Angelicus [3:56]
+07. Going Home [4:04]
+08. Vincent - Starry, Starry Night [4:37]
+09. One World [3:49]
+10. To Where You Are [3:57](   Читать дальше...   )Жанр: Музыка, CelticРежиссер: Bart van SinderenАктеры: Chloe AgnewПеревод: ОтсутствуетПродолжительность: 00:56:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 485490   (89736) от 20.04.2012
 
 Григорий Лепс: Научись летать Live (2011) [1080p] BDRip
@@ -6,7 +426,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89736.jpg" />
 </div>
 
 
@@ -35,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89683.jpg" />
 </div>
 
 
@@ -64,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89414.jpg" />
 </div>
 
 
@@ -93,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89269.jpg" />
 </div>
 
 
@@ -122,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89015.jpg" />
 </div>
 
 
@@ -148,7 +568,7 @@ Best of Mtv / Mtv 2012 (2012) 720p 1080p WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88840.jpg" />
 </div>
 
 
@@ -177,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88747.jpg" />
 </div>
 
 
@@ -207,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88392.jpg" />
 </div>
 
 
@@ -236,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88265.jpg" />
 </div>
 
 
@@ -265,7 +685,7 @@ Deep Purple - Phoenix Rising (2011) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87978.jpg" />
 </div>
 
 
@@ -295,7 +715,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87725.jpg" />
 </div>
 
 
@@ -309,429 +729,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07520B2B8DBDCFF4DF8E7CE969E3F1AF3BCE5E33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480978   (87524) от 10.04.2012
-
-Случай в гостинице (1967) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: драма, спектакльРежиссер: Александр ПрошкинПродолжительность: 01:13:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46FC4F39F433E5515249B9ED0FD258665A414A15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480393   (87461) от 09.04.2012
-
-Nightwish- Призрак оперы / Nightwish-Phantom of the opera (2006)[720p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: МузыкаПеревод: ОтсутствуетПродолжительность: 0:05:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7821E8C23966F164F40C2710B7154CC11D7BADA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479834   (87434) от 09.04.2012
-
-Пушкин. Евгений Онегин / читает Сергей Юрский (1999) VHSRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: поэзияРежиссер: Наталия СероваПродолжительность: 02:21:24 + 02:35:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:697F2761F02F2EC3875C9D72CA1DD3AFEC9B6B8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479723   (87234) от 08.04.2012
-
-Bee Gees - The Ultimate DVD only (2009) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop/RockРежиссер: VariosАктеры: Bee Gees: Barry, Robin and Maurice GibbПеревод: ОтсутствуетПродолжительность: 1:05:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479346   (87227) от 08.04.2012
-
-ABBA - Number Ones (2006) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбом-компиляция шведской группы ABBA, выпущенный Universal Music Group в 2006 году. Этот альбом (DVD-версия) включает видеоклипы песен, ставших хитами №1 в ведущих хит-парадах разных стран.1. Gimme! Gimme! Gimme! (A Man After Midnight)
-2. Mamma Mia
-3. Dancing Queen
-4. Super Trouper
-5. SOS
-6. Summer Night City
-7. Money, Money, Money
-8. The Winner Takes It All
-9. Chiquitita
-10. One Of Us(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:54:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479498   (87197) от 08.04.2012
-
-Simon and Garfunkel - The Concert In Central Park, 1981 (2004) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый концерт легендарного дуэта в центральном парке Нью-Йорка в сентябре 1981 года. Они спели для более чем 500.000 зрителей совершенно бесплатно!!!01. "Mrs. Robinson"
-02. "Homeward Bound"
-03. "America"
-04. "Me and Julio Down by the Schoolyard"
-05. "Scarborough Fair" (traditional, arr. Paul Simon and Art Garfunkel)
-06. "April Come She Will"
-07. "Wake Up Little Susie" (Felice and Boudleaux Bryant)
-08. "Still Crazy After All These Years"
-09. "American Tune"
-10. "Late in the Evening"(   Читать дальше...   )Режиссер: Michael Lindsay-HoggПеревод: Отсутствует
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479248   (87167) от 08.04.2012
-
-John Lennon / Lennon - Legend - The Very Best of John Lennon (2003) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classic Rock, ДокументальныйРежиссер: Yoko Ono, James ChadsАктеры: John Lennon, Yoko Ono, Miles Davis, Brian Epstein, Mal EvansПеревод: ОтсутствуетПродолжительность: 01:41:43
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479549   (86964) от 07.04.2012
-
-Basshunter - Saturday (Uncensored) (2012) [H.264] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 00:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A69E401FA02594BB1F3A6F6C16BEAB2B430A38D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479255   (86926) от 07.04.2012
-
-Священные чудовища / Московский театр Сатиры (2000) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спектакль Московского театра Сатиры по пьесе Жана Кокто.
-
-Эстер, примадонна и хозяйка парижского театра, находится на том гребне красоты и славы, за которым неминуемо брезжит период медленного увядания. Она обожает своего мужа Флорана - героя-любовника, премьера "Комеди Франсез". Но вот в их жизнь врывается молодая начинающая актриса Лиан, чьи робость и полудетская угловатость быстро сменяются созвучной новому времени беспардонностью. Эстер с достоинством отступает, чтобы потом, собравшись с неведомыми прежде силами, вернуться обновленной и прекрасной - уже в иную жизнь…Жанр: драма, комедия, спектакльРежиссер: Александр ВилькинПродолжительность: 01:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:256A977999903A6CDF38A73FD39562F76AFBA847
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479494   (86899) от 07.04.2012
-
-Jennifer Lopez ft. Pitbull - Dance Again (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86899.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance, Rap, Hip-hopПродолжительность: 00:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EAC9FC51D40B07A45C93B655B94050A711A8D84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479058   (86807) от 06.04.2012
-
-Видеоклипы International Performers in 2011 DVD-5 vol. 05 Пиратская Вечеринка 4.35Gb
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуется
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F46CC9EC22787ECB5ABD9764FC77CF714022A1B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476564   (86689) от 06.04.2012
-
-Осенняя кампания 1799 года / Театр Советской Армии (1986) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телеверсия спектакля по одноименной пьесе А. Ремеза в постановке Центрального академического театра Советской Армии.
-
-В августе 1799 года русские войска под командованием А.В.Суворова, разгромив французов в северной Италии, получают неожиданное распоряжение. Вместо похода на Париж им предписывается идти в труднодоступные швейцарские Альпы, где стоит сильная и многочисленная французская армия.Жанр: военный, спектакльРежиссер: Юрий Еремин, Владимир СемаковПродолжительность: 01:10:14 + 01:18:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEDB46FD2FCE369C447C626ECB0284FFDC490DCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477127   (86612) от 05.04.2012
-
-Nightwish -End Of Innocence (2003) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dторой оффициальный DVD группы Nightwish включает:Жанр: Symphonic Power Metal/GothicРежиссер: Timo HaloАктеры: Tarja Turunen, Tuomas Holopainen, Marco Hietala, Jukka Nevalainen, Emppu VuorinenПеревод: ОтсутствуетЯзык субтитров: финский, английский, португальскийПродолжительность: 02:14:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477332   (86544) от 05.04.2012
-
-"Послушайте!" Вечер Светланы Крючковой (2012) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86544.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Мария Петровых - один из самых глубоких
-и сильных поэтов наших..."
-(А. А. Ахматова)
-
-Светлана Крючкова рассказывает о поэте Марии Сергеевне Петровых, её времени и друзьях, и, конечно, читает стихи. В поэтическом вечере принимает участие гитарист Александр Крючков.
-
-    Осип Мандельштам. "Мастерица виноватых взоров..."
-    Давид Самойлов - Марии Петровых
-    Давид Самойлов - Арсению Тарковскому
-    Осип Мандельштам - Марии Петровых(   Читать дальше...   )Жанр: поэзияРежиссер: Анастасия СинельниковаПродолжительность: 00:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2343BCCEDDB0E349CD2A09D3B229FE497F3B9CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478352   (86515) от 05.04.2012
-
-Пушкин. Анджело / читает Сергей Шакуров (1999) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поэму А.С.Пушкина "Анджело" читает народный артист России Сергей Шакуров. Мало кто знает, что поэма А.С. Пушкина "Анджело" представляет собой пересказ комедии Шекспира "Мера за меру", а сюжет пьесы Шекспира был взят из итальянской новеллы эпохи Возрождения. Поэтому в поэме Пушкина переплетены традиции и особенности нескольких культур: английской, итальянской и, конечно, русской.
-
-Программа снималась в Италии. Старинный замок эпохи Возрождения и его интерьеры послужили превосходными декорациями моноспектакля.Жанр: поэзияРежиссер: Галина СамойловаПродолжительность: 00:38:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC9B647FF51EC15CFBE14292B215A0EC9A78974A
 ```
 
 https://mybot314.ru/tekegram_catalog/

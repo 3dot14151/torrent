@@ -6,7 +6,7 @@
 >>Космос
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12850.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9155.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6472.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4125.jpg" />
 </div>
 
 

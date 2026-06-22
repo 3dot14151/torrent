@@ -6,7 +6,7 @@ Svaneborg Kardyb - Superkilen (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contem
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38270.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Nordic Twilight - Nordic Twilight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38198.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Circle Of Mud - Inside The Circle (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38196.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38195.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Koko-Jean & The Tonics - Love Child (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38194.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Little River Band - Window To The World (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38193.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Chuck Ragan - Love & Lore (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38178.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Tribulation - Sub Rosa In AEternum (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38176.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Billy Jeter - Delta Traces (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38175.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Electric High - Colorful White Lies (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38173.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Chris Dover - Last Prairie Dance (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38172.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Neal Morse - No Hill For A Climber (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37877.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Jean Michel Jarre - Zoolook (1984) 40th Anniversary - new mastering, 2024, Sony 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37757.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Primal Scream - Come Ahead (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alterna
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37670.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Crippled Black Phoenix - The Wolf Changes Its Fur But Not Its Nature (2024) [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37577.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Shaka Ponk - Shaka Ponk (2023) Deluxe Edition, 2024, Tot Ou Tard [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37570.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Citizen Soldier - Icarus (2024) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Alt.Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37370.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ The Black Keys - Ohio Players (Trophy Edition) (2024) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37313.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ di liberta - Dictum (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indi Folk, Dar
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37312.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Linkin Park - From Zero (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37302.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Lionville - Supernatural (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37293.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ As I Lay Dying - Through Storms Ahead (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37291.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Starchaser - Into The Great Unknown (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37290.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Abc - 2 Albums (2022, 2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37289.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ George Harrison - Living in the Material World (50th Anniversary) (1973) Reissue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37284.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Nickelback - Live From Nashville (Live From Nashville) (2024) [FLAC 24/96|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37278.jpg" />
 </div>
 
 

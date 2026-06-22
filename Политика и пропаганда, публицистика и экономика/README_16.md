@@ -1,3 +1,108 @@
+###  Публикация: 1043410   (572164) от 16.08.2016
+
+Реквием по американской мечте / Requiem for the American Dream (2015) Web-DLRip [H.264/720p] [EN/RU Sub]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572164.jpg" />
+</div>
+
+
+###  Подробнее
+
+86-летний профессор Ноам Хомский уже давно известен не только как лингвист, но и как политический публицист, последовательно критикующий капитализм. Фильм, снимавшийся целой командой из трех режиссеров на протяжении четырех лет, — большое интервью публичного интеллектуала, где тот подробно излагает свои взгляды на современное устройство общества и его будущее.
+10 (   Читать дальше...   )Жанр: Документальный, политика, публицистикаРежиссер: Питер Д. Хатчинсон, Джаред П. Скотт, Келли НиксПеревод: СубтитрыЯзык субтитров: Русский, английскийПродолжительность: 01:12:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5671EB556B2D17F2422DFC48FC05A52DBC92E0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555618   (568598) от 04.06.2022
+
+Бесогон ТВ. Давос и ныне там. (04.06.2022) WEBRip [H.264/1080p-LQ] (выпуск 207)
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесогон ТВ - авторская программа кинорежиссера Никиты Михалкова, который пытается вместе со своим зрителем поразмышлять на самые разнообразные и актуальные темы, затрагивающие нашу жизнь. Каждый выпуск порождает все новые и новые вопросы, ответы на которые каждый должен найти для себя сам, основываясь на фактах, предоставленных в программе.Телекомпания: БесогонТВЖанр: Телепередача, Политика, ПублицистикаРежиссер: Никита МихалковПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD8CFA7883503D20806F190F8FDE39013EA0293F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555693   (567022) от 05.06.2022
+
+Леонид Кравчук. Повесть о щиром коммунисте  (2022) WEBRip [MPEG-2/720p]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Украина. Некогда дружественная нам страна. Но в последние годы ситуация кардинально изменилась. В нашем фильме мы попытаемся разобраться, когда произошел перелом в сознании людей и в чем его причины. И, главное, кто стоял за этим перерождением. В Российском Государственном архиве новейшей истории собраны секретные досье на крупнейших политиков советской эпохи. Для (   Читать дальше...   )Телекомпания: Россия / Первый каналЖанр: Документальный, Биография, ИсторияРежиссер: Максим ЖуковскийСубтитры: отсутствуютПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B233EBBFD3DFE9C3CFED3641D2C8155912D7E11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556568   (559861) от 09.06.2022
+
+Бесогон ТВ. Не буди лихо, пока тихо. (24.12.2021) WEBRip [H.264/1080p-LQ] (выпуск 199)
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесогон ТВ - авторская программа кинорежиссера Никиты Михалкова, который пытается вместе со своим зрителем поразмышлять на самые разнообразные и актуальные темы, затрагивающие нашу жизнь. Каждый выпуск порождает все новые и новые вопросы, ответы на которые каждый должен найти для себя сам, основываясь на фактах, предоставленных в программе.Телекомпания: БесогонТВЖанр: Политика, Телепередача, ПублицистикаРежиссер: Никита МихалковПродолжительность: 00:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A33056001795C7CB556C8AE211E465FD6374A3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046041   (556926) от 25.08.2016
 
 Время покажет (25.08.2016) SATRip
@@ -6,7 +111,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556926.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556514.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556512.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556510.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556508.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556474.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553063.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551173.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549325.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548426.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546581.jpg" />
 </div>
 
 
@@ -292,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544865.jpg" />
 </div>
 
 
@@ -318,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544754.jpg" />
 </div>
 
 
@@ -344,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543670.jpg" />
 </div>
 
 
@@ -371,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542883.jpg" />
 </div>
 
 
@@ -397,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542387.jpg" />
 </div>
 
 
@@ -423,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541340.jpg" />
 </div>
 
 
@@ -450,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540038.jpg" />
 </div>
 
 
@@ -482,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532811.jpg" />
 </div>
 
 
@@ -508,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531444.jpg" />
 </div>
 
 
@@ -535,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531008.jpg" />
 </div>
 
 
@@ -561,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529291.jpg" />
 </div>
 
 
@@ -572,110 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D54D112394DA16EB7D19CB3E4676385C704AB3F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156071   (527659) от 07.08.2017
-
-Розы имеют шипы - жертвы украинской революции / Roses Have Thorns - Casualties of the Ukrainian Revolution (2014) WEBRip [H.264/1080p-LQ] [EN, RU, UKR / EN Sub] (серии 1-17 из 17)
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полный документальный сериал, посвященный украинскому кризису с самого начала протестов на евромайдане в конце 2013 года. События представлены в хронологическом порядке без комментариев, полагаясь исключительно на необработанные кадры, новостные сообщения, интервью с участием свидетелей и официальные заявления, отобранные авторами фильма, согласно их взглядов на (   Читать дальше...   )Производство: Watchdog MediaЖанр: Документальный, Хроника, ПолитикаПеревод: ОтсутствуетЯзык озвучки: английский, русский, украинскийСубтитры: английские неотключаемыеПродолжительность: 22:20:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39A5F6FB7FA92CAE855A1D192754BDD1E1411347
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157251   (525505) от 11.08.2017
-
-Ядовитый бизнес-2 (2017) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальное расследование Аркадия Мамонтова. Россия – одна из красивейших стран в мире. Но, к сожалению, замусорена настолько, что не замечать этого сегодня стало невозможно. Кроме официальных полигонов ТБО в стране существует огромное количество нелегальных свалок бытового и промышленного мусора. Их сегодня насчитывается порядка 60 тысяч. И это только то, что (   Читать дальше...   )Телекомпания: Россия 1Жанр: ДокументальныйРежиссер: Аркадий МамонтовПеревод: ОтсутствуетПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7A0524CA61C0C0D4CD0A400D582AB2280483AE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157472   (525142) от 12.08.2017
-
-Украина: ясность в преддверии ада! / Klarheit im Vorhof der Holle! (2014) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм немецких кинодокументалистов показывает, что события на Украине – это лишь часть глобального плана, по которому Европу подталкивают к новой мировой войне. Создатели фильма предупреждают, что это фильм абсолютно не для детей, а также не для слабонервных. Однако, считают они, показанная в нём реальность вскоре может стать нашей всеобщей…Телекомпания: Klagemauer.TVЖанр: ДокументальныйПеревод: одноголосыйСубтитры: русские неотключаемыеПродолжительность: 00:33:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4525D3582BA784E9C8A1040E5E97FEA2C53A2D38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927825   (524108) от 14.08.2015
-
-Анатолий Вассерман. Открытым текстом (14.08.2015) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анатолий Александрович Вассерман — журналист, политический консультант, известен как многократный победитель интеллектуальных телеигр в программе «Новости24. Открытым текстом» за 10 минут даёт свой обзор главного в прошедшей неделе...Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:08:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBCF7EC6655C48EF45BFDA6491591EEE32D0695F
 ```
 
 https://mybot314.ru/tekegram_catalog/

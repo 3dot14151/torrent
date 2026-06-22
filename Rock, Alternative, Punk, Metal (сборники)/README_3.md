@@ -1,3 +1,61 @@
+###  Публикация: 1410598   (1029142) от 25.02.2021
+
+The Rolling Stones - Best of the Best (1965-1973) Remaster SMRP, De-Noised, 2020 [MP3|320 Kbps] <Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-(I Can't Get No) Satisfaction (1965) (03:45)
+02-Play With Fire (1965) (02:16)
+03-As Tears Go By (1965) (02:47)
+04-I've Been Loving You Too Long (1965) (02:57)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ABB13B3104758D52627CA7691DDE1E999F51006
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 873907   (1028395) от 01.03.2021
+
+VA - Чартова дюжина. Итоги хит-парадов разных лет 1999-2020 [MP3|256-320 кб/с]<Rock>
+
+>>След.
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чартова дюжина" - хит-парад радиостанции "Наше радио", ориентированный преимущественно на русскоязычную музыку, а также рок-премия и фестиваль, в котором участвуют победители чарта по итогам года. Хит-парад состоит из тринадцати мест (соответственно названию, которое обыгрывает выражение "чёртова дюжина", то есть число 13). Голосование осуществляется (   Читать дальше...   )Состав раздачи:
+Чартова дюжина за 1999-2020 гг.
+Лучшие песни десятилетия (1998-2008)
+Выбор НАШЕго Топ-5Жанр: RockПродолжительность: 20:26:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA03822454EE3F5136C0AB41EA71CAFCF83A4D1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451774   (1028224) от 03.03.2021
 
 VA - Rockstar: The True Feeling (2021) [MP3|320 Kbps] <Rock, Hard Rock, Alternative, Indie>
@@ -6,7 +64,7 @@ VA - Rockstar: The True Feeling (2021) [MP3|320 Kbps] <Rock, Hard Rock, Alternat
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028224.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Geordie - Keep on Rockin' (2021) 2CD Compilation [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028215.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Queen - We Will Rock You! (2021) 2CD Compilation [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028174.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Axxis - Tales Of Glory Island, 2CD, Compilation (2021) [MP3|320 Kbps] <Heavy Met
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027383.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ VA - Classic Rock Legends (2021) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026218.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ VA - Rock Music 2021 [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025750.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ Manowar - Best Ballads (1990,1998) [MP3|320 kbps]<Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025344.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ VA - The Metal Hammer - 100 GREATEST SONGS OF THE CENTURY (2021) [MP3|320 Kbps] 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025216.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ VA - Baker Street - 100 Classics from the 70's (2021) [MP3|320 Kbps] <Rock, Pop>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025067.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ VA - New Revolution: Rock Indie Music (2021) [MP3|320 Kbps] <Rock Indie, Alterna
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024620.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ VA - Before The Day Awakes: Indie Rock Compilation (2021) [MP3|320 Kbps] <Indie 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023487.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ The Beatles - Sgt. Pepper's Lonely Hearts Club Band (SMRP Stereo from Mono Origi
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022749.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ Gary Eisenbraun - Kings Of Modern Rock (2003-2020) (2021) [MP3|320 Kbps] <Rock, 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021911.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ VA - Новинки русского рока (2021) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021507.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ VA - Rock Music 2 (2021) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020971.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ VA - The Alternative History: Rock Indie Music (2021) [MP3|320 Kbps] <Indie Rock
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018802.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ VA - The Best Pop Rock Ballads 2000s (2021) [MP3|320 Kbps] <Pop, Rock, Ballads>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018681.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ VA - Beast Mode Rock (2021) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018393.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ VA - Rock In The City (Vol.02) (2021) [MP3|320 Kbps] <Rock, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017910.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ VA - Music for You vol.16 (2021) [MP3|320 Kbps] <Metal, Rock, Other>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017064.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ Brian Johnson - Brian Johnson & Geordie & AC DC (2007) Compilation, Unofficial R
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017031.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ VA - Punk Rock Bulldozer (2CD) (2021) [MP3|320 Kbps] <Punk Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016765.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ VA - Music For You vol.17 (2021) [MP3|320 Kbps] <Metal, Rock, Other>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016746.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ The Tiger Lillies - Dark Songs not About Love & Flowers (Compilation Album) (199
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015142.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ The Tiger Lillies - Dark Songs not About Love & Flowers (Compilation Album) (199
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4664484C8154D553444D0EE9EC9022183FFD6D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472889   (1014036) от 27.05.2021
-
-VA - Rebell Trap Music Mondays (2021) [MP3|320 Kbps] <Indie, Pop Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014036.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rambling Nicholas Heron - Sweet And Sour
-002. Polly Scattergood - Red
-003. Zack Hall - Overgrown
-004. Stereolab - Super Falling Star(   Читать дальше...   )Жанр: Indie, Pop Rock, AlternativeПродолжительность: 08:25:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEEF8D9927675B14DC870965407DCE717BC3EA17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472803   (1014033) от 27.05.2021
-
-VA - unknOwn bands (2013 - 2016) [MP3|192 - 320 Kbps] <Alternative, Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014033.jpg" />
-</div>
-
-
-###  Подробнее
-
-UnknOwn bands - Vol. 1 (2013)
-
-01. Bullet Method - Rise
-02. Kita - Twisted Complicated World(   Читать дальше...   )Жанр: alternative, rock, metalПродолжительность: 09:05:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8350E3F0BCAA5FD201CF78D803E7FF4E324A38A
 ```
 
 https://mybot314.ru/tekegram_catalog/

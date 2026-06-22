@@ -1,3 +1,109 @@
+###  Публикация: 1276009   (789075) от 14.01.2019
+
+С. Н. Смидович | Работница и крестьянка в Октябрьской революции (1927) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Безвременно погибшим от вражеских пуль, от тифа, от голода, от непосильного труда, — светлой памяти всех безвестных тружениц, павших на полях великих битв с классовым врагом, посвящаются скромные странички этой книжки, а также работницам, крестьянкам, женам рабочих, труженицам Востока, подвиг которых живет в каждом завоевании великой Октябрьской революции.Жанр: История, политология, экономика, документалистика, публицистика, социологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BF71702B2E1274472471125B961134AC81656F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275965   (789073) от 14.01.2019
+
+К. Биро | Социал-демократическая партия и контрреволюция в Венгрии (1925) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все мы знаем о предательской роли II Интернационала и социал-демократических партий всех стран. Каждый номер „Правды" и всякой другой газеты приносит достаточно фактов в подтверждение этого предательства. Однако, надо вспомнить, что даже в стране совершившейся пролетарской революции, в СССР, еще 8 лет тому назад, в 1917 году, в период от февраля до октября, (   Читать дальше...   )Жанр: История, политология, экономика, документалистика, публицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3294CB8DFD75EFCEB514873E7DDA47271E777B01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276010   (789046) от 14.01.2019
+
+В. А. Мойрова (ред.) | Женское коммунистическое движение в капиталистических странах (1931) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая брошюра составлена по материалам европейского совещания заведующих женотделами коммунистических партий в августе 1930 г. и по некоторым позднейшим данным (берлинская забастовка металлистов, забастовка в Руре, забастовка текстильщиков на севере Франции и т. д.).
+
+Международный женский секретариат попытался дать возможно более полный материал по вопросам (   Читать дальше...   )Жанр: История, политология, документалистика, публицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79060271EB46A228C35BDF63172CD5DCF81C6045
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276013   (789040) от 14.01.2019
+
+И. Ворошилин (отв. ред.) | Что дала Великая Октябрьская социалистическая революция рабочим и крестьянам (1937) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789040.jpg" />
+</div>
+
+
+###  Подробнее
+
+История человечества знает много различных восстаний и революций, но все они коренным образом отличаются от Октябрьской революции 1917 г. В тех революциях, например в 1789 г. во Франции или в феврале 1917 г. в России, хотя свергались цари, менялись правительства, но порабощение, эксплуатация трудящихся оставалась, и только одна форма угнетения сменялась другой формой (   Читать дальше...   )Жанр: История, политология, экономика, документалистика, публицистика, социология, правоведениеФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A6D1DCFAF0F63D61CA3AEFAD5953297FE2A841A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276008   (789032) от 14.01.2019
 
 М. С. Балабанов | От 1905 к 1917 году. Массовое рабочее движение (1927) [PDF]
@@ -6,7 +112,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789032.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788615.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788337.jpg" />
 </div>
 
 
@@ -85,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788237.jpg" />
 </div>
 
 
@@ -113,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788216.jpg" />
 </div>
 
 
@@ -142,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787684.jpg" />
 </div>
 
 
@@ -168,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787250.jpg" />
 </div>
 
 
@@ -194,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787217.jpg" />
 </div>
 
 
@@ -220,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787022.jpg" />
 </div>
 
 
@@ -246,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786989.jpg" />
 </div>
 
 
@@ -272,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786563.jpg" />
 </div>
 
 
@@ -299,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786561.jpg" />
 </div>
 
 
@@ -326,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786560.jpg" />
 </div>
 
 
@@ -352,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785834.jpg" />
 </div>
 
 
@@ -378,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785806.jpg" />
 </div>
 
 
@@ -404,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785801.jpg" />
 </div>
 
 
@@ -430,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785785.jpg" />
 </div>
 
 
@@ -456,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785448.jpg" />
 </div>
 
 
@@ -482,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785441.jpg" />
 </div>
 
 
@@ -511,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785426.jpg" />
 </div>
 
 
@@ -537,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784971.jpg" />
 </div>
 
 
@@ -563,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784682.jpg" />
 </div>
 
 
@@ -574,110 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B2961ADA65B7232FF036C8AA4C3E2545F6FB1A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204413   (784679) от 06.02.2018
-
-П. Боярский | Почему троцкизм вернулся к меньшевизму? (1928) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Внутрипартийная жизнь последних двух лет отличается событиями, имеющими огромное значение для нашей партии. Группа виднейших членов партии, ее бывших вождей (Троцкий, Зиновьев, Каменев и др.), два года вели беспрерывную травлю партии, старались расшатать единство партии, не подчинялись никакой партийной дисциплине и не выполняли даже советской работы, на которую (   Читать дальше...   )Жанр: История, политология, экономика, документалистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE004830E92420C6F1F28F28C6160718BE65BE2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204409   (784678) от 06.02.2018
-
-К. А. Попов (ред.) | Дискуссия 1923 года (1927) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для оценки общего хода внутрипартийного развития после 1917 г., для оценки, в частности, современных разногласий опыт дискуссии 1923 года имеет существенное значение. В выступлениях оппозиции 1923 года читатель найдёт в зародышевой, а подчас и в развёрнутой форме основные элементы тех положений, которые в 1926/27 гг. сплелись в отчётливый неоменьшевистский узор. (   Читать дальше...   )Жанр: История, политология, документалистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E71803E6B5AE0B68621122322BB99CEBBFC029C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204362   (784674) от 06.02.2018
-
-Н. Корнатовский (ред.) | Кронштадтский мятеж: сборник статей, материалов и документов (1931) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784674.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборнике представлены воспоминания участников мартовских боев, они дают кусок живой жизни, отражают бытовые условия того времени, переживания бойцов во всей их обыденной непосредственности. Многое может быть понято из этих человеческих документов. Обстановка боев как-то оживает, легче «осязаешь» все свойства мятежников и героическую борьбу с ними. Восстанавливается (   Читать дальше...   )Жанр: История, политология, документалистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A4F2AF23475E9C8B7F196F58A647B551AAF4934
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204430   (784375) от 07.02.2018
-
-Д. Мануильский и др. | Будем зорки и бдительны: Сборник статей и материалов (1937) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784375.jpg" />
-</div>
-
-
-###  Подробнее
-
-„Необходимо помнить и никогда не забывать, что капиталистическое окружение является основным фактом, определяющим международное положение Советского Союза. Помнить и никогда не забывать, что пока есть капиталистическое окружение, — будут и вредители, диверсанты, шпионы, террористы, засылаемые в тылы Советского Союза разведывательными органами иностранных государств, (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44357C756E35AA35DFFDAACDA1204F004D82C8BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

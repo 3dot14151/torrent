@@ -1,3 +1,29 @@
+###  Публикация: 1287275   (704700) от 06.03.2019
+
+The Occupation (2019) [Ru/Multi] (1.02) Repack xatab
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704700.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Occupation — это захватывающий триллер от первого лица с элементами симулятора детектива, в котором вы отправитесь прямиком в 24 октября 1987 г., на северо-запад Англии.  Вы — журналист в изменчивом реалистичном мире, в котором люди реагируют на каждое ваше действие, а время, становится злейшим врагом.Тип издания: RepackРазработчик: White Paper GamesЖанр: Adventure (Detective), Stealth, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6146FEB1E8FF3ACC270CDC402CA77A2B6933C6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402100   (703000) от 13.08.2020
 
 Metamorphosis (2020) [Ru/Multi] (1.0) Repack xatab
@@ -6,7 +32,7 @@ Metamorphosis (2020) [Ru/Multi] (1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703000.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Yakuza Kiwami (2019) [En/Jp] (1.0/upd2) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702851.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Mike was Сursed (2018) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702191.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Inner Voices (2017) [Ru/Multi] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698376.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Outlast 2 (2017) [Ru/Multi] (1.0.17512) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698244.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Operation Flashpoint: Red River (2011) [Ru/En] (1.2.0.0) RePack Audioslave
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695491.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Secret of Harrow Manor (2018) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694894.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ A Second Before Us (2017) [Ru/En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694619.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Heavy Fire: Shattered Spear (2015) [En/Multi] (1.1.8) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693896.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Pursuer (2019) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691626.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Umbrella Corps / Biohazard Umbrella Corps (2016) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689947.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ OVERKILL's The Walking Dead (2018) [Ru/En] (1.3.2/dlc) Repack Mizantrop1337
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689785.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Containment Initiative (2018) [En] (1.45) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688939.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Prey (2017) [Ru/Multi] (1.0.2/dlc) SteamRip Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688662.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ STRAFE (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686777.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Reframed (2018) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686615.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Apocryph: an old-school shooter (2018) [Ru/Multi] (1.0) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686605.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ DESOLATE (2019) [Ru/Multi] (1.2.8) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685554.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ CRIMSON METAL (2017) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684357.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ DooM in the Dark (2019) [Ru/Multi] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683500.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Prey (2017) [Ru/Multi] (1.0/dlc) License CPY
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682262.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ SUPERHOT (2016) [Ru/Multi] (1.0/upd9) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681791.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Inner Chains (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680406.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Prey [Ru] (L) 2006
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_678861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_678861.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ I Am Alive (2012) [Ru/Multi] (1.01) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_676072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_676072.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ I Am Alive предлагает игроку роль одинокого выж�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1192FBEC5086527A45DF20B2AC3D0A06752B9974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839169   (676066) от 27.11.2025
-
-illWill (2023) [Ru/Multi] (1.11) Repack Necros
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_676066.jpg" />
-</div>
-
-
-###  Подробнее
-
-ILLWILL - это яркий олдскульный шутер от первого лица с большими пушками и монстрами, которые взрываются на куски мяса, как баллоны, наполненные кровью, когда вы в них стреляете. Игра черпает вдохновение из DOOM, Quake, Blood и Serious Sam и представляет собой очень стильный и комедийно жестокий олдскульный бумер-шутер. По сути вы являетесь армией из одного человека, (   Читать дальше...   )Тип издания: RepackРазработчик: Slava BushuevЖанр: Экшены, ИндиЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BED7D5D4E64DF167837C51C205E79E5477D5914
 ```
 
 https://mybot314.ru/tekegram_catalog/

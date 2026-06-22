@@ -1,3 +1,32 @@
+###  Публикация: 1543159   (213108) от 24.06.2022
+
+Kaguya-sama wa Kokurasetai: Ultra Romantic / Госпожа Кагуя: В любви как на войне [ТВ-3][2022, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий сезон Kaguya-sama wa Kokurasetai.
+
+Описание на первый сезон:
+Высокое происхождение, привлекательная внешность, учёба в академии для будущей элиты страны… У Миюки и Кагуи было всё. Когда их избрали главой и заместителем главы ученического совета, только ленивый не говорил, что молодые люди будут чудесной парой. И хотя втайне герои считали так же, за целых полгода (   Читать дальше...   )Жанр: комедия, романтикаРежиссер: Омата СинъитиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 11 серий по 25 мин, 1 серия по 48 мин (объединённая).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC97A51EBB3E5BF76631C7576132E150A3876A3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1542855   (213103) от 24.06.2022
 
 Koi wa Sekai Seifuku no Ato de | Love After World Domination | Любовь после порабощения мира [2022, TV, 12 эп.] WEBRip 720p raw
@@ -6,7 +35,7 @@ Koi wa Sekai Seifuku no Ato de | Love After World Domination | Любовь по
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213103.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ Komi-san wa, Komyushou Desu. (2022) | Komi Can't Communicate | У Коми пр�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213078.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ Love Live! Nijigasaki Gakuen School Idol Doukoukai 2 / Love Live! Nijigasaki Hig
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213077.jpg" />
 </div>
 
 
@@ -87,7 +116,7 @@ Kono Healer, Mendokusai | Don't Hurt Me, My Healer! | Этот хилер мен
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213059.jpg" />
 </div>
 
 
@@ -113,7 +142,7 @@ Birdie Wing: Golf Girls Story | Бёрди винг: История гольфи
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212988.jpg" />
 </div>
 
 
@@ -139,7 +168,7 @@ Mahou Tsukai Reimeiki | The Dawn of the Witch | Рассвет ведьмы [202
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212921.jpg" />
 </div>
 
 
@@ -165,7 +194,7 @@ Gensou Mangekyou: The Memories of Phantasm | Тохо - Калейдоскоп �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212738.jpg" />
 </div>
 
 
@@ -194,7 +223,7 @@ Witch Craft Works | Ведьмовство | Ремесло ведьмы [2014, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212363.jpg" />
 </div>
 
 
@@ -220,7 +249,7 @@ Ginga Senpuu Braiger | Галактический Вихрь Брайгер [198
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212133.jpg" />
 </div>
 
 
@@ -246,7 +275,7 @@ Ultraman Final | Ультрамен 3 [2023, ONA, 12 эп.] WebRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211015.jpg" />
 </div>
 
 
@@ -272,7 +301,7 @@ Ultraman Final | Ультрамен 3 [2023, ONA, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210976.jpg" />
 </div>
 
 
@@ -298,7 +327,7 @@ Iwa Kakeru! Sport Climbing Girls | Держись крепче! Скалолаз
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210957.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ Kaguya-sama wa Kokurasetai: First Kiss wa Owaranai | Kaguya-sama: Love is War - 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210590.jpg" />
 </div>
 
 
@@ -350,7 +379,7 @@ Atasha Kawajiri Kodama Da yo: Dangerous Lifehacker no Tadareta Seikatsu | I'm Ko
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210585.jpg" />
 </div>
 
 
@@ -376,7 +405,7 @@ Majutsushi Orphen Hagure Tabi: Seiiki Hen | Волшебник-воин Орфе
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210082.jpg" />
 </div>
 
 
@@ -402,7 +431,7 @@ Fate/strange Fake: Whispers of Dawn | Судьба/странная поддел
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209953.jpg" />
 </div>
 
 
@@ -428,7 +457,7 @@ Overlord IV | Повелитель [ТВ-4] [2022, TV, 13 эп. + 13 SP] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209767.jpg" />
 </div>
 
 
@@ -454,7 +483,7 @@ Meng Qi Shi Shen | Cinderella Chef 3 | Очаровательная богиня
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208202.jpg" />
 </div>
 
 
@@ -480,7 +509,7 @@ Mushibugyou | Истребители насекомых [2013, TV, 26 эп. + 3 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208147.jpg" />
 </div>
 
 
@@ -506,7 +535,7 @@ Kubo-san wa Mob o Yurusanai | Kubo Won't Let Me Be Invisible | Кубо не п�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208104.jpg" />
 </div>
 
 
@@ -532,7 +561,7 @@ Kanojo, Okarishimasu 2 | Rent-a-Girlfriend 2 | Девушка на час [ТВ-
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207935.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ Engage Kiss | Поцелуй-активатор [2022, TV, 13 эп.] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207423.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ Love All Play | Люблю играть [2022, TV, 24 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207412.jpg" />
 </div>
 
 
@@ -610,7 +639,7 @@ Aoashi | Аоаси [2022, TV, 24 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207389.jpg" />
 </div>
 
 
@@ -636,7 +665,7 @@ Lycoris Recoil / Ликорис Рекойл [2022, TV, 13] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207379.jpg" />
 </div>
 
 
@@ -647,32 +676,6 @@ Lycoris Recoil / Ликорис Рекойл [2022, TV, 13] WEBRip 720p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:590AE451F91A06558F55F9B769B8F8D7D3DF3F5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612615   (207237) от 16.02.2023
-
-Nakitai Watashi wa Neko o Kaburu | Nakineko | A Whisker Away | Сквозь слёзы я притворяюсь кошкой [2020, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычная японская старшеклассница Миё живет своей обычной японской жизнью. Но когда девушка влюбляется в одноклассника, а тот не обращает на неё никакого внимания, она решает, что единственный способ добиться его расположения — стать кошечкой. В этом ей поможет волшебная маска. Вскоре также выяснится, что существует параллельный кошачий мир, а вернуться в человеческое (   Читать дальше...   )Производство: студия Studio Colorido / スタジオコロリドЖанр: приключения, романтика, фентезиРежиссер: Сато ДзюнъитиПеревод: Netflix (Всеволод Иващенко)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 105 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7B6C9B0D32177A1A45BEBCE715355701ADCE1A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

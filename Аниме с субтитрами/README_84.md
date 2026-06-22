@@ -1,3 +1,29 @@
+###  Публикация: 1257841   (343125) от 27.10.2018
+
+Busou Shoujo Machiavellianism | Armed Girl's Machiavellism | Тирания вооруженных девушек [2017, TV, 12 эп. + 1 OVA] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343125.jpg" />
+</div>
+
+
+###  Подробнее
+
+В академии сожительства Аичи ношение оружия - дело совершенно обычное. Для девушек. Каждая из них в качестве самообороны носит с собой, например, биту. Когда-то давно в этой элитной академии обучали только девушек, и бояться им было нечего. Но с тех пор, как туда начали зачислять и парней, ситуация изменилась, и из-за страха девушки начали вооружаться. В академии (   Читать дальше...   )Жанр: приключения, комедияРежиссер: Татибана ХидэкиПеревод: 1) AniPlay; 2) SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. + 1 OVA по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EF5F28B95035058701B65DE5F2E9D4F3CD59E1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237289   (343124) от 27.10.2018
 
 Mahou Shoujo Site | Magical Girl Site | Сайт Девочек-Волшебниц [2018, TV, 12 эп.] BDrip 1080p raw
@@ -6,7 +32,7 @@ Mahou Shoujo Site | Magical Girl Site | Сайт Девочек-Волшебни
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343124.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Shoot! Goal to the Future | Удар! Гол в будущее [2022, TV, 13 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343007.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Bucchigire! | Shine On! Bakumatsu Bad Boys! | Сияйте, головорезы
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342974.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Teppen!!!!!!!!!!!!!!! | Teppen! Laughing 'til you Cry | Апогей! [2022, TV,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342952.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Fate/Grand Order: Moonlight/Lostroom | Судьба/Великая Кампан�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342935.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Princess Principal | Принцесса-шпионка | Подручные пр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342913.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Ushiro no Shoumen Dare | Who's Left Behind? | Кто стоит за спино�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342780.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Inou-Battle wa Nichijou-kei no Naka de | Inou Battle | Inou Battle Within Everyd
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341794.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Ixion Saga: Dimension Transfer | ИКСИОН САГА: Пространстве
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341432.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Lost Song | Потерянная песня [2018, ONA, 12 эп.] BDrip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341074.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Sora Yori mo Tooi Basho | A Place Further Than the Universe | Место за п
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340907.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Bastard!! Ankoku no Hakaishin (2022) | Bastard!! Heavy Metal, Dark Fantasy | У�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340667.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Hanabi-chan wa Okure-gachi | Hanabi-chan Is Often Late | Ханаби посто
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340662.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Guskou Budori no Denki (2012) / The Life of Guskou Budori / Житие Гуск�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_340429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_340429.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Idol Boueitai Hummingbird / Idol Defense Force Hummingbird / Боевая поп
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340297.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Laidbackers | Расслабонщицы [2019, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339848.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Darwin's Game | Игра Дарвина [2020, TV, 11 из 11] BDRip 1080p 10-bi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339716.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ Hana to Alice: Satsujin Jiken | The Case of Hana & Alice | Хана и Алис�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339360.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Kimagure Orange Road OVA | Capricious Orange Road OVA | Капризы Апел�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338971.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ Sora o Miageru Shoujo no Hitomi ni Utsuru Sekai | Мунто [ТВ] [2009, TV, 9
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338885.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ Kimagure Orange Road | Capricious Orange Road | Капризы Апельсин�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338866.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ Kimagure Orange Road: Ano Hi ni Kaeritai | Capricious Orange Road: I Want to Ret
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338865.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ Nyan Koi! / Nyankoi! / Кошачьи Прихоти! [2009, TV, 12 серий] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338856.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ Tenjoubito to Akutobito Saigo no Tatakai | Мунто (фильм) | После�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338745.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ Shijou Saikyou no Daimaou, Murabito A ni Tensei Suru | The Greatest Demon Lord I
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338744.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ Shijou Saikyou no Daimaou, Murabito A ni Tensei Suru | The Greatest Demon Lord I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01403BEB75E529CB8729E49ABC875C8DE6E8DD5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579227   (338737) от 26.09.2022
-
-Yuusha, Yamemasu | I'm Quitting Heroing | Перестану быть героем [2022, TV, 12 эп. + 2 SP] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338737.jpg" />
-</div>
-
-
-###  Подробнее
-
-После спасения человечества герой Лео стал никому не нужен, он слишком силён для нового мира без войны, да и люди начали его бояться. И Лео вступил в армию Королевы Демонов, которую сам же и победил. Армия в плачевном состоянии: переработки личного состава, недостаток финансирования и другие проблемы. Но при помощи сил Лео ситуация начала улучшаться. Тогда же он (   Читать дальше...   )Производство: студия EMT Squared / EMTスクエアードЖанр: комедия, фэнтезиРежиссер: Нобута ЮПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11602CF15436EC4BC015CADD96B2F992750139A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

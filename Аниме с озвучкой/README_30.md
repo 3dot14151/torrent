@@ -1,3 +1,81 @@
+###  Публикация: 819981   (529572) от 09.09.2014
+
+Kill la Kill / Крошить-кромсать [2013, TV, 24 ep] BDRip Hi10p 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Огромная Академия Истины похожа на гибрид шикарного дворца и детской колонии. Ею и прилегающим городом правит семья Кирюин, владеющая секретом «боевых волокон». Будучи добавлены в обычную школьную форму (такую называют однозвездной), волокна делают обладателя сильнее и быстрее, превращая в серьезного бойца. Однозвездную форму носят рядовые дружинники, более мощную двухзвездную – лидеры спортивных клубов, а трехзвездную, годную для супермена – четверо элитных членов Совета, которые напрямую подчиняются «богине» (   Читать дальше...   )Жанр: приключения, комедия, фэнтези, эттиРежиссер: Имайси ХироюкиФормат: MKV |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E5B127174EB6341A5AC3D97D765D36E09DD4210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201248   (528456) от 11.08.2018
+
+Darling in the Franxx / Возлюбленный во «ФранКс» [2018, TV, 24 ep] WEB-DL 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что случится с нами в далёком будущем? Будем ли мы жить, как сейчас, или наш мир изменится до неузнаваемости? Один из вариантов развития событий покажет нам это аниме. Под стеклянным куполом, ограждающим небо, дрейфует город-крепость под названием "Плантация”. Там воспитываются юные пилоты роботов Франкс. Причём воспитываются таким образом, что им внушается, (   Читать дальше...   )Жанр: приключения, фантастика, мехаРежиссер: Нисигори АцусиЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 24 эпизода по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E83DD6EFC1A760345BEDD05C62E56359E609C707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542952   (527626) от 23.06.2022
+
+Девушка-целитель | Целительница | Healer Girl [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история про девочек, которые учатся лечить от болезней с помощью песен. И пока мы тут у себя мажем разбитые коленки йодом, а при проблемах посерьёзнее едим таблеточки, в очередной альтернативной Японии научились использовать силу голоса.Производство: Япония / Студия Studio 3HzЖанр: Музыкальный, повседневность, приключенияРежиссер: Ириэ ЯсухироЯзык озвучки: Русский многоголосый, закадровый (AniLibria.TV)Субтитры: Русские (Софтсаб на надписи), Русские (Софтсаб полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AF57D457EF87F3B2418A64C7BC381D39D03293A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1544708   (526940) от 24.06.2022
 
 RPG недвижимость | RPG Fudousan | RPG Real Estate [TV-1] [2022, TV, 12 из 12] WEBRip 1080p rus
@@ -6,7 +84,7 @@ RPG недвижимость | RPG Fudousan | RPG Real Estate [TV-1] [2022, TV, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526940.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526937.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524098.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524097.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523309.jpg" />
 </div>
 
 
@@ -140,7 +218,7 @@ Kaguya-sama wa Kokurasetai: Ultra Romantic | Kaguya-sama: Love is War Ultra Roma
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522559.jpg" />
 </div>
 
 
@@ -166,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521453.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ Kono Healer, Mendokusai | Don't Hurt Me, My Healer! | Этот хилер мен
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518556.jpg" />
 </div>
 
 
@@ -218,7 +296,7 @@ Yowamushi Pedal: Glory Line / Трусливый велосипедист: Че�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515742.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ Boku no Hero Academia the Movie: Futari no Hero | My Hero Academia the Movie: Th
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515697.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513325.jpg" />
 </div>
 
 
@@ -298,7 +376,7 @@ Durarara!!x2 Shou / Дюрарара!! 2 (сезон первый) [2015, TV, 12
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512485.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ Aldnoah.Zero / Алдноа.Зеро (ТВ-2) [2015, TV, 12 ep] BDRip Hi10p 720p
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512481.jpg" />
 </div>
 
 
@@ -351,7 +429,7 @@ Gekijouban Trigun: Badlands Rumble / Trigun the Movie / Триган: Переп
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509915.jpg" />
 </div>
 
 
@@ -379,7 +457,7 @@ Soredemo Sekai wa Utsukushii / SoreSeka / И всё-таки мир прекра
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509836.jpg" />
 </div>
 
 
@@ -406,7 +484,7 @@ Momo e no Tegami / A Letter to Momo / Письмо для Момо [2011, Movie]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501913.jpg" />
 </div>
 
 
@@ -432,7 +510,7 @@ Momo e no Tegami / A Letter to Momo / Письмо для Момо [2011, Movie]
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501912.jpg" />
 </div>
 
 
@@ -458,7 +536,7 @@ Hoshi o ou kodomo / Children Who Chase Lost Voices from Deep Below / Ловцы 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501880.jpg" />
 </div>
 
 
@@ -484,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499259.jpg" />
 </div>
 
 
@@ -511,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498379.jpg" />
 </div>
 
 
@@ -539,7 +617,7 @@ Vampire Hunter D / Ди - охотник на вампиров [1985, Movie] BDr
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498107.jpg" />
 </div>
 
 
@@ -565,7 +643,7 @@ Vampire Hunter D / Ди - охотник на вампиров [1985, Movie] BDr
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498103.jpg" />
 </div>
 
 
@@ -591,7 +669,7 @@ Odin: Koushi Hansen Starlight / Odin: Photon Space Sailer Starlight / Один: 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497972.jpg" />
 </div>
 
 
@@ -602,84 +680,6 @@ Odin: Koushi Hansen Starlight / Odin: Photon Space Sailer Starlight / Один: 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542195   (496947) от 04.09.2012
-
-Asa Made Jugyo Chu! / С утра и до заката мы учимся разврату! [2012, OVA, 1 эп.] BDrip 720 raw + rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496947.jpg" />
-</div>
-
-
-###  Подробнее
-
-При переводе в новую школу по ошибке главного героя приняли за девушку и поселили в женском общежитии, тут то его приключения и начались.Жанр: комедия, эттиРежиссер: Канадзава ХиромицуПродолжительность: OVA (1 эп.), 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB4F5E0FF68A093D7B7E11E5C93A9742925B0899
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936072   (495645) от 11.09.2015
-
-Taifuu no Noruda / Typhoon no Noruda / Тайфун Норды [2015, Movie] BDrip 720p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит на далеком острове, где в местной средней школе уже вовсю начали готовиться к культурному фестивалю. В это же время некогда всерьез увлеченный бейсболом мальчик, который почти половину жизни провел на поле, бросает игру и ссорится с лучшим другом. Но затем вместе они встречают загадочную девушку по имени Норда, как раз в тот момент, когда (   Читать дальше...   )Производство: Studio ColoridoЖанр: ПриключенияРежиссер: Арай ЁдзироПеревод: TimecraftСубтитры: ASSФормат: MKVПродолжительность: 00:26:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90DFC01F5DF75A8D3FFFD9756BDBF14C475E98E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201475   (493379) от 26.08.2018
-
-Toji no Miko / Katana Maidens / Жрицы с мечами [2018, TV, 24 ep] WEB-DL 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493379.jpg" />
-</div>
-
-
-###  Подробнее
-
-История повествует о группе юных девушек, верно стоящих на страже человеческого мира. С древних времён нашему миру то и дело угрожают странные существа "Аратама”, но вы можете продолжать сохранять спокойствие, ведь отважные девушки, известные как "Тоджи” всегда нас защитят. Они практически ничем не отличаются от нас, так же ходят в школу, делают уроки и (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Какимото КодайЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 24 эпизода по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:184DAC8B2A7ADA1D83369AA15B4D5590AC97DC3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

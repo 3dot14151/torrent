@@ -1,3 +1,83 @@
+###  Публикация: 414027   (121049) от 25.01.2024
+
+Антуан де Сент-Экзюпери | Маленький принц (Радиоспектакль) (2006) [MP3, Геннадий Бортников и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказка-притча «Маленький принц» появилась в 1943 году, за несколько месяцев до последнего боевого вылета писателя. Сент-Экзюпери любил повторять, что именно в детские годы формируются основные качества человека и что безмерно счастлив тот, кто на всю жизнь сумел сохранить удивление перед миром и благодарное отношение ко всему живому. «Все мы родом из детства», – (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаПродолжительность: 02:08:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AB3FF67B58E04C7EC39DE2C16C0A4153D5FA264
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 413663   (121024) от 25.01.2024
+
+Антуан де Сент-Экзюпери | Маленький принц. Загадка Сент-Экзюпери (2007) [MP3, Анатолий Молодов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Мир удивительных историй.
+Автор этой сказки, Антуан де Сент-Экзюпери – знаменитый французский летчик. Его сказка – особая: она обращена как к детям, так и к взрослым. Детей увлекают фантастические приключения маленького героя, а взрослые воспринимают эту сказку как философскую притчу, мудрую, богатую жизненными наблюдениями.
+Авторская версия Анатолия (   Читать дальше...   )Жанр: Зарубежная литература, классика, сказкаИздательство: СиДиКомПродолжительность: 02:20:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5892501590C061FED4DAC94EFD352C4FED249E06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694550   (120941) от 25.01.2024
+
+Марика Вайд | Зажечь Луну (2023) [MP3, Катерина Сычева]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивая сказка для детей и взрослых об умении любить безо всяких условий и важности этого чувства для целого мира.Жанр: Детская литература. СказкаИздательство: Аудиокнига своими рукамиПродолжительность: 00:15:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17593255B0FA9E9B8D7520531612CBFCCEA5BA6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 436199   (120901) от 26.01.2024
 
 Кир Булычёв | Козлик Иван Иванович (2007) [MP3, Лиля Муслединова]
@@ -6,7 +86,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120901.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120893.jpg" />
 </div>
 
 
@@ -61,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120890.jpg" />
 </div>
 
 
@@ -89,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120871.jpg" />
 </div>
 
 
@@ -117,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120869.jpg" />
 </div>
 
 
@@ -144,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120821.jpg" />
 </div>
 
 
@@ -170,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120796.jpg" />
 </div>
 
 
@@ -196,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120764.jpg" />
 </div>
 
 
@@ -222,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120736.jpg" />
 </div>
 
 
@@ -250,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120639.jpg" />
 </div>
 
 
@@ -278,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120420.jpg" />
 </div>
 
 
@@ -306,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120217.jpg" />
 </div>
 
 
@@ -334,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120183.jpg" />
 </div>
 
 
@@ -361,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120100.jpg" />
 </div>
 
 
@@ -389,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120067.jpg" />
 </div>
 
 
@@ -418,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120039.jpg" />
 </div>
 
 
@@ -445,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120037.jpg" />
 </div>
 
 
@@ -472,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120035.jpg" />
 </div>
 
 
@@ -500,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120027.jpg" />
 </div>
 
 
@@ -527,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120026.jpg" />
 </div>
 
 
@@ -555,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120004.jpg" />
 </div>
 
 
@@ -583,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119959.jpg" />
 </div>
 
 
@@ -611,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119933.jpg" />
 </div>
 
 
@@ -624,90 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1011904E50F9270B0C16C1858B4F430B1E45339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 381138   (119894) от 01.02.2024
-
-Александр Пушкин | Пиковая дама (2011) [MP3, Александр Клюквин]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Библиотека школьника.
-Александр Сергеевич Пушкин (1799–1837) входит в наш мир с самого детства, с тем, чтобы остаться там навсегда. Его стихи и проза до сих пор хранят отпечаток светлой, гармоничной личности их создателя.
-«Пиковая дама» – самое таинственное и мистическое произведение Александра Сергеевича. Оно впервые в русской литературе так ярко осветило (   Читать дальше...   )Жанр: Русская литература, классика, прозаИздательство: Издательский дом «Союз»Продолжительность: 01:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26673CC6300136746F1576D8C749CB478932F03C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 388374   (119892) от 01.02.2024
-
-Редьярд Джозеф Киплинг | Сказки (2010) [MP3, Александр Бордуков]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Детская литература.
-В аудиокнигу всемирно известного английского писателя Редьярда Киплинга включены сказки, выдержавшие испытание временем и до сих пор пользующиеся успехом у читателей: «Слонёнок», «Как кит получил свою глотку», «Кот, который гулял сам по себе». Написанные на английском языке, они переведены – наряду с другими языками – и на русский (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаПродолжительность: 02:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BD8F3BC8C3B124C40CE4C2807C11ADA6C117704
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 345139   (119860) от 01.02.2024
-
-Редьярд Джозеф Киплинг | Как леопард стал пятнистым и другие сказки (2008) [MP3, Екатерина Хлыстова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Детская аудиокнига.
-Джозеф Редьярд Киплинг (1865–1936) – английский писатель, поэт и новеллист.
-В аудиокнигу вошли знаменитые сказки Редьярда Киплинга из сборника «Just So Stories» – веселые и добрые истории о том, как животные стали такими, какими мы их знаем.
-Переводчик: Евгения Михайловна Чистякова-Вэр.Жанр: Зарубежная литература для детей, классика, сказка, легендаИздательство: Студия «АРДИС»Продолжительность: 03:26:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:475C1A2578E57250BFB93CD93FE2C43F721CE6F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

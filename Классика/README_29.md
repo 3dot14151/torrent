@@ -6,7 +6,7 @@ Rondo Veneziano - Rondo Veneziano (1980) [FLAC|tracks+.cue]<Modern Classical>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540120.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Rondo Veneziano - Musica fantasia (1990) [FLAC|tracks+.cue]<Modern Classical>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540113.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Mozart, Haydn, Albinoni, Pachelbel, Boccherini, Beethoven - the most known works
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538149.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ Brahms - The Four Symphonies (Rudolf Kempe & Berliner Philharmoniker Orchestra) 
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535374.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ VA - The Real... Classical (The Ultimate Classical Collection) (2013) 3CD [FLAC|
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534975.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Lindsey Stirling - Lindsey Stirling (2013) Target Exclusive Deluxe Edition [MP3|
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534951.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ John Clerk of Penicuik - Cantatas - Catherine Bott, Concerto Caledonia (1998) [F
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532568.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Ludovico Einaudi - In a Time Lapse (2013) [FLAC|tracks + .cue]<Modern Classical>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529926.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Paul Anthony Adams - Sonates au Clair De Lune (Moonlight Sonata) (2014) [MP3|320
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529617.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Rimsky-Korsakov - The Legend of the Invisible City of Kitezh, Sheherazade (Yuri 
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528577.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Brahms - Tragic Overture; Symphony No.3 (Hans Knappertsbusch & Vienna Philharmon
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528517.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527293.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Claude Debussy - The Complete Chamber Music (2002) 3CD [FLAC|Lossless|tracks]<Cl
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523633.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Tchaikovsky - Piano Concerto No.1; Prokofiev - Piano Concerto No.1 (Andrei Gavri
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523275.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Frederic Chopin - The Nocturnes (Claudio Arrau) (1978) 2CD [FLAC|Lossless]<Class
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520870.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Francesco Geminiani - Six Concerti Grossi, Op. 3: Christopher Hogwood & The Acad
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517626.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Michael J. Burkard - Solar Symphony (2017) [MP3|320 Kbps] <Classical>
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517024.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ VA - Sony Classical - Great Performances [1903-1998] (1999) 4CD BoxSet[FLAC|Loss
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516566.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Lionel Rogg - Johann Sebastian Bach - Organ Works (12 CD) (1992) [FLAC|Lossless|
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515941.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Johann Sebastian Bach - Audiophile Classic Collection (2000) tracks [Flac|Lossle
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515407.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ VA - Classical Music for Focus:|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514935.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Mozart - The Piano Sonatas, Vol.1 (Glenn Gould) (2CDs) (1990) [FLAC|image +.cue]
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513948.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Ludovico Einaudi - Seven Days Walking (Day 5) (2019) Decca Records [FLAC|Lossles
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513735.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Jouni Somero - Palmgren: Complete Piano Works, Vol.4 (2022) [FLAC|Lossless|image
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513609.jpg" />
 </div>
 
 
@@ -718,7 +718,7 @@ Robert Wells - Rhapsody In Rock Complete (2000) [FLAC|Lossless|image + .cue] <In
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512786.jpg" />
 </div>
 
 
@@ -747,7 +747,7 @@ VA - Highlights from Jesus Christ Superstar (1996) [MP3|320 кб/с]<Rock opera>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512222.jpg" />
 </div>
 
 

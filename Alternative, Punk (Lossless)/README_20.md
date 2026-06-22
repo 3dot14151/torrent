@@ -1,3 +1,32 @@
+###  Публикация: 1285003   (724999) от 24.02.2019
+
+Telekinesis - Effluxion (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Effluxion (03:32)
+02. Cut the Quick (04:22)
+03. Like Nothing (02:53)
+04. Running Like a River (01:49)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:31:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CC414339519D0A9D3AAC9E4F1B946FD91B8CBF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285098   (724919) от 24.02.2019
 
 Anemone - Beat My Distance (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
@@ -6,7 +35,7 @@ Anemone - Beat My Distance (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724919.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Julia Jacklin - Crushing (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724910.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Strand of Oaks - Eraserland (2019) [FLAC|Lossless|tracks + .cue] <Rock, Folk Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724787.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Porn - 4 альбома (2004 - 2011) [FLAC|Lossless|image + .cue] <Industrial, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723826.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723018.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Body Count - Bloodlust (2017) [FLAC|Lossless|tracks + .cue] <Rapcore, Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722400.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Black Orchid Empire - Semaphore (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721412.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ WIZO - Bleib Tapfer / Für'n Arsch (1992) Compilation [FLAC|Lossless|tracks + .c
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721194.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Feist - Pleasure (2017) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720713.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Les 35 Ans De Radio Libertaire (2017) Compilation [FLAC|Lossless|tracks + .
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719159.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Weezer - Weezer (Black Album) (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716947.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Adia Victoria - Silences (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716821.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Thurston Moore - Rock N Roll Consciousness (2017) [FLAC|Lossless|WEB-DL|tracks +
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716538.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ Pond - Tasmania (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Psychedelic Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715088.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ Hozier - Wasteland, Baby! (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715079.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ Gorillaz - Humanz (2017) Deluxe Edition, 2CD [FLAC|Lossless|image + .cue] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713918.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ In Hearts Wake - Kaliyuga (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713497.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ Marianas Trench - Phantoms (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713187.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ Tribal Ink - Surrounded By Freaks (2003) [FLAC|Lossless|tracks + .cue] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713123.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ Band Of Horses - Why Are You OK (2016) [FLAC|Lossless|image + .cue] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712129.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ Garbage - Strange Little Birds (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712115.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ Garbage - Strange Little Birds (2016) [FLAC|Lossless|tracks + .cue] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711872.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ Kongos - Egomaniac (2016) [FLAC|Lossless|tracks] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711764.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Misery Signals - Ultraviolet (2020) [FLAC|Lossless|image + .cue] <Metalcore, Mel
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711607.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Curses - Chapter II: Bloom (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711494.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ Curses - Chapter II: Bloom (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8ADF3349C7F1D9BCE97CE64E5FF69C621F3C4E53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286582   (711350) от 03.03.2019
-
-Banda Bassotti - Amore e odio (2004) [FLAC|Lossless|tracks + .cue] <Rock, Punk, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711350.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Juri Gagarin (03:43)
-2. Amore E Odio (03:33)
-3. Partiro' Per Bologna (03:58)
-4. Scelgo (03:50)(   Читать дальше...   )Жанр: Rock, Punk, SkaПродолжительность: 00:49:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60853D46FA5FFF99BF11554AABF58B6A09AABDF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

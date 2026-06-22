@@ -6,7 +6,7 @@ Henning Stærk (Staerk) - Big Boss Man (2023) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244194.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Hat Trick Rock - Belly Strike (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244192.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Jason Freeman - Hex & Hell (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244184.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Elles Bailey - Shining in the Half Light (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244169.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Dirty Deep - Trompe l'oeil (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244163.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Gwyn Ashton - Mojosoul (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_243775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243775.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Misty Blues - Outside the Lines (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243396.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Dudley Taft - Guitar Kingdom (2023) [FLAC|Lossless|image + .cue] <Texas Blues, B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_243315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243315.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Wailin Walker Band - The Devil Made Me Play It (1990) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243314.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Smokin' Gun - Live Round From Seattle (2000) Live [FLAC|Lossless|image + .cue] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243206.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Dylan Bishop Band - Distilled (2018) [FLAC|Lossless|image + .cue] <Texas Blues, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243133.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Roomful of Blues - The 1st Album (1977) Reissue, 2002, Limited Edition [FLAC|Los
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_243004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243004.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Wolf Mail - The Wolf is at Our Door (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242957.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Sunny Bleau And The Moons - Slow Burn (2023) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242926.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Jim Adams - Don't Step On My Rhythm & Blues (2016) [FLAC|Lossless|WEB-DL|tracks 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242720.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Blacktop Deluxe - 2 Album (2014 -2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242341.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ The Smokin' Elmores - UNLEASHED (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242337.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ VA - Blues Tunes Vol 4 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242311.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ The Slight Delay - Shades of Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242295.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ The Blues Band - So Long (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242230.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Ernie And The Automatics - Low Expectations (2009) [FLAC|Lossless|image + .cue] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242056.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Blues Company - Дискография (включая альбомы Toscho) (1
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241695.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Brinklz - How do you like my hairdo? (2017) [FLAC|Lossless|WEB-DL|tracks + .cue]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241628.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Dudley Taft - Guitar Kingdom (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241383.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Mississippi Fever - 300 Miles to Memphis (2015) [FLAC|Lossless|image + .cue] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241323.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Bobby Patterson - I Get My Groove From You (1996) [FLAC|Lossless|tracks + .cue] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241282.jpg" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 1800769   (15477) от 06.06.2025
+
+Вадим Тарасенко | Цикл "Любимец Бога" [Книги 1-2] (2006-2007) [EPUB]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир 22 века не слишком уж отличен от нашего — только к двум супердержавам добавилась третья — Китай. Да мусульманское движение все сильнее захлестывает Европу. И в этом, достаточно близко подошедшем к грани религиозных войн, мире ученые приходят к выводу — гиперпространство, исследования которого ими начато — материальное воплощение Бога. «В гости к Богу» отправляется (   Читать дальше...   )Жанр: Боевая фантастикаИздательство: ЛениздатФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D32D9C634244FB5645730DB1D97AACD53D76D25A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801066   (15231) от 08.06.2025
+
+Антонина Гилёва | Эмпатия (2024) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15231.jpg" />
+</div>
+
+
+###  Подробнее
+
+2076, Россия, Москва. В будущем технологии достигли такого прогресса, что фото и видео стали считаться устаревшими и недостоверными источниками сведений. На рынок выходит корпорация «Эмпатия», которая предлагает пользователям делиться воспоминаниями и эмоциями. Скандал разгорается после того, как в раздел «музыка, концерты» на пользовательском уровне попадает 12-секундное (   Читать дальше...   )Жанр: Киберпанк, Антиутопия, ДетективИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D51855207E7361CE5C069B5294ED27FE704791B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801295   (15066) от 10.06.2025
 
 Джеймс Блэйлок | Эльфийская трилогия [3 книги] (2003-2004) [EPUB]
@@ -6,7 +58,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15066.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14857.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14611.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14320.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14182.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14081.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12060.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11585.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11508.jpg" />
 </div>
 
 
@@ -249,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10381.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8812.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6864.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6682.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6676.jpg" />
 </div>
 
 
@@ -380,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6501.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6464.jpg" />
 </div>
 
 
@@ -433,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4167.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3811.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3785.jpg" />
 </div>
 
 
@@ -513,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3023.jpg" />
 </div>
 
 
@@ -539,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2836.jpg" />
 </div>
 
 
@@ -565,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2520.jpg" />
 </div>
 
 
@@ -591,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1365.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1005.jpg" />
 </div>
 
 
@@ -631,32 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7AB5FAB85B39980C3276CA14ACFF47C3319CAC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820848   (32) от 29.09.2025
-
-Генри Лайон Олди | Блудный сын, или Ойкумена: двадцать лет спустя [3] (2018-2019) [EPUB]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Блудный сын» — пятый роман эпопеи «Ойкумена», давно заслужившей интерес и любовь читателей. «Космическая симфония» была написана Г. Л. Олди десять лет назад, а в «одной далекой галактике» год идет за два — не зря у нового романа есть подзаголовок «Ойкумена: двадцать лет спустя».Жанр: Космическая фантастика, Социальная фантастикаИздательство: Азбука-АттикусФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D47701B2324B216B99C7B281627F5A0D7B68A93
 ```
 
 https://mybot314.ru/tekegram_catalog/

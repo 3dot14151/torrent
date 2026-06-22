@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057428.jpg" />
 </div>
 
 
@@ -25,6 +25,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852048   (1055712) от 05.02.2026
+
+Т. Замулина, Т. Молодцова (сост.) | Капуста. Выращивание. Хранение и заготовка. Целебные свойства (2014) [PDF]
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1055712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книги из серии "Секреты богатого урожая" предназначены для садоводов и огородников. Каждая посвящена определенной культуре: вишне, черешне, землянике садовой, винограду, моркови, свекле и другим. Мы собрали самый интересный и нужный материал, который поможет получить гораздо больший урожай с прежней площади. Вы найдете информацию о способах хранения и консервирования (   Читать дальше...   )Жанр: Учебное пособие. Руководства для дачников. Кулинария.Издательство: Газетный мирФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F010AF09915880C49B6CCCFFEB811CAD0AE398A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840911   (1047614) от 08.12.2025
 
 Галина Кизима | Лунный посевной календарь для любимых дачников 2026 (2025) [PDF]
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047614.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042232.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035632.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034736.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029143.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028866.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028840.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028822.jpg" />
 </div>
 
 
@@ -251,7 +277,7 @@ X. Шмидт | Самые популярные породы голубей (200
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028703.jpg" />
 </div>
 
 
@@ -279,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028670.jpg" />
 </div>
 
 
@@ -305,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028496.jpg" />
 </div>
 
 
@@ -333,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028490.jpg" />
 </div>
 
 
@@ -360,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025942.jpg" />
 </div>
 
 
@@ -386,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025928.jpg" />
 </div>
 
 
@@ -412,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025914.jpg" />
 </div>
 
 
@@ -438,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021108.jpg" />
 </div>
 
 
@@ -464,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020964.jpg" />
 </div>
 
 
@@ -490,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018058.jpg" />
 </div>
 
 
@@ -516,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014114.jpg" />
 </div>
 
 
@@ -542,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008539.jpg" />
 </div>
 
 
@@ -568,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005583.jpg" />
 </div>
 
 
@@ -594,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998243.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997705.jpg" />
 </div>
 
 
@@ -647,7 +673,7 @@ Philip Schmidt | The Complete Guide to Contemporary Sheds / Современны
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996673.jpg" />
 </div>
 
 
@@ -658,32 +684,6 @@ Philip Schmidt | The Complete Guide to Contemporary Sheds / Современны
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F50C11CF7795F5E8F06049737EBDDF2D672DABC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605948   (995437) от 20.01.2013
-
-Галина Кизима | Сад в квартире, огород на подоконнике [2011] [PDF]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите огород, но у вас нет земельного участка? Хотите зимний сад, но не позволяет метраж квартиры? Автор, профессиональный садовод с 45-летним стажем, уверена: при желании возможно все! Сад можно вырастить даже в однокомнатной квартире, а огород устроить на лоджии или на подоконнике!  О том, как в обычной городской квартире круглый год выращивать вкусный и полезный урожай, и пойдет речь в книге. Осталось обзавестись качественным посадочным материалом и, самое главное, – хорошим настроением. Удачи – и большого урожая.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:260D1374EFA81D54C24B169BDB14677449D7B2A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

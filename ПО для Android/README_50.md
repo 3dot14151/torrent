@@ -1,3 +1,56 @@
+###  Публикация: 1441182   (676148) от 11.03.2022
+
+Deezer v6.2.48.37 [Ru] - музыка, плейлисты и подкасты (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы делитесь любовью. Мы делимся музыкой. Deezer — это ваш бесплатный музыкальный сервис с 56 миллионами треков, плейлистов и подкастов, а также персональными рекомендациями. Слушайте свои любимые песни и открывайте для себя новые треки с помощью музыкального плеера. Ваша жизнь достойна собственного саундтрека.Тип издания: Пиратка (Premium)Релиз состоялся: 7 марта 2022 г.Разработчик: Deezer MobileПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D44A68A7D1D1C5046735A49FE72D9D51047D7427
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510210   (669845) от 14.06.2012
+
+AndroiTS Compass Pro 1.01 - Компас (2012) <En>
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_669845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональный взгляд!
+Не обычного компаса!Разработчик: Alessandro BonettiЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1537385   (667712) от 16.03.2022
 
 Mobi Calculator PRO 1.4.0 Mod by Kirhe [Ru/En]
@@ -6,7 +59,7 @@ Mobi Calculator PRO 1.4.0 Mod by Kirhe [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667712.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Mobi Calculator PRO 1.4.2 Mod by andrey.utasco [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667671.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664049.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662635.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ Power VPN Premium 4.9.4 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660787.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ RSS Reader v1.7.0 [Ru] - чтение RSS-лент
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659622.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657485.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ Root Browser (File Manager) 2.2.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655109.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ CAD Touch Pro v5.09 [Ru/En] - Редактор и просмотрщик фай�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655075.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ Delta VPN v1.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653625.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ Battery Repair (Doctor Boost) 2.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650813.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ Akimbo Audiobook Player v1.6.1 (30.06.2014) <Ru>
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_648919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_648919.jpg" />
 </div>
 
 
@@ -330,7 +383,7 @@ MyPhoneExplorer 1.0.35 - Explorer для Android  [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647005.jpg" />
 </div>
 
 
@@ -356,7 +409,7 @@ Star Walk 2 - Night Sky Guide 1.3.2.138 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647002.jpg" />
 </div>
 
 
@@ -383,7 +436,7 @@ CM (Cleanmaster) Security 2.6.2 - Антивирус [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639048.jpg" />
 </div>
 
 
@@ -409,7 +462,7 @@ Muscle Premium v4.1.13 Unlocked [En] - анатомия мышц человек�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639045.jpg" />
 </div>
 
 
@@ -435,7 +488,7 @@ Maths Formulas 9.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634972.jpg" />
 </div>
 
 
@@ -461,7 +514,7 @@ Runtastic GPS Бег 5.11 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631710.jpg" />
 </div>
 
 
@@ -487,7 +540,7 @@ Power Media Player Pro v6.1.1 Unlocked [Ru/Multi] - Android версия PowerDV
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631500.jpg" />
 </div>
 
 
@@ -513,7 +566,7 @@ Fotoo v2.3.7 Premium [En] - цифровая фоторамка и скринс�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629639.jpg" />
 </div>
 
 
@@ -539,7 +592,7 @@ Tasker 4.7u1m [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627382.jpg" />
 </div>
 
 
@@ -565,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625461.jpg" />
 </div>
 
 
@@ -591,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623061.jpg" />
 </div>
 
 
@@ -617,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620345.jpg" />
 </div>
 
 
@@ -631,58 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E03A7A1A14EFB1EBE609AF1BD86C0B0EEC37A5BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544742   (620044) от 16.04.2022
-
-IELTS® Speaking Pro v4.0 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение IELTS Speaking Pro позволяет легко улучшить результаты IELTS Speaking Band для пользователей, которые стремятся получить высокий балл в разговорной речи на IELTS. Поскольку в этом приложении есть 70 полных тестов и более 1000 образцов карточек разговорных тестов IELTS, они совершенно бесплатны , и пользователи могут практиковаться , запишите, поделитесь (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 12 ноября 2021 г.Разработчик: Milinix - Learn English EasilyПоддерживаемая ОС: Android 4.2+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95D527CEDF5B0E128BC97EDCB695728726E05513
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910601   (619718) от 21.06.2015
-
-Schematic v2.2.1 [Ru/Multi] - составление и редактирование схем
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Schematic является простой и удобной в обращении CAD-программой, предназначенной для выполения разнообразных графических работ на вашем планшете или смартфоне. Примечание: пожалуйста не используйте аппаратное ускорение для предотвращения неправильной отрисовки объектов.Тип издания: ПираткаРелиз состоялся: 13.06.2015Разработчик: Dmitry UstimovПоддерживаемая ОС: Android 2.2+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDF0BA4F7F9D98B63001D5897E0A3F9999794640
 ```
 
 https://mybot314.ru/tekegram_catalog/

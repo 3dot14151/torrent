@@ -1,3 +1,172 @@
+###  Публикация: 1111068   (848067) от 05.03.2017
+
+Rammstein - Lichtspielhaus (2003) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848067.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Lichtspielhaus» («Кинотеатр») — второй DVD группы Rammstein, выпущенный в декабре 2003 года. DVD содержит все клипы группы, имевшиеся на момент издания релиза. Также релиз включает такой раздел как «Making Of», в котором представлены процессы съёмок некоторых клипов. Секция концертного видео содержит съёмки выступлений с различных концертных площадок, начиная с (   Читать дальше...   )01. Videos
+02. Live
+03. Making Of
+04. TV TrailersПроизводство: Германия | Motor Music GmbH, Universal RecordsЖанр: Industrial Metal, NDHЯзык субтитров: английский, немецкий, французский, испанский, японскийПродолжительность: 03:30:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD2B99B0A7577B3A6829F17495609854E17F084B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 307838   (847303) от 12.03.2011
+
+Суперстар представляет. Игорь Николаев. Бенефис «Надежда на любовь» (2011) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для желающих после рабочих будней вновь настроиться на волну праздника Вадим Такменёв подготовил очередной выпуск «Суперстара» — бенефис Игоря Николаева. Телеканал НТВ советует вам переключиться с повседневных забот на «зеленую» кнопку и, как поется в известной песне бенефицианта, у вас на это пять причин.
+Первая причина — это он, знаменитый маэстро нашей эстрады. (   Читать дальше...   )01.Лолита и Игорь Николаев - Айсберг
+02.Максим Галкин и Игорь Николаев - Комарово
+03.Таисия Повалий - Паромщик
+04.Кристина Орбакайте - Поговорим(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08C48F58A00EFC652B3C12C5FDE5BBA9F7EC5CDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 649698   (847089) от 28.04.2013
+
+Blackmore's Night - The Beginning Box(2012) 2*DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Документальный, МузыкаРежиссер: Michael SturzenbergerАктеры: Ritchie Blackmore & Candice NightПеревод: ОтсутствуетЯзык субтитров: En, GeПродолжительность: 01:09:20 + 01:13:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001374   (846848) от 01.04.2016
+
+Репетиция бенефиса (2010) TVRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телевизионный спектакль по произведениям Чехова, Мольера, Шекспира, Грибоедова, Ростана, Островского, Самойлова. В этом спектакле, полном самоиронии и ностальгии по ушедшей молодости, Михаил Козаков в образе чеховского персонажа - старого актера Светловидова вспоминает былую славу, бродит по театру. Перед зрителями оживают воспоминания героя о сыгранных ролях и знаменитые (   Читать дальше...   )Производство: Россия, Студия художественных программ ГТРК "Культура"Жанр: Телеспектакль, импровизацияРежиссер: Кирилл КозаковАктеры: Михаил Козаков, Кирилл Козаков, Наталья ЧернявскаяПродолжительность: 00:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D97F88AAC9ED825ED1EBD9B6D90FCF218211C09D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002236   (846771) от 01.04.2016
+
+Квартирник у Маргулиса. 20 выпуск. 7Б (2016) WEBRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многим рок-группа 7Б запомнилась дебютным альбомом «Молодые ветра» 2001 года. В этом году группа 7Б отмечает свое пятнадцатилетие. Солист группы Иван Демьян состоял на учете в психиатрическом отделении больницы с диагнозом под медицинским кодом 7Б, обозначает одну из степеней шизофрении. Сегодня в теплой и душевной атмосфере квартирника у Евгения Маргулиса участники (   Читать дальше...   )01. Осень
+02. Мне ответит небо
+03. Кино
+04. Появись(   Читать дальше...   )Производство: ЧеЖанр: КонцертПродолжительность: 0:47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6EC91481D7B9CEEF478F84E09BE1863A9946864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002243   (846769) от 01.04.2016
+
+Квартирник у Маргулиса. 19 выпуск. Мельница (2016) WEBRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мельница — знаменитая фолк-рок-группа, которая была основана в 1999 году участниками распавшейся группы «Тиль Уленшпигель». Сегодня в теплой и душевной атмосфере квартирника у Евгения Маргулиса группа Мельница и ее вокалистка Наталья О’Шей исполнят свои самые популярные и полюбившиеся песни: Прощай, Дорога сна, Дороги, Далеко, Рапунцель, Никогда, Марсианский экспресс (   Читать дальше...   )01. Дорога Сна
+02. Дороги
+03. Далеко
+04. Овечка(   Читать дальше...   )Производство: ЧеЖанр: КонцертПродолжительность: 0:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8E546C932B31B842F64269201296BCA404B80B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001895   (846759) от 01.04.2016
 
 Людмила Улицкая. Незабудки (Мой внук Вениамин) (2014) SATRip (2 части) (Московский театр "У Никитских ворот")
@@ -6,7 +175,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846759.jpg" />
 </div>
 
 
@@ -32,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846598.jpg" />
 </div>
 
 
@@ -59,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846503.jpg" />
 </div>
 
 
@@ -86,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846502.jpg" />
 </div>
 
 
@@ -114,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846415.jpg" />
 </div>
 
 
@@ -144,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846388.jpg" />
 </div>
 
 
@@ -170,7 +339,7 @@ Heaven and Hell - Radio City Music Hall Live! (2007/2011) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846379.jpg" />
 </div>
 
 
@@ -199,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846330.jpg" />
 </div>
 
 
@@ -228,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846053.jpg" />
 </div>
 
 
@@ -254,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845381.jpg" />
 </div>
 
 
@@ -283,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845108.jpg" />
 </div>
 
 
@@ -312,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845017.jpg" />
 </div>
 
 
@@ -338,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845016.jpg" />
 </div>
 
 
@@ -367,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845011.jpg" />
 </div>
 
 
@@ -398,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844920.jpg" />
 </div>
 
 
@@ -427,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844911.jpg" />
 </div>
 
 
@@ -454,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844909.jpg" />
 </div>
 
 
@@ -481,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844828.jpg" />
 </div>
 
 
@@ -510,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844825.jpg" />
 </div>
 
 
@@ -539,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844823.jpg" />
 </div>
 
 
@@ -553,175 +722,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:101F64ABCB277365C27B278E38C525E92B5E6C0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112080   (844591) от 07.03.2017
-
-Annihilator - Triple Threat (2017) Blu-ray [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844591.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канадские ветераны трэша ANNIHILATOR выпустили релиз под названием "Triple Threat". Главное место в релизе занимает подборка классических номеров ANNIHILATOR в акустическом исполнении, для записи которой лидер группы, вокалист, авторе песен и гитарист Джефф Уотерс (Jeff Waters), привлек своих штатных музыкантов Аарона Хомму (Aaron Homma, гитара) и Ричарда (   Читать дальше...   )[01]. Sounds Good to Me
-[02]. Bad Child
-[03]. Innnocent Eyes
-[04]. Snake in the Grass(   Читать дальше...   )Производство: Канада, UDR MusicЖанр: Thrash MetalПеревод: ОтсутствуетПродолжительность: 00:59:08 + 00:44:59 + 00:58:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F95A28CFBFE83F2D8DAB3BFB2BBA0723E8AE1DBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007278   (844380) от 07.03.2017
-
-Стас Намин и Группа ЦВЕТЫ - 40 лет (Полная версия концерта) - Crocus Hall (Live) (2010) HDTVRip [AVC/H.264, 1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группе "Цветы" в 2009 году группе исполнилось 40 лет. Свое сорокалетие кумиры 1970 - 80-х отметили большим концертом 6 марта, 2010 г. в Крокус Сити Холле (Москва) участием знаменитых гостей: Людмилы Гурченко, Оскара Фельцмана, Юрия Шевчука, Константина Никольского, Гарика Сукачева, Николая Носкова. В программе прозвучали знаменитые хиты: "Колыбельная", (   Читать дальше...   )01. Инструментальное вступление.
-02. Я не сдаюсь.
-03. Звёздочка моя ясная.
-04. Есть глаза у цветов.(   Читать дальше...   )Жанр: Концерт, RockПродолжительность: 02:27:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C398F0B95759746426CC48374BE8A6EE601BAAB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378818   (844122) от 26.04.2020
-
-гр. Пелагея - Концерт на платформе МТС Live (2020) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись концерта группы ПЕЛАГЕЯ, который состоялся в прямом эфире, 19 апреля 2020 года на платформе МТС Live.
-Пелагея получила известность как исполнительница народных песен. В её репертуар также входят романсы и авторские сочинения. Кроме того, певица исполняет кавер-версии песен рок-исполнителей.01. 00:00:02 Пташечка
-02. 00:07:09 Когда мы были на войне
-03. 00:17:05 Вишня белоснежная
-04. 00:23:17 Конь(   Читать дальше...   )Жанр: КонцертПродолжительность: 02:18:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6954D47F8A62E8934A4F48700064C3BD396A0D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 308823   (843691) от 14.03.2011
-
-Собор Парижской Богоматери / Notre Dame de Paris (1999) DVDRip [Дубляж]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Мьюзикл, ДрамаРежиссер: Жилль АмадуАктеры: Элен Сегара, Даниэль Лавуа, Брюно Пельтье, Гару, Патрик Фьори, Люк Мервиль, Жюли ЗенаттиЯзык субтитров: РусскиеПродолжительность: 02:12:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B9E47D14FB04699435DA306DE0B3462E812868E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 650350   (843512) от 30.04.2013
-
-Цирк дю Солей: Сказочный мир / Cirque du Soleil: Worlds Away (2012) DVD9
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: США / Cirque du Soleil Burlesco, Cirque du Soleil Burlesco, Strange Weather FilmsЖанр: ФэнтезиРежиссер: Эндрю АдамсонАктеры: Эрика Линц, Игорь Зарипов, Лутс Халбхюбнер, Джон Кларк, Даллас Барнетт, Таня Дрюери, Сара Хуболт, Аскья Мэйбери, Дэмиен Гордон, Зэк БриклэндПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русские, английские, украинскиеПродолжительность: 01:27:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C958B754B8D5D7CEBD4CDDA279C018F2D8777B01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003362   (843315) от 03.04.2016
-
-Борис Гребенщиков и группа Аквариум - Весенний концерт 30 марта, Самара, КРЦ "Звезда" (2015) HDCam [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843315.jpg" />
-</div>
-
-
-###  Подробнее
-
-В раздаче находится запись концерта прошедшего в Самаре, в КРЦ "Звезда", 30 марта 2015 года. Запись была произведена на 2 камеры (с рук и со штатива) и обе вы найдёте в раздаче. Так как запись с первой камеры довольно большая по объёму, то сделан так же и её уменьшенный вариант (для тех, кто сильно ограничен по объёму или имеет слабый компьютер), который (   Читать дальше...   )01-Не было такой и не будет
-02-Огонь на себя
-03-Королевское утро
-04-Стучаться в двери травы(   Читать дальше...   )Жанр: РокПродолжительность: 02:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B22B25837CAEEFE27126A58CDB012E37F6DA2309
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,110 @@
+###  Публикация: 1617278   (1035280) от 06.03.2023
+
+С.А. Шестаков, И.В. Ященко | Алгебра и начала математического анализа. 10 - 11 класс. Универсальный многоуровневый сборник задач (2020) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035280.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном учебном пособии содержатся задачи по курсу алгебры и началам математического анализа для 10-11 классов трех уровней сложности в соответствии с концепцией математического образования. Задания уровня A можно использовать для отработки базовых математических навыков. Задания уровня B будут полезны учащимся, стремящимся продолжить образование в технических и (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6D416749AFF1D62E86D0B0E9F48218E4616C929
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443868   (1035204) от 30.01.2021
+
+Ираида Тихомирова | Добру откроем сердце. Секреты семейного чтения (2020) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга одного из лучших специалистов по чтению в нашей стране И.И. Тихомировой раскрывает новый аспект темы чтения.
+Издание представляет собой своеобразный обучающий курс по нравственному воспитанию детей младшего и среднего школьного возраста на материале чтения и обсуждения литературных произведений. Созданное в рамках проекта РШБА «Читающая мама – читающая Россия», (   Читать дальше...   )Жанр: Педагогика, Воспитание детей, Методические пособияФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E8D97BB7D7E99A0A35AE6BFC294D4BAD99FA712
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443885   (1035203) от 30.01.2021
+
+Людмила Доманская | Хорошие девочки всегда говорят спасибо (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтение хороших книг - один из способов вырастить хорошего ребёнка. Представляем вам одну из них "Хорошие девочки всегда говорят спасибо", которая, надеемся, поможет привить вашей девочке не только хорошие манеры и правила поведения, но и разбудит в ней доброту и отзывчивость.
+
+Сравнительные ситуации поведения - дома, в гостях, на улице, со сверстниками (   Читать дальше...   )Жанр: Познавательная литература/Воспитание и развитие детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1606B8AB8147848B8AC36E3A474FFF5F39E2FA8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443897   (1035196) от 30.01.2021
+
+Людмила Доманская | Настоящие мальчишки не дразнятся и не плюются (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтение хороших книг - один из способов вырастить хорошего ребёнка. Представляем вам одну из них "Настоящие мальчишки не дразнятся и не плюются", которая, надеемся, поможет привить вашему мальчику хорошие манеры и правила поведения, разбудит в нём доброту и отзывчивость. а множество примеров, приведенных на страницах книги, воспитает настоящий мужской характер. (   Читать дальше...   )Жанр: Познавательная литература/Воспитание и развитие детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F99E2480BCE2C31486D340D77EC33FF7D7C10A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617877   (1034808) от 08.03.2023
 
 Ирина Токмакова | Аля, Кляксич и буква «А». Три истории (2023) [PDF]
@@ -6,7 +113,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034808.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034696.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034660.jpg" />
 </div>
 
 
@@ -88,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034648.jpg" />
 </div>
 
 
@@ -115,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034637.jpg" />
 </div>
 
 
@@ -142,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034612.jpg" />
 </div>
 
 
@@ -169,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034590.jpg" />
 </div>
 
 
@@ -196,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034576.jpg" />
 </div>
 
 
@@ -222,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034429.jpg" />
 </div>
 
 
@@ -248,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034182.jpg" />
 </div>
 
 
@@ -274,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033871.jpg" />
 </div>
 
 
@@ -302,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033177.jpg" />
 </div>
 
 
@@ -328,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033100.jpg" />
 </div>
 
 
@@ -356,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032880.jpg" />
 </div>
 
 
@@ -382,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032542.jpg" />
 </div>
 
 
@@ -408,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032505.jpg" />
 </div>
 
 
@@ -434,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032493.jpg" />
 </div>
 
 
@@ -460,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031856.jpg" />
 </div>
 
 
@@ -487,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031796.jpg" />
 </div>
 
 
@@ -513,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031795.jpg" />
 </div>
 
 
@@ -540,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030647.jpg" />
 </div>
 
 
@@ -566,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030330.jpg" />
 </div>
 
 
@@ -577,117 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B8EEC15EFBF7E06EB5F50DF578C0B869F351B97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360684   (1030322) от 19.02.2021
-
-Е.В. Языканова | "Развивающие задания: тесты, игры, упражнения" 2 класс (2009) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс развивающих занятий для младших школьников представляет собой комплекс специально разработанных тестов, игр и упражнений, направленных на развитие памяти, внимания, наблюдательности, логического мышления; способствует развитию пространственного восприятия и сенсомоторной координации.
-
-Работать с предложенными заданиями можно на факультативах, в группах продленного (   Читать дальше...   )Жанр: Учебно-методический комплект (курс развивающих занятий)Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A66E160C5D527844C6208256E0FB306D626B5FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360666   (1030319) от 19.02.2021
-
-Е.В. Языканова | "Развивающие задания: тесты, игры, упражнения" 1 класс (2009) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс развивающих занятий для младших школьников представляет собой комплекс специально разработанных тестов, игр и упражнений, направленных на развитие памяти, внимания, наблюдательности, логического мышления; способствует развитию пространственного восприятия и сенсомоторной координации.
-
-Работать с предложенными заданиями можно на факультативах, в группах продленного (   Читать дальше...   )Жанр: Учебно-методический комплект (курс развивающих занятий)Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A872AE6E76C6394ACF964321F95BDF881DFD10F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449214   (1030145) от 20.02.2021
-
-О.В. Узорова, Е.А. Нефёдова | 3000 примеров по математике + бонус. 2 класс. Счёт в пределах 100. Часть 2 (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие содержит 3000 математических примеров по теме «Счёт в пределах 100». Оригинальное построение материала позволяет обеспечить более глубокое его усвоение.
-Как показывает практика, ученик полностью освоил программу, если решает и записывает ответ по истечении 4-7 секунд. В этом случае можно говорить, что навык счёта доведён до автоматизма.
-На каждой странице (   Читать дальше...   )Жанр: Обучение и развитие детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42088A4AC5789320BB30BD14FCB4F23B84386CE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 362152   (1030131) от 20.02.2021
-
-В.В. Гербова | Приобщение детей к художественной литературе (2008) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030131.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии содержится программа и методические рекомендации по приобщению детей 2-7 лет к художественной литературе.
- В книге представлен перечень произведений художественной литературы для чтения детям. Литературный материал подобран таким образом, чтобы обеспечить развитие художественно-творческих способностей дошкольников, их эстетического вкуса, культуры восприятия (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72A809AB8CA463A45A8024BD30C2559E469C1DE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1416387   (367496) от 16.10.2020
+
+Fever 333 - Wrong Generation (2020) EP [MP3|320 Kbps] <Rapcore, Hardcore Punk, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 BITE BACK [00:03:10]
+02 BLOCK IS ON FIRE [00:02:16]
+03 WRONG GENERATION [00:02:22]
+04 YOU WANTED A FIGHT [00:02:17](   Читать дальше...   )Жанр: Rapcore, Hardcore Punk, Post-HardcoreПродолжительность: 00:18:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAA23F63960D1EE9A4A8AB2B228804B777C2D250
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070697   (366756) от 07.11.2016
 
 Memphis May Fire - This Light I Hold (2016) [MP3|320 Kbps] <Post-Hardcore, Metalcore>
@@ -6,7 +35,7 @@ Memphis May Fire - This Light I Hold (2016) [MP3|320 Kbps] <Post-Hardcore, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366756.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365431.jpg" />
 </div>
 
 
@@ -70,7 +99,7 @@ Crazy N' Sane - This Mess (2016) EP [MP3|320 Kbps] <Nu Metal, Rapcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364554.jpg" />
 </div>
 
 
@@ -99,7 +128,7 @@ Skindred - Volume (2015) [MP3|320 кб/с]<Rapcore, Ragga-Metal, Electronic>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363102.jpg" />
 </div>
 
 
@@ -128,7 +157,7 @@ Fall Out Boy - Make America Psycho Again (2015) [MP3|320 кб/с]<Alternative Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362942.jpg" />
 </div>
 
 
@@ -157,7 +186,7 @@ Pearl Jam - Gigaton (2020) [MP3|320 Kbps] <Alternative Rock, Experimental Rock, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362736.jpg" />
 </div>
 
 
@@ -186,7 +215,7 @@ The Devil Wears Prada - Color Decay (2022) [MP3|320 Kbps] <Christian Post-Hardco
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361837.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ Eskimo Callboy - Tekkno (2022) [MP3|320 Kbps] <Post-Hardcore, Metalcore, Electro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361625.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ Powerman 5000 - New Wave (2017) [MP3|320 Kbps] <Industrial Rock, Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360916.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Weezer - Pacific Daydream (2017) [MP3|320 Kbps] <Alternative Rock, Power Pop>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360911.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ Theory Of A Deadman - Wake Up Call (2017) [MP3|320 Kbps] <Alternative Rock, Post
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360501.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356784.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ Bif Naked - Superbeautifulmonster (2005) [MP3|320 кб/с]<Rock, Pop, Pop-Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356198.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ Gift Giver - White Devil (2016) [MP3|320 Kbps] <Technical Nu Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354788.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ Nothing But Thieves - Moral Panic (2020) [MP3|320 Kbps] <Alternative Rock, Indie
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353432.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ Gorillaz - Song Machine, Season One: Strange Timez (2020) Japan Deluxe Edition [
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353120.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ Bring Me the Horizon - Post Human: Survival Horror (2020) [MP3|320 Kbps] <Post-H
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351088.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ Snakadaktal - Snakadaktal [EP] (2011) [MP3|320 кб/с]<indie, alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350591.jpg" />
 </div>
 
 
@@ -536,7 +565,7 @@ Tallah - 2 Albums (2020-2022) [MP3|219-271 kbps VBR/320 kbps] <Nu Metal, Metalco
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350300.jpg" />
 </div>
 
 
@@ -565,7 +594,7 @@ The Wonder Stuff - 30 Goes Around the Sun (2016) [MP3|320 Kbps] <Alternative Roc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349979.jpg" />
 </div>
 
 
@@ -594,7 +623,7 @@ The Rasmus - Rise (2022) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349900.jpg" />
 </div>
 
 
@@ -623,7 +652,7 @@ Coheed and Cambria - The Color Before The Sun (2015) Best Buy Exclusive [OGG| 43
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349554.jpg" />
 </div>
 
 
@@ -652,7 +681,7 @@ VA - Punk Rock Halloween - Loud Fast And Scary (2017) 2CD [MP3|320 Kbps] <Punk R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349206.jpg" />
 </div>
 
 
@@ -681,7 +710,7 @@ The Stranglers - Greatest Hits On CD&DVD (2012) [MP3|320 кб/с]<Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348201.jpg" />
 </div>
 
 
@@ -716,7 +745,7 @@ Low & Behold - Uppers (2015) [OGG| 467-519 кб/с]<Alternative, 80's Darkwave, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346965.jpg" />
 </div>
 
 
@@ -730,35 +759,6 @@ Low & Behold - Uppers (2015) [OGG| 467-519 кб/с]<Alternative, 80's Darkwave, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42F04627B2BF615DA0237AA8A4FB0C29B1D93263
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953878   (346607) от 05.11.2015
-
-Celldweller - End of an Empire (2015) 2CD Deluxe Edition [MP3|320 кб/с]<Industrial, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. End of an Empire
-02. Heart On
-03. Down to Earth
-04. New Elysium(   Читать дальше...   )Жанр: Industrial, AlternativeПродолжительность: 01:58:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD1627AE27EE688364C5394D2758257FE913CA04
 ```
 
 https://mybot314.ru/tekegram_catalog/

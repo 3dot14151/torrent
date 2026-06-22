@@ -1,3 +1,61 @@
+###  Публикация: 1087868   (143068) от 29.12.2016
+
+InstaBro | Browser for Instagram 4.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы можете просмотреть, оставить комментарий и легко скачать Instagram фотографии
+InstaBro это простой инструмент для Mac, который позволяет загружать все фотографии и видео с любого аккаунта Instagram, хэштегом или локально.
+
+За основу взят дизайн стандартного приложения Image Capture для импорта фотографий и видео с внешних медиаустройств. Все просто — слева список (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 августа 2016Разработчик: Boris KarulinПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A3A4628D672D9DD69A5B2B7B76AD25CAA496386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272549   (143047) от 28.12.2018
+
+MediaHuman Youtube Downloader 3.9.9.10 (2712) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143047.jpg" />
+</div>
+
+
+###  Подробнее
+
+YouTube Downloader - Удобная программа-загрузчик для тех, кто хочет скачать свой любимый видеоклип, музыкальное видео или трейлер нового фильма с YouTube или подобных сервисов.
+
+Закачка нескольких файлов одновременно
+Сохранение видео целиком, либо только звуковой дорожки(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.12.2018Разработчик: MediaHumanПоддерживаемая ОС: macOS 10.6 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C2BEDBF9E8B539864B2F61886601E0621F10514
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088001   (142985) от 29.12.2016
 
 Instastack for Instagram 3.1.3 [En]
@@ -6,7 +64,7 @@ Instastack for Instagram 3.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142985.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Startupizer 2.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142927.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ SkyLab Studio 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142861.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Reflect Studio 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142835.jpg" />
 </div>
 
 
@@ -121,7 +179,7 @@ Room Arranger 9 v9.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142819.jpg" />
 </div>
 
 
@@ -147,7 +205,7 @@ BluePlum Home Inventory 4 v4.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142815.jpg" />
 </div>
 
 
@@ -173,7 +231,7 @@ Permute 3 v3.5.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142807.jpg" />
 </div>
 
 
@@ -199,7 +257,7 @@ Graphic Inspector 2 v2.4.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142795.jpg" />
 </div>
 
 
@@ -225,7 +283,7 @@ SteerMouse 5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142794.jpg" />
 </div>
 
 
@@ -251,7 +309,7 @@ DirEqual 3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142745.jpg" />
 </div>
 
 
@@ -278,7 +336,7 @@ Nevercenter CameraBag Photo 2020.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142735.jpg" />
 </div>
 
 
@@ -305,7 +363,7 @@ Chaos Control Premium 1.11 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142714.jpg" />
 </div>
 
 
@@ -333,7 +391,7 @@ Dropshare 5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142693.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ Downie 4 v4.1.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142654.jpg" />
 </div>
 
 
@@ -388,7 +446,7 @@ GrabIt 4.930 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142643.jpg" />
 </div>
 
 
@@ -415,7 +473,7 @@ BlueHarvest 8 v8.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142606.jpg" />
 </div>
 
 
@@ -442,7 +500,7 @@ Disk Space Analyzer Pro 3 v3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142583.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ uDock 4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142553.jpg" />
 </div>
 
 
@@ -495,7 +553,7 @@ CleanMyMac 3.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142477.jpg" />
 </div>
 
 
@@ -524,7 +582,7 @@ Artstudio Pro 3.2.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142426.jpg" />
 </div>
 
 
@@ -550,7 +608,7 @@ SiteSucker 4.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142414.jpg" />
 </div>
 
 
@@ -577,7 +635,7 @@ Aiseesoft Mac FoneLab for iOS 10.2.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142380.jpg" />
 </div>
 
 
@@ -603,7 +661,7 @@ OmniGraffle Pro 7.22.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142369.jpg" />
 </div>
 
 
@@ -629,7 +687,7 @@ Wondershare PDFelement Pro OCR 10.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142363.jpg" />
 </div>
 
 
@@ -640,60 +698,6 @@ PDFelement Pro - профессиональный инструмент, кото
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1C6091E3032FB63D2ED3F1FD4D748D8240EE073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195465   (142313) от 29.12.2017
-
-Permute 2.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Старт", все остальное программа сделает автоматически.
-
-Список пресетов для конвертирования в поддерживаемые форматы довольно внушительный: (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.12.2017Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Русский, Английский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529CFED6551C52424207190FAF54B5FC10E5E5B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435910   (142300) от 29.12.2020
-
-Irvue 2.7.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Irvue переносит на ваш рабочий стол тысячи потрясающих фотографий с высоким разрешением из Unsplash. Наслаждайтесь новыми художественными обоями каждый день с помощью этого небольшого приложения, которое находится в строке меню.Тип издания: macOS SoftwareРелиз состоялся: 03.10.2020Разработчик: Igor SavelevПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68E1EA7D7394A6DCF7829DBBB83604792548E1D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

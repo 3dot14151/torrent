@@ -1,3 +1,29 @@
+###  Публикация: 566602   (398920) от 27.10.2012
+
+Бравый солдат Швейк / Dobry vojak Svejk (1955) [H.264] DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Йозеф Швейк, чешский торговец собаками, которого уже один раз изгнали из армии по слабоумию, вновь призван в неё в качестве пушечного мяса для Первой Мировой Войны. Притесняемый бюрократами, полицией, докторами, «проданный» одним офицером другому, жизнерадостный, разговорчивый и простодушный солдат неохотно следует своему невезучему, но полному приключений и забавных (   Читать дальше...   )Жанр: Кукольный, смешанная техникаРежиссер: Иржи ТрнкаПеревод: Одноголосый закадровыйПродолжительность: 01:10:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52425BDB033E86AE2DEC5A4EED5B4E6BA8B99AE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 569981   (389663) от 05.11.2012
 
 Земля до начала времен / The Land Before Time (1988-2007) DVDRip (13 фильмов)
@@ -6,7 +32,7 @@
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389663.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387224.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382754.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376747.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357194.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355023.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346569.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345157.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_344538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_344538.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343157.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337015.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329873.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327785.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327751.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326368.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326038.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326034.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326033.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325163.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325162.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325157.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315622.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313895.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310796.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309402.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B92E06BED48C50849FF5F99ED94A5AF8CA4E74C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 418609   (309137) от 04.12.2011
-
-Великое путешествие Пуха: В поисках Кристофера Робина / Pooh's Grand Adventure: The Search for Christopher Robin (1997) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Винни Пух и Кристофер Робин лучшие друзья, они хотят навсегда сохранить свою дружбу и никогда не расставаться. Однако Кристофер Робин должен пойти в школу, но он так и не смог сказать об этом Пуху. Для того, чтобы предупредить Винни Пуха, Кристофер Робин оставляет горшочек с медом и записку, в которой все объясняет. Пух испачкал записку медом и, при попытке ее прочтения, (   Читать дальше...   )Жанр: Рисованная анимацияРежиссер: Карл ДжеерсПеревод: Одноголосый закадровый (Доцент)Продолжительность: 01:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DA0F1E07B9F3F293E4291C7FB7C60DC7F5E4166
 ```
 
 https://mybot314.ru/tekegram_catalog/

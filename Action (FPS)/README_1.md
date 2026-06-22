@@ -1,3 +1,29 @@
+###  Публикация: 1846196   (1051116) от 
+
+Moros Protocol (2025) [Ru/Multi] (1.0.12.6) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы просыпаетесь на борту «Орфея», заброшенного военного корабля, затерянного в глубоком космосе и кишащего ужасами. Никаких воспоминаний. Никаких союзников. Только инстинкт борьбы и голос, подталкивающий вас вперед. Корабль колеблется вокруг вас, враги не дают передышки, и выживание означает сражение в залитых кровью коридорах, чтобы узнать, что ждет вас впереди.Тип издания: LicenseРазработчик: Pixel ReignЖанр: Экшены, Инди, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5193D8EA4859A913B5B816E09BC0A6C2902ED97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845747   (1050905) от 03.01.2026
 
 No One Lives Forever 2: A Spy in H.A.R.M.'s Way / Никто не живет вечно 2: С.Т.Р.А.Х. возвращается (2002) [Ru/En] (1.3) Repack dixen18
@@ -6,7 +32,7 @@ No One Lives Forever 2: A Spy in H.A.R.M.'s Way / Никто не живет в�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050905.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Redline: Gang Warfare 2066 (1999) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050798.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Fida Puti Samurai (2021) [En] (1.2c025a) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050796.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Voidtrain (2023) [Ru/Multi] (1.03/dlc) Repack Wanterlude [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049928.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Hunted Within: The Walls (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049376.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.7.1/dlc) Repack Hardwa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048033.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Dying Light: The Beast (2025) [Ru/En] (1.4.0/dlc) Repack HardwareMining [Deluxe 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047233.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Crime Simulator (2025) [Ru/Multi] (1.19b) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046928.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ You Are Empty (2006) [Ru] (1.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046857.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.7.1/dlc) Repack Hardwa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046592.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Sniper Ghost Warrior Contracts (2019) [Ru/Multi] (16167732/dlc) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046575.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Ziggurat 2 (2021) [Ru/Multi] (09012023/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044783.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Area 51 / Зона 51 [Ru/En] (Lossless RePack) 2005 | R.G.Packers
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044459.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Age of Chivalry / Эпоха рыцарей (2007) [Ru/En] (1.0) Unofficial
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044458.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ System Shock (1994) [Multi] (1.2.16) License GOG [Enhanced Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044342.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Death in the Water 2 (2023) [Ru/Multi] (1.0.1) Repack DjDI
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043668.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Tom Clancy's Rainbow Six (2001-2008) [Ru] License [Антология. Част�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043572.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ XIII - Remake (2020) [Multi] (1.7.8247/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043381.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ PERISH (2023) [Ru/Multi] (6312) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040662.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Duke Nukem Forever (2011) [Ru/En] (1.0.244/dlc) Repack Seraph1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040013.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Shadow Warrior 3 (2022) [Ru/Multi] (1.06de/dlc) License GOG [Deluxe Definitive E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039461.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Superliminal (2019) [Ru/Multi] (1.4) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038967.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Ghostrunner (2020) [Ru/Multi] (32091.417/dlc) Repack xatab (обновляема
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038619.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ BPM: Bullets Per Minute (2020) [Ru/Multi] (1.59082) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036912.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Doom 3 (2004) [Multi] (1.3.1/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035801.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Doom 3 (2004) [Multi] (1.3.1/dlc) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D57718BF6228C191C94BB46101C722ED32CB343C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160457   (1035791) от 04.03.2023
-
-Doom 3: BFG Edition (2012) [Multi] (1.14) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Doom 3 BFG Edition - это переиздание Doom 3. Жанр и смысл переизданий очень темны. Но интуитивно понятно, что новая версия - это как встретить очень старого друга после долгой разлуки. Игра та же, но где-то что-то подшили, что-то подлатали, что-то добавили. Из образцовых проектов реанимации классики вспоминается Baldur’s Gate 2 Big World Project, в которую помимо (   Читать дальше...   )Тип издания: LicenseРазработчик: id SoftwareЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: Английский, Немецкий, Испанский и другиеЯзык субтитров: Английский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E045EABC6BD7887AB871FFC981D02B703B152A30
 ```
 
 https://mybot314.ru/tekegram_catalog/

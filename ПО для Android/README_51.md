@@ -1,3 +1,55 @@
+###  Публикация: 1544742   (620044) от 16.04.2022
+
+IELTS® Speaking Pro v4.0 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение IELTS Speaking Pro позволяет легко улучшить результаты IELTS Speaking Band для пользователей, которые стремятся получить высокий балл в разговорной речи на IELTS. Поскольку в этом приложении есть 70 полных тестов и более 1000 образцов карточек разговорных тестов IELTS, они совершенно бесплатны , и пользователи могут практиковаться , запишите, поделитесь (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 12 ноября 2021 г.Разработчик: Milinix - Learn English EasilyПоддерживаемая ОС: Android 4.2+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95D527CEDF5B0E128BC97EDCB695728726E05513
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910601   (619718) от 21.06.2015
+
+Schematic v2.2.1 [Ru/Multi] - составление и редактирование схем
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Schematic является простой и удобной в обращении CAD-программой, предназначенной для выполения разнообразных графических работ на вашем планшете или смартфоне. Примечание: пожалуйста не используйте аппаратное ускорение для предотвращения неправильной отрисовки объектов.Тип издания: ПираткаРелиз состоялся: 13.06.2015Разработчик: Dmitry UstimovПоддерживаемая ОС: Android 2.2+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDF0BA4F7F9D98B63001D5897E0A3F9999794640
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145003   (619594) от 26.06.2017
 
 ЭкоГид: Птицы России v3.0.2  [RU] - определитель-энциклопедия птиц России
@@ -6,7 +58,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619594.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ AirPlay/DLNA Receiver PRO v2.6.9 [En] - мощный приёмник медиа
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619376.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619362.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619307.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ KidsTrack 1.0.4 [Ru] - GPS-трекер на телефон ребенку
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619281.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616738.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611748.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ TВ - Онлайн v2.3 Mod [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609913.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Scientific Calculator Pro / Научный калькулятор Pro v2.5.4 [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608451.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606915.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606581.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ AlReader 1.65 150531 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604585.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ Infinite Painter v6.3.21  [Ru/Multi] - редактор растровой гр�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603994.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ Digital Call Recorder Pro 2.49 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600869.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ Hydro Coach - пейте воду 2.9.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598330.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ Car Launcher Pro 1.5.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597718.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ Microsoft Office Mobile 15.0.4220.2300 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597436.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ YMusic - YouTube Music Player & Downloader v3.7.10 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597370.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596424.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596369.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ Aquarium Live Wallpaper v1.7 (Mod Ad Free) [En] - Живые обои с акв�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594407.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ SeeTV.tv v1.03 Ad-Free [Ru/Ua/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593603.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593163.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592653.jpg" />
 </div>
 
 
@@ -627,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF98C2B88345DCD62CA8B54A3A69CE3BC428B7B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451147   (592595) от 09.05.2022
-
-ЕГЭ История России и Мира v1.0-126 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное приложение содержит в себе огромное количество материалов для подготовки к ЕГЭ по Истории России и Мира в 2022-м году, а также свыше 2000 практических заданий и множество тестов!Тип издания: Пиратка (получен PREMIUM, удалена аналитика)Релиз состоялся: 30.04.2022Разработчик: ЕГЭ 2022Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD8F3A577A986FFB8FE12A6089B10780F6E132FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450437   (592593) от 09.05.2022
-
-ЕГЭ Физика v1.0-87 [Ru] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное приложение содержит в себе огромное количество материалов для подготовки к ЕГЭ по Физике в 2022-м году, а также свыше 2000 практических заданий и множество тестов!Тип издания: Пиратка (открыт Premium)Релиз состоялся: 30.04.2022Разработчик: ЕГЭ 2022Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C851FC8B7D1CDC75839D0687E0A8D3854D4E4FC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Waving Flags Bundle [PNG, AI, SVG]
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336374.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334511.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Creative Fabrica - The Mega Christmas Bundle - 1200+ Graphics All in 1 Cute Bund
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309116.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301601.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283723.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280007.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273017.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267974.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Creative Market - Cute Characters - vector clip art - 4197356 [PNG, JPG, EPS]
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264567.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262186.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251679.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250610.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246076.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223578.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219985.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218782.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217512.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215438.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210959.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208319.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202205.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_199985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199985.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_199972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199972.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_199935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199935.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170960.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161554.jpg" />
 </div>
 
 

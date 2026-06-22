@@ -1,3 +1,81 @@
+###  Публикация: 558745   (414218) от 10.10.2012
+
+Журнал | Авторевю [Россия] №19 [октябрь 2012] [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал рассказывает о новинках автомобильного рынка, а также в нем можно найти самые свежие авто новости, самые новые автомобили, и многое другое. "Авторевю" по праву считается одним из ведущих российских автомобильных изданий. "Авторевю" ведет ряд уникальных проектов: сравнительные тесты автомобилей на базе полигона НИЦИАМТ и собственные краш-тесты (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC4E192D0AB4293FCC5F29B02A90C152FF26D2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091268   (412816) от 03.10.2018
+
+Подшивка журналов | Автотрак (2012-2018) [PDF] [Обновляемая]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412816.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Автотрак» - журнал является специализированным изданием, посвященным коммерческому транспорту — от пикапов на легковом шасси до магистральных тягачей, включая спецтехнику, автобусы всех классов, машины повышенной проходимости, а также прицепную технику.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A20122C7E8EA8D2B554217C048D6CD928E1DB0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168030   (412729) от 22.09.2017
+
+Журнал | 4x4 Club №10 (230) (октябрь 2017) [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание представляет результаты испытаний новейших моделей полноприводников, захватывающие рассказы о путешествиях и приключениях в стиле 4х4, об ралли - и трофи-рейдах и джип-триале, о способах подготовки внедорожника для преодоления офф-роуда, повышения его мощности и управляемости.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82C4A1BFF6179C54DA1C7EC7FB8CBDEB02B6D96D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 832266   (412634) от 18.10.2014
 
 Журнал | Автомир [Россия] №43 (октябрь 2014) [PDF]
@@ -6,7 +84,7 @@
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412634.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412356.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410987.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410509.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408360.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408143.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408141.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405595.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402330.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400866.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399779.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399388.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398504.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397632.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397615.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395693.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393992.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390572.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390307.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390081.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_390044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_390044.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389698.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389333.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E1BFD03353779F603CBA53C548FDBE4EA4A5AE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414234   (387732) от 07.10.2020
-
-Журнал | SUPER MOTORS №84 (август-сентябрь 2020) [PDF] [En]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал SUPER MOTORS - ведущий в мире автомобильный альбом премиум-класса для энтузиастов, стремящихся к безупречному образу жизни и отличным вечеринкам. SUPER MOTORS представляет и рассматривает самые сильные, самые быстрые, новейшие и будущие модели суперкаров (SSC), суперкаров (SSS), Gran Turismo (GT), суперседанов (SS), внедорожников (SUV), Super MotorBike (SB), (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3FA529E477B530F061EB0AA9869F988276152B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 833191   (386734) от 21.10.2014
-
-Газета | Авторевю [Россия] №20 (551) (октябрь 2014) [PDF]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Газета рассказывает о новинках автомобильного рынка, а также в нем можно найти самые свежие авто новости, самые новые автомобили, и многое другое. "Авторевю" по праву считается одним из ведущих российских автомобильных изданий. "Авторевю" ведет ряд уникальных проектов: сравнительные тесты автомобилей на базе полигона НИЦИАМТ и собственные краш-тесты (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:542FD815B26F0A7FFC498D0E44DF4C25BD073E3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 833623   (385135) от 22.10.2014
-
-Журнал | Полный привод 4x4 №9 (131) (сентябрь 2014) [PDF]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385135.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Полный привод 4х4» - отечественный внедорожный журнал об образе жизни. Россия, как никакая другая страна, без дорог, вне дорог и со своей дорогой. И внедорожник – не символ плохих дорог, а способ их преодоления. Издание пишет, снимает, на этих дорогах испытывает машины и оборудование для них. Журнал рассказывает о том, как правильно управлять полноприводной машиной, (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC9A7DEB9F478FE248949A67C73B00E20532F8CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

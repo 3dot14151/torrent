@@ -1,3 +1,32 @@
+###  Публикация: 1416140   (369859) от 15.10.2020
+
+Футбол. Лига Наций УЕФА 2020-2021. Лига B. Группа 3. 3-й тур. Россия — Турция (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лига Наций УЕФА 2020-2021.
+11 октября 2020, воскресенье. 21:45 МСК
+Лига B. Группа 3. 3-й тур
+Россия — Турция(   Читать дальше...   )Телекомпания: Матч! ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D2346D9E415842E9044F2A44FEDC0FF7903E569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416169   (369856) от 15.10.2020
 
 Футбол. Лига Наций УЕФА 2020-2021. 3-й тур. Обзор матчей. 2-й День (11.10.2020) IPTVRip [H.264/1080p-LQ]
@@ -6,7 +35,7 @@
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369856.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369855.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369854.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369852.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369851.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369848.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369363.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367833.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367828.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367827.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367823.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367819.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367661.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367659.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366624.jpg" />
 </div>
 
 
@@ -435,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366618.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364292.jpg" />
 </div>
 
 
@@ -493,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364275.jpg" />
 </div>
 
 
@@ -522,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364269.jpg" />
 </div>
 
 
@@ -548,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364265.jpg" />
 </div>
 
 
@@ -577,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364258.jpg" />
 </div>
 
 
@@ -606,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364254.jpg" />
 </div>
 
 
@@ -635,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355611.jpg" />
 </div>
 
 
@@ -664,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355610.jpg" />
 </div>
 
 
@@ -693,7 +722,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355608.jpg" />
 </div>
 
 
@@ -707,35 +736,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0560B49FA478EA2698A233E7BB309BD711A7B00B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417681   (355482) от 21.10.2020
-
-Футбол. Лига Чемпионов УЕФА 2020-2021. Группа F. 1-й тур. Зенит (Россия) — Брюгге (Бельгия) (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лига Чемпионов УЕФА 2020-2021.
-20 октября 2020, вторник. 19:55 МСК
-Группа F. 1-й тур
-Зенит (Санкт-Петербург, Россия) — Брюгге (Брюгге, Бельгия)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 02:16:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65F74693EF3DD9132E748D51425CD4B5C0025EA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

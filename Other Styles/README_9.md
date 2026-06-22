@@ -1,3 +1,261 @@
+###  Публикация: 977149   (1006320) от 17.07.2021
+
+Richard Clayderman and The Ray Hamilton Orchestra - Romantic Piano (2014) Box-set 3 CD [FLAC|Lossless|tracks+.cue] <Contemporary Instrumental, Instrumental Pop, Neo-Classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Признаюсь честно, вокруг этого боксета складывалась определенно детективная история. Мне очень нравятся поп и рок вещи в современной фортепианной и оркестровой интерпретации. Увидев в последней поездке этот сборник, конечно же не прошёл мимо. Но поставив его на свою технику не мог отделаться от мысли, что я это уже слышал. Положение усугублялось тем, что мелким шрифтом (   Читать дальше...   )CD-1:
+01. Ballade Pour Adeline  (2:34)
+02. Candle In The Wind  (5:10)
+03. One Moment In Time  (4:48)(   Читать дальше...   )Жанр: Contemporary Instrumental, Instrumental Pop, Neo-ClassicalПродолжительность: 03:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A274A2BFD1DA45823B8EBE363D5751A7E350A33D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 422630   (1006219) от 18.07.2021
+
+Хор Турецкого - Такая Великая любовь... (2004) [FLAC|Lossless|tracks] <Vocals, Art>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Une vie d'amour (3:44)
+02. Композиция 'Money' (4:08)
+03. Попурри "СССР" (5:38)
+04. Une amore cosi grande (4:08)(   Читать дальше...   )Жанр: Vocals, ArtПродолжительность: 01:01:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61D208ED3EBC1E51B5AC971022F1F6840136F74B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484500   (1005931) от 21.07.2021
+
+Jim Brickman - Bedtime Story Volumes Two & Three (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. Touch of Dreams (08:55)
+02. Chamomile (08:39)
+03. Bedtime Breeze (07:56)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:24:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A18295C171323EB7044A2C31AE99150EA3D66B51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485618   (1005257) от 26.07.2021
+
+Нейромонах Феофан - Акустика, Ч.2 (2021) [MP3|320 Kbps] <Folk, Acoustic>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005257.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Пасынок Правил (Акустическая Версия)
+2. Замиренье (Акустическая Версия)
+3. Дрова (Акустическая Версия)
+4. Везде Пляшу (Акустическая Версия)(   Читать дальше...   )Жанр: Folk, AcousticПродолжительность: 00:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43AA388DE73D693D6409128DF5BB9B6ED73C40B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485551   (1005204) от 27.07.2021
+
+Gheorghe Zamfir - Pan Flute Improvisations (1988) [FLAC|Lossless|image + .cue] <Instrumental, Folk, World>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gheorghe Zamfir - румынский музыкант, играющий на модернизированной версии румынского национального инструмента, пан-флейте (най), которая состоит из 20-30 трубок, с расширенным звуковым диапазоном и большим количеством тонов. Gheorghe Zamfir стал известен широкой публикев 1960-х, в частности, благодаря швейцарскому музыканту Marcel Cellier, исследователю румынской (   Читать дальше...   )1. Domasnea (5:14)
+2. Jebel (4:41)
+3. Arad (6:54)
+4. Oltera (6:46)(   Читать дальше...   )Жанр: Instrumental, Folk, WorldПродолжительность: 00:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE6AD143B079E8F6FFE7F17D0299CFE61C7810D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349436   (1004436) от 01.01.2020
+
+VA - Fiesta Latina 2019 (80 Big Latin Hits 2019/2020!) [MP3|320 Kbps] <Latin, Reggaeton, Salsa>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somos del Barrio – Con Calma (Reggaeton Version)
+02. Grupo Extra – A Traves del Vaso (Bachata Version)
+03. Charanga Habanera – Traicionera
+04. Somos del Barrio – Loco Contigo (Reggaeton Version)(   Читать дальше...   )Жанр: Latin, Reggaeton, Salsa, BaciataПродолжительность: 04:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:549987BF72CA37B8B95B71D040DC2423D12207EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348680   (1004272) от 02.01.2020
+
+Ani Tsering Wangmo - Immeasurable Joy (2006) [FLAC|Lossless|tracks + .cue] <Tibetan Chants>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Siddhi Yang (5:49)
+02. She Nying Yang (6:06)
+03. Tarai Yang (6:52)
+04. Mani Yang (8:31)(   Читать дальше...   )Жанр: Tibetan ChantsПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4777DA693CDE2B26AAA461300654A41483CFF19D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349314   (1004225) от 02.01.2020
+
+Shinnobu - The Enigma III (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Etheric Worlds III (4:57)
+02. Warriors of Light (5:31)
+03. Mirages (feat. Angelux Ruddy) (5:28)
+04. Enigma from Man (feat. Angelux Ruddy) (8:13)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F2DD8F2B531D81D51F8898845B5FF9C612D243A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 647055   (1004040) от 03.08.2021
+
+Dragoslav Pavle Aksentijevic - Древнее Сербское Псалмопение XIII-XIV вв. (2007) [MP3|320 кб/с]<Православные песнопения>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Православные песнопенияПродолжительность: 00:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61CAD397C45BEAB5A3148894B584B13515F02A70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486968   (1003860) от 04.08.2021
 
 Firefall - Great Collection (2021) [FLAC|Lossless|image + .cue] <Country Rock, Pop Rock, Soft Rock>
@@ -6,7 +264,7 @@ Firefall - Great Collection (2021) [FLAC|Lossless|image + .cue] <Country Rock, P
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003860.jpg" />
 </div>
 
 
@@ -35,7 +293,7 @@ Caravelli - Caravelli at San Remo & J’aime (2019) Compilation, Remastered [FLA
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003786.jpg" />
 </div>
 
 
@@ -64,7 +322,7 @@ Kenio Fuke - Piano Impressions, Vol. 1-2 (2013) [FLAC|Lossless|WEB-DL|tracks] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003775.jpg" />
 </div>
 
 
@@ -93,7 +351,7 @@ Films - Signs From The Past (2016) (Ricco) [FLAC|Lossless|tracks] <Instrumental,
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003772.jpg" />
 </div>
 
 
@@ -122,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003730.jpg" />
 </div>
 
 
@@ -151,7 +409,7 @@ Throne Room Company - 4  альбома (2011-2013) Discography [MP3|320 кб/с
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003686.jpg" />
 </div>
 
 
@@ -180,7 +438,7 @@ James Last - Russland Erinnerungen (1977) WEB-Rip by Deezer [FLAC|Lossless|track
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003596.jpg" />
 </div>
 
 
@@ -209,7 +467,7 @@ George Winston - -A Memorial Benefit (2020) Special Edition [FLAC|Lossless|WEB-D
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003283.jpg" />
 </div>
 
 
@@ -238,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003243.jpg" />
 </div>
 
 
@@ -267,7 +525,7 @@ Modern Spirit - Infinite Wisdom (2019) [MP3|320 Kbps] <New Age, Enigmatic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002942.jpg" />
 </div>
 
 
@@ -296,7 +554,7 @@ Films - A Forbidden Garden (2013) (Ricco) [FLAC|Lossless|tracks] <Instrumental, 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002510.jpg" />
 </div>
 
 
@@ -325,7 +583,7 @@ Films - Messenger (2010) (Midi Creative) [FLAC|Lossless|tracks + .cue] <Instrume
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002504.jpg" />
 </div>
 
 
@@ -354,7 +612,7 @@ Gandiva - Jago jharna (2016) [FLAC|Lossless|tracks + .cue] <Mantras, Meditative,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002467.jpg" />
 </div>
 
 
@@ -383,7 +641,7 @@ Igor Presnyakov - Acoustic Rock Ballad Covers (2011) [MP3|~190 кб/с (V2)]<ist
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002458.jpg" />
 </div>
 
 
@@ -412,7 +670,7 @@ The Royal Philharmonic Orchestra - 33 альбома (1969-2019) [OGG|320 kbps]<
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002343.jpg" />
 </div>
 
 
@@ -441,7 +699,7 @@ Eivoer Polsdoeter (Eivør Pálsdóttir) - Trollabundin (Trøllabundin) (2005) [F
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002263.jpg" />
 </div>
 
 
@@ -476,7 +734,7 @@ Govi - Luminosity (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, New Flamenco>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001645.jpg" />
 </div>
 
 
@@ -490,279 +748,6 @@ Govi - Luminosity (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, New Flamenco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCB5F9390FC8508EFD4B2FAEB440B063D47734E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 331898   (1001252) от 13.01.2020
-
-Existence - Like A Shot Through My Heart (2004) [FLAC|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001252.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Existence Means Harmony (4:45)
-2. First Nations Flute Prayer (5:06)
-3. Like A Shot Through The Heart (4:35)
-4. Sacrificed (4:52)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69E410186BDE3A22EAC5149B2C27B1E3990AB4A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489174   (1001163) от 14.08.2021
-
-David Garrett - Music (2012) [FLAC|Lossless|image + .cue] <Instrumental Pop, Instrumental Soft Rock, Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001163.jpg" />
-</div>
-
-
-###  Подробнее
-
-David Garrett - не просто случайный любитель разных жанров музыки, наоборот, он раз за разом доказывает, что он твердо стоит одной ногой в поп-музыке, а другой - в классической. Как он продемонстрировал в своих предыдущих альбомах, он хочет побудить поклонников из мира рока оценить его корни в классической музыке, и привлекает поклонников из мира классики своим техническим (   Читать дальше...   )01. Viva La Vida (4:16)
-02. Cry Me A River (3:15)
-03. Beethoven Scherzo (3:06)
-04. Human Nature (3:52)(   Читать дальше...   )Жанр: Instrumental Pop, Instrumental Soft Rock, ClassicalПродолжительность: 00:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E243D48381952E8F0F7DBFA8E4A0BD59FAD12126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 710427   (1000966) от 14.01.2020
-
-Karunesh - Sounds of the Heart (1987) [FLAC|Lossless|tracks + .cue] <New Age, Downtempo, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clouds & Wings [6:27]
-02. Wu-wei [5:31]
-03. Fantasy Dancer [4:22]
-04. Back Home [6:10](   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 00:47:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:448EBD6B4E57E1565F2EA68C9D0F16E27DED2E70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740114   (1000958) от 14.01.2020
-
-Era & Arielle Dombasle - Arielle Dombasle By Era (2013) /Special Edition/ [FLAC|Lossless]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ave Maria (Inspired By The Ave Maria / Gonoud) (4:02)
-02. Cold Song (From 'Cold Genius' King Arthur Opera) (3:29)
-03. Adagio For Strings (Era Version / Edit Agnus Dei) (3:57)
-04. Sins (From 'Miserere') (3:31)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E73FAF98A4569F40464EFFD3FFA0FC0D195C90ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352292   (1000894) от 15.01.2020
-
-Frantz Amathy - Heavenly Ways (2004) [FLAC|Lossless|tracks + .cue] <New Age, Relax, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Wind of Love (6:21)
-02. Heavenly Ways (9:35)
-03. Mystery (4:54)
-04. Crystal Song (5:09)(   Читать дальше...   )Жанр: New Age, Relax, InstrumentalПродолжительность: 01:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51E93916572FEA2A13FB4147D40AFDB908FDF11B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351473   (1000892) от 15.01.2020
-
-7 часов спустя (Обратный отсчёт) / 7 Hours to Go (Original Motion Picture Soundtrack) - EP (2016) [MP3|128 Kbps] <OST, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mohammed Irfan feat. Sarodee Borah & Sugat Shubham - Tere Naina
-02. Nikhil DSouza feat. SugaT, Shubham & Hanif Shaikh - Zinda Hota Mein
-03. Jubin Nautiyal feat. SugaT, Shubham & Hanif Shaikh - Zinda Hota Mein (Reprise)
-04. Hanif Shaikh - Dalinder Dance(   Читать дальше...   )Жанр: OST, SoundtrackПродолжительность: 00:21:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E8328AC2162823F2C45010D643862284D0D468E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352228   (1000880) от 15.01.2020
-
-Kenneth Hooper - Directions (2020) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000880.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Directions (8:19)
-2.All Who Wander (8:15)
-3.Trailblazers (6:20)
-4.Springtime Dreaming (9:20)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:20:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9766A27218E70EB97ACB7B62050D1CB1CC65DDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598975   (999148) от 07.01.2013
-
-Андрей Сигунов - Bessame Mucho (2011) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999148.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Тико-Тико
-2.Ноктюрн
-3.Besame Mucho
-4.Мой ласковый и нежный зверь
-5.Карусель
-6.Baila con migo
-7.Yesterday
-8.Бегут года
-9.Piccola samba
-10.Cumbia gitana(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:55:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6B51B4E6567E481E7218CF1E9174166511477A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598967   (999120) от 07.01.2013
-
-Jesse Cook - Greatest Hits (2CD) (2010) [MP3|320 кб/с]<New Age, Flamenco, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999120.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-Продолжительность: 01:19:34
-01. [03:49] Mario Takes a Walk
-02. [03:01] Tempest
-03. [04:10] Paloma
-04. [03:06] Bogota by Bus
-05. [03:29] Matisse the Cat
-06. [04:08] Virtue
-07. [03:48] Rattle and Burn
-08. [03:58] Gravity(   Читать дальше...   )Жанр: New Age, Flamenco, InstrumentalПродолжительность: 02:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BBBC911DF331113F9E476EF046940E229CB052B
 ```
 
 https://mybot314.ru/tekegram_catalog/

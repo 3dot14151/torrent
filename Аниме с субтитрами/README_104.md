@@ -1,3 +1,31 @@
+###  Публикация: 1623683   (186165) от 24.09.2023
+
+Mix: Meisei Story 2nd Season - Nidome no Natsu, Sora no Mukou e | Микс: История Мейсей [ТВ-2] [2023, TV, 24 из 24] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186165.jpg" />
+</div>
+
+
+###  Подробнее
+
+После успеха в летнем турнире года многие ученики подают заявки на вступление в бейсбольную команду средней школы Мэйсэй. Нишики Кендзи, который покинул команду из-за спора с ее менеджером, когда учился в среднем классе, также возвращается в команду, и команда продолжает работу с вновь присоединившимися участниками.
+
+Следующей весной Татибана Отоми, Нацуно Ичибан, (   Читать дальше...   )Производство: Студия OLM / オー・エル・エムЖанр: повседневность, романтика, спортРежиссер: Камитани ТомохироПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские (мультисаб)Продолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90ECE47DBEBF310334338BA249DAB791A587743C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1645557   (186163) от 24.09.2023
 
 Shinigami Bocchan to Kuro Maid (2023) | The Duke of Death and His Maid (2023) | Смертоносный герцог и его чёрная горничная 2 [2023, TV, 12 эп.] WebRip 720p raw
@@ -6,7 +34,7 @@ Shinigami Bocchan to Kuro Maid (2023) | The Duke of Death and His Maid (2023) | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186163.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ Eiyuu Kyoushitsu | Hero Classroom | Класс для героев [2023, TV, 12
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186159.jpg" />
 </div>
 
 
@@ -60,7 +88,7 @@ Level 1 Dakedo Unique Skill de Saikyou Desu | С особым навыком я 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186155.jpg" />
 </div>
 
 
@@ -86,7 +114,7 @@ One Punch Man 3 | Ванпанчмен [ТВ-3] [2025, TV, 2 из 12 эп. + 1 S
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186105.jpg" />
 </div>
 
 
@@ -112,7 +140,7 @@ Jijou o Shiranai Tenkousei ga Guigui Kuru. | My Clueless First Friend | Мой �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185954.jpg" />
 </div>
 
 
@@ -138,7 +166,7 @@ Azur Lane: Queen's Orders | Лазурный путь: Приказы корол
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185920.jpg" />
 </div>
 
 
@@ -164,7 +192,7 @@ Tokyo Mew Mew New | Токио Мяу Мяу (2022) [2022, TV, 12 из 12] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185900.jpg" />
 </div>
 
 
@@ -190,7 +218,7 @@ Yuusha ga Shinda! | The Legendary Hero is Dead! | Герой мёртв! [2023, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185877.jpg" />
 </div>
 
 
@@ -216,7 +244,7 @@ Space Runaway Ideon | Densetsu Kyojin Ideon | Космический бегле�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185859.jpg" />
 </div>
 
 
@@ -242,7 +270,7 @@ Isekai One Turn Kill Nee-san: Ane Douhan no Isekai Seikatsu Hajimemashita | My O
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185856.jpg" />
 </div>
 
 
@@ -269,7 +297,7 @@ Kaminaki Sekai no Kamisama Katsudou | KamiKatsu: Working for God in a Godless Wo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185821.jpg" />
 </div>
 
 
@@ -295,7 +323,7 @@ Ayakashi Triangle / Треугольник Аякаси [2023, TV, 12] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185603.jpg" />
 </div>
 
 
@@ -321,7 +349,7 @@ Takunomi. | Алкогольные посиделки [2018, TV, 12] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185341.jpg" />
 </div>
 
 
@@ -349,7 +377,7 @@ Sister Princess: Re Pure | Сестры-принцессы [ТВ-2] [2002, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185307.jpg" />
 </div>
 
 
@@ -377,7 +405,7 @@ Sister Princess | Сестры-принцессы [ТВ-1] [2001, TV, 26 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185298.jpg" />
 </div>
 
 
@@ -405,7 +433,7 @@ Yuurei Yashiki | Призрак замка [1990, Special, 1 эп.] WebRip 480p 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185266.jpg" />
 </div>
 
 
@@ -433,7 +461,7 @@ It's My Life | Это моя жизнь! [2019, OVA, 1 эп.] DVDRip 576p 10bit 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185192.jpg" />
 </div>
 
 
@@ -459,7 +487,7 @@ Takunomi. | Алкогольные посиделки [2018, TV, 12] BDRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184743.jpg" />
 </div>
 
 
@@ -487,7 +515,7 @@ I'll/CKBC | I'll/Crazy KOUZO Basketball Club | Лихая баскетбольн
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184442.jpg" />
 </div>
 
 
@@ -513,7 +541,7 @@ Niehime to Kemono no Ou | Sacrificial Princess and the King of Beasts | Жерт
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184192.jpg" />
 </div>
 
 
@@ -539,7 +567,7 @@ Suki na Ko ga Megane o Wasureta | The Girl I Like Forgot Her Glasses | Моя в
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184187.jpg" />
 </div>
 
 
@@ -565,7 +593,7 @@ Undead Girl Murder Farce | Фарс убитой нежити [2023, TV, 13 эп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184177.jpg" />
 </div>
 
 
@@ -591,7 +619,7 @@ Birdie Wing: Golf Girls Story | История гольфисток [ТВ-1] [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183785.jpg" />
 </div>
 
 
@@ -619,7 +647,7 @@ Ayane-chan High Kick | Ayane's High Kick | Высокий удар Аянэ [199
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183614.jpg" />
 </div>
 
 
@@ -645,7 +673,7 @@ Shi Cao Lao Long Bei Guan Yi E Long Zhi Ming | A Herbivorous Dragon of 5,000 Yea
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183580.jpg" />
 </div>
 
 
@@ -656,32 +684,6 @@ Shi Cao Lao Long Bei Guan Yi E Long Zhi Ming | A Herbivorous Dragon of 5,000 Yea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DFD892EC3A9E59D836BBCF1BE71D01B2FF18E47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646087   (183448) от 28.09.2023
-
-Shiro Seijo to Kuro Bokushi / Saint Cecilia and Pastor Lawrence / Святая Сесилия и пастор Лоуренс [2023, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Святая Сесилия любима всеми — она не только красива и спокойна, но и охотно делится своей мудростью с каждым, кто в этом нуждается. Однако после ухода последнего посетителя она становится совершенно другой. Только в присутствии пастора Лоуренса Сесилия показывает свою суть: постоянно сонная любительница побездельничать и свалить всю работу в церкви на пастора. Почему (   Читать дальше...   )Жанр: романтика, повседневность, комедия.Режиссер: Норо СумиэЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:628F953EB799E6863752969BAB05E37746A18337
 ```
 
 https://mybot314.ru/tekegram_catalog/

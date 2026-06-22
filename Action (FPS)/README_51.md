@@ -1,3 +1,29 @@
+###  Публикация: 1731498   (32873) от 27.12.2024
+
+SPRAWL (2023) [Multi] (1.7) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пользователи в SPRAWL получают возможность отправиться в сеттинг киберпанка, где главный герой вынужден выживать на просторах города будущего. Главной задачей для протагониста становится попытка сбежать с города-крепости, бросая вызов военизированному правительству агломерации. Игра выполнена в жанре экшен-шутера от первого лица, где приходится передвигаться по коридорным (   Читать дальше...   )Тип издания: LicenseРазработчик: MAETHЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81F19EB82D16319745BB502BEBBB2F24E7777707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048847   (32161) от 03.01.2025
 
 Shadow Warrior Classic Redux (2013) [En] (1.1.9/dlc) License GOG
@@ -6,7 +32,7 @@ Shadow Warrior Classic Redux (2013) [En] (1.1.9/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32161.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Priest Simulator: Vampire Show (2022) [Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31719.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Medal of Honor Anthology (2002-2012) [Ru/En] Rip OneTwo
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31541.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Mullet MadJack (2024) [Ru/Multi] (1.12) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31500.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Carnival Of Souls (2024) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31080.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Ghostrunner 2 (2023) [Ru/Multi] (42294.40/dlc) Repack Decepticon [Deluxe Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30918.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Hellbreach: Vegas (2024) [Ru/Multi] (1.0.4) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30814.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Crime Boss Rockay City (2023) [Ru/Multi] (1.13.2.0/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30598.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Skydance's BEHEMOTH (2024) [Multi] (1.0/dlc) Scene Rune [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30502.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Metro Awakening (2024) (1.0 build 16229071/dlc) Scene Rune [Deluxe Edition] [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30498.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ The Walking Dead: Saints & Sinners (2020) [Multi] (1.0) Scene VREX [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30364.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Sons of the Forest (2023) [Ru/Multi] (1.0 53951) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30186.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Eximius: Seize the Frontline (2018) [Ru/Multi] (1.2.2/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30058.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru/En] (2.080.00) Repack R.G. Ме
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29863.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ REKKR: Sunken Land (2021) [En] (1.12) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29562.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Dying Light (2021) [Ru/En] (1.49.0hf10/dlc) Repack dixen18 [Definitive Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29560.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Death in the Water 2 (2023) [Ru/Multi] (1.1.15) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29461.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ System Shock (2023) [Ru/Multi] (1.3.0.19128) Repack Let'sРlay [Remake]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29180.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Call of Duty: Black Ops Cold War (2020) [Ru/Multi] (1.34.0.15931218) Repack sele
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29174.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Dying Light (2016) [Ru/En] (1.50.0/dlc) Repack Decepticon [Definitive Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28951.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Metal Savior Black (2025) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28913.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Dying Light: The Following (2016) [Ru/En] (1.38.0/dlc) Repack xatab [Enhanced Ed
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28528.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Hired 2 Die (2025) [Ru/Multi] (1.0.0.2) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28316.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru] (2.091) Repack EXROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28309.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Immortals of Aveum (2023) [Ru/Multi] (1.0.6.6/dlc) Repack seleZen [Deluxe Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28301.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Immortals of Aveum - одиночный магический шутер от п�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECF4733127EE6A3994CB9FA0E749FB447C590531
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730611   (28222) от 09.02.2025
-
-Immortals of Aveum (2023) [Ru/Multi] (1.0.6.6) Repack FitGirl
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Immortals of Aveum, сочетающая в себе шутер от первого лица и элементы магии в оригинальной фэнтезийной вселенной, рассказывает о боевом маге Джаке, который присоединяется к элитной группе магов Lucium, чтобы раскрыть секреты Авеума - загадочного мира, находящегося на грани уничтожения. В игре представлен кинематографический режим кампании, который обещает подарить (   Читать дальше...   )Тип издания: RepackРазработчик: Ascendant StudiosЖанр: Action, Shooter, First-personЯзык озвучки: Английский, Французский, Итальянский, НемецкийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E3FD21A2DD8004FB489ECA85B608DEF388EA49F
 ```
 
 https://mybot314.ru/tekegram_catalog/

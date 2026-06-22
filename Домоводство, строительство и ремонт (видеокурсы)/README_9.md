@@ -1,3 +1,31 @@
+###  Публикация: 1432690   (162520) от 18.12.2020
+
+Skillbox, Марина Брагинская и др. | Декорирование в дизайне интерьера (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы научитесь разрабатывать декоративные решения для жилых интерьеров, работать со стилями и разными элементами декора. Сможете зарабатывать на декорировании помещений и редизайне квартир.
+Чему вы научитесь:
+Подбирать стиль для интерьера. Узнаете, какие современные стили существуют, как их можно сочетать между собой и какими средствами реализовать задуманный дизайн-проект. (   Читать дальше...   )Производство: SkillboxЖанр: ДизайнПродолжительность: 15:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07F79586F765C5466AB237A96211C7E78D3919E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674013   (161817) от 04.11.2023
 
 Школа Маляров, Сергей Гапченко | Видеопрактикум Покраска (2023) WEB-DL [AD] [RU]
@@ -6,7 +34,7 @@
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161817.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160371.jpg" />
 </div>
 
 
@@ -63,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156207.jpg" />
 </div>
 
 
@@ -89,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154524.jpg" />
 </div>
 
 
@@ -118,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154170.jpg" />
 </div>
 
 
@@ -146,7 +174,7 @@ SDKO, Ирина Ружанская | Конструирование и поши
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146570.jpg" />
 </div>
 
 
@@ -173,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144360.jpg" />
 </div>
 
 
@@ -199,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143246.jpg" />
 </div>
 
 
@@ -225,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142283.jpg" />
 </div>
 
 
@@ -251,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134457.jpg" />
 </div>
 
 
@@ -280,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133785.jpg" />
 </div>
 
 
@@ -308,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132850.jpg" />
 </div>
 
 
@@ -337,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129456.jpg" />
 </div>
 
 
@@ -366,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129444.jpg" />
 </div>
 
 
@@ -392,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129390.jpg" />
 </div>
 
 
@@ -420,7 +448,7 @@ Strogoorganic | Органическое Садоводство - Междуна
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129262.jpg" />
 </div>
 
 
@@ -449,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128981.jpg" />
 </div>
 
 
@@ -477,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127698.jpg" />
 </div>
 
 
@@ -503,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127029.jpg" />
 </div>
 
 
@@ -532,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125505.jpg" />
 </div>
 
 
@@ -558,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124972.jpg" />
 </div>
 
 
@@ -584,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121617.jpg" />
 </div>
 
 
@@ -610,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119720.jpg" />
 </div>
 
 
@@ -636,7 +664,7 @@ Udemy, Maksim Skachko | Базовый курс по строительной м
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115772.jpg" />
 </div>
 
 
@@ -663,7 +691,7 @@ Kaminskaya_sew | Мастер-класс по пошиву постельног�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111841.jpg" />
 </div>
 
 
@@ -677,33 +705,6 @@ Kaminskaya_sew | Мастер-класс по пошиву постельног�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FC389A21D9B2A3BE4BADE206B238918AD106A7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733847   (107268) от 30.06.2024
-
-Austin School of Furniture & Design, Austin Waldo | Книжный шкаф из деревянных планок / Shiplap Bookcase (2021) WEBRip [EN, RU / EN Sub]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы ищете отличный проект для начала своего путешествия по деревообработке, то не ищите его дальше.
-Этот простой книжный шкаф из шипованой доски разработан специально для того, чтобы стать отличным первым проектом. Материалы легко достать, а инструментов совсем немного. Но пусть это вас не вводит в заблуждение. В этом проекте использованы хорошие, фундаментальные (   Читать дальше...   )Производство: Austin School of Furniture & DesignЖанр: Обучающее видеоЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 00:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADC6DE96740BDAA530062AB32E94F2AE252A6A69
 ```
 
 https://mybot314.ru/tekegram_catalog/

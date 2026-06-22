@@ -1,3 +1,82 @@
+###  Публикация: 1300997   (586889) от 09.05.2019
+
+Uchi no Maid ga Uzasugiru! | UzaMaid! | ЦубаКума! | Наша служанка слишком назойлива! [ТВ-1] [2018, TV, 12 из 12 эп. + OVA] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цубаме Камои — бывшая сержант воздушных сил самообороны Японии, которая очень любит маленьких девочек. Находясь в поисках работы своей мечты (подразумевающей близость к юному девичьему телу), она случайно оказывается на пороге дома семьи Таканащи, где обитают маленькая и наполовину русская девочка Миша, рано потерявшая мать, и её отец-японец. Дому срочно требуется (   Читать дальше...   )Производство: студия Dogakobo / 動画工房Жанр: комедия, пародияРежиссер: Ота МасахикоПеревод: Язык озвучки: Профессиональный (многоголосый, закадровый) | (AniDub)Язык субтитров: Русский, English,Продолжительность: 13 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD4C7CDE270B7D2AD3158D08AC9F72BC1052371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301096   (585914) от 10.05.2019
+
+Tonari no Kaibutsu-kun | My Little Monster | Монстр за соседней партой [2012, TV, 13 эп.] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585914.jpg" />
+</div>
+
+
+###  Подробнее
+
+16-летняя Сидзуку Мидзутани любит учиться и думать о своем будущем. Больше ей ничего не нужно, потому девушка и в старшей школе выстраивает образ «ботанички», в общении с остальными ограничиваясь простой вежливостью. Только, как на грех, учительница попросила героиню отнести конспекты загадочному парню Хару Ёсиде, который должен сидеть с Мидзутани рядом, но до сих (   Читать дальше...   )Производство: Япония,Жанр: комедия, романтика, повседневностьРежиссер: Кабураги ХироПеревод: русские субтитры (только надписи, полные)Язык озвучки: Японский и русский
+Многоголосая, студияПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A257B724CC6B479EC2B3A94E5F04B7D5E6F9203C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301318   (584898) от 11.05.2019
+
+Samurai Seven | Семь Самураев | 7 самураев [2004, TV, 26] HDRip 400p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отдалённое будущее, похожая на Землю планета. Разбойники обложили деревеньку непосильным оброком. Оказавшись на грани голодной смерти, жители снаряжают небольшой отряд и отправляют его на поиски самураев, которые могли бы противостоять разбойникам и защитить деревню.Производство: Япония, студия GONZOЖанр: Приключения, Фантастика, Меха, ДрамаРежиссер: Такидзава ТосифумиЯзык озвучки: Русский (Профессиональный Дублированный (СВ-Дубль) | Телеканал FAN)Субтитры: ОтсутствуютПродолжительность: 26 эп. по 26 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A07671295BED85DEAEFDF797F83B7C68D20C489C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302200   (581915) от 14.05.2019
 
 Galilei Donna | Девы Галилея [2013, TV, 01-11 из 11] BDRip 400p raw+rus
@@ -6,7 +85,7 @@ Galilei Donna | Девы Галилея [2013, TV, 01-11 из 11] BDRip 400p raw
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581915.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ Darling in the Franxx | Любимый во Франксе [2018, TV, 01-24 из
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581913.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ Ryuu to Sobakasu no Hime | Belle | Красавица и дракон [2021, Mov
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581719.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ Soul Eater Not! / Не Пожиратель Душ! [2014, TV, 12 ep] BDRip Hi10
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_580978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_580978.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ Pokemon: Advanced (6 Season) / Покемон: Новое поколение (6 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580140.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ No Game No Life: Zero | Нет игры - нет жизни: Начало [2018,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579961.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ Sword Art Online | Мастера меча онлайн [2012, TV, 25] BDRip 400
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579960.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ Psycho-pass | Психопаспорт (два сезона) [2012-2014, TV, 22 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577382.jpg" />
 </div>
 
 
@@ -215,7 +294,7 @@ Pandora Hearts / Сердца Пандоры [2009, TV, 25] DVDrip raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577381.jpg" />
 </div>
 
 
@@ -243,7 +322,7 @@ Aoki Hagane no Arpeggio: Ars Nova / Arpeggio of Blue Steel / Арпеджио г
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575889.jpg" />
 </div>
 
 
@@ -269,7 +348,7 @@ Arete Hime | The Adventure of Princess Arete | Принцесса Аритэ [20
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575543.jpg" />
 </div>
 
 
@@ -296,7 +375,7 @@ Rean no Tsubasa | The Wings of Rean | Крылья Рин [2005, ONA, 6 эп.] D
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575542.jpg" />
 </div>
 
 
@@ -323,7 +402,7 @@ Shinpi no Sekai El Hazard | El Hazard - The Magnificent World | Удивител
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575541.jpg" />
 </div>
 
 
@@ -350,7 +429,7 @@ Masamune-kun no Revenge | Masamune-kun's Revenge | Месть Масамунэ [
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575540.jpg" />
 </div>
 
 
@@ -377,7 +456,7 @@ Gekijouban Hunter x Hunter: Phantom Rouge / Охотник х Охотник (ф
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574778.jpg" />
 </div>
 
 
@@ -404,7 +483,7 @@ Isshuukan Friends / One Week Friends / Друзья на неделю [2014, TV,
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571688.jpg" />
 </div>
 
 
@@ -431,7 +510,7 @@ Sasameki Koto / Whispered Words / Я тихо прошепчу [2009, TV, 13 ep]
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571214.jpg" />
 </div>
 
 
@@ -458,7 +537,7 @@ Nobunagun / Пушка Нобунаги [2014, TV, 13] BDRip Hi10p 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570878.jpg" />
 </div>
 
 
@@ -484,7 +563,7 @@ Trinity Seven / Святая семёрка [2014, TV, 12 ep] BDRip Hi10p 720p R
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567911.jpg" />
 </div>
 
 
@@ -511,7 +590,7 @@ Magi: The Kingdom of Magic / Маги (ТВ-2): Королевство Маги�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567788.jpg" />
 </div>
 
 
@@ -538,7 +617,7 @@ Kimi no Na wa | Your Name | Твоё имя [2016, Movie] BDRip 400p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566563.jpg" />
 </div>
 
 
@@ -564,7 +643,7 @@ Soul Link | Связь душ [2006, TV, 12 эп.] DVDrip 480p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562985.jpg" />
 </div>
 
 
@@ -590,7 +669,7 @@ Chirin no Suzu | Ringing Bell | Колокольчик Чирина [1978, Movie
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562983.jpg" />
 </div>
 
 
@@ -601,84 +680,6 @@ Chirin no Suzu | Ringing Bell | Колокольчик Чирина [1978, Movie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC929EB93846C7A8DE8B171C90ADA770238BDF95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304600   (562981) от 26.05.2019
-
-Yume de Aetara | If I See You in My Dreams | Увидеть тебя в моих мечтах OVA [1998, OVA, 3 эп.] DVDrip 480p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ему 24 года, он работает в крупной компании и... у него никогда не было девушки. Удивительно? Странно? Нет. Очень даже типичная ситуация, причем не только для Японии. Казалось бы - учеба в колледже или университете закончена, есть крыша над головой, и впереди ждет необъятное море возможностей и свободы, присущее взрослой жизни. Но трудовая будничная рутина быстро (   Читать дальше...   )Производство: студия J.C. StaffЖанр: комедия, романтика, драмаРежиссер: Ватанабэ ХиросиПеревод: NIMRODЯзык озвучки: #1: Русский; #2: ЯпонскийСубтитры: РусскиеПродолжительность: 3 эп. по 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBA96AA69BDA6510F2672EB1CD624C233EFD4C23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530073   (562171) от 02.08.2012
-
-Tonari no Totoro / My Neighbor Totoro / Мой сосед Тоторо [1988] BDRip 384 raw + rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переехав в деревню, две маленькие сестры Сацуки (старшая) и Мэй (младшая) глубоко внутри дерева обнаружили необыкновенный, чудесный мир, населённый Тоторо, очаровательными пушистыми созданиями, с которыми у девочек сразу же завязалась дружба. Одни из них большие, другие совсем крохотные, но у всех у них огромное, доброе сердце и магические способности совершать необыкновенные вещи, наподобие полётов над горами или взращивания огромного дерева за одну ночь! Но увидеть этих существ могут лишь дети, которые им приглянутся... Подружившись с сёстрами, Тоторо не только устраивают им воздушную экскурсию по своим владениям, но и помогают Мэй повидаться с лежащей в больнице мамой.Жанр: Приключения, комедия, сказка, драмаРежиссер: Хаяо МиядзакиПеревод: Многоголосый закадровый, Двухголосый закадровыйПродолжительность: 01:26:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3488C00CB2703BBD950FB0D719BD15D798853118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304684   (561159) от 27.05.2019
-
-Tetsuwan Birdy Decode: The Cipher | Birdy the Mighty Decode: The Cipher | Могучая Берди OVA-2 [2009, OVA] DVDrip 480p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дополнение к первому сезону Tetsuwan Birdy DecodeПроизводство: студия A-1 Pictures Inc.Жанр: приключения, фантастикаРежиссер: Аканэ КадзукиПеревод: Loki & DarkElfЯзык озвучки: #1: Русский; #2: Японский;Субтитры: РусскиеПродолжительность: 1 эп. по 27 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A02B9FA977F373BC37233379CB0797229CD5703
 ```
 
 https://mybot314.ru/tekegram_catalog/

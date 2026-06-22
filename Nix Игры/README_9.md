@@ -1,3 +1,29 @@
+###  Публикация: 1553146   (212904) от 02.07.2022
+
+(Linux) Factorio (2020) [Ru/Multi] (1.1.61) License GOG
+
+>>*Nix Игры
+>>Native *Nix Games
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Factorio – игра, в которой вы строите и обслуживаете фабрики. Вы будете добывать ресурсы, развивать технологии, создавать инфраструктуру, автоматизировать производство и сражаться с врагами. В начале игры вам предстоит валить лес, рыть шахты, строить конвейеры и роботов вручную, но вскоре фабрика превратится в мощный индустриальный комплекс с огромными солнечными (   Читать дальше...   )Тип издания: LicenseРазработчик: Wube Software LTDЖанр: Стратегия, Строительство, МенеджментЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:518F2D5F04ADD9BC4ED14113B917354BE1B2D72D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565764   (212043) от 25.07.2022
 
 (Linux) Pine (2019) [Ru/Multi] (Patch 7) License GOG
@@ -6,7 +32,7 @@
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212043.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212018.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211849.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211730.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207189.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206182.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198265.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191552.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191310.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191273.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190522.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190501.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188739.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188661.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_186680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186680.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184978.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170835.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158562.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158542.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158538.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152909.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149902.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149866.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147973.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146111.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45C9ACFD883C4F60FD87E27174AB869033776489
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970038   (142326) от 29.12.2015
-
-(Linux) Serious Sam 3: BFE (2012) [Ru/Multi] (3.0.3.0.233089/dlc) SteamRip
-
->>*Nix Игры
->>Native *Nix Games
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Serious Sam 3: BFE - это великолепное возвращение в золотой век шутеров с видом от первого лица, когда мужчины были мужчинами, укрытия были для трусов, а нажатие на курок сопровождалось огромными взрывами. В качестве приквела оригинальной инди-сенсации Serious Sam: The First Encounter, события в Serious Sam 3 происходят во время последней битвы за Землю против легионов (   Читать дальше...   )Тип издания: SteamRipРазработчик: CroteamЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B32F7A6398FD748612AD912F79B6077C6951CE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

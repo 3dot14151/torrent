@@ -1,3 +1,111 @@
+###  Публикация: 1846246   (1051233) от 06.01.2026
+
+Д.М. Лук | Кото-математика. От простого к сложному на пушистых примерах (2026) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1051233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кото-математика? Именно! В своей книге Дэниел М. Лук превращает скучные числа в захватывающие приключения, где каждый урок ведет... кот!
+Изучи теорему Муррфагора и научись вычислять лапотенузу. Узнай, почему не все коты «тупые»! Раздели 5 банок еды на 6 питомцев, используя египетские дроби. Проследи за котами Муррбоначчи, чье потомство и умение сворачиваться в спираль (   Читать дальше...   )Жанр: Литература для детей, популярная математикаПеревод: О. МорозоваИздательство: ПитерФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85C83AE742771237F803A9A80A93491BACCD51FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845004   (1050350) от 29.12.2025
+
+А.П. Доморяд | Математические игры и развлечения (1961) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классическим играм и развлечениям посвящена большая часть этой книги. В первых параграфах книги говорится о различных системах, счисления и о некоторых вопросах теории чисел, знание которых необходимо для понимания теории различных математических игр. Впрочем, для многих читателей эти параграфы могут представить и самостоятельный интерес. Теория отдельных игр изложена (   Читать дальше...   )Жанр: Занимательная математика, логические игры, головоломкиИздательство: Государственное издательство физико-математической литературыФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514D9D1CD3C64F4AC25AB545647123BE49D37FD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843960   (1049768) от 24.12.2025
+
+А.И. Шапиро | Физика в приборах. Пособие для 7-8 класса (2020) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карточки этого пособия с вопросами к ним подготовил знаменитый киевский учитель физики Анатолий Израилевич Шапиро.  Он использовал их на уроках как слайды для проектора.
+
+Мы собрали карточки в одну книжку, но книга не предполагает последовательного изучения. Её страницы можно копировать и раздавать школьникам по отдельности в том порядке, в котором они вписываются (   Читать дальше...   )Жанр: Учебное пособиеИздательство: Образовательные проектыФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E57D67C9F7D3568FDA480E4EB31D099A587498
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843963   (1049767) от 24.12.2025
+
+Т.А. Жуляева | Химия. Большой наглядный справочник школьника (2023) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049767.jpg" />
+</div>
+
+
+###  Подробнее
+
+В справочнике представлены основные разделы школьного курса химии:
+«Первоначальные химические понятия», «Теоретические основы химии», «Неорганическая химия», «Органическая химия», «Условия протекания и признаки химических реакций», «Расчёты по химическим формулам и уравнениям реакций», «Методы познания в химии». Материал сгруппирован по коротким рубрикам, таблицам (   Читать дальше...   )Жанр: Учебное пособиеИздательство: ЭксмоФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19DA9CF2AB106B1D8AEE810620DCFBE96248327A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843929   (1049668) от 23.12.2025
 
 С.В. Вахнина | Физика. Большой наглядный справочник школьника (2023) [PDF]
@@ -6,7 +114,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049668.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049184.jpg" />
 </div>
 
 
@@ -59,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049019.jpg" />
 </div>
 
 
@@ -85,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049018.jpg" />
 </div>
 
 
@@ -111,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047594.jpg" />
 </div>
 
 
@@ -137,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047592.jpg" />
 </div>
 
 
@@ -165,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047591.jpg" />
 </div>
 
 
@@ -191,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047178.jpg" />
 </div>
 
 
@@ -219,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047177.jpg" />
 </div>
 
 
@@ -247,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047175.jpg" />
 </div>
 
 
@@ -275,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047158.jpg" />
 </div>
 
 
@@ -303,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047155.jpg" />
 </div>
 
 
@@ -331,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045282.jpg" />
 </div>
 
 
@@ -359,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045182.jpg" />
 </div>
 
 
@@ -387,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044925.jpg" />
 </div>
 
 
@@ -413,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044738.jpg" />
 </div>
 
 
@@ -441,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044513.jpg" />
 </div>
 
 
@@ -469,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044368.jpg" />
 </div>
 
 
@@ -495,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043413.jpg" />
 </div>
 
 
@@ -523,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043093.jpg" />
 </div>
 
 
@@ -551,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043003.jpg" />
 </div>
 
 
@@ -577,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042960.jpg" />
 </div>
 
 
@@ -588,114 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AAC2AFE375A7B63F06C018BA687CE90A5790ACE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436914   (1042807) от 02.01.2021
-
-Алиса Ткачева | Наблюдаем и изучаем. Птицы (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какие бывают птицы? Где они живут и чем питаются? Куда и почему улетают на зимовку перелётные птицы и как справляются с холодом те, что остаются? Книга «Птицы» расскажет о жизни удивительных пернатых, которых мы часто видим на улицах или в парках, и позволит принять активное участие в их жизни.
-
-Множество интересных заданий и игр помогут лучше усвоить прочитанное, (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70878983775D9FDB265A257445F5A8809C24A339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436976   (1042805) от 02.01.2021
-
-Дмитрий Смирнов, Елена Хомич | Научно-популярная библиотека начальной школы. Кошки и котята (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хочешь завести кошку, или просто узнать, какие существуют породы этих замечательных домашних питомцев? Тогда смело открывай нашу книгу! На ее страницах найдется много информации об особенностях поведения разных кошек и правильном уходе за ними.
-
-Для младшего школьного возраста.Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6226E53214F054A568E6A09AB97448C91D0C2881
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436956   (1042804) от 02.01.2021
-
-Наталья Гончарук, Марина Почкина | Большая книга вопросов и ответов. Где? (2012) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042804.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой увлекательной книге собраны рассказы о мифах и легендах, о природе и географии, о памятниках культуры, о народах, обычаях, религии, о науке, изобретениях и открытиях, о спорте, играх и развлечениях на всех материках нашей Земли. Текст дополняют великолепные иллюстрации и карты. Здесь нет ни слишком сложных вопросов, ни непонятных ответов. Эта книга — интересное (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2496FA26414D00890F70C92E84C2FDBEA7A5F8A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436990   (1042802) от 02.01.2021
-
-Владимир Малов | А почему? Обо всём на свете (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042802.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге В.И. Малова - писателя-популяризатора, журналиста и ответственного редактора журнала "А почему?" - "Обо всём на свете" собраны ответы на самые интересные вопросы о науке, технике, природе, искусстве, которые только может задать юный почемучка: какое дерево самое высокое, сколько километров до ближайших звёзд, когда погаснет наше солнце, (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC9019FCFAA488BFB2DEB48DC32675E442DAE117
 ```
 
 https://mybot314.ru/tekegram_catalog/

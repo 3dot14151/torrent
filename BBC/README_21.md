@@ -1,3 +1,29 @@
+###  Публикация: 1414298   (386973) от 07.10.2020
+
+BBC. Тайны взросления / The Secret Life of Growing Up (2016) DVB (Серии 1-2 из 2)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Взросление – это самая удивительная трансформация. Вот мы милые и симпатичные пучки радости, и все нас любят. И вот нас уже распирает от эмоций так, что мы покрываемся пятнами, и все нас ненавидят. Ну, нам так кажется. Ученые только сейчас обнаруживают массу удивительных вещей, которые происходят с нами по мере того, как растут наши тела и формируются наши личности… (   Читать дальше...   )Производство: Великобритания, Oxford Scientific Films, BBC WorldwideЖанр: Документальный, научно-популярныйРежиссер: Люк УайлсПеревод: Двуголосый закадровый, профессиональный (Видеофильм ТВ)Субтитры: НетПродолжительность: 2х ~00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:081AA7C85B0D909B06B63112D341CF0BBD797A99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 536585   (380619) от 10.10.2020
 
 BBC: Что такое красота? / What is beauty? (2009) DVBRip
@@ -6,7 +32,7 @@ BBC: Что такое красота? / What is beauty? (2009) DVBRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380619.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ BBC. Британские времена года / The Great British Year (2013
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380224.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ BBC. Вселенная / Universe / Das Universum - Faszination Weltall (2022) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378582.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ BBC: Битва экзопланет / Battle of the exoplanets (2018) IPTVRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378358.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ BBC: Пингвин: Шпион под прикрытием / Penguins - Spy In 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377379.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ BBC: Пингвин: Шпион под прикрытием / Penguins - Spy In 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377373.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ BBC: Цивилизация / Civilisation (1969) BDRip [H.264/720p-LQ] (Сер�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372647.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ BBC. В краю муссонов: Народы муссонов / Wonders of th
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372586.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ BBC: Как преуспеть ... / How to Get Ahead (2014) HDTVRip [H.264/720p
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371468.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ BBC: Океанская одиссея / BBC: Deep Ocean (2006) DVDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_368330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_368330.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ BBC: Голубая планета (Голубая бездна) / The Blue Plan
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366431.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ BBC: Авиакатастрофа в Мюнхене / The Munich Air Disaster (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366049.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365203.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ BBC: Враги разума [2 серии] / The Enemies of Reason (2007) DVDRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364802.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362461.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ BBC: Начало и конец Вселенной / The Beginning and End of th
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359969.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357673.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ BBC: Калигула. Что это было / Caligula with Mary Beard (2013) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356141.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ BBC: Мари Тюссо. Восковая легенда / Madame Tussaud: A Le
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353700.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ BBC:Атлантика: Самый необузданный океан на Зе
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352889.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ BBC: Инопланетяне. Мозговой штурм / Aliens: The Big Thi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349706.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ BBC: Зачем нам Луна? / Do We Really Need the Moon? (2011) WEB-DL [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349700.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ BBC: Тайны атомной эры / Secret of Our Nuclrear Age (Britains Nuc
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346588.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ BBC: Волшебные числа: таинственный мир матема
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343842.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ BBC: Питомцы - дикие в душе / Pets: Wild at Heart (2016) HDTVRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343119.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ BBC: Питомцы - дикие в душе / Pets: Wild at Heart (2016) HDTVRi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEB96800D9337EFC6C9FF1797748FA01F92DFD2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257680   (342922) от 27.10.2018
-
-BBC: Гении современного мира / Genius Of The Modern World (2016) WEB-DL [H.264/1080p-LQ] (Серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342922.jpg" />
-</div>
-
-
-###  Подробнее
-
-19 век - эпоха бурных потрясений, время перемен в промышленности, науке и политике. Но самое главное - в мировоззрении. Это была пора смелых и рискованных идей, ознаменовавших возникновение нового мира. У его истоков стояли великие умы: Карл Маркс, Фридрих Ницше и Зигмунд Фрейд. Они жили в эпоху, когда рушились старые реалии, низвергались существующие режимы, а наука (   Читать дальше...   )Производство: Великобритания, ВВС Open University Partnership, Religion & Ethics Production SalfordЖанр: Документальный, история, исследованияРежиссер: Роб ГоулингПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: английскиеПродолжительность: 3 x ~00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9F80E7F5FAD7EFEB6C92D80A7A2D0DF4006E24D
 ```
 
 https://mybot314.ru/tekegram_catalog/

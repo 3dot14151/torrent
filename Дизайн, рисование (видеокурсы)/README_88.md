@@ -6,7 +6,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141434.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Grant Warwick | Mastering Lighting Lessons 1-4 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140602.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ CGMA, Clinton Crumpler | 3D UE4 Modular Environments - Модульные окр
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140544.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Digital-Tutors | Introduction to Houdini 15 (2015) PCRec [H.264/720p-LQ]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139549.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Michael Pavlovich | Intro To ZBrush 4R7 Part 2 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138906.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ CG Cookie, Jonathan Lampel | Учебный лагерь по моделиров
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138623.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Michael Pavlovich | Intro To ZBrush 4R7 Part 1 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138573.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Michael Pavlovich | Intro To ZBrush 4R7 Part 3 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138539.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ CGMA, Pete Zoppi | Создание персонажа для фильмов/с�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138073.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138037.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ CGMA, Dylan Mellott | Weapons and Props for Games (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137970.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137796.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Bloop Animation, Dillon Gu | Курс по анимации в Blender 2.83 / Bl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137750.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Enterclass, Сергей Курбатов | Тихая река (2023) WEB-DL [A
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137692.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ CG Fast Track | Быстрый путь в Substance Painter: Основы / Sub
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136643.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Vitaly Bulgarov | Character Design and Modeling for Next-Gen Games (2009) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136625.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ CG Fast Track | Искусство освещения в Blender 2.83 / The Art 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136621.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135161.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Domestika, Alexander Steenhorst | Drawing the Human Figure & Expressive Poses (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134453.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134398.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Hudozhnik Online, Полина Абдулаева | Практическая и�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134093.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ ArtStation, Florian Neumann | Post Apocalyptic Knife - Game Asset Tutorial (2022
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134081.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133706.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Udemy, Studio Wander | Complete Guide to Unreal Engine 5 : 3D Architecture & Des
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133623.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Stepik, Дмитрий Фокеев | Adobe After Effects 2023. С нуля до
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133567.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Bazanova Art, Ольга Базанова | Практика художника 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133389.jpg" />
 </div>
 
 

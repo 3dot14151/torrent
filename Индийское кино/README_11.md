@@ -6,7 +6,7 @@
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193557.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193537.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192933.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186169.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_185618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_185618.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184077.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181172.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173707.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169173.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167173.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164707.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164698.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160707.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159183.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159158.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157293.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157270.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155982.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152811.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152725.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151876.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146521.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145534.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139919.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138922.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137925.jpg" />
 </div>
 
 

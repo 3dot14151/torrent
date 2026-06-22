@@ -1,3 +1,29 @@
+###  Публикация: 1079702   (192812) от 02.09.2023
+
+Освобождение (1968-1971) BDRemux [H.264/1080p] (киноэпопея)
+
+>>Коллекции / *логии
+>>Отечественное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм пятый — «Последний штурм». Последние дни войны, штурм рейхстага, сражение за каждый метр, за каждый этаж — и, наконец, водружение Знамени Победы над рейхстагом. Раздались первые залпы Победы. Главные герои фильма встречаются у входа в рейхстаг...Производство: СССРЖанр: драма, мелодрама, военныйРежиссер: Юрий ОзеровАктеры: Николай Олялин, Михаил Ножкин, Фриц Диц, Валерий Носик, Ангелика Валлер, Хорст Гизе, Леонид Куравлёв, Анатолий Ромашин, Михаил Постников, Лариса ГолубкинаПродолжительность: 01:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAA5A6219D5D74E910D2607D96B9EF40446778BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332844   (170138) от 10.12.2020
 
 Северное сияние (2018-2020) WEB-DLRip [H.264] (фильм 1-9, серии 1-18 из 18) [Антология]
@@ -6,7 +32,7 @@
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170138.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166751.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162461.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127341.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120745.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114599.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114273.jpg" />
 </div>
 
 
@@ -198,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84213.jpg" />
 </div>
 
 
@@ -225,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78890.jpg" />
 </div>
 
 
@@ -251,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65651.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62681.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55228.jpg" />
 </div>
 
 
@@ -330,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41744.jpg" />
 </div>
 
 
@@ -357,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_34759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_34759.jpg" />
 </div>
 
 
@@ -383,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32798.jpg" />
 </div>
 
 
@@ -409,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32487.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29558.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26743.jpg" />
 </div>
 
 
@@ -488,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21273.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10067.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5597.jpg" />
 </div>
 
 

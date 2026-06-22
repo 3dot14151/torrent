@@ -6,7 +6,7 @@ Procreateschool | Postcard Профи (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30581.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ CGMA, David Mooy | Intro to Maya (2020) WEBRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30275.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Rebelway, Sina Mehralinia | Advanced Shading in Redshift (2024) WEBRip [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30036.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27886.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Udemy, Knowledge Hub | Adobe Illustrator 2025 Top Gear Master Course; Basic To P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27045.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Udemy, Leszek Pyrka | Master Camera movements in Blender - Create Awesome Videos
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26945.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Udemy, Krishan pathirana | Learn D5 Render Advance 2025 (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26917.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ The Gnomon Workshop, Josh Docherty | Modeling For Film & TV Hard-Surface Vehicle
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26403.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Abe Leal 3D | Complete Guide to Retopology (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26167.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Udemy, Edward Harding | Learn Architectural Design & Animation With Blender (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26110.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25805.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Coloso., LouLL_AroLL | 30 Days from 0 Skill to Pro 3D Artist with Daz & Blender 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25707.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Udemy, Logan Wiesen | Realistic 3D Character Creation By Logan Wiesen (2025) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25558.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Udemy, Marwan Sufyan | AutoCAD Architectural 3D Modeling (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25552.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Udemy, Ag Motion Designs | Cinema 4D & Redshift: Looping Animation Mastery (2025
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25372.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Domestika, Jonas Pfeiffer | Abstract Portrait Animation with Cinema 4D (2025) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25354.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Udemy, Rob Tuytel | Creating snow environments for Blender & Unreal (2025) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24947.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Udemy, 3D Tudor | 3D Trees with Blender Geometry Nodes (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24688.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Udemy, 3DRedBox Studio | Eco Bike 3D Modeling and Rendering: 3Ds Max to Vray | C
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24687.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Udemy, Businge Ismail | Houdini for every Artist (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24610.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Udemy, Billy McDaniel | Procedural City Generation in Unity C#: Grid-Based & Mod
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24593.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Udemy, Eric Giessmannl | Quill to Unreal Engine pipeline – VR animation for 3D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24582.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Udemy, Alex Cordebard | The Ultimate Blender 4.3 Low Poly Guide (2025) WEB-DL [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24504.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Udemy, Rafael Falconi | Creating Golden Hour Atmosphere to Cityscape in Photosho
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24383.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Udemy, David Nixon | Unreal Engine 5 for Games: Physics (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24321.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Udemy, Penny de Byl | Shader Development from Scratch with Cg - Unity 6 Compatib
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24294.jpg" />
 </div>
 
 

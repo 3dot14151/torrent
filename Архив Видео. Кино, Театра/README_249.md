@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544479.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544265.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544056.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543538.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543495.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543391.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543189.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543169.jpg" />
 </div>
 
 
@@ -206,6 +206,58 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365229   (542957) от 20.07.2011
+
+Раб мечты / Slave of Dreams (1995) VHSRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_542957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы узнаем о Йосифе (Пэсдар) и о том, как он прошел долгий и тяжелый путь от раба Патифара (Олмос) и до первого лица в Египте после фараона. Фильм отличается от прочих, снятых на подобные темы, художественностью и ярко выраженной манерой, от которой веет вечностью, предопределенностью судьбы и величем веры.Жанр: Исторический, ДрамаРежиссер: Роберт А. ЯнгАктеры: Эдвард Джеймс Олмос, Шерилин Фенн, Адриан Пасдар, Филип Ньюман, Надя Карина, Набил Шабан, Орсо Мария Гуэррини, Кеворк Маликян, Энтони Сэмюэл Шелби, Эмануэле Каруччи Витерби, Франческо Карнелутти.Перевод: Многоголосый закадровыйПродолжительность: 01:29:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FDF56D73B4C4B815C9B4AC5E7F8D8B967C823BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365571   (542864) от 20.07.2011
+
+Совсем не бабник / Cedar Rapids  (2011) [720p] BDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_542864.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того, как его коллега умирает от асфиксии во время акта самоудовлетворения, наивный провинциал из захолустья занимает его место в райцентре, теряя голову от соблазнов «большого города», постепенно выходя из раковины и раскрывая махинацию по отмывке денег с участием своего нанимателя.Жанр: КомедияРежиссер: Мигель АртетаАктеры: Эд Хелмс, Джон Си Райли, Энн Хеч, Исайя Уитлок мл., Стивен Рут, Кертвуд Смит, Алиа Шокат, Роб Кордри, Майк О’Мэлли, Сигурни Уивер..Перевод: Двухголосый-закадровый, любительскийФормат: MKVПродолжительность: 01:26:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1154037   (542792) от 29.07.2017
 
 Поле любви / Love Field (1992) HDTVRip [DVO]
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542792.jpg" />
 </div>
 
 
@@ -232,6 +284,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365618   (542643) от 20.07.2011
+
+Загнанный / The Hunted (2003) [H.264] BDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_542643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ушедший в отставку специалист по подготовке элитного спецназа Эл Ти Бонэм присоединяется к команде ФБР, идущей по следу жестокого убийцы. Неуловимый киллер, виртуозно владеющий боевым ножом, — один из самых одаренных учеников Эл Ти. Ему не нужен дом — в лесу он чувствует себя неуязвимым.
+ Ему не нужны деньги — все необходимое для жизни он может добыть сам. Ему не нужно оружие — в его руках палка или камень страшнее пулемета. Он идеальный воин, и только тому, кто обучил хладнокровного преступника мастерству убивать «быстро, аккуратно и эффективно», под силу остановить охотника на людей…Жанр: Боевик, Триллер, ДрамаРежиссер: Уильям ФридкинАктеры: Томми Ли Джонс, Бенисио Дель Торо, Конни Нильсен, Лесли Стефансон, Джон Финн, Хосе Суньига, Рон Кэнада, Марк Пеллегрино, Дженна Бойд и др.Перевод: Профессиональный (полное дублирование)Язык субтитров: РусскиеПродолжительность: 01:34:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F897E6B233BDBF6EDF259896A9AAD060D7A7A5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925093   (542559) от 05.08.2015
 
 Дэдпул / Deadpool (2016) WEBRip [H.264/720p] [Трейлер] [EN]
@@ -240,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542559.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542546.jpg" />
 </div>
 
 
@@ -292,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542449.jpg" />
 </div>
 
 
@@ -322,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542442.jpg" />
 </div>
 
 
@@ -348,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542361.jpg" />
 </div>
 
 
@@ -374,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542244.jpg" />
 </div>
 
 
@@ -400,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542240.jpg" />
 </div>
 
 
@@ -426,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542109.jpg" />
 </div>
 
 
@@ -452,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542026.jpg" />
 </div>
 
 
@@ -478,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542013.jpg" />
 </div>
 
 
@@ -504,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541947.jpg" />
 </div>
 
 
@@ -534,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541867.jpg" />
 </div>
 
 
@@ -560,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541833.jpg" />
 </div>
 
 
@@ -587,92 +666,13 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541827.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Состоятельные жители Мехико в панике: всего за шесть дней в городе пропали 24 человека! Бывшего агента ЦРУ Джона Кризи нанимают телохранителем девятилетней дочери промышленника Сэмюэля Рамоса, Питы Рамос. Поначалу Кризи с трудом терпит соседство не по годам развитой девочки. Но со временем они становятся друзьями. Кризи вновь почувствовал вкус к жизни, но все рушится, когда Питу похищают. Кризи клянется убить любого, кто втянут в похищение Питы. Теперь его никто не остановит...Жанр: Боевик, Триллер, КриминалРежиссер: Тони СкоттАктеры: Дензел Вашингтон, Дакота Фаннинг, Кристофер Уокен, Марк Энтони, Рада Митчелл, Джанкарло Джаннини, Рейчел Тикотин, Хесус Очоа, Микки Рурк, Анджелина ПелаезПеревод: Дублированный, профессиональный многоголосый, профессиональный двухголосый, авторский одноголосыйЯзык субтитров: Русские, английскиеПродолжительность: 02:26:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049758   (541805) от 06.09.2016
-
-Заклятие 2 / The Conjuring 2 (2016) BDRip [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на случае, с которым столкнулись практикующие исследователи паранормальных явлений Эд и Лоррэйн Уоррены. На этот раз вызов будет из северного пригорода Лондона, где семья, состоящая из четырех детей и матери-одиночки, подвергается нападениям потусторонних сил. Супругам предстоит выяснить, какова природа этих явлений, полтергейст ли это, или что-то другое, (   Читать дальше...   )Производство: США, Канада / Atomic Monster, Evergreen Media, New Line CinemaЖанр: Ужасы, Триллер, ДетективРежиссер: Джеймс ВанАктеры: Патрик Уилсон, Вера Фармига, Мэдисон Вульф, Фрэнсис О’Коннор, Лорен Эспозито, Бенжамин Хэй, Патрик МакОли, Саймон МакБерни, Мария Дойл Кеннеди, Саймон Делани, Франка Потенте, Боб Адриан, Робин Аткин Даунс, Бонни Ааронс, Хавьер Ботет, Стив КултерПеревод: Дублированный (iTunes)Язык субтитров: Русский (Forced), Русский (Full), Английский (Full)Продолжительность: 02:13:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C71B54AF387EFD061B59EB3B98FDD06FDC4AFBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531765   (541748) от 05.08.2012
-
-Морской бой / Battleship (2012) [1080p] BDRemux
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы посылаем сигналы в космос и ждем ответа. Но уверены ли мы, что хотим его получить? Что если пришельцы потенциально опасны? В 2009 году на конференции в Вашингтоне астронавт Эдгар Митчелл, побывавший на Луне, сделал сенсационное заявление о существовании внеземной жизни. Теперь мы знаем, контакт не просто возможен, он неизбежен!Жанр: Фантастика, Боевик, Триллер, Приключения, ВоенныйРежиссер: Питер БергАктеры: Лиам Нисон, Тейлор Китч, Александр Скарсгард, Бруклин Декер, Рианна, Джесси Племонс, Джон Белл, Питер МакНикол, Таданобу Асано, Джошуа ПенсПеревод: Одноголосый закадровый (Вячеслав Замез)Язык субтитров: Русские, АнглийскиеПродолжительность: 02:11:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531634   (541745) от 05.08.2012
-
-Хорошие поступки / Good Deeds (2012) [1080p] BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уэсли Дидс, успешный, богатый бизнесмен. Он всегда делал в своей жизни то, что от него обычно ожидали, будь то принятие руководства компанией его отца, или же планирование свадьбы с красавицей Натали. Однако, неожиданно для окружающих и себя самого, Уэсли встряхивается от рутины и повседневности после того, как встречает Линдси, мать-одиночку, работающую уборщицей в его офисном здании.
-Решив помочь женщине вновь встать на ноги после ряда жизненных неудач, герой вдруг начинает осознавать, что что-то изменилось внутри него самого. Что-то, что наконец-то даст мужчине сил обменять свою привычную жизнь на ту, что на самом деле всегда была ему нужна.Жанр: Драма, Мелодрама, КомедияРежиссер: Тайлер ПерриПродюсер: Ozzie Areu, Пол Холл, Тайлер ПерриАктеры: Тайлер Перри, Тэнди Ньютон, Гэбриэл Юнион, Эдди Сибриан, Брайан Дж. Уайт, Филисия Рашад, Беверли Джонсон, Ребекка Ромин, Джейми КеннедиПеревод: Одноголосый закадровыйЯзык субтитров: АнглийскиеПродолжительность: 01:50:06
 
 ## Скачать торент
 ```bash

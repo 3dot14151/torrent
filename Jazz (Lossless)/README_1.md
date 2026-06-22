@@ -6,7 +6,7 @@ Johnny Britt - Midnight In Paris (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049478.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Wolfgang Lohr - Snow Swing (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049463.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Katie Melua - Piece by Piece (2005) 2025 Remaster, Deluxe Edition [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047355.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Eric Reed - Everybody Gets The Blues (2019) Smoke Sessions Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046456.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Cyrus Chestnut - Kaleidoscope (2018) HighNote [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046354.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Sarah Vaughan - 1951 - 1952 (2003) Classics [FLAC|Lossless|tracks + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046284.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Karin Krog & John Surman With Ben Surman - Infinite Paths (2016) Live [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046282.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Sarah Vaughan - 1947 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046278.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Ken Colyer's Jazzmen & Chris Barber's Jazz Band - New Orleans To London & New Or
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046272.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Muggsy Spanier - And His Dixieland Band (1950 - 1952) 2007, Membrane Music [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046226.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Woody Herman & Erroll Garner - Music For Tired Lovers (1954) 2007, Membran Music
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046224.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ The Universal-International Orchestra - The Glenn Miller Story (1953, 1954) 2007
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046213.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Jeremy Wong - Hey There (2022) Cellar Music [FLAC|Lossless|tracks + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046212.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Karin Krog & Georgie Fame - On A Misty Night (2018) Odin [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046211.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Shorty Rogers & Andre Previn Orchestra - Collaboration (1954) 2007, Membran Musi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046154.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Lee Wiley - Music Of Manhattan (1951) 1998, Uptown Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046153.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Karin Krog & Bengt Hallberg - Cabin In The Sky (2011) Gazell [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046144.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Lee Wiley - Sings The Songs Of Rodgers & Hart And Arlen (1940 - 1943) 1986, Audi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046119.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ John Patitucci & Andy James - An Evening With John Patitucci & Andy James (2021)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046115.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Stan Getz - West Coast Jazz (1955) 2007, Membran Music [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046054.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Karin Krog & Steve Kuhn - Break Of Day (2014) Meantime Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046052.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Karin Krog - Oslo Calling (2008) [FLAC|Lossless|tracks + .cue] <Contemporary Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046051.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ The Charles Mingus Duo & Trio with Spaulding Givens & Max Roach - Debut Rarities
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045953.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Karin Krog - The Many Faces Of Karin Krog (1967 - 2017) 6CD, 2017, Odin [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045950.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Vic Dickenson & Urbie Green - Slidin' Swing (1954) 2007, Membran Music [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045878.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Karin Krog - Sweet Talker: The Best Of Karin Krog (1963 - 2005) 2CD, 2005, Grapp
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045874.jpg" />
 </div>
 
 

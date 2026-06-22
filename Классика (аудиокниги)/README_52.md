@@ -1,3 +1,58 @@
+###  Публикация: 1601033   (154115) от 29.12.2022
+
+Антон Чехов | Интеллигентное бревно (2022) [MP3, Джахангир Абдуллаев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нелегко мировым судьям. Особенно молодым. Особенно, когда в качестве обвиняемого вызывается добрый знакомый. Здесь свою последнюю рубашку отдашь, лишь бы стороны разошлись довольными. И того, увы, бывает мало.Жанр: КлассикаПродолжительность: 00:21:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4BBEA64968082902A3BA3BFD237FA88FF9DF1DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 356934   (154007) от 15.11.2023
+
+В.А. Соллогуб | Тарантас (2003) [MP3, Владимир Самойлов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Русская классика.
+Владимир Александрович Соллогуб (1882–1813) – русский чиновник (тайный советник), прозаик, драматург, поэт, граф.
+В 1837 В.А. Соллогуб дебютировал в «Современнике», с 1839 печатался в «Отечественных записках».
+В «светских» повестях («Лев», «Медведь», «Большой свет» и др.) с лёгкой иронией изобразил пустоту и суетность великосветского общества. (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Студия «АРДИС»Продолжительность: 06:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8E9C890D52F876E6E81573277B99DA2D802C2FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347150   (153945) от 22.12.2019
 
 Иван Бунин | Митина любовь [Сборник] (2019) [MP3]
@@ -6,7 +61,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153945.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153798.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153746.jpg" />
 </div>
 
 
@@ -89,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153700.jpg" />
 </div>
 
 
@@ -115,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153462.jpg" />
 </div>
 
 
@@ -142,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153385.jpg" />
 </div>
 
 
@@ -168,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153280.jpg" />
 </div>
 
 
@@ -194,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153247.jpg" />
 </div>
 
 
@@ -220,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152901.jpg" />
 </div>
 
 
@@ -246,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152549.jpg" />
 </div>
 
 
@@ -273,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152538.jpg" />
 </div>
 
 
@@ -299,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152478.jpg" />
 </div>
 
 
@@ -327,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152374.jpg" />
 </div>
 
 
@@ -353,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151990.jpg" />
 </div>
 
 
@@ -380,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151913.jpg" />
 </div>
 
 
@@ -407,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151855.jpg" />
 </div>
 
 
@@ -433,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151414.jpg" />
 </div>
 
 
@@ -461,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151356.jpg" />
 </div>
 
 
@@ -488,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151252.jpg" />
 </div>
 
 
@@ -514,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151133.jpg" />
 </div>
 
 
@@ -541,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150944.jpg" />
 </div>
 
 
@@ -567,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150848.jpg" />
 </div>
 
 
@@ -594,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150733.jpg" />
 </div>
 
 
@@ -622,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150624.jpg" />
 </div>
 
 
@@ -636,62 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BFCE8012B49BFE12AB8662A9C99F8736B933641
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677632   (150555) от 18.11.2023
-
-Бернард Шоу | Деревенское сватовство (Радиоспектакль) (2018) [MP3, Валентин Гафт, Елена Королёва]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Из архива «Гостелерадиофонда».
-Радиоспектакль по одноимённой пьесе Джордж Бернард Шоу (1856–1950).
-Общение, начавшееся на отдыхе – лёгкий флирт и болтовня, не исключающая игру ума, перерастает в нечто большее, даже если Он – «литератор и джентльмен», а Она – «скромная сельская девушка, впрочем оказавшаяся не такой уж простушкой...
-Отточенное действие, великолепные (   Читать дальше...   )Жанр: Зарубежная литература, классика, пьеса, комедияИздательство: ГостелерадиофондПродолжительность: 00:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5664C5E14E4E9F7690C41695A93F2BA26355E2DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677614   (150548) от 18.11.2023
-
-Бернард Шоу | Пигмалион (Аудиоспектакль) (2007) [MP3, Константин Зубов, Евгений Велихов, Евдокия Турчанинова и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Из архива «Гостелерадиофонда».
-Действие пьесы начинается летним вечером на площади Ковент Гарден в Лондоне. Внезапно хлынувший проливной дождь, захвативший врасплох пешеходов, заставил их укрыться под порталом собора Св. Павла. Среди собравшихся профессор фонетики Генри Хиггинс и исследователь индийских наречий полковник Пиккеринг, специально приехавший из (   Читать дальше...   )Жанр: Зарубежная литература, классика, пьеса, комедияИздательство: ИДДК, ГостелерадиофондПродолжительность: 01:29:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C3327E5D9C2C517A83355F5B32E06EC6564A2E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1865712   (1065578) от 17.04.2026
+
+Борис Акунин | Семейный альбом (Книга 7). На санях (2025) [MP3, Борис Акунин]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быть юным трудно во все времена, даже в относительно травоядные. Жить вообще трудно - и когда только входишь в жизнь, и когда из нее уходишь. Но по-настоящему интересно и важно только трудное - о чем, собственно, вся русская литература. Ту же линию продолжает и этот романЖанр: современная прозаИздательство: BABookПродолжительность: 12:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C1DCC46FE3F1BA6978D551E10EB64F640B6962
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865819   (1065513) от 17.04.2026
 
 Борис Акунин | Эгопроза (Книга 1). Метаморфозы (2026) [MP3, Борис Акунин]
@@ -6,7 +32,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065513.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065430.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065143.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065139.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064991.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064779.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064697.jpg" />
 </div>
 
 
@@ -198,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064579.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064072.jpg" />
 </div>
 
 
@@ -252,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064007.jpg" />
 </div>
 
 
@@ -279,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063291.jpg" />
 </div>
 
 
@@ -306,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063282.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062681.jpg" />
 </div>
 
 
@@ -358,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060736.jpg" />
 </div>
 
 
@@ -387,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059140.jpg" />
 </div>
 
 
@@ -413,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058836.jpg" />
 </div>
 
 
@@ -439,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057183.jpg" />
 </div>
 
 
@@ -467,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056868.jpg" />
 </div>
 
 
@@ -494,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056766.jpg" />
 </div>
 
 
@@ -520,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056100.jpg" />
 </div>
 
 
@@ -546,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056099.jpg" />
 </div>
 
 
@@ -572,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056098.jpg" />
 </div>
 
 
@@ -598,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055979.jpg" />
 </div>
 
 
@@ -624,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055794.jpg" />
 </div>
 
 
@@ -651,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055164.jpg" />
 </div>
 
 
@@ -662,32 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13871154984B01D464A6878610F5515B93CE9F23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850085   (1054310) от 26.01.2026
-
-Андрей Артёмов | Особый порядок (2023) [MP3, Кирилл Петров]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054310.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данную книгу вошли произведения художественной прозы: роман «Особый порядок», повести «Лунные рассветы» и «Близкие подруги», а также избранные рассказы.Жанр: Современная русская литератураИздательство: Нигде не КупишьПродолжительность: 06:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D98FDE5396B6A50C9E12BD8A2E04B59ABDB651E
 ```
 
 https://mybot314.ru/tekegram_catalog/

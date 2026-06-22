@@ -1,3 +1,30 @@
+###  Публикация: 1044699   (468220) от 01.10.2016
+
+Bananya | Бананя [2016, TV, 13] HDTV 720p Hi10p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бананя - загадочный котик в банановой кожуре. Живет он среди настоящих бананов, и никто никогда не видел, что прячется под кожурой. А когда никого нет рядом, Бананя тихонько играет и проказничает. Бананя обожает игры и сладости и мечтает стать стильным шоколадным бананом.
+© animespiritЖанр: комедияРежиссер: Ятатэ Кё / Yatate Kyou / 矢立恭Продолжительность: 13 серий по 3 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85932245F3FEA7A31A3E79624B2D4BC79E3B3E25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944071   (468107) от 01.10.2016
 
 Onsen Yousei Hakone-chan / Young Hot Spring Fairy Hakone-chan / Юный дух горячего источника Хаконе-тян [2015, TV, 13] WEB-DLRip 720p raw
@@ -6,7 +33,7 @@ Onsen Yousei Hakone-chan / Young Hot Spring Fairy Hakone-chan / Юный дух 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468107.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ Totsukuni no Shoujo (2022) | Девочка из Чужеземья (OVA-2) [202
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468016.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ Days | Дни [2016, TV, 24 из 24] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466550.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ Mawaru Penguindrum / Крутящийся пингвиний барабан [201
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466461.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ Meitantei Conan / Detective Conan / Детектив Конан [1996, TV, 1-452
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466052.jpg" />
 </div>
 
 
@@ -141,7 +168,7 @@ Okusama wa Mahou Shoujo | Madam is a Magical Girl | Замужняя девуш�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465879.jpg" />
 </div>
 
 
@@ -169,7 +196,7 @@ Legend of the Galactic Heroes: My Conquest is the Sea of Stars / Легенда 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465845.jpg" />
 </div>
 
 
@@ -197,7 +224,7 @@ Ajin | Полулюди [2016, TV, 13] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465810.jpg" />
 </div>
 
 
@@ -223,7 +250,7 @@ Mashiro-iro Symphony: The Color of Lovers / Белоснежная симфон�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465501.jpg" />
 </div>
 
 
@@ -251,7 +278,7 @@ Mashiroiro Symphony: The Color of Lovers / Белоснежная симфони
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464200.jpg" />
 </div>
 
 
@@ -279,7 +306,7 @@ Ore, Twintail ni Narimasu. | Gonna Be the Twin-Tail!! | Я, два хвоста 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464094.jpg" />
 </div>
 
 
@@ -305,7 +332,7 @@ Itsuka Tenma no Kuro Usagi: Kokoro Utsuri no Toukoubi - School Attendance Day | 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464078.jpg" />
 </div>
 
 
@@ -332,7 +359,7 @@ Ore ga Ojou-sama Gakkou ni "Shomin Sample" Toshite Gets-sareta Ken | Прост�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463950.jpg" />
 </div>
 
 
@@ -358,7 +385,7 @@ Kurokami The Animation | Black God | Тёмная богиня [2009, TV, 23 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463936.jpg" />
 </div>
 
 
@@ -384,7 +411,7 @@ Gekijouban Hibike! Euphonium / Sound! Euphonium The Movie / Играй, эуфо
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463889.jpg" />
 </div>
 
 
@@ -411,7 +438,7 @@ Ore ga Ojou-sama Gakkou ni "Shomin Sample" Toshite Gets-sareta Ken | Прост�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463820.jpg" />
 </div>
 
 
@@ -437,7 +464,7 @@ Nozo x Kimi | Нодзоми и Кимио [2014, OVA, 3 из 3] DVDRip 576p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463809.jpg" />
 </div>
 
 
@@ -463,7 +490,7 @@ Devilman: Tanjou Hen / Devilman - The Birth / Человек-дьявол OVA-1 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463754.jpg" />
 </div>
 
 
@@ -489,7 +516,7 @@ Amon Devilman Mokushiroku / Amon: The Apocalypse of Devilman / Амон: Апо�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463747.jpg" />
 </div>
 
 
@@ -515,7 +542,7 @@ Danganronpa 3 Zetsubou Hen | Danganronpa 3: The End of Hope's Peak High School -
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463613.jpg" />
 </div>
 
 
@@ -541,7 +568,7 @@ Danchigai / Big Difference / Большая разница [2015, TV, 12 + OVA] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462386.jpg" />
 </div>
 
 
@@ -567,7 +594,7 @@ Akai Koudan Zillion | Red Photon Zillion | Красный фотон Зилли�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462348.jpg" />
 </div>
 
 
@@ -593,7 +620,7 @@ Akai Koudan Zillion: Utahime Yakyoku | Red Photon Zillion: Burning Night | Кр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462195.jpg" />
 </div>
 
 
@@ -619,7 +646,7 @@ Gundam G no Reconguista / Гандам: Возвращение на G [2014, TV,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461677.jpg" />
 </div>
 
 
@@ -645,7 +672,7 @@ Gekijouban Hibike! Euphonium | Sound! Euphonium The Movie | Играй, эуфо
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461628.jpg" />
 </div>
 
 
@@ -657,32 +684,6 @@ Gekijouban Hibike! Euphonium | Sound! Euphonium The Movie | Играй, эуфо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3225873233E133E6E804AB8C89CF74D6B4550EDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 120644   (461624) от 09.09.2020
-
-Aa! Megami-sama! OVA / Ah! My Goddess! OVA / Моя богиня! OVA [1993, 5 эп.] DVDRip 10bit 576p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Студент первого курса Кеити Морисато всего лишь набрал телефонный номер, собираясь заказать себе обед на дом, но не успел он повесить трубку, как из зеркала на стене появилась девушка, назвавшаяся богиней Верданди. Оказалось, что Кеити дозвонился в службу "Божественной Помощи", сотрудники которой - богини - предлагают нуждающимся в помощи людям исполнить (   Читать дальше...   )Производство: AICЖанр: комедия, романтика, фэнтези, драмаРежиссер: Года ХироакиЯзык озвучки: ЯпонскийСубтитры: RU SRTФормат: MKV DVDRipПродолжительность: 5 эп. по 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EDC850A6B83D5A5D895C0973511C800FB5839D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

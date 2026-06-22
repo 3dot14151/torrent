@@ -6,7 +6,7 @@ Lectoroom, Мария Павлова | Старичок с воробьями (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035542.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Gnomon Workshop, Pawel Margacz | Creating Stylized VFX in Unreal Engine 5 (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035521.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Syd Mead | Airship Arrival (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035438.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Feng Zhu | The Techniques of Feng Zhu Vol 1-3 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035430.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Shane Hurlbut | Experience Lighting Masterclass (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035427.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Shannon Thomas, Paul 'BirD' Warzecha, Michael Vicente | Presentation Blizzard En
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035426.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Lynda, David Andrade | Тренинг по основам Blender 2.91 / Blender
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035424.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Jonathan Lam | Design Isometric Environments for Games (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035418.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Van Arno | Figure Fundamentals Volume 1 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035405.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Glenn Vilppu | Drawing Manual 1. Gesture (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035382.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ CG Cookie | Уроки по 3D моделированию в Blender / Blender T
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035340.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Knower School ,Дмитрий Смирнов | Курс художественн
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035301.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035252.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Knower School, Дмитрий Смирнов | Курс по созданию м
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035035.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Smirnov School, Марина Пахомова | Рисование в Procreate 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034720.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034551.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034324.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034147.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034103.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Emiel Sleegers | 3D game asset creation: Fire hydrant (2013) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033967.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Eric Keller | Maya Viewport 2.0 and Shader FX (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033958.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Stanislav Poritskiy | Modeling a Detailed Ship in Maya (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033950.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Wes McDermott | Substance Painter 2019 Essential Training (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033941.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Andy Beane | Maya: Advanced Modeling (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033914.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ James Schauf | Vehicle Modeling for Production (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033911.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033875.jpg" />
 </div>
 
 

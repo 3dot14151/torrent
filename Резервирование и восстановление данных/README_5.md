@@ -6,7 +6,7 @@ RS Partition Recovery 3.1 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702996.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Starus Partition Recovery 3.1 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701170.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Aiseesoft Data Recovery 1.0.12 RePack by вовава [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700438.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Magic Photo Recovery 4.7 (Commercial Edition) RePack by вовава [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700316.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ DAEMON iTools 1.0.0.36 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696847.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Amazing Any Data Recovery 8.8.8.9 RePack by вовава [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696639.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ iCare Data Recovery Pro 8.1.4 RePack by вовава [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691049.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Magic Photo Recovery 4.9 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690326.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Magic FAT Recovery 3.1 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688314.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Magic Word Recovery 2.8 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686182.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Magic Excel Recovery 2.8 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686174.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Magic NTFS Recovery 3.1 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686044.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Tenorshare Any Data Recovery Pro 6.4.0 RePack by вовава [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684676.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677911.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677006.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ MiniTool ShadowMaker Pro 3.1.1.2 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673942.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ O&O DiskImage Professional + Workstation + Server Edition 14.0 Build 321 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650251.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ DiskDigger 1.20.12.2767 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644695.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Rollback Rx Professional 10.3.Build.2700482570 RePack by Kindly [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641138.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ DATALABS unCHK free 1.0 Portable [Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631265.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Acronis True Image 2017 New Generation 21.0.6209 RePack by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624998.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Acronis True Image 2017 20.0.8058 RePack by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622999.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Acronis True Image 2017 New Generation 21.0.6209 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621219.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Handy Recovery v5.5 Final + Portable [2012,x86/x64,Eng]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_612499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_612499.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ FileRestorePlus 3.0.19.415 RePack (& Portable) by TryRooM [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606441.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ R-Studio Technician 9.0 Build 190312 RePack (& portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603868.jpg" />
 </div>
 
 

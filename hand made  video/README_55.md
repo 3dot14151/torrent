@@ -1,3 +1,29 @@
+###  Публикация: 808190   (588160) от 31.07.2014
+
+Чужой / Alien (1979-1997) BDRip [H.264/1080p-LQ] [hand made 60fps] [Theatrical cut] [Квадрология]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: СШАЖанр: Фантастика, Ужасы, БоевикРежиссер: Жан-Пьер ЖёнеАктеры: Сигурни Уивер, Вайнона Райдер, Доминик Пинон, Рон Перлман, Гари Дурдан, Майкл Уинкотт, Дж.Э. Фримен, Лиленд Орсер, Брэд Дуриф, Дэн ХедайяПеревод: ДублированныйЯзык субтитров: Русский (полные), Английский (полные)Продолжительность: 01:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE14BC8B67A563E337B3E16366B031C71983DF00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914255   (587872) от 14.07.2015
 
 Одинокие / Lonesome (1928) BDRip [H.264/720p] [hand made colored]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587872.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_587321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_587321.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587185.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586422.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586418.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586379.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586371.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586148.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_585612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_585612.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585241.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_585191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_585191.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585163.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584946.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584206.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583237.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582219.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581400.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_581347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_581347.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580443.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580350.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_580287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_580287.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579880.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578339.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577410.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576383.jpg" />
 </div>
 
 
@@ -645,33 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF1996F606D065ECF8F511AFCF51FE7C7093E74A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 812029   (576206) от 11.08.2014
-
-Тройной форсаж: Токийский Дрифт / The Fast and the Furious: Tokyo Drift (2006) BDRip [720p] [hand made 48fps]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шон Босуэлл — одинокий парень, который хочет казаться профи уличных гонок. Он бесшабашно гоняется по улицам города, пытаясь убежать от жизненных невзгод и наживая себе врагов среди местных властей. Когда Шону грозит тюрьма, его от греха подальше отсылают к отцу — профессиональному военному, который служит на военной базе в Японии.
-В незнакомой стране, живущей по (   Читать дальше...   )Производство: США, Германия / Universal Pictures, Original FilmЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Джастин ЛинАктеры: Лукас Блэк, Бау Вау, Санг Кенг, Брайан Ти, Натали Келли, Брайан Гудман, Джейсон Дж. Тобин, Кейко Китагава, Сонни Чиба, Леонардо НамПеревод: Профессиональный (полное дублирование)Субтитры: вшитые не отключаемые форсированныеЯзык субтитров: РусскийПродолжительность: 01:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E446E2F094A6B0CBF2B4A41837CBEBF54D14FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

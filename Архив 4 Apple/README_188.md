@@ -6,7 +6,7 @@ Rhinoceros 7 v7.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796228.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Alien Skin Exposure X3 Bundle 3.0.6.109 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796083.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ PowerPhotos 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796069.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ CaptureGRID 4 v4.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796068.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ PullTube 1.4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796067.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ SQLPro Studio 2020.48 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796066.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ URL Manager Pro 5.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796064.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Valentina Studio Pro 10.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796062.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796061.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ ReadKit 2.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796060.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Movist 2.1.12 (build 107) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796059.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Microsoft Office Standard 2016 v16.9 (64-bit) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795999.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ FigrCollage 3.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795991.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ RAW Power 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795988.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Get Backup Pro 3 v3.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795987.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Coherence X 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795984.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Yate 5 v5.1.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795983.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Hype 4 Pro v4.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795982.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Path Finder 9.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795981.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ TinkerTool System 6 v.689 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795974.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Downie 4.0.12 (Build 4111) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795973.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Smooze 1.9.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795972.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Tuxera NTFS 2021 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795940.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Capto – Screen Recording, Screen Captures, and Editing 1.2.17 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795911.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Rhinoceros 6 v6.26.20147 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795882.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Celemony Melodyne Studio 5 v5.0.0.048 STANDALONE, VST, VST3, DPM, AU [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795878.jpg" />
 </div>
 
 

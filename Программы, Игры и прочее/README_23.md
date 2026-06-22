@@ -1,3 +1,30 @@
+###  Публикация: 948152   (1036781) от 24.01.2021
+
+FPse для Android v11.212 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036781.jpg" />
+</div>
+
+
+###  Подробнее
+
+FPSE для Android является самой, быстрый и наиболее совместимы PSone эмулятор для карманных устройств. (Также называется PSX PS1, или Playstation 1)
+FPSE способен отображать все PSOne игры в высоком разрешении, используя OpenGL, который дает выдающуюся  графику!Тип издания: Пиратка (Paid)Релиз состоялся: 29 декабря 2019 гРазработчик: Schtruck & LDchenПоддерживаемая ОС: Android 2.1 +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2D41B486D2EAD23213A6CF2B90E1B379DECD5BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442142   (1036773) от 24.01.2021
 
 Baldur's Gate: Enhanced Edition v2.5.17.0 [Ru/En]
@@ -6,7 +33,7 @@ Baldur's Gate: Enhanced Edition v2.5.17.0 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036773.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Constellation Eleven v1.28 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036521.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ LocalCast v33.1.2.8 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036517.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ Drive Ahead! v3.2.0 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036510.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ Hill Climb Racing 2 v1.42.1 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036502.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ FRACTER v1.1.1 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035962.jpg" />
 </div>
 
 
@@ -162,7 +189,7 @@ Galaxy Genome v11.0.7 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035954.jpg" />
 </div>
 
 
@@ -188,7 +215,7 @@ Mindustry v6-official-122.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035929.jpg" />
 </div>
 
 
@@ -214,7 +241,7 @@ DailyArt - Daily Dose of Art v2.9.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035834.jpg" />
 </div>
 
 
@@ -240,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035713.jpg" />
 </div>
 
 
@@ -267,7 +294,7 @@ Selena v0.2.18 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035704.jpg" />
 </div>
 
 
@@ -293,7 +320,7 @@ Voice Training / Голосовая тренировка ver.Autoscroll Fix (120
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035672.jpg" />
 </div>
 
 
@@ -322,7 +349,7 @@ Solid Explorer File Manager v2.8.8 Full [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035654.jpg" />
 </div>
 
 
@@ -351,7 +378,7 @@ Brain Test 2: Хитрые рассказы v0.155 [Ru/Multi] (обновляе�
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035627.jpg" />
 </div>
 
 
@@ -380,7 +407,7 @@ Cut Paste Photos v9.10.3 Pro [Ru/En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035604.jpg" />
 </div>
 
 
@@ -406,7 +433,7 @@ Hockey All Stars v1.5.4.365 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035395.jpg" />
 </div>
 
 
@@ -432,7 +459,7 @@ Family Island v202101.1.10636 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035392.jpg" />
 </div>
 
 
@@ -458,7 +485,7 @@ Plague M.D. v3.0.7 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035131.jpg" />
 </div>
 
 
@@ -484,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035124.jpg" />
 </div>
 
 
@@ -510,7 +537,7 @@ Photo Grid - Collage Maker Premium v7.90 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035058.jpg" />
 </div>
 
 
@@ -536,7 +563,7 @@ Point Blur v7.1.7 [En/Ru] - Обработка размытия фотограф
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034912.jpg" />
 </div>
 
 
@@ -562,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034889.jpg" />
 </div>
 
 
@@ -591,7 +618,7 @@ LibriVox AudioBooks v2.7.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034854.jpg" />
 </div>
 
 
@@ -617,7 +644,7 @@ PortraitAI - Аватар эпохи Ренессанса v1.3.11 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034823.jpg" />
 </div>
 
 
@@ -643,7 +670,7 @@ Fake GPS Joystick & Routes Go v1.6.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034626.jpg" />
 </div>
 
 
@@ -654,33 +681,6 @@ Fake GPS Joystick & Routes Go v1.6.1 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46E3521785368D61F0C5E19EEAC97929A179D9E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432309   (1034546) от 01.02.2021
-
-WEATHER NOW v0.3.40 Premium [Ru] - прогноз погоды, метео-радар и виджеты
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главными особенностями программы прогноза погоды WeatherNow являются домашний экран и страница прогноза с графиками на 48 часов и 15 дней, а также анимированные погодные карты.
-На домашнем экране вы сможете найти информацию о выбранном местоположении, локальном времени и реальной погоде с детальными погодными данными, ну и конечно же, бесподобное по красоте, трехмерное (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 23 октября 2020 г.Разработчик: WEATHER NOWПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC63931746780D7533FEB5F39D5922F1D16710A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

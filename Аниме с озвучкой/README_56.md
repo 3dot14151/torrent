@@ -1,3 +1,82 @@
+###  Публикация: 1753381   (103862) от 04.10.2024
+
+Переродившись в аристократа, я стану успешным благодаря навыку оценки [ТВ-1] | Tensei Kizoku, Kantei Skill de Nariagaru [2024, TV, 12 из 12] BDRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычно попаданцам в другой мир достаётся огромное богатство, высокое положение в обществе или, на худой конец, какая-нибудь полезная способность.
+Однако переродившемуся Арсу Ловенту с этим не повезло: хоть он и стал дворянином, но не слишком родовитым, а искусного владения мечом или великого таланта к магии ему не подвезли. К тому же страна, в которую его забросило, (   Читать дальше...   )Производство: Япония / Студия Studio MotherЖанр: приключения, фэнтезиРежиссер: Като ТакаоЯзык озвучки: Русский (AniLibria), (Anything Group), (Dream Cast); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6576B4B1D5B5FE0DCBAEB1A4244066D68B8078E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822822   (102697) от 08.10.2025
+
+Ванпанчмен [ТВ-3] | One Punch Man 3 [2025, TV, 1 SP] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Онгоинги с озвучкой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102697.jpg" />
+</div>
+
+
+###  Подробнее
+
+В каждом деле есть те, кто занимаются им просто ради удовольствия, а также те, кто делает это лучше всех других. Ну а Сайтама относится и к тем, и к другим. Он сильнейший герой, но при этом геройствует он просто веселья ради. Одна беда — Сайтама ну просто слишком силён и любого противника выносит с одного удара, отчего совершать подвиги становится до смерти скучно. (   Читать дальше...   )Производство: Япония / Студия J.C. StaffЖанр: Приключения, комедия, фэнтезиРежиссер: Нагай СимпэйЯзык озвучки: Русский (AniLiberty); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 13 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:654D9F7DE48C992931BCD8E795F0DFCA75E104DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490406   (102552) от 01.05.2012
+
+Naruto Shippuuden: Movie 8. Blood Prison / Наруто Ураганные хроники: Фильм 8. Тюрьма крови [2011] WEB-DLRip 480 raw rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102552.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном фильме Наруто объявляют виновным в убийстве джоунинов Скрытого Камня и Тумана, а так же в нападении на Четвёртого Райкаге. Далее он оказывается в тюрьме где ожидает исполнения приговора - лишения своих способностей шиноби.Жанр: Приключения, комедия, боевые искусства, сёнэнРежиссер: Датэ ХаятоОзвучка: Любительский (одноголосый)Продолжительность: 01:56:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67F6A58E62021BC0DC67521574868C226DD833F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822697   (101675) от 07.10.2025
 
 Ansatsusha de Aru Ore no Status ga Yuusha yori mo Akiraka ni Tsuyoi Nodaga | My Status as an Assassin Obviously Exceeds the Hero's | Мoй стaтус убийцы oчeвиднo прeвoсхoдит гeрoйский [2025, TV, 01 и ...
@@ -6,7 +85,7 @@ Ansatsusha de Aru Ore no Status ga Yuusha yori mo Akiraka ni Tsuyoi Nodaga | My 
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101675.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101016.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100964.jpg" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100890.jpg" />
 </div>
 
 
@@ -112,7 +191,7 @@ Mugen Gacha 9999! | Backstabbed in a Backwater Dungeon! | Бeскoнeчнaя гa
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100862.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100857.jpg" />
 </div>
 
 
@@ -164,7 +243,7 @@ Ji Jia Shou Shen: Baolie Feiche 4 | Screechers Wild 4! | Дикие Скриче
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100618.jpg" />
 </div>
 
 
@@ -191,7 +270,7 @@ Nageki no Bourei wa Intai Shitai TV-2 | Let This Grieving Soul Retire! 2 | Пл�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99146.jpg" />
 </div>
 
 
@@ -217,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99145.jpg" />
 </div>
 
 
@@ -243,7 +322,7 @@ Chuu Bra!! / Chu-Bra!! / Чу-Бра!! [2010, TV, 12] BDRip 720p raw + rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86186.jpg" />
 </div>
 
 
@@ -269,7 +348,7 @@ Gokusen / Гокусэн [2004, TV, 13 из 13] DVDrip 544p raw + rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82985.jpg" />
 </div>
 
 
@@ -298,7 +377,7 @@ Exaella / Эксэлла [2011, OVA, 4] DVDRip 480p raw + eng + rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79703.jpg" />
 </div>
 
 
@@ -324,7 +403,7 @@ Kanokon - The Girl Who Cried Fox / Kanokon / Канокон [2008, TV, 12+12+2] 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77036.jpg" />
 </div>
 
 
@@ -352,7 +431,7 @@ Re-Main | Ре-Мейн [2021, TV, 12 из 12 эп.] BDRip 1080p HEVC 10-bit raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68608.jpg" />
 </div>
 
 
@@ -379,7 +458,7 @@ Loop 7-kaime no Akuyaku Reijou wa, Moto Tekikoku de Jiyuukimama na Hanayome Seik
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67417.jpg" />
 </div>
 
 
@@ -405,7 +484,7 @@ Super Lovers II | Больше, чем возлюбленные 2 [2017, TV, 10 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67388.jpg" />
 </div>
 
 
@@ -431,7 +510,7 @@ Super Lovers OVA | Больше, чем возлюбленные OVA [2017, OVA,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67333.jpg" />
 </div>
 
 
@@ -457,7 +536,7 @@ Boku no Tonari ni Ankoku Hakaishin ga Imasu | A Destructive God Sits Next to Me 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66931.jpg" />
 </div>
 
 
@@ -483,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65653.jpg" />
 </div>
 
 
@@ -509,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65480.jpg" />
 </div>
 
 
@@ -536,7 +615,7 @@ Choujigen Game Neptune The Animation | Hyperdimension Neptunia - The Animation |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65144.jpg" />
 </div>
 
 
@@ -562,7 +641,7 @@ Kimi wa Houkago Insomnia | Insomniacs After School | Бессонница пос
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64911.jpg" />
 </div>
 
 
@@ -588,7 +667,7 @@ Oshi no Ko | Звёздное дитя [ТВ-1] [2023, TV, 11 из 11] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62814.jpg" />
 </div>
 
 
@@ -601,85 +680,6 @@ Oshi no Ko | Звёздное дитя [ТВ-1] [2023, TV, 11 из 11] BDRip 108
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02866B142B0428A838F5045557AC8165A2943CF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707420   (62742) от 16.03.2024
-
-Urusei Yatsura (2022) | Lum, the Invader Girl | Несносные пришельцы (2022) [2022-2023, TV, 23 из 23] WEBRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Токио крушат динозавры? Во всём виноват Атару Моробоши!
-Перед нами ремейк известного комедийного сериала восьмидесятых. О пришельцах, фантастических неприятностях простого школьника и любовном треугольнике! Однажды на нашу планету прибыли пришельцы О́ни и захотели поработить человечество. Однако они согласились остановить вторжение, если человек, выбранный их (   Читать дальше...   )Производство: Япония, David ProductionЖанр: приключения, комедия, романтика, пародияРежиссер: Такахаси ХидэяПеревод: AnilibriaОзвучка: Gomer, Itashi, Lupin, NeoNoirЯзык озвучки: Японский и русскийСубтитры: РусскиеПродолжительность: 23 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1440E1DD9798D8BAFF50D3F00625021D5093F01F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707543   (62564) от 18.03.2024
-
-Lookism | Лукизм [2022, ONA, 8 из 8] WEBRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пак Хён-сок — пухлый и некрасивый старшеклассник, над которым регулярно издеваются в школе. Однажды, твердо решив начать новую жизнь, парень вдруг становится подтянутым красавчиком. Заполучив способность перемещаться между двумя телами, Хён-сок пытается разобраться в причинах этого странного свойства, а также обрести самого себя.Производство: Южная Корея, Studio MirЖанр: Экшен, драма, сверхъестественное, комедияРежиссер: Ильхан КванПеревод: Михаил ПоповЯзык озвучки: Корейский и русскийСубтитры: РусскиеПродолжительность: 1-7 эпизоды - 24 мин, 8 эпизод - 30 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FB1E1DB342FA389526C0AD5AA56CA934C11A863
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690318   (62401) от 20.03.2024
-
-Пушистый рай | Isekai de Mofumofu Nadenade Suru Tame ni Ganbattemasu. | Fluffy Paradise [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двадцати семи летняя офисная работница Мидори умерла от переутомления, так и не успев насладиться всеми радостями жизни. Но вдруг перед ней появляется сам Бог и предлагает ей переродиться в ином мире. И делает он это не из жалости и не из доброты душевной, а чтобы ответить на вопрос: заслуживает ли человечество и дальше продолжать своё существование. Взамен же он (   Читать дальше...   )Производство: Япония / Студия EMT SquaredЖанр: Повседневность, фэнтезиРежиссер: Китамура ДзюнъитиЯзык озвучки: Русский (AniLibria.TV); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:359EED14D57198B7F346696445A3E46C905A99BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

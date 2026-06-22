@@ -1,3 +1,108 @@
+###  Публикация: 1204777   (783750) от 09.02.2018
+
+Интервью Натальи Поклонской Газета.ru (05.02.2018) WEB-DLRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Депутат Государственной Думы России Наталья Поклонская рассказала в эксклюзивном интервью писателю и колумнисту издания «Газета.Ru» Аурену Хабичеву о ситуации на Украине, фильме «Матильда», о предстоящих выборах и отношении к кандидатам в президенты России, о своих любимых книгах и многом другом. Полная версия.Производство: Россия, АО «Газета.Ру»Жанр: ПолитикаПродолжительность: 00:29:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E4F589D6B16711B0375D7FEAEBDBBE12D34D71C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205442   (783493) от 10.02.2018
+
+Беседа с Евгением Федоровым (27.01.2018) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783493.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гостях у депутата Государственной Думы России, координатора НОД Евгения Федорова общественная организация «Федерация ветеранов спорта». Темы беседы: кто управляет миром, существует ли мировое правительство; как работает управление однополярным миром; почему бизнес не хочет возвращать капиталы в Россию; как работает низкая ключевая ставка; «государство-убежище» (   Читать дальше...   )Производство: Телевидение Национально-Освободительного ДвиженияЖанр: ПолитикаПродолжительность: 02:01:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55809DD24D1E7F7076813DC3DC310CD824447ED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205582   (783429) от 10.02.2018
+
+Презентация книги Натальи Поклонской "Преданность Вере и Отечеству" (08.02.2018) WEB-DLRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783429.jpg" />
+</div>
+
+
+###  Подробнее
+
+8 февраля 2018 г. в книжном магазине «Библио-Глобус» состоялась презентация книги депутата Государственной Думы РФ Натальи Поклонской «Преданность Вере и Отечеству» (издательство «Книжный мир»).
+Книга «Преданность Вере и Отечеству» позволит читателям лучше узнать и оценить Наталью Поклонскую как юриста, политика, общественного деятеля и православного человека, не (   Читать дальше...   )Производство: Россия, «День-ТВ»Жанр: ПолитикаПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:699DB6BFB6CDE0E7FEFE25537E1D3FBB702C8238
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205897   (782931) от 12.02.2018
+
+Беседа с Евгением Федоровым (02.02.2018) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Руководитель Молодёжного направления Информационного штаба НОД Мария Максимова встретилась с депутатом Государственной Думы России, координатором НОД Евгением Федоровым. Темы беседы: олигархическое правление в России в 90-е годы; что предлагает кандидат в президенты Грудинин; конфликт на пресс-конференции Грудинина в Уфе; о важности соблюдения законодательства о (   Читать дальше...   )Производство: Телевидение Национально-Освободительного ДвиженияЖанр: ПолитикаПродолжительность: 00:35:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B211C9FA5BA3FB781FCBC5B950EF3D77798934C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206043   (782921) от 12.02.2018
 
 Действующие лица с Наилей Аскер-заде. Сергей Лавров (11.02.2018) HDTV [H.264/1080i-LQ]
@@ -6,7 +111,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782921.jpg" />
 </div>
 
 
@@ -34,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782477.jpg" />
 </div>
 
 
@@ -60,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781708.jpg" />
 </div>
 
 
@@ -86,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780848.jpg" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780806.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780739.jpg" />
 </div>
 
 
@@ -167,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780409.jpg" />
 </div>
 
 
@@ -193,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780268.jpg" />
 </div>
 
 
@@ -219,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779800.jpg" />
 </div>
 
 
@@ -245,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779783.jpg" />
 </div>
 
 
@@ -271,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779477.jpg" />
 </div>
 
 
@@ -298,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779462.jpg" />
 </div>
 
 
@@ -326,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779131.jpg" />
 </div>
 
 
@@ -352,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778954.jpg" />
 </div>
 
 
@@ -378,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778856.jpg" />
 </div>
 
 
@@ -404,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778701.jpg" />
 </div>
 
 
@@ -431,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777033.jpg" />
 </div>
 
 
@@ -457,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776956.jpg" />
 </div>
 
 
@@ -483,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776711.jpg" />
 </div>
 
 
@@ -509,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776079.jpg" />
 </div>
 
 
@@ -538,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775175.jpg" />
 </div>
 
 
@@ -564,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774402.jpg" />
 </div>
 
 
@@ -575,112 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4F981FF82BC76AD9E7708C876963D7B119D5CBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213373   (771626) от 16.03.2018
-
-Обращение Президента к гражданам России (16.03.2018) HDTV [H.264/1080i-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771626.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 марта в России пройдут выборы президента. Действующий глава государства Владимир Путин обратился к гражданам в преддверии голосования.Телекомпания: Россия 1 HDЖанр: ПолитикаСубтитры: Русские (бегущая строка)Продолжительность: 00:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30EDE39848722DBBE6F6D2ACADAB79AE4F95162D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213518   (768129) от 17.03.2018
-
-Захар Прилепин. Уроки русского. Хватит стесняться комплексов ракетных (16.03.2018) HDTV [H.264/1080i-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еженедельный проект Захара Прилепина находится на стыке жанров сетевого видеоблога и аналитической телепередачи. В нем известный писатель анализирует наиболее актуальные и общественно значимые темы недели. Фигура Захара Прилепина известна не только поклонникам литературы. Его публицистические выступления никогда не оставляют аудиторию равнодушной, подтверждая известный (   Читать дальше...   )Телекомпания: НТВ HD, ООО «Гринвич Продакшн»Жанр: Телепередача, Политика, Авторская программаСубтитры: ОтсутствуютПродолжительность: 00:23:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80522CFCD4D1A232FFE8F858E3A21BB8621A7BF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213486   (767300) от 18.03.2018
-
-Новая русская философия Ивана Охлобыстина (05.03.2018) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767300.jpg" />
-</div>
-
-
-###  Подробнее
-
-В своей авторской программе известный актер, кинорежиссер, сценарист, писатель Иван Охлобыстин отвечает на вопросы зрителей со всего света. Это вопросы о любви, об империи, вере, об искусстве и о личном-житейском. Нестандартные ответы на самые неожиданные вопросы. Выходит несколько раз в месяц.
-
-В этом выпуске программы  ее ведущий  Иван Охлобыстин поучаствовал в выборе (   Читать дальше...   )Производство: Россия, НАО «Царьград медиа»Жанр: Телепередача, авторская передачаСубтитры: ОтсутствуютПродолжительность: 00:31:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B245A794A48B43F9E933D89EB5DBFD8CFC9D7FE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214044   (766561) от 19.03.2018
-
-Информационный канал Выборы-2018 (18.03.2018) HDTV [H.264/1080i-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766561.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 марта 2018 года состоялись выборы Президента России. Самые свежие новости, оценки, комментарии – в прямом эфире телеканала «Россия 1». Герои передач «60 минут» и «Вечер с Владимиром Соловьевым» подводят итоги выборов Президента.Телекомпания: Россия 1 HDЖанр: Политика, ТелепередачаСубтитры: отсутствуютПродолжительность: 05:27:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53E5AFBC211A26EA27EAEEAFED643B5801176AD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

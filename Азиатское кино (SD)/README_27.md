@@ -1,3 +1,82 @@
+###  Публикация: 1134866   (684711) от 17.05.2017
+
+Белый значок / Hayan chonjaeng (1992) DVDRip [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основан на романе корейского ветерана вьетнамской войны, писателя Ан Чжун Хё (Ahn Jung-hyo) "White Badge: A Novel of Korea".
+Фильм рассказывает о личной трагедии выживших корейских солдат, ветеранов войны во Вьетнаме. Страдая более десяти лет поствоенным синдромом, писатель Кайю Хан берётся за мемуары, изображающие год его службы и публикует их в газете, (   Читать дальше...   )Производство: Южная КореяЖанр: Военный, ДрамаРежиссер: Чжи-Ен ЖонгАктеры: Шим Хэ Джин, Ан Сун Ки, Ли Гён Ён, Док Го Ён Дже, Ан До Хун, Хо Джун Хо, Ким Бо Сон, Ким Се Чжун, Ли Ён Сук, Хон Сок ЁнПеревод: Одноголосый закадровыйСубтитры: Английские неотключаемыеПродолжительность: 02:05:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3187F05FDC3B25E5E99E591625DA6B173906742E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535737   (682237) от 08.03.2022
+
+Сядь за руль моей машины / Doraibu mai ka / Drive My Car (2021) BDRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Режиссёра Юсукэ приглашают поставить «Дядю Ваню» для театрального фестиваля в Хиросиме. Там ему предоставляют водителя, молчаливую Мисаки. За время, проведённое вместе, Юсукэ начинает переосмысливать свои отношения с женой, с которой он жил, казалось, в счастливом браке до её внезапной смерти два года назад. А Мисаки получает возможность (   Читать дальше...   )Производство: Япония, Bitters End, Asahi Shimbun Company, C&I Entertainment, Culture Entertainment, Japan Arts Council, Japanese Agency for Cultural AffairsЖанр: ДрамаРежиссер: Рюсукэ ХамагутиАктеры: Хидэтоси Нисидзима, Токо Миура, Масаки Окада, Рэйка Кирисима, Соня Юань, Сатоко Абэ, Перри Дизон, Ан ХвитаеПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английские - отдельными файламиПродолжительность: 02:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246E65C418ACF0DC254CDE5EE9005F8308781ADE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535987   (680402) от 09.03.2022
+
+Оружие в моем сердце / Waga mune ni kyoki ari / A Weapon in My Heart (1996) HDTVRip [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детектив и его напарник арестовывают девушку по вызову, укравшую героин у наркокартеля. По дороге в участок на них нападают члены картеля. Детективу и женщине удается сбежать, но вскоре их начинает преследовать профессиональный киллер, нанятый, чтобы устранить их и вернуть героин, украденный женщиной.Производство: ЯпонияЖанр: Боевик, криминалРежиссер: Синдзи АоямаАктеры: Мика Аоба, Кэн Мицуиси, Ёитиро Сайто, Кодзиро Симидзу, Сюн Сугата, Таро СуваПеревод: Авторский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:30:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:259E6148347DA5A484150086A7E161C57C842C85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535945   (680293) от 09.03.2022
 
 Мои тайные сокровища / Himitsu no Hanazono / My Secret Cache (1997) WEB-DLRip [H.264] [AVO]
@@ -6,7 +85,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680293.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678576.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_678029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_678029.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677004.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675670.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675210.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667944.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665319.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661270.jpg" />
 </div>
 
 
@@ -240,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660167.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659968.jpg" />
 </div>
 
 
@@ -295,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659147.jpg" />
 </div>
 
 
@@ -321,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658689.jpg" />
 </div>
 
 
@@ -347,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658660.jpg" />
 </div>
 
 
@@ -373,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658118.jpg" />
 </div>
 
 
@@ -399,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658093.jpg" />
 </div>
 
 
@@ -425,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657615.jpg" />
 </div>
 
 
@@ -451,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656086.jpg" />
 </div>
 
 
@@ -477,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654556.jpg" />
 </div>
 
 
@@ -503,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649862.jpg" />
 </div>
 
 
@@ -530,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_649750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_649750.jpg" />
 </div>
 
 
@@ -556,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647122.jpg" />
 </div>
 
 
@@ -582,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646878.jpg" />
 </div>
 
 
@@ -593,84 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3942B7447E11FD106FCA6D6E81FBBFD2267B6C36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227292   (646481) от 26.05.2018
-
-Боевая башня / Gunhed (1989) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646481.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2038 году группа охотников за сокровищами прилетает на остров, на котором расположен роботизированный военный комплекс Kyron-5, в поисках драгоценного минерала Texmexium. Планы охотников рушатся, когда они попадают в ловушки охранных систем комплекса. Механик группы по кличке «Бруклин», найдя минерал, пытается выбраться вместе с выжившей девушкой Ним, сержантом (   Читать дальше...   )Производство: ЯпонияЖанр: Фантастика, БоевикРежиссер: Масато Харада, Алан СмитиАктеры: Масахиро Такасима, Бренда Бакки, Джеймс Брюстер Томпсон, Ая Эндзёдзи, Каори Мидзусима, Ёсукэ Саито, Долл Нгуйен, Джэй Кабира, Рэнди Рейс, Мики КертисПеревод: Одноголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A91A6252E153A64D53EACEEA9F341545C5798B61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541243   (646425) от 02.04.2022
-
-Битва на озере / Битва при Чосинском водохранилище / Zhang jin hu / Chang jin hu / The Battle at Lake Changjin (2021) BDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зима 1950 года, Корейская война. На восточном побережье Корейского полуострова в районе водохранилища Чосин 9-й корпус китайских народных добровольцев вступает в жестокое противостояние с корпусом ООН (в составе 1-й дивизии морской пехоты США, полка 7-й пехотной дивизии США и батальона коммандос Великобритании).Производство: Китай, Гонконг | August 1st Film Studio, Bona Film GroupЖанр: боевик, военный, история, драмаРежиссер: Кайгэ Чэнь, Данте Лам, Харк ЦуйАктеры: Джеки У, Джексон И, Дуань Ихун, Чжу Явэнь, Ли Чэнь, Элвис Хань, Ху Цзюнь, Чжан Ханьюй, Хуан Сюань, Охо ОуПеревод: Одноголосый любительский (Колобок)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:55:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30A57BC82AB41EB9E7FB8CD5FBADBB8A77B43765
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292304   (646347) от 29.03.2019
-
-Тень / Ying (2018) BDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эпоха Троецарствия. Без ведома короля командующий Цзы Юй вызвал на дуэль генерала Яна, который захватил и удерживает город государства Пэй. Из-за своенравия командующий попадет в немилость правителя и лишается привилегий, но свою затею не оставляет. Только жена умирающего Юя знает, что вместо супруга уже целый год действует Тень, ещё с детства специально обученный (   Читать дальше...   )Производство: Китай, Гонконг / Perfect Village Entertainment, LeVision Pictures, Shanghai Tencent Pictures Culture MediaЖанр: Боевик, Драма, ИсторияРежиссер: Чжан ИмоуАктеры: Ден Чао, Сунь Ли, Чжэн Кай, Ван Цяньюань, Ван Цзинчунь, Ху Цзюнь, Гуань Сяотун, У Лэй ...Перевод: Дублированный, Многоголосый закадровыйСубтитры: Русские (Full), английские (Full) - отдельными файламиПродолжительность: 01:55:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F4B8DA229E018C48B0DD0E6118961A17CAA9A45
 ```
 
 https://mybot314.ru/tekegram_catalog/

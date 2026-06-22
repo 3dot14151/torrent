@@ -1,3 +1,30 @@
+###  Публикация: 1362751   (948308) от 24.02.2020
+
+Геннадий Мамлин | О белом шахматном короле (1970) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948308.jpg" />
+</div>
+
+
+###  Подробнее
+
+О белом шахматном короле, его первом министре и трёх зверях, которые так и остались неизвестными.
+Пьеса-сказка.Жанр: Детская литература. ИнсценировкаВ ролях: Анатолий Щукин, Наталья(?) Глебова-Мерейнес, Ирина Потоцкая, Зинаида Нарышкина, Зинаида БокареваПродолжительность: 00:23:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79E58840415DAC66FB116BE4D3EB77E5BFD3E397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362599   (948220) от 24.02.2020
 
 Анатолий Алексин | Тайна старой дачи (2017) [MP3]
@@ -6,7 +33,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948220.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947332.jpg" />
 </div>
 
 
@@ -62,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946061.jpg" />
 </div>
 
 
@@ -91,7 +118,7 @@ VA - Детский праздник. Поздравляем мам и пап! (
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945789.jpg" />
 </div>
 
 
@@ -121,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945579.jpg" />
 </div>
 
 
@@ -147,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945292.jpg" />
 </div>
 
 
@@ -174,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944759.jpg" />
 </div>
 
 
@@ -200,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944737.jpg" />
 </div>
 
 
@@ -226,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944535.jpg" />
 </div>
 
 
@@ -253,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943869.jpg" />
 </div>
 
 
@@ -279,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942922.jpg" />
 </div>
 
 
@@ -307,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942530.jpg" />
 </div>
 
 
@@ -333,7 +360,7 @@ VA - Christmas with Disney (2006) [MP3|320 kbps]<Детские песенки>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942012.jpg" />
 </div>
 
 
@@ -362,7 +389,7 @@ VA - Колокольчики мои (2009) [MP3|320 kbps]<Детские пес
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941924.jpg" />
 </div>
 
 
@@ -391,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941523.jpg" />
 </div>
 
 
@@ -417,7 +444,7 @@ Fasolki - Koledy Tik-Taka (1991) [MP3|~190 кб/с (V2)]<POP (для детей)
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939916.jpg" />
 </div>
 
 
@@ -452,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939606.jpg" />
 </div>
 
 
@@ -479,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939166.jpg" />
 </div>
 
 
@@ -505,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938647.jpg" />
 </div>
 
 
@@ -531,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937772.jpg" />
 </div>
 
 
@@ -557,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937409.jpg" />
 </div>
 
 
@@ -583,7 +610,7 @@ VA | Машкины страшилки, Часть 1 и 2 (2017) [MP3]
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935336.jpg" />
 </div>
 
 
@@ -613,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934868.jpg" />
 </div>
 
 
@@ -639,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934088.jpg" />
 </div>
 
 
@@ -668,7 +695,7 @@ C. Rogier и E. Marceillac - El Show de la BrujitaTapita (2004) [MP3|128 kbps]<�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934051.jpg" />
 </div>
 
 
@@ -682,35 +709,6 @@ C. Rogier и E. Marceillac - El Show de la BrujitaTapita (2004) [MP3|128 kbps]<�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:143817D5DDC9904DC77CEC612951F6DF4945FFA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 285751   (934044) от 22.01.2011
-
-VA - Christmas in The Stars (1980) [MP3|128 kbps]<Детские песенки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Christmas in the Stars
-02 - Bells, Bells, Bells
-03 - The Odds Against Christmas
-04 - What Can You Get a Wookie for Christmas(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 00:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B41A0B169BB3397E54FDFE4414B34DC9D1A7D969
 ```
 
 https://mybot314.ru/tekegram_catalog/

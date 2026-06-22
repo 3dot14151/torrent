@@ -6,7 +6,7 @@ Udemy, Marcello Pattarin | 3ds max Workflow Game PBR Complete Course (2025) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24275.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Udemy, Navid Abbas Zadeh | Interior design- autodesk 3dsmax and vray- from zero 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24190.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CGCircuit, Andrii Zamorskyi | Ship splash and foam (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24093.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Udemy, 3D Tudor, Vladan Trhlik | Blender Geometry Nodes - Boats (2025) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20313.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Blender Studio, Simon Thommes | Stylized Rendering with Brushstrokes (2024) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20215.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Udemy, Hamood Mehmood | Beginner Car Rigging & Animation in Blender (2025) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20213.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ ArtStation, Navid Valizadeh | Master Creating Optimized Sci-Fi Space Station Doo
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20208.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Skillshare, Gui Jorge Porto | Blender Grease Pencil: Combining 3D and 2D Animati
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20207.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20206.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Udemy, Canopy Games, Michael Bridges | Blender Python Scripting - A Step-by-Step
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20197.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Domestika, Davide Virdis | Intro to 3D Livery Design: Decals for Digital Cars (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20192.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Creative Shrimp, Gleb Alexandrov, Aidy Burrows | Photogrammetry Course: Photorea
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20003.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Artstation Learning, Javier Perez | Creating a Modular Sci-Fi Environment Using 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20000.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Artstation Learning, Enrico Tammekand | Creating a Subsurface Scatter Material i
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19958.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Udemy, Chloe Gendron | Accelerate Your Learning with Master Studies in Pen and I
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19949.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ CG Cookie | CORE Fundamentals: 9 Essential Courses for Blender 4.2 (2024) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19916.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ CG Cookie, Wayne Dixon | RIG: Blender's Character Rigging Playbook (2024) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19894.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ CG Cookie, Lucas Falcao | BASEMESH: Create Stylized Characters Quickly with Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19887.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ The Gnomon Workshop, Jordan Soler | Realistic Dog Grooming for Production with X
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19834.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ CG Cookie, Kent Trammell | THE COLLABS COURSE: A Raw Look Into Remote Blender Pr
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19800.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Gumroad, John Grello | IONIC Sketchbook 2019 - Digital Edition (2019) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19469.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Stuart Loughridge | Портретный эскиз (2023) WEBRip [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18117.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Gerardo Escamilla | Быстрый набросок (2025) WEBRip [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18032.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Susan Rubin | Основы работы с цветными карандашам
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17408.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Kerry Brooks | Яркие портреты цветными карандашам
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17368.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Susan Rubin | Библиотека для начинающих: Цветные �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17272.jpg" />
 </div>
 
 

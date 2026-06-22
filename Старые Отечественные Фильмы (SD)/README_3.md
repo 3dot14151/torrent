@@ -1,3 +1,57 @@
+###  Публикация: 1448389   (1030891) от 17.02.2021
+
+Постарайся остаться живым (1986) DVBRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030891.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ходе подготовки стратегического наступления наших войск в Прибалтике перед разведчиками лейтенанта Фомичёва поставлена непростая задача: захватить и удержать железнодорожный мост до подхода основных сил.
+
+Выполнение задания связано с огромными трудностями: мост хорошо охраняется и, кроме того, заминирован, что позволяет уничтожить его при малейшей опасности. При (   Читать дальше...   )Производство: СССР (киностудия им. М.Горького)Жанр: военныйРежиссер: Геннадий ИвановАктеры: Евгений Меньшов, Илона Бальсите, Петр Глебов, Юрий Горобец, Анатолий Скорякин, Виктор Жиганов, Сергей Волкош, Юрий Михеенков, Игорь Тарадайкин, Аршак ОганянСубтитры: отсутствуютПродолжительность: 01:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3429FFCA9FEAF00D62DA54E4BB660EAD235A6BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449720   (1029697) от 22.02.2021
+
+Морской батальон (1944) DVDRip [H.264] [PR]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029697.jpg" />
+</div>
+
+
+###  Подробнее
+
+1941 год. Советские войска эвакуируют Таллин. На подступах к Ленинграду развёртывается сражение. Для усиления сухопутных частей с кораблей "Балтфлота" высаживается десант. Ленинградцы выходят на строительство оборонительных укреплений. Здесь Сергей Минков, моряк-десантник с крейсера "Киров", встречает отца и сестру. В одном из ожесточённых боёв (   Читать дальше...   )Производство: СССР / ЛенфильмЖанр: Драма, ВоенныйАктеры: Николай Дорохин, Андрей Абрикосов, Пётр Алейников, Алексей Консовский, Николай Трофимов, Лидия Смирнова, Анатолий Королькевич, Владимир Гардин, Александр Лариков, Мария Домашева, Тамара АлёшинаСубтитры: ОтсутствуютПродолжительность: 01:15:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0706BCF9B326E7C02294CD3B6359F4795A8C5372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449776   (1029313) от 24.02.2021
 
 В. Давыдов и Голиаф (1985) SATRip [H.264]
@@ -6,7 +60,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029313.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029299.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029148.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029134.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028191.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027324.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027285.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027274.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027194.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027179.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027039.jpg" />
 </div>
 
 
@@ -295,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026690.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026487.jpg" />
 </div>
 
 
@@ -347,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026341.jpg" />
 </div>
 
 
@@ -373,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026334.jpg" />
 </div>
 
 
@@ -399,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026329.jpg" />
 </div>
 
 
@@ -425,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026092.jpg" />
 </div>
 
 
@@ -451,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026082.jpg" />
 </div>
 
 
@@ -477,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025916.jpg" />
 </div>
 
 
@@ -503,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025894.jpg" />
 </div>
 
 
@@ -529,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024686.jpg" />
 </div>
 
 
@@ -555,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024560.jpg" />
 </div>
 
 
@@ -581,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024013.jpg" />
 </div>
 
 
@@ -607,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022502.jpg" />
 </div>
 
 
@@ -618,59 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A56CCC2348C3C3E256DCEC31F16FE78D221B321F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460184   (1022019) от 08.04.2021
-
-Псы (1989) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа охотников направляется в заброшенный городок уничтожить волков-людоедов, жертвами которого все чаще становятся жители города. Городок раньше стоял у моря, был полон жизни, но море ушло, а на его месте образовалась безводная, безжизненная пустыня. Вода осталась только в трюме старого танкера. Волков в мертвом городе охотники не обнаружили, зато себя обнаружили (   Читать дальше...   )Производство: СССРЖанр: ужасы, триллер, детективРежиссер: Дмитрий СветозаровАктеры: Юрий Кузнецов, Михаил Жигалов, Андрей Краско, Александр Суснин, Николай Исполатов, Райхан Айткожанова, Алексей Крыченков, Сергей Коковкин, Андрей НиколаевСубтитры: НетПродолжительность: 01:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F902A9C4CC3989615812D2F4E5B08CF4AE8B7D5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461678   (1021756) от 10.04.2021
-
-Древо желания / Natvris khe (1976) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм-поэма, рассказывающий о чистом и сильном чувстве, втоптанном в грязь ханжеством и предрассудками, царившими в горных селах Грузии в начале века.
-Т. Абуладзе так сказал о своем произведении: «Древо желания» — фильм о людях, озаренных мечтой. У каждого персонажа свой идеал. Один боготворит небо, другой землю, одни поклоняются плоти, другие возвышают дух. Одни (   Читать дальше...   )Производство: СССР / Грузия-фильмЖанр: ДрамаРежиссер: Тенгиз АбуладзеАктеры: Лика Кавжарадзе, Сосо Джачвлиани, Заза Колелишвили, Котэ Даушвили, Софико Чиаурели, Кахи Кавсадзе, Эроси Манджгаладзе, Отар Мегвинетухуцеси, Рамаз Чхиквадзе, Георгий ГегечкориСубтитры: ОтсутствуютПродолжительность: 01:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF403ED3E62142746C2A6B18BB71E8F5E38473C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

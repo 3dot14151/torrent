@@ -1,3 +1,56 @@
+###  Публикация: 1640147   (237705) от 16.06.2023
+
+Reader for Mac 4.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Reader — это быстрая и минималистичная программа просмотра PDF с мощными элементами управления.
+Это полная версия Reader, которая включает в себя базовые аннотации, включая выделение и написание желтых заметок.Тип издания: macOS SoftwareРелиз состоялся: 15ю06.2023Разработчик: © 2023 The Augmented Text Company LTDПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DA55EAAAA63C1E8779059B925540A439AE0528A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640149   (237696) от 16.06.2023
+
+Color Wheel 7.7 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровой, абстрактный, классический - все типы цветовых кругов в одном приложении!Тип издания: macOS SoftwareРелиз состоялся: 15.06.2023Разработчик: © 2023 Roman SevastyanovПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB1B82F58E64957CA8E20C5223C0EEA572E8B10A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638621   (237695) от 09.06.2023
 
 Be Focused Pro - Focus Timer 2.3.1 [Multi/Ru]
@@ -6,7 +59,7 @@ Be Focused Pro - Focus Timer 2.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237695.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ Aiseesoft Mac Video Enhancer for Mac 9.2.30 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237694.jpg" />
 </div>
 
 
@@ -62,7 +115,7 @@ Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.11.2.1926 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237683.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ TextBar 3 v3.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237678.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ KCNcrew Pack 06-15-23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237648.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ Lasso 1.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237631.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ MetaVideo 1.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237612.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ GrandTotal 8.0.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237610.jpg" />
 </div>
 
 
@@ -222,7 +275,7 @@ djay - DJ App & AI Mixer 4.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237604.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ Mirror for Hisense TV 3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237602.jpg" />
 </div>
 
 
@@ -275,7 +328,7 @@ Middle 1.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237596.jpg" />
 </div>
 
 
@@ -301,7 +354,7 @@ Default Folder X 6.0 a5 Pre-Release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237590.jpg" />
 </div>
 
 
@@ -327,7 +380,7 @@ Mp3tag 1.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237551.jpg" />
 </div>
 
 
@@ -353,7 +406,7 @@ Dynamic Wallpaper 14.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237550.jpg" />
 </div>
 
 
@@ -379,7 +432,7 @@ Super Vectorizer Pro for Mac 2.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237541.jpg" />
 </div>
 
 
@@ -405,7 +458,7 @@ Multitouch 1.24.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237487.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ AudioSwitcher 3.04 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237480.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237476.jpg" />
 </div>
 
 
@@ -484,7 +537,7 @@ Soulver 3 v3.4.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237472.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ FSNotes 6.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237470.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ Sublime Merge 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237467.jpg" />
 </div>
 
 
@@ -563,7 +616,7 @@ Name Mangler 3 v3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237442.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ SpamSieve 2.9.46 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237431.jpg" />
 </div>
 
 
@@ -616,7 +669,7 @@ KCNcrew Pack 10-15-21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237424.jpg" />
 </div>
 
 
@@ -627,58 +680,6 @@ KCNcrew Pack - это огромнейший сборник серийников
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:968456307A56E636DC18CA58C1E47B7E73AD58E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450736   (237415) от 27.02.2021
-
-DockMate 0.8.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предварительный просмотр окон и элементы управления док-станцией. DockMate добавляет в Dock предварительный просмотр окон при наведении указателя мыши, с полезными встроенными инструментами управления окнами и специальными представлениями для приложений «Музыка» и «Календарь». Просто наведите указатель мыши на значок, чтобы увидеть все приложения, в которых запущены (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.02.2021Разработчик: MacEnhanceПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFD215FF1206BFD5515D76EFF9A9EFF0D1FE6E0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502813   (237413) от 16.10.2021
-
-MacMagic 1.0.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237413.jpg" />
-</div>
-
-
-###  Подробнее
-
-MacMagic может помочь очистить гигабайты дискового пространства, переполненного кешами плохо оптимизированных приложений, скрыть или отобразить файлы в Finder, помочь принудительно удалить содержимое корзины и выполнить различные другие задачи для автоматизации. Упростите свой рабочий процесс с утилитой MacMagic.Тип издания: macOS SoftwareРелиз состоялся: 15.10.2021Разработчик: Koingo Software, IncПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5F8E9D3884CE132DFEE1900DFB25DB81C2357A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

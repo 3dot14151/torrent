@@ -1,3 +1,82 @@
+###  Публикация: 1115397   (823809) от 19.03.2017
+
+Manie-Manie: Meikyuu Monogatari / Neo-Tokyo / Нео-Токио (Лабиринт сновидений) [1987, MV] HDTV 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм, безусловно, необычен и по внешнему виду и по содержанию. Графика очень далека от привычных стандартов аниме: тут нет ни прилизанных, блестящих волос, ни огромных влажных глаз, ни ярких красок. Но, упаси Боже называть этот фильм некрасивым! Он очень красив своими резкими, причудливыми пейзажами, необычными ракурсами и полетами камеры, запоминающимися персонажами, (   Читать дальше...   )Производство: студия MADHOUSEЖанр: фантастика, фэнтези, приключенияРежиссер: Отомо КацухироЯзык озвучки: Японский, русскийЯзык субтитров: Русский, АнглийскийПродолжительность: короткометражный фильм, 50 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00D17F2528B00DDA9446CDE903985128C2B2EA06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084357   (823807) от 19.03.2017
+
+Храбрые ведьмы / Brave Witches [2016, TV, 12] HDTV 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823807.jpg" />
+</div>
+
+
+###  Подробнее
+
+В конце ХХ века планету ожидала военная катастрофа. Новый враг пришёл неожиданно, и был невероятно силён. Естественно, люди не знали способов борьбы с ним – на тот момент простые военные технологии были бесполезны. Прозванный Невроем, враг беспощадно разрушал всё на своём пути. Выжженные земли, бездушные руины – вот всё, что оставалось после его атак. Напуганные (   Читать дальше...   )Производство: Япония, Silver LinkЖанр: приключенияРежиссер: Такамура КадзухироПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A48E35386E08188CA91C99177106CDB86C347A02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095668   (823806) от 19.03.2017
+
+Kono Subarashii Sekai ni Shukufuku o! / Этот замечательный мир! TV-2 [2016, TV, 10] HDTV 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие начинается ровно с того момента, на котором закончился первый сезон "Замечательного мира", а именно обвинение Казумы в терроризме.
+И снова Казума вынужден решать наплывающие на него проблемы этого прекрасного, дабы суметь выжить.Производство: Япония, Studio DEEN / スタジオディーンЖанр: приключения, комедия, фэнтезиРежиссер: Канасаки ТакаомиСубтитры: Надписи, отключаемые (Вшитые) | RusПродолжительность: 10 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F58184343A69D2705F4A69EA8774AB26E8779DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 775189   (823123) от 09.04.2014
 
 Ergo Proxy | Эрго Прокси [2006, TV, 23 эп.] BDrip 1080p Hi10P raw + rus
@@ -6,7 +85,7 @@ Ergo Proxy | Эрго Прокси [2006, TV, 23 эп.] BDrip 1080p Hi10P raw + 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823123.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ Altered Carbon: Resleeved | Видоизменённый углерод: Вос�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822088.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ Ni no Kuni | Вторая страна [2019, Movie] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820817.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ Eiga Koe no Katachi | A Silent Voice | Форма Голоса [2016, Movie] BDR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820276.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ K / K Project / Проект Кей [2012, TV, 13] BD-Rip 720p Hi10p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819307.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ Tokyo Ghoul | Токийский Гуль [ТВ-1] [2014, TV, 12 из 12] BDRip 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818916.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818910.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ Strike the Blood | Удар Крови [TV-1] [2013, TV, 24 ep] BDRip 1080p 10-b
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816587.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ Sukitte Ii na yo. / Say "I Love You" / Скажи: «Я люблю тебя» [2
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816274.jpg" />
 </div>
 
 
@@ -240,7 +319,7 @@ Kono Naka ni Hitori, Imouto ga Iru! / Nakaimo: My Little Sister is among Them! /
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816273.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ Gekijouban Bishoujo Senshi Sailor Moon Eternal | Pretty Guardians Sailor Moon Et
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815394.jpg" />
 </div>
 
 
@@ -295,7 +374,7 @@ Blend S | Садистская Смесь [2017, TV, 12 ep] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814668.jpg" />
 </div>
 
 
@@ -321,7 +400,7 @@ Sword Art Online: Ordinal Scale | Мастера Меча Онлайн: Поря
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814667.jpg" />
 </div>
 
 
@@ -347,7 +426,7 @@ Death Parade / Парад смерти [2015, TV, 12 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814308.jpg" />
 </div>
 
 
@@ -375,7 +454,7 @@ Ruby Weiss Blake Yan (RWBY) / Red White Black Yellow (RWBY) / Красная, Б
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813794.jpg" />
 </div>
 
 
@@ -402,7 +481,7 @@ Robot Carnival | Карнавал роботов [1987, OVA, 9 из 9] BDRip 103
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813542.jpg" />
 </div>
 
 
@@ -428,7 +507,7 @@ Pet Shop of Horrors | Магазинчик ужасов [1999, OVA, 4 эп.] DVD
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812815.jpg" />
 </div>
 
 
@@ -454,7 +533,7 @@ Nanako Kaitai Shinsho | Amazing Nurse Nanako | Изумительная медс
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812813.jpg" />
 </div>
 
 
@@ -480,7 +559,7 @@ Minami Kamakura Koukou Joshi Jitensha Bu / Женский велоклуб ст�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812543.jpg" />
 </div>
 
 
@@ -506,7 +585,7 @@ Shoujo Shuumatsu Ryokou / Girls' Last Tour / Последнее путешест
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811295.jpg" />
 </div>
 
 
@@ -532,7 +611,7 @@ Kaguya Hime no Monogatari / The Tale of the Princess Kaguya / Сказание �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810490.jpg" />
 </div>
 
 
@@ -558,7 +637,7 @@ Nanatsu no Taizai: The Seven Deadly Sins / Семь Смертных Грехо�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810485.jpg" />
 </div>
 
 
@@ -586,7 +665,7 @@ Garo: Honoo no Kokuin / Гаро: Клеймо пламени [2014, TV, 24 ep] 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810484.jpg" />
 </div>
 
 
@@ -597,85 +676,6 @@ Garo: Honoo no Kokuin / Гаро: Клеймо пламени [2014, TV, 24 ep] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A0455E45C40FB49D6778EAA9F2DD840A68EA850
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504816   (809627) от 24.10.2021
-
-Kaguya-sama wa Kokurasetai: Tensai-tachi no Ren'ai Zunousen | Kaguya-sama: Love is War | Госпожа Кагуя: в любви как на войне [ТВ-1] [2019, TV, 12 из 12] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Высокое происхождение, привлекательная внешность, учёба в академии для будущей элиты страны… У Миюки и Кагуи было всё. Когда их избрали главой и заместителем главы ученического совета, только ленивый не говорил, что молодые люди будут чудесной парой. И хотя втайне герои считали так же, за целых полгода ни Миюки, ни Кагуя не открылись друг к другу — гордость мешала (   Читать дальше...   )Производство: Япония, A-1 PicturesЖанр: Комедия, романтикаРежиссер: Синъити ОматаЯзык озвучки: Русский, японскийПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3309DE065E922321CE368A29D819ED9E0B1C4DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504821   (809623) от 24.10.2021
-
-Tokyo Ghoul Root A | Токийский гуль [ТВ-2] [2015, TV, 12 из 12] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пройдя через страшную боль, унижение и ломку жизненных ценностей, Кэн Канэки переродился. Вместо неуклюжего гибрида человека и упыря возникло что-то новое, гораздо сильнее и совершеннее. Выпустив и укротив внутреннего зверя, Кэн встал на дорогу могущества, но куда она приведет? Пока что молодой боец уверен в одном – только абсолютная сила позволит ему жить так, как (   Читать дальше...   )Производство: Япония, Studio PierrotЖанр: Приключения, мистика, ужасыРежиссер: Сюхэй МоритаЯзык озвучки: Русский, японскийПродолжительность: 12 эп. по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E851039BB3AB78A1260C27906BD35389394CDEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383631   (809231) от 16.05.2020
-
-Nerawareta Gakuen | Psychic School Wars | Школа под прицелом [2012, Movie] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весна стала началом нового учебного года в старшей школе Камакура. Новый ученик по обмену, Кёичи Кёгоку зачислен в класс N8. Суть в том, что Кёгоку — телепат, и он очень хорошо запомнил наказ отца использовать свой дар в личных целях. Благодаря своей внешности и телепатии он быстро становится популярным в школе. Все склоняются перед влиянием очарования Кёгоку, а (   Читать дальше...   )Производство: Япония,Жанр: романтика, фантастика, повседневностьРежиссер: Накамура РёсукэПеревод: русские субтитрыЯзык озвучки: Японский и русский
-Многоголосая, студияПродолжительность: 106 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5229FCE9C7B7D7113378E824874B41B62E5A4F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1566078   (486518) от 27.07.2022
+
+PullTube 1.8.4 U2B [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузка видео размещённым на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРелиз состоялся: 27.07.2022Разработчик: © 2020 MyMixAppsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92B4AF14996483A78C496B6689F994C3AD351E03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566240   (486513) от 27.07.2022
 
 PDF Reader Pro Edition 2.8.12.1 [Multi/Ru]
@@ -6,7 +32,7 @@ PDF Reader Pro Edition 2.8.12.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486513.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ DxO PhotoLab 5 ELITE Edition 5.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486405.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Path Finder 2136 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486395.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Grids for Instagram 8.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486295.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Navicat Premium 16.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486293.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ DxO PureRAW 2 for Mac v2.1.0.2 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486280.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Espresso 5.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486237.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Tidy Up 5.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486183.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Check Off - A Task Manager 5.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486179.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Movist 2.0.0 b19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486174.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Dash 4.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486173.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ VueScan Pro 9.5.82 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486127.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ Nice Clipboard 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486114.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ World Clock 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486111.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ Keep It 1.4.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486095.jpg" />
 </div>
 
 
@@ -409,7 +435,7 @@ PhotoLine 21.01 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486092.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ Translatium 8.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486090.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ Camtasia v2018.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486084.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ Yummy FTP Pro 1.11.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486005.jpg" />
 </div>
 
 
@@ -516,7 +542,7 @@ Art Text 3.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485963.jpg" />
 </div>
 
 
@@ -545,7 +571,7 @@ Tidy Up 5 v5.3.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485817.jpg" />
 </div>
 
 
@@ -571,7 +597,7 @@ WebScraper 4.13.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485724.jpg" />
 </div>
 
 
@@ -597,7 +623,7 @@ CleanMyMac 3.8.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485398.jpg" />
 </div>
 
 
@@ -626,7 +652,7 @@ Sensei 1.2.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485322.jpg" />
 </div>
 
 
@@ -652,7 +678,7 @@ Parallels Desktop for Mac Business Edition 12.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485068.jpg" />
 </div>
 
 
@@ -663,35 +689,6 @@ Parallels Desktop® 12 для Mac — это самое быстрое, прос
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DCBB842E31D4FDEE4B4423F076FFC3C1FA5F186
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405252   (485006) от 29.08.2020
-
-DaVinci Resolve Studio 16 v16.2.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый современный набор инструментов для монтажа, цветокоррекции и обработки звука в одном приложении
-В производстве художественных фильмов и телесериалов систему DaVinci Resolve используют чаще других программных продуктов, потому что она позволяет выполнить грейдинг на исключительно высоком уровне.
-
-Сравнительно недавно в нее были добавлены средства профессионального (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.08.2020Разработчик: Blackmagic DesignПоддерживаемая ОС: macOS 10.13.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9079125815BFC27FF014D0DC4C67100C98FB2CA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

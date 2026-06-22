@@ -1,3 +1,32 @@
+###  Публикация: 1218822   (719379) от 11.04.2018
+
+Новые приключения Аладдина (мюзикл) от ALEXnROCK (2011) DVDRip [H.264/720p-LQ]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719379.jpg" />
+</div>
+
+
+###  Подробнее
+
+В экранизации любимой всеми арабской сказки роль Аладдина досталась Оскару Кучере. По замыслу авторов, Аладдин – это… русский охранник Алеша, который волей случая попал в далекую страну, где и получил это имя и, конечно же, нашел свою царевну – великолепную Будур (Ани Лорак). Яркий и юморной мюзикл, с очень красивыми костюмами и декорациями. Видео прошло 11ти часовую (   Читать дальше...   )01. Все участники - Вступительная песня
+02. Сосо Павлиашвили - Это Восток
+03. Елена Воробей, Анастасия Стоцкая, Анна Семенович - Песня мамы
+04. Сергей Лазарев - Песня Принцессе(   Читать дальше...   )Жанр: PopПродолжительность: 01:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:878C89A03318A6F01D50A781B6FAA3AF1E62B941
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285469   (718573) от 27.02.2019
 
 Сборник клипов - Multinational Dance Hits - Video Collection от ALEXnROCK часть 1 (2019) WEBRip
@@ -6,7 +35,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718573.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716709.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716596.jpg" />
 </div>
 
 
@@ -87,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715948.jpg" />
 </div>
 
 
@@ -113,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714756.jpg" />
 </div>
 
 
@@ -139,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712839.jpg" />
 </div>
 
 
@@ -165,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712711.jpg" />
 </div>
 
 
@@ -191,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712466.jpg" />
 </div>
 
 
@@ -217,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712427.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710878.jpg" />
 </div>
 
 
@@ -270,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710260.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Skid Row - Видеоколлекция от ALEXnROCK (2018) DVDRip [H.264/720p
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709855.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709057.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708707.jpg" />
 </div>
 
 
@@ -379,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708342.jpg" />
 </div>
 
 
@@ -406,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706770.jpg" />
 </div>
 
 
@@ -432,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705835.jpg" />
 </div>
 
 
@@ -460,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705711.jpg" />
 </div>
 
 
@@ -486,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704548.jpg" />
 </div>
 
 
@@ -512,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704276.jpg" />
 </div>
 
 
@@ -538,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703608.jpg" />
 </div>
 
 
@@ -564,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702808.jpg" />
 </div>
 
 
@@ -590,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702653.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702229.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702179.jpg" />
 </div>
 
 
@@ -653,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:499A3A68D026A6EC1BCD20A25892450A8EC27689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533901   (701125) от 26.02.2022
-
-Троя / Troy (2004) Hybrid [H.264/1080p] [Director's Cut] [handmade 16:9]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701125.jpg" />
-</div>
-
-
-###  Подробнее
-
-1193 год до нашей эры. Парис украл прекрасную Елену, жену царя Спарты Менелая. За честь Менелая вступается его брат — царь Агамемнон. Его армия под предводительством Ахиллеса подошла к Трое и взяла город в кровавую осаду, длившуюся долгих десять лет… Два мира будут воевать за честь и власть. Тысячи умрут за славу. И за любовь нация сгорит дотла.Производство: США, Великобритания, Мальта, Warner Bros. PicturesЖанр: боевик, история, драма, мелодрамаРежиссер: Вольфганг ПетерсенАктеры: Брэд Питт, Эрик Бана, Орландо Блум, Брайан Кокс, Дайан Крюгер, Брендан Глисон, Шон Бин, Джули Кристи, Питер О’Тул, Роуз БирнПеревод: Дублированный, двухголосый, многоголосыйСубтитры: русские (форс, полные), английские (полные)Продолжительность: 03:16:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01D21CC20A0F930DF85360C535D1D93365960151
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1398384   (736112) от 25.07.2020
+
+Action Heroine Cheer Fruits | Фруктовые героини [2017, TV, 12 из 12] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736112.jpg" />
+</div>
+
+
+###  Подробнее
+
+В одном из городов Японии стали популярны бои между героинями и злодеями. Отважные девушки яростно сражаются с негодяями, раз за разом одерживая над ними блестящую победу. В какой-то момент популярность подобных битв вышла за пределы этого города и распространилась по всей стране. Сражения со злодеями начали показывать даже на телевизионных шоу. На волне всеобщей (   Читать дальше...   )Производство: Diomedea / ディオメディアЖанр: комедия, повседневностьРежиссер: Кусакава КэйдзоПеревод: OmnikusЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43F5BA730A11800E2B987BB228E0A91E819BEF40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1398719   (735271) от 27.07.2020
 
 Ookiku Furikabutte: Natsu no Taikai-hen | Замахнись сильнее: Летний турнир [2010, TV, 13 + 1] BDRip 1080p raw
@@ -6,7 +32,7 @@ Ookiku Furikabutte: Natsu no Taikai-hen | Замахнись сильнее: Л�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735271.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Pants no Ana: Mambo de Ganbo! | Дырявые трусики [1987, OVA, 1 эп
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735157.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Akikan! / Empty Can / Пустая банка [2009, TV, 12] SDTV 1080p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734392.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Handa-kun | Ханда [2016, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734276.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Oshi ga Budoukan Itte Kuretara Shinu | If My Favorite Pop Idol Made It to the Bu
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733998.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden 2nd Season - Kakusei Zenya | З�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733527.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Maison Ikkoku: Bangaihen Ikkokujima Nanpa Shimatsuki | Maison Ikkoku: Deserted I
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733430.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Maison Ikkoku: Shiki Utsuriyuku Kisetsu no Naka de | Maison Ikkoku: Through the 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733387.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Kuro no Sumika -Chronus- / Чёрные сущности -Хронус- [2014, M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732741.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ Tales of Luminaria: The Fateful Crossroad | Сказания Луминарии:
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732703.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ Blade Runner: Black Lotus | Бегущий по лезвию: Чёрный ло�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732591.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ Bakuon!! | Мотоклуб [2016, TV, 12 эп.+2OVA+4SP] BDRip 720p 10-bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731875.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ Bishoujo Senshi Sailor Moon R / Sailor Moon R Movie: Promise of the Rose + SP / 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731724.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ Kazemakase Tsukikage Ran / Carried by the Wind: Tsukikage Ran / Перекати
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731673.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ Amnesia / Амнезия [2013, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731391.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ Haitai Nanafa | Привет Нанафа [ТВ-2]  [2013, TV, 13 эп.] BDrip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730883.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730711.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ Fate/Kaleid Liner Prisma Illya Zwei! | Судьба: Девочка-волшеб
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730449.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ Classroom Crisis | Кризис в классе [2015, TV, 13 + 1sp] BDrip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730024.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ Kuma miko | Kumamiko: Girl Meets Bear | Жрица и медведь [2016, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729975.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ E's Otherwise / Зовите меня Е [2003, TV, 26] DVDrip raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729554.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ Hamatora The Animation / Хаматора [2014, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729424.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ Meganebu! | Клуб очкариков [2013, TV, 12 эп.] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729018.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ Meganebu! | Клуб очкариков [2013, TV, 12 эп.] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728992.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Hakkenden: Touhou Hakken Ibun | Hakkenden: Eight Dogs of the East | Хаккэн
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728982.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ Hakkenden: Touhou Hakken Ibun | Hakkenden: Eight Dogs of the East | Хаккэн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE8A47BB1E1B3FE46AF5669B4C1277C6DB6231BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530409   (728981) от 11.02.2022
-
-Kotoura-san | Котоура [2013, TV, 12 эп. + 6SP] BDRip 720p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Непохожим на других всегда живется тяжко – в этом на горьком опыте убедилась Харука Котоура, с детства слышащая чужие мысли. Быть рядом с человеком, для которого ты словно открытая книга – нелегкое испытание. Даже родная мать его не выдержала и сбежала, бросив «чудовище» на попечение деда. Легко предсказать реакцию окружающих, когда те узнавали, с кем их свела судьба. (   Читать дальше...   )Производство: Студия AICЖанр: комедия, романтика, драма, мистикаРежиссер: Ота МасахикоПеревод: General TAB; Kasumi; Schum; TassadarЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин. + 6SP по 2 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67F878E3A26B62C55FCD5D9225582CD75DF423E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

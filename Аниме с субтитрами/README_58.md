@@ -1,3 +1,29 @@
+###  Публикация: 1286527   (631693) от 06.04.2019
+
+SSSS.Gridman | Гридмен [2018, TV, 12 эп.] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юта Хибики, ученик первого класса старшей школы, однажды просыпается и выясняет, что потерял память. И ещё он обнаруживает «Гиперагента Гридмана» в своём старом компьютере. Последний заявляет, что у школьника есть некая миссия, и тот отправляется выяснять, в чём же она заключается, и заодно с чего это вдруг у него амнезия. Рядом с Ютой всегда его друзья Що Уцуми, (   Читать дальше...   )Производство: студия Trigger / トリガーЖанр: приключения, фантастика, мехаРежиссер: Амэмия АкираПеревод: SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45FBECC593C044CB9AA81CFE814C30F01A6B9A38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294028   (631691) от 06.04.2019
 
 A.I.C.O. Incarnation | И.Р.К.О.: Воплощение [2018, ONA, 12 эп.] BDrip 1080p raw
@@ -6,7 +32,7 @@ A.I.C.O. Incarnation | И.Р.К.О.: Воплощение [2018, ONA, 12 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631691.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Getsuyoubi no Tawawa 2 | Tawawa on Monday 2 | Тавава по понедель
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631533.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ Heion Sedai no Idaten-tachi | The Idaten Deities Know Only Peace | Боги-ст
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631528.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ Kouya no Kotobuki Hikoutai | The Magnificent Kotobuki | Пустынная эс�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631386.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Toaru Majutsu no Index III / A Certain Magical Index 3 / Индекс волше
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631244.jpg" />
 </div>
 
 
@@ -143,7 +169,7 @@ Wonder Egg Priority | Приоритет чудо-яйца [2021, TV, 12 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631227.jpg" />
 </div>
 
 
@@ -172,7 +198,7 @@ Summer Ghost | Летний призрак [2021, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631226.jpg" />
 </div>
 
 
@@ -200,7 +226,7 @@ Shihaisha no Tasogare / Twilight of the Dark Master / Сумерки Повел�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_630565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_630565.jpg" />
 </div>
 
 
@@ -227,7 +253,7 @@ Roku de Nashi Majutsu Koushi to Akashic Records | Никчёмный учите�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629010.jpg" />
 </div>
 
 
@@ -253,7 +279,7 @@ RS Keikaku: Rebirth Storage | Проект «БП»: База Перерожде
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628297.jpg" />
 </div>
 
 
@@ -279,7 +305,7 @@ Ani Tore! EX / Anitore! EX / Тренировки с аниме! [2015, TV, 12 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626387.jpg" />
 </div>
 
 
@@ -305,7 +331,7 @@ Happy World! | Счастливый мир! [2002, OVA, 3 эп.] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625825.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ Shin SOS Dai Tokyo Tankentai | SOS! Tokyo Metro Explorers: The Next | SOS! Ис�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625567.jpg" />
 </div>
 
 
@@ -358,7 +384,7 @@ Saenai Heroine no Sodatekata Flat | Saekano: How to Raise a Boring Girlfriend.fl
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625125.jpg" />
 </div>
 
 
@@ -384,7 +410,7 @@ Renai Boukun | Love Tyrant | Любовь тирана [2017, TV, 12 эп.] WEB-
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625006.jpg" />
 </div>
 
 
@@ -410,7 +436,7 @@ Wakako-zake / Саке для Вакако [2015, TV, 12 из 12] BDRip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624584.jpg" />
 </div>
 
 
@@ -436,7 +462,7 @@ Kimi to Boku / You and I / Ты и я [2011, TV, 13] BDrip Hi10p 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_624520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_624520.jpg" />
 </div>
 
 
@@ -465,7 +491,7 @@ Kaze no Na wa Amnesia / A Wind Named Amnesia / Ветер амнезии [1990, 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_624394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_624394.jpg" />
 </div>
 
 
@@ -491,7 +517,7 @@ Zoku Owarimonogatari | Финальные истории: Продолжение
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623866.jpg" />
 </div>
 
 
@@ -519,7 +545,7 @@ Mob Psycho 100 II / Моб Психо 100 II [2019, TV, 13] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622182.jpg" />
 </div>
 
 
@@ -545,7 +571,7 @@ Onii-chan Dakedo Ai Sae Areba Kankeinai yo ne! / Пока есть любовь,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621935.jpg" />
 </div>
 
 
@@ -573,7 +599,7 @@ Double Decker! Doug & Kirill | Двойной удар: Даг и Кирилл [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621853.jpg" />
 </div>
 
 
@@ -599,7 +625,7 @@ Gabriel DropOut / Gabriel Dropout / Габриэль бросает школу [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621422.jpg" />
 </div>
 
 
@@ -625,7 +651,7 @@ Idolmaster: Cinderella Girls | Идолмастер: Золушки [2015, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621413.jpg" />
 </div>
 
 
@@ -651,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621409.jpg" />
 </div>
 
 
@@ -662,32 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:162C96E5A0F7AFE554C00748647DFA17FBBF9D73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123625   (621228) от 25.06.2017
-
-Berserk (Season 2) | Берсерк [ТВ-3] [2017, ТВ, 12 эп.] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет повествует о могучем воине по имени Гатс, он странствует по миру, похожему на средневековую Европу, но с демонами. Означенных демонов Гатс люто ненавидит и истребляет в надежде отомстить одному конкретному и крайне могущественному, в схватке с приспешниками которого он некогда потерял глаз, левую руку и ещё кое-что крайне ценное. Для этих целей Гатс использует (   Читать дальше...   )Жанр: приключения, фэнтези, сэйнэнРежиссер: Итагаки Син / Itagaki Shin /Язык озвучки: японскийПродолжительность: каждый эпизод по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E54C07938B8C1FDA8D01F524497735CD4149265C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ VA - Ballermann Hutten Mix 2019 (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694312.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Eugenio In Via Di Gioia - Natura Viva (2019) [MP3|320 Kbps] <Pop, Europop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694305.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Carmen - Più forti del ricordo (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694195.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Summer Acoustic (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694149.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Latino - 30 Summer Hits (2019) [MP3|320 Kbps] <Salsa, Pop, Latin Dance, Reg
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694055.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Sade - The Ultimate Collection (2CD) (2011) [MP3|320 kbps]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693296.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Angel-Ho - Death Becomes Her (2019) [MP3|320 Kbps] <Pop, Electronic, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692221.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Olsson - Millions (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691484.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - Top Of The Spot 2017  [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691403.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - Joe - Celebrate the 80's (4CD) (2018) [MP3|320 Kbps] <Pop, Disco, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689314.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Sophie Ellis-Bextor - The Song Diaries (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688361.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Bonnie Tyler - Between The Earth And The Stars (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687734.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Folk & Røvere - Kaustisksoda (1998) Sonet Grammofon AS [MP3|320 Kbps] <Breaks, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687586.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Beach Party 2 (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687433.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Rose & the Howling North - Cuckoo (2013) [MP3|320 Kbps] <Alternative, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687212.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Carla's Dreams - Antiexemplu (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687084.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - Weltmeister Party 2018 die Nummer Eins Sind Wir! (2018) 2CD [MP3|320 Kbps] 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685297.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Hayley McKay - Hayley McKay (2018) [MP3|320 Kbps] <Pop, Pop Rock, Country>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685296.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - Ballermann Award 2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684455.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - Ballermann Partyhits 2019 - Das Werden Die Hits Des Sommers (2019) [MP3|320
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684337.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VA - Schlagerland - Das DJ Festival (2019) [MP3|320 Kbps] <Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684334.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Orchester Anthony Ventura - Fantastic Dance Party (1978) LP [MP3|320 Kbps] <Pop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684325.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ VA - Pop Giganten - Schlager (2019) [MP3|320 Kbps] <Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684240.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Amy Macdonald - Life In A Beautiful Light (2012) [MP3|~247 кб/с (V0)]<Pop, Fo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683268.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Masterboy - The Masterboy Family (1991) Polydor [MP3|320 Kbps] <Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683029.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Grand Fantastic Strings - La Reine De Saba (1977) 45 RPM, LP [MP3|320 Kbps] <Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682914.jpg" />
 </div>
 
 

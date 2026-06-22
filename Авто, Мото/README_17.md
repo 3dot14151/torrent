@@ -6,7 +6,7 @@ MotoGP. Этап 14. Гран-при Японии. Спринт (30.09.2023) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182460.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MotoGP. Этап 14. Гран-при Японии. Квалификация (30.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182453.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182298.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182290.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ MotoGP. Этап 14. Гран-при Японии. Гонка (01.10.2023) WEBRi
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181483.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179790.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176779.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175173.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ WRC: ACI Rally Monza, 03-06.12.2020 [A21 Network Russian Motorsport Television]
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175134.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174484.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174455.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ MotoGP. Этап 15. Гран-при Индонезии. Спринт (14.10.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173234.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ MotoGP. Этап 15. Гран-при Индонезии. Квалификаци�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173232.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ MotoGP. Этап 15. Гран-при Индонезии. Гонка (15.10.2023)
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173025.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ MotoGP. Этап 16. Гран-при Австралии. Квалификаци�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171928.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ MotoGP. Этап 16. Гран-при Австралии. Гонка (21.10.2023)
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171925.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ MotoGP. Этап 19 из 22. Гран-при Австралии. Гонка (19.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170963.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170308.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ MotoGP. Этап 17. Гран-при Тайланда. Квалификация 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169476.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ MotoGP. Этап 17. Гран-при Тайланда. Спринт (28.10.2023)
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169276.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ MotoGP. Этап 17. Гран-при Тайланда. Гонка (29.10.2023) W
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168112.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166017.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166013.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165241.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165169.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164134.jpg" />
 </div>
 
 

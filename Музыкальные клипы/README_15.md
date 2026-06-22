@@ -1,3 +1,58 @@
+###  Публикация: 1522958   (754658) от 09.01.2022
+
+Сборник видеоклипов (2021) WEBRip [H.264/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яркие и незабываемые клипы, некоторые из которых стали настоящими хитами.1.Ava Max - Everytime I Cry
+2.Becky G, Natti Natasha - Sin Pijama
+3.Benny Benassi feat. Gary Go - Let This Last Forever
+4.BLACKPINK - How You Like That(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:136207894285ADDFCF0AE349466AFC0106DE61A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 781851   (752390) от 30.04.2014
+
+Lindsey Stirling - Beyond The Veil (2014) [H.264/1080p-LQ] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Instrumental, Dubstep, RockПродолжительность: 00:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D14BDC628A3586FB50B706A059D48F9873B71A63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 663788   (751321) от 02.06.2013
 
 The ВЙО - Карпаты (2013) [H.264/1080p] WEB-DLRip
@@ -6,7 +61,7 @@ The ВЙО - Карпаты (2013) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751321.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750690.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750682.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746871.jpg" />
 </div>
 
 
@@ -110,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745685.jpg" />
 </div>
 
 
@@ -136,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744439.jpg" />
 </div>
 
 
@@ -165,7 +220,7 @@ Lindsey Stirling - Child of Light (2014) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738913.jpg" />
 </div>
 
 
@@ -191,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737011.jpg" />
 </div>
 
 
@@ -220,7 +275,7 @@ ABBA - Gimme! Gimme! Gimme! (A Man After Midnight) (1979) WEBRip [H.264/2160p] [
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735329.jpg" />
 </div>
 
 
@@ -246,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734727.jpg" />
 </div>
 
 
@@ -273,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734690.jpg" />
 </div>
 
 
@@ -299,7 +354,7 @@ Nasty - Клипы (2013-2020) WEBRip [H.264/VP9/1080p/2160p] <Beatdown Hardcore
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734688.jpg" />
 </div>
 
 
@@ -328,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730452.jpg" />
 </div>
 
 
@@ -357,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729407.jpg" />
 </div>
 
 
@@ -383,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725525.jpg" />
 </div>
 
 
@@ -412,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724990.jpg" />
 </div>
 
 
@@ -439,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721613.jpg" />
 </div>
 
 
@@ -468,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721372.jpg" />
 </div>
 
 
@@ -494,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720705.jpg" />
 </div>
 
 
@@ -523,7 +578,7 @@ VA - Magical Flight vol. 2 (2CD) (2008) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717497.jpg" />
 </div>
 
 
@@ -552,7 +607,7 @@ Kalwi & Remi feat. Mr X - Girls (Uncensored) (2011) WEBRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717388.jpg" />
 </div>
 
 
@@ -578,7 +633,7 @@ DJ Phoenix - The Legend Club (Uncensored) (2013) WEBRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717386.jpg" />
 </div>
 
 
@@ -604,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713563.jpg" />
 </div>
 
 
@@ -635,7 +690,7 @@ Gregorian - Masters Of Chant In Santiago De Compostela (2001) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710865.jpg" />
 </div>
 
 
@@ -646,58 +701,6 @@ Gregorian - Masters Of Chant In Santiago De Compostela (2001) DVDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69C37F7F126E76D8465A6D136C2E19855644D1AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531337   (710863) от 21.02.2022
-
-Gregorian - Masters Of Chant - Moments Of Peace In Ireland (2001) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Здесь представлен видеоальбом снятый в Ирландии, коллектив исполняет вещи со своего второго альбома, пользующегося популярностью во многих странах мира. Монахи поют кавер-версии мировых рок-хитов в григорианском стиле. Здесь вы можете услышать композиции Pink Floyd, Deep Purple, Phill Collins и многих других, окунуться в атмосферу средневековья, увидеть потрясающее (   Читать дальше...   )Производство: GermanyЖанр: New Age, Choir, Gregorian chantПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6224CE41A7AE0AE8202CEA636B305CEAAF1740FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531336   (710701) от 21.02.2022
-
-Gregorian - Masters Of Chant Chapter III (2002) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710701.jpg" />
-</div>
-
-
-###  Подробнее
-
-B октябре 2002 г. вышел альбом "Masters Of Chant Chapter III". Список звезд мировой музыки, перепетых на этом диске впечатляет – Depeche Mode, Elton John, Sting, Duran Duran, Chris Isaak, HIM… Также в альбом было включено три оригинальные композиции – Be, Before The Dawn и Out Of The Cold. Женские партии исполнила Сара Брайтман, скрывшаяся под псевдонимом (   Читать дальше...   )Производство: GermanyЖанр: New Age, Choir, Gregorian chantПродолжительность: 00:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FCC79AEB2CAAF34035B935A735A9C22ACB39D51
 ```
 
 https://mybot314.ru/tekegram_catalog/

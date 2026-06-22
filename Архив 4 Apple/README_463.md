@@ -1,3 +1,55 @@
+###  Публикация: 1334692   (293363) от 30.10.2019
+
+Fission 2.5.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Соединить или разделить файлы или просто разделить большой файл на несколько частей для последующего редактирования - все это сделает с легкостью Fission, к тому же, без потери качества, в противоположность другим редакторам. Так, что вы можете получить идеальное качество звука даже при редактировании MP3 и AAC файлов. Вырезать одну часть из файл, а на ее место вставить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.10.2019Разработчик: Rogue AmoebaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD09696F95F64FF31B3EAD02361AFEAE435DB162
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334610   (293358) от 30.10.2019
+
+Wirecast Pro 13.0.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wirecast предлагает доступное программное обеспечение в качестве альтернативы дорогим аппаратным решениям организации видео-трансляций в сети Интернет. Благодаря Wirecast вы можете выводить на вещание несколько потоков с камер, в реальном времени вставляя в программный поток видеоклипы, изображения, звуки и такие необходимые элементы, как переходы, титры, хрома-кеинг, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Telestream, Inc.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский, Французский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45C24BDC2B671828F43A82E51C1928FB6AB62DDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962716   (293348) от 05.12.2015
 
 Fileloupe 1.3.5 [En]
@@ -6,7 +58,7 @@ Fileloupe 1.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293348.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Murus Pro Suite 1.4.19 (include Vallum 3.0.3)[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293335.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ PhotoSweeper Х 3.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293333.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ WiFiSpoof 3.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293318.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ VueScan Pro 9.5.92 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293317.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ Color Finale Pro 1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293261.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ Polarr Photo Editor Pro 5.10.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293199.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ Zoc Terminal 7.24.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293193.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ Cisdem PDF Converter OCR 7.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293185.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ Scrivener 3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292988.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ Compressor 4.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292975.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ ACDSee Photo Studio 4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292938.jpg" />
 </div>
 
 
@@ -329,7 +381,7 @@ Adobe InDesign CC 2018 v13.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292736.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ Money Pro 1.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292635.jpg" />
 </div>
 
 
@@ -384,7 +436,7 @@ Parallels Desktop for Mac Business Edition 13.2.0 (43213) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292604.jpg" />
 </div>
 
 
@@ -412,7 +464,7 @@ Bartender 3 v3.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292567.jpg" />
 </div>
 
 
@@ -439,7 +491,7 @@ Native Instruments Traktor Pro 3 v3.2.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292566.jpg" />
 </div>
 
 
@@ -467,7 +519,7 @@ Kiwi for Gmail 2.0.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292539.jpg" />
 </div>
 
 
@@ -495,7 +547,7 @@ CleanMyMac X 4.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292529.jpg" />
 </div>
 
 
@@ -522,7 +574,7 @@ iSkysoft iMedia Converter Deluxe 10.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292527.jpg" />
 </div>
 
 
@@ -550,7 +602,7 @@ Motion 5.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292526.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Final Cut Pro X 10.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292525.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ Perfectly Clear Plugin for Photoshop and Lightroom 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292410.jpg" />
 </div>
 
 
@@ -634,7 +686,7 @@ Corporate Templates - Business Stationery 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292213.jpg" />
 </div>
 
 
@@ -647,60 +699,6 @@ Corporate Templates - Business Stationery 3.1 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC34B36CA9DF95B3544987CD65D0FFE387B79592
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424712   (292207) от 17.11.2020
-
-SecuritySpy 5 v5.3.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292207.jpg" />
-</div>
-
-
-###  Подробнее
-
-SecuritySpy работает с широким спектром камер чтобы удовлетворить все потребности, от традиционных аналоговых камер до последней сетевой камеры HD разрешения, предлагая высокое качество видео. Программная функция детектора движения будет качественно обнаруживать и фиксировать любое движение в области просмотра, а функция удаленного мониторинга позволит просматривать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.11.2020Разработчик: BensoftwareПоддерживаемая ОС: OS X 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3866971A86FE1E6B06512F76B5B5EAF3AE7D627
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424622   (292206) от 17.11.2020
-
-Araxis Merge Pro Edition 2020.5479 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение для двух и трехстороннего сравнения / слияния файлов и синхронизации папок от компании Araxis. Используйте данную утилиту, чтобы сравнивать, понимать и объединять различные версии источника кодов, веб-страницы и другие текстовые файлы и даже текст, копированный и вставленный с другого приложения.
-
-Merge – это обязательное приложение для разработчиков программ, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.11.2020Разработчик: AraxisПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A8DD69F1026351572261D64AE5E373897C52193
 ```
 
 https://mybot314.ru/tekegram_catalog/

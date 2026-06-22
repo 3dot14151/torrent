@@ -1,61 +1,3 @@
-###  Публикация: 1617828   (201635) от 08.03.2023
-
-Олег Анофриев - Есть только миг (1995) [MP3|320 Kbps] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Это было недавно ( из к/ф  Друзья и годы )
-02. Песня из к/ф  Путь к причалу
-03. Песня из к/ф  Там, где кончается асфальт
-04. Весенняя песенка(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:13:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:974F3230A4C16A88889BDEDBAD3A6C48C1D84EBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617775   (201614) от 08.03.2023
-
-VA – Мамина пластинка 2. Лучшие хиты 70х-80х (2003) [MP3|320 Kbps] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Олег Кацура - Большая медведица
-02. виа Лейся, песня! - Где же ты была
-03. виа Самоцветы - Чернобровая дивчина
-04. виа Лейся, песня! - Песенка про сапожника(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:16:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FAE44DE0324A4AF72146FFB5F60A9013409B163
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623620   (200501) от 02.04.2023
 
 Татьяна Анциферова - 4 Альбома (1996 - 2008) [MP3|320 Kbps] <Советская эстрада, Ретро>
@@ -64,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200501.jpg" />
 </div>
 
 
@@ -93,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192935.jpg" />
 </div>
 
 
@@ -122,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174335.jpg" />
 </div>
 
 
@@ -151,7 +93,7 @@ VA - Ретро Шлягер Новогодний (2006) [MP3|320 Kbps] <Рет�
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173814.jpg" />
 </div>
 
 
@@ -180,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172600.jpg" />
 </div>
 
 
@@ -209,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168861.jpg" />
 </div>
 
 
@@ -238,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167340.jpg" />
 </div>
 
 
@@ -267,7 +209,7 @@ VA - Эти песни запевает молодёжь - Любимые пес
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166850.jpg" />
 </div>
 
 
@@ -296,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159743.jpg" />
 </div>
 
 
@@ -325,7 +267,7 @@ VA - Хит-парад 70-х. Выпуск 2 (1998) [MP3|320 кб/с] <Сове�
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158591.jpg" />
 </div>
 
 
@@ -354,7 +296,7 @@ VA - Новогодний подарок (2005) [MP3|320 Kbps] <Ретро>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154109.jpg" />
 </div>
 
 
@@ -383,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138719.jpg" />
 </div>
 
 
@@ -412,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118142.jpg" />
 </div>
 
 
@@ -441,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115999.jpg" />
 </div>
 
 
@@ -470,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106456.jpg" />
 </div>
 
 
@@ -499,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100598.jpg" />
 </div>
 
 
@@ -528,7 +470,7 @@ VA - Рождественский романс (2015) [MP3|320 Kbps] <Роман
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100589.jpg" />
 </div>
 
 
@@ -557,7 +499,7 @@ Georgia Gibbs - The Complete Original Hits Of Georgia Gibbs (2007  (1950-1958)) 
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97705.jpg" />
 </div>
 
 
@@ -592,7 +534,7 @@ VA - Romantic Collection Disco 80 vol. 2 (2012) [MP3|256 kbps]<Disco>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85175.jpg" />
 </div>
 
 
@@ -627,7 +569,7 @@ VA - XXXL Золотые 80-е Русский (2012) [MP3|224-256 kbps]<Pop>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84951.jpg" />
 </div>
 
 
@@ -662,7 +604,7 @@ VA - Диско 80-х - Кумиры восьмидесятых. Выпуск 50
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83920.jpg" />
 </div>
 
 
@@ -697,7 +639,7 @@ VA - Родные хиты семидесятых (2012) [MP3|320 кб/с]<Pop>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83905.jpg" />
 </div>
 
 
@@ -732,7 +674,7 @@ VA - Звёзды царской эстрады (приложение к кни�
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83458.jpg" />
 </div>
 
 
@@ -767,7 +709,7 @@ VA - Диско 80-х - Кумиры восьмидесятых. Выпуск р
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82905.jpg" />
 </div>
 
 
@@ -787,6 +729,76 @@ VA - Диско 80-х - Кумиры восьмидесятых. Выпуск р
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:156D6DE166917317C9978A3468DEBCE63D5C0D59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469953   (82899) от 18.03.2012
+
+VA - Вокально-Инструментальные Ансамбли СССР (2012) [MP3|320 kbps]<Pop | Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Виа Ялла - Канатоходцы
+02. Виа Ариэль - Тишина
+03. Эдита Пьеха - Семейный Альбом
+04. Тынис Мяги - Детектив
+05. Виа Поющие Гитары - Люди Встречаются
+06. Виа Цветы - Честно Говоря
+07. Виа Ариэль - На Острове Буяне
+08. Виа Земляне - Трава У Дома
+09. Виа Песняры - Вологда
+10. Виа Пламя - Краснотал(   Читать дальше...   )2012Жанр: Pop | РетроПродолжительность: 04:48:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8A7594A5B37755FA64F8271D0B8EA93C1B77919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469356   (82752) от 17.03.2012
+
+VA - Русская Дискотека 80-90х (2012) [MP3|320 кб/с]<Pop, Dance>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82752.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1Жанр: Pop, DanceПродолжительность: 04:17:38
+
+01. А.Айвазов - Бабочка-Луна
+02. Браво - Дорога в облака
+03. М.Леонидов - Видение
+04. Високосный Год - Лучшая песня о любви
+05. С.Владимирская - Ты скажешь мне
+06. М.Насыров - Мальчик хочет в Тамбов
+07. Академия - Хочешь, но молчишь
+08. Е.Осин - Плачет девушка в автомате(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

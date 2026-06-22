@@ -6,7 +6,7 @@ Terraria (2011) [Ru/En] (1.2.4.1) Repack
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662855.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dark Half [En] (RePack) 1992 | RG games (Pilotus)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_662733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_662733.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Rayman 2: The Great Escape / Рэйман 2: Великая погоня [En] (L
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_662284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_662284.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_662236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_662236.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ DiRT 3 [Multi5\-] (L) 2011
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_662166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_662166.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_661145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_661145.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Magicka. Ну очень эпическая игра / Magicka (RePack/1.4.7.0) 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661016.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Game of Thrones (RePack/1.0) [En/Ru] 2012 | R.G. ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660933.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Vessel (RePack/1.11) [Multi5/+] 2012 l Fenixx
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660927.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Quantum Conundrum (RePack) [En] 2012 | R.G. Recoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660380.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_660350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_660350.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Quantum Conundrum (P) [Multi6\-] 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660317.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_660040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_660040.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Tom Clancy's Ghost Recon: Future Soldier (RePack/1.0) [Ru/En] 2012 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659796.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Tom Clancy's Ghost Recon: Future Soldier (RePack/1.0) [En] 2012 l Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659792.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Tom Clancy's Ghost Recon: Future Soldier (RePack) [Ru/En] 2012 l SHARINGAN
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659788.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658596.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ DiRT Коллекция [Ru/En] (RePack) 2007-2011 | shidow
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657782.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657420.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Flower, Sun and Rain [PS3 / PS2 Classics] (2001) [PS3] [NTSC-J] 3.55 [Unofficial
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657357.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ theHunter: Call of the Wild (2017) [Ru/Multi] (2204008/dlc) Repack dixen18
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655864.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ The Binding of Isaac: The Wrath of the Lamb [En] (Rip/1.3) 2012 | Theta
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655258.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Salvation Prophecy [En] (P) 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655164.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655160.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ World of Tanks Mods (2015) [Ru] (19.1) Mod Jove [Сборка модов от Jo
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655117.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ World of Tanks (2010) [Ru] (0.9.8) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655104.jpg" />
 </div>
 
 

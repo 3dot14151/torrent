@@ -1,3 +1,55 @@
+###  Публикация: 1391064   (1026574) от 13.03.2021
+
+Телефон (1944) DVDRip [H.264] [hand made colored]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультфильм для маленьких по сказке К.Чуковского в стихах. Цветной.Производство: СССРЖанр: Детский, Рисованная анимация, Сказка, ФэнтезиРежиссер: Корней ЧуковскийСубтитры: отсутствуютПродолжительность: 00:11:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B3C754B07E0C74DAC04C53A7BB9B58F456C127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466017   (1018550) от 29.04.2021
+
+Перевал (1988) DVDRip [H.264] [hand made remastered]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Космический корабль терпит крушение на неизвестной планете. Его пассажиры живут в отрыве от Земли и пытаются вернуться к кораблю, чтобы подать сигнал SOS.Производство: СССР, СоюзмультфильмЖанр: Короткометражный, фантастикаРежиссер: Владимир ТарасовАктеры: Александр Кайдановский, Василий Ливанов, Александр ПашутинСубтитры: отсутствуютПродолжительность: 00:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E457B7A22A47869BE1E5E728C765CFAE8FE0F6FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1470242   (1015983) от 15.05.2021
 
 Пирог со смеяникой (1980) DVDRip
@@ -6,7 +58,7 @@
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015983.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015968.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008970.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002625.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002608.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002607.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000255.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000245.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000241.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000219.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999984.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998846.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992634.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992283.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991239.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990702.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989896.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987022.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986883.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985481.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984349.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980522.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ Mister Пронька (1991) WEBRip
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980495.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976772.jpg" />
 </div>
 
 
@@ -619,59 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BF75B02900413505896B329CF4550D3D2B3565B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532129   (976471) от 01.02.2020
-
-В яранге горит огонь (1956) DVDRip [H.264] [Реставрация "Крупный план"]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм по мотивам северных народных сказок. Он рассказывает о непослушных детях, в момент беды, не задумываясь, бросившихся на поиски и спасение мамы.Жанр: Детский, Сказка, Рисованная анимацияРежиссер: Ольга ХодатаеваПродолжительность: 00:20:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F95111E5DB191D733779C37673CF88523DFCAD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357699   (973163) от 04.02.2020
-
-Я жду птенца (1966) WEBRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973163.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Я жду птенца» — кукольный мультипликационный фильм по мотивам сказки Доктора Сьюза.
-Легкомысленная, лишённая материнского чувства птица оставляет своё гнездо, поручая слону высиживать яйцо. Во всяком случае, именно так он понимает её поручение. И вот — парадоксальнейшая ситуация! — слон влезает на дерево и взгромождается над гнездом, желая честно выполнить свой (   Читать дальше...   )Производство: СССР / СоюзмультфильмЖанр: Короткометражный, кукольныйРежиссер: Николай СеребряковСубтитры: ОтсутствуютПродолжительность: 00:15:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12D08AF0D9D2F3C8BE54847A6EB152702993E897
 ```
 
 https://mybot314.ru/tekegram_catalog/

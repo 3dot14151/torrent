@@ -1,3 +1,58 @@
+###  Публикация: 1458340   (1023757) от 29.03.2021
+
+Debian GNU/Linux 10.9.0 + nonfree Buster [i386] 4xDVD+1xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как сообщает OpenNET: опубликовано девятое корректирующее обновление дистрибутива Debian 10, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 45 обновлений с устранением проблем со стабильностью и 30 обновлений с устранением уязвимостей. Из изменений в Debian 10.9 выделяется обновление до свежей стабильной (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:697F3D5EF33B82AE3B85BEDC09FC2BF45257AB92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461687   (1020750) от 16.04.2021
+
+Parrot OS Security 4.11 [amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Parrot OS 4.11 новая версия включает в себя множество важных обновлений, которые делают распространение более надежным и безопасным.
+
+Parrot - это всемирное сообщество разработчиков и специалистов по безопасности, которые работают вместе, чтобы создать общую платформу инструментов, которые сделают их работу проще, стандартизованнее, надежнее и безопаснее.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B2FE746D0859FDD07033E2D19D236996BA9D07C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463237   (1020552) от 17.04.2021
 
 SystemRescueCD 8.0.2 [x86/x64] 2xCD
@@ -6,7 +61,7 @@ SystemRescueCD 8.0.2 [x86/x64] 2xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020552.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Ctlos Linux Xfce 2.0.0 [x86-64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019400.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ HP-UX 11.11 [PA-RISC, Itanium] 9xCD
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018872.jpg" />
 </div>
 
 
@@ -88,7 +143,7 @@ AIX 7.2 TL4 SP2 [POWER] 2xDVD
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018864.jpg" />
 </div>
 
 
@@ -117,7 +172,7 @@ FreeNAS 11.3-U5 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018149.jpg" />
 </div>
 
 
@@ -143,7 +198,7 @@ XigmaNAS 12.2.0.4.8311 [x64] 1xCD+4xIMG
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017634.jpg" />
 </div>
 
 
@@ -170,7 +225,7 @@ Calculate Linux 21 [x86_64] 8xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017485.jpg" />
 </div>
 
 
@@ -196,7 +251,7 @@ FreeBSD 13.0 [i386, amd64] 2xDVD
 >>ОС *BSD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014393.jpg" />
 </div>
 
 
@@ -222,7 +277,7 @@ Debian Edu - Skolelinux 10.9.0 Buster [Linux для школы] [i386, x86-64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012356.jpg" />
 </div>
 
 
@@ -248,7 +303,7 @@ antiX Linux 19.4 Grup Yorum [i386, x86_64] 6xСD + 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011032.jpg" />
 </div>
 
 
@@ -275,7 +330,7 @@ Debian GNU/Linux 10.10.0 + nonfree Buster [i386] 4xDVD+1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010103.jpg" />
 </div>
 
 
@@ -303,7 +358,7 @@ Debian GNU/Linux 10.10.0 + nonfree Buster [amd64] 4xDVD+1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010102.jpg" />
 </div>
 
 
@@ -331,7 +386,7 @@ SUSE Linux Enterprise Desktop Server Workstation 15.3 [x86_64, aarch64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008661.jpg" />
 </div>
 
 
@@ -357,7 +412,7 @@ ArcaOS 5.0 [i386] 1xCD
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008510.jpg" />
 </div>
 
 
@@ -383,7 +438,7 @@ Ctlos Linux Xfce 2.1.0 [x86-64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008239.jpg" />
 </div>
 
 
@@ -411,7 +466,7 @@ Amiga OS 4.1 [PowerPC] 1xCD
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008223.jpg" />
 </div>
 
 
@@ -437,7 +492,7 @@ Linux Mint 20.2 Uma (XFCE, Mate, Cinnamon) [64bit] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007343.jpg" />
 </div>
 
 
@@ -463,7 +518,7 @@ Kali Linux 2021.2 (ex. BackTrack) [amd64, i386, arm] 6xDVD, 3xCD Аудит бе
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006207.jpg" />
 </div>
 
 
@@ -491,7 +546,7 @@ EuroLinux 8.3 [совместим с Red Hat Enterprise Linux] [amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005771.jpg" />
 </div>
 
 
@@ -517,7 +572,7 @@ Parted Magic 2019.12.24 [i686/amd64] 1xDVD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003128.jpg" />
 </div>
 
 
@@ -543,7 +598,7 @@ Liberte Linux [анонимный доступ в сети] 2012.3 [x32] (1xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999004.jpg" />
 </div>
 
 
@@ -571,13 +626,43 @@ Tor Browser 2.3.25-2 [анонимный доступ в сети] [i686, x86-64
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997709.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Tor Browser for Linux - удобная и простая модификация Firefox с интегрированной (встроенной) системой TOR, устраняющая проблему установки и сложной первоначальной настройки (для малоопытного пользователя). Tor Browser Bundle предотвращает наблюдение за интернет-соединением пользователя и получение информации о том, какие сайты посещаются, а также скрывает от всех посещаемых хостов информацию о физическом расположении посетителя. Включает в себя программное обеспечение Tor и соответствующим образом настроенный браузер Firefox.Название программы: Tor Browser
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605023   (996008) от 18.01.2013
+
+Pear Linux 6.1 R2 [i386, amd64] (2xDVD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_996008.jpg" />
+</div>
+
+
+###  Подробнее
+
+После нескольких дней, разработчики выпустили новую исправленную версию 6.1 R2, в которой, с их слов,  устранены проблемы первой версии дистрибутива.
+
+Pear OS - французский дистрибутив Linux, основанный на Ubuntu. Разработчики постарались максимально приблизить интерфейс системы к Mac OS. Pear OS использует различные передовые технологии, чтобы сделать Вашу работу на компьютере максимально удобной. На рабочем столе располагается панель быстрого запуска, позволяющая запускать приложения одним кликом. Launchpad - это своеобразный дом, где находятся все установленные программы. Все приложения, которые Вы загрузите, сразу же появятся там. Также в состав Pear OS входит Finder - утилита, позволяющая искать различные файлы не только на этом компьютере, но и на других компьютерах Вашей сети. с помощью программы QuickView Вы можете просмотреть файл, не открывая его, тем самым убедившись в соответствии содержимого названию.
+
+Основные изменения:  Pear PPA Manager, Pear Cleaner.. Также обновлены практически все пакеты и ядро (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -597,7 +682,7 @@ Snowlinux 4.0 Glacier (XFCE, E17 - легкий дистрибутив) [i386 + 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994684.jpg" />
 </div>
 
 
@@ -606,95 +691,6 @@ Snowlinux 4.0 Glacier (XFCE, E17 - легкий дистрибутив) [i386 + 
 Выпущен новый релиз Snowlinux 4 Xfce и E17.  Snowlinux-4, который основан на Debian GNU / 'Wheezy' Linux 7.0 и использует ядро Linux 3.5. Каждый из дистрибутивов Snowlinux 4 Xfce и E17 доступен в двух образах ISO для различных архитектур.
 
 В обоих дистрибутивах используется свежие версии Firefox, Thunderbird, AbiWord, Shotwell. Дистрибутив дополнен новым функционалом, например, таким как snowMenu, SnowLinux меню, а также добавлено много других функций. SnowLinux теперь используется Pidgin в качестве IM клиента по умолчанию.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608393   (993249) от 25.01.2013
-
-eComStation OS 2.1  [демо-версия] (1xCD)
-
->>Linux, Unix и другие ОС
->>Другие ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993249.jpg" />
-</div>
-
-
-###  Подробнее
-
-eComStation (eCS) — обновлённая OEM-версия операционной системы IBM OS/2 Warp 4.5, разработанная и продвигаемая на рынке американской компанией Serenity Systems International и голландской компанией Mensys B.V.
-
-Версия eComStation отличается:
-- улучшенным графическим интерфейсом
-- обновлённой IFS JFS с поддержкой загрузки
-- драйвером ACPI
-- улучшенной программой установки
-- обновленными наборами драйверов
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353042   (992990) от 16.01.2020
-
-XigmaNAS-x64-LiveCD-12.1.0.4.7091 1xCD 12.1.0.4.7091 [amd64] 1xCD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992990.jpg" />
-</div>
-
-
-###  Подробнее
-
-XigmaNAS - свободная операционная система для сетевого хранилища. Является прямым продолжением проекта
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49BCBFF73A5AAD08E6FFFAFE3C67225D9CD08830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610134   (990819) от 28.01.2013
-
-ESSPEE R3 Live DVD (Анализ безопасности, хакинг) [i386] (1xDVD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990819.jpg" />
-</div>
-
-
-###  Подробнее
-
-26-го января Вышла новая версия ESSPEE Live DVD - Linux-дистрибутива на базе Ubuntu, который включает в себя только свободные и бесплатные программы. Дистрибутив предназначен для пентестов, восстановления данных, хакинга.
-
-Как отмечали авторы обзора Xakep.ru: "ESSPEE (Extreme Security Scanning Penetration Test & Exploitation Environment) собирается на базе BackTrack. Разработчик ESSPEE изъял оттуда «некошерные» инструменты, добавил интерфейс на Unity и произвёл некоторые другие изменения. В общем, это приятная альтернатива стандартному BackTrack"
-
-username: root; pass: toor.
 
 ## Скачать торент
 ```bash

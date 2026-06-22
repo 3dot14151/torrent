@@ -1,3 +1,58 @@
+###  Публикация: 1178161   (357859) от 27.10.2017
+
+Взрывная блондинка / Atomic Blonde (2017) WEB-DL [720p] ATV
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агент Лоррейн Бротон, бриллиант в короне Секретной разведывательной службы Ее Величества, не просто мастер шпионажа: она бомбически сексуальна, взрывоопасна и использует весь арсенал своих уникальных умений во время невыполнимых миссий. В неспокойном Берлине, куда ее направляют с заданием вернуть бесценное досье, она вынуждена объединиться с агентом под прикрытием (   Читать дальше...   )Производство: СШАЖанр: Боевик, триллер, детективРежиссер: Дэвид ЛитчАктеры: Шарлиз Терон, Джеймс МакЭвой, Эдди Марсан, Джон Гудман, Тоби Джонс, Джеймс Фолкнер, Роланд Мюллер, София Бутелла, Билл Скарсгард, Сэм ХаргрейвПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  АнглийскиеПродолжительность: 01:55:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7C2CC839F5E4787478CA4B27D087B40BB7070AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178120   (357856) от 27.10.2017
+
+Remotix VNC, RDP & NEAR 5.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Remotix это быстрый, удобный и безопасный VNC и RDP клиент для удаленного доступа к компьютерам
+Remotix - быстрое и мощное приложение для удаленного доступа к другому Mac или PC.
+
+К основным особенностям, по сравнению с другими кгиентами, можно отнести:  Полноэкранный доступ, в т.ч. с поддержкой входа в Mac OS X,  Синхронизация буфера обмена,  Несколько конфигураций (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25 октября 2017Разработчик: Nulana LTDПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E42F51177D9846E24A97C603246E3E9B8E254B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417565   (357813) от 20.10.2020
 
 Zoc Terminal 7.26.4 [En]
@@ -6,7 +61,7 @@ Zoc Terminal 7.26.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357813.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Adobe InDesign CC 2018 v13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357765.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357652.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ Adobe Zii СС2018 Universal Patcher 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357637.jpg" />
 </div>
 
 
@@ -110,7 +165,7 @@ Paragon NTFS for Mac 14.0.543 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357416.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ Kaspersky Virus Scanner 8.1.4 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_357154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_357154.jpg" />
 </div>
 
 
@@ -166,7 +221,7 @@ File Juicer 4.97 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357033.jpg" />
 </div>
 
 
@@ -193,7 +248,7 @@ Aiseesoft Mac FoneTrans 9.1.52 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356892.jpg" />
 </div>
 
 
@@ -219,7 +274,7 @@ AirMail Pro 5 v.5.5.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356890.jpg" />
 </div>
 
 
@@ -246,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356827.jpg" />
 </div>
 
 
@@ -274,7 +329,7 @@ Wondershare Filmora 11 v.11.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356767.jpg" />
 </div>
 
 
@@ -300,7 +355,7 @@ Sip Pro 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356037.jpg" />
 </div>
 
 
@@ -328,7 +383,7 @@ GoodTask 2.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356035.jpg" />
 </div>
 
 
@@ -356,7 +411,7 @@ Grids for Instagram 4.5.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355935.jpg" />
 </div>
 
 
@@ -385,7 +440,7 @@ Piezo 1.6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355908.jpg" />
 </div>
 
 
@@ -414,7 +469,7 @@ IconJar 2.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355905.jpg" />
 </div>
 
 
@@ -443,7 +498,7 @@ DupeZap 4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355904.jpg" />
 </div>
 
 
@@ -472,7 +527,7 @@ DropDMG 3.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355903.jpg" />
 </div>
 
 
@@ -499,7 +554,7 @@ Duplicate File Finder Pro 6.9  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355898.jpg" />
 </div>
 
 
@@ -528,7 +583,7 @@ DxO PhotoLab 4 ELITE Edition 4.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355895.jpg" />
 </div>
 
 
@@ -556,7 +611,7 @@ Disk Expert Pro 3 v3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355893.jpg" />
 </div>
 
 
@@ -584,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355760.jpg" />
 </div>
 
 
@@ -610,7 +665,7 @@ Big Mean Folder Machine 2 v2.42 [EN]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355758.jpg" />
 </div>
 
 
@@ -638,7 +693,7 @@ MacCleaner 2 PRO 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355756.jpg" />
 </div>
 
 
@@ -649,61 +704,6 @@ MacCleaner 2 PRO 2.3 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68E5727EF0811C25F4048F7C3618B29F34847B7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417687   (355735) от 21.10.2020
-
-4K Video Downloader 4.13.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой загрузчик видео, ничего лишнего!
-Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть Интернет, а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2020Разработчик: OpenMedia LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B96507E483A524565AA34870E4A225EAD67D5390
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178495   (355382) от 28.10.2017
-
-Adobe Illustrator CC2018 v22 [Multi/Ru]
-
->>След.
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Illustrator CC – это принятое в качестве отраслевого стандарта программное обеспечение векторной графики, широко используемое дизайнерами в различных областях – цифровой графики, иллюстраций и печати – при разработке любых видов мультимедийных ресурсов: печатных материалов, интернет-содержимого, интерактивных средств, видеороликов и мобильных приложений.
-
-Представляем (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18 октября 2017Разработчик: AdobeПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B39497F6E22D538B20631D14BE3FB9F0EA205BCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

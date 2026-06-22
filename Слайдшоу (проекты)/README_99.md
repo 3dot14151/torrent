@@ -6,7 +6,7 @@
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11202.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11095.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10894.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10857.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10780.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10597.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10595.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6143.jpg" />
 </div>
 
 

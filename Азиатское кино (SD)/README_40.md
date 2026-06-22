@@ -1,3 +1,81 @@
+###  Публикация: 625212   (385012) от 08.10.2020
+
+Мне отмщение, и аз воздам / Я отомстил / Fukushû suru wa ware ni ari (1979) HDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семьдесят восемь дней смертельного веселья безжалостного человека — история о воре, убийце, мошеннике и очаровательном сердцееде — Ивао Энокидзу. Сёхэй Имамура преобразовал и экранизировал, основанный на исторических фактах, холодный, извращённый, и, время от времени, дьявольски забавный рассказ о похождениях циничного Ивао. Грамотно выстроенные флэшбэки, ответвление (   Читать дальше...   )Производство: ЯпонияЖанр: Драма, криминалРежиссер: Сёхэй ИмамураАктеры: Кен Огата, Рэнтаро Микуни, Чочо Мияко, Мицуко Байсё, Маюми Огава, Нидзико Киёкава, Тайдзи Тонояма, Горо Таруми, Моеко Езава, Казуко ШиракаваПеревод: Одноголосый любительскийСубтитры: ОтсутствуютПродолжительность: 02:20:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A60F9F13A1C4D8A6423369FD43410FA7D13CAE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574666   (383756) от 06.09.2022
+
+Бистро / Diner (2019) BDRip [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ещё совсем маленькой Канако Обу бросила родная мать: оставила жить с бабушкой, а сама забрала старшую дочь и ушла. С тех пор готовка — единственное, что нравилось девушке, и она мечтала когда-нибудь открыть свой ресторан. Когда у неё появляется вторая мечта — посетить Мексику — Канако берётся за подработку водителем, но оказывается соучастницей ограбления и попадает (   Читать дальше...   )Производство: Япония, Dawn Purple, N-Design, Newpot Pictures, Undergraph, Zinou PharmaceuticsЖанр: криминал, драма, боевикРежиссер: Мика НинагаваАктеры: Тина Тамасиро, Тацуя Фудзивара, Масатака Кубота, Каната Хонго, Синдзи Такэда, Такуми Саито, Эрико Сато, Нобуаки Канэко, Сюн Огури, Анна ЦутияПеревод: Авторский (Александр Смирнов)Субтитры: Русские, английскиеПродолжительность: 01:57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E3D119BD9AD6811501B0058F20788F9539AC685
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414623   (383522) от 09.10.2020
+
+Последняя победа / Zui hou sheng li / Final Victory (1987) BDRip [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мелкий босс триад Бо отправляется за решетку. Своему брату-увальню Хуну он поручает приглядывать за двумя своими женами, которые о существовании друг друга не подозревают. Основное условие - не дать дамочкам встретиться. Однако Хун не только сводит их вместе, но и умудряется влюбиться в одну их них, а та отвечает ему взаимностью. Бо обещает выйти и по-триадовски (   Читать дальше...   )Производство: Гонконг, D & B Films Co. Ltd.Жанр: Криминал, драма, мелодрамаРежиссер: Патрик ТамАктеры: Эрик Цан, Тиен-Лэнг Ли, Лолетта Ли, Харк Цуй, Деннис Чан, Джин Чен, Квок-Бан Чунг, Юэнь-Лонг Чун, Патрик Гэмбл, Луи КэмПеревод: Авторский (Андрей Дольский)Субтитры: Английские - отдельным файломПродолжительность: 01:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C30EEBC0245FD69ED792A9A14C66ACB1DFD791A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 416680   (382204) от 23.10.2014
 
 Падение последней империи / 1911 / Xin hai ge ming (2011) HDRip
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382204.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382060.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381297.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381033.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377095.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376913.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375470.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375193.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374793.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374791.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374407.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373204.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372921.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372712.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372413.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372316.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372193.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371574.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371003.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370697.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370127.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369544.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367516.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55476F61FBD89CD824D3DD4021982AB6DAB7FB68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576481   (366621) от 14.09.2022
-
-Я живу в страхе / Ikimono no kiroku (1955) BDRip [H.264] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой фильма, обеспеченный промышленник господин Накадзима, из страха перед возможными ядерными бомбардировками Японии решает эмигрировать в Бразилию, в безопасное, на его взгляд, место. При этом он хочет спасти всё своё многочисленное семейство, включая взрослых детей и бывших любовниц, и забрать их с собой. Однако родственники, вполне довольные жизнью на (   Читать дальше...   )Производство: Япония, Toho CompanyЖанр: драмаРежиссер: Акира КуросаваАктеры: Тосиро Мифунэ, Такаси Симура, Минору Чияки, Ейко Миёси, Киёко Аояма, Харуко Того, Норико Сенгоку, Акеми Негиси, Хироси Тачикава, Кичидзиро УедаПеревод: авторский (Сергей Кузнецов; Алексей Яковлев)Субтитры: русские, английскиеПродолжительность: 01:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A72764716424E798EAA296813E65CBAA87A162B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255337   (365552) от 17.10.2018
-
-Последний беспредел / Autoreiji saishusho / Outrage Coda (2017) BDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365552.jpg" />
-</div>
-
-
-###  Подробнее
-
-После уничтожения синдиката Санно семьей Ханабиси ветеран Отомо осел на корейском острове Чеджу под защитой мистера Чана. Присматривает за отелями и борделями, ходит на рыбалку. Однажды якудза семьи Ханабиси плохо обходится с его работницами и оскорбительно себя ведёт. А вместо компенсации ущерба убивает помощника Отомо. Конфликтом решает воспользоваться заместитель (   Читать дальше...   )Производство: Япония, Office KitanoЖанр: Криминал, ДрамаРежиссер: Такеши КитаноАктеры: Такеши Китано, Тосиюки Нисида, Тацуо Надака, Кэн Мицуиси, Хакурю, Икудзи Накамура, Сансэй Сиоми, Ютака Мацусигэ, Кандзи Цуда, Рен Осуги... и др.Перевод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2495B0BED0DCE227FE942F4CD483A3DC938E5702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255341   (365408) от 17.10.2018
-
-Последний беспредел / Autoreiji saishusho / Outrage Coda (2017) BDRip [H.264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365408.jpg" />
-</div>
-
-
-###  Подробнее
-
-После уничтожения синдиката Санно семьей Ханабиси ветеран Отомо осел на корейском острове Чеджу под защитой мистера Чана. Присматривает за отелями и борделями, ходит на рыбалку. Однажды якудза семьи Ханабиси плохо обходится с его работницами и оскорбительно себя ведёт. А вместо компенсации ущерба убивает помощника Отомо. Конфликтом решает воспользоваться заместитель (   Читать дальше...   )Производство: Япония, Office KitanoЖанр: Криминал, ДрамаРежиссер: Такеши КитаноАктеры: Такеши Китано, Тосиюки Нисида, Тацуо Надака, Кэн Мицуиси, Хакурю, Икудзи Накамура, Сансэй Сиоми, Ютака Мацусигэ, Кандзи Цуда, Рен Осуги... и др.Перевод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: Русские, английскиеПродолжительность: 01:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4AEDD634BAEA870338D03DB00EF63A05ABD662E
 ```
 
 https://mybot314.ru/tekegram_catalog/

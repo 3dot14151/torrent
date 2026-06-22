@@ -1,3 +1,32 @@
+###  Публикация: 894230   (708949) от 01.05.2015
+
+VA - Die Hit-Giganten: Best Of One Hit Wonder (2013) [FLAC|Lossless]<Pop, Dance, Rock, Pop-Rock>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжаем начатую здесь серию. На очереди - Исполнители одного хита. Да уж бывает так, что всего один хит у исполнителя, но зато какой! И все его помнят. Вот и получается, что все три диска - это 100% хиты.CD1:
+01. Crazy Town - Butterfly  (3:36)
+02. Dante Thomas - Miss California  (4:09)
+03. Toploader - Dancing in the Moonlight  (3:48)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Pop-RockПродолжительность: 03:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B8D26B15CDAB9E81FC2F288BFE248B56241FB0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025666   (707843) от 13.06.2016
 
 Jupiter Panic - Earth-like (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronica, Soundtrack, New Age>
@@ -6,7 +35,7 @@ Jupiter Panic - Earth-like (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronica, So
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707843.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ The Pasadena Roof Orchestra - Breakaway (1991) [FLAC|Lossless|image + .cue] <Jaz
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707521.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Super Instrumental 25 (Vol. 23-25) (1996) [FLAC|Lossless|image, tracks + .c
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706993.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Robert Miles - Child of Dream (2001) Bootleg [FLAC|Lossless|image + .cue] <Tranc
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696585.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ CherryVata - Daybreak (2017) [FLAC|Lossless|WEB-DL|tracks] <Future Beats, Nu Jaz
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689100.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Harvestman - 3 albums (2005-2010) [FLAC|Lossless] <Drone Ambient, Psychedelic Fo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_677200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_677200.jpg" />
 </div>
 
 
@@ -186,7 +215,7 @@ Steve Von Till - 3 albums (2000-2008) [FLAC|Lossless] <Acoustic, Neofolk, Ambien
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_677062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_677062.jpg" />
 </div>
 
 
@@ -221,7 +250,7 @@ Jakob - 5 albums (1999-2006) [FLAC|Lossless] <Post-Rock, Ambient, Instrumental>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_676899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_676899.jpg" />
 </div>
 
 
@@ -253,7 +282,7 @@ Gregor Samsa - 6 albums (2002-2009) [FLAC|Lossless] <Post-Rock, Ambient, Instrum
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672202.jpg" />
 </div>
 
 
@@ -287,7 +316,7 @@ Shirley Rumsey - Music of the Renaissance - 2 альбома (1993-1994) [FLAC|L
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_670651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_670651.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Set Fire to Flames - 2 albums (2001-2003) [FLAC|Lossless] <Post-Rock, Instrument
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_668470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_668470.jpg" />
 </div>
 
 
@@ -356,7 +385,7 @@ Shalabi Effect - 4 albums (2001-2005) [FLAC|Lossless] <Instrumental, Experimenta
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_667225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_667225.jpg" />
 </div>
 
 
@@ -390,7 +419,7 @@ Hangedup - 3 albums (2001-2005) [FLAC|Lossless] <Experimental, Instrurumental, P
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_666227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_666227.jpg" />
 </div>
 
 
@@ -425,7 +454,7 @@ Hrsta - 3 albums (2001-2007) [FLAC|Lossless] <Post-Rock, Experimental>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_666103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_666103.jpg" />
 </div>
 
 
@@ -459,7 +488,7 @@ Land of Kush - 2 albums (2009-2010) [FLAC|Lossless] <Avant-garde, Free Jazz, Pos
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_659118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_659118.jpg" />
 </div>
 
 
@@ -491,7 +520,7 @@ Wulfin Lieske - Spanish Guitar Music (1992) [FLAC|Lossless]<Classical Guitar>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_658151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_658151.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Laurindo Almeida, Salli Terri, Martin Ruderman - Duets With Spanish Guitar (1990
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_657968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657968.jpg" />
 </div>
 
 
@@ -561,7 +590,7 @@ VA - The Ultimate Classical Guitar Album (2008) 2CD [FLAC|Lossless]<Classical Gu
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_657745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657745.jpg" />
 </div>
 
 
@@ -596,7 +625,7 @@ VA - Адажио для арфы / Harp Adagios (2005) [FLAC|Lossless]<Classica
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_643320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643320.jpg" />
 </div>
 
 
@@ -631,7 +660,7 @@ VA - Essential Guitar - 33 Guitar Masterpieces (2002) 2CD [WavPack|Lossless]<Cla
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_643313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643313.jpg" />
 </div>
 
 
@@ -665,7 +694,7 @@ VA - The Music of Spain (2004) [FLAC|Lossless]<Instrumental>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_641398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_641398.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ Julian Bream - Music of Spain (2005) [APE|Lossless]<Classical Guitar>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_635350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_635350.jpg" />
 </div>
 
 
@@ -735,7 +764,7 @@ Great American Taxi - Paradise Lost (2011) [FLAC|Lossless]<Americana, Blues, Cou
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_630865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_630865.jpg" />
 </div>
 
 
@@ -770,7 +799,7 @@ VA - Putumayo Kids Presents - Hawaiian Playground (2008) [FLAC|Lossless|tracks +
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613768.jpg" />
 </div>
 
 
@@ -799,48 +828,13 @@ VA - Classic Love At The Movies (2011) [FLAC|Lossless]<Classical, Pop, Rock, Sta
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_612832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_612832.jpg" />
 </div>
 
 
 ###  Подробнее
 
 01. Hollywood Bowl Orchestra - John Dunbar Theme {Жанр: Classical, Pop, Rock, Stage & ScreenФормат: BoxSet 2CDПродолжительность: 01:15:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524322   (612603) от 18.07.2012
-
-Alex Clare - The Lateness of the Hour (2011) [FLAC|Lossless]<Soul/Pop/Dubstep>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_612603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Up All Night (2:43)
-02. Treading Water (3:38)
-03. Relax My Beloved (3:31)
-04. Too Close (4:16)
-05. When Doves Cry (4:08)
-06. Hummingbird (3:50)
-07. Hands Are Clever (3:16)
-08. Tightrope (3:37)
-09. Whispering (4:30)
-10. Love You (4:39)(   Читать дальше...   )Жанр: Soul/Pop/DubstepПродолжительность: 00:46:22
 
 ## Скачать торент
 ```bash

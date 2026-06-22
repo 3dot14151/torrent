@@ -1,3 +1,107 @@
+###  Публикация: 1146450   (614132) от 29.06.2017
+
+No70: Eye of Basir (2017) [Ru/Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет разворачивается вокруг зловещего дома №70. Девять лет тому назад в нем проживали братья Арас и Эрхан, после гибели своей бабушки они покинули это злачное место, но за прошедшее время дети успели повидать много странного и необъяснимого. С тех времен прошло уже 20 лет, братья выросли и стали очень состоятельными людьми. Эрхан получил должность архитектора, он (   Читать дальше...   )Тип издания: LicenseРазработчик: Oldmoustache GameworksЖанр: Adventure, Horror, 3DЯзык озвучки: Английский, ТурецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5854E31E6EB99D652DF0306F5AC602A1E6955C1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228373   (613556) от 13.06.2018
+
+Golem (2018) [Ru/Multi] (1.0.1.6) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Никто не знал, кто построил древнюю башню на побережье. Девушка догадывалась, что вода должна была когда-то течь по этим гигантским акведукам в ее деревню, но даже ее дедушка не мог вспомнить, как поворачивается старое водяное колесо мельницы. И сегодня, также как и вся остальная молодежь, она приходит сюда, чтобы собрать немного воды из пещер под башней.Тип издания: LicenseРазработчик: Longbow GamesЖанр: Экшн, Приключение, ГоловоломкаЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65B5B786D021271F80750C7E185881C9AEBF8071
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091506   (613014) от 16.04.2019
+
+Shelter 2 (2015) [Ru/Multi] (1.0/dlc) License GOG [Special Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613014.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре показана жизнь матери-рыси от беременности до рождения и воспитания детенышей. Основная забота матери - кормление, оно крайне важно для выживания потомства. В игре Shelter 2 игровой процесс сложнее, чем в предыдущей версии. Добавлены параметр выносливости, различные движения, прыжки и разнообразная добыча.Тип издания: LicenseРазработчик: Might and DelightЖанр: Adventure, IndieЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99695C17EFCC1B883F53EE0BA41ACCD13D1E0425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056887   (612546) от 20.04.2022
+
+Firewatch (2016) [Ru/Multi] (1.1.2) Repack Other s
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612546.jpg" />
+</div>
+
+
+###  Подробнее
+
+1989-й год. Тебя зовут Генри, и ты уехал от тяжелой жизни в леса Вайоминга, чтобы работать там дозорным. Расположившись на самой вершине горы, ты должен следить за сохранностью окружающей природы. Особо жаркое, сухое лето заставляет всех беспокоиться. Твой начальник, женщина по имени Делайла, всегда поддерживает с тобой контакт с помощью небольшой ручной рации — (   Читать дальше...   )Тип издания: RepackРазработчик: Campo SantoЖанр: Adventure, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:827076FD3D7C04A322A30C01FECAFE6B878CC489
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1146822   (612537) от 30.06.2017
 
 Machinarium / Машинариум (2009) [Ru/Multi] (1.0.0.1) SteamRip Let'sPlay [Definitive Version]
@@ -6,7 +110,7 @@ Machinarium / Машинариум (2009) [Ru/Multi] (1.0.0.1) SteamRip Let'sPla
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612537.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ The Way (2016) [Ru/Multi] (1.07b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612071.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Post Mortem (2003) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610894.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Please (2017) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610708.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ FRAMED Collection (2018) [Multi] (1.0.16#456) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610353.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Tales from the Borderlands (2014) [En] (1.0.0.1) License CODEX [Episode 1-3: Zer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610171.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ LEGO The Incredibles (2018) [Ru/Multi] (1.0.0/dlc) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608302.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Lucius II: The Prophecy (2015) [Ru/En] (1.0.150601.b) Repack xGhost
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608211.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Minecraft: Story Mode (2015) [Ru/Multi] (1.0.0.1) License RELOADED [Episodes 1-7
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607786.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ The Talos Principle (2014) [Ru/Multi] (1.0.301136/dlc) SteamRip Let'sPlay [Gold 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607270.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ Clocker (2019) [Ru/Multi] (1.1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604039.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ Clocker (2019) [Ru/Multi] (1.1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604018.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603641.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ Ben The Exorcist (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602801.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ Paws: Pitter (2016) [Ru/Multi] (1.2/dlc) License GOG [Patter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602799.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ Tunnels of Despair (2018) [Ru/Multi] (1.06) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602695.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ The Stanley Parable (2022) [Ru/Multi] (1.04) Repack Other s [Ultra Deluxe]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602267.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ SIMULACRA (2017) [En] (1.0.48) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602103.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ The Cat Lady (2012) [Ru/Multi] (1.7) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601557.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ Downfall: A Horror Adventure Game / Downfall: История в стиле хо�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601555.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ VALKYRIE DRIVE -BHIKKHUNI- (2017) [En/Jp] (1.0) Repack Covfefe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600893.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ Reflecting Fate (2017) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599560.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ Reflecting Fate (2017) [En] (1.0) License PLAZA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3CB4F2B664235B150A3A3119E30279DE54760EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039559   (595596) от 01.08.2016
-
-The Eyes of Ara (2016) [En] (1.0.01) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595596.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Eyes of Ara - это трехмерный приключенческий паззл-квест, вдохновленный классикой вроде Myst. Игрокам предстоит отправиться в древний заброшенный замок, чтобы разгадать его секреты.Тип издания: RepackРазработчик: 100 Stones InteractiveЖанр: Adventure, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76CBA9F2EA3291395CA24810EC4F9733FD7E15B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039566   (595591) от 01.08.2016
-
-The Eyes of Ara (2016) [En] (1.0.01) License POSTMORTEM
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595591.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Eyes of Ara - это трехмерный приключенческий паззл-квест, вдохновленный классикой вроде Myst. Игрокам предстоит отправиться в древний заброшенный замок, чтобы разгадать его секреты.Тип издания: LicenseРазработчик: 100 Stones InteractiveЖанр: Adventure, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B3A19526A04D5D403D6DE37DA9A4D8B65F1CB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526828   (595321) от 25.07.2012
-
-Captain Morgane And The Golden Turtle [Multi5/+] (RePack) 2012 l Fenixx
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключения всегда были у неё в крови. Родившись простой дочкой капитана она стала величайшей женщиной-пиратом Карибского моря; Моргана Кастилио никогда не вела скучной жизни! Начните путь Морган от невинной и добродушной 8-летней девчонки, живущей на острове к становлению известнейшим пиратом Карибского моря! Морган путешествует уже несколько лет в поисках великого и таинственного скоровища, под названием Золотая Черепаха. Помогиnt разгадать тайны и загадки; используйnt подсказки, чтобы обмануть врагов на ее пути. Наберите новую команду, исследуйте более 50 мест на 5 красивых экзотических островах в Карибском море, но старайтесь держаться подальше от неприятностей... ведь она девушка, мать вашу.(   Читать дальше...   )Тип издания: RePackРазработчик: WizarboxЖанр: AdventureЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Multi5
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28E2ABD92E9A90791DA1DFA84FE22E0A2704CB60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039895   (594201) от 02.08.2016
-
-Rising Islands (2016) [Ru/Multi] (1.010) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давным-давно, в этом мире царили хаос и раздор. Лишь создав реликвии, Древние сумели восстановить мир и гармонию. Постепенно мир восстановился после эпохи междоусобиц. Но зло не побеждено, и скоро хаос вернется, чтобы нарушить природное равновесие. Только вы, молодая женщина по имени Хайро, можете спасти мир. Используя уникальную способность, позволяющую перемещаться (   Читать дальше...   )Тип издания: LicenseРазработчик: Lone Hero StudiosЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06766CB19EEC3296F5BCE891C749EF4426936DAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

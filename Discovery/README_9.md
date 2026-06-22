@@ -1,3 +1,55 @@
+###  Публикация: 1543266   (631222) от 10.04.2022
+
+Discovery. Билли скупает Бруклин / Billy Buys Brooklyn (2021) HDTV [H.264/1080i] (сезон 1, серии 1-20 из 20)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Его легендарный антикварный магазин на Манхэттене завоевал огромную популярность у местных жителей, и сюда нередко заглядывали знаменитости. Но однажды все рухнуло: здание снесли, и Билли пришлось начинать с чистого листа. Он открыл магазин в другом районе Нью-Йорка - Бруклине - и заново собрал внушительную коллекцию винтажа, антиквариата и любопытных старых вещей. (   Читать дальше...   )Производство: США, Discovery, MY EntertainmentЖанр: документальный, познавательный, историяПеревод: одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B83CC0DC7964361115AA8009BAD107FCE420A918
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523762   (630147) от 04.07.2014
+
+Discovery: Выжить любой ценой  / Ultimate Survival (Man vs. Wild) (2005-2011) SATRip (сезоны 1-7, серий 67 из 73)
+
+>>След.
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630147.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Выжить любой ценой» (англ. Ultimate Survival) — приключенческая передача на канале «Discovery Channel», в которой ведущий Беар Гриллс (англ. Bear Grylls) высаживается во всевозможных диких местах и показывает зрителям, как выжить и найти помощь. Передача также известна под названиями «Man vs. Wild», «Born Survivor». 13 марта 2012 года канал Discovery Channel прекратил (   Читать дальше...   )Жанр: ДокументальныйПеревод: Профессиональный одноголосыйПродолжительность: 67 x ~ 00:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47DFB6D6FEE31DB4C84BED6CD1F5CEB046E3BD73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034328   (628433) от 16.07.2016
 
 Discovery: Необъяснимое. Специальные материалы / The Unexplained Files (2013, 2014) SATRip (7 серий)
@@ -6,7 +58,7 @@ Discovery: Необъяснимое. Специальные материалы /
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628433.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Discovery. НАСА: необъяснимые материалы. Лунные �
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628272.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Discovery. А ты бы выжил? / So You Think You'd Survive? (2014) HDTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627929.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Discovery. А ты бы выжил? / So You Think You'd Survive? (2014) HDTV [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627770.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Discovery: Легенда о золоте крокодилов / The Legend of C
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626915.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Discovery: Охотники за ядом / Venom Hunters (2016) HDTV [H.264/108
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624574.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Discovery: Дьявольский каньон / Devil's Canyon (2017) HDTVRip [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624231.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Discovery. Сокровища из кладовки / Backroad Bounty (2014) HDT
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623935.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Discovery: Один на один с природой / Alone in the Wild (2009)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622564.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ Discovery: Путешествие в неизвестность с Эдом Ст
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622519.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Discovery: Через магию к звёздам / The Pop Illusionist (El Mag
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620526.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ Discovery. Аппараты лунных программ / Moon Machines (2008)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620209.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Discovery. Короли Леса / Kings of the Wood (2022) WEBRip [H.264/1080p-
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619904.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Discovery. Акула Тьмы: Ярость Субмарины / Shark of Darkn
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619490.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ Discovery: Головоломы (Мозголомы): Насилие над на
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616453.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ Discovery. Ванная под ключ / King of Thrones (2013) HDTVRip [Сер
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615927.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ Discovery. Ванная под ключ / King of Thrones (2013) HDTV [H.264/720
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615855.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ Discovery: Выжить любой ценой [сезон 1] / Ultimate Survival
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614492.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ Discovery. Из любви к машинам / For the Love of Cars (2014) HDTV 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614152.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ Discovery. Гаражное золото / Garage Gold (2013) HDTVRip [Сезо�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612511.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ Discovery. Из любви к машинам / For the Love of Cars (2014) HDTVR
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612354.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ Discovery: Скрытое - Самые страшные темницы / Hidden 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_611427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_611427.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ Discovery: Хаос в действии: кадры очевидцев / Chaos c
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610681.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ Discovery: Хаос в действии: кадры очевидцев / Chaos c
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608823.jpg" />
 </div>
 
 
@@ -626,58 +678,6 @@ Discovery: Хаос в действии: кадры очевидцев / Chaos c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E98ADFCD83087CA2E3CC53F556FF7F3D8506FCAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038215   (608610) от 27.07.2016
-
-Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H.264/1080i-LQ] (Сезон 16, эпизод 02) [Discovery]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608610.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Профессиональный многоголосый - DiscoveryСубтитры: ОтсутствуютПродолжительность: ~ 00:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:860B125CF770A851F862E2E3A527E4520173DFAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038214   (608494) от 27.07.2016
-
-Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (Сезон 16, эпизод 02) [Discovery]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608494.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Профессиональный многоголосый - DiscoveryСубтитры: ОтсутствуютПродолжительность: ~ 00:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2294A0708FBEA56B45128ECB35E41C6933740467
 ```
 
 https://mybot314.ru/tekegram_catalog/

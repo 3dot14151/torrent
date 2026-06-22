@@ -1,3 +1,29 @@
+###  Публикация: 9470   (58948) от 22.04.2024
+
+День радио / "Как бы радио 109.9 FM" / 2004 DVD9
+
+>>След.
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58948.jpg" />
+</div>
+
+
+###  Подробнее
+
+На радиостанции "Как-бы Радио 109,9" случилось страшное событие - радиомарафон в поддержку российских туристов, застрявших в Конго, в срочном темпе приходится перекраивать на новый лад и как назло - ни одной подходящей новости, кроме маленького цирка, который терпит бедствие на плавучем баркасе в Японском море. Как сделать, чтобы эта трагедия стала ближе (   Читать дальше...   )Жанр: КомедияРежиссер: Сергей ПетрейковВ ролях: Михаил Полицеймако, Ростислав Хайт, Леонид Барац, Нонна Гришаева, Михаил Козырев, Александр Демидов, Камиль Ларин, Анна Касаткина, Алексей КортневФормат: DVD VideoКачество: DVD9Продолжительность: 2:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2E37A3A96AC9A40FB9B851D3A4E5337F08B2FF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396264   (58274) от 28.04.2024
 
 Гамильтон / Hamilton (2020) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] [EN / RU, EN Sub]
@@ -6,7 +32,7 @@
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58274.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47195.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Pink Floyd. The Wall (1982) DVD9
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45844.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45221.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45209.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39150.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35181.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31644.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31430.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964) BDRi
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30669.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17015.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8306.jpg" />
 </div>
 
 

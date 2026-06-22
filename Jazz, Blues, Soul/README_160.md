@@ -1,174 +1,3 @@
-###  Публикация: 1522881   (755065) от 09.01.2022
-
-VA - Classic Savoy Be-Bop Sessions (1945 - 1949) 10CD, 2016, Mosaic Records [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755065.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Dexter Gordon - Blow Mr. Dexter (alternate take) [2:40]
-02. Dexter Gordon - Blow Mr. Dexter [2:58]
-03. Dexter Gordon - Dexter's Deck [2:56](   Читать дальше...   )Жанр: BopПродолжительность: 10:15:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD85A8DADBEA2B464FDB54D2E67730D96548A087
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522943   (754935) от 09.01.2022
-
-V.A. - Blues Legends (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chuck Berry - No Particular Place To Go
-02. John Lee Hooker - Boom Boom
-03. Muddy Waters - Rollin' Stone
-04. Howlin' Wolf - Smokestack Lightnin'(   Читать дальше...   )Жанр: BluesПродолжительность: 02:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88AAE8DFB117670666EF3ABDCD15FEBAE2AB19A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215725   (754852) от 28.03.2018
-
-Kenny Burrell - Bluesin' Around (1961, 1962) 2017, Sony Music [FLAC|Lossless|image + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mambo Twist [05:10]
-02. The Switch [03:06]
-03. The Squeeze [04:21]
-04. Bluesin' Around [03:46](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A724CA4682180A4BFD53AD1B1FDF2B81A9EC16F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215898   (754775) от 28.03.2018
-
-Chiara Civello - Canzoni (2014) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Via con me (3:49)
-02. Io che non vivo senza te (feat. Gilberto Gil) (3:34)
-03. Con una rosa (4:25)
-04. Que me importa el mundo (4:29)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:048983557848C0BCD50C3B79BB3D51995E34D053
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018800   (754014) от 21.05.2016
-
-VA - Swingers (2CD) (1997) [FLAC|Lossless|tracks + .cue] <Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Jazz, SwingПродолжительность: 01:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6BA850A0A882833A7BF75F130BDAD082D638329
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395563   (753828) от 11.07.2020
-
-Dakota Staton - Isn't This A Lovely Day (1995) Muse Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Isn't This a Lovely Day [3:19]
-02. I Cover the Waterfront [6:53]
-03. Gee Baby, Ain't I Good to You [2:32]
-04. Cold Cold Feeling [4:54](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B2229FE548B95FBF94D436DC0CBDBF3E1C1F30B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 887780   (753666) от 15.04.2015
 
 Portico Quartet - Дискография (2006-2013) [OGG|407-519]<Post-Jazz>
@@ -177,7 +6,7 @@ Portico Quartet - Дискография (2006-2013) [OGG|407-519]<Post-Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753666.jpg" />
 </div>
 
 
@@ -207,7 +36,7 @@ VA - Jazz In Texas 1924-1930 (1997) Timeless [FLAC|Lossless|tracks + .cue] <Dixi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753597.jpg" />
 </div>
 
 
@@ -236,7 +65,7 @@ Chris Gall - Room of Silence (2018) [FLAC|Lossless|WEB-DL|tracks] <Contemporary 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753596.jpg" />
 </div>
 
 
@@ -265,7 +94,7 @@ Cesaria Evora - Greatest Hits (2015) [FLAC|Lossless]<Ethnic, Jazz, Morna>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753459.jpg" />
 </div>
 
 
@@ -294,7 +123,7 @@ George Braith - The Complete Blue Note Sessions (1963) 2CD, 2001, Blue Note [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753390.jpg" />
 </div>
 
 
@@ -323,7 +152,7 @@ Edmond Hall, James P. Johnson, Vic Dickenson, Sidney De Paris - The Complete Blu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753066.jpg" />
 </div>
 
 
@@ -352,7 +181,7 @@ Art Pepper - Live At The Village Vanguard (1977) 4CD, 1987, Victor [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753065.jpg" />
 </div>
 
 
@@ -381,7 +210,7 @@ Zoe Schwarz Blue Commotion - The Blues And I Should Have A Party (2018) [FLAC|Lo
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752940.jpg" />
 </div>
 
 
@@ -410,7 +239,7 @@ Arlen Roth - Toolin' Around (1993) [FLAC|Lossless|tracks] <Blues-Rock, Instrumen
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752338.jpg" />
 </div>
 
 
@@ -439,7 +268,7 @@ Nick Moss Band - From The Root To The Fruit (2016) 2CD Set [MP3|320 кб/с] <Bl
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752266.jpg" />
 </div>
 
 
@@ -468,7 +297,7 @@ Supersonic Blues Machine - West Of Flushing, South Of Frisco (2016) [FLAC|Lossle
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752107.jpg" />
 </div>
 
 
@@ -497,7 +326,7 @@ Della Reese - All Of Me (1999) 2001, Hallmark Music & Entertainment [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752089.jpg" />
 </div>
 
 
@@ -526,7 +355,7 @@ Eric Clapton - I Still Do (2016) [FLAC|Lossless|tracks + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751882.jpg" />
 </div>
 
 
@@ -555,7 +384,7 @@ Rebecca Kilgore - with the Keith Ingham Sextet (2001) Jump [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751670.jpg" />
 </div>
 
 
@@ -584,7 +413,7 @@ Bill Barron - A Swedish - American Venture (1966 - 1984) 2002, Dragon Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751368.jpg" />
 </div>
 
 
@@ -613,7 +442,7 @@ Shakatak - Invitations (Expanded) (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Sm
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751212.jpg" />
 </div>
 
 
@@ -642,7 +471,7 @@ Take B - The Disco Lounge (2018) [FLAC|Lossless|WEB-DL|tracks] <Acid jazz, Loung
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751092.jpg" />
 </div>
 
 
@@ -671,7 +500,7 @@ Woody Shaw - With Tone Jansa Quartet (1985) Remaster, 2015, Solid Records[FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750342.jpg" />
 </div>
 
 
@@ -700,7 +529,7 @@ Stanley Clarke - At The Movies (1995) Unofficial Release [APE|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750268.jpg" />
 </div>
 
 
@@ -729,7 +558,7 @@ Joe Lovano - Trio Tapestry (2019) ECM Records [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750138.jpg" />
 </div>
 
 
@@ -743,6 +572,180 @@ Joe Lovano - Trio Tapestry (2019) ECM Records [FLAC|Lossless|tracks + .cue] <Pos
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D065B006940F07D35CBA7A09ECE0D1DB5939D16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281651   (750016) от 09.02.2019
+
+Free Nelson Mandoomjazz - The Organ Grinder (2016) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Experimental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open the Gate (4:32)
+02. You Are Old, Father William (6:44)
+03. The Woods (10:10)
+04. Funambule (5:55)(   Читать дальше...   )Производство: RareNoise Records – RNR068Жанр: Dark Jazz, Doom Jazz, Experimental, Avantgarde JazzПродолжительность: 01:10:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:973E049A9E39AF677812EBC73D18DEEEC321269B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523634   (749991) от 12.01.2022
+
+Charlie Ventura - East Of Suez (1945, 1947) 2000, Savoy [FLAC|Lossless|tracks + .cue] <Swing, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Synthesis [2:52]
+02. Blue Champagne [3:02]
+03. Stop 'n' Go [2:44]
+04. Soothe Me [3:03](   Читать дальше...   )Жанр: Swing, BopПродолжительность: 00:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA4239E0A9D1719CF69668CBD30352C40E6D21D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281772   (749923) от 09.02.2019
+
+Eric Gales - The Bookends (2019) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749923.jpg" />
+</div>
+
+
+###  Подробнее
+
+[1:55] 1 - Intro
+[4:20] 2 - Something's Gotta Give
+[3:28] 3 - Whatcha Gon' Do
+[4:21] 4 - It Just Beez That Way(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E54DE375CFAD1E7BC873850778343A16A41FE62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523671   (749905) от 12.01.2022
+
+Haïkel (Haikel) Ouzahrir - What I Wanna Do (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What I Wanna Do (3:26)
+02. Soulless (3:31)
+03. Makin' me Crazy (turnin' me insane) (6:55)
+04. Cold (3:41)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDA4C376695ED7B2752B71DA6138D5CC395EFBA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523672   (749904) от 12.01.2022
+
+Years After - Years After (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Follow the Trail (1:38)
+02. Stand Back (3:49)
+03. Free (4:21)
+04. Don't Leave Me (3:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A46BBA3A32133425F25B48BDE0B36C043D2083CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216498   (749573) от 31.03.2018
+
+Bob Stewart - Then And Now (1996) Postcards [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Third Stream, Tuba Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hambone [07:11]
+02. Big Kneed Gal [05:23]
+03. King Porter Stomp [03:10]
+04. You Don't Know What Love Is [07:40](   Читать дальше...   )Жанр: Mainstream Jazz, Third Stream, Tuba JazzПродолжительность: 00:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D2796468026BE6301DF3D98762CE067A8D7EF49
 ```
 
 https://mybot314.ru/tekegram_catalog/

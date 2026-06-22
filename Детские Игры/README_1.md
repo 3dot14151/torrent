@@ -6,7 +6,7 @@
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513262.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Ugly Duckling and Me! / Гадкий Утенок и Я (L) [Ru] (2007) [6-1
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460113.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Sonic Generations [Ru] (Repack/u1.0.r6) 2011 | R.G. World Games
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452133.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ WALL-E / ВАЛЛ-И [Multi3\+] (Р) 2008
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436271.jpg" />
 </div>
 
 
@@ -92,32 +92,6 @@ WALL-E / ВАЛЛ-И [Multi3\+] (Р) 2008
 
 Игра Wall-E создана по мотивам одноимённого мультфильма, про маленького робота с большим механическим сердцем. Игра представляет собой более двух десятков уровней, в которых роботу предстоит выполнять различные задания, а вам развлекаться.
 Компьютерная игра для детей и их родителей создана по мотивам одноименного анимационного фильма Disney/Pixar. Представьте, что человечеству пришлось покинуть Землю. Единственный, кто уцелел за 700 лет, прошедших с этого драматичного момента, - маленький робот. Неунывающий ВАЛЛ-И соберет веселую компанию забавных персонажей, включая домашнего питомца таракана и команду сломанных роботов-неудачников. Добрая история, придуманная авторами хорошо известных фильмов "Рататуй" и "В поисках Немо", придется по вкусу всем, не зависимо от возраста и эстетических предпочтений.Тип издания: ПираткаРазработчик: Asobo StudioЖанр: Arcade / Adventure / Racing / 3D / 3rd Person / For KidsЯзык озвучки: Язык интерфейса: 
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 249092   (388208) от 24.10.2010
-
-Paws & Claws: Pet Resort / Мои пушистые питомцы. Отель "Сахарная косточка" {8-12} (L) [Ru] (2008)
-
->>Детские PC Игры
->>Детские Игры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_388208.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Мои пушистые питомцы» — новая серия игр для детей, посвященная уходу за разнообразными животными, дрессировке и ветеринарному делу. Ребенок научится заботиться о братьях наших меньших, узнает много нового о повадках диких и домашних животных, а также получит массу удовольствия от общения с забавными зверятами. Юный игрок получает в распоряжение настоящий отель для домашних животных, который расположился на берегу речки, рядом с сосновым бором. Его постояльцы требуют постоянной заботы и тщательного ухода. Чтобы получить звание лучшего отеля для животных в мире, придётся постараться: регулярно делать покупки в соседнем городке, делать более уютными и комфортными вольеры и, конечно, окружить зверюшек заботой и любовью, уделяя им максимум внимания, — следить за их здоровьем, играть и дрессировать, не забывая, что у каждого из них свой характер, привычки и нужды.Тип издания: ЛицензияЖанр: Детские, Развивающие, О животныхЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
@@ -137,7 +111,7 @@ Spidi Calculates / Гав! Два! Три! (2004) [Ru] (L) [4+]
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362522.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ Over the Hedge / Лесная братва [10+ лет] (RePack) [Ru] (2006) | R
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318991.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ Asterix & Obelix XXl / Астерикс и Обеликс XXL (Р) [7+ лет] [
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285284.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265195.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264560.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258169.jpg" />
 </div>
 
 
@@ -295,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256436.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ Peppa Pig: World Adventures [6+] (2023) [Multi] (1.0) Scene Tenoke
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244614.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229683.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227933.jpg" />
 </div>
 
 
@@ -401,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155310.jpg" />
 </div>
 
 
@@ -427,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130099.jpg" />
 </div>
 
 
@@ -453,7 +427,7 @@ Shark Tale / Подводная братва [3+] (L) [Ru] (2005)
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101698.jpg" />
 </div>
 
 
@@ -479,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89953.jpg" />
 </div>
 
 
@@ -505,7 +479,7 @@ Over the Hedge / Лесная братва [10+] (RePack) [Ru] (2006) | NICK0304
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88891.jpg" />
 </div>
 
 
@@ -531,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88685.jpg" />
 </div>
 
 
@@ -557,7 +531,7 @@ Alice and the Magic Gardens (P) {7+} [En] 2012
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86341.jpg" />
 </div>
 
 
@@ -583,7 +557,7 @@ My Horse and Me / Моя любимая лошадка [7-12] (L) [Ru] (2008)
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86240.jpg" />
 </div>
 
 
@@ -609,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86062.jpg" />
 </div>
 
 
@@ -637,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86012.jpg" />
 </div>
 
 
@@ -663,7 +637,7 @@ Pet Hotel Tycoon  / 101 любимчик. Домашний зоопарк {7+} (
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85772.jpg" />
 </div>
 
 
@@ -674,6 +648,32 @@ Pet Hotel Tycoon  / 101 любимчик. Домашний зоопарк {7+} (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C39DF0537F2A50E99BFA6EF9D1F5B2AD17A28EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475000   (85222) от 29.03.2012
+
+Губка Боб : Операция "Крабовый Пирожок" / SpongeBob SquarePants Operation "Krabby Patty" [3+] (P) [Ru] (2004)
+
+>>Детские PC Игры
+>>Детские Игры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Operation Krabby Patty – веселая детская игра, рассказывающая о жизни обитателей подводного города Бикини Ботом. Начните новый день вместе с забавным героем Губкой Бобом – если вы встанете с правильной стороны кровати, то отправитесь на прогулку по городу, где узнаете о коварных планах Планктона - украсть крабовые пирожки, и сможете вовремя предупредить мистера Краба о надвигающейся опасности, а встав с неправильной стороны кровати, готовьтесь к выполнению странных указаний Планктона, который захватил в заложники Гари, любимую домашнюю улитку Боба.Тип издания: ПираткаРазработчик: AWE GamesЖанр: Arcade\ДетскийЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E31BB01A5AFE8B56B89F7403719937CFE0C3938
 ```
 
 https://mybot314.ru/tekegram_catalog/

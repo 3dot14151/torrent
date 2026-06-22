@@ -1,3 +1,237 @@
+###  Публикация: 507001   (685472) от 07.06.2012
+
+NG: Живая Земля / X-Ray Earth (Faszination Erde) (2011) BDRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы увидите Землю так, как прежде никогда не видели... С помощью рентгеновского зрения мы увидим планету, которую нельзя увидеть никак иначе. Сейчас армада датчиков, расположенных под землей, в небе, в океане и даже в наших городах, исследуют планету. Они видят тайные области планеты, это очень похоже на томографию. Сканируя Землю, мы сможем увидеть планету - ту, (   Читать дальше...   )Производство: США, BASE Productions, Inc. for National Geographic Channel, NGC Network International, LLC and NGC Network US, LLCЖанр: Документальный, научно-познавательныйРежиссер: Джон Бренкус, Микки Стерн, Робберт КурранПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 01:34:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:886421B781325D7C1E2005DB1C58E5ABB35D565D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222519   (685171) от 29.04.2018
+
+NGW: Животные 24 часа / Animal 24 (2017) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685171.jpg" />
+</div>
+
+
+###  Подробнее
+
+В любое время суток животные используют свет и темноту для охоты, отдыха или любовных игр. Морские черепахи откладывают яйца только ночью, а большие тигровые акулы охотятся за сардинами и морскими котиками только при ярком освещении на рассвете.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C433AA2404169C7C418878C3283AEE2000722AE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222517   (685158) от 29.04.2018
+
+NGW: Короли убийства / Kings of the Kill (2017) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Львы - это единственные животные из семейства кошачьих, которые охотятся группами. Они составляют естественную и жесткую конкуренцию таким хищникам, как леопарды и гепарды, которые охотятся в одиночку.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D8D6C083115AC6596E317BCEFCCFFA6683A9FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222528   (685157) от 29.04.2018
+
+NGW: Морские котики-убийцы / Killer seals (2017) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серые морские котики, обитающие в ледяных водах северной Атлантики, прекрасно приспособились к охоте за своей быстрой и верткой добычей и являются одними из крупнейших в Европе хищников.Производство: Франция, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Бертран ЛойерПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D714707F425BFBBC482F82C0FBD0588E5C78C83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222524   (685054) от 29.04.2018
+
+NGW: Амазонская электрическая рыба / Amazon's electric fish (2015) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685054.jpg" />
+</div>
+
+
+###  Подробнее
+
+В водах Амазонки водятся необычные рыбы, которые с помощью электричества общаются и координируют действия собратьев.Производство: США, Earth Touch and Smithsonian NetworksЖанр: Документальный, природа, флора, фаунаРежиссер: Кира ИваноффПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F28A51DF6AAA7951691881BACDE3FFECF84521C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222513   (685048) от 29.04.2018
+
+NGW: Орлы / The Eagles (2014) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Орлы отличаются острым зрением, мощными крыльями, острыми когтями и крючкообразным клювом. Узнайте, как орлята становятся взрослыми птицами.Производство: Нидерланды, NDR Naturfilm, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE0396D461571D38A3A5E518BBA226190F111189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222535   (685033) от 29.04.2018
+
+NGW: Животные без правил / Animals Gone Wild (2015) HDTVRip [H.264/1080p-LQ] (Эпизоды 1-9)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы увидите моменты как ужасающие, так и просто возмутительные. Самых грубых и шумных животных, созданий, обманывающих смерть и бросающих вызов законам природы, а также удивительные ссоры, любовные связи и другие отношения мира животных.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: эпизоды х ~00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B9F24A4138BFEB21DED591670B67BD1A994D33D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222540   (684945) от 29.04.2018
+
+NGW: Хищники Африки / Africa's Deadliest (2011-2016) HDTV [H.264/1080i-LQ] (Эпизоды 1-9)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Природа Африки невероятно самобытна, ярка и непредсказуема. Животные этих мест – одни из самых опасных на Земле. Это не только хищники семейства кошачьих, но еще и крокодилы, птицы, ядовитые насекомые. В арсенале представителей африканской фауны есть не только сила, скорость и мощь. Они научились отлично маскироваться, вовсю пользоваться своими органами чувств и (   Читать дальше...   )Производство: Южная Африка, Aquavision TV Productions, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Кейт ФрэзерПеревод: Дублированный, (Велес), (АРК ТВ)Субтитры: отсутствуютПродолжительность: эпизоды х ~00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6014E446AE6818F2CEC0FB1796D192D3DADDB244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028637   (683909) от 25.06.2016
+
+BBC. Кошачьи тайны / Cat Watch 2014: The New Horizon Experiment (Cats uncovered) (2014) SATRip (сезон 1, серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кошки - пожалуй наиболее распространённое домашнее животное на нашей планете. Они живут во многих домах Англии, США, России и конечно же Египта, где кошка с незапамятных времен считается священным животным. Однако мы настолько привыкли к этим созданиям, что не отдаём отчёта в том, что кошки на протяжении миллионов лет эволюционировали в идеальных хищников.Телекомпания: Великобритания, BBCЖанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональныйПродолжительность: ~ 00:51:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BB0E0B0CCC8C974323DDD51FBFAF10864DD154D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134986   (682815) от 18.05.2017
 
 Discovery: Техногеника. БТА. Телескоп-гигант (2017) HDTVRip [H.264/720p-LQ] (Сезон 2, серия 10 из 13)
@@ -6,7 +240,7 @@ Discovery: Техногеника. БТА. Телескоп-гигант (2017) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682815.jpg" />
 </div>
 
 
@@ -32,7 +266,7 @@ Discovery: Техногеника. Рекордные локомотивы (2017
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682809.jpg" />
 </div>
 
 
@@ -58,7 +292,7 @@ Discovery: Техногеника. Луноходы и марсоходы (2017)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682808.jpg" />
 </div>
 
 
@@ -84,7 +318,7 @@ BBC. Земля: Один потрясающий день / Earth: One Amazing D
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682338.jpg" />
 </div>
 
 
@@ -110,7 +344,7 @@ Discovery. Как работают машины / Machines: How They Work (2016)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681799.jpg" />
 </div>
 
 
@@ -136,7 +370,7 @@ NG: Разгадка тайн Мачу-Пикчу / Machu Picchu Decoded (Ghosts
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681681.jpg" />
 </div>
 
 
@@ -162,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680819.jpg" />
 </div>
 
 
@@ -188,7 +422,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip [H.2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680247.jpg" />
 </div>
 
 
@@ -214,7 +448,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680140.jpg" />
 </div>
 
 
@@ -240,7 +474,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680077.jpg" />
 </div>
 
 
@@ -266,7 +500,7 @@ Discovery: Спортивные арены Чемпионата Европы 201
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679627.jpg" />
 </div>
 
 
@@ -293,7 +527,7 @@ NGW: Животные года / Animals of the year (2017) HDTV [H.264/1080i-LQ
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679277.jpg" />
 </div>
 
 
@@ -319,7 +553,7 @@ NGW: Путешествие короля джунглей / The jungle king (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679257.jpg" />
 </div>
 
 
@@ -345,7 +579,7 @@ NGW: Самые опасные животные Америки / America's deadl
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679248.jpg" />
 </div>
 
 
@@ -371,7 +605,7 @@ NGW: Уцелевшая природа Европы / Europe's last wilderness (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679183.jpg" />
 </div>
 
 
@@ -397,7 +631,7 @@ NGW: Море надежды. Подводные сокровища Америк
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679173.jpg" />
 </div>
 
 
@@ -423,7 +657,7 @@ NGW: Воины новой волны / New Wave Warriors (2017) HDTV [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679171.jpg" />
 </div>
 
 
@@ -434,241 +668,6 @@ NGW: Воины новой волны / New Wave Warriors (2017) HDTV [H.264/108
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE5792F9E40C11D25A69CB00480468C5797434AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223037   (679163) от 02.05.2018
-
-NGW: Джейн Гудолл. Спасение рая / Jane Goodall: Saving Paradise (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три острова недалеко от берегов Танзании оказались под защитой от уничтожения на них дикой природы благодаря невероятным усилиям нескольких замечательных людей.Производство: Нидерланды, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Алан МиллерПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5EEFA8BC09438B0C56B8FE691154B1C6A35C815
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223100   (679151) от 02.05.2018
-
-NGW: Год диких животных. Сибирь / Siberia's wild year (2017) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Только наиболее сильные и выносливые животные способны выжить в неимоверно сложных климатических условиях Сибири.Производство: Новая Зеландия, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Дэвид ХэйПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C8B2444614BE3777368A6DED975FA9E64398F82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223036   (678998) от 02.05.2018
-
-NGW: Бесплодные земли / Badlands hard rock - tough lives (2017) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678998.jpg" />
-</div>
-
-
-###  Подробнее
-
-В самом сердце Среднего Запада США раскинулся ландшафт, представляющий собой бесплодные земли, на которых пышные луга прорезают горные вершины и остроконечные скалы.Производство: Австрия, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Майк БиркхедПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA24ECC0149FE1D9A97507AC2624579A626C502A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135600   (678449) от 20.05.2017
-
-NG: Подъем Атлантиды (Открытая Атлантида) / Atlantis rising (2017) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678449.jpg" />
-</div>
-
-
-###  Подробнее
-
-В течение многих лет, люди задаются вопросом, где была легендарная Атлантида. Недавние находки могут стать прорывом в подсказках, ведущих к решению этой сложной головоломки.
-Джеймс Кэмерон и Симча Джакобовиси отправились в путешествие, чтобы найти потерянный город Атлантиду, используя труды греческого философа Платона в качестве виртуальной карты сокровищ.Производство: Канада, Associated ProducersЖанр: Документальный, научно-популярный, исследования, историяРежиссер: Симча ДжакобовисиПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:33:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8D27CBE310CFFB4D6D207B2A7605C4898439EA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290611   (678160) от 20.03.2019
-
-BBC: Борьба за выживание / The Trials of Life (1990) BDRip [H.264/1080p] (серии 12 из 12)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678160.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Борьба за выживание" - эпический сериал одного из самых знаменитых в мире ведущих и натуралистов сэра Дэвида Аттенборо. Этот признанный шедевр документального кино удостоен многочисленных международных наград, среди которых 6 премий BAFTA. У каждой новой жизни на Земле есть своя собственная история: как живое существо появляется на свет, как добывает себе (   Читать дальше...   )Производство: Великобритания, Канада, BBC, Australian Broadcasting Corporation (ABC), Turner Broadcasting System (TBS)Жанр: Документальный, природа, флора, фаунаРежиссер: Майкл ГантонПеревод: Одноголосый закадровый, профессиональный (Кипарис)Субтитры: Русские, английскиеПродолжительность: 12 x ~00:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B9AD3D8B5F16162ADE3E7F297E8F35F9CE04B0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223208   (677279) от 03.05.2018
-
-NGW: Прирождённые монстры. Змееголовая рыба / Natural born monsters (2015) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шон Дугган отправляется в Таиланд и Арканзас, чтобы исследовать змееголовых рыб, которые днями могут передвигаться по суше.Производство: США, Karga Seven Pictures, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Дерек ОуэнПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:630571952E5C6B9CA7801FDF90A252F6495399EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223225   (677275) от 03.05.2018
-
-NGW: Человек и природа / Man and the Wild (2014) HDTV [H.264/1080p-LQ] (Эпизды 1-5)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Взаимоотношения человека с природой в совершенно ином свете. Зрители увидят мир каким он есть, с учётом нашей в нём жизни.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Николас БраунПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 5х ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17C8CBE4855E15B1C4DFAF409B479837CDBCB33B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223222   (677271) от 03.05.2018
-
-NGW: Морские котики: битва за выживание / Fur Seals. Battle for Survival (2014) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два детеныша морского котика, родившиеся на противоположных побережьях, вскоре начнут учиться секретам выживания в суровых природных условиях.Производство: Новая Зеландия, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17B781C26C90CA2A45E4F4089EC1B9543061B684
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223220   (677135) от 03.05.2018
-
-NGW: Дикая природа Аргентины. Убийственное побережье / Wild Argentina. The Killer Coast (2017) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немногие страны в Южной Америке могут похвастаться таким контрастом и разнообразием сред обитания своей дикой природы. Здесь можно встретить пингвинов, китов, морских котиков, а также кондоров, броненосцев и лам гуанако.Производство: Нидерланды, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1527D5BACFDB617AFF7CEB67BDC16693D3EACB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

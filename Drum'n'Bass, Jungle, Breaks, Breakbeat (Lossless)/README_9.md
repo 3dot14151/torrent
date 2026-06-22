@@ -6,7 +6,7 @@ Pola & Bryson - Overgrown (2025) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13994.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Dub FX, Mr Woodnote - OPEN SECRET SOCIETY (2025) [FLAC|Lossless|tracks] <Drum an
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6614.jpg" />
 </div>
 
 

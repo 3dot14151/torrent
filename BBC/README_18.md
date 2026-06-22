@@ -1,3 +1,29 @@
+###  Публикация: 229286   (518247) от 22.08.2010
+
+BBC: Мир природы. Сокровища Анд / Natural World. Treasure Of The Andes (1993) SATRip [112 серия]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Природа не перестает поражать воображение своими нерукотворными чудесами. Некоторые из них создавались на протяжении миллионов лет эволюции. Нас ждет знакомство с удивительными местами и их не менее удивительными обитателями. В этих нетронутых уголках земли до сих пор подчиняются одному закону - закону природы. Животные не спорят, но готов ли следовать ему человек? (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:49:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 535325   (517629) от 15.08.2012
 
 BBC: Египет. Тайны, скрытые под землей / Egypt: What lies beneath (2011) SATRip [часть 2] (2011) SATRip
@@ -6,7 +32,7 @@ BBC: Египет. Тайны, скрытые под землей / Egypt: What 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517629.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ BBC:  Машина Большого Взрыва / The Big Bang Machine (2008) S
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_517192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_517192.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ BBC: Ноев Ковчег - реальная история / BBC: Noah`s Ark-T
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517123.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ BBC. Планеты / The Planets (2019) BDRemux [H.264/1080i] (сезон 1, с
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516763.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ BBC. Мир природы. Королева морских дьяволов / T
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514815.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ BBC. Horizon: Питание, голодание и долголетие / Eat, 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513263.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ BBC. Horizon: Видим ли мы одно и то же? / Do You See What I Se
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512272.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511439.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ BBC: Грязные города. Революционный Париж [час�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510458.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ BBC. В краю муссонов: Засуха / Wonders of the Monsoon: The Dr
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510039.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ BBC. Империя Смерти / Empair of Death (2009) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504684.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ BBC: Грязные города. Индустриальный Нью-Йорк [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504589.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ BBC: Мир природы: Полярные медведи и гризли на
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504534.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ BBC: История Шотландии с Нейлом Оливером [Сез�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504113.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ BBC. Горизонт. 10 вещей, которые мы должны знат�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504037.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ BBC. Наша Первая мировая / Our World War (2014) HDTV [H.264/108
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503207.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503205.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ BBC: Еда будущего / Tomorrow's Food (2015) HDTVRip [H.264/720p-LQ] (3
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494200.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ BBC:Стюарты в изгнании / BBC:The Stuarts in Exile (2015) HDTVRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494199.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ BBC: Неизвестные викинги. Под парусами дракка
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493759.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ BBC: Вся правда о красоте / The Truth About Looking Good (2018)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492522.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ BBC. Horizon: Юпитер раскрывает свои тайны / Jupiter Re
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492513.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492288.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ BBC: Знакомьтесь, ваши предки неандертальцы / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490599.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490175.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A5F9095960398B52635CB122A10EF22F551015F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 195914   (487736) от 29.08.2018
-
-BBC: Земля: Мощь планеты / Earth: The Power of the Planet (2007) 2xBlu-Ray [H.264/1080p] (сезон 1, серии 1-5 из 5)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами невероятная история планеты Земля - единственной живой планеты во вселенной. Как же устроена наша планета? Как она работает, и что делает ее такой особенной? Исследуя великие силы, которые формируют Землю - вулканы, океан, атмосферу и лед - мы сможем узнать об их роли в истории нашей планеты. Как эти силы влияют на облик Земли, ее климат, и ее историю? (   Читать дальше...   )Производство: Великобритания /  British Broadcasting Corporation (BBC), National Geographic Channel, Zweites Deutsches Fernsehen (ZDF)Режиссер: Анабель Гиллингс , Мэтью Гевис, Софи Харрис , Бэн Лаври, Паул ОлдингАктеры: Йен Стюарт, Виктор Бэйкер, Мириам ДжексонПеревод: Профессиональный (одноголосый)Субтитры: РусскиеПродолжительность: 5 x ~ 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8D7647305520B305A8AF6490B6946348CC05FDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

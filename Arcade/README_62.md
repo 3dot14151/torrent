@@ -1,3 +1,55 @@
+###  Публикация: 1751973   (2099) от 19.09.2025
+
+Ravenswatch (2023) [Ru/Multi] (1.03.01.00.26879/dlc) Repack FitGirl [Supporter Edition]
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ravenswatch - хардкорное приключение, в котором потребуется исследовать мир, захваченный жутким Кошмаром. Игровой процесс представляет собой изометрический ролевой экшн с процедурно генерируемыми локациями. Бои выделяются повышенной сложностью и происходят в режиме реального времени. Геймплей направлен на скилл игрока и создание уникального билда персонажа. В зависимости (   Читать дальше...   )Тип издания: RepackРазработчик: Passtech GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3E36CCE6918D65544C6F64BE30AEEF67132176A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796570   (1940) от 20.09.2025
+
+StarVaders (2025) [Ru/Multi] (1.1.1) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторжение пришельцев разбило вдребезги защиту Земли. Пилот, теперь судьба всего человечества зависит от тебя. Пришло время использовать силы мощного робота и побороть вторжение - карта за картой. StarVaders совмещает тактические сражения на поле, поделенном на клетки, и построение колоды. Станьте командиром боевого робота и помогите человечеству побороть вторжение (   Читать дальше...   )Тип издания: LicenseРазработчик: PengonautsЖанр: Приключенческие игры, Инди, СтратегииЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05BFD2D9ADBBBB6E50D83D83D9C8DA9747973909
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770799   (1720) от 21.09.2025
 
 Bloons TD 6 (2018) [Ru/Multi] (50.2.9835) Repack Pioneer
@@ -6,7 +58,7 @@ Bloons TD 6 (2018) [Ru/Multi] (50.2.9835) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1720.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Ravenswatch (2023) [Ru/Multi] (1.03.01.00.26879/dlc) Repack Other s [Supporter E
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1651.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Ctrl Alt Ego (2022) [Ru/Multi] (1.5.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1397.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ DRAGON BALL: Sparking! ZERO (2024) [Ru/Multi] (2014.013.003.009.008/dlc) Repack 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1383.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ DRAGON BALL: Sparking! ZERO (2024) [Ru/Multi] (2014.013.003.009.008/dlc) Repack 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1272.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Fights in Tight Spaces (2021) [Ru/Multi] (1.2.11564 HF2)/dlc) Repack Let'sРlay 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_405.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Rift of the NecroDancer (2025) [Ru/Multi] (1.8.0/dlc) Repack Let'sРlay [Ultimat
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177.jpg" />
 </div>
 
 

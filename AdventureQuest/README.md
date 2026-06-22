@@ -1,4 +1,82 @@
 https://t.me/izofen
+###  Публикация: 1877138   (1073873) от 
+
+Kena: Bridge of Spirits / Кена: Мост духов (2021) [Ru/Multi] (2.08/dlc) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kena: Bridge of Spirits – сказочное приключение в очаровательном мире, где исследование постоянно сопровождается сражениями. Игрока все время сопровождают крошечные духи, которые помогают расширять спектр доступных умений героя и открывают новые способы взаимодействия с виртуальным миром. Кена, юная духовная вожатая, отправляется в забытую богом деревушку в поисках (   Читать дальше...   )Тип издания: LicenseРазработчик: Ember LabЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87B8864195F4214C2E0F1566AE07BB41AC16BBC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876691   (1073402) от 16.06.2026
+
+Along the Edge (2016) [Multi] (1.1) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Along the Edge - визуальная новелла с элементами интерактивного повествования, разработанная студией Nova‑box. В центре сюжета - история Дафне, женщины, переживающей кризис в личной и профессиональной жизни. Получив в наследство старинный фамильный дом в отдалённой европейской глубинке, она решает начать всё с чистого листа.Тип издания: LicenseРазработчик: Nova-boxЖанр: Приключенческие игры, Визуальные новеллыЯзык субтитров: Английский, Немецкий, Французский, Китайский (упрощённый)Язык интерфейса: Английский, Немецкий, Французский, Китайский (упрощённый)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76677B368551D1101E2505C3E46AD59C226952E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876491   (1073306) от 
+
+Dark Pals: The 1st Floor (2026) [Ru/Multi] (1.0.67) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Войдите в принадлежащее Дарк Палс заброшенное здание детской психиатрической лечебницы Апворд. Когда-то яркое, веселое и гостеприимное, теперь оно разваливается без должного присмотра под тяжестью времени и забытых воспоминаний. Вооружившись чернильным бластером, вы исследуете наводящие жуть помещения, решаете загадки окружения и логические задачи, а также уклоняетесь (   Читать дальше...   )Тип издания: RepackРазработчик: Skunx GamesЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEF4E2C4089CD4C0621C75E6725E03E76C52BFB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875603   (1072669) от 
 
 Moses & (and) Plato - Last Train to Clawville (2026) [Ru/Multi] (1.0) License GOG
@@ -7,7 +85,7 @@ Moses & (and) Plato - Last Train to Clawville (2026) [Ru/Multi] (1.0) License GO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072669.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Nice Day for Fishing (2025) [Multi] (1.2.15/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072567.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ PEAK (2025) [Ru/Multi] (1.61.b) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072521.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ Bramble: The Mountain King (2023) [Ru/Multi] (1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072436.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Necrophosis (2025) [Ru/Multi] (Build 23351750/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071890.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ Dark Fall 3: Lost Souls (2009) [Multi] (1.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071667.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Necrophosis (2025) [Multi] (20260525/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071660.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ Dark Fall: The Journal (2002) [Ru/En] (6.00) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071532.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ Dark Fall 2: Lights Out (2004) [Ru/En] (6.00) License GOG [The Director's Cut Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071511.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ The Occultist (2026) [Ru/Multi] (1.0.2.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071337.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ Darwin's Paradox! (2026) [Ru/Multi] (1.0.2.25172/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071160.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ Lost Records: Bloom & Rage (2025) [Ru/Multi] (2.04.132116) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070717.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ Ground Zero (2026) [Ru/Multi] (Build 22973139) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070271.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ Ground Zero (2026) [Ru/Multi] (Patch 1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070030.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ Willy Morgan and the Curse of Bone Town (2020) [Ru/Multi] (1.2.1) Repack Let'sР
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069958.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ The Midnight Walk (2025) [Ru/Multi] (1.0004) License GOG [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069853.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ GYLT (2023) [Ru/Multi] (2026) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068628.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ An English Haunting (2024) [Ru/Multi] (3.6.0.54) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068428.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ The Dark Rites of Arkham (2026) [Ru/Multi] (3.6.1.34) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068422.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ Nightmare Frames (2022) [Ru/Multi] (3.5.1.19) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068421.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ Ground Zero (2026) [Ru/Multi] (27042026) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067994.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ Demonologist (2023) [Ru/Multi] (2.0.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067829.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ The Council - Complete Season (2018) [Ru/Multi] (0.9.5.6359) License GOG [Episod
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067722.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ The Council - ни на что не похожая эпизодическая и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D3CC5F0D79AF2CA8333B10BC7215EF74EB0E7FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1868052   (1067104) от 28.04.2026
-
-Aphelion (2026) [Ru/Multi] (1.03.1628077/dlc) Repack Let'sРlay [Deluxe Edition]
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оказавшись на замёрзшей планете, астронавт Ариадна должна преодолеть опасную и ненадёжную местность, где рыщет чудовище, чтобы спасти своего раненого напарника Томаса. Отправляйтесь в научно-фантастическое приключение и исследуйте чуждый мир - но старайтесь не шуметь!Тип издания: RepackРазработчик: DON'T NODЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1360C3E70419A21DEBF2C6543E41C36ED621C046
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866479   (1066129) от 20.04.2026
-
-The Long Dark (2017) [Ru/Multi] (2.52 Build 179852/dlc) Repack FitGirl [Quiet Apocalypse Bundle]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра про выживание в мире, где нет электричества. The Long Dark - это вечная темень на локациях, шикарная графика от разработчиков, полюбивших небо и звезды, как свой второй дом. Игроков обрадовало то, что весь геймплей делится на два режима. Первый - сюжетное прохождение 5-ти эпизодов, совокупная длительность которых - 60-70 часов, в зависимости от следованию сюжета. (   Читать дальше...   )Тип издания: RepackРазработчик: Hinterland Studio Inc.Жанр: Приключенческие игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4299837DA6B08B3817CF8F3ADEF90E5912FDC356
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865370   (1065249) от 15.04.2026
-
-Resident Evil Requiem (2026) [Ru/Multi] (1.1.2.0/dlc) Repack Let'sРlay [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Реквием по мертвым. Кошмар для живых. Resident Evil Requiem, новейшая и самая захватывающая часть культовой серии Resident Evil, знаменует новую эпоху жанра survival horror. Пройдите сквозь пробирающий до дрожи ужас и сумейте выжить вместе с аналитиком ФБР Грейс Эшкрофт и легендарным агентом Леоном С. Кеннеди. Их истории и стили игры переплетаются, создавая душераздирающие, (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8D536F02AA993A1CC20F697CCF85C40431D3E58
 ```
 
 https://mybot314.ru/tekegram_catalog/

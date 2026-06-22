@@ -1,3 +1,32 @@
+###  Публикация: 1513683   (221696) от 30.11.2021
+
+WebForMySelf, Бернацкий Андрей | Верстка-Мастер. Полное руководство (2021) [unpacked] [AD]
+
+>>Мультимедийные материалы
+>>Компьютеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Только востребованные технологии. Новый видеокурс от Webformyself дает только востребованные современные технологии и стандарты верстки. Только то, за что работодатели и заказчики готовы платить.
+Овладейте современной адаптивной версткой с нуля
+Новейшие стандарты: HTML5, CSS3, Sass, Gulp, Flexbox, Grid…
+Реально много практики: три работы в портфолио по итогу(   Читать дальше...   )Жанр: Вёрстка сайтовФормат: unpacked
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D12EB16CE27167329818841CECAB902F9427B74F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1639703   (211231) от 18.06.2023
 
 ЗАО НПО ВМИ | Консультант Плюс. Пополнения для федеральных баз с 30.01.2023 по 25.02.2023 года (2023) [unpacked]
@@ -6,7 +35,7 @@
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211231.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211138.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211122.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210994.jpg" />
 </div>
 
 
@@ -110,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210953.jpg" />
 </div>
 
 
@@ -136,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210949.jpg" />
 </div>
 
 
@@ -162,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210929.jpg" />
 </div>
 
 
@@ -188,7 +217,7 @@ HTML Academy | Навык «Вёрстка навигационных элеме
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210270.jpg" />
 </div>
 
 
@@ -214,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203082.jpg" />
 </div>
 
 
@@ -240,7 +269,7 @@ HTML Academy | Протоколы и сети: веб-безопасность  
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202300.jpg" />
 </div>
 
 
@@ -269,7 +298,7 @@ Lurkmore | Lurkmore - дамп энциклопедии в ZIM-формате (2
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200459.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196940.jpg" />
 </div>
 
 
@@ -321,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196936.jpg" />
 </div>
 
 
@@ -347,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196841.jpg" />
 </div>
 
 
@@ -376,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196759.jpg" />
 </div>
 
 
@@ -402,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196110.jpg" />
 </div>
 
 
@@ -428,7 +457,7 @@ BEEGEEK, Тимур Гуев | Поколение Python - ООП (2023) [unpack
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194408.jpg" />
 </div>
 
 
@@ -457,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193505.jpg" />
 </div>
 
 
@@ -485,7 +514,7 @@ Stepik, Павел Хошев | Асинхронный Python (2023) [unpacked]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189065.jpg" />
 </div>
 
 
@@ -511,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186690.jpg" />
 </div>
 
 
@@ -540,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186516.jpg" />
 </div>
 
 
@@ -566,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182126.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181191.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ Devman, Игорь Перепилицын | Чат-боты на Python (2020) [
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176193.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ HTML Academy | Анимация для фронтендеров (2020) [unpacked
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175374.jpg" />
 </div>
 
 
@@ -655,32 +684,6 @@ HTML Academy | Анимация для фронтендеров (2020) [unpacked
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C809B583EA4D67865E9AA4095A27A9C588F25047
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671081   (171510) от 23.10.2023
-
-Радислав Гандапас | К выступлению готов! Презентационный конструктор (2007) [ISO, MP3, Радислав Гандапас] [AD]
-
->>Мультимедийные материалы
->>Образование
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга написана российским автором и лучше всего соответствует российским корпоративным традициям. Радислав Гандапас много лет работает с отечественными бизнесменами и чиновниками и знает, какие неписаные законы работают в этой среде. Кроме того, он опытный преподаватель, известнейший бизнес-тренер, и может научить читателя готовить презентации легко и непринужденно. (   Читать дальше...   )Жанр: Обучающие аудиоматериалыЯзык озвучки: РусскийФормат: Образ ISO, имеется встроенное ПО для воспроизведения под windowsПродолжительность: 04:52:30Реклама: присутствует рекламный ролик 20 сек перед началом занятий.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48D70F427B0B2300228BE32217480B05BCD30BE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

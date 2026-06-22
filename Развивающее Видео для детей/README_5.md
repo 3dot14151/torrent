@@ -1,3 +1,29 @@
+###  Публикация: 698116   (495372) от 09.09.2013
+
+Карусель. Праздничный концерт (2013) SATRip [H.264]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495372.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 июня 2013 года на территории Всероссийского выставочного центра состоялся большой праздник "«Карусель» запускает лето!", посвященный Международному дню защиты детей.Жанр: Детский, МузыкальныйПеревод: ОтсутствуетПродолжительность: 05:00:11 (5 x ~1ч)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A132B2B94AF2D6543536D2318E8907C20E041799
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 383054   (491084) от 02.09.2011
 
 Шишкин лес. Выпуск 10 (2009) DVD5
@@ -6,7 +32,7 @@
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491084.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489282.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489160.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485024.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484687.jpg" />
 </div>
 
 
@@ -133,6 +159,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 384047   (484376) от 05.09.2011
+
+Мои Друзья Тигруля и Винни (Сезон 2, серии 29 из 37) / My Friends Tigger & Pooh (2008 - 2010) DVDRip, TVRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_484376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Друзья из Волшебного Леса познают сказочный мир красок и фантазии. Помоги Винни и Тигруле в поисках горшочка с самым вкусным медом у подножия радуги. Присоединяйся к суперследопытам в расследовании таинственного исчезновения цветных мелков Хрюни, и узнай, какие удивительные цвета получаются, если смешивать краски!Жанр: Детский, Обучающий, РазвивающийРежиссер: Дэвид Хартман, Дон МаккиннонПеревод: ДублированныйПродолжительность: 29 х ~00:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:962D917256AC1342BC75F43D05EB8CB9E1F5360D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159451   (483815) от 20.08.2017
 
 Детская энциклопедия: Занимательные научные истории / Great Sience Stories (2008) DVDRip
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483815.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483814.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483648.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480403.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478701.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476293.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_474072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_474072.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466276.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462458.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455662.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453968.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451428.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451419.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451241.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451231.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451082.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446656.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444091.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439985.jpg" />
 </div>
 
 
@@ -624,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE7845BFE833550A557C2ED7FFF256BC0A55A20D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464644   (439970) от 19.09.2020
-
-Школа волшебства (2010) TVRip (Сезон 1, серии 1-26 из 26)
-
->>Видео, Кино и Сериалы для детей и родителей
->>Развивающее Видео для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Внимание-внимание! Объяляется набор мальчиков и девочек в "Школу волшебства"! Нет, чтобы научиться творить чудеса, не нужно бежать на занятия в классы. Достаточно включить телевизор, когда там идёт программа, в которой волшебник Илья Ларионов даёт уроки всем желающим! Хочешь всех поразить весёлыми фокусами и невероятными трюками? Тогда не пропускай занятия (   Читать дальше...   )Производство: Россия, ВГТРК / Карусель (Бибигон)Жанр: Обучающий, детский, развлеченияРежиссер: Юлия КоролеваСубтитры: ОтсутствуютПродолжительность: ~ 00:12:00 выпуск
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C1156F3BC228D901EB5982E0634FFC31F0C23A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 392215   (439271) от 25.09.2011
-
-Говорим без ошибок (20-41 серии) (2007-2008) SATRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Развивающее Видео для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Куда доведёт тебя твой язык? Что такое "райские кущи"? Километр с "гаком" - это сколько? Что такое "с гуся вода", и вообще - с "гусЯ" или с "гУся"? С этими и многими другими трудностями русского языка школьникам помогут разобраться самые настоящие филологи.Куда доведёт тебя твой язык. Со многими трудностями русского (   Читать дальше...   )Производство: РоссияЖанр: Детский, Видеоуроки, ОбучающийРежиссер: Родион СоловьёвПеревод: Не требуетсяПродолжительность: 21 x ~00:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE3464B0131B13BFC6CBF9EDB5B7C26016A30983
 ```
 
 https://mybot314.ru/tekegram_catalog/

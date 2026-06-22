@@ -1,3 +1,133 @@
+###  Публикация: 1733289   (33500) от 21.12.2024
+
+Resident Evil (1997) [Multi] (1.0 HotFix 3) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваш специальный тактико-спасательный отряд был доставлен в отдаленный особняк, чтобы расследовать биотехнический эксперимент, который пошел не по плану. Не успеете вы сказать "массовое убийство", как окажетесь в смертельной ловушке, кишащей человекоподобными уродами, воронами и бешеными собаками. Вооружайтесь ножами и огнеметами, собранными с мертвых товарищей. (   Читать дальше...   )Тип издания: LicenseРазработчик: CapcomЖанр: Экшны, ХоррорыЯзык озвучки: АнглийскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F397333BCDBA00060046C5E246359DBAC471AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767076   (33445) от 21.12.2024
+
+South of the Circle (2022) [Ru/Multi] (1.0.3) Repack Let'sРlay [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33445.jpg" />
+</div>
+
+
+###  Подробнее
+
+South of the Circle — эмоциональная игра с глубоким многослойным кинематографическим сюжетом. Она ставит вопросы о последствиях жизненного выбора и его влиянии на карьеру и любовь, а еще о столкновении прошлого и будущего. Вы будете играть за Питера, ученого из Кембриджа, который терпит крушение в Антарктиде во времена Холодной войны.Тип издания: RepackРазработчик: State of PlayЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B84C662B27754FB068D79D0732A38C1BE67E84A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698544   (33429) от 22.12.2024
+
+The Forest (2018) [Ru/Multi] (1.12) Repack dixen18 [VR]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Симулятор выживания на обитаемом острове - The Forest - сделана в новой для того времени графике, открыв совершенно неоднозначные игровые процессы для протагониста. Мы играем за персонажа, который попал на обитаемый остров, и теперь должен выжить при любых условиях. Атакующие туземцы-каннибалы, звери, нехватка еды, воды и убежища - всё это только мелочи. Недалеко (   Читать дальше...   )Тип издания: RepackРазработчик: Endnight Games LtdЖанр: Экшены, Приключенческие игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8AAF9FCB898120227D0DC96FBD77589F3E2284E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756127   (33424) от 22.12.2024
+
+A Quiet Place: The Road Ahead (2024) (1.1.0/dlc) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33424.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Quiet Place: The Road Ahead - это однопользовательская приключенческая игра в жанре хоррор, вдохновленная получившей признание критиков франшизой и рассказывающая историю выживания после нашествия смертоносных существ. В этом эксклюзивном спин-оффе вы пройдете путь молодой женщины, для которой ужасный апокалипсис совпал с разгаром семейного конфликта, и она пытается (   Читать дальше...   )Тип издания: RepackРазработчик: Stormind GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58A8E5A1EB59304EFE3C09B1AA6A171440118E44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767436   (33408) от 22.12.2024
+
+Ruined Nurse (2024) [Multi] (1.1.5) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ruined Nurse - это приключенческая адвенчура, сочетающая в себе экшен, исследование и жуткое повествование. Игроку  предстоит стать на место Зеула, специалиста по интернету, которому поручено установить сервис в месте, не похожем ни на одно другое, - заброшенной больнице. На первый взгляд задание кажется рутинным, но вскоре становится ясно, что это не обычная работа (   Читать дальше...   )Тип издания: RepackРазработчик: eTIRUeЖанр: Экшены, Приключенческие игрыЯзык субтитров: Английский, Японский, Китайский, КорейскийЯзык интерфейса: Английский, Японский, Китайский, Корейский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E37E783C498B6E856F6354D63F0454AA385408F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1767433   (33400) от 22.12.2024
 
 DETECTIVE - The Motel (2024) [Ru/Multi] (1.0) Repack seleZen
@@ -6,7 +136,7 @@ DETECTIVE - The Motel (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33400.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ DETECTIVE - The Motel (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33339.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Alan Wake 2 (2023) [Ru/Multi] (1.2.7/dlc) Scene Rune [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33318.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Neva (2024) [Ru/Multi] (1.2.0) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33270.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Resident Evil 3 (2000) [Multi] (1.0hf3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33222.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ The Long Dark (2017) [Ru/Multi] (2.12.148383 S/2.39.149246 S/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33192.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Neva (2024) [Ru/Multi] (1.2.0) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33189.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Destiny Star Girlfriend 3 (2019) [Multi] (1.0.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33159.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Conway: Disappearance at Dahlia View (2021) [Multi] (1.2.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33107.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33106.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Hollowbody (2024) [En] (g2.2 patch 10 hotfix) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33012.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ Mouthwashing (2024) [Ru/Multi] (Build 15980018) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32975.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ Moon Mystery (2024) [Ru/Multi] (1.2 Build 16746093) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32907.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Nine Sols (2024) [Ru/Multi] (202412161711.b1327bd4.0) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32869.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Bendy and the Dark Revival (2022) [Ru/Multi] (1.0.4.0331) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32730.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ Doll Impostor (2024) [Ru/Multi] (Update 10 HotFix 3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32636.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Jusant (2023) [Ru/Multi] (1.07.1498596) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32632.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ The Many Pieces of Mr. Coo (2023) [Ru/Multi] (1.00.09) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32613.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Dude, Where Is My Beer? (2020) [Ru/Multi] (11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32611.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ Randal's Monday (2014) [Ru/Multi] (1.0.3) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32607.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ Pools (2024) [Ru/Multi] (12.12.24) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32604.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ Pools (Бассейны) – игра, разработанная в жанре 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D4A95EE880374C2F012E237A2C565F546290DFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769505   (32599) от 29.12.2024
-
-The Dark Eye: Chains of Satinav (2012) [Ru/Multi] (3.0.351.5498) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приготовьтесь встретить свою судьбу! В далеком королевстве Андергаст, в котором царят патриархальные нравы и суеверие, король Эффердан ожидает визита очень значимых гостей. Уже целые столетия королевство конфликтует с соседним государством Нострия, и вот, наконец, были сделаны первые шаги к налаживанию отношений двух соседей. Но короля очень заботит необычное поведение (   Читать дальше...   )Тип издания: RepackРазработчик: Daedalic EntertainmentЖанр: Приключенческие игры, ИндиЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9125DD2AA1EDF4C109282583AAF5F20530E9B378
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636710   (32585) от 30.12.2024
-
-Wild West Dynasty (2023) [Ru/Multi] (1.0.9129) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сочетание RPG и симулятора с открытым миром, действие которого происходит на Диком Западе. Ковбои, колонисты и стрелки. Приготовьтесь исследовать, выживать, строить на Диком Западе и написать свою собственную историю! Сумеете ли вы построить империю на Диком Западе или кончите свои дни на виселице?Тип издания: LicenseРазработчик: Moon Punch StudioЖанр: Симулятор, Приключение, ExplorationЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:210D6340F253199EBCFFF963208D628971A47476
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770057   (32535) от 30.12.2024
-
-Machinika: Atlas (2024) [Ru/Multi] (1.1.28.2) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в увлекательные приключенческие головоломки игры Machinika: Atlas. Вы выступите в роли музейного исследователя, главного героя игры Machinika: Museum, оказавшегося внутри инопланетного корабля, разбившегося на спутнике Сатурна, Атласе. С помощью спасательной капсулы вы оказываетесь в самом центре корабля. Machinika: Atlas — это продолжение игры Machinika: (   Читать дальше...   )Тип издания: RepackРазработчик: Littlefield StudioЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AB74394C9C67D08D1A04F36C5A9947B626A7A71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770056   (32515) от 30.12.2024
-
-Machinika Museum (2021) [Ru/Multi] (1.24050201) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследователь? Если вам нравится решать хитроумные задачи и открывать запертые двери, эта работа для вас. Machinika Museum предлагает исследовать особое место. В далеком будущем технические артефакты инопланетных цивилизаций встречаются буквально на каждом шагу, особенно в музее, посвященном их изучению. Ваша задача – получать подобные устройства и придумывать способы (   Читать дальше...   )Тип издания: RepackРазработчик: Littlefield StudioЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA9C310774AF6A82602E9316E3FC548EAAEC789D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745433   (32463) от 31.12.2024
-
-Dustborn (2024) [Ru/Multi] (1.10) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dustborn - дорожное приключение, вдохновленное графическими новеллами. Игра выполнена в стиле динамического комикса и рассказывает про небольшую группу подростков-неудачников, отправившиеся в путешествие сквозь всю пост-инфодемическую Америку. Их цель - доставить из Калифорнии одну важную посылку в Новую Шотландию.Тип издания: RepackРазработчик: Red Thread GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FD638EED20A91DD861E6F64E2CAA82462393696
 ```
 
 https://mybot314.ru/tekegram_catalog/

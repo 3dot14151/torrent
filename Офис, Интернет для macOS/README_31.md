@@ -1,3 +1,56 @@
+###  Публикация: 1169211   (403809) от 26.09.2017
+
+Radio Silence 2.3 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ограничивайте доступ программ к интернету под Mac
+Иногда очень важно чтобы ваша окружение в котором вы работаете минимум отвлекало вас от единственно важной в настоящий момент задачи. Касается это и программ установленных на вашем компьютере. Многие программы постоянно пытаются достать массу ненужной информации из интернета постоянно ею вас торпедируя. Зачем вам (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 26 сентября 2017Разработчик: Juuso SalonenПоддерживаемая ОС: OS X 10.10  +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:595699881886E26CFF20A88B086F5347E618CEE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169609   (402476) от 28.09.2017
+
+MailTags 5.1.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402476.jpg" />
+</div>
+
+
+###  Подробнее
+
+MailTags как и следует из название, позволяет отмечать письма в Mail метками (тагами). Однако, его функционал на этом не ограничивается. В этом же плагине вы найдете поддержку проектов, собственных заметок к письмам, возможность быстрого создания задач и событий в календаре. В последних версиях была добавлена поддержка заметок (Notes). Если классическая структура (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.09.2017Разработчик: IndevПоддерживаемая ОС: macOS 10.11.6 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:429CA06EC0E15C3D76AAAC6BB11F8456F27E8563
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139408   (402403) от 28.09.2017
 
 Kite Compositor 1.6 [En]
@@ -6,7 +59,7 @@ Kite Compositor 1.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402403.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ PhotoStack for Instagram 3.7.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399411.jpg" />
 </div>
 
 
@@ -63,7 +116,7 @@ Flux 7.1.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397612.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ TripMode 2.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395700.jpg" />
 </div>
 
 
@@ -117,7 +170,7 @@ Download Buddy 1.8.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394093.jpg" />
 </div>
 
 
@@ -143,7 +196,7 @@ Records - Database & Organizer 1.5.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394046.jpg" />
 </div>
 
 
@@ -169,7 +222,7 @@ FileMaker Pro 16 Advanced 16.0.3.302 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390359.jpg" />
 </div>
 
 
@@ -198,7 +251,7 @@ PDF Expert 2.2.11 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389645.jpg" />
 </div>
 
 
@@ -227,7 +280,7 @@ Chatty for Facebook 2.3.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388941.jpg" />
 </div>
 
 
@@ -256,7 +309,7 @@ Social Media Lab - Templates 1.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387583.jpg" />
 </div>
 
 
@@ -283,7 +336,7 @@ SQLPro for MSSQL - Management studio for SQLServer 1.0.188 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387104.jpg" />
 </div>
 
 
@@ -312,7 +365,7 @@ Patterns - The Regex App 1.1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385029.jpg" />
 </div>
 
 
@@ -341,7 +394,7 @@ Leaf - RSS News Reader 5.1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384989.jpg" />
 </div>
 
 
@@ -370,7 +423,7 @@ Wondershare PDF Converter Pro (OCR) 5.1.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384360.jpg" />
 </div>
 
 
@@ -398,7 +451,7 @@ MoneyWiz 2.5.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384351.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ Extensis Suitecase Fusion 3 14.0.4 [Eng]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_384339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_384339.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ popCalendar 1.8.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383398.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ DjVuReader EX 1.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381125.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ Studies 1.5.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379629.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ Dejal Simon 4.3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379627.jpg" />
 </div>
 
 
@@ -563,7 +616,7 @@ JustBroadcaster for Facebook 2.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379619.jpg" />
 </div>
 
 
@@ -590,7 +643,7 @@ ChatMate for Facebook 4.3.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379524.jpg" />
 </div>
 
 
@@ -616,7 +669,7 @@ OmniPlan Pro 3 v3.10.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379308.jpg" />
 </div>
 
 
@@ -642,7 +695,7 @@ ChatMate for WhatsApp 4.3.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379202.jpg" />
 </div>
 
 
@@ -653,61 +706,6 @@ ChatMate for WhatsApp (было App for WhatsApp) является мощным 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD087C8BDA4D3A1F70E22FE2ECF5AC42BFC16ECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415245   (379120) от 11.10.2020
-
-Adware Zap Pro 2.8.3 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Adware Zap восстанавливает первоначальное состояние браузера, удаляя нежелательные расширения, cookie-файлы и кеш, а также сбрасывая настройки браузера. Adware станет для вас оптимальным выбором в следующих случаях:
-Ваш браузер постоянно отображает всплывающую рекламу мошеннических или просто подозрительных продуктов и услуг, даже если вы отказываетесь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.09.2020Разработчик: VorInn IncПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99FF3E432C6E6375C27E93010A9114B994050E85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175399   (378764) от 18.10.2017
-
-Productivity Lab for Pages - Templates Bundle 3.2.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Business Template Lab - представляет собой комплект из более, чем 600 шаблонов для Pages, начиная от визитных карточек и информационных бюллетеней, брошюр, календарей, товарных чеков и счетов, заканчивая различными формами для менеджемента и других публикаций.
-
-Сотни профессиональных шаблонов и почти бесконечных возможностей настройки делают этот комплект, самым (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.10.2017Разработчик: JumsoftПоддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF1F41E58D3B8995FAC8F16B2CCC261BC4CE2FB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

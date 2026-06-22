@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067594.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064576.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064025.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062223.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055573.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055396.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048946.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048924.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046672.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043127.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042835.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Kelly Howell | Brain Sync - Повышенное сосредоточение (H
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938191.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866864.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849719.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849577.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Nikosho | Сеанс обучающей релаксации (2001) [FLAC]
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847913.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835637.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832620.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811048.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794277.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790614.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_744979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744979.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584903.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581691.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ FlammenQuelle - The Moon Rabbit / Способ приведения к равн�
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579067.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ iAwake Technologies | Цифровая эйфория специальное и�
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463870.jpg" />
 </div>
 
 

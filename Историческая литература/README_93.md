@@ -1,3 +1,109 @@
+###  Публикация: 593350   (134700) от 24.12.2012
+
+Ларс Браунворт | Забытая Византия, которая спасла Запад [2012] [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цивилизация, отнюдь не уступавшая западноевропейской в Средние века - и, напротив, во многом eе превосходившая. В школах Константинополя обсуждали тончайшие нюансы литературного и философского наследия Платона, Сократа и Гомера, - а в Западной Европе еще не была создана даже "Песнь о Роланде". В византийскую столицу - величайший центр культуры, торговли, науки и ремесел - текли реки золота, византийские армии множество раз противостояли вражеским силам, готовым вторгнуться в Европу. И именно Византия была последним щитом между христианской Европой и мусульманским Востоком.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F74260B783C6666652300A748F8D9FF2CE34C55D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595460   (132652) от 28.12.2012
+
+Уоллис Бадж | Египет на заре цивилизации. Загадка происхождения древнего народа [2012] [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный английский востоковед и археолог, сотрудник Британского музея в течение многих лет Уоллис Бадж всю свою жизнь посвятил изучению Древнего Египта, о чем свидетельствуют около ста тридцати написанных им исследовательских работ. В этой книге Бадж прослеживает жизнь Египта начиная с периода позднего неолита и заканчивает временем правления первых трех царских династий. Значительную часть повествования автор посвящает результатам археологических раскопок, которые послужили источником новых сведений о ходе истории Египта и древности его цивилизации.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85EBC6DBF64BD94DCA13CC2BE7B662D9C0C64E63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682606   (131395) от 07.12.2023
+
+Александр Широкорад | ГУЛАГ. Государство в государстве (2021) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131395.jpg" />
+</div>
+
+
+###  Подробнее
+
+С детских лет мы, наверное, миллион раз слышали аббревиатуру ГУЛАГ. Подавляющее большинство россиян не знают, что это всего лишь управление, существовавшее с 1930 по 1960 год.
+Между тем система принудительного труда существовала еще со времен египетских пирамид. Когда мы плывем на теплоходе по каналу, едем по железной дороге, любуемся фортами крепостей или наблюдаем (   Читать дальше...   )Жанр: ИсторияИздательство: ВечеФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6F87D5FDD846167F02632C6ECA58F2E111751E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682598   (131388) от 07.12.2023
+
+Д.Н. Верхотуров | Сталинская Индустриализация (2022) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сталинская индустриализация была эпохой короткой, в целом около десяти лет, но очень насыщенной большими и важными событиями. В это время решалась дальнейшая судьба страны, и от успеха сталинского плана очень многое зависело.
+В этой книге сталинская индустриализация впервые предстает в необычном виде: появление грандиозного замысла технической реконструкции, влияние (   Читать дальше...   )Жанр: История, политикаИздательство: ВечеФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:204487DC93036CD81E69E0D73BA2121A2527D4E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 878198   (128153) от 13.12.2023
 
 Дэвид Гребер | Долг. Первые 5000 лет истории (2015) [DJVU]
@@ -6,7 +112,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128153.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121759.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121758.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119995.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117864.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117861.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117854.jpg" />
 </div>
 
 
@@ -189,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117745.jpg" />
 </div>
 
 
@@ -216,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117311.jpg" />
 </div>
 
 
@@ -243,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112440.jpg" />
 </div>
 
 
@@ -269,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109851.jpg" />
 </div>
 
 
@@ -296,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106130.jpg" />
 </div>
 
 
@@ -322,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106113.jpg" />
 </div>
 
 
@@ -349,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104010.jpg" />
 </div>
 
 
@@ -375,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102509.jpg" />
 </div>
 
 
@@ -405,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100719.jpg" />
 </div>
 
 
@@ -431,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_100567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_100567.jpg" />
 </div>
 
 
@@ -458,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99659.jpg" />
 </div>
 
 
@@ -484,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97142.jpg" />
 </div>
 
 
@@ -510,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89225.jpg" />
 </div>
 
 
@@ -536,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88369.jpg" />
 </div>
 
 
@@ -563,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87192.jpg" />
 </div>
 
 
@@ -574,112 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A682F8E491C7FFA385272CD2D7C293AE3ED5B8B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479148   (86986) от 07.04.2012
-
-Григорий Распутин - Сборник произведений [2012] [FB2,DJVU,PDF,RTF,DOC]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошедший век оставил нам немало неразгаданных исторических загадок. Большая часть из их займет свое место в архиве летописи человечества. Однако есть в прошедшем веке имена, которые всегда станут вызывать настоящий человечий интерес. Одно из их - Григорий Распутин.  Для одних он - всемогущий временщик, для остальных - выдающийся представитель русского крестьянства.
-Григорий Ефимович Распутин (Новых), «Царский друг» (9 (21) января 1869(18690121) — 16 (29) декабря 1916) — крестьянин села Покровское Тобольской губернии. Приобрёл всемирную известность благодаря тому, что был другом семьи последнего российского императора Николая II. В 1900-е среди определённых кругов петербургского общества имел репутацию «старца», прозорливца и целителя.
-  В последние годы жизни стал самой одиозной фигурой, подрывающей авторитет царской семьи и монархии.2012Формат: FB2,DJVU,PDF,RTF,DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C075EB0CE03139CA777CF847CE071FE6EAFDDB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467461   (82031) от 14.03.2012
-
-Iоаннъ Гоффертъ | Иллюстрированная Отечественная война 1812 года [1887] [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой иллюстрированный рассказ о нашествии наполеоновских войск в Россию - от начала до битвы при Березине, после которой отступление французской армии превратилось в бегство. Содержит 12 фотогравюр с картин П. Гесса. Каждая фотогравюра снабжена пояснительным текстом на отдельном листе, составленным генерал-майором Н. Ф. Дубровиным. Книга выпущена (   Читать дальше...   )Жанр: Раритеты / Альбом / ИсторияЯзык: Русский (старая орфография)Издательство: Типографiя Ф. С. Сущинского / Санктъ-Петербургъ / РоссияФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B365F5DFEDBCA1FD50EC67DB2AAAC06273186E74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466875   (81938) от 13.03.2012
-
-Владимиръ Бурнашевъ | Отечественная война 1812 года [1888] [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81938.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1811 году почти вся Европа, за исключением России, Англии, Испании, Турции и Дании, была завоевана французами. Величайший полководец, французский император Наполеон, с его непобедимой армией, подчинил своему владычеству всех государей. Оставалась Россия, где царствовавший император Александр I был тверд и непоколебим. Этот труд обобщает все то, что было сделано (   Читать дальше...   )Жанр: Раритеты / Научная литература / ИсторияЯзык: Русский (старая орфография)Издательство: Типографiя Товарищества «Общественная польза» / С.-Петербургъ / Россiйская ИмперiяФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9F7A7B95997808ECF3855740C0BAD8395CF8CD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466726   (81602) от 12.03.2012
-
-Сирарпи Тер-Нерсесян | Армения. Быт, религия, культура (2008) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сирарпи Миграновна Тер-Нерсесян, профессор, член Американской академии Средневековья, член Национального общества антиквариев Франции и член Академии Армении, долгое время преподавала в Сорбонне и в Гарвардском университете. В своей книге она рассказывает об истории развития армянского этноса начиная с бронзового века. Исследователь делает панорамный обзор влияния (   Читать дальше...   )Жанр: Документальная литература, Культурология, Общая историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C32717E9F22A6986932A11CC1A11C16BEF02E533
 ```
 
 https://mybot314.ru/tekegram_catalog/

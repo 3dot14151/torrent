@@ -1,3 +1,38 @@
+###  Публикация: 152119   (372497) от 02.11.2011
+
+Takahiro Matsumoto/TMG (Tak Matsumoto Group) - 3 albums(2002-2004) [FLAC|lossless]<JRock,Hard rock, blues rock, heavy metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_372497.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Oh Japan ~Our Time Is Now~-04:09
+2.Everything Passes Away-04:40
+3.Kings For a Day-04:36
+4.I Know You by Heart-03:32
+5.I wish you were here-04:18
+6.The Greatest Show On Earth-03:02
+7.Signs of Life-03:49
+8.Red, White And Bullet Blues-04:53
+9.Trapped-03:38
+10.My Alibi-03:08(   Читать дальше...   )2002-2004Жанр: JRock,Hard rock,Instrumental,BluesПродолжительность: 00:58:17
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 173161   (368064) от 04.11.2011
 
 RAMPANT - 2 albums (2008-2010) [FLAC|Lossless]<Jrock,metalcore,alternative metal,female vocal>
@@ -6,7 +41,7 @@ RAMPANT - 2 albums (2008-2010) [FLAC|Lossless]<Jrock,metalcore,alternative metal
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_368064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_368064.jpg" />
 </div>
 
 
@@ -37,7 +72,7 @@ Crystal Lake (JAP) - 6 Albums, 4 Maxi-Singles (2012-2020) [FLAC|Lossless|WEB-DL|
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367336.jpg" />
 </div>
 
 
@@ -64,7 +99,7 @@ Sigh - Shiki (2022) [FLAC|Lossless|image + .cue] <Avant-garde, Black Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350174.jpg" />
 </div>
 
 
@@ -93,7 +128,7 @@ ZONE - 4 albums (2002-2006) Discography [FLAC|Lossless]<J rock,girl.band>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_348216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_348216.jpg" />
 </div>
 
 
@@ -128,7 +163,7 @@ The Art of Mankind - Archetype (2018) 2CD [FLAC|Lossless|image + .cue] <Melodic 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336413.jpg" />
 </div>
 
 
@@ -154,7 +189,7 @@ Loudness - Lightning Strikes (2016) 30th Anniversary Limited Edition [WavPack|Lo
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335764.jpg" />
 </div>
 
 
@@ -183,7 +218,7 @@ Loudness - Buddha Rock 1997-1999 (2016) 35th Anniversary Limited Edition [WavPac
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335763.jpg" />
 </div>
 
 
@@ -212,7 +247,7 @@ Arclipse - City of Haze (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334530.jpg" />
 </div>
 
 
@@ -241,7 +276,7 @@ Yonin Bayashi - Ishoku-Sokuhatsu (1974) Reissue, Unofficial Release, 2009, Erebu
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307560.jpg" />
 </div>
 
 
@@ -270,7 +305,7 @@ COBRA - 2 album's (1996-2000) [FLAC|Lossless]<C rock,blues rock,girls band>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_297770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_297770.jpg" />
 </div>
 
 
@@ -305,7 +340,7 @@ Zhaoze 沼澤 | 沼泽乐队 Zhao Ze - Discography 11 Releases (2010-2018) [FLAC
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279233.jpg" />
 </div>
 
 
@@ -331,7 +366,7 @@ LAREINE - 7 альбомов+3 сингла (1997-2006) [FLAC|Lossless]<JRock, V
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276176.jpg" />
 </div>
 
 
@@ -357,7 +392,7 @@ Desecravity - Implicit Obedience (2012) [FLAC|Lossless]<Technical Brutal Death M
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256094.jpg" />
 </div>
 
 
@@ -391,7 +426,7 @@ Babymetal - The Other One (2023) [FLAC|Lossless|WEB-DL|tracks] <J-Metal, Modern 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245073.jpg" />
 </div>
 
 
@@ -420,7 +455,7 @@ Heterogeneous Andead - Chaotic Fragments (2022) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240902.jpg" />
 </div>
 
 
@@ -449,7 +484,7 @@ Anthem - Crimson & Jet Black (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239404.jpg" />
 </div>
 
 
@@ -478,7 +513,7 @@ Anthem - Crimson & Jet Black (2023) Japanese Edition, 3xCD [WavPack|Lossless|ima
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233817.jpg" />
 </div>
 
 
@@ -507,7 +542,7 @@ Fear, and Loathing in Las Vegas - Cocoon for the Golden Future (2022) [FLAC|Loss
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215670.jpg" />
 </div>
 
 
@@ -536,7 +571,7 @@ Sigh - The Eastern Forces of Evil 2022 (Live) (2023) [FLAC|Lossless|image + .cue
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208318.jpg" />
 </div>
 
 
@@ -565,7 +600,7 @@ Onmyo-Za - Fuujin Kaikou (2014) [WavPack|Lossless|image + .cue] <Heavy Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206404.jpg" />
 </div>
 
 
@@ -594,7 +629,7 @@ Galneryus - Between Dread And Valor (2023) [FLAC|Lossless|WEB-DL|tracks] <Neocla
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206147.jpg" />
 </div>
 
 
@@ -623,7 +658,7 @@ Lovebites - Knockin' At Heaven's Gate - Live In Tokyo (2023) [FLAC|Lossless|WEB-
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203906.jpg" />
 </div>
 
 
@@ -651,7 +686,7 @@ Life Awaits - Call Me Insane (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190583.jpg" />
 </div>
 
 
@@ -680,7 +715,7 @@ Hagane - Code ; 9021 (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_189990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189990.jpg" />
 </div>
 
 
@@ -709,7 +744,7 @@ Dark Mirror ov Tragedy - The Lord ov Shadows (2018) [FLAC|Lossless|image + .cue]
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189125.jpg" />
 </div>
 
 
@@ -723,35 +758,6 @@ Dark Mirror ov Tragedy - The Lord ov Shadows (2018) [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD07281B101E3AE7F44DB83C3205AE400A5D2106
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590565   (188522) от 15.11.2022
-
-D-Mad Devil - One With the Darkness (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metalcore>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188522.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. What Will Save Me
-2. Already Infected (feat. Christian Grey)
-3. Holding On
-4. Hard to Survive(   Читать дальше...   )Жанр: Post-Hardcore, MetalcoreПродолжительность: 00:53:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:021935761644F1FD0A4A0DF13906CE969DA5B216
 ```
 
 https://mybot314.ru/tekegram_catalog/

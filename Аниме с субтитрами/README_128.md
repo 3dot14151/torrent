@@ -1,3 +1,29 @@
+###  Публикация: 1770574   (24208) от 19.03.2025
+
+Izure Saikyou no Renkinjutsushi? / Possibly the Greatest Alchemist of All Time / Однажды я стану величайшим алхимиком? [2025, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24208.jpg" />
+</div>
+
+
+###  Подробнее
+
+40-летний Такуми Ирума оказался по ошибке затянут в мир магии и jRPG-механик в ходе призыва группы героев. Заметившая это богиня не смогла отменить призыв, но подсуетилась и закинула парня на сотни лет в прошлое – задолго до той беды, ради разборок с которой героев призывали изначально – а по пути омолодила до 17-и лет и накидала ему разных читерских бонусов типа (   Читать дальше...   )Жанр: приключения, фэнтези.Режиссер: Кудзуя НаоюкиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B2BDA687A1B2996DE4E2767BDAB86A4FEC590CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753194   (24131) от 20.03.2025
 
 Rurouni Kenshin: Meiji Kenkaku Romantan - Kyoto Douran | Бродяга Кэнсин [ТВ-2, 2-й сезон] [2024, TV, 23 эп.] WebRip 720p raw
@@ -6,7 +32,7 @@ Rurouni Kenshin: Meiji Kenkaku Romantan - Kyoto Douran | Бродяга Кэнс
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24131.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Class no Daikirai na Joshi to Kekkon Suru Koto ni Natta. / I Got Married to the 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23997.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Okinawa de Suki ni Natta Ko ga Hougen Sugite Tsura Sugiru / Девушка, в �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23895.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Zenshuu. | Полное исследование [2025, TV, 12 эп.] WebRip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23791.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Kisaki Kyouiku kara Nigetai Watashi | I Want to Escape from Princess Lessons | �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23772.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Sakamoto Days | Дни Сакамото [2025, TV, 11 из 11 эп.] WEBRip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23711.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Kuroiwa Medaka ni Watashi no Kawaii ga Tsuujinai | Medaka Kuroiwa is Impervious 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23684.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Ao no Exorcist: Yosuga Hen | Blue Exorcist: The Blue Night Saga | Синий э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23661.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Youkai Gakkou no Sensei Hajimemashita! | A Terrified Teacher at Ghoul School! | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23607.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Unnamed Memory Act.2 | Безымянная память [ТВ-2] [2025, TV, 12 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23577.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Amagami-san Chi no Enmusubi / Tying the Knot with an Amagami Sister / Брачн
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23500.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ Re:Zero kara Hajimeru Isekai Seikatsu 3 | Re: Жизнь в альтернати
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23497.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ Grisaia: Phantom Trigger the Animation / Грисайя: Призрачный с
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23469.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ Magic Maker: Isekai Mahou no Tsukurikata / Magic Maker: How to Make Magic in Ano
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23467.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ Honey Lemon Soda | Сладкий лимонад [2025, TV, 12] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23380.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ Ao no Hako | Blue Box | Голубая шкатулка [2024, TV, 25 эп.] WEB
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23364.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ Sousei no Aquarion: Myth of Emotions | Aquarion: Myth of Emotions | Аквари
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23361.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ Douse, Koishite Shimaunda. | Anyway, I'm Falling in Love with You | В любо�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23345.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ Meng Qi Shi Shen | Adorable Food Goddess | Очаровательная боги
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23317.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ Trillion Game | Игра на триллион [2024, TV, 26 из 26 эп.] WEBR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23291.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ Fuguu-shoku Kanteishi ga Jitsu wa Saikyou Datta / Убогий класс «Оц
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23289.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ Farmagia | Фармагия [2025, TV, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23237.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ Ishura 2 | Исура [ТВ-2] [2025, TV, 12 эп.] WebRip 720p HEVC raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23163.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ Sentai Red Isekai de Boukensha ni Naru | Красный рейнджер ста�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23065.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ Kimi no Koto ga Dai Dai Dai Dai Daisuki na 100 Nin no Kanojo 2 / Сто деву
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23058.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ Kimi no Koto ga Dai Dai Dai Dai Daisuki na 100 Nin no Kanojo 2 / Сто деву
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05A01EFB7539D0B2948E3005611D376B0A42D854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772438   (23051) от 30.03.2025
-
-Nihon e Youkoso Elf-san. / Welcome to Japan, Ms. Elf! / Добро пожаловать в Японию, госпожа эльф! [2025, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кадзухиро Китасэ — большой любитель поспать. Во сне он попадал в чудесный мир снов и отправлялся в захватывающие приключения. Однажды Кадзухиро начинает путешествовать с эльфийкой, которую встретил в мире своих грёз, но всё резко прекращается, когда они попадают под огненное дыхание дракона. Проснувшись, он обнаруживает свою знакомую, спящую рядом с ним! Так начинаются (   Читать дальше...   )Жанр: комедия, повседневность, фэнтези.Режиссер: Китахата ТоруЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24291CC222D8047DBFDD13642F83BD32CCAC3103
 ```
 
 https://mybot314.ru/tekegram_catalog/

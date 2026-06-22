@@ -1,3 +1,29 @@
+###  Публикация: 1385193   (196491) от 26.06.2023
+
+BBC: Тайны Бермудского треугольника / The Bermuda Triangle Enigma (2018) WEBRip [H.264/1080p-LQ] (серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный цикл передач, состоящий из 3 частей, открывает тайны Бермудского треугольника и зловещих историй, связанных  с ним. Сериал откроет тайны печальной судьбы американского грузового судна «Циклоп», загадочное исчезновение 5 бомбардировщиков - Звена 19, ведь спустя 75 лет, о их судьбе ничего не известно. Также зрители узнают, что такое "волна-убийца". (   Читать дальше...   )Производство: Великобритания, channel5 for British Broadcasting Corporation (BBC)Жанр: ДокументальныйУчастники: Ортис Делей, Рик ЭдвардсПеревод: Многоголосый профессиональный (BBC News - Русская служба)Субтитры: ОтсутствуютПродолжительность: 3 x ~ 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83666EF6CDC30067824E718D6710DEFA1DB70195
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 22653   (194581) от 07.08.2023
 
 BBC: Хиросима / Hiroshima (2005) DVDRip
@@ -6,7 +32,7 @@ BBC: Хиросима / Hiroshima (2005) DVDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_194581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194581.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ BBC Horizon: Плутон: Восставший из мёртвых / Pluto: Bac
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_193602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193602.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DL [H.265
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188364.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ BBC: Приключeния Брайана Кокса в пространстве
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183454.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ BBC: Мир природы. Лосось: Серебряный прилив / Th
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178671.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ BBC: Невероятные приключения температуры / From
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177266.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176495.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ BBC: Чудеса Солнечной Системы / Wonders of the Solar Syste
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176142.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ BBC: 80 чудес света / Around the World in 80 Treasures (2005) [DVDRip]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176104.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175993.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ BBC. Секреты древних. Каменные головы Ольмеко
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175421.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ BBC: Мир природы: Болота. В ад и обратно / The Natura
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174904.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ BBC. Параллельные Вселенные / BBC: Parallel Universes (2002
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174818.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ BBC: Горизонт. Что такое реальность? / Horizon. What i
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171678.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ BBC: Живой мир. Осьминог в моём доме / BBC Natural Worl
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170265.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ BBC. Великие географические открытия / Voyages of D
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170022.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169946.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ BBC. Становление континентов / Rise of the Continents (201
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167472.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ BBC: Западня: что сталось с мечтой о свободе? / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167419.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167085.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ BBC: Археология. Тайная история / Archaeology: A Secret H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165571.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ BBC: Планета Земля 2. Мир чудес / Planet Earth II: A World o
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164093.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163837.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162385.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160009.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4130636A615EF2DB3939404449A4E937DF7D9B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599571   (159543) от 24.12.2022
-
-BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DLRip [H.264/1080p] (серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159543.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой эпической серии из шести частей исследуется обширное волшебное царство и застывшие миры удивительного разнообразия природы. От замёрзшего океана Арктики - до снежных лесов и великих равнин Крайнего Севера, от высокогорных вершин наших гор - до юга Антарктиды. Это последние места дикой природы на Земле, в которых могут обитать только животные с уникальными (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: документальный, флора, фауна, исследованияРежиссер: Алекс Лэнчестер, Джейн Аткинс, Орла ДоэртиПеревод: одноголосый профессиональный (Jaskier)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: ~00:57:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72F44D0E1014D9DE640195568063946DCEF85A0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

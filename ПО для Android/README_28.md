@@ -1,3 +1,29 @@
+###  Публикация: 1469048   (1016688) от 10.05.2021
+
+Обои Full HD, 4K (WallpapersCraft) 2.13.21 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои Full HD, 4K или же WallpapersCraft - Это библиотека из десятков тысяч обоев для вашего девайса! Приложение способно адаптировать обои любого разрешения конкретно под ваш экран. В приложении так же есть сортировка изображений по разделам, так что каждый найдет что-то свое.Тип издания: PremiumРелиз состоялся: 30.04.2021Разработчик: WallpapersCraft | WallCraftПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53CC134B3DCBE28CB85EA01B19B667C3C3FA9ECE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339714   (1016643) от 10.05.2021
 
 Справочник СМП v1.12.2 [Ru] (обновляемая)
@@ -6,7 +32,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016643.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ BZ Напоминания и Дни Рождения v3.1.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016479.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ GIF Maker Pro 1.7.66 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016284.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ nPlayer Pro 1.7.7.7_191219 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016253.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Polaris Office Pro 9.0.12 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016060.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015716.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Avee Music Player (Pro) 1.2.101 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015601.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015286.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015265.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015098.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015093.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015092.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014906.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ Picture Insect v2.2 [Ru/Multi] - Bug Identifier
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014772.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ Photographer's companion v1.9.0 Pro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014749.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Geometryx: Геометрия - Расчёты и формулы v3.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014723.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ Hotspot Shield Free VPN v8.7.0 Elite [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014712.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Mobile Observatory - Astronomy v2.75 / 3 v3.3.5d Pro  [En] - вся информ
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014709.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Audiomack v6.4.0 [Ru/Multi] - скачайте музыку для оффлай�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014499.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ Launcher 10 - Лаунчер стилизованный под Windows 2.7.31 [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014419.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014313.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ txtpad+ 3.1.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014208.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ TonalEnergy Tuner and Metronome v1.9.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014197.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ chomp SMS 8.39 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014191.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ Material Status Bar 10.23 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014177.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ Material Status Bar - сделайте строку состояния боле�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC45F0140AA45839B5F1609710C94055F68D8B04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472764   (1014172) от 26.05.2021
-
-Amber Weather (Янтарная погода) 4.7.1 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Amber Weather - специально разработана чтобы совместить прогноз погоды на неделю, актуальную температуру, часы, дату и другую полезную информацию в одном удобном, красивом, приложении с инстинктивно понятным интерфейсом. Настройки шкал измерения и необходимых показателей помогут оптимизировать прогнозы именно для Вас. Благодаря разнообразным виджетам вы сможете узнать (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 28.03.2021Разработчик: Amber Mobile LimitedПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92B0F61F268A72EA65B1855B64D6128C16D21065
 ```
 
 https://mybot314.ru/tekegram_catalog/

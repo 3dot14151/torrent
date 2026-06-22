@@ -6,7 +6,7 @@ Reverend Stomp - Mokara (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159654.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Blues Shop Trio - Decade (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159648.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Green Dolphin Street - Paint It White (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159633.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Slowfoot - Something Good (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159067.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Andy Lindquist - Life's Too Short to Spend It Raining (2022) [FLAC|Lossless|WEB-
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159061.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Vern Daysel - Call of the Wild (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159031.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Manzanita Blues - To Day (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158157.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Matt Zajac - Garden of Hedon (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock; P
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158152.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Temptations - Give Love At Christmas (1980) [FLAC|Lossless|WEB-DL|tracks] <R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157680.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Mick Clarke - Relentless Boogie - The Album (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157677.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Jay Jesse Johnson - Man On A Mission (2021) [FLAC|Lossless|image + .cue] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157615.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Jay Jesse Johnson - 6 Studio Albums (2007-2021) 6xCD [FLAC|Lossless|image + .cue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155763.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Xavier Soranells and The Andy James Band - From Barcelona to Boston (2022) [FLAC
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155331.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Lolo - X (2021) [FLAC|Lossless|WEB-DL|tracks] <Rockin' Blues, Soul, Funk>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155180.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Jeff McMillan - Howlin' At The Moon (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154666.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Andre Camilleri - Layin' Low (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154294.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ PJ O'Brien - High Cost (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154292.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Jan Dylan Hunter - Blues Au Jus (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154230.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Wood Roses - We Call It Maize (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154213.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Sun Drivers - Blues Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154205.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Nesrallah Artuso Project - Wearing the Blues (2020) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153606.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Self Assistance - Sky Dog Floating in a Land of Impossible Color Combinations (2
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153599.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Murphy Road - No Business (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153590.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Voodoo Room - Tension City Blues (2020) [FLAC|Lossless|image + .cue] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153589.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ VA - Blues Harmonica (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153588.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ Rob Orlemans & Half Past Midnight - Libertyville (2007) [APE|Lossless|image + .c
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153519.jpg" />
 </div>
 
 

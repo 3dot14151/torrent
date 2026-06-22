@@ -1,32 +1,3 @@
-###  Публикация: 1280518   (760321) от 03.02.2019
-
-Лев Лещенко - Концерт в день рождения (2019 ) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трансляция концерта Льва Лещенко "День рождения с друзьями". Выдающемуся советскому и российскому исполнителю исполняется 77 лет! Со сцены "Крокус Сити Холла" в исполнении виновника торжества и гостей вечера звучат популярные композиции.01. Лев Лещенко — Мне интересно жить
-02. Лев Лещенко — Создан для тебя
-03. Лев Лещенко, Оксана Богословская, Александр Корецкий и Детский хор радио и телевидения России — Пока горит свеча
-04. Лев Лещенко и Юрий Антонов — Зеркало(   Читать дальше...   )Производство: Россия, Первый КаналЖанр: Pop, КонцертСубтитры: отсутствуютПродолжительность: 01:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00B4A640F37F36857B92C384D43A53F30B487488
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280481   (760311) от 03.02.2019
 
 King Diamond - Songs for the Dead Live (2019) BDRip [H.264/1080p]
@@ -35,7 +6,7 @@ King Diamond - Songs for the Dead Live (2019) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760311.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ A MusiCares Tribute to Barbra Streisand (2012) BDRip [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758984.jpg" />
 </div>
 
 
@@ -95,7 +66,7 @@ Accept - Blind Rage (Live In Chile) (2013/2014)  BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758862.jpg" />
 </div>
 
 
@@ -124,7 +95,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758628.jpg" />
 </div>
 
 
@@ -150,7 +121,7 @@ Alcatrazz - Parole Denied - Tokyo 2017 (2018) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756832.jpg" />
 </div>
 
 
@@ -179,7 +150,7 @@ MTV Europe Music Awards - London (2017) UHDTV [H.265/2160p] [4K, SDR, 10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756014.jpg" />
 </div>
 
 
@@ -205,7 +176,7 @@ Metallica: Français pour une nuit 1080(2009) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_755711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755711.jpg" />
 </div>
 
 
@@ -231,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754599.jpg" />
 </div>
 
 
@@ -257,7 +228,7 @@ Tina Turner - One Last Time Live in Concert & Celebrate! (2000/1999) SD Blu-Ray 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753916.jpg" />
 </div>
 
 
@@ -286,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752812.jpg" />
 </div>
 
 
@@ -312,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751060.jpg" />
 </div>
 
 
@@ -341,7 +312,7 @@ Foreigner - Rockin' at the Ryman (2011) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750987.jpg" />
 </div>
 
 
@@ -372,7 +343,7 @@ Ana Popovic Band - Jazzwoche Burghausen (2012) HDTV [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750077.jpg" />
 </div>
 
 
@@ -401,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749956.jpg" />
 </div>
 
 
@@ -431,7 +402,7 @@ Europe: War of King – Live at W:O:A (2015) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749953.jpg" />
 </div>
 
 
@@ -457,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749681.jpg" />
 </div>
 
 
@@ -483,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747553.jpg" />
 </div>
 
 
@@ -509,7 +480,7 @@ Nickelback: Live At Sturgis (2007) [1080p] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747286.jpg" />
 </div>
 
 
@@ -537,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746684.jpg" />
 </div>
 
 
@@ -566,7 +537,7 @@ Nightwish / From Wishes to Eternity (2001) DVDRip [H.264/720p] [Upscale с Machi
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746648.jpg" />
 </div>
 
 
@@ -592,7 +563,7 @@ Judas Priest - Epitaph (2013) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_745638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_745638.jpg" />
 </div>
 
 
@@ -621,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743522.jpg" />
 </div>
 
 
@@ -647,7 +618,7 @@ Queen - Rock Montreal & Live Aid (1981) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743296.jpg" />
 </div>
 
 
@@ -676,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743272.jpg" />
 </div>
 
 
@@ -705,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742154.jpg" />
 </div>
 
 
@@ -719,6 +690,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C56F31E833F8F5C480A416AA687C69EE35C5DEDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397271   (741293) от 19.07.2020
+
+Славянский базар в Витебске (2020) HDTVRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741293.jpg" />
+</div>
+
+
+###  Подробнее
+
+В концертной программе участвовали Филипп Киркоров, Сергей Полунин, Елена Ваенга, Александр Буйнов, Олег Митяев, Инна Маликова и ВИА «Новые самоцветы», Анна Семенович, Митя Фомин, Инна Афанасьева, Анатолий Ярмоленко и ансамбль «Сябры», Тима Белорусских, мужской хор «Всехсвятский» храма-памятника Всех Святых в Минске, Влад Сытник и многие другие.Производство: БеларусьЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 03:40:30 + 01:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C168B1D2F93C7BB0FB9F15F50FE0852074A7EE80
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,110 @@
+###  Публикация: 1458569   (1023755) от 29.03.2021
+
+Вдова (2020) BDRemux [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежегодно в лесах на севере Ленинградской области пропадает более 300 человек. Известны случаи, когда тела пропавших находят посреди леса – полностью обнаженными, без каких-либо следов насильственной смерти.
+Во время учений команда волонтеров-спасателей получает сообщение о потерявшемся в окрестном лесу мальчике. Отправившись на поиски, они находят раздетую женщину (   Читать дальше...   )Производство: Россия / Central Partnership Productions, QS FilmsЖанр: УжасыРежиссер: Иван МининАктеры: Виктория Потемина, Анастасия Грибова, Маргарита Бычкова, Илья Агапов, Алексей Анискин, Константин Нестерко, Олег ЧугуновПеревод: Не требуется (Русский) ЛицензияЯзык озвучки: РусскийСубтитры: Русские (Forced)Продолжительность: 01:26:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C85A7D7E61414E9AA3320FF1EACFAC9806B2A05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458571   (1023732) от 29.03.2021
+
+Вдова (2020) BDRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежегодно в лесах на севере Ленинградской области пропадает более 300 человек. Известны случаи, когда тела пропавших находят посреди леса – полностью обнаженными, без каких-либо следов насильственной смерти.
+Во время учений команда волонтеров-спасателей получает сообщение о потерявшемся в окрестном лесу мальчике. Отправившись на поиски, они находят раздетую женщину (   Читать дальше...   )Производство: Россия / Central Partnership Productions, QS FilmsЖанр: УжасыРежиссер: Иван МининАктеры: Виктория Потемина, Анастасия Грибова, Маргарита Бычкова, Илья Агапов, Алексей Анискин, Константин Нестерко, Олег ЧугуновПеревод: Не требуется (Русский) ЛицензияЯзык озвучки: Русский, английскийСубтитры: Русские (Forced)Продолжительность: 01:26:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E2E07364F236620A108AC4E71C2DB78643D8A70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458850   (1023641) от 30.03.2021
+
+ПЦ (2020) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жена и любовница успешного бизнесмена хотят расправиться с его новой возлюбленной. Они привозят девушку в лес, рассчитывая переложить вину за убийство на орудующего там маньяка. Но их планы быстро идут под откос.Производство: РоссияЖанр: Короткометражный, ужасы, комедияРежиссер: Максим ТкаченкоАктеры: Анна Тулинова, Оксана Дорохина, Анна Старцева, Анна Сказко, Иван Машнин, Михаил Поляков, Станислав Румянцев, Нериюс Манкус, Мария АбрахаСубтитры: ОтсутствуютПродолжительность: 00:10:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0F4D08E6AEE6E68DDE6BEABE01151D12DDC782D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458702   (1023631) от 30.03.2021
+
+Марафон желаний (2020) WEB-DL [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023631.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Я хочу нижнее белье из одного комплекта. Я хочу в Париж. Я хочу увидеть мир. Я хочу замуж за любимого. Я хочу новые духи. Я хочу отдать кредит за окна! Я хочу найти паспорт до свадьбы»…
+У Марины есть 7 желаний. Но главное — стать счастливой. Однако пересадка в Пулково и неожиданная встреча вносят свои коррективы в ее планы.Производство: Россия / Кинокомпания «САГа»Жанр: Комедия, мелодрамаРежиссер: Даша ЧарушаАктеры: Аглая Тарасова, Кирилл Нагиев, Мария Миногарова, Александр Гудков, Яна Троянова, Павел Деревянко, Юлия Ауг, Екатерина Варнава, Макар Запорожский, Олег КурсачёвПеревод: Не требуется (русский) iTunesСубтитры: Русские (Full, SDH), английскиеПродолжительность: 01:29:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45FDCDF85101BC67838B944A72950303349FC3C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459043   (1023416) от 31.03.2021
 
 Вдова (2020) BDRip [H.264/720p] [US Transfer]
@@ -6,7 +113,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023416.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023394.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023280.jpg" />
 </div>
 
 
@@ -86,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023153.jpg" />
 </div>
 
 
@@ -112,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023092.jpg" />
 </div>
 
 
@@ -138,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023034.jpg" />
 </div>
 
 
@@ -164,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022995.jpg" />
 </div>
 
 
@@ -191,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022967.jpg" />
 </div>
 
 
@@ -217,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022964.jpg" />
 </div>
 
 
@@ -243,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022960.jpg" />
 </div>
 
 
@@ -269,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022941.jpg" />
 </div>
 
 
@@ -296,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022900.jpg" />
 </div>
 
 
@@ -322,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022891.jpg" />
 </div>
 
 
@@ -349,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022889.jpg" />
 </div>
 
 
@@ -375,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022791.jpg" />
 </div>
 
 
@@ -401,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022780.jpg" />
 </div>
 
 
@@ -427,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022506.jpg" />
 </div>
 
 
@@ -453,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022435.jpg" />
 </div>
 
 
@@ -479,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022425.jpg" />
 </div>
 
 
@@ -506,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022196.jpg" />
 </div>
 
 
@@ -532,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022077.jpg" />
 </div>
 
 
@@ -558,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022069.jpg" />
 </div>
 
 
@@ -569,110 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2947BA8D357E1C48CDD6FC77AED0894BACB4EEC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460975   (1022063) от 08.04.2021
-
-Вратарь Галактики (2020) BDRip [H.264/720p]  [Ger Transfer]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022063.jpg" />
-</div>
-
-
-###  Подробнее
-
-2071 год. Галактические войны разрушили Луну и изменили климат на Земле. Москва – в тропических лесах, а Нью-Йорк покрылся льдом. Над Москвой возвышается огромный инопланетный корабль-стадион, на котором проходят зрелищные межгалактические соревнования по космоболу — игре, объединившей в себе спорт и гладиаторские бои. За матчами следит вся галактика. Играть в космобол (   Читать дальше...   )Производство: Россия / Телеканал «РОССИЯ 1», Бонанза Студио, Кинокомпания CTBЖанр: Приключения, фантастикаРежиссер: Джаник ФайзиевАктеры: Евгений Романцов, Мария Лисовая, Виктория Агалакова, Иван Иванович, Елизавета Тайченачева, Евгений Миронов, Юлия Винс, Христина Блохина, Валерия Букина, Станислав РогачевСубтитры: ОтсутствуетПродолжительность: 01:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD8E81A57DB5944689068CE04A6526346B2C86A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461095   (1022047) от 08.04.2021
-
-Подольские курсанты (2019) BDRemux [H.264/1080p] [Ger Transfer]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Октябрь 1941 года, Подмосковье. Около трёх с половиной тысяч курсантов подольских артиллерийского и пехотного училищ получают приказ занять оборону на Ильинском рубеже и совместно с регулярными частями 43-й армии сдерживать наступление фашистских захватчиков, пока не подойдёт подкрепление. Погибая, вчерашние мальчишки держат оборону от многократно превышающих сил (   Читать дальше...   )Производство: Россия / VoenFilm StudioЖанр: Военный, драма, история, боевикРежиссер: Вадим ШмелевАктеры: Алексей Бардуков, Евгений Дятлов, Сергей Безруков, Любовь Константинова, Артём Губин, Игорь Юдин, Гурам Баблишвили, Дмитрий Соломыкин, Роман Мадянов, Екатерина РедниковаПеревод: Не требуется (русский) (Лицензия)Субтитры: Русские (Forced)Продолжительность: 02:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12707D451F6BDD98F1C619D705F84C8D3AB5351A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461428   (1021920) от 09.04.2021
-
-Наяву (2021) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вадим Сергеевич уже более 20-ти лет работает следователем в одном из провинциальных городов России. Сутки на пролёт он проводит на работе, страдает бессонницей и только изредка засыпает за рабочим столом. Очередным утром, проснувшись в своём кабинете, он с молодым напарником ждёт на допрос юношу, на которого заведено дело по ст.282. Но в кабинете появляется неопределённого (   Читать дальше...   )Производство: Россия / FUTUROOMЖанр: Короткометражный, драма, криминал, триллерРежиссер: Михаил ИсаевАктеры: Игорь Сомов, Виктор Иванов, Тарас Леонов, Иван ШарыйСубтитры: ОтсутствуютПродолжительность: 00:26:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DEBED1D8FD5CD77EB8C9B26D65BDDD996E285CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350162   (1021853) от 09.04.2021
-
-Без меня (2018) Blu-Ray [H.264/1080p] [GER Transfer]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Две девушки, любившие одного мужчину, после его гибели получают сообщения, автором которых может быть только он. В надежде на чудо им вдвоем предстоит отправиться в путь, который прокладывают его подсказки, чтобы открыть тайну, стоящую за загадочными посланиями.Производство: Россия / Синетрейн, Марс Медиа ЭнтертейнментЖанр: Драма, МелодрамаРежиссер: Кирилл ПлетнёвАктеры: Полина Максимова, Любовь Аксенова, Риналь Мухаметов, Кирилл Плетнёв, Анна Каменкова, Евгения Дмитриева, Иван Титяев, Владимир Яглыч, Алексей Шевченков, Агриппина СтекловаПеревод: Не требуется (Русский)Субтитры: немецкиеПродолжительность: 01:29:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F670C89C248A35422B61132594513A4CF099D92A
 ```
 
 https://mybot314.ru/tekegram_catalog/

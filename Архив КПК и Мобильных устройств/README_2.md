@@ -6,7 +6,7 @@ Vaporgram Pro: Vaporwave & Glitch Photo Editor v6.4.2 [En/Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021133.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Reverso Translate and Learn v9.9.7 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021086.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Rarevision VHS Camcorder - Retro 80s Cam v1.6.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020994.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ PSPlay: PS Remote Play Unlimited v4.4.3 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020635.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ QuickEdit v1.8.1 Mod by Balatan, Alex.Strannik, VERGIL777 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020298.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Root Explorer 4.9.1 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020207.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Business Calendar v2.41.5 + Modifications [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020124.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Adobe Photoshop Express 7.4.829 Lite-Mod by Giacomino [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020077.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Duolingo Plus: изучение иностранных языков 5.5.4 Mod by
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019891.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ JetAudio Plus + Themes v10.6.0 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019686.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Music Speed Changer 9.6.5-pl Mod by Mixroot, Alex.Strannik, ssеrratty [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019654.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ AndroVid Pro Video Editor v4.1.6.2 + Modifications [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019641.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019590.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Colorfy PLUS - Coloring Book v3.12 [Ru/Multi] - раскраски для взр
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019362.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Cambridge Bookshelf v2.1.8.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019295.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ MyBible - Библия v5.3.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019229.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Lightricks Motionleap (Enlight Pixaloop) v1.3.6 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019033.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018786.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018598.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018209.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Foreca Погода / Foreca Weather 4.26.0 Mod by astrotim [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017921.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Huji Cam v2.4 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017890.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Simply Piano v6.0.3 Premium [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017226.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Cut Out Photo Background Changer, Cut Paste Image v1.8 [En] (обновляем�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016687.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ FX Player v2.9.0 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015934.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Always on Edge 6.1.0 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015933.jpg" />
 </div>
 
 

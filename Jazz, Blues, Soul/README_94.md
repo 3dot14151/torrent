@@ -1,90 +1,3 @@
-###  Публикация: 1373046   (882211) от 05.04.2020
-
-Vincent Gardner - The Good Book Chapter Three: The Book of Bebop (2012) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Double Talk [6:07]
-02. Another Hair-Do [7:34]
-03. I Waited for You [6:28]
-04. Compulsion [6:40](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:07:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1326B7CA0859CA3FA897FD3747CD6BE2FDA6EA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103771   (881875) от 14.02.2017
-
-Maya Rae - Sapphire Birds (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Close Your Eyes (3:57)
-02. Beautiful (4:18)
-03. Lullaby Of Birdland (3:12)
-04. Water Under Bridges (4:52)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:600733FC2AB68A4F113ACFB6E27F0733BCC1EA89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103947   (881807) от 14.02.2017
-
-Al Jarreau - Breakin' Away (1981) 1990 [WavPack|Lossless|image + .cue] <Smooth jazz, Vocal, Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881807.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Closer To Your Love (3:58)
-2. My Old Friend (4:29)
-3. We're In This Love Together (3:47)
-4. Easy (5:26)(   Читать дальше...   )Жанр: Smooth jazz, Vocal, Funk, SoulПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC7493EE41A7CB653DEA8E61107DB96DC02037FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996193   (881403) от 13.03.2016
 
 Dave "Fathead" Newman - Straight Ahead (1960) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
@@ -93,7 +6,7 @@ Dave "Fathead" Newman - Straight Ahead (1960) Remaster, 2012, Warner[FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881403.jpg" />
 </div>
 
 
@@ -122,7 +35,7 @@ McCoy Tyner - Song For My Lady (1972) 1987, OJC[FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881398.jpg" />
 </div>
 
 
@@ -151,7 +64,7 @@ Tete Montoliu - Yellow Dolphin Street (1977) Remaster, 2015, Solid Records[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881292.jpg" />
 </div>
 
 
@@ -180,7 +93,7 @@ Lee Konitz - Parallels (2000) Chesky Records[FLAC|Lossless|tracks + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881287.jpg" />
 </div>
 
 
@@ -209,7 +122,7 @@ Parov Stelar - Live @ Pukkelpop (2016) [MP3|320 кб/с] <Nu Jazz, Electro Swing
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880742.jpg" />
 </div>
 
 
@@ -238,7 +151,7 @@ Andrew Cyrille Quartet - The News (2021) [FLAC 2.0|88/24|tracks|WEB-DL] <Jazz>
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880623.jpg" />
 </div>
 
 
@@ -267,7 +180,7 @@ The Oscar Peterson Trio - At The Concertgebouw 1957 (2005) Universal [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880484.jpg" />
 </div>
 
 
@@ -296,7 +209,7 @@ Sonny Fortune - Invitation (1987) 2010, Whynot [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880353.jpg" />
 </div>
 
 
@@ -325,7 +238,7 @@ Martial Solal - Trio (1953-1955) 2016, Sony Music [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880352.jpg" />
 </div>
 
 
@@ -354,7 +267,7 @@ Jack Teagarden - At The Roundtable (1959) Remaster, 2016, Warner [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880351.jpg" />
 </div>
 
 
@@ -383,7 +296,7 @@ Mel Torme - Comin' Home Baby! (1962) Remaster, 1988, Atlantic [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880296.jpg" />
 </div>
 
 
@@ -412,7 +325,7 @@ The Frank Wess - Quartet (1960) 2004, Original Jazz Classics [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880294.jpg" />
 </div>
 
 
@@ -441,7 +354,7 @@ Steve Gut - Mr. C.T. (1995) Remaster, 2016, Solid Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880290.jpg" />
 </div>
 
 
@@ -470,7 +383,7 @@ Tete Montoliu & Jordi Sabates - Vampyria (1974) 2007, Nuevos Medios [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880281.jpg" />
 </div>
 
 
@@ -499,7 +412,7 @@ Full Fat - Most of What Follows is True (2014) [FLAC|Lossless|WEB-DL|tracks + .c
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880278.jpg" />
 </div>
 
 
@@ -528,7 +441,7 @@ Bim Bam Baby - Who Am I Gonna Love Tonight (1999) [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880275.jpg" />
 </div>
 
 
@@ -557,7 +470,7 @@ McCoy Tyner Quartet - New York Reunion (1991) Chesky Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880264.jpg" />
 </div>
 
 
@@ -586,7 +499,7 @@ Elisabeth Melander - Reflections Of A Voice (2017) [FLAC|Lossless|WEB-DL|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880263.jpg" />
 </div>
 
 
@@ -615,7 +528,7 @@ Tall Grass Music - Complete 37 Studios Recordings (2010) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880261.jpg" />
 </div>
 
 
@@ -644,7 +557,7 @@ Shane Dwight Band - Come See Me (2003) [FLAC|Lossless|tracks + .cue] <Blues-Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880254.jpg" />
 </div>
 
 
@@ -673,7 +586,7 @@ Bert Kaempfert - Let's Swing (1995) [FLAC|Lossless|tracks + .cue] <Jazz-Pop, Eas
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880250.jpg" />
 </div>
 
 
@@ -702,7 +615,7 @@ Electro Deluxe - Circle (2016) [FLAC|Lossless|tracks + .cue] <Jazz-Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880247.jpg" />
 </div>
 
 
@@ -731,7 +644,7 @@ Gabor Szabo - Gypsy '66 (1965) Remaster, 2005, Universal [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880243.jpg" />
 </div>
 
 
@@ -745,6 +658,93 @@ Gabor Szabo - Gypsy '66 (1965) Remaster, 2005, Universal [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CC2E81F46935E9500F8D87F096AAF93E72F24AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104317   (880240) от 15.02.2017
+
+Dave Weckl - Master Plan (1990) GRP Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Tower Of Inspiration [04:00]
+ 02.Here And There [06:09]
+ 03.Festival de Ritmo [04:52]
+ 04.In Common [05:55](   Читать дальше...   )Жанр: Jazz Fusion, Jazz RockПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE082651786DDC5776D46BB8CFDDF4EB401CE3A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104229   (879976) от 15.02.2017
+
+Kenny G - I'm in the Mood for Love: The Most Romantic Melodies Of All Time (2006) [FLAC|Lossless|tracks + .cue] <Smooth Jazz,  Instrumental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're Beautiful (James Blunt) (4:14)
+ 02. The Way We Were (A. & M. Bergman) (2:52)
+ 03. Yesterday (Lennon McCartney) (3:01)
+ 04. I'm In The Mood For Love (McHugh Fields) (4:03)(   Читать дальше...   )Жанр: Smooth Jazz,  InstrumentalПродолжительность: 00:48:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52C0A8F65E16B218B2BFBA72858CF3F4AA27D814
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 871694   (879420) от 22.02.2015
+
+Brian Simpson - Out Of A Dream (2015) [FLAC|Lossless|WEB-DL|tracks]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Of A Kind (ft. Grace Kelly)
+02. Out Of A Dream (ft. Najee)
+03. When I Say Your Name (ft. Dave Koz)
+04. Sky Watcher(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D6FDE5855D85FC0033EDEB6A2D09BE610BABEFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

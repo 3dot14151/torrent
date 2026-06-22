@@ -1,3 +1,83 @@
+###  Публикация: 1567082   (474419) от 02.08.2022
+
+Жан-Клод Ларше | Болезнь в свете православного вероучения (2016) [PDF, DJVU, FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный православный богослов Жан-Клод Ларше пытается выработать квинтэссенцию учения о телесных болезнях и их излечении. Исследуя эту тему, автор опирается на Священное Писание, труды святых отцов, литургические тексты и учение о Таинствах Церкви. Первая часть книги посвящена вопросам об источниках и причинах появления болезней, о взаимосвязи болезни со злом и (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE925B7D32CEBC19CF3ABC7C0D85465DFE6CD1E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245100   (474104) от 05.09.2018
+
+Иеромонах Антоний Святогорец | Жизнеописания афонских подвижников благочестия XIX века (2010) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вниманию читателя предлагается книга, в которой собраны достоверные свидетельства очевидцев, русских монахов-афонитов, о самых ярких подвижниках XIX века. Величие святогорских отцов, таких как старцы Хаджи-Георгий или Паисий грек, духовники отец Арсений или отец Антипа, служивших Богу с полным самоотречением, особенно в тяжёлые годы турецкой оккупации Афонской Горы, (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5842EB35F29BBE71059469A554A9A4DE3BDC4EE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245187   (474099) от 05.09.2018
+
+Иеромонах Никон (Беляев) | Дневник последнего духовника Оптиной пустыни (2011) [FB2, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнеописание иеромонаха Никона (1888–1931 гг.) состоит из следующих частей: его дневника, который он писал, когда поступил в Оптину пустынь в течение трёх лет (с 1907 по 1910 г.), и воспоминаний о нём его духовных детей. Сохранились также записи некоторых из его проповедей. Он умер ещё совсем молодым в ссылке в 1931 г. от туберкулёза.
+
+Вся недолгая жизнь о. иеромонаха (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAAD99C1AABFA5607377D4005B1D0D7BA62AD216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 822910   (473503) от 21.09.2014
 
 Шри Рам Севак джи Махарадж | Шри Девраха Баба Лила Даршан (2014) [PDF]
@@ -6,7 +86,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473503.jpg" />
 </div>
 
 
@@ -34,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472629.jpg" />
 </div>
 
 
@@ -60,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472234.jpg" />
 </div>
 
 
@@ -86,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472023.jpg" />
 </div>
 
 
@@ -112,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472022.jpg" />
 </div>
 
 
@@ -140,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470131.jpg" />
 </div>
 
 
@@ -167,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469265.jpg" />
 </div>
 
 
@@ -194,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468604.jpg" />
 </div>
 
 
@@ -220,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467894.jpg" />
 </div>
 
 
@@ -246,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467887.jpg" />
 </div>
 
 
@@ -272,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467788.jpg" />
 </div>
 
 
@@ -298,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467667.jpg" />
 </div>
 
 
@@ -324,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466867.jpg" />
 </div>
 
 
@@ -351,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466580.jpg" />
 </div>
 
 
@@ -377,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466574.jpg" />
 </div>
 
 
@@ -403,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466573.jpg" />
 </div>
 
 
@@ -429,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466430.jpg" />
 </div>
 
 
@@ -455,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466428.jpg" />
 </div>
 
 
@@ -481,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465517.jpg" />
 </div>
 
 
@@ -509,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464287.jpg" />
 </div>
 
 
@@ -535,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464125.jpg" />
 </div>
 
 
@@ -561,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463619.jpg" />
 </div>
 
 
@@ -587,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463386.jpg" />
 </div>
 
 
@@ -598,84 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F566D01BF83FEE6E7F384FDF0ED458039CF64737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407635   (462604) от 09.09.2020
-
-Ю.А. Кулакова | Когда Бог рядом (2017) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462604.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге «Когда Бог рядом», вышедшей в издательстве Сретенского монастыря, автор, Юлия Кулакова, рассказывает о пути своего воцерковления, о приходской жизни и служении в качестве матушки священника. Читателям будет интересно узнать, как живут приходы Русской Православной Церкви за рубежом, а также об опыте общения с детьми в воскресных школах православных приходов (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:835320642B344849EEC32AF197F492A448A331BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246521   (461561) от 11.09.2018
-
-Ольга Рожнёва | И Промысл Божий не обижает никого (2014) [FB2, PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказы Ольги Рожнёвой согревают и очищают человеческие души, делают нас светлее, добрее, несут радость, призывают к любви, вере и надежде.Жанр: ПравославиеФормат: FB2, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E14CE6E43DB79F33ED6E6095F851CE1C028109CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246569   (461560) от 11.09.2018
-
-Елена Морозова | Гармония в семье и браке (2012) [FB2, PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена актуальной проблеме - созданию и сохранению семьи. Особая острота этого вопроса связана с тяжёлым кризисом, в котором находятся наши семьи: приоритет отдаётся эгоцентрическим ценностям, растёт число разводов, падает рождаемость, ужасает количество абортов, которые совершаются ежедневно - кризис дал глубокие корни. Поэтому важно возрождать ценность (   Читать дальше...   )Жанр: Православие. ПсихологияФормат: FB2, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:650E8CB9901F3D6D946B52DCAD6C62BD6FD77E1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

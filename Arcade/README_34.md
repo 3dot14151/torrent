@@ -1,3 +1,55 @@
+###  Публикация: 492838   (249160) от 09.05.2012
+
+Boppin [En] (RePack) 1994 | Pilotus
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_249160.jpg" />
+</div>
+
+
+###  Подробнее
+
+По-настоящему шедевральный гибрид паззла и аркады и совершенно точно одна из наиболее недооценённых игр этого направления в истории. Сюжет следующий: некая группа «добрых» существ пленила всех известных злодеев из видеоигр, и спасти их теперь могут только забавные существа с треугольными головами.Тип издания: RePackЖанр: ЛогическаяЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493120   (248676) от 07.05.2012
+
+Street Fighter x Tekken [Ru/En] (RePack) 2012 | R.G. Origami
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Персонажи из двух величайших серий файтингов, Street Fighter и Tekken, сойдутся вместе в одной игре. Проект основан на том же принципе, что и Street Fighter IV – трехмерные бойцы двигаются в 2D плоскости. Среди персонажей вы встретите Рью (Street Fighter), Чан-Ли (Street Fighter), Казую Мисима (Tekken), Нину Уильямс (Tekken) и многих других. Все бойцы сохранили свои уникальные характеристики и приемы.Тип издания: RePackЖанр: Arcade (Fighting) / 3DЯзык озвучки: Английский, ЯпонскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B1435AA311C6AAA0774EBB713D113BCF5DF026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 492588   (248649) от 07.05.2012
 
 Insanely Twisted Shadow Planet [Ru] (RePack/1.0r9) 2012 l Fenixx
@@ -6,7 +58,7 @@ Insanely Twisted Shadow Planet [Ru] (RePack/1.0r9) 2012 l Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248649.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Shanghai Dragon [En] (RePack) 2003 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248603.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Street Fighter X Tekken [Ru] (RePack) 2012 l Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248118.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ SpongeBob SquarePants: The Cosmic Shake (2023) [Ru/Multi] (1.4b/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247750.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ LEGO Star Wars: The Skywalker Saga (2022) [Ru/Multi] (1.0.9/dlc) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247472.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Crimsonland (2014) [Ru/Multi] (1.3.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247360.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ The Simulacrum (2023) [En] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247307.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Redout: Space Assault (2021) [Ru/Multi] (1.1.0) License GOG [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247045.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Street Fighter x Tekken (L) [Multi11\+] 2012 | SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246714.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Mortal Kombat (2013) [Ru/En] (1.07/dlc) Repack Necros [Komplete Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246262.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ LEGO Batman: The Videogame (2008) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241091.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Glover (2022) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237638.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Lumote: The Mastermote Chronicles (2022) [Ru/Multi] (1.5.3-rc5) License GOG [Dig
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236099.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ LEGO Star Wars: The Skywalker Saga (2022) [Ru/Multi] (1.0.0.27327/dlc) Repack De
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235258.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Astalon: Tears of the Earth (2021) [Ru/Multi] (1.1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233373.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Alekon (2021) [En] (1.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230723.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ NARUTO SHIPPUDEN Ultimate Ninja STORM Revolution (2014) [Ru/Multi] (1.0.0.0 upd2
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230021.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ My Memory of Us (2018) [Ru/Multi] (1.3057) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228910.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Trifox (2022) [Multi] (1.0.0.7) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227100.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Maneater (2021) [Ru/Multi] (7837297/dlc) Repack DjDI [Apex Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227057.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Bibi Blocksberg - Big Broom Race 3 (2018) [Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225874.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Terror of Hemasaurus (2022) [Multi] (1.0b) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225009.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ God's Trigger (2019) [Ru/Multi] (1.2.58760) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224613.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ G-Force / Миссия Дарвина (2009) [Ru] (1.0) Repack =nemos=
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223108.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ G-Force / Миссия Дарвина (2009) [Ru] (1.0) Repack =nemos=
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2E6C8A259F2A09C2ACA87E84E7705A20691DE84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965224   (221309) от 16.12.2015
-
-Helldivers (2015) [Ru/Multi] (Build 901447/dlc) SteamRip Let'sРlay [Digital Deluxe Edition]
-
->>След.
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир игры погряз в войне между людьми, киборгами и агрессивно настроенными пришельцами из других вселенных. В составе элитного боевого подразделения под названием «HELLDIVERS» и используя футуристическое вооружение будущего, включая роботов, вам предстоит сражаться за человечество против всех этих врагов и трех инопланетных рас, защищая жителей Супер Земли от уродливых (   Читать дальше...   )Тип издания: SteamRipРазработчик: Arrowhead Game StudiosЖанр: Arcade (Shoot'em up), 3D, Top-downЯзык озвучки: Русский, Английский, Французский, Итальянский, Немецкий, ИспанскийЯзык субтитров: Русский, Английский, Французский, Итальянский, Немецкий, ИспанскийЯзык интерфейса: Русский, Английский, Французский, Итальянский, Немецкий, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B212908CC94E1BA8BEA3D6574B2EC45F8FB2F35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910549   (221301) от 16.12.2015
-
-Magicka 2 (2015) [Ru/Multi] (1.2.0.0/dlc) SteamRip Let'sРlay [Deluxe Edition]
-
->>След.
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самое хулиганское ко-оп приключение возвращается! В новой главе Magicka, игроки восстают из руин замка Алдрехейм, чтобы обнаружить Мидгард практически очищенным от волшебников. Лишь немногие остались живы после Войны магов, да и те либо обезумили, либо стали невероятно враждебны ко всему живому. Чтобы снова избавить мир от зла, четверым волшебникам и их гиду Владу (   Читать дальше...   )Тип издания: SteamRipРазработчик: Pieces InteractiveЖанр: Arcade, 3D, IsometricЯзык озвучки: -/-Язык субтитров: Русский, Английский, Немецкий, Французский, Итальянский, ИспанскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Итальянский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C252816860AEE01C4E1813F67CBA4DB6BB66909
 ```
 
 https://mybot314.ru/tekegram_catalog/

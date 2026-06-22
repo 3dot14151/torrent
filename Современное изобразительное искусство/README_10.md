@@ -1,3 +1,29 @@
+###  Публикация: 594044   (134029) от 25.12.2012
+
+Работы художников - Robert Griffing - индейцы - восточная граница
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы художников - Robert Griffing - индейцы - восточная граница
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:774DC6F0425137EC8D2AE14720E90EE1F5AD2633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 594527   (133610) от 26.12.2012
 
 Рисованная графика - Artworks by Andrew Dobell (ANARKYMAN)
@@ -6,7 +32,7 @@
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133610.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133558.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133550.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131944.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130848.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130847.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78516.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23126.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_322.jpg" />
 </div>
 
 

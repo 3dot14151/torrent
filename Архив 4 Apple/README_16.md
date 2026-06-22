@@ -6,7 +6,7 @@ Pixelmator Pro 2.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035207.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Prism 9 v9.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035202.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Millumin 3 v3.18.g [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035199.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ TechTool Pro 13 v13.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035173.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ BusyCal 3 v3.12.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034977.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ IconJar 2.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034976.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ PDF Image Xtractor 1.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034975.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Marked 2 v2.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034974.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Cloud Outliner Pro 2.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034973.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Dato 2.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034972.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ iBoostUp Premium 8.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034969.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Wattagio 1.12.4 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034966.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Text Scanner - PDF & Document 1.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034964.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Export for iTunes 2.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034950.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ BusyCal 3 v3.12.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034710.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Boxy SVG 3  v3.46 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034706.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Outline 3.2101.0 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034705.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ One Switch 1.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034701.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ PDF Squeezer 4 v4.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034700.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ TunesKit AceMovi Video Editor 2.1.0.19 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034699.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Serial Box 02.2021 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034695.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ iPulse 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034694.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Living Earth - Weather & Clock 1.29 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034689.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ DxO PhotoLab 4 ELITE Edition 4.1.3.49 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034682.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Mountain Duck 4.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034665.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ BusyCal 3 v3.12.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034479.jpg" />
 </div>
 
 

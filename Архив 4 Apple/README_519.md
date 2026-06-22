@@ -1,3 +1,56 @@
+###  Публикация: 1638387   (237951) от 08.06.2023
+
+Timer RH PRO  2.11.0 [En/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Timer RH PRO - утилита для управления собственным временем.Тип издания: macOS SoftwareРелиз состоялся: 07.06.2023Разработчик: © 2014-2021 3bitlabПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C130C801B43F132EC0DB3644B5E5227826832AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446275   (237949) от 08.02.2021
+
+MiniNote Pro 5.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237949.jpg" />
+</div>
+
+
+###  Подробнее
+
+MiniNote Pro — очень простое и удобное приложение (замечательная замена нативным заметкам), которое находиться в строке меню и по горячей клавише всегда под рукой. Симпатичный интерфейс, темы, которые можно менять (только в версии Pro), а простой поиск быстро найдет любой текст, даже, если заметок очень много.
+В версии Pro можно воспользоваться возможностью форматированного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.02.2021Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCF1E72B5A3073C4BFBAF4C21F5FDD84D4D3CF58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573624   (237922) от 01.09.2022
 
 iStat Menus 6 v.6.62 fix [Multi/Ru]
@@ -6,7 +59,7 @@ iStat Menus 6 v.6.62 fix [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237922.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ Folder Designer: Custom Icon‪s 1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237918.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ Geekbench 6.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237904.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ Notebooks – Write and Organize 3.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237890.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v.4.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237856.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ SiteSucker 5.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237849.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ GraphicConverter 11 v.11.7.1 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237842.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ VideoProc Converter 4K 5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237838.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ GraphicConverter 11 v.11.7.1 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237830.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ EdgeView 3 v.3.9.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237823.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ A Better Finder Rename 11 v.11.57 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237810.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ AssetsGen 4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237805.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v.4.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237797.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ WonderPen 1.8.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237786.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ iBarcoder 3.12.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237778.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ NCH Crescendo Masters 6.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237765.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ Clipboard Manager 2.3.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237759.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ ColorWell 7.2.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237758.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ Hides 5.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237743.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ Magic Battery 7.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237735.jpg" />
 </div>
 
 
@@ -536,7 +589,7 @@ Kaleidoscope 4.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237720.jpg" />
 </div>
 
 
@@ -564,7 +617,7 @@ Aiseesoft FoneEraser 1.0.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237717.jpg" />
 </div>
 
 
@@ -590,7 +643,7 @@ Picture Colorizer 2.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237713.jpg" />
 </div>
 
 
@@ -616,7 +669,7 @@ eMail Address Extractor 3.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237706.jpg" />
 </div>
 
 
@@ -628,59 +681,6 @@ eMail Address Extractor - ищем и извлекаем email адреса. eMa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE9D26F5C58982BFD78DAA2556558C74F740A328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640147   (237705) от 16.06.2023
-
-Reader for Mac 4.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reader — это быстрая и минималистичная программа просмотра PDF с мощными элементами управления.
-Это полная версия Reader, которая включает в себя базовые аннотации, включая выделение и написание желтых заметок.Тип издания: macOS SoftwareРелиз состоялся: 15ю06.2023Разработчик: © 2023 The Augmented Text Company LTDПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DA55EAAAA63C1E8779059B925540A439AE0528A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640149   (237696) от 16.06.2023
-
-Color Wheel 7.7 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цифровой, абстрактный, классический - все типы цветовых кругов в одном приложении!Тип издания: macOS SoftwareРелиз состоялся: 15.06.2023Разработчик: © 2023 Roman SevastyanovПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB1B82F58E64957CA8E20C5223C0EEA572E8B10A
 ```
 
 https://mybot314.ru/tekegram_catalog/

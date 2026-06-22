@@ -1,3 +1,107 @@
+###  Публикация: 1711613   (112445) от 31.03.2024
+
+Disgaea 7: Vows of the Virtueless (2023) [Multi] (1.12/dlc) Scene Tenoke [Ultimate Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Присоединяйтесь к главному герою Фудзи, чтобы принять участие в приключении Disgaea, которое станет еще масштабнее и лучше, чем когда-либо прежде! Погрузитесь в демоническое царство Хиномото, где нет кодекса бусидо, а есть кодекс разрушения Хиномото! В Хиномото, состоящем из множества миров, обитает множество демонов, каждый из которых имеет свои собственные убеждения. (   Читать дальше...   )Тип издания: TenokeРазработчик: Nippon Ichi Software, Inc.Жанр: Экшены, Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, Французский, Корейский и другиеЯзык интерфейса: Английский, Японский, Французский, Корейский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FB52C1E996FF9368D420DEF3129FABC9D895BF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713272   (112001) от 05.04.2024
+
+Immortal Mantis: Revenge (2024) [Multi] (1.1) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112001.jpg" />
+</div>
+
+
+###  Подробнее
+
+mmortal Mantis: Revenge - хоррор с нелинейным повествованием, где вы узнаете как историю серийного убийцы по прозвищу Богомол, так и о его новой жертве. Тяжелое детство и заключение контракта с темной сущностью превратило Фуюки в кровожадного монстра. Сергей, взявшееся за очередное дело детектив, видит некоторые сходства между собой и поведением убийцы из-за чего (   Читать дальше...   )Тип издания: LicenseРазработчик: BitlifeЖанр: Казуальные игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Бразильский ПортугальскийЯзык интерфейса: Английский, Бразильский Португальский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5C5D4C59CC926E051BD18908D64BB49C73EFCDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713186   (111974) от 05.04.2024
+
+Immortal Mantis (2022) [Multi] (1.1) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключения в мрачной вселенной Immortal Mantis позволяют игрокам взять под управление героя по имени Акин, что купил дом в сельской местности и столкнулся с загадочными явлениями. Игра выполнена в пиксельной ретро-стилистике, где необходимо бродить по изометрической карте с видом сверху и разбираться с головоломками. Атмосфера сделана в духе классических хоррор-бродилок, (   Читать дальше...   )Тип издания: LicenseРазработчик: BitlifeЖанр: Казуальные игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Бразильский ПортугальскийЯзык интерфейса: Английский, Бразильский Португальский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AE4AFCA93958B0FB76D3A213F803F689AB16AD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731738   (107632) от 22.06.2024
+
+Siralim Ultimate (2021) [En] (1.0) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Siralim Ultimate - пошаговая ролевая игра, позволяющая призывать более 1200 уникальных существ. Путешествуйте по процедурно сгенерированным локациям, добывайте ресурсы, охотьтесь за ценным лутом и многое другое. Игровой процесс выполнен в духе классических RPG, ссылаясь на олдскульные механики, в том числе и хардкорную сложность. События развиваются в фэнтезийном (   Читать дальше...   )Тип издания: SceneРазработчик: Thylacine StudiosЖанр: Ролевые игры, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00BCAD407B8D0512D40F2CC18D848F008A1B2FD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737962   (106464) от 20.07.2024
 
 I Was a Teenage Exocolonist (2022) [En] (1) License GOG
@@ -6,7 +110,7 @@ I Was a Teenage Exocolonist (2022) [En] (1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106464.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Cat Quest II (2019) [Ru/Multi] (1.7.6) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104451.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Cat Quest (2017) [Ru/Multi] (1.2.13) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104435.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Bad Blood [En] (RePack) 1990 | Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102644.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ A Savage Frontier Fantasy Role-Playing Epic Антология [En] (RePack) 199
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102193.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Rings of Medusa и Return of Medusa [En] (RePack) 1990-1991 | Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_101959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_101959.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Diablo 2 + Lord of Destruction [En/Ru] (RePack/1.13d) 2000 | R.G. ReCoding
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101932.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ Tainted Grail: Conquest (2021) [Ru/Multi] (1.62) License GOG [Original Soundtrac
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100803.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ Talisman (2014) [Ru/Multi] (84935/dlc) License GOG [Digital Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100802.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ Luck & Loot (2025) [Ru/Multi] (1.1c) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100782.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ Titan Quest (2016) [Ru/Multi] (2.10.21415/dlc) Repack Let'sРlay [Anniversary Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_98583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98583.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ Lost in Random: The Eternal Die (2025) [Ru/Multi] (rc6/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94586.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ Prince Of Qin [Ru/En] (P) 2004
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90531.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ Realms of Arkania Антология [En/Ru] (RePack) 1992-1996 | Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88714.jpg" />
 </div>
 
 
@@ -375,7 +479,7 @@ Avernum: Escape from the Pit (P) [En] 2012
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88315.jpg" />
 </div>
 
 
@@ -401,7 +505,7 @@ Angels vs Devils [Ru] (L) 2004
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87244.jpg" />
 </div>
 
 
@@ -428,7 +532,7 @@ King's Bounty Platinum Edition [Ru/En] (RePack) 2008-2010 | Seraph1
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86874.jpg" />
 </div>
 
 
@@ -454,7 +558,7 @@ Venetica: HD Edition [Ru] (Lossless RePack) 2010 | Naitro
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84834.jpg" />
 </div>
 
 
@@ -480,7 +584,7 @@ Neverend [Ru] (RePack) 2005 | Sash HD
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84192.jpg" />
 </div>
 
 
@@ -506,7 +610,7 @@ Risen [Ru] (Lossless RePack/1.1/1.2) 2009 | pe4enko
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81764.jpg" />
 </div>
 
 
@@ -534,7 +638,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (2.00.73217/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71364.jpg" />
 </div>
 
 
@@ -560,7 +664,7 @@ Tails of Iron (2021) [Ru/Multi] (1.52/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70786.jpg" />
 </div>
 
 
@@ -571,110 +675,6 @@ Tails of Iron – это приключенческая ролевая игра 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC6F2875631613A6D98A0732518800D71E506A8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799660   (66419) от 29.05.2025
-
-Sengoku Dynasty (2023) [Ru/Multi] (1.0.3.1) Repack Pioneer
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66419.jpg" />
-</div>
-
-
-###  Подробнее
-
-В некогда опустошенных войной и голодом землях вам предстоит начать новую жизнь, обзавестись соседями и основать собственную династию. В одиночку или в кооперативном режиме исследуйте прекрасный открытый мир, собирайте ресурсы и охотьтесь, мастерите предметы и стройте дома, а затем налаживайте цепочки производства в своей деревне, чтобы не только выживать, но и развиваться.Тип издания: RepackРазработчик: SuperkamiЖанр: Приключенческие игры, Ролевые игры, СимуляторыЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5FF6C3B0A9C52248611204665992EBE058651A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803749   (65804) от 25.06.2025
-
-Warhammer 40,000: Rogue Trader (2023) [Ru/Multi] (1.4.0/dlc) Repack seleZen [Lex Imperialis]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Warhammer 40,000: Rogue Trader – это изометрическая ролевая игра, сделанная по мотивам культовой вселенной Боевого Молота. В её сеттинге гримдарк смешивается с научной фантастикой. Данный продукт предлагает путешествовать по космосу на огромном корабле, посещать разные места, болтать с колоритными неписями, прокачиваться, выполнять квесты, участвовать в битвах. Все (   Читать дальше...   )Тип издания: RepackРазработчик: Owlcat GamesЖанр: Role-Playing, Turn-Based, TacticalЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAA01CA5E08FBE7CF44478C30BFDFF6E2FE201B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803857   (65796) от 25.06.2025
-
-Questron II (1988) [En] (1.2) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение классической игры Questron от SSI для Apple II и духовный родственник Legacy of the Ancients от EA, Questron II продолжает историю спустя годы после окончания предыдущей игры. На этот раз Mesron the Great Wizard отправляет вас в путешествие в прошлое, чтобы помешать Безумным Колдунам создать Книгу Злой Магии. Отличный сюжет, головоломки и множество приятных (   Читать дальше...   )Тип издания: LicenseРазработчик: SSIЖанр: Ролевые игры, ФентезиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE28C8334955284F777C8C23F72A18B39302965
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707220   (62943) от 15.03.2024
-
-Zoria: Age of Shattering (2024) [Multi] (1.0/dlc) Scene FAiRLiGHT
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zoria: Age of Shattering – тактическая групповая стратегия с пошаговыми поединками против многочисленных вражеских юнитов. Местом действия однопользовательской сюжетной кампании является вымышленный мир под названием Зория. Эта вселенная наполнена разнообразной магической энергией, всевозможными головоломками, использующими несколько десятков механик, и захватывающими (   Читать дальше...   )Тип издания: SceneРазработчик: Tiny Trinket GamesЖанр: Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Английский, Китайский (упрощенный)Язык интерфейса: Английский, Китайский (упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CF0888BEB49E5A7029E6F2FC25E524D8408F127
 ```
 
 https://mybot314.ru/tekegram_catalog/

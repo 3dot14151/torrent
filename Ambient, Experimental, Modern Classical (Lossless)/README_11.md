@@ -6,7 +6,7 @@ Asger Kudahl - Sketches For Revolution (2018) Resonans [FLAC|Lossless|WEB-DL|tra
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578273.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Cholosus - Momentum EP (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574457.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Robert Rich & Markus Reuter - Flood Expeditions: The Gatherings, 19 May 2018 (20
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569361.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Palta & Ti - Palta Og Ti På Den Tolvte Ø (2018) 12th Isle [FLAC|Lossless|WEB-D
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567962.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Hipnotic Earth - Suspended In Silence (2019) Whitelabrecs [FLAC|Lossless|tracks+
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565539.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ C.J. Catalizer | Abiogenesis - Discography 4 Releases (2006-2017) Altar Records 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564981.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Blank & Jones - Dom (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563445.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Anthéne (Anthene) - Asymmetry (2019) Whitelabrecs [FLAC|Lossless|tracks+.cue] <
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559943.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Gang Gang Dance - Kazuashita (2018) 4AD [FLAC|Lossless|tracks+.cue] <Experimenta
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556289.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Black Swan - Discography 12 Releases (2010-2019) Ethereal Symphony, Swan Plague 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555455.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Ripperton - Contrails (2019) ESP Institute [FLAC|Lossless|WEB-DL|tracks] <Ambien
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555251.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Tom Adams - Particles (2019) Moderna Records [FLAC|Lossless|WEB-DL|tracks] <Mode
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555228.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Aurelie - Desde Que Naci (2003) Swim ~ [FLAC|Lossless|WEB-DL|tracks] <Ambient, A
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554530.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Entheogenic - Hypatia (2019) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Psychill,
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553939.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Cryostasis - Between Static And Distance (2017) ...txt [FLAC|Lossless|WEB-DL|tra
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553620.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ VA - Blue (2016) WFMU [FLAC|Lossless|tracks+.cue] <Ambient, Experimental, Field 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553321.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Terre Thaemlitz - Soil (1995) Instinct Ambient [FLAC|Lossless|tracks+.cue] <Ambi
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552348.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Spiritual Evolution - Genesis (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dow
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551528.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Olivier Orand | Hol Baumann | OP 11 - Discography 10 Releases (2006-2019) Ultima
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550904.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ LX Bliss - Ambient 01 (2003) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Soundscape,
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549323.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ All India Radio - Subspace (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downte
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548829.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Hoon & Ryuichi Sakamoto - CBL [Cd Baby Love] (2003) WEA Japan [FLAC|Lossless|tra
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547128.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Ryuichi Sakamoto - Henkaku No Seiki — Century Of Reform (2002) WEA Japan [FLAC
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547121.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Masayoshi Fujita - Book Of Life (2018) Erased Tapes Records [FLAC|Lossless|WEB-D
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547117.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Sachiko M + Ryuichi Sakamoto - Snow, Silence, Partially Sunny (2012) Commmons [F
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547112.jpg" />
 </div>
 
 
@@ -724,7 +724,7 @@ Xoki - Specular (2019) Space Of Variants [FLAC|Lossless|tracks+.cue] <Ambient, D
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547015.jpg" />
 </div>
 
 

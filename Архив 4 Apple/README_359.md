@@ -1,3 +1,30 @@
+###  Публикация: 1565976   (488351) от 26.07.2022
+
+Elmedia Player Pro 8.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elmedia Player - мультимедийный плеер для воспроизведения практически всех видео форматов: (FLV, SWF, MOV, MP4, DIVX, RV, RM и даже Silverlight). Это удобный и простой в настройке плеер, который проигрывает медиа файлы локально, а также имеет встроенный веб-браузер, позволяющий заходить на любой сайт и выбирать понравившееся видео для просмотра.
+Elmedia Player PRO (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.07.2022Разработчик: © 2022 Eltima LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BD165727341BA9A818D5434D97EADEDE0207DB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1055450   (488264) от 22.09.2016
 
 DxO OpticsPro Elite 11.2.0 [Multi]
@@ -6,7 +33,7 @@ DxO OpticsPro Elite 11.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488264.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ iA Writer 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488218.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ Sketch 40 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488173.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ Audirvana Plus 2.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488027.jpg" />
 </div>
 
 
@@ -115,7 +142,7 @@ Serial 1.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488012.jpg" />
 </div>
 
 
@@ -143,7 +170,7 @@ KCNcrew Pack 09-15-15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487944.jpg" />
 </div>
 
 
@@ -171,7 +198,7 @@ Sandvox 2.10.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487938.jpg" />
 </div>
 
 
@@ -199,7 +226,7 @@ Curio Professional 11.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487894.jpg" />
 </div>
 
 
@@ -226,7 +253,7 @@ Apple iWork: Keynote 7.0, Numbers 4.0 & Pages 6.0 (upd 20.09.2016) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487687.jpg" />
 </div>
 
 
@@ -252,7 +279,7 @@ Sensei 1.2.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487522.jpg" />
 </div>
 
 
@@ -278,7 +305,7 @@ PullTube 1.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487394.jpg" />
 </div>
 
 
@@ -304,7 +331,7 @@ File Cabinet Pro 7.9.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487390.jpg" />
 </div>
 
 
@@ -330,7 +357,7 @@ Debookee 7 v7.5.0b3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487383.jpg" />
 </div>
 
 
@@ -356,7 +383,7 @@ iNet Network Scanner 2.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487264.jpg" />
 </div>
 
 
@@ -384,7 +411,7 @@ OmniFocus Pro 3.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487256.jpg" />
 </div>
 
 
@@ -412,7 +439,7 @@ CrossOver 20.0-b1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487122.jpg" />
 </div>
 
 
@@ -440,7 +467,7 @@ Native Instruments Kontakt 6 v6.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487034.jpg" />
 </div>
 
 
@@ -466,7 +493,7 @@ Kerbal Space Program (1.7.3.02594/all dlc) (2019) [Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486579.jpg" />
 </div>
 
 
@@ -494,7 +521,7 @@ Scrutiny 12 v12.3.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486530.jpg" />
 </div>
 
 
@@ -521,7 +548,7 @@ Yate 6.10.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486528.jpg" />
 </div>
 
 
@@ -549,7 +576,7 @@ Contacts Journal CRM 3.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486527.jpg" />
 </div>
 
 
@@ -576,7 +603,7 @@ Dropzone 4 Pro v4.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486526.jpg" />
 </div>
 
 
@@ -603,7 +630,7 @@ Default Folder X 5.7b2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486524.jpg" />
 </div>
 
 
@@ -629,7 +656,7 @@ CheckBook Pro 2.7.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486523.jpg" />
 </div>
 
 
@@ -655,7 +682,7 @@ RAR Extractor - ZIP Unarchiver 6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486519.jpg" />
 </div>
 
 
@@ -666,32 +693,6 @@ RAR Extractor - ZIP Unarchiver 6.6 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5631B90A9D9992AAD9D1A73B6FFA9E4F0F868601
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566078   (486518) от 27.07.2022
-
-PullTube 1.8.4 U2B [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузка видео размещённым на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРелиз состоялся: 27.07.2022Разработчик: © 2020 MyMixAppsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92B4AF14996483A78C496B6689F994C3AD351E03
 ```
 
 https://mybot314.ru/tekegram_catalog/

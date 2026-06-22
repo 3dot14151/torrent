@@ -1,3 +1,32 @@
+###  Публикация: 929569   (518194) от 20.08.2015
+
+King Gizzard and the Lizard Wizard - Quarters! (2015) [OGG| 493-548 кб/с]<Alternative, Psychedelic Rock, Lo-Fi, Garage Soul>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The River (10:10)
+02. Infinite Rise	(10:10)
+03. God Is In The Rhythm	(10:10)
+04. Lonely Steel Sheet Flyer	 (10:10)Жанр: Alternative, Psychedelic Rock, Lo-Fi, Garage SoulПродолжительность: 00:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9D74A7716F386A1574D19165FDB4F9FF7742EBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1560748   (517719) от 02.07.2022
 
 Seether - Si Vis Pacem, Para Bellum (2020) 2CD, Deluxe Edition, 2022 [MP3|320 Kbps] <Alt. Rock, Post-Grunge, Nu-Metal>
@@ -6,7 +35,7 @@ Seether - Si Vis Pacem, Para Bellum (2020) 2CD, Deluxe Edition, 2022 [MP3|320 Kb
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517719.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Buckcherry - Rock 'N' Roll (2015) [OGG| 449-513 кб/с]<Alternative, Hard Rock,
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516345.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Buckcherry - F*ck (2014) EP [OGG| 481-542 кб/с]<Alternative, Hard Rock, Post 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516313.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The Strypes - Little Victories (2015) Japanese Deluxe Edition [MP3|320 кб/с]<
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516268.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Gorillaz - Gorillaz (2001) 5CD, Super Deluxe Edition, 2021, Parlophone [MP3|320 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515577.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Sum 41 - Order in Decline (2019) [MP3|320 Kbps] <Punk Rock, Pop Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514939.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Gurth - 3 Albums (2018-2022) [MP3|320 Kbps] <Alternative, Metalcore, Emocore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514670.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Thera - From The North [EP] (2012) [MP3|256 кб/с]<Alternative Rock/Post-Hardc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514594.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ From Autumn To Ashes - Holding A Wolf By The Ears (2007) [MP3|320 кб/с]<Hardc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514093.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ Senses Fail - Pull The Thorns From Your Heart (2015) [MP3|320 кб/с]<Hardcore 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514028.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ Radkey - Dark Black Makeup (2015) [OGG| 444-518 кб/с]<Alternative Rock, Garag
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513959.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ VA - Mod - The Ultimate Collection (5CD) (2018) [MP3|320 Kbps] <Punk, Mod Reviva
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513924.jpg" />
 </div>
 
 
@@ -358,7 +387,7 @@ Shores Of Attica - Transitions (2012) [MP3|320 кб/с]<Metalcore / Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513585.jpg" />
 </div>
 
 
@@ -391,7 +420,7 @@ The New Regime - Exhibit B (2015) [OGG| 441-540 кб/с]<Alternative Rock, Moder
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513015.jpg" />
 </div>
 
 
@@ -420,7 +449,7 @@ The New Regime - Exhibit A (2013) [OGG| 475-550 кб/с]<Alternative Rock, Moder
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513011.jpg" />
 </div>
 
 
@@ -449,7 +478,7 @@ Pop Evil - Up (2015) Deluxe Edition [OGG| 383-544 кб/с]<Alternative Rock, Har
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512920.jpg" />
 </div>
 
 
@@ -478,7 +507,7 @@ Age Of Ignorance - Our Last Night (2012) [MP3|320 кб/с]<Post-Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512431.jpg" />
 </div>
 
 
@@ -513,7 +542,7 @@ Chris Randall (Sister Machine Gun) - The Devil His Due (2007) [OGG| 424-522 кб
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511938.jpg" />
 </div>
 
 
@@ -542,7 +571,7 @@ Sister Machine Gun - The Future Unformed (2015) EP [OGG| 499-530 кб/с]<Altern
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511931.jpg" />
 </div>
 
 
@@ -571,7 +600,7 @@ Pillar - One Love Revolution (2015) LifeWay Exclusive [MP3|320 кб/с]<Alternat
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511889.jpg" />
 </div>
 
 
@@ -600,7 +629,7 @@ Foals - What Went Down (2015) [OGG| 442-508 кб/с]<Alternative, Indie Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509983.jpg" />
 </div>
 
 
@@ -629,7 +658,7 @@ Crazy Town - 3 Альбома (1999-2015) [MP3|320 кб/с]<Alternative / Nu-Met
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509880.jpg" />
 </div>
 
 
@@ -658,7 +687,7 @@ P.O.D. - 9albums + 3EPs + 6singles (1992-2015) [MP3|320kbps] <Christian Rock, Ra
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509840.jpg" />
 </div>
 
 
@@ -686,7 +715,7 @@ Headcrash - 6 альбомов (1993-2006) [MP3|160-320 кб/с]<Industrial Rap-
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509358.jpg" />
 </div>
 
 
@@ -715,7 +744,7 @@ Blind Channel - Lifestyles of the Sick & Dangerous (2022) [MP3|320 Kbps] <Rap Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509037.jpg" />
 </div>
 
 
@@ -729,35 +758,6 @@ Blind Channel - Lifestyles of the Sick & Dangerous (2022) [MP3|320 Kbps] <Rap Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F265B3AEAF8358DDF2244D44EC2C0327626B6291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562384   (509028) от 09.07.2022
-
-Tiny Moving Parts - Tiny Moving Parts (2022) [MP3|320 Kbps] <Pop-Punk, Math Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Decibel [00:02:40]
-02 - North Shore [00:02:59]
-03 - Demons Are Taking Over [00:02:23]
-04 - Tangled Up [00:02:39](   Читать дальше...   )Жанр: Pop-Punk, Math RockПродолжительность: 00:27:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:861C7F792E523673655E72AD52C0FEE9225750CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

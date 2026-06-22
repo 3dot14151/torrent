@@ -1,3 +1,55 @@
+###  Публикация: 1130237   (716792) от 01.05.2017
+
+Митрополит Антоний (Храповицкий) | Исповедь (1996) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга написана для священников, совершающих Таинство исповеди, как руководство в их трудном и благодатном делании. Но не менее полезна она и для мирян. В наше время для многих вопрос о христианской вере и тем самым вопрос о покаянии стал первостепенным. Человек, приходящий в Церковь, решает для себя самые разнообразные проблемы, важнейшие из них — о смысле покаяния, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:971980A1D0102D01EC0B8CB3A176740D3A58EB9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531958   (716629) от 18.02.2022
+
+Святитель Григорий Турский, Иеромонах Серафим Роуз | Житие Отцов (Vita Patrum) (2005) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ни один писатель православного христианского Запада не был более предан святым Церкви Христовой, не восхвалял их усерднее более, чем свят. Григорий Турский (539 — 594). Сию книгу он назвал Vita Patrum или Житие Отцов, как если бы многочисленные святые, чьи жития помещены в ней, вели единую жизнь пред Богом. Классическое произведение агиографической литературы, Vita (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F66E701EA87213D33B9568D50B0A7EEECA66265
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219163   (715853) от 13.04.2018
 
 Н.В. Скоробогатько | Райская Лилия: Рассказы о Пресвятой Богородице для семейного чтения (2016) [PDF, DJVU]
@@ -6,7 +58,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715853.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714422.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714324.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714322.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714321.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714319.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714256.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714255.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714254.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714250.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714249.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714248.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714243.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714241.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714237.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714151.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714150.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714145.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714084.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714029.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712444.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712436.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711559.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711307.jpg" />
 </div>
 
 
@@ -622,59 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26DB5A09BE1D7253AE255A76630C40C5435F7756
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286542   (711179) от 03.03.2019
-
-Фома Кемпийский | Книга о Христове подражании (1647) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711179.jpg" />
-</div>
-
-
-###  Подробнее
-
-«О подражании Христу» (лат. De Imitatio Christi) — католический богословский трактат Фомы Кемпийского. Датой создания считается 1427 г. Иногда также называется 1417 г. Это первое руководство к духовной жизни движения «Нового благочестия», членом которого был Фома Кемпийский.
-«О подражании Христу» — одно из самых широко распространённых после Библии богословских сочинений, (   Читать дальше...   )Жанр: Духовные размышленияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B3E5DF9BDD631B3EE6D9C2DB6B2F71908B06221
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286426   (711150) от 03.03.2019
-
-Алексей Осипов | Жизнь с Евангелием. Комментарии к Евангелию от Матфея (2019) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711150.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Жизнь с Евангелием. Комментарии к Евангелию от Матфея» — уникальная книга. Как говорит ее автор Алексей Ильич Осипов, войти в Церковь — значит жить по евангельским заповедям. И вся святоотеческая традиция двух тысячелетий — осмысление этой жизни, жизни с Евангелием. Эту книгу от многих других отличают ясность и точность изложения. Живым, современным языком профессор (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D6C9BFBDAE9EC9F06511953594407BD06186C34
 ```
 
 https://mybot314.ru/tekegram_catalog/

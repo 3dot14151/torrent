@@ -1,3 +1,31 @@
+###  Публикация: 537840   (510414) от 22.08.2012
+
+И.В.Казанский, В.Т.Поляков | Азбука коротких волн [1978] [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510414.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель книги - заинтересовать молодежь коротковолновым радиолюбительством, сообщить основные сведения о работе коротковолновиков, применяемой ими системе позывных и кодовых сокращений.
+В книге даны практические конструкции несложной коротковолновой радиоаппаратуры: приемников и передатчиков, а также некоторые рекомендации по выбору антенн любительской радиостанции и описания наиболее эффективный антенн.
+Рассчитана на широкий круг радиолюбителей, имеющих навыки конструирования.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A7F04BAE2BDDD531D5827DF438CB1B4D4A0F50F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562928   (506884) от 11.07.2022
 
 Томас К. Хейс, Пол Хоровиц | Искусство схемотехники. Теория и практика (2022) [PDF]
@@ -6,7 +34,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506884.jpg" />
 </div>
 
 
@@ -24,6 +52,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 379590   (502995) от 24.08.2011
+
+А. Джексон | Ремонт и обслуживание всех основных бытовых приборов [2007] [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_502995.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассмотрены все основные бытовые устройства - от фена до стиральной машины, от компьютера до электроинструмента... Руководство содержит простые советы по уходу, позволяющие предотвратить поломки, подробные иллюстрации и поэтапные инструкции по проведению ремонтных работ.Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563934   (502486) от 16.07.2022
 
 Ф.Н. Покровский и др. | Плазменные панели (2006) [PDF]
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502486.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500896.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500392.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499333.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498486.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493537.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492869.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489801.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486027.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485555.jpg" />
 </div>
 
 
@@ -298,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484375.jpg" />
 </div>
 
 
@@ -327,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483304.jpg" />
 </div>
 
 
@@ -353,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482676.jpg" />
 </div>
 
 
@@ -381,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482458.jpg" />
 </div>
 
 
@@ -409,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478334.jpg" />
 </div>
 
 
@@ -435,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464937.jpg" />
 </div>
 
 
@@ -461,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462407.jpg" />
 </div>
 
 
@@ -487,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461587.jpg" />
 </div>
 
 
@@ -513,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459619.jpg" />
 </div>
 
 
@@ -539,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448211.jpg" />
 </div>
 
 
@@ -566,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447637.jpg" />
 </div>
 
 
@@ -592,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443643.jpg" />
 </div>
 
 
@@ -619,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441989.jpg" />
 </div>
 
 
@@ -630,58 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89762F9689D9C531F2B17435D3CA39FE1032F0E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555165   (433116) от 02.10.2012
-
-Додека | Карманные справочники [2002 - 2008] [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издательство «Додека» всегда уделяло много внимания выпуску технической литературы. Вашему вниманию предлагается подборка серии "Карманные справочники". Это серия книг "зауженного" формата содержащих справочные данные, в основном, фундаментального характера касающихся как непосредственно тематики книг, так и смежных с ними областей. Этими справочниками можно пользоваться десятилетиями.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B508BBF3BB8BAE606359495BB6BD11216202F69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571688   (429561) от 23.08.2022
-
-П.И. Баранский и др. | Полупроводниковая электроника. Справочник (1975) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429561.jpg" />
-</div>
-
-
-###  Подробнее
-
-В справочнике описаны основные физические свойства и параметры элементарных полупроводников, полупроводниковых соединений, находящих широкое применение в полупроводниковой электронике.Жанр: ЭлектроникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:452841360AE407AC039DF8779FDE7FDD3D322BA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

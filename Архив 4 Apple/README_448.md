@@ -1,3 +1,59 @@
+###  Публикация: 1421774   (315546) от 06.11.2020
+
+Find Any File (FAF) 2.1.2b8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Find Any File - утилита для быстрого поиска любого файла на вашем Mac
+Find Any File не содержит никаких подменю с настройками, быстро справляется с задачей и удобна в использовании. Все что нужно - написать ключевое слово (или слова) в окне поиска без предварительных настроек меню. Но если вам необходимо усложнить поиск, то Find Any File имеет множество подменю делающих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.11.2020Разработчик: Thomas TempelmannПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EA1BCAFF8CEF031269213DADF6200D7A7B864FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421826   (315543) от 06.11.2020
+
+MediaHuman Youtube Downloader 3.9.9.48 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315543.jpg" />
+</div>
+
+
+###  Подробнее
+
+YouTube Downloader - удобная программа-загрузчик для тех, кто хочет скачать свой любимый видеоклип, музыкальное видео или трейлер нового фильма с YouTube или подобных сервисов.
+
+• Закачка нескольких файлов одновременно
+• Сохранение видео целиком, либо только звуковой дорожки(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.11.2020Разработчик: MediaHumanПоддерживаемая ОС: OS X 10.6 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:591174AA93B654DD0C2F44081A361859B9E680CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421883   (315539) от 06.11.2020
 
 Default Folder X 5.5  [En]
@@ -6,7 +62,7 @@ Default Folder X 5.5  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315539.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ USBclean 3.4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315513.jpg" />
 </div>
 
 
@@ -58,7 +114,7 @@ Weather Guru 2.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315510.jpg" />
 </div>
 
 
@@ -84,7 +140,7 @@ Application Wizard 3.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_315162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_315162.jpg" />
 </div>
 
 
@@ -111,7 +167,7 @@ Privatus 5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315107.jpg" />
 </div>
 
 
@@ -138,7 +194,7 @@ Soulver 2.6.6 (5881) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314992.jpg" />
 </div>
 
 
@@ -166,7 +222,7 @@ Downcast 2.9.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314990.jpg" />
 </div>
 
 
@@ -195,7 +251,7 @@ UninstallPKG 1.1.9  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314924.jpg" />
 </div>
 
 
@@ -223,7 +279,7 @@ Meta 1.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314713.jpg" />
 </div>
 
 
@@ -250,7 +306,7 @@ Script Debugger 7.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314679.jpg" />
 </div>
 
 
@@ -278,7 +334,7 @@ Paw 2.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314547.jpg" />
 </div>
 
 
@@ -304,7 +360,7 @@ ProFind 1.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314503.jpg" />
 </div>
 
 
@@ -330,7 +386,7 @@ EdgeView 2 v2.825 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314501.jpg" />
 </div>
 
 
@@ -356,7 +412,7 @@ AudioSwitcher 2.99.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314452.jpg" />
 </div>
 
 
@@ -382,7 +438,7 @@ QLab Pro 4 v4.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314449.jpg" />
 </div>
 
 
@@ -408,7 +464,7 @@ iFinance 4.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314444.jpg" />
 </div>
 
 
@@ -434,7 +490,7 @@ Easy New File 4.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314373.jpg" />
 </div>
 
 
@@ -460,7 +516,7 @@ Polarr Photo Editor 3.2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314357.jpg" />
 </div>
 
 
@@ -489,7 +545,7 @@ AirRadar 5 v5.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314338.jpg" />
 </div>
 
 
@@ -517,7 +573,7 @@ Yummy FTP Pro 1.11.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314311.jpg" />
 </div>
 
 
@@ -546,7 +602,7 @@ iMac Cleaner 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314271.jpg" />
 </div>
 
 
@@ -572,7 +628,7 @@ Audirvana Plus 2.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314260.jpg" />
 </div>
 
 
@@ -601,7 +657,7 @@ iFlicks 2 v2.4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314226.jpg" />
 </div>
 
 
@@ -629,7 +685,7 @@ Network Radar 2.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314212.jpg" />
 </div>
 
 
@@ -642,61 +698,6 @@ Network Radar представляет собой простой в исполь
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F76C60812CF6CDA0A0AD990065ACC9F69A379DE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332414   (314023) от 20.10.2019
-
-Pixelmator 3.8.5 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pixelmator представляет собой мощный инструмент редактирования изображений, активно использующий вычислительные мощности графической карты. Он предлагает инструменты выделения, рисования, штриховки, навигации и цветокоррекции, поддерживает многослойные изображения, обработку рисунков на базе графического процессора, управление цветами, автоматизацию, имеет стильный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Pixelmator Team LtdПоддерживаемая ОС: macOS 10.12 или более поздняя версияЯзык интерфейса: Английский, Немецкий, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E09DFC79D79ED79077E63F61B9507F569A30C716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332405   (314010) от 20.10.2019
-
-Carbon Copy Cloner 5 v5.1.13 (5846) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Carbon Copy Cloner –  утилита для резервного копирования данных.
-Carbon Copy Cloner - утилита для клонирования дисков и резервирования данных, пользующаяся заслуженной популярностью у пользователей Mac OS X, благодаря высокой скорости работы и простому интерфейсу.
-
-Новая версия может похвастаться абсолютно новым пользовательским интерфейсом, а также рядом добавленных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.10.2019Разработчик: Bombich Software, IncПоддерживаемая ОС: OS X 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FDBE8DF40AFA52227C96F266925ADC2B72EFC7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

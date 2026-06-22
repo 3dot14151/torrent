@@ -1,3 +1,55 @@
+###  Публикация: 1445452   (1033488) от 06.02.2021
+
+Журнал | InfoCity №1 (159) (январь 2021) [PDF] [Ru,Az]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033488.jpg" />
+</div>
+
+
+###  Подробнее
+
+InfoCity - Азербайджанский ежемесячный журнал о технике и технологиях выпускается с ноября 2007 г. На страницах журнала InfoCity вы найдете информацию о компьютерах, технике и новых технологиях. Штат журналистов тщательно набирается из лиц, уже публиковавшихся на данную тематику, с высшим техническим и экономическим образованием или имевших опыт работы в маркетинговых (   Читать дальше...   )Жанр: Компьютерные журналыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52EDEBDA1D15E75D442B894B1958DA9FC15F8005
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445453   (1033467) от 06.02.2021
+
+Журнал | IT News №1 (303) (январь) (2021) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033467.jpg" />
+</div>
+
+
+###  Подробнее
+
+«IT News» — издание отражает события, происходящие в таких секторах рынка информационных технологий, как телекоммуникации, программное обеспечение, системная интеграция, развитие компьютерных сетей и другие направления.Жанр: Компьютерный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D2C31DD4633F7FCB537FFEE92BC648C552C1E20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445451   (1033351) от 06.02.2021
 
 Журнал | IT Expert №1 (301) (январь-февраль 2021) [PDF]
@@ -6,7 +58,7 @@
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033351.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029876.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028398.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028037.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027718.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027207.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025868.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025781.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023352.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021059.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018317.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018316.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018315.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014708.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009059.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005361.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004058.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003765.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000230.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000210.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000195.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000033.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999764.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999741.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AC6F2BBE67CB1F23C812063008223FEA87CAF60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605677   (995643) от 20.01.2013
-
-Журнал | Computerworld [Россия] №1 (январь 2013) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Computerworld - ведущий международный еженедельник, посвященный информационным технологиям. В журнале Вы найдете обзор важнейших событий ИТ-индустрии в России и в мире, материалы о новых технологиях.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4213438DEDD5F0A0D6656F3BF0ACDD344BF88CCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607179   (994920) от 22.01.2013
-
-Журнал | Gadgets & Gizmos (India) [февраль 2013] [PDF] [En]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание посвящено различной электронике: ПК, навигаторы, смартфоны, фотоаппараты, мультимедиаустройства. Ежемесячный обзор новинок. В этом номере: обзор новых фотокамер, ноутбуков и другой электроники.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0089E589FBAB96026408295B78EAA443ACFB58D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

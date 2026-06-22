@@ -1,3 +1,29 @@
+###  Публикация: 1295953   (614923) от 15.04.2019
+
+И.Я. Дитковский | Практический курс проведения ритуалов (2016) [PDF]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наш мир многогранен и многопланов. Не существует четкой грани между понятиями добра и зла. Это так же верно и для Магии. Любые оккультные ритуалы есть элемент Магии. Это непростая книга с простым изложением материала. Все что, предложено автором, позволит познакомиться читателю со сложнейшими, но интересными практиками, которые он сможет использовать в работе. Ритуалы (   Читать дальше...   )Жанр: Практическая эзотерикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:059F6E6EB39D50D49291C3E6F4487F6B32345367
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911798   (614069) от 24.06.2015
 
 Андрей Мороз (ред.) | Знатки, ведуны и чернокнижники. Колдовство и бытовая магия на Русском Севере (2013) [DJVU]
@@ -6,7 +32,7 @@
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614069.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613800.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613692.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613481.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613470.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613248.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612513.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612509.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610556.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610075.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609342.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608778.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608594.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608580.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608448.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608238.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608087.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607791.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607410.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605127.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604019.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603067.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601686.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601588.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601219.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE221E18B14543A41F6A643EC35AEAF1ED0EB75F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913938   (600876) от 30.06.2015
-
-Бретт Бевелл | Энергетическое целительство для всех и каждого (2015) [FB2, EPUB]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга мастера Бретта Бевелла предлагает всем нам доступные и простые в освоении техники исцеления тела, разума и духа. Развивая ряд личных мистических опытов, всемирно известный энергетический целитель раскрывает древнюю методику установления контакта с божественным источником вечного света, который лежит в основе всего мироздания. Этот свет может исцелить все наши (   Читать дальше...   )Жанр: Здоровье, Эзотерика, СамосовершенствованиеПеревод: В. М. БоженовФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:309C909EF6F1598F1264A0250F59B4193273508C
 ```
 
 https://mybot314.ru/tekegram_catalog/

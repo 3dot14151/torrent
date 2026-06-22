@@ -1,3 +1,133 @@
+###  Публикация: 1202655   (789466) от 30.01.2018
+
+Bruno Mars: 24K Magic Live at the Apollo (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789466.jpg" />
+</div>
+
+
+###  Подробнее
+
+В своем первом специальном телевизионном исполнении Бруно Марс выступает в легендарном театре «Аполлон» в Гарлеме, Нью-Йорк.Производство: Великобритания, Fulwell 73 SeeЖанр: Документальный, Музыка, КонцертРежиссер: Крис ХоуАктеры: Бруно МарсПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E58FA1624A09DFCCA7457BC3BA908ED4F8C115A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275845   (789379) от 13.01.2019
+
+Легенды Ретро FM полная версия (2017) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Премьера международного музыкального фестиваля Легенды Ретро FM-2017Производство: РоссияЖанр: PopРежиссер: 1 каналАктеры: Лариса Долина,Thomas Anders,Юрий Шатунов,Владимир Маркин и др.Субтитры: отсутствуютПродолжительность: 03:26:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62EF6ED8D0CA05ACE721A9A1951843556B335C5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275866   (789378) от 13.01.2019
+
+Легенды Ретро FM полная версия (2017) HDTVRIp [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Премьера международного музыкального фестиваля Легенды Ретро FM-2017Производство: РоссияЖанр: PopРежиссер: 1 каналАктеры: Лариса Долина,Thomas Anders,Юрий Шатунов,Владимир Маркин и др.Перевод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 03:26:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD2F178E9843CB029A1E2606BD2C60542B063309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511254   (789178) от 20.11.2021
+
+Майкл Джексон: Лунная походка / Michael Jackson: Moonwalker (1988) BDRip [H.265/1080p] [10-bit]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смесь видеозаписей живых концертов Майкла Джексона и ряда художественных сцен с ним, как главным героем. Сюда вошли некоторые из лучших видеоклипов Майкла, отснятых во время мирового турне с альбомом «Bad», а также видео «Smooth Criminal» с сюжетной линией в стиле «фэнтэзи». Вся история рассказана посредством музыки\танца и полна спецэффектов.Производство: США / MJJ Productions, Ultimate Productions, Will Vinton StudiosЖанр: фэнтези, боевик, триллер, криминал, музыкаРежиссер: Джерри Крамер, Колин ЧилверсАктеры: Майкл Джексон, Джо Пеши, Шон Леннон, Келли Паркер, Брэндон Квинтин Адамс, Джефф Эдкинс, Патрик Алан, Brenda Barrett, Scott Benson, Бонни БётлерПеревод: многоголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:32:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D08E47036E728D294F7EAB979BB821F34412815A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511476   (788838) от 21.11.2021
+
+Квартирник НТВ у Маргулиса. 60 лет с Детским сердцем — юбилей Сергея Галанина (20.11.2021) HDTVRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сергею Галанину – 60! Ветераны сцены – «СерьГа»! Пионеры сцены — «ВИА Борщевик»! Легендарный рокер, творчество которого без сомнений можно назвать символом эпохи, не только продолжает радовать поклонников новыми хитами, но и не боится экспериментировать с музыкой, собирая новую группу. Дуэты с друзьями, неожиданные сюрпризы и главные хиты в день рождения — все это (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:907D87A18AFC5E364D287BCED357DDDB22F81070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105918   (787918) от 02.02.2018
 
 The Witcher 3: Wild Hunt concert (Film Music Festival 2016) WEBRip [H.264/1080p]
@@ -6,7 +136,7 @@ The Witcher 3: Wild Hunt concert (Film Music Festival 2016) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787918.jpg" />
 </div>
 
 
@@ -35,7 +165,7 @@ Billy Idol - VH1 Storytellers (2002) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787647.jpg" />
 </div>
 
 
@@ -64,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786951.jpg" />
 </div>
 
 
@@ -93,7 +223,7 @@ Joe Dassin - a Toi... Live A L'Olympia '77 (2005) DVD-9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786628.jpg" />
 </div>
 
 
@@ -122,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785917.jpg" />
 </div>
 
 
@@ -148,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785766.jpg" />
 </div>
 
 
@@ -174,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785728.jpg" />
 </div>
 
 
@@ -200,7 +330,7 @@ Labyrinth - Return to Live (2016/(2018) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785301.jpg" />
 </div>
 
 
@@ -230,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785271.jpg" />
 </div>
 
 
@@ -256,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785261.jpg" />
 </div>
 
 
@@ -282,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784913.jpg" />
 </div>
 
 
@@ -308,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784828.jpg" />
 </div>
 
 
@@ -337,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784276.jpg" />
 </div>
 
 
@@ -366,7 +496,7 @@ Sarah Brightman: Harem - A Desert Fantasy (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784183.jpg" />
 </div>
 
 
@@ -395,7 +525,7 @@ David Gilmour: Remember That Night (2007) BDRip [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784175.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ Music maestro. Brahms, The complete live and music of the great composers (1992)
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783488.jpg" />
 </div>
 
 
@@ -453,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783335.jpg" />
 </div>
 
 
@@ -479,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783038.jpg" />
 </div>
 
 
@@ -506,7 +636,7 @@ Whitesnake - The Purple Tour '2015 (2018) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782911.jpg" />
 </div>
 
 
@@ -535,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782900.jpg" />
 </div>
 
 
@@ -561,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782853.jpg" />
 </div>
 
 
@@ -572,150 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24736F9C5D812EA10ADE668F66208DECDD7B279D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390190   (782609) от 16.06.2020
-
-Волшебство Queen в Будапеште / Varázslat - A Queen Budapesten / Queen - Hungarian Rhapsody: Live In Budapest (1986/2012) DVB [H.264]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это фильм-концерт Queen, созданный венгерским режиссером Яношем Жомбояи из кадров пребывания британской группы в Венгрии и записи их концерта на стадионе Nepstadion, который состоялся в Будапеште 27 июля 1986 года. Он проходил в рамках мирового турне группы в поддержку альбома «A Kind Of Magic» и оказался, к сожалению, одним из последних для Фредди Меркьюри. Этот (   Читать дальше...   )01. One Vision
-02. Tie Your Mother Down
-03. In the Lap of the Gods. . .Revisited
-04. Seven Seas of Rhye(   Читать дальше...   )Производство: Венгрия, Канада, США / Queen Films, MAFILM-Dialog Studio-MOKEP ProductionЖанр: Фильм-концертРежиссер: Янош ЖомбояиАктеры: Фредди Меркьюри, Брайан Мэй, Джон Дикон, Роджер ТэйлорПеревод: Одноголосый профессиональный (ТВ "Культура")Субтитры: Русские, TeletextПродолжительность: 01:31:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDA4761DDD30E784264A38C8F13558AB0F5A3F4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206443   (781165) от 16.02.2018
-
-Yello-Live in Berlin '2016 (2017) DVD5 [Custom]
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоверсия выступления дуэта Yello в Kraftwerk Berlin 26.10.2016.Концерт стал первым живым выступлением группы за всю ее историю. В программу вошел материал с альбома «Toy» 2016 года, а также классические треки Yello, включая «Do It», «Oh Yeah» и «The Race».01.Magma
-02.Do It
-03.The Evening's Young
-04.Limbo(   Читать дальше...   )Производство: Polydor , Universal Music GroupЖанр: Pop, Synth-pop, Future JazzРежиссер: YelloАктеры: YelloПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCE5D5C9728623A03452D5964EDBF80B3DB6A636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 200044   (780673) от 15.05.2010
-
-Yamato The Drummers of Japan (1995) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очень понравился концерт. Переделал в .ави для уменьшения размера,стараясь без потери качества.
-Ультрасовременное, синтезирующее традиционную и авангардную музыку шоу японских барабанщиков с элементами театра и танца. В чистом виде «Wadaiko Yamato Show» представляет собой уникальное представление, соединяющее виртуозное мастерство исполнения и древние магические (   Читать дальше...   )01. Yamato — Prelude
-02. Yamato — Aozora
-03. Yamato — Kurenai
-04. Yamato — Kagiroi(   Читать дальше...   )Жанр: КонцертПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 199920   (780639) от 15.05.2010
-
-Ромео и Джульетта / Romeo and Juliet (2001) DVD5
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: МюзиклРежиссер: Gerard PresguvicАктеры: Romeo - Damien Sargue
-Juliette - Cecilia Cara
-Benvolio - Gregori Baquet
-Mercutio - Philippe D'Avilla(   Читать дальше...   )Перевод: ОригинальныйЯзык субтитров: RUПродолжительность: 02:29:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207493   (780556) от 18.02.2018
-
-Квартирник на НТВ у Маргулиса. Квартал (02.17.2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780556.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гости к Евгению Маргулису пришла советская и российская рок-группа «Квартал», которая недавно отметила юбилей. Музыканты исполнили свои лучшие композиции для гостей и телезрителей. Евгений Маргулис вспомнил, как в 1988 году «Квартал» играл совместный концерт с «Машиной времени» и рассказал, что Татьяна Литвиненко, солистка группы, пела с легендарными «Би-2».
-Поздравить (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:55:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25F65E6F86218829F6819A3E703560892F2E7699
 ```
 
 https://mybot314.ru/tekegram_catalog/

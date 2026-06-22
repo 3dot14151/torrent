@@ -1,3 +1,112 @@
+###  Публикация: 1323608   (433801) от 05.09.2019
+
+Д. А. Баевский | Рабочий класс в первые годы Советской власти [1917-1921 гг.] (1974) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография представляет собой исследование истории рабочего класса в первые годы Советской власти. В ней освещается широкий круг вопросов: роль рабочего класса в социалистическом преобразовании промышленности, участие рабочих в рабочем контроле и создании органов управления народным хозяйством, в претворении в жизнь ленинских принципов демократического централизма (   Читать дальше...   )Жанр: История, политология, социология, экономика, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44F993A5BDCFB67F4E9E5E99F536278E5FF1A13A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945276   (433707) от 10.10.2015
+
+Е. А. Косминский, Я. А. Левицкий (ред.) | Английская буржуазная революция XVII века [2 тома] (1954) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный коллективный труд посвящен английской буржуазной революции XVII в.— первой буржуазной революции европейского масштаба.
+
+Первый том охватывает историю буржуазной революции на ее подъеме, до перехода к протекторату, второй посвящен периоду спада революционной волны и закрепления буржуазией за собой результатов одержанной английским народом победы.
+(   Читать дальше...   )Жанр: История, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E254D41E9A8B38431E0879BAD8220669FD17473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945378   (433695) от 10.10.2015
+
+Э. А. Желубовская и др. (ред.) | Парижская Коммуна 1871 г. [2 тома] (1961) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433695.jpg" />
+</div>
+
+
+###  Подробнее
+
+В марте 1871 года всю Европу потрясла весть о небывалом событии: власть в столице Франции перешла в руки восставшего пролетариата, провозгласившего свое правительство - Коммуну.
+
+Двухтомный коллективный труд, в создании которого принимали участие советские и зарубежные историки, представляет собой попытку дать научное обобщение истории Парижской Коммуны, Центрального (   Читать дальше...   )Жанр: История, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AD79DBC2809AEC78206414E23839AE07AECAF80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945436   (433585) от 10.10.2015
+
+Джоан Дежан | Как Париж стал Парижем. История создания самого притягательного города в мире (2015) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433585.jpg" />
+</div>
+
+
+###  Подробнее
+
+В начале XVII века Париж, как и другие европейские столицы, находился в оковах средневекового прошлого, но всего за сто лет он превратился в тот легендарный, прекрасный и волнующий город, который мы знаем сегодня. За прошедшие столетия Париж претерпел много изменений, избавился от крепостных стен, стал первым городом, который приглашал гостей, а не закрывался от (   Читать дальше...   )Жанр: История архитектуры, градостроительствоФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1A0CACD35FABE5BAF6BB1B6302F7CEF7C1F3487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249460   (433445) от 24.09.2018
 
 Э. Мейер (сост.) | "Спартак" во время войны: документы и нелегальные листовки союза "Спартак" во время войны (1933) [PDF]
@@ -6,7 +115,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433445.jpg" />
 </div>
 
 
@@ -34,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433315.jpg" />
 </div>
 
 
@@ -61,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433135.jpg" />
 </div>
 
 
@@ -88,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432602.jpg" />
 </div>
 
 
@@ -114,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432345.jpg" />
 </div>
 
 
@@ -140,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431857.jpg" />
 </div>
 
 
@@ -166,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431739.jpg" />
 </div>
 
 
@@ -194,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431563.jpg" />
 </div>
 
 
@@ -220,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430613.jpg" />
 </div>
 
 
@@ -248,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430607.jpg" />
 </div>
 
 
@@ -274,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430592.jpg" />
 </div>
 
 
@@ -302,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430472.jpg" />
 </div>
 
 
@@ -328,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430249.jpg" />
 </div>
 
 
@@ -354,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430242.jpg" />
 </div>
 
 
@@ -382,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429631.jpg" />
 </div>
 
 
@@ -410,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429478.jpg" />
 </div>
 
 
@@ -436,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429249.jpg" />
 </div>
 
 
@@ -462,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428364.jpg" />
 </div>
 
 
@@ -488,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427296.jpg" />
 </div>
 
 
@@ -514,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426444.jpg" />
 </div>
 
 
@@ -542,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426240.jpg" />
 </div>
 
 
@@ -568,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425953.jpg" />
 </div>
 
 
@@ -581,114 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E37DD7CBAE3A8E6A86D89845C1C0CE7FAD45961
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946567   (425352) от 14.10.2015
-
-Ю. Н. Иванов (сост.) | Милитаризм в идеологии и практике маоизма (1976) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425352.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге на широком документальном материале раскрывается одна из характерных сторон политики и идеологии маоизма - милитаризм, играющий важную роль во внутренней и внешней политике современного маоистского руководства Китая, разоблачаются антимарксистские основы его военной политики, направленной на милитаризацию всей жизни страны, на подготовку к войне.Жанр: История, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58324A552418C687ECD0E0007658D8ADA804D0AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250468   (424866) от 28.09.2018
-
-И. С. Горшенин | Манчжурия и угроза японо-американской войны (1933) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грабительский захват Манчжурии японским империализмом превратился в истребительную войну, которую развернутым фронтом вели японский флот и 100-тысячная вооруженная до зубов японская армия на полях Китая, разрушая города, опустошая села.
-
-Начиная войну в Китае, японские империалисты надеялись этим путем, как и вообще все капиталисты, выкарабкаться из кризиса, потрясающего (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2531D6CC5F6B2C1596295372A64CFE0B5D79BD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166638   (424741) от 17.09.2017
-
-К. Маркс | Классовая борьба во Франции с 1848 по 1850 г. (1903) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Введение (Ф. Энгельс):
-
-В предлагаемой работе Маркс сделал первый опыт применения материалистического метода к объяснению современной истории. В Коммунистическом Манифесте эта теория применяется в общих чертах ко всей новейшей истории во всем ее целом; в наших статьях в „Новой Рейнской Газете" Маркс и я постоянно пользовались ею при истолковании событий дня. (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD4DF63C58CF20888E9677EC1521331D3EC6E1D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250913   (422640) от 29.09.2018
-
-Н. П. Грацианский | Борьба славян и народов Прибалтики с немецкой агрессией в средние века (1943) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая работа излагает историю немецкого «натиска на восток» в средние века. Первый ее отдел трактует немецкую агрессию за Лабу (Эльбу) и борьбу с ней полабского славянства; второй отдел посвящен борьбе с немецкой агрессией в Прибалтике. Немецкие фашисты, бесцеремонно перекраивая и перекрашивая исторические факты, стремятся представить «натиск на восток» в виде (   Читать дальше...   )Жанр: История, политология, публицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04AE4E4FF1F813CDED2A10C1D998AB8C88A0951B
 ```
 
 https://mybot314.ru/tekegram_catalog/

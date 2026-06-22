@@ -1,3 +1,189 @@
+###  Публикация: 1717991   (110782) от 27.04.2024
+
+Зараза - Вы попали на мой район (2024) [MP3|320 Kbps] <Rap/Hip Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Вы попали на мой район [00:02:10]
+02 - Улечу [00:04:05]
+03 - Мой район устал [00:04:25]
+04 - Дождевые [00:02:30](   Читать дальше...   )Жанр: Rap/Hip HopПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98719A0DCEBEC3AE3397223798E487FFACE14CE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747641   (104710) от 06.09.2024
+
+Общпит - Штурм ледяной крепости (2024) [MP3|320 Kbps] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Волга [00:02:53]
+02 - Штурм ледяной крепости [00:03:03]
+03 - Копотный сказ [00:03:14]
+04 - Не вернулись с игры [00:02:46](   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE4A2C8BB492FD6608F06C83D2F9C969727CDCAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482800   (99637) от 14.04.2012
+
+Кот Балу - Лучшее (2012) [MP3|128-320 кб/с]<Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Небесные сны (lachetto beats)
+02. Весна пу Банума (sietto beats)
+03. На велике (sietto beats)
+04. +30 (sietto beats)
+05. Давай изчезнем (sietto beats)
+06. Возле жумбактасика (sietto beats)
+07. Лето (lachetto beats)
+08. Простая пу Банума (sietto beats)
+09. Лепесток (chocobear beats)
+10. Новелла пу Slim, Костя Бес (sietto beats)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:25:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CE24B57BEBFA355D829AB23F9BDE6876EC365BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481446   (88085) от 12.04.2012
+
+25/17 - Песни О Любви И Смерти (2012) [MP3|320 kbps] <Rap, Hip-Hop>
+
+>>След.
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Любовь
+02. Череп и кости
+03. Звезда
+04. Счастье(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:34:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A2C97CDE8B8B97730A584D15B12DF8C4C17EF20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479414   (87261) от 08.04.2012
+
+Каста - Можно Всё (2012) [MP3|320 кб/с]<Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Можно Всё (feat. Аnimal ДжаZ)
+02. Черновик
+03. Я Слышу Голоса (feat. 25/17)
+04. Ды-ды-дым (DJ Nik-One rmx)
+05. Звуки Фанка (feat. Маринесса Покарано)
+06. Истина Где-то Рядом (feat. Смоки Мо) (Simple rmx)
+07. Хочешь Мира – Готовься К Войне (feat. Фетис,Саграда)
+08. Двигай Вперёд (feat. Космокот)
+09. Встретимся У Холодильника (feat. DJ Хобот,Искра)
+10. Не Дышать(   Читать дальше...   )2012Жанр: RapПродолжительность: 01:28:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F669E1F60DCDA098FA2876565B95DD7274522DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455279   (86241) от 03.04.2012
+
+Noize MC - 5 альбомов (2008-2012) [MP3|320 kbps]<Rap, Hip-Hop, Alternative>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+The Greatest Hits Vol.1 (2008)
+OST Розыгрыш (2009)
+The Greatest Hits Vol.2 (2010)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 09:12:34 |
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 223662   (76628) от 16.02.2012
 
 Каста - 18 Альбомов (1997-2012) [MP3|128-320 kbps]<Rap/Hip-Hop>
@@ -6,7 +192,7 @@
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76628.jpg" />
 </div>
 
 
@@ -35,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75781.jpg" />
 </div>
 
 
@@ -70,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75516.jpg" />
 </div>
 
 
@@ -99,7 +285,7 @@ SanMinor - Ночь декабря (2015) [MP3|320 Kbps] <Pop, Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66061.jpg" />
 </div>
 
 
@@ -128,7 +314,7 @@ SanMinor - Дивный Новый Мир (2024) [MP3|320 Kbps] <Rap, Hip-Hop, P
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65965.jpg" />
 </div>
 
 
@@ -157,7 +343,7 @@ SanMinor - Шаг вперед (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65945.jpg" />
 </div>
 
 
@@ -186,7 +372,7 @@ SanMinor - Изоляция (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65922.jpg" />
 </div>
 
 
@@ -215,7 +401,7 @@ Macan - Bratland (2025) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65122.jpg" />
 </div>
 
 
@@ -244,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44429.jpg" />
 </div>
 
 
@@ -273,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42925.jpg" />
 </div>
 
 
@@ -302,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42183.jpg" />
 </div>
 
 
@@ -331,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36049.jpg" />
 </div>
 
 
@@ -360,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26995.jpg" />
 </div>
 
 
@@ -389,7 +575,7 @@ Noize MC - Не все дома (2025) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24679.jpg" />
 </div>
 
 
@@ -418,7 +604,7 @@ Slimus - Спокойной ночи, малыши, Часть 3 (2025) [MP3|320
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4420.jpg" />
 </div>
 
 

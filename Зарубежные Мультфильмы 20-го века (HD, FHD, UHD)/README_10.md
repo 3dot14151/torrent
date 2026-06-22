@@ -1,3 +1,29 @@
+###  Публикация: 1603280   (210417) от 09.01.2023
+
+Храбрая принцесса / Anahit (2014) WEBRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то, давным-давно у чудесного колодца встретились молодой Царь и дочь простого пастуха. Чтобы завоевать сердце красивой девушки, Царь решил овладеть ремеслом. Юноша ничего не умел делать своими руками, но трудился днем и ночью, мечтая жениться на юной красавице. В один день заклятый враг Царя решил погубить правителя и занять его трон. Отныне зло и коварство (   Читать дальше...   )Производство: Армения / Национальный киноцентр Армении, Анимационная студия имени Роберта Саакянца,	Sharm Pictures  Жанр: мультфильм, семейный, приключенияРежиссер: Давид Саакянц, Люля СаакянцАктеры: Назени Ованнисян, Хорен Левонян, Грант Тохатян, Рафаэль Котанджян, Вардан Задоян, Мкртыч Арзуманян, Давид Бабаян, Шушан ПетросянПеревод: Дублированный (Марафон)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:26:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51EBC5C5385D8E39B1FD95301DA7376264081818
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643213   (210143) от 30.06.2023
 
 Балто / Balto (1995) BDRip [H.264/1080p-LQ] [handmade Remastered AI]
@@ -6,7 +32,7 @@
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210143.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209722.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208340.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207731.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206235.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204364.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202862.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201324.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200651.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199643.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197780.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195802.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194225.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193774.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192583.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191180.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191160.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190385.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190371.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188710.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188665.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187447.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187274.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_187240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187240.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186797.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A5FC09DD9FD4B9A10ECDCD0AAE66B25F27862B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427942   (180661) от 01.12.2020
-
-Безумный, безумный, безумный кролик Банни / Looney, Looney, Looney Bugs Bunny Movie (1981) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы не знаете, с кем вы связались. Вы не знаете, что он может. Он запутает следы. Выстрелит в вас из пушки. Разрежет вас на куски. И хрустнет напоследок своей любимой морковкой. Да, он - Багз Банни. В чем дело, док? Ты куда?Производство: США / Warner Bros., Warner Bros. AnimationЖанр: Мультфильм, комедия, семейный, музыкаРежиссер: Фриц ФрилингАктеры: Мэл Бланк, Джун Форэй, Стэн Фреберг, Ральф Джеймс, Фрэнк Нельсон, Фрэнк УэлкерПеревод: Профессиональный многоголосый, авторскийСубтитры: АнглийскиеПродолжительность: 01:19:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD08820B7A66CBAD1E1C5A38DE2186F1B885DEA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

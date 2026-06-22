@@ -1,3 +1,58 @@
+###  Публикация: 1386689   (241244) от 30.05.2020
+
+Cookie 6.0.15 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Следить за безопасностью своего кошелька, квартиры или машины привыкли все, а вот соблюдать те же правила на просторах глобальной сети почему-то старается далеко не каждый. Хотя делать это нужно и не так уж сложно. Помочь вам обезопасить свое пребывание в интернете сможет наш обзор и приложение Cookie, следящее за всей подозрительной активностью сайтов.
+
+Cookie - (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.05.2020Разработчик: SweetP Productions.Поддерживаемая ОС: macOS 10.14 или более поздняя версияЯзык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F456C55F50DADB3B628E9611113B87CA8D030AB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119822   (241239) от 29.03.2017
+
+TinkerTool System 5.30 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241239.jpg" />
+</div>
+
+
+###  Подробнее
+
+TinkerTool System -  утилита для управления скрытыми настройками операционной системы Mac OS X.
+Программа позволяет выполнять циклические сценарии администрирования нажатием одной кнопки, восстанавливать права системных файлов, повторять процесс оптимизации системной производительности по окончании инсталляции приложений, удалять содержимое кэша популярных веб-браузеров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22 февраля 2017Разработчик: Marcel BresinkПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F30D7D3CE87EF6D8F786E0E44ABEAFD968428B67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547062   (241203) от 26.04.2022
 
 Yoink 3.6.82 [Multi]
@@ -6,7 +61,7 @@ Yoink 3.6.82 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241203.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Transfer 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241192.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ Serial 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241187.jpg" />
 </div>
 
 
@@ -86,7 +141,7 @@ NeoFinder Business 8.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241180.jpg" />
 </div>
 
 
@@ -112,7 +167,7 @@ PDFpen Pro 12 v12.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241173.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ ToothFairy 2.7.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241166.jpg" />
 </div>
 
 
@@ -165,7 +220,7 @@ WinX DVD Ripper for Mac 6.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241157.jpg" />
 </div>
 
 
@@ -191,7 +246,7 @@ Exposure Software Blow Up 3 v3.1.4.383 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241144.jpg" />
 </div>
 
 
@@ -218,7 +273,7 @@ Image2icon - Make your icon‪s‬ 2.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241135.jpg" />
 </div>
 
 
@@ -244,7 +299,7 @@ Exposure Software Snap Art 4 v4.1.3.375 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241128.jpg" />
 </div>
 
 
@@ -270,7 +325,7 @@ MacX DVD Ripper Pro 6.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241106.jpg" />
 </div>
 
 
@@ -296,7 +351,7 @@ Exposure X6 v6.0.6.211  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241099.jpg" />
 </div>
 
 
@@ -322,7 +377,7 @@ Artstudio Pro 4.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241044.jpg" />
 </div>
 
 
@@ -348,7 +403,7 @@ DjVu Reader Pro 2.4.8 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241032.jpg" />
 </div>
 
 
@@ -375,7 +430,7 @@ Marked 2 v2.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240973.jpg" />
 </div>
 
 
@@ -402,7 +457,7 @@ Principle 6 v6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240964.jpg" />
 </div>
 
 
@@ -428,7 +483,7 @@ Multitouch 1.24.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240955.jpg" />
 </div>
 
 
@@ -454,7 +509,7 @@ Money 5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240941.jpg" />
 </div>
 
 
@@ -482,7 +537,7 @@ Mac Blu-ray Player Pro 3.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240930.jpg" />
 </div>
 
 
@@ -508,7 +563,7 @@ Acon Digital Acoustica Premium Edition 7.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240926.jpg" />
 </div>
 
 
@@ -534,7 +589,7 @@ Bills v1.10.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240919.jpg" />
 </div>
 
 
@@ -562,7 +617,7 @@ SILKYPIX Developer Studio Pro 10 v10.0.12.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240910.jpg" />
 </div>
 
 
@@ -589,7 +644,7 @@ BetterZip 5 v5.1.1 b4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240904.jpg" />
 </div>
 
 
@@ -616,7 +671,7 @@ Valentina Studio Pro 11.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240898.jpg" />
 </div>
 
 
@@ -627,58 +682,6 @@ Valentina Studio - это идеальный инструмент управле
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:725AF65DFFF3A9161239AECBD260110943B081A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462958   (240882) от 16.04.2021
-
-Irvue 2.7.11 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Irvue переносит на ваш рабочий стол тысячи потрясающих фотографий с высоким разрешением из Unsplash. Наслаждайтесь новыми художественными обоями каждый день с помощью этого небольшого приложения, которое находится в строке меню.Тип издания: macOS SoftwareРелиз состоялся: 02.04.2021Разработчик: Igor SavelevПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDA52DC43ADBC5B5C42495A056A6DAA56DF86221
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462995   (240872) от 16.04.2021
-
-Hazel 5.0.6 U2B [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hazel – это ваш личный уборщик, который организует и очистит папки так, как вы захотите. Hazel может также управлять вашей корзиной и удалять приложения. Hazel позволяет сортировать файлы по названиям, типу, дате, сайту или адресу электронной почты, с которого пришёл файл. С помощью этой программы вы также имеете возможность прикреплять цветные ярлыки, создавать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01.03.2021Разработчик: Noodlesoft, LLC.Поддерживаемая ОС: OS X 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5DA9F1E7664C8DB390B9900CBF258A1808C7570
 ```
 
 https://mybot314.ru/tekegram_catalog/

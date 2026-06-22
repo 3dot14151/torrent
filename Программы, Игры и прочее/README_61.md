@@ -1,3 +1,55 @@
+###  Публикация: 910211   (623731) от 19.06.2015
+
+Garmin: City Navigator East & West Africa NT 2016.10 [En]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карты Западной и Восточной Африки для навигаторов Гармин.Тип издания: карты заблокированы (таблетки есть в комплекте)Релиз состоялся: май 2015Разработчик: Garmin / HereПоддерживаемая ОС: GarminЯзык интерфейса: АнглийскийФормат: .IMG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0628814619EC0B78DF1FEF91B97119A6426A773D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 789452   (623061) от 24.06.2017
+
+ЭкоГид: Деревья летом v3.0.2 - атлас-энциклопедия деревьев, кустарников и лиан средней полосы России (17.05.2016) <Ru>
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый в России ПОЛЕВОЙ определитель и атлас-энциклопедия деревьев, кустарников, кустарничков и лиан средней полосы, с помощью которого можно ОПРЕДЕЛИТЬ видовое название неизвестного растения по внешнему виду, побегам, листьям, цветкам и плодам прямо в природе.Разработчик: ЭкосистемаЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29BBC895EA05ABCDCB681110C012B94528403B8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910132   (621564) от 20.06.2015
 
 Garmin: City Navigator Middle East & Northern Africa NT 2016.10 [En]
@@ -6,7 +58,7 @@ Garmin: City Navigator Middle East & Northern Africa NT 2016.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621564.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620345.jpg" />
 </div>
 
 
@@ -63,7 +115,7 @@ IELTS® Speaking Pro v4.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620044.jpg" />
 </div>
 
 
@@ -89,7 +141,7 @@ Garmin: Basarsoft NavCity Turkey 2015 T1 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619842.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ Schematic v2.2.1 [Ru/Multi] - составление и редактирован
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619718.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ Garmin: TopoActive West Europe V 2.02 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619626.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619594.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619488.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ AirPlay/DLNA Receiver PRO v2.6.9 [En] - мощный приёмник медиа
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619376.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619362.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619307.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618450.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617801.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ Maverick Pro 2.7 [En]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617522.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616738.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614721.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611748.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610502.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ Lost Bubble 2.21 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610394.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ Scientific Calculator Pro / Научный калькулятор Pro v2.5.4 [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608451.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606915.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606581.jpg" />
 </div>
 
 
@@ -591,7 +643,7 @@ Animal Circus - Seek & Find / В цирке 1.12 [Ru]
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605023.jpg" />
 </div>
 
 
@@ -620,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605022.jpg" />
 </div>
 
 
@@ -633,59 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20C8D2F5CCB13B16DD8E4D29D5BD1D24486F8504
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913586   (605006) от 29.06.2015
-
-Алиса в Зазеркалье 1.3 [Ru]
-
->>Программы, Игры и прочее
->>Всё для детей и родителей для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605006.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой сказке Алиса понарошку входит в зеркало, и оказывается в Зазеркалье, где мир представляет собой огромную шахматную доску. Выйдя из зазеркальной комнаты девочка попадает в сад живых цветов, и там встречает Красную Королеву, которая присваивает ей звание Белой Пешки. Теперь ее задача пересечь этот удивительный сказочный мир из края в край.Тип издания: FreeРелиз состоялся: 28 апреля 2015 г.Разработчик: AlterEgo TeamПоддерживаемая ОС: Android: 2.3+Жанр: Аудио книгаЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C60E2D515B032CBA744E93E70D01C71473DFD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913418   (604940) от 29.06.2015
-
-Аудио сказки для малышей 1.3 [Ru]
-
->>Программы, Игры и прочее
->>Всё для детей и родителей для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великолепный сборник лучших детских сказок, рассказанных талантливыми актерами откроет вам необычайный и многообразный мир чудес и волшебства, познакомит с добрыми и отзывчивыми героями и их антиподами, а также ненавязчиво научит жизненной мудрости. Эти сказки, несомненно, займут одно из первых мест в вашей домашней коллекции.
-В приложении предусмотрен таймер времени (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 15 июня 2015 г.Разработчик: AlterEgo TeamПоддерживаемая ОС: Android: 2.3+Жанр: ДетскиеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:537C496B8938E1026ED534FBE7C663A2C0311761
 ```
 
 https://mybot314.ru/tekegram_catalog/

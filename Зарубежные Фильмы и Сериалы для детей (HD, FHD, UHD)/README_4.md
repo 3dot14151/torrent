@@ -1,3 +1,30 @@
+###  Публикация: 1107549   (867846) от 22.02.2017
+
+Лесси возвращается домой / Lassie Come Home (1943) WEB-DLRip [H.264/1080p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джо считал себя счастливчиком, еще бы, ведь ему завидуют все собаководы Йоркшира — такой породистой колли не было во всей Англии. Каждый день Лесси приходила к школе встречать Джо, и вот, однажды, она не пришла, дома его ожидало ужасное известие — родители продали собаку чтобы выбраться из долгов.
+Но для верной собаки существует только один хозяин — мальчик Джо. (   Читать дальше...   )Производство: США  Metro-Goldwyn-MayerЖанр: Семейный, ПриключенияРежиссер: Фред М. УилкоксАктеры: Родди МакДауэлл, Дональд Крисп, Мэй Уитти, Эдмунд Гвенн, Найджел Брюс Эльза Ланчестер, Элизабет Тейлор, Бен Уэбстер, Дж. Пэт О’Мэлли, Алан НапьеПеревод: Многоголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:29:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61B0081FC1E700483C682E96F726F0332B8A616F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497279   (866335) от 21.09.2021
 
 Дэрил / D.A.R.Y.L. (1985) BDRip [H.264/1080p]
@@ -6,7 +33,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866335.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865335.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865156.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865080.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865079.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863306.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860447.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860196.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859418.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850992.jpg" />
 </div>
 
 
@@ -269,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850104.jpg" />
 </div>
 
 
@@ -287,6 +314,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 307326   (847081) от 12.03.2011
+
+Хроники Нарнии: Покоритель Зари / The Chronicles of Narnia: The Voyage of the Dawn Treader (2010) [1080p] BDRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_847081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эдмунд, Люси, их кузен Юстас и король Каспиан отплывают на корабле «Покоритель Зари» на поиски друзей отца Каспиана — семи лордов: Ревелиана, Берна, Аргоза, Мавроморна, Октезиана, Рестимара и Рупа, изгнанных во время недолгого правления тирана Мираза.Жанр: фэнтези, приключения, семейныйРежиссер: Майкл ЭптидАктеры: Джорджи Хенли, Скандар Кейнс, Бен Барнс, Уилл Поултер, Гари Свит, Терри Норрис, Брюс Спенс, Билли Браун, Лаура Брент, Колин МудиПеревод: ДублированныйПродолжительность: 01:48:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378720   (844646) от 26.04.2020
 
 Скуби-Ду / Scooby-Doo (2002) BDRip [H.264/1080p]
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844646.jpg" />
 </div>
 
 
@@ -315,6 +368,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 770141   (843256) от 29.03.2014
+
+Мэри Поппинс / Mary Poppins (1964) BDRip [720p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_843256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семейство Бенкс озабоченно поисками няни для своих детей. И как это бывает только в сказке, она появилась прямо из воздуха, прекрасная, ни на кого не похожая. Как раз такая, какую мечтали бы иметь в своем доме всякие любящие родители.
+
+У неё не просто цветущий вид. Она непросто лучше всех умеет готовить, ходить по магазинам, одеваться, танцевать и воспитывать детей. (   Читать дальше...   )Жанр: Комедия, Музыкальный, ФэнтезиРежиссер: Роберт СтивенсонАктеры: Джули Эндрюс, Дик Ван Дайк, Дэвид Томлинсон, Глинис Джонс, Гермиона Бадделей, Рита Шоу, Карен Дотрис, Мэттью Гарбер, Эльза Ланчестер, Артур ТричерПеревод: Дублированный + Многоголосый, закадровый + Многоголосый, закадровый (украинский)Язык субтитров: русские и английские (встроенные, отключаемые)Продолжительность: 02:19:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9145D1D62510B0F3F6957E5B966EA0490563BDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 771528   (841668) от 30.03.2014
 
 Мост в Терабитию / Bridge to Terabithia (2007) BDRip [H.264/720p-LQ]  [Hi10P]
@@ -323,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841668.jpg" />
 </div>
 
 
@@ -350,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840775.jpg" />
 </div>
 
 
@@ -376,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835034.jpg" />
 </div>
 
 
@@ -403,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832693.jpg" />
 </div>
 
 
@@ -429,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825934.jpg" />
 </div>
 
 
@@ -455,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822260.jpg" />
 </div>
 
 
@@ -481,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818579.jpg" />
 </div>
 
 
@@ -507,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814892.jpg" />
 </div>
 
 
@@ -533,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814812.jpg" />
 </div>
 
 
@@ -559,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814803.jpg" />
 </div>
 
 
@@ -585,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814801.jpg" />
 </div>
 
 
@@ -596,86 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E554D053CFD08C08759434F997A51EA6B40F2791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117831   (814623) от 24.03.2017
-
-Рапунцель (Златовласка) / Rapunzel (2009) HDTVRip [H.264/720p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814623.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам сказки братьев Гримм.
-В одной семье, у которой не было детей, но они очень хотели завести ребенка. Эта пара жила по соседству с ведьмой. Наша героиня у соседки заметила растущий Рапунцель и попросила своего супруга достать для нее тоже. Чтобы сделать приятное жене, он решил украсть рапунцель у колдуньи, но соседка поймала его. Она сказала, что он может (   Читать дальше...   )Производство: ГерманияЖанр: Семейный, Фэнтези, СказкаРежиссер: Бодо ФюрнайзенАктеры: Сюзанна фон Борсоди, Луиза Вицорек, Джейм Крсто, Борис Альинович, Антье Вестерманн, Рита Фельдмайер, Дитер Монтаг, Пит Клоке, Эвелина Сидикова, Люка Андрес и др.Перевод: Многоголосый закадровый, ДублированныйСубтитры: отсутствуют.Продолжительность: 00:58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BE3C94A395E3F3776ABD449DADD75FFFF1BC918
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118307   (808820) от 27.03.2017
-
-Маленькие негодяи / The Little Rascals (1994) BDRip [H.264/720p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большинство героев этой картины – дети. Мальчики организовали свой клуб настоящих мужчин-женоненавистников. Поэтому любой, кто встречается с девочкой, в их глазах – преступник, предатель и негодяй.
- Они очень сурово обошлись с одним из членов своего клуба только потому, что тот ходил к девочке на свидания. Девочки, в свою очередь, ничего хорошего в мальчиках тоже (   Читать дальше...   )Производство: США, Amblin EntertainmentЖанр: Мелодрама, Комедия, СемейныйРежиссер: Пенелопа СфирисАктеры: Баг Хoлл, Бриттани Эштон Холмс, Трэвис Тедфорд, Кевин Джамал Вудс, Джордан Уоркол, Закари Мабри, Росс Бэгли, Кортлэнд Мид, Сэм Салитта, Блэйк Джереми КоллинзПеревод: Многоголосый закадровый, двуголосый закадровый, одноголосый закадровыйСубтитры: английские, английские SDHПродолжительность: 01:22:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B27C64BFADA3E94FF1B7D40F9D0B63F230ACA575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 317186   (806844) от 03.04.2011
-
-Хроники Нарнии. Трилогия / The Chronicles of Narnia. Trilogy (2005-2010) [H.264/720p-LQ] BDRip
-
->>След.
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эдмунд, Люси, их кузен Юстас и король Каспиан отплывают на корабле «Покоритель Зари» на поиски друзей отца Каспиана — семи лордов: Ревелиана, Берна, Аргоза, Мавроморна, Октезиана, Рестимара и Рупа, изгнанных во время недолгого правления тирана Мираза.Жанр: Фэнтези, Приключения, БоевикРежиссер: Майкл ЭптидАктеры: Джорджи Хенли, Скандар Кейнс, Бен Барнс, Уилл Поултер, Гари Свит, Терри Норрис, Брюс Спенс, Билли Браун, Лаура Брент, Колин МудиПеревод: ДублированныйЯзык: русскийПродолжительность: 01:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE87EA760AB065213E0C885735CCB36DA37ADD53
 ```
 
 https://mybot314.ru/tekegram_catalog/

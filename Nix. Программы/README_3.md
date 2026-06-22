@@ -6,7 +6,7 @@ DraftSight V1R1.4 beta [x86] (rpm, deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84598.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Oracle Database 11g Release 2 11.2.0.3 Linux [ENG]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81295.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Transmission for Linux 4.0.6 (38c164933e) [x32, x64] (tar.xz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48049.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Master PDF Editor for Linux 5.9.50 [x86_64, arm64] (deb, rpm, tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47599.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Zapret v.60 for Linux [x86, x86_64] (elf)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47303.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ R-Studio for Linux Network 3.5.1347 [x86, x64] (rpm, deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41099.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ HCL Lotus 14 [x86_64] (.tgz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39815.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39696.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Kerio Control 9.4.5 [x64] 1xCD
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35395.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ DR14 T.meter 2.0.0 [x32, x64] (py)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34312.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Kerio Control v9.4.5 Patch 2 Build 8629 [x64] (iso, img) [Multi/Ru]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15788.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ VMware Workstation 17 Pro 17.6.4-24832109 [x64] (bundle)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8541.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ RAR for Linux 7.12 [x64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8103.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ DeaDBeeF for Linux 1.10.0 [x86_64] (deb, rpm, pkg.tar.xz, tar.bz2)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6674.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ CrossOver Linux 25.1.0 [x64] (deb, rpm, bin)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_829.jpg" />
 </div>
 
 

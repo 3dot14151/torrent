@@ -6,7 +6,7 @@ John Roush - The Cry of the City (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144552.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Striders - Out of the Blues (Int. Edition) (2020) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144504.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ TG Gray - TG Gray EP (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144442.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Ozgur Hazar - Sad and Blue (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144421.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Sly & The Family Stone - There's A Riot Goin' On (1971) 24k Gold Disc, 2013, Epi
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143538.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Keb' Mo' - Keb' Mo' (1994) SACD, 2011 Mobile Fidelity Sound Lab [FLAC|tracks +cu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143341.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Larry Miller - Live'N'Loud (2005) Live [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143289.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Mitch Laddie Band - Live In Concert (2014) Live [FLAC|Lossless|image + .cue] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143282.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Billy Price & Fred Chapellier - Night Work (2009) [WavPack|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140536.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Gov't Mule - Time Of The Signs (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140306.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Laurence Jones - Thunder In The Sky (2012) [FLAC|Lossless]<Blues/Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140125.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Steve Hunter - Before The Lights Go Out (2017) [FLAC|Lossless|image + .cue] <Ins
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139902.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Take 6 - We Wish You a Merry Christmas (1999) [FLAC|Lossless|tracks + .cue] <Sou
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139211.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Tony Joe White - The Path Of A Decent Groove (1993) [APE|Lossless|image + .cue] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139148.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Apollo Motel - Greytown (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139059.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Craig Payne - A Long Time Coming (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139022.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Bluejaf - Blues Coffee (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138992.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Aryan King - Juliet (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138949.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ VA - Southern Blues Rock (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138854.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ John Legend - A Legendary Christmas (2018) [FLAC|Lossless|tracks + .cue] <R&B, P
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137811.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Bruce Wojick & The Struggle - The Hard Way (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136860.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Carlos Casciaroli - Dark Blues Ritual (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136859.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Connor Selby - The Truth Comes Out Eventually (2025) [FLAC 24/48|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136856.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Family Company - Pieces Of Us (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136854.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ Jimmy Burns & Soul Message Band - Full Circle (2025) [FLAC 24/48|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136849.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ Johnnie Johnson - I'm Just Johnnie (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136848.jpg" />
 </div>
 
 

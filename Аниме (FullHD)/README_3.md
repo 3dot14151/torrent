@@ -6,7 +6,7 @@ Adachi to Shimamura | Adachi and Shimamura | Адати и Симамура [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026422.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Maou Gakuin no Futekigousha | The Misfit of Demon King Academy | Непризн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026191.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Fight Ippatsu! Juuden-chan!! | С первого удара заряжай-ка!
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025762.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ninja Senshi Tobikage | Ninja Robot Tobikage | Ниндзя-воин Тобик�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025700.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Shinrei Tantei Yakumo | Psychic Detective Yakumo | Детектив-медиум
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025465.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Majo no Tabitabi | Wandering Witch: The Journey of Elaina | Странствия
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024859.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Mahou Shoujo Lyrical Nanoha The Movie 1st | Magical Girl Lyrical Nanoha The Movi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023831.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Mahou Shoujo Lyrical Nanoha The Movie 2nd A's | Лиричная волшебн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023821.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Kanojo, Okarishimasu | Rent-A-Girlfriend | Девушка на час [ТВ-1] [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023746.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Toji no Miko + Mini Toji | Katana Maidens | Жрицы-мечницы + Мини
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023593.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Trinity Seven | Святая семёрка [2014, TV 12 эп. + 1 OVA + 2 Movie
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023567.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Kaguya-sama wa Kokurasetai? Tensai-tachi no Ren'ai Zunousen | Кагуя: В л�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023455.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Kaguya-sama wa Kokurasetai: Tensai-tachi no Ren'ai Zunousen | Kaguya-sama: Love 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023383.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Black Clover (2017) | Чёрный клевер [2017, TV, 91-170 из 170 + 8SP
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023353.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Aya to Majo | Earwig and the Witch | Ая и ведьма [2020, Special, 1 эп
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022923.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Shingeki no Kyojin: The Final Season | Attack on Titan The Final Season | Ата
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022842.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Hamefura | Bakarina | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni Ten
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022840.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Tonikaku Kawaii: Fly Me to the Moon / Tonikawa: Over the Moon for You / Крас
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022742.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Slam Dunk: Zenkoku Seiha da! Sakuragi Hanamichi | National Champions, Sakuragi H
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022144.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Slam Dunk: Shouhoku Saidai no Kiki! Moero Sakuragi Hanamichi | Слэм-данк
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022143.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Slam Dunk | Слэм-данк (фильм первый) [1994, Movie] BDRip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022142.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Slam Dunk: Hoero Basketman-damashii! Hanamichi to Rukawa no Atsuki Natsu | Сл�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022141.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Slam Dunk | Слэм-данк [1993, TV, 101 из 101] BDRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022140.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Kaitou Saint Tail | Mysterious Thief Saint Tail | Таинственная гр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021471.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Romeo no Aoi Sora | Romeo's Blue Skies | Голубые небеса Ромео 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021235.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Cutie Honey Universe | Cutey Honey Universe | Вселенная Милашки 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021188.jpg" />
 </div>
 
 

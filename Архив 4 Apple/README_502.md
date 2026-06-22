@@ -1,3 +1,55 @@
+###  Публикация: 1624209   (242487) от 04.04.2023
+
+TechSmith Camtasia 2022 Studio 2022.6.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Camtasia for Mac — эффективное приложение для создания различных видеороликов: от наглядных презентаций до видеоуроков и демонстрационных слайдов для выступлений. Camtasia for Mac делает процесс создания и редактирования видео еще быстрее и удобнее. С новыми удобными программными инструментами время на производство роликов сокращается на 40-60%, а само видео имеет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.04.2023Разработчик: © 1995 - 2021 TechSmith CorporationПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F299A86FEE67C559061C9338C061F117FC0FC5D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542040   (242486) от 05.04.2022
+
+FSNotes 5.3.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242486.jpg" />
+</div>
+
+
+###  Подробнее
+
+FSNotes - это менеджер текстовых заметок для macOS и представляет собой современное переосмысление нотационной скорости (nvALT) на стероидах. В нашем приложении рассматриваются следующие открытые форматы: plain / text, Markdown и RTF, а также хранятся данные в файловой системе. Вы можете просматривать, редактировать и копировать данные в своем любимом внешнем редакторе (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.04.2022Разработчик: © 2022 Oleksandr GlushchenkoПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Украинский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A05AF21F041D05480219422445793ED28318792B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1542029   (242472) от 05.04.2022
 
 Checksum Thing 2.1.0 [En]
@@ -6,7 +58,7 @@ Checksum Thing 2.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242472.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Marked 2 v2.6.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242460.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ Path Finder 2152 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242450.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Posterino 3 v3.11.8[Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242448.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ Magoshare Data Recovery Professional 4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242440.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ WonderPen 2.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242439.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ Export for iTunes 3.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242431.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ iA Writer 5.6.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242430.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ NetWorker Pro 7.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242406.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ IconJar 1.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242383.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ SQLPro for SQLite 2022.27 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242361.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ Geekbench 6.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242331.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ Paws for Trello 2.0.3 [Muli/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242323.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ Lungo 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242320.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ Newsflow 1.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242294.jpg" />
 </div>
 
 
@@ -410,7 +462,7 @@ Aiseesoft FoneEraser 1.0.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242291.jpg" />
 </div>
 
 
@@ -436,7 +488,7 @@ iA Writer 6.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242282.jpg" />
 </div>
 
 
@@ -462,7 +514,7 @@ Mosaic Pro - Professional-level window management 1.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242252.jpg" />
 </div>
 
 
@@ -491,7 +543,7 @@ Sublime Merge Dev build 2004 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242229.jpg" />
 </div>
 
 
@@ -520,7 +572,7 @@ Wattagio 1.8 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242219.jpg" />
 </div>
 
 
@@ -546,7 +598,7 @@ File Cabinet Pro 3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242205.jpg" />
 </div>
 
 
@@ -575,7 +627,7 @@ Translatium 11.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242204.jpg" />
 </div>
 
 
@@ -601,7 +653,7 @@ Hookshot 1.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242164.jpg" />
 </div>
 
 
@@ -627,7 +679,7 @@ GoodNotes 5 v5.9.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242137.jpg" />
 </div>
 
 
@@ -639,61 +691,6 @@ GoodNotes 5 v5.9.3 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49735200FDC89962868D5051B4AB3091AE019366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106294   (242128) от 19.02.2017
-
-AutoPrompt 1.0.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242128.jpg" />
-</div>
-
-
-###  Подробнее
-
-AutoPrompt  - это простое приложение для меню-бара, которое время от времени будет Вас спрашивать  что Вы делает в этот момент.
-AutoPrompt  - это  интуитивный интерфейс для списков задач и их продолжительность. Просто запишите вашу текущую задачу всякий раз, когда  AutoPrompt  Вас об этом попросит. Создайте свой ежедневный рабочий лист во время  работы.
-
-Идеология  приложения (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 февраля 2017Разработчик: InspiringLife.coПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F12248CC898BB56ECAAB32533298D69F823F6352
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458796   (242116) от 30.03.2021
-
-MacCleaner 2 PRO 2.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очистите Mac и оптимизируйте его производительность. Ускорьте медленный Mac, освободите место на диске, удалите ненужные файлы, предотвратите ошибку «Startup Disk Full».Тип издания: macOS SoftwareРелиз состоялся: 30.03.2021Разработчик: NektonyПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFA4297ACFFD97EEE25AAE0AACCFD07750BED300
 ```
 
 https://mybot314.ru/tekegram_catalog/

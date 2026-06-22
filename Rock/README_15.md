@@ -1,3 +1,119 @@
+###  Публикация: 997412   (875341) от 16.03.2016
+
+Jimi Hendrix - Best Of Jimi Hendrix (1999) 2CD [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Along the Watchtower
+02. Crosstown Traffic
+03. The Wind Cries Mary
+04. Voodoo Chile(   Читать дальше...   )Жанр: RockПродолжительность: 01:33:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69A5AFC4D92E45DC90C8D664DAC0A442A89B2BFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374303   (874089) от 09.04.2020
+
+Joe Satriani - Shapeshifting (2020) [MP3|320 Kbps] <Instrumental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874089.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Shapeshifting
+2. Big Distortion
+3. All for Love
+4. Ali Farka, Dick Dale, an Alien and Me(   Читать дальше...   )Жанр: Instrumental RockПродолжительность: 00:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5491C8C062F6B8329FAFF167303F8AB0FF396A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997511   (873895) от 17.03.2016
+
+Sam Apple Pie - East 17 (1972) [MP3|320 кб/с] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Time Music
+02. Louise
+03. Out On The Road
+04. Route 66(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BEC17164F65988F6726AE86620F781B464FF432
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997515   (873281) от 17.03.2016
+
+Led Zeppelin - Ballads (2014) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Baby I'm Gona Leave You (06:46)
+02 - Thank You (04:51)
+03 - Since I've Been Loving You (07:27)
+04 - Stairway To Heaven (08:02)(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43998707B1E01E2374CAE79861B9C9B8B8D36286
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 186869   (873239) от 30.03.2010
 
 VA Rock Ballads - Сборник (2009) [MP3|320 kbps]<Classic Rock>
@@ -6,7 +122,7 @@ VA Rock Ballads - Сборник (2009) [MP3|320 kbps]<Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873239.jpg" />
 </div>
 
 
@@ -41,7 +157,7 @@ Bon Jovi - Best Ballads (1997) [MP3|320 kbps]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873233.jpg" />
 </div>
 
 
@@ -76,7 +192,7 @@ Mungo Jerry - Touch the Sky (2020) [MP3|320 Kbps] <Blues, Rock, Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872981.jpg" />
 </div>
 
 
@@ -105,7 +221,7 @@ VA - 100 Greatest Britpop Songs (2021) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872847.jpg" />
 </div>
 
 
@@ -134,7 +250,7 @@ Hans Zimmer - Dune Sketchbook (2021) Music from the Soundtrack [MP3|320 Kbps] <S
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872722.jpg" />
 </div>
 
 
@@ -163,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872683.jpg" />
 </div>
 
 
@@ -192,7 +308,7 @@ Tom Waits - 35 Albums (1973-2009) [MP3|320 Kbps] <Blues, Jazz, Experimental Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872232.jpg" />
 </div>
 
 
@@ -221,7 +337,7 @@ Ozzy Osbourne - No More Tears (2021) 30th Anniversary Expanded Edition [MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871226.jpg" />
 </div>
 
 
@@ -250,7 +366,7 @@ Grace Slick - Manhole (1973) Reissue, 2011, Retroworld [MP3 |320 Kbps] <Psychede
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870061.jpg" />
 </div>
 
 
@@ -279,7 +395,7 @@ Lera Lynn - Discography (2011-2019) [MP3|320 кб/с] <Folk-Rock, Independent Po
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868524.jpg" />
 </div>
 
 
@@ -308,7 +424,7 @@ Ruby the RabbitFoot - New as Dew (2014) [MP3|320 кб/с]<Indie Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867745.jpg" />
 </div>
 
 
@@ -337,7 +453,7 @@ Pholhas - Dead Faces (1973) Reissue CD, 2000, BMG Music Spain, S.A. [MP3|320 Kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867268.jpg" />
 </div>
 
 
@@ -366,7 +482,7 @@ Dany Lademacher's Wild Romance - Out Of Heaven (2016) [MP3|320 кб/с] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866697.jpg" />
 </div>
 
 
@@ -395,7 +511,7 @@ Unruly Child - Worlds Collide (2010) [MP3|320 кб/с] <Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866695.jpg" />
 </div>
 
 
@@ -424,7 +540,7 @@ Please - Seeing Stars (1969) Remastered, 2001, Acme Deluxe Series [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866473.jpg" />
 </div>
 
 
@@ -453,7 +569,7 @@ The Rolling Stones - Hear it Like The Stones (2020) Limited Edition, 4CD Box Set
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864770.jpg" />
 </div>
 
 
@@ -482,7 +598,7 @@ Queen - Golden Ballads (1996) [MP3|192-320 kbps]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864657.jpg" />
 </div>
 
 
@@ -517,7 +633,7 @@ VA - Bob Dylan: The 30th Anniversary Concert Celebration (1993) 2CD live [MP3|32
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862945.jpg" />
 </div>
 
 
@@ -546,7 +662,7 @@ Freddy Lindquist - Menu (1970) Reissue, 2004,  Pan Records [MP3|320 Kbps] <Hard 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862918.jpg" />
 </div>
 
 
@@ -575,7 +691,7 @@ VA - Best Of Pop Rock Hits 2020 [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862044.jpg" />
 </div>
 
 
@@ -604,7 +720,7 @@ Ringo Starr - Change The World (2021) EP [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861250.jpg" />
 </div>
 
 
@@ -633,7 +749,7 @@ Trickster - Find The Lady (1977) 2006, Strange Days Records [MP3|320 Kbps] <Clas
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860996.jpg" />
 </div>
 
 
@@ -647,122 +763,6 @@ Trickster - Find The Lady (1977) 2006, Strange Days Records [MP3|320 Kbps] <Clas
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:079090DC17453F596BC07BB96681F7559E56A6AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109007   (860994) от 26.02.2017
-
-The Like - Release Me (2010) [MP3|~190 Kbps (V2)] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wishing He Was Dead (02:53)
-02. He's Not A Boy (02:35)
-03. Release Me (03:03)
-04. Walk Of Shame (02:15)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E84F5D36C1B2AAF9D284D94E47F0D2680528EE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109202   (860991) от 26.02.2017
-
-Trickster - Back To Zero (1979) 2006, Strange Days Records [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tomorrow Belongs To Me
-02. Back To Zero
-03. You Make Me Want To Stay
-04. Road To Nowhere(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8742840E0383C777BDC444B31BDEAB56546A3C66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376444   (860384) от 17.04.2020
-
-David Bowie - ChangesNowBowie (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860384.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Man Who Sold The World (ChangesNowBowie Version)
-2. Aladdin Sane (ChangesNowBowie Version)
-3. White Light/White Heat (ChangesNowBowie Version)
-4. Shopping For Girls (ChangesNowBowie Version)(   Читать дальше...   )Жанр: RockПродолжительность: 00:31:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9FC9D26A66DCB195AE3B013C7F5D11E78F09006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376415   (860261) от 17.04.2020
-
-Paul McCartney & Wings - Wings Greatest (1978) Remastered, 2020, Paul McCartney Catalog [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Day (3:45)
-02. Silly Love Songs (5:55)
-03. Live And Let Die (3:14)
-04. Junior’s Farm (4:24)(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78D1E55FE6BBE750E4C87AD694452291FE62B396
 ```
 
 https://mybot314.ru/tekegram_catalog/

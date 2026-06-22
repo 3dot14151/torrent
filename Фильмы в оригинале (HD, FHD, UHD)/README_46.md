@@ -1,3 +1,133 @@
+###  Публикация: 956005   (330972) от 13.11.2015
+
+Последний шанс / The Last Rescue  (2015) BDRip [H.264/1080p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вскоре после D-Day, три американских солдата и две медсестры оказались в тылу врага. Они захватывают высокопоставленного немецкого офицера, как пленника, и пытаются организовать побег.Производство: США, Fireshoe Productions.Жанр: боевик, драма, военныйРежиссер: Эрик КоллиАктеры: Бретт Каллен, Коуди Кэш, Жиль Марини, Райан Мерриман, Йохан Урб, Элизабет Райс, Даррен Киф Рейхер, Халли Шеперд, Тони Дуп, Тино Струкманн, Фред ГриффитПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4161922E47E509EAF597274A7D12058152BADA1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957527   (326524) от 18.11.2015
+
+Тюремный эксперимент в Стэнфорде / The Stanford Prison Experiment  (2015) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326524.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу фильма положен эксперимент американского психолога. Он выбрал добровольцев, которые сыграли роль надзирателей и заключенных, и устроил им в одном корпусе настоящую тюрьму. Люди быстро освоились и, к огромному удивлению психолога, стали вести себя непредсказуемо. К чему приведет вышедший из-под контроля эксперимент?Производство: США, Coup d'Etat Films, Sandbar Pictures and Abandon Pictures.Жанр: триллер, драмаРежиссер: Кайл Патрик АльварезАктеры: Билли Крудап, Майкл Ангарано, Мойзес Ариас, Николас Браун, Гай Чарльз, Кейр Гилкрист, Ки Хонг Ли, Томас Манн, Эзра Миллер, Логан Миллер, Тай Шеридан, Джонни СиммонсПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 02:01:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4358D1B43018CC5B5DD2690B02F3F5D07540830E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957609   (326463) от 18.11.2015
+
+Прогулка по Миссисипи / Mississippi Grind  (2015) BDRip [H.264/1080p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм расскажет о стареющем картежнике, который вместе с молодым коллегой путешествует по югу Америки.Производство: США, Electric City Entertainment, Gowanus Projections, Sycamore Pictures and Story Ink.Жанр: драмаРежиссер: Анна Боден , Райан ФлекАктеры: Бен Мендельсон, Райан Рейнольдс, Ивонн Ландри, Энтони Ховард, Джэйсон Уорнер Смит, Керри Кехилл, Джейн МакНейлл, Джейсон Шаффетт, П.Дж. Маршалл, Стефани Онор, Тери Уайбл, Хантер БуркПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:49:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:051FD6567FAC9A51332E6F88596740C4EDC51446
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958032   (325550) от 19.11.2015
+
+Бегущий в лабиринте: Испытание огнём / Maze Runner: The Scorch Trials (2015) BDRip [H.264/1080p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лабиринт пройден, но Томасу, Терезе, Минхо и прочим глэйдерам не приходится расслабляться. Таинственное руководство ПОРОКА — секретной организации, устроившей гонки на выживание — назначает ребятам новые, смертельно опасные испытания. На сей раз их ждет переход по раскаленной пустыне и встреча с жертвами неизлечимой болезни, которые отличаются буйным нравом и непредсказуемым (   Читать дальше...   )Производство: США / TSG Entertainment, Temple Hill Entertainment, Gotham Group, TheЖанр: Фантастика, Боевик, ТриллерРежиссер: Уэс БоллАктеры: Дилан О’Брайен, Ки Хонг Ли, Кая Скоделарио, Томас Сэнгстер, Декстер Дарден, Алекс Дж. Флорес, Джейкоб Лофленд, Роза Салазар, Джанкарло Эспозито, Патришия КларксонПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 02:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F32C9351E7424AD36ACBBB0F5C3A9312A18F542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582016   (325284) от 07.10.2022
+
+Джиперс Криперс: Возрожденный / Jeepers Creepers: Reborn (2022) WEB-DL [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Решив отправиться со своим парнем на Horror Hound Festival, Лейн не испытывает радости. По мере приближения события девушку начинают мучить предчувствия и тревожные видения. В разгар фестиваля Лейн уже уверена, что происходит нечто сверхъестественное, и она находится в эпицентре ужасающего события.Производство: Великобритания, Финляндия, США / Screen Media, Black Hangar Studios , Orwo StudiosЖанр: ужасыРежиссер: Тимо ВуоренсолаАктеры: Сидни Крейвен, Имран Адамс, Питер Брук, Жарро Бенжамен, Оушен Наварро, Ди Уоллес-Стоун, Гэри Грэм, Мэтт Баркли, Джорджия Гудман, Александр ХэлсэллПеревод: отсутствуетСубтитры: английские (full, SDH)Продолжительность: 01:27:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A289188ADF84109C1625C621D559624C55989282
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958113   (324709) от 20.11.2015
 
 Перевозчик: Наследие / The Transporter Refueled  (2015) BDRip [H.264/720p] [EN / EN Sub]
@@ -6,7 +136,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324709.jpg" />
 </div>
 
 
@@ -33,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324631.jpg" />
 </div>
 
 
@@ -60,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323862.jpg" />
 </div>
 
 
@@ -86,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323770.jpg" />
 </div>
 
 
@@ -112,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323185.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322980.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321613.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320809.jpg" />
 </div>
 
 
@@ -217,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320629.jpg" />
 </div>
 
 
@@ -243,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320402.jpg" />
 </div>
 
 
@@ -270,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319311.jpg" />
 </div>
 
 
@@ -296,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318616.jpg" />
 </div>
 
 
@@ -322,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318470.jpg" />
 </div>
 
 
@@ -348,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315980.jpg" />
 </div>
 
 
@@ -374,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313317.jpg" />
 </div>
 
 
@@ -400,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311622.jpg" />
 </div>
 
 
@@ -426,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311384.jpg" />
 </div>
 
 
@@ -452,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311180.jpg" />
 </div>
 
 
@@ -478,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310103.jpg" />
 </div>
 
 
@@ -504,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309714.jpg" />
 </div>
 
 
@@ -530,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309706.jpg" />
 </div>
 
 
@@ -541,136 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3D8759F27E9300AEB7543EDB2947108041B74E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260823   (309534) от 08.11.2018
-
-Мотылек / Papillon  (2017) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Взломщик сейфов по прозвищу Мотылёк получает пожизненный срок и отправляется на каторгу за убийство, которого он не совершал. Когда вокруг враги, а надежда угасает с каждым днём заключения, лишь сила духа может помочь Мотыльку обрести свободу.Производство: Чехия, Испания, США / Czech Anglo Productions, FishCorb Films, Red Granite PicturesЖанр: триллер, драма, криминал, детективРежиссер: Михаэль НоерАктеры: Чарли Ханнэм, Рами Малек, Роланд Мюллер, Йоэль Басман, Йорик ван Вагенинген, Майкл Сока, Кристофер Фэйрбэнк, Ив Хьюсон, Томми Флэнаган, Николас Асбари, Дамиджан Оклопджич, Джейсон РайанПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 02:13:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:370E3605A6CEC0A1064EC494431D61BD8CC530CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260819   (309360) от 08.11.2018
-
-Чёрный клановец / BlacKkKlansman  (2018) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Внедриться в Ку-Клукс-Клан - задача не из легких, особенно если ты чернокожий. Но целеустремленного полицейского из Колорадо такие мелочи не смущают. Вместе с напарником-евреем он вступает в неравный бой с опаснейшими противниками.Производство: США / 40 Acres & A Mule Filmworks, Blumhouse Productions, Legendary Entertainment, Monkeypaw Productions, Perfect World Pictures, QC EntertainmentЖанр: драма, комедия, криминал, биографияРежиссер: Спайк ЛиАктеры: Джон Дэвид Вашингтон, Адам Драйвер, Лора Хэрриер, Тофер Грейс, Яспер Пяякконен, Райан Эгголд, Роберт Джон Бёрк, Николас Туртурро, Кори Хоукинс, Алек Болдуин, Исайя Уитлок мл., Брайан ТарантинаПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, испанскиеПродолжительность: 02:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C91E7E204012A2DA51143D7D2F2B06EBD8C9DDFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960375   (309217) от 27.11.2015
-
-Любовь / Love  (2015) BDRip [H.264/1080p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любовь вне добра и зла. Любовь - это генетическая потребность. Это дар и проклятие. Любовь - это болезнь, наркотик. Это потеря и обретение себя. Любовь - это самое прекрасное и самое ужасное в нашей жизни. Любовь - это переплетение душ и соединение тел. «Любовь» - это возбуждающая сексуальная мелодрама о парне, девушке и еще одной девушке.Производство: Франция, Бельгия, Wild Bunch, Les Cinémas de la Zone, Rectangle Productions, Scope Pictures, RT FeaturesЖанр: драма, мелодрамаРежиссер: Гаспар НоэАктеры: Аоми Муйок, Карл Глусман, Клара Кристин,  Хуан Сааведра, Бенуа Деби, Венсан Мараваль, Дебора Реви,  Стелла РочаПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 02:09:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5440C83A39244ED99B5086D2CE98C505C161A79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332065   (308943) от 22.10.2019
-
-Элай / Eli (2019) WEB-DL [H.264/1080p-LQ] [EN / RU, EN, FRA etc. Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мальчик, страдающий от аутоиммунного заболевания, обнаруживает, что его дом не так безопасен, как он полагал.Производство: США, Intrepid Pictures, Bellevue Productions, Paramount PlayersЖанр: УжасыРежиссер: Киран ФойАктеры: Келли Райлли, Сэди Синк, Макс Мартини, Лили Тейлор, Чарли Шотуэлл, Джаред Банкенс, Денин Тайлер, Катя Гомез, Натаниэл Вулси, Паркер ЛовейнПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, английские, испанские, французские, немецкие и другиеПродолжительность: 01:38:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B39F918DFE0FE08AC48EC88FC08DBB954F3CF0DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183632   (306978) от 14.11.2017
-
-Бюро человечества / The Humanity Bureau (2017) WEB-DL [H.264/1080p-LQ] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306978.jpg" />
-</div>
-
-
-###  Подробнее
-
-В отдалённом будущем американское правительство утвердило секретную программу, по которой бедных, необразованных и неугодных стране людей сначала высылают в колонию, а затем уничтожают. Одно из таких дел попадает в руки агента. Проникшись симпатией к одинокой матери и её сыну, он решает помочь им бежать.Производство: Канада, Minds Eye Entertainment, Bridgegate Pictures, VMI WorldwideЖанр: Боевик, ФантастикаРежиссер: Роб В. КингАктеры: Николас Кейдж, Сара Линд, Хью Диллон, Виселос Реон Шеннон, Джейкоб Дейвис, Лорни Кардинал, Джетт Клине, Дэвид Ловгрен, Лео Фафард, Курт Макс РунтеПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:34:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADFF0289B75D0B10A400AF706EF57C090E50344F
 ```
 
 https://mybot314.ru/tekegram_catalog/

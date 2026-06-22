@@ -1,3 +1,107 @@
+###  Публикация: 1213638   (629563) от 04.06.2018
+
+Tunnels of Despair (2018) [Ru/En] (1.05) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tunnels of Despair представляет из себя атмосферную игру с элементами выживания и хоррора, в которой Вам предстоит исследовать заброшенные подземелья метро, чтобы найти выход и спастись. Вас отправили проверить состояние давно заброшенного тоннеля метро. Поначалу это казалось обычной работой, но во время осмотра старые своды тоннеля не выдержали и обвалились. Вам (   Читать дальше...   )Тип издания: RepackРазработчик: BearFighterDevЖанр: Adventure (Horror), 1st Person, 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1806D95F4030773EB28DB98CBBAC8F33C35F446B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269819   (629343) от 07.04.2019
+
+Beholder 2 (2018) [Ru/En/Ch] (Upd20190129) Repack R.G. Механики
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работать в Министерстве – мечта любого гражданина нашей великой Страны! Ты счастливчик, стажер – твоя мечта только что стала реальностью! Сейчас ты стоишь на низшей ступени карьерной лестницы, но это УЖЕ больше, чем всё, чего ты смог бы добиться в обычной жизни! Ты уже решил, кем ты станешь? Ответственный и исполнительный сотрудник, которого Мудрый Вождь лично наградит (   Читать дальше...   )Тип издания: RepackРазработчик: Warm Lamp GamesЖанр: Стратегия, Приключение, МенеджментЯзык субтитров: Русский, Английский, КитайскийЯзык интерфейса: Русский, Английский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13352AFC30411741010339A9B3C9A49CCA2DDBD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258981   (629309) от 07.04.2019
+
+Call of Cthulhu (2018) [Ru/Multi] (1.0upd2) Repack R.G. Механики
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Call of Cthulhu – это детектив с элементами психологического триллера, официальная игровая адаптация одноименной настольной ролевой системы компании Chaosium. Рассказы о владыке миров Ктулху, созданные писателем Говардом Лафкрафтом, со временем превратились в одну из самых проработанных и известных вселенных в современной литературе, отправной точкой которой выступило (   Читать дальше...   )Тип издания: RepackРазработчик: Cyanide StudioЖанр: Adventure, Detective, RPG, Survival Horror, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13F1CEDC5A6EFB4BEF8B19927537A8E391696EAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165840   (629303) от 07.04.2019
+
+Life is Strange: Before the Storm (2017) [Ru/Multi] (1.4.0.5.1805151406/dlc) Repack R.G. Механики
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам уготована роль необычной мятежницы в мрачном приквеле к популярной игре Life is Strange, выпущенной студией Dontnod в 2016 году. Before the Storm, новая глава, действие которой происходит за три года до драматических событий оригинальной игры, вновь перенесет вас в вымышленный город Аркадия-Бэй, где 16-летняя Хлоя Прайс неожиданно для себя находит подругу в лице (   Читать дальше...   )Тип издания: RepackРазработчик: Deck NineЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Русский (первый эпизод), АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F2BC16668A06218909E893EB2CBC42B2D83817F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 521263   (626250) от 11.07.2012
 
 Nancy Drew: Alibi In Ashes / Нэнси Дрю: Сгоревшее алиби [Ru] (L) 2011
@@ -6,7 +110,7 @@ Nancy Drew: Alibi In Ashes / Нэнси Дрю: Сгоревшее алиби [R
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626250.jpg" />
 </div>
 
 
@@ -35,7 +139,7 @@ Oxenfree (2016) [Ru/En] (2.1.0f26) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626085.jpg" />
 </div>
 
 
@@ -61,7 +165,7 @@ Ridge (2016) [Ru/Multi] (1.0 u1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625908.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ Ridge (2016) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625905.jpg" />
 </div>
 
 
@@ -116,7 +220,7 @@ Night in the Woods (2017) [En] (5.6.2.23522822) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625862.jpg" />
 </div>
 
 
@@ -142,7 +246,7 @@ Pineview Drive - Homeless (2019) [Ru/Multi] (1.0.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625571.jpg" />
 </div>
 
 
@@ -168,7 +272,7 @@ The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1) License GOG [Epis
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625432.jpg" />
 </div>
 
 
@@ -194,7 +298,7 @@ Sylvio (2015) [En] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623085.jpg" />
 </div>
 
 
@@ -221,7 +325,7 @@ Detective Gallo (2018) [Ru/Multi] (1.0) Repack Covfefe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622611.jpg" />
 </div>
 
 
@@ -247,7 +351,7 @@ Finding Paradise (2017) [Ru/Multi] (1.2) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622277.jpg" />
 </div>
 
 
@@ -273,7 +377,7 @@ Dance of Death: Du Lac & Fey (2019) [En] (1.0) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621850.jpg" />
 </div>
 
 
@@ -299,7 +403,7 @@ Phoenix Wright: Ace Attorney Trilogy (2019) [En/Jp] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621849.jpg" />
 </div>
 
 
@@ -325,7 +429,7 @@ The Assembly (2016) [En/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620579.jpg" />
 </div>
 
 
@@ -351,7 +455,7 @@ The Assembly (2016) [Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620416.jpg" />
 </div>
 
 
@@ -377,7 +481,7 @@ Silence: The Whispered World 2 (2016) [Ru/Multi] (1.2.2a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619296.jpg" />
 </div>
 
 
@@ -403,7 +507,7 @@ Virginia (2016) [Ru/Multi] (1.02a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617583.jpg" />
 </div>
 
 
@@ -429,7 +533,7 @@ Desire (2016) [Ru/Multi] (1.0.3) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616872.jpg" />
 </div>
 
 
@@ -455,7 +559,7 @@ Bohemian Killing (2016) [En/Pl] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616798.jpg" />
 </div>
 
 
@@ -483,7 +587,7 @@ Firewatch (2016) [Ru/Multi] (1.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615996.jpg" />
 </div>
 
 
@@ -509,7 +613,7 @@ Curious Cases (2019) [Ru/Multi] (1.0/upd1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614824.jpg" />
 </div>
 
 
@@ -535,7 +639,7 @@ Curious Cases (2019) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614821.jpg" />
 </div>
 
 
@@ -561,7 +665,7 @@ No70 Eye of Basir (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614136.jpg" />
 </div>
 
 
@@ -572,110 +676,6 @@ No70 Eye of Basir (2017) [Ru/Multi] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DC685D1308652FAED550153C478F1371E8B488F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146450   (614132) от 29.06.2017
-
-No70: Eye of Basir (2017) [Ru/Multi] (1.0) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет разворачивается вокруг зловещего дома №70. Девять лет тому назад в нем проживали братья Арас и Эрхан, после гибели своей бабушки они покинули это злачное место, но за прошедшее время дети успели повидать много странного и необъяснимого. С тех времен прошло уже 20 лет, братья выросли и стали очень состоятельными людьми. Эрхан получил должность архитектора, он (   Читать дальше...   )Тип издания: LicenseРазработчик: Oldmoustache GameworksЖанр: Adventure, Horror, 3DЯзык озвучки: Английский, ТурецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5854E31E6EB99D652DF0306F5AC602A1E6955C1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228373   (613556) от 13.06.2018
-
-Golem (2018) [Ru/Multi] (1.0.1.6) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никто не знал, кто построил древнюю башню на побережье. Девушка догадывалась, что вода должна была когда-то течь по этим гигантским акведукам в ее деревню, но даже ее дедушка не мог вспомнить, как поворачивается старое водяное колесо мельницы. И сегодня, также как и вся остальная молодежь, она приходит сюда, чтобы собрать немного воды из пещер под башней.Тип издания: LicenseРазработчик: Longbow GamesЖанр: Экшн, Приключение, ГоловоломкаЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B5B786D021271F80750C7E185881C9AEBF8071
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091506   (613014) от 16.04.2019
-
-Shelter 2 (2015) [Ru/Multi] (1.0/dlc) License GOG [Special Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613014.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре показана жизнь матери-рыси от беременности до рождения и воспитания детенышей. Основная забота матери - кормление, оно крайне важно для выживания потомства. В игре Shelter 2 игровой процесс сложнее, чем в предыдущей версии. Добавлены параметр выносливости, различные движения, прыжки и разнообразная добыча.Тип издания: LicenseРазработчик: Might and DelightЖанр: Adventure, IndieЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99695C17EFCC1B883F53EE0BA41ACCD13D1E0425
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056887   (612546) от 20.04.2022
-
-Firewatch (2016) [Ru/Multi] (1.1.2) Repack Other s
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612546.jpg" />
-</div>
-
-
-###  Подробнее
-
-1989-й год. Тебя зовут Генри, и ты уехал от тяжелой жизни в леса Вайоминга, чтобы работать там дозорным. Расположившись на самой вершине горы, ты должен следить за сохранностью окружающей природы. Особо жаркое, сухое лето заставляет всех беспокоиться. Твой начальник, женщина по имени Делайла, всегда поддерживает с тобой контакт с помощью небольшой ручной рации — (   Читать дальше...   )Тип издания: RepackРазработчик: Campo SantoЖанр: Adventure, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:827076FD3D7C04A322A30C01FECAFE6B878CC489
 ```
 
 https://mybot314.ru/tekegram_catalog/

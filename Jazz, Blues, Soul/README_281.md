@@ -1,3 +1,32 @@
+###  Публикация: 1563951   (501663) от 17.07.2022
+
+Bill Bruford - Making a Song and Dance: A Complete-Career Collection (2022) Box Set, 6 CD, Compilation, Remastered [FLAC|Lossless|tracks + .cue] <Jazz, Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501663.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - The Collaborator:
+01. Yes - I've Seen All Good People (6:55)
+02. Yes - Heart of the Sunrise (10:41)
+03. Yes - And You & I (10:09)(   Читать дальше...   )Жанр: Jazz, RockПродолжительность: 06:45:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D75854817C54656B1CA02950B0B14250AA8B0D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142432   (501553) от 17.07.2022
 
 Paul Brown - The Funky Joint (2012) Woodward Avenue Records [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
@@ -6,7 +35,7 @@ Paul Brown - The Funky Joint (2012) Woodward Avenue Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501553.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Anouar Brahem - Blue Maqams (2017) ECM Records [FLAC|Lossless|image + .cue] <Wor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501483.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Pink Turtle - Back Again (2010) [FLAC|tracks]<Jazz Mainstream, Tribute, Parody>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501329.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Piano Dreamers, Relaxing Instrumenta  Music - Sex Music 69 (2019) [MP3|320 Kbps]
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501208.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Mark Knopfler - Privateering (2012) 2CD Promo [MP3|~245 кб/с ]<Folk / Blues /
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501058.jpg" />
 </div>
 
 
@@ -152,7 +181,7 @@ Brian Setzer (Brian Setzer Orchestra) & Stray Cats - 54 albums (1981-2011) [mp3|
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500788.jpg" />
 </div>
 
 
@@ -181,7 +210,7 @@ Bireli Lagrene - Inferno (1987) Blue Note [FLAC|Lossless|tracks + .cue] <Jazz Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500657.jpg" />
 </div>
 
 
@@ -210,7 +239,7 @@ London, Meader, Pramuk & Ross - The Royal Bopsters Project (2015) [FLAC|tracks|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500633.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ Altered Five Blues Band - Holler If You Hear Me (2021) [FLAC|Lossless|image + .c
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500589.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ Bill Bruford - Making a Song and Dance: A Complete-Career Collection (2022) Box 
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500581.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ VA - Witches of Jazz (2015) [MP3|320 кб/с]<Jazz, Lounge>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500549.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ Art Pepper & The Hollywood All-Stars - Art Standards (1979 - 1982) 2002, Galaxy 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500497.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ VA - Jazz Ladies & Stan Kenton (1996) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500436.jpg" />
 </div>
 
 
@@ -390,7 +419,7 @@ Hot Chocolate - Box Selection: Their 8 RAK Albums 1974-1983 (2011, Remastered) [
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500101.jpg" />
 </div>
 
 
@@ -420,7 +449,7 @@ Max Roach Double Quartet - Bright Moments (1987) Soul Note [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499750.jpg" />
 </div>
 
 
@@ -449,7 +478,7 @@ Max Roach Double Quartet - Easy Winners (1985) Soul Note [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499744.jpg" />
 </div>
 
 
@@ -478,7 +507,7 @@ DC Carnes - Delta Crossroads - Vol II (2022) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499716.jpg" />
 </div>
 
 
@@ -507,7 +536,7 @@ Dylan Triplett - Who Is He? (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499712.jpg" />
 </div>
 
 
@@ -536,7 +565,7 @@ Seth Loveless - Win or Lose (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499710.jpg" />
 </div>
 
 
@@ -565,7 +594,7 @@ Dennis Johnson - Revelation (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499709.jpg" />
 </div>
 
 
@@ -594,7 +623,7 @@ Patty Tuite - Hard Case Of The Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499707.jpg" />
 </div>
 
 
@@ -623,7 +652,7 @@ Kozmic Blue - Odyssee Blue (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499706.jpg" />
 </div>
 
 
@@ -652,7 +681,7 @@ Mick Kolassa - I'm Just Getting Started! (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499703.jpg" />
 </div>
 
 
@@ -681,7 +710,7 @@ Ron D Bowes - Nymphomania Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499679.jpg" />
 </div>
 
 
@@ -710,7 +739,7 @@ Eva Carboni - Smoke and Mirrors (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499675.jpg" />
 </div>
 
 
@@ -724,35 +753,6 @@ Eva Carboni - Smoke and Mirrors (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1159A2938A3A3BAA10307AAF72C2F420BE310247
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564651   (499668) от 19.07.2022
-
-V.A. - The Power of Love Soulful Easy Jazz Instrumentals (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion - Fade into the Sunset
-02. eJazz Artistry - I Can't Stop Loving You
-03. Chillaxonic - Dream into Reality
-04. Kool&Klean - Share My Life(   Читать дальше...   )Жанр: Smooth Jazz, Easy ListeningПродолжительность: 01:16:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22E1B02D3159D000DB654A6366FC77DC5EDD01CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,133 @@
+###  Публикация: 1447115   (1026658) от 12.03.2021
+
+Особые приметы: красавчик / Segni particolari: bellissimo (1983) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Писатель Матиа - неотразимый красавец, на которого вешаются все женщины. Он платит своей соседке, прекрасной и юной Микаэле, чтобы та под видом его дочери забраковывала всех, кто хочет затащить его под венец...Производство: Италия / Rual CinemaЖанр: КомедияРежиссер: Франко Кастеллано, Джузеппе МоччиаАктеры: Адриано Челентано, Федерика Моро, Джанни Бонагура, Симона Мариани, Анна Канакис, Тиберио Мурджа, Кэтлин Квуае, Джакомо Росселли, Мишела Альбанезе, Антонелла РобустеллиПеревод: Авторский, А.МудровСубтитры: ОтсутствуютПродолжительность: 01:27:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80CF1F19205E8D744F1C92BCFD10ADA8CAAFF69D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447159   (1026528) от 13.03.2021
+
+Козырной туз / I quattro dell'Ave Maria (1968) WEB-DLRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026528.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того, как Какопоулос ухитрился спастись от виселицы по ложному обвинению, он грабит на крупную сумму Кэта Стивенса и Хатча Бэсси. К тому же крадет их лошадей. В результате развеселого и бесшабашного преследования Стивенс и Бэсси становятся невольными союзниками Какопоулоса в разборках с бандой, подставившей его.Производство: Италия / Cronocinematografica S.p.a., San MarcoЖанр: Комедия, ВестернРежиссер: Джузеппе КолицциАктеры: Илай Уоллак, Теренс Хилл, Бад Спенсер, Брок Питерс, Кевин МакКарти, Ливио Лоренцон, Стеффен Захариас, Тиффани Хойвелд, Армандо Бандини, Ремо КапитаниПеревод: Одноголосый профессиональныйСубтитры: Английские (Full, SDH)Продолжительность: 02:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C97D33623DB050A9317DF751421B0349916AC02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447253   (1026096) от 16.03.2021
+
+Подозреваемый / The Suspect (1944) BDRip [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026096.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1902 году в Лондоне несчастливый в браке Филипп Маршалл встречает юную Мэри Грей, безработную и подавленную. Они становятся хорошими друзьями (и только друзьями), но об их отношениях узнает жена Филиппа, которая грозит ему разоблачением и скандалом.Производство: США, Universal PicturesЖанр: Драма, триллерРежиссер: Роберт СиодмакАктеры: Чарльз Лотон, Элла Рейнес, Дин Хэйренс, Стэнли Риджес, Генри Дэниелл, Розалинд Иван, Молли Ламонт, Рэймонд Сэверн, Ив Эмбер, Мод ЭбёрнПеревод: Авторский (Дмитрий Есарев)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F39F22CC091940D39EDDB5AF486E5C38D4DDB5B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447330   (1025925) от 17.03.2021
+
+Пижамная игра / The Pajama Game (1957) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025925.jpg" />
+</div>
+
+
+###  Подробнее
+
+На фабрику по пошиву пижам «Спокойных снов!» приходит новый управляющий Сид Сорокин. Здесь он знакомится с представителем комитета по жалобам Бэйб Уильямс. Между ними возникает роман. В это время местный профсоюз начинает активную борьбу за надбавку в 7,5 центов. Сид и Бэйб оказываются по разные стороны баррикад.Производство: США / Warner Bros.Жанр: Мюзикл, Драма, Мелодрама, КомедияРежиссер: Джордж Эбботт, Стэнли ДоненАктеры: Дорис Дэй, Джон Райт, Кэрол Хейни, Эдди Фой мл., Рита Шоу, Барбара Николс, Тельма Пелиш, Джек Строу, Ральф Данн, Оуэн МартинПеревод: Одноголосый любительский, binjakСубтитры: РусскиеПродолжительность: 01:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7C3C2A06C83431FF537EF69BB895830151823FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447588   (1025719) от 18.03.2021
+
+Женщина с реки / La donna del fiume (1954) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Героиня работает на рубке сахарного тростника. Ей приходится преодолевать превратности жизни, чтобы одной воспитывать своего незаконнорожденного двухлетнего сына.Производство: Италия, Франция / Excelsa Film, Les Films du Centaure, Ponti-De Laurentiis CinematograficaЖанр: ДрамаРежиссер: Марио СольдатиАктеры: Софи Лорен, Жерар Ури, Лизе Бурден, Рик Батталья, Энрико Оливьери, Гуидо Челано, Эдвард Флеминг, Нино Маркетти, Миммо ПальмараПеревод: Одноголосый любительский, Никита "Stalk" КирдинСубтитры: ОтсутствуютПродолжительность: 01:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F4F1EB5770D9FC87CFB2D0B1A0391DCA06718C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448176   (1025592) от 19.03.2021
 
 Дочь землекопа / La fille du puisatier (1940) BDRip [AVO]
@@ -6,7 +136,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025592.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025587.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025438.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025057.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024851.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024544.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024360.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023926.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023776.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023566.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023402.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023249.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023191.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023065.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022420.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022046.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021914.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021711.jpg" />
 </div>
 
 
@@ -476,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021698.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021363.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021138.jpg" />
 </div>
 
 
@@ -539,143 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76A8099F1F3B8A66CF654D4A44954194CB69468A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452839   (1021101) от 14.04.2021
-
-Война миров / The War of the Worlds (1953) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021101.jpg" />
-</div>
-
-
-###  Подробнее
-
-На окраине маленького городка упал метеорит. Это событие будоражит воображение местных жителей. Это же первый Контакт, но... марсиане пришли не с миром. Долгое время они пристально изучали землю, чтобы начать вторжение. Всего за пару дней все города были разрушены, армии всего мира потерпели поражение.
-Кажется, что гибель человечества неизбежна. Спасения нет! А доктор (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: Фантастика, Боевик, ТриллерРежиссер: Байрон ХэскинАктеры: Джин Бэрри, Энн Робинсон, Лес Тремейн, Роберт Корнтуэйт, Сандро Джильо, Льюис Мартин, Хаусли Стивенсон мл., Пол Фрис, Уильям Фиппс, Вернон РичПеревод: Двуголосый профессиональныйСубтитры: Русские, английскиеПродолжительность: 01:25:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BB7341E7952BFBF8FBDE8EB200E165A979A68AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453940   (1020959) от 15.04.2021
-
-Карусель / La ronde (1964) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020959.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о людях, вступающих в любовные отношения, которые в конце концов образуют цепочку, и всё возвращается на круги своя. События происходят в день, когда в Сараево убивают эрцгерцога Фердинанда. Вот-вот грянет Первая мировая война, но об этом пока никто не знает.Производство: Франция, Италия / Interopa Film, Paris Film Productions, Société Nouvelle Pathé CinémaЖанр: Драма, ИсторияРежиссер: Роже ВадимАктеры: Жан-Клод Бриали, Франсин Берже, Мари Дюбуа, Джейн Фонда, Клод Жиро, Анна Карина, Бернард Ноэль, Морис Роне, Жан Сорель, Катрин СпаакПеревод: Одноголосый любительский, binjakСубтитры: РусскиеПродолжительность: 01:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9868BB301226C2A957E45C5A8FF116E06001349C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454291   (1020577) от 17.04.2021
-
-Война за веру: Полководец / Ян Жижка / Jan Zizka (1957) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020577.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивах произведений чешского писателя и драматурга Алоиса Ирасека. Грандиозная историческая эпопея Отакара Вавры, основанная на реальных событиях из средневековой европейской истории, досконально воспроизводит колорит той эпохи.Исторический цикл состоит из трех фильмов.
-Фильм 2-й.
-Фильм повествует о начале гуситского движения, восстание в Праге, первой пражской (   Читать дальше...   )Производство: Чехословакия / Studio Umeleckých Filmu PrahaЖанр: Драма, Военный, ИсторияРежиссер: Отакар ВавраАктеры: Зденек Штепанек, Франтишек Хорак, Карел Хёгер, Власта Матулова, Ладислав Пешек, Ян Пивец, Вацлав Воска, Витезслав Вейражка, Густав Хильмар, Милош КопецкиПеревод: Двуголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92B0CD0CCA7DFBC626E74EB139DEC4D4ADD5B4AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454288   (1020571) от 17.04.2021
-
-Война за веру: Магистр / Ян Гус / Jan Hus (1955) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020571.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивах произведений чешского писателя и драматурга Алоиса Ирасека. Грандиозная историческая эпопея Отакара Вавры, основанная на реальных событиях из средневековой европейской истории, досконально воспроизводит колорит той эпохи. Исторический цикл состоит из трех фильмов.
-Фильм 1-й
-Декан Пражского университета Ян Гус выступил против злоупотреблений церкви, покупки (   Читать дальше...   )Производство: Чехословакия / Studio Umeleckých Filmu PrahaЖанр: Драма, ИсторияРежиссер: Отакар ВавраАктеры: Зденек Штепанек, Карел Хёгер, Власта Матулова, Ладислав Пешек, Густав Хильмар, Витезслав Вейражка, Эдуард Когоут, Бедржих Карен, Франтишек Смолик, Отомар КрейчаПеревод: Двуголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:55:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DC1F5EC87A226F2DB57064D8E75D88D92D09510
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454298   (1020220) от 19.04.2021
-
-Война за веру: Против всех / Proti vsem (1957) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020220.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивах произведений чешского писателя и драматурга Алоиса Ирасека. Грандиозная историческая эпопея Отакара Вавры, основанная на реальных событиях из средневековой европейской истории, досконально воспроизводит колорит той эпохи.Исторический цикл состоит из трех фильмов.
-Фильм 3-й
-Год 1420. Гуситская революция охватила всю страну, хотя пражане видели в императоре (   Читать дальше...   )Производство: Чехословакия / Filmové Studio BarrandovЖанр: Драма, Военный, ИсторияРежиссер: Отакар ВавраАктеры: Зденек Штепанек, Густав Хильмар, Власта Матулова, Бедржих Карен, Ян Пивец, Мирослав Долезал, Вацлав Воска, Яна Рыбарова, Петр Ганичинец, Станислав НойманнПеревод: Двуголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31F68AFE6E14FD5E7EF8E52AC39B6986A3D93AC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

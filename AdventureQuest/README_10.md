@@ -1,3 +1,107 @@
+###  Публикация: 1349419   (1004398) от 01.01.2020
+
+A Plague Tale: Innocence (2019) [Ru/Multi] (1.07/dlc) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004398.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Plague Tale: Innocence – это невероятный средневековый мир, благодаря поразительным декорациям и таланту опытных разработчиков оживающий под незабываемую музыку, что пробирает до глубины души. Осмелитесь ли вы открыть ужасающую страницу историиТип издания: LicenseРазработчик: Asobo StudioЖанр: Adventure, Action, Stealth, 3rd PersonЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6DC97C0058B39CE92A83EC1829C07E56A60D589
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349614   (1004186) от 02.01.2020
+
+Back to the Future: The Game (2010) [Multi] (1.0.0.8) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Back to the Future — компьютерная игра в жанре квест, разработанная "Telltale Games" по мотивам одноимённой кинотрилогии. Автор сценария трилогии Боб Гейл помогал авторам студии Энди Харцеллу и Майклу Стеммлу в разработке сюжета, а Майкл Джей Фокс и Кристофер Ллойд позволили использовать образы, сыгранные ими в кино.   Кроме того, Кристофер Ллойд вновь озвучил (   Читать дальше...   )Тип издания: LicenseРазработчик: Telltale GamesЖанр: Фантастика, Приключение, КвестЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF5251B3C632A42FEAA2960DCC71148B9E9A151F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487110   (1003974) от 03.08.2021
+
+Submerged (2015) [Ru/Multi] (1.1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Submerged — приключение от третьего лица, действие которого происходит в затонувших руинах прекрасного мира. Возьмите на себя роль Мику (Miku) и Таку (Taku) — один проклят таинственной силой, а другая полна решимости спасти брата и не позволить проклятью разлучить их.Тип издания: RepackРазработчик: Uppercut Games Pty LtdЖанр: Adventure, Action, RPG, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E130FC940479781DD93859042C7466309363D51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349880   (1003925) от 03.01.2020
+
+Secret Files: Tunguska (2009) [En] (1.02) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разгадайте одну из величайших загадок нашего времени! 30 июня 1908 года в Сибири в районе реки Подкаменная Тунгуска произошел гигантский взрыв. Сила взрыва была в 1000 раз больше того, что уничтожил Хиросиму. На площади более 2000 квадратных километров лес был практически уничтожен, вековые деревья валились, как спички. Звук взрыва был слышен почти за 1000 километров (   Читать дальше...   )Тип издания: LicenseРазработчик: Animation ArtsЖанр: Приключение, Квест, СовременностьЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A11848A15CE221BA58BD9A87A63C0E4C47A7DEEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487215   (1003752) от 04.08.2021
 
 A Bird Story (2014) [Ru/Multi] (1.0) License GOG
@@ -6,7 +110,7 @@ A Bird Story (2014) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003752.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Svoboda 1945: Liberation (2021) [Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003701.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.4.50233) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003386.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (Build 18208471) Repack Other
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003361.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ The Great Ace Attorney Chronicles (2021) [En] (Build 6837188) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003210.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Outer Wilds (2019) [Ru/Multi] (1.0.4.240) Repack Mr_Weegley
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003100.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Deponia Doomsday (2016) [Ru/Multi] (1.2.0267/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002752.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Almost My Floor (2021) [Ru/En] (1.0.1) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002709.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Lone Survivor: The Director's Cut (2012) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002251.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Mythic Ocean (2020) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002114.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Foreclosed (2021) [Ru/Multi] (7174262) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001661.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Dark Fall: Ghost Vigil (2020) [En] (1.0) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001503.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Trine 4: The Nightmare Prince (2019) [Ru/Multi] (1.0.0.8236/dlc) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001491.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Demon's Residence (2021) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001105.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Botanicula [Ru/En] (Repack/1.0.0.7) 2012 | Fenixx
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998450.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ Dracula: Origin / Охотник на Дракулу [Ru] (RePack/1.0) 2008 | Au
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997112.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ Dracula. Origin / Охотник на Дракулу [Ru] (Repack) 2008 | Fenixx
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996600.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ Sherlock Holmes vs. Jack the Ripper / Шерлок Холмс против Дж�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996571.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ Tormentum - Dark Sorrow (2015) [Ru/Multi] (1.4.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989650.jpg" />
 </div>
 
 
@@ -505,7 +609,7 @@ Last Day of June (2017) [Ru/Multi] (5.6.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989594.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ Unmechanical [Ru/En] (RePack) 2012 | R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988846.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ Phineas and Ferb: New Inventions / Финес и Ферб. Новые изобр
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988800.jpg" />
 </div>
 
 
@@ -569,110 +673,6 @@ Phineas and Ferb: New Inventions / Финес и Ферб. Новые изобр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:654F0F8D7B8892369D2CADA2718A0D410988008F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354308   (988751) от 21.01.2020
-
-Brothers - A Tale of Two Sons (2013) [Ru/Multi] (1.0/upd1) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Управляйте двумя братьями в сказочном приключении от мечтательного шведского режиссера Джозефа Фареса и первоклассного разработчика Starbreeze Studios. В инновационном одиночном режиме вам придется управлять сразу двумя братьями. Решайте головоломки, исследуйте игровые зоны и сражайтесь с боссами, управляя каждым братом с помощью своего мини-джойстика. Один мужчина (   Читать дальше...   )Тип издания: RepackРазработчик: Starbreeze Studios ABЖанр: Adventure, Action (Puzzle), 3DЯзык озвучки: Искусственный (Conlang)Язык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7CF2B1194EE36CC40916035A7598ADDCE8D45C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354846   (985779) от 24.01.2020
-
-HellScape: Two Brothers (2020) [Multi] (1.0) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hellscape: Two Brothers - это путешествие через ад, вдохновленное Божественной комедией Данте Алигьери. Два брата берут на себя задачу найти и спасти свою сестру, похищенную слугами дьявола. По мере продвижения через сражайтесь с демонами и исследуйте круги Ада, соберите информацию, чтобы разгадать историю исчезновения сестры.Тип издания: LicenseРазработчик: B100 GamesЖанр: Action, Adventure, LinearЯзык субтитров: Английский, Турецкий, Испанский, НемецкийЯзык интерфейса: Английский, Турецкий, Испанский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85040EC3A57E3538478884338568D71CA9930DF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355359   (983238) от 26.01.2020
-
-Path of Zen (2020) [En] (1.0) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983238.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Path of Zen» - это приключение, которое приводит игрока к спокойной прогулке по парку, где он исследует, как его мысли могут влиять на восприятие реальности. Игра представляет собой небольшое введение в медитацию с помощью короткого дыхательного упражнения и призвана дать игроку осознанный взгляд на то, как он можем справляться со своими мыслями. Присоединяйтесь (   Читать дальше...   )Тип издания: LicenseРазработчик: Longest Road StudioЖанр: Приключения, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DC4E4C1D9A94EF6A9B29C447D436994DB7004B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355345   (983142) от 26.01.2020
-
-Runner Heroes: The curse of night and day (2020) [Ru/Multi] (1.0) License HOODLUM
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983142.jpg" />
-</div>
-
-
-###  Подробнее
-
-RUNNER HEROES - это уникальное приключение, в котором вы управляете двумя персонажами одновременно. Откройте тайну проклятия героев, которое проявляется для одного ночью, для другого - днем. Веселье и мистические приключения на полной скорости через 47 уровней. Принимаете ли вы вызов?Тип издания: LicenseРазработчик: IKIGAI PlayЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08F73E9BB79C37C6A667CE24BADCE353EEE27D60
 ```
 
 https://mybot314.ru/tekegram_catalog/

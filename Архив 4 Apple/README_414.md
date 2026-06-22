@@ -1,3 +1,58 @@
+###  Публикация: 1415894   (372002) от 14.10.2020
+
+Airy 3.19.305 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Airy — YouTube загрузчик
+Если вам очень понравилось видео на YouTube и вы хотели бы, чтобы доступ к нему не зависил от вашего подключения к Интернет - вам поможет Airy. Airy - это YouTube загрузчик для Mac номер один, который с легкостью сохранит любое YouTube видео прямо на ваш компьютер. Полностью поддерживает Sierra.
+
+Простой и аккуратный Mac YouTube загрузчик (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.10.2020Разработчик: Eltima SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB31B69F7742485FDE5BD82724E1BF6686F5C96D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327587   (371983) от 26.09.2019
+
+Adobe Audition CC 2019 v12.1.4[Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для работы с аудио-данными Adobe Audition представляет собой профессиональный инструмент для специалистов, которые работают в сфере обработки аудио и видеопродукции, предлагая им практически неограниченные возможности. Простота использования прекрасно сочетается с гибкостью работы, позволяя создавать мастер-копии высочайшего класса, редактировать, микшировать, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Adobe Systems IncПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA9AB4CCB70833838E63C7B7B618DE7E404B4329
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950150   (371979) от 25.10.2015
 
 iStat Menus 5.11 (636) [Multi/Ru]
@@ -6,7 +61,7 @@ iStat Menus 5.11 (636) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371979.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ SwitchGlass 1.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371933.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ MovieMator Video Editor Pro 3.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371925.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ Notability 4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371920.jpg" />
 </div>
 
 
@@ -115,7 +170,7 @@ JixiPix Premium Pack 1.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371913.jpg" />
 </div>
 
 
@@ -141,7 +196,7 @@ Disk Doctor: System Cleaner 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371766.jpg" />
 </div>
 
 
@@ -167,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371620.jpg" />
 </div>
 
 
@@ -193,7 +248,7 @@ LilyView 1.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371536.jpg" />
 </div>
 
 
@@ -220,7 +275,7 @@ Divvy 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371396.jpg" />
 </div>
 
 
@@ -248,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371356.jpg" />
 </div>
 
 
@@ -274,7 +329,7 @@ Parallels Desktop for Mac Business Edition 13.1.1 (43120) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371352.jpg" />
 </div>
 
 
@@ -302,7 +357,7 @@ This Is the Police v.1.1.3.0 (2016) [Multi/Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371238.jpg" />
 </div>
 
 
@@ -328,7 +383,7 @@ Adobe Photoshop Lightroom Classic CC v7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371234.jpg" />
 </div>
 
 
@@ -354,7 +409,7 @@ Red Giant Magic Bullet Suite 13.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371232.jpg" />
 </div>
 
 
@@ -380,7 +435,7 @@ Tab Launcher 2.9.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371163.jpg" />
 </div>
 
 
@@ -408,7 +463,7 @@ Movist 2 v2.0.0 b21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370976.jpg" />
 </div>
 
 
@@ -436,7 +491,7 @@ PDFelement Express 0.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370974.jpg" />
 </div>
 
 
@@ -462,7 +517,7 @@ BetterZip 4.2 (1434) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370972.jpg" />
 </div>
 
 
@@ -490,7 +545,7 @@ SQLPro Studio 1.0.309 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370970.jpg" />
 </div>
 
 
@@ -516,7 +571,7 @@ iTubeDownloader 6 v6.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370960.jpg" />
 </div>
 
 
@@ -544,7 +599,7 @@ MediaHuman YouTube Downloader 3.9.9.7 (1310) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370956.jpg" />
 </div>
 
 
@@ -573,7 +628,7 @@ iPulse 3 v3.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370952.jpg" />
 </div>
 
 
@@ -599,7 +654,7 @@ Artstudio Pro 1.3.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370824.jpg" />
 </div>
 
 
@@ -625,7 +680,7 @@ Librarian Pro 4 v4.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370823.jpg" />
 </div>
 
 
@@ -636,60 +691,6 @@ Librarian Pro 4 v4.0.6 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:501DE514A443EF10C396164AF99ED12C0758061E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254729   (370822) от 15.10.2018
-
-Algoriddim djay Pro 2 (Complete FX Pack) 2.0.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370822.jpg" />
-</div>
-
-
-###  Подробнее
-
-djay Pro обеспечивает полный инструментарий для выполнения ди-джеев. Его уникальный современный интерфейс создан вокруг сложной интеграции с iTunes и Spotify, предоставив Вам мгновенный доступ к миллионам дорожек. Нетронутое качество звука и мощный набор функций включая формы волны высокой четкости, четыре деки, звуковые эффекты и аппаратную интеграцию дают Вам бесконечную (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.09.2018Разработчик: Algoriddim GmbHПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Испанский, Итальянский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE715CED679F85326105EE121DD2F44B4A58C230
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254874   (370816) от 15.10.2018
-
-Alarm Clock Pro 11.0.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приходилось ли вам слышать такое выражение как хронофаги? Так называют людей, которые ничего никогда не успевают. Как вы думаете, почему? Да потому что не умеют планировать свои дела! А ведь именно планирование является одним из залогов успеха во всех делах и гарантией того, что они будут исполнены в сро
-
-Alarm Clock Pro представляет собой многофункциональный будильник (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.10.2018Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E235B4C254C97F7DCCA84AFA460EE1B05BD646B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

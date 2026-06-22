@@ -1,124 +1,3 @@
-###  Публикация: 1173899   (389056) от 13.10.2017
-
-Toshiko Akiyoshi Trio - Four Seasons (1990) 1999, Nippon Crown [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spring Is Here [06:57]
-02. Suddenly It Is Spring [06:21]
-03. Summer Time [05:01]
-04. Indian Summer [06:15](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B630814041B9C075A16D8814ACA02350A6EE5212
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173912   (389054) от 13.10.2017
-
-New York Unit - Tribute To George Adams (1993) King Record [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exodus [06:22]
-02. A Nightingale Sang In Berkeley Square [07:14]
-03. Fly Me To The Moon [05:59]
-04. Moritat [06:41](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:07:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71852B1A0092C2489C40021373874DEAA1950658
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252964   (388034) от 07.10.2018
-
-Willie Lewis - 1941 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Will I Do? [2:43]
-02. Happy Feet [3:05]
-03. Baby Ain't You Satisfied [3:04]
-04. Ti-Pi-Tin [3:09](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC51EFE12F9C1B34F16C7D04991FBCA923472F86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571718   (388019) от 07.11.2012
-
-Трио Сергея Жилина - Tchaikovsky In Jazz. Seasons 2009 (2009) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_388019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Декабрь. Святки (7:08)
-02. Январь. У камелька (4:03)
-03. Июнь. Баркарола (10:29)
-04. Март. Песня жаворонка (2:11)
-05. Октябрь. Осенняя песня (7:58)
-06. Апрель. Подснежник (4:04)
-07. Вальс цветов из балета 'Щелкунчик' (6:00)
-08. Февраль. Масленица (3:08)
-09. Ноябрь. На тройке (6:45)Жанр: JazzПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067494   (387928) от 29.10.2016
 
 Fred Hersch - Plays Rodgers & Hammerstein (1996) Nonesuch[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -127,7 +6,7 @@ Fred Hersch - Plays Rodgers & Hammerstein (1996) Nonesuch[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387928.jpg" />
 </div>
 
 
@@ -156,7 +35,7 @@ Slide Hampton - Explosion! The Sound Of Slide Hampton (1962) Remaster, 2013, War
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387924.jpg" />
 </div>
 
 
@@ -185,7 +64,7 @@ Nat King Cole - Crazy Rhythm! Live 1947-1948 (1947-1948) 1991, Vintage Jazz Clas
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387923.jpg" />
 </div>
 
 
@@ -214,7 +93,7 @@ Allen Farnham - Meets The RIAS Big Band (1996) 1998, Concord Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387890.jpg" />
 </div>
 
 
@@ -243,7 +122,7 @@ Louis Armstrong - Big Bands, Vol.2 (1931 - 1932) 1988, JSP Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387889.jpg" />
 </div>
 
 
@@ -272,7 +151,7 @@ Peter Bernstein - Brain Dance (1996) Criss Cross Jazz [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387884.jpg" />
 </div>
 
 
@@ -301,7 +180,7 @@ Nat King Cole - Tenderly (1951) 1996, The Entertainers[FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387828.jpg" />
 </div>
 
 
@@ -330,7 +209,7 @@ Stan Getz & Albert Dailey - Poetry (1983) 2001, Blue Note[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387827.jpg" />
 </div>
 
 
@@ -359,7 +238,7 @@ Mal Waldron - Meditations: Live at Dug (1972) 2016, Somethin' Cool [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387643.jpg" />
 </div>
 
 
@@ -388,7 +267,7 @@ Jessica Williams - Higher Standards (1997) Candid [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387642.jpg" />
 </div>
 
 
@@ -417,7 +296,7 @@ Rob Barron - From This Moment On (2020) [FLAC|Lossless|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387592.jpg" />
 </div>
 
 
@@ -447,7 +326,7 @@ Jessica Williams - In The Key Of Monk (1997) 1999, Jazz Focus [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387540.jpg" />
 </div>
 
 
@@ -476,7 +355,7 @@ Herbie Mann - Windows Opened & The Inspiration I Feel (1968) 2001, Collectables 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387433.jpg" />
 </div>
 
 
@@ -505,7 +384,7 @@ Randy Waldman - Superheroes (2018) BFM Jazz [FLAC|Lossless|tracks + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387431.jpg" />
 </div>
 
 
@@ -534,7 +413,7 @@ Linda Lavin - Love Notes (2020) Club 44 [FLAC|Lossless|tracks + .cue] <Vocal Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385705.jpg" />
 </div>
 
 
@@ -563,7 +442,7 @@ James Carter - J.C. on the Set (1994) Columbia [WavPack|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385575.jpg" />
 </div>
 
 
@@ -592,7 +471,7 @@ Eddie Heywood - 1946-1947 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385574.jpg" />
 </div>
 
 
@@ -621,7 +500,7 @@ John Pizzarelli  (featuring Daniel Jobim) - Sinatra & Jobim @ 50 (2017) [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385570.jpg" />
 </div>
 
 
@@ -650,7 +529,7 @@ Boney James - Honestly (2017) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385568.jpg" />
 </div>
 
 
@@ -679,7 +558,7 @@ Louie Bellson - Don't Stop Now! (1984) 1994, Capri Records [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385555.jpg" />
 </div>
 
 
@@ -708,7 +587,7 @@ Rebekka Bakken - Things You Leave Behind (2018) [FLAC|Lossless|WEB-DL|tracks] <C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385548.jpg" />
 </div>
 
 
@@ -737,7 +616,7 @@ Walt Weiskopf - A World Away (1993) 1995, Criss Cross Jazz[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385229.jpg" />
 </div>
 
 
@@ -751,6 +630,122 @@ Walt Weiskopf - A World Away (1993) 1995, Criss Cross Jazz[FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CC5689A9705FAFEA693234B4064FECFF9E91BDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326439   (385225) от 20.09.2019
+
+Gunnar Svensson - Head, Fingers & Heart (1995) Phono Suecia [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walkin' Feet [3:08]
+02. Hercules' Tune [3:17]
+03. The Topsy Theme [3:27]
+04. Karl Bertil Jonsson's Christmas Eve [5:19](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6776AFF1046958696AD15A0EC18A69B284993203
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326443   (385221) от 20.09.2019
+
+Mose Allison - Lessons In Living (1982) 1994, Discovery Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Mind [2:50]
+02. Wild Man on the Loose [2:22]
+03. Your Mind Is on Vacation [3:28]
+04. You Are My Sunshine [4:43](   Читать дальше...   )Жанр: Vocal Jazz, Soul JazzПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0ABBF05574B6D134145B8BA2829FB063ADCBD42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067888   (385053) от 30.10.2016
+
+Nat King Cole - This Is Nat King Cole (1951-1966) 2CD, 1995, EMI[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385053.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.When I Fall In Love [03:12]
+02.On The Street Where You Live [03:12]
+03.Ramblin' Rose [02:50](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2363F7758FEC69158720D29F04BA0B5AFC4E6151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 301958   (384974) от 20.09.2019
+
+Al Jarreau - 3 CD (1978-1986) [WavPack|Lossless]<Jazz Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thinkin' About It Too  3:18
+02. I'm Home  5:18
+03. Brite 'N' Bunny Babe  3:28
+04. I Do  4:22(   Читать дальше...   )Производство: ГерманияЖанр: Jazz VocalПродолжительность: 02:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E37ACCCA151155193FCA063E2D62D75E9936C50D
 ```
 
 https://mybot314.ru/tekegram_catalog/

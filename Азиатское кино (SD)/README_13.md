@@ -1,3 +1,81 @@
+###  Публикация: 1374523   (872201) от 10.04.2020
+
+Ип Ман 4 / Yip Man 4 (2019) HDRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Америка, 1960-е годы. Ип Ман прибывает в Сиэтл, где один из его учеников решил открыть школу вин-чун.Производство: Гонконг, Китай / Bullet Films, Mandarin Motion Pictures, Shanghai Bona Cultural MediaЖанр: Боевик, биография, драмаРежиссер: Уилсон ИпАктеры: Донни Йен, Дэнни Чань, У Юэ, Скотт Эдкинс, Ванесс У, Джим Лю, Кент Чэн, Пьер Нго, Адриан Вилер, Крис КоллинзПеревод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: Русские (Forced), английские (full)Продолжительность: 01:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:672F57305728673FC16F193896A28A114BACBCAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374824   (870598) от 11.04.2020
+
+Пылающий / Beoning / Burning (2018) BDRip [H.264] [PR]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой человек Ли Джон-су, ничем особо не занятый, встречает соседскую девушку Хэ-ми, с которой они вместе росли. Та собирается съездить в Африку и просит нового знакомого присмотреть за её кошкой, а возвращается из поездки не одна, а с состоятельным молодым человеком Беном. Однажды парочка приходит к Джон-су, и Бен рассказывает о своем тайном хобби. С этого момента (   Читать дальше...   )Производство: Корея Южная / Pine House Film, NHK, Now FilmsЖанр: детектив, триллер, драмаРежиссер: Ли Чхан-донАктеры: Ю А-ин, Чон Джон-со, Стивен Ян, Ким Су-гён, Чхве Сын-хо, Мун Сон-гын, Мин Бок-ки, Пан Хе-ра, Ли Бон-нён, Пак Сын-тхэПеревод: Дублированный (Back Board Cinema | DVD R5 НД Плэй)Субтитры: русские (полные)Продолжительность: 02:28:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFEF63A92E8212A98782726AAD71725A648F5334
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374831   (870509) от 11.04.2020
+
+Пылающий / Beoning / Burning (2018) BDRip [H.264]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой человек Ли Джон-су, ничем особо не занятый, встречает соседскую девушку Хэ-ми, с которой они вместе росли. Та собирается съездить в Африку и просит нового знакомого присмотреть за её кошкой, а возвращается из поездки не одна, а с состоятельным молодым человеком Беном. Однажды парочка приходит к Джон-су, и Бен рассказывает о своем тайном хобби. С этого момента (   Читать дальше...   )Производство: Корея Южная / Pine House Film, NHK, Now FilmsЖанр: детектив, триллер, драмаРежиссер: Ли Чхан-донАктеры: Ю А-ин, Чон Джон-со, Стивен Ян, Ким Су-гён, Чхве Сын-хо, Мун Сон-гын, Мин Бок-ки, Пан Хе-ра, Ли Бон-нён, Пак Сын-тхэПеревод: Дублированный (Back Board Cinema | DVD R5 НД Плэй)Субтитры: русские (полные), английские (полные, SDH)Продолжительность: 02:28:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB6CD3767C7B49D0B9770E746E7B1492F1DFA3A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496813   (869788) от 19.09.2021
 
 Лузеры, Фунуке покажет вам немного любви (Покажите свою несчастную любовь, трусы!) / Funuke domo, kanashimi no ai wo misero / Funuke Show Some Love, You Losers! (2007) BDRip [DVO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869788.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ J2: J Возмездие / J2: J Retribusi (2021) WEB-DLRip [AVO]
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869656.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868833.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868616.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867681.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867275.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867192.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867106.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866948.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866111.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865625.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865612.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865610.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865494.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865489.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865403.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865387.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865315.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865084.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865076.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864677.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864586.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863889.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28B906AB45A53DCCF41577AD231E07AB5520BE52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375773   (863866) от 15.04.2020
-
-Наш завтрашний рис / Bokura no gohan wa ashita de matteru / Our Meal for Tomorrow (2017) WEB-DLRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863866.jpg" />
-</div>
-
-
-###  Подробнее
-
-История семи лет отношений пары с момента знакомства и до долгожданной свадьбы. Они познакомились в школе. Рёта - тихий и отстраненный. Кохару - яркая и общительная. Но что-то все же сближает их, и они начинают встречаться.Производство: Япония / DubЖанр: Драма, мелодрамаРежиссер: Масахидэ ИтииАктеры: Юто Накадзима, Юко Араки, Карэн  Мияма, Аманэ Окаяма, Хаири Катагири, Тиэко МацубараПеревод: Двуголосый любительский (Asian Miracle Group)Субтитры: Английские - отдельным файломПродолжительность: 01:49:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A21FFE18644294A3F5F708BD322CAD4AB37A86D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375742   (863737) от 15.04.2020
-
-Брошенный кролик / Usagi Drop (2011) HDRip [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда тридцатилетний Дайкити возвращается домой на похороны своего деда, он встречает в саду незнакомую ему девочку по имени Рин. Его мать объясняет, что та является внебрачной дочерью умершего, а кто является её матерью — неизвестно. Никто из родственников не решается взять к себе и воспитывать девочку, и тогда это решает сделать Дайкити.Производство: Япония / Asahi Shimbun, Daiichi-Seihan, DubЖанр: Драма, комедия, мелодрамаРежиссер: Хироюки ТанакаАктеры: Мацуяма Кэнити, Карина, Мана Ашида, Миреи Киритани, Китаки Маю, Руйки Сато, Коу Аяно, Рио Кимура, Джанко Такахата, Чизуру ИкевакиПеревод: Многоголосый любительский (SHIZA Project); двухголосый любительский (RG Genshiken; RG AniFilm; RG GREEN TEA)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3419397C0BAB14B93595627890C02D353960ACB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375748   (863598) от 15.04.2020
-
-Сказки из тьмы, часть 1 / Mai lei yeh / Tales from the Dark 1 (2013) HDRip [AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альманах, состоящий из трех новелл, снятых по рассказам Лилиан Ли.Производство: Гонконг / EDKO Film Ltd., Movie Addict ProductionsЖанр: УжасыРежиссер: Фрут Чан, Чи-Нгай Ли, Саймон ЯмАктеры: Саймон Ям, Дженни Чан, Дада Чан, Келли Чен, Тони Люн Ка Фай, Черри Нган, Шоу Йин ЙинПеревод: Авторский (А.Дольский)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:52:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A18298BF4C90B8BA2719D503BFD827470ADEE7A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

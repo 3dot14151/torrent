@@ -6,7 +6,7 @@
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397296.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ JumpStart Advanced Preschool: StoryLand [5+ лет] (2013) [En] (3.2.0.61061) Un
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362241.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Biotopia / Биотопия [5+] (L) [Русский] (2003)
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336058.jpg" />
 </div>
 
 
@@ -79,34 +79,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 255140   (308095) от 04.12.2010
-
-Лунтик учит цифры [3+ лет] (P) [Ru] (2008)
-
->>Детские PC Игры
->>Развивающие Игры для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_308095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любознательный Лунтик приглашает девочек и мальчиков на веселые уроки счета!
-Вместе с Лунтиком в эпицентре невероятных событий окажутся и другие персонажи мультфильма «Лунный гость»: кузнечик Кузя, червяк Корней Корнеич и два хулигана – гусеницы Пупсень и Вупсень.
-Любимые герои предложат ребенку выполнить серию забавных заданий, чтобы продемонстрировать знание цифр. Если у малыша не получится выдержать испытание, ему предстоит другое, более простое.Тип издания: PЖанр: Детские развивающиеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 237699   (277049) от 08.11.2019
 
 Зырики. Легенда сказочного острова {7+} (L) [Ru] (2004)
@@ -115,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277049.jpg" />
 </div>
 
 
@@ -143,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274417.jpg" />
 </div>
 
 
@@ -169,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265192.jpg" />
 </div>
 
 
@@ -195,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257322.jpg" />
 </div>
 
 
@@ -221,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257011.jpg" />
 </div>
 
 
@@ -247,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255855.jpg" />
 </div>
 
 
@@ -273,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255827.jpg" />
 </div>
 
 
@@ -299,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191990.jpg" />
 </div>
 
 
@@ -325,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189083.jpg" />
 </div>
 
 
@@ -351,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89519.jpg" />
 </div>
 
 
@@ -377,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89502.jpg" />
 </div>
 
 
@@ -403,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89482.jpg" />
 </div>
 
 
@@ -429,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89475.jpg" />
 </div>
 
 
@@ -455,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88410.jpg" />
 </div>
 
 
@@ -481,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87481.jpg" />
 </div>
 
 
@@ -507,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86213.jpg" />
 </div>
 
 
@@ -533,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86182.jpg" />
 </div>
 
 
@@ -559,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86061.jpg" />
 </div>
 
 
@@ -585,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86031.jpg" />
 </div>
 
 
@@ -611,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86029.jpg" />
 </div>
 
 
@@ -637,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85414.jpg" />
 </div>
 
 
@@ -663,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85009.jpg" />
 </div>
 
 
@@ -674,6 +646,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B12F5867056C70D290178C9999277B25E994E87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474498   (84971) от 28.03.2012
+
+Весёлое обучение точным наукам / Alien Logic [5+] (L) [Ru] (2007)
+
+>>Детские PC Игры
+>>Развивающие Игры для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Математика, геометрия, логика... Когда-то и наш герой принимался зевать со смертной тоски, едва услышав эти занудные слова. Но однажды он круто изменил своё отношение к точным наукам -  после урока, который ему преподали инопланетяне. Со знанием цифр, фигур и законов мышления гуманоиды развили настолько сложные технологии, что теперь сами не могут в них разобраться! Пришельцам срочно нужна помощь молодого и гибкого разума, а значит твои приключения, юный землянин, только начинаются!Тип издания: ЛицензияРазработчик: EngieЖанр: Семейная\Для детейЯзык озвучки: Не требуетсяЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:719FF575B9D67850B7BA093B1163B0A8889A5B3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,293 @@
+###  Публикация: 1762498   (36049) от 26.11.2024
+
+Саграда (Соль Земли) - Преданность реальности (2023) [MP3|320 Kbps] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Камуфляжные времена
+02. Чаша (feat. Ария)
+03. Девочка с бедою (feat. 25/17)
+04. На шаг (feat. Кукрыниксы)(   Читать дальше...   )Жанр: RapПродолжительность: 00:24:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A0099C222AEB52C3ACB544591B9A87AC4162D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765106   (34609) от 10.12.2024
+
+VA - Chillhop Essentials Winter (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afroham, No Spirit – Way Home, ft. BAKERMAN (2:15)
+02. mommy, Sleepy Fish – Guitar Shop (2:13)
+03. Kupla, QMTZ – Cirrus (2:07)
+04. Psalm Trees – Breathe In, ft. less.people (2:54)(   Читать дальше...   )Жанр: Hip-Hop, Chillhop, Trip Hop, Jazz FusionПродолжительность: 01:13:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF247529B64F69DEC5B58496C1CC1AE48E1C95C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769220   (32824) от 27.12.2024
+
+VA - Russian Rapcore Vol. 1-2 (2008-2009) [FLAC|Lossless|tracks + .cue] <Rapcore>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Оскал Муравья - Дом, где я живу (3:57)
+02. ГрандШатлБанда - Ну-ка давай (3:22)
+03. Напасс - 140 ударов (3:03)
+04. E-SEX-T - Сны (3:45)(   Читать дальше...   )Жанр: RapcoreПродолжительность: 02:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:738EF9CB39186E433A560F44E31B97E2DF63A8CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780504   (26995) от 20.02.2025
+
+Невзатяг - Бубнеж (2015) [MP3|320 Kbps] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нет денег
+02. Велосипед
+03. Песня пиратов
+04. Пробирает жуть(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:24:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:663EF6B28FF2AC735BA48C675B45E203CD4A2CB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785084   (24685) от 14.03.2025
+
+Noize MC - Не все дома (2025) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не Все Дома
+02. Атлантида (feat. Дмитрий Емельянов)
+03. Криокамеры (feat. Монеточка, Витя Исаев)
+04. Страна Дождей(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A756898F44F7BE2BE8B170C1C0CCD9749026B774
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785075   (24679) от 14.03.2025
+
+Noize MC - Не все дома (2025) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не Все Дома
+02. Атлантида (feat. Дмитрий Емельянов)
+03. Криокамеры (feat. Монеточка, Витя Исаев)
+04. Страна Дождей(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62A88652CE0991FFE8A853C1CE0066F7DA71DACF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786236   (24159) от 19.03.2025
+
+VA - Chillhop Essentials Spring (2025) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mama Aiuto, Dan Gregory – Telegraph Hill (2:14)
+02. Gas-Lab, Guillaume Muschalle – Growing Season (2:52)
+03. El Train, G Mills – New Dae (2:31)
+04. Styles Davis, Venuz Beats – Pivot (3:41)(   Читать дальше...   )Жанр: Hip-Hop, Chillhop, Trip Hop, Jazz FusionПродолжительность: 01:14:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17AD176A864CD3C4168AB027472944FCA5C731FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790993   (21746) от 11.04.2025
+
+Onyx - Lower East Side (2025) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Blk Sknhds [2:02]
+02 - We Will Rob U [1:45]
+03 - America's Nightmare [3:13]
+04 - Stray Shots [3:17](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E9AF46A3108987D83AC1DE245EA71E9266A23D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800409   (15840) от 02.06.2025
+
+VA - Chillhop Timezones Nigeria (2025) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Afrobeats>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dunnie, Mac Kay – Ayọ̀ (2:16)
+02. Trill Xoe, JohnWav – Marina Blues (2:51)
+03. Lady Donli, Ruck P – Tarkwa Bay (2:06)
+04. Nsikak David, Ian Ewing – Lagos Sundown (2:28)(   Читать дальше...   )Жанр: Hip-Hop, Chillhop, Trip Hop, AfrobeatsПродолжительность: 00:57:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED4943E0A6371F9572358613DABDE52F685E3147
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801033   (15349) от 07.06.2025
+
+The Black Eyed Peas - Monkey Business (20th Anniversary Edition) (2025) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pump It (03:33)
+02. Don't Phunk With My Heart (04:00)
+03. My Style (04:28)
+04. Don't Lie (03:39)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 02:11:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8223D7F915CDA2CC400D3E52F7EFB93CFB50599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1814823   (5336) от 29.08.2025
 
 Скриптонит - Мультибрендовый (2018) Оригинальная версия [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
@@ -6,7 +296,7 @@
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5336.jpg" />
 </div>
 
 
@@ -32,7 +322,7 @@ King Diamond - Remember The Block (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4657.jpg" />
 </div>
 
 
@@ -61,7 +351,7 @@ Slimus - Спокойной ночи, малыши, Часть 3 (2025) [MP3|320
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4420.jpg" />
 </div>
 
 
@@ -90,7 +380,7 @@ VA - Chillhop Essentials Fall (2025) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chi
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4290.jpg" />
 </div>
 
 
@@ -119,7 +409,7 @@ Ice Cube - Man Up (2025) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2945.jpg" />
 </div>
 
 

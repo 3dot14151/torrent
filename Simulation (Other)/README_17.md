@@ -1,55 +1,3 @@
-###  Публикация: 1827999   (193266) от 23.10.2025
-
-Jacksmith: Weapons and Warriors (2025) [En] (1.0.1 Build 18571048) Repack Necros
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разжигайте кузницу и создавайте своё лучшее оружие в Jacksmith: Weapons and Warriors, приключении с перекованным оружием! В роли целеустремлённого кузнеца-ослика вы путешествуете по стране, но путь преграждают коварные монстры. Объедините местные воинские кланы и вооружите их изготовленными на заказ мечами, луками, щитами и другим оружием в полностью интерактивной (   Читать дальше...   )Тип издания: RepackРазработчик: Flipline StudiosЖанр: Экшены, Казуальные игры, Инди, Симуляторы, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58AA201D14E71618993E4E6E7AF518EC141F051D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657993   (191683) от 06.09.2023
-
-Parasocial (2023) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Parasocial - это не просто хоррор-игра, а симулятор жизни витуберши. Игрокам предстоит не только выживать в ужасающих условиях, но и заботиться о своем благополучии и популярности. Проводить трансляции, на которых они будут играть в разные игры, общаться с фанатами, отвечать на их вопросы и просьбы, а также получать донаты и подписки. Но среди зрителей могут быть (   Читать дальше...   )Тип издания: SceneРазработчик: Chilla's ArtЖанр: ИндиЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, Китайский, Вьетнамский и другиеЯзык интерфейса: Английский, Японский, Китайский, Вьетнамский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76EE0813BD3BA95D7C086606CB841834D588F1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652275   (191051) от 08.09.2023
 
 Terminal 81 (2023) [Ru/Multi] (1.2.7) Scene Tenoke
@@ -58,7 +6,7 @@ Terminal 81 (2023) [Ru/Multi] (1.2.7) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191051.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Think of The Children (2017) [En] (1.01.03) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190756.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ ABRISS - build to destroy (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189550.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Cold Waters (2017) [En] (1.15g) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_188631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188631.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Ship Graveyard Simulator 2 (2023) [Ru/Multi] (4607) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186525.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Hello Engineer: Scrap Machines Constructor (2023) [Ru/Multi] (1.3.13u802) Scene 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186509.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ Police Simulator: Patrol Officers (2022) [Ru/Multi] (7.3.0/dlc) Repack DjDI
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184725.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Crossroads Inn (2019) [Ru/Multi] (4.0.9d02/dlc) License GOG [Anniversary Edition
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178857.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ Staxel (2019) [Ru/Multi] (1.5.57) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177104.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ The Tenants (2021) [Ru/Multi] (1.2.9/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176229.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ Base One (2021) [Ru/Multi] (1.4.0.8_e41965c41) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175744.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ Thief Simulator 2 (2023) [Ru/Multi] (1.0) Repack DjDI
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174930.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ Thief Simulator 2 (2023) [Ru/Multi] (1.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174362.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ ABRISS - build to destroy (2023) [Ru/Multi] (1.0.12) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173432.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ Autobahn Police Simulator 3 (2022) [Ru/Multi] (1.3.3/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173286.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ Garden In! (2023) [Multi] (1.0.8) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172753.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ Ocean Pressure (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172726.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ Counter Terrorist Agency (2019) [Ru/Multi] (1.0.1) Repack R.G. Механики
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170782.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ Realpolitiks II (2021) [Ru/Multi] (1.09) License GOG [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170623.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ Urbek City Builder (2022) [Ru/Multi] (1.0.22.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168570.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ AirportSim (2023) [Multi] (1.0.7) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163889.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ Slay the Spire (2019) [Ru/Multi] (2.2) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162489.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ Unpacking (2021) [Ru/Multi] (1.41) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162244.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ Little Big Workshop (2019) [Ru/Multi] (2.0.14042.1/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161863.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ Little Big Workshop (2019) [Ru/Multi] (2.0.14042.1/dlc) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D74DCBE99EDC4E866D3B69E233B7068E8A20304
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674751   (160727) от 06.11.2023
+
+Parking Tycoon: Business Simulator (2023) [Ru/Multi] (2021.3.16.5719) Scene Tenoke
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Parking Tycoon: Business Simulator - стратегия, погружающая в мир управления автомобильными парковками. С самого начала вы получаете в свое распоряжение огромный участок земли, на котором создаете шумную парковочную империю. Вы начинаете свой путь со стратегического планирования, строительства и постоянной модернизации, чтобы ваши парковки не только привлекали клиентов, (   Читать дальше...   )Тип издания: SceneРазработчик: GeekonЖанр: Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:836540FCE4123DF51CC1568AD77D25D72C570801
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406858   (156559) от 18.12.2021
+
+Secret Government (2020) [Ru/Multi] (1.0.6.3) License GOG
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Secret Government — игра в жанре глобальной стратегии о тайном обществе, которое сотни лет незримо правит человечеством. Вы возглавите не какую-то отдельную страну, а Братство, - организацию, которая манипулирует всем миром. Вы будете рассылать своих агентов в различные государства. Внедряться в институты управления, чтобы выкачивать ресурсы и захватывать все больше (   Читать дальше...   )Тип издания: LicenseРазработчик: GameTrekЖанр: Инди, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Немецкий, КитайскийЯзык интерфейса: Русский, Английский, Немецкий, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FE749D7A03F655072E9EA1D61D7998D8F7995B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

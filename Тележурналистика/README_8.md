@@ -1,3 +1,109 @@
+###  Публикация: 978128   (964814) от 22.01.2016
+
+Линия защиты. Предсказание (2016.01.20) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они готовы предсказывать судьбы стран и целых народов! Пророки и ясновидящие. Что они снова нагадали России? Почему не заканчиваются "последние предсказания" Ванги и кто живет за счет знаменитой болгарской слепой? От Нострадамуса до Глобы. Что подскажут звезды? И как гороскоп в газете чуть не погубил целую деревню?Производство: РоссияТелекомпания: ТВЦЖанр: ДокументальныйПродолжительность: 00:25:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56F0F3785032A129F908ACF68F81987D066C12AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977889   (964803) от 22.01.2016
+
+Вести в 20-00. Большие Вести. Россия HD (21.01.2016) HDTVRip [720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964803.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире - смотрите в последних выпусках новостей телеканала «Россия».В этом выпуске: Лондон назначил виновных в отравлении Литвиненко. Почему процесс был закрытым, а ключевое слово в докладе "возможно". Зачем Британия эксгумирует это дело сегодня. И почему ключевых свидетелей больше нет в живых. Расследование Андрея Кондрашова. В Молдавии сменилось правительство. Оппозиция возмущена, на улицах митинги, драка за власть продолжается.Телекомпания: Россия HDЖанр: ТелепередачаПродолжительность: 00:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C44CCA6E5D6C275E918F3410F20C067E9002FA94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977867   (964797) от 22.01.2016
+
+Время. Первый канал 21-00 (21.01.2016) HDTVRip [720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Информационно-аналитическая программа Первого канала Время - выходит в эфир в 21:00 по Московскому времени. Производится Дирекцией информационных программ ОАО «Первый канал». Практически в первые годы вещания программы сформировалась концепция очерёдности подачи новостей, которая сохранилась до наших дней: первые лица государства, вести с периферии, экономика, культура, (   Читать дальше...   )Телекомпания: Первый каналЖанр: Информационно-аналитическая программаПродолжительность: 00:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB2537C11D6BC3BC68CCDC42FB5C47F35A00FF68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978060   (964707) от 22.01.2016
+
+Человек и закон (22.01.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трагедия в "Алых парусах". Почему это случилось. Кто вообще несет ответственность за состояние лифтового хозяйства по всей стране. Почему Ростехнадзор передал лифтовое хозяйство в частные руки. И кто теперь обязан контролировать, менять, штрафовать, наказывать за ненадлежащий уход. Что делать, если лифт падает.
+
+Правовой дайджест недели. Уфа. Сотрудники (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТелепередачаПродолжительность: 00:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90439D453106F4391B9C68574EDA730305C6FF3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978129   (964703) от 22.01.2016
 
 Осторожно, мошенники! Техника обмана (2016.01.19) SATRip
@@ -6,7 +112,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964703.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964349.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963722.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963721.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963565.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963429.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963182.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963043.jpg" />
 </div>
 
 
@@ -215,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962627.jpg" />
 </div>
 
 
@@ -242,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962518.jpg" />
 </div>
 
 
@@ -268,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962421.jpg" />
 </div>
 
 
@@ -294,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962298.jpg" />
 </div>
 
 
@@ -320,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961250.jpg" />
 </div>
 
 
@@ -347,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961195.jpg" />
 </div>
 
 
@@ -375,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960084.jpg" />
 </div>
 
 
@@ -402,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960082.jpg" />
 </div>
 
 
@@ -428,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959974.jpg" />
 </div>
 
 
@@ -454,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959855.jpg" />
 </div>
 
 
@@ -480,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959703.jpg" />
 </div>
 
 
@@ -506,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959663.jpg" />
 </div>
 
 
@@ -532,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959486.jpg" />
 </div>
 
 
@@ -558,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958590.jpg" />
 </div>
 
 
@@ -570,110 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D48956E549D2367BBD7F87ED7DD1B338474FEF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979937   (958588) от 27.01.2016
-
-Вести. Дежурная часть (27.01.2016) HDTVRip [720p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вести. Дежурная часть — программа на телеканале «Россия-1, в которой самые важные и интересные события подаются сквозь призму закона и права. «Вести. Дежурная часть» — это и социальные тенденции, и аналитика, и экспертная оценка происходящего. Наряду с собственными расследованиями и репортажами, в программе активно используются материалы, предоставленные МВД, МЧС, (   Читать дальше...   )В этом выпуске: На юге Москвы сын убил родителей и застрелился. Убийца промоутера дал признательные показания. Афера на 100 миллионов: офицеров подвели золотые парашюты. На территории женской исправительной колонии прапорщик застрелил майора. Замначальника отдела ГИБДД Воскресенского района спровоцировал серьезное ДТП.Телекомпания: Россия HDЖанр: ТелепередачаПродолжительность: 00:13:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:998D4D45E983250B05D866EBDBBDAF41E94DFD9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979616   (958586) от 27.01.2016
-
-Вести. Дежурная часть (26.01.2016) HDTVRip [720p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вести. Дежурная часть — программа на телеканале «Россия-1, в которой самые важные и интересные события подаются сквозь призму закона и права. «Вести. Дежурная часть» — это и социальные тенденции, и аналитика, и экспертная оценка происходящего. Наряду с собственными расследованиями и репортажами, в программе активно используются материалы, предоставленные МВД, МЧС, (   Читать дальше...   )В этом выпуске: За час в Москве угнаны два дорогих "Мерседеса" Gelandewagen. Кадры угона. В Оренбургской области депутат взорвал ручную гранату. Экс-руководителя Росграницы экстрадируют из Рима в Москву. Кадры, сделанные во время конвоирования подозреваемого в нападении на полицейского.Телекомпания: Россия HDЖанр: ТелепередачаПродолжительность: 00:12:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8634DB6C77101B5E49421A164E19B71595303AA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979604   (958585) от 27.01.2016
-
-Время. Первый канал 21-00 (26.01.2016) HDTVRip [720p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Информационно-аналитическая программа Первого канала Время - выходит в эфир в 21:00 по Московскому времени. Производится Дирекцией информационных программ ОАО «Первый канал». Практически в первые годы вещания программы сформировалась концепция очерёдности подачи новостей, которая сохранилась до наших дней: первые лица государства, вести с периферии, экономика, культура, (   Читать дальше...   )Телекомпания: Первый каналЖанр: Информационно-аналитическая программаПродолжительность: 00:54:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2908DA2369BB5AB1E9C88EACE1F92DDA58F4F6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979912   (958582) от 27.01.2016
-
-Линия защиты. Табор не уходит (2016.01.27) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как живётся, когда табор остановился прямо под вашими окнами? Танцы и пляски? Или драки и воровство, когда “лавэ нанэ”? По каким законам живут русские цыгане? Существуют ли на самом деле цыганские бароны? И чем сейчас занимается легендарный Яшка Цыган? Впервые они рассказывают о себе всё! Цыганские страсти в очередном выпуске "Линии защиты".Производство: РоссияТелекомпания: ТВЦЖанр: ДокументальныйПродолжительность: 00:25:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F2DF90BD70015B7A69D2801302B1E78BA797229
 ```
 
 https://mybot314.ru/tekegram_catalog/

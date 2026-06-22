@@ -1,3 +1,60 @@
+###  Публикация: 1184024   (303339) от 16.11.2017
+
+Things 3.2.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
+
+«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15 ноября 2017Разработчик: Cultured CodeПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD1A7B04A3149972EDF6F5C355D2571D166DFA78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184226   (303336) от 16.11.2017
+
+Lyn 1.9.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lyn - просмотрщик и браузер изображений
+Легкий, быстрй и удобный просмотрщик изображений, созданный в первую очередь для фотографов, иллюстраторов и графических дизайнеров.
+
+Lyn поддерживает все популярные графические форматы такие как JPEG, TIFF, JPEG 2000, PNG, TGA, RAW, HDR, OpenEXR, PPM, анимированный GIF и любой другой формат изображения, поддерживаемый Mac (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16 ноября 2017Разработчик: Mirko VivianiПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F0727C2CF191F4BD778B17A3D840E479D6156E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333565   (303282) от 25.10.2019
 
 Nik Complete 2 Collection by DxO 2.0.6 [Multi/Ru]
@@ -6,7 +63,7 @@ Nik Complete 2 Collection by DxO 2.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303282.jpg" />
 </div>
 
 
@@ -33,7 +90,7 @@ X Lossless Decoder 20151128 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303249.jpg" />
 </div>
 
 
@@ -62,7 +119,7 @@ SiteSucker 2.7.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303234.jpg" />
 </div>
 
 
@@ -91,7 +148,7 @@ iFinance 4.1.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303003.jpg" />
 </div>
 
 
@@ -117,7 +174,7 @@ TunesKit 3.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303000.jpg" />
 </div>
 
 
@@ -144,7 +201,7 @@ Paste 2.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302999.jpg" />
 </div>
 
 
@@ -172,7 +229,7 @@ Archiver 2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302918.jpg" />
 </div>
 
 
@@ -201,7 +258,7 @@ SketchUp Pro 2018 v18.0.16976 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302883.jpg" />
 </div>
 
 
@@ -227,7 +284,7 @@ SteerMouse 5.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302837.jpg" />
 </div>
 
 
@@ -253,7 +310,7 @@ Renamer 5.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302830.jpg" />
 </div>
 
 
@@ -281,7 +338,7 @@ Capture One Pro 9.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302756.jpg" />
 </div>
 
 
@@ -308,7 +365,7 @@ Image Exif Editor 2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302636.jpg" />
 </div>
 
 
@@ -337,7 +394,7 @@ xScope 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302634.jpg" />
 </div>
 
 
@@ -364,7 +421,7 @@ BusyCal 3 v3.11.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302627.jpg" />
 </div>
 
 
@@ -391,7 +448,7 @@ Amadeus Pro 2.8.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302625.jpg" />
 </div>
 
 
@@ -417,7 +474,7 @@ OmniOutliner Pro 5 v5.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302431.jpg" />
 </div>
 
 
@@ -443,7 +500,7 @@ Things 3 v3.13.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_302407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_302407.jpg" />
 </div>
 
 
@@ -471,7 +528,7 @@ Allavsoft Video Downloader Converter 3.23.0.7621 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302397.jpg" />
 </div>
 
 
@@ -497,7 +554,7 @@ OmniGraffle Pro 7 v7.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302230.jpg" />
 </div>
 
 
@@ -523,7 +580,7 @@ OmniFocus Pro 3 v3.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302221.jpg" />
 </div>
 
 
@@ -551,7 +608,7 @@ VMware Fusion Pro 8.5.3 (4696910) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301781.jpg" />
 </div>
 
 
@@ -579,7 +636,7 @@ Apple Final Cut Pro X 10.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301678.jpg" />
 </div>
 
 
@@ -607,7 +664,7 @@ Cisdem AppCrypt 4.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301593.jpg" />
 </div>
 
 
@@ -635,7 +692,7 @@ GrandTotal 5 v5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301592.jpg" />
 </div>
 
 
@@ -648,60 +705,6 @@ GrandTotal прекрасно работает в сочетании с TimeLog.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AE0C22FD1E167D0838A9E5112A768FE6EB25F57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333756   (301584) от 26.10.2019
-
-DMG Canvas 3.0.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301584.jpg" />
-</div>
-
-
-###  Подробнее
-
-DMG Canvas создает образы дисков (.dmg). Процедура создания образа состоит из простого перетаскивания нужных файлов в окно приложения. В качестве фона можно использовать файл, созданный в графическом редакторе. Вы сразу видите результат таким как он будет выглядеть в Finder. Для создания готового образа нажмите кнопку Build. Данная утилита также позволяет добавлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24 октября 2019Разработчик: Araelium GroupПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36AFCBE24368D084805920FB175940917DEF5AB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184473   (301509) от 17.11.2017
-
-iExplorer 4.1.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ситуация, когда жизненно необходимо скачать какую-либо информацию с компьютера на внешний накопитель, знакома всем. Особенно это актуально как раз тогда, когда такого накопителя с собой почему-то нет. Но главное, чтобы под рукой был любимый i-девайс, потому что, в таком случае, решение указанной проблемы уже есть – это приложение iExplorer.
-
-iExplorer - утилита для (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 ноября 2017Разработчик: Macroplant LLC.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C658EEB085E7795BC8DF86675C088623DBAA25C
 ```
 
 https://mybot314.ru/tekegram_catalog/

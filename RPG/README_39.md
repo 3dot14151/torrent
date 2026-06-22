@@ -1,3 +1,107 @@
+###  Публикация: 1270152   (214906) от 17.12.2018
+
+Shieldwall Chronicles: Swords of the North (2018) [En] (1.0) License HOODLUM
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shieldwall Chronicles: Swords of the North — это игра в жанре rpg и стратегия, разрабатываемая Wave Light Games Inc. для платформы PC. Окружение в игре относится к cтилистике фэнтези, а выделить особенности можно следующие: стратегия, экшен, приключенческая игра, ролевая игра, инди, приключение. Вам будут доступны такие игровые режимы как «для одного игрока».Тип издания: LicenseРазработчик: Wave Light GamesЖанр: Strategy, RPG, 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:785CB44DFAB0549E06EAFB8819547DAD09214A7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118226   (214728) от 17.12.2018
+
+Vikings - Wolves of Midgard (2017) [Ru/Multi] (2.1) License PLAZA
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214728.jpg" />
+</div>
+
+
+###  Подробнее
+
+VIKINGS WOLVES OF MIDGARD™: Рагнарек. Легенда гласит, что когда начнется последняя зима, йотуны вернутся, чтобы отомстить богам Асгарда. Мир на грани краха, участь Мидгарда предрешена. Но когда огненные и ледяные великаны решили объединить свои армии, выяснилось, что им противостоит клан Ульфунга – волки Мидгарда.Тип издания: LicenseРазработчик: Games FarmЖанр: Action, RPGЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E8D4B9632D642B97EFAD802289615072ECB6568
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343901   (214191) от 08.12.2019
+
+Al-Qadim: The Genie's Curse (1994) [Multi] (1.0) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы – изгой, помолвленный с дочерью халифа, сын султана, чей род был некогда силен и могуществен, но лишился былой славы. Теперь вам предстоит сразиться с джиннами-повелителями, чтобы раз и навсегда восстановить доброе имя своего рода! Посетите загадочный мир игры Al-Qadim и приготовьтесь к стремительному развитию сюжета, аркадным боям и волнующему игровому процессу (   Читать дальше...   )Тип издания: LicenseРазработчик: Cyberlore StudiosЖанр: Ролевая игра, Экшн, ФэнтезиЯзык субтитров: Английский, Немецкий, Испанский, ФранцузскийЯзык интерфейса: Английский, Немецкий, Испанский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74625168E0A03ABB8710E654EE5F7021A7A3AA33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628473   (213989) от 17.08.2023
+
+Lightracer Spark (2023) [Multi] (1.2.2/dlc) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lightracer Spark - это приключенческая научно-фантастическая РПГ, которая отправит вас в путешествие по различным внеземным мирам. Ваша миссия, как амендера из высокой цивилизации, заключается в том, чтобы направить всех живых существ к процветанию или полностью остановить их рост. С каждым выбором и стратегией, которую вы делаете, вы накапливаете силу и получаете (   Читать дальше...   )Тип издания: SceneРазработчик: Smartmelon GamesЖанр: Инди, Ролевые игры, СтратегииЯзык субтитров: Английский, Китайский (упрощенный)Язык интерфейса: Английский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:086FCEC459C24AAA4279AE2E9325FDD1510B9073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562250   (212767) от 08.07.2022
 
 The Triumphant Return of Diabolos (2022) [Multi] (3/dlc) License GOG [18+]
@@ -6,7 +110,7 @@ The Triumphant Return of Diabolos (2022) [Multi] (3/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212767.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ World of Haiku (2022) [En] (1.0.0f5) License TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211329.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NeverHome - Hall of Apathy (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211031.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Monster Hunter Rise (2022) [Ru/Multi] (13.0.0.1/dlc) License EMPRESS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208126.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Legend of Grimrock (2012) [En] (1.3.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208105.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Spells of Gold / Заклятие (2002) [Ru/En] (1.042) Repack/Mod Foxx164
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207954.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ StarCrawlers (2017) [En] (1.1.4.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207920.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Sylphy and the Sleepless Island (2021) [Multi] (v1/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207629.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Class of '09 (2021) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207132.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Volcano Princess (2023) [Multi] (2.01.05) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207052.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Beacon Pines (2022) [En] (1.0.2) License GOG [Collector's Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206997.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Liberte (2023) [En] (1.0.2.b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206769.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ False Myth (2022) [Multi] (v3/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206629.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Shadow Flare (2002) [En] (1.0) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206016.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Nicktoons and The Dice of Destiny (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205707.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Heroes of Hammerwatch II (2025) [Ru/Multi] (Build 20392961) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205658.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ A Legionary's Life (2019) [Multi] (1.3.14.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205631.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ BorderZone / Пограничье (2005) [Ru/En] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205214.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Din's Legacy (2019) [En] (1.013) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204425.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Lust Academy Season 1 (2022) [Multi] (0.7.1f.002) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203196.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Monster Hunter Rise: Sunbreak (2022) [Ru/Multi] (13.0.0.1/dlc) Repack DjDI [Delu
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203058.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Fox Girls Never Play Dirty! (2021) [Multi] (v1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202742.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Fox Girls Never Play Dirty – это японская ролевая игра �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80823A2CBC4FD65813593D6369F953FD7696D859
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614099   (202524) от 21.02.2023
-
-Талисман (2003) [Ru] (1.0) License
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Талисман - это сочетание жанров экшен и RPG. По сюжету игры Талисман различные напасти постепенно ослабляют мир Талисмана - как междоусобные конфликты местных правителей, так и проявления нечистой силы. Но это кажется мелочами на фоне того, что пропала куда-то столица мира - древний город Кияж. Ваш персонаж, как житель Кияжа, чудом избежавший печальной участи, (   Читать дальше...   )Тип издания: LicenseРазработчик: Buka EntertainmentЖанр: Action, RPGЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7FA17AEDA5F8F3938BA0DB8109C41894E737D71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830483   (202471) от 26.10.2025
-
-Keep Driving (2025) [Ru/Multi] (1.3.1.0d) Repack Let'sРlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начало нулевых. Вы, сияя от гордости, плюхаетесь на сиденье своей первой тачки. Лето впереди - длинное, как шоссе, и такое же манящее. И тут внезапно ветром доносит весть о фестивале на краю света. Недолго думая, вы крутите ключ зажигания, сверяетесь с картой и пускаетесь в путь навстречу неизведанному. С Keep Driving вы перенесётесь в атмосферу неспешного роуд-трипа, (   Читать дальше...   )Тип издания: RepackРазработчик: YCJY GamesЖанр: Приключенческие игры, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A9DA71A609A63ECE3EACF655EE289E46EE1C228
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614705   (202336) от 23.02.2023
-
-Primitive Hearts (2023) [Multi] (v1/dlc) License GOG [18+]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одинокий странник возвращается в свой родной город после долгих странствий. Атака монстра приводит его в скрытую пещеру, где ему говорят, что мир в опасности... И он единственный, кто может его спасти. Путешествуйте по земле и сражайтесь с врагами в гонке на время. Можете ли вы и ваши товарищи защищитить Кристаллы от гнусных планов Империи? И как насчет таинственного (   Читать дальше...   )Тип издания: LicenseРазработчик: DOPPELGESICHTЖанр: Ролевая игра, Приключение, ДрaмаЯзык субтитров: Английский, КитайскийЯзык интерфейса: Английский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7B0BA3DD2E326CC0F23C0E6D17DB6BA82F04278
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329288   (202250) от 25.10.2025
-
-Queen's Wish: The Conqueror (2019) [En] (1.2) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Queen's Wish: The Conqueror - ролевая игра, выполненная в духе классических RPG конца прошлого века. История берет начало в тот момент, когда королева дает вам свободу взамен на поручение: восстановить Империю! Такое желание королевы. Отправляйтесь исследовать земли, сражаться с врагами и формировать устройство земель таким образом, чтобы вернуть ему былую славу.Тип издания: LicenseРазработчик: Spiderweb SoftwareЖанр: Ролевая игра, Пошаговая, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ED4950EC8F26C6B63B48FC6A0A32003B83AA51C
 ```
 
 https://mybot314.ru/tekegram_catalog/

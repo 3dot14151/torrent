@@ -1,241 +1,3 @@
-###  Публикация: 1776546   (29018) от 01.02.2025
-
-Сканер QR и штрих-кодов v3.2.3-P Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа представляет собой современный сканер QR- и штрих-кодов со всеми необходимыми вам функциями. Сканируйте любой QR-код или штрих-код, чтобы получить дополнительную информацию, в том числе результаты от популярных онлайн-сервисов; Amazon, eBay и Google!Тип издания: ModРелиз состоялся: 30.01.2025Разработчик: TeaCappsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:407324A8B5294DF643083794A0E38AE87FC63BC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777730   (28512) от 06.02.2025
-
-DRM-Play v1.56.2 Lite Mod by ajrys (обновление)  [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28512.jpg" />
-</div>
-
-
-###  Подробнее
-
-DRM-play — приложение для бесплатного просмотра 350 телеканалов. DRM-play представляется собой бесплатный мод популярного плеера ott-play by Alex. Функционал DRM-play аналогичен оригинальному плееру в т. ч. перечень поддерживаемых провайдеров, настройка архивов, программы передач для провайдеров и пользовательских плейлистов. Плеер использует несколько десятков источников (   Читать дальше...   )Тип издания: ModРелиз состоялся: 05.02.2025Разработчик: AlexПоддерживаемая ОС: Android  TV (4.1+)Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E827EEB78C233E70363A9586FF7C74D6B050A0F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777737   (28486) от 06.02.2025
-
-Радионет (радио онлайн) v2.06 Mod by Alex.Strannik [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаем вам воспользоваться нашим приложением для прослушивания FM и интернет-радиостанций онлайн. Где бы вы ни находились популярные радиостанции всегда будут звучать для вас в лучшем качестве. Более 1000 ведущих радиостанций на русском языке. Музыка, новости, юмор, детские, спорт и прочие тематики радиостанций. Оставляйте закладки на любимых станциях и добавляйте (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 05.02.2025Разработчик: Point.56Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:854D246DC9A96CF9FEAE57D502048AF006AC3FA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777745   (28447) от 06.02.2025
-
-Дыхательные упражнения v2.2.2 Mod by viktorovich31 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простое, но настраиваемое приложение для дыхательных упражнений и таймеров с минималистичным дизайном. Важный инструмент для практики дыхания, управляемого дыхания, глубокого дыхания или пранаямы.
-То, как мы дышим, влияет на то, как мы чувствуем и думаем. Практика дыхательных упражнений или работы с дыханием известна многими преимуществами, включая снижение стресса, (   Читать дальше...   )Тип издания: ProРелиз состоялся: 01.02.2025Разработчик: ATA AppПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:033F0F464FC6F525A6BC1C66A446B8E412115EE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778566   (28280) от 08.02.2025
-
-MIUI Hidden Settings Activity v1.6.6 Mod by TryRoom [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы можете использовать это приложение как средство изменения настроек, быстрый ярлык, разблокировать секретные настройки miui. Некоторые распространенные варианты использования: отключение приложения Miui, инженерный режим Xiaomi и Qualcomm, DNS miui 10, настройки специальных возможностей Mi, настройки VPN, изменение dpi Mi, увеличение частоты обновления 120 Гц, (   Читать дальше...   )Тип издания: Premium / ModРелиз состоялся: 29.03.2024Разработчик: SingAppПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B118588C33145591EE36B856222EFF4641A7426C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778544   (28276) от 08.02.2025
-
-Ocean Match / Рыбки: Три в ряд v3.0.7 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28276.jpg" />
-</div>
-
-
-###  Подробнее
-
-🐠 Добро пожаловать в Рыбки: Три в ряд (Ocean Match)! Совершенно новая игра от компании LinkDesks!
-Бесплатно играть! Попробуйте украшать уникальный аквариум, вы всегда можете зайти в игру и полюбоваться на пестрых рыбок, плавающих туда-сюда!Тип издания: ModРелиз состоялся: 08.02.2025Разработчик: LinkDesks Classic Puzzle GamesПоддерживаемая ОС: Android 5.1+Жанр: ГоловоломкаЯзык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A8A379860619F9AFF0AAEC87B410B73C4476D59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778563   (28263) от 08.02.2025
-
-BZ Напоминания и Дни Рождения PRO v3.6.3 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как часто Вы что-либо забываете сделать? С помощью этой напоминалки Вы можете ПРОСТО ПОМНИТЬ ВСЁ И ВСЕГДА! Вы можете легко контролировать все задачи, находящиеся в Вашем списке дел, и быть уверенным что Вы их сделаете. Удобное и функциональное приложение для создания, использования и управления напоминаниями. В наличии возможность поделиться напоминаниями.Тип издания: ProРелиз состоялся: 07.02.2025Разработчик: Atlas ProfitПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16140BFDD15B1C6852C16541B3C16EB562ACFDA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778220   (28258) от 08.02.2025
-
-Карта Координаты v5.7.4 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>Навигация для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один клик на карте дает вам доступ к мировым координатам. Кроме того, Map Coordinates предлагает полный набор инструментов, таких как измерение расстояния, текущее местоположение GPS, история / любимые места, расположение общего местоположения, поиск местоположения или копирование координат / адреса. Вы можете переключаться между несколькими типами координат, такими (   Читать дальше...   )Тип издания: AdfreeРелиз состоялся: 05.02.2025Разработчик: Adrian SulumbercheanПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F8578C32C6790C2313EAD6F27B22CE794ACD004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778543   (28247) от 08.02.2025
-
-Zoo Match / Три в Ряд: Зоопарк и Животные v1.7.5 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28247.jpg" />
-</div>
-
-
-###  Подробнее
-
-🐻 Добро пожаловать в совершено новую и бесплатную игру Три в Ряд: Зоопарк и Животные!
-🐼 Как вам идея открыть собственный зоопарк? Здесь вас ждут интересные головоломки три в ряд и множество необычных красочных животных!
-Комбинируйте предметы в игре три в ряд, чтобы создать идеальный зоопарк для милых животных!Тип издания: ModРелиз состоялся: 08.02.2025Разработчик: LinkDesks Daily PuzzleПоддерживаемая ОС: Android 5.1+Жанр: ГоловоломкаЯзык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:090F386C301BCCC3A60AD19830DB4436514B2CAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1778212   (28245) от 08.02.2025
 
 Flud v1.11.6.5 Mod by derrin [Ru/En/Ua]
@@ -244,7 +6,7 @@ Flud v1.11.6.5 Mod by derrin [Ru/En/Ua]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28245.jpg" />
 </div>
 
 
@@ -270,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27750.jpg" />
 </div>
 
 
@@ -296,7 +58,7 @@ Mr. Pillster / Напоминания о приеме таблеток v3.1.2 Mo
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27730.jpg" />
 </div>
 
 
@@ -322,7 +84,7 @@ MiHome v10.2.700 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27644.jpg" />
 </div>
 
 
@@ -351,7 +113,7 @@ Onvier - Монитор IP-камеры v19.55 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27561.jpg" />
 </div>
 
 
@@ -377,7 +139,7 @@ ES File Explorer File Manager v4.4.2.19 Mod Lite by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27533.jpg" />
 </div>
 
 
@@ -403,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27510.jpg" />
 </div>
 
 
@@ -429,7 +191,7 @@ MAPS.ME: Offline maps GPS Nav v16.3.71801 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27465.jpg" />
 </div>
 
 
@@ -455,7 +217,7 @@ VN - Video Editor / VN - Видеоредактор v2.4.2 Mod by MustHave [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27400.jpg" />
 </div>
 
 
@@ -481,7 +243,7 @@ Serial Cleaner v1.1.8 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27203.jpg" />
 </div>
 
 
@@ -508,7 +270,7 @@ Grand Mountain Adventure 2 v1.010 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27190.jpg" />
 </div>
 
 
@@ -534,7 +296,7 @@ Dungeons of Dreadrock 2 v1.0.4 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27095.jpg" />
 </div>
 
 
@@ -560,7 +322,7 @@ Dragon Quest X Offline v1.0.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27089.jpg" />
 </div>
 
 
@@ -589,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27056.jpg" />
 </div>
 
 
@@ -616,7 +378,7 @@ Figment 2: Creed Valley v1.0.56 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27035.jpg" />
 </div>
 
 
@@ -642,7 +404,7 @@ Grimvalor v1.2.9 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27023.jpg" />
 </div>
 
 
@@ -668,7 +430,7 @@ Cover Fire: Offline Shooting v1.32.17 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26950.jpg" />
 </div>
 
 
@@ -679,6 +441,242 @@ Cover Fire: Offline Shooting v1.32.17 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F405D03737B3CC8BB756FB19732315895FFEC907
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780931   (26925) от 21.02.2025
+
+ISOLAND: Pumpkin Town v1.0.14 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26925.jpg" />
+</div>
+
+
+###  Подробнее
+
+ISOLAND: Pumpkin Town — это игра-головоломка, о которой, возможно, вы еще не слышали. И это часть удовольствия! Связана ли она с ISOLAND и Mr. Pumpkin? Кто знает? Может быть, может быть и нет. Но одно можно сказать точно: это очень хорошая игра-головоломка.Тип издания: PaidРелиз состоялся: 8 февр. 2025 г.Разработчик: CottonGameПоддерживаемая ОС: Android 6.0+Жанр: ПриключенияЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B10366A1503FD466AA19B4CBCD3CF59784F6475E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780998   (26916) от 21.02.2025
+
+Ninja Turtles: Legends v1.26.5 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герои против злодеев!
+
+Черепашки-ниндзя могут разрушить планы Главного Крэнга по превращению Земли в новое Измерение Х. Что же предпримет злой завоеватель? Конечно же создаст армию Ультра Мутантов! Крэнги открыли охоту на мутантов, чтобы заполучить их ДНК, и даже сумели схватить черепашек-ниндзя.Тип издания: ModРелиз состоялся: 18 февр. 2025 г.Разработчик: Jam City, Inc.Поддерживаемая ОС: Android 7.0+ (arm64-v8a)Жанр: СтратегияЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25C776B801DD5129E2CA0051760BF1A3ED1F0B90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780999   (26909) от 21.02.2025
+
+Shogun's Curse v1.1 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Демоны прокляли тебя! Месть - это ваша клятва, и она приведет вас по опасному пути с постоянно меняющимися ландшафтами. Собирайте реликвии и карты. Собирайте души своих врагов. Раскройте потенциал своих реликвий, поглотив их скрытые силы, когда сталкиваетесь с трудными битвами. Рискуйте, чтобы добраться до финального босса и отомстить. Тщательно продумайте путь, (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 18 февр. 2025 г.Разработчик: Oh Baby GamesПоддерживаемая ОС: Android (Зависит от устройства) (arm64-v8a)Жанр: КарточныеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B87874C5A69E8D02596A0E5D6654DF70BDF80B36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780996   (26900) от 21.02.2025
+
+Carmen Sandiego NETFLIX v1.0.1g [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наденьте красную шляпу легендарной суперворовки. Ищите улики, чтобы раскрыть громкие ограбления и выследить преступников «ПОЛОЗ» по всему миру в образовательной приключенческой игре.Тип издания: UnlockedРелиз состоялся: 30 янв. 2025 г.Разработчик: Netflix, Inc.Поддерживаемая ОС: Android 8.0+ (arm64-v8a)Жанр: AdventureЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:349FB2976F042726CFE17FA2CD74B0B680E08C7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781179   (26846) от 22.02.2025
+
+Bright Memory: Infinite v1.2 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26846.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2036 году в небе по всему миру произошло странное явление, которому ученые не могут найти объяснения. Исследовательская организация сверхъестественных наук (SRO) отправила агентов в различные регионы для исследования этого явления. Вскоре выясняется, что эти странные происшествия связаны с архаичной тайной - пока еще неизвестной историей двух миров, которая вот-вот (   Читать дальше...   )Тип издания: Paid + ModРелиз состоялся: 13 февр. 2025 гРазработчик: FYQD-StudioПоддерживаемая ОС: Android 8.0+ (arm64-v8a)Жанр: ActionЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B7C2B88EFC340301C446DF234A37ADE4F0C2F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781264   (26825) от 22.02.2025
+
+CamScanner v6.82.0.2502180000 Mod by derrin [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26825.jpg" />
+</div>
+
+
+###  Подробнее
+
+CamScanner - Мощное приложение для сканирования. Оно представляет собой способ сканировать любые документы с максимальным качеством, автоматическим определением границ, программным улучшением изображений и прочими техническими особенностями, что понравятся всем кому необходим данный спектр возможностей. Так же пользователи смогут удобно создавать надписи, комментарии, (   Читать дальше...   )Тип издания: Pro (Mod)Релиз состоялся: 20.02.2025Разработчик: RS Mobile GroupПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1329B58CB0216FE1E2ED57E6C9D073C2E050B0C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781198   (26788) от 22.02.2025
+
+Street Fighter IV CE v1.08.00 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возьмите под свой контроль 32 мировых воина и проверьте свои силы против игроков со всего мира. Street Fighter IV: Champion Edition совершенствует формулу выигрышного геймплея, предлагая самый захватывающий файтинг для мобильных устройств. Давние поклонники Street Fighter могут окунуться в действие и мгновенно освоить управление. Для более казуальных игроков Street (   Читать дальше...   )Тип издания: UnlockedРелиз состоялся: 14 февр. 2025 г.Разработчик: CAPCOM CO., LTD.Поддерживаемая ОС: Android 8.0+ (arm64-v8a)Жанр: ActionЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3963E3CA3B21474191189F0896D761BB9DEDB0F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781201   (26762) от 22.02.2025
+
+Legacy - Reawakening v1.0.7.3 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шагните в Legacy - Reawakening, совершенно новое приключение во вселенной Legacy. Глубоко под землей лежит забытый мир — место, наполненное древними сооружениями, скрытыми технологиями и тайной, которая ждет своего часа. Как опытный археолог, вы были выбраны, чтобы раскрыть его секреты. Но не все так легко раскроется.Тип издания: PaidРелиз состоялся: 17 февр. 2025 г.Разработчик: No Signal ProductionsПоддерживаемая ОС: Android 6.0+ (arm64-v8a)Жанр: PuzzleЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD84FE1C5440F8FDFC24DD6C7496739D1F477D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781424   (26682) от 23.02.2025
+
+MobiOffice (ex. OfficeSuite) Premium + PDF v15.2.55213 Extra Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26682.jpg" />
+</div>
+
+
+###  Подробнее
+
+MobiOffice - это полнофункциональный офисный пакет для Android. Данное приложение позволит Вам создавать, редактировать и просматривать файлы в формате MS Word и Excel, а также просматривать документы PDF и презентации PowerPoint. При помощи MobiOffice Вы сможете просмотреть вложения к письмам в таком же виде, как и на ПК. Или даже создать собственный текстовый документ (   Читать дальше...   )Тип издания: Premium / Extra ModРелиз состоялся: 23.02.2025Разработчик: MobiSystemsПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B4593921773EF9A573F5A169648B8D38986285B
 ```
 
 https://mybot314.ru/tekegram_catalog/

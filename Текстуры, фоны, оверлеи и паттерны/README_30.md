@@ -1,3 +1,29 @@
+###  Публикация: 1770973   (32003) от 04.01.2025
+
+Текстуры - Gold Colored Textures [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32003.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 качественных, премиальных текстур с тематикой золота из сервиса shutterstock.com. Оригинальные имена сохранены и при желании можно найти любой из файлов в shutterstock.comФормат: JPGРазрешение файлов: 4000х3118 - 9204х6000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8606FD59BD06BEFAC2A351F333CDD08622CB4EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771173   (31877) от 05.01.2025
 
 Текстуры - Silver, Platinum & Chrome Textures [JPG]
@@ -6,7 +32,7 @@
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31877.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31779.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31769.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31699.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31479.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31222.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30223.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29491.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29400.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29359.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29268.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28571.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28568.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28556.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28555.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28482.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28464.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28459.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28456.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28454.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28453.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26459.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26274.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25861.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25826.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED703D63CC30A6A8CEFBA6207B238E041D4581C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783258   (25612) от 05.03.2025
-
-Текстуры - Resource Boy - 70 Chain Textures [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные текстуры в виде цепей. Материал раздается с официальной документацией.Разработчик: Resource BoyФормат: PNGРазрешение файлов: 7680 x 4320
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF9E5422279E323F72B14566CCE360479AE16683
 ```
 
 https://mybot314.ru/tekegram_catalog/

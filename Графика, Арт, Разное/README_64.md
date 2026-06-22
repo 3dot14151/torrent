@@ -1,3 +1,29 @@
+###  Публикация: 1296085   (614934) от 15.04.2019
+
+Обои - Ultra HD 3840x2160 Wallpaper Pack 380 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614934.jpg" />
+</div>
+
+
+###  Подробнее
+
+В хорошем качестве подборка обоев на различную тематикуФормат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2455EFBE722698EE5898E5CC56455B87ECE50E92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296079   (614933) от 15.04.2019
 
 Обои - Desktop Wallpapers (4K) Ultra HD. Part (232) [JPG]
@@ -6,7 +32,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614933.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614931.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614478.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614077.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613440.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613351.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613300.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613048.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612707.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611685.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Wallpapers - New Mixed HD Wallpapers Pack (14.07.14) [JPEG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610071.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609927.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609465.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609240.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608286.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608285.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607133.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607083.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607017.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606932.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606848.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606741.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606365.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606362.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ Wallpapers - New Mixed HD Wallpapers Pack (17.07.14) [JPEG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606184.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ Wallpapers - New Mixed HD Wallpapers Pack (17.07.14) [JPEG]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8B9EA0F3CE9FE0A6DC0F825EBD0C081AD93E945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525646   (605578) от 22.07.2012
-
-[Графика] Фэнтези - Творчество Клайда Колдуэлла
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фэнтези - Творчество Клайда Колдуэлла
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE19CFE7B3CD1F3FDC4E3422DF347826DFAD7649
 ```
 
 https://mybot314.ru/tekegram_catalog/

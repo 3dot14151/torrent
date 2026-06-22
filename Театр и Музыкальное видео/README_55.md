@@ -1,3 +1,139 @@
+###  Публикация: 792152   (709819) от 02.06.2014
+
+Евгений Гришковец - Прощание с бумагой (2014) WEB-DLRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Драма, КомедияРежиссер: Евгений ГришковецАктеры: Евгений ГришковецПеревод: ОтсутствуетПродолжительность: 02:34:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A46FF80A2CAADBBA81FB9B18820EE66DBAD82590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025543   (709437) от 12.06.2016
+
+The Alan Parsons Symphonic Project - Live In Colombia (2016) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алан Парсонс - британский музыкант, звукорежиссёр, продюсер. Известен своей работой с группой Pink Floyd — альбом Dark Side of the Moon, который стал звёздным часом для группы, Полом Маккартни и другими музыкантами, а также собственным музыкальным проектом The Alan Parsons Project.1 I Robot
+2 Damned If I Do
+3 Don’t Answer Me
+4 Breakdown(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E86AD2AAE9C9F32BBDFFD471C107A71B4B998424
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025493   (709325) от 12.06.2016
+
+The Alan Parsons Symphonic Project - Live In Colombia (2016) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алан Парсонс - британский музыкант, звукорежиссёр, продюсер. Известен своей работой с группой Pink Floyd — альбом Dark Side of the Moon, который стал звёздным часом для группы, Полом Маккартни и другими музыкантами, а также собственным музыкальным проектом The Alan Parsons Project.1 I Robot
+2 Damned If I Do
+3 Don’t Answer Me
+4 Breakdown(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08CD4477EEE6B245ED78E994C44CC6C653E9DF6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025605   (709322) от 12.06.2016
+
+The Alan Parsons Symphonic Project - Live In Colombia (2016) Blu-ray [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алан Парсонс - британский музыкант, звукорежиссёр, продюсер. Известен своей работой с группой Pink Floyd — альбом Dark Side of the Moon, который стал звёздным часом для группы, Полом Маккартни и другими музыкантами, а также собственным музыкальным проектом The Alan Parsons Project.Жанр: Progressive RockПродолжительность: 01:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3958B42C2820A7B102994F6372D5B40C32787727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 329772   (709212) от 29.04.2011
+
+VH1 All Classics Hits (2005) 10xDVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник видеоклипов, захваченных с цифрового спутникового канала VH1 (Video Hits One) — американского музыкального телеканала.Жанр: Pop, RockПеревод: Не требуетсяПродолжительность: 10 x ~ 01:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:737EC825FEF26D66BC2C3872501391CE08F04814
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286610   (708974) от 04.03.2019
 
 Квартирник НТВ у Маргулиса. Zdob si Zdub (02.03.2019) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +142,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708974.jpg" />
 </div>
 
 
@@ -35,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708721.jpg" />
 </div>
 
 
@@ -64,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708359.jpg" />
 </div>
 
 
@@ -93,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707774.jpg" />
 </div>
 
 
@@ -119,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706846.jpg" />
 </div>
 
 
@@ -145,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706317.jpg" />
 </div>
 
 
@@ -174,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705643.jpg" />
 </div>
 
 
@@ -203,7 +339,7 @@ VA - Millenium Melody 6 (2016) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705582.jpg" />
 </div>
 
 
@@ -232,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705325.jpg" />
 </div>
 
 
@@ -262,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705259.jpg" />
 </div>
 
 
@@ -292,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705168.jpg" />
 </div>
 
 
@@ -322,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_704558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_704558.jpg" />
 </div>
 
 
@@ -348,7 +484,7 @@ Bryan Ferry - Live At Glastonbury Festival (2014) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703824.jpg" />
 </div>
 
 
@@ -378,7 +514,7 @@ The Alan Parsons Symphonic Project - Live In Colombia '2013 (2016) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703689.jpg" />
 </div>
 
 
@@ -407,7 +543,7 @@ Moby - My Only Love; Power Is Taken; Power Is Taken (Moby's Old School Remix) (2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703392.jpg" />
 </div>
 
 
@@ -435,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703243.jpg" />
 </div>
 
 
@@ -464,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703123.jpg" />
 </div>
 
 
@@ -493,7 +629,7 @@ Cher - Woman's World (Live On The Voice) (2013) HDTV [H.264/1080i] <Pop>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702674.jpg" />
 </div>
 
 
@@ -519,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702569.jpg" />
 </div>
 
 
@@ -545,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702539.jpg" />
 </div>
 
 
@@ -574,7 +710,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702079.jpg" />
 </div>
 
 
@@ -585,142 +721,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50ACA614C62B8493AB960206AE66206E17D47C7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 331402   (701063) от 03.05.2011
-
-A-HA прощальный концерт / A-Ha - Ending on a High Note - The Final Concert (2011) BDRip
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_701063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПеревод: ОтсутствуетПродолжительность: 01:49:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 894452   (700702) от 05.05.2015
-
-Григорий Лепс и его друзья (2015) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый канал представляет телеверсию Рождественскго концерта,
-который прошел на олимпийском горнолыжном курорте Роза Хутор
-в начале этого года. Концертную программу, основу которой составили
-признанные шлягеры любимого миллионами Григория Лепса,(   Читать дальше...   )Производство: Первый каналЖанр: КонцертПродолжительность: 01:25:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31213A11FF63E3CF81A64FB1CC63368942698226
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 426285   (700610) от 05.05.2015
-
-Nightwish - End Of An Era (2005) [720p] BDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_700610.jpg" />
-</div>
-
-
-###  Подробнее
-
-End of an Era — последний концертный альбом финской симфо-метал группы Nightwish, записанный с вокалисткой Тарьей Турунен. Запись концерта для выпуска на двойном CD и DVD производилась на финальном концерте мирового тура Once в Хартвалл Арена (Хельсинки) 21 октября 2005 года. После концерта Тарья Турунен получила открытое письмо от других участников коллектива, в (   Читать дальше...   )Жанр: Видео\Symphonic Power MetalРежиссер: Antti JokinenАктеры: Туомас Холопайнен (фин. Tuomas Holopainen) — композитор, автор текстов, клавишные, вокал (в первые годы группы)
-Тарья Турунен (Tarja Turunen) — вокал
-Юкка Невалайнен (Jukka «Julius» Nevalainen) — ударные
-Эрно «Эмппу» Вуоринен (Emppu Vuorinen) — гитара(   Читать дальше...   )Субтитры: Вшитые отключаемыеПродолжительность: 01:43:04
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401275   (699693) от 15.08.2020
-
-Anaal Nathrakh - Endarkenment (2020) WEBRip [VP9/2160p] <Grindcore>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: MyGoodEyeЖанр: Black Metal, GrindcoreРежиссер: David BrodskyАктеры: Anaal NathrakhПродолжительность: 00:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD1141B903DA7A6AD07330B137CCE10293C73F2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 331787   (699526) от 04.05.2011
-
-Scorpions - The Best Is Yet To Come - Live in Prague (2010) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard RockПродолжительность: 00:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ADD91DFA5D21456D273FD65BC6390C32065FEAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

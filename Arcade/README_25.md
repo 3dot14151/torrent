@@ -1,3 +1,55 @@
+###  Публикация: 927466   (523041) от 15.08.2015
+
+Earthworm Jim Pack (1995-1999) [En] License I KnoW
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готовьтесь, самый популярный кольчатый вернулся. Червь возвратился покрасоваться в своем следующем приключении - Earthworm Jim 3D. Червяк Джим вырубленный упавшей на него коровой, очухивается в сумасшедшем мире собственного разума. Помогите Джиму пробиться через потаённые уголки своего подсознательного, найти свои шарики и вернутся в нормальный мир.Тип издания: ЛицензияРазработчик: Shiny & Rainbow Arts SoftwareЖанр: Arcade (Platform)Язык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:290DE1C5C6167EF8489D68FEABB96B63DFE8CF83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241145   (521926) от 15.08.2018
+
+TANGLEWOOD (2018) [En] (1.0) Repack Other s
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521926.jpg" />
+</div>
+
+
+###  Подробнее
+
+TANGLEWOOD – хардкорный платформер-головоломка, разработанный изначально для Sega Mega Drive® и Genesis®. События игры разворачиваются в вымышленном мире, где вам предстоит сыграть за юного зверька, похожего на лисицу, по имени Нимн, который оказался далеко от своего дома после захода двух солнц-близнецов. Помогите герою найди дорогу домой, преимущественно решая (   Читать дальше...   )Тип издания: RepackРазработчик: Big Evil CorporationЖанр: Action, Adventure, Platform, PuzzleЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C619B632791C310B88506A87D2E98F964C07FE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 228033   (521175) от 19.08.2010
 
 Incredibles / Суперсемейка [Ru] (L) 2004
@@ -6,7 +58,7 @@ Incredibles / Суперсемейка [Ru] (L) 2004
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_521175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_521175.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Subwar 2050 (1993) [Multi] (1.2/dlc) License GOG [Complete]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521020.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Jardinains 2! (2007) [Multi] (1.0) Unofficial
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519969.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Ori and the Blind Forest (2016) [Ru/Multi] (1.0/upd3) Repack Other s [Definitive
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516744.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Tyler Model 005 (2018) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515835.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ SWIV 3D [En] (RePack) 1996 | RG Games/Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513366.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Furi (2016) [Ru/Multi] (1.7.224/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513303.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ The King’s Bird (2018) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512733.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ BRAWL (2015) [En] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512573.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ TerraTech (2018) [Ru/Multi] (1.3/dlc) License PLAZA [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511599.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Legend of Kay Anniversary (2015) [En/Multi] (Build cs:6416) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510654.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ Trine 3: The Artifacts of Power (2015) [Ru/Multi] (1.0.1.3005) Repack R.G. Ме�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510600.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Swords & Souls: Neverseen (2019) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508619.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Aaru's Awakening (2015) [Ru/Multi] (2.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507823.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ One Piece: Pirate Warriors 3 (2015) [En/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507734.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ Fantasy Strike (2019) [Multi] (1.17545) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506718.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ The Expendables 2 Videogame [Multi] (1.0) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504203.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ LOST ORBIT: Terminal Velocity (2019) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503120.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Tinertia (2015) [En/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503008.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ LOST ORBIT: Terminal Velocity (2019) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502117.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ Lumini (2015) [Ru/Multi] License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501933.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Onikira - Demon Killer (2015) [En] (1.730) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498225.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Hamilton's Great Adventure (2011) [En/Multi] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497088.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ Gatling Gears [En] (RePack) 2011 | DyNaMiTe
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494809.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ Gatling Gears [En] (RePack) 2011 | DyNaMiTe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CE107001476AB8A56CC3607DFF5AD4F24F5ACA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199730   (494307) от 06.08.2019
-
-Street Fighter V (2016) [Ru/Multi] (4.070/dlc) License CODEX [Arcade Edition]
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарная бойцовская серия возвращается! Встречайте игру STREET FIGHTER® V! Благодаря потрясающей графике, новое поколение Мировых Бойцов выглядит красиво, как никогда, а увлекательная и понятная боевая механика позволит и опытным, и начинающим игрокам подолгу наслаждаться динамичными битвами. Сыграйте с друзьями по сети, или сразитесь за честь и славу на турнире (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOMЖанр: Action, Arcade, Fighting, 3DЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6A5EFD20BBD7D0760488EC3E0E9BF83A5B8DF2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404167   (494280) от 23.07.2022
-
-Spiritfarer (2020) [Ru/Multi] (35357) License GOG [Farewell Edition]
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Spiritfarer - это уютная игра о смерти. Вам предстоит играть за Стеллу - перевозчика душ умерших. Постройте лодку для исследования мира, подружитесь с душами и позаботьтесь о них, пока они не обретут покой в жизни после смерти. Занимайтесь земледелием, добывайте руду, рыбачьте, собирайте урожай, готовьте и мастерите предметы, чтобы переправиться через таинственные (   Читать дальше...   )Тип издания: LicenseРазработчик: Thunder Lotus GamesЖанр: Симулятор, Приключение, ПлатформерЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:202AD73E1D738C7972A979AAC04A19C6E86485DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

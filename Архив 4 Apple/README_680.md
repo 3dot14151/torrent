@@ -1,3 +1,57 @@
+###  Публикация: 1708106   (113140) от 19.03.2024
+
+SiteSucker 5.3.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113140.jpg" />
+</div>
+
+
+###  Подробнее
+
+SiteSucker- это альтернативный менеджер загрузки сайтов. SiteSucker это приложение для Macintosh, которое автоматически загружает веб-сайты из Интернета. Она делает это путем асинхронного копирования веб-страниц сайта, изображений, PDF-файлов, таблиц стилей и других файлов на локальном жестком диске, дублируя структуру каталогов сайта.
+SiteSucker умеет загружать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.03.2024Разработчик: © 2001-2024 Rick CraniskyПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C5F5F1E2587D4A1A4431BD9B410B0E8EBAAB4C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708204   (113137) от 19.03.2024
+
+TunesKit Audio Capture 3.1.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучший потоковый аудио рекордер и экстрактор для захвата, извлечения и редактирования любого звука на вашем Mac, включая Apple Music, Spotify, радио, игровую музыку, фильмы и т. д. С качеством без потерь и конвертирования записей в MP3, AAC, WAV, FLAC и многие другие популярные форматы.
+TunesKit Audio Capture для Mac - это самое умное и простое решение для аудиозаписи, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.03.2024Разработчик: © 2024 TunesKitПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8952AD024CD6819488C90173FAB9D21937F67B0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708251   (113134) от 19.03.2024
 
 AudFree Audio Capture for Mac 3.0.0 [Multi]
@@ -6,7 +60,7 @@ AudFree Audio Capture for Mac 3.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113134.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ PullTube 1.8.5.29 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113132.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ Hype 4 Pro v.4.1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113128.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ SiteSucker Pro 5.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113126.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ Codepoint for Mac 1.15 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113123.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ Doppler for Mac 2.1.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113110.jpg" />
 </div>
 
 
@@ -163,7 +217,7 @@ Wondershare UniConverter for Mac 15.5.3 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113091.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ PopClip 2024.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113067.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ OmniReader Pro for Mac 2.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113059.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ TechSmith Snagit 2024.2.2 for Mac [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113055.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ Mp3tag 1.8.18 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113045.jpg" />
 </div>
 
 
@@ -295,7 +349,7 @@ Magic Disk Cleaner 2.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112930.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ Cookie 7.2.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112887.jpg" />
 </div>
 
 
@@ -348,7 +402,7 @@ Ghost Buster Pro 3.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112730.jpg" />
 </div>
 
 
@@ -374,7 +428,7 @@ PopClip 2024.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112715.jpg" />
 </div>
 
 
@@ -401,7 +455,7 @@ Mp3tag 1.8.19 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112714.jpg" />
 </div>
 
 
@@ -427,7 +481,7 @@ MediaMate for Mac 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112709.jpg" />
 </div>
 
 
@@ -453,7 +507,7 @@ BetterMouse for Mac 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112706.jpg" />
 </div>
 
 
@@ -479,7 +533,7 @@ Downie 4 v.4.7.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112702.jpg" />
 </div>
 
 
@@ -507,7 +561,7 @@ TechSmith Camtasia 2023 Studio 2023.3.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112684.jpg" />
 </div>
 
 
@@ -533,7 +587,7 @@ Cookie 7.2.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112641.jpg" />
 </div>
 
 
@@ -560,7 +614,7 @@ Wondershare UniConverter for Mac 15.5.4 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112607.jpg" />
 </div>
 
 
@@ -587,7 +641,7 @@ MarsEdit 5.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112472.jpg" />
 </div>
 
 
@@ -613,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110658.jpg" />
 </div>
 
 
@@ -624,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55870C0C42C686B0D45FC2B751C8EF94D8A2229D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716772   (110639) от 28.04.2024
-
-4K Video Downloader + 1.5.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.04.2024Разработчик: © 2024 OpenMedia OOOПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBF04A1EA86C6127507502E83AC0312598E38628
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738365   (106338) от 22.07.2024
-
-4K Video Downloader + 1.8.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.07.2024Разработчик: © 2024 OpenMedia OOOПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9478BA81F9B1C1E4CDB6893F8E04A82B2F5412DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

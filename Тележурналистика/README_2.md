@@ -1,3 +1,110 @@
+###  Публикация: 1839860   (1046897) от 01.12.2025
+
+Убийство в море: Загадка семьи Карман / The Carman Family Deaths (2025) WEB-DL [H.264/1080p] [MVO]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенью 2016 года мать и сын Карманы отправились на ночную рыбалку в Род-Айленде на своей лодке. Подруга Линды, матери Натана, не смогла с ней связаться и обратилась в полицию. Береговая охрана начала поиски, но безуспешно. Через восемь дней грузовое судно случайно заметило Натана, который в одиночку дрейфовал на спасательном плоту в открытом море. Фильм включает (   Читать дальше...   )Производство: США / Loki Films, Wired StudiosЖанр: документальный, криминал, триллерРежиссер: Йон МотскинУчастники: Нэйтан Карман, Мартин Миннелли, Чарльз Лапенна, John Chakalos, Evan Lubofsky, Mike IozziПеревод: Многоголосый профессиональный (WinMedia)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:30:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:956BF02F0864977C1513580A6EC611E0C180EC8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839708   (1046839) от 30.11.2025
+
+Чудо техники с Сергеем Малозёмовым (30.11.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новые маски кибермошенников: курьеры, соседи, налоговая и даже друзья — как распознать угрозу и защитить свой смартфон?
+ Мотоцикл без шлема: разработчики из Германии создали трехколесную конструкцию с креслом и крышей, соединив компактность скутера и защищенность автомобиля.
+ Идеи героев фантастики Жюля Верна не умерли: в Японии планируют начать строить город на воде. (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD55293CE8B8A47334605323961B8C0CB72E600D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839780   (1046783) от 30.11.2025
+
+Следствие вели... (30.11.2025) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046783.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Уж замуж — невтерпеж». 1973 год, Тамбовская область, Рассказово. Убита пенсионерка, а вскоре еще одна. Что скрывала русская печка в доме погибшей? Неужели преступником была женщина? И какую роль в этом деле сыграли пальто и часы с кукушкой?Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EF36E8B013FEB13B5F42F089766D2E5B2228D08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839552   (1046622) от 29.11.2025
+
+Живая еда с Сергеем Малозёмовым (29.11.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приправы — для картофеля, морковки по-корейски, шашлыка: как готовят миксы специй, правда ли, что они универсальны и подходят для разных блюд и безопасно ли приправлять еду всевозможными смесями? Команда «Живой еды» проверила упаковки специй из магазинов и с рынка — результаты экспертизы вас шокируют!
+Правда ли, что семена льна содержат опасный яд, стоит ли отказываться (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0225D1A4DE6AF0197D398EA3D84445B25C7E28B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606266   (1044547) от 21.01.2023
 
 Живая еда с Сергеем Малозёмовым (21.03.2023) SATRip [H.264]
@@ -6,7 +113,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044547.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043861.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043804.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043128.jpg" />
 </div>
 
 
@@ -111,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042348.jpg" />
 </div>
 
 
@@ -137,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041653.jpg" />
 </div>
 
 
@@ -163,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041058.jpg" />
 </div>
 
 
@@ -189,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041057.jpg" />
 </div>
 
 
@@ -215,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039562.jpg" />
 </div>
 
 
@@ -241,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039391.jpg" />
 </div>
 
 
@@ -270,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039360.jpg" />
 </div>
 
 
@@ -296,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039252.jpg" />
 </div>
 
 
@@ -322,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039236.jpg" />
 </div>
 
 
@@ -348,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039231.jpg" />
 </div>
 
 
@@ -374,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038773.jpg" />
 </div>
 
 
@@ -400,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038768.jpg" />
 </div>
 
 
@@ -426,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038757.jpg" />
 </div>
 
 
@@ -452,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038751.jpg" />
 </div>
 
 
@@ -478,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038551.jpg" />
 </div>
 
 
@@ -504,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037713.jpg" />
 </div>
 
 
@@ -530,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037580.jpg" />
 </div>
 
 
@@ -559,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037549.jpg" />
 </div>
 
 
@@ -570,115 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F0319BA6530D2ECD3AB087464E8E91496B7B93D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442010   (1036285) от 26.01.2021
-
-Пабло Эскобар. Ангел или Демон? / Pablo Escobar, angel o demonio (2007) IPTVRip [H.264]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036285.jpg" />
-</div>
-
-
-###  Подробнее
-
-История легендарного колумбийского наркобарона и террориста, чей преступный умысел граничил с гениальностью.Производство: Венесуэла, Колумбия / Sierralta Entertainment, Angostura Film CompanyЖанр: ДокументальныйРежиссер: Jorge GranierПеревод: Двуголосый профессиональный (Igmar)Субтитры: отсутствуютПродолжительность: 01:21:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B7EAB7F1D58E654C61441DBFB787E812F77250F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443198   (1035987) от 27.01.2021
-
-Борис Березовский. Бешеные деньги (2019) WEB-DLRip [H.264/720p-LQ] (серии 1-2 из 2)
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Борис Березовский – самый богатый олигарх России, супергерой 90-х. Правда, мир ему спасать не пришлось, уничтожать Вселенную он не планировал, зато очень мечтал о безграничной власти.
-«Вокруг него воздух сворачивался в упругие канаты, вокруг него кипела жизнь, вокруг него собирались невероятные люди!» – вспоминает журналист и музыкальный критик Михаил Козырев.
-Березовский (   Читать дальше...   )Производство: Россия / МТРК "Мир"Жанр: ДокументальныйРежиссер: Михаил ДиговцовЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 2 x ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A68A079357767402BEDEE4CB2F136160365F1437
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616885   (1035860) от 04.03.2023
-
-Живая еда с Сергеем Малозёмовым (04.03.2023) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Калорийность: сколько еды и какой нужно современному человеку, почему переесть так легко, а потратить съеденное так сложно? Как и для чего считать калории?
-Из барбариса, возможное, сделают антибиотик.
-Сплошная мешанина: в чем плюсы и минусы солянки для здоровья и какие необычные варианты этого блюда существуют.
-Добавки с пребиотиками могут быть эффективны против (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:334A5A6AB6BA223316A142A96F9DBF306CE54467
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442614   (1035647) от 28.01.2021
-
-Краткое пособие по тому, как устроен мир (2021) DVB [H.264] (серии 1-4 из 4)
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вначале было слово. И новые слова всегда отражают перемены. Слово «русофобия», которого не найти ни в словаре Даля, ни в энциклопедии Брокгауза и Ефрона, стало в наши дни расхожим и ни у кого не вызывает ни вопросов, ни удивления. Фильм рассказывает о том, откуда и когда оно возникло, каковы причины — явные и скрытые — этого явления и как история России встроена (   Читать дальше...   )Телекомпания: Россия / Первый каналЖанр: Документальный, ИсторияСубтитры: русские, телетекст (888)Продолжительность: ~00:60:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC8A4C4284DA44151DE55484F835BFFF72440CD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

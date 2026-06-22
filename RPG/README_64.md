@@ -1,3 +1,107 @@
+###  Публикация: 1411075   (36536) от 22.11.2024
+
+Vaporum: Lockdown (2020) [Ru/Multi] (Patch 5) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vaporum: Lockdown — это приквел знаменитой игры с приключениями в подземельях и обстановкой в стиле стимпанк Vaporum. Это одиночная игра с одним персонажем, передвижением по сетке и видом от первого лица в оригинальной стимпанковой обстановке, вдохновленная такой классикой жанра, как Dungeon Master I и II, играми серии Eye of the Beholder и более современными Legend (   Читать дальше...   )Тип издания: LicenseРазработчик: Fatbot Games, s. r. o.Жанр: Ролевая игра, Экшны, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB5341EB473240004582D82DD26AE9192185C2F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761717   (36527) от 22.11.2024
+
+Expeditions: Rome (2022) [Ru/Multi] (1.6.0.741.23995/dlc) Repack Let'sРlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы — юный легат. Вашего отца убили, вы бежали из Рима, и теперь подавляете восстание греков. Накапливайте военную мощь и опыт. Станьте силой, с которой придется считаться. В Expeditions: Rome вам предстоит завоевать весь мир от Греции до Галлии. Только вам решать, каким станет Рим для варваров. Вы будете действовать силой или переговорами? Найдете свое место в Сенате (   Читать дальше...   )Тип издания: RepackРазработчик: Logic ArtistsЖанр: Ролевые игры, СтратегииЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCE443769BD56636C346D0964BBFF0A958650DC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761988   (36375) от 23.11.2024
+
+Alaloth: Champions of The Four Kingdoms (2022) [En] (1.0) Scene Rune
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экшн РПГ Alaloth: Champions of The Four Kingdoms переносит игрока в магическое средневековье. История берет свое начало в Долине Штормов – месте, где пересекаются четыре легендарных народа: Люди, Эльфы, Гномы и Орки. Именно здесь заточен жестокий бог Алалот. Из самого царства мертвых он отравляет все королевства своим злом. Уже скоро на этот мир грянут монстры, бури, (   Читать дальше...   )Тип издания: SceneРазработчик: Gamera InteractiveЖанр: Ролевая игра, Приключение, ФэнтeзиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:938536BF3D8896A839BD03F29E6CFE0EE5ED2337
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181156   (36324) от 24.11.2024
+
+Vaporum (2017) [Ru/Multi] (Patch 15) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vaporum - это однопользовательская ролевая игра с системой перемещения по клеткам, видом от первого лица и атмосферой старого доброго стимпанка. На создание Vaporum разработчиков вдохновили такие классические игры, как Dungeon Master I и II, серия Eye of the Beholder и сравнительно недавно изданные Legend of Grimrock I и II. Оказавшись на острове посреди бушующего (   Читать дальше...   )Тип издания: LicenseРазработчик: Fatbot Games, s. r. o.Жанр: Ролевая игра, Приключение, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Польский и другиеЯзык интерфейса: Русский, Английский, Польский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44236277C8649EF0F210DC7AD5E0BD5A882AC8E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762238   (36290) от 24.11.2024
 
 Deathbound (2024) [Ru/Multi] (1.1.8f1) Scene Tenoke [Ultimate Edition]
@@ -6,7 +110,7 @@ Deathbound (2024) [Ru/Multi] (1.1.8f1) Scene Tenoke [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36290.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Dragon Age: Origins (2010) [Ru/Multi] (1.05/dlc) Repack dixen18 [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36285.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Wyvia (2023) [Multi] (1.0.8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36207.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Albatroz (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36199.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Bug Fables: The Everlasting Sapling (2019) [Multi] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36159.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Expeditions: Rome (2022) [Ru/Multi] (1.6/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36113.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Robin Hood: Sherwood Builders (2024) [Ru/Multi] (04.11.21.01) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36094.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Frontier Hunter: Erza's Wheel of Fortune (2022) [Ru/Multi] (1.1.02/dlc) Repack L
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36061.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Hive Jump 2: Survivors (2024) [Ru/Multi] (1.1.1853) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35796.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Sovereign Syndicate (2024) [Ru/En] (1.1.11) Repack Wagner
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35771.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Warhammer 40,000: Inquisitor - Martyr (2018) [Ru/Multi] (2.9.4d/dlc) Repack Let'
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35672.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Sky Oceans: Wings for Hire (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35671.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Wayfinder (2023) [Multi] (1.0/dlc) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35662.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Expeditions: Rome (2022) [Ru/Multi] (1.6.0.741.23995/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35656.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Welcome to ParadiZe (2024) [Ru/Multi] (Build Oct 11 2024/dlc) Repack Let'sРlay 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35576.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Necro Story (2024) [Ru/Multi] (6043) Repack FitGirl [Soundtrack Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35530.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Monster Hunter Stories (2024) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35346.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Lords of the Fallen (2023) [Ru/Multi] (1.6.49/dlc) Repack FitGirl [Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35239.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Medieval Dynasty (2020) [Ru/Multi] (2.2.0.5) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35185.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Vaporum: Lockdown (2020) [Ru/Multi] (Build #80) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35153.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Lords of the Fallen (2023) [Multi] (1.6.49/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34976.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ ArkCraft: The Rebirth of the World / ArkCraft: Возрождение мира (
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34958.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ ArkCraft: The Rebirth of the World / ArkCraft: Возрождение мира (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:597ECBFB18CEF9770038EE203076F5EE90A75660
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764461   (34934) от 07.12.2024
-
-Alder's Blood (2020) [Ru/Multi] (2.0.1) License GOG [Definitive Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alder's Blood - это мрачная и темная тактическая стелс-игра, в которой пошаговый бой направлен на то, чтобы избежать засады противника и создать свою собственную. Используйте хитрость и тактику, чтобы преодолеть нескончаемый натиск монстров, проявления угасания вашего бога. Управляйте своими ограниченными ресурсами, выходите на улицу со своими товарищами и исследуйте (   Читать дальше...   )Тип издания: LicenseРазработчик: Shockwork GamesЖанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADBAD9B72716254BD68AC7D69BFD73402FB0D982
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764456   (34888) от 07.12.2024
-
-Alder's Blood: Prologue (2020) [En] (1.0.20a) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34888.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Alder's Blood: Prologue вы будете играть за Чарльза, простолюдина, который стремится быстро заработать и пытается охотиться на порождения тьмы. Если он выживет - доход от продажи останков существ обеспечит его на ближайшие недели. Но охота не будет легкой. Ключ к победе здесь не в грубой силе, а в скрытности и ловкости.Тип издания: LicenseРазработчик: Shockwork GamesЖанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5D1223428E6DA579E82498677A556634E477E0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759160   (34572) от 11.12.2024
-
-Bad 2 Bad: Apocalypse (2024) [Ru/Multi] (Build 16701862/dlc) Repack Let'sРlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34572.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Bad 2 Bad: Apocalypse», официальное продолжение «Bad 2 Bad: Delta» и «Extinction», было выпущено на нескольких платформах, с расширенным уровнем, более обширным миром и более богатым контентом. Apocalypse следует за историей команды «Delta» во главе с майором Пэном, которая спасает и восстанавливает мир, опустошенный вирусом от Human Forces. Присоединяйтесь к команде (   Читать дальше...   )Тип издания: RepackРазработчик: DAWINSTONEЖанр: Экшены, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0C8C46BA9F4DD3BEDCD06F3BC5B263B01DA4674
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765300   (34431) от 12.12.2024
-
-Sea of Stars (2023) [Ru/Multi] (1.1.53846) Repack Wanterlude
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sea of Stars - динамичное ролевое приключение, разработанное в стилистике игр старой школы девяностых годов. Повелитель плоти восстал и теперь мир находится под угрозой уничтожения. Мы же узнаем историю двух детей Солнцестояния, обладающих особой силой и могуществом, которые и являются единственной надеждой людей на спасение. Твоими противниками станут жуткие потусторонние (   Читать дальше...   )Тип издания: RepackРазработчик: Sabotage StudioЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F9446C0CB712E16FF0FFACE3B3B49DD24E3BAC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

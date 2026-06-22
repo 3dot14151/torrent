@@ -6,7 +6,7 @@ Kara Grainger - That's How I Got To Memphis (2025) [FLAC 24/44.1|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136847.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Macon Music Revue - Macon Music Revue (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136843.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ LeBron Johnson - Strong Men Still Human (2025) [FLAC 24/88.2|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136842.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Mississippi Heat - Don't Look Back (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136839.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Renato Rocchinotti - Black Shadows in the Dark (2025) [FLAC 24/44.1|Lossless|WEB
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136838.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Various Artists - Texas Bluesmen (1993) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_136271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_136271.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Various Artists - Gentle Blues (2004) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_135978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135978.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Various Artists - The Alligator Records Christmas Collection (1992) [FLAC|Lossle
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_135941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135941.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Various Artists - Paint It Blue - Songs of the Rolling Stones (1997) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_135901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135901.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Various Artists - Essential Delta Blues (2009) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_135683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135683.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Darrell Nulisch - Just For You (2009) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_135445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135445.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Dan Patlansky - Move my Soul (2009) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_135415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135415.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Jorg (Jörg) Danielsen - Foolin’ Around (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135333.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Tyrone Cotton - Man Like Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135327.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ The Thief River Band - Two Lane Solution (2023) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135307.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Brianna Harness - This Too Shall Pass (2023) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135305.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Shanna Waterstown - Be with You (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135293.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Walter Wolfman Washington - Feel So At Home (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135247.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Spoonful Of Blues - Songs From Notodden Norway (2023) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135237.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Freddie & The Screamers - Death Letter Blues (1992) [WavPack|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_134815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_134815.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Joe Bonamassa - Blues Deluxe Vol. 2 (2023) [FLAC|Lossless|image + .cue] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134537.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Eric Gales - 19 Albums (1991 - 2022) [FLAC|Lossless|image + .cue|tracks + .cue] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134408.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ New Blues Underground - Whiskey Straight (2012) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134218.jpg" />
 </div>
 
 
@@ -723,7 +723,7 @@ Dr. John - In The Right Place (1973) [FLAC 24/192|Lossless|WEB-DL|tracks] <New O
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133936.jpg" />
 </div>
 
 
@@ -752,7 +752,7 @@ Jeff Lang - Prepare Me Well (2006) [WavPack|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133728.jpg" />
 </div>
 
 
@@ -787,7 +787,7 @@ Samantha Fish - 11 альбомов (2009 - 2023) [FLAC|Lossless|tracks + .cue|i
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133588.jpg" />
 </div>
 
 

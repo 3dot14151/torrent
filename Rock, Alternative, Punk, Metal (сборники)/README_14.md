@@ -1,3 +1,61 @@
+###  Публикация: 1382472   (819280) от 11.05.2020
+
+VA - Life under the rubble vol.3 (2020) [MP3|320 Kbps] <Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artillery - Khomaniac (06:42)
+ 02. Atrophy - Puppies And Friends (03:36)
+ 03. Atrophy - Slipped Through The Cracks (05:30)
+ 04. Black Sabbath - Eternal Idol (06:35)(   Читать дальше...   )Жанр: MetalПродолжительность: 04:30:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D34FA2282A930E1B5E0077DEC53A2FDC8331A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382641   (817518) от 12.05.2020
+
+VA - Advancet Rock Concert (2020) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817518.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Black Tape Suicide - Pills
+002. Acquaintances - And It All Went Black
+003. Edison's Children - Captain's Ledger
+004. The Mattson - Naima's Dream(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 06:19:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DE97714E680009004A91EE806B75725E9787AAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194626   (817125) от 06.01.2018
 
 Linkin Park - Celebrate Life in Honor Of Chester Bennington (2017) Live from Hollywood Bowl 27.10.2017 [MP3|320 Kbps] <Alternative Rock>
@@ -6,7 +64,7 @@ Linkin Park - Celebrate Life in Honor Of Chester Bennington (2017) Live from Hol
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817125.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Rock Collection 1998 (2017) [MP3|320 Kbps] <Rock, Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816642.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Rock Collection 1999 (2017) [MP3|320 Kbps] <Rock, Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816634.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Чартова дюжина. Итоги 2017 (2018) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815425.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Hard Rock Classics (2020) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815300.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Pink Floyd - 100% The Best Pink Floyd LIVE (2020) [MP3|320 Kbps] <Rock, Progress
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813117.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Nu Metal Heaven (2020) [MP3|320 Kbps] <Metal, Nu-Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811725.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Cheerful Rock'n'Roll (2018) [MP3|320 Kbps] <Rock & Roll, Rockabilly>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809832.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Metal and Rock Ballads (2018) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809730.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - The World Of Heavy Metal Vol.3 (2018) [MP3|320 Kbps] <Heavy Metal, Power Me
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808159.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Woodstock Rock Live (2020) 3CD [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807998.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Rock School 90s (2017) [MP3|320 Kbps] <Rock, Hard Rock, Metall, Alternative
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805134.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Dr. Metal Presents: Vol.1 (2014) [MP3|224 кб/с]<Heavy, Speed, Power Meta
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802786.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Deep Purple - Love Conquers All (Greatest Ballads) (2019) [MP3|320 Kbps] <Hard R
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800572.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800393.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Metal Collection (2017) [MP3|320 Kbps] <Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800386.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Women of Rock (2020) [MP3|320 Kbps] <Alternative, Rock, Pop>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800123.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Inkubus Sukkubus - Tales of Witchcraft and Wonders.(Vol. 1-3) (2016-2018)[MP3|32
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799407.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Creedence Clearwater Revival - Travelin' Band (2019) 2CD, Compilation [MP3|320 K
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798664.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - My Little Planet: Pop Rock Indie (2021) [MP3|320 Kbps] <Indie, Pop-Rock, Al
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798450.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Jeff Beck - 100% Jeff Beck (2020) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797779.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Scorpions - 25 Best Songs (2016) [MP3|~245 кб/с (V0)] <Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796603.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Autumn Rock Fest (2021) [MP3|320 Kbps] <Rock, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796219.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Ancient World: Modern Alternative Rock (2020) [MP3|320 Kbps] <Rock, Alterna
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795985.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Ancient World: Modern Alternative Rock (2020) [MP3|320 Kbps] <Rock, Alterna
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CB3F90AF6CE01F7E7EC7F2053572ED742E7F686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386029   (795979) от 27.05.2020
-
-VA - Made Of Ashes: Hard Rock Times (2020) [MP3|320 Kbps] <Hard Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_795979.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Amarionette - Perfect
-002. Billy Talent - Forgiveness
-003. Francis Moon - In Colour
-004. The Kooks - She Moves In Her Own Way(   Читать дальше...   )Жанр: Hard Rock, AlternativeПродолжительность: 09:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F13012B27F251CC1631FE948FAB1CA2044C76CDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385770   (795910) от 27.05.2020
-
-VA - The Road to Punk Rock (2020) [MP3|320 Kbps] <Rock, Rock & Roll, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795910.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Urinals - I'm a Bug (1:12)
-2. Jack Starr - Born Bad (1:20)
-3. Ramones - Judy Is a Punk - 2016 Remaster (1:32)
-4. David Peel and The Lower East Side - Up Against the Wall (1:44)(   Читать дальше...   )Жанр: Rock, Rock & Roll, OtherПродолжительность: 05:29:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C25481874467DA3540C6AC6ADCA40B6A753E7D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

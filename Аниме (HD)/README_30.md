@@ -6,7 +6,7 @@ Hashiri Tsuzukete Yokattatte. | Хорошо, что я продолжил бе�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385200.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Gaikotsu Shotenin Honda-san | Skull-face Bookseller Honda-san | Скелет-к�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385132.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Given | Дарованный [2019, TV, 11 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385061.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Uchi no Ko no Tame Naraba, Ore wa Moshikashitara Maou mo Taoseru Kamo Shirenai. 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384519.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Maou-sama, Retry! | Demon Lord, Retry! | Король демонов, попыт
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384510.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Jashin-chan Dropkick / Dropkick on My Devil! / Пинок с наскока Дз
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383323.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Merc Storia: Mukiryoku Shounen to Bin no Naka no Shoujo | Merc Storia: The Apath
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383245.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ W'z | Уиз [2019, TV, 13 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380919.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Meiji Tokyo Renka | Любовь эпохи Мэйдзи [2019, TV, 12 эп.] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380916.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Karakuri Circus | Цирк марионеток [2018, TV, 36 эп.] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380908.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ No Guns Life (2020) | Жизнь без оружия [ТВ-2] [2020, TV, 12 эп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380464.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Joshikousei no Mudazukai | Wasteful Days of High School Girl | Бездельн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380375.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Dumbbell Nan Kilo Moteru? / How Heavy Are the Dumbbells You Lift? / Наскол
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380345.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Highlander: The Search for Vengeance / Горец: В поисках мести 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380265.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Araburu Kisetsu no Otome-domo yo. | O Maidens in Your Savage Season | Сезон
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378213.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Boku no Hero Academia | My Hero Academia | Моя геройская акаде�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376746.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Aggressive Retsuko: We Wish You a Metal Christmas | Aggretsuko: We Wish You a Me
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376703.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Aggressive Retsuko (2019) | Агрессивная Рэцуко (2019) [2019, We
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376618.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Aggressive Retsuko (2018) | Aggretsuko | Агрессивная Рэцуко (20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376608.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Karakai Jouzu no Takagi-san 2 | Озорная Такаги [ТВ-2] [2019, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371749.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Kawaikereba Hentai demo Suki ni Natte Kuremasu ka? | Влюбишься ли т�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371738.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Isekai Cheat Magician / Маг-читер из другого мира [2019, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371734.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Tsukumogami Kashimasu | We Rent Tsukumogami | Цукумогами напрок�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370135.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Granbelm | Гранбелм [2019, TV, 13 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369606.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Kimetsu no Yaiba | Demon Slayer | Истребитель демонов [2019, T
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365077.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Tsuujou Kougeki ga Zentai Kougeki de Nikai Kougeki no Okaasan wa Suki Desuka? / 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362655.jpg" />
 </div>
 
 

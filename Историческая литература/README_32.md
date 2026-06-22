@@ -1,3 +1,110 @@
+###  Публикация: 1213967   (766586) от 19.03.2018
+
+И.И. Генкин | Лейтенант Шмидт и восстание на "Очакове" (1925) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766586.jpg" />
+</div>
+
+
+###  Подробнее
+
+К двадцатилетию восстания.
+Рабочие и крестьяне, прочтя эту книжку, навсегда запечатлеют в сердцах своих героическую борьбу черноморцев, а красные Военморы и их смена, молодая гвардия, в их великих деяниях будут черпать силы для предстоящих боев за идеи рабочего класса, — за коммунизм. Стихийно возникшее восстание потемкинцев, вначале посеявшее страх и ужас в стане (   Читать дальше...   )Жанр: История Отечества, история революционного движенияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD41A9AE5F28480AADFDA76CBB0CB1ADB38E9CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213966   (766584) от 19.03.2018
+
+И.И. Генкин | Восстание на броненосце "Потемкин Таврический" (1925) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766584.jpg" />
+</div>
+
+
+###  Подробнее
+
+К двадцатилетию восстания.
+Рабочие и крестьяне, прочтя эту книжку, навсегда запечатлеют в сердцах своих героическую борьбу черноморцев, а красные Военморы и их смена, молодая гвардия, в их великих деяниях будут черпать силы для предстоящих боев за идеи рабочего класса, — за коммунизм.Стихийно возникшее восстание потемкинцев, вначале посеявшее страх и ужас в стане (   Читать дальше...   )Жанр: История Отечества, история революционного движенияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3206112C11F4547D3569E6EAD08F1DBFF4BA5D46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213968   (766582) от 19.03.2018
+
+Г.А. Гиппиус | Современники, собрание литографических портретов государственных чиновников, писателей и художников, ныне в России живущих (1822) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Густав Адольф (Фомич) Гиппиус (нем. Gustav Adolf Hippius; 1792—1856) — художник-портретист балтийско-немецкого происхождения, литограф и педагог.
+Работы художника стали случайным образом известны графу Каподистрия и директору Императорского Царскосельского лицея Егору Антоновичу Энгельгардту; они поддержали его материально и дали возможность предпринять издание «Современники. (   Читать дальше...   )Жанр: История Отечества, альбом портретовФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB075F65E46CF7A42A8B103D6367902E719D5974
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213975   (766572) от 19.03.2018
+
+К. Дунин-Борковский (сост.) | Альбом флагов и вымпелов Российской Социалистической Федеративной Советской Республики, союзных советских республик и иностранных государств (1923) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий альбом флагов издан по распоряжению Коллегии Народного Комиссариата по иностранным делам РСФСР в ознаменование пятой годовщины Октябрьской Революции. Пять лет тому назад пролетариат России мошной рукой поднял над необъятной страной красный флаг, который в настоящее время вместе с Советскими посольствами, миссиями и морскими судами проник в самые отдаленные (   Читать дальше...   )Жанр: История, ВексиллологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:563F0E515CC63F1D1E09DAF7CE6758CCDD90DA84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213970   (766566) от 19.03.2018
 
 Теодор Горшельт | Кавказские походные рисунки [Вып. 1-6 в одном переплёте] (1896) [DJVU]
@@ -6,7 +113,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766566.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765960.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765803.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765777.jpg" />
 </div>
 
 
@@ -113,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765773.jpg" />
 </div>
 
 
@@ -141,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765771.jpg" />
 </div>
 
 
@@ -169,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765759.jpg" />
 </div>
 
 
@@ -197,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765757.jpg" />
 </div>
 
 
@@ -223,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765723.jpg" />
 </div>
 
 
@@ -249,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764979.jpg" />
 </div>
 
 
@@ -275,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764976.jpg" />
 </div>
 
 
@@ -301,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764974.jpg" />
 </div>
 
 
@@ -330,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764971.jpg" />
 </div>
 
 
@@ -357,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764969.jpg" />
 </div>
 
 
@@ -383,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764966.jpg" />
 </div>
 
 
@@ -412,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764965.jpg" />
 </div>
 
 
@@ -438,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764937.jpg" />
 </div>
 
 
@@ -464,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764933.jpg" />
 </div>
 
 
@@ -491,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764931.jpg" />
 </div>
 
 
@@ -519,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764928.jpg" />
 </div>
 
 
@@ -547,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764925.jpg" />
 </div>
 
 
@@ -574,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764924.jpg" />
 </div>
 
 
@@ -585,113 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6431D8990C354E437F4AD9978A2405E96D3CE1A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214156   (764923) от 21.03.2018
-
-Московские святыни и памятники. Краткие исторические сведения о московских соборах, монастырях, древних церквах, памятниках и замечательных зданиях (1903) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание представляет собой сборник кратких исторических сведений о древних церквах и старинных зданиях Москвы. Книга состоит из пяти отделов. В первом из них помещены исторические сведения о Кремлевских и других московских соборах. Второй отдел содержит сведения о старинных монастырях, находящихся в Москве. В третьем отделе сгруппированы хронологические даты и другие (   Читать дальше...   )Жанр: История Отечества, история Москвы, альбом видовФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCDF8B714D42B3EE4D12978BE3765D3D8B5A478E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214309   (764919) от 21.03.2018
-
-Н.Н. Глебова-Путиловского (ред.) | Октябрь. Фото-очерк по истории Великой октябрьской революции (1917-1920) (1920) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великий октябрьский переворот, вручивший власть рабочим и крестьянам, мог придти только после решительного выступления против буржуазии и мещанской умеренности. Он воплощает классовую и глубоко действенную теорию марксизма.
-Робкие шаги первых дней быстро переходят в настоящий революционный бег, и, несмотря на индустриальную и культурную нищету, истощение и раззор (   Читать дальше...   )Жанр: История Отечества, история революционного движенияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76BDC10DB7211BB1B46BDEDCFCA2F198123B43E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214325   (764910) от 21.03.2018
-
-И.Н. Божерянов (изд.) | Портреты с автографами и краткими биографиями министров учрежденных в 1802 г. министерств императором Александром I (1901) [DJVU, PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбом портретов министров, учрежденных в 1802 г. министерств с краткими биографиями оных и их автографами.Жанр: История Отечества, альбом портретов, биографииФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33A3572C89F77A44DB6E7C2CFC7A224F1868F6B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214154   (764909) от 21.03.2018
-
-Н.К. Михайловский | Революционные статьи (1906) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник статей Михайловского Николая Константиновича.
-
-Михайловский (псевдонимы - Гроньяр, Посторонний, Профан и др.) Николай Константинович [15(27).11. 1842, Мещовск, ныне Калужской обл., - 28.1(10.2).1904, Петербург], русский публицист, социолог, один из теоретиков народничества, литературный критик. Из дворян. Учился в Петербургском институте горных инженеров. (   Читать дальше...   )Жанр: История Отечества, история революционного движенияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79B9EF178A917A8DDB3F17E42869E36C70846E4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

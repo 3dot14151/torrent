@@ -1,3 +1,133 @@
+###  Публикация: 603391   (996876) от 15.01.2013
+
+Офицер ранен / Officer Down (2013) BDRip [720p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детектив расследует серию изнасилований и убийств молодых девушек. У него самого довольно темное прошлое: когда-то он много пил, ходил по русским притонам и проститутками, попал из-за этого в мафиозную перестрелку, после чего кардинально поменял взгляды на жизнь и теперь старается быть примерным семьянином. Но собственное расследование заводит его не туда, и он начинает понимать, что его информаторы преследуют какие-то личные цели.Жанр: Драма, КриминалРежиссер: Брайан А МиллерАктеры: Стивен Дорфф, Доминик Пёрселл, Дэвид Бореаназ, Стивен Лэнг, Джеймс Вудс, Уолтон Гоггинс, Томми Флэнаган, Элизабет Рём, АннаЛинн МакКорд, Лора ХаррисПеревод: ОтсутствуетПродолжительность: 01:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15337B48A55A8AA76C36CE1798FE200D398FD2EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604736   (996028) от 18.01.2013
+
+Агент под прикрытием / So Undercover (2012) BDRip [720p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня — Молли — частный детектив, нанятый ФБР для расследования одного важного дела. Девушка отправляется в колледж, чтобы под прикрытием попасть в тайное женское общество.Жанр: Боевик, КомедияРежиссер: Том ВонАктеры: Алексис Кнапп, Майли Сайрус, Джереми Пивен, Джошуа Боуман, Отем Ризер, Меган Парк, Мэттью Сеттл, Камерон Дин Стюарт, Андреа Франкл, Майк О’МэллиПеревод: ОтсутствуетПродолжительность: 01:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9BB61F3133D66F0441E67BFF7E391037AD463B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971182   (987314) от 02.01.2016
+
+Он никогда не умирал / He Never Died (2015) WEB-DLRip [H.264/720p-LQ] [EN / RU Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джек (Генри Роллинз) - одинокий социопат, убивающий дни игрой в бинго, телевизором или просто сном. А еще он питается кровью, никогда не умирал и хорошо известен всем читавшим Ветхий Завет. Его размеренная жизнь меняется, когда на горизонте появляются 19-летняя дочь и куча неприятностей.Производство: США, Канада, Alternate Ending StudiosЖанр: Триллер, Комедия, Драма, УжасыРежиссер: Джейсон КравчикАктеры: Генри Роллинз, Стивен Огг, Бу Бу Стюарт, Джордан Тодоси, Джеймс Кейд, Майкл Крэм, Чантал Крэйг, Дэн Петронижевич, Тамара Альмейда, Кейт ГринхаусПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: РусскийПродолжительность: 01:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98B2E8493F510C090662BAA86D32E1B21B47E2DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971672   (985401) от 03.01.2016
+
+Приговорённые 2: Охота в пустыне / The Condemned 2  (2015) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уилл Таннер из тех, кто выбрал для себя профессию «охотников за головами». Однажды он попадает в серьезные неприятности: его задерживает полиция, и ему выносят приговор. Его и бывшую его команду вовлекают в игру на выживание под объективами камер в угоду интересам благополучной публики. Ставки сделаны, приговоренные должны проявить в жестких обстоятельствах максимум (   Читать дальше...   )Производство: США, WWE StudiosЖанр: боевик, триллерРежиссер: Роэль РейнАктеры: Рэнди Ортон, Эрик Робертс, Уэс Стьюди, Стивен Майкл Квезада, Билл Стинчкомб, Алекс Найт, Дилан Кенин, Майкл Шитс, Дон Бикнелл, Марк Сивертсен, Мерритт К. Гловер, Мэттью ПейджПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, испанскийПродолжительность: 01:30:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C85737281D4DF65793377F4FC9E096AE95F5C02C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971596   (985389) от 03.01.2016
+
+Он никогда не умирал / He Never Died (2015) WEB-DL [H.264/1080p-LQ] [EN / RU Sub]
+
+>>След.
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джек (Генри Роллинз) - одинокий социопат, убивающий дни игрой в бинго, телевизором или просто сном. А еще он питается кровью, никогда не умирал и хорошо известен всем читавшим Ветхий Завет. Его размеренная жизнь меняется, когда на горизонте появляются 19-летняя дочь и куча неприятностей.Производство: США, Канада, Alternate Ending StudiosЖанр: Триллер, Комедия, Драма, УжасыРежиссер: Джейсон КравчикАктеры: Генри Роллинз, Стивен Огг, Бу Бу Стюарт, Джордан Тодоси, Джеймс Кейд, Майкл Крэм, Чантал Крэйг, Дэн Петронижевич, Тамара Альмейда, Кейт ГринхаусПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: РусскийПродолжительность: 01:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBDDE59ECC1BC3A3E1784CE4755C661CB31D09CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971729   (985388) от 03.01.2016
 
 Чирак / Chi-Raq  (2015) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
@@ -6,7 +136,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985388.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984478.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981721.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980396.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979974.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977678.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972880.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969296.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967605.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967418.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966562.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965373.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964386.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961956.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960686.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959592.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957333.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956114.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951823.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947329.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947301.jpg" />
 </div>
 
 
@@ -538,138 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9996D40CB4835B779BA609D13B595951243FF781
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090445   (947223) от 06.01.2017
-
-Свет в океане / The Light Between Oceans  (2016) BDRip [H.264/720p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вернувшийся с войны смотритель маяка Том встречает трепетную девушку по имени Изабель. Зародившаяся между ними любовь полностью преображает Изабель и возвращает опустошенному Тому веру в жизнь. Молодожены поселяются на уединенном острове, к берегу которого однажды пристает лодка с новорожденной девочкой. Супруги решают воспитать младенца как родную дочь, не представляя, (   Читать дальше...   )Производство: Великобритания, Новая Зеландия, СШАЖанр: драма, мелодрамаРежиссер: Дерек СиенфрэнсАктеры: Майкл Фассбендер, Алисия Викандер, Рэйчел Вайс, Флоренс Клери, Джек Томпсон, Томас Унгер, Джейн Менелос, Гарри МакДональд, Энтони Хэйес, Бенедикт Харди, Эмили Барклай, Брайан БраунПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 02:12:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A06DD2117E47E4DFF343BC1F9A3B366C07DCE0A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090257   (947216) от 06.01.2017
-
-Хорошие дети / Good Kids  (2016) BDRip [H.264/720p] [EN / Sw, Da, Fin, No  Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947216.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре внимания оказываются сразу четыре выпускника старшей школы. Каждый из них на хорошем счету в данном заведении, поскольку они все эти годы отличались отличной учебой и прилежным поведением. Конечно же, каждый выпускник всегда думает, что после выпуска его ожидает новая взрослая жизнь, в которой все будет идти как по маслу.
-Но как они глубоко ошибаются. Совсем (   Читать дальше...   )Производство: СШАЖанр: комедияРежиссер: Крис МакКойАктеры: Зои Дойч, Эшли Джадд, Вирджиния Гарднер, Джулия Гарнер, Николас Браун, Израэль Бруссар, Демиан Бишир, Стефани Фантоцци, Джон Ротмен, Кевин Чэпмен, Рэнди Кутюр, Матео АриасПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: шведский, датский, финский, норвежскийПродолжительность: 01:29:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E66464004F908266CD47D9035CBF586241D00D77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090473   (947210) от 06.01.2017
-
-Зачинщики / Masterminds  (2016) BDRip [H.264/720p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший клерк банка вместе со своей любовницей проворачивает дерзкое ограбление инкассаторской машины и забирает 17 миллионов баксов. Но по неопытности преступники-дебютанты оставляют на месте преступления столько следов и улик, что вряд ли смогут получить удовольствие от добычи.Производство: СШАЖанр: боевик, комедия, криминалРежиссер: Джаред ХессАктеры: Зак Галифианакис, Оуэн Уилсон, Кристен Уиг, Джейсон Судейкис, Кейт МакКиннон, Лесли Джонс, Мэри Элизабет Эллис, Кен Марино, Девин Рэтрей, Джон Дэйли, Рода Гриффис, Росс КимбеллПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:34:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F57D840761807C53D2DB37340772B9844447D3B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090469   (947208) от 06.01.2017
-
-Зачинщики / Masterminds  (2016) BDRip [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший клерк банка вместе со своей любовницей проворачивает дерзкое ограбление инкассаторской машины и забирает 17 миллионов баксов. Но по неопытности преступники-дебютанты оставляют на месте преступления столько следов и улик, что вряд ли смогут получить удовольствие от добычи.Производство: СШАЖанр: боевик, комедия, криминалРежиссер: Джаред ХессАктеры: Зак Галифианакис, Оуэн Уилсон, Кристен Уиг, Джейсон Судейкис, Кейт МакКиннон, Лесли Джонс, Мэри Элизабет Эллис, Кен Марино, Девин Рэтрей, Джон Дэйли, Рода Гриффис, Росс КимбеллПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:34:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DED104CED615F6BCF4225C231846FB8B5BCAC342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090261   (947109) от 06.01.2017
-
-Хорошие дети / Good Kids  (2016) BDRip [H.264/1080p] [EN / Sw, Da, Fin, No Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947109.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре внимания оказываются сразу четыре выпускника старшей школы. Каждый из них на хорошем счету в данном заведении, поскольку они все эти годы отличались отличной учебой и прилежным поведением. Конечно же, каждый выпускник всегда думает, что после выпуска его ожидает новая взрослая жизнь, в которой все будет идти как по маслу.
-Но как они глубоко ошибаются. Совсем (   Читать дальше...   )Производство: СШАЖанр: комедияРежиссер: Крис МакКойАктеры: Зои Дойч, Эшли Джадд, Вирджиния Гарднер, Джулия Гарнер, Николас Браун, Израэль Бруссар, Демиан Бишир, Стефани Фантоцци, Джон Ротмен, Кевин Чэпмен, Рэнди Кутюр, Матео АриасПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: шведский, датский, финский, норвежскийПродолжительность: 01:29:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85D62B2D6CF95E42E8F12FF9054E32726A2131EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

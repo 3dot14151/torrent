@@ -1,3 +1,32 @@
+###  Публикация: 1062758   (440095) от 14.10.2016
+
+Pacifist 3.5.11 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pacifist — удобная распаковка .pkg
+Если вы являетесь активным пользователем Mac OS, то вполне вероятно, что однажды вам уже было необходимо открыть файл с расширением .pkg. Сделать это можно при помощи нескольких способов, но приложение под названием Pacifist позволяет сделать это наиболее быстро и удобно.
+
+Pacifist – приложение, которое открывает пакеты Mac OS X (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 октября 2016Разработчик: CharlesSoftПоддерживаемая ОС: 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF26D8649E348C43E76EC171DF66E75AA34DCCDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1248789   (440038) от 21.09.2018
 
 iA Writer 5.1 [En]
@@ -6,7 +35,7 @@ iA Writer 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440038.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ Smultron 10.1.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440032.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ Serial 1.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440009.jpg" />
 </div>
 
 
@@ -89,7 +118,7 @@ File Juicer 4.49 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439966.jpg" />
 </div>
 
 
@@ -117,7 +146,7 @@ TextLab 1.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439901.jpg" />
 </div>
 
 
@@ -143,7 +172,7 @@ Shredo 1.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439874.jpg" />
 </div>
 
 
@@ -172,7 +201,7 @@ WonderPen 1.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439869.jpg" />
 </div>
 
 
@@ -200,7 +229,7 @@ Audio Hijack 3.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439835.jpg" />
 </div>
 
 
@@ -227,7 +256,7 @@ FileMaker Server 15.0.2.206 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439789.jpg" />
 </div>
 
 
@@ -254,7 +283,7 @@ Permute 2 v2.5.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439639.jpg" />
 </div>
 
 
@@ -280,7 +309,7 @@ Notability 2.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439606.jpg" />
 </div>
 
 
@@ -308,7 +337,7 @@ MyBrushes - Sketch, Paint, Design 2.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439604.jpg" />
 </div>
 
 
@@ -336,7 +365,7 @@ Coda 2.5.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439599.jpg" />
 </div>
 
 
@@ -363,7 +392,7 @@ iShowU Studio 2.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439502.jpg" />
 </div>
 
 
@@ -391,7 +420,7 @@ VueScan Pro 9.5.85 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439350.jpg" />
 </div>
 
 
@@ -417,7 +446,7 @@ Sidify Apple Music Converter 1.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439313.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ Xojo IDE RAD 17.2.0.37811 (2017r2) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439198.jpg" />
 </div>
 
 
@@ -472,7 +501,7 @@ DaisyDisk 4.6.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439175.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Alien Skin Exposure X4 Bundle 4.0.1.27 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439170.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ AppDelete 4.3.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438968.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ PullTube 1.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438643.jpg" />
 </div>
 
 
@@ -580,7 +609,7 @@ SyncTime 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438631.jpg" />
 </div>
 
 
@@ -606,7 +635,7 @@ PhoneRescue for iOS 4.0.0.20200919 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438548.jpg" />
 </div>
 
 
@@ -632,7 +661,7 @@ Affinity Publisher Beta 1.9.0.742 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438516.jpg" />
 </div>
 
 
@@ -659,7 +688,7 @@ AnyTrans for iOS 8.8.0.20200918 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438514.jpg" />
 </div>
 
 
@@ -672,34 +701,6 @@ AnyTrans, не в пример iTunes, прост и интуитивен. Ка�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8FF04DC480DAAF57EF00A6716ABD9001A73D497
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410258   (438509) от 20.09.2020
-
-Transmit 5.6.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Золотой стандарт приложений для передачи файлов
-Загружайте, загружайте и управляйте файлами на серверах с простым, знакомым и мощным интерфейсом.
-Теперь Transmit подключается к 10 новым облачным сервисам, таким как Backblaze B2, Box, Google Диск, DreamObjects, Dropbox, Microsoft Azure и Rackspace Cloud Files. И да, Transmit по-прежнему обрабатывает классику - FTP, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.09.2020Разработчик: Panic IncПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1A7A5AFB8442E7FB2455D015C43095EEAB057FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

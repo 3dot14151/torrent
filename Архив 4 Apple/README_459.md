@@ -1,3 +1,58 @@
+###  Публикация: 1423764   (298066) от 14.11.2020
+
+Apple MainStage 3.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298066.jpg" />
+</div>
+
+
+###  Подробнее
+
+MainStage 3 позволит вам взять Mac с собой на сцену. Полноэкранный интерфейс, оптимизированный для живых выступлений, полный контроль оборудования и обширная коллекция плагинов и звуков, полностью совместимых с Logic Pro X.
+
+Идеально для живых выступлений
+• Выступайте на сцене, используя более 80 инструментов, эффектов и плагинов MIDI, работайте с плагинами Audio (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.11.2020Разработчик: Apple Inc.Поддерживаемая ОС: OS X 10.15.5 и вышеЯзык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83FC6485F84DF04159504E6557526BDC561C9E90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423950   (298065) от 14.11.2020
+
+NCH Prism Plus 6.72 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Prism - самый стабильный и всеобъемлющий мультиформатный видео конвертер, доступный и очень простой в использовании.Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: NCH SoftwareПоддерживаемая ОС: macOS 10.5+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23FC23C42E1579B464CE94E01014EF754920449A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078881   (298051) от 02.12.2016
 
 Principle 2.1.1 [En]
@@ -6,7 +61,7 @@ Principle 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298051.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ Things 3 v3.13.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297969.jpg" />
 </div>
 
 
@@ -63,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297873.jpg" />
 </div>
 
 
@@ -90,7 +145,7 @@ Lyn 2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297871.jpg" />
 </div>
 
 
@@ -116,7 +171,7 @@ TechSmith Snagit 2021.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297855.jpg" />
 </div>
 
 
@@ -142,7 +197,7 @@ Rhinoceros 7 v7.1.20314 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297749.jpg" />
 </div>
 
 
@@ -170,7 +225,7 @@ Tuneskit Spotify Converter 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297739.jpg" />
 </div>
 
 
@@ -196,7 +251,7 @@ Compressor 4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297738.jpg" />
 </div>
 
 
@@ -222,7 +277,7 @@ Fenetre 0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297443.jpg" />
 </div>
 
 
@@ -251,7 +306,7 @@ Motion 5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_297339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_297339.jpg" />
 </div>
 
 
@@ -277,7 +332,7 @@ CopyClip 2 - Clipboard Manager 2 v2.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297284.jpg" />
 </div>
 
 
@@ -305,7 +360,7 @@ Carbon Copy Cloner 4.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_297232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_297232.jpg" />
 </div>
 
 
@@ -334,7 +389,7 @@ Memory Clean 3 v1.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297152.jpg" />
 </div>
 
 
@@ -362,7 +417,7 @@ Final Cut Pro 10.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297059.jpg" />
 </div>
 
 
@@ -390,7 +445,7 @@ Maxon Cinema 4D Studio R23.110 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_297054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_297054.jpg" />
 </div>
 
 
@@ -416,7 +471,7 @@ Multitouch 1.7.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297021.jpg" />
 </div>
 
 
@@ -444,7 +499,7 @@ Tap Forms Organizer 5 v5.3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297020.jpg" />
 </div>
 
 
@@ -472,7 +527,7 @@ TextMate 2.0 rc-17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297014.jpg" />
 </div>
 
 
@@ -500,7 +555,7 @@ SoftRAID 5.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296968.jpg" />
 </div>
 
 
@@ -529,7 +584,7 @@ SILKYPIX Developer Studio Pro 9E v9.0.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_296967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_296967.jpg" />
 </div>
 
 
@@ -557,7 +612,7 @@ Macsome iTunes Converter 2.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296961.jpg" />
 </div>
 
 
@@ -584,7 +639,7 @@ Amadeus Pro 2.6.2 (2221) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296931.jpg" />
 </div>
 
 
@@ -610,7 +665,7 @@ Cisdem OCRWizard 4.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296929.jpg" />
 </div>
 
 
@@ -636,7 +691,7 @@ DxO PhotoLab 2 ELITE Edition 2.3.3 (build 47) CR2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296928.jpg" />
 </div>
 
 
@@ -649,63 +704,6 @@ DxO PhotoLab 2 ELITE Edition 2.3.3 (build 47) CR2 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48CAF8F03C207FADCB39D619AB9A5069A47407F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334256   (296926) от 28.10.2019
-
-Posterino 3 v3.6.5 (3082) [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Posterino – программа, ориентированная на создание различных постеров и открыток. Включает в себя достаточно много разных шаблонов, касательно расположения изображений на постере. Среди них такие знаменитые, как 365 Days, Landscape, Classic, Clasters и многие другие.
-
-Шаблоны можно редактировать, получая в какой-то мере произвольные результаты постеров. Это достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Zykloid SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A26300621499627340E4DEC8D075F2D94CAD764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334216   (296920) от 28.10.2019
-
-ScreenFloat 1.5.17 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296920.jpg" />
-</div>
-
-
-###  Подробнее
-
-ScreenFloat — приложение для создания висящих на виду скриншотов
-Приложение позволяет создавать висящие перед глазами скриншоты и сохранять их в собственную библиотеку, чтобы потом быстро найти
-
-Используйте ScreenFloat для создания плавающих скриншотов, которые всегда видны, независимо от того, какое приложение вы используете. Таким образом, вам не нужно перемещать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Matthias GansriglerПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9F7C850AA693C5AE1AAAD205CDAC0ED40047972
 ```
 
 https://mybot314.ru/tekegram_catalog/

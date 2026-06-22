@@ -1,3 +1,58 @@
+###  Публикация: 1516062   (167943) от 09.12.2021
+
+Downie 4 v4.4.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downie – это простейший видео-загрузчик.
+Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
+Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 08.12.2021Разработчик: © 2021 Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FBC9D935D91F9A6EF8822F6EDF3F072D0AF540C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431384   (167930) от 13.12.2020
+
+Resume Templates - Design 3.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Resume Templates - высококачественная коллекция из 145 оригинальных шаблонов, предназначенных, для придания мощного импульса Вашему карьерному росту. Представьте свой образовательный уровень, опыт и навыки в лучшем свете, что привлечет внимание любого менеджера по подбору персонала.
+Конструкции очень легко редактировать и адаптировать к Вашим потребностям, Вы можете (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.12.2020Разработчик: Graphic NodeПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F09C148DEE38C6D9209EA5F2556E50B2ED2B4A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516068   (167929) от 09.12.2021
 
 iThoughtsX 5.30 [Multi/Ru]
@@ -6,7 +61,7 @@ iThoughtsX 5.30 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167929.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Bartender 4 v.4.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167925.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ macOS Server 5.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167878.jpg" />
 </div>
 
 
@@ -85,7 +140,7 @@ SoundSource 5.3.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167828.jpg" />
 </div>
 
 
@@ -112,7 +167,7 @@ SyncTime 4.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167770.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ Sound Siphon 3.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167760.jpg" />
 </div>
 
 
@@ -164,7 +219,7 @@ calibre 5 v5.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167759.jpg" />
 </div>
 
 
@@ -190,7 +245,7 @@ Sublime Merge Dev Build 2081 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167756.jpg" />
 </div>
 
 
@@ -216,7 +271,7 @@ URL Manager Pro 6.1 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167752.jpg" />
 </div>
 
 
@@ -244,7 +299,7 @@ Aiseesoft Mac Data Recovery for Mac 1.5.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167749.jpg" />
 </div>
 
 
@@ -271,7 +326,7 @@ Superkey 0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167736.jpg" />
 </div>
 
 
@@ -297,7 +352,7 @@ OnyX 4.1.4 for macOS Monterey 12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167728.jpg" />
 </div>
 
 
@@ -324,7 +379,7 @@ Cisco AnyConnect Secure Mobility Client for Mac 4.10.04065 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167726.jpg" />
 </div>
 
 
@@ -350,7 +405,7 @@ Finder Windows 1.5.4 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167683.jpg" />
 </div>
 
 
@@ -376,7 +431,7 @@ uDock 3.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167666.jpg" />
 </div>
 
 
@@ -402,7 +457,7 @@ Adobe Lightroom Classic 2020 9.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167663.jpg" />
 </div>
 
 
@@ -428,7 +483,7 @@ Downie 4 v.4.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167618.jpg" />
 </div>
 
 
@@ -456,7 +511,7 @@ Capture One 22 Pro [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167599.jpg" />
 </div>
 
 
@@ -483,7 +538,7 @@ Skynet 2019.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167593.jpg" />
 </div>
 
 
@@ -509,7 +564,7 @@ M3U Edit 1.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167591.jpg" />
 </div>
 
 
@@ -538,7 +593,7 @@ MWeb: Markdown writing, note taking, static blog generator 3.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167586.jpg" />
 </div>
 
 
@@ -565,7 +620,7 @@ Export for iTunes 3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167580.jpg" />
 </div>
 
 
@@ -591,7 +646,7 @@ Downie 3 v3.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167576.jpg" />
 </div>
 
 
@@ -619,7 +674,7 @@ DxO PhotoLab 3 ELITE Edition 3.1.0 (build 27) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167569.jpg" />
 </div>
 
 
@@ -632,59 +687,6 @@ DxO PhotoLab 3 ELITE Edition 3.1.0 (build 27) [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C717482961510D0DD5B44B6C820B2CAB7AA3C242
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597136   (167567) от 13.12.2022
-
-OmniPlayer Pro - Media Player 2.0.15 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167567.jpg" />
-</div>
-
-
-###  Подробнее
-
-OmniPlayer Pro для Mac - это универсальный медиаплеер практически для любого видео и аудио формата в macOS. Он обладает мощными функциями с современным и простым интерфейсом. Вы можете использовать его для простого воспроизведения различных HD-видео 4K / 1080P / 720P и обычного / без потерь звука с помощью аппаратного декодирования. Богатые функции OmniPlayer позволяют (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2022Разработчик: © 2021 Omi Software Studio, Inc.Поддерживаемая ОС: macOS 10.13+Субтитры: ass, ssa, srt, idx и subЯзык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A143D95DFEE07B6699B3B0D536C51CEF37EDD4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345366   (167565) от 14.12.2019
-
-Secret Folder Pro 10.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Secret Folder - Прячет данные с вашего компьютера от любопытных глаз других пользователей.
-Наиболее простой способ защиты данных: работа программы построена на том, что никто не станет пытаться открыть файл, о существовании которого и не догадывается. Secret Folder позволит вам создать список файлов и папок, которые вы сможете делать видимыми и невидимыми одним щелчком (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: ApimacПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB58C8094BA90BEF4CBDBAB3B79A6BE794E21B2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Johannes Bornlof - The 50 Greatest Epic Piano Pieces (2018) [MP3|320 Kbps] <Clas
 >>Фортепиано
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705893.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Vanessa Mae - My New Classic (2012) [MP3|320 кб/с]<Pop, Classical>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704258.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Vivaldi J.S. Bach A. Marcello Telemann-Concertos for oboe and orchestra Vladimir
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702271.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ David Garrett - Caprice (2014) [FLAC|Lossless]<Classical Crossover>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700854.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Narcis - Narcis (2016) Limited Edition [FLAC|Lossless|tracks + .cue] <Pop, Class
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700213.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Jackie Evancho - Two Hearts (2017) [FLAC|Lossless|WEB-DL|tracks] <Classical Cros
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696787.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Jackie Evancho - Two Hearts (2017) [MP3|320 Kbps] <Classical Crossover, Vocal Po
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696777.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Appassionante - Nell'aria (2017) [MP3|320 Kbps] <Pop, Classical, Crossover, Voca
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696775.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Vanhal, Dusek, Brixi, Vranicky, Czech Chamber Philharmonic, Vojtech Spurny - Bar
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696282.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Itzhak Perlman - J.S. Bach: Sonaten und Partiten (1988) [FLAC|Lossless|tracks] <
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696199.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Aaron Rosand - Brahms: 3 Violin Sonatas; 21 Hungarian Dances; Joachim: Romance i
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696197.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Ilyin - Lie (2019) [MP3|320 Kbps] <Neo-Classical, Baroque>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695548.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Ensemble Il Trittico, David Greenlees - Joseph Joachim Raff: Piano Quartets (201
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694292.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Anderson & Roe Piano Duo - The Art of Bach (2015) [FLAC|Lossless|tracks] <Classi
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694170.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Telarc: Sampler Five Plus, Sound Effects Library [1996] [flac] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693618.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Piano Cloud Series - Volume Two (2016) [FLAC|Lossless|WEB-DL|tracks] <Moder
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693070.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Jackie Evancho - Two Hearts (2017) 2CD [FLAC|Lossless|tracks + .cue] <Classical 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693027.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Apollo 100 - Golden Instrumental Hits (1989) Compilation [FLAC|Lossless|image + 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689162.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Rondo Di Milano - Pop Opera (1998) [FLAC|Lossless|image + .cue] <Pop, Classical 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686475.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ The New London Chorale - The Young Tchaikovsky (1993) [FLAC|Lossless|image + .cu
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685045.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The New London Chorale - It's For You (1999) CD Single [FLAC|Lossless|image + .c
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685040.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Annie Lennox - Lepidoptera (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Modern Class
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684164.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ The New London Chorale - The Young Wolfgang Amadeus Mozart (1986) [FLAC|Lossless
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682861.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681975.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Hexperos - 2 albums (2007-2010) [FLAC/APE|Lossless] <Neoclassical, Ethereal, Med
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_681349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_681349.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ Katherine Jenkins - Home Sweet Home (2014) [MP3|320 кб/с] <Classical Crossove
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680134.jpg" />
 </div>
 
 

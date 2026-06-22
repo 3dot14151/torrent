@@ -1,3 +1,31 @@
+###  Публикация: 1784979   (24725) от 14.03.2025
+
+Охотники за разумом / Mindhunters (2004) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24725.jpg" />
+</div>
+
+
+###  Подробнее
+
+На удаленном острове семь будущих агентов ФБР проходят решающий тест, чтобы попасть в элитный отдел «охотников за разумом» - людей, по мельчайшим уликам и любым сведениям составляющих психологические профили опаснейших преступников.
+
+Но испытание становится слишком реальным, когда в их группе оказывается настоящий серийный убийца. Успеют ли оставшиеся в живых выявить (   Читать дальше...   )Производство: США, Великобритания, Нидерланды, Финляндия / Avenue Pictures Productions, Dimension Films, Egmond Film & Television, Intermedia Films, Mindhunters (UK) Limited, Mindhunters Productie BV, Outlaw Productions, Outlaw Victoria Productions Inc., Tonna Oy, Weed Road PicturesЖанр: ужасы, триллер, криминалРежиссер: Ренни ХарлинАктеры: Кэтрин Моррис, Джонни Ли Миллер, ЭлЭл Кул Джей, Кристиан Слэйтер, Клифтон Коллинз мл., Вэл Килмер, Эйон Бэйли, Уилл Кемп, Патрисия Веласкес, Кассандра БеллПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBC53AB0FCA6E76B76BFF0C8A1A827EE266E8A30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785064   (24708) от 14.03.2025
 
 Бегущий по лезвию / Blade Runner (1982) [AV1/1080p] [The Penultimate Cut]
@@ -6,7 +34,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24708.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24696.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24671.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24663.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24662.jpg" />
 </div>
 
 
@@ -136,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24509.jpg" />
 </div>
 
 
@@ -162,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24502.jpg" />
 </div>
 
 
@@ -189,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24387.jpg" />
 </div>
 
 
@@ -215,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24384.jpg" />
 </div>
 
 
@@ -243,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24376.jpg" />
 </div>
 
 
@@ -269,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24361.jpg" />
 </div>
 
 
@@ -295,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24352.jpg" />
 </div>
 
 
@@ -321,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24350.jpg" />
 </div>
 
 
@@ -349,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24348.jpg" />
 </div>
 
 
@@ -375,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24325.jpg" />
 </div>
 
 
@@ -401,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24308.jpg" />
 </div>
 
 
@@ -427,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24306.jpg" />
 </div>
 
 
@@ -455,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24295.jpg" />
 </div>
 
 
@@ -483,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24289.jpg" />
 </div>
 
 
@@ -511,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24278.jpg" />
 </div>
 
 
@@ -537,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24080.jpg" />
 </div>
 
 
@@ -565,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24076.jpg" />
 </div>
 
 
@@ -591,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24060.jpg" />
 </div>
 
 
@@ -618,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24049.jpg" />
 </div>
 
 
@@ -646,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24004.jpg" />
 </div>
 
 
@@ -657,32 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7359BDC427E0EAFB6064B928578B3FE0BDC43B6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786650   (23999) от 21.03.2025
-
-Перед рассветом (1989) WEBRip [H.264/1080p] [handmade upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лето 1941 года. Небольшая железнодорожная станция в прифронтовой полосе. В один из вагонов спешно грузят группу уголовников. Не успевает поезд проехать и нескольких километров, как подвергается авианалёту и атаке парашютного десанта. После боя из всего состава в живых остаются только трое: молодой лейтенант НКВД, «вор в законе» и репрессированный партийный работник. (   Читать дальше...   )Производство: СССР, Свердловская киностудияЖанр: боевик, военныйРежиссер: Ярополк ЛапшинАктеры: Николай Бадьев, Евгений Миронов, Александр Панкратов-Чёрный, Валерий Рыжаков, Раиса Рязанова, Константин Степанков, Вера Альховская, Олег Корчиков, Вячеслав Кириличев, Игорь ГоловинПеревод: не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:20:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D8FBB451C8AE0C0077EAB16BE422C741E86776F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,83 +1,3 @@
-###  Публикация: 1179788   (341839) от 03.11.2017
-
-Александр Горбунов | Как снизить расходы на бензин на 25000 рублей в год (2017) [PDF]
-
->>Автомобили
->>Автомобильная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341839.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге описываются два варианта простого способа, позволяющего экономить на бензине значительные деньги при увеличении мощности автомобиля на 15—20 процентов. Минимальные вложения. Для кого эта книга: для всех, кто ищет способ сократить свои расходы с минимальными вложениями; для предпринимателей, работающих на маршрутных такси, желающих получить преимущество над (   Читать дальше...   )Жанр: ТранспортФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9A7D33B71893E3331DEB80196615F2FB22F3065
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954629   (339347) от 08.11.2015
-
-Владимир Золотницкий | Определение и устранение неисправностей своими силами в автомобиле [5 книг] (2007-2012) [FB2]
-
->>Автомобили
->>Автомобильная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любой автомобиль не застрахован от возможных поломок и неисправностей, особенно если он много лет эксплуатируется. Его детали, входящие в многочисленные системы, постепенно изнашиваются, теряют надежность. Случаются и аварии, и различной степени механические повреждения.
-    Автомобилист должен уметь определить причину неисправности и самостоятельно оказывать первую (   Читать дальше...   )Жанр: ТранспортФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC40965CA19D5604C723F530C8BFD25B62A8F40A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957741   (325548) от 19.11.2015
-
-А.В. Кондратьев, Л.Ю. Желтухин и др. | Hyundai Solaris (Седан/Хэтчбек) (2011) [PDF, DJVU]
-
->>Автомобили
->>Автомобильная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подробное информационно-справочное со многочисленными цветными иллюстрациями пособие Руководство по ремонту Hyundai Solaris, а также руководство по эксплуатации и техническому обслуживанию Hyundai Solaris, устройство Hyundai Solaris с 2011 г. выпуска, оборудованных бензиновыми двигателями R4, 16V рабочим объемом 1,4 и 1,6 л.
-Это великолепно исполненное красочное (   Читать дальше...   )Жанр: Руководство по эксплуатации, техническому обслуживанию и ремонтуФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDCD0C5B45CF6178C781AB2032CF7B33DA0D109A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958198   (324625) от 20.11.2015
 
 Алексей Ревин | Renault Duster 4х2 и 4х4. Устройство, обслуживание, диагностика, ремонт (2012) [PDF]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324625.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324511.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323768.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323762.jpg" />
 </div>
 
 
@@ -190,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323250.jpg" />
 </div>
 
 
@@ -218,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321368.jpg" />
 </div>
 
 
@@ -244,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318965.jpg" />
 </div>
 
 
@@ -270,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316767.jpg" />
 </div>
 
 
@@ -297,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309646.jpg" />
 </div>
 
 
@@ -323,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309623.jpg" />
 </div>
 
 
@@ -349,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309616.jpg" />
 </div>
 
 
@@ -375,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298366.jpg" />
 </div>
 
 
@@ -401,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296639.jpg" />
 </div>
 
 
@@ -429,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293751.jpg" />
 </div>
 
 
@@ -455,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280256.jpg" />
 </div>
 
 
@@ -482,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275902.jpg" />
 </div>
 
 
@@ -510,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273956.jpg" />
 </div>
 
 
@@ -536,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266750.jpg" />
 </div>
 
 
@@ -562,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263346.jpg" />
 </div>
 
 
@@ -588,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263106.jpg" />
 </div>
 
 
@@ -615,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259984.jpg" />
 </div>
 
 
@@ -643,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259776.jpg" />
 </div>
 
 
@@ -671,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259761.jpg" />
 </div>
 
 
@@ -683,6 +603,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:849D3C53AAA69619ECE84A7762DA49CE80DC7829
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501046   (258123) от 24.05.2012
+
+Евгения Шацкая | Права категории «Ж». Самоучитель по вождению для женщин (2008) [PDF, FB2]
+
+>>Автомобили
+>>Автомобильная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга сильно отличается от традиционных пособий для водителей. Во-первых, ее написала женщина. Во-вторых, она рассчитана отнюдь не на тех, кто хотел бы научиться разбирать двигатель с закрытыми глазами, а, наоборот, - на тех, кто, быть может, пока еще не в состоянии отличить аккумулятор от карбюратора. И это, по мнению автора, совершенно не страшно! Автор не стесняется учиться на собственных ошибках и призывает к этому всех начинающих женщин-автолюбителей. Книга поможет вам почувствовать себя за рулем уверенно, даст ответы на самые простые вопросы: зачем в машине нужны трос и прикуриватель? Что делать, если в дороге спустило колесо? Как завести автомобиль зимой? Как расположить к себе инспектора ГИБДД и сурового инструктора в автошколе? Чтобы читательнице было проще перейти с автомобилем на "ты", автор откроет несколько мужских секретов. Например, о том, что первым водителем на самом деле была женщина, которая сумела справиться с управлением транспортным средством лучше современников-мужчин. А шутливые (   Читать дальше...   )Формат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EB2188540368621074F3B573FEA16E2F8B544E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497414   (253488) от 16.05.2012
+
+В.Е.Ютт | Электрооборудование автомобилей [2006] [pdf, djvu]
+
+>>Автомобили
+>>Автомобильная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253488.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге Электрооборудование автомобилей рассматривается электрооборудование автомобилей - конструкция, принцип действия, характеристики, методы диагностирования. Подробно рассмотрены электронные и микропроцессорные системы зажигания, системы автоматического управления трансмиссией и двигателем, диагностические системы, а также системы сигнализации и освещения.2006Формат: pdf, djvu
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83C3522A07342C8ACD807F305B850A1947A62C5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492611   (248295) от 06.05.2012
+
+А.А. Юрчевский и др. | Автомобили. Теория и конструкция автомобиля и двигателя [2003] [PDF]
+
+>>Автомобили
+>>Автомобильная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248295.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебнике изложены основные положения теории двигателя и автомобиля. Даны понятия о главных эксплуатационных свойствах и оценочных параметрах автотранспортных средств, методы расчетного и экспериментального определения их показателей. Описаны конструкции современных отечественных и зарубежных двигателей, механизмов, агрегатов, систем автомобилей и их электрооборудования. Показаны перспективные направления развития конструкций автомобилей, автопоездов и специализированного подвижного состава.2003Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11129E2A6C69E1D908E12EC044E6B0B1A507D7F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

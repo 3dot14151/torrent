@@ -1,3 +1,81 @@
+###  Публикация: 1506594   (799826) от 31.10.2021
+
+Kyou Kara Maou! | Kyo Kara Maoh! | God? Save Our King | King From Now On! | Отныне Мао, король демонов! [2004, TV, 78 из 78] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зря, зря 15-летний Юри Сибуя вступился за одноклассника Кэна Мурату. Того и след простыл, а злые хулиганы затащили героя в женский туалет и от души макнули в унитаз. Самое интересное, что очнулся Юри в новом мире, которым правит магическая раса мазоку, иные тамошние расы их зовут просто – демоны. Ну а сам Юри, как положено, после ряда приключений узнает, что он не (   Читать дальше...   )Производство: Studio Deen / スタジオディーンЖанр: приключения, комедия, фэнтезиРежиссер: Нисимура ДзюндзиПеревод: Suzume, Xander, Lina, Leoneed, TAI_DAЯзык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 78 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A5891FEB0905786D51E4B25BCBB235A6D362746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506613   (798203) от 05.11.2021
+
+Mujaki no Rakuen | Paradise of Innocence | Невинный рай [2014-2016, OVA, 3 из 3] DVDRip 576p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ханда Сёта, 25-летний хикикомори, на встрече одноклассников жалеет о своей никчёмно проведённой жизни и, стоя на крыше, думает: "Хотел бы я просто свалить от всего этого". И, как ни странно, его желание осуществляется. Он поскальзывается, падает в бассейн и... попадает во времена своего детства, в своё собственное тело, когда ему было 10 лет.Производство: Япония. HakusenshaЖанр: комедия, эттиРежиссер: Араки ХидэкиЯзык озвучки: Японский и русскийСубтитры: Русские, английскиеПродолжительность: 3 эп. по 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83BAEAEB3860FD9B99A978150600BC00FACE8ACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385418   (797677) от 24.05.2020
+
+Human Lost: Ningen Shikkaku | No Longer Human | Human Lost: Исповедь неполноценного человека [2019, Movie] WEB-DL 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Токио, 2036 год. Революционные медицинские технологии победили смерть: при помощи внутренних наноустройств, которые контролируются системой S.H.E.L.L., человек гарантированно может прожить 120 лет, не болея и не нуждаясь в лечении травм. Это привело к социальному и экономическому расслоению, падению морали, деградации общества и сильному загрязнению окружающей среды. (   Читать дальше...   )Производство: Япония / Polygon PicturesЖанр: фантастика, боевик, драмаРежиссер: Кидзаки ФуминориЯзык озвучки: русскийСубтитры: русские - перевод:Продолжительность: 110 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7378E743DDE3EBF0084434A72C892FDDA4F644C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506414   (797262) от 08.11.2021
 
 Gekijouban Violet Evergarden | Violet Evergarden the Movie | Виолетта Эвергарден (фильм) [2020, Movie] BDRip 1080p raw+rus
@@ -6,7 +84,7 @@ Gekijouban Violet Evergarden | Violet Evergarden the Movie | Виолетта Э
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797262.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Bosco daiboken | Bosco Adventure | Приключения Боско [1986, TV, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797167.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Bosco daiboken | Bosco Adventure | Приключения Боско [1986, TV, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797166.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Goblin Slayer | Убийца Гоблинов [2018, TV, 12 ep] BDRip 1080p raw+
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797061.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Sword Art Online II | Мастера Меча Онлайн II [ТВ-2] [2014, TV
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796472.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ Kureopatora | Cleopatra | Клеопатра, королева секса [1970]
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795996.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Goblin Slayer / Убийца гоблинов [2018, TV, 12 ep] WEB-DL 720p Raw+
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794689.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ Just Because! / А просто так! [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794505.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ Fate/Apocrypha / Судьба/Апокриф [2017, TV, 25 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794504.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ Lord El-Melloi II Sei no Jikenbo: Rail Zeppelin Grace Note - Hakamori to Neko to
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792708.jpg" />
 </div>
 
 
@@ -271,7 +349,7 @@ Kimi no Na wa | Твоё Имя [2016, Movie] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792280.jpg" />
 </div>
 
 
@@ -298,7 +376,7 @@ Jashin-chan Dropkick [TV-1] | Dropkick on My Devil! | Пинок с наскок
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791994.jpg" />
 </div>
 
 
@@ -325,7 +403,7 @@ The Rolling Girls | Девчонки-путешественницы | Девча
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791871.jpg" />
 </div>
 
 
@@ -351,7 +429,7 @@ Strike the Blood III | Удар Крови [OVA-3] [2018, OVA, 10 ep] BDRip 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791729.jpg" />
 </div>
 
 
@@ -377,7 +455,7 @@ Seishun Buta Yarou wa Yumemiru Shoujo no Yume o Minai | Эта глупая св
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790571.jpg" />
 </div>
 
 
@@ -403,7 +481,7 @@ Highlander: The Search for Vengeance | Горец: В поисках мести 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790227.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ Umi ga Kikoeru | Ocean Waves | Здесь слышен океан [1993, Movie] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789963.jpg" />
 </div>
 
 
@@ -456,7 +534,7 @@ Evangelion. 2.22 You Can [Not] Advance | Евангелион. 2.22 Ты (не) 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789960.jpg" />
 </div>
 
 
@@ -483,7 +561,7 @@ Hagane no Renkinjutsushi / Fullmetal Alchemist: Brotherhood / Стальной �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789613.jpg" />
 </div>
 
 
@@ -509,7 +587,7 @@ Zero no Tsukaima F| Подручный Бездарной Луизы: Финал
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786862.jpg" />
 </div>
 
 
@@ -536,7 +614,7 @@ Zero no Tsukaima: Princess no Rondo | Подручный Бездарной Лу
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786854.jpg" />
 </div>
 
 
@@ -562,7 +640,7 @@ True Tears | Настоящие Слезы [2008, TV, 13 ep + 8 Specials] BDRip 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786617.jpg" />
 </div>
 
 
@@ -589,7 +667,7 @@ Chuunibyou demo Koi ga Shitai! Movie: Take On Me | Чудачество Любв
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786615.jpg" />
 </div>
 
 
@@ -600,85 +678,6 @@ Chuunibyou demo Koi ga Shitai! Movie: Take On Me | Чудачество Любв
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EBEFD8ABEF91F4478F700A5E66D5391951A823E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388539   (786614) от 06.06.2020
-
-Tokyo Magnitude 8.0 | Токийское Восьмибалльное [2009, TV, 11 ep] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786614.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основе проекта лежит прогноз о 70% вероятности того, что в ближайшие тридцать лет в Токио произойдёт землетрясение силой 7.0 баллов. Данное аниме описывает, что же может случиться с Токио, если произойдёт землетрясение силой 8.0 баллов.
-Повествование ведётся от лица ученицы средних классов Мирай Онодзавы, на летних каникулах приехавшей со своим младшим братом Юки (   Читать дальше...   )Производство: Bones, ЯпонияЖанр: ДрамаРежиссер: Татибана МасакиОзвучка: Одноголосая, Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 11 Эпизодов по 23 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84ABAF0CAB1757817D38982CE267F27D62CED384
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388441   (786613) от 06.06.2020
-
-No Guns Life | Жизнь без оружия [TV-1] [2019, TV, 12 из 12] BDRip HEVC 10-bit 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Война закончилась, оставив после себя «Экстендов» — людей, части тел которых заменило оружие. Дзюдзо Инуи как раз из таких, — вместо головы у него револьвер, и он ничего не помнит о себе до преобразования. Дзюдзо желает лишь одного: найти того, кто сделал из него живое оружие, чтобы вернуть потерянные воспоминания. А пока Инуи зарабатывает на жизнь, расследуя дела, (   Читать дальше...   )Производство: Япония, студия Madhouse Studios / マッドハウスЖанр: приключенияРежиссер: Ито НаоюкиЯзык озвучки: Русский дублированный (Wakanim.tv), English дублированный (FUNimation)Субтитры: русские надписи, Русский, English, Français, PortuguêsПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7C6E7C06C96ED9350BEB982830F3747A6496CCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358851   (786612) от 06.06.2020
-
-Usagi Drop | Брошенный Кролик [2011, TV, 11 ep + 4 sp] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вернувшегося домой на похороны деда, тридцатилетнего холостяка Дайкичи Кавачи просто сбивает с ног шокирующее открытие: у его покойного деда есть незаконнорождённая дочь, которую родила молодая любовница. Остальные члены семьи шокированы в равной степени и возмущены таким сюрпризом — никто не хочет брать на себя ответственность опеки над маленькой молчаливой девочкой (   Читать дальше...   )Производство: Production I.G, ЯпонияЖанр: Комедия, Драма, ПовседневностьРежиссер: Камэй КантаОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи/ПолныеПродолжительность: 11 Эпизодов по 25 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37ADD7B7B08378C8A23C9A7C32092D11CED87EBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

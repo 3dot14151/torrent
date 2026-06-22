@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071891.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071686.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067942.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067633.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065581.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064325.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063513.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063243.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063228.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063192.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062608.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062597.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060291.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1059967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059967.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059250.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059075.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052946.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048296.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047627.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045620.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045457.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045371.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044724.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044691.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044398.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043822.jpg" />
 </div>
 
 

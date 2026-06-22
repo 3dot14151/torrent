@@ -1,3 +1,110 @@
+###  Публикация: 1051335   (532701) от 11.09.2016
+
+М. Смит | Что обещал и что дал германский фашизм трудящимся массам (1941) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Германская реакция стала готовиться к захвату власти уже вскоре после окончания войны 1914—1918 гг., проигранной Германией. Это были тяжелые годы для германского народа. Германские реакционеры самым циничным образом использовали тяжелое положение германского народа для того, чтобы уничтожить демократический строй и установить режим фашистской диктатуры. Речь тут (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0D1C271E7145A20785A64F591CDCF2C77DC1CAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155619   (531679) от 04.08.2017
+
+Николай Соколов | Убийство царской семьи (2016) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531679.jpg" />
+</div>
+
+
+###  Подробнее
+
+В русской истории немало трагических событий, но расстрел царской семьи оказал роковое влияние на последующее развитие страны и ее сателлитов. Кровавые события под Екатеринбургом были расследованы задолго до перестроечных времен.
+Следователь Омского окружного суда Н. А. Соколов опубликовал в эмиграции сборник документов о гибели последнего русского царя и членов (   Читать дальше...   )Жанр: История России, Биографии и МемуарыФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6FD3518F67C403959D6B3AD0D9DB1108ED4D467
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155856   (531675) от 04.08.2017
+
+Е. Прокофьева, Т. Умнова | Легенды довоенной Москвы (2016) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для кого-то тридцатые – это эпоха джаза. Для кого-то – самый расцвет Серебряного Века в литературе. А для кого-то – это те беспокойные годы, когда ужасы гражданской войны и революции были уже пройдены, но еще не были забыты.
+Тем удивительнее те – совершенно человеческие – истории любви, ревности, предательства и благородства времен тридцатых.
+Лев Ландау и Кора Дробанцева, (   Читать дальше...   )Жанр: Отечественная история, Биографии и мемуарыФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19ED8A0C1C30663B68015B7D0BAB99D21785F430
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155613   (531577) от 04.08.2017
+
+Юрий Сушко | Последний роман Владимира Высоцкого (2016) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отношения Владимира Высоцкого с Изой Мешковой, Люсей Абрамовой, Татьяной Иваненко, Мариной Влади, Оксаной Афанасьевой многое объясняют. Его голос. Его печальный взгляд. Строки его песен… «Я люблю – и значит, я живу…» Его душа была хрупкой и трепетной, а сердце его всегда было готово к самопожертвованию. Любовь заполняла мысли и чувства великого барда, она его рукой (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAC274CFA74B3E33C56C3893D5F519A89AF16AC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155652   (531573) от 04.08.2017
 
 Шапи Казиев | Великолепный век (2013) [FB2, EPUB]
@@ -6,7 +113,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531573.jpg" />
 </div>
 
 
@@ -33,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531557.jpg" />
 </div>
 
 
@@ -61,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531553.jpg" />
 </div>
 
 
@@ -88,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531362.jpg" />
 </div>
 
 
@@ -116,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531060.jpg" />
 </div>
 
 
@@ -142,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530939.jpg" />
 </div>
 
 
@@ -170,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528750.jpg" />
 </div>
 
 
@@ -198,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528692.jpg" />
 </div>
 
 
@@ -224,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528555.jpg" />
 </div>
 
 
@@ -251,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528554.jpg" />
 </div>
 
 
@@ -279,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528492.jpg" />
 </div>
 
 
@@ -306,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528487.jpg" />
 </div>
 
 
@@ -334,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528409.jpg" />
 </div>
 
 
@@ -363,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528401.jpg" />
 </div>
 
 
@@ -391,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528071.jpg" />
 </div>
 
 
@@ -417,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526956.jpg" />
 </div>
 
 
@@ -446,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526946.jpg" />
 </div>
 
 
@@ -474,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526415.jpg" />
 </div>
 
 
@@ -501,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526414.jpg" />
 </div>
 
 
@@ -529,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526409.jpg" />
 </div>
 
 
@@ -556,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526404.jpg" />
 </div>
 
 
@@ -583,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526110.jpg" />
 </div>
 
 
@@ -594,113 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69999890FFDF90DB42A6C4CD125E8456CC0A9F73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157060   (525857) от 10.08.2017
-
-Филлипс Грэхем | Александр Македонский (2010) [FB2, EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный британский автор выдвигает гипотезу о том, что Александр Македонский был убит, а точнее, отравлен в возрасте 32 лет во время поминального пира в честь его друга Гефестиона. Он предлагает свою версию ответа на вопрос: кому и зачем понадобилась смерть великого полководца? Интригу расследованию добавляет то обстоятельство, что и современники Александра Великого, (   Читать дальше...   )Жанр: ИсторияФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C72638B3E4E245982EFE5C79A4661C9D1C422503
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157056   (525853) от 10.08.2017
-
-Дэвид Дрю | Майя. Загадки великой цивилизации (2012) [FB2, EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майя — великие астрономы, математики, архитекторы и… предсказатели?
-В настоящее время известна вся хронология зарождения, развития и заката цивилизации майя с точностью до года.
-Но какое послание для нас, ныне живущих, зашифровано в последней дате их календаря — 13 августа 2012 года? Мир замер в ожидании.Жанр: История, КультурологияФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADE028FFA58C3BF319561019184668A00018DF8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157055   (525843) от 10.08.2017
-
-Шон Макглинн | Узаконенная жестокость: Правда о средневековой войне IX-XVI вв. (2011) [FB2, EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несмотря на бытующие до сих пор представления о рыцарском благородстве и кодексе чести, средневековые войны были неизбежно сопряжены с деяниями, которые в наши дни считались бы чудовищными военными преступлениями.
-Разорение сел и городов, беспощадная резня мирного населения, массовое истребление пленников, несоразмерные по суровости наказания за нетяжкие преступления (   Читать дальше...   )Жанр: ИсторияФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B952B8A7284C8A424E7085E3FDEF355325803EB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157662   (525141) от 12.08.2017
-
-Олег Федюшин | Украинская революция. 1917-1918 (2007) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Период 1917-1918 годов явился кризисным и трагическим в истории Украины и других государств, образовавшихся на руинах Российской империи. Глубокое исследование профессора О.С Федюшина касается не только экспансии Германии на Восток, но и проблем Крыма, Черноморского бассейна, польского вопроса, а также взаимоотношений России и Германии. Детально анализируются усилия (   Читать дальше...   )Жанр: историографияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84034C54F466601BEFA40E5C663E1A676C1D3C31
 ```
 
 https://mybot314.ru/tekegram_catalog/

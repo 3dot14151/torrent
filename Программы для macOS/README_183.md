@@ -1,3 +1,112 @@
+###  Публикация: 1706163   (113693) от 11.03.2024
+
+NoteList 4 v.4.3.4 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113693.jpg" />
+</div>
+
+
+###  Подробнее
+
+NoteList - это многоформатный сборщик заметок, в котором вы можете сохранять заметки в текстовом или RTF-формате с включенными изображениями.
+Вы даже можете скопировать и вставить веб-сайт из сафари, и они будут сохранены как rtf со встроенными изображениями.Тип издания: macOS SoftwareРелиз состоялся: 08.03.2024Разработчик: © 2024 Roberto PanettaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2634840660EF2839E8A9FEFBA4F30C613C57D41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706171   (113691) от 11.03.2024
+
+FSNotes 6.7.0 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113691.jpg" />
+</div>
+
+
+###  Подробнее
+
+FSNotes - это менеджер текстовых заметок для macOS и представляет собой современное переосмысление нотационной скорости (nvALT) на стероидах. В нашем приложении рассматриваются следующие открытые форматы: plain / text, Markdown и RTF, а также хранятся данные в файловой системе. Вы можете просматривать, редактировать и копировать данные в своем любимом внешнем редакторе (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.03.2024Разработчик: © 2024 Oleksandr GlushchenkoПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Украинский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36EB553A315C27F8892247423E16C23DF634343F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706394   (113686) от 12.03.2024
+
+EditReady 24.1 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональный видео-конвертер, позиционируемый как самый быстрый в отрасли.
+Умеет сохранять метаданные при конвертации видео, а так же, при необходимоcти, редактировать их. Имеет поддержку аппаратной обработки h.264.
+
+Поддерживает контейнеры:(   Читать дальше...   )Тип издания: macOS X SoftwareРелиз состоялся: 12.03.2024Разработчик: © 2014-2022 The Sync FactoryПоддерживаемая ОС: macOS X 10.15 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0B4D305CBE4D9E96B6953C9D72AE1BB56A6FF5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706410   (113682) от 12.03.2024
+
+KeyCue 10.2 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113682.jpg" />
+</div>
+
+
+###  Подробнее
+
+KeyCue – удобная утилита, которая поможет пользователю, особенно начинающему, запоминать комбинации клавиш быстрого доступа (шорткаты) во время работы в меню маковских приложений.
+При удержании клавиши Command, выскакивает окно со списком шорткатов, доступных для интерфейса данной программы. После того как пользователь находит и нажимает нужную ему комбинацию, окно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.02.2023Разработчик: © 2023 Ergonis SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B0C81483CAE94B1953E3E49120C4399F57B2A51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706431   (113680) от 12.03.2024
 
 Invoices for Mac 3.5.2 [En]
@@ -6,7 +115,7 @@ Invoices for Mac 3.5.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113680.jpg" />
 </div>
 
 
@@ -33,7 +142,7 @@ Boxy SVG 4.26.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113665.jpg" />
 </div>
 
 
@@ -59,7 +168,7 @@ Vinegar 3.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113654.jpg" />
 </div>
 
 
@@ -86,7 +195,7 @@ Stash for Mac 2.5.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113646.jpg" />
 </div>
 
 
@@ -112,7 +221,7 @@ iShot-ScreenShot Recording OCR for Mac 2.5.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113638.jpg" />
 </div>
 
 
@@ -138,7 +247,7 @@ Navicat for Redis on Mac 16.3.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113635.jpg" />
 </div>
 
 
@@ -165,7 +274,7 @@ Navicat for Oracle on Mac 16.3.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113621.jpg" />
 </div>
 
 
@@ -192,7 +301,7 @@ Navicat for MongoDB on Mac 16.3.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113617.jpg" />
 </div>
 
 
@@ -218,7 +327,7 @@ Data Merge for Mac 1.1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113615.jpg" />
 </div>
 
 
@@ -244,7 +353,7 @@ BBEdit 15.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113609.jpg" />
 </div>
 
 
@@ -270,7 +379,7 @@ PanoramaStudio 4 Pro for Mac v.4.0.0 iNTEL [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113586.jpg" />
 </div>
 
 
@@ -297,7 +406,7 @@ Lifespan 2.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113577.jpg" />
 </div>
 
 
@@ -324,7 +433,7 @@ Navicat for PostgreSQL on Mac 16.3.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113563.jpg" />
 </div>
 
 
@@ -350,7 +459,7 @@ Deckset 2.0.28 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113555.jpg" />
 </div>
 
 
@@ -377,7 +486,7 @@ iBarcoder 3.14.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113552.jpg" />
 </div>
 
 
@@ -403,7 +512,7 @@ Ink2Go 1.9.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113550.jpg" />
 </div>
 
 
@@ -430,7 +539,7 @@ Navicat for SQLite on Mac 16.3.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113548.jpg" />
 </div>
 
 
@@ -456,7 +565,7 @@ NCH ClickCharts Diagram Pro 9.15 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113547.jpg" />
 </div>
 
 
@@ -482,7 +591,7 @@ Musify for Mac 3.5.4 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113526.jpg" />
 </div>
 
 
@@ -508,7 +617,7 @@ System Toolkit 6.1.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113509.jpg" />
 </div>
 
 
@@ -534,7 +643,7 @@ Upscayl for Mac 2.10.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113492.jpg" />
 </div>
 
 
@@ -561,7 +670,7 @@ Cronette 1.10.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113491.jpg" />
 </div>
 
 
@@ -573,113 +682,6 @@ Cronette - это приложение для определения задач,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:929001CD53A4D25EAE8F62DDFAD8E1F52BD24CAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706744   (113484) от 14.03.2024
-
-SQLPro Studio 2024.12 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113484.jpg" />
-</div>
-
-
-###  Подробнее
-
-QLPro Studio инструмент управления базами данных Postgres, MySQL, Microsoft Management Studio и Oracle.Тип издания: macOS SoftwareРелиз состоялся: 12.03.2024Разработчик: © 2015-2024 Hankinsoft Development, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4280719498595A166D71137D1ACBCCF8EC230598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706751   (113479) от 14.03.2024
-
-Prism 10 v.10.2.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Prism - это мощная комбинация биостатистики, подбора кривой (нелинейная регрессия) и научного построения графиков в одной комплексной программе. Легко организовывать, анализировать и графически повторять эксперименты; выбрать соответствующие статистические тесты и интерпретировать результаты.
-Prism представляет новые способы организации, анализа и графического представления (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.03.2024Разработчик: © 2024 GraphPad SoftwarПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB97111E0BB2591A97C19420BA9FF4468CA6D1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706927   (113478) от 14.03.2024
-
-Kaleidoscope 4.4.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kaleidoscope — приложение, предназначенное для сравнения текстовых или графических файлов и быстрого поиска различий в них.
-Область применения программы предельно ясна.
-Если вы программист, то с помощью Kaleidoscope всегда будете видеть различия в коде двух версий файлов. При этом зелёным цветом будут подсвечиваться добавленные строки, красным — удалённые, а синим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.03.2024Разработчик: © 2010-2024 Letter Opener GmbHПоддерживаемая ОС: macOS X 13.0 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB5FA7FE6A759D1522E1A65F5575981A2A90B739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707002   (113456) от 14.03.2024
-
-TS Calc 1.8.2 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113456.jpg" />
-</div>
-
-
-###  Подробнее
-
-TS Calc реализует числовое разрешение расчетных моделей, которые можно использовать для любых математических технических задач. Это совершенно другой подход к решению математических задач по сравнению с обычным подходом с использованием электронных таблиц. Вы можете создавать разные документы для решения любой модели.Тип издания: macOS SoftwareРелиз состоялся: 14.03.2024Разработчик: © 2012-2024 Ecleti - Roberto PanettaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14EAB850AAFAF7DB5BB9352B1EE3E93C8FD086DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

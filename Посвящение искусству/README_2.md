@@ -1,3 +1,82 @@
+###  Публикация: 1443805   (1035172) от 30.01.2021
+
+Лорел Каньон / Laurel Canyon (2020) DVB [H.264/1080i-LQ] (серии 1-2 из 2)
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035172.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Лорел Каньон» — двухсерийный документальный проект, переносящий зрителя в одноименный горный район в самом сердце Лос-Анджелеса, ставший центром музыкальной революции в конце 60-х — начале 70-х годов прошлого столетия. Здесь жили рок-музыканты, в числе которых Элис Купер, Фрэнк Заппа, The Eagles, The Doors и многие-многие другие. Богемный дух этих мест сохранился (   Читать дальше...   )Производство: США / Amblin Entertainment, Amblin Television, Jigsaw Productions, MGM Television, The Kennedy/Marshall CompanyЖанр: Документальный, Искусство, ИсторияРежиссер: Элисон ЭллвудПеревод: Многоголосый профессиональный (Первый канал)Субтитры: Русские (Teletext)Продолжительность: 02:29:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F6F147B90CE0D74085CB340C5BC9EFB6AA90788
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278648   (1035161) от 30.01.2021
+
+Наше кино. Неувядающие (Василий Лановой. Есть такая профессия) (2019) IPTVRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035161.jpg" />
+</div>
+
+
+###  Подробнее
+
+И это все о нём: "Да-а-а-леко не каждый способен подтвердить не "лирикой", а жёстким словом и честным делом (мне, лично, напомнившим "Письма из Сибири" Михаила Лунина), что существует не только "апломб", "выгода", "нужность эпохе", но и - Человеческая Порядочность, Верность Искусству, Ответственность перед Предками, (   Читать дальше...   )Телекомпания: МирЖанр: ДокументальныйПеревод: ОтсутствуетПродолжительность: 00:24:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35A8FD69BE5528DD77BC96EF7D8115A674B5A5F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444490   (1034687) от 01.02.2021
+
+Роберт Фальк. Автопортрет в красной феске (2006) DVB
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034687.jpg" />
+</div>
+
+
+###  Подробнее
+
+О русском художнике первой половины ХХ века Роберте Фальке (1886-1958). В фильме представлены программные произведения Фалька. Зрители познакомятся с эпистолярным наследием художника, в котором в полной мере отражены его взгляды на искусство и предназначение творческого человека.
+Фальк учился в школах Константина Юона и Ильи Машкова, в Училище живописи, ваяния и (   Читать дальше...   )Производство: Россия, ТРК "Культура"Жанр: Документальный, история, искусствоРежиссер: Александр ШувиковЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:38:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BE151B61C1B45C04B95F1F910E65DF37288F94D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444487   (1034655) от 01.02.2021
 
 Биографии: Кельвин Кляйн - джинсовый король / Biography - Calvin Klein: A Stylish Obsession (2006) SATRip
@@ -6,7 +85,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034655.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034649.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034633.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034439.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033974.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033679.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033678.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032914.jpg" />
 </div>
 
 
@@ -215,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032688.jpg" />
 </div>
 
 
@@ -241,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032563.jpg" />
 </div>
 
 
@@ -267,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032095.jpg" />
 </div>
 
 
@@ -293,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031899.jpg" />
 </div>
 
 
@@ -319,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031846.jpg" />
 </div>
 
 
@@ -345,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031639.jpg" />
 </div>
 
 
@@ -371,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031637.jpg" />
 </div>
 
 
@@ -397,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031392.jpg" />
 </div>
 
 
@@ -423,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030469.jpg" />
 </div>
 
 
@@ -449,7 +528,7 @@ Genesis: Сумма частей (Genesis: Части целого) / Genesis: S
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030228.jpg" />
 </div>
 
 
@@ -475,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029723.jpg" />
 </div>
 
 
@@ -501,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029566.jpg" />
 </div>
 
 
@@ -527,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029502.jpg" />
 </div>
 
 
@@ -553,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028927.jpg" />
 </div>
 
 
@@ -579,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028914.jpg" />
 </div>
 
 
@@ -590,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:250CCEFE1FF9C5D42C446E2CF6E0A55A2344EA7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450592   (1028899) от 27.02.2021
-
-Ништяк, браток / Feels Good Man (2020) WEB-DL [H.264/1080p-LQ] [MVO]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028899.jpg" />
-</div>
-
-
-###  Подробнее
-
-В середине 2000-х художник Мэтт Фьюри рисовал и выкладывал на MySpace комикс про своих друзей, бездельно проживающих жизнь после университета в одном доме. Среди героев был лягушонок по имени Пепе: «Ништяк, браток» — фраза из его репертуара. Примерно через 10 лет Фьюри к своему ужасу обнаружил, что Пепе стал оружием массового медиапоражения — его превратили в героя (   Читать дальше...   )Производство: США / Ready Fictions, Wavelength Productions, XTRЖанр: Документальный, комедияРежиссер: Артур ДжонсАктеры: Роберт Барнс, Саманта Би, Джереми Блэкберн, Сьюзэн Блэкмор, Мэтт Брайнард, Хиллари Клинтон, Стивен Колбер, Мэтт Фьюри, Урсала ФьюриПеревод: Многоголосый профессиональный (Студия «AMS»)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00F3C0EF7D8AB484BCAB6257C9E378D0225BD994
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450606   (1028895) от 27.02.2021
-
-Ништяк, браток / Feels Good Man (2020) WEB-DLRip [MVO]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028895.jpg" />
-</div>
-
-
-###  Подробнее
-
-В середине 2000-х художник Мэтт Фьюри рисовал и выкладывал на MySpace комикс про своих друзей, бездельно проживающих жизнь после университета в одном доме. Среди героев был лягушонок по имени Пепе: «Ништяк, браток» — фраза из его репертуара. Примерно через 10 лет Фьюри к своему ужасу обнаружил, что Пепе стал оружием массового медиапоражения — его превратили в героя (   Читать дальше...   )Производство: США / Ready Fictions, Wavelength Productions, XTRЖанр: Документальный, комедияРежиссер: Артур ДжонсАктеры: Роберт Барнс, Саманта Би, Джереми Блэкберн, Сьюзэн Блэкмор, Мэтт Брайнард, Хиллари Клинтон, Стивен Колбер, Мэтт Фьюри, Урсала ФьюриПеревод: Многоголосый профессиональный (Студия «AMS»)Язык озвучки: Русский, английскийПродолжительность: 01:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A232272A8262C9341597C2025C6A2CD0DE9D2F35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450814   (1028719) от 28.02.2021
-
-Ронни Вуд - Кто-то там наверху любит меня / Ronnie Wood - Somebody Up There Likes Me (2019) DVB [H.264/1080i-LQ] [MVO]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм Майка Фиггиса рассказывает о легендарном участнике группы The Rolling Stones Ронни Вуде — мы узнаем его как художника, музыканта и просто сильного человека. Ронни Вуду уже за 70, но он в отличной форме. Фильм начинается с рассказа о его юности в северном Лондоне, где он стал увлекаться музыкой вместе со старшими братьями, и охватывает всю его уникальную, более (   Читать дальше...   )Телекомпания: Великобритания / Eagle Rock Film ProductionsЖанр: Документальный, музыка, биографияПеревод: Многоголосый профессиональный (Первый канал)Субтитры: отсутствуютПродолжительность: 01:07:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9423917D87FC3F8980AA5A2C42B8F4FBEA04A664
 ```
 
 https://mybot314.ru/tekegram_catalog/

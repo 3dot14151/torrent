@@ -1,3 +1,56 @@
+###  Публикация: 1415677   (240044) от 12.10.2020
+
+PDF Checkpoint 1.9.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240044.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Checkpoint автоматизирует рабочие процессы PDF с мощной пакетной обработкой данных: preflight, route by preflight results, экспорт в качестве изображения, split, возможность конвертировать цвета, уменьшить размер файла и многое другое. Прекрасно организованный простой и наглядный инструмент для проверки PDF перед отправкой в типографию.Тип издания: macOS SoftwareРелиз состоялся: 06.10.2020Разработчик: Zevrix SolutionsПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A57C785449F64E00EE609E5989E699B4E431BF93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563829   (240027) от 15.07.2022
+
+Metadatics 1.6.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Metadatics является мощным и продвинутым редактором аудио метаданных. Поддерживает пакетное редактирование наиболее распространенных типов аудио файлов, включая MP3, M4A, AIFF, WAV, FLAC, APE, OGG, WMA, и многие другие.
+Metadatics предоставляет возможности поиска метаданных из интернет-источников, переименование файлов на основе метаданных, или манипулировать метаданными, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.07.2022Разработчик: © 2020 Mark VerstraeteПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38173B47A124D63AD2B79F739E9C285494288913
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621309   (240013) от 24.03.2023
 
 4K Video Downloader Pro 4.24.0 [Multi/Ru]
@@ -6,7 +59,7 @@
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240013.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Dropzone 4 Pro v4.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240012.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ Wondershare AllMyMusic 3.0.1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240009.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ EazyDraw 10.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239996.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ Pixelmator Classic 3.9.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239986.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ Cloud Outliner 2 Pro: Outline your Ideas & Plans 2.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239984.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ MetaImage  2.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239977.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ Amadine 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239972.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ SuperDuper! 3.5 beta1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239969.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ Markster 2.12.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239962.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ AirFoil+Airfoil Satellite 5.10.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239960.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ Metadatics 1.6.8 CR2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239951.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ BluePlum Home Inventory 4 v4.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239941.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ AYVY 1.14.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239931.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ Alfred PowerPack 5.0.1 Pre-release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239925.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ iShowU Instant (Advanced) 1.4.11 (beta version) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239918.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ EasyGantt 4.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239917.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ Magic Sort List 3.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239912.jpg" />
 </div>
 
 
@@ -484,7 +537,7 @@ BusyCal 2023.1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239906.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ Find Any File (FAF) 2.3.3b13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239901.jpg" />
 </div>
 
 
@@ -538,7 +591,7 @@ Artstudio Pro 4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239894.jpg" />
 </div>
 
 
@@ -564,7 +617,7 @@ iCompta 6 v6.0.46 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239866.jpg" />
 </div>
 
 
@@ -590,7 +643,7 @@ CHM Viewer Star 6.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239835.jpg" />
 </div>
 
 
@@ -616,7 +669,7 @@ PullTube 1.6.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239828.jpg" />
 </div>
 
 
@@ -627,58 +680,6 @@ PullTube 1.6.15 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:436591906CD953D660A0A5B3F61F09E3E0FE545D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467270   (239803) от 03.05.2021
-
-Library Monkey Pro 3.1.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Library Monkey Pro предоставляет полный набор звуковых инструментов для современных, быстро меняющихся производственных сред. Управляйте бесчисленными активами с помощью расширенного менеджера библиотек, создавая наборы и смарт-наборы, вызывайте недавние поисковые запросы, создавайте несколько подборок и многое другое. Скопируйте свои библиотеки компакт-дисков с (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2021Разработчик: Monkey Tools, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85A1E1A70885796625F192C1A22ED7B68826A3FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467440   (239796) от 03.05.2021
-
-Word Counter Pro 3.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Word Counter Pro - это простое и мощное приложение для писателей. С помощью Word Counter Pro вы можете просматривать статистику вашего письма, такую ​​как количество слов, количество символов, количество предложений, количество строк, количество абзацев и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 2021Разработчик: App Tyrant CorpПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CDA5C397D4F08E470D19725E2255E10724FF47A
 ```
 
 https://mybot314.ru/tekegram_catalog/

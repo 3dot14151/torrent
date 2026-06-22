@@ -1,3 +1,56 @@
+###  Публикация: 940492   (214990) от 19.12.2015
+
+Последний Герой (американская версия). Сезон 31 / Survivor: Cambodia — Second Chance (season 31) (2015) HDTV [H.264/720p] [EN]
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американское реалити-шоу (Российский аналог - Последний Герой), транслируемое каналом CBS. Игра была придумана Чарли Парсонсом и впервые прошла в Швеции под названием Expedition Robinson в 1992 году. Бессменным ведущим американского варианта шоу является бывший репортер Джефф Пробст, а продюсером — Марк Бернетт.
+Суть реалити-шоу состоит в том, что группу незнакомцев (   Читать дальше...   )Телекомпания: CBSЖанр: ТелепередачаПеревод: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E251724E412E055A6403D8C257112048157BDD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085387   (214718) от 21.12.2016
+
+Вечерний Ургант (2016.12.20) SATRip (cезон 10, выпуск 71)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:28:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D9E16C969D923F151AC86CC43EE8378B137A56B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481017   (207741) от 18.09.2022
 
 Шоу Грэма Нортона / The Graham Norton Show (2007-2021) WEBRip [H.264/480p/720p/1080p -LQ]
@@ -6,7 +59,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207741.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207078.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207004.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198886.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196881.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190032.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183311.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177558.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168888.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165509.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164040.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163939.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163201.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162429.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162248.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162239.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162121.jpg" />
 </div>
 
 
@@ -451,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158621.jpg" />
 </div>
 
 
@@ -477,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158214.jpg" />
 </div>
 
 
@@ -503,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157073.jpg" />
 </div>
 
 
@@ -529,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156849.jpg" />
 </div>
 
 
@@ -555,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155202.jpg" />
 </div>
 
 
@@ -581,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154830.jpg" />
 </div>
 
 
@@ -607,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154823.jpg" />
 </div>
 
 
@@ -618,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E3B062B3081CFAA4F2161A9DE3455F1965FEEAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194690   (154141) от 26.12.2017
-
-Вечерний Ургант (2017.12.25) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:26:00Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6B4BFC5DC1C5898DF4AD4B5532BD0A5B431AED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968687   (153493) от 24.12.2015
-
-На ночь глядя. Максим Галкин (24.12.2015) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доверительный разговор с гостем в студии ведут Борис Берман и Ильдар Жиндарев. К ним в гости будут приходить люди, не нуждающиеся в дополнительных рекомендациях, авторитет у публики они заслужили собственными достижениями — будь то театр, кино, музыка, литература или спорт.Телекомпания: Первый каналЖанр: ТелепередачаПродолжительность: 00:46:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D5BC15105E504CFC606AEFC08384B3CD74AA8A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

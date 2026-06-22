@@ -6,7 +6,7 @@ Patricia Manion - Blues 365 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109562.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Slash - Orgy of the Damned (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109458.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Slash - Orgy of the Damned (2024) [FLAC|Lossless|image + .cue] <Blues Rock, Hard
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109292.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Geezer - Interstellar Cosmic Blues & The Riffalicious Stoner Dudes (2024) [FLAC|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109121.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ John Haydock - Solitary Traveller (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108822.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ John Haydock - A Few More Miles (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108810.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ dB Bluesband - Do You Need a Ring (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108798.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Greg Wilson - It's My Soul (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, R&B>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108784.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Jennifer Lyn & The Groove Revival - Live from the Northern Plains (2024) [FLAC|L
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108726.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Tennessee Blues Mob - Deep Dark Alibi (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108713.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Jesse Kramer - HWY 12 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108712.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Eliza Neals - Colorcrimes (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108694.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Allen Gilliland - Revenge (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108679.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Levee Town - Stories (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108351.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Louis King - Little Devil! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108347.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Guitarbo' - Old Boxer (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108344.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Jamie Lockhart - Ship Fools (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108340.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Ian Hunter - Defiance Part 2: Fiction (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108337.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Black Cat Bones - Troublemaker (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108334.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Blue Deal - Can't Kill Me Twice (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108333.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Hammerhead Blues - After The Storm (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108328.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Jack Hadley - The St. Louis Sessions, Vol. II (2024) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108322.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Dave Williams - Open to Persuasion (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108321.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Bane Gluvakov - Awake (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108319.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Big Harp George - Cooking with Gas (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108318.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Blues People - The Skin I'm In (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108317.jpg" />
 </div>
 
 

@@ -1,3 +1,107 @@
+###  Публикация: 1773077   (31095) от 13.01.2025
+
+Bloodstained Ritual of the Night (2019) [Ru/Multi] (1.06/dlc) Repack Let'sРlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bloodstained: Ritual of the Night - это игровой опыт ориентированный на исследование, сайд-скроллерный экшен RPG, объединяющий все лучшие особенности, которые вы знаете и любите из жанра Metroidvania, в одну, наполненную контентом игру. Играйте за Мириам, сироту, изуродованную проклятием алхимика, которое медленно кристаллизует ее тело. Чтобы спасти себя и, конечно (   Читать дальше...   )Тип издания: RepackРазработчик: ArtPlayЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDB5E0CA3EB70259EAB7AEE97DCA8170F8753E08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773091   (31090) от 13.01.2025
+
+Megaloot (2024) [Ru/Multi] (1.14) Repack Pioneer
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31090.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом мире существует загадочная башня, которая воспроизводит самые разные объекты из других реальностей, создавая неопределенное пространство, наполненное монстрами, странными существами, людьми и лутом. Вы оказались в этой реальности, и здесь начинается Ваш путь. Войдя в башню, Вы оказываетесь в жестких битвах, требующих ценных предметов лута - брони, магических (   Читать дальше...   )Тип издания: RepackРазработчик: axilirateЖанр: Казуальные игры, Инди, Ролевые игры, СтратегииЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C8B55C61489B3824719F4B8677584E222692451
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773027   (31087) от 13.01.2025
+
+Book of Demons (2018) [Ru/Multi] (1.05.230215/dlc) Repack Let'sРlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Book of Demons это гибрид Hack & slash и карточной игры, в котором ТЫ опредяеляешь длительность игры. Возьми в руки магические карты вместо обычного оружия и уничтожай армии тьмы в подземельях под Старым Собором. Спаси охваченную ужасом Бумажную Вселенную из когтей самого Архидемона.Тип издания: RepackРазработчик: Thing TrunkЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:771B3D14B64F8B6819F2E61DBF29703513E7A55E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773154   (30956) от 14.01.2025
+
+Status One (2025) [Ru/Multi] (1.0.0) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создайте свой собственный контртеррористический отряд с нуля. Вы являетесь и лидером, и оператором на поле боя. Тренируйте свой отряд, приобретайте лучшее снаряжение и ведите ваших людей в борьбе с различными преступными группировками по всей стране. Вы играбельный персонаж, а также командир отряда. Вы можете участвовать в каждом столкновении или давать команды на (   Читать дальше...   )Тип издания: RepackРазработчик: LastCall StudioЖанр: Экшены, Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5050D3254EAA50BAE7A56C95743E28C83A3F2947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773558   (30799) от 16.01.2025
 
 Umbra: The Last Summoner (2025) [Ru/Multi] (1.0а) Repack Let'sРlay
@@ -6,7 +110,7 @@ Umbra: The Last Summoner (2025) [Ru/Multi] (1.0а) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30799.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Umbra: The Last Summoner (2024) [Ru/Multi] (build 16881986) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30685.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Umbra: The Last Summoner (2024) [Ru/Multi] (1.0a) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30662.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Umbra: The Last Summoner (2024) [Ru/Multi] (build 16881986) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30639.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ DYSMANTLE (2021) [Ru/Multi] (1.4.0.41/dlc) Repack FitGirl [Complete Bundle]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30460.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Final Fantasy VII Remake Intergrade (2021) [Ru/Multi] (1.005/dlc) Repack Wanterl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30292.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Tales of Graces f Remastered (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30277.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ The Redundant (2025) [Ru/Multi] (Build 17094745) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30091.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Perennial Order (2024) [Ru/Multi] (1.0.3) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30044.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (1417829 Patch 5/dlc) Repack Let'sР
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29975.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Deepest Chamber: Resurrection (2021) [Multi] (1.088) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29942.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Nienix: Cosmic Warfare (2023) [Ru/Multi] (1.099) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29868.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ The Outer Worlds (2023) [Ru/Multi] (1.4/dlc) Repack Let'sРlay [Spacer’s Choic
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29852.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Persona 4 Golden (2020) [Ru/En] (build 5111251) Repack Wagner
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29837.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ The Thaumaturge (2024) [Ru/Multi] (73.488) Repack Let'sРlay [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29828.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Cyberpunk 2077 (2020) [Ru/Multi] (2.21/dlc) Repack seleZen [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29718.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Adore (2023) [Ru/Multi] (1.0.0.3) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29618.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Noita (2019) [Ru/Multi] (20250125-1640) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29551.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ VED (2024) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29536.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.007) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29525.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ WonderLang Spanish (2025) [En] (0.9) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29501.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Final Fantasy VII Rebirth (2025) [Ru/Multi] (build 17035252) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29451.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Final Fantasy VII Rebirth (2025) [Ru/Multi] (build 17035252) Repack seleZen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:765D683D98F603D26B40F025958221369814B706
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775746   (29424) от 29.01.2025
-
-Sacred  - Антология (2005-2014) [Ru/Multi] (2.28/2.65.2/1.0/1.0/dlc) Repack Decepticon
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sacred 3 это экшен-аркада для четырех игроков, которые участвуют в битве за Анкарию. Выбирайте своих легендарных героев и сражайтесь вместе против восставшего зла. Вам предстоит преодолеть полчища гриммоков, жутких тварей, легионы наемников и колдунов. Развивайте способности своего персонажа и действуйте в команде, чтобы использовать целые комбинации атак. Победа (   Читать дальше...   )Тип издания: RepackРазработчик: Keen GamesЖанр: RPG, Isometric 3D, 3rd PersonЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:828218B21C11E6301F3C325B46C400D7A092194F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758205   (29349) от 30.01.2025
-
-Dragon Age: The Veilguard (2024) [Ru/Multi] (1417829 Build 17026604/dlc) Repack Wanterlude [Deluxe Edition]
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вас ждёт Тедас - красочный мир, полный суровой дикой природы, коварных лабиринтов и сияющих городов, а также жестоких сражений и тайной магии. И теперь два порочных древних бога вырвались из оков вековой тьмы и одержимы желанием уничтожить мир. Тедасу нужен кто-то, на кого можно положиться. И этим новым героем Dragon Age станет Рук. Будьте тем, кем захотите, и играйте, (   Читать дальше...   )Тип издания: RepackРазработчик: BioWareЖанр: Экшены, Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D672413B58051335D91ECEBDC8BC672B833A293D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749975   (29332) от 30.01.2025
-
-Enotria: The Last Song (2024) [Ru/Multi] (1.007.28161) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захватывающая игра в стиле Souls, разворачивающаяся в солнечной стране, вдохновленной итальянским фольклором и полной опасностей. Мир охвачен Кановаччо - безумной вечной пьесой, которая держит мир в неестественном стазисе. Вы, существо без маски, единственный свободный от навязанной роли и хозяин своей судьбы. Победите могущественных Авторов, создавших пьесу, и выведите (   Читать дальше...   )Тип издания: RepackРазработчик: Jyamma GamesЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, Итальянский, ЯпонскийЯзык субтитров: Русский, Английский, Итальянский, Японский и другиеЯзык интерфейса: Русский, Английский, Итальянский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B905CE65206A129619F6A82BB6A0BB8D86FE1EF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760991   (29304) от 30.01.2025
-
-VED (2024) [Ru/Multi] (1.03) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29304.jpg" />
-</div>
-
-
-###  Подробнее
-
-VED - это сюжетное RPG, сочетающее вручную нарисованную графику и анимацию с уникальной системой телепортации, пошаговыми боевыми механиками и элементами roguelite. Погрузитесь в фантастический мир с глубоким нарративом, десятками необратимых последствий и альтернативными концовками, где игровой процесс легко понять, но сложно освоить в совершенстве.Тип издания: LicenseРазработчик: KaraclanЖанр: Приключенческие игры,  Ролевые игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Китайский (упрощенный)Язык интерфейса: Русский, Английский, Китайский (упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EDE5E0581E0CBF12C05B79EC4AB95F97B31F69C
 ```
 
 https://mybot314.ru/tekegram_catalog/

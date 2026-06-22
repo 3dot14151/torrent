@@ -1,3 +1,107 @@
+###  Публикация: 1519198   (148959) от 23.12.2021
+
+Disciples: Liberation (2021) [Ru/Multi] (1.0.3.B258.R57446/dlc) License PLAZA
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disciples: Освобождение - это история в жанре "тёмное фэнтези"; мрачная стратегия-RPG с пошаговыми сражениями. Освободите земли Невендаара и откройте бесчисленные тайны этого тщательно проработанного мира, в котором каждое решение имеет последствия, а неверный шаг может обернуться трагедией. Исследуйте обширный мир и выстраивайте отношения с различными (   Читать дальше...   )Тип издания: LicenseРазработчик: Frima StudioЖанр: Strategy, RPG, Tactical, IsometricЯзык озвучки: Русский, Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CBEB7EDEAC17CA0C5A54EF36F64540D2A56100F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228893   (148915) от 23.12.2018
+
+ATOM RPG: Post-apocalyptic indie game (2018) [Ru/En] (1.0.3) Repack West4it
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148915.jpg" />
+</div>
+
+
+###  Подробнее
+
+ATOM RPG это пост-апокалиптическая инди-игра вдохновлённая классическими CRPG: Fallout, Wasteland, System Shock, Deus Ex, Baldur's Gate. В 1986 году, СССР и Западный Блок были практически уничтожены, в ходе обмена ядерными ударами.Тип издания: RepackРазработчик: AtomTeamЖанр: RPG, Action, IndieЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FB0462040D6AA6D2E6812427DB21F0A3B114076
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677765   (148234) от 19.11.2023
+
+Stray Blade (2023) [Ru/Multi] (20231116/dlc) Scene Rune
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stray Blade – это мрачное фентези, в котором игроку предстоит исследовать огромный мир, чтобы разгадать все его секреты. После каждой победы или проигрыша все вокруг начнет постепенно меняться, что может привести к новым концовкам или неожиданным исходам. Возможно, сначала все будет казаться таким же, как и прежде, но позже более опытным взглядом можно будет понять, (   Читать дальше...   )Тип издания: SceneРазработчик: Point Blank GamesЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:461F92F9FFEFF1D089F89596FFA14B06EDC14285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139690   (147885) от 24.12.2018
+
+Fallout 3 (2009) [En] (1.7.0.3/dlc) License GOG [Game of the Year Edition]
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инженеры из Vault-Tec круглосуточно работали над интерактивным воспроизведением жизни в Пустоши, чтобы вы могли насладиться ей, не покидая собственного убежища. Сюда входит обширный мир, уникальные бои, поразительно реалистичные визуальные эффекты, множество вариантов выбора и невероятная группа динамичных персонажей.Тип издания: LicenseРазработчик: Bethesda Game StudiosЖанр: Action (Shooter), RPG, 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD37BB188B1EA90426144898BF67D3FB8BB7CC82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087109   (147470) от 26.12.2016
 
 Hand of Fate (2014) [Ru/Multi] (1.3.14/dlc) Repack R.G. Механики
@@ -6,7 +110,7 @@ Hand of Fate (2014) [Ru/Multi] (1.3.14/dlc) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147470.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Octopath Traveler (2019) [Ru/Multi] (Update 1) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146587.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Ashen (2018) [Ru/Multi] (1.0.12.0) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146157.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Mass Effect Dilogy / Mass Effect Дилогия [Ru/En] (RePack) 2008 - 2010 | R
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143866.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ Gothic 2 / Готика 2 (2003-2005) [Ru/En/Ge] (1.30.0/2.6/dlc) Lossless Repac
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142069.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ Kraken Academy!! (2021) [Ru/Multi] (1.0.12.2) License GOG [End of the World Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138775.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ Hades (2020) [Ru/Multi] (1.37133) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137719.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ Darkest Dungeon (2016) [Ru/Multi] (16707) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137219.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ Dragon's Dogma: Dark Arisen (2016) [Ru/En] (1.0.10.8756) Repack R.G. Механ�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137198.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ Baldur's Gate: Dark Alliance (2021) [Multi] (1.0.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137032.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ Dead Age (2016) [Ru/Multi] (1.12-fix) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136734.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ Tales of Arise (2021) [Ru/Multi] (20231108/dlc) Repack DjDI [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135032.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ Anvil of Dawn (1995) [En] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134473.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ Ghoul Castle 3D (2021) [Ru/Multi] (2.5) License GOG [Gold Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134467.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ Dungeon Defenders Collection [En/Multi 5] (Repack/7.46c) 2012 l R.G. Games
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133798.jpg" />
 </div>
 
 
@@ -403,7 +507,7 @@ Epic Tavern (2017) [En] (1193) License GOG [Early Access]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133662.jpg" />
 </div>
 
 
@@ -429,7 +533,7 @@ Anvil Saga (2022) [Ru/Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133575.jpg" />
 </div>
 
 
@@ -455,7 +559,7 @@ Fuga: Melodies of Steel 2 (2023) [Ru/Multi] (1.30/dlc) Scene Tenoke [Deluxe Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132864.jpg" />
 </div>
 
 
@@ -481,7 +585,7 @@ Beyond Divinity / Beyond Divinity: Оковы судьбы [Ru/En] (L/1.5) 2004
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131787.jpg" />
 </div>
 
 
@@ -510,7 +614,7 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (2.0.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130654.jpg" />
 </div>
 
 
@@ -536,7 +640,7 @@ Urtuk: The Desolation (2021) [Ru/Multi] (1.0.091b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130544.jpg" />
 </div>
 
 
@@ -562,7 +666,7 @@ World of Horror (2020) [Multi] (1.01) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128344.jpg" />
 </div>
 
 
@@ -573,110 +677,6 @@ World of Horror - это ролевой хоррор, нарисованный �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5003880A403000BEB4C0E8714FC6737879F0D35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684430   (127901) от 15.12.2023
-
-Cookie Cutter (2023) [Multi] (1.0) Scene Rune
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cookie Cutter - жестокая постапокалиптическая 2D-Метроидвания. Бездна. Материя. Мегаструктура. Мир-антиутопия, где безумный лидер жаждет раскрыть секреты вселенной. Корпорация ИНФОНЕТ пообещала построить утопию на плечах без устали трудящихся андроидов, называемых Дензели. Это была ложь. 200 лет спустя: планета находится в упадке, а загадочное Красное семя украдено. (   Читать дальше...   )Тип издания: SceneРазработчик: Subcult Joint LTDЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB92A107323DF0677FD58468DC09F09B950B6E03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625068   (127525) от 17.12.2023
-
-Wo Long: Fallen Dynasty (2023) [Ru/Multi] (1.300/dlc) Repack dixen18
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wo Long: Fallen Dynasty – это ролевой экшен от третьего лица в сеттинге тёмного азиатского фэнтези. В нём полно отсылок к китайской истории и мифологии. Кроме одиночного режима игрокам доступен мультиплеер. В нём есть кооператив и PvP. Видеоигра переносит геймеров в альтернативный период Троецарствия. Её действие происходит в 184 году. По сюжету на территории Китая (   Читать дальше...   )Тип издания: RepackРазработчик: KOEI TECMO GAMES CO., LTD.Жанр: RPG, 3rd Person, Action, AdventureЯзык озвучки: Английский, Китайский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B002BBB81B9ECC47DC74BF9EA8F35288A9A41049
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486450   (127331) от 18.12.2023
-
-Legend of Keepers: Career of a Dungeon Manager (2020) [Ru/Multi] (1.1.0.3/dlc) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Legend of Keepers представляет собой хитроумную смесь из ролевой игры жанра «роглайт» и менеджера подземелий. Вы приняты на должность управляющего компанией «Подземелья». Работа проста: всеми силами оберегать подземелья. Система RogueDefender. Каждая игровая партия будет новой, но при этом некоторые бонусы управляющего сохраняются и переходят «по наследству». Как (   Читать дальше...   )Тип издания: LicenseРазработчик: Goblinz StudioЖанр: Ролевые игры, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29E3E52C47EBD6CB78F87A0D05D1E193987F2362
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685857   (127018) от 20.12.2023
-
-Cygnus Enterprises (2023) [Multi] (1.0) Scene Rune
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет отправляет в стандартное будущее, где человечество не без ошибок научилось создавать межзвездные космические корабли и решило заняться колонизацией других планет. Игроку предстоит примерить на себя роль контрактора амбициозной компании Cygnus Enterprises, при помощи простенького редактора создать персонажа и сразу отправиться выполнять первое поручение по восстановлению (   Читать дальше...   )Тип издания: SceneРазработчик: Team MiaoziЖанр: Экшены, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Венгерский, Польский и другиеЯзык интерфейса: Английский, Немецкий, Венгерский, Польский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ED9C24D26E84D94F631F4F66CA0BF1A3CCE6713
 ```
 
 https://mybot314.ru/tekegram_catalog/

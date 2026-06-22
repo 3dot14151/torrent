@@ -1,3 +1,56 @@
+###  Публикация: 1175040   (382837) от 16.10.2017
+
+Елена Хохрякова | Современные методы обеззараживания воды (2014) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Микробиологические загрязнения воды занимают первое место по степени риска для здоровья человека. Поэтому обеззараживание воды является обязательным условием достижения ее питьевого качества по установленным гигиеническим нормативам.
+В издании даны основные сведения о современных методах обеззараживания питьевой воды; краткая характеристика каждого метода, его аппаратурного (   Читать дальше...   )Жанр: Водоснабжение, Эксплуатация оборудованияФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2AE15A69CA3404738D8DF8DD7BDE1BD6C49278A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326673   (382637) от 21.09.2019
+
+С.Р. Баширов, А.С. Баширов | Бытовая электроника. Занимательные устройства своими руками (2008) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382637.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге представлены различные конструкции, которые, как надеются авторы, будут интересны не только опытным, но и начинающим радиолюбителям. Для удобства при повторении конструкций приведены рисунки печатных плат, даны тексты программ и "прошивки" контроллеров и применяемых ПЗУ. Данная книга предназначена для специалистов, а также для подготовленных и начинающих (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54C5091FA6CADD13131957964814640632FF3D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068166   (382489) от 31.10.2016
 
 Н. И. Добронравов | Беседа о колесе (1951) [DJVU, PDF]
@@ -6,7 +59,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382489.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382350.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380927.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380924.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380795.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379307.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378924.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378476.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378461.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378327.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376003.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376001.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374214.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373799.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372761.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371650.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369604.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367234.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366543.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365204.jpg" />
 </div>
 
 
@@ -538,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365056.jpg" />
 </div>
 
 
@@ -564,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363005.jpg" />
 </div>
 
 
@@ -590,7 +643,7 @@ LG Electronics | Мониторы LG. Схемы и сервис-мануалы 
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362567.jpg" />
 </div>
 
 
@@ -617,7 +670,7 @@ Rob Mannion / Роб Манион | Out of thin air / Из ниоткуда (200
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361802.jpg" />
 </div>
 
 
@@ -628,59 +681,6 @@ Rob Mannion / Роб Манион | Out of thin air / Из ниоткуда (200
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90B5FB27BB0782CE2AC75280BC5AF09C794034BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177767   (360359) от 26.10.2017
-
-Р.А. Амерханов и др. | Солнечные фотоэлектрические станции (2017) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360359.jpg" />
-</div>
-
-
-###  Подробнее
-
-В монографии представлены основы теории солнечной энергетики, особенности конструкций и работы солнечных фотоэлектрических станций (СФЭС). Предлагаются новые структурно-схемные решения автономных инверторов, систем электроснабжения на СФЭС, а также математический аппарат для расчёта их эффективности.
-Предназначено для научных работников, занимающихся разработкой (   Читать дальше...   )Жанр: ЭнергетикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B6E1C3CC83386B9D3C31C61FBF556F09203767B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577346   (359946) от 18.11.2012
-
-Н.В. Одноралов | Занимательная  гальванотехника. [1965] [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359946.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге описаны способы изготовления гальванопластикой различных декоративных металлических изделий в домашних условиях. Читатели также найдут самые различные способы декоративных отделок металла: серебрение, никелирование, хромирование, а также способы цветного оксидирования металла в яркие, красивые цвета.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AF6B506F280E7AD0B96DFF3BB5F5A613792731E
 ```
 
 https://mybot314.ru/tekegram_catalog/

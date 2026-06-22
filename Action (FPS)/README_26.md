@@ -1,3 +1,31 @@
+###  Публикация: 554478   (437782) от 30.09.2012
+
+Rage: Anarchy Edition [MULTi3/+] (L/1.0.29.712/2 DLC) 2011 | SKIDROW
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437782.jpg" />
+</div>
+
+
+###  Подробнее
+
+В RAGE, революционном шутере от первого лица, действие происходит в недалеком будущем, где после удара метеорита от цивилизации на Земле мало что осталось. Вы оказываетесь посреди огромной пустоши и обнаруживаете, что человечество пытается себя восстановить, находясь под постоянной угрозой от бандитов, мутантов, и Власти – тиранического государственного режима, сильно заинтересованном вами лично. Испытайте насыщенный экшен от первого лица и сумасшедшие битвы на автомобилях, исследуйте громадный мир, и насладитесь потрясающей графикой новейшего движка id Tech 5.
+
+Опасаясь полного уничтожения человечества приближающимся гигантским метеоритом, государства Земли бросили все силы на спасение людского рода. Оставшись без альтернатив, они поместили избранных представителей человечества в капсулы с поддерживающими жизнь системами и закопали их глубоко в землю. Вы начинаете игру в неожиданном одиночестве, выбравшись на поверхность мира RAGE из одного из этих современных ноевых ковчегов. В RAGE вы найдете враждебный, беспощадный мир, сильный сюжет, и захватывающие схватки.(   Читать дальше...   )Тип издания: ЛицензияЖанр: Action (Shooter) / Arcade / Racing (Cars) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский, Чешский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F682C70B048B317EA0C5993CD0B1E3D8AE90EA0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410111   (437557) от 20.09.2020
 
 Hot Lava (2020) [Ru/Multi] (1.0.431329) SteamRip Goldberg
@@ -6,7 +34,7 @@ Hot Lava (2020) [Ru/Multi] (1.0.431329) SteamRip Goldberg
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437557.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ Infinity Runner (2014) [En] (1.0) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437313.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ STALINGRAD ABATIS (2018) [Ru/En/De] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436835.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ THORNYWAY (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436393.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ Help (2016) [Ru/En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436357.jpg" />
 </div>
 
 
@@ -136,7 +164,7 @@ DOOM 64 (2020) [Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435331.jpg" />
 </div>
 
 
@@ -162,7 +190,7 @@ BioShock 2 Remastered (2016) [Ru/Multi] (1.0.121755) SteamRip Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434039.jpg" />
 </div>
 
 
@@ -188,7 +216,7 @@ Sniper: Ghost Warrior 3 / Снайпер: Воин-призрак 3 (2017) [Ru/M
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432017.jpg" />
 </div>
 
 
@@ -214,7 +242,7 @@ Call of Duty 2 (2005) [Ru] (1.3) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432001.jpg" />
 </div>
 
 
@@ -240,7 +268,7 @@ The Darkness II (2012) [Ru/En] (1.1) Repack R.G. Механики [Limited Editi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428464.jpg" />
 </div>
 
 
@@ -266,7 +294,7 @@ Earthfall (2018) [Ru/Multi] (1.0/upd2/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428057.jpg" />
 </div>
 
 
@@ -292,7 +320,7 @@ Blood: One Unit Whole Blood (1998) [En] (1.21hf/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427000.jpg" />
 </div>
 
 
@@ -318,7 +346,7 @@ Serious Sam Anthology (2001-2013) [Ru/Multi] (1.05/1.07/2.080.00/206580/263699/1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426993.jpg" />
 </div>
 
 
@@ -344,7 +372,7 @@ ELDERBORN (2020) [Ru/Multi] (1.09/dlc) License GOG [Metal AF Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425102.jpg" />
 </div>
 
 
@@ -370,7 +398,7 @@ Deliver Us The Moon: Fortuna (2018) [En] (1.0.0) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423891.jpg" />
 </div>
 
 
@@ -396,7 +424,7 @@ Wolfenstein [Ru] (Repack/1.1) 2009 | R.G.Spieler
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_423554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_423554.jpg" />
 </div>
 
 
@@ -422,7 +450,7 @@ Painkiller: Overdose / Painkiller: Передозировка (2007) [Ru] (84.4)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422942.jpg" />
 </div>
 
 
@@ -448,7 +476,7 @@ BPM: Bullets Per Minute (2020) [En] (1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422424.jpg" />
 </div>
 
 
@@ -474,7 +502,7 @@ HYPERGUN (2018) [Ru/Multi] (1.1.0.6) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419284.jpg" />
 </div>
 
 
@@ -500,7 +528,7 @@ Don't Knock Twice (2017) [Ru/Multi] (1.0) Repack Covfefe
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418915.jpg" />
 </div>
 
 
@@ -526,7 +554,7 @@ ECHO (2017) [En/Fr/Ge] (1.0) Unofficial CoolGames
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418900.jpg" />
 </div>
 
 
@@ -552,7 +580,7 @@ Medal of Honor (2010) [Ru/En] (1.0.75.0) Rip =nemos= [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417414.jpg" />
 </div>
 
 
@@ -578,7 +606,7 @@ Battlefield 3 (2011) [Ru] (1.6.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416296.jpg" />
 </div>
 
 
@@ -604,7 +632,7 @@ Medal of Honor Anthology (2002-2012) [Ru/En] Rip/Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416240.jpg" />
 </div>
 
 
@@ -632,7 +660,7 @@ Die Young (2019) [En] (1.0.0.20) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413892.jpg" />
 </div>
 
 
@@ -643,38 +671,6 @@ Die Young (2019) [En] (1.0.0.20) License SKIDROW
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5042A53A6260E88346D19B099BC337D3C7D6055
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 249150   (412409) от 23.10.2010
-
-S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыля [Ru] (L) 2007
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_412409.jpg" />
-</div>
-
-
-###  Подробнее
-
-2012 год. Шесть лет прошло с момента Второй катастрофы, затмившей события апреля 1986 года.
-
-Действие игры происходит в Чернобыльской зоне отчуждения, превратившейся из места, где ломались судьбы, в угрозу всему человечеству. Свои тайны Зона раскрывает неохотно, через силу, и редкий герой сможет добраться до самого ее сердца и узнать – какая опасность поджидает его там?
-
-Опасность, по сравнению с которой мародеры и вражеские группировки, все монстры и аномалии Зоны покажутся лишь подготовкой к встрече с чем-то более фатальным и пугающим.
-
-А пока... Готовься, герой. Собирай артефакты и торгуй, прощупывай дорогу и проверяй тылы, хватай рентгены и сражайся – но только выживи! И тогда, быть может, если будешь настойчив и особо везуч, ты узнаешь – почему все это свалилось на тебя.Тип издания: ЛицензияРазработчик: GSC Game WorldЖанр: Action (Shooter) (Survival) / 3D / 1st PersonЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

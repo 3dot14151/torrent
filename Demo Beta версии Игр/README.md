@@ -7,7 +7,7 @@ Paralives (2026) [Ru/Multi] (0.1.1.19867) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072886.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Better Than Dead (2026) [Multi] (0.190) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068861.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Samsara (2026) [Ru/Multi] (Build 23220073) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068818.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Rise of Piracy (2026) [Ru/Multi] (0.501) Repack AIexandro [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068639.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Heroes of Might and Magic Olden Era (2026) [Ru/Multi] (0.80.07) Repack Let'sРla
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067665.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Road to Vostok (2026) [Ru/En] (0.1.1.3) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067208.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Spark in the Dark (2026) [Ru/Multi] (0.3.7) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065526.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Mistbound / Тумань (2026) [Ru/En] (Build 22477588) Repack Other s [Early A
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064426.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VASILISA (2025) [Ru/Multi] (Build 21812276) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063452.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ New Cycle (2024) [Ru/Multi] (26-490.03) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062890.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Starsand Island (2026) [Ru/Multi] (1.0.0.7673.194862/dlc) Repack Let'sРlay [Ear
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061968.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ The Legend of Khiimori (2026) [Ru/Multi] (0.6.4/dlc) Repack Let'sРlay [Early Ac
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061943.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Everwind (2026) [Ru/Multi] (0.4.417/dlc) Repack Let'sРlay [Capybara Edition] [E
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061942.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ The Scouring (2025) [Ru/Multi] (19.03.26/dlc) Repack Let'sРlay [Digital Deluxe]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061852.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ ENDLESS Legend 2 (2025) [Ru/Multi] (0.0.77.166257-S35) Repack Let'sРlay [Early 
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061810.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Nested Lands (2026) [Ru/Multi] (0.7.8.12) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061554.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Pioner (2025) [Ru/Multi] (Build 21335712/dlc) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060135.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ R.I.P. - Reincarnation Insurance Program (2026) [Ru/Multi] (Build 21633477) Repa
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1059954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059954.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Assetto Corsa Rally (2025) [Ru/Multi] (0.3.1 HF) Repack Let'sРlay [Early Access
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059912.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Mashinky (2018) [Ru/Multi] (25.02.2026) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059873.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Car Service Together (2026) [Ru/Multi] (0.9F6) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059869.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Purrrifiers: Cleaning Chaos (2025) [Ru/Multi] (0.8444) Repack Pioneer [Early Acc
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059828.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Outbreak Island (2025) [Ru/Multi] (Update 9/dlc) Repack Let'sРlay [Supporter Ed
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058540.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Kupala / Купала (2026) [Ru/En] (Build 21869141) Repack Other s [Early Acce
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058112.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Menace (2026) [Ru/Multi] (0.6.8) License GOG [Earle Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058074.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Manor Lords (2024) [Ru/Multi] (0.8.050) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057818.jpg" />
 </div>
 
 

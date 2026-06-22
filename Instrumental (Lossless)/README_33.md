@@ -6,7 +6,7 @@ Adam Schultz - Soulful Distancing (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875825.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Brad Vickers & His Vestapolitans - The Music Gets Us Thru (2021) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875824.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Beat brutality - A blues detour (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875818.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Altered Five Blues Band - Holler If You Hear Me (2021) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875717.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Band Of Friends - Spotlight on the G-Man Vol.2  (2021) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_875706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875706.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Chris Rea - Blue Guitars IV - Electric Memphis Blues (2020) [FLAC|Lossless|WEB-D
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875700.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Mike Goudreau - 3 Album (2014 - 2016) [FLAC|Lossless|image + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875165.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Billy D & The Hoodoos - 4 Album (2002-2016) [FLAC|Lossless|image + .cue] <Blues-
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875023.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Chris Kramer - Unterwegs (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874483.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Cottonmouth - Illusion (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874481.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Cobalt County Vandals - Two Ain't But Twice (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874477.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Clay Melton - Back to Blue (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874473.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Caleb Petty - Mr. Nobody (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874463.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Keef Hartley Band - Halfbreed (1969 / 2008) Remastered [FLAC|Lossless|tracks + .
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874461.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Kirk Fletcher - My Turn (2010) [FLAC|Lossless|image + .cue] <Soul, Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_873832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_873832.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Robben Ford - Into the Sun (2015) [FLAC|Lossless|image + .cue] <Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873830.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Marshall Lawrence - Blues Intervention (2010) [FLAC|Lossless|image + .cue] <Acou
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873828.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Skeptic Muse - Theodicy Blues (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873755.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Jimmy Johnson And The Chicago Dave Blues Band - Brothers Live (2002) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873754.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Brent Johnson - Set The World On Fire (2014) [FLAC|Lossless|image + .cue] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873740.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ JONES - Acoustic (2017) EP [FLAC|Lossless|tracks] <Acoustic, Soul, Singer-Songwr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873213.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Hot 'n' Nasty - Burn (2021) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872848.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Mike Andersen - Raise Your Hand (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872846.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Darren Jack - Lost in Living - Lost in Living (2021) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872721.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Kris Wiley - Kris Wiley (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872714.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Paul Carrack - One on One (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul, Fun
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872713.jpg" />
 </div>
 
 

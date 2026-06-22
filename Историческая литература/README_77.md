@@ -1,3 +1,108 @@
+###  Публикация: 1578428   (345539) от 23.09.2022
+
+И. С. Брагинский и др. | Книга о судах и судьях (1975) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легенды, сказки, басни и анекдоты разных веков и народов о спорах и тяжбах, о судах и судьях, о хитроумных расследованиях и удивительных приговорах.Жанр: СказкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE5117C33BED718ADAF53D9457B511732F87F077
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953955   (344762) от 06.11.2015
+
+Николай Надеждин | Марлен Дитрих (2011) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344762.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге представлена беллетризованная биография немецкой актрисы Марлен Дитрих. Эта женщина сама по себе целая эпоха в мировой кинематографии. Начав свою карьеру в Германии, Дитрих добилась статуса безусловной суперзвезды и в Голливуде. Сама создавшая свой неповторимый образ, Дитрих сыграла десятки ролей в фильмах, вошедших в золотой фонд мирового кинематографа. (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A815F6F8CD363BC8407D8A657F911B4B6208C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953958   (344658) от 06.11.2015
+
+Николай Надеждин | Фердинанд Порше (2011) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344658.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге представлена беллетризованная биография великого немецкого конструктора Фердинанда Порше-старшего, создавшего самый популярный автомобиль ХХ столетия «Фольксваген Жук». Изобретения Фердинанда Порше актуальны и сегодня. Любой современный автомобиль в той или иной степени последователь великих моделей Порше. Поэтому описание жизненного пути Инженера будет интересно (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA769D71BECBE194B37319AAB7F5C07869E594EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953944   (344654) от 06.11.2015
+
+Николай Надеждин | Софи Лорен (2011) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344654.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге представлена беллетризованная биография Софи Лорен – одной из самых знаменитых и любимых актрис современности, признанного секс-символа XX века, объекта страстного вожделения миллионов мужчин и жгучей зависти абсолютного большинства женщин.
+В этой книге постепенно раскрывается история актрисы, прошедшей тернистый путь из нищих итальянских кварталов к вершине (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C9710F4CE95B732DCB1681EFF948F4795E3235
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953921   (344651) от 06.11.2015
 
 И. М. Стрижова (сост.) | Великая Русская Смута. Причины возникновения и выход из государственного кризиса в XVI–XVII вв. (2015) [FB2]
@@ -6,7 +111,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344651.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344513.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344497.jpg" />
 </div>
 
 
@@ -86,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343180.jpg" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343043.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343039.jpg" />
 </div>
 
 
@@ -164,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342855.jpg" />
 </div>
 
 
@@ -192,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342851.jpg" />
 </div>
 
 
@@ -218,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342846.jpg" />
 </div>
 
 
@@ -246,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342767.jpg" />
 </div>
 
 
@@ -274,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342766.jpg" />
 </div>
 
 
@@ -301,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342519.jpg" />
 </div>
 
 
@@ -327,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342511.jpg" />
 </div>
 
 
@@ -353,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341929.jpg" />
 </div>
 
 
@@ -381,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341346.jpg" />
 </div>
 
 
@@ -409,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341343.jpg" />
 </div>
 
 
@@ -437,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341334.jpg" />
 </div>
 
 
@@ -463,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341071.jpg" />
 </div>
 
 
@@ -491,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340446.jpg" />
 </div>
 
 
@@ -517,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340139.jpg" />
 </div>
 
 
@@ -543,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339821.jpg" />
 </div>
 
 
@@ -569,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339717.jpg" />
 </div>
 
 
@@ -581,113 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5378F9250BF5A4EBB7E389C4AABCD16DE74ED058
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074603   (338754) от 19.11.2016
-
-Иосиф Тимченко | История штурмана дальнего плавания (2011) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иосиф Георгиевич Тимченко в 1961 г. закончил Ростовское-на-Дону мореходное училище им. Г.Я. Седова и ходил по морям-океанам на судах Азовского морского пароходства.
-В этой книге — история его жизни.Жанр: Биографии и МемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C617BFE50F32B1DDFC0AE888D9D7A5A402319050
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258151   (338681) от 29.10.2018
-
-Я. В. Савельев | О работе В. И. Ленина «Шаг вперед, два шага назад» (1952) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свою замечательную книгу «Шаг вперед, два шага назад», названную в подзаголовке «Кризис в нашей партии», В. И. Ленин посвятил анализу работы II съезда РСДРП, разоблачению оппортунизма меньшевиков в организационных вопросах и разработке, обоснованию большевистского учения о партии, «как руководящей организации пролетариата, как основного оружия в руках пролетариата, (   Читать дальше...   )Жанр: История, политология, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE72DF3E5E75F9F8E86A0BF2B86077D0B263D9B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074573   (338599) от 19.11.2016
-
-Р. Рамсей | Открытия, которых никогда не было (1977) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга американского историко-географа и публициста Р. Рамсея рассказывает о мнимых открытиях, зафиксированных в свое время картографами, а затем стертых с карты мира; о действительных и выдуманных плаваниях, которые привели как к целому ряду географических открытий, так и ко многим ошибкам.
-
-Книга содержит интересные описания различных стран и территорий, знакомит (   Читать дальше...   )Жанр: История, политология, география, культурологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78781E9EAF39CDA4A4F0741CCE4A142723D1B91B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074316   (338433) от 19.11.2016
-
-В. И. Ленин | Пролетарская революция и ренегат Каутский (1935) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338433.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Пролетарская революция и ренегат Каутский" - работа В. И. Ленина, в которой развивается марксистское учение о социалистической революции и диктатуре пролетариата, разоблачаются оппортунистические взгляды одного из лидеров 2-го Интернационала К. Каутского, изложенные в его брошюре "Диктатура пролетариата" (Вена, августа 1918). Книга Ленина написана (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20E741D57EF2C44F38631ECA83C3CF946F1364CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1821756   (91313) от 03.10.2025
+
+Watashi o Tabetai, Hitodenashi / This Monster Wants to Eat Me / Этот монстр хочет меня съесть [2025, TV, 1 из 13] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старшеклассница Хинако живёт одно в приморском городке и обладает уникальной особенностью: невероятно аппетитным (в буквальном смысле) телом, которое так и манит местных монстров-людоедов. Но у Хинако есть защитница — русалка Щиори, которая однажды вышла к ней из моря. Впрочем, Щиори оберегает школьницу отнюдь не из благородных побуждений: она просто ждёт, когда (   Читать дальше...   )Жанр: романтика, юри, драма, мистика.Режиссер: Кудзуя НаоюкиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 13 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EA8CD6DA54A771501CB425E2D69666CE8EAAA7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821752   (91290) от 03.10.2025
 
 Akujiki Reijou to Kyouketsu Koushaku | Pass the Monster Meat, Milady! | Леди со странным вкусом и безумный герцог [2025, TV, 1 из 12 эп.] WEBRip 720p raw
@@ -6,7 +32,7 @@ Akujiki Reijou to Kyouketsu Koushaku | Pass the Monster Meat, Milady! | Леди
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91290.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Lets Play: Quest Darake no My Life | Сыграем [2025, TV, 1 из 12 эп.] 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91289.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Shabake | Мирские стремления [2025, TV, 1 из 12 эп.] WEBRip
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91162.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Saigo ni Hitotsu dake Onegai Shite mo Yoroshii Deshou ka | May I Ask for One Fin
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91153.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Busou Shinki: Moon Angel / Шинки - боевой Лунный Ангел [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88664.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Jojo no Kimyou na Bouken: Adventure / JoJo's Bizarre Adventure / Невероя�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88505.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Tezuka Osamu no Buddha: Akai Sabaku yo! Utsukushiku / Будда: Пустыня
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88438.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Wasurenagumo / Паучонок [2012, TV-sp.] HDTV 720p 10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88433.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Mamono Hunter Youko / Devil Hunter Yohko / Ёко - охотница на дем
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88347.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Goku Midnight Eye / Гоку Полуночный глаз [1989, OVA, 2 ep.] DV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87614.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Goshuushou-sama Ninomiya-kun / My Heartfelt Sympathy, Ninomiya-kun / Прими�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86396.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ RideBack | Райдбэк [2009, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83117.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ Cyber City Oedo 808 / Кибер-город Эдо 808 [1990, OVA, 3] Remastered
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82722.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ Megazone 23 OVA / Мегазона 23 [1985-1989, OVA, 4] DVDRip raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82632.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ Eiyuu Gaiden Mozaicka / Heroic Armor Mosaica / Героическая броня
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81996.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ Tansu Warashi / Drawer Hobs / Обитатели комода [2011, TV-special]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81859.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ Toaru Hikuushi e no Tsuioku | The Princess and the Pilot | Воспоминан�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81693.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ Black Lagoon The Second Barrage / Пираты «Черной лагуны» (в
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79642.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ AA! Megami-sama: Itsumo Futari de / Ah! My Goddess OVA-2  / Моя богиня!
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79591.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ Hagane no Renkinjutsushi: Milos no Seinaru Hoshi / Fullmetal Alchemist: The Sacr
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77624.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ Usavich 4 / Усавич [ТВ-4] [2011, TV, 13 серий] DVDrip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77416.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ Code Geass Hangyaku no Lelouch R2 Special Edition: Zero Requiem / Code Geass: Le
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76584.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ Code Geass Hangyaku no Lelouch Special Edition: Black Rebellion / Code Geass: Le
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76166.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ Zero no Tsukaima: Futatsuki no Kishi / The Familiar of Zero: The Rider of the Tw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_73298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73298.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ Gekijouban Mononoke: Karakasa | Mononoke the Movie: The Phantom in the Rain | М
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70933.jpg" />
 </div>
 
 
@@ -656,32 +682,6 @@ Gekijouban Mononoke: Karakasa | Mononoke the Movie: The Phantom in the Rain | М
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:847D07D77FC7A1F871CED75A0E6E24A3929AB0CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779867   (70596) от 15.02.2025
-
-Hige o Soru. Soshite Joshikousei o Hirou. | Higehiro: After Being Rejected, I Shaved and Took in a High School Runaway | Я побрился. И приютил школьницу [2021, TV, 13] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ёсиду отвергает девушка, в которую он был влюблён пять лет. Возвращаясь пьяным из бара он находит у обочины дороги школьницу... Не успев опомниться, он соглашается её приютить. Так начинается история двадцатишестилетнего служащего и сбежавшей школьницы.Производство: Студия Project No.9Жанр: романтика, повседневностьРежиссер: Камикита МанабуПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6198E6D2FC49F183F1B6FD305197AA8C8EC89E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

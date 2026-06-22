@@ -1,3 +1,29 @@
+###  Публикация: 1853546   (1056593) от 14.02.2026
+
+Vanced Tube v5.5.80.396 Mod by TRUMods [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vanced — это модифицированная версия YT, которая включает в себя различные улучшения, такие как отсутствие рекламы, автоматический пропуск заставок и рекламы в середине видео, фоновое воспроизведение, регулировку громкости и яркости и многое другое.Тип издания: ModРелиз состоялся: 13.02.2026Разработчик: getvanced2020@gmail.comПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F81FC394CAD5C3D143BB0B0AC133E4546C99D27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853336   (1056570) от 12.02.2026
 
 Rosetta Stone: Изучение языков 8.35.0 Mod by Balatan [Ru/Multi]
@@ -6,7 +32,7 @@ Rosetta Stone: Изучение языков 8.35.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056570.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056430.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056429.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Garmin: Дороги России Топо 6.50 [Ru]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056428.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056427.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056421.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056420.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Bria Mobile: VoIP Softphone v6.22.2 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056419.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ FacePic - AI Face App v3.5.1 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056418.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Battery Guru: Monitor & Health v2.4.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056417.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ PictureThis - Plant Identification v5.20.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056048.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056047.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Mary’s recipes: рецепты, меню v7.2.0 Mod by Alex.Strannik [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056033.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ MiX Camera 9.2 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056032.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ Eatr・Здоровые рецепты v2.49.0 Mod by vadj [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056025.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ Audio Editor Pro / Аудио редактор: обрезка музыки v2.0
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056013.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ AI Photo Editor Pro - Polish v1.721.248 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056010.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056009.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055998.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ Remini / Улучшение Фото v3.7.1263.202519097 Mod by Mixroot [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055997.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055994.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055993.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055992.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055984.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ Grok - ИИ ассистент v1.1.18-release.18 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055983.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8349969148F026E0729FF2457428FA68E114EBAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852574   (1055947) от 08.02.2026
-
-Smart AudioBook Player Pro v11.6.6 Mod by Kirlif' [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа разработана специально для проигрывания аудиокниг. Предполагается, что у Вас есть аудиокниги и Вы их уже скопировали на телефон. Воспроизведение форматов: opus, mp3, m4a, m4b, awb, ogg, wma (можно слушать книги, конвертированные для Nokia).Тип издания: ProРелиз состоялся: 04.02.2026Разработчик: Александр КравченкоПоддерживаемая ОС: Android 11+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68525028B3513D83989E5CF32FE28A0BECB9C837
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1234116   (572620) от 04.07.2018
+
+Kujira no Kora wa Sajou ni Utau | Children of the Whales | В песках поющие китята [2017, TV, 12 эп.] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в мире, покрытом песком. Четырнадцатилетний юноша Чакуро живёт на гигантском плавучем острове под названием Грязевой Кит, который дрейфует по безбрежному песчаному морю. Чакуро и его друзья время от времени находят другие острова, но ни один из них не обитаем. Однажды Чакуро отправляется на остров, не уступающий размерами Грязевому Киту, (   Читать дальше...   )Производство: студия J.C. StaffЖанр: приключения, фэнтезиРежиссер: Исигуро КёхэйПеревод: цыпа & UnnmdЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E53A44DAB67CAE06F92FCBDC537B5C0488FE9A91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 812266   (572400) от 13.08.2014
 
 Ginga Tetsudou no Yoru / Night on the Galactic Railroad / Ночь на Галактической железной дороге [1985, Movie] BDRip 720p raw
@@ -6,7 +32,7 @@ Ginga Tetsudou no Yoru / Night on the Galactic Railroad / Ночь на Гала
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572400.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka Gaiden: Sword Oratoria |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572307.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Dungeon ni Deai o Motomeru no wa Machigatteiru Darou ka Gaiden: Sword Oratoria |
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571819.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Guilty Crown / Корона греха [2011, TV, 22] BDrip 720p Hi10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571367.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Rokuhoudou Yotsuiro Biyori | Чайная «Рокуходо» [2018, TV, 12] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570617.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Last Period: Owarinaki Rasen no Monogatari | Last Period: The Journey to the End
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570465.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Piano no Mori (2018) | Рояль в лесу [ТВ] [2018, TV, 12] HDTVRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569088.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Hisone to Masotan | Dragon Pilot: Hisone and Masotan | Хисонэ и Масо�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569072.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Basquash! | Баскваш! [2009,TV, 26] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566987.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Next A-Class [2012, ONA] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566868.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Release the Spyce | Освобождение шпионов [2018, TV, 12 эп.]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565418.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Soushin Shoujo Matoi | Matoi the Sacred Slayer | Матой: Изгоняюща�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565390.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Hamatora The Animation | Хаматора [2014, TV, 12] BDrip 1080p HEVC Hi10p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565047.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Reply Hamatora | Re: Hamatora | Re: Хаматора [2014, TV, 12] BDrip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565031.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Seishun Buta Yarou wa Bunny Girl Senpai no Yume o Minai | Rascal Does Not Dream 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564993.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Plastic Little: The Adventures of Captain Tita / Пластиковая малы
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564517.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ H2O: Footprints in the Sand | H2O: Следы на песке [2008, TV, 12 эп
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563588.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ Shirogane no Ishi: Argevollen | Аргеволлен: Серебряная мо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563246.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ Re-Kan! | Ре-Кан! [2015, TV, 13] BDrip 1080p HEVC Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563111.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ Kagihime Monogatari Eikyuu Alice Rondo | История принцессы кл�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561842.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ Nisekoi: | Притворная Любовь 2 [ТВ-2][2015, TV, 12 эп. + 2 O
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561285.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ Nisekoi | Nisekoi: False Love | Притворная любовь | Любовь
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561270.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559839.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ Takahashi Rumiko Gekijou / Rumiko Takahashi Anthology / Театр Румико 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_559762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_559762.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ Hakozume: Kouban Joshi no Gyakushuu | Police in a Pod | Девушки-поли�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559719.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ Hakozume: Kouban Joshi no Gyakushuu | Police in a Pod | Девушки-поли�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1476069395978FF2C7A8826CFCE9C0EC61FCAAAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153133   (559701) от 26.07.2017
-
-Hungry Heart: Wild Striker / Неистовый бомбардир [2002, TV, 52 эп.] DVDRip 480p 10bit Raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559701.jpg" />
-</div>
-
-
-###  Подробнее
-
-История начинается как и множество других спортивных аниме. Бывший футболист Каноу Кёске переходит в старшую школу. Обладая кое-каким талантом, он, все же, не хочет играть в футбол. Причины две - его характер и, в большей степени, старший брат. Дело в том, что его брат играет в ФК Милан, и он - будущее, главная надежда и гордость Японии, поэтому Кёске постоянно сравнивают (   Читать дальше...   )Производство: Nippon AnimationЖанр: спорт, комедия, школаРежиссер: Сага СатосиСубтитры: РусскиеПродолжительность: 52 серии по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEF985FDB6C0A51735749557E17D1DC7916BA678
 ```
 
 https://mybot314.ru/tekegram_catalog/

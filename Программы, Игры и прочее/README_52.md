@@ -1,3 +1,29 @@
+###  Публикация: 1279005   (767550) от 27.01.2019
+
+Language Translator v1.5 AdFree [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы хотите поехать в другую страну, и вы не знаете языка? Вы переводите документ и вы не знаете, что это значит каждое слово? Это приложение идеально подходит для перевода текстов быстро в памяти телефона или планшета. С этой онлайн-переводчика, вы не будете иметь проблем связи.Тип издания: Пиратка (удалена реклама)Релиз состоялся: 04.08.2015Разработчик: La Clave Ganadora SLПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DAD96E207995A930D85BC9E84BE5A34F33C31F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393428   (767478) от 30.06.2020
 
 TikTok v16.0.4 [Ru/Multi]
@@ -6,7 +32,7 @@ TikTok v16.0.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767478.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767451.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767443.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767150.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Pulsar - Музыкальный плеер / Pulsar - Music Player v1.8.10 [Ru/E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766200.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766007.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766003.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ myRouteMap 8.1.2 [En/Ru] - интерактивный планировщик м�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765996.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ All-In-One Toolbox Pro 7.2.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765920.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Assistant Pro for Android v24.14 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765855.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Magisk Manager v23.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765796.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ Vocalizzo - Vocal Warm-up v2.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765438.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Google Play Market (Плей Маркет) v20.5.19-all [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765106.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765084.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765070.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ Root Cleaner 7.1.0 [Ru] - Чистилка
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765030.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ BusyBox Pro 55 & BusyBox Free 50 [En-Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765029.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764786.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764219.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764172.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763892.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ Learn English 6000 Words / Учим Английский 6000 Слов v5.40 [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763887.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763719.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763675.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763504.jpg" />
 </div>
 
 
@@ -653,34 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:941411EB671966DED93ADBA4FEB6BA8B0363C6D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521511   (763445) от 04.01.2022
-
-Потолочник: замеры, сметы и заметки v1.1.6 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение для автоматизации 80% рутинных действий замерщиков и монтажников натяжных потолков по замеру и составлению документации проекта
-Храните всю информацию по замеру в одном месте. Имя клиента, телефон, статус, размер и чертеж каждого потолка каждой комнаты и стоимость всего проекта
-Отправляйте данные о проекте в 2 клика производителю или клиенту. Больше никаких (   Читать дальше...   )Тип издания: Пиратка (AdFree - удалена реклама)Релиз состоялся: 3 декабря 2021 г.Разработчик: CallRecПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D046A1A58F1A8205661802F1EFB803E9A51112E
 ```
 
 https://mybot314.ru/tekegram_catalog/

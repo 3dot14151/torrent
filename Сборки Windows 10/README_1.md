@@ -1,3 +1,30 @@
+###  Публикация: 1308367   (553872) от 14.06.2019
+
+Windows 10 (74in2) Sergei Strelec x86/x64 1809 (build 17763.557) [Ru]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Образы Windows 10 с интегрированными обновлениями по 13.06.2019
+Интегрированы только обновления исключительно средствами DISM.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DA4995EAAD74561A0A0F6025386D12EED6A4E31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559130   (526926) от 24.06.2022
 
 Zver Windows 10 21H2 Enterprise LTSC v.2022.6 x64 [Ru]
@@ -6,7 +33,7 @@ Zver Windows 10 21H2 Enterprise LTSC v.2022.6 x64 [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526926.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Windows 10 Enterprise VL (x86/x64) Elgujakviso Edition (v.19.08.18) [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516872.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ Windows 10 x64 Full-Lite Release by StartSoft USB 18-2019 [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470661.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ Windows 10 21H2 (19044.1889) x86 (6in1) by Brux [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444337.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ Windows 10, Version 2004 with Update [19041.546] AIO (x86-x64) by adguard (v20.0
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386693.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ Windows 10 4in1 (x86/x64) VL Elgujakviso Edition (v.21.10.17) [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368961.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ Windows 10 1803 Pro x86x64 By Vladios13 v.09.10 [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362893.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ Windows 10 Pro x64 2004.19041.572 2in1 Ост 2020 by Generation2 [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362084.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ Windows 10 Enterprise 2019 LTSC with Update [17763.1518] AIO (x86-x64) by adguar
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357328.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ Windows 10 (v21h2) x64 LTSC 2021 by KulHunter v1.4 (esd) [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351760.jpg" />
 </div>
 
 
@@ -272,7 +299,7 @@ Windows 10 (v21h2) x64 HSL/PRO by KulHunter v11 (esd) [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344933.jpg" />
 </div>
 
 
@@ -301,7 +328,7 @@ Windows 10 (66in1) Sergei Strelec x86/x64 1903 (build 18362.418) [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340608.jpg" />
 </div>
 
 
@@ -328,7 +355,7 @@ Windows 10 v20H2 plus v2004 by StartSoft Modernization 08-2020 [Ru/En]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310239.jpg" />
 </div>
 
 
@@ -354,7 +381,7 @@ Windows 10 Pro x64 20H2.19042.630 2in1 Nov 2020 by Generation2 [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_297055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_297055.jpg" />
 </div>
 
 
@@ -380,7 +407,7 @@ Windows 10 1809 LTSC Pro x64 x86 Matros Edition 07 [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272730.jpg" />
 </div>
 
 
@@ -409,7 +436,7 @@ Microsoft® Windows® 10 Enterprise x64 LTSC 2021 21H2 RU by OVGorskiy 11.2025
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257679.jpg" />
 </div>
 
 
@@ -435,7 +462,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v28 (esd) [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257492.jpg" />
 </div>
 
 
@@ -464,7 +491,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v28 (esd) [En]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257491.jpg" />
 </div>
 
 
@@ -493,7 +520,7 @@ Windows 10 22H2 (Build 19045.2965) (40in2) x86/x64 by Sergei Strelec [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252213.jpg" />
 </div>
 
 
@@ -520,7 +547,7 @@ Windows 10 Pro VL x64 (22H2) (build 19045.2965) by ivandubskoj 12.05.2023 Fixed 
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247168.jpg" />
 </div>
 
 
@@ -546,7 +573,7 @@ Windows 10 Enterprise x64 20H2.19042.630 2in1 Nov 2020 by Generation2 [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221188.jpg" />
 </div>
 
 
@@ -572,7 +599,7 @@ Windows 10 Professional x64 20H2 Matros 12 [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219432.jpg" />
 </div>
 
 
@@ -601,7 +628,7 @@ Microsoft® Windows® 10 Pro-Home Optim Plus x64 22H2 RU by OVGorskiy 10.2025
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193747.jpg" />
 </div>
 
 
@@ -627,7 +654,7 @@ Microsoft® Windows® 10 Professional VL x64 22H2 RU by OVGorskiy 10.2025
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188028.jpg" />
 </div>
 
 
@@ -653,7 +680,7 @@ Windows 10 Enterprise LTSC x64 Rus by OneSmiLe [19044.3570]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173517.jpg" />
 </div>
 
 
@@ -667,32 +694,6 @@ ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35A7AC8585838D61779A47944194E5EC7839E00F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430826   (169168) от 11.12.2020
-
-Windows 10 Enterprise 2019 LTSC with Update [17763.1637] AIO 4in2 (x86-x64) by adguard (v20.12.09) [En/Ru]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на основе оригинальных образов MSDN. Были интегрированы обновления по 8 декабря 2020 года, а также интегрирован SmartFix 2.3.7 и Microsoft DaRT. В ней нет никаких косметических изменений и ничего не вырезано!Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9868A69275B83131F70B4F67EB865C4C3AD213D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

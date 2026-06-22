@@ -1,3 +1,109 @@
+###  Публикация: 1671778   (171032) от 26.10.2023
+
+Native Instruments FM8 1.4.6 [Multi]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171032.jpg" />
+</div>
+
+
+###  Подробнее
+
+FM8 — превосходный FM-синтезатор, способный не только воспроизводить классические звуки DX7, но и создавать совершенно новые звуки, которые были бы невозможны при использовании DX7 и всех его преемников Yamaha. Компания Native Instruments использовала возможности FM-синтеза. Сильные стороны цифровых технологий проявляются в мощном звуковом процессоре FM8, который (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.10.2023Разработчик: © 2023 Native InstrumentsПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:373B1FC164989D31175D8185AB5823014158A7CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671799   (171031) от 26.10.2023
+
+Pastebot 2.4.5 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pastebot - менеджер истории буфера обмена.
+Если copy & paste является частью вашего рабочего процесса, Pastebot является незаменимым инструментом для повышения производительности. Быстро вспомнить обрывки, которые вы скопировали и применять мощные текстовые фильтры для форматирования перед вставкой. Вы можете даже стоять в очереди несколько копий, чтобы вставить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.10.2023Разработчик: © 2016-2023 Tapbots LLCПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A54650A76F1B0DA82234A7589BE4408A27FCD233
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671775   (171028) от 26.10.2023
+
+Native Instruments Reaktor 6 v.6.5.0 Rev2 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основным отличием версии 6 модульного виртуального инструмента Reaktor от предыдущих версий является использование новой технология Reaktor Core Technology, позволяющей визуальное создание собственных модулей.
+В NI REAKTOR 6 реализовано множество новых возможностей и улучшений. 23 качественно новых инструмента REAKTOR позволяют создать бесчисленное множество ни на (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.10.2023Разработчик: © 2023 Native InstrumentsПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:627B6CD3FF4B96E66120DF37F1B09C0D1DA26EC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671793   (171016) от 26.10.2023
+
+OmniPlayer Pro - Media Player 2.1.2 [Multi]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171016.jpg" />
+</div>
+
+
+###  Подробнее
+
+OmniPlayer Pro для Mac - это универсальный медиаплеер практически для любого видео и аудио формата в macOS. Он обладает мощными функциями с современным и простым интерфейсом. Вы можете использовать его для простого воспроизведения различных HD-видео 4K / 1080P / 720P и обычного / без потерь звука с помощью аппаратного декодирования. Богатые функции OmniPlayer позволяют (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.10.2023Разработчик: © 2021 Omi Software Studio, Inc.Поддерживаемая ОС: macOS 10.13+Субтитры: ass, ssa, srt, idx и subЯзык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:535AEF7D3BF7DDC9CF67F48FEC7D1D7E4530A6EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671916   (170788) от 26.10.2023
 
 Video Copilot - Optical Flares 1.3.8 [En] + Presets
@@ -6,7 +112,7 @@ Video Copilot - Optical Flares 1.3.8 [En] + Presets
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170788.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Twitterrific 5 v5.4.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170666.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ SyncBird Pro 2.9.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170636.jpg" />
 </div>
 
 
@@ -86,7 +192,7 @@ iMac Cleaner 2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170616.jpg" />
 </div>
 
 
@@ -112,7 +218,7 @@ Hasher 1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170611.jpg" />
 </div>
 
 
@@ -138,7 +244,7 @@ InPixio Photo Studio Pro 10 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170590.jpg" />
 </div>
 
 
@@ -164,7 +270,7 @@ Murasaki 2.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170491.jpg" />
 </div>
 
 
@@ -190,7 +296,7 @@ SnapNDrag Pro Screensho‪t‬  4.5.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170487.jpg" />
 </div>
 
 
@@ -218,7 +324,7 @@ Download Shuttle Pro for Mac 1.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170424.jpg" />
 </div>
 
 
@@ -245,7 +351,7 @@ Disk Doctor Pro 1.0.22 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170393.jpg" />
 </div>
 
 
@@ -271,7 +377,7 @@ Picture Collage Maker 3 v3.7.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170389.jpg" />
 </div>
 
 
@@ -297,7 +403,7 @@ Window Focus 1.0.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170377.jpg" />
 </div>
 
 
@@ -324,7 +430,7 @@ Downie 4 v.4.6.32 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170357.jpg" />
 </div>
 
 
@@ -352,7 +458,7 @@ Cisdem DVD Burner 6.3.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170327.jpg" />
 </div>
 
 
@@ -378,7 +484,7 @@ Luminar Neo 1.15.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170218.jpg" />
 </div>
 
 
@@ -404,7 +510,7 @@ WidsMob AI Retoucher for Mac 3.17 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170207.jpg" />
 </div>
 
 
@@ -430,7 +536,7 @@ Audiobook Builder 2 v.2.2.7 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169950.jpg" />
 </div>
 
 
@@ -457,7 +563,7 @@ Disk Space Analyzer Pro 4.1.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169858.jpg" />
 </div>
 
 
@@ -484,7 +590,7 @@ ABBYY Lingvo European Dictionary 1.12.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169847.jpg" />
 </div>
 
 
@@ -511,7 +617,7 @@ Duplicate File Finder Pro for Mac 7 v.7.3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169843.jpg" />
 </div>
 
 
@@ -538,7 +644,7 @@ Exhibeo 2 v2.0.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169640.jpg" />
 </div>
 
 
@@ -564,7 +670,7 @@ Mac DVDRipper Pro 10.0.3 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169549.jpg" />
 </div>
 
 
@@ -576,114 +682,6 @@ Mac DVDRipper Pro 10.0.3 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E596A8F06045E6DFAFA446DF306CD8787F16D5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672341   (169517) от 28.10.2023
-
-Usher 2.2.1 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Usher - Отличное средство для создания и ведения собственной фильмотеки. Usher поможет управиться с видео, которое хранится на жестких дисках и в медиатеках iTunes, iPhoto, и Aperture. Пользователи могут добавлять подробную информацию о каждом видео и использовать "умные" плейлисты для их фильтрации по этим данным.
-С помощью Usher пользователи смогут искать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.06.2022Разработчик: © 2021 Many TricksПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC16B7E396C89D6B4DA8170F88E42DEFF3799F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515575   (169506) от 07.12.2021
-
-White Noise for Mac 7.4.0 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169506.jpg" />
-</div>
-
-
-###  Подробнее
-
-White Noise включает в себя 50 треков окружающей среды в формате HD, которые помогут вам расслабиться и лучше спать ночью. Вы в отеле и соскучились по знакомому звуку вентилятора или кондиционера? Летите в самолете и хотите вздремнуть? Утилита включает в себя высококачественные циклические шумы, такие как удары океанских волн, проливной дождь и текущая струя воды (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.12.2021Разработчик: © 2021 TMSOFT, LLCПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD3BB88C9F7165F2E60B4A06F27506B725E943B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515543   (169491) от 07.12.2021
-
-Picture Instruments Mask Integrator 2.0.10 fix [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита Mask Integrator автоматически маскирует и обрезает объекты во время фотосъемки. Для каждого объекта потребуется два снимка: регулярно освещенный объект и его версия с контровым освещением.
-После настройки системы создание масок обрезки даже для самых сложных объектов займет всего несколько секунд. В то время как обычная техника Freemask ограничена частотой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.03.2018Разработчик: © 2021 Picture InstrumentsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BD8E8F30298DC9B6A6C0C26680F8B13A76E9C2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515614   (169471) от 07.12.2021
-
-Manico 2.10.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Manico - это ваша единственная утилита запуска и переключения приложений для macOS.
-Использование клавиши «Option Number» для запуска или переключения на целевое приложение на очень высокой скорости.
-Если вы человек, который хотел бы использовать клавиатуру для эффективного использования операционной системы, Manico поможет вам добиться максимальной эффективности.Тип издания: macOS SoftwareРелиз состоялся: 05.12.2021Разработчик: © 2021 Ding ZhouПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Упрощенный китайский и Традиционный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:923695F89B6AB900A29AECF04E4973A2B5378649
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1204170   (785352) от 04.02.2018
+
+Я.И. Перельман | Числа-великаны (1925) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785352.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге собраны увлекательные истории, вчитываясь в которые, совершенно не замечаешь, что каждая из них - интересная загадка! Познавательное пособие для юных математиков.Жанр: Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AA197119A6DE3E1D2AC7A8C93473874AEB1523B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204150   (785279) от 04.02.2018
+
+Я.И. Перельман (сост.) | Одним росчерком (1940) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередная замечательная книга от известного Мастера Якова Исидоровича Перельмана - сборник задач по вычерчиванию фигур одной непрерывной линией.Жанр: Развивающее пособие, практикумФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38072B009EE4AA6B5ADFC73F6F90B5FDA96FFB8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204167   (785276) от 04.02.2018
+
+Я.И. Перельман | Физическая хрестоматия. Пособие по физике и книга для чтения [Часть 1] (1922) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель предлагаемой хрестоматии - пополнить и округлить элементарные сведения школьного учебника физики. Она представляет собою систематизованный подбор выдержек из сочинений большого числа специалистов - физиков, техников и натуралистов - современных и прежде живших. Подбирались отрывки, расширяющие, углубляющие или иллюстрирующие (примерами житейского или технического (   Читать дальше...   )Жанр: Познавательная литература, учебное пособиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:664507C3C51BF2DFD5955BEDBF6AB234E997C888
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204204   (784904) от 05.02.2018
+
+Я.И. Перельман | Межпланетные путешествия [Издание десятое] (1935) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784904.jpg" />
+</div>
+
+
+###  Подробнее
+
+По форме изложения книга в основном тексте по-прежнему остается сочинением популярным. Ее цель - правильно ориентировать читателя, ознакомить с главными вопросами, рассеять предубеждение против осуществимости нового рода транспорта, не затушевывая в то же время стоящих на его пути трудностей. Чтение книги должно служить закладкой основ и базовых знаний для молодого (   Читать дальше...   )Жанр: Познавательная литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C51AE752FE81033A3119819C534EC89145D4C66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204179   (784894) от 05.02.2018
 
 Я.И. Перельман и др. | Наука на досуге (1935) [DJVU]
@@ -6,7 +110,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784894.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784890.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784888.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784885.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784876.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784626.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784307.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784306.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784271.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783834.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783747.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782102.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779318.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778971.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778333.jpg" />
 </div>
 
 
@@ -401,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777940.jpg" />
 </div>
 
 
@@ -427,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777936.jpg" />
 </div>
 
 
@@ -455,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777909.jpg" />
 </div>
 
 
@@ -481,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777545.jpg" />
 </div>
 
 
@@ -507,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777443.jpg" />
 </div>
 
 
@@ -533,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776952.jpg" />
 </div>
 
 
@@ -560,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776834.jpg" />
 </div>
 
 
@@ -572,110 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23959C679B328BDF40F10689161CC19FD30FAC4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211956   (776833) от 09.03.2018
-
-Я.И. Перельман | Занимательная физика. Книга вторая (1936) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776833.jpg" />
-</div>
-
-
-###  Подробнее
-
-В предлагаемой книге, как и в первой, составитель стремится не столько сообщить новые знания, сколько оживить и освежить те простейшие сведения по физике, которые у читателя уже имеются. Цель книги - возбудить деятельность научного воображения, приучить мыслить в духе физики и развить привычку к разностороннему применению своих знаний. Поэтому в «Занимательной физике» (   Читать дальше...   )Жанр: Познавательная литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0C6645079AAF110190557A2070B2941B6BBE7F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211939   (776829) от 09.03.2018
-
-Я.И. Перельман | Знаете ли вы физику (1935) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая книга, почти не выходящая из рамок элементарной физики, предназначается для читателя, прошедшего физику в полной средней школе и убежденного поэтому, что начала этой науки ему хорошо известны и переизвестны...Жанр: Познавательная литература, учебное пособиеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D95560D394CD07401DE477ED9D6217F14531188D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211930   (776827) от 09.03.2018
-
-Яков Исидорович Перельман | Практические занятия по геометрии (1923) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776827.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге имеется в виду лишь усвоение фактического материала школьной геометрии и не затрагивается вопрос о прохождении теоретического курса, обосновывающего этот материал. Автор полагает, что независимо от тех изменений, какие должно претерпеть преподавание теории, следует искать способов улучшить усвоение фактического материала геометрии, далеко не удовлетворительное (   Читать дальше...   )Жанр: Практическое пособие. ГеометрияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:288A3777362BAD0C94C2EC328B4C50D506A47873
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211954   (776825) от 09.03.2018
-
-Я.И. Перельман | Занимательная физика. Книга вторая (1949) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга написана известным популяризатором и педагогом и содержит, как указано в подзаголовке, «парадоксы, головоломки, задачи, опыты, замысловатые вопросы и рассказы из области физики». Книга по характеру изложения и по объему знаний, предполагаемых у читателя, рассчитана на учащихся средней школы и на лиц, занимающихся самообразованием в таком же объеме.Жанр: Познавательная литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:643A9388FBC9F6A4803B94A89098CC86B7218202
 ```
 
 https://mybot314.ru/tekegram_catalog/

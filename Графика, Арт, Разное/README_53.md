@@ -1,3 +1,81 @@
+###  Публикация: 1287616   (701220) от 08.03.2019
+
+Иконки - MightyDeals - 60 Exclusive Free Icons: "Childish" [PNG, EPS]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные иконки в векторе и не только на детскую тематику. Материал раздается с официальной документацией.Формат: PNG, EPSРазрешение файлов: 32 x 32 - 128 x 128
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9817A65E8AB27BB563E2DDFFE9DC1EF23029C1DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287926   (701215) от 08.03.2019
+
+Обои - Games Wallpapars [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник обоев на тему ИгрыФормат: JPGРазрешение файлов: 3440x1440
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C6F9825C170101E088D49E2FD56861D2CDEC60A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287936   (699273) от 09.03.2019
+
+Картинки - ОТКРЫТКИ СССР 8 МАРТА (002) [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник открыток на 8 марта СССРФормат: JPGРазрешение файлов: 565x800-1024x1422
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02856EB335BD4C4733E5914AE52F7F5D6D9B4F01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287937   (699169) от 09.03.2019
 
 Картинки - ОТКРЫТКИ СССР 8 МАРТА (001) [JPG]
@@ -6,7 +84,7 @@
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699169.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697643.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697637.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697085.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696637.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696398.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695375.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694912.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694663.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694653.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694538.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694532.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694529.jpg" />
 </div>
 
 
@@ -349,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694527.jpg" />
 </div>
 
 
@@ -375,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694520.jpg" />
 </div>
 
 
@@ -401,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694431.jpg" />
 </div>
 
 
@@ -427,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693083.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693080.jpg" />
 </div>
 
 
@@ -479,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693076.jpg" />
 </div>
 
 
@@ -505,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693073.jpg" />
 </div>
 
 
@@ -531,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693072.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693069.jpg" />
 </div>
 
 
@@ -583,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693067.jpg" />
 </div>
 
 
@@ -594,85 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C577C6E52F4D25910AA7298E199E33B56BFA073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221632   (692997) от 25.04.2018
-
-Обои - Desktop Wallpapers Full HD. Part (190) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8FD835D09F1C02F70F34E465AB0B7CA06399ECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027929   (692117) от 21.06.2016
-
-Иллюстрации - Иллюстрации к Туманности Андромеды И. А. Ефремова [JPG]
-
->>Графика, Арт, Разное
->>Книжная иллюстрация
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_692117.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Туманность Андромеды» — социально-философский научно-фантастический роман Ивана Антоновича Ефремова. Написан в 1955—1956 гг. Отрывки романа печатались в газетах «Пионерская правда» (1957) и «Комсомольская правда» (1959). Первое издание — в №№ 1-9 журнала «Техника — молодёжи» в 1957 г. В виде книги впервые опубликован в издательстве ЦК ВЛКСМ «Молодая Гвардия» в 1958 (   Читать дальше...   )Формат: JPGРазрешение файлов: от 1204х2000 до 1308х2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6445E79BBC7AC0655A909019AD5DAB4B5CB5FC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 212266   (690928) от 22.06.2010
-
-Классическое искусство - Эдуар Мане (Edouard Manet) [JPG]
-
->>Графика, Арт, Разное
->>Классическое искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция картин Эдуара Мане.
-Эдуард (Эдуар) Мане (фр. Edouard Manet; 23 января 1832, Париж — 30 апреля 1883, Париж) — французский живописец, гравёр, один из родоначальников импрессионизма.Формат: JPGРазрешение файлов: 800х1000 - 1300х1150
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

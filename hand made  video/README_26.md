@@ -1,3 +1,29 @@
+###  Публикация: 1457363   (1003458) от 05.08.2021
+
+Трасса 60 / Interstate 60: Episodes of The Road (2002) DVDRip [H.264/720p] [handmade remastered upscale AI]
+
+>>След.
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003458.jpg" />
+</div>
+
+
+###  Подробнее
+
+В легендах и мифах есть персонажи, главная задача которых — исполнять желания. У арабов это — джинны, у ирландцев — лепреконы, у китайцев — драконы, у европейцев — феи и лесные духи. А в Америке есть некто О. Ж. Грант — довольно странный и забавный человек, который тоже может исполнить любое желание. Но будьте осторожны, он очень проказлив! Вот его-то и встречает (   Читать дальше...   )Производство: Канада, США / Fireworks PicturesЖанр: фантастика, фэнтези, драма, комедия, детектив, приключенияРежиссер: Боб ГейлАктеры: Джеймс Марсден, Гари Олдман, Эми Смарт, Курт Рассел, Мэттью Эдисон, Пол Брогрен, Уэйн Робсон, Майкл Дж. ФоксПеревод: Многоголосый профессиональныйСубтитры: отсутствуютПродолжительность: 01:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:612254FFC71C698CC29A42D4F11628FB920B331B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350275   (1003141) от 06.01.2020
 
 Сборник клипов - Old School Hits от ALEXnROCK часть 1 (2019) WEBRip
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003141.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002918.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002431.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002203.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002111.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001874.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001262.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000572.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000085.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999834.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999509.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998742.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998471.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998202.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997647.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997330.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996825.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995964.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995358.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994375.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994365.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993865.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ Blackthorn (Russian band) (Music Videos 7X Retail CD Audio) (2013-2020) WEB-DL [
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993275.jpg" />
 </div>
 
 
@@ -622,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993251.jpg" />
 </div>
 
 
@@ -650,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992553.jpg" />
 </div>
 
 
@@ -663,35 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353764   (990542) от 19.01.2020
-
-Сборник клипов - Old School Hits от ALEXnROCK часть 2 (2019) WEBRip
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990542.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли самые хитовые клипы нулевых. Это 2я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK00. Old Sckool Hits 2 - Intro
-01. Nicole Kidman & Ewan McGregor - Come What May
-02. Elize - Hot Stuff
-03. Blue - One Love(   Читать дальше...   )Жанр: PopПродолжительность: 02:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABC2AC154C3105597749B1B3872C600FF8898ED9
 ```
 
 https://mybot314.ru/tekegram_catalog/

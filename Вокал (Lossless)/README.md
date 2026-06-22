@@ -7,7 +7,7 @@ Amici Forever - The Opera Band (2004) [FLAC|Lossless|image + .cue] <Classical, P
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067698.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042134.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ Schubert - Rosamunde (Elly Ameling, Kurt Masur) (1985) [FLAC|Lossless|image + .c
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039825.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ J.S. Bach - Solo Cantatas for Bass BWV56, 82 & 158 (2019) [FLAC|Lossless|WEB-DL|
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027370.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ A.Scarlatti - San Casimiro, re di Polonia (1999) 2010,  Acte Prealable [FLAC|Los
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026588.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Johann Sebastian Bach - Tenor Arias: BWV 62, 104, 29, 198, 171, 114, 95, 108, 90
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021165.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Schubert - Mayrhofer-Lieder, Vol.2 - Christiane Iven, Burkhard Kehring (2003) [F
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019462.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Berlioz / Берлиоз - La Damnation de Faust /Осуждение Фауст�
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018589.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Handel - Te Deum de Dettingen (Jean-Francois Paillard) (1989) [FLAC|Lossless|ima
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008004.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Strozzi, Monteverdi, Kapsberger, Carissimi, Frescobaldi - Lamento (Romina Basso)
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003687.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Richard Wagner – Der fliegende Hollander Berliner Philharmoniker: conductor He
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999291.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Wolfgang Amadeus Mozart–Requiem Mass in D minor KV 626: BBC Symphony Orchestra
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998789.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Wolfgang Amadeus Mozart–Mass C-Dur K.317, Exsultate K.165, Vesperae solennes K
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995786.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Mozart - Requiem (Frans Bruggen & Orchestra of the Eighteen Century) (2009) [FLA
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981719.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Stile Antico & Fretwork - Tune Thy Musicke to Thy Hart (2012) [FLAC|Lossless]<Sa
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977259.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Wiener Philharmoniker, Herbert von Karajan - Mozart – Requiem D-Moll KV626 (20
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970659.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Pergolesi Giovanni Battista–Stabat Mater: M. Marshall L.V. Terrani C. Abbado L
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963851.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Damien Poisblaud - Chant Grégorien - Abbaye du Thoronet (1990) PAVANE Records [
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953609.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Enrico Caruso / Энрико Карузо - Prima Voce: Caruso (1989) Nimbus Rec
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950397.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Enrico Caruso / Энрико Карузо - Caruso Starportrait (1993) Nota Blu 
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947217.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ W.A. Mozart - Missae Breves k.49, 65, 194 & 220: Nikolaus Harnoncourt, Concentus
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945651.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Enrico Caruso - Grand Collection (2006) [FLAC|Lossless|tracks + .cue] <Classical
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944393.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Richard Wagner - Neuschwanstein (2001) [FLAC|Lossless|image + .cue] <Opera>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925955.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ Zodiac - Ars Nova and Ars Subtilior in the Low Countries and Europe - Capilla Fl
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911964.jpg" />
 </div>
 
 
@@ -724,7 +724,7 @@ VA - Gluck. Orpfeo Ed Euridice, Iphigenie En Aulide, Iphigenie En Tauride. Fragm
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900919.jpg" />
 </div>
 
 
@@ -753,7 +753,7 @@ Anna Netrebko, Rolando Villazon, Thomas Hampson - Violetta. Arias And Duets From
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900737.jpg" />
 </div>
 
 

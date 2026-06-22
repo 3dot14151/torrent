@@ -1,3 +1,56 @@
+###  Публикация: 1023519   (722351) от 06.06.2016
+
+Любовь Кантаржи | Чудеса без конца (2016) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удивительные истории о том, как Крылатик и Крапинка разгадывали тайны и загадки этого мира. Эта книга родилась из журнальных публикаций. В течение пяти лет выходила в детском журнале «Ступени» (приложение к православной газете «Благовест») рубрика «Божья коровка». Её герои — забавные лесные человечки Крылатик и Крапинка — полюбились маленьким читателям. Вместе с (   Читать дальше...   )Жанр: СказкаПродолжительность: 03:57:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3615AED94D33414F5F8F74B1EF175C688A4413D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 327226   (721657) от 23.04.2011
+
+Виктор Драгунский | Он живой и светится... (Денискины рассказы, часть 2) [2007] [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы В.Ю.Драгунского с неизменным интересом читают и взрослые и дети. Современники писателя вспоминают его как открытого, доброго, обаятельного человека, а название знаменитого рассказа "Он живой и светится…" вполне подходило и самому автору. Таким было и все творчество писателя.
+Драгунский писал для детей, создавая удивительный мир солнечных зайчиков, (   Читать дальше...   )Жанр: Детская литература
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CE3C04397BDB1BF4EA1F2F1D2224AB7D70737D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 327230   (721643) от 23.04.2011
 
 Виктор Драгунский | Надо иметь чувство юмора. (Денискины рассказы, часть 3) [2009] [MP3]
@@ -6,7 +59,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721643.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721406.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721404.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_721009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_721009.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720934.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720638.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719413.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719407.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719404.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719403.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719256.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ VA - 333 Лучшие Детские Песни (2004) 12 CD BoxSet [FLAC|Lossle
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718917.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718851.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718658.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718639.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718547.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717412.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717218.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717104.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715293.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715285.jpg" />
 </div>
 
 
@@ -558,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715279.jpg" />
 </div>
 
 
@@ -584,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715199.jpg" />
 </div>
 
 
@@ -610,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714836.jpg" />
 </div>
 
 
@@ -621,59 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88FC44E224DD1EF1EDD4F88DB051E37AE7C9134B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401121   (713505) от 08.08.2020
-
-Пауль Маар | Новости о господине Белло. Книга 2. (2019) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Макс, двенадцатилетний сын разведенного аптекаря, хочет, чтобы его друг господин Белло остался навсегда человеком, но для этого Белло нужно постоянно пить голубой сок, иначе он снова превращается в собаку. Беда в том, что у друзей есть только одна бутылочка! Макс убежден, что где-то сохранилась запись рецепта, только вот где? Захватывающие приключения ждут Макса (   Читать дальше...   )Жанр: Детская прозаПеревод: С нем. Екатерины Борисовны АраловойПродолжительность: 04:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC16BE3F6261D434DE11A5D2CA7BEAE4B1E67900
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401119   (713242) от 08.08.2020
-
-Пауль Маар | Господин Белло и волшебный эликсир. Книга 1. (2019) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкий писатель Пауль Маар (род. 1937), лауреат Немецкой премии детской литературы, государственной премии Австрии, Немецкой национальной литературной премии и многих других, — настоящий волшебник и чародей слова, — хорошо знаком русскому читателю как автор замечательных книг о Субастике.
-Герой его новой книги Макс — симпатичный немецкий мальчишка, живет вместе (   Читать дальше...   )Жанр: Детская прозаПеревод: С нем. Елены Е. МихелевичПродолжительность: 05:09:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C107D9E8213765751F063CD6C7E90396355A9D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

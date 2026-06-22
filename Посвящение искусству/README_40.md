@@ -1,3 +1,81 @@
+###  Публикация: 1449516   (245385) от 21.02.2021
+
+История джаз-клуба Ронни Скотта / Ronnie's (2020) WEB-DL [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм рассказывает увлекательную историю этого поистине легендарного места, в котором пересекались, и до сих пор пересекаются, пути звезд и новичков, только начинающих свое восхождение по крутой и скользкой лестнице славы и признания… 30 октября 1959 года в подвале на улице Джеррард, 39 в лондонском районе Сохо открылся клуб, навсегда изменивший музыкальную (   Читать дальше...   )Производство: Великобритания, Goldfinch, Orofena Films, Thirty Seven ProductionsЖанр: Документальный, история, музыка, джазРежиссер: Оливер МюррейПеревод: Двуголосый закадровый, профессиональный (Эй Би Видео)Субтитры: отсутствуютПродолжительность: 01:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE9810449359C4A80A490CA8F30C095E46B3A0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624054   (245357) от 04.04.2023
+
+Я - Альфред Хичкок / I Am Alfred Hitchcock (2021) IPTVRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм о короле саспенса — сэре Альфреде Джозефе Хичкоке, ставшем поистине выдающейся фигурой в мировом кинематографе и создавшим фильмы, многие из которых вошли в золотой фонд кино. При этом Американская киноакадемия так и не удостоила его заслуженной золотой статуэтки: Хичкок пять раз номинировался на «Оскар» как "Лучший режиссёр". «Вечно (   Читать дальше...   )Производство: Великобритания, США, Канада, Network EntertainmentЖанр: документальный, биография, кинематографРежиссер: Джоэл Аштон МаккартиПеревод: двуголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BB1E81EDFD646002BC9C7CC483B80560BC56F80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621792   (244880) от 26.03.2023
+
+Dead Girls Rock: Оглядываясь назад на «Мертвых девочек» / Dead Girls Rock: Looking Back at Dead Girls (2022) BDRip [H.264/720p] [DVO]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный проект с участием актеров и съемочной группы фильма ««Мертвые девчонки» 1990 года.Производство: СШАЖанр: документальныйПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: русскиеПродолжительность: 01:32:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA100606234DD7F6DB567F837625830B7AA03C57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378621   (244826) от 01.04.2022
 
 Острова (2000 – 2021) DVB [H.264] (серии 1-114 из ?) (Обновляемая)
@@ -6,7 +84,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244826.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244696.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244695.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244388.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244296.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243911.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243824.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243182.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243078.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242825.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242428.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241648.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241468.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241392.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241191.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241069.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240757.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240531.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240362.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240323.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ RTG. Санкт-Петербургская Академия Художеств (
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240086.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239988.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239859.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7C14193C72C3900E2B6A52B7F2AB23B74641E2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566921   (239781) от 23.08.2022
-
-Женщины, которые играют рок / Women Who Rock (2022) WEB-DL [H.264/1080p] (серии 1-4 из 4)
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитые женщины-музыканты обсуждают правду, неповиновение, художественное самовыражение, с трудом завоеванный успех, а также идеи и истории, лежащие в основе их вневременной музыки.Производство: СШАЖанр: Документальный, музыкаРежиссер: Джессика ХопперПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: ~00:56:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1671145093B25755FB61195A465C1E5DF6632CB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627605   (239749) от 19.04.2023
-
-История металла и ужасов / The History of Metal and Horror (2022) WEB-DL [H.264/1080p] [DVO]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239749.jpg" />
-</div>
-
-
-###  Подробнее
-
-История металла и ужасов - это документальный фильм, который исследует историю музыки хэви-метал и ужасов, а также то, как эти два жанра слились воедино с течением времени. Различные исполнители металла рассказывают о своем первом знакомстве с ужасами, о своих любимых фильмах ужасов, о своем влиянии и многом другом. Иконы фильмов ужасов также обсуждают, как их фильмы (   Читать дальше...   )Производство: США, M.A.S. ProductionsЖанр: документальный, история, кинематографРежиссер: Майк ШиффПеревод: двуголосый любительский  (Pazl Voice)Язык озвучки: русскийСубтитры: русские (Pazl Voice), английскиеПродолжительность: 01:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77E5BFD5449BA9C20C5AC6E3CF803D089195181D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635680   (239678) от 26.05.2023
-
-Милиус / Milius (2013) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он великолепный рассказчик и один из самых плодовитых голливудских сценаристов прошлого века. Он большой друг Стивена Спилберга, Джорджа Лукаса и Фрэнсиса Форда Копполы, с которыми учился в одной киношколе. Он сотворил Арнольда Шварценеггера и писал эффектные речи для Шона Коннери. Выше его работ – только его личность. Дзен-анархист, мишка Тедди с автоматом Калашникова, (   Читать дальше...   )Производство: США, Chop Shop Entertainment, Haven EntertainmentЖанр: документальный, история, биографияРежиссер: Джои Фигуроа, Зак НатсонПеревод: субтитры (bugman6)Язык озвучки: английскийСубтитры: русские, английскиеПродолжительность: 01:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91478FCE331AAFCD5C6D9925FBE0B7DC0E84DF34
 ```
 
 https://mybot314.ru/tekegram_catalog/

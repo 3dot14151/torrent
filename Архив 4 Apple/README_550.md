@@ -1,3 +1,65 @@
+###  Публикация: 965458   (225812) от 14.12.2015
+
+PCalc  4.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225812.jpg" />
+</div>
+
+
+###  Подробнее
+
+PCalc  - мощный калькулятор
+PCalc - представляет собой полнофункциональный научный калькулятор для Mac OS X с поддержкой шестнадцатеричных, восьмеричных и двоичных расчетов, а также режим программируемых функций и обширный набор модулей преобразования. Очень наглядна "лента печати" выполняемых операций и получаемых значений (наподобие ленты кассового аппарата). (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 сентября 2015Разработчик: TLA Systems Ltd.Поддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8404614C798D85C8DEFE48D8BB9AE84E63D3A77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586949   (225808) от 09.12.2012
+
+TechTool Pro 6.0.6 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение TechTool Pro обладает следующей функциональностью:
+- Удобный и простой единый интерфейс для выполнения операций по тестированию и обслуживанию системы
+- Создание аварийного загрузочного раздела на активном системном томе (DVD не требуется)
+- Выполнение SMART-теста жёстких дисков для обнаружения изменений в состоянии или приближающемся отказе
+- Ремонт повреждённых томов, в том числе новейших SSD-дисков
+- Клонирование томов
+- Обнаружение бед-блоков на жёстком диске и восстановление записанных в них файлов
+- Восстановление прав доступа к файлам на разделе
+- Восстановление удалённых файлов и потерянных данных
+- Мониторинг конфигурации устройств для лучшего управления безопасностью в вашей локальной сети(   Читать дальше...   )Название программы: TechTool ProРелиз состоялся: 27 сентября 2012 г.Тип издания: Mac OS X SoftwareЯзык интерфейса: Английский, немецкий, французский, итальянский, японский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513394   (225773) от 28.11.2021
 
 4K Stogram Pro beta for Mac 4.1.2 [Multi/Ru]
@@ -6,7 +68,7 @@
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225773.jpg" />
 </div>
 
 
@@ -32,7 +94,7 @@ VideoProc Converter 4K 4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225745.jpg" />
 </div>
 
 
@@ -58,7 +120,7 @@ Typora 1.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225731.jpg" />
 </div>
 
 
@@ -84,7 +146,7 @@ Pixelmator Pro 2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225711.jpg" />
 </div>
 
 
@@ -112,7 +174,7 @@ Wondershare UniConverter 13.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225704.jpg" />
 </div>
 
 
@@ -139,7 +201,7 @@ iA Writer 5.6.16  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225695.jpg" />
 </div>
 
 
@@ -165,7 +227,7 @@ Capture One 22 Pro Beta 3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225684.jpg" />
 </div>
 
 
@@ -192,7 +254,7 @@ TG Pro (Temperature Gauge Pro) 2.63 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225660.jpg" />
 </div>
 
 
@@ -219,7 +281,7 @@ Photos Exif Editor 2.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225654.jpg" />
 </div>
 
 
@@ -248,7 +310,7 @@ Serial Box 12.2019 + SerialSeeker 2.0 (44) + iSerial Reader 2.0.23 (build 018e) 
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225630.jpg" />
 </div>
 
 
@@ -277,7 +339,7 @@ El Capitan Cache Cleaner 10.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225606.jpg" />
 </div>
 
 
@@ -304,7 +366,7 @@ PhotoBulk: watermark in batch 2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225544.jpg" />
 </div>
 
 
@@ -332,7 +394,7 @@ Bartender 4 v4.1.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225524.jpg" />
 </div>
 
 
@@ -359,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_225519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225519.jpg" />
 </div>
 
 
@@ -385,7 +447,7 @@ Wondershare PDFelement Pro 8.5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225507.jpg" />
 </div>
 
 
@@ -411,7 +473,7 @@ WALTR PRO  3.7.98 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225479.jpg" />
 </div>
 
 
@@ -437,7 +499,7 @@ djay - DJ App & AI Mixer 4.1.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_225417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225417.jpg" />
 </div>
 
 
@@ -463,7 +525,7 @@ Boom 3D 1.3.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225363.jpg" />
 </div>
 
 
@@ -489,7 +551,7 @@ CrossOver 20.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225343.jpg" />
 </div>
 
 
@@ -517,7 +579,7 @@ Cookie 5 v5.9.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225250.jpg" />
 </div>
 
 
@@ -546,7 +608,7 @@ WonderPen 1.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225242.jpg" />
 </div>
 
 
@@ -574,7 +636,7 @@ JetBrains WebStorm 11.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225221.jpg" />
 </div>
 
 
@@ -600,7 +662,7 @@ Lasso 1.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_225147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225147.jpg" />
 </div>
 
 
@@ -626,7 +688,7 @@ Tinderbox 9 v.9.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_225139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225139.jpg" />
 </div>
 
 
@@ -638,59 +700,6 @@ Tinderbox может автоматически собирать информа�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53B9FA1827D03CCD87575F2BE56BA80C48869781
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650720   (225102) от 03.08.2023
-
-SiteSucker 5.1.10 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_225102.jpg" />
-</div>
-
-
-###  Подробнее
-
-SiteSucker- это альтернативный менеджер загрузки сайтов. SiteSucker это приложение для Macintosh, которое автоматически загружает веб-сайты из Интернета. Она делает это путем асинхронного копирования веб-страниц сайта, изображений, PDF-файлов, таблиц стилей и других файлов на локальном жестком диске, дублируя структуру каталогов сайта.
-SiteSucker умеет загружать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.08.2023Разработчик: © 2001-2022 Rick CraniskyПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A34515644E8CBA56B8307251474E92C9AC0A08A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268619   (225099) от 12.12.2018
-
-Network Radar 1.5.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Network Radar предоставляет Вам информацию о сети к которой подключен ваш Mac . Network Radar показывает устройства, подключенные к вашей локальной сети, компьютер или маршрутизатор, а также их имя, IP и поставщика. Network Radar представляет собой простой в использовании инструмент, который позволит вам получить детальную информацию о сетевых устройствах.Тип издания: macOS SoftwareРелиз состоялся: 10.12.2018Разработчик: Daniel DienerПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72C48F87557C510A5FF6A877417EC11C2B1DE39A
 ```
 
 https://mybot314.ru/tekegram_catalog/

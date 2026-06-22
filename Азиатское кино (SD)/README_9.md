@@ -1,3 +1,81 @@
+###  Публикация: 1360454   (960575) от 15.02.2020
+
+Первая любовь / Hatsukoi / First Love (2019) BDRip [H.265] [10-bit]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рео и Моника — боксер со смертельным диагнозом и проститутка-наркоманка, влипшая в долги… Любовь, первая любовь настигает их внезапно. Но их чувство и жизнь под угрозой: за парочкой гонятся якудза, продажный коп, киллерша, посланная китайской триадой, и даже призрак в белой простыне… Безумная ночь в безумном Токио.Производство: Япония, Великобритания / Oriental Light and Magic (OLM), Recorded Picture Company (RPC), Toei CompanyЖанр: Криминал, мелодрама, боевикРежиссер: Такаси МиикеАктеры: Масатака Кубота, Сакурако Кониси, Нао Омори, Сёта Сомэтани, Сэиё Утино, Беки, Дзюн Мураками, Сансэй СиомиПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:48:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAD84A1F6930E7E12FFAE9750B5FC7C30192BFE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360460   (960523) от 15.02.2020
+
+Первая любовь / Hatsukoi / First Love (2019) BDRip [H.265] [10-bit]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рео и Моника — боксер со смертельным диагнозом и проститутка-наркоманка, влипшая в долги… Любовь, первая любовь настигает их внезапно. Но их чувство и жизнь под угрозой: за парочкой гонятся якудза, продажный коп, киллерша, посланная китайской триадой, и даже призрак в белой простыне… Безумная ночь в безумном Токио.Производство: Япония, Великобритания / Oriental Light and Magic (OLM), Recorded Picture Company (RPC), Toei CompanyЖанр: Криминал, мелодрама, боевикРежиссер: Такаси МиикеАктеры: Масатака Кубота, Сакурако Кониси, Нао Омори, Сёта Сомэтани, Сэиё Утино, Беки, Дзюн Мураками, Сансэй СиомиПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:48:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B02650A1F79A3907A84DEF88B85EFEB20BC8B5EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360473   (960300) от 15.02.2020
+
+Ип Ман 4 / Yip Man 4 (2019) WEBRip [MVO]
+
+>>След.
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Америка, 1960-е годы. Ип Ман прибывает в Сиэтл, где один из его учеников решил открыть школу вин-чун.Производство: Гонконг, Китай / Bullet Films, Mandarin Motion Pictures, Shanghai Bona Cultural MediaЖанр: боевик, биографияРежиссер: Уилсон ИпАктеры: Донни Йен, Скотт Эдкинс, Дэнни Чань, У Юэ, Ванесс У, Джим Лю, Кент Чэн, Пьер Нго, Адриан Вилер, Крис КоллинзПеревод: Профессиональный многоголосый (HDRezka Studio)Субтитры: Английские, корейские (hardsub)Продолжительность: 01:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A3D4F18FE5A947D7B69379B0B7E308944AC6E2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 171646   (958872) от 31.01.2010
 
 Долина цветов / Valley of flowers (2006) DVDRip
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958872.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958047.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956849.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955406.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952818.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952121.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952056.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949338.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946463.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942235.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941465.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934446.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934418.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934375.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933537.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932831.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932754.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932129.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930119.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930105.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928928.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928900.jpg" />
 </div>
 
 
@@ -582,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928643.jpg" />
 </div>
 
 
@@ -593,84 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2E671D8D7A30D3678B393A03D8E7991403002FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986864   (928433) от 15.02.2016
-
-Рюдзо и семеро бойцов / Ryûzô to 7 nin no kobun tachi (2015) HDRip
-
->>След.
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший боец якудза, давно ведущий размеренную жизнь пенсионера, становится жертвой мошенничества и решает основать новый клан якудза вместе со своими престарелыми друзьями, чтобы вернуть славные времена и, разумеется, воздать по заслугам обидчикам…Производство: Япония / Office KitanoЖанр: Боевик, КомедияРежиссер: Такеши КитаноАктеры: Тацуя Фудзи, Бэн Хиура, Кодзюн Ито, Масанобу Кацумура, Такеши Китано, Масаоми Кондо, Хисако Манда, Акира НакаоПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 01:51:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6438D9F5AC0CE33CE069733356FEA00C93792074
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366126   (925501) от 10.03.2020
-
-Молчание (Безмолвный свидетель) / Chim-muk / Heart Blackened (2017) HDRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глава корпорации и влиятельный человек Им Тхэ-сан знакомит малолетнюю дочь Ми-ру со своей невестой Ю-ной. Избалованная девочка сразу невзлюбила потенциальную мачеху, и эти двое предпочитали не общаться. Через год подвыпившая Ми-ра вызывает Ю-ну на разговор в ночной клуб, а позже женщину находят с серьёзными травмами, и она умирает в больнице. Все улики указывают (   Читать дальше...   )Производство: Южная Корея, Yong FilmЖанр: Драма, детектив, криминалРежиссер: Чон Джи-уАктеры: Чхве Мин-сик, Пак Щин-хе, Рю Джун-ёль, Ли Хани, Ли Су-гён, Пак Хэ-джун, Чо Хан-чхоль, Ким Ён-джэ, Нам Мён-нёль, Нам Мун-чхольПеревод: Двуголосый любительский (den904, DeadSno / Ворон, Элейн)Субтитры: Русские, английские - отдельными файламиПродолжительность: 02:05:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D968913CF3C90E7E2C3C5F1C0A9FA38D323F5D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489426   (925293) от 16.08.2021
-
-Красный фонарь / Aka chochin / Red Paper Lantern (1974) WEB-DLRip [AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодожены Куме и Юки странствуют по стране, переезжая с места на место. Молодая пара никак не может ужиться с соседями, к тому же Куме не готов к семейной жизни и для него это больше игра. Все усложняется, когда Юки беременеет. Куме настаивает на аборте, а Юки никак не может понять, почему Куме не хочет детей. Смогут ли молодожены преодолеть трудности семейной жизни.Производство: Япония, NikkatsuЖанр: Драма, мелодрамаРежиссер: Тосия ФудзитаАктеры: Кэндзи Такаока, Кумико Акиёси, Хироюки Нагато, Сёдзи Исибаси, Тёитиро Каварадзаки, Кирин Кики, Хосэй Комацу, Суэ Митобэ, Санаэ Накахара, Юри ЯмасинаПеревод: Авторский (Виктор Береговых)Субтитры: Английские, русские - отдельным файломПродолжительность: 01:32:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82176A2B6BD5993287A777FD1E03BAADB86FE160
 ```
 
 https://mybot314.ru/tekegram_catalog/

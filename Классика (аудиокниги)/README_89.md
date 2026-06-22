@@ -1,3 +1,60 @@
+###  Публикация: 1728160   (54139) от 06.06.2024
+
+Александр Пушкин | Метель (2004) [MP3, Алексей Баталов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Классика.
+Александр Сергеевич Пушкин (1799–1837) – великий русский поэт, драматург, прозаик, историк, литературный критик и журналист, создатель современного русского литературного языка.
+Литературно-музыкальная композиция по одноимённой повести А.С. Пушкина.
+Никакое мировое почитание не может выявить того, чем Пушкин является для нас, русских. В нем (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: ВЕСТЬ-ТДАПродолжительность: 01:13:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:403572032D8860B8E483D7B79568978BCA47E4B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 284256   (53897) от 09.06.2024
+
+Николай Лесков | Кадетский монастырь (Аудиоспектакль) (2007) [MP3, Валерий Баринов и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Театральный фонограф.
+Николай Семёнович Лесков (1831–1895) – русский писатель. Его называли самым национальным из писателей России, он вошёл в литературу как величайший знаток духовной и бытовой жизни народа. Он был блестящим автором, имитировавшим язык восемнадцатого века, любившим красочный стиль и умевшим писать и изысканно просто.
+Вашему вниманию (   Читать дальше...   )Жанр: Русская литература, классика, рассказВ ролях: Валерий Баринов, Алексей Кузнецов, Владимир Гусев и др.Издательство: 1С-Паблишинг, VOX recordsПродолжительность: 01:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B036404715F48F4C4414D85BAF4393FD0D52FE88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 284485   (53861) от 09.06.2024
 
 Николай Лесков | Однодум (Аудиоспектакль) (2005) [MP3, Валерий Баринов и др.]
@@ -6,7 +63,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53861.jpg" />
 </div>
 
 
@@ -34,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53785.jpg" />
 </div>
 
 
@@ -62,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53539.jpg" />
 </div>
 
 
@@ -88,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53395.jpg" />
 </div>
 
 
@@ -116,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51892.jpg" />
 </div>
 
 
@@ -143,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51623.jpg" />
 </div>
 
 
@@ -171,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50124.jpg" />
 </div>
 
 
@@ -197,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49598.jpg" />
 </div>
 
 
@@ -224,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49595.jpg" />
 </div>
 
 
@@ -251,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48476.jpg" />
 </div>
 
 
@@ -277,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48435.jpg" />
 </div>
 
 
@@ -304,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48129.jpg" />
 </div>
 
 
@@ -331,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48102.jpg" />
 </div>
 
 
@@ -358,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47583.jpg" />
 </div>
 
 
@@ -385,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47581.jpg" />
 </div>
 
 
@@ -412,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47557.jpg" />
 </div>
 
 
@@ -440,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47495.jpg" />
 </div>
 
 
@@ -467,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47441.jpg" />
 </div>
 
 
@@ -494,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47228.jpg" />
 </div>
 
 
@@ -520,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47084.jpg" />
 </div>
 
 
@@ -548,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47081.jpg" />
 </div>
 
 
@@ -576,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47080.jpg" />
 </div>
 
 
@@ -603,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47074.jpg" />
 </div>
 
 
@@ -632,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47069.jpg" />
 </div>
 
 
@@ -644,60 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DD7411E6E87CBA69C3C887C96D8E1714879A434
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357837   (47063) от 12.08.2024
-
-Фёдор Сологуб | Дама в узах (2011) [MP3, Вадим Яковлев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Проза Серебряного Века.
-В авторский сборник произведений Фёдора Кузьмича Сологуба (1863–1927) – выдающегося прозаика и поэта, представителя старшего поколения русских символистов и одного из ярких представителей «Серебряного Века», вошли рассказы в исполнении Вадима Яковлева.Жанр: Русская литература, классика, рассказИздательство: Вира-М (аудио)Продолжительность: 02:54:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD5414D9C5E33F0950CB48711AD9D57A111A55CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357897   (47056) от 12.08.2024
-
-Фёдор Сологуб | Соединяющий души (2011) [MP3, Вадим Яковлев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Проза Серебряного Века.
-В авторский сборник произведений Фёдора Кузьмича Сологуба (Тетерникова) (1863-1927), выдающегося прозаика и поэта, представителя старшего поколения русских символистов и одного из ярких представителей «Серебряного Века», вошли рассказы в исполнении Вадима Яковлева.Жанр: Русская литература, классика, рассказИздательство: Вира-М (аудио)Продолжительность: 03:19:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44D2B29229A8EE67EDA8DF62F11E5464AAAE348D
 ```
 
 https://mybot314.ru/tekegram_catalog/

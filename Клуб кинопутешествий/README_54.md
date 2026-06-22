@@ -1,3 +1,30 @@
+###  Публикация: 1641995   (210534) от 25.06.2023
+
+Жизнь других с Жанной Бадоевой. Эквадор  (25.06.2023)  SATRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эквадор — государство на северо-западе Южной Америки, расположенное по обе стороны экватора между Тихим океаном, Андами и джунглями Амазонии. В этой стране есть все: бананы и манго на любой цвет и вкус, самый разнообразный шоколад и 25 сортов шпината. А в ресторанах здесь подают свежайших червей!
+Жанна Бадоева прогулялась по столице Эквадора — городу Кито — и узнала, (   Читать дальше...   )Телекомпания: 1 каналЖанр: Документальный, ВидовойСубтитры: нетПродолжительность: 00:42:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38BA4E23CD86745ADBA7D1E6785966BDAEF5B295
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642651   (210341) от 28.06.2023
 
 Папуа Новая Гвинея. Земля 900 племён / Papua New Guinea, Land of 900 Tribes (2015) WEBRip [H.264/720p] (части 1-3 из 3)
@@ -6,7 +33,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210341.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ RTG. Усадьба Архангельское (2013) HDTV [H.264/1080i] (сер
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210288.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ RTG. Исторические адреса Санкт-Петербурга (2013
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210251.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209969.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209897.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209879.jpg" />
 </div>
 
 
@@ -162,7 +189,7 @@ RTG. Прогулка по Владивостоку (2014) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209747.jpg" />
 </div>
 
 
@@ -188,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209124.jpg" />
 </div>
 
 
@@ -214,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209044.jpg" />
 </div>
 
 
@@ -240,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208870.jpg" />
 </div>
 
 
@@ -266,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208818.jpg" />
 </div>
 
 
@@ -292,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208608.jpg" />
 </div>
 
 
@@ -318,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208596.jpg" />
 </div>
 
 
@@ -344,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208522.jpg" />
 </div>
 
 
@@ -370,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207507.jpg" />
 </div>
 
 
@@ -396,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206453.jpg" />
 </div>
 
 
@@ -422,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206057.jpg" />
 </div>
 
 
@@ -448,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205757.jpg" />
 </div>
 
 
@@ -474,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205107.jpg" />
 </div>
 
 
@@ -500,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204681.jpg" />
 </div>
 
 
@@ -526,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204280.jpg" />
 </div>
 
 
@@ -552,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202230.jpg" />
 </div>
 
 
@@ -578,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202155.jpg" />
 </div>
 
 
@@ -604,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199993.jpg" />
 </div>
 
 
@@ -630,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195542.jpg" />
 </div>
 
 
@@ -641,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A30190DA8519D82642B11C3CE0C8AAFC39ACDE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581688   (194150) от 19.08.2023
-
-Парящий каменный лес Китая / Zhangjiajie's Miracle Stone Forest (2017) IPTVRip
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_194150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чжанцзяцзе - национальный лесной парк в городском округе Чжанцзяцзе, провинция Хунань, Китай. Парк расположен на живописной территории Улинъюань, признанной ЮНЕСКО объектом Всемирного наследия. Парк примечателен большим количеством пиков-столбов из песчаника и кварца, самый живописный из них - "Колонна Южное Небо" высотой 1080.Производство: Япония, tvf InternatiohalЖанр: документальный, познавательный, путешествияПеревод: одноголосый профессиональный (СВ-Дубль)Субтитры: русскиеПродолжительность: 00:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B33BB495AC6CDA49DB602C1D129636A9C7E79BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

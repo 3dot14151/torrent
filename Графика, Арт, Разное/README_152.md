@@ -1,3 +1,230 @@
+###  Публикация: 469420   (82641) от 17.03.2012
+
+[Wallpapers] Фото знаменитости / Ирина (Шейк) Шайхлисламова
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82641.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Фото знаменитости / Ирина (Шейк) Шайхлисламова
+Название: Фото знаменитости / Ирина (Шейк) Шайхлисламова
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 600x803 - 3000x2029
+Расширение (тип) файлов: JPG
+Биография / общие сведения: Ирина (Шейк) Шайхлисламова - супермодель (фотомодель), стала «девушкой с обложки» августовского номера французского издания Paris Capitale Magazine. Ирина Шайхлисламова является лицом новых коллекций Intimissimi и Guess. Этническая татарка.
+ Ирина Шайхлисламова принимала также участие в фотосъемке последнего календаря Sports Illustrated Swimsuit Edtion, которая проходила в Санкт-Петербурге.
+Дата рождения: 6 января 1986
+Место рождения: Еманжелинск, (Челябинская область), Россия
+Рост: 176 см(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B76C091231D528D5688EE8B620B114DF18B7E85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468026   (82268) от 15.03.2012
+
+[Картинки] Фото знаменитости/Танита Феникс/Tanit Phoenix
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Танита Феникс (Tanit Phoenix) - южноафриканская модель и актриса.Жанры: Триллер, боевик, комедия
+Феникс родилась в Дурбане, Квазулу-Натал, ЮАР, в семье ирландского и голландского происхождения. Ее отец, преподаватель квантовой механики и бывший парашютист, является потомком иммигрантов 19-го века из Ирландии.
+Танита преуспевала в различных мероприятиях, в том числе танцы, легкая атлетика, и музыка. В раннем возрасте она была зачислена в балетный класс, где прозанималась 10 лет.
+Феникс начала свою карьеру в возрасте 15 лет, снималась в рекламе. Она работала в качестве модели международной моды в Мюнхене. В сентябре 2005 года, 2006 и в 2010 году она была девушка обложки журнала «Cosmopolitan».
+Феникс начал свою актерскую карьеру в фильме «Оружейный барон» (2005) с актерами Николасом Кейджем и Джаредом Лето. В 2010 году она снялась в фильме ужасов «Висельник» с Уэсли Снайпс. В этом же году снялась в фильмах «Пропащие ребята 3: Жажда » и «Смертельная гонка 2: Франкенштейн жив». Недавно закончила сниматься в комедии «Малек» с Джоном Клизом в Южной Африке.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21965E9DBEC5C394CBF1C00C224790D1FAB1FB5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465772   (81439) от 11.03.2012
+
+[Картинки] Фото знаменитости/Дита фон Тиз/Dita Von Teese
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ди́та фон Тиз (англ. Dita von Teese), настоящее имя Хизер Рене Суит англ. Heather Reene Sweet; род. 28 сентября 1972 года, Рочестер, Мичиган, США) — американская исполнительница шоу в стиле бурлеска, фотомодель и актриса.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A4D0C4C917D02C3D5E3286FF9AF68756FCEABFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462481   (80826) от 08.03.2012
+
+[Картинки] Фото знаменитости/Оксана Федорова
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотографии Оксаны Федоровой
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:780739BD8334C7BC5C4F3B896BA238DE71164867
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462562   (80229) от 05.03.2012
+
+[Клипарт] Фото знаменитости/Анна Плетнева
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотки Анны Плетневой из группы "Винтаж"
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C69F1B9AC93FF1126F455B729C4673B529C78DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 457889   (78577) от 26.02.2012
+
+Картинки - Винтажные рекламные плакаты Авто [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 490*500...700*900
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B73D0D6DA43A6698EE0CE10F0965E81BE48D9EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 457897   (78516) от 26.02.2012
+
+[Графика] Амазонки
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78516.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Графика] Амазонки
+Название: Амазонки
+Тип раздаваемого: Графика
+Разрешение файлов: 500*715...1920*1200
+Расширение (тип) файлов: JPG
+Количество: 263
+Скриншоты:Время раздачи: 24/7
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B435D9B2DE1EF869BD365D36DF696455884CA22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 457392   (78169) от 24.02.2012
+
+Обои - 65 Best Premium HD Wallpapers Pack (1920 X 1200) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник обоев различной тематики подойдут чтобы украсить Ваш рабочий стол.Формат: JPGРазрешение файлов: 1920x1200
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B79E6C6D292C9C26AED6FF060B82CC1A0344453
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 457389   (78157) от 24.02.2012
 
 Обои - 30 Storms HD Wallpapers Pack (1920 X 1200) [JPG]
@@ -6,7 +233,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78157.jpg" />
 </div>
 
 
@@ -32,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78014.jpg" />
 </div>
 
 
@@ -58,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77761.jpg" />
 </div>
 
 
@@ -84,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77743.jpg" />
 </div>
 
 
@@ -114,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77712.jpg" />
 </div>
 
 
@@ -144,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77693.jpg" />
 </div>
 
 
@@ -174,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76883.jpg" />
 </div>
 
 
@@ -200,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_73748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73748.jpg" />
 </div>
 
 
@@ -226,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66518.jpg" />
 </div>
 
 
@@ -252,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66363.jpg" />
 </div>
 
 
@@ -278,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66360.jpg" />
 </div>
 
 
@@ -304,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66261.jpg" />
 </div>
 
 
@@ -330,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66259.jpg" />
 </div>
 
 
@@ -356,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65786.jpg" />
 </div>
 
 
@@ -382,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65359.jpg" />
 </div>
 
 
@@ -408,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65240.jpg" />
 </div>
 
 
@@ -434,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65142.jpg" />
 </div>
 
 
@@ -460,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65132.jpg" />
 </div>
 
 
@@ -471,218 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0B98678A39593A17DBD6A15EB4D69C7AFE37B7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808085   (65056) от 22.07.2025
-
-Иконки - Envato - Cleaning and Housekeeping 3D Illustration - NB7MRJ8 [PNG]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поднимите на новый уровень свои проекты по дизайну мобильных приложений, UI/UX и веб-дизайну с помощью набора иконок Cleaning and Housekeeping 3D Illustration, добавив уникальный и привлекательный элемент в свои проекты.Формат: PNGРазрешение файлов: 3000x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FE9CA624CD37C5D950A59394C3C87B36DCC98A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809994   (64613) от 02.08.2025
-
-Промты - SevenUnited LLC - 434 Midjourney Prompts for Anime Characters - 7491655 [TXT, JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор из 434 настраиваемых промтов Midjourney с примерами изображений персонажей аниме.Формат: TXT, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97F69EF0D851C5FFD0D554B738952B169D1CA649
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 442497   (64491) от 27.01.2012
-
-Современная фотография - Audrey Hepburn [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64491.jpg" />
-</div>
-
-
-###  Подробнее
-
-314 фотографий британской актрисы и фотомодели - О́дри Хе́пбёрн (Одри Кэтлин Растон). Получила «Оскар» в 1954 году за лучшую женскую роль в фильме «Римские каникулы» (1953)Формат: JPGРазрешение файлов: 1024х1241 - 3000x3142
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6702C14EDDD29517475B122F86096C975EC0214D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705790   (63439) от 10.03.2024
-
-Иконки - Job and Recruitment 3D Icon Pack [PNG, BLEND, OBJ, FBX]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сделайте свои проекты интереснее с помощью 3D-иконок, вы можете легко использовать эти значки для Интернета, приложений, различных шаблонов дизайна и других проектов.Формат: PNG, BLEND, OBJ, FBXРазрешение файлов: 3000x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11C3BEAB18FDF67D106310126C55379435828332
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821308   (52303) от 01.10.2025
-
-Промты - SevenUnited LLC - 540 Midjourney Prompts & Images for Sands Of Time - 9502585 [TXT, JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор из 540 ИИ-промтов по теме «Пески времени». Каждая подсказка включает 4 примера изображений.Формат: TXT, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F1B4E6635FEA0CB8C910BF3F0DEC8003B8A9A34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821347   (52230) от 01.10.2025
-
-Обои - Jeeekaaa - Art Gallery TV 4K v2 [PNG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция картин в рамах для режима заставки телевизора.
-Количество: 20 шт.
-
-Создано Jeeekaaa® (свободно от авторских прав)Формат: PNGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3C0A61C5BBC73DE8C6E7EFD15053D304FD7F803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821439   (52075) от 02.10.2025
-
-Промты - SevenUnited LLC - 378 Midjourney Prompts for Creative Styles - 7233953 [TXT, JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет из 378 настраиваемых промтов Midjourney для креативных стилей. Каждая подсказка включает 4 примера изображений.Формат: TXT, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17F98F0146DFAEB2884C209A222742FE55D31CE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748456   (43830) от 12.09.2024
-
-Картинки - Любительские фотографии #5 [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любительские фотографии. Часть пятая.
-Первая часть: Картинки - Любительские фотографииФормат: JPGРазрешение файлов: 3936х2214 - 5712х3213
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7C31BCD856E20DBD636E5235028CC611D170EE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

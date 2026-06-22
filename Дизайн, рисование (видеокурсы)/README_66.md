@@ -6,7 +6,7 @@ Hudozhnik Online, Дарья Куцаева | Скетчинг цветными 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208050.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Enterclass, Анастасия Беседина | Акварельная фау�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208044.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Liveclasses, Алексей Шадрин | 12 неизвестных шедев�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207996.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Bazanova Art, Ольга Базанова | Роскошь лета. Пакет 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207974.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Marker School, Вера Шерстобитова | Основы маркерно
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207866.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Lectoroom, Елена Базанова | Безумное чаепитие с к
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207864.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Hudozhnik Online, Екатерина Бердюгина | Анатомия ко�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207666.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ pro.liga.ws, Штефан Ротарь | Autodesk Revit - Создание Ок�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207642.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ SmartUP, Кирилл Дёмин | 30 дней / идей для твоего п
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207637.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Udemy, JSFILMZ | Unreal Engine 5 Introduction to Lighting by JSFILMZ (2023) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207632.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ SmartUp, Кирилл Дёмин | Сочный дизайн - 2.0 (2023) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207630.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Udemy, Poly Bot | Unreal Engine 5.1: Advanced Landscape creation (2023) WEB-DL [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207622.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Enterclass, Татьяна Анисимова | Pro натюрморт (2023) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207601.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207589.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Udemy, Creativity Unleashed | Unreal Engine 5 Megacourse: Create Games in UE5 & 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207555.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Granich, Елизавета Черникова | Графические мета
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207523.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ MographPlus, Kamel Khezri | Advanced 3d motion graphics in Cinema 4d and Realflo
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207345.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Udemy, Arrimus 3D | Arrimus Ultimate 3D Modeling Course (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207323.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ CG Cookie, Jonathan Lampel | PRESS START: Your Simple First Blender Project (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207266.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207091.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207064.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Ground Control, Casey Faris | Pro Editing Workflow in DaVinci Resolve (2022) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206970.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206951.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Flipped Normals, Nexttut, Abraham Leal | Complete Guide to Marmoset Toolbag 4 (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206671.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Gumroad, Mohammad Fakhri | Texturing And Shading Realistic Skin In Maya Mari And
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206625.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Artstation, Florian Neumann |  Stylized Game Character (2022) PCRec [Tutorial] [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206543.jpg" />
 </div>
 
 

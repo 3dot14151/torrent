@@ -1,3 +1,107 @@
+###  Публикация: 1677521   (150152) от 18.11.2023
+
+art of rally (2020) [Ru/Multi] (1.5.0/dlc) Repack dixen18
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150152.jpg" />
+</div>
+
+
+###  Подробнее
+
+art of rally - раллийная игра от создателя игры Absolute Drift, завоевавшей любовь многих ценителей гонок. Вид сверху позволит полностью сфокусироваться на заездах благодаря хорошему обзору трассы без подсказок штурмана. Управление автомобилем было существенно доработано по сравнению с Absolute Drift и стало более предсказуемым и менее требовательным. Поведение автомобиля (   Читать дальше...   )Тип издания: RepackРазработчик: Funselektor Labs Inc.Жанр: Action, Racing, Simulation, SportsЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC50B704D47D1B2787618D189795CC00DC6C77E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271245   (149134) от 23.12.2018
+
+City Patrol: Police (2018) [Multi] (1.0) License CPY
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149134.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре City Patrol вам предстоит узнать, каково быть частью полицейского отряда. Сумеете ли вы выжать максимальную производительность из своих машин? Сможете ли вы предотвратить террористическую угрозу в своём городе?Тип издания: LicenseРазработчик: Caipirinha GamesЖанр: Racing, Simulator, 3DЯзык озвучки: Английский, НемецкийЯзык интерфейса: Английски, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3EA804512B053107620F7D12BA60BFDE6902BCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195323   (143169) от 28.12.2017
+
+Euro Truck Simulator 2 / С грузом по Европе 3 (2012) [Ru/Multi] (1.30.2.2s/dlc) Repack R.G. Revenants
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Euro Truck Simulator 2 дарит вам опыт управления самыми мощными машинами, когда-либо появлявшимися на шоссейных магистралях и автобанах Европы. Вы сможете пройти весь путь - от энтузиаста-дальнобойщика, до обладателя собственной транспортной империи. Настраивайте грузовики с нуля, максимально расширяйте свой автопарк, наймите водителей, купите гараж в каждом городе (   Читать дальше...   )Тип издания: RepackРазработчик: SCS SoftwareЖанр: Racing, Simulator, 3DЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57148B3799CC638D28572ECE3A1C5508794F7402
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435425   (143035) от 28.12.2020
+
+Inertial Drift (2020) [Ru/Multi] (1.0) License SKiDROW
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Забудьте всё, что вы знали о гонках! Inertial Drift — это аркадная гоночная игра, действие которой происходит в ретро-будущем в стиле девяностых. Уникальная модель управления и потрясающая механика гонок с парными стиками обязательно понравится всем игрокам. Inertial Drift выходит на новый уровень доступности и бросает вызов всему жанру аркадных гонок. Эта игра уникальна (   Читать дальше...   )Тип издания: LicenseРазработчик: Level 91 EntertainmentЖанр: Гонки, АркадаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:642F0DA19F4CCEB1A7281FF56C0E20101DDBDCD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347833   (142552) от 28.12.2019
 
 Monster Jam Steel Titans (2019) [Ru/Multi] (1.4.0/dlc) Repack Mr_Weegley
@@ -6,7 +110,7 @@ Monster Jam Steel Titans (2019) [Ru/Multi] (1.4.0/dlc) Repack Mr_Weegley
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142552.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Need for Speed: Undercover (2008) [Ru/Multi] (1.0.1.17) License PROPHET
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139666.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ DethKarz (1998) [En] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139261.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ City Car Driving (2016) [Ru/En] (1.5.9.1.27346) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138484.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Wreckfest (2018) [Ru/Multi] (20181221) Repack R.G. Механики
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138289.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ MotoGP 14 (2014) [Multi] (1.001/dlc) License PROPHET [Complete Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137630.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.33.2.12s/dlc) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137342.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ GRID 2 (2013) [Ru/En] (1.0.85.8679/dlc) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137182.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Antigraviator (2018) [Ru/Multi] (1.31) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137130.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ FlatOut 2 (2006) [Ru] (1.2) Repack Necros
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136819.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Pure Collector's Edition / Pure Коллекционное издание [Ru/En
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132952.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ FUEL [Ru/En] (L) 2009
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132906.jpg" />
 </div>
 
 
@@ -326,7 +430,7 @@ World Racing 2 (2022) [Multi] (1.5.3-20231108) License GOG [Champion Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131930.jpg" />
 </div>
 
 
@@ -352,7 +456,7 @@ art of rally (2020) [Ru/Multi] (1.5.0/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131711.jpg" />
 </div>
 
 
@@ -378,7 +482,7 @@ Trials Rising (2019) [Ru/Multi] (Build 10831717) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128562.jpg" />
 </div>
 
 
@@ -404,7 +508,7 @@ Need for Speed: Carbon (2006) [Ru/En] (1.4) Repack Decepticon [Collector's Editi
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128514.jpg" />
 </div>
 
 
@@ -430,7 +534,7 @@ Need for Speed: Most Wanted (2005) [Ru/Multi] (1.3) Repack Decepticon [Black Edi
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128507.jpg" />
 </div>
 
 
@@ -456,7 +560,7 @@ Need for Speed: Underground (2003) [Ru/En] (1.4.0) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128333.jpg" />
 </div>
 
 
@@ -482,7 +586,7 @@ TRAIL OUT (2022) [Ru/Multi] (2.9st/dlc) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128189.jpg" />
 </div>
 
 
@@ -508,7 +612,7 @@ Need for Speed: Most Wanted (2012) [Ru/En] (1.5.0.0/dlc) Repack Decepticon [Limi
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127921.jpg" />
 </div>
 
 
@@ -534,7 +638,7 @@ Need for Speed: Underground 2 (2004) [Ru/En] (1.2) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127750.jpg" />
 </div>
 
 
@@ -560,7 +664,7 @@ Need For Speed: Porsche Unleashed (2000) [Ru/En] (3.5) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127730.jpg" />
 </div>
 
 
@@ -571,110 +675,6 @@ Need for Speed: Porsche Unleashed – одна из лучших игр сери
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59033D3B40561934DA9D8FADDFE6D045AE9E0667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684840   (127537) от 17.12.2023
-
-Need for Speed: Hot Pursuit 2 (2002) [Ru/En] (2.42) Repack Decepticon
-
->>Win Старые Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что может утолить жажду скорости? Только очередная часть легендарных гонок. Более 20 роскошных автомобилей от ведущих мировых производителей. Два режима игры - чемпионат и уличные гонки с полицией - по 33 уровня в каждом. Доступна игра за полицию в качестве "копа", где вы можете вызывать подкрепление, вертолеты, сбрасывающие бомбы на злостных нарушителей, (   Читать дальше...   )Тип издания: RepackРазработчик: EA SeattleЖанр: Racing, SimulatorЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA222026170E98282C9D9517109FF0EC1CBE671E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684836   (127535) от 17.12.2023
-
-LEGO 2K Drive (2023) [Multi] (12823980/dlc) Repack dixen18
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127535.jpg" />
-</div>
-
-
-###  Подробнее
-
-LEGO 2K Drive предлагает получить уникальный опыт вождения в мире LEGO, позволяя геймерам гонять где угодно, с кем угодно и строить автомобили своей мечты. Однако на пути к победе не обойтись без препятствий, ведь множество эксцентричных соперников по гонкам с нетерпением ждут, чтобы бросить вызов игрокам в борьбе за желанный трофей Sky Trophy.Тип издания: RepackРазработчик: Visual Concepts EntertainmentЖанр: Racing, ArcadeЯзык озвучки: Английский, Испанский, Итальянский, Корейский и другиеЯзык субтитров: Английский, Испанский, Итальянский, Корейский и другиеЯзык интерфейса: Английский, Испанский, Итальянский, Корейский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFAC80DC91E2950458B4D679807CB5B195544D96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684848   (127527) от 17.12.2023
-
-Need for Speed: Undercover (2008) [Ru/Multi] (252136/dlc) Repack Decepticon [Collector's Edition]
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда в огромном мегаполисе орудует влиятельная криминальная группировка, привычные методы борьбы с преступностью не действуют. Рядовые полицейские, спецагенты и силы ФБР - никто не в силах встать на пути могущественных мафиози и подставить под удар свою семью и близких. Единственный способ собрать улики - заслать шпиона прямо в сердце банды. Это последний шанс, (   Читать дальше...   )Тип издания: RepackРазработчик: EA Black BoxЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF9C385AB2DC99D4401F63A680CD0F558E21A85F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685639   (127161) от 19.12.2023
-
-TRAIL OUT (2022) [Ru/Multi] (2.9st/dlc) Repack Other s
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в фестиваль взрывоопасных гонок ТРЕЙЛ АУТ! Вас ожидают безбашенные гонки в разных уголках планеты, ваша главная цель дожить до финиша и взять главный кубок фестиваля! Аварии машин, крики вылетающих водителей, хайп от фанатов и невиданное разрушение всей трассы - всё это ожидает вас здесь! А так же переживите историю гонщика Михалыча, простая история, (   Читать дальше...   )Тип издания: RepackРазработчик: GOOD BOYSЖанр: Racing, Simulator, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:544BD38F89808D9CC155F9805EE57784F8F18BF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

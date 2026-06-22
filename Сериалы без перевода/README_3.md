@@ -1,3 +1,56 @@
+###  Публикация: 530888   (621696) от 27.07.2013
+
+Предчувствие / Восприятие / Perception (2012) HDTVRip (Сезон 1,  серии 1-10 из 10) [EN]
+
+>>Зарубежные сериалы
+>>Сериалы без перевода
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_621696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доктор Дэниел Пирс — талантливый, но эксцентричный нейрофизиолог, которого пригласили в ФБР для оказания помощи в расследовании наиболее сложных дел. Доктор Пирс работает в тесном сотрудничестве с Кейт Моретти, бывшей студенткой, которая и завербовала его для работы с Бюро. Также в команде есть Макс Левиски — ассистент доктора Пирса и Натали Винсент — его лучший (   Читать дальше...   )Жанр: Триллер, Драма, ДетективРежиссер: Грег Биман, Кеннет Биллер, Крис МисианоАктеры: Эрик МакКормак, Рэйчел Ли Кук, Келли Роуэн, Эрджей Смит, Джонатан Скарф, Кристофер Чен, Лиза Бейнс, Джимми Беннетт, Бриджет Риган, ЛеВар БёртонПеревод: ОтсутствуетЯзык субтитров: Русские (НОТАБЕНОИД)Формат: MP4Продолжительность: 00:42:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910314   (621651) от 20.06.2015
+
+Скандал / Scandal (2015) WEB-DLRip [H.264/1080p-LQ] (сезон 4, серия 21 из 22) [EN / EN Sub]
+
+>>Зарубежные сериалы
+>>Сериалы без перевода
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия 21 - A Few Good Women
+Специалист по связям с общественностью Оливия Поуп, ранее работавшая на президента США, создает свое антикризисное агенство, цель которого — устранять проблемы высокопоставленных клиентов до того, как они станут всеобщим достоянием. Но если Вы посвящаете 24 часа в сутки решению проблем других людей, у Вас просто не будет времени, чтобы (   Читать дальше...   )Производство: СШАЖанр: триллер, драма, детективРежиссер: Том Верика, Оливер Бокельберг, Эллисон Лидди, Стив Робин, Жанно Шварц, Рэндолл Зиск, Марк Тинкер, Тони Голдуин, Пол МакКрейн, Стивен КреггАктеры: Керри Вашингтон, Дэрби Стэнчфилд, Кэти Лоус, Гильермо Диас, Джефф Перри, Джошуа Малина, Беллами Янг, Тони Голдуин, Коламбус Шорт и др.Перевод: отсутствуетЯзык субтитров: английскийПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20C2750E1AC4989DB24D9A21BDFE7C99CA71AC48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911768   (614017) от 24.06.2015
 
 Скандал / Scandal (2015) WEB-DLRip [H.264/1080p-LQ] (сезон 4, серия 22 из 22) [EN / EN Sub]
@@ -6,7 +59,7 @@
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614017.jpg" />
 </div>
 
 
@@ -35,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611470.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_610825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_610825.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608059.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_607327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_607327.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_605135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_605135.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_598785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_598785.jpg" />
 </div>
 
 
@@ -195,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589313.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574390.jpg" />
 </div>
 
 
@@ -250,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568496.jpg" />
 </div>
 
 
@@ -276,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551121.jpg" />
 </div>
 
 
@@ -302,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545514.jpg" />
 </div>
 
 
@@ -328,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545509.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545507.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545472.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545462.jpg" />
 </div>
 
 
@@ -432,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545461.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545411.jpg" />
 </div>
 
 
@@ -484,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545333.jpg" />
 </div>
 
 
@@ -510,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528777.jpg" />
 </div>
 
 
@@ -536,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528727.jpg" />
 </div>
 
 
@@ -562,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528720.jpg" />
 </div>
 
 
@@ -580,21 +633,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 369974   (524746) от 03.08.2011
+###  Публикация: 369222   (525662) от 01.08.2011
 
-Доктор Кто - Видео-дневники Дэвида Теннанта / Doctor Who David Tennant's Video Diaries (2005-2009) DVDRip (эпизоды 1-9 из 9) [EN / RU Sub]
+[EN] Неприкасаемые / The Untouchables (1993-1994) VHSRip [Seasone 2 Episode 6,7,8]
 
 >>Зарубежные сериалы
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525662.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На протяжении всех съемок в "Докторе Кто" Дэвид Теннант сам снимал видео-дневник, в котором рассказывал о собственных впечатлениях, беседовал с актерами и создателями сериала и раскрывал некоторые закулисные секреты.Производство: ВеликобританияРежиссер: Дэвид Теннант / David TennantПеревод: отсутствуетЯзык озвучки: английскийСубтитры: русскиеПродолжительность: все эпизоды ~05:00:00
+Первый сериал вышел на канале ABC в 1959-1963 годах и стал событием гораздо более значимым, чем римейк 1993 года, который мы и видим теперь на нашем телевидении. Тогда телефильм стал национальной сенсацией - достаточно хотя бы перечислить актеров, которые в разное время появлялись в сериале: Мартин Ландау, Питер Фальк, Гарри Дин Стентон и молодой Роберт Редфорд. (В "Неприкасаемых" 90-х из сравнительно известных людей засветился только лауреат "Оскара" Куба Гудинг-младший.) По странному стечению обстоятельств самые хорошие актеры приглашались в основном на роли гангстеров. Злодеи выглядели более привлекательными, чем герои, что вызвало некоторое недовольство у проправительственной общественности США. Однако больше всего возмущались представители итало-американской диаспоры - они официально выступили против того, что люди с итальянскими фамилиями в сериале сплошь негодяи. И, наконец, семья Аль Капоне подала в суд иск на миллион долларов - продюсер Деси Арназ обвинялся в том, что использовал образ (   Читать дальше...   )Жанр: Боевик, Детектив, КриминалРежиссер: Верн Джиллам, Стив Де Джарнатт, Чарльз Роберт КарнеАктеры: Том Амандес Джон Хеймс Ньютон Дэвид Джеймс Эллиотт Уильям Форсайт Пол Реджина Джон Рис-ДэвисПеревод: ОтсутствуетПродолжительность: 00:45:50 ,0:45:40 0:45:25
 
 ## Скачать торент
 ```bash
@@ -606,73 +659,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316655   (503896) от 28.07.2019
+###  Публикация: 369974   (524746) от 03.08.2011
 
-Пацаны / The Boys (2019) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) [EN / RU, EN Sub]
-
->>Зарубежные сериалы
->>Сериалы без перевода
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие сериала разворачивается в мире, где существуют супергерои. Именно они являются настоящими звездами. Их все знают и обожают. Но за идеальным фасадом скрывается гораздо более мрачный мир наркотиков и секса, а большинство героев — в жизни не самые приятные люди. Для контроля за супергероями ЦРУ создает специальный отряд, неофициально известный как «Пацаны», (   Читать дальше...   )Производство: США / Amazon Studios, Original Film, Sony Pictures TelevisionЖанр: фантастика, боевик, комедия, криминалРежиссер: Филип Сгриккиа, Дэниэл Эттиэс, Дженнифер ФангАктеры: Карл Урбан, Чейс Кроуфорд, Доминик МакЭллигот, Нэйтан Митчелл, Эрин Мориарти, Джек Куэйд, Элизабет Шу, Энтони Старр, Джесси Ашер, Лас АлонсоПеревод: ОтсутствуетЯзык озвучки: английскийСубтитры: русские, английские, арабские, китайские, датские, немецкие, испанские, финские, французские, хинди, индонезийские, итальянские, корейские, норвежские, голландские, польские, португальские, шведские, тамильские, телугу, турецкиеПродолжительность: 8 х ~ 01:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF4FD498B2776F2E8D1961B1336210ABCD538BE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567002   (478418) от 31.07.2022
-
-Дне8ники / Di4ri (2022) WEB-DL [H.264/720p] (сезон 1, серии 1-15 из 15)
+Доктор Кто - Видео-дневники Дэвида Теннанта / Doctor Who David Tennant's Video Diaries (2005-2009) DVDRip (эпизоды 1-9 из 9) [EN / RU Sub]
 
 >>Зарубежные сериалы
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524746.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Первые увлечения, первые поцелуи, веселье с друзьями — и вражда с соперниками. В коридорах средней школы Галилео Галилея каждый день полон сюрпризов!Производство: ИталияЖанр: комедия, семейныйРежиссер: Алессандро ЧеллиАктеры: Андреа Арру и др.Перевод: ОтсутствуетЯзык озвучки: Итальянский, английскийСубтитры: Русские, итальянские, английские и др.Продолжительность: ~00:52:00 серия 1, 2-15 серии ~00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87915F13CFEB8D9AD5569ECF360824D4AED3A153
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 672753   (475964) от 18.09.2013
-
-Под куполом / Under the Dome (Сезон 1, серии 01-13 из 13) (2013) HDTV [720p] [EN / EN, RU Sub]
-
->>Зарубежные сериалы
->>Сериалы без перевода
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ФантастикаРежиссер: Джек БендерАктеры: Майк Фогель, Колин Форд, Аиша Хиндс, Александр Кох, Рашель Лефевр, Натали Мартинез, Дин Норрис, Джолин Парди, Бриттани Робертсон, Николас СтронгПеревод: СубтитрыЯзык субтитров: Русские (Notabenoid с доп.обработкой)+Оригинальные английские (начиная с 04 серии)Формат: MKVПродолжительность: серия ~ 00:43:00
+На протяжении всех съемок в "Докторе Кто" Дэвид Теннант сам снимал видео-дневник, в котором рассказывал о собственных впечатлениях, беседовал с актерами и создателями сериала и раскрывал некоторые закулисные секреты.Производство: ВеликобританияРежиссер: Дэвид Теннант / David TennantПеревод: отсутствуетЯзык озвучки: английскийСубтитры: русскиеПродолжительность: все эпизоды ~05:00:00
 
 ## Скачать торент
 ```bash

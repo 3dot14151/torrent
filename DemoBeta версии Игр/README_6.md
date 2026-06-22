@@ -6,7 +6,7 @@ Mashinky (2017) [Ru/Multi] (05102017) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391645.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ EBOLA 3 (2022) [Ru/Multi] (1.0.0) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387041.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_377555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_377555.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Wild Eight (2017) [Ru/Multi] (0.7.28) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375719.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Stranded Deep (2015) [Ru/Multi] (0.74.00) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373517.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ hack_me (2016) [Ru/En] (0.1/Early Access) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368120.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Spacebase DF-9 (2013) [En] (early access alpha 2 taste oddity) Repack Elektra
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352272.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Vagante (2014) [En] (Alpha 28b) Unofficial CheatBraker
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348426.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Killsquad (2019) [Ru/En] (0.7.3) Repack Mizantrop1337 [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347290.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ REVERSE SIDE / ОБРАТНАЯ СТОРОНА (2015) [Ru/En] (1.0.2.6.F) SteamR
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336557.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Salt (2015) [En] (1.6) Repack Hazestalker [Early Acsess]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336548.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ In Silence (2020) [Ru/Multi] (0.43) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332196.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Bus World (2022) [Ru/Multi] (Build 9649353) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326967.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Stranded Deep (2015) [En] (0.50.01) SteamRip R.G. Игроманы
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313620.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ The Other 99 (2016) [En] (Build 8228) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_297412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_297412.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Agony (2017) [Multi] (Demo) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291207.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Thick Air (2016) [Ru/En] (0.1/Early Access) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281976.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Visage (2018) [Ru/Multi] (2.2) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278333.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Off-Road Paradise: Trial 4x4 (2016) [En/Es] (0.1/Early Access) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276742.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ The Coma 2: Vicious Sisters (2019) [Ru/Multi] (0.2.2) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274326.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ BIOS (2016) [Ru/Multi] (0.32) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273117.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Tiny Bunny / Зайчик (2021) [Ru/Multi] (19835777) Repack Necros [Early Acce
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261692.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Kingdoms Reborn (2020) [Ru/Multi] (0.250) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260826.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Critter Cove (2024) [Ru/Multi] (0.6 build 269) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260757.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Fatal Claw (2025) [Ru/Multi] (0.9.81) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257799.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ The Last Starship (2023) [Ru/Multi] (18a) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256789.jpg" />
 </div>
 
 

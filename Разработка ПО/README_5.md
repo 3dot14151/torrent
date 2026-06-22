@@ -1,3 +1,108 @@
+###  Публикация: 933541   (504076) от 03.09.2015
+
+SoMachine 4.1 SP1.2 [Multi]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение Schneider Electric SoMachine для программирования промышленных ПЛК.Язык интерфейса: Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:694E909136B4410A14E1D1E795BBF8128EF0CE65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546325   (475556) от 14.09.2012
+
+Turbo Pascal for Windows 1.5 [Английский]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Turbo Pascal for Windows представляет собой программное приложение, позволяющая создавать программные продукты с помощью языка высокого уровня Pascal. Представляющаяся незнакомой для большинства пользователей версия Turbo Pascal for Windows заслуживает особого внимания и уважения со стороны любителей экзотики и школьников решивших окунуться в атмосферу 80-90 годов. Версия 1.5  адаптирована под работу с операционной симтемой Windows с использованием оконного режима, что обеспечит наибольшую эффективность работы приложения разработки и устранит некоторые проблемы работы в среде Dos.
+Интерфейс программы выполнен в стиле оконного приложения со всеми известными функциями, использовавшимися Turbo Pascal предыдущих версий. Несмотря на тот факт, что программе уже 20 лет, до сих пор она пользуется популярностью среди программистов и разработчиков. Программы, прошедшие компиляцию, также представлены в оконном режиме.Название программы: Turbo Pascal for WindowsЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944494   (439553) от 07.10.2015
+
+EMCO MSI Package Builder Enterprise 5.2.9.3741 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инструмент для автоматической генерации пакетов Windows Installer. EMCO MSI Package Builder предназначен для создания файлов формата MSI, готовых для «тихой» установки. Приложение позволяет видеть в реальном времени все изменения, произведенные процессом установки конкретного приложения, и использовать полученные результаты для создания инсталляционных пакетов. Процесс (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0688A51191889B8391AEC1D2661E70390F17CFC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945015   (437294) от 08.10.2015
+
+Sybase PowerDesigner 16.5.0.3982 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437294.jpg" />
+</div>
+
+
+###  Подробнее
+
+PowerDesigner дает возможность управления изменениями на этапе проектирования, предлагает технику управления метаданными и содержит уникальную технологию анализа взаимосвязей моделей. Одновременно с поддержкой ведущих техник моделирования и управления метаданными, PowerDesigner также позволяет работать с моделями любых типов в единой интегрированной среде, а репозиторий (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:759AEBDF7A528EF3003349533D0CB51AC3657E8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 558425   (410951) от 11.10.2012
 
 Pascal ABC.NET 1.8 build 496 [Ru]
@@ -6,7 +111,7 @@ Pascal ABC.NET 1.8 build 496 [Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_410951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_410951.jpg" />
 </div>
 
 
@@ -38,7 +143,7 @@ NVIDIA Nsight Visual Studio Edition 2.2.0.12255 [English]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_396696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_396696.jpg" />
 </div>
 
 
@@ -66,7 +171,7 @@ IDA Pro 7.0 2017 Incl. Hex-Rays Decompilers [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371225.jpg" />
 </div>
 
 
@@ -93,7 +198,7 @@ DevelNext 16.7.0 [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313789.jpg" />
 </div>
 
 
@@ -120,7 +225,7 @@ Microsoft Visual C++ 2015 Redistributable Package 14.0.23506 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294287.jpg" />
 </div>
 
 
@@ -146,7 +251,7 @@ JetBrains GoLand 2019.2.5 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267884.jpg" />
 </div>
 
 
@@ -172,7 +277,7 @@ Intel Parallel Studio XE Cluster Edition 2019 Update 1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265571.jpg" />
 </div>
 
 
@@ -198,7 +303,7 @@ SQL Dynamite 2.5.3.0 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261659.jpg" />
 </div>
 
 
@@ -216,32 +321,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838806   (261546) от 24.11.2025
-
-Microsoft  Visual C++ Runtimes AIO v0.103.0 x86-x64 Repack by abbodi1406 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Visual C++ Redistributable Package – это распространяемые пакеты, которые устанавливают компоненты среды выполнения библиотек Visual C++. Данные компоненты необходимы для выполнения приложений, разработанных с помощью среды программирования Visual Studio. В состав этих компонентов входят: среда выполнения C (CRT), стандартный C++, MFC, C++ AMP и OpenMP. (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A15BBEDF612CAC8B9BE562302080BB7EEC30530
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838709   (261331) от 24.11.2025
 
 JetBrains dotUltimate 2025.2.3 [En]
@@ -250,7 +329,7 @@ JetBrains dotUltimate 2025.2.3 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_261331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261331.jpg" />
 </div>
 
 
@@ -279,7 +358,7 @@ Microsoft Visual Studio 2026 Enterprise 18.0.1 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259851.jpg" />
 </div>
 
 
@@ -305,7 +384,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.21 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259840.jpg" />
 </div>
 
 
@@ -331,7 +410,7 @@ Microsoft Visual Studio 2026 Professional 18.0.0 [11205.157] (Offline Cache) [Ru
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256804.jpg" />
 </div>
 
 
@@ -357,7 +436,7 @@ Microsoft Visual Studio 2026 Enterprise 18.0.0 [11205.157] (Offline Cache) [Ru/E
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256803.jpg" />
 </div>
 
 
@@ -383,7 +462,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.20 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255903.jpg" />
 </div>
 
 
@@ -409,7 +488,7 @@ Microsoft Visual Studio 2022 Professional 17.14.20 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255902.jpg" />
 </div>
 
 
@@ -435,7 +514,7 @@ JetBrains Rider 2023.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255363.jpg" />
 </div>
 
 
@@ -463,7 +542,7 @@ JetBrains WebStorm 2023.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255362.jpg" />
 </div>
 
 
@@ -489,7 +568,7 @@ JetBrains PhpStorm 2023.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255358.jpg" />
 </div>
 
 
@@ -517,7 +596,7 @@ Jetbrains IntelliJ IDEA Ultimate 2023.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255355.jpg" />
 </div>
 
 
@@ -543,7 +622,7 @@ JetBrains PyCharm Professional 2023.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255353.jpg" />
 </div>
 
 
@@ -561,33 +640,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564963   (249585) от 21.07.2022
-
-Java SE Development Kit 8.0.341 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Java SE Development Kit - программное обеспечение необходимое для запуска веб-сайтов и приложений, созданных с помощью языка программирования Java, на котором написано множество программ и игр, особенно тех, для которых важна мобильность. Состоит из виртуальной машины и библиотеки Java-классов.
-Позволяет играть в сетевые игры, общаться с людьми по всему миру, подсчитывать (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB1349C16A905256F613015B6D45F8324A0E74AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540516   (245271) от 30.03.2022
 
 PowerShell Studio 2022 v5.8.202 [En]
@@ -596,7 +648,7 @@ PowerShell Studio 2022 v5.8.202 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245271.jpg" />
 </div>
 
 
@@ -622,7 +674,7 @@ Lahey/Fujitsu Fortran 7.9 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243389.jpg" />
 </div>
 
 
@@ -633,60 +685,6 @@ Lahey/Fujitsu Fortran 7.9 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62B3581687212DFF767242FB9512BB532ECC4302
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625099   (241408) от 09.04.2023
-
-Code Composer Studio 12.2.0.00009 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Среда разработки для Texas Instruments.
-Одно из известных устройств Launchpad - отладочная плата для семейства микроконтроллеров MSP430 от 8 до 16-битных. Плюс этой отладочной платы в её низкой цене и бесплатной доставки службой FedEx, лёгкий старт, работать с ней даже проще, чем с известным Arduino. В комплекте сразу получаете 2 МК, с тестовой программой. Программировние (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19D27C9E2455EBFEF0AD92CE392FB9B4737F9A74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634155   (233584) от 19.05.2023
-
-Resource Tuner Business 2.23.0.0 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Resource Tuner - это программа для просмотра, редактирования, замены и извлечения ресурсов исполняемых файлов, т.е. всех тех элементов, которые образуют визуальный графический интерфейс приложений, работающих под Windows: иконки, строчки, изображения, звуки, диалоги, меню и многое другое.
-Программа позволяет вносить изменения во внешний вид приложений, не вмешиваясь (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5615C6425433DBD3B2694E6E762C9A958045A636
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 917411   (589504) от 11.07.2015
+
+Виктория Рошаль (сост.) | Энциклопедия символов (2005) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Символический язык - язык универсальный. Мы встречаем символы выбитыми на камнях древних храмов, в ритуалах Посвящений, во всех Священных Писаниях, запечатленными в таинственных формах сфинксов Ассирии и Египта, скрытыми в ошеломляющих пропорциях пирамид, в загадочных эмблемах старинных алхимических книг, встречаем в изобразительном искусстве и художественной литературе. (   Читать дальше...   )Жанр: История. Археология. ЭтнографияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3D4065491A7314895639907F3D67559D0EBFC09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917971   (588683) от 13.07.2015
+
+К. Кувшинов (ред.) | Москва. Годы обновления и реконструкции (1977) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588683.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге показана деятельность Московской городской партийной  организации по осуществлению планов реконструкции и развития  столицы, грандиозные перемены, которые произошли в облике города, в жизни трудящихся Москвы за 60 лет Советской власти.Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD7BB26B5805A3FFF4CC5900644FEDBDA8AF99F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300792   (588112) от 08.05.2019
+
+Rocky Wood, Lisa Morton | Witch Hunts: A Graphic History of the Burning Times (2012) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588112.jpg" />
+</div>
+
+
+###  Подробнее
+
+В течение трех столетий, когда Черная смерть свирепствовала в Европе, а Реформация разорвала Церковь, десятки тысяч были арестованы как ведьмы и подвергались пыткам и казням, в том числе сжигались заживо. Этот графический роман исследует исторические предпосылки и методы охотников на ведьм, рассказывает о том, кто получил с этого выгоду и как Просвещение постепенно (   Читать дальше...   )Жанр: История, Историография, Графический романФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A70D30F048FB335EAC7BFC264A4A87FFA7C66A0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917988   (588066) от 14.07.2015
+
+Г. А. Арбатов | Свидетельство современника (1991) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор делится с читателями воспоминаниями и мыслями о  сложном и ответственном периоде истории нашей страны между  смертью Сталина и началом перестройки. Периоде, в течение которого он «вблизи» наблюдал, а подчас и участвовал в важных политических событиях, непосредственно работал со многими политическими лидерами.Жанр: История, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2308814536D6B187B327B4A8F0A1E3067523B94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 917979   (587998) от 14.07.2015
 
 Б. Г. Кузнецов | Коммунизм и техника будущего (1940) [DJVU]
@@ -6,7 +110,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587998.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587997.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587521.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587427.jpg" />
 </div>
 
 
@@ -115,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586639.jpg" />
 </div>
 
 
@@ -144,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585869.jpg" />
 </div>
 
 
@@ -170,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585718.jpg" />
 </div>
 
 
@@ -196,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585211.jpg" />
 </div>
 
 
@@ -222,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584523.jpg" />
 </div>
 
 
@@ -250,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583018.jpg" />
 </div>
 
 
@@ -278,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582695.jpg" />
 </div>
 
 
@@ -304,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582449.jpg" />
 </div>
 
 
@@ -330,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581142.jpg" />
 </div>
 
 
@@ -356,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580460.jpg" />
 </div>
 
 
@@ -382,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580044.jpg" />
 </div>
 
 
@@ -408,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577605.jpg" />
 </div>
 
 
@@ -434,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577459.jpg" />
 </div>
 
 
@@ -461,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576339.jpg" />
 </div>
 
 
@@ -489,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576301.jpg" />
 </div>
 
 
@@ -515,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576191.jpg" />
 </div>
 
 
@@ -541,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574797.jpg" />
 </div>
 
 
@@ -567,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573750.jpg" />
 </div>
 
 
@@ -579,112 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53C25B0F2ECC3037EDFC4E358DF62AADE1B05FD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303186   (572781) от 21.05.2019
-
-М. Берд | Парфенон [Биографии чудес света] (2007) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Силуэт этого храма над Афинами - мгновенно узнаваемый образ. Оскар Уайльд сравнивал этот храм с белокожей богиней, а Ивлин Во - со стилтонским сыром. Вот уже две с половиной тысячи лет Парфенон вызывает восхищение, вдохновляет, бередит души; от его красоты захватывает дух, а на глаза наворачиваются слезы. Этот храм сжигали, бомбили, грабили - но и по сей день он (   Читать дальше...   )Жанр: Историческая литература, АрхитектураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F1D545DC358AE268CAF417DE3FACBCB8927B392
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303183   (572496) от 21.05.2019
-
-М. Берд, К. Хопкинс | Колизей [Биографии чудес света] (2007) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это грандиозное сооружение олицетворяет собой имперское величие и могущество Древнего Рима. Его мгновенно узнаваемый силуэт с течением времени стал эмблемой Вечного города, подобно Эйфелевой башне для Парижа или Кремлю для Москвы. Колизей был свидетелем множества знаменательных событий, на его арене происходили блестящие представления и разворачивались кровопролитные (   Читать дальше...   )Жанр: Историческая литература, АрхитектураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE8A7F4AB9FD5F58114175B5926CFCA6E16AE732
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303516   (572434) от 21.05.2019
-
-Альберто Анджела | Империя. Путешествие по Римской империи вслед за монетой (2018) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Место действия книги знаменитого итальянского палеонтолога, тележурналиста и писателя Альберто Анджелы — вся Римская империя эпохи Траяна.
-Как жили в то время? Каких людей мы встретили бы в ее городах? Как удалось римлянам создать столь грандиозное государство, объединив столь различные народы?
-Путешествуя по бескрайним просторам великой Римской империи вслед за (   Читать дальше...   )Жанр: История Древнего мираФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AECA88529AF17384ADE79A83DCA61733D1A77DC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554847   (572098) от 02.06.2022
-
-Александр Вдовин | История СССР от Ленина до Горбачева (2014) [PDF, DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572098.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге, представляющей собой фундаментальное историческое исследование, прослежены основные события политической и социально-экономической истории СССР с 1921 по 1991 г., выявлены идеологические основания внутренней и внешней политики страны, факторы и причины развития, завершившиеся перестройкой и распадом великого государства. В книгу включены темы, которые ранее (   Читать дальше...   )Жанр: монографияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2FFDDC0EAA55C393BAC57F156B8EB7BDC9B67F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

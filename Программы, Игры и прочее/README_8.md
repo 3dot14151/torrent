@@ -1,3 +1,29 @@
+###  Публикация: 1851393   (1054937) от 01.02.2026
+
+Сканворды на русском v1.4.8 Mod от Alex.Strannik [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великолепный сборник разнообразных сканвордов. Более тысячи хороших сканвордов. Возможность использования подсказок. Ведение статистики разгаданных головоломок. Удобный и простой интерфейс. Поддерживается, работает без интернет.Тип издания: ModРелиз состоялся: 31.01.2026Разработчик: FgCos GamesПоддерживаемая ОС: Android 5.0+Жанр: Словесные игрыЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D435A8263A8300F510A3BE594E3CD83A86FA78A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851416   (1054936) от 01.02.2026
 
 Frameo+: Share to photo frames v1.37.17 Mod by @tomic [Ru/Multi]
@@ -6,7 +32,7 @@ Frameo+: Share to photo frames v1.37.17 Mod by @tomic [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054936.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ NewPipe x SponsorBlock x Return YouTube Dislike v0.28.2 Mod by baalajimaestro  [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054730.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ NewPipe v0.28.2 Free + Mod by Alex.Strannik  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054729.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ PORTAL-WG 1.3.6 Mod by STR_BYPASS [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054214.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ AirBrush: ИИ Фоторедактор v8.0.1 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054107.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Magic Eraser / Магический ластик v2.25.13 Mod by Maximoff⁠ [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054040.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ MIUI Hidden Settings Activity v1.6.14 Mod by TryRoom [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054039.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Win 11 Launcher Pro v4.9 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054038.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ BlockSudoku / Кудоку-Вуди Блок v2.6.6 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054037.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Solid Explorer File Manager v3.2.16 + Plugins Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054025.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Remini / Улучшение Фото v3.7.1260.202518969 Mod by Mixroot [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054024.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054023.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054022.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ Win 11 Launcher v9.38 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053926.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ EOBD Facile: OBD 2 авто сканер v3.82.1145 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053877.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ Auto Reply: автоответчик v6.5 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053876.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Taskito v1.1.8 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053869.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ Grok - ИИ ассистент v1.1.10-release.00 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053860.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ Ventusky: Прогноз погоды v50.3 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053859.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053858.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053712.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ MiX Camera 9.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053682.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ Happy Color® – игра раскраска v2.21.6 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053681.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053665.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ Jigsawscapes® - Пазлы v5.0.2 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053664.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ Jigsawscapes® - Пазлы v5.0.2 Mod by vadj [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FDA1FEA2F4DA7FDB3E586C8829F38CE55BE62EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849663   (1053641) от 24.01.2026
-
-Акции всех магазинов России v169.6.1 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнавайте об акциях и скидках в Магните, Пятерочке, Перекрестке, Ленте и других магазинах рядом с вами.Тип издания: ModРелиз состоялся: 21.01.2026Разработчик: ПтичкаПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EAC6078051FFA9D97F0780B82379854DE931A7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1193432   (262141) от 21.12.2017
+
+VA - Christmas Trance 2018 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Numark - Story of A Little Elf (Original Mix)
+02. CJ Stereogun - Margarita's Heart (Original Mix)
+03. Dreaman - Justice (Original Mix)
+04. Emotion Love - Secrets of Life (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6962085561412A43B360AD64B89966EC5CA9CBD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193543   (262102) от 21.12.2017
+
+VA - Vocal Trance 2018 (2017) [MP3|320 Kbps] <Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Susana & Neev Kennedy  -  The Promise (Original Mix)  3:45
+02.  Katty Heath  -  Rise (Original Mix)  3:53
+03.  Nitrous Oxide feat. Jess Morgan  -  Golden Horizon (Original Mix)  3:24
+04.  Maria Nayler & Jericho Frequency  -  More Than A Photograph (F.G. Noise Remix)  4:10(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 01:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B478F6DD2A983CE5EA1460764725C6BCD9EE5B7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193675   (261996) от 22.12.2017
+
+VA - Best Of Vandit (Mixed by Jardin) (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Richard Lowe  -  Levitate (Original Mix)  3:53
+02.  Emanuele Braveri  -  Destination Summer (Original Mix)  3:13
+03.  Chris Bekker  -  Episodes (Original Mix)  3:09
+04.  Alex M.O.R.P.H.  -  It Is Full Of Stars (Original Mix)  3:25(   Читать дальше...   )Жанр: TranceПродолжительность: 02:09:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A56F98F32F81F107D734EC1FAB63A38595DB3B65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193797   (261989) от 22.12.2017
+
+VA - Ferry Corsten Presents Corsten's Countdown December (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ferry Corsten  -  Wherever You Are (feat. HALIENE) (Solis & Sean Truby Extended Remix)  6:49
+02.  Cosmic Gate & Sarah Lynn  -  Folded Wings (Extended Mix)  6:43
+03.  Markus Schulz presents Dakota  -  The Spirit Of The Warrior (Transmission 2017 Theme) (Extended Mix)  6:23
+04.  DIM3NSION & Zaa  -  Cielo (Extended Mix)  6:02(   Читать дальше...   )Жанр: TranceПродолжительность: 01:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72C5661C8EAE4EA807AC0DDDF8B4DD1D2C0092D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193694   (261985) от 22.12.2017
+
+VA - Entrancing Music Top 20 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kate Miles, DJ T.H. & Floe – Like A Miracle (Denis Kenzo Remix)
+02. Denis Sender, DJ T.H. & Cari – I Found You (Maywave Remix)
+03. Floe, Aly Frank & J.Puchler – Home (LTN Remix)
+04. Kiran M Sajeev – Bharat Mata (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F53BCCE4C4037873430C391F1211F1E993C9F5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193790   (261979) от 22.12.2017
+
+VA - Black Hole Trance Music 12-17 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cosmic Gate & Sarah Lynn  -  Folded Wings (Rafael Frost Extended Remix)  6:45
+02.  Clarks  -  Sanya (Original Mix)  5:34
+03.  Somna & Melissa Loretta  -  Brave (Attila Syah Remix)  6:17
+04.  Pete Severano & Steve Brian  -  Merle (Extended Mix)  8:23(   Читать дальше...   )Жанр: TranceПродолжительность: 02:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6E9665BC800E348BF29325A5B90997B3C55443B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194036   (261828) от 23.12.2017
 
 VA - Best of Lifted (Mixed bi Azima) (2017) [MP3|320 Kbps] <Trance>
@@ -6,7 +180,7 @@ VA - Best of Lifted (Mixed bi Azima) (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261828.jpg" />
 </div>
 
 
@@ -35,7 +209,7 @@ VA - Extrema Global Music - Best Of 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261593.jpg" />
 </div>
 
 
@@ -64,7 +238,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 15 (2025) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261539.jpg" />
 </div>
 
 
@@ -93,7 +267,7 @@ VA - Uplifting Only Top 15: November 2025 (Extended Mixes) (2025) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261501.jpg" />
 </div>
 
 
@@ -122,7 +296,7 @@ VA - Uplifting Only Top 15: October 2025 (Extended Mixes) (2025) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261500.jpg" />
 </div>
 
 
@@ -151,7 +325,7 @@ VA - Trancendence, Vol. 06 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260996.jpg" />
 </div>
 
 
@@ -180,7 +354,7 @@ VA - The Best Of Suanda Dance 2025 (2025) [MP3|320 Kbps] <Dance, Club, Trance, E
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257986.jpg" />
 </div>
 
 
@@ -209,7 +383,7 @@ VA - New Year Trance Rave 2026 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257744.jpg" />
 </div>
 
 
@@ -238,7 +412,7 @@ VA - The Best Of Suanda Progressive 2025 (2025) [MP3|320 Kbps] <Trance, Progress
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257740.jpg" />
 </div>
 
 
@@ -267,7 +441,7 @@ VA - Autumn Trance 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257737.jpg" />
 </div>
 
 
@@ -296,7 +470,7 @@ VA - Progressive Trance Awakening, Vol. 09 (2025) [MP3|320 Kbps] <Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256853.jpg" />
 </div>
 
 
@@ -325,7 +499,7 @@ VA - 10 Years of Dreamstate (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256852.jpg" />
 </div>
 
 
@@ -354,7 +528,7 @@ VA - The Best Trance Tunes Of 2025 Vol. 2 - Mixed by Roan Gosling (2025) [MP3|32
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256849.jpg" />
 </div>
 
 
@@ -383,7 +557,7 @@ VA - D.Trance 112 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256666.jpg" />
 </div>
 
 
@@ -412,7 +586,7 @@ VA - Black Hole Trance Music 11-25 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255882.jpg" />
 </div>
 
 
@@ -441,7 +615,7 @@ VA - A State of Trance: Future Favorite - 2025 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255657.jpg" />
 </div>
 
 
@@ -470,7 +644,7 @@ VA - Female Vocal Trance Legends - Best Of The Best (2023) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254944.jpg" />
 </div>
 
 
@@ -499,7 +673,7 @@ VA - Nothing But... Trancetopia, Vol. 02 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254813.jpg" />
 </div>
 
 
@@ -528,7 +702,7 @@ VA - Top 11 August 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253099.jpg" />
 </div>
 
 
@@ -557,7 +731,7 @@ VA - Top 10 July 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253098.jpg" />
 </div>
 
 
@@ -571,180 +745,6 @@ VA - Top 10 July 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37594C19ABEB9AAB8CB73737E3DDABCDA4B5B38E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836469   (253097) от 11.11.2025
-
-VA - Top 10 June 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Grom - Calisto (Intro Mix) [06:15]
-02. SounEmot - Quizás El Amor (Emotional Mix) [10:09]
-03. Jef Karlen - Eclipse [06:43]
-04. Ocoro - Hayan Sonamu [07:42](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A67D11ADBFF181E739555C7C389533270D13A7E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836302   (252413) от 09.11.2025
-
-VA - Suanda Music 500 (The Official Album) (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer & Main Engine - New Reality (Suanda 500 Anthem) (Extended Mix) [6:42]
-02. ThoBa & Kate Miles - Your Love (Alex M.O.R.P.H. Extended Remix) [6:37]
-03. Roman Messer & Philippe El Sisi - C'est La Vie (Extended Mix) [6:09]
-04. Michael Milov & H4lo - Now Or Never Again (Extended Mix) [4:28](   Читать дальше...   )Жанр: TranceПродолжительность: 01:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C73BCD349F7EAF0A807BC29940DE2CCCAA28DD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836104   (252295) от 08.11.2025
-
-VA - Redux Selection, Vol. 11 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rob Binner - Turning Point (Extended Mix) [6:42]
-02. Kymol - Empty Space (Extended Mix) [6:01]
-03. Guy Alexander & Shadow Theory - Search And Destroy (Extended Mix) [6:30]
-04. Soaring Star - Ascension (Soaring Star's Hypertech Extended Rework) [6:11](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:18:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E80DDAD5040FC77570518B9EB25A7B420D73528D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835482   (250722) от 06.11.2025
-
-VA - Anjuna25 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anjunabeats - Volume One [07:22]
-02. Parker & Hanson - Gravity (Edit) [04:37]
-03. Smith & Pledger - Northern Lights [07:39]
-04. P.O.S - Gravity (Edit) [04:01](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 13:17:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21B4E1A4C349B2F3B799E65D4715E917E5B15238
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617539   (250303) от 07.03.2023
-
-Cosmic Gate - MOSAIIK Chapter One (2021) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Gate with Diana Miro - Blame (03:40)
-02. Cosmic Gate - Feel It (03:28)
-03. Cosmic Gate with Diana Miro - Nothing To Hide (03:36)
-04. Cosmic Gate - Your Mind (03:49)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:272294E7E63244A510D47AA6EF0C39DABF3D96F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617540   (250279) от 07.03.2023
-
-Cosmic Gate - MOSAIIK Chapter Two (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Gate with Diana Miro - Hear Me Out (04:42)
-02. Cosmic Gate with Nathan Nicholson - Follow You Anywhere (04:06)
-03. Cosmic Gate with Gid Sedgwick - Emotions Of Colour (04:28)
-04. Cosmic Gate with Nathan Nicholson - Just The Beginning (04:02)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A28FF85108793F532748196A5683D9636A7E40C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

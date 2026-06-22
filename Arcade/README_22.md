@@ -1,3 +1,55 @@
+###  Публикация: 1303524   (572181) от 21.05.2019
+
+Risky Wings (2018) [Ru/Multi] (502) Repack Other s
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Risky Wings — это интенсивная летающая игра, в которой вы зарабатываете очки, летая рискованно между различных препятствий. Чем ближе (и дольше) вы летите к препятствиям, тем больше очков получаете. Уровни игры генерируются процедурно, поэтому они никогда не будут одинаковыми. Запоминание не поможет (сильно), вам нужно научиться реагировать на сложившуюся ситуацию (   Читать дальше...   )Тип издания: RepackРазработчик: FireVectorЖанр: Action, Racing, Arcade, 3DЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C23C43951F1FD88324C5555FD67E8546F59DCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303518   (572159) от 21.05.2019
+
+Risky Wings (2018) [Ru/Multi] (502/dlc) License PLAZA
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Risky Wings — это интенсивная летающая игра, в которой вы зарабатываете очки, летая рискованно между различных препятствий. Чем ближе (и дольше) вы летите к препятствиям, тем больше очков получаете. Уровни игры генерируются процедурно, поэтому они никогда не будут одинаковыми. Запоминание не поможет (сильно), вам нужно научиться реагировать на сложившуюся ситуацию (   Читать дальше...   )Тип издания: LicenseРазработчик: FireVectorЖанр: Action, Racing, Arcade, 3DЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09D227ABF318A698A245F90B62C86BA5F424D76F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228632   (572140) от 04.07.2018
 
 Milanoir (2018) [Ru/Multi] (1.1.0.213) License GOG
@@ -6,7 +58,7 @@ Milanoir (2018) [Ru/Multi] (1.1.0.213) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572140.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Ice Age 4: Continental Drift - Arctic Games [Ru] (RePack/1.0) 2012 l R.G. Elemen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572037.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Grow Up (2016) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571901.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Marvel: Ultimate Alliance 2 (2016) [En] (1.0/upd20160804) Repack =nemos=
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571864.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Foreign Legion: Buckets Of Blood [Ru] (P) 2009
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_570774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_570774.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Mind Dead (2016) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570116.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Kung Fu Strike: The Warrior's Rise [En/Multi4] (Repack) 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569992.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Ascendant (2014) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568677.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Goat Simulator (2014) [Ru/Multi] (1.5.58533/dlc) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568334.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Fight'N Rage (2017) [En/Spa] (190516) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568315.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ LEGO: Marvel's Avengers (2016) [Ru/En] (1.1.0) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568293.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Legend of Kay Anniversary (2015) [Multi] License RELODEAD
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567903.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Death's Gambit: Afterlife (2021) [Ru/Multi] (2.23/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566456.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ GARAGE: Bad Trip (2018) [Ru/Multi] (1.1.0.1) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_563473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_563473.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560163.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ Virus Z (2017) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559417.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ Grow Up (2016) [Ru/Multi] (1.0/upd1) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558973.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Mark of the Ninja (2013) [Ru/Multi] (2.1.0.6 GOG) License GOG [Special Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558895.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Inside (2016) [Ru/En] (5.0.4.29787) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558887.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ Rayman Origins [Ru/En] (RePack/1.02) 2012 l R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558320.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ Worms Armageddon / Worms: Армагеддон (1999) [Ru/Multi] (3.8.1) Repack 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557878.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ Guns n Zombies (2014) [Ru/Multi] (2.0/dlc) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557660.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ Guns n Zombies (2014) [Ru/Multi] (2.0/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557500.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ Delta Squad (2019) [Multi] (1.0) License TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556815.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ Delta Squad — это игра в жанре экшен, разрабатыва
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B790FA6DD4E195972F0125E255F9669C3CD3298
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153795   (556662) от 28.07.2017
-
-Pressure Overdrive (2017) [Ru/Multi] (1.0) License CODEX
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давление зашкаливает, так что держись крепче! Заводи свою паровозку и вступай в ряды «Ля-Протеста»... Не дай Графу де Мытьё искупаться в краденой водичке в его Сверх-спа - ты еще можешь ему помешать! В этой доработанной версии игры Pressure Overdrive ты вновь окунешься в безумный мир с юморком и чудаковатыми персонажами. Здесь твое мастерство пригодится как никогда (   Читать дальше...   )Тип издания: LicenseРазработчик: Chasing CarrotsЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90DF970276BCC5CA335B692176E5924A3EF30212
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225026   (556170) от 15.07.2018
-
-Infectonator 3: Apocalypse (2018) [Multi] (1.3.2.2) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два популярных направления современной игровой индустрии переплелись в новой аркадной игре «Infectonator 3: Apocalypse». Пиксели и зомби – сочетание не ново, но в этой игре присутствуют элементы стратегии. Вам не нужно спасать мир от зомби, вам даже не нужно их убивать. Вы не герой и тем более не добряк. Ваша задача - очистить мир при помощи нового вируса, а точнее, (   Читать дальше...   )Тип издания: LicenseРазработчик: Toge ProductionsЖанр: Симулятор, Стратегия, СовременностьЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F65C49B37F63D8E0D7321EA91D3458419563535F
 ```
 
 https://mybot314.ru/tekegram_catalog/

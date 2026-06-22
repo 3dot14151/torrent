@@ -1,3 +1,61 @@
+###  Публикация: 1329420   (352248) от 05.10.2019
+
+Nick Cave & The Bad Seeds - Ghosteen (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Spinning Song
+02 - Bright Horses
+03 - Waiting for You
+04 - Night Raid(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 01:08:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:307B0611ED6901A3ECCA1B8FC7244E664410041E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577678   (352191) от 20.09.2022
+
+Gogol Bordello - Solidaritine (2022) [FLAC|Lossless|WEB-DL|tracks] <Gipsy Punk. Folk Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shot of Solidaritine (4:10)
+02. Focus Coin (4:32)
+03. Blueprint (3:01)
+04. The Era of the End of Eras (4:23)(   Читать дальше...   )Жанр: Gipsy Punk. Folk PunkПродолжительность: 00:46:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39FBB4F878E9688438E3687743F4EC19946F5E0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256739   (352000) от 23.10.2018
 
 David Eugene Edwards & Alexander Hacke - Risha (2018) [FLAC|Lossless|image + .cue] <Folk rock, alternative>
@@ -6,7 +64,7 @@ David Eugene Edwards & Alexander Hacke - Risha (2018) [FLAC|Lossless|image + .cu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352000.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Nothing But Thieves - Collection 6 Albums (2014-2020) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351107.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Scarlean - 3 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Prog
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350396.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA (We Are Triumphant) - Hybrid Theory: an Encore (2020) Linkin Park Tribute [FL
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348945.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Supergrass - Supergrass (1999) 2CD, Remaster, 2022, Echo [FLAC|Lossless|WEB-DL|t
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348157.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Alice in Chains - Dirt (1992) Remaster, 2022, Columbia [FLAC|Lossless|WEB-DL|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348056.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Surf Curse - Heaven Surrounds You (2019) Scene [FLAC|Lossless|tracks] <Indie Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348008.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ The Rasmus - 1 Single, 1 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347764.jpg" />
 </div>
 
 
@@ -236,7 +294,7 @@ No Devotion - 2 Albums, 1 EP (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347747.jpg" />
 </div>
 
 
@@ -265,7 +323,7 @@ Weezer - 3 EP (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345834.jpg" />
 </div>
 
 
@@ -294,7 +352,7 @@ Fish - Acoustic Session (1994) [FLAC|Lossless]<Progressive Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344511.jpg" />
 </div>
 
 
@@ -323,7 +381,7 @@ Yurcash (Юркеш) - 2 альбома (2006-2007) Дискография [APE|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343577.jpg" />
 </div>
 
 
@@ -352,7 +410,7 @@ Twenty One Pilots - Trench (2018) [FLAC|Lossless|tracks + .cue] <Hip Hop, Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342912.jpg" />
 </div>
 
 
@@ -381,7 +439,7 @@ Bad Suns - Disappear Here (2016) [FLAC|Lossless|tracks] <Alternative Rock, Indie
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342671.jpg" />
 </div>
 
 
@@ -410,7 +468,7 @@ Less Than Jake - Pezcore (1995) 2008, Reissue [FLAC|Lossless|tracks + .cue] <Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341442.jpg" />
 </div>
 
 
@@ -439,7 +497,7 @@ Elbow - Giants of All Sizes (2019) [FLAC|Lossless|tracks] <Britpop, Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341393.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ Big Thief - Two Hands (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339107.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ Thousand Thoughts - Better than Never (2022) [FLAC|Lossless|WEB-DL|tracks] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338879.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ Nicolas Cage Fighter - The Bones That Grew from Pain (2022) [FLAC|Lossless|WEB-D
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338418.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ Ghost Town - Evolution (2015) [FLAC|tracks|WEB-DL]<Post-Hardcore, Electronic, Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337498.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ Breed Machine - Asura (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Metalc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336609.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ Billy Talent - Crisis of Faith (2022) [FLAC|Lossless|image + .cue] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336487.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ Missio - VILLAIN (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Electronic>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336486.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ Butthole Surfers - Independent Worm Saloon / Electriclarryland (1993/1996)  [FLA
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336478.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ Butthole Surfers - Independent Worm Saloon / Electriclarryland (1993/1996)  [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:018857316AD2EB903193EF307A9E2635DE8AC44F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579247   (336417) от 27.09.2022
-
-Kid Kapichi - Here's What You Could Have Won (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Indie Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New England [00:03:38]
-02. Rob the Supermarket [00:02:14]
-03. 5 Days On (2 Days Off) [00:02:51]
-04. I.N.V.U. [00:02:43](   Читать дальше...   )Жанр: Alt.Rock, Indie Rock, PunkПродолжительность: 00:35:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:981E8745D66F1FC0A4E07800E7DE1D5B9A2CF109
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579232   (336305) от 27.09.2022
-
-Darko US - Oni (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Begin [00:01:07]
-02. Looking Glass [00:02:41]
-03. Hyper Kill (feat. Ryo Kinoshita) [00:03:23]
-04. Dragon Chaser [00:03:59](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4233C7C5D7D8B0AFDF743C4AA53A52DD4923207
 ```
 
 https://mybot314.ru/tekegram_catalog/

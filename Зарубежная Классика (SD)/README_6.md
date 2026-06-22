@@ -1,3 +1,133 @@
+###  Публикация: 1441577   (1031107) от 16.02.2021
+
+Комната 13 / Zimmer 13 / Room 13 (1964) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031107.jpg" />
+</div>
+
+
+###  Подробнее
+
+15-й фильм кинокомпании Rialto по произведениям Эдгара Уоллеса. Шайка отъявленных головорезов собирается в комнате под номером 13 в одном захудалом отеле Сохо для подготовки разбойного нападения на поезд. В назначенный час они должны встретиться у особняка одного из членов Парламента, которого в последнее время стали шантажировать за его связь с преступными группировками. (   Читать дальше...   )Производство: Германия (ФРГ), Дания, Франция, Rialto Film Preben-Philipsen, SNCЖанр: Триллер, драма, криминалРежиссер: Харальд РайнльАктеры: Йоахим Фуксбергер, Карин Дор, Рихард Хаусслер, Вальтер Рилла, Зигфрид Шюренберг, Кай Фишер, Бенно Хоффманн, Бруно В. Пантель, Курд Пириц, Эрик РадольфПеревод: Многоголосый профессиональный (5 Канал СПб)Субтитры: Немецкие, английские - отдельными файламиПродолжительность: 01:29:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D5189E6671826577BE86C11604565143B89B7EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441373   (1031097) от 16.02.2021
+
+Любимый спорт мужчин / Man's Favorite Sport? (1964) WEB-DLRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роджер Уиллоуби работает в магазине спортивных товаров и является автором хорошо продаваемого самоучителя по рыбной ловле. Роджеру удалось написать этот бестселлер, ни разу не побывав на рыбалке. Но однажды настойчивая, если не сказать настырная, девушка по имени Эбби вовлекает Роджера в соревнование рыбаков, а такому «профессионалу» негоже их проигрывать...Производство: США / Gibraltar Productions, Laurel Productions, Universal PicturesЖанр: Мелодрама, КомедияРежиссер: Ховард ХоуксАктеры: Рок Хадсон, Пола Прентисс, Мария Перши, Джон МакГайвер, Шарлин Холт, Роско Карнс, Джеймс Уэстерфилд, Норман Элден, Форрест Льюис, Режис ТумиПеревод: Многоголосый профессиональный, СТС 6-й каналСубтитры: АнглийскиеПродолжительность: 02:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BB7951787BB3B15F9AF3746D2A3E5A19A26F230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441857   (1031049) от 16.02.2021
+
+Чёрный корсар / Il corsaro nero (1971) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Испанский наместник в строжайшей тайне готовит отправку большой партии золота в Европу. Однако слухи об этом достигают ушей морских разбойников. Капитан пиратского судна Блэки предлагает своим "коллегам" объединить силы и захватить несметные богатства.Производство: Италия, Испания / ABC Cinematográfica, Capricorno Transcontinental PicturesЖанр: Боевик, Комедия, ПриключенияРежиссер: Лоренцо Джичча ПаллиАктеры: Теренс Хилл, Бад Спенсер, Сильвия Монти, Джордж Мартин, Диана Лорис, Моника Рандаль, Сальваторе Боргезе, Паскуале Базиле, Фернандо Бильбао, Альдо Чеккони, Эдмунд Пурдом, Лучано ПигоцциПеревод: Многоголосый профессиональный, авторскийСубтитры: НемецкиеПродолжительность: 01:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CC423FE9472D2ED34AC3A45E19F53A99CC3D2D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617247   (1030957) от 25.03.2023
+
+Выйти замуж за моряка / Give Me a Sailor (1938) DVDRip [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Братья Брюстеры, Джим и Уолтэр, с детства дружат с сёстрами Ларкин, Нэнси и Летти. Оба брата, влюблены в старшую сестру, Нэнси, а обе сестры влюблены в старшего, Уолтэра. Когда Уолтэр собирается сделать предложение Нэнси, Джим и Летти разрабатывают хитроумный план, чтобы помешать их свадьбе.Производство: США, Paramount PicturesЖанр: мелодрама, комедияРежиссер: Эллиотт НаджентАктеры: Марта Рэй, Боб Хоуп, Бетти Грэйбл, Джек Уайтинг, Кларенс Колб, Дж.С. Наджент, Бонни Джин Черчилль, Нана Брайант, Кэтлин ЛокхартПеревод: Авторский (Виктор Рутилов)Язык озвучки: Русский, АнглийскийСубтитры: русские (full, forced на песни) (отдельными файлами)Продолжительность: 01:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CACF7431409B716DBA003EB1E927637314F153CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442124   (1030892) от 17.02.2021
+
+Человек со стеклянным глазом / Der Mann mit dem Glasauge (1969) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030892.jpg" />
+</div>
+
+
+###  Подробнее
+
+28-й фильм кинокомпании Rialto по произведениям Эдгара Уоллеса. Незадолго до своего выступления певица Лейла, одна из участниц ансамбля “Лас-Вегас Гёрлз” найдена убитой в лондонском театре Одеон. Все следы ведут в бильярдный клуб “Стеклянный глаз”. Инспектор Перкинс и сэр Артур узнают, что полые бильярдные кии используют для хранения наркотиков. В погоне за Человеком-со-стеклянным-глазом (   Читать дальше...   )Производство: Германия (ФРГ), Rialto FilmЖанр: Драма, криминалРежиссер: Альфред ФорерАктеры: Хорст Тапперт, Карин Хюбнер, Стефан Беренс, Ильзе Паге, Кристиана Крюгер, Мария Литто, Ян Хендрикс, Ирис БербенПеревод: Многоголосый профессиональный (5 Канал СПб)Субтитры: Английские, немецкие - отдельными файламиПродолжительность: 01:27:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB43EC4C46559455E9DD96A1F7C521980E24914C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442146   (1030657) от 18.02.2021
 
 Тайна красной орхидеи / Das Ratsel der roten Orchidee (1962) BDRip
@@ -6,7 +136,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030657.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030421.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030400.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030205.jpg" />
 </div>
 
 
@@ -112,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030021.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029801.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029162.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029098.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028889.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028841.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028442.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028347.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028317.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028193.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028172.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028028.jpg" />
 </div>
 
 
@@ -425,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027868.jpg" />
 </div>
 
 
@@ -451,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027037.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027019.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026884.jpg" />
 </div>
 
 
@@ -529,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026687.jpg" />
 </div>
 
 
@@ -541,136 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD2F685B8268FD73441B608FE28CEFBEED0873E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447115   (1026658) от 12.03.2021
-
-Особые приметы: красавчик / Segni particolari: bellissimo (1983) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Писатель Матиа - неотразимый красавец, на которого вешаются все женщины. Он платит своей соседке, прекрасной и юной Микаэле, чтобы та под видом его дочери забраковывала всех, кто хочет затащить его под венец...Производство: Италия / Rual CinemaЖанр: КомедияРежиссер: Франко Кастеллано, Джузеппе МоччиаАктеры: Адриано Челентано, Федерика Моро, Джанни Бонагура, Симона Мариани, Анна Канакис, Тиберио Мурджа, Кэтлин Квуае, Джакомо Росселли, Мишела Альбанезе, Антонелла РобустеллиПеревод: Авторский, А.МудровСубтитры: ОтсутствуютПродолжительность: 01:27:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80CF1F19205E8D744F1C92BCFD10ADA8CAAFF69D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447159   (1026528) от 13.03.2021
-
-Козырной туз / I quattro dell'Ave Maria (1968) WEB-DLRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026528.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того, как Какопоулос ухитрился спастись от виселицы по ложному обвинению, он грабит на крупную сумму Кэта Стивенса и Хатча Бэсси. К тому же крадет их лошадей. В результате развеселого и бесшабашного преследования Стивенс и Бэсси становятся невольными союзниками Какопоулоса в разборках с бандой, подставившей его.Производство: Италия / Cronocinematografica S.p.a., San MarcoЖанр: Комедия, ВестернРежиссер: Джузеппе КолицциАктеры: Илай Уоллак, Теренс Хилл, Бад Спенсер, Брок Питерс, Кевин МакКарти, Ливио Лоренцон, Стеффен Захариас, Тиффани Хойвелд, Армандо Бандини, Ремо КапитаниПеревод: Одноголосый профессиональныйСубтитры: Английские (Full, SDH)Продолжительность: 02:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C97D33623DB050A9317DF751421B0349916AC02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447253   (1026096) от 16.03.2021
-
-Подозреваемый / The Suspect (1944) BDRip [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026096.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1902 году в Лондоне несчастливый в браке Филипп Маршалл встречает юную Мэри Грей, безработную и подавленную. Они становятся хорошими друзьями (и только друзьями), но об их отношениях узнает жена Филиппа, которая грозит ему разоблачением и скандалом.Производство: США, Universal PicturesЖанр: Драма, триллерРежиссер: Роберт СиодмакАктеры: Чарльз Лотон, Элла Рейнес, Дин Хэйренс, Стэнли Риджес, Генри Дэниелл, Розалинд Иван, Молли Ламонт, Рэймонд Сэверн, Ив Эмбер, Мод ЭбёрнПеревод: Авторский (Дмитрий Есарев)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F39F22CC091940D39EDDB5AF486E5C38D4DDB5B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447330   (1025925) от 17.03.2021
-
-Пижамная игра / The Pajama Game (1957) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025925.jpg" />
-</div>
-
-
-###  Подробнее
-
-На фабрику по пошиву пижам «Спокойных снов!» приходит новый управляющий Сид Сорокин. Здесь он знакомится с представителем комитета по жалобам Бэйб Уильямс. Между ними возникает роман. В это время местный профсоюз начинает активную борьбу за надбавку в 7,5 центов. Сид и Бэйб оказываются по разные стороны баррикад.Производство: США / Warner Bros.Жанр: Мюзикл, Драма, Мелодрама, КомедияРежиссер: Джордж Эбботт, Стэнли ДоненАктеры: Дорис Дэй, Джон Райт, Кэрол Хейни, Эдди Фой мл., Рита Шоу, Барбара Николс, Тельма Пелиш, Джек Строу, Ральф Данн, Оуэн МартинПеревод: Одноголосый любительский, binjakСубтитры: РусскиеПродолжительность: 01:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7C3C2A06C83431FF537EF69BB895830151823FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447588   (1025719) от 18.03.2021
-
-Женщина с реки / La donna del fiume (1954) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Героиня работает на рубке сахарного тростника. Ей приходится преодолевать превратности жизни, чтобы одной воспитывать своего незаконнорожденного двухлетнего сына.Производство: Италия, Франция / Excelsa Film, Les Films du Centaure, Ponti-De Laurentiis CinematograficaЖанр: ДрамаРежиссер: Марио СольдатиАктеры: Софи Лорен, Жерар Ури, Лизе Бурден, Рик Батталья, Энрико Оливьери, Гуидо Челано, Эдвард Флеминг, Нино Маркетти, Миммо ПальмараПеревод: Одноголосый любительский, Никита "Stalk" КирдинСубтитры: ОтсутствуютПродолжительность: 01:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F4F1EB5770D9FC87CFB2D0B1A0391DCA06718C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

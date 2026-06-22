@@ -1,55 +1,3 @@
-###  Публикация: 1679952   (114192) от 05.03.2024
-
-Тегеранский лабиринт. Сталин, Черчилль, Рузвельт (2003) IPTVRip [H.264] (серии 1-2 из 2)
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Историческая встреча Сталина, Рузвельта и Черчилля - Тегеранская конференция - коренным образом изменила не только дальнейший ход Второй Мировой войны, но и во многом предопределила развитие всей истории ХХ века. Фильм-исследование рассказывает о трудностях и тайных интригах подготовки и проведения Тегеранской конференции. В фильме принимают участие виднейшие историки (   Читать дальше...   )Производство: Россия / ООО «Караван-Арт», Moriland International Inc.Жанр: документальный, история, Вторая мировая войнаРежиссер: Александр ИванкинЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:40:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4E037BFA211CFB61055FC7A2B56AA9F7DDC44C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427204   (111842) от 07.04.2024
-
-Нормандия-Неман. Монолог / Normandia Neman Monolog (2015) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм посвящен истории легендарной советско-французской эскадрильи «Нормандия-Неман». Его цель – не только напомнить о подвигах пилотов авиаполка и отдать дань памяти тем, кто боролся за мир в воздухе, но и рассказать о тесной дружбе представителей двух народов. Из первых рук – от участников событий, их потомков, современных историков.Производство: Россия, Франция, Творческое Объединение КедрЖанр: Документальный, история, ВОВРежиссер: Егор КлимовичУчастники: Кристина Бабушкина, Дмитрий ПевцовЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:133D893DCBF2AE3AE4FD42C14A3C3F122257677B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 489400   (102050) от 29.04.2012
 
 900 дней. Миф и реальность блокады Ленинграда / 900 Dagen / 900 days (2011) BDRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102050.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100842.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89825.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85087.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71279.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71120.jpg" />
 </div>
 
 
@@ -218,7 +166,7 @@ History Channel. Нацисты на наркотиках: Гитлер и бл�
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59094.jpg" />
 </div>
 
 
@@ -245,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57862.jpg" />
 </div>
 
 
@@ -271,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57039.jpg" />
 </div>
 
 
@@ -297,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56907.jpg" />
 </div>
 
 
@@ -323,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55145.jpg" />
 </div>
 
 
@@ -349,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54111.jpg" />
 </div>
 
 
@@ -376,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52493.jpg" />
 </div>
 
 
@@ -403,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52453.jpg" />
 </div>
 
 
@@ -429,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45850.jpg" />
 </div>
 
 
@@ -455,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44333.jpg" />
 </div>
 
 
@@ -481,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41811.jpg" />
 </div>
 
 
@@ -507,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38551.jpg" />
 </div>
 
 
@@ -533,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38433.jpg" />
 </div>
 
 
@@ -560,7 +508,7 @@ NG: Война генералов. Битва за Курск / Generals at War.
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36847.jpg" />
 </div>
 
 
@@ -586,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35560.jpg" />
 </div>
 
 
@@ -612,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35500.jpg" />
 </div>
 
 
@@ -640,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33532.jpg" />
 </div>
 
 
@@ -666,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30492.jpg" />
 </div>
 
 
@@ -677,6 +625,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:956601CC5F780B6A31D4EEBD4365A3ACC95AFB22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645513   (30462) от 19.01.2025
+
+Дети блокады (2007) DVDRip [H.264/1080p] (серии 1-6 из 6 + фильм) [hand made Upscale AI]
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказывая о своем детстве, о быте своей семьи, о школе и дворе, о детском восприятии «взрослых» вещей герои повествуют о жизни города, объятого большой бедой, о силе духа и неутолимой жажде жизни.
+В полнометражном фильме, истории героев складываются в единую мозаику, дополняют друг друга. Из фильма зрители узнают, кем стал ребёнок блокады, каково его призвание, (   Читать дальше...   )Производство: Россия, Телеканал "100ТВ"Жанр: документальный, биография, военныйРежиссер: Алла ЧикичеваУчастники: Зоя Виноградова, Валентин Гаврилов, Глеб Богомолов, Александр Городницкий, Иван Краско, Людмила ВербицкаяЯзык озвучки: русскийПродолжительность: 00:26:12, 00:25:55, 00:25:52, 00:26:22, 00:25:54, 00:25:35, 00:52:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:294D37D2FE2673DB3F1B2A3D43D69FEA77DABAFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 864076   (29638) от 27.01.2025
+
+Моя блокада (2014) HDTV [H.264/1080i-LQ]
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жителям блокадного Ленинграда, их бессмертному подвигу, посвящается. Одна из значимых страниц нашей истории – 900-дневная блокада Ленинграда (08.09.41 - 27.01.44). Беспрецедентный подвиг жителей города-героя не имеет себе равных: Ленинград – единственный город за всю историю человечества, не сдавшийся врагу, несмотря ни на что. В основу сюжета положены личные воспоминания (   Читать дальше...   )Телекомпания: Россия HDЖанр: ДокументальныйРежиссер: Ольга АнтроповаУчастники: Тамара Грачева, Татьяна Томилова, Юрий Колосов, Нина Сигал, Валентина Денисова, Ирина СкрипачевавПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46E8EDB6261D8AB28D0AB2E91C502360D3344BF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

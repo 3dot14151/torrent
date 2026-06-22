@@ -1,3 +1,32 @@
+###  Публикация: 1623941   (196871) от 19.06.2023
+
+Kuma Kuma Kuma Bear Punch / Ми-ми-ми-мишка 2 [2023, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй сезон Kuma Kuma Kuma Bear
+Описание на первый сезон:
+
+Юна — 15-летняя девушка, заработавшая миллиарды иен на бирже и теперь ведущая жизнь хикикомори. Особенно ей нравится первая в мире VRMMORPG — World Fantasy Online. После глобального обновления игры она как пользователь, проведший в игре особенно много часов, получает очень редкий костюм медведя. Однако надев (   Читать дальше...   )Жанр: приключения, комедия, фэнтезиРежиссер: Нобута ЮЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F964C58036C344BEB82BCF1EE9AF13C941156B6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623703   (196857) от 18.06.2023
 
 My Home Hero | Мой домашний герой [2023, TV, 12 эп.] WEBRip 720p raw
@@ -6,7 +35,7 @@ My Home Hero | Мой домашний герой [2023, TV, 12 эп.] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196857.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ Isekai wa Smartphone to Tomo ni. 2 | В другом мире со смартф�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196814.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ Kizuna no Allele | Аллель Кидзуны [2023, TV, 12 эп.] WEBRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196764.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ Skip to Loafer | Skip and Loafer | Долой безделье! [2023, TV, 12 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196763.jpg" />
 </div>
 
 
@@ -110,7 +139,7 @@ Boku no Kokoro no Yabai Yatsu | The Dangers in My Heart | Опасность в 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196747.jpg" />
 </div>
 
 
@@ -136,7 +165,7 @@ Konosuba: An Explosion on this Wonderful World! | Kono Subarashii Sekai ni Bakue
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196714.jpg" />
 </div>
 
 
@@ -162,7 +191,7 @@ Watashi no Yuri wa Oshigoto Desu! / Yuri Is My Job! / Юри — это моя �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196675.jpg" />
 </div>
 
 
@@ -188,7 +217,7 @@ Birdie Wing: Golf Girls' Story (2023) | История гольфисток [Т�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196642.jpg" />
 </div>
 
 
@@ -214,7 +243,7 @@ Tonikaku Kawaii 2 / Tonikawa: Over the Moon for You 2 / Красавица: Ун
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196622.jpg" />
 </div>
 
 
@@ -243,7 +272,7 @@ Jijou o Shiranai Tenkousei ga Guigui Kuru. | My Clueless First Friend | Мой �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196609.jpg" />
 </div>
 
 
@@ -269,7 +298,7 @@ Megami no Cafe Terrace / The Cafe Terrace and Its Goddesses / Терраса к�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196596.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ Mahou Shoujo Magical Destroyers | Magical Girl Destroyers | Девочки-во�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196595.jpg" />
 </div>
 
 
@@ -321,7 +350,7 @@ Edomae Elf | Otaku Elf | Эльф-отаку [2023, TV, 12 эп.] WEBRip 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196593.jpg" />
 </div>
 
 
@@ -347,7 +376,7 @@ Rokudou no Onna-tachi | Rokudo's Bad Girls | Плохие девчонки Ро�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196587.jpg" />
 </div>
 
 
@@ -373,7 +402,7 @@ Kubo-san wa Mob o Yurusanai | Kubo Won't Let Me Be Invisible | Кубо-сан �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196581.jpg" />
 </div>
 
 
@@ -399,7 +428,7 @@ Yamada-kun to Lv999 no Koi o Suru | Loving Yamada at Lv999! | Моя любов�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196568.jpg" />
 </div>
 
 
@@ -425,7 +454,7 @@ Otonari ni Ginga / A Galaxy Next Door / Галактика по соседств
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196567.jpg" />
 </div>
 
 
@@ -451,7 +480,7 @@ Isekai Shoukan wa Nidome Desu / Summoned to Another World... Again?! / Приз�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196551.jpg" />
 </div>
 
 
@@ -477,7 +506,7 @@ Kawaisugi Crisis | Too Cute Crisis | Слишком милый кризис [202
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196550.jpg" />
 </div>
 
 
@@ -503,7 +532,7 @@ World Dai Star / Мир великих звёзд [2023, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196546.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ Kyokou Suiri | In/Spectre | Ложные выводы [2020, TV, 24 эп.] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196544.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Kanojo ga Koushaku-tei ni Itta Riyuu | Why Raeliana Ended Up at the Duke's Mansi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196504.jpg" />
 </div>
 
 
@@ -582,7 +611,7 @@ Idolmaster: Cinderella Girls - U149 / Идолмастер: Золушки - U14
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196406.jpg" />
 </div>
 
 
@@ -608,7 +637,7 @@ Tengoku Daimakyou | Heavenly Delusion | Великая небесная стен
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196293.jpg" />
 </div>
 
 
@@ -634,7 +663,7 @@ Mashle | Mashle: Magic and Muscles | Магия и мускулы [2023, TV, 12 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196256.jpg" />
 </div>
 
 
@@ -645,32 +674,6 @@ Mashle | Mashle: Magic and Muscles | Магия и мускулы [2023, TV, 12 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68F116826AABC6B50C4810696A46AAE46B92FCCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623475   (196245) от 01.07.2023
-
-Jigokuraku | Hell's Paradise: Jigokuraku | Адский рай [2023, TV, 13 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Некогда Габимару был сильнейшим синоби Ивагакурэ, но попытался уйти со своей службы и был схвачен. Приговорённый к смерти, он ждал своей смерти, когда к нему обратились с предложением: добыть эликсир бессмертия с острова, который называют землёй обетованной. Если справится - все грехи простят. Для того, чтобы вновь встретиться с любимой женой, Габимару отправляется (   Читать дальше...   )Производство: студия MAPPAЖанр: приключенияРежиссер: Макита КаориПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F728F414606FAD16A2A6D139AEF10A2AC435A82
 ```
 
 https://mybot314.ru/tekegram_catalog/

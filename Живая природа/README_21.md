@@ -1,3 +1,107 @@
+###  Публикация: 1300754   (592752) от 07.05.2019
+
+Возвращение незваных гостей / The Squatters Return (2018) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как объяснить неожиданное возвращение разных видов жуков? Ученые говорят о глобальном потеплении, нашем образе жизни и их генетических мутациях. Справимся ли мы с этими проблемами?Производство: Франция, Arte France Mona Lisa ProductionЖанр: Документальный, природа, флора, фаунаРежиссер: Тири БэрродПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E9A779A96F088B38BDCEA5A7DBD17A9425D69EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551422   (590144) от 15.05.2022
+
+Один дикий день / One Wild Day (2017) WEB-DL [H.264/1080p] (серии 1-3 из 3)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590144.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире природы каждые сутки - это экстремальные приключения... Каждая минута ввергает всё живое в пучину опасностей. В этой программе мы проведем сутки в разных уголках девственной природы нашей планеты. Мы увидим как животные в определенное время суток побеждают в поединке за жизнь. Одни оживают в лучах дневного света, другие в ходе эволюции научились выживать в (   Читать дальше...   )Производство: Великобритания, An Offsrping Films ProductionsЖанр: документальный, природа, флора, фаунаРежиссер: Анвар МамонПеревод: дублированный (SDI Media)Субтитры: английскиеПродолжительность: 3x ~00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:711399A36D947894A32A5F7E948B5A4084417D6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551858   (588956) от 18.05.2022
+
+Окаванго. Поток жизни / Okavango. A Flood of Life (2021) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм раскрывает невероятную историю дельты Окаванго. Снятый в течение полного цикла сезонов, он раскрывает отношения - как людей, так и животных - на земле, где присутствие или отсутствие воды меняет все.Производство: Великобритания, Natural History Film Unit, Icon Films, NHKЖанр: документальный, природа, флора, фаунаРежиссер: Брэд БестелинкПеревод: одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44E19E819741E09FA5A07D4F01F5D67EFA9D9DF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358229   (585229) от 03.07.2011
+
+Маленькие питомцы / Baby Planet (2008) SATRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585229.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире животных многие виды находятся под угрозой исчезновения, поэтому требуется помощь человека в поддержании их популяции. В программе "Маленькие питомцы" показано появление на свет и первые дни жизни детенышей редких животных. Также вы увидите, как эти очаровательные малютки подрастают и становятся любопытными непоседами, а затем - самостоятельными взрослыми особями. Сериал поведает об удивительных историях, случающихся в практике ветеринаров-акушеров, и расскажет о радостях и трудностях. Уделяя особое внимание важной работе зоопарков, заповедников и организаций по охране животных и имея к ним неограниченный доступ, создателям программы удалось заснять мельчайшие подробности сложной и тяжелой работы людей, которые посвятили свою деятельность сохранению самых редких и наиболее важных видов на планете. Их цель: помочь животным вывести здоровое потомство и сохранить популяции, находящиеся под угрозой исчезновения. Каждая серия изобилует съемками малюток в первые дни их жизни. Эти кадры, приоткрывающие (   Читать дальше...)Жанр: ДокументальныйПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 3x~00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9814E8E4C8C63CDBD864447DF448ECF8386DDD24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 359085   (583991) от 04.07.2011
 
 Острова: История выживания / Isolated: A Story of Survival (2008) SATRip [6 серий]
@@ -6,7 +110,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583991.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581841.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581195.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ Nat Geo Wild . Дикое меню / Wild Menu (2014) HDTVRip [H.264/720p] [1-26
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580918.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580829.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ Nat Geo Wild. Дикое меню / Wild Menu (2014) HDTV [H.264/1080i] [26 се
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579700.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579269.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579070.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578718.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578576.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578056.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578002.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577934.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576936.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576016.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ Discovery. Нападение шершней-убийц / Attack of the Murder H
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575572.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574630.jpg" />
 </div>
 
 
@@ -455,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574573.jpg" />
 </div>
 
 
@@ -481,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573702.jpg" />
 </div>
 
 
@@ -507,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566406.jpg" />
 </div>
 
 
@@ -533,7 +637,7 @@ IMAX. Тайна жизни на Земле / IMAX. The Secret Of Life On Earth 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562946.jpg" />
 </div>
 
 
@@ -559,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562145.jpg" />
 </div>
 
 
@@ -570,110 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:947DF07C69D8FE55832A111C949BA23A24421AF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235222   (562044) от 10.07.2018
-
-Живой свет с Дэвидом Аттенборо. Биолюминесценция / David Attenborough’s Light on Earth (Life That Glows) (2016) BDRemux [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Биолюминесценция во многом загадочное явление. Ученые обнаруживают по всему миру множество удивительных живых существ, способных излучать свет. А открытие все большего количества странных светящихся созданий, порождает еще большее количество вопросов. Почему, для чего и каким образом они производят этот свет? В последние годы ученые начали находить ответы на эти (   Читать дальше...   )Производство: Австрия, Великобритания, Terra Mater Factual Studios, Ammonite FilmsЖанр: Документальный, природа, флора, фаунаРежиссер: Джо ЛонкрейнПеревод: Одноголосый закадровый, профессиональныйСубтитры: Русские, АнглийскиеПродолжительность: 00:59:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0AE8966968E0DE9FCF665467F8AA6C7168DA6F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235185   (562040) от 10.07.2018
-
-IMAX: Вулканы в морских глубинах / IMAX: Volcanoes of the Deep Sea (2003) BDRip [H.264/1080p] [PR]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы привыкли считать солнце единственным источником энергии для всех живых существ. Но под толщей воды существуют другие источники энергии, дающие жизнь удивительным глубоководным созданиям. На борту глубоководного аппарата "Alvin", мы совершим погружение на глубину двенадцати тысяч футов в глубокую Атлантику, чтобы исследовать подводные вулканы и увидеть (   Читать дальше...   )Производство: США, The Stephen Low CompanyЖанр: Документальный, познавательный, природа, океанографияРежиссер: Стивен ЛоуПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEB037182649E0873287545459F4406D422B8291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924145   (560513) от 02.08.2015
-
-ТерраМатер: Дикая Канада / Terra Mater: Wild Canada (2014) BDRip [H.264/720p] (серии 1-4 из 4)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот впечатляющий сериал представляет собой удивительный кинематографический портрет обширного региона нашей планеты - мир, который таит в себе невероятное разнообразие природных мест обитания и дикой природы. Красиво и виртуозно снятые четыре эпизода проведут нас через захватывающий истории северной части североамериканского континента. Захватывающая дух увлекательная (   Читать дальше...   )Производство: Австрия | Terra Mater Factual StudiosЖанр: Документальный, природа, флора, фаунаРежиссер: Джефф ТернерПеревод: Одноголосый профессиональный (студия Омикрон)Язык субтитров: РусскийПродолжительность: ~00:52:00 x 4
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D1E7565AD3A83384A0B31281ADD60DA04DA4E6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235349   (560269) от 11.07.2018
-
-Тайный мир ракообразных / The Secret World of Crustaceans (O Mundo Secreto dos Crustaceos) (2013) HDTVRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Морское дно - дом для многих странных существ. Среди морских обитателей встречается одна довольно необычная группа - ракообразные, которые веками оставались для человека загадкой. Этим животным несколько миллионов лет, они насчитывают около 50 тысяч видов, большинство из которых водные обитатели. Наблюдать их в естественной среде непросто, ведь днем они прячутся (   Читать дальше...   )Производство: Франция, Manuel Leferve, AmpersandЖанр: Документальный, морская фаунаРежиссер: Мануэль ЛефеврПеревод: Дублированный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 00:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93F095BF60D74A250747C16BC7F3CCA11862E381
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 1136984   (667936) от 26.05.2017
+
+М. Ф. Нехорошков | Семья и религия (1967) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классики марксизма-ленинизма проблеме семьи придавали исключительно большое значение. Они вскрыли причины изменений, происходящих в формах брачно-семейных отношений при различных общественно-экономических формациях. К. Маркс и Ф. Энгельс показали, что семья, как ячейка общества, в миниатюре несет на себе все те черты, которые характерны для того или иного общества. (   Читать дальше...   )Жанр: История, политология, религиоведение, науковедениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBF9713F85EDA6645CBE4C03EDE01999F9A33E06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224215   (667235) от 09.05.2018
+
+Святитель Николай Сербский (Велимирович) | «Творите дела правды»: проповеди (2010) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667235.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Творите дела правды» - поучал святитель Николай (Велимирович). В данной книге представлены избранные проповеди Владыки, полные любви и заботы о ближнем. Его наставления являют собой врачующую «живую воду» для больной и скорбящей души и помогают человеку открыть свое сердце для Милосердного Бога.
+
+«Христос - Свет мира. Всякая тьма исчезает пред Ним. Потому, словно (   Читать дальше...   )Жанр: Православие. Духовно-просветительское изданиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FA4223329260A5072823D4D71C35DE733645CAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224196   (667190) от 09.05.2018
 
 С. Димитракопулос | Нектарий Пентапольский — святой наших дней (2012) [PDF, DJVU]
@@ -6,7 +60,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667190.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667187.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667117.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666786.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666785.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666783.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666726.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666694.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666067.jpg" />
 </div>
 
 
@@ -242,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665710.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665652.jpg" />
 </div>
 
 
@@ -296,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664869.jpg" />
 </div>
 
 
@@ -323,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664484.jpg" />
 </div>
 
 
@@ -351,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664272.jpg" />
 </div>
 
 
@@ -377,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664089.jpg" />
 </div>
 
 
@@ -406,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663442.jpg" />
 </div>
 
 
@@ -435,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663285.jpg" />
 </div>
 
 
@@ -461,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663241.jpg" />
 </div>
 
 
@@ -487,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663166.jpg" />
 </div>
 
 
@@ -516,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662422.jpg" />
 </div>
 
 
@@ -544,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662325.jpg" />
 </div>
 
 
@@ -570,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662316.jpg" />
 </div>
 
 
@@ -596,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661957.jpg" />
 </div>
 
 
@@ -624,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661954.jpg" />
 </div>
 
 
@@ -638,60 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C611EB003D207920F5B06870B0816F1567F17B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902638   (660288) от 29.05.2015
-
-Алексей Бодров, Михаил Толстолуженко (ред.) | Богословие красоты (2013) [FB2, RTF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Понятие красоты – одно из центральных для христианского богословия. Оно относится не только к миру природы, но и к области творческой активности человека. Более того, христианская мысль придает красоте трансцендентное измерение: творение прекрасно, потому что прекрасен Творец; прекрасное в мире – это знаки божественного присутствия в нем.
-
-Авторы этой книги (в числе (   Читать дальше...   )Жанр: БогословиеФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D538DF53EBDDAC842327F4D0E79031DCDFFEAF38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902640   (660283) от 29.05.2015
-
-Ирина Языкова, Михаил Талалай (ред.) | Андрей Первозванный – апостол для Запада и Востока (2011) [FB2, RTF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660283.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу, посвященную 800-летию перенесения мощей св. Андрея Первозванного из Константинополя в Амальфи (2008 г.), вошли статьи богословов, историков, филологов и искусствоведов, посвященные роли апостола в истории христианства, разным аспектам его церковного и народного почитания и его современной общехристианской миссии.Жанр: БогословиеФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F8D8A3751CEA31F31F972061713774B9D57E754
 ```
 
 https://mybot314.ru/tekegram_catalog/

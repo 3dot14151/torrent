@@ -1,29 +1,3 @@
-###  Публикация: 475000   (85222) от 29.03.2012
-
-Губка Боб : Операция "Крабовый Пирожок" / SpongeBob SquarePants Operation "Krabby Patty" [3+] (P) [Ru] (2004)
-
->>Детские PC Игры
->>Детские Игры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Operation Krabby Patty – веселая детская игра, рассказывающая о жизни обитателей подводного города Бикини Ботом. Начните новый день вместе с забавным героем Губкой Бобом – если вы встанете с правильной стороны кровати, то отправитесь на прогулку по городу, где узнаете о коварных планах Планктона - украсть крабовые пирожки, и сможете вовремя предупредить мистера Краба о надвигающейся опасности, а встав с неправильной стороны кровати, готовьтесь к выполнению странных указаний Планктона, который захватил в заложники Гари, любимую домашнюю улитку Боба.Тип издания: ПираткаРазработчик: AWE GamesЖанр: Arcade\ДетскийЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E31BB01A5AFE8B56B89F7403719937CFE0C3938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 475014   (85213) от 29.03.2012
 
 Губка Боб Квадратные Штаны: Страсти-мордасти / SpongeBob SquarePants Nighty Nightmare [5+] (L) [Ru] (2006)
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85213.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Incredibles: Rise of the Underminer / Суперсемейка. Подзем
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85194.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84931.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84745.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84580.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Kookabonga: Crazy Monkey Party / Кукабонга: Весёлые джунгл
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82696.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77865.jpg" />
 </div>
 
 

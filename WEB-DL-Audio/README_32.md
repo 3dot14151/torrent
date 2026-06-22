@@ -6,7 +6,7 @@ Mahmut Orhan - Pangea (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111715.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Kenya Grace - The After Taste (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111712.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Fiery Lights - 1982 (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Alternative
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111676.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Rick Vito - Cadillac Man (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111675.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Blue Lavinia - Don't Take It (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111674.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Sam Morrow - On The Ride Here (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Roots 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111666.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Mind Sweepers - All This Too Shall Pass (2024) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111653.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Dirty Nil - Free Rein To Passions (2023) Deluxe, 2024, Dine Alone Records [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111652.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Hubert Dorigatti - The Nashville Sessions (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111650.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Charlie Parr - Little Sun (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Fol
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111649.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Nienke Dingemans - Ain't No Hollywood Girl (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111612.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Steve Howell & The Mighty Men - 99 1/2 Won't Do (2024) [FLAC 24/96|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111601.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Chris Brown - 11:11 (Deluxe) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <R&b, So
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111598.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Storm Seeker - Live in Stuttgart (2023) (Live) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111593.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Blue Oyster Cult - Ghost Stories (2024) [FLAC 16/24|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111574.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Jay Heye - Smooth & Easy (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111537.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Linkin Park - Papercuts (2024) Singles Collection 2000-2023 [FLAC 24/44.1, 48.0,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111511.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Armin van Buuren - Breathe In (2024) Extended Edition [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111472.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Black Country Communion - Red Sun; Stay Free (2024) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111450.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Armin van Buuren - Feel Again, Pt. 2 (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111440.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Too Close To Touch - For Keeps (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111430.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Slash - Oh Well feat. Chris Stapleton (2024) Single [FLAC 24/96|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111429.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ BlackRain - Hot Rock Time Machine (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111425.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Imminence - The Black (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111420.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ A La Carte - The Ultimate Best of Album (2016) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111415.jpg" />
 </div>
 
 
@@ -723,7 +723,7 @@ Chicane - Far From The Maddening Crowds (Symphonic Rehearsals) (2024) [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111385.jpg" />
 </div>
 
 

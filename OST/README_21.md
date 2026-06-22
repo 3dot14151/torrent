@@ -1,3 +1,148 @@
+###  Публикация: 961548   (295061) от 04.12.2015
+
+NBA 2k14 Soundtrack  (2013) [MP3|320 кб/с]<OST/Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big K.R.I.T. - Cool 2 Be Southern (03:22)
+02. Coldplay - Lost! (03:55)
+03. Cris Cab - Paradise (On Earth) (03:46)
+04. Daft Punk - Get Lucky (feat. Pharrell Williams) (04:05)(   Читать дальше...   )Жанр: OST/SoundtrackПродолжительность: 01:27:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3ED142D136EB85677967C6F6FB1455CB144C2E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961549   (295059) от 04.12.2015
+
+NBA 2K15 Soundtrack (2014) [MP3|320 кб/с]<OST/Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Tribe Called Quest - Scenario (LP Mix) (04:09)
+02. Afrika Bambaataa - Planet Rock (05:21)
+03. Basement Jaxx - Hot 'n Cold (04:00)
+04. Black Rebel Motorcycle Club - River Styx (03:55)(   Читать дальше...   )Жанр: OST/SoundtrackПродолжительность: 01:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5429035FE3B87DFB646268582B77FDC052F58395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961552   (294821) от 04.12.2015
+
+NBA 2K16 Soundtrack  (2015) [MP3|128-320 кб/с]<OST/Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294821.jpg" />
+</div>
+
+
+###  Подробнее
+
+DJ Premier Playlist
+01. Custom Track: Papoose Prod. By DJ Premier, "Hold the City Down" (02:39)
+02. Gang Starr (feat. NYGz, H. Stax), "Same Team, No Games" (03:45)
+03. Nas, "Made You Look" (03:00)(   Читать дальше...   )Жанр: OST/SoundtrackПродолжительность: 03:10:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBA2C90E4FA2AD130F23417F68257D58DB99E64C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079331   (294007) от 04.12.2016
+
+Michael McCann, Sascha Dikiciyan, Ed Harrison - Deus Ex: Mankind Divided (Original Soundtrack) (2016) Extended Edition [MP3|320 кб/с]<Soundtrack, Ambient>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonic Mayhem - Martial Law (03:10)
+02. Sonic Mayhem - Prague (04:11)
+03. Sonic Mayhem - The Orchid (04:16)
+04. Sonic Mayhem - Apex Towers (02:39)(   Читать дальше...   )Жанр: Soundtrack, Score, AmbientПродолжительность: 01:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6818EB1D9EFEFCC23B09CC4613B1B8AC08CB9D87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079517   (293759) от 04.12.2016
+
+VA - Suicide Squad / Отряд самоубийц (The Album) (2016) Collector's Edition [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skrillex & Rick Ross - Purple Lamborghini (03:36)
+02. Lil Wayne, Wiz Khalifa & Imagine Dragons - Sucker For Pain (with Logic, Ty Dolla $ign & X Ambassadors) (04:04)
+03. Twenty One Pilots - Heathens (03:16)
+04. Action Bronson, Mark Ronson & Dan Auerbach of The Black Keys - Standing In the Rain (03:23)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:00:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47BC3A1568DFAD78765FCF58CE34C328A728EE19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 266070   (293390) от 11.12.2010
 
 Отбросы / Misfits (2009) [MP3|128-320 kbps]<Soundtrack>
@@ -6,7 +151,7 @@
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293390.jpg" />
 </div>
 
 
@@ -32,7 +177,7 @@ Ramin Djawadi - Westworld / Мир Дикого Запада: Season 1 (Music fr
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291572.jpg" />
 </div>
 
 
@@ -61,7 +206,7 @@ John Carpenter, Cody Carpenter, Daniel Davies - Halloween / Хэллоуин (Or
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291534.jpg" />
 </div>
 
 
@@ -90,7 +235,7 @@ Hans Zimmer, The Magnificent Six - The Amazing Spider-Man 2 / Новый Чел�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289579.jpg" />
 </div>
 
 
@@ -119,7 +264,7 @@ Tom Holkenborg - Терминатор: Темные судьбы / Terminator: D
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289409.jpg" />
 </div>
 
 
@@ -148,7 +293,7 @@ Thomas E Rouch - Портал/Alpha Gateway (Original Motion Picture Soundtrack)
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286299.jpg" />
 </div>
 
 
@@ -177,7 +322,7 @@ Two Steps From Hell - Vanquish (2016) [MP3|320 Kbps] <Soundtrack, Trailer music,
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285715.jpg" />
 </div>
 
 
@@ -206,7 +351,7 @@ Tom Holkenborg aka Junkie XL - Terminator: Dark Fate / Терминатор: Т�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285668.jpg" />
 </div>
 
 
@@ -235,7 +380,7 @@ Various Artists - Лондонские поля/ London Fields (Original Motion 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284361.jpg" />
 </div>
 
 
@@ -264,7 +409,7 @@ Tom Holkenborg aka Junkie XL - Distance Between Dreams / Расстояние м
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282795.jpg" />
 </div>
 
 
@@ -293,7 +438,7 @@ Jake Butineau - Dune Sea (Original Game Soundtrack) (2019) [MP3|320 кб/с]<Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282582.jpg" />
 </div>
 
 
@@ -322,7 +467,7 @@ Labrinth - Euphoria / Эйфория (Original Score from the HBO Series) (2019)
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282202.jpg" />
 </div>
 
 
@@ -351,7 +496,7 @@ VA - Christmas Shooting Stars: The Finest Chillout and Lounge Music (2016) [MP3|
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280899.jpg" />
 </div>
 
 
@@ -380,7 +525,7 @@ Tyler Bates, VA - Форсаж: Хоббс и Шоу / Fast & Furious Presents: 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280802.jpg" />
 </div>
 
 
@@ -409,7 +554,7 @@ VA - Форсаж: Хоббс и Шоу / Fast & Furious Presents: Hobbs & Shaw 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280676.jpg" />
 </div>
 
 
@@ -438,7 +583,7 @@ Trent Reznor & Atticus Ross - Watchmen / Хранители: Volume 1 (Music fro
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280668.jpg" />
 </div>
 
 
@@ -467,7 +612,7 @@ Steven Price - The Aeronauts / Аэронавты (Original Motion Picture Sound
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280324.jpg" />
 </div>
 
 
@@ -496,7 +641,7 @@ James Newton Howard - Фантастические твари: Преступл�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279349.jpg" />
 </div>
 
 
@@ -525,7 +670,7 @@ Ramin Djawadi - Gears 5 (Original Soundtrack) (2019) [MP3|320 кб/с]<Soundtrac
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279159.jpg" />
 </div>
 
 
@@ -554,7 +699,7 @@ VA - Office Christmas Party (Original Motion Picture Soundtrack) (2016) [MP3|320
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278762.jpg" />
 </div>
 
 
@@ -583,7 +728,7 @@ VA - Suicide Squad (Unofficial Soundtrack) (2016) [MP3|320 кб/с]<Hip-Hop, Roc
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278755.jpg" />
 </div>
 
 
@@ -596,157 +741,6 @@ VA - Suicide Squad (Unofficial Soundtrack) (2016) [MP3|320 кб/с]<Hip-Hop, Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFDF62859174C56B1E6B0887D17B75FA8F24218B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336782   (277528) от 08.11.2019
-
-Tim Wynn - Freaks / Иные (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freaks (02:08)
-02. I'm Eleanor Reed (02:40)
-03. Time Bubble (01:34)
-04. She Looks Like an Angel (01:20)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E0DEAE5A4E6F8E1BC723DB5F1C54BA93788BAEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081748   (277375) от 13.12.2016
-
-Francois Jolin - Alice VR  (original soundtrack) (2016) [MP3|320 Kbps] <OST, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From the Void
-02. Engine Malfunction
-03. The Red Queen
-04. Sea of Tears(   Читать дальше...   )Жанр: OST, ScoreПродолжительность: 01:19:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1500DB8E94E6E9EB5999677480BF8F8280C059A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 272986   (276890) от 20.12.2010
-
-Трон: Наследие / Tron: Legacy (2010) [MP3|320 kbps]<Soundtrack (Score)>
-
->>След.
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276890.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Overture
-02. The Grid
-03. The Son of Flynn
-04. Recognizer
-05. Armory
-06. Arena
-07. Rinzler
-08. The Game Has Changed
-09. Outlands(   Читать дальше...)Жанр: Soundtrack (Score)Продолжительность: 01:11:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73B51976D219E9779990CC1F0A6456E2AA4D5A8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337184   (275860) от 09.11.2019
-
-Ludvig Forssell, VA - Death Stranding (Original Score + Timefall) (2019) [MP3|320 кб/с] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Major Lazer & Khalid - Trigger (02:52)
-02. Au/Ra & Alan Walker - Ghost (02:59)
-03. CHVRCHES - Death Stranding (05:19)
-04. The Neighbourhood - Yellow Box (03:03)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CFB1FE972900F7C910E51FD6B7ED3165370A41A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083589   (273630) от 16.12.2016
-
-James Horner & Simon Franglen - The Magnificent Seven / Великолепная семерка (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rose Creek Oppression (01:55)
-02. Seven Angels of Vengeance (03:25)
-03. Lighting the Fuse (01:22)
-04. Volcano Springs (02:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C49758CBB3D0D54C6C1005E6229BD11B4DFCF132
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1813719   (6608) от 21.08.2025
+
+Владимир Валуцкий | Зимняя вишня (2025) [MP3, Алла Човжик]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владимир Валуцкий (1936–2015) – автор сценариев многих любимых зрителями фильмов («Ярославна, королева Франции», «Король шантажа», «Смертельная схватка» и «Охота на тигра» о приключениях Шерлока Холмса и доктора Ватсона, «Мэри Поппинс, до свидания!» и других). Однако в конце жизни он говорил: «Работа сценариста по природе своей – нервная… Куда проще и приятнее сочинять (   Читать дальше...   )Жанр: Проза, драмаИздательство: Азбука-АттикусПродолжительность: 08:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDB78CC0AF8A08A7B1A36BFCEE08295E4BF9C64A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814058   (6411) от 22.08.2025
+
+Василь Быков | Третья ракета (2025) [MP3, Петров Кирилл]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6411.jpg" />
+</div>
+
+
+###  Подробнее
+
+События произведение происходят в Румынии в 1944 г. во время Великой Отечественной войны. Немецкое наступление прорывает оборону. Советские войска отступили, и расчет противотанковых средств был отрезан от их войск на три дня. Судьба свела в один передний окоп разных людей; они должны были противостоять наступлению вражеских войск. В бой идут немецкие танки. А противостоять (   Читать дальше...   )Жанр: Проза, реализм, военноеИздательство: Аудиокнига своими рукамиПродолжительность: 04:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30A0FFCFB5CFA1D68826FF2CAE1BFBF20AE22011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814111   (6240) от 23.08.2025
+
+Анна Берсенева | Слабости сильной женщины (2021) [MP3, Марина Лисовец]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лера Вологдина учится в аспирантуре истфака, любит мужа Костю и своих венецианских художников, но больше всего всё-таки любит жизнь – всё и всех в ней, а как же иначе? Но на дворе переломные 90-е годы, и жизнь преподносит суровые испытания. Например, маминого лекарства больше нет ни в одной аптеке, что же теперь делать? Лера бросает учёбу, идёт работать «челночницей», (   Читать дальше...   )Жанр: Проза, современные любовные романыИздательство: ВимбоПродолжительность: 15:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF7AFCBF463AD8B55D1F75DF74A0567E1F51348F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813998   (5964) от 25.08.2025
 
 Марк Леви | Лавка запретных книг (2025) [MP3, Алла Човжик]
@@ -6,7 +84,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5964.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5500.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4940.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4086.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4056.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3876.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3853.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2748.jpg" />
 </div>
 
 
@@ -218,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2742.jpg" />
 </div>
 
 
@@ -247,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2062.jpg" />
 </div>
 
 
@@ -274,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1604.jpg" />
 </div>
 
 
@@ -302,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_274.jpg" />
 </div>
 
 
@@ -330,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_208.jpg" />
 </div>
 
 

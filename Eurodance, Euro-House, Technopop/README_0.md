@@ -1,3 +1,32 @@
+###  Публикация: 1004272   (839754) от 05.04.2016
+
+Zodiac - Zodiac (1998) [MP3|320 кб/с] <Electronic, Euro House, Happy Hardcore>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once Again    03:39
+02. Every Time I See You    03:06
+03. Make Believe    03:56
+04. All The Things You Do    03:33(   Читать дальше...   )Жанр: Electronic, Euro House, Happy HardcoreПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE88FCA3C9C984D2CF9224469D242FDCDD32EB62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113231   (838303) от 11.03.2017
 
 VA - Sport Explosion Spring 2017  [MP3|320 Kbps] <Euro Dance, Pop Dance>
@@ -6,7 +35,7 @@ VA - Sport Explosion Spring 2017  [MP3|320 Kbps] <Euro Dance, Pop Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838303.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - This Is Berlin Disco, Vol. 3 (2017) [MP3|320 Kbps] <Disco, EuroDance, House
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836461.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Best Radio Tracks, Vol. 19 (2020) [MP3|320 Kbps] <Dance, Pop, Electronic>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834770.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Acoustic Morning (To Wake Up Well in Your House!) (2017) [MP3|320 Kbps] <Da
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831765.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - GANGSTER MUSIC, Vol. 3 (2021) [MP3|320 Kbps] <Eurodance, Technopop>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824959.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - GANGSTER MUSIC, Vol. 4 (2021) [MP3|320 Kbps] <Eurodance, Technopop>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824944.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - 90's Spirit (2014) 4CD [MP3|320 Kbps] <Eurodance, Euro House>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815424.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ ATB - THE DJ EP (VOL. 01) (2021) [MP3|320 Kbps] <Dance, Pop, Electronic>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813985.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - We Love Italo Dance (3CD) (2013-2015) [MP3|320 кб/с]<Euro Dance, Pop Dan
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801982.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - 90s Festivals Soundtrack 2017 (Special Eurodance Edition) (2017) [MP3|320 K
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801179.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - Hello Spring Party (2017) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799193.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Fitness Hits 2018 [MP3|320 Kbps] <Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796206.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Ministry Of Beat - 100% Strength (2018) [MP3|320 Kbps] <Dance, Eurobeat, Electro
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793938.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ O-Zone - VIP (2005) [MP3|320 Kbps] <EuroDance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788607.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - Танцевальный рай: Hit Mix, Vol. 2 (2018) [MP3|320 Kbps] <Pop
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785219.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Pharao - Best Of Pharao 1994-1998 (2018) [MP3|320 Kbps] <Eurodance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784015.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Justine - You`re My Sunshine (2000) Single [MP3|320 Kbps] <Europop>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782520.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ A-Teens - Feelings (2007) [MP3|320 Kbps] <Pop, Europop, Eurodance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779636.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ A-Teens - Teen Spirit (2001) [MP3|320 Kbps] <Pop, Europop, Eurodance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779102.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ A-Teens - The ABBA Generation (1999) [MP3|320 Kbps] <Pop, Europop, Eurodance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779091.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ A-Teens - Pop 'Til You Drop! (2002) [MP3|320 Kbps] <Pop, Europop, Eurodance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778667.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775603.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ VA - EDM Megamix (2016) [MP3|320 кб/с] <Dance, Eurodance, Club House>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775401.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ VA - #Dance 2018: Club & Dance News Vol.4 (2018) [MP3|320 Kbps] <Dance, Pop, Hou
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775037.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ VA - 90s Dance Hits Vol.1 (2018) [MP3|320 Kbps] <Eurodance, Euro House>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775035.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ VA - 90s Dance Hits Vol.1 (2018) [MP3|320 Kbps] <Eurodance, Euro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7691CC16A6F504F67C13EB79F3C5B6DBA6DB0635
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015462   (774834) от 10.05.2016
-
-Chyp-Notic - 2 Albums, 4 Singles & EPs (1990 - 2015) [MP3|320 кб/с] <Electronic, Synth-pop, Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing compares 2 U   (4:53)
-02. Don't play my song   (4:17)
-03. Free   (4:33)
-04. Love reaction   (3:56)(   Читать дальше...   )Жанр: Electronic, Euro House, Synth-popПродолжительность: 02:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:506D35B69BDA925F8A02D3D94C5CD8DFC34F3E5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

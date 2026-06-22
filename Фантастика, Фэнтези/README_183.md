@@ -1,3 +1,108 @@
+###  Публикация: 578967   (352230) от 21.11.2012
+
+Григорий Шаргородский | Убивец магов. Калибр 9 мм [2012] [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для многих жажда деятельности и приключений со временем сменяется стремлением к покою — тихой семейной жизни на задворках цивилизации. Так случилось и с Андреем Корчаком. Но насладиться этой идиллией ему не дали — в мир обычного человека ворвалась сказка, страшная и жестокая. Далеко не книжные эльфы, равнодушные к человеческой боли овры и тупые, но кровожадные гвулхи. Эта ожившая сказка расколола мир Андрея, как дорогую, но хрупкую вазу. Но эльфы не учли одного: в маленьком городке живет настоящий аданаил — человек, невосприимчивый к магии, единственный, кто еще способен использовать пороховое оружие. Не учли того, что, потеряв все, «мертвый воин» захочет крови своих врагов. Одна маленькая, уже никому не нужная жизнь не позволила поставить в истории человечества точку, изменив ее на запятую.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42B7095A7F58793D4D6858F8F34ED00149930797
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329569   (352122) от 05.10.2019
+
+Тимоти Зан | Траун (2018) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гранд-адмирал Траун, один из самых хитроумных и беспощадных воинов в истории Галактики. Впервые появившись на страницах романа Тимоти Зана «Наследник Империи», Траун занял прочное место среди культовых злодеев вселенной Звёздных Войн. Однако происхождение Трауна и его карьерный рост долгое время были окутаны тайной. И вот перед читателем наконец раскрывается его (   Читать дальше...   )Жанр: Фантастика, Фэнтези, Боевая фантастика, КосмоопераФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1964AE7782FF5A549F594EA60A268325AD58D782
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329587   (351972) от 05.10.2019
+
+Тимоти Зан | Цикл "Трилогия о Трауне" [3 книги] (2016) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наследник Империи:
+Прошло пять лет после того, как погибла вторая Звезда Смерти, Дарт Вейдер уничтожил Императора, а остатки Империи оказались загнанными в далекие уголки Галактики. Легендарный адмирал Акбар, отказавшись от политических дрязг, выходит в отставку. Мало кто предполагал, что отставка Акбара является следствием грандиозной интриги, затеянной последним (   Читать дальше...   )Жанр: Фантастика, Фэнтези, Боевая фантастика, КосмоопераПеревод: Кирилл ПлешковФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08DC5C98A47C0B11BC5E388AB8E958AF6E3A4043
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329573   (351971) от 05.10.2019
+
+Тимоти Зан | Цикл " Рука Трауна" [2 книги] (2018 - 2019) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более девятнадцати лет назад завершилась битва при Йавине. Империя оказалась на краю гибели. Но у нее еще есть шанс на спасение в облике адмирала Пеллаэона. Новая Республика погрузилась в кровавую череду гражданских войн и междоусобиц. Тем не менее, адмирал, чтобы спасти Империю, предлагает заключить мир... И именно сейчас приходит известие о том, что самый хитроумный (   Читать дальше...   )Жанр: Фантастика, Фэнтези, Боевая фантастика, КосмоопераПеревод: Анастасия БугрееваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF32E40F81247FD9C21B92EF8FF93F36669094F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256756   (351885) от 23.10.2018
 
 Андрей Левицкий | Война Зоны (2018) [FB2]
@@ -6,7 +111,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351885.jpg" />
 </div>
 
 
@@ -34,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351807.jpg" />
 </div>
 
 
@@ -62,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351806.jpg" />
 </div>
 
 
@@ -88,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351698.jpg" />
 </div>
 
 
@@ -114,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351669.jpg" />
 </div>
 
 
@@ -142,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351299.jpg" />
 </div>
 
 
@@ -170,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351282.jpg" />
 </div>
 
 
@@ -196,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351180.jpg" />
 </div>
 
 
@@ -222,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351153.jpg" />
 </div>
 
 
@@ -248,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351129.jpg" />
 </div>
 
 
@@ -277,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351114.jpg" />
 </div>
 
 
@@ -305,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350970.jpg" />
 </div>
 
 
@@ -331,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350946.jpg" />
 </div>
 
 
@@ -359,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350813.jpg" />
 </div>
 
 
@@ -385,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350440.jpg" />
 </div>
 
 
@@ -412,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350273.jpg" />
 </div>
 
 
@@ -438,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350153.jpg" />
 </div>
 
 
@@ -464,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350009.jpg" />
 </div>
 
 
@@ -493,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349999.jpg" />
 </div>
 
 
@@ -519,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349754.jpg" />
 </div>
 
 
@@ -547,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349591.jpg" />
 </div>
 
 
@@ -575,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349474.jpg" />
 </div>
 
 
@@ -586,115 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62F439F0E4DC8B90D6222F9B8F383946E16A297B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072891   (349473) от 14.11.2016
-
-Дэвид Линн Гоулмон | Наследие Луны (2016) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349473.jpg" />
-</div>
-
-
-###  Подробнее
-
-США приступили к продолжению своей лунной программы. НАСА уже успешно высадило на поверхность спутника Земли четыре лунохода, готовящих площадку для высадки людей. И тут – неожиданная находка! В лунном грунте обнаружены тела неизвестных космонавтов, а рядом с ними – удивительные вещи, созданные на основе необычайно высоких технологий. Телеизображение с Луны увидел (   Читать дальше...   )Жанр: Зарубежная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5BCDB7A0366F058A869DECA773F53DA1621841C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953351   (349311) от 04.11.2015
-
-Мишель Роман | Времена Бессмертных (2015) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня романа "Времена Бессмертных" Аврора живет в будущем, где изобретен Яд останавливающий старение. Нет привычного уклада жизни, мир разделился на 27 так называемых "бессмертных городов", где жители делятся на 3 классовых уровня. Аврора отправляется с экскурсией на "Окраину", — место проживания изгнанных из города людей. (   Читать дальше...   )Жанр: Социальная фантастика, Любовная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CB91B0D5868D1499D2104006896A91178CF7BB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072832   (349228) от 14.11.2016
-
-Константин Муравьёв | Дальняя застава (2016) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман цикла «Живучий».
-
-Если ты оказался в чужом и необычном мире, сумел не погибнуть по пути сюда, и даже смог как-то устроиться на новом месте, это ещё не значит, что всё уже позади. Это лишь означает, что ты успел увернуться от первого выпада, который приготовила тебе судьба. И скоро сможешь убедиться в этом. Ведь этот первый выпад чаще всего является проверочным. (   Читать дальше...   )Жанр: Боевое фэнтези, Героическая фантастика, ПопаданцыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:116F55C16EA7C7FDCCD80841884D9D10702844DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 155301   (348926) от 29.11.2009
-
-Роман Злотников | Пощады не будет. Грон 5. [2009] [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_348926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение Грона. Первые четыре книги здесь
-http://www.nnm-club.me/forum/viewtopic.php?t=102681
-
-Что будет с миром, если в схватку вступают два мастера? Кто победит, если один из них – жесток, безжалостен и прагматичен, то есть совершенно свободен в целях и средствах, а второй все-таки способен ограничивать себя? Что это – недостаток, из-за которого он обречен проиграть, (   Читать дальше...   )Формат: FB2Качество: форматированный текст
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

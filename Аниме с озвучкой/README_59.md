@@ -1,3 +1,83 @@
+###  Публикация: 1713184   (52516) от 22.06.2024
+
+Любовная лихорадка | Любовная болезнь Хананои | Hananoi-kun to Koi no Yamai | A Condition Called Love [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старшеклассница Хотару Хинасэ, в отличие от других девушек её возраста, относится к любви крайне приземлённо. Она считает, что её время ещё не пришло, и поэтому, вместо того чтобы переписываться с парнями и ходить на свидания, предпочитает проводить время с семьёй и друзьями.
+Другое дело — её одноклассник Саки Хананои. Он, наоборот, всю свою жизнь мечтает о прекрасной (   Читать дальше...   )Производство: Япония / Студия East Fish StudioЖанр: Комедия, романтикаРежиссер: Макино ТомоэЯзык озвучки: Русский (AniLibria.TV); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:998DF8589D22CBFA9548D5C250B6E3C79C3B63C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713136   (52416) от 23.06.2024
+
+Бармен: Божественный стакан | Бармен: Бокал бога | Bartender: Kami no Glass | Bartender: Glass of God [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хороший бар — не просто заведение, где можно выпить. Это атмосферное место, куда люди приходят познакомиться и пообщаться за бокалом любимого напитка.
+На профессиональном сленге барную стойку называют божьей ладонью, и неспроста: это настоящий центр притяжения, и именно там разыгрываются тяжёлые драмы и уморительные комедии. Поэтому в баре главную роль играет не (   Читать дальше...   )Производство: Япония / Студия LiberЖанр: Повседневность, драмаРежиссер: Курая РёитиЯзык озвучки: Русский (AniLibria.TV); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:754EEB570003E9DF8B0890D618D2EA273C050549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732220   (52253) от 24.06.2024
+
+Фейри Тейл [ТВ-2] | Хвост феи 2 | Сказка о Хвосте феи 2 | Fairy Tail 2 [2014, TV, 90 из 90] HDTVRip 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52253.jpg" />
+</div>
+
+
+###  Подробнее
+
+В королевстве Фиор признанные маги объединены в множество гильдий, но для молодой волшебницы Люси Сердоболии существует только одна – легендарная Фейри Тейл, куда она стремится попасть с начала сознательной жизни. Эта гильдия славится как силой и способностями своих магов, так и их экстравагантностью и бесконечным соперничеством между собой. В итоге магическое лекарство (   Читать дальше...   )Производство: Япония / Студия A-1 Pictures, BridgeЖанр: приключения, комедия, фэнтези, сёнэнРежиссер: Исихира СиндзиПеревод: Мария Гостюхина (Maria) и Jenia aka ZubЯзык озвучки: Русский (Anything-group); ЯпонскийСубтитры: Русские (софтсаб полные)Продолжительность: ТВ-2 (90 эп.) по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4AF4F00ACCD1903EF1F5323C5ED3003E76767EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690901   (52176) от 25.06.2024
 
 Лунное путешествие [ТВ-2] | Tsuki ga Michibiku Isekai Douchuu Dai Ni Maku | Tsukimichi: Moonlit Fantasy 2 [2024, TV, 25 из 25] WEBRip 1080p Raw+Rus
@@ -6,7 +86,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52176.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52150.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ Keiken Zumi na Kimi to, Keiken Zero na Ore ga, Otsukiai Suru Hanashi | Исто�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52042.jpg" />
 </div>
 
 
@@ -85,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51889.jpg" />
 </div>
 
 
@@ -112,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51651.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51637.jpg" />
 </div>
 
 
@@ -164,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51575.jpg" />
 </div>
 
 
@@ -191,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51515.jpg" />
 </div>
 
 
@@ -217,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51365.jpg" />
 </div>
 
 
@@ -244,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51312.jpg" />
 </div>
 
 
@@ -271,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51300.jpg" />
 </div>
 
 
@@ -297,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51295.jpg" />
 </div>
 
 
@@ -324,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51254.jpg" />
 </div>
 
 
@@ -351,7 +431,7 @@ B Gata H Kei | Yamada's First Time | Второй размер, интим пр�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51211.jpg" />
 </div>
 
 
@@ -377,7 +457,7 @@ Kimitachi wa Dou Ikiru ka | The Boy and the Heron | Мальчик и птица
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51161.jpg" />
 </div>
 
 
@@ -403,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51153.jpg" />
 </div>
 
 
@@ -429,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51109.jpg" />
 </div>
 
 
@@ -457,7 +537,7 @@ Kimitachi wa Dou Ikiru ka | The Boy and the Heron | Мальчик и птица
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51107.jpg" />
 </div>
 
 
@@ -483,7 +563,7 @@ Kage no Jitsuryokusha ni Naritakute! 2nd Season | The Eminence in Shadow 2nd Sea
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50906.jpg" />
 </div>
 
 
@@ -509,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50594.jpg" />
 </div>
 
 
@@ -539,7 +619,7 @@ Jiisan Baasan Wakagaeru | Дедушка и бабушка вновь стали
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50163.jpg" />
 </div>
 
 
@@ -565,7 +645,7 @@ NieR:Automata Ver1.1a | Ниер: Автомата [ТВ-1] [2023, TV, 12 из 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49331.jpg" />
 </div>
 
 
@@ -591,7 +671,7 @@ Vampire in the Garden | Вампир в саду [2022, Web, 5 из 5] WEB-DL 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48381.jpg" />
 </div>
 
 
@@ -602,84 +682,6 @@ Vampire in the Garden | Вампир в саду [2022, Web, 5 из 5] WEB-DL 10
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB3C04173DBA0B5AA1FA8CD184648E052EE8423C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699127   (47910) от 04.08.2024
-
-Sousou no Frieren | Frieren: Beyond Journey's End | Провожающая в последний путь Фрирен [2023, TV, 28 из 28] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владыка Тьмы повержен, и вместе с тем подошло к концу путешествие героя Химмеля и его отряда. Шли годы, все они разбрелись кто куда, но только эльфийке-долгожительнице Фрирен десятилетия показались мгновением, и однажды на её плечи легла тяжесть осознания того, что людской век ужасно скоротечен. В конце концов эльфийка решает во чтобы то ни стало исполнить предсмертные (   Читать дальше...   )Производство: студия Madhouse / マッドハウスЖанр: приключения, фэнтезиРежиссер: Сайто КэйитироЯзык озвучки: Японский, русский (AniLibria, Studio Band, AniPlague)Субтитры: Русские (Crunchyroll, YakuSub Studio), английские (Crunchyroll)Продолжительность: 28 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC99B9810539FEC2AB5602DA6477F2FBDB91B509
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741985   (47375) от 09.08.2024
-
-Isekai wa Smartphone to Tomo ni. | In Another World With My Smartphone | В другом мире со смартфоном [2017, TV, 12] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Парень по имени Мочизуки Тоя погиб из-за ошибки Бога и возродился в другом мире, где он начинает свою новую жизнь. У него остались только его тело, которое ему вернул Бог, и смартфон, который работает даже в новом мире. Он встречает много новых людей, заводит друзей и узнаёт секреты этого мира. К нему перешло наследие древней цивилизации и в его беззаботных путешествиях (   Читать дальше...   )Производство: Ashi ProductionsЖанр: приключения, комедия, фэнтезиРежиссер: Янасэ ЮдзиЯзык озвучки: Японский, Русский (AniLibria, Animedia, KANSAI Studio, Crunchyroll)Субтитры: Русские (полные: AniPlay, CrunchyRoll, Keitaro, SovetRomantica, Sovetromantica {c переводом опенинга и эндинга}), Русские (надписи: Sovetromantica ), Английские, КитайскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39B4AE6B1DAB707524D10DC6F5173C372CE80698
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578416   (46790) от 15.08.2024
-
-Jaku Chara Tomozaki-kun | Bottom-tier Character Tomozaki | Низкоуровневый персонаж Томодзаки [ТВ-1] [2021, TV, 12 из 12 + 2 OVA] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старшеклассник Фумия Томодзаки обожает игры, но только не игру под названием «жизнь». Он уверен, что её правила раздуты, цель неопределенна, а чересчур высокое разрешение графики выдаёт в персонаже Томодзаки все внешние недостатки. Но однажды он встречает девушку, которая знает некоторые приёмы, помогающие облегчить «прохождение».Производство: Project No.9Жанр: комедия, романтикаРежиссер: Янаги СинсукэЯзык озвучки: Японский, русский (AniLibria, Wakanim)Субтитры: Русские (Wakanim)Продолжительность: 12 эп. по 25 мин., 2 эп. по 15 мин (OVA)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAB063BC61ECDD7ED54BCB4188A2B82F34739B42
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_713269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_713269.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ U.D.O. - Steelhammer: Live From Moscow (2014) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709923.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706317.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Bryan Ferry - Live At Glastonbury Festival (2014) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703824.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ The Alan Parsons Symphonic Project - Live In Colombia '2013 (2016) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703689.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ A-HA прощальный концерт / A-Ha - Ending on a High Note - The Fi
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_701063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_701063.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Beth Hart - Live From New York (Front And Center) (2018) DVD5 [Custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696631.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Uriah Heep - Easy Livin' (A History Of)'1986 DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695008.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Brian Setzer - Brian Setzer's Rockabilly Riot! Osaka Rocka! Live In Japan (2016)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694950.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ David Garrett - Rock Symphonies (Open Air Live) (2010) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690546.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Thunder - Stage (2018) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687246.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Paul McCartney - Live at the BBC (2013) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679588.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Swinging Bach. Bobby McFerrin and Guests (Live in Leipzig) (2000) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678186.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677130.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676363.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Leonard Cohen - Live in Dublin '2013 2xDVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674142.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Foreigner - With The 21st Century Symphony Orchestra & Chorus (2017) 2xDVD5 [cus
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673191.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665937.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664793.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Buddy Guy Luganno Estival Jazz  (2008) HDTV
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_659263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_659263.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_657781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_657781.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ David Gilmour - Live in Wroclaw (2016) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650914.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ The Flying Dutchman / Andre Rieu -  The Flying Dutchman (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_646969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_646969.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ AC/DC - Backtracks [Deluxe Edition] "Live At The Circus Krone" (2003/2009) DVDRi
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_646967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_646967.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ W.A.S.P. - Live At The Lyceum, London (1984) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646380.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ Vaya Con Dios - Live 2005 & 2006 (2016) TVRip>DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645449.jpg" />
 </div>
 
 

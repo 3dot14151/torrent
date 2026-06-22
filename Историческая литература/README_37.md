@@ -1,3 +1,107 @@
+###  Публикация: 1400651   (716723) от 06.08.2020
+
+Александр Никонов | Исчезнувшие цивилизации. Взаимосвязь культур и парадоксы истории (2020) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хорошо ли человечеству известно его собственное прошлое? История нашей цивилизации, которую мы все изучали в школе, представляется нам в виде увесистого академического тома, успокаивающего душу. Она просматривается вся – от палки-копалки до покорения атома. Но что, если у нас позади больше неизвестного, чем известного? Тогда этот том превращается в несколько жалких (   Читать дальше...   )Жанр: Популярно об историиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20941C6D0F743B89BC8AD8ADF79A441FCF432B82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130306   (716146) от 01.05.2017
+
+И.А. Ильф, Е.П. Петров | В краю непуганых идиотов (2017) [FB2, RTF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716146.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Обязательно записывайте, – часто говорил Ильф своему соавтору, – все проходит, все забывается. Я понимаю – записывать не хочется. Хочется глазеть, а не записывать. Но тогда нужно заставить себя». Факты, события, мельчайшие детали, а главное, портреты странных, чудаковатых, нелепых и недалеких соотечественников – все это, взятое из записных книжек и вроде бы написанное (   Читать дальше...   )Жанр: Биографии и мемуарыФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7662EFB99C22D8E6335131824311007E498A209C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024544   (716032) от 09.06.2016
+
+Б.В. Базаров (гл. ред.) | История Бурятии в 3-х томах (2011) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторский коллектив подготовил «Историю Бурятии» в трех томах - красочных, объемных и информативно насыщенных. В них удалось изложить основные вехи и события региональной истории и важнейшие, определившие их суть факты.Жанр: История, Краеведение, ЭтнографияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AE4863D36BD5C28DC3B0C305276DA2771EAEEE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024844   (713667) от 10.06.2016
+
+А. А. Тюняев | Москва: Чертоги Мокоши (2011) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713667.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу исследования положены археологические, антропологические, лингвистические, мифологические, религиоведческие, топонимические, географические и другие данные. Города великих держав, главной из которых являлась Древнейшая Русь, получали свои названия от имён великих предков. Точно по этому принципу Москва получила своё название от великой богини Космоса, самой (   Читать дальше...   )Жанр: ИсториографияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA68D315A61B4365531A93CCD426AA7A0D1CBD49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401059   (712987) от 08.08.2020
 
 Марселен Дефурно | Повседневная жизнь в эпоху Жанны д'Арк (2002) [FB2]
@@ -6,7 +110,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712987.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712845.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712572.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712557.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712547.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712051.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711968.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711965.jpg" />
 </div>
 
 
@@ -219,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711963.jpg" />
 </div>
 
 
@@ -245,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711918.jpg" />
 </div>
 
 
@@ -271,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711650.jpg" />
 </div>
 
 
@@ -297,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711220.jpg" />
 </div>
 
 
@@ -325,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710795.jpg" />
 </div>
 
 
@@ -351,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710738.jpg" />
 </div>
 
 
@@ -377,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710673.jpg" />
 </div>
 
 
@@ -403,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710524.jpg" />
 </div>
 
 
@@ -429,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709719.jpg" />
 </div>
 
 
@@ -458,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709014.jpg" />
 </div>
 
 
@@ -484,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708789.jpg" />
 </div>
 
 
@@ -510,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707525.jpg" />
 </div>
 
 
@@ -536,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707404.jpg" />
 </div>
 
 
@@ -563,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706979.jpg" />
 </div>
 
 
@@ -574,112 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B414371F987E58B680C202B7B8423C52D71C286D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402010   (705617) от 12.08.2020
-
-Willard M. Oliver | The Birth of the FBI / Рождение ФБР (2019) [PDF] [EN]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большинство людей считают, что Федеральное бюро расследований возникло при Дж. Эдгаре Гувере в 1920-х или 1930-х годах. Многие также естественно предполагают, что оно было разработано специально для борьбы с преступностью. Однако в действительности все обстоит иначе. На самом деле всё началось гораздо раньше, в 1908 году, при президенте Теодоре Рузвельте. В книге (   Читать дальше...   )Жанр: ИсторияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AE7BA6EB4981B9BF4D8998AD5E15DA1FEA932ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287134   (705516) от 06.03.2019
-
-А. Л. Мортон, Д. Тэйт | История английского рабочего движения [1770-1920] (1959) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рабочее движение Великобритании имеет славные традиции. Долог и сложен пройденный им двухсотлетний путь. История развития и борьбы, побед и неудач рабочего класса этой старейшей капиталистической страны чрезвычайно поучительна. Она показывает, что в английском народе никогда не угасало стремление к подлинной демократии — демократии для трудящихся. Эта история помогает (   Читать дальше...   )Жанр: История, политология, публицистика, экономика, социологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8D4026BC55EDEF83FBDE4E74A604C77B81E9F65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131869   (705413) от 07.05.2017
-
-В. К. Никольский | Семья и брак в прошлом и настоящем (1936) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брошюра объясняет, когда и как возникла семья и какие формы принимала она у различных классов на различных ступенях общественного развития. Она показывает, как Великая пролетарская социалистическая революция и победа социализма в СССР положили конец вековому угнетению женщины и привели к созданию высшей, социалистической формы семьи.
-
-Брошюра разъясняет закон советского (   Читать дальше...   )Жанр: История, политология, экономика, культурологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50BF311D08B247CAFA0C6E7E027F336197E2B367
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131908   (705226) от 07.05.2017
-
-Л. Я. Островский | Рабочее время по советскому трудовому законодательству (1963) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705226.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматриваются вопросы правового регулирования рабочего времени; исследуется правовая природа и виды рабочего дня, понятие и виды рабочей недели; освещается правовое регулирование и практика распределения рабочего времени в условиях семичасового рабочего дня; особо исследуются применяющиеся на предприятиях режимы рабочего времени на непрерывном производстве (   Читать дальше...   )Жанр: История, политология, экономика, правоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AEECC2DAAA3D26E007D934ED927C39F0912B9B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

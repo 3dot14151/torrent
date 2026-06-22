@@ -1,3 +1,29 @@
+###  Публикация: 1010639   (801944) от 25.04.2016
+
+Battle of Empires: 1914-1918 / Битва империй: 1914-1918 (2015) [Ru] (1.434/dlc) License POSTMORTEM
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Битва Империй 1914-1918 - тактическая RTS, посвященная одной из самых кровопролитных войн человечества - Первой Мировой. Игра покажет все особенности той войны - окопные схватки, первые танковые битвы, диверсионные задания, газовые атаки и оглушительные артобстрелы.Тип издания: POSTMORTEMРазработчик: Great War TeamЖанр: Strategy (Real-time, Tactical), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Украинский, Английский и другиеЯзык интерфейса: Русский, Украинский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D15852C8DF2EC14411B3FD52CAEBDD5E44F6D996
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010583   (801915) от 25.04.2016
 
 Battle of Empires: 1914-1918 / Битва империй: 1914-1918 (2015) [Ru] (1.434/dlc) License PLAZA
@@ -6,7 +32,7 @@ Battle of Empires: 1914-1918 / Битва империй: 1914-1918 (2015) [Ru] 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801915.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ XCOM: Chimera Squad (2020) [Ru/Multi] (1.0.0.46049) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800687.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ The Banner Saga Collection (2014-2016) [Ru/Multi] (2.36.15/2.39.02) SteamRip Let
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799055.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Call to Arms (2018) [Ru/Multi] (1.228.0/dlc) License CODEX [Ultimate Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798180.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Void Eclipse (2021) [En] (1.00) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798048.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Nantucket (2018) [En] (1.0a) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796728.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Skulls of the Shogun (2013) [Ru/Multi] (1.1.0.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796130.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Age of Wonders: Planetfall (2019) [Ru/En] (1.300.41692/dlc) Repack Other s [Prem
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795739.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Door Kickers: Action Squad (2018) [Ru/Multi] (1.2.13dlc1rc1) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794546.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ The Banner Saga 3 (2018) [Ru/Multi] (2.61.03/dlc) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792796.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ The Banner Saga 3 (2018) [Ru/Multi] (2.60.22/dlc) License GOG [Legendary Edition
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792724.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Ancestors Legacy (2018) [Ru/Multi] (64685/dlc) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790577.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ CountryBalls Heroes (2021) [Ru/Multi] (7722318) License PLAZA
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788304.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Warhammer 40,000: Space Wolf (2017) [Ru/Multi] (1.1.8/dlc) License GOG [Complete
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788266.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.02.00/dlc) Licens
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787989.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Scourge of War: Wavre (2015) [En/Fr/It] (1.0.0.0/dlc) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786472.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Shock Tactics (2017) [Ru/Multi] (1.0.6158) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785496.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Wargame Trilogy (2012-2014) [Ru/Multi] (17.08.17.670000744/17.09.18.2100001621/1
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785191.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ This War of Mine (2014) [Ru/Multi] (4.0.0(a)/dlc) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784812.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784567.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783831.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Sudden Strike 4 (2017) [En] (1.06/dlc) License RELOADED
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783710.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Attack of the Earthlings (2018) [Ru/Multi] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783703.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Codex of Victory (2017) [Ru/Multi] (1.0.2mx) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780462.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Warhammer 40,000: Armageddon - Da Orks (2016) [Ru/Multi] (1.00) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779725.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Warhammer 40,000: Armageddon: Da Orks - вторая часть в серии в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:566E74DB1E289FA1743E9B3A68B207A7B159B0E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150240   (779553) от 24.02.2018
-
-Stars in Shadow (2017) [En] (21910/dlc) License GOG
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stars in Shadow это пошаговая научно-фантастическая игра жанра «4X». Исследуйте звезды, заселяйте дальние миры и стройте межзвездную империю. Воссоздавайте древние технологии и ведите переговоры с инопланетными лидерами. В игре Stars in Shadow, которую создали двое заядлых любителей стратегий, представлено оптимизированное управление империей, тщательно продуманные (   Читать дальше...   )Тип издания: LicenseРазработчик: Ashdar GamesЖанр: Стратегия, Пошаговая, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C17ED5E0F8609455F44FA5F57C83CFF991EF83BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

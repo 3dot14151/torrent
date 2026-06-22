@@ -1,3 +1,426 @@
+###  Публикация: 1021655   (731649) от 30.05.2016
+
+Эдди «Орел» / Eddie the Eagle (2015) WEB-DLRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм повествует о трамплинисте Эдди, по прозвищу «Орел». Он прославился благодаря своим неудачам, ибо на всех соревнованиях он занимал последние места.Производство: Великобритания, США, ГерманияЖанр: Драма, комедия, биография, спортРежиссер: Декстер ФлетчерАктеры: Тэрон Эджертон, Хью Джекман, Кристофер Уокен, Джо Хартли, Том Костелло, Кит Аллен, Дикон Толсон, Джек Костелло, Марк Бентон, Тим МакИннерниПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Английские форсированные, Украинские форсированные, Русские, Английские, УкраинскиеПродолжительность: 01:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66FB4ABA0ADE5DB00A65C9D153F352AB457E9815
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021716   (731534) от 30.05.2016
+
+Эдди «Орел» / Eddie the Eagle (2015) WEB-DL [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм повествует о трамплинисте Эдди, по прозвищу «Орел». Он прославился благодаря своим неудачам, ибо на всех соревнованиях он занимал последние места.Производство: Великобритания, США, ГерманияЖанр: Драма, комедия, биография, спортРежиссер: Декстер ФлетчерАктеры: Тэрон Эджертон, Хью Джекман, Кристофер Уокен, Джо Хартли, Том Костелло, Кит Аллен, Дикон Толсон, Джек Костелло, Марк Бентон, Тим МакИннерниПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Английские форсированные, Украинские форсированные, Русские, Английские, УкраинскиеПродолжительность: 01:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:729DCC73DC9BD25A9FF43F61F8E482A0C6336579
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021649   (731532) от 30.05.2016
+
+Эдди «Орел» / Eddie the Eagle (2015) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм повествует о трамплинисте Эдди, по прозвищу «Орел». Он прославился благодаря своим неудачам, ибо на всех соревнованиях он занимал последние места.Производство: Великобритания, США, ГерманияЖанр: Драма, комедия, биография, спортРежиссер: Декстер ФлетчерАктеры: Тэрон Эджертон, Хью Джекман, Кристофер Уокен, Джо Хартли, Том Костелло, Кит Аллен, Дикон Толсон, Джек Костелло, Марк Бентон, Тим МакИннерниПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Английские форсированные, Украинские форсированные, Русские, Английские, УкраинскиеПродолжительность: 01:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC19F2B81CB5C7F51D70417EF6C2558F60375C9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284069   (730971) от 19.02.2019
+
+Один король — одна Франция / Un peuple et son roi (2018) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Масштабная историческая картина о Великой французской революции. В центре событий молодая пара влюбленных — Базиль и Франсуаза, судьбы которых буквально «намотало» на маховик истории.Производство: Франция, БельгияЖанр: ДрамаРежиссер: Пьер ШоллерАктеры: Гаспар Ульель, Адель Энель, Оливье Гурме, Луи Гаррель, Изиа Ижлен, Ноэми Львовски, Селин Саллетт, Дени Лаван, Жоан Либеро, Анджей ХыраПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 02:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F24B02B2ED604028D16B36040187B12F0ECCD293
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529760   (730965) от 09.02.2022
+
+VA - Cooked, Vol. 2 (2019) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Other Side (4:23)
+02. Lounge Groove Avenue - Hold You Tight (3:46)
+03. Charlie North - Finding Love (4:32)
+04. Dominik Pointvogl - Berlin Rooftop (7:36)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, Smooth JazzПродолжительность: 01:32:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F96402A8068669F38DC9602396561F25A696AA94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529757   (730961) от 09.02.2022
+
+VA - Cooked, Vol. 1 (2017) [AAC|~341 Kbps] <Lounge, Chill Out, Downtempo, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Florito - A La Playa (5:29)
+02. Urban Phunk Society - Night Train (3:21)
+03. Svendaq - La Chill Fusion (3:46)
+04. Roberto Sol - My Decision (Extended Mix) (5:10)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, Smooth JazzПродолжительность: 02:20:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F49C3AE7968D55C3829A960D378A8090C594B5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529772   (730958) от 09.02.2022
+
+VA - Colours of Lounge, Vol. 3 (2022) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stuce The Sketch - Resonating Love (Original Mix) (5:02)
+02. Marc Hartman - Solar Eclipse (Original Mix) (5:27)
+03. Newton - Do What U Wanna Do (Original Mix) (3:38)
+04. Weber & Weber - Rebel Stakes (Original Mix) (5:01)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:21:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D55C7345CC4530E32B26FAE2D24187FF2EB28125
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530011   (730954) от 09.02.2022
+
+VA - Antigua Orange: Urban Chillout Music (2022) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leo de la Rosa, Maneela - Playa Azul (4:04)
+02. Martin Hiska, Michael Moses - Call of the Sea (3:52)
+03. Chillson, Marc Hartman - All so Smooth (Original Mix) (4:06)
+04. The Soul Crusaders - Fantasy or Reality (4:10)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:59:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBD6D475B2E2478FF7C04E0130372D752054FB59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530016   (730951) от 09.02.2022
+
+VA - Future Avenue Winter 2022 (2022) [AAC|~337 Kbps] <Progressive House, Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arnold T., Alain Pauwels - Nexus 8 (9:17)
+02. Hyunji-A - Memories in Sepia (Jhonny LP & Andrea a Remix) (7:29)
+03. Saléh (NL), Around Us - Symphony of the Night (7:13)
+04. Xspance - Harmonic Freefall (8:09)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 03:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2F6041E2E9687EF485F6EFEEC06799E62096DB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530013   (730947) от 09.02.2022
+
+VA - Blue Sailing: Chillout Your Mind (2022) [AAC|~341 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beamy - Elmwood (4:37)
+02. Marga Sol - What I Long For (Chill Mix) (5:24)
+03. Gary B - Bring Me Hope (Original Mix) (3:24)
+04. Michael e - Infinite Beauty (Original Mix) (4:54)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E07335785ECE1B0ACC5FBE53112E2CB6E22BB4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529831   (730901) от 09.02.2022
+
+VA - Divas of Pop Lounge - Smooth Breathtaking Vocal Selection (2018) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Lagoona, Nora Jaxas - Be as I Am (Soulful Pop Mix) (4:00)
+02. Chilhouette - The Meaning (4:43)
+03. Bossana - Call Me (4:51)
+04. Soul Magnet - Living for the Moment (Radio Version) (3:20)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20A864F8A28DE6B4B6ACAAE92F2F2DC1FCA6E9E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530005   (730900) от 09.02.2022
+
+VA - Chillout & Lounge Classics, Volume One (2022) [AAC|~297 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leisure Pleasure - Grape Leaves (5:54)
+02. Diario - The Love That Remains (6:01)
+03. Aqua Mundi - Chuchaqui (5:47)
+04. Crossing Colors - Bright Sun Rays (5:33)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:891C8101FD33DFD588D47FAF3EB6C14CD162F8CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529999   (730899) от 09.02.2022
+
+Blank & Jones, Julian & Roman Wasserfuhr - Relax - Jazzed 1 (2012) [AAC|~324 Kbps] <Jazz, Chill Out, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazy Life (Jazzed) (2:57)
+02. Perfect Silence (Jazzed) (5:39)
+03. Relax (Your Mind) (Jazzed) (6:24)
+04. Hideaway (Jazzed) (5:48)(   Читать дальше...   )Жанр: Jazz, Chill Out, LoungeПродолжительность: 00:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19437559F4B9DBCBAA7F8803686DA20716B87C5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529763   (730898) от 09.02.2022
+
+VA - Cooked, Vol. 3 (2022) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ingo Herrmann - Green Earth (2:15)
+02. Living Room - Waikiki Beach Dreaming (Short Dreaming) (1:42)
+03. Area Code 51 - Chasing Stars (3:14)
+04. Chillson - It s Allright (4:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, Smooth JazzПродолжительность: 01:22:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48A1ED8060E7998D02D3FF91A3346384DA37FADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530009   (730897) от 09.02.2022
+
+VA - Ibiza Sunset Disco Session, Vol. 1 (2022) [AAC|~322 Kbps] <House, Nu Disco, Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy P - Last Knockers (Mr. Tea Remix) (6:42)
+02. Jayl Funk, Quincy Jointz, Georges Perin - Give Me Love (4:11)
+03. Lakeshouse - Firkanta (6 AM Sensual Dub Mix) (9:59)
+04. The Funk District - Let's Rock Some More (Original Mix) (7:07)(   Читать дальше...   )Жанр: House, Nu Disco, Deep HouseПродолжительность: 02:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B44C21468D2234C4645324BDDF850BB196A64E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1529770   (730896) от 09.02.2022
 
 VA - Trance 2021 Top 100 (2022) [AAC|~327 Kbps] <Trance>
@@ -6,7 +429,7 @@ VA - Trance 2021 Top 100 (2022) [AAC|~327 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730896.jpg" />
 </div>
 
 
@@ -35,7 +458,7 @@ Cafe De Anatolia, Professor - Ethno World (2020) [AAC|~294 Kbps] <Chill Out, Dow
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730894.jpg" />
 </div>
 
 
@@ -64,7 +487,7 @@ VA - Melodica, Vol. 10 (2022) [AAC|~341 Kbps] <Progressive House, Melodic House 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730889.jpg" />
 </div>
 
 
@@ -93,7 +516,7 @@ VA - Sexy Lounge Voices - Deep Chillout Diva Vibrations (2019) [AAC|~308 Kbps] <
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730887.jpg" />
 </div>
 
 
@@ -122,7 +545,7 @@ VA - Hot All Night - Erotic Background Chill Out Lounge Music for Lovers (2016) 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730885.jpg" />
 </div>
 
 
@@ -151,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730873.jpg" />
 </div>
 
 
@@ -177,7 +600,7 @@ Masafumi Takada - Evil Within (2014) [AAC|WEB-DL|256 Kbps]<Score>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730809.jpg" />
 </div>
 
 
@@ -206,7 +629,7 @@ VA - Erotic Moments (2022) [AAC|~297 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730778.jpg" />
 </div>
 
 
@@ -235,7 +658,7 @@ Enigma - Le Roi est mort, vive le Roi! (1996) [AAC|~320 Kbps] <Electronic, Downt
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730775.jpg" />
 </div>
 
 
@@ -264,7 +687,7 @@ Enigma - The Screen Behind the Mirror (2000) [AAC|~317 Kbps] <Electronic, New Ag
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730773.jpg" />
 </div>
 
 
@@ -293,7 +716,7 @@ Cafe De Anatolia, Stephane Salerno, Jack Essek - Ethno World 2 (2020) [AAC|~313 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730772.jpg" />
 </div>
 
 
@@ -307,406 +730,6 @@ Cafe De Anatolia, Stephane Salerno, Jack Essek - Ethno World 2 (2020) [AAC|~313 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DCC66C9864F42D21EF7B8666FA86048F47B22A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529884   (730764) от 09.02.2022
-
-Vysotsky - Vysotsky Sings His Favorites (1982) [AAC|~321 Kbps] <Pop, Chanson, Ballad>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Is Not Evening Yet (2:44)
-02. Black Gold (2:48)
-03. Moving Of Souls (2:09)
-04. 07 (2:33)(   Читать дальше...   )Жанр: Pop, Chanson, BalladПродолжительность: 00:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5211B680406C6B9246F53793CFD4B004D601BF38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021891   (730675) от 31.05.2016
-
-Эдди «Орел» / Eddie the Eagle (2015) WEB-DLRip [480p] iPod
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм повествует о трамплинисте Эдди, по прозвищу «Орел». Он прославился благодаря своим неудачам, ибо на всех соревнованиях он занимал последние места.Производство: Великобритания, США, ГерманияЖанр: Драма, комедия, биография, спортРежиссер: Декстер ФлетчерАктеры: Тэрон Эджертон, Хью Джекман, Кристофер Уокен, Джо Хартли, Том Костелло, Кит Аллен, Дикон Толсон, Джек Костелло, Марк Бентон, Тим МакИннерниПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Английские форсированные, Украинские форсированные, Русские, Английские, УкраинскиеПродолжительность: 01:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB666CEEFCC9E93B5BED5849D121924577B96B86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021290   (730490) от 31.05.2016
-
-Харуки Мураками | Хроники Заводной Птицы (2011) [M4B|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман «Хроники Заводной Птицы» Харуки Мураками — произведение поистине джойсовского масштаба. Ужас Второй мировой войны и судьба нашего современника в Японии, письма, мистические сны, воспоминания, журнальные статьи, закодированные файлы — цельное полотно, сотканное из невероятных событий, тонкой иронии и неподражаемой интонации Харуки Мураками, который сам сказал (   Читать дальше...   )Жанр: романПеревод: Иван Логачёв и Сергей ЛогачёвФормат: M4BПродолжительность: 30:41:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86A4E62C6904911AB665D1DD7E9ADD8588CD190A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022082   (730346) от 31.05.2016
-
-Экипаж  (2016) BDRip [576p] iPad
-
->>Аудио и Видео
->>Отечественное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730346.jpg" />
-</div>
-
-
-###  Подробнее
-
-История талантливого молодого летчика Алексея Гущина. Он не признает авторитетов, предпочитая поступать в соответствии с личным кодексом чести. За невыполнение абсурдного приказа его выгоняют из военной авиации, и только чудом он получает шанс летать на гражданских самолетах.
-Гущин начинает свою летную жизнь сначала. Его наставник — командир воздушного судна — суровый (   Читать дальше...   )Производство: РоссияЖанр: Драма, приключения, триллерРежиссер: Николай ЛебедевАктеры: Данила Козловский, Владимир Машков, Агне Грудите, Сергей Кемпо, Катерина Шпица, Сергей Шакуров, Сергей Газаров, Елена Яковлева, Алёна Бабенко, Сергей РомановичПеревод: Не требуетсяСубтитры: НетПродолжительность: 02:17:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C7C2562E09837995903AA9B420046B081468A2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284023   (730014) от 20.02.2019
-
-Один король — одна Франция / Un peuple et son roi (2018) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Масштабная историческая картина о Великой французской революции. В центре событий молодая пара влюбленных — Базиль и Франсуаза, судьбы которых буквально «намотало» на маховик истории.Производство: Франция, БельгияЖанр: ДрамаРежиссер: Пьер ШоллерАктеры: Гаспар Ульель, Адель Энель, Оливье Гурме, Луи Гаррель, Изиа Ижлен, Ноэми Львовски, Селин Саллетт, Дени Лаван, Жоан Либеро, Анджей ХыраПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 02:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B937B9BAAFB162B5E8B0B571B9D5CF8131B4D6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284275   (729936) от 20.02.2019
-
-Интервью с Богом / An Interview with God (2018) WEB-DL [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729936.jpg" />
-</div>
-
-
-###  Подробнее
-
-История перспективного журналиста Пола, чья вера подвергается проверке при попытке взять интервью у человека, называющего себя Богом.Производство: СШАЖанр: Драма, детективРежиссер: Перри ЛэнгАктеры: Брентон Туэйтс, Дэвид Стрэтэйрн, Яэль Гробглас, Хилл Харпер, Чарлби Дин Крик, Бобби Ди Чикко, Миган Кимберли СмитПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B3DB538B54B6D28287097B5BE19B1D67FBB72C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530188   (729920) от 10.02.2022
-
-∆AIMON - ∆AIMON (2013) [AAC|~340 Kbps] <Electronic, Industrial, Witch House, Darkwave>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729920.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. vargtimmen (3:29)
-1.02. Seraphim (4:05)
-1.03. dissolvte (4:59)
-1.04. LOW (4:32)(   Читать дальше...   )Жанр: Electronic, Industrial, Witch House, DarkwaveПродолжительность: 01:34:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D4AE282EF3B6436B36B411EA90886830591D6B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530149   (729919) от 10.02.2022
-
-Kevin Ayers - Original Album Series (2014) [AAC|~354 Kbps] <Psychedelic Rock, Progressive Rock, Pop-Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729919.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Joy of a Toy Continued (2:54)
-1.02. Town Feeling (4:51)
-1.03. The Clarietta Rag (3:20)
-1.04. Girl on a Swing (2:50)(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive Rock, Pop-RockПродолжительность: 03:15:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F08A724FB98BDEE89615ABACEBCDEEF0F99184B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284251   (729832) от 20.02.2019
-
-Интервью с Богом / An Interview with God (2018) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729832.jpg" />
-</div>
-
-
-###  Подробнее
-
-История перспективного журналиста Пола, чья вера подвергается проверке при попытке взять интервью у человека, называющего себя Богом.Производство: СШАЖанр: Драма, детективРежиссер: Перри ЛэнгАктеры: Брентон Туэйтс, Дэвид Стрэтэйрн, Яэль Гробглас, Хилл Харпер, Чарлби Дин Крик, Бобби Ди Чикко, Миган Кимберли СмитПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AAE6AE7BF10A58902323863FCFF9C0E5DD329C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127797   (729731) от 23.04.2017
-
-О любви  (2017) WEB-DLRip [576p] iPad
-
->>Аудио и Видео
->>Отечественное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Петербурженка Нина — студентка, жена молодого красавца-профессора, который знает китайский язык и учения Поднебесной, похоже, лучше, чем окружающую российскую действительность. Нина убеждена, что супружеская верность и смирение и есть любовь. Но всё меняется, когда в её жизни появляется банкир Сергей...Производство: РоссияЖанр: драмаРежиссер: Владимир БорткоАктеры: Анна Чиповская, Алексей Чадов, Анна Ковальчук, Александр Лыков, Дмитрий Певцов, Светлана Хомич, Ольга Павлюкова, Клавдия БеловаПеревод: Не требуетсяСубтитры: НетПродолжительность: 01:34:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF7A0F424B71971EF39756B691794570D2C8D65A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284228   (729587) от 20.02.2019
-
-Зелёная книга / Green Book (2018) WEB-DL [1080p] ATV (MVO)
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утонченный светский лев, богатый и талантливый музыкант нанимает в качестве водителя и телохранителя человека, который менее всего подходит для этой работы. Тони «Болтун» — вышибала, не умеющий держать рот на замке и пользоваться столовыми приборами, зато он хорошо работает кулаками. Это турне навсегда изменит жизнь обоих.Производство: США / Participant Media, DreamWorks, Amblin PartnersЖанр: Комедия, Драма, БиографияРежиссер: Питер ФарреллиАктеры: Вигго Мортенсен, Махершала Али, Линда Карделлини, Себастьян Манискалко, Димитар Маринов, Майк Хаттон, П.Дж. Бирн, Джозеф Кортезе, Мэгги Никсон, Фон ЛьюисПеревод: Профессиональный многоголосый (HDRezka Studio)Субтитры: Русские (вшитые, отключаемые), Английские (вшитые, отключаемые)Продолжительность: 02:10:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04EB4425E4E3360BB5DD28581A55D8D16F82AC4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284230   (729576) от 20.02.2019
-
-Красивый мальчик / Beautiful Boy (2018) BDRip [1080p] ATV (MVO)
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэвид Шефф переживает трагедию: его милый и очаровательный сын Ник стал наркоманом. Откуда взялась пагубная привычка? Ник растёт в любящей семье, он отлично учится, ни в чём не нуждается. Развод родителей прошёл спокойно. С матерью, живущей в Лос-Анджелесе, Ник общается до сих пор. Пытаясь найти ответы, Дэвид вспоминает, каким ребёнок был раньше — вдумчивым и красивым (   Читать дальше...   )Производство: США / Amazon Studios, Big Indie Pictures, Plan B EntertainmentЖанр: Драма, БиографияРежиссер: Феликс ван ГрунингенАктеры: Стив Карелл, Тимоти Шаламе, Мора Тирни, Кристиан Конвери, Окли Булл, Кейтлин Дивер, Эми Райан, Стефани Скотт, Джулиан Уоркс, Ке ЛоуренсПеревод: Профессиональный многоголосый (HDRezka Studio)Субтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 02:00:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:500F4C452C9B909E7B8050690413CC33D57484CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283731   (729453) от 20.02.2019
-
-Коллекция аудиокниг: Зарубежная фантастика, фэнтези, мистика, ужасы 3 (1966-2018) [M4A|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция зарубежной фантастики, фэнтези, мистики и ужасовЖанр: Фантастика, Фэнтези, Мистика, УжасыФормат: .m4a
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23058DF7D29805AEE91304726A337EB786E1C5BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283732   (729452) от 20.02.2019
-
-Коллекция аудиокниг: Зарубежная фантастика, фэнтези, мистика, ужасы 2 (1966-2018) [M4A|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция зарубежной фантастики, фэнтези, мистики и ужасовЖанр: Фантастика, Фэнтези, Мистика, УжасыФормат: .m4a
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90A16EE254915C410B31FF3BE9355E6A852FE862
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283730   (729451) от 20.02.2019
-
-Коллекция аудиокниг: Зарубежная фантастика, фэнтези, мистика, ужасы 4 (1966-2018) [M4A|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция зарубежной фантастики, фэнтези, мистики и ужасовЖанр: Фантастика, Фэнтези, Мистика, УжасыФормат: .m4a
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A08C337889213150F6A6B4DE603B811A6F1900C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

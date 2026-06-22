@@ -1,3 +1,108 @@
+###  Публикация: 1615716   (1037287) от 27.02.2023
+
+Жак Фреско | Проектирование будущего (2010) [MP3, Vlad gur]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жак Фреско - архитектор и промышленный дизайнер, производственный инженер и изобретатель, социолог и футуролог – все в одном лице. И во всем самоучка. Жак Фреско смотрит в наше общее будущее и видит там только хорошее. В абсолютно идиллическом будущем Фреско нет бедных и нет богатых, все равны, живут в одном мире без границ и ничто не омрачает их существования. В (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 02:33:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEDE22B9E136425D1957807993B73CAF4A2C5D7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615932   (1035850) от 04.03.2023
+
+Колин Вард | Анархизм. Очень краткое введение (2016) [MP3, Ильяс Фекердинов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анархизм - это социальная и политическая идеология, которая, несмотря на историю, полную неудач, постоянно возрождается в новом обличье или в новой стране, прибавляя таким образом еще одну главу к своей хронологии или еще шире распространяясь. Я поставил перед собой одну задачу - просто попытаться в немногих словах ввести читателя в курс идей анархистов и указать (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 03:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A3E5B3D9D4827092EC4BF3FA9A5ADDAC2727305
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615930   (1035841) от 04.03.2023
+
+Франс де Вааль | Наша внутренняя обезьяна (2023) [MP3, Михаил Андрианов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга одного из известнейших приматологов мира Франса де Вааля посвящена эволюционным истокам человеческой натуры, ее двойственности и биологическим корням.
+Де Вааль рассматривает четыре ключевые стороны нашей природы – стремление к власти, потребность в сексе, склонность к актам насилия и проявлениям доброты – и на основании многолетних наблюдений за человекообразными (   Читать дальше...   )Жанр: Научно-популярная литература, АнтропологияПродолжительность: 11:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:825E07B81407D6D28A74BFDC8BB80FF4434D40A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616849   (1035840) от 04.03.2023
+
+Грейсон Брюс | После (2021) [MP3, Александр Мозгунов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Случаи, когда люди, оказавшиеся при смерти, рассказывали о «свете в конце тоннеля» и необычных переживаниях, известны еще с древности. Сегодня подобный опыт описывают 10% людей, переживших остановку сердца. Однако в медицинском сообществе принято игнорировать такие «околосмертные переживания», принимая их за самообман и «игры разума». Но после рассказов некоторых (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 09:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DAF25732E722FB356E042D69EE3164303D6DC79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617054   (1035573) от 05.03.2023
 
 Максим Винарский | Евангелие от LUCA (2022) [MP3, Стефан Барковский]
@@ -6,7 +111,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035573.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035001.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033924.jpg" />
 </div>
 
 
@@ -86,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032488.jpg" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032329.jpg" />
 </div>
 
 
@@ -139,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030500.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029625.jpg" />
 </div>
 
 
@@ -193,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025080.jpg" />
 </div>
 
 
@@ -221,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021142.jpg" />
 </div>
 
 
@@ -248,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016953.jpg" />
 </div>
 
 
@@ -275,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016331.jpg" />
 </div>
 
 
@@ -302,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011266.jpg" />
 </div>
 
 
@@ -331,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009993.jpg" />
 </div>
 
 
@@ -357,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009693.jpg" />
 </div>
 
 
@@ -384,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008301.jpg" />
 </div>
 
 
@@ -410,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008275.jpg" />
 </div>
 
 
@@ -438,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008240.jpg" />
 </div>
 
 
@@ -464,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007541.jpg" />
 </div>
 
 
@@ -490,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004067.jpg" />
 </div>
 
 
@@ -518,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004036.jpg" />
 </div>
 
 
@@ -546,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002724.jpg" />
 </div>
 
 
@@ -572,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000188.jpg" />
 </div>
 
 
@@ -585,119 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10D5412B9EA08E40C1D42493582B1C62BE3D28E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599048   (998744) от 08.01.2013
-
-Виктор Орлов и Азамат Ушанов | Твоя Харизма Онлайн [2010] [mp3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваш успех заключается в одном коротком волшебном и циничном слове:
-ПЛЮНЬТЕ!
--на чтение книг по копирайтингу;
--на изучение сложностей РНР;
--на головоломные секреты раскрутки;
--на долгое и тяжкое изучение того как создать свою рассылку, как покорить джумлу или вордпресс;
-
-Плюньте, ибо это от вас никуда не уйдет...
-Все что вам сейчас нужно - этот первый в рунете курс о том, как свести к минимуму чтение умных книг и максимально увеличить выхлоп от своей деловой активности...Жанр: Психология, инфобизнесПродолжительность: 06:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C75F945FF4F965BFDF8CB2C0828BB6738E70A7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 162106   (989304) от 04.01.2010
-
-Юрий Лотман | Беседы о русской культуре [1993] [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989304.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Беседы о русской культуре" принадлежат перу блестящего исследователя русской культуры Юрия Михайловича Лотмана. В свое время автор заинтересованно откликнулся на предложение "Искусства—СПб" подготовить издание на основе цикла лекций, с которыми он выступал на телевидении. Работа велась им с огромной ответственностью: уточнялся состав, главы расширялись, (   Читать дальше...   )Жанр: Литературоведение, культурология, история
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355832   (981039) от 28.01.2020
-
-Георг Гегель | Лекции по истории философии. [2 книги] (2006) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описание: Гегель Георг Вильгельм Фридрих (1770—1831) – один из величайших мыслителей Европы. Творчество Гегеля является вершиной развития немецкой классической философии и одной из поворотных точек развития европейской философии в целом.«Лекции по истории философии» Гегеля остаются и сегодня одним из тех трудов, без знакомства с которыми невозможно понимание истории (   Читать дальше...   )Жанр: ФилософияПродолжительность: 51:10:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31B9562ECD77BE6005805AB75B78DB48616B5AFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356067   (980527) от 29.01.2020
-
-Георг Гегель | Лекции по истории философии. [Книга 3] (2009) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описание: Гегель Георг Вильгельм Фридрих - один из величайших мыслителей Европы. Творчество Гегеля является вершиной развития немецкой классической философии и одной из поворотных точек развития европейской философии в целом.
-"Лекции по истории философии" Гегеля остаются и сегодня одним из тех трудов без знакомства с которыми невозможно понимание истории (   Читать дальше...   )Жанр: ФилософияПродолжительность: 51:13:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D083B904E93B9EE007AD2848B17A8527008DFB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

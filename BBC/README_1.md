@@ -6,7 +6,7 @@
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975629.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC: Планеты, похожие на Землю / The Planets: Inner Worlds 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975180.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC: Живой мир: Бегемоты - жизнь в воде / Natural Worl
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968560.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BBC: Планеты. Марс / The Planets: Mars (2019) IPTVRip [H.264]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967003.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BBC: Планеты. Юпитер / Nova: The Planets: Jupiter (2019) IPTVRip [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960551.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ BBC: Чудо животного мира / Wonder of Animals (2014) HDTVRip [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958336.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 3
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954539.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954527.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 4
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954492.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 1
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954430.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ BBC: Планеты. Сатурн / Nova: The Planets: Saturn (2019) IPTVRip [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952060.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ BBC: Саймон Шама о Рембрандте: Шедевры послед�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951812.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951806.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 5
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951245.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948487.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ BBC: Бессмертный Египет с Джоанн Флетчер / Immort
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945668.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ BBC: Планеты. Ледяные миры / Nova: The Planets: Ice Worlds (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944947.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941201.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ BBC. Horizon: Сколько людей может жить на Земле? / H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940905.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939860.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935165.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ BBC: Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 6
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935127.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931648.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ BBC. В поисках бессмертия / The Immortalist (2016) HDTV [H.264
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925322.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922648.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ BBC: Дикая Патагония / Wild Patagonia (2015) HDTVRip [H.264/1080i]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918503.jpg" />
 </div>
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1676854   (153961) от 15.11.2023
+
+АББА - На Концерте / ABBA - In Concert (1980) DVDRip [H.265/1080p] [hand made Upscale AI]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Название ABBA-In Concert, возможно, немного вводит в заблуждение, обещая нечто более "живое", чем то, что исполняется на самом деле. В то время как этот "официальный" телефильм дает захватывающее представление о турне ABBA по Северной Америке и Европе в 1979 году, первая часть 50-минутного документального фильма посвящена почти исключительно закулисным (   Читать дальше...   )01. Waterloo
+02. Eagle
+03. Take A Chance On Me
+04. Voulez Vous(   Читать дальше...   )Производство: Швеция / Sveriges Television, Polar Music & Universal MusicЖанр: Документальный, музыкаРежиссер: Urban LassonУчастники: Agnetha Fältskog, Björn Ulvaeus, Benny Andersson, Anni-Frid Lyngstad.Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, Английские, Французские, Испанские, Германские, БразильскиеПродолжительность: 0:57:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD36568B0E4C3A84BC4F686A635F13DADCFCE91E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600979   (153782) от 29.12.2022
+
+Балабанов. Колокольня. Реквием (2022) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм, начавшийся за два года до гибели режиссера Алексея Балабанова — как хроника производства его картины «Я тоже хочу» — и закончившийся уже через годы после его смерти — даже когда рухнула Колокольня, не взявшая в Счастье героя его последнего фильма.Производство: Россия / Мастерская «Сеанс»Жанр: документальный, биографияРежиссер: Любовь АркусПродолжительность: 01:55:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A92FA21E4866524864944365BF462CDBBC7B89E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518737   (152851) от 21.12.2021
+
+Алиса: Волнение (2020) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152851.jpg" />
+</div>
+
+
+###  Подробнее
+
+В год своего 85-летнего юбилея Алиса Фрейндлих репетирует главную роль в спектакле «Волнение» Ивана Вырыпаева. Ее героиня – экстравагантная американская писательница польского происхождения. Вместе с Фрейндлих мы проходим этот путь – от первого разбора пьесы до официальной премьеры. Не только в театре, но и за его пределами. Вот Алиса играет в преферанс с подружками (   Читать дальше...   )Производство: Россия, Art For People, LenteatrЖанр: документальный, биография, кинематографРежиссер: Денис КлеблеевЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:53:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:554DE6B4BA29A3132D6E0467A250FDAE4EC932F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676989   (152148) от 16.11.2023
 
 Искривление Времени: Величайшие Культовые Фильмы / Time Warp: The Greatest Cult Films of All-Time (2020) WEB-DL [H.264/1080p] (серии 1-3 из 3) [DVO]
@@ -6,7 +87,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152148.jpg" />
 </div>
 
 
@@ -35,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151868.jpg" />
 </div>
 
 
@@ -61,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151257.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150556.jpg" />
 </div>
 
 
@@ -113,7 +194,7 @@ Def Leppard: История группы / Def Leppard: Group Story (2016) HDTV 
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148658.jpg" />
 </div>
 
 
@@ -139,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148598.jpg" />
 </div>
 
 
@@ -165,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148544.jpg" />
 </div>
 
 
@@ -191,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147957.jpg" />
 </div>
 
 
@@ -217,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146749.jpg" />
 </div>
 
 
@@ -243,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146604.jpg" />
 </div>
 
 
@@ -269,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146179.jpg" />
 </div>
 
 
@@ -295,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145347.jpg" />
 </div>
 
 
@@ -321,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144596.jpg" />
 </div>
 
 
@@ -347,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143915.jpg" />
 </div>
 
 
@@ -373,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143527.jpg" />
 </div>
 
 
@@ -399,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143466.jpg" />
 </div>
 
 
@@ -425,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143324.jpg" />
 </div>
 
 
@@ -451,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143272.jpg" />
 </div>
 
 
@@ -478,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143237.jpg" />
 </div>
 
 
@@ -504,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142520.jpg" />
 </div>
 
 
@@ -530,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142146.jpg" />
 </div>
 
 
@@ -556,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142092.jpg" />
 </div>
 
 
@@ -582,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142018.jpg" />
 </div>
 
 
@@ -593,84 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68C2FD2A116A4ACA931EA23F1E8E8D65F8F49CE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195442   (141825) от 29.12.2017
-
-Эволюция Метала / Metal Evolution (2011-2014) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-12 из 12)
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждая из 12 серий этого проекта от канадских документалистов Сэма Данна и Скота Макфадьена, будет посвящена отдельной специфической области звука и культуры хэви-метал. Премьерный эпизод «Эволюции метала» поведает об эпохе до метала и о самых ранних зачатках метала, которые можно услышать в музыке Led Zeppelin, Deep Purple и Джими Хендрикса. В последующих эпизодах (   Читать дальше...   )Производство: КанадаЖанр: ДокументальныйРежиссер: Sam Dunn, Scot McFadyenПеревод: Переводман/одноголосый закадровый, любительский (М.Чадов)Субтитры: Русские (+ форсированные / анимированные)Продолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:957791715D3D0CC740144F723EC260960683A692
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348788   (141661) от 29.12.2019
-
-Три Пьеты Микеланджело / Michelangelo's Three Pietas (2016) DVB
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гений Микеланджело вобрал в себя множество талантов, но истинной страстью великого художника был камень. Несмотря на многие достижения Микеланджело, главной темой его творческого пути, образом, к которому он возвращался снова и снова, была Пьета. Образ матери, девы Марии, которая держит на руках тело своего сына, снятого с креста, настолько сильно трогал Микеланджело, (   Читать дальше...   )Производство: Италия, ВеликобританияЖанр: Документальный, искусствоРежиссер: Марко Беллоне, Джованни КонсонниПеревод: Двуголосый закадровый, профессиональный (СВ-Дубль)Субтитры: отсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:875FC11A12C28929F55F637BF5BF172DEB81E323
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348935   (141615) от 29.12.2019
-
-Усадьба Архангельское / The Arkhangelskoe Estate (2014) DVB (2 фильма)
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141615.jpg" />
-</div>
-
-
-###  Подробнее
-
-В начале XIX века усадьбу Архангельское с недостроенным дворцом и очень скромным французским садом купил князь Николай Юсупов - влиятельный вельможа, меценат и ценитель искусств. Очень скоро Архангельское стало домом-музеем. Юсупов все свои фантазии и причуды воплощал в жизнь. В любимой усадьбе он разместил крупнейшую в России коллекцию западной живописи, огромную (   Читать дальше...   )Производство: Россия, RTGЖанр: Документальный, архитектура, искусство, историяРежиссер: Илья ПетровЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:51:24 + 01:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B9A0561BF1F2E98CD37E5C82C844BE2AB0B2D43
 ```
 
 https://mybot314.ru/tekegram_catalog/

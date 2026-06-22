@@ -1,3 +1,87 @@
+###  Публикация: 1318356   (496319) от 05.08.2019
+
+Джек Макдевит | Цикл книг "Алекс Бенедикт" [7 книг] (1995 - 2017) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Военный талант:
+Эта книга – первая публикация на русском языке современного американского писателя Джека Макдевита. Вниманию читателей предлагается его роман «Военный талант».
+История войны, которую вели земные колонии с «чужими», и величайшего полководца этой войны. История бесплодных побед, сокрушительных поражений, предательства и героизма. История, написанная (   Читать дальше...   )Жанр: Космическая фантастика, Социально-психологическая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:289E36231CDD949AE7AE6CB24229C1A2F231689E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935527   (496284) от 11.09.2015
+
+Яна Поль | Проклятый (2015) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Зверь в отражении».
+
+Его зовут Гаррет Маккивер, и он ликан. Проклятый, последний из бессмертных. Вот уже семь с лишним веков он верой и правдой служит королевскому роду заклинателей, защищая их ценой собственной жизни. И однажды наступает тот переломный момент, когда он должен будет для себя решить, что важнее: честь и долг, любовь или избавление (   Читать дальше...   )Жанр: Героическое фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:544CF2AEE65CA0F2A75911D75C361F1D05D73715
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936312   (495928) от 11.09.2015
+
+Екатерина Азарова | Тайны Халлеи (2015) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй роман цикла «Хозяйка гор».
+
+Халлея — страна сильных духом людей и могущественных драконов. И как покоряющий небо ящер никогда не выберет слабого наездника, так и народ гордой страны не признает хозяйкой гор недостойную. Но сможет ли стать настоящей правительницей девушка, которую всю жизнь учили подчиняться? Реймире предстоит не только отринуть прошлое, справиться (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F60046D290C05BD3CE6A2508BA56848E1C76AB54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243073   (495895) от 25.08.2018
 
 Редгрейн Лебовски | Кости и Звёздная пыль (2018) [FB2]
@@ -6,7 +90,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495895.jpg" />
 </div>
 
 
@@ -35,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495759.jpg" />
 </div>
 
 
@@ -63,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495685.jpg" />
 </div>
 
 
@@ -91,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495675.jpg" />
 </div>
 
 
@@ -117,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495484.jpg" />
 </div>
 
 
@@ -143,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495425.jpg" />
 </div>
 
 
@@ -170,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495423.jpg" />
 </div>
 
 
@@ -199,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495270.jpg" />
 </div>
 
 
@@ -227,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495234.jpg" />
 </div>
 
 
@@ -253,7 +337,7 @@ Cи Джей Брайтли | Повелитель сновидений [сбо�
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495180.jpg" />
 </div>
 
 
@@ -274,6 +358,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404302   (495171) от 24.08.2020
+
+Тару Ссонберг | Соль и дым (2020) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_495171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Множество тайн скрывает за своими туманами холодный остров Мрий. Под шепот древних сказаний и раскаты бури судьба сводит троих подростков. Маккензи Кирван – немая девочка, говорящая с помощью кисти и красок. Арлен О'Келли – обыкновенный парень, который пишет истории. Джодок Коллинз – гость с Большой земли, что не успел вернуться домой.
+Сохранят ли они свои секреты, (   Читать дальше...   )Жанр: Любовно-фантастические романы, Любовное фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59647D12D5374E76028EE2D464D57A6836199959
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 543699   (495101) от 05.09.2012
 
 Эдуард Катлас | Серия: Экзо (3 Книги) [2011-2012] [FB2,ePub]
@@ -282,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495101.jpg" />
 </div>
 
 
@@ -310,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495041.jpg" />
 </div>
 
 
@@ -338,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495004.jpg" />
 </div>
 
 
@@ -364,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494817.jpg" />
 </div>
 
 
@@ -393,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494760.jpg" />
 </div>
 
 
@@ -419,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494699.jpg" />
 </div>
 
 
@@ -447,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494608.jpg" />
 </div>
 
 
@@ -473,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494607.jpg" />
 </div>
 
 
@@ -500,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494498.jpg" />
 </div>
 
 
@@ -526,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494474.jpg" />
 </div>
 
 
@@ -553,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494340.jpg" />
 </div>
 
 
@@ -580,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494175.jpg" />
 </div>
 
 
@@ -593,115 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75B207337E7504328D245305186CCE7CB78DB3DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054233   (494122) от 19.09.2016
-
-Николай Соколов | Ариасвати (2008) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Костромскому помещику приходит посылка с бумагами его умершего друга Андрея Ивановича Грачева, в которых описываются невероятные и удивительные приключения на затерянном островке Опасном в Тихом океане, на Цейлоне, в Индии и в горах Тибета...
-Первое издание этого многопланового фантастико-приключенческого романа за последние 110 лет. Книга написана живым, ярким и (   Читать дальше...   )Жанр: Научная фантастика, МистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22EBB2D3A49924F1D92BF013FEF995428335442E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936808   (494036) от 12.09.2015
-
-Евгений Филенко | Цикл «Созвездие Тимофеевых» [2 книги] (2014-2015) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Студент-историк Виктор Тимофеев – из тех, кого принято называть «народным умельцем». Обитая в дружелюбных реалиях 60-х годов прошлого века, по наивности своей он не знает слова «невозможно». Для друзей и для любимой девушки Светы он способен из валяющихся под рукой пустяков собрать вечный двигатель, преодолеть силы всемирного тяготения и нарушить фундаментальные (   Читать дальше...   )Жанр: Научная фантастика, Юмористическая фантастика, Детективная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5BD9FD3EB22BB3ACEA6B9F707C1775B11888336
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054127   (493946) от 19.09.2016
-
-Василий Сахаров | Тропы Трояна (2016) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четвёртый роман цикла «Ночь Сварога».
-
-От погибшего в бою с крестоносцами полоцкого князя ведун Вадим Сокол узнаёт о древнем наследии, тропах Трояна, и отправляется на их поиск. Он намерен отыскать выход на зачарованные тропы и получить новые знания. Но это не самое главное. Венедскому союзу нужны союзники, и Вадим встречается с великим князем Изяславом, который (   Читать дальше...   )Жанр: Боевое фэнтези, Героическая фантастика, Историческое фэнтези, Попаданцы, Русское фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB11E9B061937C48E4BE62C2CFF4F350814FBE23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054248   (493777) от 19.09.2016
-
-Кевин Андерсон, Брайан Герберт | Ментаты Дюны (2016) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман трилогии «Великие школы Дюны».
-
-Последователи великого вождя Манфорда продолжают борьбу против машинной цивилизации. Ментаты тем временем направили весь свой потенциал на расширение интеллектуальных возможностей, рассчитывая положить конец многовековой зависимости людей от машин. Смогут ли они вывести человечество на новый гармоничный путь развития или (   Читать дальше...   )Жанр: Боевая фантастика, Зарубежная фантастика, Космическая фантастика, Научная фантастика, Социальная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C708A9141E216DD3409B9B42457291A232BB95D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

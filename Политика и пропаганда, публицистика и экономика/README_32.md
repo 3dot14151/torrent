@@ -1,3 +1,108 @@
+###  Публикация: 1668968   (173220) от 14.10.2023
+
+Военная тайна с Игорем Прокопенко (14.10.2023) WEB-DL [H.264]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173220.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:34:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB924E5CFCC5500D54A6123954263643B476841C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669129   (173009) от 15.10.2023
+
+Агитпроп. По-живому. Карабах. Взгляд из Баку (14.10.2023) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антрополог Мурад Гаттал рассказывает о состоянии марксистского движения в Азербайджане в обстановке разрастающейся региональной войныПроизводство: Россия, Авторский блог Константина Семина «Агитация и Пропаганда»Жанр: ПолитикаЯзык озвучки: РусскийСубтитры: ОтсутствуетПродолжительность: 00:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DE72BDC41CEC949B54CCD5DE4F009E60458D8E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669234   (172996) от 15.10.2023
+
+Агитпроп. Всё пучком? (15.10.2023) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Израиль и Палестина, Карабах, Украина, кто следующий?
+Обыватель надеется, что это где-то далеко, а у него всё будет пучком. Но история и марксистская теория доказывают - не будет.Производство: Россия, Авторский блог Константина Семина «Агитация и Пропаганда»Жанр: ПолитикаЯзык озвучки: РусскийСубтитры: ОтсутствуетПродолжительность: 00:21:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4BD25D16FCEBAF1994098507356A35F38F1F4DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670696   (171927) от 21.10.2023
+
+Военная тайна с Игорем Прокопенко (21.10.2023) WEB-DL [H.264]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171927.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:33:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEAD90A473AB1626A270F3126A241EEB1A7646B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670702   (171875) от 21.10.2023
 
 Бесогон ТВ. Если Бога нет, всё дозволено (21.10.2023) WEBRip [H.264/1080p-LQ] (выпуск 226)
@@ -6,7 +111,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171875.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170368.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170221.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169363.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165139.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162576.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161424.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159756.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159481.jpg" />
 </div>
 
 
@@ -242,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159447.jpg" />
 </div>
 
 
@@ -269,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159399.jpg" />
 </div>
 
 
@@ -296,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159393.jpg" />
 </div>
 
 
@@ -324,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159202.jpg" />
 </div>
 
 
@@ -350,7 +455,7 @@ Pablo Hasel письмо из тюрьмы. (11.11.2023) WEBRip [H.264/1080p-LQ]
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158947.jpg" />
 </div>
 
 
@@ -376,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158791.jpg" />
 </div>
 
 
@@ -402,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158746.jpg" />
 </div>
 
 
@@ -428,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158729.jpg" />
 </div>
 
 
@@ -454,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158683.jpg" />
 </div>
 
 
@@ -480,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158413.jpg" />
 </div>
 
 
@@ -507,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158386.jpg" />
 </div>
 
 
@@ -533,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158383.jpg" />
 </div>
 
 
@@ -559,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158286.jpg" />
 </div>
 
 
@@ -570,110 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9BF45DE037DF71EF4B9CD595C43B1440B7F6CFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517995   (157797) от 18.12.2021
-
-Агитпроп. По-живому. Некому работать! (17.12.2021) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Олег Комолов о глобальной нехватке рабочей силыПроизводство: Россия, Авторский блог Константина Семина «Агитация и Пропаганда»Жанр: ПолитикаСубтитры: ОтсутствуетПродолжительность: 01:09:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E917CAD00276A06E486300FC13992FF45707320E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968435   (156929) от 23.12.2015
-
-Специальный корреспондент. Рожденная в боях (2015.12.23) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156929.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Специальный корреспондент" - это популярная публицистическая программа, которая выходит на телеканале "Россия" с сентября 2002 года. Каждую неделю один из ведущих рассказывает в своем фильме-репортаже о какой-либо актуальной проблеме, существующей в современном обществе, посвящает зрительскую аудиторию в подробности наиболее значимых для страны (   Читать дальше...   )Телекомпания: РоссияЖанр: ДокументальныйПродолжительность: ~ 02:32:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0069CBB9236779957CBB476E34130518F9C2CF56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194523   (155707) от 25.12.2017
-
-Интервью Сергея Юдаева (2017) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Харьковского политзаключенного Сергея Юдаева 6 ноября 2017 г. освободили в зале суда по амнистии. Гражданский активист «Антимайдана» в г. Харьков был арестован в апреле 2014 г., обвинялся по статьям «Хулиганство», «Массовые беспорядки» и пробыл 3,5 года в заключении на Украине. Сын военнослужащего (контразведчика), православный христианин сумел пережить испытания, (   Читать дальше...   )Производство: Россия, информационно-аналитическое сетевое издание Сегодня.руЖанр: ПолитикаПродолжительность: 01:15:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C08D11675564F6C99DF20CED1F6AE493B010413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086154   (154425) от 23.12.2016
-
-Пресс-конференция Президента России В. В. Путина (23.12.2016) TVRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Путин провел 23 декабря 2016 ежегодную Большую пресс-конференцию для российских и зарубежных журналистов. Такого количества представителей СМИ еще не было: почти полторы тысячи человек. Кроме того, впервые в истории пресс конференцию перенесли на один день.Телекомпания: Россия 24Жанр: ДокументальныйПродолжительность: 03:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE4B70B33B51434C800C0D970F82079952B8CA9
 ```
 
 https://mybot314.ru/tekegram_catalog/

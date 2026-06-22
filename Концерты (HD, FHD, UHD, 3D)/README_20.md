@@ -1,32 +1,3 @@
-###  Публикация: 806196   (598665) от 19.07.2014
-
-Guns N' Roses - Appetite for Democracy Live at Hard Rock Las Vegas (2014) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chinese Democracy
-02. Welcome To The Jungle
-03. It's So Easy
-04. Mr. Brownstone(   Читать дальше...   )Производство: США |  Rock Fuel MediaЖанр: Rock, Hard Rock, Heavy MetalРежиссер: Керри АсмуссенПродолжительность: 02:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92FBAD87FA9077C12E1F1495A3D9EFD20D5C7B5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232656   (598063) от 25.06.2018
 
 Алые Паруса-2018. Выпускной бал в Санкт-Петербурге (2018) WEB-DL [H.264/1080p-LQ]
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598063.jpg" />
 </div>
 
 
@@ -62,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597896.jpg" />
 </div>
 
 
@@ -91,7 +62,7 @@ Elton John - The Million Dollar Piano (2014) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596850.jpg" />
 </div>
 
 
@@ -120,7 +91,7 @@ Nier Music Concert: Ningyou Tachi no Kioku / NieR Music Concert: The Memory of P
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596148.jpg" />
 </div>
 
 
@@ -146,7 +117,7 @@ Metallica - Francais Pour Une Nuit (2009) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592205.jpg" />
 </div>
 
 
@@ -175,7 +146,7 @@ Paul McCartney and Wings - Rockshow (1980/2013) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590543.jpg" />
 </div>
 
 
@@ -204,7 +175,7 @@ Robbie Robertson Music For The Native Americans Live (1995) WEBRip [H.264/720p-L
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589580.jpg" />
 </div>
 
 
@@ -233,7 +204,7 @@ Kiss - Live In Nurburgring (2010/2012) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589019.jpg" />
 </div>
 
 
@@ -262,7 +233,7 @@ Megadeth - Countdown To Extinction - Live  (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588621.jpg" />
 </div>
 
 
@@ -291,7 +262,7 @@ Status Quo - Pictures - Live At Montreux (2009) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588607.jpg" />
 </div>
 
 
@@ -320,7 +291,7 @@ The Prodigy - World's on Fire (2011) [1080i] BDRemux
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587790.jpg" />
 </div>
 
 
@@ -355,7 +326,7 @@ Linkin Park - Rock in Rio (2012) HDTVRip 720p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_586673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_586673.jpg" />
 </div>
 
 
@@ -381,7 +352,7 @@ Pet Shop Boys ‎– Inner Sanctum (Live At The Royal Opera House, 2018) (2019) 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586050.jpg" />
 </div>
 
 
@@ -407,7 +378,7 @@ Pet Shop Boys ‎– Inner Sanctum (Live At The Royal Opera House, 2018) (2019) 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585992.jpg" />
 </div>
 
 
@@ -433,7 +404,7 @@ Nightwish - Showtime, Storytime (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583628.jpg" />
 </div>
 
 
@@ -462,7 +433,7 @@ Avril Lavigne - Live at The Roxy Theatre (16.10.2007) HDTV [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583352.jpg" />
 </div>
 
 
@@ -491,7 +462,7 @@ Judas Priest - Epitaph (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_582696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_582696.jpg" />
 </div>
 
 
@@ -520,7 +491,7 @@ Avril Lavigne - Live at The Roxy Theatre (16.10.2007) HDTV [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582279.jpg" />
 </div>
 
 
@@ -549,7 +520,7 @@ Metallica - Fan Can Six, Copenhagen(2010) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581797.jpg" />
 </div>
 
 
@@ -578,7 +549,7 @@ Whitesnake - Made In Japan (2011/2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579924.jpg" />
 </div>
 
 
@@ -607,7 +578,7 @@ Metallica - Orgullo Pasion Y Gloria - Tres Noches En Mexico (2009) BDRip [H.264/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579921.jpg" />
 </div>
 
 
@@ -636,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578938.jpg" />
 </div>
 
 
@@ -665,7 +636,7 @@ Led Zeppelin - Celebration Day (2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578630.jpg" />
 </div>
 
 
@@ -694,7 +665,7 @@ Hidden Tribe - Live at RTC-Fest @ Da:Da (2013) [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578406.jpg" />
 </div>
 
 
@@ -723,7 +694,7 @@ Rammstein - Live aus St. Petersburg (2012) BDRip 720p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578367.jpg" />
 </div>
 
 
@@ -739,6 +710,34 @@ Rammstein - Live aus St. Petersburg (2012) BDRip 720p
 08. Mutter
 09. Mein Teil
 10. Du Riecht So Gut(   Читать дальше...   )Жанр: Industrial metalПродолжительность: 01:57:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360941   (576577) от 10.07.2011
+
+Stomp: Live (2009) [1080p] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_576577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stomp has grown from its beginnings on the streets of Europe into an international sensation, with touring productions all over the world, and long running shows in London, Las Vegas and Broadway. This special performance brings together performers from the West End, New York and Vegas for the very first time, to Stomp's home town and the theatre where many of the routines were originated: Brighton Dome.
+
+ ...Мы живем в мире разнообразных предметов, поэтому стучать можно по чему угодно. При этом звук от железа, пластика и дерева будет разный, и различное звучание даст музыку. Всякий городской шум, а особенно сочетание шумов, рождает неповторимый ритм, чью поэзию мы просто не замечаем, но она тем не менее существует. Если правильно взглянуть на вещи - простая уборка мусора превращается в поэму экстаза. Из этой идеи исходят авторы шоу "Stomp", сумевшие создать из надоевших горожанам издержек урбанистической среды остроумнейшее представление. Его основной прием - превращение в ударные инструменты любого (   Читать дальше...)Жанр: show, dance, drumsРежиссер: Люк Крессуэлл, Стив МакНиколасАктеры: Conroy, Melanie Joseph, Keith Middleton, Andy Patrick, John SawickiПеревод: не нуждаетсяПродолжительность: 1:49:29
 
 ## Скачать торент
 ```bash

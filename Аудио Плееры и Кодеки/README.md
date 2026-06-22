@@ -7,7 +7,7 @@ Dopamine 3.0.5 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071747.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ foobar2000 2.25.9 & Portable [En]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071452.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ WACUP 1.99.50 [En]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068777.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ AIMP 5.40.2716 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067158.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ AIMP 5.40.2716 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066611.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ AIMP 5.40.2716 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066431.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065818.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ AIMP 5.40.2715 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065363.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ AIMP 5.40.2715 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065340.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ AIMP 5.40.2715 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065021.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ AIMP 5.40.2713 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064757.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Qmmp 2.3.2 & Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064741.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ AIMP 5.40.2713 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064680.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063654.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Dopamine 3.0.4 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063118.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ FxSound Pro 1.2.6.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062978.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Foobar2000 2.25.8 include Portable [En]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062837.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ AIMP 6.00.3051 Beta + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061622.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ AIMP 5.40 Build 2709 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061218.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ AIMP 5.40 Build 2709 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060927.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ AIMP 5.40.2709 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060302.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ AIMP 5.40.2709 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059899.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ AIMP 5.40 Build 2708 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059508.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Dopamine 3.0.2 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059370.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ AIMP 5.40.2708 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059328.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Foobar2000 2.25.7 include Portable [En]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057512.jpg" />
 </div>
 
 

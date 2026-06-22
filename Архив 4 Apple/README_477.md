@@ -1,3 +1,58 @@
+###  Публикация: 1083426   (274840) от 15.12.2016
+
+Get Backup Pro 3.3.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Get Backup Pro - Универсальная утилита для выполнения резервного копирования, клонирования дисков/разделов и синхронизации файлов и папок. Get Backup Pro предлагает двустороннюю синхронизацию, архивирование только измененных файлов, восстановление отдельных файлов и папок, защиту архивов шифрованием.
+
+Возможности:
+- создание сжатых, зашифрованных бэкапов(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 декабря 2016Разработчик: BeLight Software Ltd.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91080D19E493CA0D64EB3804EDC783DF9C4ACAEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337461   (274815) от 10.11.2019
+
+TurboMosaic Pro 3.0.20 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274815.jpg" />
+</div>
+
+
+###  Подробнее
+
+TurboMosaic — программа, позволяющая легко и быстро строить превосходные фотомозаики из выбранных Вами изображений. Удивите друзей плакатом или постером, созданными своими руками из Ваших фотографийТип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: SilkenMermaid TechnologiesПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F674BEB9899ACFA6CF2DCC139D6D387BF742584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337413   (274788) от 10.11.2019
 
 CodeRunner 3.1 (21730) [En]
@@ -6,7 +61,7 @@ CodeRunner 3.1 (21730) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274788.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ Pixelmator Pro 1.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274766.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ iTrash 4.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274751.jpg" />
 </div>
 
 
@@ -89,7 +144,7 @@ Pacifist 3.5.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274737.jpg" />
 </div>
 
 
@@ -118,7 +173,7 @@ Cisdem Video Player 4.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274676.jpg" />
 </div>
 
 
@@ -144,7 +199,7 @@ Nik Complete 2 Collection by DxO 2.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274556.jpg" />
 </div>
 
 
@@ -171,7 +226,7 @@ Swinsian 2.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274210.jpg" />
 </div>
 
 
@@ -197,7 +252,7 @@ EtreCheck 5 v5.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274203.jpg" />
 </div>
 
 
@@ -225,7 +280,7 @@ Postbox 6 v6.1.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274201.jpg" />
 </div>
 
 
@@ -251,7 +306,7 @@ AutoCrypt 2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274199.jpg" />
 </div>
 
 
@@ -277,7 +332,7 @@ WebVideoHunter Pro 5.9.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274191.jpg" />
 </div>
 
 
@@ -304,7 +359,7 @@ MovieSherlock 5.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274144.jpg" />
 </div>
 
 
@@ -333,7 +388,7 @@ Big Mean Folder Machine 2 v2.38 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274126.jpg" />
 </div>
 
 
@@ -361,7 +416,7 @@ Imagenomic Portraiture 3 for Adobe Lightroom CC2015/ClassicCC build 3035 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274104.jpg" />
 </div>
 
 
@@ -387,7 +442,7 @@ Elmedia Player Pro 7 v7.0 (1615) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274078.jpg" />
 </div>
 
 
@@ -415,7 +470,7 @@ Affinity Photo Beta 1.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273854.jpg" />
 </div>
 
 
@@ -441,7 +496,7 @@ Murus Pro Suite 1.4.19 (incluye Vallum 3.0.4) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273852.jpg" />
 </div>
 
 
@@ -469,7 +524,7 @@ Affinity Designer Beta 1.7.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273851.jpg" />
 </div>
 
 
@@ -496,7 +551,7 @@ Sketch 52.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273848.jpg" />
 </div>
 
 
@@ -523,7 +578,7 @@ Pastebot 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273781.jpg" />
 </div>
 
 
@@ -549,7 +604,7 @@ iLock 2.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273771.jpg" />
 </div>
 
 
@@ -578,7 +633,7 @@ Adobe Prelude 2020 v9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273695.jpg" />
 </div>
 
 
@@ -604,7 +659,7 @@ Vipor Plus CRM - All in One Calendar and Contacts 2.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273646.jpg" />
 </div>
 
 
@@ -631,7 +686,7 @@ Audirvana Plus 2.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273645.jpg" />
 </div>
 
 
@@ -645,62 +700,6 @@ Audirvana Plus - мощный аудиофильский плеер с широ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4EF77B4BFFA0808D2E0C58F8D6156DA1B70400F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083630   (273641) от 16.12.2016
-
-Tweetbot for Twitter 2.4.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый, кто активно использует Twitter с помощью устройств от Apple, давно знает, что нет ничего лучше приложения Tweetbot.
-
-Tweetbot - клиент Twitter для Mac. Этот полнофункциональный клиент имеет фантастическую поддержку нескольких учетных записей и списков. Он также имеет мощные фильтры, несколько видов столбцов, и многое другое.
-(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 ноября 2016Разработчик: Tapbots LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED906398CFDD24822D125FA70F4A6F8006CBB0CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083674   (273628) от 16.12.2016
-
-Capo 3.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Capo – это музыкальный плейер, но предназначенный не столько для прослушивания композиций, сколько для их анализа!
-С его помощью возможно замедлить композицию, чтобы различить отдельные ноты, так-же Capo может автоматически сгенерировать гитарные табулатуры, что сделает процесс максимально комфортным, ибо все, что вам остается – это взять табы и разучить любимую (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 декабря 2016Разработчик: SuperMegaUltraGroovy, Inc.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:010CEC2BBDA837D012CB61F21E1A8D51447A896F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,112 @@
+###  Публикация: 484992   (89360) от 19.04.2012
+
+Величайшие автомобили: Nissan / Great Cars: Nissan (2004) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89360.jpg" />
+</div>
+
+
+###  Подробнее
+
+NISSAN был на коне в 70-е годы. Спорткар 240Z был самым продаваемым в мире. Покупатели вели охоту за машинами этой компании. К 1975-ому году она была крупнейшим импортером в США и по всему миру. Однако к 90-тым годам фортуна отвернулась от нее. Ее звезда потускнела. NISSAN должен был измениться, либо пойти ко дну.Перевод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A515028421D09CC3FBFAB97074C40448114C860
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473813   (84564) от 26.03.2012
+
+Авто плюс - Подержанные машины / Выбираем б/у автомобиль: Mitsubishi Outlander (2012) IPTVRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немало людей в целях экономии и сохранения ресурсов приобретают вещи, уже бывшие в употреблении. Рассмотрим плюсы и минусы таких явлений, как покупка автомобилей с пробегом.Жанр: ТелепередачаПродолжительность: 00:12:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD1D492D4070D753105B6FED4F88412568C13792
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461311   (79762) от 03.03.2012
+
+[EN] Месть электрокара / Revenge Of The Electric Car (2011) DVDRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Режиссёр Крис Пэйн вместе со съёмочной командой попадает за закрытые двери Ниссан, Дженерал Моторс, и в Силиконовую Долину, где стартует производство Тесла Моторс, для того чтобы вести хронику событий мирового возрождения электрокаров.Жанр: ДокументальныйПеревод: ОтсутствуетПродолжительность: 01:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2D0DB77CEAB1036AC55A3F1D29ACC3D42BF9CD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460629   (79607) от 02.03.2012
+
+Кен Блок Джимхана 3 и 4 / Ken Block Gymkhana 3 & 4 (2010-2011) HDTV 1080p
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gymkhana 3:
+Представленный тизер к третьей части уже легендарной серии Gymkhana от Кена Блока оставил нас всех в нетерпении того, что же будет дальше. И вот, наконец-то, было представлено видео Gymkhana 3. Съемки проходили во Франции на автодроме France’s l’Autodrome de Linas’, наклон которого 51 градус! В этой серии Кен Блок творит чудеса на Ford Fiesta.
+
+Gymkhana 4
+Раллийный мастер Кен Блок представил новое видео: «Gymkhana FOUR: The Hollywood Megamercial». К моменту релиза предыдущие части Джимканы набрали более 110 млн просмотров.
+Съемки проводились усилиями студии Universal Studios Hollywood. Используемый автомобиль — Ford Fiesta Hybrid Function Hoon Vehicle.Жанр: Документальный, СпортРежиссер: Ken BlockПеревод: Не требуется (нет диалогов и комментариев)Продолжительность: 00:09:15 +00:07:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE220247174207AB938849BEC74917360799486B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 457949   (78709) от 27.02.2012
 
 6 передача (1 сезон 2 эпизод) (2011) WEB-Rip [720p]
@@ -6,7 +115,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78709.jpg" />
 </div>
 
 
@@ -32,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78708.jpg" />
 </div>
 
 
@@ -58,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71580.jpg" />
 </div>
 
 
@@ -86,7 +195,7 @@ Volkswagen Multivan T5 2010 — Минтранс (18.01.2025) WEBRip [H.264/720p
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71556.jpg" />
 </div>
 
 
@@ -115,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71440.jpg" />
 </div>
 
 
@@ -144,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71435.jpg" />
 </div>
 
 
@@ -173,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71250.jpg" />
 </div>
 
 
@@ -201,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71231.jpg" />
 </div>
 
 
@@ -230,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71171.jpg" />
 </div>
 
 
@@ -258,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70920.jpg" />
 </div>
 
 
@@ -286,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70891.jpg" />
 </div>
 
 
@@ -315,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70807.jpg" />
 </div>
 
 
@@ -343,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70577.jpg" />
 </div>
 
 
@@ -372,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70568.jpg" />
 </div>
 
 
@@ -399,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70515.jpg" />
 </div>
 
 
@@ -427,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70251.jpg" />
 </div>
 
 
@@ -455,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70216.jpg" />
 </div>
 
 
@@ -484,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70189.jpg" />
 </div>
 
 
@@ -512,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69980.jpg" />
 </div>
 
 
@@ -540,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69964.jpg" />
 </div>
 
 
@@ -569,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69922.jpg" />
 </div>
 
 
@@ -597,7 +706,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69690.jpg" />
 </div>
 
 
@@ -610,120 +719,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1B91424EF2BBB3829FC40D0F9902063199FD899
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783938   (69663) от 08.03.2025
-
-Тест-драйв Ford Mondeo 2006 — Минтранс (08.03.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69663.jpg" />
-</div>
-
-
-###  Подробнее
-
-🔸 Юридические тонкости. Можно ли снять машину с учёта и не забирать со штрафстоянки, чтобы не платить деньги? Что за это грозит?
-🔸 «Завоеватель» с пробегом: честный тест-драйв Ford Mondeo 2006
-🔸 Чужим здесь не место. Можно ли запретить парковку во дворе дома?
-🔸 Внешний вид. Почему надевать автомобильные чехлы можно не на все сиденья?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F928628E275E66712794B3F10099CA2C831D5A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784213   (69595) от 09.03.2025
-
-Первая передача на НТВ. Автомобильная передача (09.03.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69595.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Подкрадули» для шоферов: обувь безопасная для дорожного движения и для здоровья водителя.
- Кто и зачем отслеживает, и глушит «умные» машины?
- «Я вам не дойная корова!»: участницу ДТП затаскали по судам. Почему размер ущерба может увеличиться?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:25:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E64697AD6EAE27FDAA0205DA308CFB73C7906C54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785323   (69377) от 15.03.2025
-
-Главная дорога (15.03.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Патрульный под колесами нарушителя в Тюмени, драмеди с истерикой из-за эвакуации в Амурской области и весенние ледопады на востоке страны.
- Исправление биографии автомобиля: как удаляют информацию из отчета?
- Во всех современных машинах есть режимы «Спорт», «Эко» и «Комфорт»: автопроизводители заверяют, что режим «Спорт» превращает авто в гоночный болид, режим «Эко» (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8D0AE93413EFB776A1F7DF859F05A1103BCCB79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785355   (69306) от 15.03.2025
-
-Тест-драйв LIVAN S6 PRO — Минтранс (15.03.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69306.jpg" />
-</div>
-
-
-###  Подробнее
-
-🔸 Двойная страховка. Можно ли обратиться за выплатой сразу и по ОСАГО, и по КАСКО?
-🔸 Тест-драйв LIVAN s6 PRO. Чем может удивить новый «китаец»?
-🔸 Виновник ДТП не вписан в полис ОСАГО. Может ли страховая отказать в выплате?
-🔸 Мало кнопок. Почему на современных машинах большинство функций выводится на экран?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:829EE86066971A0A73E8AE1B8FA99FAB923D2C20
 ```
 
 https://mybot314.ru/tekegram_catalog/

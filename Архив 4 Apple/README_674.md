@@ -1,3 +1,59 @@
+###  Публикация: 1699833   (117603) от 14.02.2024
+
+Money Pro - Personal Finance 2.10.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Money Pro сократит расходы и покажет полную картину Ваших финансов. Money Pro - это единая программа для ведения бюджета, отслеживания операций по счетам и напоминания о предстоящих платежах. Money Pro отлично подходит для ведения домашнего бюджета, а также для финансового планирования малого бизнеса.
+Удобная синхронизация (iPhone, iPad, Mac). Money Pro является (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.02.2024Разработчик: © 2015-2023 iBear LLCПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03D4766F97604CD820C8923690DA5A045B426F05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699802   (117573) от 14.02.2024
+
+Swinsian 3.0 Preview 13 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Swinsian — простой аудио плеер с функцией управлениями файлами вашей музыкальной коллекции. К основным возможностям следует отнести:
+● Поддержку форматов FLAC/Ogg Vorbis, а так же MP3, AAC, WAV, APE, AC3, WavPack, WMA и CUE файлов
+● Быстрое и эффективное управление
+● Импорт библиотеки iTunes(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.02.2024Разработчик: © 2024 SwinsianПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B29F0980DD2D814F4E58A2C94E0F4798E6C92AA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699741   (117553) от 14.02.2024
 
 A Better Finder Attributes 7 v.7.30 [En]
@@ -6,7 +62,7 @@ A Better Finder Attributes 7 v.7.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117553.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ KCNcrew Pack 02-15-24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117401.jpg" />
 </div>
 
 
@@ -58,7 +114,7 @@ SponsorBlock for YouTube 5.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117393.jpg" />
 </div>
 
 
@@ -84,7 +140,7 @@ Valentina Studio Pro 13.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117392.jpg" />
 </div>
 
 
@@ -110,7 +166,7 @@ DiskCatalogMaker 9.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117376.jpg" />
 </div>
 
 
@@ -136,7 +192,7 @@ MediaMate for Mac 3.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117367.jpg" />
 </div>
 
 
@@ -162,7 +218,7 @@ EdgeView 4.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117360.jpg" />
 </div>
 
 
@@ -188,7 +244,7 @@ EazyDraw 11.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117359.jpg" />
 </div>
 
 
@@ -214,7 +270,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117357.jpg" />
 </div>
 
 
@@ -241,7 +297,7 @@ Folder-Factory 7.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117356.jpg" />
 </div>
 
 
@@ -270,7 +326,7 @@ CrossOver 24.0-b3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117229.jpg" />
 </div>
 
 
@@ -297,7 +353,7 @@ Topaz Photo AI 2 for Mac 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117228.jpg" />
 </div>
 
 
@@ -323,7 +379,7 @@ TablePlus 5.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117183.jpg" />
 </div>
 
 
@@ -350,7 +406,7 @@ Topaz Gigapixel AI for Mac 7.0.2 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117174.jpg" />
 </div>
 
 
@@ -376,7 +432,7 @@ Boinx FotoMagico Pro 6 v.6.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117151.jpg" />
 </div>
 
 
@@ -403,7 +459,7 @@ Bike Outliner for Mac 1.18.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117148.jpg" />
 </div>
 
 
@@ -429,7 +485,7 @@ GoodTask 7.6.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117147.jpg" />
 </div>
 
 
@@ -456,7 +512,7 @@ NCH DreamPlan Plus for Mac 9.09 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117144.jpg" />
 </div>
 
 
@@ -485,7 +541,7 @@ Fork 2.40 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117140.jpg" />
 </div>
 
 
@@ -511,7 +567,7 @@ Adobe Illustrator for Mac 2024 v.28.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116969.jpg" />
 </div>
 
 
@@ -537,7 +593,7 @@ Audio Hijack 4.3.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116886.jpg" />
 </div>
 
 
@@ -564,7 +620,7 @@ Rhinoceros 8 v.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116877.jpg" />
 </div>
 
 
@@ -591,7 +647,7 @@ Desktop Stickers 2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116850.jpg" />
 </div>
 
 
@@ -618,7 +674,7 @@ Folder Icons 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116838.jpg" />
 </div>
 
 
@@ -629,59 +685,6 @@ Folder Icons 1.5 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5B6E7A3D66717393F14ED765AD79A1EB4970889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700884   (116821) от 18.02.2024
-
-iBarcoder 3.14.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cristallight iBarcoder - профессиональный генератор штрих-кодов Mac для создания любого количества отдельных или последовательных штрих-кодов, и их печати в виде красочных этикеток со штрих-кодом в собственном стиле, любого размера или формы или их экспорта в виде файлов графических изображений в обычном векторном и растровом изображении.Тип издания: macOS SoftwareРелиз состоялся: 17.01.2024Разработчик: © 2022 Cristallight SoftwareПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B02C14F6764F2C47409F399D84E0F7E2FE9A54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701142   (116679) от 19.02.2024
-
-Dropshare 5 v.5.47 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116679.jpg" />
-</div>
-
-
-###  Подробнее
-
-DropShare позволяет быстро передавать файлы больших объемов через интернет. Отправитель просто перетягивает его на значок программы, и файл выгружается на сервер. Остается сообщить ссылку получателю, чтобы он мог открыть ее в своем браузере.
-Dropshare - приложение строки меню для Drag & Drop загрузки файлов, снимков экрана и даже каталогов на собственный сервер, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.02.2024Разработчик: © 2024 DropshareПоддерживаемая ОС: OS X 12.3 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:024FE48A4F3A68869B5A78C1CBABC087AC2128C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

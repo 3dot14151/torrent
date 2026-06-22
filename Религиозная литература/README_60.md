@@ -1,3 +1,55 @@
+###  Публикация: 1042458   (579604) от 12.08.2016
+
+отец Даниэль-Анж | Раненый пастушок (1998) [DJVU, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_579604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта удивительная книга французского монаха и священника отца Даниэль-Анжа повествует о боли нашего мира, раненного злом, и о надежде, о чуде, о свободе и о любви. Она о простом парнишке, не находящем себе место в жизни, о людях, окружающих его, о каждом из нас. И о Боге, чье сердце ранено любовью, приходящем к человеку. Эта книга, написанная легко и искренне, касается (   Читать дальше...   )Жанр: Духовная литература, повестьФормат: DJVU, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52707B20C00000F765D5B7A7FD5E8014840C7F60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042466   (579598) от 12.08.2016
+
+Марина Роднянская | Весенние сумерки (2009) [FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воспоминания духовной дочери отца Александра Меня, прихожанки храма Космы и Дамиана в Шубине, музыканта-педагога Марины Роднянской о христианах конца ХХ века.Жанр: МемуарыФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70E1664E91481EDFEF9ADF452F842F5BD1B763DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041971   (579596) от 12.08.2016
 
 А. Тонди | Иезуиты (1955) [DJVU]
@@ -6,7 +58,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579596.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579543.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579195.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578847.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577461.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577340.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576626.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576544.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576247.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576238.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575093.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574893.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574733.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574501.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574351.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572958.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572955.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572946.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572921.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571792.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571063.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569351.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569336.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569334.jpg" />
 </div>
 
 
@@ -630,58 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04BFF393A8CDAB0785DA39AAB16E830A0C28E52E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234417   (569314) от 06.07.2018
-
-П. Троицкий | Афонские встречи. Святая Гора глазами современного русского паломника (2015) [FB2, PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор книги — наш современник — Павел Троицкий (диакон Пётр Пахомов). Он более десяти раз был на Афоне, много путешествовал, посещая монастыри и скиты, беседуя с монахами. Эта книга с большим количеством фотографий — описание его впечатлений, увлекательные рассказы о наиболее ярких страницах истории Афона, о тайнах и легендах Святой Горы, о великих старцах прошлого (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FA6912AE0819A1944AA7C9294222F447B1EEA9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303671   (569036) от 23.05.2019
-
-А.В. Храмов | Обезьяна и Адам. Может ли христианин быть эволюционистом? (2019) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Библейский рассказ о сотворении мира на первый взгляд противоречит научным представлениям об истории Земли и жизни на ней. Попытки «подружить» Библию и теорию эволюции предпринимались не раз, однако нельзя сказать, что они были успешны. Возможно ли совместить веру и науку без ущерба для той и другой? Палеонтолог Александр Храмов предлагает неожиданный подход к разрешению (   Читать дальше...   )Жанр: Наука и религия,Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E76C71E667750661BAF30413B602A84087AE7F07
 ```
 
 https://mybot314.ru/tekegram_catalog/

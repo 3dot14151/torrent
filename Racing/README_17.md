@@ -1,3 +1,107 @@
+###  Публикация: 1740349   (48109) от 02.08.2024
+
+FlatOut 2 (2006) [Ru/Multi] (1.2) Repack FitGirl
+
+>>Win Старые Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Примите участие в незабываемых гонках: виляя по трассе, вы будете разбивать ограждения, взрывать стенки из шин, раскидывать по всей дороге бочки с водой, сбивая другие машины. А если кто-нибудь, включая вас, попадет в серьезную аварию, расслабьтесь и наблюдайте, как пилот впечатляюще катапультируется через лобовое стекло.Тип издания: RepackРазработчик: Bugbear EntertainmentЖанр: Arcade, Racing (Cars), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E20D83D132EA7A894292FB0FA681A9C27C1A02F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740812   (47972) от 03.08.2024
+
+Flatout (2005) [Ru/Multi] (1.01) Repack FitGirl
+
+>>Win Старые Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разнесите все в щепки! Уникальной отличительной особенностью FlatOut является недостижимый ранее уровень реализации физической модели. Заграждения разносятся на куски, ряды шин по бокам трасс разлетаются во все стороны, канистры с водой и бочки отскакивают и наносят повреждения другим машинам. При потере управления автомобилем вы почувствуете всю его массу и инерцию, (   Читать дальше...   )Тип издания: RepackРазработчик: Bugbear EntertainmentЖанр: Arcade, Racing, 3D, CarsЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7629B250FB2ECC401CC02586CED2C120973E4F14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681179   (47508) от 08.08.2024
+
+Dakar Desert Rally (2022) [Multi] (2.3.0/dlc) Scene Rune
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dakar Desert Rally переносит пользователей на пустынные трассы, по которым предстоит передвигаться на раллийных машинах, мотоциклах, квадроциклах и грузовиках. Геймеры смогут погрузиться в соревнования от Amaury Sport Organization, где получится взять под управление разнообразную технику и проверить её на прочность. Придется передвигаться по труднопроходимым участкам (   Читать дальше...   )Тип издания: SceneРазработчик: Saber Porto Ltd.Жанр: ГонкиЯзык озвучки: Английский, Немецкий, Французский, Итальянский и другиеЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6306DC5ED853CEB7EDA6665276D583576E375D13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742328   (47175) от 11.08.2024
+
+Taxi Rush (2024) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Садитесь за руль в Taxi Rush и перевозите своих пассажиров в этом сумасшедшем большом городе! В роли безумного таксиста доставляйте своих пассажиров вовремя. Пробки? Правила дорожного движения? Полиция? Красный свет? Нет, нет, нет, нет, нет, нет. Вы безумный, беззаконный водитель. Прыгайте на машине, если нужно! Taxi Rush - это не просто игра о вождении, это опыт, (   Читать дальше...   )Тип издания: RepackРазработчик: Clap GamesЖанр: Экшены, Приключенческие игры, Казуальные игры, ГонкиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1D2FA8E575EE61D58A19754C10DC88834B8A7FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1742543   (47067) от 12.08.2024
 
 Hot Lap Racing (2024) [Multi] (1.0.3-0cfd3d1de) Repack FitGirl
@@ -6,7 +110,7 @@ Hot Lap Racing (2024) [Multi] (1.0.3-0cfd3d1de) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47067.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Monster Jam Showdown (2024) [Multi] (1.0) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45200.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Monster Jam Showdown (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44667.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Flatout 2 (2006) [Ru/Multi] (1.2) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43723.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Sunrise GP (2024) [Multi] (1.0) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43698.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ FlatOut: Ultimate Carnage (2008) [Ru/Multi] (1.0) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43489.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Turbo Sliders Unlimited (2022) [En] (1.00/dlc) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43478.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ ExoCross (2020) [Multi] (2024.8.30.0) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42994.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Kitten Burst (2024) [En] (4.04c) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40319.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Pure Rock Crawling (2018) [En] (1.0) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38965.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ City Car Driving (2016) [Ru/Multi] (1.5.9.2/dlc) Repack Other s [Home Edition] [
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37822.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Forza Horizon 3 (2016) [Ru/Multi] (1.0.125.2/dlc) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37453.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ art of rally (2020) [Ru/Multi] (1.5.7/dlc) License GOG [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37254.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ HOT WHEELS UNLEASHED 2: Turbocharged (2023) [Multi] (1358352/dlc) Scene Rune [Le
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36434.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ CarX Street (2024) [Ru/En] (1.2.1/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36337.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ CarX Street (2024) [Ru/Multi] (1.2.1/dlc) Repack seleZen [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36272.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Need For Speed: Underground 2 Russia Drift (2012) [Ru] RePack/Mod 2012
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36112.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ CarX Street (2024) [Ru/Multi] (1.2.1/dlc) Repack Other s [Deluxe edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36079.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ MXGP 24: The Official Game (2024) [Ru/Multi] (1.0/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35760.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ MXGP 24: The Official Game (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl [Fox Holes
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35578.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ Automobilista 2 (2020) [Multi] (1.6.3.0/dlc) Scene Rune [VR]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35488.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35067.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AACBA7E3F7F86C74385A7472381472EF276D716C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765926   (34108) от 15.12.2024
-
-Hot Wheels Monster Trucks: Stunt Mayhem (2024) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hot Wheels Monster Trucks: Stunt Mayhem погружает игроков в мир, где правят бал монстр-траки. В тайтле передана вся суть каскадерского мастерства, и участникам предлагается взять под контроль культовые грузовики Hot Wheels. В игре представлено 20 различных грузовиков, каждый из которых оснащен собственными скинами и движениями, что позволяет разнообразить геймплей. (   Читать дальше...   )Тип издания: SceneРазработчик: 3DCloudsЖанр: Экшены, ГонкиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:744F51F73429FCFF3705BE3BA994E6C268C7FE4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766753   (33567) от 20.12.2024
-
-Alaskan Road Truckers (2023) [Ru/Multi] (1.6/dlc) Scene Rune
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alaskan Truck Simulator – уникальная игра, в которой вы столкнетесь с безжалостной, северной природой Аляски. В ней объединяются классический стимулятор и элементы сурвивала. Готовьтесь, вас ждет настоящее приключение! С чем у Вас ассоциируется Аляска? Вероятно, с величественными горными хребтами и жестокими зимами. Аляска – уникальное место для исследования. Найдется (   Читать дальше...   )Тип издания: SceneРазработчик: Road Studio S.A.Жанр: Экшены, Приключенческие игры, Казуальные игры, Инди, Гонки, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2378C6CB90B83EE275165A16B4C144666D880B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766702   (33565) от 20.12.2024
-
-Monster Jam Steel Titans 2 (2021) [Ru/Multi] (1.0e/dlc) License GOG
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Monster Jam Steel Titans 2 – это продолжение популярного симулятора гоночных монстр-траков. Новые машины и зоны. Получите 38 лучших машин Monster Jam, в том числе Higher Education, Sparkle Smash и Grave Digger. Посещайте 12 стадионов и играйте в реалистичных режимах. Выполняйте трюки!Тип издания: LicenseРазработчик: Rainbow StudiosЖанр: Гонки, Спортивные игрыЯзык озвучки: Английский, Французский, Японский, Корейский и другиеЯзык субтитров: Русский, Английский, Французский, Японский и другиеЯзык интерфейса: Русский, Английский, Французский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7B34FC06E2CA90C0560FB1723DB478460AE8EBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766675   (33543) от 20.12.2024
-
-Alaskan Road Truckers (2023) [Ru/Multi] (1.6/dlc) Repack seleZen
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alaskan Truck Simulator – уникальная игра, в которой вы столкнетесь с безжалостной, северной природой Аляски. В ней объединяются классический стимулятор и элементы сурвивала. Готовьтесь, вас ждет настоящее приключение! С чем у Вас ассоциируется Аляска? Вероятно, с величественными горными хребтами и жестокими зимами. Аляска – уникальное место для исследования. Найдется (   Читать дальше...   )Тип издания: RepackРазработчик: Road Studio S.A.Жанр: Экшены, Приключенческие игры, Казуальные игры, Инди, Гонки, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:901CAA006BAB3FF2657F989DEAFAE9679F75FF08
 ```
 
 https://mybot314.ru/tekegram_catalog/

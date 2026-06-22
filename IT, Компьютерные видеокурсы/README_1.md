@@ -1,3 +1,167 @@
+###  Публикация: 1860834   (1062343) от 22.03.2026
+
+UBICODERS, Elliot Lee | Master the First Principles of Robotics/Базовый курс по робототехнике (2026) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062343.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе вы с нуля создадите полностью автономный дрон и наземного робота, опираясь на фундаментальные принципы робототехники: теорию управления, динамику систем и объединение данных сенсоров (Sensor Fusion). Без ROS, без «магических» библиотек и готовых решений — только инженерное мышление и работа с первыми принципами.
+
+Обучение строится по строгому инженерному (   Читать дальше...   )Производство: UBICODERSЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 09:59:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47F06E30787EB034A4737FD00B78E3956D6697A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860757   (1062285) от 23.03.2026
+
+Специалист, Сергей Клевогин | Применение ЭЦП на основе «КриптоПро УЦ» (2018) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программно-аппаратный комплекс «Удостоверяющий Центр «КриптоПро УЦ» (сокращённо – ПАК «КриптоПро УЦ») обеспечивает автоматизацию деятельности удостоверяющего центра и может использоваться как в качестве средства удостоверяющего центра в нотации 63-ФЗ «Об электронной подписи», так и в качестве центра управления сертификатами.
+ПАК «КриптоПро УЦ» является первым в Российской (   Читать дальше...   )Производство: СпециалистЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 12:08:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E81756466FBDEBA827AE1159AC64C40F29296A58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860993   (1062168) от 24.03.2026
+
+javascript.ninja, Илья Климов | Эффективный TypeScript (2026) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс создан для разработчиков, которые хотят вывести качество своего TypeScript-кода на новый уровень — от простого использования типизации ради автодополнения до построения надежных архитектур, устойчивых к ошибкам коллег, ИИ-инструментов и собственных рефакторингов.
+Автор курса много лет критиковал TypeScript, однако эволюция языка, появление целостной экосистемы (   Читать дальше...   )Производство: javascript.ninjaЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 22:55:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:400BC52E76A1CDB11C367A39A12806928514A07E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860463   (1061882) от 21.03.2026
+
+Gigaschool, Кристина Желтова и др. | LLM-инженер (2026) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавай, обучай и внедряй LLM‑проекты под руководством экспертов и практиков.Производство: GigaschoolЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 62:44:28Реклама: наложение на видео (плашка спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C7D6D672164BBE3C395AA3B5D28B37E7582B84A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859615   (1061265) от 16.03.2026
+
+Balun.Courses, Дмитрий Сафонов | Курс по Data Science для middle: senior-навыки за 6 недель (2026) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Best practices по внедрению моделей в продакшн на примере реальных задач из BigTech. Без «красивых» ML и базовых методов - только грязные данные, real-time ML и ежедневные проблемы DS на работе.
+
+Темы курса:
+Работа с грязными и нестабильными данными, поиск смещений и дрейфов(   Читать дальше...   )Производство: Balun.CoursesЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 19:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:962DDD58DA29F5631A037EA21F0C2AA0922E2927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859228   (1061030) от 21.03.2026
+
+OTUS, Андрей Буранов, Алексей Цыкунов | Administrator Linux. Professional (2025) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы изучите Linux на продвинутом уровне и овладеть основными рабочими инструментами системного администратора. Это позволит уверенно, быстро и эффективно решать профессиональные задачи.
+Полученные знания позволят вам работать с такими операционными системами, как: Debian, Ubuntu, Redhat, Fedora, Oracle Linux, Rocky Linux, OpenSUSE и другими дистрибутивами.Производство: OTUSЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 85:24:06Реклама: наложение на видео (плашка спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7949B6A4FE85C33DBD751A71ABEF7747B98B20E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857616   (1059894) от 07.03.2026
 
 karpov.courses, Ярослав Шуваев | RAG-боты и агенты LLM [большие языковые модели]  (2026) WEB-DL [RU]
@@ -6,7 +170,7 @@ karpov.courses, Ярослав Шуваев | RAG-боты и агенты LLM [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059894.jpg" />
 </div>
 
 
@@ -32,7 +196,7 @@ TutorPlace, Кирилл Калужских | Нейросети в HR (2025) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059891.jpg" />
 </div>
 
 
@@ -58,7 +222,7 @@ Balun.Courses, Даниил Булыкин | Паттерны отказоуст
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059366.jpg" />
 </div>
 
 
@@ -87,7 +251,7 @@ TutorPlace, Кирилл Калужских | Нейросети для марк
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059315.jpg" />
 </div>
 
 
@@ -113,7 +277,7 @@ TutorPlace, Кирилл Калужских | Нейросети для эксп
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059314.jpg" />
 </div>
 
 
@@ -139,7 +303,7 @@ Hot Walls Academy, Михаил Шапошников | Нейромейкер с
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059268.jpg" />
 </div>
 
 
@@ -165,7 +329,7 @@ TutorPlace, Кирилл Калужских | Нейросети в SMM (2025) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059266.jpg" />
 </div>
 
 
@@ -191,7 +355,7 @@ R&D-лаборатория Devhands, Николай Ихалайнен | Postgre
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059179.jpg" />
 </div>
 
 
@@ -217,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059167.jpg" />
 </div>
 
 
@@ -246,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058917.jpg" />
 </div>
 
 
@@ -272,7 +436,7 @@ LiveClasses, Антон Мартынов | Обзор возможностей K
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058915.jpg" />
 </div>
 
 
@@ -298,7 +462,7 @@ Sorokin School, Павел Сорокин | Многопоточность в Ja
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058881.jpg" />
 </div>
 
 
@@ -327,7 +491,7 @@ infostart, Александр Кунташов | Автоматизирован�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058050.jpg" />
 </div>
 
 
@@ -355,7 +519,7 @@ OTUS, Иван Федоров | Observability: мониторинг, логир�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057895.jpg" />
 </div>
 
 
@@ -383,7 +547,7 @@ Kobezzza, Андрей Кобец | Rust во Frontend (2026) PCRec [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057894.jpg" />
 </div>
 
 
@@ -409,7 +573,7 @@ Purpleschool, Антон Ларичев | Продвинутый Python (2026) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057740.jpg" />
 </div>
 
 
@@ -435,7 +599,7 @@ Kobezzza, Дмитрий Холстинин | Инфраструктура Front
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057565.jpg" />
 </div>
 
 
@@ -463,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056499.jpg" />
 </div>
 
 
@@ -489,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056494.jpg" />
 </div>
 
 
@@ -515,7 +679,7 @@ OTUS, Владимир Денисов, Николай Медведев, Григ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055717.jpg" />
 </div>
 
 
@@ -527,167 +691,6 @@ OTUS, Олег Каратаев | Архитектор 1С (2025) PCRecПрои�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9575C28A1B96FB09C324B357AEE6D3144E84FE9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851563   (1055213) от 03.02.2026
-
-Специалист, Дмитрий Гончаров |  Обеспечение безопасности объектов с помощью систем IP - видеонаблюдения (2022) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зачастую возникает необходимость видеонаблюдения на небольшом объекте, таком как квартира, коттедж, розничная торговая точка, предприятие общественного питания, автоматическая заправочная станция, предприятие складского хозяйства и т.д. Системы IP-видеонаблюдения позволяют осуществлять мониторинг таких объектов, не только при нахождении операторов или сотрудников (   Читать дальше...   )Производство: СпециалистЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 03:48:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61298EB7891EE3B24DFCF56AD3550F2AFC543FDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851110   (1055090) от 01.02.2026
-
-РедСофт, Юлия Немыкина | Расширенное администрирование RedOS (2026) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись онлайн курса "Расширенное администрирование RedOS", включая презентации и приложенные платформой электронные книги в формате pdf. Также подойдет тем кто просто желает улучшить свои навыки администратора Linux систем.Производство: РедСофтЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 20:07:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3573E01FC05E295AB1C21FDD509C7123C6371476
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851203   (1055074) от 01.02.2026
-
-РедСофт, Николай Краев | Основы администрирования RedOS (2025) PCRec [RU]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс основ администрирования RedOS, подойдет эникеям и начинающим сисадминам.
-
-1. Введение
-2. Установка RedOS(   Читать дальше...   )Производство: РедСофтЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 16:08:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB6E00E21224BEABED9485527502F667E8331C26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850761   (1054874) от 31.01.2026
-
-Специалист, Сергей Шуйков | Программирование на С++ (2024) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Язык программирования С++ был создан в начале 1980-х годов, когда сотрудник компании Bell Labs Бьёрн Страуструп внедрил ряд улучшений в язык C для своих целей. В настоящее время, C++ широко применяется для разработки программного обеспечения и является одним из наиболее популярных языков программирования. Его использование охватывает создание операционных систем, (   Читать дальше...   )Производство: СпециалистЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 20:03:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:987DE411D259552ADBE9E3B14C9B35E72A2A2D74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850939   (1054784) от 31.01.2026
-
-Udemy, Андрей Кудлай | Laravel 11. Теория и практика работы с PHP-фреймворком (2024) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем вашему вниманию курс – "Laravel 11. Теория и практика работы с PHP-фреймворком". Курс состоит из двух частей и включает в себя 60 уроков. Данный курс ориентирован на начинающих и продолжающих PHP-программистов, которые хотят на практике закрепить свои знания, развить навыки программирования, а также научиться работать с одним из наиболее популярных (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 25:59:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:770EB48E547E29E0F92C6B7A2C1BEFD58F54AF20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849676   (1053886) от 25.01.2026
-
-Специалист, Николай Обухов | PostgreSQL: Уровень 1. Основы SQL (2025) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс предназначен для формирования прочной базы знаний по языку SQL и ориентирован на практическое применение в реальных проектах. В ходе обучения слушатели осваивают написание запросов к одной и нескольким таблицам, модификацию данных, а также создание и изменение объектов базы данных.
-
-Обучение проводится с использованиемПроизводство: СпециалистЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 16:56:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13911DC0569F1BE623D251C95F2C17CB1F4AAA3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

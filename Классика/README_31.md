@@ -6,7 +6,7 @@ Weber, Mahler - Die drei Pintos (Paolo Arrivabeni & National Philharmonic Orches
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483944.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Complete Classical Chillout (2015) [MP3|320 кб/с]<Classical, Instrumenta
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483737.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Antonio Lucio Vivaldi - Complete Opus 8 "Il Cimento dell'Armonia e dell'Inventio
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483735.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Sweet Susie, Manni Montana ‎ - Kv 2006 (Inspired By Mozart) (2005) [FLAC|Lossl
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483215.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Ave Maria (Unknown) [FLAC|Lossless|image + .cue] <Сrossover Classical, Pop
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483071.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Teodor Currentzis, MusicAeterna - Gustav Mahler Symphony n°6 (2018) [FLAC|Lossl
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482989.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Hauser, London Symphony Orchestra - Classic (2020) Conductor Robert Ziegler [FLA
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482857.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Russian Legends (Legendary Russian Soloists Of The 20-th Century) (100 CD  
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481795.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Christian Grovlen - BACH - Inside Polyphony (2017) [MP3|320 Kbps] <Classical>
 >>Фортепиано
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481737.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Andrew Lloyd Webber - The Phantom of the Opera (1987) [FLAC|(image+.cue)]<Opera>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481722.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Иисус Христос Суперзвезда (русская верси
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480118.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Beethoven - Symphonies and Overtures (Jos Van Immerseel & Anima Eterna Orchestra
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479691.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - Мировая Классика в современной обработк�
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477934.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ VA - The Musicals Album (2017) [MP3|320 Kbps] <Classical, Soundtrack>
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477841.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Biber - Missa Bruxellensis (Jordi Savall) (1999) [FLAC|Lossless|image + .cue] <C
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475074.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Jordi Savall + Montserrat Figueras + Arianna Savall - 6 альбомов (2000-2
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474869.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Полные собрания сочинений
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473527.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Новая и Старая Классика (2012) [MP3|320 кб/с]<Нео
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471087.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Gabor Boldoczki - Oriental Trumpet Concertos (2016) [FLAC|Lossless|WEB-DL|tracks
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470697.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Frederic Chopin (Artur Rubinstein) - The Chopin Collection (1991) [MP3|320 Kbps]
 >>Фортепиано
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470400.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ VA - 300% Classic In Rock (1999) [FLAC|Lossless|tracks + .cue] <Classical, Vocal
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469262.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - Classico: Klassik mit Popstars (1999) [FLAC|Lossless|image + .cue] <Classic
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469099.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ VA - 300% Classic In Rock (1999) [MP3|320 Kbps] <Classical, Vocal, Rock, Trance>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468897.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Mozart - Symphony Nos. 38 & 39 (Alexander Schneider & Chamber Orchestra of Europ
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467021.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Humperdinck - Sleeping Beauty No1-5; Die Maurische Rhapsodie (Martin Fischer-Die
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464768.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Cristian Petrescu - Georges Enesco: Oeuvres pour piano (2005) 3CD [FLAC|(image+.
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464766.jpg" />
 </div>
 
 

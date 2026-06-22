@@ -1,3 +1,110 @@
+###  Публикация: 642018   (880696) от 10.04.2013
+
+Микрокосмос / Microcosmos (1996) [1080p] BDRip [hand made 60fps]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_880696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полтора часа, проведенные на неизвестной планете, где все расстояния измеряются миллиметрами. Ее обитатели: фантастические создания, насекомые, улитки и прочие обитатели травы и воды. Ее пейзажи: непроходимые дебри травяных кущ, капли росы, огромные, как воздушные шары.
+Зритель открывает для себя прекрасный, сияющий всеми красками радуги параллельный мир, где работают иные физические законы. Мир, залитый ирреальным светом, полный неведомых звуков. Страна, где животные умеют ходить по воде или разгуливать вниз головой.
+Фазан, разгуливающий по муравьиной тропе производит на вас не меньшее впечатление, чем Годзилла из знаменитого триллера, а обычная летняя гроза заставляет вспомнить о воздушной атаке сотни тяжелых бомбардировщиков. Постоянные переходы из одного мира в другой дают ошеломленным зрителям почувствовать относительность наших представлений о пространстве.
+Зритель ощущает себя крохотным десантником, заброшенным в самый эпицентр действия. Он слышит грохот муравьиных войн и рев пчелиных крыльев у себя за (   Читать дальше...   )Жанр: ДокументальныйРежиссер: Клод Нуридзани, Мари ПеренуПродюсер: Кристоф Барратье, Ивет Мале, Жак ПерренПеревод: Не требуетсяПродолжительность: 01:15:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39180F4660FEA4871060E0CF4EEBE1E7ABFF3168
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 853892   (880554) от 13.03.2016
+
+BBC. Дикая Аравия / Wild Arabia (2013) BDRip [H.264/1080p] [1-3 серия из 3]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880554.jpg" />
+</div>
+
+
+###  Подробнее
+
+На протяжении многих столетий таинственные, но запретные земли пленяли наше воображение. И вот впервые нам удастся получше узнать родину мифов и легенд. Мы увидим мир контрастов и непредсказуемых сюрпризов. Это место, где древняя история вплетена в ткань современности. И эти же земли приходятся родным домом для уникальных обитателей животного царства. Это рассказ (   Читать дальше...   )Жанр: Документальный, история, путешествияПеревод: Одноголосый закадровый (любительский, читает Ю. Онищенко)Субтитры: вшитыеЯзык субтитров: русский, русский, английскийПродолжительность: 3 x ~00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C510D300C4261A66E0829E90C465751B757C98D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495863   (877365) от 14.09.2021
+
+Остров обезьян / Monkey Island (2019) IPTV [H.265/2160p] (серии 1-3 из 3)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877365.jpg" />
+</div>
+
+
+###  Подробнее
+
+В древних джунглях Шри-Ланки три примата: краснолицый гульман, цейлонский макак и сероватый лангур, — живут среди руин. Эта эпическая игровая площадка идеально подходит для того, чтобы раскрыть секреты мира обезьян. Как и люди, приматы живут в семьях, кланах и сообществах. У них есть родственники, друзья и враги, они пользуются широким репертуаром жестов для общения (   Читать дальше...   )Производство: Канада, Blink Films for Blue Ant Media InternationalЖанр: Документальный, природа, флора, фаунаРежиссер: Марта ХолмсПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 3 x ~00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E45CA74C5BAA0707E650F4228F5AAE447D6F3CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105236   (876464) от 17.02.2017
+
+Из жизни животных / Tendresses animales (2014) SATRip (серии 1-4 из 4)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разнообразие живых существ, населяющих нашу планету, поражает воображение. Гигантские и крошечные, пушистые и колючие, хищные и травоядные, безобидные и опасные - они веками живут рядом с нами. Казалось бы, что в них удивительного? Однако интерес к изучению и наблюдению за животными постоянно растет, и человеческий ум все время пытается постигнуть таинственный мир (   Читать дальше...   )Телекомпания: ФранцияЖанр: Документальный, познавательный, флора, фаунаПеревод: Одноголосый закадровый, профессиональный
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A74320653F87818A28F73DC7AB05385710DB17D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104464   (876216) от 17.02.2017
 
 Южные моря 3D: Атолл Бикини и Маршалловы острова/ The South Seas 3D: Bikini Atoll & Marshall Islands(2014) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
@@ -6,7 +113,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876216.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875042.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874434.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874194.jpg" />
 </div>
 
 
@@ -110,7 +217,7 @@ NG. Ядовитый остров / Venom Islands (2012) HDTVRip [H.264/720p]
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873682.jpg" />
 </div>
 
 
@@ -136,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873555.jpg" />
 </div>
 
 
@@ -162,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871400.jpg" />
 </div>
 
 
@@ -188,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870913.jpg" />
 </div>
 
 
@@ -214,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870831.jpg" />
 </div>
 
 
@@ -240,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870056.jpg" />
 </div>
 
 
@@ -266,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869961.jpg" />
 </div>
 
 
@@ -292,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866855.jpg" />
 </div>
 
 
@@ -318,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864349.jpg" />
 </div>
 
 
@@ -344,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863746.jpg" />
 </div>
 
 
@@ -370,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863448.jpg" />
 </div>
 
 
@@ -396,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863057.jpg" />
 </div>
 
 
@@ -422,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861915.jpg" />
 </div>
 
 
@@ -448,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858979.jpg" />
 </div>
 
 
@@ -474,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857797.jpg" />
 </div>
 
 
@@ -500,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857500.jpg" />
 </div>
 
 
@@ -526,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855586.jpg" />
 </div>
 
 
@@ -552,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853423.jpg" />
 </div>
 
 
@@ -563,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E44FFE532604770D72E0D46B7F5063AAD64746B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377435   (853271) от 21.04.2020
-
-Великая синяя бездна (Великие океаны) / Great Blue Wild (2015) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы увидеть некоторые из самых захватывающих природных чудес на планете, человек вынужден иногда погружаться в глубины океанов. Это рай для дайверов. Здесь можно встретиться с самыми потрясающими океанскими жителями: таинственными гигантами, беспощадными хищниками и легендарными глубоководными чудовищами. И все они ведут постоянную битву за выживание. Это родина (   Читать дальше...   )Производство: США, Канада, Blue Ant MediaЖанр: Документальный, природа, путешествияРежиссер: Дэн ХьюзПеревод: Двуголосый закадровый, профессиональныйСубтитры: АнглийскиеПродолжительность: 6 x ~00:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19A9B15FA4EF6740FA40C592FEA6EDC632971C58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377272   (853043) от 21.04.2020
-
-Дайвинг с целакантом / Diving with the Coelacanth / Le coelacanthe, plongee vers nos origines (2014) DVBRip [H.264] [hand made 50fps]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853043.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 120 метрах от дикого побережья Южной Африки живет существо, которое, как считалось, вымерло 65 миллионов лет назад. Целакант, известный в местных кругах под именем Гомбесса. Рыба-динозавр, живое ископаемое, которое остаётся единственным звеном, связывающим рыбу с наземными четвероногими: в её плавниках присутствуют зачатки костей рептилий и млекопитающих, а в огромной (   Читать дальше...   )Производство: Франция, ARTE, Andromède Océanologie, Les Films d'IciЖанр: Документальный, природа, флора, фаунаРежиссер: Жиль КебалиПеревод: Двуголосый закадровый, профессиональный (Видеофильм-ТВ)Субтитры: отсутствуютПродолжительность: 00:53:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47A6C0F56125593A9C50A445E7AE3356C672DD12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 839072   (850391) от 30.03.2016
-
-NG. Ночь льва / Night of The Lion (2010) HDTVRip [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Испытайте неизведанное, загляните в скрытый мир ночной саванны. Ночь, какой её ещё никогда не видели. Камеры повышенной светочувствительности с тепловым наведением, проникают сковзь кромешную тьму, предоставляя зрителю возможность проследить за действиями львов ночью, в период наибольшей активности. Понаблюдайте, как они используют темноту, себе во благо и навсегда (   Читать дальше...   )Жанр: Документальный, природа, фаунаПеревод: Одноголосый закадровый (профессиональный)Субтитры: отсутствуютПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E91C552854187B72CCAC0373598C32F7C09D4CF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 839501   (846675) от 01.04.2016
-
-Гренландия. Дикая природа страны викингов /  The Green Land: Wildlife in the Land of Vikings (2005) HDTVRip [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гренландия - уникальный уголок нашей планеты. Её северная красота на протяжении многих веков завораживала умы и души людей. Поддайтесь и вы её чарам.Жанр: Документальный, природа, фаунаПеревод: Одноголосый закадровый (профессиональный)Субтитры: отсутствуютПродолжительность: 00:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E7C89C0B7AD6CFA76503D36CBB533624D947713
 ```
 
 https://mybot314.ru/tekegram_catalog/

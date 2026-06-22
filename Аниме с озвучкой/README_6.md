@@ -1,3 +1,83 @@
+###  Публикация: 1603782   (1029959) от 29.03.2023
+
+Истории нечисти [ТВ-1] | История о мононокэ [ТВ-1] | Mononogatari | Malevolent Spirits [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир людей и мир духов разделены незримой границей. Иногда духи пересекают эту границу, обретая материальную форму и вселяясь в людей. Таких духов называют Цукумогами. Некоторые из них дружелюбны, но другие приходят в мир людей со злыми намерениями. Цукумогами гораздо сильнее обычных людей, поэтому для надзора над ними был создан клан Саэномэ. Кунато Хёма состоит (   Читать дальше...   )Производство: Япония / Студия BN PicturesЖанр: Приключения, мистикаРежиссер: Кимура РюйтиЯзык озвучки: Русский многоголосый, закадровый, Японский
+- Kroxxa, Sharon, Silv, SlivciS, WhiteCrow (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5347309104DEBB119362610E6F26D66E77619C96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602532   (1029950) от 29.03.2023
+
+Onii-chan wa Oshimai! | Onimai: I'm Now Your Sister! | Я стал сестрой! [2023, TV, 12 из 12] WEBRip 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Махиро Ояма был обычным хикикомори и любителем эроге пока однажды утром не обнаружил, что превратился в девушку! Оказывается, его младшая сестра, безумная-учёная по имени Михари, опробовала на нем один из своих экспериментальных препаратов. Михари полна решимости изучить его изменения во имя науки, а Махиро желает вернуться к своей привычной жизни.Производство: Япония, студия Studio BindЖанр: повседневность, комедияРежиссер: Фудзии СингоЯзык озвучки: Русский закадровый (Dream Cast), (ShikokuStudio), (AniLibria.TV)Субтитры: Русские надписи, русские (софтсаб), Multi-5Продолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A60CD278F53DE0D06E4EFA4121EB0ECA6869C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602519   (1029763) от 30.03.2023
+
+Томо — девушка! | Tomo-chan wa Onnanoko! | Tomo-chan Is a Girl! [2023, TV, 13 из 13] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Томо Аидзава и Дзюнъичиро Кубота — самые что ни на есть братаны. Они то подшучивают друг над другом, то спорят, а порой и вовсе дерутся. И как настоящие братаны друг друга в беде не оставят. Разве можно разрушить столь крепкую мужскую дружбу? Как бы не так! Томо ведь, оказывается, девушка! Так ещё и по уши влюблена в Дзюнъичиро! Но пусть она девушка и пацанистая, (   Читать дальше...   )Производство: Япония / Студия Lay-duceЖанр: Комедия, романтикаРежиссер: Намба ХитосиЯзык озвучки: Русский многоголосый, закадровый, Японский
+- Cleo-chan, Hoopoe, Nuts, Zozya (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 13 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97778B6D34E085B2E58B055C956AE96DF087FEA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446299   (1029690) от 22.02.2021
 
 Kyou kara Ore wa!! | Сегодня и начну!! [1993, OVA, 10 из 10] BDRip 1080p rus
@@ -6,7 +86,7 @@ Kyou kara Ore wa!! | Сегодня и начну!! [1993, OVA, 10 из 10] BDRi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029690.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029561.jpg" />
 </div>
 
 
@@ -62,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029555.jpg" />
 </div>
 
 
@@ -89,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028754.jpg" />
 </div>
 
 
@@ -118,7 +198,7 @@ Futari Ecchi / Step Up Love Story / Хроники молодоженов [2002,
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026810.jpg" />
 </div>
 
 
@@ -144,7 +224,7 @@ Erementar Gerad | Elemental Gelade | Воздушные пираты [2005, TV, 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026579.jpg" />
 </div>
 
 
@@ -171,7 +251,7 @@ Windaria | Once Upon a Time | Виндария [1986, Movie] DVDRip 480p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026570.jpg" />
 </div>
 
 
@@ -198,7 +278,7 @@ Shinpi no Sekai El Hazard | El Hazard: The Wanderers | Эль-Хазард: Ст
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026541.jpg" />
 </div>
 
 
@@ -225,7 +305,7 @@ Le Chevalier D'Eon | Шевалье Д'Эон [2007, TV, 24 эп.] HDTVRip 720p 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026540.jpg" />
 </div>
 
 
@@ -252,7 +332,7 @@ Speed Grapher | Спидграфер [2005, TV, 24 эп.] DVDRip 480p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026534.jpg" />
 </div>
 
 
@@ -279,7 +359,7 @@ Getbackers: Dakkanya | Get Backers | Агентство по возврату у
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026289.jpg" />
 </div>
 
 
@@ -305,7 +385,7 @@ Death Note | Тетрадь Смерти [2006, TV, 37 из 37] BDRip 1080p raw+
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026274.jpg" />
 </div>
 
 
@@ -331,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025514.jpg" />
 </div>
 
 
@@ -357,7 +437,7 @@ Higurashi no Naku Koro ni: Gou / Higurashi: When They Cry - Gou / Когда п�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025507.jpg" />
 </div>
 
 
@@ -383,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024970.jpg" />
 </div>
 
 
@@ -409,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024652.jpg" />
 </div>
 
 
@@ -436,7 +516,7 @@ Dr. Stone: Stone Wars / Доктор Стоун [ТВ-2] [2021, TV, 11 ep] WEB-D
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024279.jpg" />
 </div>
 
 
@@ -464,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024098.jpg" />
 </div>
 
 
@@ -491,7 +571,7 @@ Go-Toubun no Hanayome 2 / The Quintessential Quintuplets 2 / Пять невес
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022962.jpg" />
 </div>
 
 
@@ -517,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022851.jpg" />
 </div>
 
 
@@ -543,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022850.jpg" />
 </div>
 
 
@@ -569,7 +649,7 @@ Boku no Hero Academia | My Hero Academia | Моя геройская акаде�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021529.jpg" />
 </div>
 
 
@@ -595,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021191.jpg" />
 </div>
 
 
@@ -606,85 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:248AEED36B5442543B93B69298B1C60F8188E1C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462440   (1021171) от 14.04.2021
-
-Гяру и динозавр | Gal to Kyouryuu | Gal & Dino [TV-1] [2020, TV, 12 из 12] WEBRip 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гяру Каэде с перепоя пригласила домой динозавра. Теперь он живёт в её комнате, ест лапшу, смотрит телевизор и даже играет в карты с друзьями девушки. Так начинается милая и душевная история о необычных соседях.
-Причём, как в рисованном виде, так и в виде игрового сериала с актёрами.Производство: Япония, студия Kamikaze Douga / 神風動画Жанр: комедия, повседневность, дорамаРежиссер: Аоки ДзюнЯзык озвучки: Русский закадровый (Wakanim.tv)Субтитры: Русские надписи (неотключаемые)Продолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3362443C2F396A8CCB1D50DC09C4FE6BFC38592
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415791   (1021057) от 14.04.2021
-
-Yuukoku no Moriarty | Moriarty the Patriot | Патриот Мориарти [часть 1] [2020, TV, 11 из 11] WEB-DL 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конец XIX века. В ходе промышленной революции Англия добивается процветания и уверенно наращивает своё влияние. Однако, вопреки техническому прогрессу, в стране до сих пор господствует прочно укоренившийся сословный строй, из-за которого аристократия, не составляющая и 3% населения, доминирует над всеми остальными. В то время как знать по праву рождения наделена (   Читать дальше...   )Производство: Япония, студия Production I.GЖанр: драма, исторический, сёнэнРежиссер: Номура КадзуяЯзык озвучки: Русский закадровый (Wakanim.tv)Субтитры: Русские надписи (неотключаемые), Русский (внешние)Продолжительность: 11 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5B531C7E598186EC986AE7FBA8F93BEF96ECFB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462560   (1020758) от 16.04.2021
-
-Domestic na Kanojo | Домашняя девушка [2019, TV, 12 из 12] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старшеклассник Нацуо Фудзии безответно влюблен в свою учительницу Хину. Чувства гложут его, и в надежде хоть немного развеяться он идёт с друзьями на групповое свидание. Там Нацуо знакомят с молчаливой девушкой Руи, и их встреча заканчивается сексом. После они расходятся, намереваясь больше никогда не встретиться вновь… Однако судьба рассудила иначе: отец Нацуо приводит (   Читать дальше...   )Производство: студия Diomedea / ディオメディアЖанр: романтика, драма, эччиРежиссер: Ибата СётаПеревод: SovetRomantica (KuroKaze & Yamada)Язык озвучки: Японский и русский (Многоголосая, закадровая KANSAI Studio)Субтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7FC0FF9E6CF034BB83A97D444DC750B92BC2024
 ```
 
 https://mybot314.ru/tekegram_catalog/

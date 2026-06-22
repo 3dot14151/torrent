@@ -1,3 +1,29 @@
+###  Публикация: 1066984   (409517) от 27.10.2016
+
+Одри Акун, Изабель Пайо | Французские дети любят учиться и не пользуются шпаргалками (2016) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваш ребенок не может сосредоточиться на учебе, ему сложно запоминать большой объем информации? Совместное приготовление домашних заданий давно стало вашим главным кошмаром? Вы бессильны перед бесконечными детскими «я не понимаю» или «я забыл»? Вы искренне желаете, чтобы ваш ребенок каждый день с радостью шел в школу, а не мечтал втайне, чтобы она сгорела? Тогда присмотритесь (   Читать дальше...   )Жанр: ПсихологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ADBA89252006B22C2D9D504F8C54247323FB7B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168662   (408635) от 24.09.2017
 
 Елена Южакова | 50 секретов воспитания детей, или Как воспитать сына, который строит дом (2017) [FB2, EPUB]
@@ -6,7 +32,7 @@
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408635.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399294.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_398846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_398846.jpg" />
 </div>
 
 
@@ -91,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388799.jpg" />
 </div>
 
 
@@ -117,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387746.jpg" />
 </div>
 
 
@@ -143,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386849.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385204.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385131.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385008.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384998.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384361.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383524.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383415.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383239.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381311.jpg" />
 </div>
 
 
@@ -409,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381188.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_379480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379480.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376531.jpg" />
 </div>
 
 
@@ -490,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375983.jpg" />
 </div>
 
 
@@ -516,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374854.jpg" />
 </div>
 
 
@@ -543,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374061.jpg" />
 </div>
 
 
@@ -569,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371761.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371581.jpg" />
 </div>
 
 
@@ -623,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368023.jpg" />
 </div>
 
 
@@ -650,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360955.jpg" />
 </div>
 
 
@@ -661,33 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A022D52E19D49C7A7D788456671A99AECD53D53C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177907   (360748) от 26.10.2017
-
-И.В. Вачков | Сказки о самой душевной науке (2016) [FB2, EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360748.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу вошли две сказочные повести, которые можно назвать своеобразной психологической азбукой для детей 6–10 лет. Описывая необыкновенные приключение девочки Юлии других сказочных персонажей, автор в доступной и занимательной форме знакомит детей с такими понятиями, как память, темперамент, характер, эмоции, вводит их в мир психологии общения.
-Книга предназначена (   Читать дальше...   )Жанр: Детская психология, СказкиФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B9E2E1E2EA3906624AFC0C9B1A2D744B82E62C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1709154   (62051) от 23.03.2024
+
+Кикбоксер / Kickboxer (1989) BDRip [H.265/2160p] [4K, SDR, 8-bit] [hand made Upscale AI]
+
+>>След.
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Братья Курт и Эрик Слоан отправляются в Таиланд, на родину кикбоксинга, чтобы доказать местным бойцам превосходство американской школы над тайской. Эрик, чемпион Америки по кикбоксингу, встречается в бою с Тонг По, чемпионом Таиланда.
+
+Тонг По оказывается сущим зверем. Он намеренно калечит уже обессилевшего Эрика Слоана, обрекая его на инвалидность. Курт поступает (   Читать дальше...   )Производство: США / Kings Road Entertainment, The Movie GroupЖанр: боевик, триллер, спортРежиссер: Марк ДиСалле, Дэвид УортАктеры: Жан-Клод Ван Дамм, Деннис Алексио, Деннис Чан, Мишель Кисси, Хэскелл В. Андерсон III, Рошель Ашана, Ли Ка-Тин, Ричард Фу, Рикки Лю, Томас СиньПеревод: Многоголосый профессиональный (СТС), (двухголосый закадровый) Music-TraidЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:382F5C3251BA44524A5D6D995A8C62FBA993D584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709626   (61842) от 25.03.2024
 
 Сергий против нечисти (2021) WEBRip [H.264/1080p] [handmade AI]
@@ -6,7 +34,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61842.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61841.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61819.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61689.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61660.jpg" />
 </div>
 
 
@@ -136,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61631.jpg" />
 </div>
 
 
@@ -163,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61624.jpg" />
 </div>
 
 
@@ -189,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61596.jpg" />
 </div>
 
 
@@ -216,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61551.jpg" />
 </div>
 
 
@@ -242,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61546.jpg" />
 </div>
 
 
@@ -268,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61471.jpg" />
 </div>
 
 
@@ -294,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61456.jpg" />
 </div>
 
 
@@ -320,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61325.jpg" />
 </div>
 
 
@@ -346,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61212.jpg" />
 </div>
 
 
@@ -372,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61128.jpg" />
 </div>
 
 
@@ -398,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61122.jpg" />
 </div>
 
 
@@ -424,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61107.jpg" />
 </div>
 
 
@@ -450,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60994.jpg" />
 </div>
 
 
@@ -476,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60956.jpg" />
 </div>
 
 
@@ -502,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60951.jpg" />
 </div>
 
 
@@ -528,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60877.jpg" />
 </div>
 
 
@@ -554,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60807.jpg" />
 </div>
 
 
@@ -580,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60764.jpg" />
 </div>
 
 
@@ -607,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60748.jpg" />
 </div>
 
 
@@ -633,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60745.jpg" />
 </div>
 
 
@@ -644,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:829955EF29712A7F6B5236F7841BD9523353A44B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697273   (60742) от 05.04.2024
-
-Monamour: Любовь моя / Monamour (2005) BDRip [H.264/1080p] [Handmade correction AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история любви девушки из Венеции по имени Марта и француза Леона. Всего пять дней длится роман между Мартой и Леоном и их чувства с каждым днем становясь все сильнее. Но у Марты есть муж, который догадывается об увлечении своей жены.Производство: Италия, Carla Cipriani per Monamour S.r.l.Жанр: драма, для взрослых, эротикаРежиссер: Тинто БрассАктеры: Анна Жимская, Риккардо Марино, Марио Пароди, Нела Лучич, Лучия Луккесино, Вирджиния Бэррет, Паоло Ланца, Лео Мантовани, Массимо Карадонна, Федерико ЧезареоПеревод: Многоголосый профессиональныйЯзык озвучки: русский, итальянский, английскийСубтитры: русские (PGS), английские (PGS)Продолжительность: 01:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:651A1F750F392A85C389E5B1FB94ABD5E57EDF8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

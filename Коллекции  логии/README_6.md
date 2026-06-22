@@ -1,3 +1,57 @@
+###  Публикация: 252395   (750966) от 11.01.2022
+
+Черепашки Ниндзя (Трилогия) / Teenage Mutant Ninja Turtles (1990-1993) [1080p] BDrip
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Битва продолжается и нет ей конца. На этот раз их подруга Эйприл случайным образом обнаружила откуда родом эта радиоактивная жидкость, которая помогла им мутировать. Но Шредер тоже не так глуп, как кажется, его помощники смогли раздобыть такую же колбу. Шредер начал создавать мутантов для борьбы с черепахами. Но и сам после получения хорошего пинка от черепах угодил (   Читать дальше...   )Режиссер: Стюарт Гиллард / Stuart GillardВ ролях: Элиас Котеас, Пейдж Турко, Стюарт Уилсон, Саб Симоно, Вивиан Ву, Марк Казо, Мэтт Хилл, Джим Рапоса, Дэвид Фрайзер, Генри Хаяши
+
+Описание фильма: Эйприл где-то на распродаже купила Сплинтеру старинный японский скипетр, и ещё всяких других подарков для своих друзей черепашек. Как выяснилось, этот скипетр — не просто обычный антиквариат, а прообраз машины времени. Но (   Читать дальше...   )Субтитры: АнглийскиеФормат: MKVПродолжительность: 01:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4109075AD43BBA05890B97EEBA06847F7381641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115602   (747250) от 01.04.2018
+
+Голый пистолет: Трилогия / The Naked Gun: Trilogy (1988, 1991, 1994) BDRip [H.265/1080p]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полицейская комедия. Главный герой - лейтенант Фрэнк Дребин. Он разбирается со всеми "нарушителями" так лихо, как Агенту 007 и не снилось. Это невероятно смешная комедия с неожиданными поворотами сюжета, остроумными диалогами и конечно же, погонями, драками и прочими непременными атрибутами жанра.Производство: США / Paramount PicturesЖанр: Комедия, КриминалРежиссер: Дэвид Цукер, Питер СигалАктеры: Лесли Нильсен, Присцилла Пресли, Рикардо Монтальбан, Джордж Кеннеди, О. Дж. Симпсон, Сьюзэн Бьюбиан, Нэнси Марчанд, Рэй Бирк, Жанетт Чарльз, Эд Уильямс, Робер Гуле, Ричард Гриффитс, Жаклин Брукс, Энтони Джеймс, Ллойд Бокнер, Тим О’Коннор, Фред Уорд, Кэтлин Фримен, Анна Николь СмитПеревод: Многоголосый закадровый (Видеобиз)Субтитры: отсутствуютПродолжительность: 01:25:02 | 01:25:06 | 01:22:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC46A453CB841535A583754745DA2C86784946F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 782040   (746585) от 03.05.2014
 
 Нимфоманка: Часть 1, 2 / Nymphomaniac: Vol. I, II (2013) BDRip [H.264/720p-LQ] [Line]
@@ -6,7 +60,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746585.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746479.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746032.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742176.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736993.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735282.jpg" />
 </div>
 
 
@@ -163,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726034.jpg" />
 </div>
 
 
@@ -189,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_712809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_712809.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712253.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708724.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708501.jpg" />
 </div>
 
 
@@ -298,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706697.jpg" />
 </div>
 
 
@@ -324,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694423.jpg" />
 </div>
 
 
@@ -351,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693267.jpg" />
 </div>
 
 
@@ -378,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691228.jpg" />
 </div>
 
 
@@ -404,7 +458,7 @@ Kingsman / Kingsman (2014-2021) BDRip [H.264/720p] [Трилогия]
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690066.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689517.jpg" />
 </div>
 
 
@@ -456,7 +510,7 @@ Kingsman: Трилогия / Kingsman: Trilogy (2014-2021) BDRip [H.264] [AVO]
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688074.jpg" />
 </div>
 
 
@@ -482,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686894.jpg" />
 </div>
 
 
@@ -508,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683344.jpg" />
 </div>
 
 
@@ -534,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681632.jpg" />
 </div>
 
 
@@ -562,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679885.jpg" />
 </div>
 
 
@@ -588,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_676934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_676934.jpg" />
 </div>
 
 
@@ -614,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674005.jpg" />
 </div>
 
 
@@ -628,60 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3DF87F8DD6E445B442511C9FE9852A1485AD765
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509708   (673908) от 12.06.2012
-
-Филадельфийский эксперимент (Секретный эксперимент) / The Philadelphia Experiment (1984-1993) DVDRip [H.264] [Дилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673908.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мае 1943 года на американской военной базе была проведена операция, которая вошла в историю под названием "Филадельфийский эксперимент". Это был совершенно секретный проект, который позволял быстро решить исход второй мировой войны.
-Но произошла катастрофа: часть людей погибла, часть сошла с ума, несколько человек перенеслись во времени на сорок лет вперед. (   Читать дальше...   )Производство: СШАЖанр: Фантастика, ПриключенияРежиссер: Стивен КорнуэллАктеры: Брэд Джонсон , Марджин Холден , Геррит Грам , Кристиан Граас , Сирил О'Рейлли , Джеффри БлейкПеревод: Профессиональный многоголосый, профессиональный двуголосый, авторский одноголосый (А.Михалёв)Субтитры: РусскиеПродолжительность: 01:41:14 + 01:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E48DA84EAC8F4A247AF38275A88EF21AADB3B98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 798116   (672853) от 20.06.2014
-
-Лара Крофт: Расхитительница гробниц [Дилогия] / Lara Croft: Tomb Raider [Diology] (2001, 2003) BDRip [H.264/720p-LQ]  [Hi10P]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во второй серии приключений прекрасной расхитительницы гробниц Лары Крофт география действия становится ещё обширней и экзотичней. Ларе предстоит побывать в Греции, Кении, Танзании, Гонконге и Китае, и, разумеется, не для того, чтобы оценить местные красоты.
- Она будет противостоять злодею-интеллектуалу Чену Ло, возглавляющему китайский преступный синдикат. Ло, искусный (   Читать дальше...   )Производство: США, Германия, Япония, ВеликобританияЖанр: Фэнтези, Боевик, Триллер, ПриключенияРежиссер: Ян де БонтАктеры: Анджелина Джоли, Джерард Батлер, Киаран Хиндс, Крис Барри, Ноа Тейлор, Джимон Хунсу, Тиль Швайгер, Саймон Ям, Теренс Йин, Даниэль КальтаджиронеПеревод: Дублированный, Многоголосый, Двухголосый, Авторский x2Язык субтитров: Русский (Надписи), Русский, АнглийскийПродолжительность: 01:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6847F60D5D5C247F0672B5D738B905D131772E68
 ```
 
 https://mybot314.ru/tekegram_catalog/

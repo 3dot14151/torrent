@@ -6,7 +6,7 @@ Fancy - 30 Years - The New Best Of (2018) [MP3|320 Kbps] <Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721399.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - 100 Hits - The Best Love Album (2017) [MP3|320 Kbps] <Pop, R&B, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721272.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Herbie Mann - 2 Albums (1976, 1978) [MP3|320 Kbps] <Funk Soul, Jazz, Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721188.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Spring Break Party 2017 Powered By Xtreme Sound (2017) [MP3|320 Kbps] <Deut
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720776.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Ministry Of Sound I Love Acoustic (2018) 3CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719383.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Ballermann on Snow - Apres Ski Hits 2019 Schlager (Party Kracher zum Feiern
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719057.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Los Valentinos - High Voltage (1977) LP [MP3|320 Kbps] <Disco, Pop Rock, Instrum
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717063.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Dekad - 6 Albums (2005-2015) CD [MP3|320 Kbps] <Electronic, Synth-pop, Electro-p
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716658.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Auto Reverse - Surfing On Dream Waves (2015) [MP3|320 кб/с] <Electronic, Disc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715955.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Tina Turner - The Best (2018) 2CD, Compilation [MP3|320 Kbps] <Pop, Rock, Soul, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715603.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Falco – Falco - The Box (4CD) (2022) [MP3|320 Kbps] <Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714521.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Agnetha Faltskog (ABBA) - 12 Studio Albums + 2 Compilations (1968-2013) Collecti
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714468.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Ritual (Jillian Ann) - The Code Album (2015) [MP3|320 Kbps] <Alternative Pop, Et
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714125.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Maxi Disco (1979) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714022.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ The Nolans - 1 Album, 1 Compilation (1978, 1996) [MP3|320 Kbps] <Electronic, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713907.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Willy William - Une Seule Vie (2016) [MP3|320 кб/с] <Dance, Pop, Electro>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713835.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Monk Higgins - Dance To The Disco Sax Of Monk Higgins (1974) LP [MP3|320 Kbps] <
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713374.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Will To Power - Spirit Warrior (2004) [MP3|256 Kbps] <Progressive House, Electro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712568.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ BowLand - Floating Trip (2017) [MP3|320 Kbps] <Alternative Pop, Downtempo, Elect
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712430.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Kenny Chesney (Кенни Чесни) - In My Wildest Dreams (1994) Capricorn Re
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711979.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Reba McEntire (Риба МакИнтайр) - Reba McEntire (1977) Mercury [MP3|
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711973.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Bobby Farrell - Boney M. I Successi (2001) CD [MP3|320 Kbps] <Electronic, Pop, D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711835.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - Best Of Hands Up & Dance Vol.6 (2019) [MP3|320 Kbps] <HandsUp, Electronic, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711339.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Baciotti - Moody Blue Rendez-Vous (1978) LP [MP3|320 Kbps] <Pop Rock, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711318.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ VA - The Tropical House Of Rio De Janeiro (2019) [MP3|320 Kbps] <House, Indie Da
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711303.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ VA - 100 Hits American Anthems (2019) 5CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711023.jpg" />
 </div>
 
 

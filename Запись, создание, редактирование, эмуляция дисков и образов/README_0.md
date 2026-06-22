@@ -6,7 +6,7 @@ Ashampoo Burning Studio 27.0.0.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050489.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AutoPlay Menu Builder Business 8.0 build 2459 (DC 21.08.19) RePack (& Portable) 
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033085.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Nero Burning ROM & Nero Express 2021 23.0.1.19  RePack by MKN [Ru/En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027794.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Nero Burning ROM & Nero Express 2021 23.0.1.20  Portable by Spirit Summer [Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025685.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Ashampoo Burning Studio 21.3.0.42 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964993.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ ImgBurn 2.5.8.0 Portable by BurSoft [Ru/En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958156.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ CloneCD 5.3.4.0 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938101.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ CyberLink Power2Go Platinum 10.0.2522.0 + Content [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920030.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ AnyToISO Pro 3.9.6 Build 670 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904799.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Astroburn Pro 4.0.0.0233 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892158.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Longtion AutoRun Pro Enterprise 14.5.0.380 (&Portable) Re-Pack by FoXtrot [En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889404.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ gBurner 4.1 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887706.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ cdrtfe 1.5.8 + Portable [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823887.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Burrrn 1.14 Beta 2 [Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790958.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Media Creation Tool 21H2 10.0.19041.572 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790720.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Nero Burning ROM (включен Nero Express) 2021 23.0.1.20 Portable by FC Por
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788259.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ AutoPlay Menu Builder 8.0 build 2458 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779756.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ DVD Audio Extractor 7.6.0 RePack by вовава [En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777074.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ ImgBurn 2.5.8.0 [Английский+Русский]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_720965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_720965.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Virtual CloneDrive 5.5.2.0 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708837.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ CloneDVD 2.9.3.6 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708833.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ LightScribe Template Labeler 1.18.15.1 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661903.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Aiseesoft Burnova 1.3.86 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609368.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Windows 10 Media Creation Tool 10.0.14393.0 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594099.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ AutoRun Pro Enterprise 14.4.0.373 Portable by Sitego [Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581750.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ CloneBD 1.0.5.1 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560507.jpg" />
 </div>
 
 

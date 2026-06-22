@@ -1,3 +1,55 @@
+###  Публикация: 1281573   (751488) от 08.02.2019
+
+My Memory of Us (2018) [Ru/Multi] (1.13057.1) Repack R.G. Catalyst
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751488.jpg" />
+</div>
+
+
+###  Подробнее
+
+My Memory of Us – это воспоминание о дружбе между мальчиком и девочкой. Дружбой, которая объединяла их в трудные времена. Во времена террора, боли и изгнания, когда люди были вынуждены жить в двух искусственно разделенных мирах.Тип издания: RepackРазработчик: Juggler GamesЖанр: Adventure, PlatformerЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD8808AED545A7EE134752CF67C450E0468A0A16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008939   (751184) от 22.05.2016
+
+IS Defense (2016) [En] (1.0 u5/dlc) License CODEX
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751184.jpg" />
+</div>
+
+
+###  Подробнее
+
+IS Defense - это аркадный шутер в фэнтезийном сеттинге с уклоном в политику. На дворе 2020 год, запрещенная группировка ИГИЛ распространяется в мире все больше и готовит вторжение в Европу. Игроку предстоит дать отпор темным силам террористов.Тип издания: LicenseРазработчик: Destructive CreationsЖанр: Arcade (Virt.shooting), 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5108CBEA5CB1DE6B2471AA956902BCBDB67BD0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019611   (749729) от 23.05.2016
 
 Dragon Ball: Xenoverse (2015) [Ru/Multi] (1.08.00/dlc) Repack Other s
@@ -6,7 +58,7 @@ Dragon Ball: Xenoverse (2015) [Ru/Multi] (1.08.00/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749729.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Jump Force (2019) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744836.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Ghrian (2016) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744504.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ JUMP FORCE (2019) [Ru/Multi] (1.00) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743165.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Moto Racing 3D (2018) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743055.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ NARUTO SHIPPUDEN: Ultimate Ninja STORM Legacy (2016-2017) [Ru/En] Rip R.G. Reven
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740669.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Macrotis: A Mother's Journey (2019) [Ru/Multi] (1.0.2) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740018.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Hell Yeah: Wrath of the Dead Rabbit (2012) [Ru/En] (1.0u1) RePack Audioslave
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739539.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ LEGO Harry Potter: Years 5-7 (2012) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738654.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ LEGO Harry Potter: Years 1-4 (2010) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738627.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ Internet Cafe Simulator 2 (2022) [Ru/Multi] (1.0.9) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737974.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ One Piece: Pirate Warriors 4 (2020) [Ru/Multi] (1.0.1.0/dlc) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735948.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ The Escapists 2 (2017) [Ru/Multi] (27.666175/dlc) License GOG [Game of the Year 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735501.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ Groovy (2016) [Ru/Multi] (1.0.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732419.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ Killer Instinct (2017) [Ru/Multi] (1.0/upd14) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731469.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ Groovy (2016) [Ru/Multi] (1.0.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731318.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ Quantum Replica (2018) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730431.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ Tumbleweed Express (2016) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729229.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ STCC: The Game 2 (L) [Multi10/Ru] 2011 | SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_727944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_727944.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ Dangerous Golf (2016) [En/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726933.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ Adele: Following the Signs (2016) [En] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726889.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ TurnOn (2016) [Ru/Multi] (1.0.0.7) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723521.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ Brigador (2016) [En] (1.0/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723341.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ Job Simulator (2016) [En] (1.0) Repack Other s [VR]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722931.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ Job Simulator (2016) [En] (1.0) Repack Other s [VR]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3BCEE5DAEC7FE5422716627D20AE4FAAB5B9FFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137204   (722826) от 09.04.2018
-
-Impact Winter (2017) [Ru/Multi] (2.0.10) Repack R.G. Механики
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Помощь придет через 30 дней... Таинственное радиосообщение гласит: спасатели уже в пути. Вы - Джейкоб Соломон, лидер группы людей, переживших опустошительное падение астероида. Мир изменился, и теперь он погребен под толщей снега. Выжить 30 дней: ваши действия могут сократить время до спасения. От вас зависят жизни людей: ищите ресурсы и используйте свои навыки, (   Читать дальше...   )Тип издания: RepackРазработчик: Mojo BonesЖанр: Adventure, Action (Survival), Top-DownЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:503E50C10B062637C766FEE449A76801C3E2A895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241085   (722099) от 15.02.2022
-
-Death's Gambit: Afterlife (2018) [Ru/Multi] (1.1.6/dlc) Repack Other s
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Death's Gambit: Afterlife — это новое и расширенное издание оригинального хардкорного 2D-платформера в жанре RPG. Станьте мастером отзывчивой боевой системы, используя широкий спектр оружия и способностей, чтобы противостоять ужасам, которые скрываются в Сирадоне. Исследуйте таинственный, не прощающий ошибок мир и узнайте истинную цену бессмертия.Тип издания: RepackРазработчик: White RabbitЖанр: Action, Arcade (Platform), RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC5249970571999BD5C4C0EB15D63282C520E4DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

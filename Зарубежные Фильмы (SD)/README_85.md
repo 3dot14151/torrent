@@ -1,3 +1,135 @@
+###  Публикация: 978437   (963119) от 23.01.2016
+
+Прогулка / The Walk (2015) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы боитесь высоты? А можете представить себя идущим по натянутому канату на высоте более 400м без всякой страховки? Потоки ветра обдувают вас, а внизу - город и тысячи взволнованных взглядов, устремленных вверх.
+
+История о том, как французский канатоходец Филипп Пети отважился совершить легендарный трюк - пройти без страховки по канату, натянутому между небоскребами (   Читать дальше...   )Производство: США / ImageMovers, Mel's Cite du Cinema, Sony Pictures Entertainment (SPE)Жанр: триллер, драма, приключения, биографияРежиссер: Роберт ЗемекисАктеры: Джозеф Гордон-Левитт, Бен Кингсли, Стив Валентайн, Шарлотта Ле Бон, Джеймс Бэдж Дэйл, Бен Шварц, Бенедикт Сэмюэл, Мизинга Мвинга, Дэниэл Аррош, Джейсон ДелайнПеревод: Профессиональный (полное дублирование) (iTunes)Язык субтитров: Русский, английскийПродолжительность: 02:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8F86C75C25EF2DA877B3294B3E0DFCF63176EF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978213   (963104) от 23.01.2016
+
+Анаклет: Секретный агент / Anacleto: Agente secreto (2015) HDRip
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Секретный агент с позывным Анаклет встречается со своим заклятым врагом Баскесом, которого он 30 лет назад посадил в тюрьму. Но теперь тот сбежал оттуда и жаждет мести. Под угрозой жизнь Адольфо - сына Анаклета. Парень работает в службе безопасности и не догадывается о том, кто на самом деле его отец. Ведь Адольфо считает его простым фермером. Теперь настало время (   Читать дальше...   )Производство: ИспанияЖанр: Комедия, БоевикРежиссер: Хавьер Руис КальдераАктеры: Иманоль Ариас, Ким Гутьеррес, Росси де Пальма, Карлос Аресес, Александра Хименес, Сильвия Абриль, Хосе Корбачо, Эмилио Гутьеррес Каба, Берто Ромеро, Эдуардо ГомесПеревод: Двуголосый закадровый, любительский (Parovoz Production)Продолжительность: 01:33:13Реклама: Присутствуют только текстовые вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0AEE425C2D8ADB2CB4048F5F01C35167CE9879
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359760   (963084) от 13.02.2020
+
+Бесстрашные / Deliler (2018) WEB-DLRip [H.265] [10-bit] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Середина XV века. Расцвет Османской империи. Преданный империи Влад Цепеш одобрен султаном Фатихом Мехмедом II на правление в вассальской Валахии. Но вскоре молодой господарь начал жестоко расправляться с турками и вытеснять их со своих земель, а отправленного разгневанным султаном гонца возвращает с колом в голове. Фатих создал специальный отряд, прозванный отрядом (   Читать дальше...   )Производство: Турция / Angel Film YapimЖанр: история, военныйРежиссер: Осман КаяАктеры: Джем Учан, Эркан Петеккая, Нур Феттахоглу, Йеткин Дикинджилер, Гюльшах Шахин, Исмаил Филиз, Batin Deniz Ucan, Namik Rüstem Khanli, Берат Эфэ Парлар, Камиль ГюлерПеревод: Профессиональный многоголосый (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B2C8981C8286D7E59AF9A4F323E247F17840E05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359794   (963038) от 13.02.2020
+
+Удивительное путешествие доктора Дулиттла / Dolittle (2020) WEB-DLRip [H.265] [10-bit] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семь лет назад доктор Дулиттл, прославленный врач-ветеринар, живущий в викторианской Англии, потерял свою жену. Теперь он ведет затворнический образ жизни, скрывшись за высокими стенами своего поместья. Экзотические животные из его коллекции - его единственная компания. Но когда неизвестная болезнь становится угрозой для жизни юной королевы, доктору Дулиттлу приходится (   Читать дальше...   )Производство: США, Perfect World Pictures, Team Downey, Universal PicturesЖанр: фэнтези, комедия, приключения, семейныйРежиссер: Стивен ГейганАктеры: Роберт Дауни мл., Антонио Бандерас, Майкл Шин, Джим Бродбент, Джесси Бакли, Гарри Коллетт, Эмма Томпсон, Рами Малек, Джон Сина, Кумэйл НанджианиПеревод: Профессиональный многоголосый (HDRezka Studio)Субтитры: ОтсутствуютПродолжительность: 01:29:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:744F8D62188AF5424EDD03C8E4E5211DEDF87B34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359877   (962977) от 13.02.2020
+
+Расправь крылья / Donne moi des ailes (2019) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подросток Тома навещает во время отдыха своего отца Кристиана, чудаковатого орнитолога. Но для юноши, увлеченного гаджетами и играми, разведение диких гусей во французской деревне и эксперименты отца наводят лишь тоску. Однако все меняется, когда Тома решает спасти исчезающий вид диких гусей и отправляется в воодушевляющее путешествие с «небесными ангелами», как (   Читать дальше...   )Производство: Франция, Норвегия / Radar Films, SND Groupe M6, Canopée ProductionЖанр: приключения, семейныйРежиссер: Николя ВаньеАктеры: Жан-Поль Рув, Мелани Дотей, Луис Васкес, Лилу Фогли, Фредерик Сорель, Грегори Баке, Доминик Пинон, Ариан Пири, Филипп Маньян, Седрик МесбуржеПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E708E9352FDA5938DAB37226428636B62E2FA3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 621259   (962950) от 20.02.2013
 
 Как стать леди / The Making of a Lady (2012) HDTVRip
@@ -6,7 +138,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962950.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962916.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962882.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962863.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962858.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962808.jpg" />
 </div>
 
 
@@ -162,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962767.jpg" />
 </div>
 
 
@@ -188,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962498.jpg" />
 </div>
 
 
@@ -216,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962390.jpg" />
 </div>
 
 
@@ -242,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962315.jpg" />
 </div>
 
 
@@ -270,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962127.jpg" />
 </div>
 
 
@@ -296,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962099.jpg" />
 </div>
 
 
@@ -322,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962091.jpg" />
 </div>
 
 
@@ -348,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_962052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_962052.jpg" />
 </div>
 
 
@@ -376,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961951.jpg" />
 </div>
 
 
@@ -402,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961944.jpg" />
 </div>
 
 
@@ -428,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961915.jpg" />
 </div>
 
 
@@ -454,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961908.jpg" />
 </div>
 
 
@@ -480,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961905.jpg" />
 </div>
 
 
@@ -506,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961874.jpg" />
 </div>
 
 
@@ -532,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961863.jpg" />
 </div>
 
 
@@ -543,137 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC6B32F1D2D734439C00D3A0B6937528F66339FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978713   (961862) от 24.01.2016
-
-Западная религия / Western Religion (2015) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитые игроки собираются опуститься в город шахт в Аризоне, где проходит ежегодный чемпионат по играм. Но игры не простые, теперь герои должны бороться за первое место в карточной игре – покер. На что способны игроки и чем все закончиться. Ведь обычно жульничать не принято, но ведь никто не может устоять против большой суммы денег.Производство: СШАЖанр: ВестернРежиссер: Джеймс О’БрайэнАктеры: Питер Шинкода, Майлз Санто, Мерик Тадрос, Холлидей Хэдли, Вивиан Ламоли, Питер Шерайко, Джонатан Айли, Ардешир Радпур, Стиг Элдред, Ясмин Канли.Перевод: Любительский двухголосый (Parovoz Production)Субтитры: Отсутствуют.Продолжительность: 01:45:09Реклама: Отсутствует.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B56464D19BD8E735FEDA3E84CF5CE24F05673FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978556   (961838) от 24.01.2016
-
-Банда грабителей / Band of Robbers (2015) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мелкий уголовник Гекльберри Финн выходит из заключения и хочет начать новую жизнь с чистого листа. Его планы нарушает друг детства, горе-полицейский, Том Сойер, до сих пор не отказавшийся от детской мечты — найти сокровища.Производство: США / Blacklist Digital, Lola's Productions, Tilted Windmill Productions, Torn Sky Entertainment, Whitewater FilmsЖанр: Триллер, Комедия, Криминал, ПриключенияРежиссер: Аарон Ни, Адам НиАктеры: Кайл Галлнер, Адам Ни, Мэттью Грей Гублер, Хэннибал Бёресс, Мелисса Бенойст, Дэниэл Эдвард Мора, Стивен Лэнг, Эрик Кристиан Олсен, Джонни Пембертон, Бет ГрантПеревод: Двуголосый закадровый, любительскийОзвучка / Автор перевода: Parovoz ProductionПродолжительность: 01:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C44BA696D63EC12138C08B2732FCF899F08F1793
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978583   (961835) от 24.01.2016
-
-Уже скучаю по тебе / Miss You Already (2015) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мили и Джес большую часть жизни, были лучшими подругами, они всегда были вместе, невзирая ни на что. Но когда у Мили обнаружилась опухоль, а Джес в это время впервые забеременела и не хотела расстраивать подругу и не сообщила ей свою радостную новость, они стали отдаляться друг от друга, хотя им обоим не хватало друг друга. Однако настоящая дружба всё перенесёт...Производство: ВеликобританияЖанр: Мелодрама, КомедияРежиссер: Кэтрин ХардвикАктеры: Дрю Бэрримор, Тони Коллетт, Жаклин Биссет, Доминик Купер, Пэдди Консидайн, Тайсон Риттер, Мем Ферда, Ной Хантли, Дженис Аккуа, Шарлотта УббенПеревод: Двуголосый закадровый, любительский (Parovoz Production)Продолжительность: 01:52:12Реклама: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:052BF3127FE31C0019A688F73BBD741C9F9248CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978617   (961822) от 24.01.2016
-
-Марсианин / The Martian (2015) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марсианская миссия «Арес-3» в процессе работы была вынуждена экстренно покинуть планету из-за надвигающейся песчаной бури. Инженер и биолог Марк Уотни получил повреждение скафандра во время песчаной бури. Сотрудники миссии, посчитав его погибшим, эвакуировались с планеты, оставив Марка одного.
-Очнувшись, Уотни обнаруживает, что связь с Землёй отсутствует, но при (   Читать дальше...   )Производство: США, Великобритания / 20th Century Fox Film Corporation, Genre Films, International TradersЖанр: фантастика, приключенияРежиссер: Ридли СкоттАктеры: Мэтт Дэймон, Джессика Честейн, Чиветель Эджиофор, Кристен Уиг, Джефф Дэниелс, Майкл Пенья, Шон Бин, Кейт Мара, Себастьян Стэн, Аксель ХенниПеревод: Дублированный (Лицензия)Субтитры: ОтсутствуютПродолжительность: 02:21:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE666E37D637C00401F433B9C43C139DF91B8007
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359936   (961805) от 14.02.2020
-
-Страх / La peur / The Fear (2015) DVDRip [H.264] [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961805.jpg" />
-</div>
-
-
-###  Подробнее
-
-1914 год. Габриель, молодой призывник, отправляется на фронт. Ему предстоит пережить царящий в траншеях ад полный страха, ярости и боли, и открыть свою собственную человечность…Производство: Франция, Канада / JPG Films, Tu Vas Voir Productions, Les Productions de la Peur (14-18)Жанр: Драма, ВоенныйРежиссер: Дамьен ОдульАктеры: Nino Rocher, Pierre Martial Gaillard, Théo Chazal, Элиотт Маргерон, Frédéric Buffaras, Jonathan Jimeno Romera, Charles Josse, Aniouta Maïdel, Миро Лакасс, Патрик Де ВалеттПеревод: Одноголосый любительскийСубтитры: РусскиеПродолжительность: 01:29:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A23F5A977274C1ECEA44F0DDA9E064EF6597031
 ```
 
 https://mybot314.ru/tekegram_catalog/

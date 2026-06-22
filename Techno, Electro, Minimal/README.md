@@ -7,7 +7,7 @@ Lilly Palmer - Bigger Than Techno (2026) [MP3|320 Kbps] <Techno>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064337.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ VA - Minimal Tech Grooves (2023) CD, Compilation [MP3|320 Kbps] <Techno, Electro
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045717.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ AzizRush - Under Pressure (2023) Debut [MP3|320 Kbps] <Electronic>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040513.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ VA - By the Way...Sounds Good, Size One (2023) [MP3|320 Kbps] <Minimal, Tech Hou
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035543.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022578.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Workout Electronica - Workout Music 2020 (2019) [MP3|320 Kbps] <Techno>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982111.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - TECHNO (mixed by Dj Arseniy) (2002) [MP3|320 Kbps] <Techno>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963046.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Scooter - Ace (2016) [MP3|320 кб/с] <Techno, Jumpstyle>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946526.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Propellerheads - Star Profile (2000) [MP3|320 Kbps] <Techno, Big Beat, Acid Jazz
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942228.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Scooter - 24 Carat Gold (2002) [MP3|320 Kbps] <Happy Hardcore, Techno, Jampstyle
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942140.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Boris Brejcha - Space Diver (2020) [MP3|~245 Kbps (V0)] <Tech House, Minimal>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940556.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ VA - Dark Archive (2020) [MP3|320 Kbps] <Techno>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933415.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Bill Bruce - Changing (1982) 12" [MP3|320 Kbps] <Electro, Synth-pop, Minimal>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924373.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Schaltkreis Wassermann - Psychotron (1982) Reissue, 2005, Hyperdisc [MP3|320 Kbp
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894612.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ VA - Motivation Training Music 2017 Best Aerobic & Fitness Gym Songs  [MP3|320 K
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885465.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Scooter - I Want You To Stream! (Live) (2020) [MP3|320 Kbps] <Techno, Trance, Ha
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872327.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Manufacture - 2 Albums (1988, 1990) [MP3|320 кб/с] <Electronic, EBM, Techno>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866507.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Convextion - 2845 (2016) [MP3|320 Kbps] <Electronic, Techno>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866098.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Little Big - With Russia From Love (2014) [MP3|320 кб/с] <Rave>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846433.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VA - High Class Tech House Music Nonstop (2018) [MP3|320 Kbps] <Minimal, Tech Ho
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811777.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ VA - Best Of Citrus (2018) [MP3|320 Kbps] <Electronica>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787219.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Bright Light Bright Light - Make Me Believe In Hope (2019) Deluxe Edition [MP3|3
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784979.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ VA - Formation 2 (2019) [MP3|320 Kbps] <Techno, Ambient>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773012.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Worakls - Orchestra (2019) [MP3|320 Kbps] <Electro, Techno, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701207.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ VA - Instrumental Club Hits (2018) [MP3|320 Kbps] <Dance, Club-House, Electro-Ho
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698512.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Autumn - Synthesize (2011) LP, Compilation [MP3|320 Kbps] <Electro, Synth-pop, M
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674080.jpg" />
 </div>
 
 

@@ -1,3 +1,107 @@
+###  Публикация: 1543432   (212851) от 04.07.2022
+
+Красивейшие пейзажи мира / The World’s Most Beautiful Landscapes (2021) HDTV [H.264/1080i] (фильмы 1-8 из 8)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212851.jpg" />
+</div>
+
+
+###  Подробнее
+
+На нашей планете есть невероятное разнообразие удивительных пейзажей. От рек и джунглей до гор и лесов - самые красивые и величественные природные чудеса мира ждут, чтобы их увидели в этой изысканной серии из восьми частей. Насыщенный и визуально приятный, это не просто сериал о путешествиях, в каждом эпизоде здесь рассказывается о природе, географии, геологии, истории..Производство: Великобритания, Emporium ProductionsЖанр: документальный, познавательный, путешествияРежиссер: Энди БейлиПеревод: одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: серии по ~00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B7DBB9D83B2F79E1B7C2BEF2349AF3162DD7C89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638286   (212095) от 07.06.2023
+
+Неистовая росомаха / Wild Wolverine (2020) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_212095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это животное похоже на странный гибрид волка, скунса и бобра... Оно стало легендой. Выносливое, сильное, агрессивное - словно супер-герой из фильмов. Но, поскольку живет оно в самых далеких и суровых уголках мира, его истинная природа скрыта, что делает росомаху одним из самых загадочных существ на планете.Производство: Германия, NDR Naturfilm, DoclightsЖанр: документальный, природа, флора, фаунаПеревод: дублированныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 00:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ED646808E3C4DF3382B0A2227B0F3A8098BC972
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638258   (212067) от 07.06.2023
+
+Змеи. Тайны самых смертоносных созданий на земле / Snakes, Secrets of Nature’s Deadliest Creatures (2014) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_212067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ об удивительных созданиях — змеях. О том, как они приспособились к разным средам обитания и могут жить на суше, в море и даже летать.Производство: Корея Южная / Educational Broadcasting System (EBS)Жанр: документальныйРежиссер: Ли Ён-гюПеревод: Одноголосый профессиональный (по заказу SLS Media)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7651F132430C5B05998AB4E0DEE73C3E2109193C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638265   (212040) от 07.06.2023
+
+Зов дикой природы / Our Nature (2019) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_212040.jpg" />
+</div>
+
+
+###  Подробнее
+
+На Земле обитает более чем 1,6 миллиона известных видов животных, каждый из которых играет свою роль в природе. Потрясающие пейзажи, многообразие видов птиц, диких кошек, рыб, слонов, китов и многих других, обитающих на семи континентах. Всё это — чудеса голубой планеты, которую мы называем домом.Производство: Германия / Little Brother FilmsЖанр: документальныйРежиссер: Экрем Энгизек, Тимо Дж. МэйерПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:876B0D5A2C8D13923BB800A90B830F5F0BCB034A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638876   (211921) от 10.06.2023
 
 Насекомые — гении стратегии / Insects, Geniuses of Strategy (2021) WEB-DL [H.264/1080p] (сезон 1, серии 1-2 из 2)
@@ -6,7 +110,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211921.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211888.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211744.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211529.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211246.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210901.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210783.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210725.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210677.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210268.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210209.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209977.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209735.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209453.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209383.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209328.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208458.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207690.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207639.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207401.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207131.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207038.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7184BADE0E2029874DCC58C76339C2514B10EC85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523310   (206481) от 05.10.2022
-
-Секреты сада / The Secrets of The Garden (2019) HDTVRip [H.264/1080p-LQ] (серии 1-6 из 6)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206481.jpg" />
-</div>
-
-
-###  Подробнее
-
-В фильме мы увидим, как сад просыпается, и его население начинает задумываться о потомстве. У зверей со спариванием всегда связаны некоторые риски. Посмотрим на хорьков с их уникальными брачными играми и понаблюдаем за семейством кроликов. Заглянем к пчелам и увидим, что происходит по весне у них.Производство: Дания, Mastiff TV Denmark for DRЖанр: документальный, природа, флора, фаунаРежиссер: Марк ДжессенПеревод: одноголосый профессиональный (Видео-Продакшн)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908CBA811FACC0CD00AE94A48C8F0E624FE0BCDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465666   (206448) от 05.10.2022
-
-Мой учитель - осьминог / My Octopus Teacher (2020) WEBRip [H.265/1080p] [VO]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм от Netflix, снятый Пиппой Эрлих и Джеймсом Ридом. В главной роли играет Крейг Фостер, который по совместительству является и продюсером данного фильма. В фильме запечатлен год, который Фостер проводит с диким осьминогом. Фостер наблюдает за осьминогом большую часть его жизни, показывая тайны жизни этого животного.Производство: ЮАР, Off the fence, The Sea Change Project, NetflixЖанр: Документальный, фауна, познавательный, научно-популярныйРежиссер: Пиппа Эрлих, Джеймс РидПеревод: Одноголосый (AniPlay Studio, читает Majestic-Sama, перевод с субтитров Вадим Иванков)Субтитры: отсутствуютПродолжительность: 01:25:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A51DE28186F245A6DE597CCD20BB38AC03BAE8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582573   (206240) от 10.10.2022
-
-Сверхъестественное / Super/Natural (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используя последние научные инновации и передовые технологии кинопроизводства, чтобы раскрыть тайные силы и сверхчувства самых необычных животных в мире, зрители сериала смогут увидеть и услышать за пределами обычного человеческого восприятия, чтобы испытать мир природы так, как это делает конкретный вид — от увидеть цветы пчелиным зрением, подслушать разговор морских (   Читать дальше...   )Производство: США, Earthship Productions, National Geographic, Plimsoll ProductionsЖанр: документальный, природа, флора, фаунаПеревод: одноголосый профессиональный (NewComers)Субтитры: русские (на надписи, полные), английскиеПродолжительность: серии по ~00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91755ADE2AFB5DA67A9B7BE54E4774F475B4A9FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582580   (206225) от 10.10.2022
-
-Сверхъестественное / Super/Natural (2022) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] (сезон 1, серии 1-6 из 6)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используя последние научные инновации и передовые технологии кинопроизводства, чтобы раскрыть тайные силы и сверхчувства самых необычных животных в мире, зрители сериала смогут увидеть и услышать за пределами обычного человеческого восприятия, чтобы испытать мир природы так, как это делает конкретный вид — от увидеть цветы пчелиным зрением, подслушать разговор морских (   Читать дальше...   )Производство: США, Earthship Productions, National Geographic, Plimsoll ProductionsЖанр: документальный, природа, флора, фаунаПеревод: одноголосый профессиональный (NewComers)Субтитры: русские (на надписи), русские, английскиеПродолжительность: серии по ~00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C293601CBE187C7B624E1B5514C79118C81FE1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

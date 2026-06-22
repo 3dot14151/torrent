@@ -1,3 +1,83 @@
+###  Публикация: 1311288   (543402) от 28.06.2019
+
+Дмитрий Гришанин | Тени Тегваара (2019) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычного клерка Артема Сироткина угораздило вляпаться в Паутину. Да не в простую, а в магическую. Он оказался в Тегвааре – волшебном городе, где рядом с людьми живут эльфы, гномы, тролли, огры, кентавры, оборотни, вампиры, драконы и прочие мифические существа. Здесь у Артема появился верный друг – тролль Вопул, любимая девушка – красотка Ольга. А еще – большие проблемы (   Читать дальше...   )Жанр: Фантастика, ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F2509E52586A4B52892C43D91A5B0B3934916D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 818135   (542722) от 02.09.2014
+
+Александр Берг | Затерянные среди звезд (2014) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла  «Мусорщики».
+
+Может ли быть что-­нибудь хуже, чем при выполнении боевого задания столкнуться с намного превосходящими силами противника? Казалось бы нет, а если вас при этом ещё и похитят инопланетные работорговцы? Обыденный рейд разведвзода превращается в смертельную западню. Выжившие разведчики попадают в далекую звездную империю и теперь у них (   Читать дальше...   )Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE6184469F8D5AEEC4CEEA6294E61E525EB33E4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531026   (542604) от 05.08.2012
+
+Елена Белова | Сердце феникса. Сквозь огонь [2011] [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Покоренный магами мир застыл на перекрестке дорог. Удастся ли спасти то, что уцелело? И удастся ли спастись самим? Под ноги ложатся дороги иных миров, по твоему следу уже идет Служба дознания, и все ближе гроза. Темный Повелитель по-прежнему на троне, светлый маг Алекс в мире за Гранью, феникс Лина на волоске от разоблачения. Что их ждет? Пока они и сами этого не знают. Ведь Повелителя нужно не убить, а излечить. Но смертельно опасно пытаться вылечить темного мага, если он этого не хочет.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4D562E45FC425047F87BC95C2A1056DEC4C7447
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 531603   (542595) от 05.08.2012
 
 Наталья Колесова | Карты судьбы [2009] [FB2]
@@ -6,7 +86,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542595.jpg" />
 </div>
 
 
@@ -36,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542440.jpg" />
 </div>
 
 
@@ -64,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542298.jpg" />
 </div>
 
 
@@ -91,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542287.jpg" />
 </div>
 
 
@@ -117,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542206.jpg" />
 </div>
 
 
@@ -143,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542042.jpg" />
 </div>
 
 
@@ -169,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542040.jpg" />
 </div>
 
 
@@ -196,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542028.jpg" />
 </div>
 
 
@@ -227,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541945.jpg" />
 </div>
 
 
@@ -253,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541786.jpg" />
 </div>
 
 
@@ -280,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541785.jpg" />
 </div>
 
 
@@ -307,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541726.jpg" />
 </div>
 
 
@@ -336,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541631.jpg" />
 </div>
 
 
@@ -362,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541533.jpg" />
 </div>
 
 
@@ -388,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541201.jpg" />
 </div>
 
 
@@ -416,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541108.jpg" />
 </div>
 
 
@@ -444,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540992.jpg" />
 </div>
 
 
@@ -470,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540917.jpg" />
 </div>
 
 
@@ -498,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540830.jpg" />
 </div>
 
 
@@ -526,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540826.jpg" />
 </div>
 
 
@@ -554,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540787.jpg" />
 </div>
 
 
@@ -581,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540637.jpg" />
 </div>
 
 
@@ -609,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540452.jpg" />
 </div>
 
 
@@ -622,85 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D58AA49300CEC9D586D19D204E42154B703AE2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531879   (540307) от 06.08.2012
-
-Терри Брукс | Серия "Полет "Ярла Шаннары" [2003-2004] [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B6EA87DAF84C8B4D477736C76B7A4E1F38C6621
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531927   (540175) от 06.08.2012
-
-Василий Кононюк | Я – меч, я – пламя! [2011] [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это год 1935-й. В Германии уже пришла к власти нацистская партия, но в СССР еще никто не ждет войны. В провинциальном городке малолетняя шалава и воровка Ольга Стрельцова приходит в себя после удара по голове, чтобы обнаружить, что теперь ее сознание слито с сознанием другого человека. Человека из будущего, ученого-радиотехника, увлекавшегося военной историей, тактикой и оружейным делом. Она точно знает – зенитки РККА не могут причинить серьезный ущерб юнкерсам, а танковые войска не обеспечены запчастями. Ради достижения своей цели Ольга готова идти по головам.
-Способна ли новая Жанна д’Арк изменить ход истории и спасти хотя бы 15 миллионов человек из тех, что погибли в ходе великой войны? У нее есть всего шесть лет, чтобы попробовать сделать это.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1B37AF2336C16F15178864CA8A0338DBC5D0668
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531943   (540041) от 06.08.2012
-
-Василий Кононюк | Шанс? Параллельный переход [2011] [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если смертельно больному дают возможность принять участие в сомнительных опытах, при этом четверть участников выздоравливает, — это шанс? А если ты все-таки умрешь и после смерти попадешь в чужое тело, имеющее законного хозяина в пятнадцатом веке, живущего на окраине Литовского княжества и Дикого Поля, — шанс ли это? Реально ли жить вдвоем в одном теле и не сойти с ума? Проклянешь ли ты этот шанс или сможешь найти в себе силы бороться и победить?Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF3066A83AE27006E76AF10D3F6D81D58B465039
 ```
 
 https://mybot314.ru/tekegram_catalog/

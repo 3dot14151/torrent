@@ -6,7 +6,7 @@ Wingfox, David Zavala | Female Bust Course in Marmoset Toolbag (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184821.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Pixel, Татьяна Климань | Иллюстрации в Adobe Illustrat
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184780.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Udemy, Кирилл Несмелов | Дизайн мобильного при�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184718.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Enterclass, Владислав Татаринов | Букет сирени (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184695.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Geekbrains | Дизайн и проектирование интерфейсов
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184690.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Udemy, Andrei Neagoie и др. | Полный веб и мобильный ди�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184661.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ CGcircuit, Bishoy Khalifa | Sand Bag Tearing in Houdini (2021) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_184577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_184577.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Rebelway, Val David | Using Solaris in Houdini (2022) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184377.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Rebelway, Corbin Mayne | VEX For Houdini Artists (2020) WEB-DL [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184266.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Wingfox, Steffen Hampel | Creating a Photorealistic Japanese Alleyway with Maya 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184079.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Granich.Design, Вадим Гранич | Графсистема UI-дизайн
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184076.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Wingfox, MikeHong | Creating a photorealistic character Joan of Arc (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184068.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Wingfox, David Masana Lafuente | 3D Game-Ready Environment In Unreal Engine 4 (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184055.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ CGcircuit, Stefan Bredereck | FX MAYHEM 102 - Smokeless Fire & Flames (2021) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_183899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_183899.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ CG Forge, Tyler Bay | Pyro III – Large Explosions (2022) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_183856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_183856.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Enterclass, Анна Иванова | Ахалтекинец (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183836.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Enterclass, Сергей Лысый | Солнце за костелом (2023) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183821.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ New Masters Academy, Steve Huston | Художественная анатоми�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183800.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ CGcircuit, Ciobanu Razvan | Advanced Particles 1: Geometry Based Simulations (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_183796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_183796.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Creature Art Teacher, Aaron Blaise | Как рисовать хищных пти
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183794.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ CGcircuit, Ciobanu Razvan | Advanced Particles 2 : Demon Fire Trails (2022) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_183746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_183746.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Enterclass, Константин Стерхов | Путешествие в Ки
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183740.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ CGcircuit, Arihant Gupta | Houdini Essentials - Flip Rendering (2021) WEB-DL [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183731.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ GeekBrains | Создатель игровой вселенной: геймди�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183730.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Granich.Design, Алиса Брюква | Granich Midjourney (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_183559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_183559.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Rebelway, Saber Jlassi | Introduction to Houdini For FX Weeks 1 – 6 (2018) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183523.jpg" />
 </div>
 
 

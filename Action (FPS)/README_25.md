@@ -1,3 +1,29 @@
+###  Публикация: 1247000   (456394) от 13.09.2018
+
+Turok 2: Seeds of Evil - Remastered (2017) [Multi] (1.5.9/upd6) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всеми любимый охотник на динозавров возвращается! Необходимо будет бороться за свой путь через 35 различных типов врагов с надувными животами, моргающими глазами, страшными щупальцами и смыкающимися челюстями. Пройдите путь от доисторических ящеров, пожирателей человеческой плоти - вы точно хотите победить их всех! В Turok 2: Seeds of Evil очень умные враги! Они (   Читать дальше...   )Тип издания: RepackРазработчик: Iguana Entertainment, Nightdive StudiosЖанр: Action (Shooter), 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E42D07EFB9C7046C9339036EB3E739F88DAC4140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942420   (454953) от 30.09.2015
 
 Nevermind (2015) [Ru/Multi] (1.0) License CODEX
@@ -6,7 +32,7 @@ Nevermind (2015) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454953.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Syndrome (2016) [En] (1.03f) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454491.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Get Even (2017) [Ru/Multi] (1.0/u1) Repack R.G.Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454150.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Crysis 2 (2011) [Ru] (1.9/dlc) Repack =nemos= [Maximum Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452822.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Burden (2018) [Ru/En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452320.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Evil Park (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452150.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Rage: Anarchy Edition [Multi3/+] (Steam-Rip/1.0.29.712) 2011 | R.G. Игрома
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452140.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Crysis  Warhead (2008) [Ru] (1.1.1.711) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450008.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Syndrome (2016) [Ru/Multi] (1.03f) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450000.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Lumber Island - That Special Place (2015) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448443.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Dead Island Dilogy (2016) [Ru/Multi] (1.1.2.0/1.1.2.0) SteamRip Let'sPlay [Defin
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447829.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Don't Knock Twice / Не стучи дважды (2017) [Ru/Multi] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447794.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ Mirror's Edge Catalyst (2016) [Ru/Multi] (1.0.3.47248) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447741.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ Borderlands: Game of the Year Edition [Ru/En] (RePack/1.4.1/4 DLC) 2010 | R.G. S
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447562.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ The Chronicles of Riddick Gold [Ru/En] (RePack/1.0.0.1) 2009 | Audioslave
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447555.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ Hellpoint (2020) [Ru/Multi] (495/dlc) License GOG (обновляемая)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446499.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ World War Z (2019) [Ru/Multi] (1.30) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445878.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ Transference (2018) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443794.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ Dead Island: Riptide (2016) [Ru] (1.4.1.1.13/dlc) Repack =nemos= [Definitive Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443456.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ Dishonored (2013) [Ru/En] (1.4.1/dlc) Repack Other s [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443388.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Borderlands: Game of the Year Edition [Ru/En/Multi5] (L/1.41/4 DLC) 2010
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442813.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ Dead Island (2016) [Ru/Multi] (1.1.2/1.1.2/1.0/dlc) Repack R.G. Catalyst [Defini
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441178.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ Dead Island: Game of the Year Edition (2011) [Ru] (1.3.0/dlc) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441111.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ White Day: A Labyrinth Named School (2017) [Ru/Multi] (1.06/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441044.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ BioShock Infinite (2014) [Ru] (1.1.25.5165/dlc) Repack xatab [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439030.jpg" />
 </div>
 
 
@@ -653,34 +679,6 @@ BioShock Infinite (2014) [Ru] (1.1.25.5165/dlc) Repack xatab [Complete Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B92DCF75A90DA065E92C28DDF29DA3A928532FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554478   (437782) от 30.09.2012
-
-Rage: Anarchy Edition [MULTi3/+] (L/1.0.29.712/2 DLC) 2011 | SKIDROW
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437782.jpg" />
-</div>
-
-
-###  Подробнее
-
-В RAGE, революционном шутере от первого лица, действие происходит в недалеком будущем, где после удара метеорита от цивилизации на Земле мало что осталось. Вы оказываетесь посреди огромной пустоши и обнаруживаете, что человечество пытается себя восстановить, находясь под постоянной угрозой от бандитов, мутантов, и Власти – тиранического государственного режима, сильно заинтересованном вами лично. Испытайте насыщенный экшен от первого лица и сумасшедшие битвы на автомобилях, исследуйте громадный мир, и насладитесь потрясающей графикой новейшего движка id Tech 5.
-
-Опасаясь полного уничтожения человечества приближающимся гигантским метеоритом, государства Земли бросили все силы на спасение людского рода. Оставшись без альтернатив, они поместили избранных представителей человечества в капсулы с поддерживающими жизнь системами и закопали их глубоко в землю. Вы начинаете игру в неожиданном одиночестве, выбравшись на поверхность мира RAGE из одного из этих современных ноевых ковчегов. В RAGE вы найдете враждебный, беспощадный мир, сильный сюжет, и захватывающие схватки.(   Читать дальше...   )Тип издания: ЛицензияЖанр: Action (Shooter) / Arcade / Racing (Cars) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский, Чешский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F682C70B048B317EA0C5993CD0B1E3D8AE90EA0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

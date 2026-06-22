@@ -1,3 +1,32 @@
+###  Публикация: 1133412   (695279) от 12.05.2017
+
+Баскетбол. НБА 2016-2017. Запад. 1/4 Финала. 4-й матч. Портленд Трэйл Блэйзерс – Голден Стэйт Уорриорз (24.04.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_695279.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 апреля 2017, вторник. 05:30 МСК
+НБА 2016-2017. Западная конференция. Плей-офф. Первый раунд
+1/4 Финала. 4-й матч
+Портленд Трэйл Блэйзерс – Голден Стэйт Уорриорз(   Читать дальше...   )Телекомпания: Viasat Sport HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFE46369C9F2DD654AA4DF9F2F515DDADF5DE2C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133404   (695278) от 12.05.2017
 
 Баскетбол. НБА 2016-2017. Восток. 1/4 Финала. 5-й матч. Торонто Рэпторс – Милуоки Бакс (24.04.2017) WEB-DL [H.264/720p-LQ] [EN]
@@ -6,7 +35,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695278.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_695277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_695277.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695276.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695275.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695274.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695273.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695272.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695271.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695205.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695204.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ NASCAR. Xfinity Series 2018. My Bariatric Solutions 300 (07.04.2018) HDTVRip [H.
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695140.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694945.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694944.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694943.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694942.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694941.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694940.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694939.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694840.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ NG: Неизвестная планета Земля / One Strange Rock (2018) W
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694675.jpg" />
 </div>
 
 
@@ -581,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694409.jpg" />
 </div>
 
 
@@ -610,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694405.jpg" />
 </div>
 
 
@@ -639,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694278.jpg" />
 </div>
 
 
@@ -668,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694274.jpg" />
 </div>
 
 
@@ -697,7 +726,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694273.jpg" />
 </div>
 
 
@@ -711,32 +740,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8625BB234DCAC627A8DF98CAF10FBEB2C909FD03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403125   (694268) от 18.08.2020
-
-Серия Кубков NASCAR-2020. Дайтона Дорожный Курс 235 / NASCAR Cup Series 2020. GoBowling 235, Daytona International Speedway Road Course (2020) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694268.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 этап Nascar Cup Series, GoBowling 235, Daytona International Speedway Road Course (65 Laps, 231 Miles).Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 03:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE6770AFD6E43969B358424F19BC3CA543B4F480
 ```
 
 https://mybot314.ru/tekegram_catalog/

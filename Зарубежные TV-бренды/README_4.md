@@ -1,3 +1,29 @@
+###  Публикация: 1473572   (1013450) от 30.05.2021
+
+Discovery: Nasa и SpaceX: путешествие в будущее / NASA and SpaceX: Journey to the Future (2020) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эксперты из SpaceX и NASA готовы навсегда изменить область исследования космоса. Заглянем за кулисы команд инженеров SpaceX, сотрудников НАСА и ученых, готовящихся к коммерческому полету на Международную космическую станцию.Производство: США / Storied Media Group for Science ChannelЖанр: Документальный, космосПеревод: Профессиональный двухголосыйЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:28:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07F7E33E43B6B554FCB1FE7EC149F7697309041D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473546   (1013429) от 30.05.2021
 
 Discovery: Последние тайны долины Царей / Valley of the Kings: The Lost Tombs (2021) HDTV [H.264/1080i]
@@ -6,7 +32,7 @@ Discovery: Последние тайны долины Царей / Valley of the
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013429.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ NG. Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011739.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011221.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Одиссея Жака Кусто
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010537.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ NGW. Змеи-убийцы / Killer snakes (2021) HDTV [H.264/1080i] [hand made 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010273.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ NGW: Самые смертоносные змеи в мире / World's deadlies
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010094.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ BBC: Символика церквей / Churches: How to Read Them (2010) SATRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010092.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010077.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009757.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ NG: Последствия: Когда Земля перестанет вращ�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009071.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ BBC: Горизонт. Хаббл. Открытие тайн космоса / Ho
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008925.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008665.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Discovery: На дне океана / Expedition Deep Ocean (2021) HDTV [H.264/1
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008646.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007547.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Discovery. Золотой прииск Фредди Доджа / Gold Rush: Fred
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007246.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007239.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ NG. Миссия полета к Солнцу / Mission to the Sun (2018) WEB-DL
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006852.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ NG. Спасти Нотр-Дам / Saving Notre-Dame (2020) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006717.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ NG. В погоне за равноденствием / Chasing the Equinox (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006465.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ BBC. Тайные правила современной жизни: Алгори
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006345.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Discovery: Разрушители легенд / MythBusters (2013) WEB-DL [H.26
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006342.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ NG: Нотр Дам: невероятная гонка против ада / Not
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006244.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Discovery. Жизнь с Тиграми / Living with Tigers (2003) TVRip (се�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006100.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ NG: Секреты гробницы Христа: специальный реп�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006086.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ BBC. Королева Виктория и её девять детей / Queen V
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006059.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ BBC. Королева Виктория и её девять детей / Queen V
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6413D65D8EFE991D4853F477D31AA29825AC4740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484610   (1005986) от 20.07.2021
-
-NG: Загадки королевской кобры / Secrets of the King Cobra (2008) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Она королева змей, непоколебимая, гипнотическая, смертоносная, поедающая себе подобных. Правительница дикого, но в тоже время не защищенного королевства. Королевская кобра - самая большая из ядовитых змей, способная убить взрослого слона, и мы почти ничего о ней не знаем. Но скоро все измениться. Две королевские кобры, хирургическим путем снабженные приборами слежения, (   Читать дальше...   )Производство: США, National GeographicЖанр: Документальный, фауна, исследованияРежиссер: Тодд ХерманПеревод: Одноголосый профессиональный (АРК-ТВ)Субтитры: АнглийскиеПродолжительность: 00:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3731E2629F0291E28A27E03390B40C299A548F30
 ```
 
 https://mybot314.ru/tekegram_catalog/

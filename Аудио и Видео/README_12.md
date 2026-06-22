@@ -1,3 +1,108 @@
+###  Публикация: 745766   (967095) от 15.01.2014
+
+Да здравствует Франция! / Vive la France (2013) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два пастуха из несуществующей арабской страны Табулистан отправляются в Париж, чтобы взорвать Эйфелеву башню.Жанр: комедияПродюсер: Ален Голдман, Франц РичардВ ролях: Хосе Гарсия, Микаэль Юн, Изабель Фунаро, Эри Абиттан, Жером Коммандёр, Венсан Москато, Жан Франсуа Кэйри, Франк Гастамбид, Мусса Мааскри, Хамид НаджахПеревод: Профессиональный (дублированный)Язык субтитров: АнглийскийПродолжительность: 01:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F1A6097F704D491498FE12F8D2386404C9ACD44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358882   (967065) от 09.02.2020
+
+Терминатор: Тёмные судьбы / Terminator: Dark Fate (2019) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мексика. Милая девушка Даниэла Рамос, а для друзей просто Дани, вместе с братом приходит с утра работать на завод, но там выясняется, что их вскоре заменят автоматикой. И это не единственная угроза, которую представляют для девушки машины: тут же на неё нападает присланная из будущего и практически неубиваемая модель терминатора REV-9. Но на защиту Дани встает Грэйс (   Читать дальше...   )Производство: США, Китай, Paramount Pictures, Twentieth Century Fox, Skydance MediaЖанр: Фантастика, боевик, приключенияРежиссер: Тим МиллерАктеры: Линда Хэмилтон, Арнольд Шварценеггер, Маккензи Дэвис, Наталия Рейес, Гэбриел Луна, Диего Бонета, Алисия Боррачеро, Энрике Арсе, Стивен Кри, Ферран ФернандесПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, full), украинские (Forced, full), английские (Full, SDH, SDH Colored)Продолжительность: 02:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B38ECF39FC34468F057CC21981CCA19C09FEE641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358895   (967006) от 09.02.2020
+
+Терминатор: Тёмные судьбы / Terminator: Dark Fate (2019) BDRip [480p] iPod
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мексика. Милая девушка Даниэла Рамос, а для друзей просто Дани, вместе с братом приходит с утра работать на завод, но там выясняется, что их вскоре заменят автоматикой. И это не единственная угроза, которую представляют для девушки машины: тут же на неё нападает присланная из будущего и практически неубиваемая модель терминатора REV-9. Но на защиту Дани встает Грэйс (   Читать дальше...   )Производство: США, Китай, Paramount Pictures, Twentieth Century Fox, Skydance MediaЖанр: Фантастика, боевик, приключенияРежиссер: Тим МиллерАктеры: Линда Хэмилтон, Арнольд Шварценеггер, Маккензи Дэвис, Наталия Рейес, Гэбриел Луна, Диего Бонета, Алисия Боррачеро, Энрике Арсе, Стивен Кри, Ферран ФернандесПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, full), украинские (Forced, full), английские (Full, SDH, SDH Colored)Продолжительность: 02:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C41E33CFA64141575FBB9B19F48E5A7DB41D2E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977342   (966657) от 20.01.2016
+
+Иррациональный человек / Irrational Man (2015) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессор философии Эйб Лукас опустошен: он не видит в своей жизни ни радости, ни смысла.
+На лето Эйб приезжает преподавать в небольшой колледж, где у него завязываются отношения с двумя очень разными женщинами. Рита, его новая коллега, воображает, что именно он вызволит ее из несчастливого брака. А Джилл, его лучшая студентка, становится ему ближайшим другом. Но (   Читать дальше...   )Производство: СШАЖанр: Драма, детективРежиссер: Вуди АлленАктеры: Хоакин Феникс, Эмма Стоун, Джейми Блэкли, Паркер Поузи, Джо Степлтон, Нэнси Кэрролл, Эллисон Галлерани, Бригитт Ланди-Пейн, Кэтлин Семер, Бетси АйдемПеревод: Дублированный (iTunes)Субтитры: Английские (полные, отключаемые)Продолжительность: 01:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AF42CC67EB1349314B0161B426F5001D745F3EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 977347   (966635) от 20.01.2016
 
 Иррациональный человек / Irrational Man (2015) BDRip [480p] iPod
@@ -6,7 +111,7 @@
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966635.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966499.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966435.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966429.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966343.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966170.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966081.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966075.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966003.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965542.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965533.jpg" />
 </div>
 
 
@@ -292,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965531.jpg" />
 </div>
 
 
@@ -318,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965348.jpg" />
 </div>
 
 
@@ -344,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965341.jpg" />
 </div>
 
 
@@ -371,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965285.jpg" />
 </div>
 
 
@@ -397,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965284.jpg" />
 </div>
 
 
@@ -423,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965280.jpg" />
 </div>
 
 
@@ -449,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965277.jpg" />
 </div>
 
 
@@ -475,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965219.jpg" />
 </div>
 
 
@@ -501,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965167.jpg" />
 </div>
 
 
@@ -527,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965097.jpg" />
 </div>
 
 
@@ -553,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965091.jpg" />
 </div>
 
 
@@ -565,115 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 620534   (965090) от 18.02.2013
-
-Три богатыря и Шамаханская царица (2010) BDRip [576p] iPad
-
->>Аудио и Видео
->>Отечественное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарная Шамаханская царица, которая сводила с ума многих царей и простых смертных, положила свой глаз и на Киевского князя. Тот заболел любовью странной по ней. Но чтобы доставить в целости и сохранности эту чудо-богиню в Киев-Град, срочно из отпуска вызывают всех троих, уже знакомых нам, богатырей: Алёшу Поповича, Добрыню Никитича и Илью Муромца. Теперь троица должна решить, как быть дальше? Вроде бы и слухи о царице ходят нелестные, и князя жаль.Жанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Сергей ГлезинАктеры: Дмитрий Быковский, Валерий Соловьев, Олег Куликович, Сергей Маковецкий, Анна Геллер, Дмитий Высоцкий, Константин Бронзит, Мария Цветкова, Елена, Шульман, Лика Медведева, Игорь Шибанов, Анатолий Петров, Наталья Данилова, Сергей Глезин, Михаил ЧернякФормат: MP4 (контейнер m4v)Продолжительность: 01:16:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 620524   (965035) от 18.02.2013
-
-Алеша Попович и Тугарин Змей (2004) BDRip [576p] iPad
-
->>Аудио и Видео
->>Отечественное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965035.jpg" />
-</div>
-
-
-###  Подробнее
-
-В древнем русском городе Ростове родился в поповской семье сын. Назвали его родители Алешей. А когда он вырос и стал богатырем, то совершил такие подвиги, что стал героем русских былин Алешей Поповичем. Только подвиги его начались с конфуза…
-
-Подступила к Ростову тугарская вражеская орда во главе с Тугарином Змеем и потребовала, чтобы жители города выплатили дань. Поповский сын предложил план действий. Народ этот план одобрил и собрал гору золота. Алеша же умудрился собственный план «благополучно» провалить, да с каким треском!
-
-И золото упустил, и полгорода разрушил. После чего поклялся — Тугарина Змея изловить и золото вернуть. Отправился Алеша Попович в путь вместе с дедом Тихоном, который мальчика вырастил и воспитал, а чуть позже компанию им составили говорящий конь Юлий, купленный у цыган, почти 16-летняя красавица Любава, ее бабка и их ослик Моисей…Жанр: мультфильм, мюзикл, фэнтези, мелодрама, комедияРежиссер: Константин БронзитАктеры: Олег Куликович, Лия Медведева, Дмитрий Высоцкий, Анатолий Петров, Наталья Данилова, Сергей Маковецкий, Иван Краско, Татьяна Иванова, Михаил Черняк, Константин БронзитФормат: MP4 (контейнер m4v)Продолжительность: 01:18:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359267   (965004) от 11.02.2020
-
-Успеть до полуночи / Midnight Run (1988) BDRip [720p] ATV [MVO]
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джек Уолш — опытный профессионал, мастер своего дела. Когда-то он служил в полиции, а теперь занимается частным сыском. Его специализация — операции по поимке беглых преступников. В этот раз Джек занят поисками Джонатана Мардукаса, известного под кличкой «Герцог». Мардукас, скромный и интеллигентный бухгалтер, умудрился украсть у мафии 15 миллионов долларов. По договоренности (   Читать дальше...   )Производство: США / Universal Pictures, City Light FilmsЖанр: Триллер, приключения, криминал, комедия, боевикРежиссер: Мартин БрестАктеры: Роберт Де Ниро, Чарльз Гродин, Яфет Котто, Джон Эштон, Деннис Фарина, Джо Пантольяно, Ричард Форонджи, Роберт Миранда, Джек Кихоу, Уэнди ФиллипсПеревод: Профессиональный многоголосый, авторский одноголосыйСубтитры: Русские (вшитые, отключаемые), английские (вшитые, отключаемые)Продолжительность: 02:06:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2C14CCA8EC93725DA90712DB3174C8E61FBD4C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359248   (965003) от 11.02.2020
-
-Мир, полный чудес / Wonderstruck (2017) BDRip [1080p] ATV [MVO]
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Окружающий мир поистине полон чудес, и каждый момент может стать началом настоящего приключения, ведущего человека к переменам и заветной мечте.
-В центре событий киноленты находятся два ребенка – мальчик по имени Бен и девочка Роуз. Он живет в наши дни на Среднем Западе Соединенных Штатов. Она – в Нью-Йорке, только пятьюдесятью годами ранее. Дети являются представителями (   Читать дальше...   )Производство: США / Amazon Studios, Cinetic Media, FilmNation EntertainmentЖанр: Драма, детективРежиссер: Тодд ХейнсАктеры: Оакс Фигли, Джулианна Мур, Мишель Уильямс, Милли Симмондс, Кори Майкл Смит, Джеймс Урбаняк, Дэмиэн Янг, Патрик Мёрни, Лорен Ридлофф, Энтони НаталиПеревод: Профессиональный многоголосый, авторский одноголосыйСубтитры: Русские (Ник Чубан, Вадим Мартишевский, PhysKids, Orangeice), английские (вшитые, отключаемые)Продолжительность: 01:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB4C3324D91BBD5A8FFCB8BE35EAAD505796AF88
 ```
 
 https://mybot314.ru/tekegram_catalog/

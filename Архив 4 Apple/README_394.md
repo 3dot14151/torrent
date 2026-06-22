@@ -1,3 +1,58 @@
+###  Публикация: 1324810   (416368) от 13.09.2019
+
+Reeder 4.1.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа чтения новостей для Mac с поддержкой различных сервисов синхронизации.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Silvio RizziПоддерживаемая ОС: macOS 10.14 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EA5034DA49A5EA868673EA3222057833AF3AAE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065952   (416346) от 24.10.2016
+
+Firetask - Project-oriented GTD Task Management 3.8.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firetask. GTD-менеджер с приятным интерфейсом
+Грамотное планирование является если не гарантом успешности, то, как минимум, эффективным средством достижения хорошего результата в любом начинании. Сегодня мы расскажем еще об одном таком менеджере, который больше ориентирован на работу с проектами и носит название Firetask.
+
+Одно из основных отличий Firetask от других (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 октября 2016Разработчик: Gerald AquilaПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA511151D23A077737D1E0569B346EB9E272EF1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325166   (416207) от 13.09.2019
 
 Alien Skin Exposure X4 Bundle 4.5.6.130 [En]
@@ -6,7 +61,7 @@ Alien Skin Exposure X4 Bundle 4.5.6.130 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416207.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Downcast 2.9.55 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416196.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ A Better Finder Attributes 7 v7.02b01 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416195.jpg" />
 </div>
 
 
@@ -86,7 +141,7 @@ Cisdem Duplicate Finder 5.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416193.jpg" />
 </div>
 
 
@@ -114,7 +169,7 @@ Downie 4 v4.1.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416190.jpg" />
 </div>
 
 
@@ -142,7 +197,7 @@ Get Backup Pro 3 v3.5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416181.jpg" />
 </div>
 
 
@@ -168,7 +223,7 @@ Adobe InDesign 2022 17.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416084.jpg" />
 </div>
 
 
@@ -194,7 +249,7 @@ Adobe After Effects 2022 22.6.0 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416054.jpg" />
 </div>
 
 
@@ -221,7 +276,7 @@ NanoBrowser 1.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416033.jpg" />
 </div>
 
 
@@ -247,7 +302,7 @@ EazyDraw 9 v9.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416031.jpg" />
 </div>
 
 
@@ -273,7 +328,7 @@ Geekbench 5 v5.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416029.jpg" />
 </div>
 
 
@@ -302,7 +357,7 @@ Adguard 2.5.0 (896) beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416024.jpg" />
 </div>
 
 
@@ -328,7 +383,7 @@ Color Folder Master 1.0.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416021.jpg" />
 </div>
 
 
@@ -354,7 +409,7 @@ CleanMyMac X 4.4.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415925.jpg" />
 </div>
 
 
@@ -381,7 +436,7 @@ iSkysoft iTube Studio 7.4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415699.jpg" />
 </div>
 
 
@@ -410,7 +465,7 @@ WhatSize 6.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415621.jpg" />
 </div>
 
 
@@ -436,7 +491,7 @@ Studies 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415607.jpg" />
 </div>
 
 
@@ -464,7 +519,7 @@ WebScraper 4.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415606.jpg" />
 </div>
 
 
@@ -490,7 +545,7 @@ Calendar 366 II v2.3.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415511.jpg" />
 </div>
 
 
@@ -518,7 +573,7 @@ Garden Planner 3.6.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415502.jpg" />
 </div>
 
 
@@ -544,7 +599,7 @@ JetBrains GoLand 2020.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415455.jpg" />
 </div>
 
 
@@ -570,7 +625,7 @@ Coda 2.5.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415406.jpg" />
 </div>
 
 
@@ -597,7 +652,7 @@ JetBrains Clion 2020.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415389.jpg" />
 </div>
 
 
@@ -623,7 +678,7 @@ WiFiSpoof 3 v3.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415234.jpg" />
 </div>
 
 
@@ -634,60 +689,6 @@ WiFiSpoof - небольшая утилита, которая поможет в�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:151CA8290E462972FF274DC54C5ECDB1E9ABE6DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947966   (415219) от 18.10.2015
-
-Topaz Plugins Bundle (10.09.2015) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Bundle — это набор плагинов от известной компании Topaz Labs для Adobe Photoshop, а также для Photoshop Elements, Apple Aperture и Lightroom. Плагины предназначены для регулирования программного расширения, имитации рисования маслом и акварелью, снижения шумов, отделения объекта от фона и объединения с другим изображением, увеличения резкости и многого другого. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: сентябрь 2015Разработчик: Topaz Labs, LLC.Поддерживаемая ОС: OS 10.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C275EB77418A37AFB7724ACBC1342EE4A993BAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251649   (415161) от 02.10.2018
-
-Wondershare MobileTrans 6.9.9 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переход на новое устройство будет лёгким благодаря Wondershare MobileTrans для Mac Можно перенести все ваши данные - в том числе контакты, текстовые сообщения, журналы вызовов, фото, музыку, видео и приложения - без риска и потери качества.
-
-Кросс-платформенная передача данных одним щелчком мыши. Если вы хотите обновить телефон, поменять устройство или сменить оператора, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.10.2018.10.2018Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский, Немецкий, Французский, Итальянский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40AD8A115518EEEFC8A9DAE6BAB40B51646E25A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

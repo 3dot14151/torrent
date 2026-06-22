@@ -6,7 +6,7 @@ Vivian Vance Kelly - Chicago Here I Come (2019) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572856.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Andrea De Luca - Andrea De Luca Blues Trio (2016) [FLAC|Lossless|image + .cue] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572843.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Andy Lindquist - Your Mother's Eye's (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572513.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Mungo Jerry - Somelight (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Classi
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571975.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Blues Overdrive - The Blues Overdrive (2012) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571483.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Acme Blues Company - I Think I Made It (2006) [FLAC|Lossless]<Industrial Strengt
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571480.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Boston Horns - East Coast Funk (2003) [FLAC|Lossless]<Funk, Soul, Nu-Jazz>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568987.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ VA - Something Swingin' (2002) [FLAC|Lossless]<Blues, Funk/Soul, Jazz, Pop>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568954.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ The Hoax - 6 альбомов (1994 - 2014) [FLAC|Lossless]<Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568541.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Alex Caporuscio - Alex Caporuscio (2010) [APE|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567616.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Albatross - Blues Landing (2000) [APE|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567593.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Alabama Mike - Tailor Made Blues (2010) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567572.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Al Basile - Groovin' In The Mood Room (2006) [APE|Lossless]<Blues, Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567559.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Albert Castiglia - Burn (2002) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567557.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Jimmy Burns - Back To The Delta (2003) [FLAC|Lossless|image + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567464.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Jimmy Burns - It Ain't Right (2015) [FLAC|Lossless|tracks + .cue] <Modern Electr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567462.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Adam Holt & The Blues Congregation - Who I Am (2002) [APE|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567411.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Warren Haynes featuring Railroad Earth - Ashes & Dust (2015) [FLAC|Lossless|imag
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567341.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Andre Christovam - Catharsis (1997) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567262.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ American Blues Box - American Blues Box (2006) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567033.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ B.B. King & Eric Clapton - Riding With The King (2000) / Remastered 2015 / [FLAC
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566256.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Alastair Greene Band - Walking In Circles (2009) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565200.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ Armand & Bluesology - Too Much Is Not Enough (2001) [FLAC|Lossless]<Modern Elect
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565076.jpg" />
 </div>
 
 
@@ -755,7 +755,7 @@ Artie Kaplan - Confessions of a Male Chauvinist Pig (1997) [FLAC|Lossless]<Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564965.jpg" />
 </div>
 
 
@@ -787,7 +787,7 @@ Deniece Williams - This Is Niecy (1976) (2012 Remastered) [FLAC|Lossless]<Rhythm
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564963.jpg" />
 </div>
 
 
@@ -822,7 +822,7 @@ Stylus - Best Kept Secret (1978) 2014, EMI [FLAC|Lossless|tracks + .cue] <Funk ,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564104.jpg" />
 </div>
 
 

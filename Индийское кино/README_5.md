@@ -1,3 +1,29 @@
+###  Публикация: 1037125   (615169) от 23.07.2016
+
+Да здравствует победа! / Jai Ho (2014) HDRip
+
+>>Зарубежное кино
+>>Индийское кино
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы быть героем, необязательно носить военную форму. И не говори ему спасибо, лучше помоги трем людям, как представится возможность...Производство: ИндияЖанр: Боевик, ДрамаРежиссер: Сохаил КханАктеры: Салман Кхан, Табу, Сунил Шетти, Пулкит Самрат, Дженелия Д’Суза, Дэйзи Шах, Сана Кхан, Бруна Абдалах, Адитья Панчоли, Махеш МанджрекарПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 02:20:55Реклама: рекламы нет
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F6D8940814EFF09423902550FC5B7EC838407A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 524046   (614740) от 17.07.2012
 
 Невеста и предрассудки / Bride & Prejudice (2004) [720p] HDTVRip
@@ -6,7 +32,7 @@
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614740.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613946.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613436.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611656.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611045.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608360.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597406.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597157.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597137.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595128.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586506.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581855.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576747.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576404.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_575550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_575550.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568066.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564529.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562771.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557458.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556787.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555280.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553877.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550388.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548946.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547310.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06068C5948C6C94A6650780D121C922E4CA553EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048093   (547200) от 01.09.2016
-
-Беги, Джонни / Нелегкий выбор / Bhaag Johnny (2015) DVDRip
-
->>Зарубежное кино
->>Индийское кино
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547200.jpg" />
-</div>
-
-
-###  Подробнее
-
-А что, если однажды вам предложат прожить одновременно две жизни? Именно такое заманчивое предложение получил офисный клерк Джанардан, сокращённо Джонни, после того, как был уличён своей начальницей в финансовых махинациях. В обмен на свою свободу, он должен отправиться в Таиланд и выполнить её главное задание, а именно — убить незнакомку по имени Таня…Производство: ИндияЖанр: Фантастика, Боевик, ТриллерРежиссер: Шивам НаирАктеры: Кунал Кхему, Мандана Карими, Зоя Морани, Манаси Скотт, Викрам Бхатт, Урваши Раутела, Арун Бали, Мукул Дев, Бикрамджит Канварпал, Мохан Капур, Нишигандха Вад, Асим Мерчант, Гиян ПракашПеревод: Многоголосый закадровый, профессиональный (SDI Media)Продолжительность: 01:52:43Реклама: Отсутствует.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EB085E0CB830713CF8F08C79908797661F40253
 ```
 
 https://mybot314.ru/tekegram_catalog/

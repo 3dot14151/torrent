@@ -1,3 +1,29 @@
+###  Публикация: 1093516   (927193) от 19.01.2017
+
+iGO Primo NextGen 9.18.40.671989 (WinCE) [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Навигация для др. мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Навигационное ПО iGO Primo NextGen версии 9.18.40.671989 для автомобильных навигаторов и ГУ автомобиля под управлением операционной системы WinCEРелиз состоялся: 2016Разработчик: NNGПоддерживаемая ОС: WinCEЖанр: Навигационное ПОЯзык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8814D13FB574F691B714754B4AAE59D703014DA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365942   (927103) от 09.03.2020
 
 Pedometer - GPS Tracker v1.0 [Ru/En]
@@ -6,7 +32,7 @@ Pedometer - GPS Tracker v1.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927103.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ VK mp3 mod v94/657 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927023.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Dr.Web v12.5.1 + Activation Key [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926624.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Easy Music for kids v1.0 [Ru/Multi]
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925759.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Files v1.0.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925754.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Time Calculator Cardamon v1.0.9 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925722.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ NotifyBuddy - AMOLED Notification Light v1.50 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925523.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Five Hundred English Words v0.2.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925513.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Backup Apk - Extract Apk v1.2.9 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925417.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Equalizer Music Player Pro v2.9.22 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925388.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ AiScan: All QR Code Scanner & Barcode Reader v1.0.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925384.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ File Manager Pro v1.40 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925330.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Speed Test & WiFi Analyzer v9.0.27615 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925212.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923992.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Lingua Book Reader 1.2.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923964.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ Randomizer+ Random Pick Generator - Decision Maker v4.4 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923903.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ Fast Charge Pro v1.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923867.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ HERETIC GODS - Ragnarok vV.1.10.35 [Ru/Multi] (Original + Mod)
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923575.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ Fallout File Manager v1.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923567.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ WiFi Overview 360 Pro 3.40.01 - Универсальный инструмент 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923201.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ Cuticon Drop - Icon Pack v1.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922129.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ Regex Finder v0.9 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922115.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ MyScript Calculator II 2.1.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922026.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ Magic DosBox v1.0.79 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922011.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ Ghost Commander File Manager + All Plugins v1.56.2B2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921986.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ Ghost Commander File Manager - полнофункциональный файло
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A594BD9D099B40EDA25F2ADA141DC12D6055431D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366925   (920574) от 13.03.2020
-
-Happy Color – Color by Number v2.2.1 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Color by Number – New Coloring Book - это увлекательная мультимедийная игра в которой вам предстоит создавать из обычного черно-белого полотна настоящие шедевры. Для простоты рисунок уже будет создан и поделен на различные части, вы же должны додумать его и закрасить эти самые части. Игра подойдет для всех возрастов и вы сможете не только увлечь вашего ребенка, но (   Читать дальше...   )Тип издания: Mod (Бесконечные подсказки)Релиз состоялся: 30.10.2018Разработчик: X-FlowПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:747689F7526C4015C9F43F053AD87C669C009602
 ```
 
 https://mybot314.ru/tekegram_catalog/

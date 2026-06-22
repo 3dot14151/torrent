@@ -1,3 +1,57 @@
+###  Публикация: 1433289   (156802) от 21.12.2020
+
+Михаил Булгаков | Рассказы (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Богема — произведение автобиографическое, основанное на истории создания и постановки булгаковской пьесы «Сыновья муллы» весной 1921 г. во Владикавказе и последующей поездки драматурга на вырученные деньги в Тифлис (Тбилиси).Жанр: Классическая прозаПродолжительность: 01:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DB4E051161788307AF3D75CD419D498A978CD39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 446244   (156657) от 13.11.2023
+
+Уильям Сомерсет Моэм | Театр (Страницы романа) (2009) [MP3, Марина Неёлова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цикл: Словесность. Тексты.
+Один из лучших романов классика английской литературы Уильяма Сомерсета Моэма «Театр» читает блистательная актриса нашего времени Марина Неелова.
+«Подлинной школой литературного мастерства» называли достойные критики не только художественные произведения Сомерсета Моэма, но даже его автобиографию. Да, этот автор не был обижен ни критикой, (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Радио России «Культура»Продолжительность: 03:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C8C0C468F5144A641564A5ECC58C3F413B4177
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 446236   (156644) от 13.11.2023
 
 Уильям Сомерсет Моэм | Театр (Аудиоспектакль) (2007) [MP3, Валентина Керножицкая и др.]
@@ -6,7 +60,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156644.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156564.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156541.jpg" />
 </div>
 
 
@@ -89,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156422.jpg" />
 </div>
 
 
@@ -115,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156407.jpg" />
 </div>
 
 
@@ -142,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156398.jpg" />
 </div>
 
 
@@ -170,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156335.jpg" />
 </div>
 
 
@@ -197,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156317.jpg" />
 </div>
 
 
@@ -224,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156312.jpg" />
 </div>
 
 
@@ -251,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156296.jpg" />
 </div>
 
 
@@ -278,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155828.jpg" />
 </div>
 
 
@@ -305,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155655.jpg" />
 </div>
 
 
@@ -332,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155648.jpg" />
 </div>
 
 
@@ -359,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155623.jpg" />
 </div>
 
 
@@ -387,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155588.jpg" />
 </div>
 
 
@@ -413,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155312.jpg" />
 </div>
 
 
@@ -441,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155031.jpg" />
 </div>
 
 
@@ -468,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155024.jpg" />
 </div>
 
 
@@ -496,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155015.jpg" />
 </div>
 
 
@@ -522,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155005.jpg" />
 </div>
 
 
@@ -549,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154739.jpg" />
 </div>
 
 
@@ -577,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154729.jpg" />
 </div>
 
 
@@ -605,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154662.jpg" />
 </div>
 
 
@@ -631,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154150.jpg" />
 </div>
 
 
@@ -642,61 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6829E2AF931D364E5F9C63198CDABA5CF7283EFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601033   (154115) от 29.12.2022
-
-Антон Чехов | Интеллигентное бревно (2022) [MP3, Джахангир Абдуллаев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нелегко мировым судьям. Особенно молодым. Особенно, когда в качестве обвиняемого вызывается добрый знакомый. Здесь свою последнюю рубашку отдашь, лишь бы стороны разошлись довольными. И того, увы, бывает мало.Жанр: КлассикаПродолжительность: 00:21:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4BBEA64968082902A3BA3BFD237FA88FF9DF1DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 356934   (154007) от 15.11.2023
-
-В.А. Соллогуб | Тарантас (2003) [MP3, Владимир Самойлов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Русская классика.
-Владимир Александрович Соллогуб (1882–1813) – русский чиновник (тайный советник), прозаик, драматург, поэт, граф.
-В 1837 В.А. Соллогуб дебютировал в «Современнике», с 1839 печатался в «Отечественных записках».
-В «светских» повестях («Лев», «Медведь», «Большой свет» и др.) с лёгкой иронией изобразил пустоту и суетность великосветского общества. (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Студия «АРДИС»Продолжительность: 06:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8E9C890D52F876E6E81573277B99DA2D802C2FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

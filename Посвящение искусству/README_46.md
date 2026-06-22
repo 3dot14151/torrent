@@ -1,3 +1,81 @@
+###  Публикация: 1624739   (200259) от 07.04.2023
+
+Беспечные ездоки и бешеные быки, или Как поколение секса, наркотиков и рок-н-ролла спасло Голливуд / Easy Riders, Raging Bulls: How the Sex, Drugs and Rock 'N' Roll Generation Saved Hollywood (2003)
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200259.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1969 году малобюджетный байкерский фильм «Беспечный ездок» потряс Голливуд невероятным прокатным успехом и возвестил о начале новой эры. Это было время, когда молодые и талантливые режиссеры Скорсезе, Коппола и Спилберг вместе с новым поколением актеров, среди которых Де Ниро, Пачино и Николсон, стали влиятельными фигурами в кинематографе и создали современную (   Читать дальше...   )Производство: Великобритания, Канада / BBC Television Centre, Cactus ThreeЖанр: документальныйРежиссер: Кеннет БаузерПеревод: Двуголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:203D11ABA95AB23FF6F7E52C062A6F66A457DD29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633402   (198519) от 14.05.2023
+
+Жизнь с Чаки / Living with Chucky (2022) WEB-DL [H.264/1080p] [DVO]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франшиза «Детские игры» стала культовой в мировом кинематографе. Неудивительно, что зрители с нетерпением ждали фильм, раскрывающий все секреты работы над куклой, которая пугала детей и взрослых с экранов телевизоров по всему миру. Кинопродюсер, выросший вместе с куклой-убийцей Чаки, ищет другие семьи, окружающие фильмы о кукле-убийце, чтобы поделиться своим опытом (   Читать дальше...   )Производство: США, Chucky DocumentaryЖанр: документальный, история, киноматографРежиссер: Кира Элиз ГарднерПеревод: двуголосый любительский (Pazl Voice)Язык озвучки: русскийСубтитры: английскиеПродолжительность: 01:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:645DA33C7044D71CF579A88B34913C054EFE38A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633614   (198407) от 16.05.2023
+
+Проклятые фильмы / Cursed Films (2020-2022) WEB-DL [H.264/1080p] (сезоны 1-2, серии 1-10 из 10)
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ о создании и интервью с людьми, принимавшими участие в производстве таких культовых хорроров, как «Экзорцист», «Полтергейст», «Омен», «Ворон» и «Сумеречная зона» (1-й сезон) + "Волшебник страны Оз", "Ребенок Розмари", "Сталкер", "Змей и радуга" и "Ад каннибалов" (2-й сезон).Производство: Канада, США, Low End, Muse Entertainment Enterprises / ShudderЖанр: документальный, история, ужасы, кинематографРежиссер: Джей ЧилПеревод: многоголосый профессиональный (Ozz.tv)Язык озвучки: русскийСубтитры: русские (Ozz.tv, forced + full), украинские (Ozz.tv, forced + full), английские (full + SDH)Продолжительность: 5x ~00:30:00 + 5x ~00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B8DB58414802B4C4F85FCBB6BFEC0933F9F7D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634168   (198298) от 19.05.2023
 
 Неизменный: Майкл Дж. Фокс / Still: A Michael J. Fox Movie (2023) WEB-DL [H.264/1080p] [MVO]
@@ -6,7 +84,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198298.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197831.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197523.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197474.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197411.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197384.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197247.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196933.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Wham! / Wham! (2023) WEB-DL [H.264/1080p] [DVO]
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195989.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195790.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195763.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195714.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_193439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193439.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192603.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192400.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192349.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192294.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192230.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192226.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192167.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192092.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ Depeche Mode: Духи в лесу / Spirits in the Forest (2019) BDRip [H.264/1
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192005.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191973.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD152EFD33F247869B5A691BDFE78FCE534676C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658132   (191909) от 06.09.2023
-
-Анатолий Папанов. Надо просто любить и верить (2022) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анатолий Папанов — яркий, талантливый, любимый. Его мгновенно узнавали по неповторимому голосу. Многие до сих пор помнят даже небольшие его роли. Сам Анатолий Дмитриевич искренне удивлялся, как с такой внешностью и произношением вообще стал актером. Он не был доволен почти ни одной своей киноработой, называя себя «ошибкой режиссеров». Авторам фильма удалось собрать (   Читать дальше...   )Производство: Россия | ООО «КОНТРАСТ»Жанр: Биография, документальныйРежиссер: Георгий АнановУчастники: Андрей Иванов, Надежда Каратаева, Елена Папанова, Вера Васильева, Татьяна Васильева, Юрий Титов, Мария Папанова, Светлана Светличная, Юрий Васильев, Игорь КорнелюЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:51:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6126CB9EE27828FE1672CC2FFECFD25180298EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588259   (191808) от 03.11.2022
-
-Нажми на кнопку / PressPausePlay (2011) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цифровая революция в искусстве в последнее десятилетие позволила реализовывать творческие возможности в беспрецедентном масштабе. К чему приведет подобная тенденция – к улучшению качества кино, музыки и литературы, к новому уровню истинных талантов либо же к цифровому океану посредственной массовой культуры?Производство: Швеция, Австралия, Франция, США, Исландия, Япония, Германия, Испания, Норвегия, Великобритания, House of RadonЖанр: документальный, история, искусство, музыкаРежиссер: Дэвид Дворски, Виктор КолерПеревод: многоголосый профессиональный (Jaskier)Субтитры: русские, английскиеПродолжительность: 01:23:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E108912480BB78C08286838F889036270370BE39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588374   (191563) от 04.11.2022
-
-Человек-паук: Все дороги ведут в никуда / Spider-Man: All Roads Lead to No Way Home (2022) WEBRip [H.264/1080p-LQ] [VO]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Присоединяйтесь к нашим ведущим JB Smoove и Martin Starr на праздновании 20-летия фильмов о Человеке-пауке!. От оригинальной трилогии Сэма Рэйми до «потрясающих» фильмов Марка Уэбба и последнего трио от режиссера Джона Уоттса — мы познакомим зрителей со звездами, трюками и действием, злодеями и героями и воздадим должное Стэну Ли.Производство: СШАЖанр: документальныйПеревод: Одноголосый профессиональный (Jaskier)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 00:29:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:836AEC8C58975F6A8B65C65E6C6355F44DC85566
 ```
 
 https://mybot314.ru/tekegram_catalog/

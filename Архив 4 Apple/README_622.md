@@ -1,3 +1,58 @@
+###  Публикация: 1432726   (163259) от 18.12.2020
+
+RAW Power 3.1.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сделайте ваши лучшие снимки еще лучше с Raw Power. Raw Power раскрывает мощь от Apple's RAW с простым, легким в использовании элементами управления. Используйте его в качестве продолжения редактирования внутри Apple Photos как расширение, или как автономный редактор фотографий.
+Если бы вы любили дополнительные регулировки RAW обработки апертуры, вы будете чувствовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.11.2020Разработчик: Gentlemen Coders, LLCПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Китайский и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44957AE0C662E29430FB3B06605AF8A5B3AA10AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432837   (163254) от 18.12.2020
+
+ScreenFlow 9 v9.0.6 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163254.jpg" />
+</div>
+
+
+###  Подробнее
+
+ScreenFlow - создаем свои скринкасты
+Бывает, нужно записать видео с экрана для каких-либо ознакомительных целей, либо объяснить непонятливому товарищу, как и что делается в его «свежекупленном» маке. Именно тогда и встает вопрос — как это сделать? Вот тут ScreenFlow и раскрывается во всем своем великолепии.
+Простая, но крайне мощная утилита для захвата и записи видео (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.12.2020Разработчик: Telestream, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E3CA9097544B28766BC1D01C16404A6ADF3018C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517196   (163234) от 14.12.2021
 
 macOS 12 Monterey 12.1 (Installer) [Multi/Ru]
@@ -6,7 +61,7 @@ macOS 12 Monterey 12.1 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163234.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Allegorithmic Substance Alchemist 2020.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163233.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ calibre 6.10.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163228.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ Rhinoceros 8 v.8.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163215.jpg" />
 </div>
 
 
@@ -111,7 +166,7 @@ Yate 5 v5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163173.jpg" />
 </div>
 
 
@@ -140,7 +195,7 @@ Allegorithmic Substance Designer 2020.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163171.jpg" />
 </div>
 
 
@@ -166,7 +221,7 @@ ExactScan Pro 19.12.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163168.jpg" />
 </div>
 
 
@@ -192,7 +247,7 @@ Boxy SVG 3.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163163.jpg" />
 </div>
 
 
@@ -218,7 +273,7 @@ Persecond 1.4.6 (build 120) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163153.jpg" />
 </div>
 
 
@@ -244,7 +299,7 @@ New File Menu 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163139.jpg" />
 </div>
 
 
@@ -271,7 +326,7 @@ Deflection 5.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163135.jpg" />
 </div>
 
 
@@ -298,7 +353,7 @@ Audio Hijack 4.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163108.jpg" />
 </div>
 
 
@@ -325,7 +380,7 @@ Steinberg Cubase Pro for Mac 13 v.13.0.10 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163078.jpg" />
 </div>
 
 
@@ -351,7 +406,7 @@ Adobe XD 35.2.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163075.jpg" />
 </div>
 
 
@@ -377,7 +432,7 @@ Cisdem PDF Password Remover 4 v4.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163074.jpg" />
 </div>
 
 
@@ -404,7 +459,7 @@ Artstudio Pro 3.2.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163070.jpg" />
 </div>
 
 
@@ -430,7 +485,7 @@ Adobe Animate 2021 v21.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163069.jpg" />
 </div>
 
 
@@ -456,7 +511,7 @@ Omni Recover 3 v3.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163061.jpg" />
 </div>
 
 
@@ -483,7 +538,7 @@ Omni Toolbox 1.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163043.jpg" />
 </div>
 
 
@@ -509,7 +564,7 @@ WonderPen 2.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163040.jpg" />
 </div>
 
 
@@ -535,7 +590,7 @@ SyncBird Pro 3.5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163035.jpg" />
 </div>
 
 
@@ -561,7 +616,7 @@ Pixelmator Pro 2.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163027.jpg" />
 </div>
 
 
@@ -588,7 +643,7 @@ Audirvana 3.5.43 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163017.jpg" />
 </div>
 
 
@@ -614,7 +669,7 @@ Sketch 81 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163016.jpg" />
 </div>
 
 
@@ -625,58 +680,6 @@ Sketch 81 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54A8B657224ADBC9FACE2ACCE7152F3CEECDB036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432796   (163014) от 18.12.2020
-
-Adobe Premiere Rush v1.5.40 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подарите своим каналам потрясающий поток с Premiere Rush, совершенно новым приложением для создания и обмена онлайн-видео. Он прост в использовании, работает на всех ваших устройствах и изменит способ создания контента.Тип издания: macOS SoftwareРелиз состоялся: 07.12.2020Разработчик: Adobe Systems IncПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2C5D338848FDDF94A10314BC19BAE7F368088C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517474   (163013) от 15.12.2021
-
-PullTube 1.7.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузка видео размещённым на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРелиз состоялся: 15.12.2021Разработчик: © 2020 MyMixAppsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14543C72E8F215F137BA4F32EFBF3755DAE6A349
 ```
 
 https://mybot314.ru/tekegram_catalog/

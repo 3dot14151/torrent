@@ -1,3 +1,55 @@
+###  Публикация: 1153795   (556662) от 28.07.2017
+
+Pressure Overdrive (2017) [Ru/Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давление зашкаливает, так что держись крепче! Заводи свою паровозку и вступай в ряды «Ля-Протеста»... Не дай Графу де Мытьё искупаться в краденой водичке в его Сверх-спа - ты еще можешь ему помешать! В этой доработанной версии игры Pressure Overdrive ты вновь окунешься в безумный мир с юморком и чудаковатыми персонажами. Здесь твое мастерство пригодится как никогда (   Читать дальше...   )Тип издания: LicenseРазработчик: Chasing CarrotsЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90DF970276BCC5CA335B692176E5924A3EF30212
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225026   (556170) от 15.07.2018
+
+Infectonator 3: Apocalypse (2018) [Multi] (1.3.2.2) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два популярных направления современной игровой индустрии переплелись в новой аркадной игре «Infectonator 3: Apocalypse». Пиксели и зомби – сочетание не ново, но в этой игре присутствуют элементы стратегии. Вам не нужно спасать мир от зомби, вам даже не нужно их убивать. Вы не герой и тем более не добряк. Ваша задача - очистить мир при помощи нового вируса, а точнее, (   Читать дальше...   )Тип издания: LicenseРазработчик: Toge ProductionsЖанр: Симулятор, Стратегия, СовременностьЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F65C49B37F63D8E0D7321EA91D3458419563535F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236694   (553994) от 19.07.2018
 
 Mugsters (2018) [Ru/Multi] (1.0.313) Repack Other s
@@ -6,7 +58,7 @@ Mugsters (2018) [Ru/Multi] (1.0.313) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553994.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Overcooked 2 (2018) [Multi] (4.576282/dlc) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553856.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Figment (2017) [Ru/Multi] (1.1.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553555.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Ultra Street Fighter IV (2014) [Ru/En] (1.05/dlc) Repack Mizantrop1337 [Arcade E
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553395.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Inside (2016) [Ru/Multi] (5.0.4.29787) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553394.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Inside (2016) [Ru/En] (5.0.4.29787) Repack YelloSOFT
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552580.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Cosmo's Cosmic Adventure (1992) [En] (1.20) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551827.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Marvel: Ultimate Alliance (2016) [En] (1.0/upd20160804) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551621.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Marvel: Ultimate Alliance 2 (2016) [En] (1.0/upd2) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551619.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Worms Anthology (1996-2016) [Ru/Multi] Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549793.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Assault Suit Leynos (2016) [En/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548982.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Assault Suit Leynos (2016) [En/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548923.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Blamdown: Udder Fury (2016) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548032.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ The Final Station (2016) [Ru/Multi] (1.2) Repack MasterDarkness
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547980.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Super Bomberman R (2018) [Ru/Multi] (1.1) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547822.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Mega Man X Legacy Collection (2018) [Multi] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547756.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Shiny (2016) [Ru/Multi] (1.0.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547062.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Pan-Pan (2016) [Ru/Multi] (1.0.2) License GOG [Planetary Pack]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547057.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ One Piece Burning Blood (2016) [Ru/Multi] (1.06) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546175.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ My Friend Pedro (2019) [Ru/Multi] Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545922.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Brigador: Up-Armored Edition (2017) [Ru/Multi] (1.4/dlc) License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545224.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Brigador: Up-Armored Edition (2017) [Ru/Multi] (1.4) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545215.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Prehistorik 2 (1993) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540323.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Prehistorik (1991) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540318.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Prehistorik - компьютерная игра компании Titus Interacti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12B914EAF0BA74BCF5858034B08CDD1253F6E26E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050128   (539672) от 07.09.2016
-
-One Piece Burning Blood (2016) [Ru/Multi] (1.06/dlc) Repack Other s [Gold Edition]
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539672.jpg" />
-</div>
-
-
-###  Подробнее
-
-One Piece Burning Blood - яркий и динамичный файтинг о самом знаменитом пирате в мире: Манки Д. Луффи.Тип издания: RepackРазработчик: Spike Chunsoft Co., Ltd.Жанр: Arcade (Fighting), 3DЯзык озвучки: ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72665B2A74548F6532173816D92FA9A7BDA41648
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144579   (538201) от 05.08.2018
-
-140 (2013) [En] (171409-r400) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538201.jpg" />
-</div>
-
-
-###  Подробнее
-
-140 – это непростой минималистичный платформер с яркой абстрактной графикой. Вам потребуется изрядное чувство ритма, чтобы преодолеть препятствия под энергичную, но мрачную электронную музыку.Тип издания: LicenseРазработчик: Carlsen GamesЖанр: Экшн, Аркада, ПлатформерЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:667305B362F1F1214BEB4CDAEFC3A7F09B15F3F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

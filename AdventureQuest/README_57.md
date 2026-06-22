@@ -1,3 +1,133 @@
+###  Публикация: 1078994   (219631) от 18.12.2016
+
+Batman - The Telltale Series (2016) [Ru/Multi] (1.0) License GOG [Episode 1-5]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Темный Рыцарь возвращается в Batman: The Telltale Series! Да, у нас нет лишней пары миллиардов долларов, но все мы немного бэтмены: боимся сумасшедших клоунов, любим котят и быстрые машины. Но еще больше общего у нас с Брюсом Уэйном – человеком в маске (или он и есть маска?): его детство уничтожено, его мир разрушен, и все-таки он пытается сделать свой родной город (   Читать дальше...   )Тип издания: LicenseРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC3CCC3A7C5C672D3D67EF66571ABD1905465D5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269574   (219121) от 15.12.2018
+
+Lucius III (2018) [Ru/Multi] (0.181213182603.a) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люциус (Lucius) вернулся. В этот раз он прибывает в окрестности Уинтер-Хилл. Проходя испытания и невзгоды, мы наконец увидим, куда ведет его дорога. Это будет непросто. Впервые его выбор поставится под сомнение. Настало ли время положить конец всему этому?Тип издания: RepackРазработчик: Shiver GamesЖанр: Adventure (Horror), Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84641A7229C6FB634D8A2CAA4B04A3D854591C45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615477   (217515) от 11.08.2023
+
+The Pale Beyond (2023) [En] (1.5.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217515.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Pale Beyond – это визуальная новелла с элементами выживания, в которой каждый выбор имеет решение. Арктика сурова и жестока к каждому, кто решит вступить на ее территорию, и исследователи всегда должны быть готовы к непредвиденным обстоятельствам. Но даже их может сломить какое-то несчастье и нахождение на грани смерти от отсутствия продовольствия и жуткого холода.Тип издания: LicenseРазработчик: Bellular StudiosЖанр: Приключение, Визуальные новеллы, МенеджментЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1F1935C5FD6D4BCCBDED0B4F615C915DE40C7D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342911   (217481) от 06.12.2019
+
+Arise: A Simple Story (2019) [Ru/Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляйтесь в эмоциональное путешествие по горько-сладким жизням двух людей в мире, где воспоминания оживают и время подчиняется вашей воле. Погрузитесь в моменты счастья и преодолевайте все трудности, переживая историю своей жизни. История радости и печали. Простая история. Окунитесь в удивительный мир воспоминаний и переживаний, воплощенный в жизнь талантливыми (   Читать дальше...   )Тип издания: LicenseРазработчик: PiccoloЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E87CF17838ABEF27D1F599233B0DB94BD2EF5CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269789   (217261) от 16.12.2018
+
+Lure of the Temptress (1992) [Multi] (1.0) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217261.jpg" />
+</div>
+
+
+###  Подробнее
+
+В некогда мирное королевство пришла беда – жестокие и воинственные скорлы (безжалостные наемники под предводительством загадочной Искусительницы). Но кто же такая эта Искусительница и, главное, где ее искать? Создатели цикла Broken Sword, студия Revolution Software, подарили миру первую приключенческую игру серии «Виртуальный театр». Неигровые персонажи занимаются (   Читать дальше...   )Тип издания: LicenseРазработчик: Revolution SoftwareЖанр: Приключение, Квест, ФэнтезиЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F4708C0E6B160BE8A552A8F54C613FF221D614D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269816   (216942) от 16.12.2018
 
 Republique Remastered: Fall Edition (2015) [Ru/Multi] (1.0) Repack R.G. Механики [Episodes 1-5]
@@ -6,7 +136,7 @@ Republique Remastered: Fall Edition (2015) [Ru/Multi] (1.0) Repack R.G. Меха
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216942.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Observer: System Redux (2021) [Ru/Multi] (7368691/dlc) License CODEX [Deluxe Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216418.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ DarkHouse (2021) [Ru/En] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216196.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Wolfstride (2021) [Ru/Multi] (1.2.1) License GOG [Golden God Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216191.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ House on the Hill (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215358.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Today Is My Birthday (2020) [Ru/En] (1.6) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215319.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215177.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Batman - The Telltale Series (2016) [Ru/Multi] (1.0) Repack R.G. Механик�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215115.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ The Dark Pictures Anthology: House of Ashes (2021) [Ru/Multi] (Build 7575778/dlc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_214268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_214268.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Arise: A Simple Story (2019) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213968.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Game of Thrones - A Telltale Games Series (2014) [En] (s106) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212772.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ LEGO Indiana Jones: The Original Adventures (2008) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212744.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ Haven Park (2021) [Ru/Multi] (1.2.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212739.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Hollowbody (2024) [Ru/Multi] (2.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212531.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Sinking Island (2007) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211978.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ Big Earth (2022) [En] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211616.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Fobia - St. Dinfna Hotel (2022) [Ru/Multi] (Build 8905722) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211561.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Swallow (2022) [Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211525.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ PARANECRO (2022) [Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211450.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ South of the Circle (2022) [Ru/Multi] (1.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211135.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ Night of Horror (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211125.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ Night of Horror (2023) [Ru/En] (1.0) Scene Tenoke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C3C622B1F639C84C531D3F51579CAB97161413D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568618   (210940) от 09.08.2022
-
-No Longer Home (2021) [Multi] (1.3.3) License GOG [Farewell Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бо с Ао заканчивают университет и готовятся покинуть квартиру, в которой они жили вместе в течение года. Из-за визовых ограничений Ао вынужден вернуться в Японию, оставив Бо в Англии. Разочарованные постобразовательной жизнью и будучи под давлением правительства, которое не хочет, чтобы они там находились, оба пытаются смириться со своим неопределённым будущим. А (   Читать дальше...   )Тип издания: LicenseРазработчик: Humble Grove, Hana Lee, Cel Davison, Adrienne Lombardo, Eli RainsberryЖанр: Приключение, КвестЯзык субтитров: Английский, Китайский, ЯпонскийЯзык интерфейса: Английский, Китайский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F29ED144C6A367545A67FBBCDEB1333884E95CB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641165   (210838) от 21.06.2023
-
-MY LITTLE PONY: A Maretime Bay Adventure (2022) [Multi] (1.0.1_003) Scene Fairlight
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Верни волшебство обратно в Эквестрию! Тебя ждут приключения, полные веселья, стиля и настоящей дружбы с новым поколением персонажей MY LITTLE PONY. Земная пони Санни мечтает о том, чтобы мир стал лучше! Она решила отпраздновать фестиваль Дня бухты Мейртайм и вернуть позабытое торжество дружбы и волшебства, но кто-то хочет испортить праздник - крадет торты, выпускает (   Читать дальше...   )Тип издания: SceneРазработчик: Melbot StudiosЖанр: AdventureЯзык озвучки: Английский, Французский, Немецкий, Итальянский и другиеЯзык субтитров: Английский, Французский, Немецкий, Итальянский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B46C55F1E3AAE43EF546EB183D0F74ECDFA8737F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569557   (210487) от 14.08.2022
-
-My Destiny (2022) [Ru/Multi] (1.0) License DARKSiDERS
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210487.jpg" />
-</div>
-
-
-###  Подробнее
-
-My Destiny - это одиночная игра о медвежонке, который следует своей загадочной судьбе, блуждая по холодному и в то же время прекрасному миру. Раскройте трогательную судьбу медвежонка, пройдя весь его путь до конца. Открывайте новые воспоминания, которые подарит вам Дух Севера о потерянном медвежонке в этом большом и суровом мире. Наслаждайтесь атмосферой холодной (   Читать дальше...   )Тип издания: LicenseРазработчик: Butengo entertainmentЖанр: Adventure, ActionЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1CAF71EA800DB61CD8016C0AC8FA6D140018E13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643209   (210195) от 30.06.2023
-
-Reverie: Sweet As Edition (2023) [Multi] (1.0.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Беспокойные духи угрожают безопасности жителям острова Тороми, поэтому Тай должен рискнуть и отправиться в опасные подземелья и пройти через разнообразные препятствия, чтобы успокоить духов. И все это на летних каникулах! Reverie – это приключенческая игра, действие которой разворачивается на вымышленном острове в Новой Зеландии, вдохновленном легендой Мауи о Гигантской (   Читать дальше...   )Тип издания: LicenseРазработчик: Rainbite LtdЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B90539EEF6F59DBF676D3AE195625141CFF639F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571424   (210068) от 21.08.2022
-
-A Tale of Paper: Refolded (2022) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210068.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Tale of Paper: Refolded — это платформер-головоломка, рассказывающий историю Линии (Line), волшебного персонажа из бумаги, который может менять свою форму с помощью оригами. Превращайтесь в лягушку, ракету, птицу и других персонажей, пока Лайн отправляется в эмоциональное путешествие, чтобы осуществить мечту своего создателя.Тип издания: RepackРазработчик: Open House GamesЖанр: Adventure, Platform, Puzzle, 3DЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F479521C464B17DB21258BDA21D8E3D3A004DE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

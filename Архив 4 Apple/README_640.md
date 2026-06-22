@@ -1,3 +1,57 @@
+###  Публикация: 1347335   (154308) от 22.12.2019
+
+Downie 4 v4.0 (beta) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downie – это простейший видео-загрузчик.
+Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
+Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:014CF2C0E4F5A315782A67B72A05DEB6AA4DEB4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518707   (154301) от 20.12.2021
+
+4K YouTube to MP3 4.4.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154301.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K YouTube to MP3 — приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио! Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url".Тип издания: macOS SoftwareРелиз состоялся: 20.12.2021Разработчик: © OpenMedia LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F31142064932E33397FAD32FAFEDBDD8E56B0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347221   (154282) от 22.12.2019
 
 Pixelmator Pro 1.5.2 [Multi/Ru]
@@ -6,7 +60,7 @@ Pixelmator Pro 1.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154282.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ VisualDiffer 1.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154277.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ ColorSnapper 2 v1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154264.jpg" />
 </div>
 
 
@@ -90,7 +144,7 @@ TunesKit AceMovi Video Editor 4.6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154259.jpg" />
 </div>
 
 
@@ -116,7 +170,7 @@ Permute 3 v.3.9.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154258.jpg" />
 </div>
 
 
@@ -142,7 +196,7 @@ HitPaw Watermark Remover 2.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154237.jpg" />
 </div>
 
 
@@ -168,7 +222,7 @@ Task Office 6.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154223.jpg" />
 </div>
 
 
@@ -194,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154207.jpg" />
 </div>
 
 
@@ -220,7 +274,7 @@ Wondershare Recoverit Video Repair 1.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154183.jpg" />
 </div>
 
 
@@ -246,7 +300,7 @@ AltTab 6.51.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154179.jpg" />
 </div>
 
 
@@ -272,7 +326,7 @@ Vinegar 2.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154175.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ FoneDog Toolkit – iOS Data Recovery 2.1.56 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154144.jpg" />
 </div>
 
 
@@ -325,7 +379,7 @@ Loop Mash Up Pro 1.2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154137.jpg" />
 </div>
 
 
@@ -351,7 +405,7 @@ Downie 4 v.4.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154131.jpg" />
 </div>
 
 
@@ -379,7 +433,7 @@ Wipr – Ad and Tracker Blocker 1.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154121.jpg" />
 </div>
 
 
@@ -405,7 +459,7 @@ ACDSee Photo Studio 8 v8.0.2283 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154091.jpg" />
 </div>
 
 
@@ -432,7 +486,7 @@ PhotoScape X Pro 4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154086.jpg" />
 </div>
 
 
@@ -460,7 +514,7 @@ Finder Windows 1.5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154035.jpg" />
 </div>
 
 
@@ -486,7 +540,7 @@ AnyTrans 6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154012.jpg" />
 </div>
 
 
@@ -513,7 +567,7 @@ Audio Hijack 3.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153979.jpg" />
 </div>
 
 
@@ -540,7 +594,7 @@ Grids for Instagram 5.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153960.jpg" />
 </div>
 
 
@@ -566,7 +620,7 @@ MiniTube 3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153899.jpg" />
 </div>
 
 
@@ -592,7 +646,7 @@ Vidmore Video Converter 2.3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153813.jpg" />
 </div>
 
 
@@ -619,7 +673,7 @@ Artlantis 2020 9.0.2.21255 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153773.jpg" />
 </div>
 
 
@@ -630,59 +684,6 @@ Artlantis 2020 – профессиональный набор инструме�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C4728610866B41EB71D729CEEA0AAC46ADE2684
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433889   (153723) от 22.12.2020
-
-WiFi Explorer 3.0.3 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153723.jpg" />
-</div>
-
-
-###  Подробнее
-
-WiFi Explorer быстро определяет конфликты в каналах связи, overlapping сигнала или просто проблемы в конфигурации, которые мешают стабильной работе сигнала в беспроводной сети вашего офиса или дома.
-WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавляет набор функций, которые делают его подходящим инструментом для WLAN и ИТ-специалистов. Вы можете использовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2020Разработчик: Adrian Granados-MurilloПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:536F275B099DE4D8DCD6E6594F251ED75084D3F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601047   (153702) от 29.12.2022
-
-Luminar Neo 1.6.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы когда-нибудь хотели добиться большего с помощью своих изображений? Luminar Neo - это инновационный редактор изображений, основанный на технологиях AI будущего, который упрощает сложные процедуры редактирования и позволяет создателям воплощать в жизнь свои самые смелые идеи. И наслаждайся этим.Тип издания: macOS SoftwareРелиз состоялся: 29.12.2022Разработчик: © 2010 - 2022 Skylum ®Поддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BA70D856F937C75EA7C3699D22EAEA01EF91E7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

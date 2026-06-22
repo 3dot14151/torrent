@@ -1,4 +1,290 @@
 https://t.me/izofen
+###  Публикация: 1877076   (1073841) от 
+
+Microsoft Office Professional LTSC 2021 16.0.16327.20264 Repack by Adm777Service [Multi]
+
+>>ОС Windows
+>>Песочница ПО и сборок Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Образ для установки и автоматической активации Microsoft Office Professional LTSC 2021. Основные преимущества сборки: украинская версия, небольшой размер файла и офлайн-активация.Язык интерфейса: Украинский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA9A78A6EAE9D549AE1CBDCBF2E4D1672BF1222D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876779   (1073331) от 16.06.2026
+
+Microsoft Windows 11 [10.0.26100.8655], Version 24H2 (Updated June 2026) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:407E3BE7546012B725DD57028DF36A532B06A98A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876780   (1073330) от 16.06.2026
+
+Microsoft Windows 11 [10.0.26100.8655], Version 24H2 (Updated June 2026) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC2F3284888F0001CCFE325C10131734E43DE2F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876781   (1073329) от 16.06.2026
+
+Microsoft Windows 11 [10.0.26200.8655], Version 25H2 (Updated June 2026) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26F5B3CCA644DBC683E6874DFA8F162B6D8E44E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876782   (1073328) от 16.06.2026
+
+Microsoft Windows 11 [10.0.26200.8655], Version 25H2 (Updated June 2026) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:092AFDD96689B9D2BA1498651AB1E252F1BD99D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876783   (1073327) от 16.06.2026
+
+Microsoft Windows 11 [10.0.28000.2269], Version 26H1 (Updated June 2026) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A77DBD907AA7DAFBC6674413C489FE602055B5A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876785   (1073326) от 16.06.2026
+
+Windows Server 2022 LTSC [10.0.20348.5256], Version 21H2 (Updated June 2026) - Оригинальные образы от Microsoft MSDN [Ru/En]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server 2022 впервые обеспечивает расширенную многоуровневую защиту, гибридные возможности на базе Azure и гибкую платформу для приложений. Этот выпуск также поддерживает функции защищенного ядра, которые помогают сберечь оборудование, встроенное ПО и функционал ОС Windows Server от сложных угроз безопасности. В основе сервера с защищенным ядром лежат такие (   Читать дальше...   )Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7B9E0737E406E57F415015F6C71A6B3020316EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876786   (1073325) от 16.06.2026
+
+Windows Server 2025 LTSC [10.0.26100.32995], Version 24H2 (Updated June 2026) - Оригинальные образы от Microsoft MSDN [Ru/En]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Windows Server 2025 поможет вам справиться с вызовами будущего и обеспечит актуальную безопасность, производительность и гибкость. Повышайте продуктивность благодаря оптимизированной работе в сети, ускоренному хранилищу и возможностям гибридного облака, которые адаптируются под ваши потребности. Идите в ногу с прогрессом за счет модернизированной системы (   Читать дальше...   )Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBA0A95C8524735A0DFBD11D3234E75E94F720F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876784   (1073310) от 17.06.2026
+
+Microsoft Windows 11 [10.0.28000.2269], Version 26H1 (Updated June 2026) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8E404D51927F79DEB16F083E88CC62460455F39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876386   (1073219) от 
+
+Microsoft® Windows® 11 Pro-Home Optim Lite 25H2 RU by OVGorskiy 06.2026
+
+>>ОС Windows
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073219.jpg" />
+</div>
+
+
+###  Подробнее
+
+оптимизированная облегчённая (LITE) сборка на основе оригинального образа новой версии операционной системы Windows 11 x64 (64 бит.) 25H2 от Microsoft  Профессиональная и Домашняя. В сборке произведена оптимизация системы для более комфортной работы с ней. Из системы удалены все плиточные приложения, кроме магазина MicrosoftStore и кодеков. Удалена в оптимальном режиме (   Читать дальше...   )Язык интерфейса: Русский (Russian).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51ED1781AF95BC4A1EC91CDB231D54BA6E741E2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875944   (1072897) от 
+
+Microsoft® Windows® 11 Enterprise LTSC x64 24H2 RU by OVGorskiy 06.2026
+
+>>ОС Windows
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072897.jpg" />
+</div>
+
+
+###  Подробнее
+
+сборка на основе оригинального образа операционной системы Windows 11 Enterprise LTSC от Microsoft с дополнительным материалом в 1-м установочном образе. Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: накопительные обновления и небольшой набор необходимых приложений. Сборка предназначена для тех, кто желает получить (   Читать дальше...   )Язык интерфейса: Русский (Russian).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05F5124840E4CEFC2A4815F89194A3BA022A584D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875766   (1072805) от 
 
 Windows 11 26H1 by OneSmiLe [28000.2269] [Ru]
@@ -7,7 +293,7 @@ Windows 11 26H1 by OneSmiLe [28000.2269] [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072805.jpg" />
 </div>
 
 
@@ -36,7 +322,7 @@ Windows 10 22H2 x64 by OneSmiLe [19045.7417] [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072782.jpg" />
 </div>
 
 
@@ -57,6 +343,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875762   (1072779) от 
+
+Windows 11 25H2 x64 by OneSmiLe [26200.8655] [Ru]
+
+>>ОС Windows
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинальных образов
+ru-ru_windows_11_business_editions_version_25h2_updated_may_2026_x64_dvd_cd76ce63
+Установлены обновления по 10.06.2026
+Удалены все модерн приложения (кроме магазина)(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4653E76C063997BE2A70D9C155F6F2248BAC440
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874966   (1072217) от 
 
 Windows 11 Pro 25H2 26200.8457 x64 by SanLex [Lightweight] [Ru/En] (2026.06.05)
@@ -65,7 +380,7 @@ Windows 11 Pro 25H2 26200.8457 x64 by SanLex [Lightweight] [Ru/En] (2026.06.05)
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072217.jpg" />
 </div>
 
 
@@ -92,7 +407,7 @@ Windows 10 Pro 22H2 19045.3324 (x64) — Windows 7/Vista Style Edition by Window
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071928.jpg" />
 </div>
 
 
@@ -118,7 +433,7 @@ Windows 11 Pro х64 Version 26H1 Build 28000.2113 by Igors_VL [RU]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070919.jpg" />
 </div>
 
 
@@ -144,7 +459,7 @@ Windows 11 25h2 (24in1) (build 26200.8457) by Izual Soft [v23.05.26] [Ru/En]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070799.jpg" />
 </div>
 
 
@@ -173,7 +488,7 @@ Microsoft Windows 11 [10.0.26100.8457], Version 24H2 (Updated May 2026) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070260.jpg" />
 </div>
 
 
@@ -199,7 +514,7 @@ Microsoft Windows 11 [10.0.26100.8457], Version 24H2 (Updated May 2026) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070259.jpg" />
 </div>
 
 
@@ -225,7 +540,7 @@ Microsoft Windows 11 [10.0.26200.8457], Version 25H2 (Updated May 2026) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070258.jpg" />
 </div>
 
 
@@ -251,7 +566,7 @@ Microsoft Windows 11 [10.0.26200.8457], Version 25H2 (Updated May 2026) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070257.jpg" />
 </div>
 
 
@@ -277,7 +592,7 @@ Microsoft Windows 11 [10.0.28000.2113], Version 26H1 (Updated May 2026) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070256.jpg" />
 </div>
 
 
@@ -303,7 +618,7 @@ Microsoft Windows 11 [10.0.28000.2113], Version 26H1 (Updated May 2026) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070255.jpg" />
 </div>
 
 
@@ -329,7 +644,7 @@ Windows Server 2022 LTSC [10.0.20348.5139], Version 21H2 (Updated May 2026) - О
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070254.jpg" />
 </div>
 
 
@@ -355,7 +670,7 @@ Windows Server 2025 LTSC [10.0.26100.32860], Version 24H2 (Updated May 2026) - �
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070253.jpg" />
 </div>
 
 
@@ -366,341 +681,6 @@ Microsoft Windows Server 2025 поможет вам справиться с вы
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92A1C13171CFEC6BB54E165B06868833A74FF00F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870716   (1068948) от 13.05.2026
-
-Windows 10 22H2 x64 by OneSmiLe [19045.7291] [Ru]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинальных образов
-Лаунчер от ФБ
-ru-ru_windows_10_business_editions_version_22h2_updated_oct_2025_x64_dvd_d7d4c62c
-Установлены обновления по 13.05.2026(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:365FE3A314C1C99BBE903F0306FD282F8FCA13B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870718   (1068947) от 13.05.2026
-
-Windows 11 25H2 x64 by OneSmiLe [26200.8457] [Ru]
-
->>ОС Windows
->>Сборки Windows 11
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинальных образов
-Лаунчер от ФБ
-ru-ru_windows_11_business_editions_version_25h2_updated_april_2026_x64_dvd_95029446
-Установлены обновления по 13.05.2026(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A012B8541470F869FEC5694627A957A1640DD2F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870722   (1068943) от 13.05.2026
-
-Windows 11 26H1 x64 by OneSmiLe [28000.2113] [Ru]
-
->>ОС Windows
->>Сборки Windows 11
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинальных образов
-Лаунчер от ФБ
-ru-ru_windows_11_business_editions_version_26h1_updated_april_2026_x64_dvd_69ae07e3
-Установлены обновления по 13.05.2026(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2A3DDE9454B6C5EC801267CD603F8E8D950C8F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870760   (1068900) от 13.05.2026
-
-Windows 11 26H1 24in1 (incl. LTSC 24H2) +/- Office 2024 by SmokieBlahBlah 2026.05.13 [Ru/En]
-
->>ОС Windows
->>Сборки Windows 11
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068900.jpg" />
-</div>
-
-
-###  Подробнее
-
-6 редакций Windows 11 (русские и английские) с обновлениями по май 2026, основанных на оригинальном русском дистрибутиве и интегрированными системными библиотеками
-+6 таких же редакций со встроенным MS Office LTSC 2024 Pro Plus (можно выбрать, ставить ли Office. Галочка перед началом установки.) Язык офиса зависит от выбранного языка ОС. Файлы Office вынесены в отдельный (   Читать дальше...   )Язык интерфейса: русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF51D153D975CFEFD72A2AF017F9F0CF46EBB9AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870488   (1068854) от 14.05.2026
-
-Windows 11 SE 24H2 (build 26100.8328) DiskExpansion by Alexandr1235 [04.2026] [Ru]
-
->>ОС Windows
->>Песочница ПО и сборок Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном оригинальном образе Windows 11 SE с обновлениями на апрель 2026.
-Windows 11 SE — это облачная операционная система, оптимизированная для использования учениками и студентами. Как и Intune for Education, Windows SE 11 ставит во главу угла производительность, конфиденциальность учащихся и обучение. Она предлагает мощь и надежность Windows (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09AB0CAC1BE3F37DB481B7287407FFC37378C09F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869876   (1068579) от 09.05.2026
-
-Windows 11 Pro х64 Version 25H2 Build 26200.8246 by Igors_VL [RU]
-
->>ОС Windows
->>Сборки Windows 11
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настроенная авторская сборка Windows 11 Pro с автоматизированной установкой, запускаемой с установочного носителя через UEFI (BIOS).Разработчик: MicrosoftЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25605A1754C9C04B2A334D0FFD81ECB9B952DF22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1868665   (1068149) от 01.05.2026
-
-Windows 11 (v26h1) x64 PRO by KulHunter v1 (esd) [En]
-
->>ОС Windows
->>Сборки Windows 11
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном образе от MDSN: en-us_windows_11_consumer_editions_version_26h1_
-updated_april_2026_x64_dvd_69ae07e3.iso.
-Использован переработанный установщик от Windows 11 26h1
-(SecureBoot и TPM 2.0 не требуется)..(   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D4CFC68680E7F75C47368770409357435B69588
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1868657   (1068131) от 01.05.2026
-
-Windows 11 (v26h1) x64 HSL/PRO by KulHunter v1 (esd) [Ru]
-
->>ОС Windows
->>Сборки Windows 11
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном образе от MDSN: ru-ru_windows_11_consumer_editions_version_26h1_
-updated_april_2026_x64_dvd_69ae07e3.iso.
-Использован переработанный установщик от Windows 11 26h1 (SecureBoot и TPM 2.0 не требуется).
-Отключено несколько компонентов, задействован протокол SMB.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:315DB988575950FB4D96974560EE339DACC66850
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1868963   (1067933) от 03.05.2026
-
-Task Explorer 1.8.0 [En]
-
->>ОС Windows
->>Песочница ПО и сборок Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Task Explorer 1.8.0 — это бесплатный инструмент для глубокого мониторинга системы, который уходит далеко за рамки стандартного «Диспетчера задач». Программа не просто показывает список запущенных процессов, а позволяет заглянуть внутрь каждого из них: какие потоки выполняются, какие файлы открыты, какие сетевые соединения установлены и даже что именно хранится в (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DDBADDDE9582C6E8708C18FBED0AAF026B298AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869044   (1067869) от 03.05.2026
-
-Windows 10 (v22h2) x64 PRO by KulHunter v31 (esd) [Ru]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на ISO-образе, собранном на UUP Dump: 19045.7184.260411-1655.22H2_RELEASE_SVC_PROD1_CLIENTMULTI_X64FRE_RU-RU.iso
-Отключено несколько компонентов, задействован протокол SMB.
-Интегрирован Microsoft .NET Framework 3.5 - 4.8.
-Удалена папка PerfLogs.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1196837C83B35826ABFF50781FD2BAFF72B6DACB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869047   (1067868) от 03.05.2026
-
-Windows 10 (v22h2) x64 PRO by KulHunter v31 (esd) [En]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на ISO-образе, собранном на UUP Dump: 19045.7184.260411-1655.22H2_RELEASE_SVC_PROD1_CLIENTMULTI_X64FRE_EN-US.iso
-Удалены стандартные темы, отключено несколько компонентов, задействован протокол SMB.
-Интегрирован Microsoft .NET Framework 3.5 - 4.8.
-Удалена папка PerfLogs.(   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10332DCFACD4E1EE60B328BFD7CF8117FF325D63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867398   (1066659) от 25.04.2026
-
-Windows 11 26H1 (28000.1836) x64 by Bruxer [Ru]
-
->>ОС Windows
->>Сборки Windows 11
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 x64 Профессиональная основана на свежем оригинальном образе Microsoft с последними обновлениями, так что безопасность и совместимость с новыми программами точно на высоте. Главная фишка этой сборки в том, что автор не стал кардинально переделывать систему, а только убрал ненужное и добавил полезное. Получается идеальный вариант для дома и работы, где нужна (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF952C7AC50C00F193B85097770B6D4055068A6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

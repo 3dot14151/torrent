@@ -1,3 +1,107 @@
+###  Публикация: 1138999   (661967) от 31.05.2017
+
+Edge of Reality 2: Lethal Predictions / Край Реальности 2: Смертельные Предсказания (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смертельные несчастные случаи происходят по всему Юниверс Сити настолько часто, что горожане стали задумываться - а не убийства ли это? Когда ваш отец становится очередной жертвой, вы решаете выяснить, что является причиной происходящего. Сможете ли вы остановить череду смертей, пока не станет слишком поздно?Тип издания: UnofficialРазработчик: 4 Friends GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01E929534FE25A030466DD174ADA4822C67D9BD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225150   (661713) от 14.05.2018
+
+League of Light 6: The Game / Лига Света 6: Что наша жизнь? Игра! (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение увлекательной серии игр League of Light. Обычное расследование в один миг обернулось для Вас смертельным испытанием, когда группа неизвестных похищает Вас и забрасывает в опасную игру, в которой Вам предстоит сражаться за свою жизнь. Доверять нельзя никому. Сможете ли Вы и Ваш верный помощник пугало выбраться из игры живыми? Узнайте ответ в этом новом (   Читать дальше...   )Тип издания: UnofficialРазработчик: MariaGlorumЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AC2CD042172DB5CA11BC81E6DBF16521F7C17EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139292   (661004) от 01.06.2017
+
+Haunted Legends 10: The Black Hawk / Легенды о призраках 10: Черный ястреб (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам, как сотруднику Секретной Королевской службы, предстоит отправиться в Бордо для расследования убийства восьми монахов и защиты кардинала. Вы должны допросить подозреваемых и найти улики. Вы узнаете историю о предательстве и мести, а также о могущественном артефакте, ради которого странный карлик пойдет на любое преступление.Тип издания: UnofficialРазработчик: AMAX InteractiveЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:187B43BAAA52BFE3E4FEB8EB918AD4C58C27F91C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225358   (660706) от 15.05.2018
+
+Moonsouls: Echoes of the Past / Лунные души: Эхо прошлого (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте новую фантастическую игру. Вы и Ваш племянник Айзек готовитесь представить свои товары на фестивале Дня победы. Но Ваши планы прерываются, когда с неба падает странный корабль! Айзек оказывается пойманным в ловушку, и теперь Вам предстоит освободить его! Это будет непростой задачей, поскольку, у инопланетного захватчика есть более разрушительные планы (   Читать дальше...   )Тип издания: UnofficialРазработчик: Mad Head GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F47D7F76CE3336CAAD55994F071DEC93963230C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139479   (660004) от 02.06.2017
 
 Spirit of Revenge 4: Florrys Well / Месть духа 4: Колодец Флорри (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -6,7 +110,7 @@ Spirit of Revenge 4: Florrys Well / Месть духа 4: Колодец Фло
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660004.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Pride & Prejudice: Hidden Anthologies (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658229.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Mystic Diary 3: Missing Pages (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658154.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Ominous Objects 4: Lumina Camera / Зловещие вещи 4: Камера 'Lu
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658026.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Ominous Objects 5: The Cursed Guards / Зловещие вещи 5: Прокля
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658024.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Mary Knots: Garden Wedding (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657767.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Fairy Kingdom 2 / Сказочное Королевство 2 (2017) [Ru] (1.0) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657699.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Cadenza 2 : The Kiss of Death / Каденция 2: Поцелуй смерти 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657563.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Ominous Objects 5: The Cursed Guards / Зловещие вещи 5: Прокля
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656675.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Sable Maze 4: Twelve Fears / Темный лабиринт 4: Двенадцат
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656302.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Rite of Passage 8: Hackamore Bluff / Обряд посвящения 8: Хака
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655642.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Bridge to Another World 3: Alice in Shadowland / Мост в другой мир
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655613.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Final Cut 5: Fame Fatale (2015) [En] Unofficial [Collector’s Edition / Кол�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655458.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Rite of Passage 5: Heart of the Storm / Обряд Посвящения 5: Се�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654755.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Off the Record 4: Liberty Stone (2015) [En] Unofficial [Collector’s Edition / 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653438.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Contract with the Devil (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653323.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Haunted Halls: Nightmare Dwellers / Дом с привидениями: Обит
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653091.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ I Know a Tale / Я знаю интересную историю (2015) [Ru] Unof
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652877.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Haunted Legends 12: Monstrous Alchemy (2017) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652500.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Immortal Love 4: Black Lotus (2017) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652492.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Twin Mind 3: Ghost Hunter (2022) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652439.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Whispered Secrets 13: Tying the Knot / Нашептанные секреты 13:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652436.jpg" />
 </div>
 
 
@@ -563,112 +667,6 @@ Whispered Secrets 13: Tying the Knot / Нашептанные секреты 13:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F2E01434D6C33FF36BFCAF48273E52A6B94ADAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141181   (652315) от 09.06.2017
-
-Punished Talents 2: Stolen Awards / Наказанные талантом 2: Украденные награды (2016) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652315.jpg" />
-</div>
-
-
-###  Подробнее
-
-В старинный замок Нью-Касл, резиденцию фонда премии "Гордость человечества" приглашены на номинацию 10 выдающихся представителей ученого мира, в том числе и наш герой.
-Вот-вот начнется церемония награждения, но погода и странные покушения на жизнь номинантов оборвали начавшееся торжество...
-Главному герою предстоит спасать не только самих ученых, но и ценности, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Blam! GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7E752C29914B44081A5A0D356B58C872816246C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141340   (652313) от 09.06.2017
-
-Scarlett Mysteries. Cursed Child / Алые Тайны. Проклятое дитя (2017) [Ru/Multi] (1.0) Unofficial
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652313.jpg" />
-</div>
-
-
-###  Подробнее
-
-С малых лет Скарлет Эверитт обладала удивительным даром - привидения и духи следовали за ней повсюду. В надежде защитить дочь ее отец Джонатан отправляет малышку в монашеский приют. Годы спустя Скарлет возвращается в мир людей, чтобы отыскать своего отца, а найденные ею ключи приводят девушку в викторианский особняк баронета СтимайраТип издания: UnofficialРазработчик: World-LooM GamesЖанр: Hidden ObjectЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04E3D1AD2B5E5020F33D4F6AC1D2E741C1742489
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141265   (652141) от 09.06.2017
-
-Bridge To Another World 4: Escape From Oz / Мост в Другой мир 4: Побег из страны Оз (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это был обычный день - вы отправили детей в школу и остались в тишине и покое со своей собачкой Тото. Но мир перевернулся, когда налетел ураган, и вы попали в волшебную страну Оз, где правит таинственный Великий Волшебник. Чтобы вернуться домой, вам нужно побывать в четырех местах этого мира и преодолеть все препятствия на своем пути. Готовы ли вы принять вызов?Тип издания: UnofficialРазработчик: 4 Friends GamesЖанр: Hidden ObjectЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB097F266F6BC4083D02E69A4C90B258B9E1A4F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516792   (651728) от 29.06.2012
-
-Night In The Opera (P) [En] 2012
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Злой колдун разрабатывает мистический музыкальный инструмент, способный забирать жизни у его жертв. Есть много улик и подозреваемых, но только самый любознательный раскроет невероятную правду. Сможете ли вы остановить убийцу, прежде чем он снова нанесет удар?(   Читать дальше...   )Тип издания: ПираткаЖанр: Квест, Логическая, Я ищу, Казуальная, Три в рядЯзык озвучки: n/a (отсутствует)Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43D095427F5B1FBC2293F88CCBB0A758565D8C62
 ```
 
 https://mybot314.ru/tekegram_catalog/

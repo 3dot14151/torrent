@@ -1,3 +1,29 @@
+###  Публикация: 654942   (857401) от 26.09.2021
+
+PicsArt - Photo Studio v18.1.1 Mod by Alexey070315 [Ru/En]
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многофункциональный фото редактор и фото сообщество. PicsArt сочетает в себе лучшие черты многих фото приложений. Это один из лучших и наиболее завершённых фото редакторов доступных бесплатно на рынке для устройств с операционной системой Android. Графический редактор - миллион фото манипуляций - маски, коллажи, рамки, границы, наклейки, текстовые эффекты, иллюстративная (   Читать дальше...   )Тип издания: Пиратка (PREMIUM features Unlocked | Ads Removed)Релиз состоялся: 23.09.2021Разработчик: PicsArtПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B7B32980F7F90638A685D16A37F965366E2EA1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 827959   (857070) от 26.03.2016
 
 GPS to SMS v3.4.15 [Ru/Multi] - отправка GPS-координат по СМС или через приложение
@@ -6,7 +32,7 @@ GPS to SMS v3.4.15 [Ru/Multi] - отправка GPS-координат по С�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857070.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855407.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ HTC Camera 8.50.876780 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855312.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853055.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ SanDisk Memory Zone 4.1.16 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851496.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ iReal Pro - Нотная Тетрадь & Минусовки v2021.8 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851027.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Speakometer - Английское Произношение и Акцент v2.1
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851021.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Glextor AppManager 5.32.0.507 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851012.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Android Assistant Pro 23.70 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850987.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850900.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850893.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ Viewbox v1.0-32 Mod Beta [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850798.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850114.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849910.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ To-Do Calendar Planner / Задачи, Календарь, Органайзер 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849693.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ Any.do Premium 4.19.0.6 [Ru/Multi] - Список дел, заметок
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849330.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ AdClear 9.14.2.798 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848040.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847930.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ QR Code Pro 1.15 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847788.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ AZ Screen Recorder Premium 5.7.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847780.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ Fake GPS v5.3.1 [Ru/En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847459.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846839.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ ROEHSOFT PARTITION TOOL SD-USB 1.37 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846582.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ Pose Tool 3D 6.8.79 [En] - Инструмент постановки поз дл
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846341.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845100.jpg" />
 </div>
 
 
@@ -655,35 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C3329A3DD4E5F28C8F0F3C0F3285C895868EE19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003214   (844903) от 02.04.2016
-
-Мультиварка. 1 и 2 части (AdFree) [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы рады представить вам первую часть сборника пошаговых рецептов для мультиварки с фотографиями. Все рецепты проверены и очень подробны.
-Приятного аппетита.
-Мультиварка Рецепты Часть 2
-Перед Вами вторая часть сборника пошаговых рецептов с фотографиями для мультиварки.(   Читать дальше...   )Тип издания: AdFreeРелиз состоялся: 02.04.16Разработчик: Денис АндрущенкоПоддерживаемая ОС: Android 3.0 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83A6B7B39E2D1A488A1388C96D977500B8675E39
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,133 @@
+###  Публикация: 1318719   (492285) от 07.08.2019
+
+Silver Chains (2019) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды в неспокойную ночь, после того, как машина Питера врезалась в дерево, он просыпается в старом заброшенном особняке, где-то в Англии. Питер не может вспомнить, почему и как он попал сюда, но вскоре он понимает, что дом не такой уж и заброшенный, каким кажется. В попытках найти выход из дома, главный герой должен раскрыть темные секреты того, что случилось (   Читать дальше...   )Тип издания: RepackРазработчик: Cracked Heads GamesЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45E686CC78D977819E4F6F87B966FBD691328F60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158686   (491270) от 16.08.2017
+
+The Trail: Frontier Challenge (2017) [Ru/Multi] (1.0) License PLAZA
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хочешь изведать неизведанное? Хочешь забраться на самые высокие горы, одеться в самые лучшие одежды и завладеть несметными богатствами? Тогда добро пожаловать в Новый свет! Добро пожаловать в The Trail: Frontier Challenge! Отправься вместе с первопроходцами со всех концов света в грандиозное путешествие по неизведанной стране! Пройдись по судьбоносному пути тихим (   Читать дальше...   )Тип издания: LicenseРазработчик: 22cansЖанр: Adventure, Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4847B05E59BAC898153E22C8750E7D0A009693D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554374   (490014) от 25.07.2022
+
+Raji: An Ancient Epic (2020) [Ru/Multi] (1.6.0/dlc) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490014.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Raji: an Ancient Epic начинается со стартом новой войны между демонами и богами. Стремясь отомстить за свое поражение тысячу лет назад, армия демонов вторглась в мир, населенный людьми, угрожая существованию всего человечества. Люди, которые считали, что их враги были уничтожены тысячу лет назад, забыли древние искусства, которые могли помочь им выжить в (   Читать дальше...   )Тип издания: LicenseРазработчик: Nodding Heads GamesЖанр: Экшны, ПриключениеЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41533C7EF6F46FCDE798BEB69560EF1C62751EA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158736   (489427) от 17.08.2017
+
+Ken Follett's The Pillars of the Earth (2017) [Ru/Multi] (1.0.536) Repack Covfefe
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра The Pillars of the Earth, основанная на мировом бестселлере Кена Фоллетта "Столпы Земли", по-новому, в интерактивном стиле пересказывает историю городка Кингсбридж. Играйте за Джека, Алиену и Филипа и меняйте описанные в книге события с помощью диалогов, исследования и принятых решений. Этот интерактивный роман состоит из трех "книг", по (   Читать дальше...   )Тип издания: RepackРазработчик: Daedalic EntertainmentЖанр: Adventure, CasualЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF7A9BAAFDEB097E12BF902BBB54F78ECD011FC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155279   (489424) от 17.08.2017
+
+The Long Dark (2017) [Ru/Multi] (1.10) SteamRip R.G. Игроманы [Episode 1-2]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489424.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Long Dark - хардкорный симулятор выживания в бескрайних лесах Северной Канады! Вы будете играть за пилота по имени Вил Маккензи, самолет которого потерпел крушение после мистического геомагнитного шторма.Тип издания: SteamRipРазработчик: Hinterland StudioЖанр: Action (Survival), 3D, 1st PersonЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:604560B359E767160494D0B2F1AE212ED8EF16F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 937295   (489278) от 14.09.2015
 
 The Vanishing of Ethan Carter Redux (2014) [En/Multi] (1.0) License RELOADED
@@ -6,7 +136,7 @@ The Vanishing of Ethan Carter Redux (2014) [En/Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489278.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Ever Forward (2020) [Ru/Multi] (0.1.5/dlc) License GOG [Special Launch Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488972.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Virginia (2016) [Ru/Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487695.jpg" />
 </div>
 
 
@@ -86,7 +216,7 @@ Virginia (2016) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487692.jpg" />
 </div>
 
 
@@ -114,7 +244,7 @@ The Suicide of Rachel Foster (2020) [Ru/Multi] (1.0.9V) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486020.jpg" />
 </div>
 
 
@@ -140,7 +270,7 @@ In Fear I Trust (2016) [Ru/Multi] (1.0) Repack Other s [Episodes 1-4]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485063.jpg" />
 </div>
 
 
@@ -166,7 +296,7 @@ Deponia (2012) [Ru/Multi] (4.0.1386/dlc) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484466.jpg" />
 </div>
 
 
@@ -192,7 +322,7 @@ Apsulov: End of Gods (2019) [Ru/Multi] (1.0.4) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484456.jpg" />
 </div>
 
 
@@ -218,7 +348,7 @@ Black Mirror / Черное зеркало Трилогия [Ru] (Repack) 2003-2
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484223.jpg" />
 </div>
 
 
@@ -247,7 +377,7 @@ Real Myst (2000) [En] (1.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483656.jpg" />
 </div>
 
 
@@ -273,7 +403,7 @@ Nightmares from the Deep The Cursed Heart (2012) [Ru/Multi] (Build_7278.286428) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483501.jpg" />
 </div>
 
 
@@ -299,7 +429,7 @@ Clay Dreams / Пластилиновый Сон (2002) [Ru] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483297.jpg" />
 </div>
 
 
@@ -325,7 +455,7 @@ Vernon’s Legacy (2016) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483100.jpg" />
 </div>
 
 
@@ -352,7 +482,7 @@ Pavilion (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482965.jpg" />
 </div>
 
 
@@ -378,7 +508,7 @@ Virginia (2016) [Ru/Multi] (1.02a) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479633.jpg" />
 </div>
 
 
@@ -404,7 +534,7 @@ Samorost 3 (2016) [Ru/Multi] (1.4.465) Repack Other s [Cosmic Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479523.jpg" />
 </div>
 
 
@@ -430,7 +560,7 @@ INFRA (2016) [En] (2.0.0) License HI2U [Part 1-2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478924.jpg" />
 </div>
 
 
@@ -456,7 +586,7 @@ Blasphemous (2019) [Ru/Multi] (2.0.27/dlc) Repack Other s [Digital Deluxe Editio
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478517.jpg" />
 </div>
 
 
@@ -482,7 +612,7 @@ Beholder 2 (2018) [Ru/Multi] (1.6.15770) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478068.jpg" />
 </div>
 
 
@@ -508,7 +638,7 @@ Mages of Mystralia (2017) [Ru/Multi] (25464) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477842.jpg" />
 </div>
 
 
@@ -534,7 +664,7 @@ Cursed Mountain / Проклятая гора (2009) [Ru] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477689.jpg" />
 </div>
 
 
@@ -545,136 +675,6 @@ Cursed Mountain / Проклятая гора (2009) [Ru] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F21F764354BC7EAF4DE63FD20C793BE6C1B8444A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244909   (477637) от 03.09.2018
-
-The Vanishing of Ethan Carter Redux (2015) [Ru] (1.01) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477637.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Vanishing of Ethan Carter — это мистическая адвенчура, создаваемая под впечатлением от жутких бульварных романов начала XX века. Вы играете роль детектива, умеющего визуализировать сцены убийств благодаря своим экстрасенсорным способностям. На сей раз ему предстоит расследовать дело о похищенном мальчике, надеясь спасти его до того, как будет уже слишком поздно. (   Читать дальше...   )Тип издания: RepackРазработчик: The AstronautsЖанр: Adventure (Horror, Mystic), 1st Person, 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F59E22F2C56DFED7CD29DF8A76945DB560C96D45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160062   (477579) от 23.08.2017
-
-Blue Horizon (2017) [Ru/En/Ge] (1.0) Repack Covfefe
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Blue Horizon! Совершенно новая игра, созданная в «Инди-студио», игра полная приключений в открытом море! Шел 1686 год, на коробле Blue Horizon вам предстоит пересечь Карибские острова, найти сокровище и отомстить злому капитану пиратов «Кровавая-Борода»! У игрока от первого лица на его рабочем экране – появляются приключения, открытия и боевые (   Читать дальше...   )Тип издания: RepackРазработчик: Blue Horizon Studios LtdЖанр: Action, Adventure, RPG, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:062343C19A46947CE886281C0C2CA3AE995DF26B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319964   (476690) от 15.08.2019
-
-The Great Perhaps (2019) [Ru/Multi] (1.32.14) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476690.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Great Perhaps рассказывает историю космонавта, вернувшегося на уничтоженную природными катаклизмами Землю. Там, среди руин, он находит необычный артефакт — старый фонарь, в свете которого видно другое время, а если разжечь огонь сильнее, то можно даже ненадолго вернуться в прошлое. На пути вас ждут постоянные перемещения между пустынными меланхоличными пейзажами (   Читать дальше...   )Тип издания: RepackРазработчик: Caligari Games SLЖанр: Adventure (Platform), Puzzle, 2DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27E4F9EDD921F14029BFD946FAEA4951C18E2372
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160291   (475612) от 24.08.2017
-
-Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) License CODEX [Episode 1-2]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475612.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того, как Джесси и его команде удалось одолеть Иссушающую бурю, спасти мир и обрести всеобщее признание, их жизнь сделалась чуточку... сложнее. Обязанностей стало больше, а на старые добрые приключения времени почти не осталось, так что их дружба начала угасать.Тип издания: LicenseРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16968D71D150BC5EF3AC11FA1F848E0F79FE0401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320014   (474792) от 16.08.2019
-
-DARQ (2019) [Ru/Multi] (1.0) License HOODLUM
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474792.jpg" />
-</div>
-
-
-###  Подробнее
-
-DARQ — это игра про мальчика по имени Ллойд, который осознаёт, что спит. Сон стремительно превращается в кошмар, а все попытки проснуться оборачиваются неудачей. Исследуя тёмные уголки своего подсознания, Ллойд учится контролировать свой сон. Он ходит по стенкам, по потолку, скрывается от монстров и разгадывает невероятные головоломки чтобы не только остаться в живых (   Читать дальше...   )Тип издания: LicenseРазработчик: Unfold GamesЖанр: Adventure (Horror), Puzzle, 3DЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D7FF2FE15B44D2AB82FE38001D39C348A77BA99
 ```
 
 https://mybot314.ru/tekegram_catalog/

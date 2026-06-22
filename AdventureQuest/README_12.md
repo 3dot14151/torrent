@@ -1,3 +1,107 @@
+###  Публикация: 1358290   (969304) от 07.02.2020
+
+Utawarerumono: Mask of Truth (2020) [Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дабы унаследовать маску Хаку пожертвовал многим. С присущей ему хитростью, опираясь на репутацию его ушедшего друга, он прокладывает путь к новому будущему. Кулисы поднимаются, открывая нашему взору эпоху борьбы, что потрясёт Ямато до самого основания.Тип издания: LicenseРазработчик: AQUAPLUSЖанр: Приключенческие игры, Ролевые игры, Симуляторы, СтратегииЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, Китайский (традиционный)Язык интерфейса: Английский, Японский, Китайский (традиционный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8370F6E59161A184D49B8202FE001B230CD7217B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977059   (967301) от 19.01.2016
+
+Gemini: Heroes Reborn (2016) [Ru/Multi] (1.0) SteamRip Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gemini: Heroes Reborn - это экшен-приключение от первого лица, главным героем которого является двадцатилетняя Кассандра. Этой молодой девушке предстоит открыть в себе невероятные способности, уникальные для вселенной Heroes, и разгадать загадку своего прошлого. Она воссоединится с давно пропавшей семьей, но совсем не так, как ожидала.Тип издания: SteamRipРазработчик: Phosphor GamesЖанр: Action, Adventure, 3D, 1st-PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBCCDD93410ACEBACDCD6D510EE293851A79D5CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977156   (967293) от 19.01.2016
+
+Gemini: Heroes Reborn (2016) [Ru/Multi] (1.0) Repack =nemos=
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gemini: Heroes Reborn - это экшен-приключение от первого лица, главным героем которого является двадцатилетняя Кассандра. Этой молодой девушке предстоит открыть в себе невероятные способности, уникальные для вселенной Heroes, и разгадать загадку своего прошлого. Она воссоединится с давно пропавшей семьей, но совсем не так, как ожидала.Тип издания: RepackРазработчик: Phosphor GamesЖанр: Action, Adventure, 3D, 1st-PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ACF55CB85E42AEB74C88F5217CD9417B6FDFFD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976746   (966313) от 20.01.2016
+
+Scratches: Director's Cut / Шорох: Последний визит (2007) [Ru] (1.0) Repack GHOST549
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы играете роль Майкла Артхейта, начинающего писателя, внезапно разбогатевшего на продаже своего дебютного романа. Сегодня он переезжает во внушительный викторианский особняк, который только что приобрел. Пока Майкл ищет вдохновение для того, чтобы закончить свой следующий, очень ожидаемый роман, ему открываются страшные секреты, хранящиеся в стенах особняка - тайны, (   Читать дальше...   )Тип издания: RepackРазработчик: NucleosysЖанр: AdventureЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:213976E198E2F0F4B86E3D2A2455B0A85CAFB8C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 815740   (965248) от 21.01.2016
 
 Whispering Willows (2014) [Ru/Multi] (1.29) Repack Let'sРlay
@@ -6,7 +110,7 @@ Whispering Willows (2014) [Ru/Multi] (1.29) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965248.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ The Tiny Bang Story / История крошечного взрыва [Ru/En/Pl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961081.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Nikopol: Secrets of The Immortals [En/Multi5] (L) 2008 | PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958449.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Broken Age (2014) [Ru/Multi] (2.4.800398) SteamRip Let'sРlay [The Complete Adve
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958134.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Kentucky Route Zero Act I [En] (Repack) 2013 | COGENT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956447.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ The Walking Dead: Season Two (2013) [Ru/En] (1.0.0.1) Repack R.G. Механик
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954735.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ The Wolf Among Us (2013-2014) [Ru/En] (1.0) Repack R.G. Механики [Episod
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954728.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ The Walking Dead: Season One (2012) [Ru/En] (1.0.0.26/dlc) Repack R.G. Меха�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954726.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ King's Quest (2015) [Ru/En] (1.0) Repack R.G. Механики [Chapter 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954721.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ The Testament of Sherlock Holmes / Последняя воля Шерлока Х
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953215.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Tales from the Borderlands (2014-2015) [Ru/En] (1.0.1) Repack R.G. Механи�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953188.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ The Suicide of Rachel Foster (2020) [Ru/Multi] (1.03B) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951975.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ A New Beginning - Final Cut (2011) [Ru/Multi] (2.0.3.0395) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951516.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Lost Brothers (2020) [Ru/En] (1.0/upd3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949113.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ The Coma: Recut (2017) [Ru/Multi] (2.1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949016.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Gods Will Be Watching (2014) [Ru/Multi] (1.0.0.11) SteamRip Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947802.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ D4: Dark Dreams Don't Die (2015) [Ru/En] (02.02.2016/dlc) Repack R.G. Механ
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947794.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Sherlock Holmes: Crimes and Punishments (2014) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944000.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Layers of Fear (2016) [Ru/Multi] (1.1.1/dlc) License GOG [Masterpiece Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943992.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ The Talos Principle / Принцип Талоса (2014-2015) [Ru/Multi] (1.0.28
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943962.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ BEAUTIFUL DESOLATION (2020) [Ru/Multi] (1.0.1.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943480.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Fire (2015) [Ru/Multi] (1.0.6780S) SteamRip Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939554.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ FIRE — это приключение-исследование с множес�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88C1D456F4C374B6A9D937D988B47BCAC57986B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984576   (938136) от 09.02.2016
-
-Lucius - Dilogy / Lucius - Дилогия (2012-2015) [Ru/En] (1.02.3866/1.0.160107.b) Repack R.G. Механики
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lucius II: The Prophecy - трехмерная хоррор-адвенчура, сюжетное продолжение предыдущей части. Мы играем за мальчика Люциуса, получившего сверхъестественные способности от Люцифера. Наша цель убивать как можно больше людей при помощи разных способов и продвигаться по сюжету. После событий первой части, в Lucius II: The Prophecy мы уже находимся в психиатрической больнице (   Читать дальше...   )Тип издания: RepackРазработчик: Shiver GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:142CDCBB00563511F0B5307A25EC07D6C8FDCA33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753286   (937715) от 04.02.2014
-
-Black Mirror 2 / Черное зеркало 2 (2010) [Ru] (1.01) RePack -Ultra-
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стены мрачного замка надежно хранят чужие секреты. Среди старинных гобеленов и семейных портретов бывших владельцев кроется нечто зловещее. И вдвойне странно, что именно в таком месте ищет убежище юная девушка. Готовы раскрыть тайну прекрасной Анжелины, чья красота стала причиной зловещей смерти слишком настойчивого джентльмена? Бесстрашие понадобится вам больше, чем когда-либо. Ведь перед вами – вторая часть культовой приключенческой игры Black Mirror!(   Читать дальше...   )Тип издания: RePackРазработчик: Cranberry ProductionЖанр: AdventureЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8D1EFB9C466E15A21B29FC6F3DB9B10D3BCF9C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364266   (937557) от 02.03.2020
-
-Your Toy (2020) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Помните свои детские игрушки? Что с ними стало? Где они сейчас? Когда-то вы были лучшими друзьями, но теперь они превратят вашу жизнь в ад! Your Toy - это трехмерная игра первого лица, в которой есть продвинутая система неповторяющихся головоломок со сложными загадками, душераздирающими побегами и таинственным повествованием, которое глубоко погружается в ваше самое (   Читать дальше...   )Тип издания: RepackРазработчик: Viva GamesЖанр: Adventure (Horror), Puzzle, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BB295119F1631984CCF9268A07446325DCD2C50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093706   (932999) от 15.01.2017
-
-Detention 返校 (2017) [Multi] (1.0) License PLAZA
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Detention - это атмосферный хоррор, действия которого происходят в 60-е годы прошлого столетия на Тайване, живущего по законам военного времени. В игре использованы этнические и религиозные элементы, основанные на тайваньской и китайской культуре и мифологии. Уникальный графический дизайн и игровой опыт прилагаются.Тип издания: LicenseРазработчик: RedCandleGamesЖанр: Adventure, Indie, Violent, GoreЯзык субтитров: Английский, Китайский (упрощенный), Китайский (традиционный)Язык интерфейса: Английский, Китайский (упрощенный), Китайский (традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94BE8667823DF21382C8C65F698A635D1354CD0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

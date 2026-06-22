@@ -1,3 +1,29 @@
+###  Публикация: 1349681   (1004061) от 03.01.2020
+
+Neon The Animation | Неон Анимация [2011, OVA, 6] DVDRip 480p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гордостью Токио и узнаваемым во всём мире местом является Акихабара. Аналогичные "Акихабары" есть во многих крупных городах Японии и даже за рубежом. Одним из самых таких крупных мест, сравнимым по размерам и продажам с токийской Акихабарой, является район Ниппонбаши в Осаке, родина поп-культуры Японии. У него даже есть два талисмана - сёстры Неон-чан и (   Читать дальше...   )Производство: Osaka Animation CollegeЖанр: приключения, комедия, историяРежиссер: нет данныхПеревод: Shaman AnimeЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 6 эп по 5 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86BBF789526394D36C36F9E5EE90FB7A4BD7F51F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351121   (1002722) от 08.01.2020
 
 Araburu Kisetsu no Otome-domo yo. | O Maidens in Your Savage Season | Сезон беспокойных дев [2019, TV, 12 из 12] BDRip 1080p raw
@@ -6,7 +32,7 @@ Araburu Kisetsu no Otome-domo yo. | O Maidens in Your Savage Season | Сезон
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002722.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Slayers Try | Рубаки снова [1997, TV, 26 из 26] BDRip 1080p 10-bit 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002721.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Slayers Next | Снова Рубаки [1996, TV, 26 из 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002676.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Generator Gawl / Генератор Гаул [1998, TV, 12 эп.] DVDRip 480p Ra
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002637.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Africa no Salaryman / African Office Worker / Офисная фауна из А�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002636.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Sirius no Densetsu / The Legend of Sirius / Легенда о Сириусе [19
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002630.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Urusei Yatsura Movie 3: Remember My Love | Those Obnoxious Aliens: Remember My L
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002305.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Urusei Yatsura Movie 5: Kanketsu Hen | Those Obnoxious Aliens: The Final Chapter
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002302.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Urusei Yatsura Movie 2: Beautiful Dreamer | Those Obnoxious Aliens: Beautiful Dr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002299.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Urusei Yatsura Movie 6: Itsudatte My Darling | Those Obnoxious Aliens: Always My
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002294.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Urusei Yatsura OVA Series | Those Obnoxious Aliens OVA | Несносные пр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002292.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Urusei Yatsura | Those Obnoxious Aliens | Несносные пришельцы 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002276.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Azumanga Daiou The Animation | Azumanga Daioh | Адзуманга [2002, TV, 26
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002166.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ Gekijouban Kyochuu Rettou | Остров насекомых-гигантов (ф
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001880.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ Kono Oto Tomare! | Задержите этот звук! [2019, TV, 26 из 26] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001825.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ Tamayomi | Tamayomi: The Baseball Girls | Тамаёми [2020, TV, 12 эп.] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001449.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Natsume Yuujinchou: Ishi Okoshi to Ayashiki Raihousha | Тетрадь друж�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001429.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Shin Evangelion Gekijouban:|| | Evangelion: 3.0+1.0 Thrice Upon a Time | Ева�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001366.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Kimi to Boku. 2nd Season / You and Me 2 / Ты и я. 2 [2012, TV, 13] BDrip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000176.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ The Epic of Zektbach / Эпос о Зектбач [2011, OVA, 1 ep] DVDrip 552p 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997512.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Neko Ramen / Pussy Soup / Суп с котом [2006, TV, 13 ep.] DVDRip upconve
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996685.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ Interstella 5555 / Интерстелла 5555 [2003, MV] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995724.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ Gamba no Bouken | Adventure of Gamba | Приключения Гамбы [1975, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993279.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Higurashi no Naku Koro ni Rei / Когда плачут цикады ОВА [200
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991889.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Fate/Prototype / Судьба:Прототип [2011, OVA] BDrip 1080р raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988469.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ Fate/Prototype это самый первый вариант автора Fate/S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CBAF1160322567408D1F33AF6264427B895CBF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970646   (988403) от 01.01.2016
-
-Slayers OVA / Рубаки ОВА [1996-1999, OVA, 6] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Средневековье, век меча и магии. И магии не хилой. Главная героиня - нахальная, всеядная, алчная, языкастая и весьма жестокая Лина Инверс. Так и хочется сказать: злодейка. Она бы несомненно предпочла грабить мир, а не спасать его. Что за немыслимые причины останавливают её - тайна за семью печатями, однако спасатель из неё не плохой. Все "очень добрые и справедливые" (   Читать дальше...   )Производство: J.C. StaffЖанр: приключения, комедия, фэнтезиРежиссер: Ватанабэ ХиросиЯзык субтитров: Русский (отключаемый)Продолжительность: 6 ОВА по 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:204474A0F605E93EEE71C3A96C81CE05F77EDA5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,159 @@
+###  Публикация: 1863199   (1063651) от 03.04.2026
+
+Последний пропущенный звонок / Chakushin ari final (2006) BDRip [H.264/720p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старший класс, доведший одноклассницу до самоубийства постоянными издевательствами, отправляется на экскурсию в Южную Корею. Ещё на пароме одна из девушек получает от самой себя странный звонок и жуткую фотографию, которые датируются завтрашним днём, а вскоре после прибытия погибает ужасной смертью. Остальные члены класса начинают получать одинаковые SMS-ки: «Если (   Читать дальше...   )Производство: Япония / CJ Entertainment, Dentsu, J Dream, Kadokawa PicturesЖанр: ужасыРежиссер: Манабу АсоАктеры: Маки Хорикита, Мэиса Куроки, Чан Гын-сок, Эрика Асакура, Ю Камиваки, Риэ Цунэёси, Ариса Наито, Ракуто ТотихараПеревод: профессиональный двухголосый, авторский (Гранкин)Язык озвучки: русский, японскийСубтитры: английскиеПродолжительность: 01:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B584448E2AA18CFDD3E3C1E53761DCF8FD57651F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863280   (1063599) от 03.04.2026
+
+Последний пропущенный звонок / One Missed Call 3 Final / Chakushin ari final (2006) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старший класс, довёдший одноклассницу до самоубийства буллингом и постоянными издевательствами, отправляется на экскурсию в Южную Корею. Ещё на пароме одна из девушек получает от самой себя странный звонок и жуткую фотографию, которые датируются завтрашним днём, а вскоре после прибытия погибает ужасной смертью. Остальные члены класса начинают получать одинаковые (   Читать дальше...   )Производство: Япония, Корея Южная / CJ Entertainment, Dentsu, J Dream, Kadokawa Pictures, Mainichi Broadcasting System (MBS) K.K., Nihon Television NetworkЖанр: ужасыРежиссер: Манабу АсоАктеры: Маки Хорикита, Мэиса Куроки, Чан Гын-сок, Эрика Асакура, Ю Камиваки, Риэ Цунэёси, Ариса Наито, Ракуто Тотихара, Кадзума Яманэ, Такаси ЯмагатаПеревод: профессиональный двухголосый, авторский (Евгений Гранкин)Язык озвучки: русский, японскийСубтитры: английскиеПродолжительность: 01:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05DEB56B4A46B25637749135F0FE8385000DAD36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863660   (1063334) от 05.04.2026
+
+Звонок 2 / Ringu 2 (1999) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смертоносная кассета снова затягивает в свои сети доверчивых людей. Зловещий призрак из телевизора Садако Ямамура возвращается. Ассистентка погибшего профессора пытается выйти на след того, что стоит за ужасающим проклятьем.Производство: Япония/ Asmik Ace Entertainment, Kadokawa Shoten Publishing Co. Ltd., Oz Productions, Ring 2 Production GroupЖанр: ужасы, фантастика, детективРежиссер: Хидэо НакатаАктеры: Мики Накатани, Рикия Отака, Нанако Мацусима, Ёити Нумата, Риэ Иноу, Мэбуки Цутида, Кёко Фукада, Юрэи Янаги, Хитоми Сато, Хироюки СанадаПеревод: профессиональный многоголосый (Россия), профессиональный двухголосый (СВ-Дубль), авторский (Юрий Сербин, Сергей Кузнецов, Андрей Гаврилов)Язык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 01:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D427FF4C06F95CF4B486369C851CFEA7A267855
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863670   (1063331) от 05.04.2026
+
+Звонок 0: Рождение / Ringu 0: Basudei (2000) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девушка Садако обнаруживает в себе загадочные и устрашающие способности. Может быть, призрак внутри экрана – не исчадие ада, а жертва людской ненависти.Производство: Япония/ Toho CompanyЖанр: ужасы, триллер, детективРежиссер: Норио ЦурутаАктеры: Юкиэ Накама, Сэйити Танабэ, Кумико Асо, Такэси Вакамацу, Рюси Мидзуками, Каору Окунуки, Ясуси Кимура, Мами Хасимото, Даисукэ Бан, МасакоПеревод: профессиональный двухголосый, авторский (Юрий Сербин, Андрей Гаврилов)Язык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 01:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D810ED4A6779F4EB58EFD268C80B8364B97D493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863677   (1063316) от 05.04.2026
+
+Спираль / Rasen (1998) BDRip [H.265/1080p] [10-bit] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063316.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того как дух Садако успокоился, и секрет видеокассеты был раскрыт, неожиданно умирает муж журналистки Рюдзи Такаяма. Чтобы понять причину его смерти, полиция поручает провести вскрытие его другу. Занимаясь расследованием, он узнает о странной видеокассете и уничтожает копии, но проклятье остается, и начинают оживать духи.Производство: Япония / Basara Pictures, Imagica Corp.Жанр: ужасыРежиссер: Дзёдзи ИидаАктеры: Коити Сато, Мики Накатани, Хинако Саэки, Синго Цуруми, Сигэмицу Оги, Ютака Мацусигэ, Даисукэ Бан, Наоаки Манабэ, Хироюки Санада, Наото АдатиПеревод: авторский (Андрей Гаврилов)Язык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 01:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ACE9A9BCB435307F5F852FDB609393D68B1BBA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863684   (1063297) от 05.04.2026
+
+Звонок / Ringu (1998) UHD BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая репортер расследует загадочное суеверие о смертоносной видеокассете. В доме того, кто её посмотрит, сначала раздается странный телефонный звонок, а позже человек умирает. После того как такой же смертью умирает её племянница, женщина сама смотрит злополучную кассету. Чуть позже в её квартире раздаётся звонок. Теперь у журналистки есть только семь дней, чтобы (   Читать дальше...   )Производство: Япония / Asmik Ace Entertainment, Basara Pictures, Imagica Corp., Kadokawa Shoten Publishing Co. Ltd., Omega Project, Pony Canyon, Toho CompanyЖанр: ужасы, триллер, детективРежиссер: Хидэо НакатаАктеры: Нанако Мацусима, Хироюки Санада, Рикия Отака, Мики Накатани, Юко Такэути, Хитоми Сато, Даисукэ Бан, Риэ Иноу, Масако, Ёити НуматаПеревод: профессиональный многоголосый (Кинопоиск, неизвестный), авторский (Андрей Гаврилов, Юрий Сербин, Сергей Кузнецов), любительский многоголосый (BambooUA)Язык озвучки: русский, украинский, японскийСубтитры: русские, украинские, английскиеПродолжительность: 01:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1F30A5F923F0F12E358BDAB88185C8403577A47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229481   (1063216) от 06.04.2026
 
 Мать / Mother / Madeo (2009) BDRip [H.265/1080p-LQ] [10-bit]
@@ -6,7 +162,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063216.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063063.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062520.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062512.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062218.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061664.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060718.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060060.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058748.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058292.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058051.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057957.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057810.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057619.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057551.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057467.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056435.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056193.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056038.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054664.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C79234C4BFAD5E3B8F3F955AD338CD308F56982
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850406   (1054383) от 27.01.2026
-
-Нормальная семья / Botongui gajok / A Normal Family (2023) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Беспринципный адвокат Чэ-ван защищает самых жестоких убийц без малейших угрызений совести, в то время как его брат-врач Чэ-гю считает себя порядочным и добрым человеком. Однажды общественный резонанс получает видеозапись, на которой двое подростков до полусмерти избивают бездомного, а Чэ-ван узнаёт в нападавших свою дочь и племянника. Потерпевший находится без сознания, (   Читать дальше...   )Производство: Южная Корея / Hive Media, HIGROUNDЖанр: триллер, драма, криминалРежиссер: Хо Джин-хоАктеры: Соль Гён-гу, Чан Дон-гон, Ким Хи-э, Клаудия Ким, Хон Е-джи, Ким Джон-чхоль, Чхве Ри, Ю Су-бин, Пён Джун-хи, Ан Е-римПеревод: Дублированный (Кипарис)Язык озвучки: Русский, КорейскийСубтитры: Русские, Корейские (Forced, SDH), АнглийскиеПродолжительность: 01:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5001000889B97AEDAA022B39DCDCDEEE5064E42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850408   (1054125) от 27.01.2026
-
-Нормальная семья / Botongui gajok / A Normal Family (2023) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Беспринципный адвокат Чэ-ван защищает самых жестоких убийц без малейших угрызений совести, в то время как его брат-врач Чэ-гю считает себя порядочным и добрым человеком. Однажды общественный резонанс получает видеозапись, на которой двое подростков до полусмерти избивают бездомного, а Чэ-ван узнаёт в нападавших свою дочь и племянника. Потерпевший находится без сознания, (   Читать дальше...   )Производство: Южная Корея / Hive Media, HIGROUNDЖанр: триллер, драма, криминалРежиссер: Хо Джин-хоАктеры: Соль Гён-гу, Чан Дон-гон, Ким Хи-э, Клаудия Ким, Хон Е-джи, Ким Джон-чхоль, Чхве Ри, Ю Су-бин, Пён Джун-хи, Ан Е-римПеревод: Дублированный (Кипарис)Язык озвучки: Русский, КорейскийСубтитры: Русские, Корейские (Forced, SDH), АнглийскиеПродолжительность: 01:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:866B2EA80382803CB5E704ACC5A0D6736404C74D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849883   (1053905) от 25.01.2026
-
-Сделано в Гонконге / Heung Gong jai jo / Made in Hong Kong (1997) BDRip [H.265/1080p] [10-bit] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несколько парней находят труп девушки, которая покончила с собой, оставив предсмертную записку. Этот случай особенно повлиял на одного из них по имени Мун, рэкетира на службе у триады (гонконгской мафии), вынужденного задуматься над собственной жизнью и смертельной болезнью его возлюбленной Пин.Производство: Гонконг / Nicetop Independent Ltd., Team Work Production HouseЖанр: драма, криминал, мелодрамаРежиссер: Фрут ЧанАктеры: Сэм Ли, Нейки Им, Вендерс Ли, Ka-Chuen Tam, Carol Lam Kit-Fong, Doris Yan-Wah Chow, Сиу Чунг, Tat-Yee Chan, Wai-Chung Wu, Чан СэнгПеревод: Одноголосый любительский (Shaman)Язык озвучки: русский, китайскийСубтитры: китайские, английскиеПродолжительность: 01:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CD6DD80715F1B15D691602E101CB6304C2C54B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848767   (1052853) от 18.01.2026
-
-Пожарные / Sobanggwan / The Firefighters (2024) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сеул, 2000 год. Молодой выпускник начинает работать в команде пожарных-спасателей. По неопытности парень совершает ошибки, зато старшие товарищи всегда готовы поддержать новичка, но вскоре трагический случай на сложном пожаре меняет его отношение к профессии.Производство: Корея Южная / Acemaker Movieworks, Ascendio, Ask Road PicturesЖанр: боевик, драмаРежиссер: Квак Кён-тхэкАктеры: Чу Вон, Квак То-вон, Ю Джэ-мён, Ли Ю-ён, Ким Мин-джэ, О Дэ-хван, Ли Джун-хёк, Чан Ён-нам, Ким Юль-хоПеревод: ДублированныйЯзык озвучки: Русский, КорейскийСубтитры: Русские (Forced, Full), АнглийскиеПродолжительность: 01:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AD84E7873C84A0F91BCF345D5FDBA16B09596E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848768   (1052851) от 18.01.2026
-
-Пожарные / Sobanggwan / The Firefighters (2024) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сеул, 2000 год. Молодой выпускник начинает работать в команде пожарных-спасателей. По неопытности парень совершает ошибки, зато старшие товарищи всегда готовы поддержать новичка, но вскоре трагический случай на сложном пожаре меняет его отношение к профессии.Производство: Корея Южная / Acemaker Movieworks, Ascendio, Ask Road PicturesЖанр: боевик, драмаРежиссер: Квак Кён-тхэкАктеры: Чу Вон, Квак То-вон, Ю Джэ-мён, Ли Ю-ён, Ким Мин-джэ, О Дэ-хван, Ли Джун-хёк, Чан Ён-нам, Ким Юль-хоПеревод: ДублированныйЯзык озвучки: Русский, КорейскийСубтитры: Русские (Forced, Full), АнглийскиеПродолжительность: 01:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AFBCD64224DF077B51A279C6C127F43249AF644
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848445   (1052712) от 17.01.2026
-
-Да здравствует любовь / Ai qing wan sui / Vive L'Amour (1994) BDRip [H.264/720p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая женщина Мэй, агент по недвижимости, использует пустующие шикарные апартаменты в новом небоскрёбе для любовных свиданий. Однажды она теряет ключ, который находит юноша Сяо-кан. Узнав, что это ключи от огромной пустой квартиры, он решает тайно в ней поселиться. Другие ключи от этой квартиры крадёт у Мэй её случайный любовник А-Джун, который также решает тайно (   Читать дальше...   )Производство: Тайвань / Central Motion PicturesЖанр: драмаРежиссер: Минлян ЦайАктеры: Чао-юнь Чен, Кан-Шен Ли, Куэй-мэй Ян, И-Чин ЛуПеревод: профессиональный двухголосый (Студия Акцент)Язык озвучки: русский, китайскийСубтитры: русские, английскиеПродолжительность: 01:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45C5FA9D6897D1A94E6352FC9709C44A961F292F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,58 @@
+###  Публикация: 1345030   (168158) от 13.12.2019
+
+MediaHuman Youtube Downloader 3.9.9.29 (build 0412) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168158.jpg" />
+</div>
+
+
+###  Подробнее
+
+YouTube Downloader - Удобная программа-загрузчик для тех, кто хочет скачать свой любимый видеоклип, музыкальное видео или трейлер нового фильма с YouTube или подобных сервисов.
+
+● Закачка нескольких файлов одновременно
+● Сохранение видео целиком, либо только звуковой дорожки(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.12.2019Разработчик: MediaHumanПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B28C3773975F1C87AF103C44F21AFE12630AAA7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345043   (168157) от 13.12.2019
+
+Scapple 1.3.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scapple — это простой в использовании инструмент для быстрой фиксации и связи между собой ваших идей. Нельзя сказать, что это очередной MindMap-генератор, скорее это свободный текстовый редактор, позволяющий размещать заметки где угодно на странице и соединять их между собой используя линии или стрелки. Если вы когда-нибудь исписывали листы короткими заметками и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.12.2019Разработчик: Literature & Latte LtdПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36E07F4A40B69F4D45B0EA56F7B0C91DB88BF27B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596932   (168152) от 12.12.2022
 
 Sensei 1.5.7 [Multi/Ru]
@@ -6,7 +61,7 @@ Sensei 1.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168152.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Multitouch 1.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168087.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ OmniFocus Pro 3.15.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168084.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ FSNotes 4 v4.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168064.jpg" />
 </div>
 
 
@@ -113,7 +168,7 @@ Privatus 6.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168059.jpg" />
 </div>
 
 
@@ -139,7 +194,7 @@ Wirecast 16.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168054.jpg" />
 </div>
 
 
@@ -165,7 +220,7 @@ SpamSieve 2.9.41 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168053.jpg" />
 </div>
 
 
@@ -193,7 +248,7 @@ PullTube 1.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168049.jpg" />
 </div>
 
 
@@ -219,7 +274,7 @@ Duplicate Photos SweeperOff 3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168041.jpg" />
 </div>
 
 
@@ -245,7 +300,7 @@ Airtool 2 v2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168036.jpg" />
 </div>
 
 
@@ -271,7 +326,7 @@ Data Guardian 6 v.6.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168034.jpg" />
 </div>
 
 
@@ -297,7 +352,7 @@ Cisdem ContactsMate 5 v5.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168028.jpg" />
 </div>
 
 
@@ -323,7 +378,7 @@ Alarm Clock Pro 13 v13.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168025.jpg" />
 </div>
 
 
@@ -351,7 +406,7 @@ ImageRanger Pro Edition 1.7.8.1679 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168022.jpg" />
 </div>
 
 
@@ -377,7 +432,7 @@ Invisible 2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168019.jpg" />
 </div>
 
 
@@ -405,7 +460,7 @@ FastScripts 3.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168014.jpg" />
 </div>
 
 
@@ -432,7 +487,7 @@ SimpleMind Pro 1.25.0 Full Edition [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168007.jpg" />
 </div>
 
 
@@ -460,7 +515,7 @@ Hydra 4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168006.jpg" />
 </div>
 
 
@@ -488,7 +543,7 @@ PerfectTUNES for Mac 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168005.jpg" />
 </div>
 
 
@@ -514,7 +569,7 @@ Librarian Pro 6 v6.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167999.jpg" />
 </div>
 
 
@@ -540,7 +595,7 @@ PullTube 1.7.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167997.jpg" />
 </div>
 
 
@@ -566,7 +621,7 @@ Graphic Inspector 2 v2.5.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167995.jpg" />
 </div>
 
 
@@ -592,7 +647,7 @@ RAW Power 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167993.jpg" />
 </div>
 
 
@@ -619,7 +674,7 @@ Bartender 4 v4.0.32b [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167944.jpg" />
 </div>
 
 
@@ -631,61 +686,6 @@ Bartender - утилита для простой организации икон
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7123D72844310B3E4718C5E56BEBC2EF69906BF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516062   (167943) от 09.12.2021
-
-Downie 4 v4.4.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downie – это простейший видео-загрузчик.
-Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
-Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 08.12.2021Разработчик: © 2021 Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FBC9D935D91F9A6EF8822F6EDF3F072D0AF540C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431384   (167930) от 13.12.2020
-
-Resume Templates - Design 3.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Resume Templates - высококачественная коллекция из 145 оригинальных шаблонов, предназначенных, для придания мощного импульса Вашему карьерному росту. Представьте свой образовательный уровень, опыт и навыки в лучшем свете, что привлечет внимание любого менеджера по подбору персонала.
-Конструкции очень легко редактировать и адаптировать к Вашим потребностям, Вы можете (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.12.2020Разработчик: Graphic NodeПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F09C148DEE38C6D9209EA5F2556E50B2ED2B4A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Sarah Brightman - Dive (1993) [OGG Vorbis|484 Kbps] <Pop, Downtempo, Synth-pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324598.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sarah Brightman - Fly (1996) [OGG Vorbis|484 Kbps] <Rock, Pop, Classical>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324593.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Sarah Brightman - Harem (2003) [OGG Vorbis|484 Kbps] <Electronic, Classical, Amb
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324591.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Sarah Brightman - Classics (2001) [OGG Vorbis|484 Kbps] <Electronic, Pop, Classi
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324587.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Sarah Brightman - Symphony (2007) [OGG Vorbis|484 Kbps] <Electronic, Pop, Classi
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324586.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Sarah Brightman - Eden (1998) Reissue, 1999, EastWest [OGG Vorbis|484 Kbps] <Ele
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324585.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Sarah Brightman - The Very Best Of 1990-2000 (2001) [OGG Vorbis|484 Kbps] <Elect
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324492.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Sarah Brightman - A Winter Symphony (2008) [OGG Vorbis|484 Kbps] <Electronic, Po
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324488.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Zouk Monster Vol 1. (2017) [MP3|320 Kbps] <Pop, Latin>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323827.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Adele - 25 (2015) Target Exclusive Deluxe Edition [MP3|320 кб/с]<Indie Pop, N
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323526.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Now Yearbook 85 (2022) 4CD, Compilation, Special Edition [MP3|320 Kbps] <Po
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323340.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Frankie Valli - 6 Albums (1975-1980) LP [MP3|320 Kbps] <Funk Soul, Pop Rock, Voc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322938.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Tiziano Ferro - Lamore E Una Cosa Semplice (Special Edition 2CD) (2012) [MP3|320
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322762.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Tess - One Love To Justify (2001) [MP3|320 kbps]<EuroDance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_322677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_322677.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ VA - DMC - Cool Grooves 56 (2019) [MP3|320 Kbps] <Electronic, Hip Hop, Funk / So
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322214.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VA - Much Dance 2015 (2014) [MP3|320 кб/с]<Pop, Electronic, Club, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321358.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Giants - 2 Albums (1979, 1981) LP [MP3|320 Kbps] <Electronic, Pop-Rock, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320800.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ One Direction - Take Me Home (2012) [MP3|128 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319923.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - The Greatest Mod and Northern Soul Album (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319071.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Mariah Carey - Music Box (1993) [OGG Vorbis|480 Kbps] <Electronic, Funk / Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318922.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Barbra Streisand - Walls (2018) [OGG Vorbis|480 Kbps] <Pop, Vocal>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318911.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ VA - Dreamboats and Petticoats: The Golden Years (2018) 4CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318776.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Lara Fabian - Greatest Hits (2010) 2CD [OGG Vorbis|480 Kbps] <Pop, Ballad, Chans
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318621.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ VA - NOW That's What I Call Music! 95 (2016) [MP3|320 Kbps] <Top 40, Pop Compila
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318379.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ VA - 100 Greatest Xmas Top Christmas Classics (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318360.jpg" />
 </div>
 
 
@@ -749,7 +749,7 @@ Texas - Texas 25 (2015) 2CD Deluxe Edition [MP3|320 кб/с]<Pop, Pop-Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317210.jpg" />
 </div>
 
 

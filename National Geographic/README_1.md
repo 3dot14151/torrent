@@ -1,3 +1,29 @@
+###  Публикация: 1484475   (1006086) от 19.07.2021
+
+NG: Секреты гробницы Христа: специальный репортаж / Secrets of Christ's Tomb: Explorer Special (2017) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда всемирно известных экспертов пытается исследовать тайну захоронения Иисуса. Новые методы позволят нам провести детальный осмотр и ремонт на могиле Спасителя. Археологи впервые решили за 500 лет удалить мраморную плиту гробницы. Исследования показали, что фрагменты породы, приведенные ниже, датируются IV веком до нашей эры. Прорывное открытие - важный момент (   Читать дальше...   )Производство: Великобритания, Pioner Film and Television Productions for National GeographicЖанр: Документальный, научно-познавательный, история, археологияРежиссер: Роберт СтрэнджПеревод: Одноголосый профессиональный (Велес)Субтитры: АнглийскиеПродолжительность: 00:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A9BB02F0FCC17663586A37CF061422AC0C3E81B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1484610   (1005986) от 20.07.2021
 
 NG: Загадки королевской кобры / Secrets of the King Cobra (2008) WEB-DL [H.264/1080p]
@@ -6,7 +32,7 @@ NG: Загадки королевской кобры / Secrets of the King Cobra
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005986.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ NG. Человек среди гепардов / Man Among Cheetahs (2017) WEB-D
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005577.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ NG. Чудесная посадка на Гудзон / Miracle Landing on the H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005567.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ NG. Огромная акула-молот / Mega Hammerhead (2016) WEB-DL [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005167.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ NG. Человек против акулы / Man vs Shark (2019) WEB-DL [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005067.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ NG. На Марс: история марсохода Персеверанс / Bu
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002502.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996000.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ NG: Мегазаводы. Суперавтомобили: Мустанг / Megaf
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995813.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ NG: Удивительный мир с NAT GEO / NAT GEO Amazing (2010) SATRip [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992975.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ NG: Культ Марии / The Cult of Mary (2015) HDTVRip [H.264/720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987402.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ NG. Затерянные царства Китая / The Hidden Kingdoms of Chin
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982027.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ NG: Снежный барс Афганистана / NG: Snow Leopard of Afghani
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981301.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ NG. Мухи и пиявки (мерзкие существа) / Flies and leech
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980894.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ National Geographic: Сканеры древнего мира. Египетск�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976701.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ NG. Семейное оружие: Ковбойская перестрелка /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976622.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ NG. Самурайский меч / Samurai Sword: The Making of a Legend (2007)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976507.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ NG. Суперсооружения Третьего рейха (1 сезон, 6 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975127.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ NG: Запреты. Лечение живностью / Taboo. Creature Cures (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974344.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ NG: Запреты. Деликатесы / Taboo. Delicatessen (2003) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974283.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ NG: Запреты. Кровавые Обычаи / Taboo. Blood Rites (2004) TV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974271.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ NG: Запреты. Экстремальная кухня / Taboo. Extreme Cuisi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973021.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ NG. Осушить океан: корабли-призраки Атлантик�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972947.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ NG: Запреты. Проституция / Taboo: Prostitution (2010) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972888.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ NG: Запреты. Инициации / Taboo. Initiation (2004) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971762.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ NG: Запреты. Изгои общества / Taboo. Outcasts of society (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971749.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ NG: Запреты. Изгои общества / Taboo. Outcasts of society (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAE696F1A5FC1C24E946B619CD5B7AE24249ADFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 224241   (971696) от 15.01.2016
-
-NG: Запреты. Вуду / Taboo. Voodoo (2002) SATRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему вуду запрещено? Возможно, потому, что оно включает такие жуткие обряды, как одержимость и черная магия. Проследите, как вуду обрело разнообразие и стало табу даже у народов, практикующих его.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1726907   (28179) от 09.02.2025
+
+Hero of the Kingdom: The Lost Tales 2 / Герой Королевства: Утраченные Сказания 2 (2021) [Ru/Multi] (1.2.9) License GOG
+
+>>Win Игры
+>>Strategy/Manager/Business (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Избавьте свой город от великого зла и станьте принцессой-героиней. Будучи принцессой, вы отправились в небольшое приключение за городские стены под видом бродяги. Однако вернуться домой будет не так просто. Город объят огнём, и на улицах бесчинствуют полчища неизвестных монстров. Люди в панике покидают свои дома и ищут спасения от гибельной угрозы. Но это ваш город (   Читать дальше...   )Тип издания: LicenseРазработчик: Lonely TroopsЖанр: Приключенческие игры, Казуальные игры, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7B262343D06323282F90A74C5158A5F062D1E29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726809   (28153) от 09.02.2025
 
 Hero of the Kingdom II / Герой Королевства II (2015) [Ru/Multi] (1.3.11) License GOG
@@ -6,7 +32,7 @@ Hero of the Kingdom II / Герой Королевства II (2015) [Ru/Multi] 
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28153.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Scorchlands (2023) [Ru/Multi] (1.0.5) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27577.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Age of Defense (2019) [Ru/Multi] (1.19) Repack Let'sРlay
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25811.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Kingdom Rush Vengeance (2020) [Ru/Multi] (1.16.3.16/dlc) Repack Let'sРlay
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19504.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Fabledom (2024) [Ru/Multi] (1.07 HF) Repack Let'sРlay
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18142.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Synergy (2024) [Ru/Multi] (1.0.2505130427) Repack Let'sРlay [Supporter Edition]
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16995.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ MEMORIAPOLIS (2024) [Ru/Multi] (1.0.104) Repack Let'sРlay
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16393.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ ICBM (2020) [Ru/Multi] (1.02.03) Repack Let'sРlay
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16135.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Kingdom Rush Vengeance (2020) [Ru/Multi] (1.16.3.16/dlc) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15426.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ ICBM: Escalation (2024) [Ru/Multi] (1.0.9/dlc) Repack Let'sРlay
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15276.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Hero of the Kingdom: The Lost Tales 3 / Герой Королевства: Ут�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14385.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Hero of the Kingdom / Герой Королевства (2012) [Ru/Multi] (1.6.1
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14367.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Argonauts Agency 9: God of the Storm / Агентство Аргонавты 9: 
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13292.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Void War (2025) [Ru/En] (1.0.1d) Repack Let'sРlay
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12307.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Craft The World (2014) [Ru/Multi] (1.11.006/dlc) Repack Pioneer
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9482.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Mortal Glory (2020) [Ru/Multi] (1.8.1/dlc) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4742.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Mortal Glory 2 (2024) [Multi] (1.4.1b/dlc) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4729.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Craft The World (2014) [Ru/Multi] (1.11.007/dlc) Repack Let'sРlay [Ultimate Cra
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1370.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Kingdom Rush 5: Alliance TD (2024) [Ru/Multi] (6.00.114/dlc) Repack Let'sРlay
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_455.jpg" />
 </div>
 
 

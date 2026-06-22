@@ -1,3 +1,81 @@
+###  Публикация: 1288218   (697497) от 10.03.2019
+
+Памяти Владимира Этуша (10.03.2019) SATRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697497.jpg" />
+</div>
+
+
+###  Подробнее
+
+9 марта скончался народный артист СССР Владимир Этуш. Ему было 96 лет.Телекомпания: 1 каналЖанр: Документальный, Телепередача, ИскусствоПеревод: ОтсутствуетПродолжительность: 00:48:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B47FB60BAF84D6FB5B98127C820A5C00BFB5CD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403058   (695825) от 17.08.2020
+
+Джованни Беллини и Андреа Мантенья / Rivalen der Renaissance: Bellini und Mantegna (2018) SATRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Андреа Мантенья и Джованни Беллини – два гения Раннего Возрождения в Северной Италии. Они не только были современниками, но и состояли в родстве. Мантенья – сын плотника из Падуи. Беллини принадлежал к знаменитой венецианской династии художников – Якопо и его второго сына, Джентиле. Их биографии пересеклись в 1453 году, когда Мантенья женился на сестре Беллини, Николозии. (   Читать дальше...   )Производство: Германия, TAG/TRAUM FilmproduktionЖанр: Документальный, история, искусствоРежиссер: Маргарета КрейзерПеревод: Двуголосый закадровый, профессиональный (Видеофильм-ТВ)Субтитры: отсутствуютПродолжительность: ~00:52:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFB8ED85E9F6A5A7675921C3C214AB8CA9A7C032
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402974   (695679) от 17.08.2020
+
+Супергерои / Rise of the Superheroes (2018) WEB-DL [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695679.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о том, как супергерои, такие как Бэтмен, Блейд, Люди Икс, Человек-паук, Железный человек и Черная пантера, сошли со страниц комиксов в кинотеатры и захватили сначала Голливуд, а затем и весь мир.Телекомпания: Великобритания / Symettrica EntertainmentЖанр: ДокументальныйРежиссер: Том О’ДеллПеревод: Многоголосый профессиональный (iTunes)Продолжительность: 01:56:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00D3CE2F100F6ABDBE7C3CDD542F3B767C08964D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1534335   (695638) от 01.03.2022
 
 The Beatles: Вернись / The Beatles: Get Back (2021) WEBRip [H.264/720p] (серии 1-3 из 3)
@@ -6,7 +84,7 @@ The Beatles: Вернись / The Beatles: Get Back (2021) WEBRip [H.264/720p] (
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695638.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695087.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691392.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690529.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689161.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685687.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685044.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683853.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_683018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_683018.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682884.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680304.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680234.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679298.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Moby live at Main Square Festival / Moby live at Main Square Festival (2011) DVB
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679169.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678903.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_677410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_677410.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676734.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ The Ventures: Звезды на гитарах / The Ventures: Stars on Guitars 
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676437.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673407.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672070.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ Woodkid and the Lyon National Orchestra / Woodkid and the Lyon National Orchestr
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671524.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670149.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664859.jpg" />
 </div>
 
 
@@ -594,84 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DDB0B17F5331330D21B175A7BBEDAE3CF923A27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138148   (664316) от 29.05.2017
-
-Великие дрессировщики (2016) HDTVRip [H.264/1080i-LQ]  (серии 1-10 из 10)
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл исторических фильмов о великих русских дрессировщиках. Они во многом были первопроходцами. Они получали знания о психологии животных, рискуя своим здоровьем, а порой и жизнью. Их «легкое» искусство построило мостик между миром людей и миром животных, попутно внеся немалый вклад в развитие зоологии. И при этом они были артистами и художниками, создававшими новые (   Читать дальше...   )Телекомпания: Россия, ИП Рябинина Ю.Б. по заказу ЗАОЖанр: Документальный, циркРежиссер: Ирина Образцова, Анна Артамонова, Тамара ПронинаПродолжительность: 10 x ~ 00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0DFFF93F93EA6AA597F34B9206007C0B613B9D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 900830   (664234) от 25.05.2015
-
-Янтарная комната (2015) HDTV (часть 1-2 из 2) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Судьба знаменитой "Янтарной комнаты", которую похитили из Царского села во время Великой Отечественной Войны - это тайна века. Никому реально не удалось до сих пор приблизиться к ней. Этот фильм - журналистское расследование. Оно будет построено исключительно на документально подтвержденных фактах, собранных в архиве убитого немецкого искателя Янтарной (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ДокументальныйПродолжительность: 2 серии по 00:52:00 каждая
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:006C8C616570E58B1E53B415C0F195E930E45913
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224912   (663898) от 12.05.2018
-
-Александр Белявский. Для всех я стал Фоксом (2018) DVB [H.264/1080i-LQ]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663898.jpg" />
-</div>
-
-
-###  Подробнее
-
-За свою творческую жизнь Белявский сыграл более сотни ролей. Все помнят его героев в фильмах «Место встречи изменить нельзя», «Четыре танкиста и собака», «Иду на грозу», «Ирония судьба, или С легким паром!», телесериале «Бригада». У Белявского было фантастическое чувство юмора — об этом говорят все его коллеги. Особенно оно проявлялось во время дубляжа. Недаром он (   Читать дальше...   )Телекомпания: Россия / ЗАО «Телекомпания „Останкино“Жанр: Документальный, Биография, ИскусствоСубтитры: Русские, телетекстПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:088241A6F08121753027D9520483B90C79D8610A
 ```
 
 https://mybot314.ru/tekegram_catalog/

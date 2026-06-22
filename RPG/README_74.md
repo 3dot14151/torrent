@@ -1,3 +1,107 @@
+###  Публикация: 1792189   (21155) от 17.04.2025
+
+Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack seleZen
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем Mandragora - сайд-скроллер в жанре «ролевой экшн» в 2,5D со множеством элементов «метроидвании» и «soulslike». Зажигай свой колдовской фонарь и отправляйся во тьму Энтропии, чтобы порвать эту реальность в клочья. Человечество пало под натиском монстров. Теперь народу Фельдума приходится скрываться за кирпичными стенами и заборами, отводящими внимание, (   Читать дальше...   )Тип издания: RepackРазработчик: Primal Game StudioЖанр: Экшены, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60FAD9DABBED086083FEF37CEC74A1C9F12C118E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792117   (21153) от 17.04.2025
+
+Sweep (2025) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тактическая карточная игра. В игре 1 карта = 1 пуля - разыграйте все 17 карт, чтобы нанести взрывной урон, умело комбинируя карточные руки, наклейки и предметы. Выбирайте нужные карты прямо из колоды и используйте свою мудрость для создания лучших комбинаций. Превращайте карты в пули и запускайте цепные реакции - используйте наклейки и предметы на картах, чтобы запустить (   Читать дальше...   )Тип издания: RepackРазработчик: On.ProductionЖанр: Инди, Ролевые игры, СтратегииЯзык субтитров: Русский, Английский, Японский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Японский, Китайский (упрощенный) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:936521D8F949AB4469D7B2F068395C3B1FB66C5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791965   (21152) от 17.04.2025
+
+Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6758295/dlc) Repack seleZen [Digital Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Соберите отряд и вернитесь в Забытые Королевства. Вас ждет история о дружбе и предательстве, выживании и самопожертвовании, о сладком зове абсолютной власти. Ваш мозг стал вместилищем для личинки иллитида, и она пробуждает в вас таинственные, пугающие способности.Тип издания: RepackРазработчик: Larian StudiosЖанр: RPG, Dungeons & Dragons, CRPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEA399C3DD166B93E4F7E5AE9D7F81217D35C1BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725113   (21088) от 18.04.2025
+
+Achilles: Legends Untold (2023) [Ru/Multi] (1.7.0) Repack Decepticon
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21088.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Achilles: Legends Untold пользователи входят в образ знаменитого мифологического персонажа, который отправляется в очередное судьбоносное приключение. В этот раз, Ахиллес оказывается в центре конфликта между Аидом и Аресом. Его основная цель состоит в том, чтобы одолеть Фобоса - ребенка бога войны. Но это не значит, что он сам придет и предложить сойтись в битве. (   Читать дальше...   )Тип издания: RepackРазработчик: Dark Point GamesЖанр: Экшены, Ролевая играЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:445F6ABD6170CDC106A860414C66F39F8A204054
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748511   (21078) от 18.04.2025
 
 Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (7.0.0.1/dlc) Repack dixen18
@@ -6,7 +110,7 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (7.0.0.1/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21078.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ ArkCraft: The Rebirth of the World / ArkCraft: Возрождение мира (
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21074.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Coridden (2025) [Ru/Multi] (1.2.3/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21069.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Slime Heroes (2025) [Ru/Multi] (1.0.0.5) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21064.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21048.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21018.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20990.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Echoes of Yi : Samsara (2025) [Ru/Multi] (16,270) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20966.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Crashlands 2 (2025) [Ru/Multi] (1.0.5) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20908.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6758295/dlc) Repack FitGirl [Digi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20858.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ The Fool's Apprentice (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20729.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ The Fool's Apprentice (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20721.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 17120566) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20666.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.7.0) License GOG [Soundtrack Bundl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20664.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Echoes of Yi : Samsara (2025) [Ru/Multi] (16.269) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20630.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ The Elder Scrolls IV (4): Oblivion Remastered (2025) [Multi] (0.411.140.0/dlc) S
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20570.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ The Elder Scrolls IV (4): Oblivion Remastered (2025) [Ru/Multi] (0.411.140.0/dlc
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20450.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Lords of the Fallen (2023) [Ru/Multi] (2.0.3/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20416.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (56180/dlc) Repack FitGirl [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20349.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ The Last Spell (2023) [Ru/Multi] (1.2.18.3.s.de/dlc) Repack FitGirl [Complete Th
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20293.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (56190/dlc) Repack Other s [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20255.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ The Stone of Madness (2025) [Multi] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20251.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ The Stone of Madness – тактическая стелс-игра в реал�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:603E8854244588CD7D374FA1ED96039D6ABEEC40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793818   (20234) от 26.04.2025
-
-CyberCorp (2024) [Ru/Multi] (1.00) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20234.jpg" />
-</div>
-
-
-###  Подробнее
-
-CyberCorp - топ-даун шутер, выполненный в сеттинге киберпанка. Игровой процесс направлен на динамичные перестрелки и луттинг. В роли главного героя предстоит сразиться за будущее человечества. Доступна как одиночная кампания, так и кооперативная игра. События разворачиваются в 25 веке. Корпорация КиберКорп научилась создавать роботизированные человеческие тела, перенося (   Читать дальше...   )Тип издания: RepackРазработчик: Megame LLCЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58D71A526598421F740FC521A93A1ACD605CDB35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793808   (20178) от 26.04.2025
-
-Fabled Lands (2022) [Ru/En] (2.1.3а/dlc) Repack Let'sРlay [Complete Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные книги-игры Fabled Lands , написанные Дэйвом Моррисом и Джейми Томпсоном и любимые многими, были преобразованы в эпическое цифровое приключение интерактивной фантастики с огромным игровым миром. Будьте кем хотите: исследователем, торговцем, священником, ученым, вором, волшебником или солдатом удачи.Тип издания: RepackРазработчик: Prime GamesЖанр: Ролевая игра, ПриключениеЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1102943BAF2D4FBA06C531A97FB6C5F3A5BCAD51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793360   (20139) от 27.04.2025
-
-The Elder Scrolls IV (4): Oblivion Remastered (2025) [Ru/Multi] (0.411.140.0/dlc) Repack Decepticon
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20139.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Elder Scrolls IV: Oblivion Remastered представляет собой переосмысление лучшей игры 2006 года с потрясающей графикой и доработанным игровым процессом. Исследуйте необъятные просторы Сиродила и сражайтесь с захватчиками из Обливиона в новой версии легендарной ролевой игры от знаменитой студии Bethesda Game Studios.Тип издания: RepackРазработчик: Bethesda Game StudiosЖанр: Ролевые игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E26124204E8FECEDFF3FBA83320153065E13ACB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091956   (20031) от 28.04.2025
-
-Lords of Xulima (2014) [Ru/Multi] (2.1.1/dlc) License GOG [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20031.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Deluxe Edition включает в себя дополнение Talisman of Golot, 200-страничную книгу о бестиарии и мифологии игры, оригинальный саундтрек с 15 композициями, карту игрового мира в высоком разрешении и эксклюзивные картинки для рабочего стола. Lords of Xulima – это необычная ролевая игра, действие которой происходит на мифическом континенте Шулима, где Боги и люди (   Читать дальше...   )Тип издания: LicenseРазработчик: Numantian GamesЖанр: Turn-based, RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3540B0F604ADB430F4099E829A37735556474041
 ```
 
 https://mybot314.ru/tekegram_catalog/

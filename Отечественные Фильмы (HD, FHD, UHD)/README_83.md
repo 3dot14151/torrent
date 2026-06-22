@@ -1,3 +1,107 @@
+###  Публикация: 1183677   (307369) от 14.11.2017
+
+Прадед (2013) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возможна ли жизнь после смерти? Возможна ли радость, если война отняла твое будущее? Это фильм о стариках, которым ждать уже некого. А еще — о потерях, мечтах и надеждах.Производство: Грузия, РоссияЖанр: ДрамаРежиссер: Иракли КочламазашвилиАктеры: Анзор Кочламазашвили, Нели Навасардова, Тенгиз Цулаия, Мамука Ткешелашвили, Бадри ДреидзеПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91EEF4AFC5082136EFFA99E245A17055CB187B93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183216   (306969) от 14.11.2017
+
+Заложники (2017) Blu-ray [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начало 80-х. Советская Грузия. Всего несколько лет до распада Советского Союза. Молодые люди из уважаемых грузинских семей ищут себя в условиях закрытой системы. Музыка Beatles, джинсы, американские сигареты, положение в обществе, гарантированное будущее... У них, казалось, было все, кроме одного — свободы. Цена этой свободы окажется слишком высока... Подлинная история (   Читать дальше...   )Производство: Россия, ГрузияЖанр: Драма, триллер, биография, историяРежиссер: Резо ГигинеишвилиАктеры: Иракли Квирикадзе, Тинатин Далакишвили, Гига Датиашвили, Гиорги Грдзелидзе, Георгий Табидзе, Гиорги Хурцилава, Вахтанг Чачанидзе, Екатерина Калатозишвили, Бека Лемонджава, Мераб НинидзеПеревод: Дублированный (Лицензия); закадровый одноголосый (Ризо Гигинеишвили)Субтитры: Русские, английскиеПродолжительность: 01:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:635D6E1D37F68470F97D3A0542A798198157C398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332661   (306944) от 23.10.2019
+
+Ничей (2019) WEB-DL [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306944.jpg" />
+</div>
+
+
+###  Подробнее
+
+После смерти матери двенадцатилетнего Колю отправляют в детский дом. Оттуда его забирает Валентина. Эта одинокая пожилая женщина — его родная тётя, с которой он прежде не был знаком. Коля ждёт, что старший брат после освобождения из тюрьмы приедет за ним, и они вместе вернутся домой.Производство: Россия, АТК-СтудиоЖанр: драмаРежиссер: Евгений ТатаровАктеры: Надежда Маркина, Олег Чугунов, Владимир Меньшов, Дарья Юргенс (Лесникова), Галина Бокашевская, Владимир Ямненко, Хельга Филиппова, Сергей Рост, Александр Тютрюмов, Андрей ШимкоПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:16:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38AC2FDC08E1CF54D216E1F5BDE58E022A4CC92D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960520   (306826) от 28.11.2015
+
+Жена по совместительству (2015) WEB-DL [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нина, молодая вдова и мама двух малолетних детей устраивается «домоправительницей» загородного дома к Анне, энергичной бизнесвумен. Сын Анны, Игорь, по виду типичный представитель «золотой» столичной молодёжи, совершает поступок – идет в военкомат с просьбой призвать его. Чтобы уберечь его от службы в армии, Анна вынуждает сына заключить фиктивный брак с Ниной: женатый (   Читать дальше...   )Производство: Россия/ Кинокомпания РусскоеЖанр: МелодрамаРежиссер: Андрей ЗаписовАктеры: Ольга Сухарева, Анна Якунина, Александр Солдаткин, Евгений Ганелин, Александр Никитин, Артём Падалка, Ксения Разина, Ася Калинина и др.Перевод: Не требуется (русский)Продолжительность: 01:30:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8036313BDEA2016C854675A00DB80C039004C745
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261008   (306519) от 09.11.2018
 
 Кислота (2018) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306519.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304790.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_304706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_304706.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304585.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304207.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302770.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302744.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302529.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301527.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299938.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299536.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299522.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299514.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299512.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_299183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_299183.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299054.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299015.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298968.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298874.jpg" />
 </div>
 
 
@@ -504,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298534.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298471.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_297058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_297058.jpg" />
 </div>
 
 
@@ -567,110 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:490CAD03BF442665DF68EECC580AEBFD825CB558
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961978   (296637) от 03.12.2015
-
-Дедушка моей мечты (2015) WEB-DL [H.264/720p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гротесковая семейная комедия, поднимающая извечный вопрос о том, насколько мы зависим от материального благополучия, которое внезапно обрушивается на нашу голову.Производство: РоссияЖанр: Комедия, семейныйРежиссер: Александр СтриженовАктеры: Николай Добрынин, Екатерина Стриженова, Леонид Якубович, Анна Ардова, Виктор Супрун, Виталий Хаев, Иван Кокорин, Александр Добровинский, Александр Пряников, Грант ПалагаевПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:41:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:016AE0133070DC6A17A4AE18AEC4066591102358
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184882   (296587) от 19.11.2017
-
-Гоголь. Начало (2017) Blu-ray [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Казаки, ведьмы, русалки, утопленницы и другие обитатели Диканьки встречаются лицом к лицу со своим создателем Николаем Гоголем, молодым писарем из Петербурга, который страдает загадочными припадками и может общаться с персонажами из потустороннего мира. Вместе со своим начальником, блестящим столичным следователем Яковым Гуро, начинающий писатель приезжает на Полтавщину (   Читать дальше...   )Производство: Россия, Продюсерский центр «Среда»Жанр: Приключения, Триллер, ДетективРежиссер: Егор БарановАктеры: Александр Петров, Олег Меньшиков, Евгений Сытый, Таисия Вилкова, Артем Ткаченко, Юлия Франц, Евгений Стычкин, Ян Цапник, Сергей Бадюк, Марта ТимофееваПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:46:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47EBC64A178C5ECE726E4E3C9FF49ABE3A33EBC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962049   (296329) от 03.12.2015
-
-Дедушка моей мечты (2015) WEB-DL [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296329.jpg" />
-</div>
-
-
-###  Подробнее
-
-В доме небогатой, но счастливой пары Миши и Маши неожиданно появляется Дед. Он не может объяснить, кто он, и как здесь появился. Ну, не на улицу же его выставлять?! Добросердечные супруги оставляют Деда у себя. И вдруг на семью обрушивается Удача! Просто совпадение, или это Дед стал талисманом прежде невезучей семьи?..Производство: Россия / Кинокомпания "Пендулум"Жанр: комедия, семейныйРежиссер: Александр СтриженовАктеры: Николай Добрынин, Екатерина Стриженова, Леонид Якубович, Анна Ардова, Виктор Супрун, Виталий Хаев, Иван Кокорин, Александр Добровинский, Александр Пряников, Грант ПалагаевПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:41:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0D5988326E08B07FB97AC265636B6E66938AE7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961810   (296316) от 03.12.2015
-
-Клинч (2015) WEB-DL [H.264/1080p-LQ]
-
->>След.
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296316.jpg" />
-</div>
-
-
-###  Подробнее
-
-У школьного учителя литературы Федорова был трудный день. Две смены, потом собрание, затем нотация от директрисы, а в его маленькой квартире жена затеяла ремонт. Вдобавок ко всему по дороге домой за ним увязывается незнакомая девушка, которая выхватывает из рук учителя портфель и убегает. Федоров догоняет воровку, она плачет, жалуется на сложную жизнь и вдруг начинает (   Читать дальше...   )Производство: Россия / Марс Медиа ЭнтертейнментЖанр: драмаРежиссер: Сергей ПускепалисАктеры: Алексей Серебряков, Ася Домская, Агриппина Стеклова, Вячеслав Евлантьев, Максим Лагашкин, Сергей Степин, Илья Чертов, Ирина Луковская, Анна Уколова, Ирина ИльинскаяПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB49DD82EE46D84D51E3284165196B1C0EE17537
 ```
 
 https://mybot314.ru/tekegram_catalog/

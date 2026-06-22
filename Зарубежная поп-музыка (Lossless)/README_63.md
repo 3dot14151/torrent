@@ -1,3 +1,96 @@
+###  Публикация: 575677   (367529) от 15.11.2012
+
+Lana Del Rey - Born To Die (2CD, The Paradise Edition) (2012) [FLAC (tracks+cue)|Lossless]<Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_367529.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+Продолжительность: 01:00:42
+
+01. Born To Die
+02. Off To The Races
+03. Blue Jeans
+04. Video Games
+05. Diet Mountain Dew
+06. National Anthem
+07. Dark Paradise(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:33:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177242   (365030) от 24.10.2017
+
+VA - BRAVO Hits 99 (2017) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lauv - I Like Me Better (3:19)
+02. Imagine Dragons - Whatever It Takes (3:19)
+03. Sunrise Avenue - I Help You Hate Me (3:11)
+04. Portugal. The Man - Feel It Still (2:42)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Electronic, R&B, Disco, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop RockПродолжительность: 01:14:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C21D7BEE80258A717C66BAC497727309521F800
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416774   (364966) от 17.10.2020
+
+Shania Twain - The Woman In Me (2020) Super Deluxe Diamond Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Home Ain't Where His Heart Is (Anymore) [4:12]
+ 02. Any Man Of Mine [4:07]
+ 03. Whose Bed Have Your Boots Been Under [4:24]
+ 04. (If You're Not In It For Love) I'm Outta Here! [4:30](   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 02:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E8E0FE2042575147A45198B3B1DF9E0197393AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1177278   (363142) от 25.10.2017
 
 Zola Jesus - Okovi (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, Experimental, Electronic>
@@ -6,7 +99,7 @@ Zola Jesus - Okovi (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, Experimental
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363142.jpg" />
 </div>
 
 
@@ -35,7 +128,7 @@ Adriano Celentano - Adrian (2019) 2CD [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363112.jpg" />
 </div>
 
 
@@ -64,7 +157,7 @@ Julian Lennon - Jude (2022) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361783.jpg" />
 </div>
 
 
@@ -93,7 +186,7 @@ Eros Ramazzotti - Battito Infinito (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361459.jpg" />
 </div>
 
 
@@ -122,7 +215,7 @@ VA - KuschelRock 31 (2017) [FLAC|Lossless|WEB-DL|tracks] <Ballad, Pop, Rock, R&B
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360520.jpg" />
 </div>
 
 
@@ -151,7 +244,7 @@ Eros Ramazzotti - 9 (2003) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360404.jpg" />
 </div>
 
 
@@ -180,7 +273,7 @@ Karel Gott - 42 Nejvetsich Hitu (1991) 2CD, Compilation [FLAC|Lossless|image + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359060.jpg" />
 </div>
 
 
@@ -209,7 +302,7 @@ Luv' - Dance medley (1993) [FLAC|Lossless|image + .cue] <Pop, Europop, Medley>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358256.jpg" />
 </div>
 
 
@@ -238,7 +331,7 @@ Eros Ramazzotti - Eros 30 (2014) 2CD [FLAC|tracks + .cue]<Pop, Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358089.jpg" />
 </div>
 
 
@@ -267,7 +360,7 @@ VA - Decades Back To The 2010s (2021) Box Set, 3 CD [FLAC|Lossless|tracks + .cue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356771.jpg" />
 </div>
 
 
@@ -296,7 +389,7 @@ Fernando Express - Die Konige der Tanzpalaste (1998) [FLAC|Lossless|image + .cue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356264.jpg" />
 </div>
 
 
@@ -325,7 +418,7 @@ Belinda Carlisle - The Very Best Of (2015) 2CD [FLAC|image + .cue]<Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355718.jpg" />
 </div>
 
 
@@ -354,7 +447,7 @@ City and Colour - A Pill for Loneliness (2019) [FLAC|Lossless|WEB-DL|tracks] <In
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354594.jpg" />
 </div>
 
 
@@ -383,7 +476,7 @@ Mireille Mathieu - Cinéma (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson fr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354428.jpg" />
 </div>
 
 
@@ -412,7 +505,7 @@ Sandra - Close To Seven (1992) Japanese Edition [FLAC|Lossless|image + .cue] <Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354392.jpg" />
 </div>
 
 
@@ -441,7 +534,7 @@ Patricia Kaas - Patricia Kaas (2016) Deluxe [FLAC|Lossless|tracks] <Pop, Chanson
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354250.jpg" />
 </div>
 
 
@@ -470,7 +563,7 @@ Sandra - The Very Best Of (2016) 2CD, Compilation, Remastered [FLAC|Lossless|ima
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354107.jpg" />
 </div>
 
 
@@ -499,7 +592,7 @@ Pink (P!nk) - Beautiful Trauma (2017) Japan [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353441.jpg" />
 </div>
 
 
@@ -528,7 +621,7 @@ VA - NRJ Music Awards 2015 (2015) [FLAC|tracks +.cue]<Pop Compilation, Pop, Danc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353181.jpg" />
 </div>
 
 
@@ -557,7 +650,7 @@ Tegan and Sara - Hey, I'm Just Like You (2019) [FLAC|Lossless|tracks + .cue] <In
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352375.jpg" />
 </div>
 
 
@@ -586,7 +679,7 @@ ABBA - Gracias Por La Musica (1980) Japanese Edition (1986) [FLAC|Lossless|image
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351877.jpg" />
 </div>
 
 
@@ -615,7 +708,7 @@ Marc Lavoine - L Heure d ete (2005) [FLAC|image+.cue]<Pop,Chanson>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351695.jpg" />
 </div>
 
 
@@ -644,7 +737,7 @@ Enrique Iglesias - Greatest Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349719.jpg" />
 </div>
 
 
@@ -658,93 +751,6 @@ Enrique Iglesias - Greatest Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5A9C3E25E438563E9148A7DC5843C2DA4A6A804
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072802   (349468) от 14.11.2016
-
-VA - 538 Hitzone Best Of 2016 (2016) 2CD [FLAC|Lossless|image + .cue] <Pop, dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Mike Posner - I Took A Pill In Ibiza (Seeb Remix) [3:17]
-02. Matt Simons - Catch & Release (Deepend Remix) [3:15]
-03. Alvaro Soler - Sofia [3:31](   Читать дальше...   )Жанр: Pop, dance, top40Продолжительность: 02:33:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14074EAFC958B0B69C07E863A408D4D944C279E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953418   (349431) от 04.11.2015
-
-Tom Jones - Tom Jones And Friends (2005) [FLAC|tracks+.cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Jones & Tina Turner - Hot Legs
-02. Tom Jones & Donny Osmond - Girl From New York City
-03. Tom Jones & Dusty Springfield - Upside Down
-04. Tom Jones & Rita Coolidge - Something 'Bout You Baby I Like(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:403D2C73599F573A7C990DE34F5DBCD720714642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953390   (349429) от 04.11.2015
-
-Gerard Joling - Eye To Eye (1992) [FLAC|image +.cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Promises Of Love
-02.Can't Take My Eyes Off You
-03.Waiting For The Rain
-04.Love In The Wildest Places(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23A0CF2A657A485E2D657DA51E9AD871BCC94BAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

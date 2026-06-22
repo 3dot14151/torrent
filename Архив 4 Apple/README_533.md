@@ -1,3 +1,55 @@
+###  Публикация: 1622186   (234519) от 27.03.2023
+
+iCompta 6.0.65 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234519.jpg" />
+</div>
+
+
+###  Подробнее
+
+iCompta - простое, но мощное приложение для управления персональным финансами. Программа создана так, чтобы быть максимально простой в использовании, поддерживая множество функций, которые помогут вам отслеживать ваши деньги и начать экономить. Следите за своими доходами и расходами, контролируйте свои счета, оставайтесь в соответствии с вашим бюджетом.Тип издания: macOS SoftwareРелиз состоялся: 27.03.2023Разработчик: © 2006-2022 SAS LyricAppsПоддерживаемая ОС: macOS X 10.9 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C5E5B9BB13B2C7B0FD28D3BA2CA1D69B19E1FBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622078   (234467) от 27.03.2023
+
+iA Writer 6.0.7 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Задача правильного текстового редактора — помогать вам концентрироваться на тексте и поменьше отвлекаться на все остальное. Ребята из студии Information Architects правильно полагают, что отвлекать могут не только другие программы (всплывающие окна, звуковые сообщения и т.п.), но и интерфейс самого редактора. Чем меньше манипуляций требуется для работы с его окном, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.03.2023Разработчик: © 2010–2022 Information Architects GmbHПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE037B080F350F26826E0FD8C44961367E842A05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1639925   (234425) от 15.06.2023
 
 n-Track Studio Suite 9.1.8 Intel/ARM [Multi/Ru]
@@ -6,7 +58,7 @@ n-Track Studio Suite 9.1.8 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234425.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ SILKYPIX Developer Studio Pro 11E v.11.0.10.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234408.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ FonePaw Android Data Recovery for Mac 5.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234395.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234385.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ TechSmith Camtasia 2022 Studio 2022.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234371.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ Mp3tag 1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234370.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Path Finder 2155 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234352.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ Omni Downloader 1.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234349.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ Omni Toolbox 1.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234342.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ SyncBird Pro 3.9.7[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234336.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Athentech Perfectly Clear Video for Mac 4.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234328.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ Wondershare Recoverit for Mac 12.0.1.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234299.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ NCH DreamPlan Plus 8.09 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234295.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ TechSmith Camtasia 2022 Studio 2022.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234262.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ PCDJ DEX PRO 3.20.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234252.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ Magic Sort List 3.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234226.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ Integrity Plus 12.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234223.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ FinalShot 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234216.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ File List Export 2.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234208.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ A Better Finder Rename 11 v11.47 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234204.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ Typora for Mac 1.5.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234171.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ AnyMP4 Data Recovery 1.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234166.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ Cisdem Video Converter 7.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234159.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ Folder-Factory 7.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234145.jpg" />
 </div>
 
 
@@ -630,59 +682,6 @@ Folders Factory — сделай уникальными свои папочки 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13940A0F70A5EEDD59A484F6DDF3D6E99E47EBAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622894   (234131) от 30.03.2023
-
-Aiseesoft Mac Data Recovery 1.6.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aiseesoft Mac Data Recovery - это мощное и безопасное программное обеспечение для восстановления данных. Оно может помочь вам восстановить почти все удаленные / потерянные файлы, такие как фотографии, документы, электронные письма, аудио, видео и многое другое с компьютера, жесткого диска, флэш-накопителя, карты памяти, цифровой камеры и так далее.
-Aiseesoft Mac (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.03.2023Разработчик: © 2022 Aiseesoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48AB5E8427EFD19E7832F56E70CF768A39B8EDDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640575   (234121) от 18.06.2023
-
-Pro Microphone: Audio Recorder 1.4.13 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Студия звукозаписи и записи музыки. Для начинающих певцов или тех, кто хочет, чтобы их услышали - Pro Microphone. Сделайте свой голос громче. Пойте и сохраните все свои треки, выберите разные микрофоны под свое настроение. Профессиональный студийный микрофон всегда на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 09.05.023Разработчик: © 2021 Music Paradise, LLCПоддерживаемая ОС: macOS 10.13.2+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F39B3B689616A881B724169DDF29364CB0E8151A
 ```
 
 https://mybot314.ru/tekegram_catalog/

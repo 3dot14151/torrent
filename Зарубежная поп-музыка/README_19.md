@@ -6,7 +6,7 @@ Laura Branigan (Лора Брэниган) - Hold Me (1985) Atlantic, 7 81265-2,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785396.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Laura Branigan (Лора Брэниган) - Over My Heart (1993) Atlantic, 7567
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785393.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Laura Branigan (Лора Брэниган) - Memories (1978) 7", Single, Not On 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784986.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Laura Branigan (Лора Брэниган) - Gloria 2004 (2004) EP [MP3|320 Kbps
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784947.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ VA - Pop Dance Hits (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784773.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ VA - Smooth Love Songs (2018) [MP3|320 Kbps] <Pop, R&B, Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784654.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - 101 Love Songs (2018) [MP3|320 Kbps] <Pop, Soul, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784627.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VA - NOW 90's Generation Hits (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784511.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - NOW 80's Generation Hits (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784504.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ The Saturdays - On Your Radar (2011) Fascination, Polydor [MP3|320 Kbps] <Electr
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784106.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ The Saturdays Feat. Flo Rida - Higher (2010) Polydor, EP [MP3|320 Kbps] <Electro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784104.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ The Saturdays - Living For The Weekend (2013) Polydor [MP3|320 Kbps] <Electronic
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784103.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Catherine Clarnette - Wildcard (2017) [MP3|320 Kbps] <Alternative Pop, Dark Pop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784086.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Veronica Unlimited - Veronica Sound Shower (1981) LP [MP3|320 Kbps] <Electronic,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784081.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Radio Italia Love (2018) 2CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784076.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Smash Hits Love Songs (2018) 3CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784075.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Orlando Weeks - A Quickening (2020) [MP3|320 Kbps] <Indie Rock, Indie Pop, Singe
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783947.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Jehnny Beth - To Love is to Live (2020) [MP3|320 Kbps] <Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783914.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Dexter Wansel - 4 Albums (1976-1979) LP [MP3|320 Kbps] <Jazz-Funk, Soul, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783631.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ The Saturdays - Finest Selection: The Greatest Hits (2014) Polydor, Compilation 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783538.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VA - Sanremo (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783486.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Laura Branigan (Лора Брэниган) - The Best Of Laura Branigan (1988) A
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783484.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ VA - 100 Greatest Summer Party Songs 2020 [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783346.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ VA - 100 Greatest 60s: Golden Oldies From The Sixtie (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783332.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Shake - Shake (1977) LP [MP3|320 Kbps] <Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782961.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Laura Branigan (Лора Брэниган) - The Best Of Laura Branigan (1990) A
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782945.jpg" />
 </div>
 
 

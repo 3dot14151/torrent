@@ -6,7 +6,7 @@ Black Country, New Road - For The First Time (2021) [FLAC|Lossless|tracks + .cue
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027241.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Kings Of Leon - When You See Yourself (2021) [FLAC|Lossless|tracks + .cue] <Indi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026877.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Smashing Pumpkins - CYR (2020) [FLAC|Lossless|image + .cue] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026782.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Paper Kites - Collection 5 Albums (2013-2021) [FLAC|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026731.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Evanescence - The Bitter Truth (2021) Scene [FLAC|Lossless|tracks] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026545.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Serj Tankian - Elasticity (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025637.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Eskimo Joe - 6 Albums, 1 EP (1998 - 2013) [FLAC|Lossless|tracks + .cue]<Indie / 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025365.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Alter Bridge - AB III.5 (2010) Special Edition, Reissue, 2011, Roadrunner Record
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024779.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Alter Bridge - Blackbird (2007) [FLAC|Lossless|tracks + .cue] <Alternative Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024777.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ The Cranberries - 14 альбомов, 1 Box Set (1993 - 2019) 25 CD [FLAC|Lossl
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024467.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Guano Apes - Proud Like A God (1997) Reissue, 1998, Supersonic Records [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022600.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Evanescence - The Bitter Truth (2021) Japanese Edition [FLAC|Lossless|image + .c
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022590.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Guano Apes - Don't Give Me Names (2000) [FLAC|Lossless|tracks + .cue] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022465.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Guano Apes - Big In Japan (2000) Maxi-Single, Limited Edition [FLAC|Lossless|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022460.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Guano Apes - You Can't Stop Me (2003) Maxi-Single, Limited Edition [FLAC|Lossles
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022123.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Guano Apes - Break The Line (2004) Maxi-Single, Limited Edition [FLAC|Lossless|t
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022118.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Guano Apes - Live (2003) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021332.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Royal Republic - Club Majesty (2019) (Japanese Edition) [FLAC|Lossless|image + .
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021304.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ The Rasmus - Dead Letters (2003) 2xCD [FLAC|Lossless|tracks + .cue] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021215.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ The Rasmus - Black Roses (2008) Japanese Edition [FLAC|Lossless|tracks + .cue] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021206.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Guano Apes - Walking On A Thin Line (2003) [FLAC|Lossless|tracks + .cue] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021038.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Guano Apes - Lost (T)Apes (2006) B-Side, Compilation [FLAC|Lossless|tracks + .cu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021034.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ The Offspring - Let The Bad Times Roll (2021) [FLAC|Lossless|WEB-DL|tracks] <Pun
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020802.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ The Rasmus - Into (2001) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020643.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Evanescence ‎ - The Bitter Truth (2021) 2 CD, Deluxe Edition, Limited Edition 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020460.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Guano Apes - Planet Of The Apes (2004) Compilation [FLAC|Lossless|tracks + .cue]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019798.jpg" />
 </div>
 
 

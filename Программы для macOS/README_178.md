@@ -1,3 +1,108 @@
+###  Публикация: 1699539   (117786) от 13.02.2024
+
+Myary 2.5.2 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117786.jpg" />
+</div>
+
+
+###  Подробнее
+
+С Myary вы можете легко и быстро написать свой дневник, проектную документацию или хронику. Myary предлагает вам свободу создавать любые типы текстовых коллекций, которые будут храниться в хронологическом порядке.Тип издания: macOS SoftwareРелиз состоялся: 08.02.2024Разработчик: © Xelaton SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AD0B2065F5449A3518D4CBA9C89E3A9B5469F95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699528   (117785) от 13.02.2024
+
+EasyGantt Classic  4.3.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самая сильная сторона EasyGantt - это простота и надежность. Вы можете создавать диаграммы Ганта, не ломая голову. Мы сосредоточим наше внимание на функциях, которые на самом деле используют большинство менеджеров проектов. Кроме того, сгенерированные диаграммы визуально привлекательны. Одна картинка стоит тысячи слов.Тип издания: macOS SoftwareРелиз состоялся: 12.02 2024Разработчик: © 2023 xProline LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCAD6C9F0E32E32B1DB9EEEC2FAC41C8F41A9D53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699604   (117642) от 14.02.2024
+
+Native Instruments Komplete Kontrol 3.1.2 [Multi]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117642.jpg" />
+</div>
+
+
+###  Подробнее
+
+KOMPLETE KONTROL — это простой в использовании инструмент, который упорядочивает ваш рабочий процесс. Он упорядочивает все ваши инструменты, эффекты, пресеты, лупы и сэмплы, разумно сопоставляя все с вашим оборудованием, чтобы вы могли находить, воспроизводить и настраивать все свои звуки в одном месте. Этот плагин работает в любой DAW и без проблем работает с любым (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.02.2024Разработчик: © 2024 Native Instruments GmbHПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий, Французский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B8A8240962A45EE408C4626BF60A9B70B2545D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699600   (117615) от 14.02.2024
+
+Mellel 6 v.6.0.2 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mellel – продвинутый мультилингвистический текстовый редактор, созданный специально для студентов, писателей, журналистов и всех, кто хочет комфортно набирать текст.
+Mellel предлагает специальные инструменты для написания и оформления длинных документов. Mellel отличный выбор для работы с документами на арабском, персидском, иврите и сирийском языках. Но даже если (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.02.2024Разработчик: © 2002-2024 Mellel AAR LTDПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BECB93AB49DBDC13C9021EF966506EEEC4C88CE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700053   (117474) от 15.02.2024
 
 ACDSee Photo Studio 10 for Mac v.10.0.4 [En]
@@ -6,7 +111,7 @@ ACDSee Photo Studio 10 for Mac v.10.0.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117474.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ Find Any File (FAF) 2.4.2b7 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117458.jpg" />
 </div>
 
 
@@ -60,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117405.jpg" />
 </div>
 
 
@@ -86,7 +191,7 @@ RazorSQL 10.5.3 iNTEL/ARM [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117400.jpg" />
 </div>
 
 
@@ -112,7 +217,7 @@ Air Printer - Printer Server Pro for Mac 5.2.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117395.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ Pocket cleaner Pro 1.6.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117394.jpg" />
 </div>
 
 
@@ -166,7 +271,7 @@ TinkerTool System 8 v.8.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117390.jpg" />
 </div>
 
 
@@ -192,7 +297,7 @@ Vellum 3.6.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117373.jpg" />
 </div>
 
 
@@ -219,7 +324,7 @@ doubleTake 2.6.13 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117368.jpg" />
 </div>
 
 
@@ -245,7 +350,7 @@ Automize13 Enterprise for Mac 13.09 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117358.jpg" />
 </div>
 
 
@@ -271,7 +376,7 @@ AutoKrypt 13 for Mac 13.09 U2B [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117355.jpg" />
 </div>
 
 
@@ -297,7 +402,7 @@ LRTimelapse Pro 6 v.6.5.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117236.jpg" />
 </div>
 
 
@@ -324,7 +429,7 @@ SecuritySpy 5.5.10 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117209.jpg" />
 </div>
 
 
@@ -350,7 +455,7 @@ MiniMeters for Mac 0.8.17 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117181.jpg" />
 </div>
 
 
@@ -378,7 +483,7 @@ ProFind for Mac 1.25 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117171.jpg" />
 </div>
 
 
@@ -404,7 +509,7 @@ GraphicConverter 12 for Mac 12.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117156.jpg" />
 </div>
 
 
@@ -430,7 +535,7 @@ Sip Pro 3.3.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117155.jpg" />
 </div>
 
 
@@ -457,7 +562,7 @@ WeatherCat for Mac 3.2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117138.jpg" />
 </div>
 
 
@@ -483,7 +588,7 @@ Adguard for Mac 2.13.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117131.jpg" />
 </div>
 
 
@@ -509,7 +614,7 @@ NCH Express Burn Plus for Mac 12.02 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117050.jpg" />
 </div>
 
 
@@ -538,7 +643,7 @@ Smart Converter Pro 3 v.3.1.5 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117046.jpg" />
 </div>
 
 
@@ -565,7 +670,7 @@ Loop Mash Up Pro 1.2.13 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117025.jpg" />
 </div>
 
 
@@ -576,112 +681,6 @@ Loop Mash Up Pro 1.2.13 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E13F7AC04B10CD1ED602E4FF38A102D67D25DEA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700562   (116998) от 17.02.2024
-
-Smooze Pro 2.0.72 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smooze одушевляет ваш скролл и добавляет функциональность к вашей не оригинальной Apple мыши (прокрутки колеса мыши).Тип издания: macOS SoftwareРелиз состоялся: 16.02.2024Разработчик: © 2024 Segev SherryПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB8C83B55641D62784DC7926BFBBCB5C797B200
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700812   (116897) от 18.02.2024
-
-PingPlotter Pro for Mac 5.24.3.7253 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116897.jpg" />
-</div>
-
-
-###  Подробнее
-
-PingPlotter Pro – приложение, которое предоставляет пользователю широкий спектр возможностей в процессе сетевого мониторинга и устранения возникающих неполадок. Программа способна выводить графический отчет об эффективности маршрута, тестирует производительность сети в течение заданного периода времени и уведомляет пользователя при возникновении сбоев в работе. PingPlotter (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.06.2023Разработчик: © 1998-2024 Pingman Tools, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4412161750AF9359117C4FD7B2DA5B9D3CDDC66E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700838   (116893) от 18.02.2024
-
-Total Video Player for Mac 3.1.4 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total Video Playerr Pro является мощным, полнофункциональным HD медиа-плеером, поддерживающего разрешение 1080p, видео форматы - AVI, MKV, MP4, H264, Mov, FLV, WMV, 3GP и множество других популярных видео, а также аудио -  Mp3, Wma, Ogg, Mpeg-1,Mpeg-2 и  др. Нет проблем с воспроизведением Blu-ray, DVDs, VCDs, SVCDS и DVB. Нет необходимости устанавливать какие-либо (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.02.2024Разработчик: © 2024 eTinySoft Inc.Поддерживаемая ОС: macOS 10.13 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C86AC9A2803253F0592D223523FE93FBFE874F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700828   (116868) от 18.02.2024
-
-iTranslate 1.5.2 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116868.jpg" />
-</div>
-
-
-###  Подробнее
-
-iTranslate, наиболее популярный инструмент переводчиков на App Store, теперь и на вашем Mac.
-iTranslate для Mac позволяет вам получить доступ к более чем 80 языкам. Оно создано в качестве приложения строки состояния, всегда находится всего лишь в одном щелчке мышью или в одном нажатии клавиши и готово помочь вам решить любую проблему с переводом.
-iTranslate оптимизировано (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.03.2023Разработчик: © 2023 iTranslate GmbHПоддерживаемая ОС: macOS X 10.12 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:798C929FAED0B8AAB84C804B4EFBFB54EF335736
 ```
 
 https://mybot314.ru/tekegram_catalog/

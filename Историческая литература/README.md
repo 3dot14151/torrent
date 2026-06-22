@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1876304   (1073152) от 
+
+Б.М.Галеев | Советский Фауст [1] (1995) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мне довелось встречаться с Терменом, а потом и с Галеевым... Вот книга одного о другом. Не во всем персонаж сходен с прототипом - но о легендарных личностях всегда остаются только легенды...Жанр: биографияЯзык: русскийИздательство: Респ. ТатарстанФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C4B62638D34D9C30416A5259565D51FA087F62F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874875   (1072210) от 
 
 Книжная серия | Historia Rossica [157 книг] (1999-2025) [FB2, PDF, DJVU]
@@ -7,7 +33,7 @@ https://t.me/izofen
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072210.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071222.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069961.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068934.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068070.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067969.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067840.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067838.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067803.jpg" />
 </div>
 
 
@@ -237,6 +263,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867903   (1067202) от 27.04.2026
+
+Т.В. Семёнова (ред.) | Приключения алхимии в средневековой Европе (2025) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1067202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее издание — комментированный перевод с латинского языка средневекового рецептурного сборника Mappae clavicula ("Ключ к секретам мастерства"), ценного источника по истории технологий и материалов, а также идей, мифов и представлений, связанных с античным и средневековым ремеслом.
+В книге насчитывается почти три сотни глав, тематика которых чрезвычайно (   Читать дальше...   )Жанр: Историческая литература. История Средних веков. История химии. Протонаука.Перевод: Д.М. ОмельченкоИздательство: Санкт-Петербургский государственный университетФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65319054F40E9BCEDDF88E054EB6539B823BAF0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1866971   (1066619) от 
 
 Александр Солженицын | Архипелаг ГУЛАГ (2019) [PDF, FB2, EPUB, MOBI]
@@ -245,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066619.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066153.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065893.jpg" />
 </div>
 
 
@@ -317,6 +370,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863236   (1063630) от 03.04.2026
+
+В. Бондаренко | Сто великих героев Великой Отечественной войны (2025) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1063630.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Нет в России семьи такой, где б не памятен был свой герой». В годы Великой Отечественной войны 1941–1945 гг. наш народ проявил массовые героизм и мужество, отстаивая свою страну от нашествия чудовищного врага. Золотыми буквами вписаны в летопись войны имена прославленных полководцев в маршальских и генеральских погонах и рядовых бойцов, верных долгу офицеров и отважных (   Читать дальше...   )Жанр: Документальная, мемуарная и биографическая литератураИздательство: ВечеФормат: FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A08918B1A197603756F95E937BF6B105F29D3CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860681   (1062038) от 22.03.2026
 
 Анна Ермановская | Загадки истории. Древний мир (2007) [FB2]
@@ -325,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062038.jpg" />
 </div>
 
 
@@ -351,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062037.jpg" />
 </div>
 
 
@@ -378,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062036.jpg" />
 </div>
 
 
@@ -406,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062035.jpg" />
 </div>
 
 
@@ -432,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062034.jpg" />
 </div>
 
 
@@ -458,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061655.jpg" />
 </div>
 
 
@@ -484,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061454.jpg" />
 </div>
 
 
@@ -510,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061453.jpg" />
 </div>
 
 
@@ -536,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061452.jpg" />
 </div>
 
 
@@ -563,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061449.jpg" />
 </div>
 
 
@@ -589,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061152.jpg" />
 </div>
 
 
@@ -600,85 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E8D5E639A66737564A3C3748B548D3FDFBAF507
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857949   (1060312) от 10.03.2026
-
-Квинт Курций Руф | История Александра Великого Македонского (2023) [PDF, DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эпохальный труд Курция Руфа — это не просто великая книга о величайшем полководце в истории человечества, «История Александра Великого Македонского» — это ещё и своего рода роскошное зеркало, рельефно и многокрасочно отразившее давно ушедшие славные времена, породившие мощную волну преданий, пленяющих воображение и в наши дни.
-Читателю предлагается первый полный (   Читать дальше...   )Жанр: ИсторияИздательство: ЛадомирФормат: PDF, DJVUКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F863C6FF9DBCD195C8A05772F76D2F2AB591FD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857979   (1060192) от 08.03.2026
-
-Генрих Мориц Рихтер | Евгений Савойский. 2-е издание (2025) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060192.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Принц Евгений, славный рыцарь…». В нашей стране этого выдающегося полководца знают в основном благодаря старой солдатской песенке. Между тем, его роль в европейской истории весьма велика, а его опыт изучали многие выдающиеся полководцы более поздних эпох, включая Наполеона. Современник Петра Великого и Людовика XIV, Евгений Савойский участвовал в важнейших кампаниях (   Читать дальше...   )Жанр: ИсторияПеревод: Николай ВласовИздательство: Евразия (Интермедиатор)Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:181A6C6A7C7BF9576197DF31D877FB800B24863E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857977   (1060190) от 08.03.2026
-
-Макс фон Бён | Немецкие дворы XVIII столетия. 2-е издание (2025) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга немецкого исследователя Макса фон Бёна посвящена немецким дворам XVIII века. В ней подробно рассказывается о четырех наиболее значимых дворах того времени: императорском в Вене, прусском, саксонском и баварском. Красочные портреты правителей и их приближенных чередуются на страницах книги с описаниями придворных церемоний и праздников, распорядка жизни и организации (   Читать дальше...   )Жанр: ИсторияПеревод: Николай ВласовИздательство: Евразия (Интермедиатор)Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C62B82C473B6620D15E8BC3C8B5F528E38B51179
 ```
 
 https://mybot314.ru/tekegram_catalog/

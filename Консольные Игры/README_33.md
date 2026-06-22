@@ -1,3 +1,108 @@
+###  Публикация: 370367   (525559) от 01.08.2011
+
+Animal Crossing - Let's Go to the City [Wii] [PAL] [MULTI 5] (2008)
+
+>>Консольные Игры
+>>Wii, GameCube
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия симуляторов жизни для игроков всех возрастов - Animal Crossing - с огромным успехом выходила на многих платформах Nintendo, от Nintendo64 до Nintendo DS. Теперь продолжение великолепной серии пришло и на Wii! Animal Crossing: Let's Go to the City очень напоминает The Sims. Вы покупаете небольшой домик в городке, наполненном дружелюбными зверьками, и начинаете (   Читать дальше...   )Разработчик: Nintendo EADЖанр: life simulationЯзык интерфейса: Multi 5 (EN, FR, DE, ES, IT)Формат: Образ в формате
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DADDAD08A33E639B5436D81A16908FE46C09BC8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156150   (525435) от 11.08.2017
+
+Skullgirls 2nd Encore+ (2017) [PS3] [USA] 4.50 [Repack / 1.08 / 7DLC] [Multi]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525435.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Skullgirls игроки участвуют в битве между двумя командами, каждая из которых состоит от одного до трёх персонажей. Каждый игрок, управляя своей командой, пытается нокаутировать всех персонажей противника или сохранить наибольшее количество жизненной энергии среди всех участников своей команды к тому моменту, когда закончится время раунда. Сюжет кампании одиночной (   Читать дальше...   )Тип издания: RepackРазработчик: Lab Zero GamesЖанр: 2D файтингЯзык интерфейса: Английский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39717F5AA4C4AC0ED1BADEB4A4D66299744D34C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002166   (524882) от 17.09.2016
+
+Minecraft Story Mode: A Telltale Games Series. Episodes 1-8 (2015) [PS3] [EUR] 4.21 [Repack] [Ru/En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Minecraft: Story Mode предлагает отправиться в популярный мир, но уже в виде сюжетного приключения. Проект является не аддоном, а отдельной игрой, где сюжет, как и в других играх Telltale Games, развивается в зависимости от принимаемых игроком решений. Сюжет Minecraft: Story Mode, как сейчас принято, поделен на пять эпизодов, составляющих первый сезон. Протагонистом (   Читать дальше...   )Тип издания: RepackРазработчик: Telltale GamesЖанр: Action, AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDE2AA54FED768D6AE325BCE406E6B91A87F4FEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927423   (524781) от 13.08.2015
+
+Rise of the Guardians (2012) [PS3] [USA] 4.25 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда планета оказалась в опасности, герои волшебных историй и детских сказок объединились, чтобы защитить ее. Возьмите на себя роль одного из  персонажей — Северянина, Ледяного Джека, Кролика, Зубной Феи или  Песочного Человека — и выступите против злобного Кромешника и его  приспешников.
+Каждый из хранителей обладает собственным  арсеналом уникальных волшебных приемов, (   Читать дальше...   )Тип издания: LicenseРазработчик: Torus GamesЖанр: Action / Adventure / ArcadeЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E55630406148FE7510F491AE441B542E91A598B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927412   (524770) от 13.08.2015
 
 Puss in Boots: The Video Game (2011) [PS3] [USA] 3.70 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
@@ -6,7 +111,7 @@ Puss in Boots: The Video Game (2011) [PS3] [USA] 3.70 [Cobra ODE / E3 ODE PRO IS
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524770.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524696.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ Virtua Fighter 5: Final Showdown (2012) [PS3] [EUR] 3.00 [Cobra ODE / E3 ODE PRO
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523807.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ The Penguins of Madagascar: Dr. Blowhole Returns – Again! (2011) [PS3] [USA] 3
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523509.jpg" />
 </div>
 
 
@@ -113,7 +218,7 @@ Star Wars: The Clone Wars — Republic Heroes (2009) [PS3] [USA] 2.76 [Cobra ODE
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523050.jpg" />
 </div>
 
 
@@ -139,7 +244,7 @@ Kane & Lynch 2: Dog Days (2010) [PS3] [EUR] 3.30 [Cobra ODE / E3 ODE PRO ISO] [U
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523046.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ Madagascar: Escape 2 Africa / Мадагаскар 2 (2008) [PS3] [EUR] 2.42 [Co
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523045.jpg" />
 </div>
 
 
@@ -191,7 +296,7 @@ Viking: Battle for Asgard (2008) [PS3] [EUR] 2.10 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523039.jpg" />
 </div>
 
 
@@ -217,7 +322,7 @@ Battlefield 1 (2016) [PS4] [EUR] 6.72 [HEN] [License / 1.27] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521810.jpg" />
 </div>
 
 
@@ -243,7 +348,7 @@ Aliens: Colonial Marines (2013) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521463.jpg" />
 </div>
 
 
@@ -269,7 +374,7 @@ Sengoku Basara 4 Sumeragi (2015) [PS3] [JPN] [3.55] [Cobra ODE / E3 ODE PRO ISO]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521362.jpg" />
 </div>
 
 
@@ -298,7 +403,7 @@ Mafia II (2010) [PS3] [EUR] 3.30 [Cobra ODE / E3 ODE PRO ISO] [License] [Ru/Mult
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520923.jpg" />
 </div>
 
 
@@ -325,7 +430,7 @@ Darksiders: Wrath of War (2010) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518191.jpg" />
 </div>
 
 
@@ -351,7 +456,7 @@ SoulCalibur IV (2008) [PS3] [EUR] 2.35 [Cobra ODE / E3 ODE PRO ISO] [License] [E
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518105.jpg" />
 </div>
 
 
@@ -377,7 +482,7 @@ LEGO: Jurassic World (2015) [Xbox360] [Region Free] [FreeBoot] [License] [Ru/En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518093.jpg" />
 </div>
 
 
@@ -403,7 +508,7 @@ Lego Harry Potter: Years 1–4 (2010) [PS3] [EUR] 3.30 [Cobra ODE / E3 ODE PRO I
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518092.jpg" />
 </div>
 
 
@@ -430,7 +535,7 @@ Tekken Tag Tournament 2 (2012) [Xbox360] [Region Free] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517993.jpg" />
 </div>
 
 
@@ -456,7 +561,7 @@ SoulCalibur IV: Nude Version (2008) [PS3] [USA] 2.35 [Cobra ODE / E3 ODE PRO ISO
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517985.jpg" />
 </div>
 
 
@@ -482,7 +587,7 @@ Alice: Madness Returns (2011) [PS3] [USA] 3.40 [Repack / DLC] [Ru/En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517784.jpg" />
 </div>
 
 
@@ -508,7 +613,7 @@ Lost: Via Domus (2008) [PS3] [EUR] 2.10 [Cobra ODE / E3 ODE PRO ISO] [License] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517019.jpg" />
 </div>
 
 
@@ -534,7 +639,7 @@ Stranglehold (2007) [PS3] [EUR] 1.93 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517010.jpg" />
 </div>
 
 
@@ -560,7 +665,7 @@ The Smurfs 2 / Смурфики 2 (2013) [Xbox360] [RegionFree] [FreeBoot] [Lice
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514760.jpg" />
 </div>
 
 
@@ -573,114 +678,6 @@ Cмурфы - это маленькие синие гномы, придуман�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F4C6716A7A3517B1DB80D6832928ADA19ED0915
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930676   (514746) от 23.08.2015
-
-Serious Sam 3: BFE / Крутой Сэм 3 (2012) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крутой Сэм возвращается, чтобы напомнить о золотом веке классических шутеров! О времени, когда мужчины были мужчинами, укрытия искали лишь слабаки и трусы, а нажатие спускового крючка вызывало взрыв, от которого закладывало уши! Действие игры «Крутой Сэм 3» разворачивается до событий первой части культовой серии. Человечеству угрожают легионы инопланетной нечисти (   Читать дальше...   )Тип издания: ЛицензияРазработчик: WayForward и Ubisoft San FranciscoЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB00B52E7D01D357DD896161953CC846B8ACBC0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536022   (514229) от 18.08.2012
-
-Ninja Gaiden 3 [PS3] [RUS] [PAL] (2012)
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ninja Gaiden 3 — это экшн от третьего лица. Игра разработана студией Team Ninja и издана компанией Tecmo Koei для PlayStation 3
-Экшен Ninja Gaiden 3 был анонсирован на прошлой выставке Tokyo Game Show и до сих пор остается самой настоящей загадкой. Журнал Official  PlayStation Magazine взял интервью у главы студии Team Ninja Ёсуке Хаяси, который рассказал пару подробностей. Отвечая на вопрос, в каком ключе создается игра, Хаяси ответил: «Я не могу выразить свою мысль ясно, но это будет скорее революция, чем эволюция. Мы собираемся представить вам совершенно иной подход к этой игре. Так что не ждите, что мы начнем рассказывать о том, что в Ninja Gaiden 3 появилось новое оружие и новые способы расчленять врагов на части. Это вы можете ожидать от других игр, а мы хотим предложить нечто большее».
- В частности, разработчики решили сделать игру более реалистичной. «Мы решили полностью переделать дизайн. Ninja Gaiden всегда была очень яркой игрой. Но в Ninja Gaiden 3 мир будет куда более мрачным и реалистичным, чем ранее», (   Читать дальше...   )Жанр: Action Слэшер (Действие)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:213CEF1C6E0F29AAFFEA0FF8DBAD45E67AE30BD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536236   (514224) от 18.08.2012
-
-DiRT Showdown [PS3] [ENG] [PAL] (2012)
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Газуйте и проламывайте себе путь вокруг света в моторизованном хаосе DiRT Showdown! Атмосфера толчеи, социализированная игра и доступность — вот приметы этого гоночного турбобезумия. Вдавите педаль газа в пол и заслужите обожание неиствующих болельщиков на сверхэнергичных состязаниях в живописных местах. Хитрите, гоните, рвитесь к победе... а потом повторяйте это снова и снова.
-Проноситесь мимо соперников на форсаже, хулиганьте от души в огромных и диких парках для фристайла, разносите вдребезги препятствия и глядите на учиненные вами разрушения, на самом совершенном игровом движке. Помимо прочего, DiRT Showdown — самая «социализированная» игра компании Codemasters: многопользовательский режим с разделением экрана (Splitscreen), онлайн-гонка для 8 игроков, онлайновые и офлайновые быстрые командные игры, Showdown challenges (Система соревнований) и интеграция с YouTube — все это неотъемлемая часть игры. Спешите получить билет в ошеломляющий новый мир доступных всем экстремальных гонок, рожденный фантазией создателей (   Читать дальше...   )Тип издания: ЛицензияЖанр: Arcade / Racing (Cars) / 3DЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D367C534ACE539D76F96A013E6F8BEF3650EA901
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 374927   (514131) от 13.08.2011
-
-Sonic The Hedgehog 4 Episode I [WiiWare] [PAL] [MULTI 6] (2010)
-
->>Консольные Игры
->>Wii, GameCube
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514131.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Sonic the Hedgehog 4 Episode I» возвращается к старому 2D игровому процессу бокового скроллинга, который так любят фанаты Соника. Боковой скроллинг вернул Сонику классическое управление и движения любимые всеми, среди них Скоростной Удар и Прокат, добавлена Наводящаяся Атака.
-Стадии в «Sonic the Hedgehog 4 Episode I» проведут игрока через различные зоны, созданные в стиле былой эпохи. И, конечно же, в конце каждой зоны нас будет поджидать босс, любимый злодей каждого – всегда злой и хитрый – доктор Эгмен!Жанр: ПлатформерЯзык интерфейса: MULTI 6 (EN FR DE ES IT NL )Формат: wad
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C705972407FD176F5F2D201EFD704046C71824B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

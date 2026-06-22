@@ -1,3 +1,58 @@
+###  Публикация: 1623630   (245784) от 02.04.2023
+
+Serial Box & SerialSeeker 2023 - 04 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245784.jpg" />
+</div>
+
+
+###  Подробнее
+
+База серийных номеров проекта iSerial.
+В ней содержится информация по активации (серийные номера, информация о других методах активации) как для программ платформы PowerPC, так и Intel.
+База достаточно объемная и регулярно обновляется, так что Вы, наверняка, найдете в ней то, что ищете.Тип издания: macOS SoftwareРелиз состоялся: 01.04.2023Разработчик: ©2002-2021 The Three MonkeysПоддерживаемая ОС: OS X 10.5 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F3D21677710D600C92D3C6FCDE50310054FF37C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448505   (245781) от 18.02.2021
+
+OmniFocus Pro 3 v3.11.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Живите продуктивной жизнью в контексте с OmniFocus Pro для Mac. Разделяйте рабочие и личные вопросы с помощью контекстов, перспектив и фокуса. Игнорируйте маловажное, сосредоточитесь на том, что можно сделать прямо сейчас, и добивайтесь большего. Все это вы можете делать гораздо быстрее, чем раньше.
+Интерфейс OmniFocus создан «с чистого листа» и ориентирован на ваши (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.02.2021Разработчик: The Omni GroupПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC8118B0681B452AF5BF504BE7A9ADDA5369C048
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608106   (245779) от 29.01.2023
 
 RAW Power 3.4.12 [En]
@@ -6,7 +61,7 @@ RAW Power 3.4.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245779.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ Sensei 1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245760.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ Corporate Packs for Pages 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245758.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ IconFly 3.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245754.jpg" />
 </div>
 
 
@@ -114,7 +169,7 @@ ImageRanger Pro Edition 1.9.1.1841 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245750.jpg" />
 </div>
 
 
@@ -140,7 +195,7 @@ aText 2.40.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245739.jpg" />
 </div>
 
 
@@ -166,7 +221,7 @@ Memory PLUS 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245712.jpg" />
 </div>
 
 
@@ -192,7 +247,7 @@ Sublime Text Dev Build 4131 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245703.jpg" />
 </div>
 
 
@@ -219,7 +274,7 @@ System Dashboard 4.5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245690.jpg" />
 </div>
 
 
@@ -245,7 +300,7 @@ Invisible 2.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245662.jpg" />
 </div>
 
 
@@ -272,7 +327,7 @@ Deckset 2.0.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245661.jpg" />
 </div>
 
 
@@ -299,7 +354,7 @@ PullTube 1.7.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245652.jpg" />
 </div>
 
 
@@ -325,7 +380,7 @@ DiskCatalogMaker 8.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245639.jpg" />
 </div>
 
 
@@ -351,7 +406,7 @@ Nisus Writer Pro 3.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245629.jpg" />
 </div>
 
 
@@ -377,7 +432,7 @@ Whisk 2.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245623.jpg" />
 </div>
 
 
@@ -403,7 +458,7 @@ BlueHarvest 8 v8.0.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245612.jpg" />
 </div>
 
 
@@ -430,7 +485,7 @@ DxO PhotoLab 5 ELITE Edition 5.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245606.jpg" />
 </div>
 
 
@@ -457,7 +512,7 @@ OCRKit 16.9.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245592.jpg" />
 </div>
 
 
@@ -483,7 +538,7 @@ FoneDog Toolkit – iOS Data Recovery 2.1.52 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245583.jpg" />
 </div>
 
 
@@ -509,7 +564,7 @@ Easy Data Transform 1.22.0 CR2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245575.jpg" />
 </div>
 
 
@@ -535,7 +590,7 @@ Keep It 2.1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245567.jpg" />
 </div>
 
 
@@ -561,7 +616,7 @@ iStat Menus 6 v.6.63 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245557.jpg" />
 </div>
 
 
@@ -588,7 +643,7 @@ Nik Complete 4 Collection by DxO v4.3.4 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245547.jpg" />
 </div>
 
 
@@ -615,7 +670,7 @@ GM Right Mouse Pro 2.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245513.jpg" />
 </div>
 
 
@@ -626,59 +681,6 @@ GM Right Mouse Pro 2.5.6 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D8B3EFC3125ACC663070E959E5101026FEFE81D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566168   (245506) от 27.07.2022
-
-Alfred PowerPack 5.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лаунчер приложений для macOS. Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
-Вызвать окно Alfred очень просто — по умолчанию используется сочетание клавиш Alt+Space (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.07.2022Разработчик: © 2022 Running with Crayons LtdПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27945400E7F301BFCD34C205B3E7809A17392363
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566081   (245502) от 27.07.2022
-
-Blackmagic Design Fusion Studio 18.0.1 U2B [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет Fusion является самым передовым программным обеспечением для наложения визуальных эффектов, вещательной графики и 3D-анимации. За более чем 25 лет, прошедших с момента его появления, голливудские студии создали в нем свыше тысячи известных во всем мире блокбастеров. Мощный интерфейс программы построен на базе узлов, которые позволяют быстро и легко добавлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.07.2022Разработчик: © 2022 Blackmagic DesignПоддерживаемая ОС: macOS 11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9315B56638BF203A361495202B284D2094742B10
 ```
 
 https://mybot314.ru/tekegram_catalog/

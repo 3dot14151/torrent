@@ -1,3 +1,110 @@
+###  Публикация: 1511344   (789242) от 20.11.2021
+
+АСТ | Все необходимые слова английского языка для начальной школы (2018) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книжечка на пружинке отлично подойдет для занятий английским языком в начальной школе и может использоваться для самостоятельных занятий с детьми. С ее помощью ребенок выучит самые необходимые слова на начальном этапе обучения.
+С книжечками этой серии учеба превращается в увлекательную игру! Весело учись и играй с пользой.Жанр: Иностранные языки/Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0835A3EE032F7E9403121B8206C06AD0E3BB325
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511346   (789235) от 20.11.2021
+
+А. Грек (вед.ред.) | Английский язык. Всё самое нужное для начальной школы (2021) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Незаменимый помощник в изучении английского языка! В этой книге представлены основные правила английской грамматики и фонетики. Все правила даны схематично и кратко, что позволяет лучше усваивать материал. В пособии в наглядной форме изложены основные правила чтения английских букв и буквосочетаний, сопровождаемые заданиями и яркими иллюстрациями. В процессе обучения (   Читать дальше...   )Жанр: Иностранные языки/Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A52AFA7170E0396C086E10365DC63D3B53702015
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511317   (789202) от 20.11.2021
+
+АСТ | Английский язык. Тренажер по чтению (2018) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789202.jpg" />
+</div>
+
+
+###  Подробнее
+
+﻿Эта книжечка на пружинке отлично подойдет для занятий английским языком в начальной школе и может использоваться для самостоятельных занятий с детьми. С ее помощью ребенок научится правильно читать английские слова.
+С книжечками этой серии учеба превращается в увлекательную игру! Весело учись и играй с пользой.Жанр: Иностранные языки/Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:477CAF8C0C6F7D2857B2EEF856EC1C6C24F8B02A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511559   (788796) от 21.11.2021
+
+В.А. Державина | Англо-русский русско-английский словарь для начальной школы (2021) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это англо-русский русско-английский словарь нового поколения для начальной школы. Содержит наиболее употребительную лексику, необходимую для учащихся начальных классов.
+Заглавные слова снабжены современной транскрипцией. Транскрипция выполнена по учебному словарю британского издательства Macmillan. В русско-английской части переводы тоже сопровождаются транскрипцией. (   Читать дальше...   )Жанр: Иностранные языки/СловарьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0613C962076F21506A03FD1A4F43E820F85F3B88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511575   (788787) от 21.11.2021
 
 Ольга Журлова | Английский язык. Неправильные глаголы (2021) [PDF]
@@ -6,7 +113,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788787.jpg" />
 </div>
 
 
@@ -34,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788772.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788567.jpg" />
 </div>
 
 
@@ -86,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788470.jpg" />
 </div>
 
 
@@ -112,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788146.jpg" />
 </div>
 
 
@@ -138,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788106.jpg" />
 </div>
 
 
@@ -166,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788104.jpg" />
 </div>
 
 
@@ -193,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788101.jpg" />
 </div>
 
 
@@ -220,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788073.jpg" />
 </div>
 
 
@@ -246,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787687.jpg" />
 </div>
 
 
@@ -272,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787578.jpg" />
 </div>
 
 
@@ -298,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787550.jpg" />
 </div>
 
 
@@ -325,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787539.jpg" />
 </div>
 
 
@@ -351,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787513.jpg" />
 </div>
 
 
@@ -377,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787213.jpg" />
 </div>
 
 
@@ -403,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787187.jpg" />
 </div>
 
 
@@ -429,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787181.jpg" />
 </div>
 
 
@@ -455,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786959.jpg" />
 </div>
 
 
@@ -481,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786507.jpg" />
 </div>
 
 
@@ -507,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785594.jpg" />
 </div>
 
 
@@ -535,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785387.jpg" />
 </div>
 
 
@@ -561,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785354.jpg" />
 </div>
 
 
@@ -573,110 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E6179B2DB8723676B4F62F12D3FB2C3420BC89E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204170   (785352) от 04.02.2018
-
-Я.И. Перельман | Числа-великаны (1925) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785352.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге собраны увлекательные истории, вчитываясь в которые, совершенно не замечаешь, что каждая из них - интересная загадка! Познавательное пособие для юных математиков.Жанр: Познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AA197119A6DE3E1D2AC7A8C93473874AEB1523B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204150   (785279) от 04.02.2018
-
-Я.И. Перельман (сост.) | Одним росчерком (1940) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередная замечательная книга от известного Мастера Якова Исидоровича Перельмана - сборник задач по вычерчиванию фигур одной непрерывной линией.Жанр: Развивающее пособие, практикумФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38072B009EE4AA6B5ADFC73F6F90B5FDA96FFB8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204167   (785276) от 04.02.2018
-
-Я.И. Перельман | Физическая хрестоматия. Пособие по физике и книга для чтения [Часть 1] (1922) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель предлагаемой хрестоматии - пополнить и округлить элементарные сведения школьного учебника физики. Она представляет собою систематизованный подбор выдержек из сочинений большого числа специалистов - физиков, техников и натуралистов - современных и прежде живших. Подбирались отрывки, расширяющие, углубляющие или иллюстрирующие (примерами житейского или технического (   Читать дальше...   )Жанр: Познавательная литература, учебное пособиеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:664507C3C51BF2DFD5955BEDBF6AB234E997C888
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204204   (784904) от 05.02.2018
-
-Я.И. Перельман | Межпланетные путешествия [Издание десятое] (1935) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784904.jpg" />
-</div>
-
-
-###  Подробнее
-
-По форме изложения книга в основном тексте по-прежнему остается сочинением популярным. Ее цель - правильно ориентировать читателя, ознакомить с главными вопросами, рассеять предубеждение против осуществимости нового рода транспорта, не затушевывая в то же время стоящих на его пути трудностей. Чтение книги должно служить закладкой основ и базовых знаний для молодого (   Читать дальше...   )Жанр: Познавательная литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C51AE752FE81033A3119819C534EC89145D4C66
 ```
 
 https://mybot314.ru/tekegram_catalog/

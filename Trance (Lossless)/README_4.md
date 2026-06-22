@@ -6,7 +6,7 @@ Orbital ‎ - Orbital 2 (1993) [FLAC|Lossless|tracks + .cue] <Trance, Techno>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599897.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Chicane - Twenty (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance, House, Ambient>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599286.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Alternate High - Emotional Music on VERSE (2022) [FLAC|Lossless|WEB|tracks] <Upl
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591212.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Magic Island - Music For Balearic People Vol. 6 (Mixed by Roger Shah) (2015
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590385.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Professor Trance & The Energisers - Shaman's Breath (2002) [FLAC|Lossless|image 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585269.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Fragma - Toca (20th Anniversary Edition) (2022) [FLAC|Lossless|WEB|tracks] <Tran
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_584708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_584708.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Physical Dreams - Only Trance (2019) [FLAC|Lossless|WEB-DL|tracks] <Trance, Upli
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584092.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ E-Mantra - Somnium (2016) [FLAC|Lossless|WEB-DL|tracks|24Bit] <Goa Trance, Psy-T
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_581354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_581354.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Mark Sherry - Confirm Humanity (2019) [FLAC|Lossless|WEB-DL|tracks] <Tech Trance
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576329.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ VA - In Search Of Sunrise 14 (Mixed By Markus Schulz, Gabriel & Dresden and Andy
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575618.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ VA - Dream Dance Vol.85 (2018)3CD [FLAC|Lossless|tracks] <Trance, Progressive Tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572484.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VA - A State Of Trance 2022 (Mixed by Armin van Buuren) (2022) [FLAC|Lossless|CD
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571976.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ VA - In Search Of Sunrise 13.5 - Amsterdam (Mixed by Richard Durand with BT) (20
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571674.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Trance Energy 2017 (Mixed By ReOrder And Svenson & Gielen) (2017) [FLAC|Los
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568792.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Best of Melodic Vocal Trance Vol. 3 (2016) [FLAC|Lossless|tracks] <Trance, 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567093.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Vasily Dvortsov - Белая Ночь (2017) Single [FLAC|Lossless|WEB-DL|tracks
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565552.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Manuel Le Saux - First Light (2013) [FLAC|Lossless|WEB-DL]<Uplifting Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562347.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ B(if)tek - Sub-Vocal Theme Park (Acid Unravelled) (1996) [FLAC|Lossless|tracks +
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555934.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Orician - New Generation (2012) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552970.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Super8 & Tab - Reformation (2018) Armada Music [FLAC|Lossless|WEB-DL|tracks] <Up
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547028.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Aly & Fila - Quiet Storm (Extended Versions) (2013) [FLAC|Lossless|tracks] <Tran
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544655.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ VA - Future Sound Of Egypt 400 (Mixed By Aly & Fila, Standerwick & Bjorn Akesson
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537111.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ VA - Sensation Seekers Vol 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Uplifting Tra
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527145.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ VA - A State Of Trance: Ibiza 2018 (Mixed By Armin Van Buuren) (2018) [FLAC|Loss
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523576.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ VA - Costa - Baltic Wave (Extended Versions) (2018) [FLAC|Lossless|tracks] <Tran
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517103.jpg" />
 </div>
 
 
@@ -722,7 +722,7 @@ VA - Digitally Enhanced Volume Seven (Mixed by Farius & Elevven) (2022) [FLAC|Lo
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511486.jpg" />
 </div>
 
 

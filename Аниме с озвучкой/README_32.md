@@ -1,3 +1,83 @@
+###  Публикация: 640139   (456640) от 06.10.2016
+
+Devil Survivor 2 The Animation / Выжившие среди демонов 2 [2013, TV, 13 ep] HDTV Hi10p 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычным воскресным днем 18-летний Хибики Кудзэ возвращался с пробного экзамена, и тут лучший друг Дайти Сидзима рассказал про сайт «Никея», что рассылает мастерски смонтированные ролики, в которых твои знакомые якобы гибнут страшной смертью. ИТ-прогрессу давно никто не удивляется, да и друга надо уважить, потому у сайта появился новый подписчик. Вот только Хибики (   Читать дальше...   )Жанр: приключения, мистикаРежиссер: Киси СэйдзиПеревод: IndiСубтитры: ASS, Встроенные, Полные | НадписиФормат: MKVПродолжительность: 13 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE92C135200EFA202508787AF20F674910847E6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 704669   (455487) от 27.09.2013
+
+Muv-Luv Alternative: Total Eclipse / Total Eclipse / Полное затмение [2012, TV, 24] BDrip Hi10p 720p raw + rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455487.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1967 году лунная экспедиция впервые встретила «братьев по разуму». Огромные пришельцы перебили астронавтов, потом сокрушили лунную базу и в 1973 году оказались на Земле. Только крайним напряжением сил врагов, получивших имя БЕТА, удалось сдержать на границах Евразии, причем главную роль сыграли спешно созданные 20-метровые боевые роботы. Островная Япония, конечно, выиграла: теперь она, наряду с США и Россией - ведущая военная держава. Но что с того? В конце XX века стало ясно, что земляне лишь защищаются, и поражение – вопрос времени. Тем временем в Киото, в элитной школе пилотов учится Юй Такамура – наследница древнего самурайского рода, приближенного к Императору...
+
+Неизбежное случилось – БЕТА ворвались в Японию и стремительно двинулись к столице. Курсанты, еще не завершившие обучение, попали на фронт – в истории такое бывало множество раз. Такамура одна из немногих сумела выжить, в буквальном смысле не угодить в пасть захватчикам, обрести опыт и мастерство. И вот боевые успехи (и родственные связи) привели (   Читать дальше...   )Жанр: приключения, фантастика, мехаРежиссер: Инагаки ТакаюкиПродолжительность: ТВ, 24 серии по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D279A29D859630ED7F2F7C599C93420562D4D7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941895   (454968) от 30.09.2015
+
+Sakigake!! Otokojuku / Charge!! Men's School / Мужская школа, в атаку! [1988, TV, 34] DVDRip 480p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Otokojuku – школа для мальчиков. В нее вступают ученики с суровым нравом, хулиганы и те, кого выгнали из других школ. Таких обычно называют отбросами общества. Учителя школы во главе с Эдадзима Хеихати (Heihachi Edajima) воспитывают своих учеников в духе феодальной Японии, их цель – сделать из подопечных настоящих мужчин. Здесь все как в армии: подъем, «питательная» (   Читать дальше...   )Производство: Япония / Toei AnimationЖанр: комедия, школаРежиссер: Нисидзава НобутакаЯзык субтитров: Русский (отключаемый)Продолжительность: 34 серии по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC7E47729F8780B5F4D3A4480966A1AB55C5B4DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941873   (454965) от 30.09.2015
 
 Seikimatsu Kyuseishu Densetsu: Hokuto no Ken 2 / Fist of the North Star 2 / Кулак Северной Звезды [ТВ-2] [1987, TV, 43] DVDRip 480p raw+rus
@@ -6,7 +86,7 @@ Seikimatsu Kyuseishu Densetsu: Hokuto no Ken 2 / Fist of the North Star 2 / Ку
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454965.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ Seikimatsu Kyuseishu Densetsu: Hokuto no Ken / Ken, the Great Bear Fist / Кул
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454962.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ Hitsugi no Chaika: Avenging Battle / Чайка - принцесса с гроб
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454956.jpg" />
 </div>
 
 
@@ -86,7 +166,7 @@ Megalo Box | Мегалобокс [2018, TV, 13 из 13] HDTVRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454291.jpg" />
 </div>
 
 
@@ -112,7 +192,7 @@ Soten no Ken / Fist of the Blue Sky / Кулак Синего Неба [2006, TV
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452827.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ Koukaku Kidoutai 2.0 / Ghost in the Shell 2.0 / Призрак в доспеха
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452747.jpg" />
 </div>
 
 
@@ -165,7 +245,7 @@ Kotonoha no Niwa / The Garden of Words / Сад изящных слов [2013, M
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448438.jpg" />
 </div>
 
 
@@ -191,7 +271,7 @@ Arslan Senki / Сказания об Арслане [2015, TV-сериал, 25] 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448432.jpg" />
 </div>
 
 
@@ -217,7 +297,7 @@ Kotonoha no Niwa / The Garden of Words / Сад изящных слов [2013, M
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446262.jpg" />
 </div>
 
 
@@ -243,7 +323,7 @@ Shimoneta to Iu Gainen ga Sonzai Shinai Taikutsu na Sekai / Скучный ми�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446257.jpg" />
 </div>
 
 
@@ -269,7 +349,7 @@ Birthday Wonderland | The Wonderland | В стране чудес [2019, Movie] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444482.jpg" />
 </div>
 
 
@@ -295,7 +375,7 @@ Shokugeki no Souma / Food Wars! Shokugeki no Soma / Кулинарные пое�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444049.jpg" />
 </div>
 
 
@@ -321,7 +401,7 @@ Mahouka Koukou no Rettousei / The Irregular at Magic High School / Бездар�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444045.jpg" />
 </div>
 
 
@@ -347,7 +427,7 @@ Koukaku Kidoutai Stand Alone Complex | Ghost in the Shell: Stand Alone Complex |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444044.jpg" />
 </div>
 
 
@@ -373,7 +453,7 @@ Berserk / Берсерк [TV-2] [2016, TV, 12] WEB-DL 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443454.jpg" />
 </div>
 
 
@@ -399,7 +479,7 @@ Outbreak Company / Мятежная компания [2013, TV, 12 ep] BDRip Hi1
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439083.jpg" />
 </div>
 
 
@@ -425,7 +505,7 @@ Isekai Maou to Shoukan Shoujo no Dorei Majutsu / How Not to Summon a Demon Lord 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439024.jpg" />
 </div>
 
 
@@ -452,7 +532,7 @@ Naruto The Movie 10: The Last Naruto the Movie / Наруто последний
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437124.jpg" />
 </div>
 
 
@@ -478,7 +558,7 @@ Mahou Tsukai no Yome: Hoshi Matsu Hito / The Ancient Magus' Bride: Those Awaitin
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432004.jpg" />
 </div>
 
 
@@ -504,7 +584,7 @@ Hundred | Сотня [2016, TV, 12 из 12] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431317.jpg" />
 </div>
 
 
@@ -530,7 +610,7 @@ Shingeki no Kyojin: Lost Girls / Attack on Titan: Lost Girls / Атака Тит
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430371.jpg" />
 </div>
 
 
@@ -556,7 +636,7 @@ Juubee Ninpuuchou / Ninja Scroll / Манускрипт ниндзя [1993] BDRi
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425740.jpg" />
 </div>
 
 
@@ -590,7 +670,7 @@ Miru Tights | Созерцая колготки [2019, TV, 13 из 13] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424979.jpg" />
 </div>
 
 
@@ -602,84 +682,6 @@ Miru Tights | Созерцая колготки [2019, TV, 13 из 13] BDRip 108
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCA8CA14410704EDAE16AB66B44A6BF02005AE5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411714   (424626) от 26.09.2020
-
-Danshi Koukousei no Nichijou | Daily Lives of High School Boys | Повседневная жизнь старшеклассников [2012, TV, 12 эп. + 6 SP] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед нами зарисовки из жизни обычных японских старшеклассников, учащихся школы для мальчиков. Наших героев зовут Тадакуни, Хидэнори, Ёситакэ. В своей нелёгкой жизни они не решают проблемы вселенского масштаба, разве что эта вселенная зовётся их обычной жизнью. Что надо для счастья старшеклассникам? Конечно, где-нибудь поболтаться после школы, повалять от скуки дурака (   Читать дальше...   )Производство: Sunrise, ЯпонияЖанр: Повседневность, комедияРежиссер: Синдзи ТакамацуОзвучка: Двухголосая, трёхголосая, многоголосая закадроваяЯзык озвучки: Японский и русскийСубтитры: Полные (Продолжительность: 12 Эпизодов по 24 минуты; 6 Эпизодов по 3 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37B827D9336E4DFF2EB25819F15820A6C1956A46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394809   (424625) от 26.09.2020
-
-Lapis Re:Lights [TV-1] [2020, TV, 12 из 12] WEB-DL 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в городе Мармкестл, в котором в качестве энергии используется сверкающая пыль. Девушки, умеющие творить магию с помощью заклинаний и мелодий, зовутся здесь ведьмами. Жители обожают их за песни и за то, что они борются с монстрами. Главная героиня Тиара, мечтающая стать лучшей ведьмой на свете, отправляется поступать в школу ведьм Флора. «Я (   Читать дальше...   )Производство: Япония, студия Yokohama Animation LabЖанр: повседневность, музыкальныйРежиссер: Хата ХироюкиЯзык озвучки: Русский закадровый (Wakanim.tv)Субтитры: Русские надписи, РусскийПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C58ED661BB2990AE5EA6A0966407E7803B117BCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401335   (424624) от 26.09.2020
-
-Kanojo, Okarishimasu / Rent-A-Girlfriend / Девушка на час [2020, TV, 12 ep] WEB-DL 1080p Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кадзуя Киносита — двадцатилетний студент-неудачник. Ему всего раз довелось поцеловать свою девушку, и спустя буквально один месяц общения она его бросила. «Новые отношения? Никогда!» — подумал он про себя. В отчаянии юноша обратился к иному способу найти женскую компанию. И вот, в назначенный час его окликнули: «Ты Кадзуя, верно?». На него, улыбаясь, смотрела обворожительная (   Читать дальше...   )Жанр: комедия, романтикаРежиссер: Кога КадзуомиЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66A9BE71B26415D22C955AECE48E452FA9278EA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

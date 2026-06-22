@@ -1,3 +1,57 @@
+###  Публикация: 1210204   (778935) от 01.03.2018
+
+Картинки - Super mix wallpapers 275 [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превосходная коллекция обоев высокого качества
+An awesome collection of Wallpaper high qualityФормат: JPGРазрешение файлов: 1280x720-6048x4032
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C023C52F3D30D633F390B31062D108D541FB1939
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 332027   (778923) от 01.03.2018
+
+Открытки - Памятник-ансамбль "Героям Сталинградской битвы. Волгоград. Мамаев курган" (1968) [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издательство "Советский художник", Москва, 1968 год. Размер 13,8 х 8,7 см. Комплект открыток в  конверте.  Фото В. Бровко.
+К сожалению, в наличии только 13 открыток. Для всех открыток приведена также оборотная сторона. Собственный скан. Состояние открыток - хор/уд.Формат: JPGРазрешение файлов: 1020х1630
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EF5D322259F3FC970BAFD9FA51D896146F5AD34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210099   (778903) от 01.03.2018
 
 Современное искусство - Художник Константин Разумов (Razumov Konstantin) [JPG, PNG]
@@ -6,7 +60,7 @@
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778903.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778847.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778845.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778826.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778789.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778707.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778694.jpg" />
 </div>
 
 
@@ -188,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778323.jpg" />
 </div>
 
 
@@ -214,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778322.jpg" />
 </div>
 
 
@@ -240,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778313.jpg" />
 </div>
 
 
@@ -266,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778292.jpg" />
 </div>
 
 
@@ -293,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778277.jpg" />
 </div>
 
 
@@ -320,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778249.jpg" />
 </div>
 
 
@@ -347,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778191.jpg" />
 </div>
 
 
@@ -373,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778189.jpg" />
 </div>
 
 
@@ -399,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778165.jpg" />
 </div>
 
 
@@ -425,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778155.jpg" />
 </div>
 
 
@@ -451,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_778153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_778153.jpg" />
 </div>
 
 
@@ -477,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777827.jpg" />
 </div>
 
 
@@ -503,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777791.jpg" />
 </div>
 
 
@@ -529,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777749.jpg" />
 </div>
 
 
@@ -555,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777614.jpg" />
 </div>
 
 
@@ -581,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777602.jpg" />
 </div>
 
 
@@ -607,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777572.jpg" />
 </div>
 
 
@@ -618,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21D2BC7C1800C475D8057DD84EC2BD438C90B997
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211557   (777551) от 07.03.2018
-
-Обои - Сборник разнообразных обоев 2880x1800 #016 [JPG, PNG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка картинок на различную тематику.Формат: JPG, PNGРазрешение файлов: 2880x1800
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD4C6C32056011A5FF2ED1DD3A6B00C66E93D1A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211556   (777524) от 07.03.2018
-
-Обои - Desktop Wallpapers Full HD. Part (146) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ADE354A7BFCF5904FF164BF30C6EDB820264641
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 926138   (535041) от 09.08.2015
+
+Двадцать / Seumool (2015) DVDRip [H.264]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о трех друзьях, которым только что исполнилось двадцать. Это возраст, когда ты уже не ребенок, но еще и не взрослый. Можно делать все, что хочешь, и любить кого хочешь. А впереди столько возможностей, главное их не упустить…Производство: Корея ЮжнаяЖанр: Комедия, ДрамаРежиссер: Ли Бён ХонАктеры: Ким У Бин, Ли Чун Хо, Кан Ха Ныль, Чон Со Мин, Мин Хё Рин.Перевод: Многоголосый закадровыйПродолжительность: 01:55:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE551CF91B5CAFDCC4CF70D82CC204B647E18016
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558136   (533651) от 19.06.2022
+
+Дальнобойщики 6 / Torakku yaro: Otoko ippiki momojiro (Truck Guys 6: I Am Man of Honor) (1977) BDRip [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это шестой фильм о приключениях двух дальнобойщиков Момодзиро и Мацусита, которых сыграли гениальный Бунта Сугавара и его друг Кинъя Айкава. Два друга, дальнобойщика, любители подраться и побуянить, но это совсем не мешает им быть романтиками. На Кюсю Момодзиро снова влюбляется... на этот раз в красивую студентку колледжа Масако.Производство: Япония, Toei TokyoЖанр: Комедия, боевик, мелодрамаРежиссер: Норифуми СудзукиАктеры: Бунта Сугавара, Кинъя Аикава, Масуми Харукава, Томисабуро Вакаяма, Баттен Аракава, Юко Хама, Масааки Сакаи, Тэруо СимидзуПеревод: Авторский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E599BC124AF9F0D93B128BB5067148B590A1F0AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558174   (533550) от 19.06.2022
+
+Новые битвы без чести и жалости 3 / Shin jingi naki tatakai: Kumicho saigo no hi (Last Days of the Boss) (1976) BDRip [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последняя часть трилогии рассказывает о членах малой организации, которые постоянно подвергаются нападкам со стороны вышестоящей организации, в результате чего постоянно проливается напрасная кровь во время гангстерских войн. Незначительные споры между семьей Сакамото из Осаки (крупнейшей организации в Японии) и семьёй Кавахара из Амагасаки (дочерняя компания группировки (   Читать дальше...   )Производство: Япония, Toei CompanyЖанр: Боевик, драма, комедия, криминалРежиссер: Киндзи ФукасакуАктеры: Бунта Сугавара, Исао Бито, Такэо Тии, Такаси Эбата, Такуя Фудзиока, Сэидзо Фукумото, Эидзи Го, Масатака Ивао, Рюдзи Катагири, Такудзо КаватаниПеревод: Авторский (Александр Смиронов)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:30:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD6B688A21AF70C437CBA06BECE689B48E38EFAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926380   (533205) от 10.08.2015
 
 Истребитель «Чёрное облако» / Zerosen Kurokumo ikka / The Zero Fighter (1962) DVDRip
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533205.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533189.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532247.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532241.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532234.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532111.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532110.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532108.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532102.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532097.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532095.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531963.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531959.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531086.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531021.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530502.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530353.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530130.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530034.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529104.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529100.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529093.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529092.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C15EC79CF598B62FC3BC2C69FC74B22AD0378904
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 219012   (528892) от 06.07.2019
-
-Последнее испытание Шаолиня / Деревянные люди Шаолиня / Shao Lin mu ren xiang / Shaolin Wooden Men (1976) VHSRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой парень по прозвищу Молчун — сирота, который принимает обет молчания после гибели своего отца в от рук мастера боевых искусств. Проживая в шаолиньском монастыре, Молчун сближается с опасным заключённым, который обучает его секретным способам смертельного кунг-фу. Заметив упорство и стремление юноши стать мастером кунг-фу, мастера обучают его другим техникам (   Читать дальше...   )Производство: Тайвань, Гонконг / Lo Wei Motion Picture Company, Toei Central FilmsЖанр: боевикРежиссер: Чэнь Чи-ХваАктеры: Джеки Чан, Чун-ер Ланг, Кан Чин, Чан Пинъюй, И-Фэй Чанг, Лу Чианг Чао, Вэй Оун Чан, Кэм Чунг, Хсин Чин, Кан ХоПеревод: Одноголосый закадровыйПродолжительность: 01:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28FA7896F8B833C11B839E3E30537E5EB96CD74B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052692   (527206) от 15.09.2016
-
-Отступление с острова Кыска / Taiheiyô kiseki no sakusen: Kisuka (1965) DVDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527206.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1943 году, на алеутском острове Кыска был размещён небольшой контингент японских солдат. Когда поступила информация о готовящейся атаке превосходящих сил американцев, японский флот для эвакуации группировки с острова начал одну из самых отчаянных операций в истории.Производство: Япония, Toho CompanyЖанр: Военный, драмаРежиссер: Сейджи МаруямаАктеры: Тосиро Мифунэ, Со Ямамура, Макото Сато, Тадао Накамару, Сусуму Фудзита, Дзюн Тадзаки, Ко Нисимура, Такаси Симура, Акихико Хирата, Акира КубоПеревод: Одноголосый закадровый, любительскийПродолжительность: 01:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:032746556D10C39AA6BE8AF89FBECAF66E72C3F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053332   (525888) от 17.09.2016
-
-Охотники за головами / Bounty Hunters (2016) WEB-DLRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525888.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о пяти охотниках из Кореи, Китая, Гонконга и Таиланда, которые ловят преступников за деньги.Производство: КитайЖанр: Боевик, МелодрамаРежиссер: Син Тхэ РаАктеры: Ли Мин-хо, Уоллес Чун, Янь Тан, Jones Jeremy, Карена Нг, Луис ФаньПеревод: Двуголосый закадровый, любительский (SoftBox)Язык субтитров: КитайскийПродолжительность: 01:45:26Реклама: присутствуют аудио и видео вставки рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEFA49F2A987EA2E70D4DA4C0BF8E69A0E0DDE9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

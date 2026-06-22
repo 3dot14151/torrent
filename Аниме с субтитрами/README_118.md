@@ -1,3 +1,29 @@
+###  Публикация: 1822884   (104440) от 09.10.2025
+
+The Dark History of the Reincarnated Villainess | Tensei Akujo no Kurorekishi | Тёмное прошлое перевоплощённой злодейки [2025, TV, 1 из 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104440.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Конохи Сато тёмное прошлое. В конце концов, она провела свои подростковые годы, пиша самовлюблённые фэнтезийные романтические фанфики — свою Тёмную Историю. Но поскольку теперь она стала самой отвратительной злодейкой этой истории, помнить каждую деталь — вопрос жизни и смерти. Избежав первых нескольких флагов смерти, Сато внезапно оказывается в неведении, когда (   Читать дальше...   )Производство: студия Studio Deen / スタジオディーンЖанр: романтика, фэнтезиРежиссер: Сакурай ХироакиПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADC6CF5BB679F05741D97D368BA69E0A0231868F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756021   (103558) от 19.10.2024
 
 Kekkon Yubiwa Monogatari | Сказание об обручальных кольцах [2024, TV, 12 эп.] BDRip 1080p HEVC 10-bit raw
@@ -6,7 +32,7 @@ Kekkon Yubiwa Monogatari | Сказание об обручальных коль
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103558.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Aoki Honoo | Blue Flames | Холодное пламя (Синие огни) [19
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101428.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Kao ni Denai Kashiwada-san to Kao ni Deru Oota-kun / Inexpressive Kashiwada and 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101051.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Plus-sized Misadventures in Love! | Debu to Love to Ayamachi to! | Пышечк�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101044.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Ansatsusha de Aru Ore no Status ga Yuusha yori mo Akiraka ni Tsuyoi Noda / Мо�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101043.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Egao no Taenai Shokuba Desu. / A Mangaka's Weirdly Wonderful Workplace / Раб�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101042.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Spy x Family 3 / Семья шпиона 3 [2025, TV, 1 из ?] WEBRip 720p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100875.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Nageki no Bourei wa Intai Shitai 2 / Let This Grieving Soul Retire! 2 / Скор
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100874.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ Boku no Hero Academia Final Season | My Hero Academia Final Season | Моя ге
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100870.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ Tomodachi no Imouto ga Ore ni dake Uzai / My Friend's Little Sister Has It In fo
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100866.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ Fumetsu no Anata e Season 3 | To Your Eternity Season 3 | Для тебя, Бе�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100863.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ Mikata ga Yowa Sugite Hojo Mahou ni Tesshite Ita Kyuutei Mahoushi, Tsuihou Saret
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100856.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ Shinjite Ita Nakama-tachi ni Dungeon Okuchi de Korosarekaketa ga Gift "Mugen Gac
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100852.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ Mofa Gongzhu de Xiao Fannao | Who Made me a Princess | Однажды я ста�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100849.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ Chichi wa Eiyuu, Haha wa Seirei, Musume no Watashi wa Tensei-sha. / Мой от�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100846.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ Sawaranaide Kotesashi-kun / Don't Touch Kotesashi / Не трогай меня, 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100844.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ Alma-chan wa Kazoku ni Naritai / Alma-chan Wants to Be a Family! / Альма х
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100841.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ Ranma 1/2 (2025) | Ранма 1/2 (2024) [ТВ-2] [2025, TV, 1 из 12] WEBRip 7
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100838.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ Kikaijikake no Marie | Mechanical Marie | Механическая Мари [202
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100836.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ Toujima Tanzaburou wa Kamen Rider ni Naritai | Tojima Wants to Be a Kamen Rider 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100835.jpg" />
 </div>
 
 
@@ -542,7 +568,7 @@ Sanda | Санда [2025, TV, 1 из 12 эп.] WEBRip 1080p raw+eng
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100834.jpg" />
 </div>
 
 
@@ -570,7 +596,7 @@ Kekkon Yubiwa Monogatari II | Tales of Wedding Rings Season 2 | Легенда �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100735.jpg" />
 </div>
 
 
@@ -596,7 +622,7 @@ Ningen Kousaten / Human Crossing Point / Точки соприкосновени
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_99677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99677.jpg" />
 </div>
 
 
@@ -622,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94704.jpg" />
 </div>
 
 
@@ -648,7 +674,7 @@ Bukiyou na Senpai. / My Awkward Senpai / Неумелый сэмпай [2025, TV
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91314.jpg" />
 </div>
 
 
@@ -659,32 +685,6 @@ Bukiyou na Senpai. / My Awkward Senpai / Неумелый сэмпай [2025, TV
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3D5954ECD77D1F6EFA47F66068FF1DD6293E666
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821756   (91313) от 03.10.2025
-
-Watashi o Tabetai, Hitodenashi / This Monster Wants to Eat Me / Этот монстр хочет меня съесть [2025, TV, 1 из 13] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старшеклассница Хинако живёт одно в приморском городке и обладает уникальной особенностью: невероятно аппетитным (в буквальном смысле) телом, которое так и манит местных монстров-людоедов. Но у Хинако есть защитница — русалка Щиори, которая однажды вышла к ней из моря. Впрочем, Щиори оберегает школьницу отнюдь не из благородных побуждений: она просто ждёт, когда (   Читать дальше...   )Жанр: романтика, юри, драма, мистика.Режиссер: Кудзуя НаоюкиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 13 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EA8CD6DA54A771501CB425E2D69666CE8EAAA7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

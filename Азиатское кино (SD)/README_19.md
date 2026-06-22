@@ -1,3 +1,82 @@
+###  Публикация: 1117938   (814624) от 24.03.2017
+
+2012: Гибель Империи / Nihon chinbotsu (2006) HDTVRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учёные вычислили, что Япония уйдёт под воду в течение сорока лет из-за того, что тектоническая плита, находящаяся под Японским архипелагом постепенно перемещается на запад. Однако доктор Тадокоро, который возглавляет группу по исследованию океана, вычисляет, что это произойдёт через 338,58 дней.
+Он показывает результаты своих исследований Премьер-министру и другим. (   Читать дальше...   )Производство: ЯпонияЖанр: Фантастика, триллер, драма, приключенияРежиссер: Синдзи ХигутиАктеры: Цуёси Кусанаги, Ко Шибасаки, Эцуси Тоёкава, Мао Даичи, Митсухиро Оикава, Маюко Фукуда, Хидеко Йошида, Акира Эмото, Дзюн Кунимура, Кодзи Исидзака ...Перевод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 02:14:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AC04D0E718CA7814B9AD7383EFA8CD14DDEF0D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504208   (814061) от 22.10.2021
+
+Дальнобойщики 2 / Torakku yaro: Bakuso Ichibanboshi / Trucker Yaro II The Wild Trucker (1975) HDRip [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй из десяти фильмов, рассказывающих о беззаботном приключении двух водителей грузовиков. Момодзиро (Бунта Сугавара) и его лучший друг Мацусита (Кинъя Айкава) отправляются в путь на своих грузовых автомобилях, впечатляя друг друга своими навыками быстрой езды и уклонения от полиции при перевозке товаров по всей стране. Случайные встречи с людьми на этом пути (   Читать дальше...   )Производство: Япония, Toei TokyoЖанр: БоевикРежиссер: Норифуми СудзукиАктеры: Бунта Сугавара, Кинъя Аикава, Масуми Харукава, Сидзуэ Абе, Сакура Камо, Кёко Окада, Тэруо Симидзу, Каяко СоноПеревод: Авторский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:36:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1088DB23235386B2A1D949718B3694D6BD562F95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383388   (811416) от 15.05.2020
+
+Китайский лётчик / Zhong guo ji zhang (2019) BDRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811416.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 мая 2018 года на внутреннем рейсе компании «Сычуаньские авиалинии» на высоте чуть меньше 10 километров пассажирский самолёт теряет одно из ветровых стёкол. Происходит разгерметизация кабины, одного из пилотов чуть не утягивает наружу, сквозняк и шум стоят такие, что пилоты не слышат по радио голоса диспетчеров. И вдобавок из-за сильных вибраций самолёта показания (   Читать дальше...   )Производство: Китай / Bona Film Group, Alibaba Pictures, Huaxia Film DistributionЖанр: Биография, боевик, триллерРежиссер: Эндрю ЛауАктеры: Чжан Ханьюй, Охо Оу, Ду Цзян, Юань Цуань, Чжан Тяньай, Ли Цинь, Чжан Ямэй, Ян Цижу, Гао Гэ, Хуан ЧжичжунПеревод: Двуголосый любительский (Колобок)Субтитры: Русские (forced), английские - отдельными файламиПродолжительность: 01:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33389CB7632E34B5E64981E7020575D1819E859E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383437   (811292) от 15.05.2020
 
 Время охоты / Sanyangeui sigan / Time to Hunt (2020) WEB-DLRip [DVO]
@@ -6,7 +85,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811292.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811075.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809619.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809209.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808179.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808170.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808125.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807615.jpg" />
 </div>
 
 
@@ -215,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_807475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_807475.jpg" />
 </div>
 
 
@@ -241,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806189.jpg" />
 </div>
 
 
@@ -267,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804103.jpg" />
 </div>
 
 
@@ -293,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804071.jpg" />
 </div>
 
 
@@ -319,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802726.jpg" />
 </div>
 
 
@@ -345,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802620.jpg" />
 </div>
 
 
@@ -371,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801880.jpg" />
 </div>
 
 
@@ -397,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801458.jpg" />
 </div>
 
 
@@ -423,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801413.jpg" />
 </div>
 
 
@@ -449,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800904.jpg" />
 </div>
 
 
@@ -475,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800882.jpg" />
 </div>
 
 
@@ -501,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800268.jpg" />
 </div>
 
 
@@ -527,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800205.jpg" />
 </div>
 
 
@@ -553,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799566.jpg" />
 </div>
 
 
@@ -579,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799293.jpg" />
 </div>
 
 
@@ -590,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBDA8EA66FA19538DD6B0B85DD2ECC2A293F1F92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506865   (798943) от 02.11.2021
-
-Француженка / Peurangseu yeoja / A French Woman (2019) WEB-DLRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798943.jpg" />
-</div>
-
-
-###  Подробнее
-
-40-летняя кореянка Ми-ра живёт во Франции уже 20 лет. После развода с французским мужем она решает посетить Корею и встретиться со старыми друзьями, а там происходит немыслимое - Ми-ра вдруг переносится на 20 лет назад и оказывается на прощальной вечеринке в честь собственного отъезда. “Француженка” - фильм о женщине, которой нигде нет места, смешивающий драму, мистику (   Читать дальше...   )Производство: Южная Корея, Lotte Entertainment, Invent StoneЖанр: Драма, фантастикаРежиссер: Ким Хи-джонАктеры: Ким Хо-джон, Ким Джи-ён, Ким Ён-мин, Рю Абель, Александр Гансе, Пэк Су-джан, Ким Е-ын, Сон Ён-гю, Чон Ун-джон, Ким Гым-сунПеревод: Двухголосый любительский (АрхиAsia)Субтитры: отсутствуютПродолжительность: 01:28:56Реклама: Видеоряд содержит в верхнем правом углу логотип РГ АрхиAsia
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7F8D901E55F5ACBA5F0206CB9395789F021E386
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507199   (798716) от 03.11.2021
-
-Дальнобойщики 3 / Torakku yaro: Bokyo Ichibanboshi / Truck Guys 3: Truckstar Goes To Hokkaido (1976) BDRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий из десяти фильмов, рассказывающих о беззаботном приключении двух водителей грузовиков. Момодзиро (Бунта Сугавара) и его лучший друг Мацусита (Кинъя Айкава) отправляются в путь на своих грузовых автомобилях, впечатляя друг друга своими навыками быстрой езды и уклонения от полиции при перевозке товаров по всей стране. Случайные встречи с людьми на этом пути (   Читать дальше...   )Производство: Япония, Toei TokyoЖанр: БоевикРежиссер: Норифуми СудзукиАктеры: Бунта Сугавара, Кинъя Аикава, Масуми Харукава, Ёко Симада, Санаэ Цутида, Тэруо Симидзу, Титосе СекакуяПеревод: Авторский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07FD4DF061C689917F5F19EBA90DA0FF7FA15A23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507726   (798256) от 05.11.2021
-
-Француженка / Peurangseu yeoja / A French Woman (2019) WEB-DLRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798256.jpg" />
-</div>
-
-
-###  Подробнее
-
-40-летняя кореянка Ми-ра живёт во Франции уже 20 лет. После развода с французским мужем она решает посетить Корею и встретиться со старыми друзьями, а там происходит немыслимое - Ми-ра вдруг переносится на 20 лет назад и оказывается на прощальной вечеринке в честь собственного отъезда. “Француженка” - фильм о женщине, которой нигде нет места, смешивающий драму, мистику (   Читать дальше...   )Производство: Южная Корея, Lotte Entertainment, Invent StoneЖанр: Драма, фантастикаРежиссер: Ким Хи-джонАктеры: Ким Хо-джон, Ким Джи-ён, Ким Ён-мин, Рю Абель, Александр Гансе, Пэк Су-джан, Ким Е-ын, Сон Ён-гю, Чон Ун-джон, Ким Гым-сунПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:28:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFF611DD544280693A45368E6CBFBD794F8EABB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1371214   (892127) от 30.03.2020
-
-The Oscar Peterson Trio - Canadiana Suite 1964 (2008) Limelight [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ballad To The East [4:08]
-02. Laurentide Waltz [5:21]
-03. Place St. Henri [3:58]
-04. Hogtown Blues [3:41](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:760AFD4FF25ACBF99437FCDAB9496E1B9C1697F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370941   (891886) от 30.03.2020
 
 Roomful Of Blues - In A Roomful Of Blues (2020) [FLAC|Lossless|tracks+ .cue] <Blues>
@@ -35,7 +6,7 @@ Roomful Of Blues - In A Roomful Of Blues (2020) [FLAC|Lossless|tracks+ .cue] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891886.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Budda Power Blues - Live 2019 (2020) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891878.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Albert Cummings - 8 Albums (1999 - 2020) [FLAC|Lossless|tracks + .cue|image + .c
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891674.jpg" />
 </div>
 
 
@@ -121,7 +92,7 @@ Charlie Shavers - The Most Intimate (1955) Remaster, 2014, Solid Records[FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891664.jpg" />
 </div>
 
 
@@ -150,7 +121,7 @@ Freddie Hubbard - Keystone Bop: Sunday Night (1981) 1994, Prestige[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891662.jpg" />
 </div>
 
 
@@ -179,7 +150,7 @@ Brother Jack McDuff - Tobacco Road (1966) Remaster, 2012, Warner[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891658.jpg" />
 </div>
 
 
@@ -208,7 +179,7 @@ Freddie Hubbard - Sweet Return (1983) 2001, Collectables[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891652.jpg" />
 </div>
 
 
@@ -237,7 +208,7 @@ Nicki Parrott - Sentimental Journey (2015) [FLAC|Lossless|image + .cue] <Contemp
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891578.jpg" />
 </div>
 
 
@@ -266,7 +237,7 @@ Nicki Parrott - Angel Eyes (2014) [FLAC|Lossless|image + .cue] <Contemporary Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891571.jpg" />
 </div>
 
 
@@ -295,7 +266,7 @@ Blurt - Live at Oto (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz Rock, Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891424.jpg" />
 </div>
 
 
@@ -324,7 +295,7 @@ Flora Purim - Stories To Tell (1974) 2003, Original Jazz Classics[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891421.jpg" />
 </div>
 
 
@@ -353,7 +324,7 @@ Dag Arnesen Trio - Pentagon Tapes (2017) [FLAC|Lossless|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891420.jpg" />
 </div>
 
 
@@ -382,7 +353,7 @@ The Dirtboxwailers - The Dog Day Afternoon Demo (2013) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891418.jpg" />
 </div>
 
 
@@ -411,7 +382,7 @@ Dale Alan Niehaus and Bad Mojo - Rollin' Down to Memphis (2015) [FLAC|Lossless|W
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891412.jpg" />
 </div>
 
 
@@ -440,7 +411,7 @@ The Fabulous Thunderbirds - The Essential Fabulous Thunderbirds (1991) [WavPack|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891407.jpg" />
 </div>
 
 
@@ -469,7 +440,7 @@ Sadao Watanabe - Birds of Passage (1987) [FLAC|Lossless|tracks + .cue] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890958.jpg" />
 </div>
 
 
@@ -498,7 +469,7 @@ Jack Jezzro - Best Of Green Hill Music The 50s Collection (2021) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890820.jpg" />
 </div>
 
 
@@ -527,7 +498,7 @@ VA - Too Late, Too Late Blues (1993-1999) 13 CD /Document Records/ [MP3|320 кб
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890757.jpg" />
 </div>
 
 
@@ -556,7 +527,7 @@ Johnnie Red & The Roosters - In the Red Zone (2021) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890539.jpg" />
 </div>
 
 
@@ -585,7 +556,7 @@ Rob Alley - Also-Ran Bluesman (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890538.jpg" />
 </div>
 
 
@@ -614,7 +585,7 @@ Rachael King - The Fires In My Head (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890534.jpg" />
 </div>
 
 
@@ -643,7 +614,7 @@ Vidar Busk & His True Believers - Civilized Life (2021) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890526.jpg" />
 </div>
 
 
@@ -672,7 +643,7 @@ Robert Jon & the Wreck - Shine a Light on Me Brother (2021) [FLAC|Lossless|WEB-D
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890481.jpg" />
 </div>
 
 
@@ -701,7 +672,7 @@ Tas Cru - Broke Down Busted Up (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890416.jpg" />
 </div>
 
 
@@ -730,7 +701,7 @@ Ghost Hounds - A Little Calamity (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890398.jpg" />
 </div>
 
 
@@ -744,6 +715,35 @@ Ghost Hounds - A Little Calamity (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E36D67EF072472ECDF94B350BCB7CBF3D83331B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371513   (890200) от 31.03.2020
+
+Oscar Peterson Trio - I Got Rhythm 1945 - 1947 (1998) Giants Of Jazz [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back Home Again In Indiana [3:14]
+02. Margie [2:45]
+03. I Surrender Dear [3:24]
+04. I Don't Stand A Ghost Of A Chance With You [3:08](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1510AD1261168E28C09D9AE7502FD4FA15C27EC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

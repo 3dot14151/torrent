@@ -1,3 +1,55 @@
+###  Публикация: 1052906   (527305) от 15.09.2016
+
+Discovery: Кто подставил Иисуса? / Who Framed Jesus? (2010) SATRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из величайших загадок всех времен: кто в действительности несет ответственность за смерть Иисуса? Для выявления виновных мы изучаем движущие мотивы основных подозреваемых.Телекомпания: США, Discovery WorldЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 01:28:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3FBE9E3AC16592CD025FA6C11BC82EA077932B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053490   (526032) от 17.09.2016
+
+Discovery: Неизвестная история Египта / The Hidden History of Egypt (2001) SATRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Египет - земля фараонов, пирамид, колоссальных монументов и огромных древних храмов. Но известный телеведущий Терри Джонс увлекает зрителей в удивительное путешествие в повседневную жизнь простых людей, которые жили три тысячи лет назад. Как они одевались, что ели и пили, как работали, каковы были взаимоотношения мужчин и женщин, для чего накладывали грим? Все это (   Читать дальше...   )Телекомпания: США, Discovery ChannelЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89A90B188C8AF65B5DB5017B1BC2BA314DF63078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920033   (522285) от 16.08.2015
 
 Discovery. Пешком вдоль Нила / Walking the Nile (2015) HDTVRip (сезон 1, серия 1-4 из 4)
@@ -6,7 +58,7 @@ Discovery. Пешком вдоль Нила / Walking the Nile (2015) HDTVRip (�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522285.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Discovery. Фальсификация: Дональд Трамп / Donald Trump:
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521818.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Discovery. Византия: Утраченная Империя / Byzantium: Th
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520840.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Discovery: Путешествие в Малайзию / Passage To Malaysia: Int
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520671.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ Discovery: Хроники Эйфелевой башни / La Legende Vraie de la
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520226.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ Discovery: Аляска. Семья из леса / Alaskan Bush People (2014) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520203.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Discovery: Человеческое Тело: Грани Возможного / 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519872.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ Discovery. Прирожденные короли / Brothers in Blood: The Lions 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519166.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ Discovery. Возвращение суперзмеи-людоеда / Devoured: 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518075.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ Discovery: Пираты / Pirates (1998) DVDRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517686.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Discovery. Челюсти наносят ответный удар / Jaws Strike
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516841.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ Discovery: Секреты и Заговоры / Codes and Conspiracies (2014) SA
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516204.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ Discovery: Секреты и Заговоры / Discovery: Codes and Conspiracie
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516151.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ Discovery. Вот это странно Корабль-призрак / Weird or
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516141.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ Discovery. Вот это странно. Кокаиновые мумии / Weird
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516135.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ Discovery. Гигантские мечи / Big Giant Swords (2015) HDTVRip (1 с
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514839.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ Discovery. Гигантские мечи / Big Giant Swords (2015) HDTV [H.264/7
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513794.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ Discovery. Нашествие гигантских медуз / Attack of The Gi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513727.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ Discovery: Джек Потрошитель. Первый серийный уби
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509719.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ Discovery: Призрак большой белой / Great Whaite Abyss (2018) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506829.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ Discovery. Сквозь червоточину с Морганом Фримен�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504039.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503704.jpg" />
 </div>
 
 
@@ -573,6 +625,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 233915   (503681) от 06.09.2010
+
+Discovery: В логово драконов / Into the Dragon's Lair (2010) SATRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_503681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: документальныйФормат: AVI (XviD)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932921   (499343) от 08.09.2015
 
 Discovery. Сейчас рванёт / Fire in the Hole (2015) HDTVRip (1-5 серии из 5)
@@ -581,7 +659,7 @@ Discovery. Сейчас рванёт / Fire in the Hole (2015) HDTVRip (1-5 се
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499343.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ Discovery. Сейчас рванёт / Fire in the Hole (2015) HDTVRip (1-5 се
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9F2D45C102FA338220ECB672ED61B358BC191C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926566   (499092) от 08.09.2015
-
-Discovery. Сейчас рванёт / Fire in the Hole (2015) HDTVRip  [H.264/720p-LQ] [1-5 серии из 5]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам нужен хороший взрыв? Мастер-пиротехник Мэтт Барнетт готов прийти на помощь! Клиенты со всего мира обращаются к нему с самыми невероятными просьбами – Мэтту приходится взрывать бомбы времен Второй мировой войны, метамфетаминовые лаборатории, а также устраивать грандиозные салюты, от которых захватывает дух. Каждый новый заказ – будто испытание, но Барнетт проходит (   Читать дальше...   )Телекомпания: DiscoveryЖанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:44:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B412B5318FDBB892AB74E61759762D95265E3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539751   (498847) от 02.09.2012
-
-Странный секс (сезон 3, серии 1-10 из 10) / Strange Sex (2011-2012) TVRip
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498847.jpg" />
-</div>
-
-
-###  Подробнее
-
-То, что происходит в постели, обычно знают только двое, однако герои этой многосерийной программы решили рассказать о своих тайнах, чтобы найти путь к гармоничному сексу. Они испытывают странные влечения, у них бывают странные привычки – и можете поверить, что таких странных историй вы еще не слышали.Жанр: Документальный, ТелепередачаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:00 и 10 х ~ 00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8ACA2992F695D3E33DF9FA7AFF4595073E2546B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540746   (498112) от 03.09.2012
-
-Охотники за ураганом / Storm Chasers (2008) SATRip
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это место называют "Аллей ураганов". Каждый год, весной, на средний запад америки приезжает команда рижессеров и ученых, чтобы проследить и описать одно из самых страшных погодных явлений на планете, используя все современные технологии. Они стремятся попасть в самое сердце торнадо в поисках сведений, которые могут быть использованы для спасения сотен жизней, а также сделать снимок из его эпицентра.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62F830591A4AE0A09CDB5237ACADD984BEC0CF2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

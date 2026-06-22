@@ -6,7 +6,7 @@ Prima Doll / Прима-кукла [2022, TV, 12] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243756.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Fate/Grand Carnival | Судьба: Великий карнавал [2021, OVA, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243076.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Black Fox | Чёрная лиса [2019, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_243008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243008.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Hanebado! | Бадминтон Ханэсаки [2018, TV, 13 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242413.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Kaitou Queen wa Circus ga Osuki | Mirage QUEEN Prefers Circus | Королева
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242366.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Oushitsu Kyoushi Haine | The Royal Tutor | Королевский репетит
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241462.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Eiyuu Ou, Bu o Kiwameru Tame Tenseisu: Soshite, Sekai Saikyou no Minarai Kishi |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240061.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Tensei Shitara Ken Deshita | Reincarnated as a Sword | О моём переро�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240036.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Romantic Killer | Романтический убийца [2022, Web, 12 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239260.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Kobayashi-san Chi no Maidragon S + Mini Dragon | Miss Kobayashi's Dragon Maid S 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238895.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238382.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Kaiko Sareta Ankoku Heishi (30-dai) no Slow na Second Life | Неспешная 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238375.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Shenmue the Animation | Шэнму [2022, TV, 13 из 13] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237923.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Meitantei Conan: Hannin no Hanzawa-san | Detective Conan: The Culprit Hanzawa | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237676.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Princess Connect! Re:Dive 2 / PriConne 2 / Связь принцесс! Ново
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237419.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Azur Lane: Bisoku Zenshin! | Azur Lane: Slow Ahead! | Лазурный путь:
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234369.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Gekijouban Jujutsu Kaisen 0 | Магическая битва (фильм) [2021
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233659.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Sidonia no Kishi: Ai Tsumugu Hoshi | Knights of Sidonia: Love Woven in the Stars
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232556.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Uzaki-chan wa Asobitai! Double | Uzaki-chan Wants to Hang Out! W | Узаки х
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230988.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Fuufu Ijou, Koibito Miman. | More Than a Married Couple, But Not Lovers | Бол
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230913.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Renai Flops | Love Flops | Любовные неудачи [2022, TV, 12 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230850.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Saikin Yatotta Maid ga Ayashii | The Maid I Hired Recently Is Mysterious | Мо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230804.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Kimi o Aishita Hitori no Boku e | To Me, The One Who Loved You | Единств�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230782.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Boku ga Aishita Subete no Kimi e | To Every You I've Loved Before | Для ка�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230755.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Mahou Tsukai no Yome: Nishi no Shounen to Seiran no Kishi | Невеста ча�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230724.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Koukyoushihen: Eureka Seven - Hi-Evolution | Эврика Семь: Высока
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230620.jpg" />
 </div>
 
 

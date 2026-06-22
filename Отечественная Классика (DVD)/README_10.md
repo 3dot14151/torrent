@@ -1,3 +1,29 @@
+###  Публикация: 593008   (134050) от 25.12.2012
+
+Миссия в Кабуле (2 серии) (1971) DVD5
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о становлении молодой советской дипломатии и борьбе миссии в Кабуле с внутренней реакцией и представителями западных держав за подписание Договора о сотрудничестве. Место и время действия фильма — Афганистан, 1919 год.Производство: СССР, ЛенфильмЖанр: ВоенныйРежиссер: Леонид КвинихидзеАктеры: Олег Жаков, Ирина Мирошниченко, Глеб Стриженов, Эммануил Виторган, Олег Видов, Михаил Глузский, Александр Демьяненко, Владимир Заманский, Владимир Зельдин, Отар Коберидзе, Альгимантас Масюлис, Олег Стриженов, Лаймонас Норейка, Елена Добронравова, Владимир Этуш, Ринат Тазетдинов, Ольга Лебзак, Алевтина Евдокимова, Владимир Протасенко, Геннадий Нилов, Раднэр МуратовПродолжительность: 02:07:58 (Двух серий)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8B5864A6C004B3C44FF255E7BFEC9ED9DFC8E95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 592966   (133840) от 25.12.2012
 
 Комедия давно минувших дней (1980) DVD5
@@ -6,7 +32,7 @@
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133840.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131986.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131827.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131296.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85604.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84154.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81288.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79226.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77752.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77145.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76608.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_73868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73868.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72692.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72638.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72378.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72034.jpg" />
 </div>
 
 
@@ -436,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62249.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53878.jpg" />
 </div>
 
 
@@ -490,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47623.jpg" />
 </div>
 
 
@@ -516,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43459.jpg" />
 </div>
 
 
@@ -542,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38702.jpg" />
 </div>
 
 
@@ -568,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37698.jpg" />
 </div>
 
 
@@ -594,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37633.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37599.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28323.jpg" />
 </div>
 
 
@@ -659,33 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:233431387BB00547DD29369DFE5EBC85FAFCCD8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 142768   (26851) от 22.02.2025
-
-Бег (1970) DVD9
-
->>След.
->>Отечественная Классика (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26851.jpg" />
-</div>
-
-
-###  Подробнее
-
-По произведениям Михаила Булгакова: "Бег", "Белая гвардия", "Чёрное море".
-Двадцатый год. Гражданская война близится к завершению. После вторжения Красной Армии в Крым начинается исход всех, кто искал спасения от революции. В этом страшном течении оказываются рядом самые разные люди - беззащитная Серафима Корзухина и полковая дама Люська, (   Читать дальше...   )Производство: СССР,  киностудия "Мосфильм"Жанр: Драма, военный, историяРежиссер: Александр Алов, Владимир НаумовАктеры: Владислав Дворжецкий, Людмила Савельева, Алексей Баталов, Михаил Ульянов, Татьяна Ткач, Евгений Евстигнеев, Владимир Заманский, Николай Олялин, Бруно Фрейндлих, Владимир Басов, Олег ЕфремовПеревод: Оригинальная русская озвучкаЯзык субтитров: РусскийПродолжительность: 03:04:31 (1 серия - 01:28:49; 2 серия - 01:35:42)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F612A9A6CF1B97738C038E2738809BFEC5F27804
 ```
 
 https://mybot314.ru/tekegram_catalog/

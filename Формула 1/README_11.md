@@ -1,3 +1,112 @@
+###  Публикация: 237859   (482772) от 20.09.2010
+
+Формула 1. Сезон 1992. Этап 6 из 16. Гран-При Монако. Гонка / Formula 1. Grand Prix de monaco 1992 (Monte Carlo) (1992) VHSRip
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гран-при Монако 1992 года — шестой этап чемпионата Мира по автогонкам в классе Формула-1 сезона 1992 года. Прошёл в Монте-Карло, Монако. Соревнования состоялись 31 мая 1992 года.Телекомпания: PTPЖанр: СпортПеревод: Многоголосый закадровый, профессиональныйЯзык озвучки: РусскийПродолжительность: 2:17:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244677   (480050) от 02.09.2018
+
+Формула 1. Сезон 2018. Этап 14. Гран-при Италии. Парад пилотов (02.09.2018) WEBRip [H.264/1080p-LQ] [ENG]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Парад пилотов и проезд исторических машин на трассе в Монце, Италия.Телекомпания: Formula OneЖанр: СпортЯзык озвучки: Английский, ИнтершумСубтитры: отсутствуютПродолжительность: 00:22:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93DA08A0373DD917405FD345980346C9F777090B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244726   (480046) от 02.09.2018
+
+Формула 1. Сезон 2018. 14-й Этап. Гран-при Италии. Гонка (02.09.2018) HDTV [H.264/1080i-LQ]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480046.jpg" />
+</div>
+
+
+###  Подробнее
+
+02 сентября 2018 года, воскресенье. 16:10 МСК
+Формула 1. 14-й Этап сезона 2018 года. Гран-при Италии. Монца (Италия).
+Гонка
+Кругов:	53 - Длина круга:	5, 793 км(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AE513E0B6FC08CBB20082E517552E99C5341E08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244733   (480044) от 02.09.2018
+
+Формула 1. Сезон 2018. 14-й Этап. Гран-при Италии. Гонка (02.09.2018) HDTVRip [H.264]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гран-при Италии. Гонка (53 круга, 306.72 км)
+Арена: Автодром Монца (Монца, Италия)
+02 сентября 2018 года, воскресенье. 16:10 МСКТелекомпания: Матч ТВЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B480221FA8F17337AFC78CC2984CA09854E420B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244723   (480041) от 02.09.2018
 
 Формула 1. Сезон 2018. 14-й Этап. Гран-при Италии. Гонка (02.09.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
@@ -6,7 +115,7 @@
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480041.jpg" />
 </div>
 
 
@@ -35,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478500.jpg" />
 </div>
 
 
@@ -61,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476387.jpg" />
 </div>
 
 
@@ -90,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476381.jpg" />
 </div>
 
 
@@ -119,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476315.jpg" />
 </div>
 
 
@@ -145,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473079.jpg" />
 </div>
 
 
@@ -171,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471185.jpg" />
 </div>
 
 
@@ -199,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470994.jpg" />
 </div>
 
 
@@ -227,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470987.jpg" />
 </div>
 
 
@@ -255,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469569.jpg" />
 </div>
 
 
@@ -282,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468384.jpg" />
 </div>
 
 
@@ -310,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468380.jpg" />
 </div>
 
 
@@ -338,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464020.jpg" />
 </div>
 
 
@@ -366,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458170.jpg" />
 </div>
 
 
@@ -392,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456004.jpg" />
 </div>
 
 
@@ -421,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455915.jpg" />
 </div>
 
 
@@ -450,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455907.jpg" />
 </div>
 
 
@@ -478,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455898.jpg" />
 </div>
 
 
@@ -506,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455284.jpg" />
 </div>
 
 
@@ -534,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453603.jpg" />
 </div>
 
 
@@ -562,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453305.jpg" />
 </div>
 
 
@@ -590,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452733.jpg" />
 </div>
 
 
@@ -604,119 +713,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E2600734E50EF3A7F23223791B95F2AF3D25426
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247342   (452730) от 15.09.2018
-
-Формула 1. Сезон 2018. 15-й Этап. Гран-при Сингапура. Свободная практика 1 (14.09.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452730.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 сентября 2018 года, пятница. 11:30 МСК
-Формула 1. 15-й Этап сезона 2018 года. Гран-при Сингапура. Сингапур (Сингапур).
-Свободная практика 1
-Арена: Городская трасса Марина Бей (Сингапур, Сингапур)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDC9C9A3FF0ECDF5527C3BEF7167D6BBA3BF0268
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163181   (452505) от 04.09.2017
-
-Формула 1. Гран-при Италии 2017. 13-й Этап. Гонка (3.09.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время гран-при гонщики должны будут преодолеть 53 круга, каждый длиной 5793 метра. Средняя скорость составит 240 километров в час. Инженеры должны будут настроить болид на низкий уровень прижимной силы. При помощи DRS гонщики смогут развить максимальную скорость в 370 километров в час. Газ в пол пилоты проходят около 75 процентов всей дистанции, это самый большой (   Читать дальше...   )Телекомпания: Россия, Матч HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D674B9EC782B63007BD8498BEA6FF1E51BE1A1B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247553   (451224) от 16.09.2018
-
-Формула 1. Сезон 2018. 15-й Этап. Гран-при Сингапура. Свободная практика 3 (15.09.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451224.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 сентября 2018 года, суббота. 13:00 МСК
-Формула 1. 15-й Этап сезона 2018 года. Гран-при Сингапура. Сингапур (Сингапур).
-Свободная практика 3
-Арена: Городская трасса Марина Бей (Сингапур, Сингапур)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:09:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:090D30574E52ACD172CEC410A676001D57A36873
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247860   (451201) от 16.09.2018
-
-Формула 1. Сезон 2018. 15-й Этап. Гран-при Сингапура. Гонка (16.09.2018) HDTV [H.264/1080i-LQ]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451201.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 сентября 2018 года, воскресенье. 15:10 МСК
-Формула 1. 15-й Этап сезона 2018 года. Гран-при Сингапура. Сингапур (Сингапур).
-Гонка
-Кругов:	61 - Длина круга:	5,065 км(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 02:16:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88874ADA44DB246391D88F047667668E372A2A9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

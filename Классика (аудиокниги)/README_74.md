@@ -1,3 +1,59 @@
+###  Публикация: 1756951   (103487) от 24.10.2024
+
+Франсуаза Саган | Четыре стороны сердца (2021) [MP3, Алла Човжик]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Саган. Коллекция.
+Франсуаза Саган (1935–2004) – французская писательница.
+В романе «Синяки на душе» (1972), как и во многих романах писательницы, речь идет о любви, хрупкой, нерешительной, мимолетной. Верная себе Саган заводит своих персонажей в лабиринт запутанных отношений: вокруг Себастьяна и Элеоноры кружатся странные люди, пытаясь проникнуть в тайны (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Алла БорисоваИздательство: Азбука-АттикусПродолжительность: 03:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B570B3D8302E85C9B0BADBE8C21FA785DA8E0FCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756940   (103471) от 24.10.2024
+
+Франсуаза Саган | Синяки на душе (2021) [MP3, Алла Човжик]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Саган. Коллекция.
+Франсуаза Саган (1935–2004) – французская писательница.
+В романе «Синяки на душе» (1972), как и во многих романах писательницы, речь идет о любви, хрупкой, нерешительной, мимолетной. Верная себе Саган заводит своих персонажей в лабиринт запутанных отношений: вокруг Себастьяна и Элеоноры кружатся странные люди, пытаясь проникнуть в тайны (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Алла БорисоваИздательство: Азбука-АттикусПродолжительность: 03:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E6DEA7AC7CA6743947403FC44BE8995F0F47AB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756933   (103467) от 24.10.2024
 
 Франсуаза Саган | Недвижная гроза (2023) [MP3, Алла Човжик]
@@ -6,7 +62,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103467.jpg" />
 </div>
 
 
@@ -33,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103430.jpg" />
 </div>
 
 
@@ -62,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103429.jpg" />
 </div>
 
 
@@ -89,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103411.jpg" />
 </div>
 
 
@@ -117,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103409.jpg" />
 </div>
 
 
@@ -145,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103317.jpg" />
 </div>
 
 
@@ -172,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102884.jpg" />
 </div>
 
 
@@ -201,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102705.jpg" />
 </div>
 
 
@@ -229,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102033.jpg" />
 </div>
 
 
@@ -255,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101592.jpg" />
 </div>
 
 
@@ -284,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101591.jpg" />
 </div>
 
 
@@ -312,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101589.jpg" />
 </div>
 
 
@@ -339,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101588.jpg" />
 </div>
 
 
@@ -366,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101577.jpg" />
 </div>
 
 
@@ -395,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101573.jpg" />
 </div>
 
 
@@ -422,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101534.jpg" />
 </div>
 
 
@@ -450,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101519.jpg" />
 </div>
 
 
@@ -477,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101471.jpg" />
 </div>
 
 
@@ -505,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101466.jpg" />
 </div>
 
 
@@ -533,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101293.jpg" />
 </div>
 
 
@@ -561,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_95315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95315.jpg" />
 </div>
 
 
@@ -587,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_95163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95163.jpg" />
 </div>
 
 
@@ -613,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94512.jpg" />
 </div>
 
 
@@ -639,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94508.jpg" />
 </div>
 
 
@@ -650,61 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FDF84A62E0903EFBC6D401C56A2069256F293B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821952   (91160) от 04.10.2025
-
-Алексей Николаевич Толстой | Простая душа (Радиоспектакль) (1994) [MP3, Алексей Емельянов, Владлен Есенский и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Звучащая библиотека.
-Алексей Николаевич Толстой (1882–1945) – русский советский писатель и общественный деятель, граф. Автор социально-психологических, исторических и научно-фантастических романов, повестей и рассказов, публицистических произведений.
-Впервые рассказ А.Н. Толстого был напечатан под заглавием «Катя» в сборнике «Наваждение. Однако через (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 00:29:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1E93DB10F8AFD7E2F98B64218E18007CFC9468C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476198   (86421) от 04.04.2012
-
-Н.Г. Чернышевский | Что делать? (2006) [MP3, Наталия Литвинова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свой знаменитый роман Николай Гаврилович Чернышевский написал в 1862—1863 годах в тюрьме. С тех пор он перечитывается многими поколениями людей. В этом романе затрагиваются важные для каждого человека вопросы: о счастье в семье и обществе, о равенстве мужчины и женщины, о праве решать свою судьбу, работать и жить в удовольствие.
-«Проницательный читатель, — я объясняюсь (   Читать дальше...   )Жанр: Роман
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D1B0577856B5A4E5D70E243345F806D62B2DF67
 ```
 
 https://mybot314.ru/tekegram_catalog/

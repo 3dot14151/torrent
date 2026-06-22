@@ -1,3 +1,55 @@
+###  Публикация: 1543200   (631988) от 10.04.2022
+
+Монахиня Евпраксия (сост.) | Преподобный Иоанн Кассиан Римлянин. Изборник (2010) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нам нечего бояться внешнего неприятеля; враг в нас самих скрывается. В нас ежедневно происходит внутренняя война; после одержания победы в ней всё внешнее сделается слабым и с воином Христовым всё помирится и покорится ему. Мы не будем иметь такого неприятеля, которого бы следовало бояться вне нас, если внутреннее будет в нас побеждено и покорено духу. Мы должны (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F999088F1F90632886E1F7474EF447AE982145A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144105   (631797) от 20.06.2017
+
+А.И. Сидоров (пер.) | Жизнь и деяния святой и блаженной учительницы нашей Синклитикии (2013) [FB2, DOC]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сочинение "Жизнь и деяния святой и блаженной учительницы нашей Синклитикии" - александрийской святой, жившей в V веке, является уникальным святоотеческим памятником древнеегипетского монашества  и по своему жанру представляет собою нечто среднее между житием, похвальным словом и монашеским богословско-аскетическим трактатом. Его особенностью является не (   Читать дальше...   )Жанр: ЖитиеФормат: FB2, DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A9A6658F9372C121BC6D7F1DF00871637766D55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144102   (631626) от 20.06.2017
 
 Стрэтфорд Колдекот | Тайное пламя. Духовные взгляды Толкина (2008) [DJVU, FB2, EPUB]
@@ -6,7 +58,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631626.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630243.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630215.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629365.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628575.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628471.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628457.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628341.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628226.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628225.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628223.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628221.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628219.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628211.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628188.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626404.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626403.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626399.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626395.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626291.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626281.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625790.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624753.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624580.jpg" />
 </div>
 
 
@@ -628,58 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAA083285F8150E49D3DFDD0F6BCB429D2B81478
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909984   (624329) от 19.06.2015
-
-В. Н. Шердаков | Евангельская нравственность и гуманизм (1967) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624329.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Христианский гуманизм», в основе которого лежат евангельские заповеди, до сих пор почитается в качестве высшего нравственного идеала многими людьми, особенно в западных странах. Под воздействием христианской религии находится и некоторая часть советских людей. Сторонники христианства в наши дни не столько доказывают истинность религиозных догм, сколько ссылаются (   Читать дальше...   )Жанр: история, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7877A7FCD80779BCF6A262210662CF6ED9477E38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909971   (624327) от 19.06.2015
-
-Матвей Бурштын | Хедер (1930) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624327.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассказывается об условиях обучения еврейских детей в религиозных школах - хедерах - в дореволюционной России.Жанр: история, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3838237D801A9E703F0ACF74B11ABE0295F08E51
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 1827636   (188861) от 22.10.2025
+
+Дмитрий Дорничев | Цикл "Антипопаданец" [8 книг] (2025) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы смотрели фильм Пункт назначения? да? Так вот, это моя жизнь! Долбанные попаданцы! Каждый раз, когда кто-то из них хочет возродиться, я умираю и причём очень глупым способом!
+Не знаю, чем я им так приглянулся, но каждый пытается во мне переродиться. Достали... Но есть и хорошие попаданцы, точнее "духи-помощники". Каждый из них стал мне Наставником, поделился (   Читать дальше...   )Жанр: Бояръ-Аниме, Городское фэнтези, РеалРПГ, ЮморИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C43341025C239A821D29EE7CD75EB12EF0916C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827119   (188103) от 21.10.2025
+
+Дэн Браун | Тайна тайн (2025) [EPUB]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роберт Лэнгдон, отправляется в Прагу, чтобы посетить лекцию Кэтрин Соломон — выдающегося ученого-ноэтика, с которой у него недавно завязались отношения. Кэтрин вот-вот опубликует книгу, которая содержит поразительные открытия о природе человеческого сознания и грозит разрушить веками устоявшиеся убеждения. Но жестокое убийство ввергает путешествие в хаос, и Кэтрин (   Читать дальше...   )Жанр: Исторический детектив, триллерПеревод: DreamerИздательство: СамиздатФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43A0485A7262ECF6BFC9600D73D330E9976090DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590927   (187667) от 16.11.2022
+
+Дмитрий Найденов | Пандемия 2023 (2022) [EPUB]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187667.jpg" />
+</div>
+
+
+###  Подробнее
+
+В залитых чернотой глазах новый вирус поднимает голову. Кто уже заразился, кто нет? Кто инфицирован, а кто абсолютно здоров? Ожившие мертвецы и чертов Нулевой пациент... Цена одного побега - смерть, собирающая кровавую жатву всем сущим. И выживешь ли ты после... ВИРУСА 2023!Жанр: Социальная фантастикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35487114E8CED9DE09E97CA6F5B9D8EC34E5608C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591277   (187493) от 17.11.2022
+
+Елена Фили | Горсть справедливости (2021) [EPUB]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187493.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире будущего участник соревнований по боям без правил и бывший военный разведчик работает частным детективом. К нему попадает дело об исчезновении семнадцатилетней наследницы корпорации «Беллами/Роботикс», в мачеху которой он влюблен. Одновременно из лаборатории корпорации пропадает инфо-кристалл с описанием секретной технологии изготовления материала-невидимки (   Читать дальше...   )Жанр: Детективная фантастикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0DC5ED4E2EC864D7C3A6728820DA9875B0B6639
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591790   (186881) от 19.11.2022
 
 Ольга Которова | Я тебя отпускаю (2022) [EPUB]
@@ -6,7 +111,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186881.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185786.jpg" />
 </div>
 
 
@@ -61,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185322.jpg" />
 </div>
 
 
@@ -87,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185036.jpg" />
 </div>
 
 
@@ -113,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183770.jpg" />
 </div>
 
 
@@ -141,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183700.jpg" />
 </div>
 
 
@@ -169,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183136.jpg" />
 </div>
 
 
@@ -198,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182128.jpg" />
 </div>
 
 
@@ -225,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182053.jpg" />
 </div>
 
 
@@ -254,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181356.jpg" />
 </div>
 
 
@@ -281,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181269.jpg" />
 </div>
 
 
@@ -310,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181244.jpg" />
 </div>
 
 
@@ -338,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181086.jpg" />
 </div>
 
 
@@ -367,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180481.jpg" />
 </div>
 
 
@@ -396,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179881.jpg" />
 </div>
 
 
@@ -423,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178776.jpg" />
 </div>
 
 
@@ -449,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177966.jpg" />
 </div>
 
 
@@ -477,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177597.jpg" />
 </div>
 
 
@@ -503,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177504.jpg" />
 </div>
 
 
@@ -529,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177480.jpg" />
 </div>
 
 
@@ -555,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177474.jpg" />
 </div>
 
 
@@ -583,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177472.jpg" />
 </div>
 
 
@@ -595,119 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9D173ACFC7C9BDF4D389547F7A0C8DC58C95144
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429266   (177459) от 05.12.2020
-
-Анна Рэй | Принц темных улиц (2020) [EPUB]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «Магическая механика».
-
-Из лучшего выпускника факультета магической механики – в создателя запрещенных механизмов. Из робкого юноши – в уличного бойца, бросающего вызов смерти. Из сытой Белавии – в трущобы Ингвольда, где воздух отравлен черным дымом мануфактур, а пистоль, начиненный редкими артефактами, заменяет друзей. Эрик Фрайберг живет в мрачном (   Читать дальше...   )Жанр: Городское фэнтези, Детективное фэнтезиФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EF2941C2E9818A5B30906AAC03F1B107B83FB8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429271   (177455) от 05.12.2020
-
-Маргарита Блинова | Догнать невесту! (2020) [EPUB]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман цикла «Невеста».
-
-Что может быть хуже, чем внезапная смерть?
-Только перерождение в Богиню Светлых земель.(   Читать дальше...   )Жанр: Любовное фэнтези, ПопаданцыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:560378A7315452499347A9B5D57C2D5393189207
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428957   (177270) от 05.12.2020
-
-Юрий Добронравов | Цикл «Акробат» [2 книги] (2016-2020) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три книги цикла «Акробат».
-
-Первые годы после распада СССР. Ветеран афганской войны Алексей Корогод попадает в другой мир, находящийся за многие световые годы от Земли. В мир, который полон опасностей и на каждом шагу поджидает смерть. Ох как пригодятся навыки приобретенные на войне Лехе, чтобы выжить в этом суровом мире.Жанр: Фантастика, Попаданец, БоевикФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F00194CC63A39CF1162A2D990070CEAFD295D81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667009   (177195) от 07.10.2023
-
-Роман Прокофьев | Одиссей (2023) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я вернулся.
-Земной фригольд получил нового Восходящего, пилота и воина, но колония по-прежнему в опасности, потому что враги не оставили своих зловещих планов. Все решится на большом Тинге под светоносным Игг-Древом, где соберутся Народы нашего Круга.
-Есть и другая угроза – та, что сверкает в ночных небесах, управляет релятивистскими струями диска аккреции и повелевает (   Читать дальше...   )Жанр: Фантастика, РеалРПГ, Попаданцы в магические мирыИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA783E5C07BD31857B0CBC93AB1808556362A798
 ```
 
 https://mybot314.ru/tekegram_catalog/

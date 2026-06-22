@@ -1,3 +1,32 @@
+###  Публикация: 495112   (251227) от 11.05.2012
+
+Лидия Русланова - Поет Лидия Русланова (1996) [FLAC|Lossless]<Народная Песня>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Окрасился месяц багрянцем (2:58)
+02. Саратовские частушки (2:41)
+03. Коробейники (2:44)
+04. Липа вековая (4:37)(   Читать дальше...   )Жанр: Народная ПесняПродолжительность: 00:57:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618727   (249908) от 12.03.2023
 
 Drayton Farley - Twenty On High (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, & Country>
@@ -6,7 +35,7 @@ Drayton Farley - Twenty On High (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk, Worl
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249908.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Stormfagel - 3 albums (2005-2010) [FLAC|Lossless] <Neofolk, Martial Industrial, 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_249210.jpg" />
 </div>
 
 
@@ -70,7 +99,7 @@ David Lynch - 8 albums (1998-2011) [FLAC|Lossless] <Ambient, Alternative Rock, E
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_246615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_246615.jpg" />
 </div>
 
 
@@ -105,7 +134,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239264.jpg" />
 </div>
 
 
@@ -134,7 +163,7 @@ ulk - Restoration Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Dungeon Synth>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237108.jpg" />
 </div>
 
 
@@ -163,7 +192,7 @@ VA - Arabic Music Playlist - The Best Arabica Chillout Tunes (2022) [FLAC|Lossle
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236915.jpg" />
 </div>
 
 
@@ -192,7 +221,7 @@ Peso Pluma - Genesis (Génesis) (2023) [FLAC|Lossless|WEB-DL|tracks] <Regional M
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235120.jpg" />
 </div>
 
 
@@ -221,7 +250,7 @@ VA - The Best Christmas Album In The World...Ever! (2020) [FLAC|Lossless|WEB-DL|
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228782.jpg" />
 </div>
 
 
@@ -250,7 +279,7 @@ Yanni - Live at The Acropolis (1994) [APE|Lossless|image + .cue] <New Age>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223407.jpg" />
 </div>
 
 
@@ -279,7 +308,7 @@ Two Steps From Hell - Two Steps From Heaven/SkyWorld (2012) /WEB/ [FLAC (tracks)
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219534.jpg" />
 </div>
 
 
@@ -314,7 +343,7 @@ VA - The Orient Collective: Echoes of the East (2023) [FLAC|Lossless|WEB-DL|trac
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205013.jpg" />
 </div>
 
 
@@ -343,7 +372,7 @@ VA - The Orient Collective: Oriental Expedition (2023) [FLAC|Lossless|WEB-DL|tra
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205011.jpg" />
 </div>
 
 
@@ -372,7 +401,7 @@ VA - The Orient Collective: Mystical Sounds of the East (2023) [FLAC|Lossless|WE
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193920.jpg" />
 </div>
 
 
@@ -401,7 +430,7 @@ VA - The Orient Collective: Mystica (2023) [FLAC|Lossless|WEB-DL|tracks] <World,
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193913.jpg" />
 </div>
 
 
@@ -430,7 +459,7 @@ VA - The Orient Collective: Melodic Ethnic Beats (2023) [FLAC|Lossless|WEB-DL|tr
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180169.jpg" />
 </div>
 
 
@@ -459,7 +488,7 @@ VA - The Orient Collective: Vimana (2023) [FLAC|Lossless|WEB-DL|tracks] <World, 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180151.jpg" />
 </div>
 
 
@@ -488,7 +517,7 @@ VA - The Orient Collective: Ethereal Odyssey (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180112.jpg" />
 </div>
 
 
@@ -517,7 +546,7 @@ VA - The Orient Collective: Agharta (2023) [FLAC|Lossless|WEB-DL|tracks] <World,
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180108.jpg" />
 </div>
 
 
@@ -546,7 +575,7 @@ VA - The Orient Collective: From the Ancient Lands (2023) [FLAC|Lossless|WEB-DL|
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180070.jpg" />
 </div>
 
 
@@ -575,7 +604,7 @@ VA - The Orient Collective: Mystic Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173516.jpg" />
 </div>
 
 
@@ -604,7 +633,7 @@ VA - Romeo & Juliette (Gerard Presgurvic) (2000) [FLAC|Lossless|tracks + .cue] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161940.jpg" />
 </div>
 
 
@@ -633,7 +662,7 @@ VA - Иисус Христос - Суперзвезда (Театр им. Мос
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161883.jpg" />
 </div>
 
 
@@ -662,7 +691,7 @@ Ravi Shankar, Yehudi Menuhin - Shankar: Sitar Concertos and Other Works (2005) 2
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_157375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_157375.jpg" />
 </div>
 
 
@@ -694,7 +723,7 @@ Eden Weint Im Grab - Nachtidyll - Ein Akustisches Zwischenspiel (2012) [FLAC|Los
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147407.jpg" />
 </div>
 
 
@@ -723,7 +752,7 @@ Wardruna - Skald (2018) [FLAC|Lossless|tracks + .cue] <Folk Ambient, Dark Ambien
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145285.jpg" />
 </div>
 
 
@@ -737,35 +766,6 @@ Wardruna - Skald (2018) [FLAC|Lossless|tracks + .cue] <Folk Ambient, Dark Ambien
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F68E488CD0EAA05C9F4634FD1F7E313D2F08E4EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272242   (141160) от 29.12.2018
-
-Die Toten kehren wieder mit dem Wind - Ein Wanderer (2013) [FLAC|Lossless|image + .cue] <Ambient>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 	I 	8:48
-02 	II 	8:19
-03 	III 	6:29
-04 	IV 	11:43(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:11:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17B3DFFE38784F691FAE80EB6E90857A55F6D1AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

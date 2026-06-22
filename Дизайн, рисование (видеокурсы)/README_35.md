@@ -6,7 +6,7 @@ Levelup.Digital, Phil Liu | Creating a Fantasy Trim Texture (2020) PCRec [EN, RU
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674316.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ CGMA, Ben Keeling | Intro to Substance for Environment Art (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674313.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Uartsy, Mike Defeo | Stylized Character Development (2014) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674180.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Udemy, Daniel Krafft, Design School Online | Make Hyper-Realistic Outdoor Enviro
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674179.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Entagma, Мануэль и Мориц | Patreon Advanced CG Tutorials Part 1-5 (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674173.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Gumroad, Michael Pavlovich | ZBrush 2021 & 2021.6 What's New (2020) PCRec [EN, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674172.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674171.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ CGMA, Gael Kerchenbaum | Sculpting Anatomy from Animal to Creature (2019) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674167.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Flippednormals, Christian Bull | Fundamental Anatomy for Sculptors (2021) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674165.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Learn Squared, Javier Perez | Substance Designer Essentials from Javier Perez (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674162.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ CGMA, Peyton Varney | Environment Art for Games in UE4 (2020) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674060.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ CGMA, Hannah Kang | Stylized Characters in 3D (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674058.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Udemy, Rob Tuytel, Erik Selin | Creating 3D environments in Blender (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674050.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ CGMA, Michael Pavlovich | ZBrush for Concept & Iteration (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674048.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Yiihuu, Hooman Raad | The Dwarf Warrior: 3D Character Creation For Game (2019) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674046.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674040.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Udemy, Nikolay Naydenov | Absolute Beginners 3D Character in Blender Course (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670422.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669870.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ TeachVideo.ru | Adobe Premiere Pro CS4 [2009, RUS] Видеокурс
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669696.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ ArtStation, Emiel Sleegers | Ultimate Environmental Texture Creation Course (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667608.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ VFX for FilmMakers, Matt Skonicki | Scratch to Substance Volume 1a-1b (2018) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665264.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Udemy, Darrin Lile | Blender 3.0 Vintage Car Creation (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660859.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Daarken | Введение в цифровую живопись [Обновля�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658403.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Geekbrains | Веб-дизайн. От новичка до профи (2015) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658386.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657605.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ lynda.com |  After Effects Apprentice 15: Final Project - After Effects. Обу�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657421.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Digital Juice - Drag & Drop: Series 3 - Paper Stops [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380657.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Digital Juice - Drag & Drop: Series 3 - Glass Facets [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380656.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Digital Juice - Drag & Drop: Series 2 - Ethereal Thoughts [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380651.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Digital Juice - Drag & Drop: Series 3 - Spark Sweeps [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380526.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Digital Juice - Drag & Drop: Series 2 - Ragged Edge [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380525.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Digital Juice - Drag & Drop: Series 2 - Fabric Flow [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380524.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Digital Juice - Drag & Drop: Series 3 - Film Burns [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380523.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Digital Juice - Drag & Drop: Series 2 - Speed Lines [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380363.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Digital Juice - Drag & Drop: Series 3 - Party Time [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380180.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Digital Juice - Ready2Go: Collection 21 (AE) (.djprojects)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374889.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Digital Juice - Jump Backs: Volume 20 - Subtle Impact [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369196.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Digital Juice - Jump Backs: Volume 25 - All Music [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369194.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Digital Juice - Jump Backs: Volume 24 - Tunnel Vision [AVI]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367156.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Digital Juice - Jump Backs: Volume 23 - Clean Streak [AVI]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367153.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Digital Juice - Jump Backs HD: Volume 20 - Ethereal [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367075.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Digital Juice - Jump Backs HD: Volume 25 - Fresh Crawl [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367073.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Digital Juice - Toxic Type: Collection 09 Cool & Clean (AE) (.djprojects)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364990.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Digital Juice - Juice Drops 47: merryCHRISTMAS (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357156.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Digital Juice - VideoTraxx HD 2 (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354622.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Digital Juice - Jump Backs HD: Volume 28 - High Impact X [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352848.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Digital Juice - Juice Drops 44: frameCUTS II (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352358.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Digital Juice - VideoTraxx HD 1 (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352089.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Digital Juice - Juice Drops 59: allPARTICLES (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_342457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_342457.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Digital Juice - Juice Drops 62: reflectiveTHOUGHTS (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_340042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_340042.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Digital Juice - Juice Drops 69: multiCULTURAL (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_337703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_337703.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Digital Juice - Juice Drops 45 halloweenHAUNTS (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_307530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_307530.jpg" />
 </div>
 
 

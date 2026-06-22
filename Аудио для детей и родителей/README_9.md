@@ -1,3 +1,29 @@
+###  Публикация: 1473168   (1013885) от 28.05.2021
+
+Елена Мусатова | Золотое сердце (2021) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Говорят, с лица воду не пить. Но поступают совсем иначе. Тихую и добрую, но уродливую по людским меркам Малашу сторонятся и обижают даже в собственной семье: лицом не вышла, беды притягивает, добрых людей от дома отваживает. Заколдованная еще до рождения, Малаша уродилась и живет под несчастливой звездой – не видит ласки и добра. Но все завидуют ее тихому нраву и (   Читать дальше...   )Жанр: Книга для дошкольников, сказкиПродолжительность: 06:52:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DBFCA052F475ABF829C3EFC7BB6C4BD3B2F2F61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474220   (1013266) от 01.06.2021
 
 Антон Березин | Скелет в шкафу и другие ужасные истории (2021) [MP3]
@@ -6,7 +32,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013266.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013244.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013224.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013219.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Twinkle Twinkle Little Rock Star - Lullaby Versions of Depeche Mode (2011) [MP3|
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012401.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012325.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012001.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011342.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011323.jpg" />
 </div>
 
 
@@ -251,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011175.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011132.jpg" />
 </div>
 
 
@@ -304,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011125.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010837.jpg" />
 </div>
 
 
@@ -361,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010518.jpg" />
 </div>
 
 
@@ -389,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010516.jpg" />
 </div>
 
 
@@ -415,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010207.jpg" />
 </div>
 
 
@@ -442,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010206.jpg" />
 </div>
 
 
@@ -469,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010199.jpg" />
 </div>
 
 
@@ -495,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010196.jpg" />
 </div>
 
 
@@ -521,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010029.jpg" />
 </div>
 
 
@@ -549,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010020.jpg" />
 </div>
 
 
@@ -575,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009622.jpg" />
 </div>
 
 
@@ -601,7 +627,7 @@ Twinkle Twinkle Little Rock Star - Lullaby Versions of Metallica (2011) [MP3|192
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008974.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008738.jpg" />
 </div>
 
 
@@ -658,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007772.jpg" />
 </div>
 
 
@@ -669,32 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D72BE87824E49411FA41965A28FD94B53D9EC72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482142   (1007770) от 07.07.2021
-
-Дмитрий Емец | Компьютер звездной империи. Книга 1 (2018) [MP3, Иван Литвинов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Началась эта история с того, что Ира Матвеева приобрела странный компьютер. А в нем – программа уничтожения нашей планеты! И остановить ее невозможно! Иркин друг, Костик, такую «игру» видел впервые. К тому же настораживал таймер, неумолимо отщелкивающий оставшееся до катастрофы время. А тут еще выяснилось, что взрыв Земли уже четко запланирован в другом месте. Это (   Читать дальше...   )Жанр: Детская фантастикаПродолжительность: 08:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D259A51566D4C1940E16BEB4B2FBB78255C4646C
 ```
 
 https://mybot314.ru/tekegram_catalog/

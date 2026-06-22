@@ -7,7 +7,7 @@ Gaia GPS (Topo Maps) v2026.2 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061919.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ YANGO MAPS v28.0.1 [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060128.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Strava: бег, велоезда, хайкинг v440.16 Mod by ReVanced Team [R
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051806.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048390.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ GPS АнтиРадар v52.0(R) Mod by Slavatv5 [Ru]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048182.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ OsmAnd+  Карты & GPS Офлайн v5.2.13 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047920.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ OsmAnd+  Карты & GPS Офлайн v5.2.12 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047446.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Strava: бег, велоезда, хайкинг v440.11 Mod by PieMods [Ru/Mult
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047310.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ GPS АнтиРадар v51.2(G) Mod by Slavatv5 [Ru]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046714.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046713.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Spyglass v3.9.4 [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041241.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ MapcamDroid Radar detector v3.83.1079 [Ru/En]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037622.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Bikemap v13.1.0 [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019204.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ OruxMaps Donate v8.1.8 GP [Ru/Multi] - Регистратор маршрутов
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019180.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ iGO Primo NextGen 9.18.27.681657 (Android) [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928418.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ iGO Primo NextGen 9.18.27.682862  [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928406.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Speedcam Downloader v4.0.7 [Ru] - закачка файлов радаров д�
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918218.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ iGO Primo NextGen 9.18.27.682862  arimi @ Vamibg skin mod [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916722.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ iGO Primo NextGen 9.18.27.682862 pongo skin [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914991.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Mapcam.info Radar detector v3.83.1107 [Ru/En]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885570.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Navitel / Навител Навигатор v9.7.2286 RePack для карт р�
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844219.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Navitel / Навител Навигатор v9.7.2286 RePack для карт р�
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812545.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Yandex.Maps / Мобильные Яндекс.Карты v3.20 (2013) <Ru>
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810994.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ MapsWithMe Pro 7.2.1 + карты [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799003.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743276.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Navitel / Навител Навигатор v9.6.2519 RePack [Ru/En] - толь�
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729149.jpg" />
 </div>
 
 

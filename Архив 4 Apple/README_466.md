@@ -1,3 +1,56 @@
+###  Публикация: 1335234   (289883) от 01.11.2019
+
+Cisdem PDFPasswordRemover 3.9.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cisdem PDFPasswordRemover - Удалить пароль из PDF и получить доступ к наиболее важным данным.
+Доступ к защищенным паролем PDF-файлам может быть огромной проблемой для многих предприятий, особенно, если этот файл PDF имеет заперт от печати, копирования и редактирования. Тем не менее, это не будет проблемой для вас, если у вас есть Cisdem PDF Password Remover для Mac! (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Cisdem Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA0026C4645AB685A07324419D9434E461488575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335231   (289880) от 01.11.2019
+
+Cisdem PDFCompressor 3.3.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cisdem PDFCompressor является программным обеспечением для сжатия PDF файлов. Программа позволяет уменьшить размер всех ваших PDF файлов до 90%, сохраняя при этом их исходное качество неизменным. С Cisdem PDFCompressor, вы можете сэкономить место на Вашем компьютере, а также обмениваться PDF-файлами с друзьями/коллегами значительно быстрее.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Cisdem Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:589E2DC2C0A838F5D5582E5AB98E26BF31934E77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335110   (289879) от 01.11.2019
 
 Tagr 5 v5.1.0 [En]
@@ -6,7 +59,7 @@ Tagr 5 v5.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289879.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ TextSoap 8.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289823.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ Serial Box 11.2019 + SerialSeeker 2.0 (44) + iSerial Reader 2.0.23 (build 018e) 
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289750.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ iStatistica Pro 1.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289748.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ Alfred 4 Powerpack 4.0.6 (1123) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289747.jpg" />
 </div>
 
 
@@ -144,7 +197,7 @@ iSkysoft Video Converter Ultimate 11.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289739.jpg" />
 </div>
 
 
@@ -170,7 +223,7 @@ KeyKey 2.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289669.jpg" />
 </div>
 
 
@@ -199,7 +252,7 @@ NeoOffice 2017.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289658.jpg" />
 </div>
 
 
@@ -227,7 +280,7 @@ Adobe After Effects CC 2017 (14.0.1) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289645.jpg" />
 </div>
 
 
@@ -254,7 +307,7 @@ Red Giant Magic Bullet Suite 13.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289636.jpg" />
 </div>
 
 
@@ -280,7 +333,7 @@ Capture One Pro 12.0.0b4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289606.jpg" />
 </div>
 
 
@@ -306,7 +359,7 @@ Comic Life 3 v.3.5.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289599.jpg" />
 </div>
 
 
@@ -333,7 +386,7 @@ Alien Skin Exposure X4 Bundle 4.0.2.43 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289598.jpg" />
 </div>
 
 
@@ -359,7 +412,7 @@ Worksheet Crafter Premium Edition 2019.1.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289591.jpg" />
 </div>
 
 
@@ -385,7 +438,7 @@ iReal Pro 2019.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289587.jpg" />
 </div>
 
 
@@ -411,7 +464,7 @@ ACD Systems Canvas Draw 6.0.1 (build 6054) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289583.jpg" />
 </div>
 
 
@@ -439,7 +492,7 @@ iTranslate 1.4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289494.jpg" />
 </div>
 
 
@@ -468,7 +521,7 @@ Adobe Premiere Pro CC 2017 (11.0.1) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289483.jpg" />
 </div>
 
 
@@ -495,7 +548,7 @@ Imagenomic Plug-in for Photoshop (update 23.11.2017) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289307.jpg" />
 </div>
 
 
@@ -522,7 +575,7 @@ WinZip Mac Pro 7 v7.0.4565 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289214.jpg" />
 </div>
 
 
@@ -549,7 +602,7 @@ Perfectly Clear Plugin for Photoshop and Lightroom (Complete) 3.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289189.jpg" />
 </div>
 
 
@@ -577,7 +630,7 @@ VMware Fusion Pro 11.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289049.jpg" />
 </div>
 
 
@@ -603,7 +656,7 @@ DaVinci Resolve Studio 16 v16.1.1.005 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289025.jpg" />
 </div>
 
 
@@ -632,7 +685,7 @@ AirFoil 4.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288964.jpg" />
 </div>
 
 
@@ -643,62 +696,6 @@ AirFoil 4.9.2 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40DDA3F5409ABBDFF506033CAEEAC7E0C365270D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335075   (288922) от 01.11.2019
-
-Elmedia Player Pro 7.7  (1843) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elmedia Player - мультимедийный плеер для воспроизведения практически всех видео форматов: (FLV, SWF, MOV, MP4, DIVX, RV, RM и даже Silverlight). Это удобный и простой в настройке плеер, который проигрывает медиа файлы локально, а также имеет встроенный веб-браузер, позволяющий заходить на любой сайт и выбирать понравившееся видео для просмотра.
-
-Elmedia Player PRO (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.10.2019Разработчик: Eltima LLCПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D23C0E111CF490205630A5CC026216E04CC625E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335247   (288735) от 01.11.2019
-
-WiFi Explorer Pro 2.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288735.jpg" />
-</div>
-
-
-###  Подробнее
-
-WiFi Explorer быстро определяет конфликты в каналах связи, overlapping сигнала или просто проблемы в конфигурации, которые мешают стабильной работе сигнала в беспроводной сети вашего офиса или дома.
-
-WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавляет набор функций, которые делают его подходящим инструментом для WLAN и ИТ-специалистов. Вы можете использовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Adrian Granados-MurilloПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51F43C7047D63B58D2CFA804A14D140D1D5C65B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

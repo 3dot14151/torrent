@@ -1,3 +1,81 @@
+###  Публикация: 1342494   (223655) от 02.12.2019
+
+Бог китов / Kujira gami / The Whale God (1962) DVDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь китобоев сурова и опасна. Дед, отец и старший брат Сяки погибли в борьбе с огромным китом. Теперь смыслом жизни Сяки стала месть. Но покорить чудовище, которое в два раза больше обычного кита очень непросто. За победу обещана щедрая награда, многие жители деревни хотели бы вступить в бой с морским дьяволом.Производство: Япония, Daiei StudiosЖанр: Фэнтези, драмаРежиссер: Токудзо ТанакаАктеры: Кёко Энами, Сихо Фудзимура, Кодзи Фудзияма, Кодзиро Хонго, Синтаро Кацу, Бонтаро Миякэ, Тиэко Мурата, Такаси Симура, Митико Такано, Косукэ ТакэмураПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские - отдельным файломПродолжительность: 01:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87DC8E561AFBD773ADA50D57F72DA2BBBAADAA23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342577   (223222) от 02.12.2019
+
+Кровавый транзит / The Mongolian Connection (2019) SATRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работающий под прикрытием агент ФБР Уэйд Далтон совершает дерзкий захват Серика Ибраева, члена преступного синдиката по торговле людьми. В кратчайший срок Далтон вместе с опытным полицейским Ганзоригом должен доставить Ибраева в Монголию для того, чтобы тот дал показания в суде против лидера синдиката, своего друга детства, Тенжина. А Тенжин сделает все возможное, (   Читать дальше...   )Производство: Монголия / Hollywood Film Academy, IFI ProductionЖанр: БоевикРежиссер: Дрю ТомасАктеры: Балжиннямын Амарсайхан, Каиви Лайман, Санжар Мади, Жандос Айбасов, Бямбын Цэцэгээ, Кейт Амундсен, Брэндон Фоббс, Дебора ПуэттеПеревод: ДублированныйСубтитры: Английские (на надписи, hardsub)Продолжительность: 01:32:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C9F181543247D013477A5703E1BC87AD54B5B29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425333   (222683) от 20.11.2020
+
+Операция «Пума» / Codename Cougar / Dai Hao Mei Zhou Bao (1989) DVDRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа тайваньских террористов захватывает личный самолет одного из самых видных бизнесменов на острове с заложниками на борту, чтобы освободить из тюрьмы своего лидера. В ходе операции главарь террористов выводит из строя систему навигации самолета, и тогда пилот оказывается вынужден совершить аварийную посадку на территории, подвластной КНР. Смогут ли правительства (   Читать дальше...   )Производство: Китай, Xi'an Film StudioЖанр: Драма, триллерРежиссер: Чжан Имоу, Ян ФэнлянАктеры: Гэ Ю, Гун Ли, Цзя Чжаоцзи, Лю Сяонин, Тянь Минь, Ван Сюэци, Ян Ячжоу, Юй ЖунгуанПеревод: Двуголосый любительский (Franek Monk & Filkons)Субтитры: Английские - отдельным файломПродолжительность: 01:16:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAED385800CB064E0AE9BB569CBACFBF7E04CF88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342739   (222677) от 03.12.2019
 
 Большая плохая сестра / Sa dam ying / Big Bad Sis (1976) DVDRip [VO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222677.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222473.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221819.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221322.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221187.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_220958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220958.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220587.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220557.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220410.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220141.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219237.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218986.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216772.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216299.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215549.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214511.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_214286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214286.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213202.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213088.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213085.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213080.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212903.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212473.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F772F6CD9BFD2E74581B779563D5127915A3D1FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565114   (212243) от 23.07.2022
-
-Полночная женская война / Mayonaka otome senso / Midnight Maiden War  (2022) WEB-DLRip [H.264] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я студент, который приехал в Токио из своего города, живу один, у меня ни друзей, ни девушки. Моя студенческая жизнь - сущая скука. Я подрабатываю на стройке. Но однажды в клубе по игре в прятки я встретил их - ее и его, и моему скучному существованию пришел конец. Ведь они затеяли игру, цель которой - уничтожить Токио.Производство: ЯпонияЖанр: драмаРежиссер: Кэн НиномияАктеры: Рэн Нагасэ, Эридза Икэда, Тасуку Эмото, Акинори Андо, Масая Сано, Юсин Синохара, Сонха, Макико Ватанабэ, Маю ЯмагутиПеревод: Любительский двухголосый, закадровый (RealFake)Субтитры: ОтсутствуютПродолжительность: 01:53:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A989EB8AB5842119C2B3D796C3152E0D7E560A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566693   (211601) от 30.07.2022
-
-Тем, кто был незащищён / Mamorarenakatta Monotachi e / In the Wake (2021) HDRip [AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя 9 лет после землетрясения и цунами в Тохоку в 2011 году в Сендае, происходят два убийства. Обе жертвы были связаны и умерли от голода. Под подозрение попадает Ясухиса Тонэ, который недавно вышел из тюрьмы.Производство: Япония, Aeon Entertainment, Amuse, Kinoshita Group, NHK Shuppan, Shochiku Broadcasting Co., Tohan KikakuЖанр: детектив, криминал, драмаРежиссер: Такахиса ДзэдзэАктеры: Такэру Сато, Хироси Абэ, Кая Киёхара, Мицуко Байсё, Хидэтака Ёсиока, Кэнто Хаяси, Эйта, Наото Огата, Рё Ивамацу, Юдзи МиякэПеревод: Авторский (Александр Смирнов)Субтитры: отсутствуютПродолжительность: 02:14:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B8E5ED030E63FC6296B914385996B51037BC7F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567677   (211165) от 04.08.2022
-
-Токийские мстители / Tokyo Revengers (2021) HDRip [H.264] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211165.jpg" />
-</div>
-
-
-###  Подробнее
-
-26-летний неудачник Такэмити узнаёт, что его бывшая девушка Хината и её младший брат были убиты токийской преступной группировкой Мандзикай. А следующий день парень падает под поезд в метро и внезапно перемещается на 10 лет назад, когда он был в старшей школе и целыми днями зависал со своими крутыми дружками. Такэмити решает изменить будущее, чтобы спасти Хинату (   Читать дальше...   )Производство: Япония, Fuji Television Network, Warner Bros.Жанр: Криминал, боевик, фантастикаРежиссер: Цутому ХанабусаАктеры: Такуми Китамура, Юки Ямада, Ёсукэ Сугино, Нобуюки Судзуки, Хаято Исомура, Кэйта Араи, Кадзуки Хорикэ, Мио Имада, Гордон Маэда, Сётаро МамияПеревод: Авторский (Александр Смирнов), двухголосый любительский (АрхиAsia) | Внимание! В переводе присутствует ненормативная лексика.Субтитры: Русские, английскиеПродолжительность: 01:59:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:038E4D01183D4A5768C64A86027CFABBAEF84BE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

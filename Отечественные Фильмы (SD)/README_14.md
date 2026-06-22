@@ -1,3 +1,81 @@
+###  Публикация: 1357451   (972774) от 04.02.2020
+
+Дылда /  (2019) WEB-DLRip [H.265] [10-bit]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972774.jpg" />
+</div>
+
+
+###  Подробнее
+
+История двух молодых женщин-фронтовичек, которые возвращаются в послевоенный Ленинград и пытаются обрести новую мирную жизнь, когда и вокруг, и главное, внутри них — руины.Производство: Россия / Нон-стоп ПродакшнЖанр: Драма, военныйРежиссер: Кантемир БалаговАктеры: Виктория Мирошниченко, Василиса Перелыгина, Андрей Быков, Игорь Широков, Константин Балакирев, Ксения Кутепова, Ольга Драгунова, Тимофей Глазков, Филипп ЖлобаПеревод: Не требуетсяСубтитры: НетПродолжительность: 02:17:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BA7AABCBD3F58FA27BC7DBEB5DAA5F6C34F68FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357449   (972730) от 04.02.2020
+
+Девушки бывают разные (2019) WEB-DLRip [H.265] [10-bit]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история о трёх друзьях, решивших покататься на серфе в Мексике. Все как полагается: океан, девушки и золотой песок. История не предвещает неожиданностей. Но не для наших героев, которые первым делом как следует отметили свой приезд. С трудом проснувшись наутро, парни обнаруживают себя посреди пляжа, они в замешательстве — не помнят, что же произошло накануне. (   Читать дальше...   )Производство: Россия / Продюсерская компания "Фетисов Иллюзион"Жанр: КомедияРежиссер: Сарик АндреасянАктеры: Дмитрий Нагиев, Роман Попов, Артем Сучков, Дмитрий Власкин, Владимир Яглыч, Зоя Бербер, Елизавета Моряк, Алена Чехова, Сергей БелоголовцевПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:29:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF2B4058FCCD03FF6055510D71C7118052310BBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 176646   (972318) от 21.01.2012
+
+Кипяток (2008) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кассирша супермаркета Галина находит утешение от семейных неурядиц в любви к студенту и помогает ему выбраться из-под материнского гнета. Студент счастлив, но чтобы решить свои материальные проблемы, он выносит из магазина, когда Галина работает за кассой продукты. Разумеется, они попадаются… Галина берет вину на себя. Выйдя из тюрьмы, она ищет свидания. Любовники опять встречаются.Жанр: МелодрамаРежиссер: Татьяна ФирсоваАктеры: Сергей Лактюнькин, Светлана Лебедева, Александр Василевский, Константин Милованов, Ирина Сенотова, Павел ШмарёвПродолжительность: 01:39:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 174654   (971873) от 21.01.2012
 
 Короткое замыкание (2009) DVDRip
@@ -6,7 +84,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971873.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971736.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971734.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971640.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971527.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970499.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970275.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970199.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969478.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969357.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968475.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968189.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968154.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968130.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967297.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967135.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966934.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966590.jpg" />
 </div>
 
 
@@ -470,6 +548,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 619499   (965873) от 17.02.2013
+
+Билет на Vegas (2012) [H.264] BDRip
+
+>>След.
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_965873.jpg" />
+</div>
+
+
+###  Подробнее
+
+На молодую парочку, Макса и Лизу, сваливается удача: они становятся победителями лотереи с выигрышем в пять миллионов долларов! Но получить деньги можно только на торжественной церемонии в столице порока, азартных игр и безудержного веселья, Лас Вегасе. Счастливчики не подозревают, что на большой куш есть и другие претенденты. Оказавшись в Америке, они попадают на (   Читать дальше...   )Производство: Россия, СШАЖанр: Комедия, ПриключенияРежиссер: Гор КиракосянАктеры: Михаил Галустян, Иван Стебунов, Ингрид Олеринская, Владимир Яглыч, Наталья Ноздрина, Дэнни Трехо, Олег Тактаров, Ким Уитли, Гильермо Диас, ГодфриПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:29:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:492E9F7CCC3E7174EFF847122972515D2AFE88EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 745822   (965723) от 16.01.2014
 
 Остров везения (2013) HDRip
@@ -478,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965723.jpg" />
 </div>
 
 
@@ -504,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964936.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964530.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964058.jpg" />
 </div>
 
 
@@ -567,110 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5C6099239BAAB83ED6534E529161A77135DDDB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 620537   (964053) от 19.02.2013
-
-Русская рулетка (женский вариант) (2010) DVB
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проспав на работу, интеллигентная женщина, редактор небольшого издательства Рина Сергеева, проснувшись наконец в пять часов вечера, находит рядом с собой в постели абсолютно незнакомого мужчину. Кто он и откуда взялся? Этого она совершенно не помнит, как не помнит и того, чем закончилась бурная вечеринка, происходившая накануне, - а потому вынуждена предполагать (   Читать дальше...   )Жанр: Лирическая комедия, мелодрамаРежиссер: Виталий ПавловАктеры: Инга Оболдина, Александр Лазарев младший, Анастасия Немоляева, Иван Агапов, Александр Алексеев, Андрей Афанасьев, Ольга Богданова, Юрий Горин, Миша Дитковский, Анастасия Дитковская, Лариса Кузнецова, Никита Логинов, Нина Маслова, Андрей Перунов, Василий Савинов, Мария Серегина, Виктор Соболь, Эстас Тоннэ, Антон Фигуровский, Сергей ШайдаковПродолжительность: 01:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF90FE44B6ACD5BFE2E4B3FE661950F6EE3EB4CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359225   (964000) от 12.02.2020
-
-Сквозь чёрное стекло (2019) WEB-DLRip [H.265] [10-bit] [PR]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964000.jpg" />
-</div>
-
-
-###  Подробнее
-
-История незрячей девушки, судьба которой преподносит уникальный шанс. Состоятельный мужчина готов подарить ей зрение, если она вслепую станет его женой. Этот дар открывает героине жестокую правду жизни…Производство: Россия, Proline FilmЖанр: драмаРежиссер: Константин ЛопушанскийАктеры: Максим Суханов, Василиса Денисова, Надежда Маркина, Ольга Онищенко, Андрей Полищук, Анна Екатерининская, Елена Зимина, Анна Дулова, Александра Мамкаева, Алексей МанцыгинСубтитры: отсутствуютПродолжительность: 02:19:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51E680A94C4B56F8945C2AE4DCBDCD4950E548AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 746901   (963534) от 18.01.2014
-
-Ёлки 3 (2013) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Россия / Базелевс ПродакшнЖанр: КомедияРежиссер: Ольга Харина, Дмитрий Киселёв, Александр КоттАктеры: Сергей Светлаков, Иван Ургант, Вера Брежнева, Сергей Безруков, Владимир Меньшов, Гоша Куценко, Александр Головин, Виктор Вержбицкий, Алексей Петренко, Петр ФедоровПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:32:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28D2F15C0D327AA7184FA6C4940A5F1955D336F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359902   (963080) от 13.02.2020
-
-В раю делать нечего (2019) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто утешит после первой потери? Конечно, папа. Папа может рассмешить, папа жизнерадостный, весёлый и каждый день с ним похож на праздник. Даже похороны дворовой птички-голубя превращаются в представление с кадилом и святой водой. Голубь захоронен по всем правилам и, о чудо, он взлетает из-под земли. Значит в смерти нет ничего страшного, и, каждый, кто умирает попадает (   Читать дальше...   )Производство: РоссияЖанр: Короткометражный, драма, семейный, мелодрамаРежиссер: Павел ПантинАктеры: Андрей Некрасов, Ксения Кузьмина, Алиса Слепян, Валерий Зиновьев, Нинель Мищенко, Сергей ЧуриковСубтитры: ОтсутствуютПродолжительность: 00:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88354035A0CDB0BA7964BF7ABDC53131FFC668BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

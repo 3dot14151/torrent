@@ -1,3 +1,29 @@
+###  Публикация: 608282   (993401) от 25.01.2013
+
+Discovery. Пятёрка лучших / Discovery. World's TOP 5 (1-6 выпуски) (2012) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993401.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Пятерка лучших" - это новый документальный цикл на канале Дискавери, в котором представлены самые мощные, самые быстрые, самые совершенные автомобили, самолеты и поезда. В каждом новом выпуске встретятся пять представителей своего класса, чтобы начать беспрецедентное состязание. В этом соревновании участвуют не только транспортные средства, но и крупнейшие заводы и высочайшие небоскребы так же выступят в отдельном зачете. Экспертное жюри сравнит пять их основных характеристик и определит лучшего из лучших! Пять дисциплин по пять участников в каждой оцениваются по пяти критериям – и пять победителей в итоге!Жанр: ДокументальныйПеревод: ДублированныйПродолжительность: 6 х ~ 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33955566562D967A31D9572B94EF6AD4DFE035DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 608356   (993374) от 25.01.2013
 
 Прыжок из космоса / Space Dive - The Red Bull Stratos Story (2012) DVDRip
@@ -6,7 +32,7 @@
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993374.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ NG: Удивительный мир с NAT GEO / NAT GEO Amazing (2010) SATRip [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992975.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991782.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Discovery: Как это сделано? Сезон 13 / How it's made? Season 1
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989236.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989023.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Discovery: Инородные тела / Body Invaders (2014) HDTVRip (Сери�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988476.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988016.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987707.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ NG: Культ Марии / The Cult of Mary (2015) HDTVRip [H.264/720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987402.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ BBC: Сокровища Древней Греции / Treasures of Ancient Greec
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987160.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Viasat History: Как климат изменил ход истории / How C
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987147.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ History channel: Вселенная / The Universe (2007) BDRemux [H.264/1080p] 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986865.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ Discovery: Выживание в засуху / Surviving The Drought (2008) Blu
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984348.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984340.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Discovery: Смертельный улов / Deadliest Catch (2011) SATRip (Се
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983583.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ NG. Затерянные царства Китая / The Hidden Kingdoms of Chin
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982027.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981922.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981620.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ NG: Снежный барс Афганистана / NG: Snow Leopard of Afghani
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981301.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ NG. Мухи и пиявки (мерзкие существа) / Flies and leech
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980894.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979602.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ Discovery: Дикая кухня / Kings of the Wild (2015) HDTVRip (сезон 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978745.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ National Geographic: Сканеры древнего мира. Египетск�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976701.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ NG. Семейное оружие: Ковбойская перестрелка /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976622.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976618.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ What Is Our Future? Каково наше будущее?Профессор Бр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:578AF42ACB64CE1B876594E11220963A249C76FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974343   (976509) от 11.01.2016
-
-Звездное выживание с Беаром Гриллсом - Барак Обама / Running Wild with Bear Grylls (2015) HDTVRip [H.264/1080i] [DVO]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976509.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новом сезоне популярного проекта "Звездное выживание с Беаром Гриллсом" вместе со знаменитым экспертом-экстремалом навстречу приключениям отправится президент США Барак Обама! Влиятельный политик пройдет 48-часовой курс выживания в горах Аляски, где ему предстоит преодолевать горные реки, штурмовать крутые склоны и питаться тем, что удастся поймать или (   Читать дальше...   )Телекомпания: DiscoveryЖанр: ДокументальныйПеревод: Профессиональный двуголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 00:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF304FCE65E937D7E95068B934FA14C39A80A44D
 ```
 
 https://mybot314.ru/tekegram_catalog/

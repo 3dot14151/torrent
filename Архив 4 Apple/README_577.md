@@ -1,3 +1,58 @@
+###  Публикация: 1659808   (190078) от 11.09.2023
+
+CleanShot X 4.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190078.jpg" />
+</div>
+
+
+###  Подробнее
+
+CleanShot X предоставляет более 50 функций , что делает его идеальным инструментом для захвата экрана.
+Наш оверлей упрощает обмен информацией. Мгновенно сохраняйте, копируйте или перетаскивайте снимки экрана или записи экрана в другие приложения. Каким бы ни был ваш рабочий процесс, он подойдет.
+За считанные секунды выделите важные части скриншота с помощью нашего (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.09.2023Разработчик: © 2023 MTWПоддерживаемая ОС: macOS 10.14.4 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7174207A3E4532C512B72453814897D66DEA21F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659864   (190052) от 11.09.2023
+
+FxFactory Pro 8.0.10 U2B [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190052.jpg" />
+</div>
+
+
+###  Подробнее
+
+FxFactory Pro включает  фильтры, генераторы и переходы для Final Cut Pro X, Motion, Premiere Pro и After Effects. FxFactory - первый расширяемый пакет визуальных эффектов для Final Cut Pro. Неограниченная емкость: загружайте дополнительные плагины в FxMarket.
+Пользователь может проверить все плагины и настроить их подходящим образом для своего проекта, либо создать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.09.2023Разработчик: © 2022 Noise Industries, LLCПоддерживаемая ОС: macOS 11.5.1 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E87FD2CF0F8B497232D5169BEB8B13BEB8567F26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1659481   (190048) от 11.09.2023
 
 Sweet Home 3D 7.1.1 [Multi/Ru]
@@ -6,7 +61,7 @@ Sweet Home 3D 7.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190048.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Sketch 94 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190036.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ Sensei 1.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_190006.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ Things 3 v3.16.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189984.jpg" />
 </div>
 
 
@@ -111,7 +166,7 @@ File List Export 2.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189849.jpg" />
 </div>
 
 
@@ -137,7 +192,7 @@ SnippetsLab 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189844.jpg" />
 </div>
 
 
@@ -163,7 +218,7 @@ SyncBird Pro 4.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189843.jpg" />
 </div>
 
 
@@ -189,7 +244,7 @@ Stats 2.9.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189841.jpg" />
 </div>
 
 
@@ -215,7 +270,7 @@ Piezo 1.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189838.jpg" />
 </div>
 
 
@@ -243,7 +298,7 @@ Be Focused Pro - Focus Timer 2.3.2 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189834.jpg" />
 </div>
 
 
@@ -271,7 +326,7 @@ Planetside Terragen for Mac 4 v.4.5.71 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189828.jpg" />
 </div>
 
 
@@ -297,7 +352,7 @@ Mactracker 7.12.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189827.jpg" />
 </div>
 
 
@@ -324,7 +379,7 @@ Omni Recover 3.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189798.jpg" />
 </div>
 
 
@@ -351,7 +406,7 @@ Downie 4 v.4.6.27 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189785.jpg" />
 </div>
 
 
@@ -379,7 +434,7 @@ Fix My iPhone 2.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189750.jpg" />
 </div>
 
 
@@ -408,7 +463,7 @@ ForkLift 4 v.4.0 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189711.jpg" />
 </div>
 
 
@@ -434,7 +489,7 @@ Infuse PRO 7.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189697.jpg" />
 </div>
 
 
@@ -460,7 +515,7 @@ GoodTask 7.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189434.jpg" />
 </div>
 
 
@@ -487,7 +542,7 @@ HoudahSpot 6 v.6.1.5 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189432.jpg" />
 </div>
 
 
@@ -515,7 +570,7 @@ Soulver 3 v.3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189429.jpg" />
 </div>
 
 
@@ -542,7 +597,7 @@ Dash 7.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189415.jpg" />
 </div>
 
 
@@ -568,7 +623,7 @@ OmniGraffle Pro 7.21.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189399.jpg" />
 </div>
 
 
@@ -594,7 +649,7 @@ Widgetter - Desktop Widgets for Mac 1.16.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189382.jpg" />
 </div>
 
 
@@ -622,7 +677,7 @@ Canary Mail 4.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189381.jpg" />
 </div>
 
 
@@ -633,58 +688,6 @@ Canary Mail может похвастаться большими возможн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:098602FF1168A680A2B42B6E747E0DF6BC357FBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660466   (189377) от 13.09.2023
-
-Cycling'74 Max 8.5.6 + RNBO U2B [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189377.jpg" />
-</div>
-
-
-###  Подробнее
-
-MAX 8 - это визуальный язык программирования для музыки и мультимедиа. За время своей более чем 20-летней истории, он был использован композиторами, исполнителями, разработчиками программного обеспечения, исследователями и художниками.Тип издания: macOS SoftwareРелиз состоялся: 06.09.2023Разработчик: © Cycling '74Поддерживаемая ОС: macOS 10.11.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16911D51C0CBD4841514C56501CF0CE884903644
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660672   (189353) от 13.09.2023
-
-Capture One 23 Enterprise 16.2.4.34 [En/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Capture One 23 Enterprise — решение для редактирования фотографий для студий обработки изображений и платформ электронной коммерции. Его аутентичная реалистичная обработка цветов, беспрепятственный процесс редактирования и самое быстрое в отрасли подключение дают вам полный творческий контроль, что делает его имя нарицательным в студиях по всему миру. Компания Capture (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.09.2023Разработчик: © 2023 Phase OneПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BC6CBFD667F35E3196C92E3C9395473857BB1B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

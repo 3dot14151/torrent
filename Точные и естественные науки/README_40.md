@@ -1,3 +1,29 @@
+###  Публикация: 1488017   (100993) от 07.10.2025
+
+Пол Нёрс | Что такое жизнь? Понять биологию за пять простых шагов (2021) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое жизнь? Вслед за Докинзом, Хокингом и Аттенборо выдающийся британский ученый, лауреат Нобелевской премии в области медицины и физиологии Пол Нёрс стремится ответить на один из самых важных вопросов науки. Доступно и понятно объясняя базовые процессы и явления, без которых жизнь была бы невозможна, он представляет в книге основополагающие идеи, рассказывая, (   Читать дальше...   )Жанр: Научно-популярная литература, Общая биологияПеревод: Алексей ПоповИздательство: Азбука-Аттикус; КоЛибриФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC34E5ADAF450018C08B263269BCE494B20C30EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1769819   (100578) от 30.12.2024
 
 Ч. Киттель | Статистическая термодинамика (1977) [DJVU]
@@ -6,7 +32,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100578.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100572.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83107.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83099.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83063.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Izaak Maurits Kolthoff | Potentiometric titrations (1931) [PDF] [EN]
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71747.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71642.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ C.П. Костычев | О брожениях (1914) [PDF]
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71357.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71266.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70477.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69378.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68889.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67355.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67352.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64852.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63208.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59697.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58540.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55741.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55511.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55510.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55314.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55115.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55108.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54768.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D09001B7BB109DA4077DF1788CFA3DB0B40792B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726930   (54766) от 31.05.2024
-
-Н.М. Эмануэль, Г.Б. Сергеев | Экспериментальные методы химической кинетики (1980) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54766.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии в доступной форме изложены 14 методов исследования кинетики механизма химических реакций. Это — видимая и ультрафиолетовая спектрофотометрия, инфракрасная спектрометрия, люминесценция хемилюминесценция. импульсный фотолиз, электронный парамагнитный резонанс, ядерный магнитный резонанс, газо-жидкостная хроматография, калориметрии, рН-метрия, аналоговые и (   Читать дальше...   )Жанр: ХимияИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DCD59CB7F7F4FC7AC9514F173963BF0E81C64DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

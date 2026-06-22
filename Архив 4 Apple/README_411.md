@@ -1,3 +1,59 @@
+###  Публикация: 1175683   (376778) от 19.10.2017
+
+Fantastical 2.4.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fantastical 2 — продвинутый календарь-органайзер для Mac OS X
+Fantastical - приложение представляет собой календарь, располагающийся в строке меню, с возможностью добавления событий сопровождаемых звуками и сообщениями, без непосредственного доступа к приложению iCal, что несомненно удобно в процессе ежедневной работы.
+
+Основным отличием от аналогичных программ такого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2017Разработчик: Flexibits Inc.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08704D1124846369BCACBA9488F66CA57CE846AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415656   (376690) от 12.10.2020
+
+Sublime Text 4.0 Dev build 4088 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sublime Text — быстрый кроссплатформенный редактор исходных текстов программ. Поддерживает плагины на языке программирования Python.
+Sublime Text не является свободным или открытым программным обеспечением, однако, некоторые его плагины распространяются по свободной лицензии, а также разрабатываются и поддерживаются сообществом разработчиков. Он поддерживает подсветку (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.10.2020Разработчик: Jon SkinnerПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:425A6D18F3805E598029C32365A76C620F528958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949484   (376575) от 23.10.2015
 
 Adobe Acrobat Pro DC 2015.009.20069 [Multi/Ru]
@@ -6,7 +62,7 @@ Adobe Acrobat Pro DC 2015.009.20069 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376575.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ Adobe Zii 2021 - Universal Patcher 6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376548.jpg" />
 </div>
 
 
@@ -58,7 +114,7 @@ Grids for Instagram 6.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376527.jpg" />
 </div>
 
 
@@ -85,7 +141,7 @@ Librarian Pro 3.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376460.jpg" />
 </div>
 
 
@@ -111,7 +167,7 @@ Paste 2.2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376453.jpg" />
 </div>
 
 
@@ -137,7 +193,7 @@ PaintCode 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376436.jpg" />
 </div>
 
 
@@ -165,7 +221,7 @@ PhotoBulk: watermark in batch 2.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376269.jpg" />
 </div>
 
 
@@ -193,7 +249,7 @@ Moom 3.2.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376268.jpg" />
 </div>
 
 
@@ -220,7 +276,7 @@ Capture One 20 Pro v13.1.3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376158.jpg" />
 </div>
 
 
@@ -247,7 +303,7 @@ Movavi Video Editor Plus 2021 v21.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375905.jpg" />
 </div>
 
 
@@ -273,7 +329,7 @@ Axure RP Team Edition 8.0.0.3312 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375169.jpg" />
 </div>
 
 
@@ -299,7 +355,7 @@ Red Giant Trapcode Suite 13.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375025.jpg" />
 </div>
 
 
@@ -325,7 +381,7 @@ Hazel 3.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374965.jpg" />
 </div>
 
 
@@ -351,7 +407,7 @@ MacBooster 7.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374933.jpg" />
 </div>
 
 
@@ -377,7 +433,7 @@ Artlantis Studio 4.1.7 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_374769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_374769.jpg" />
 </div>
 
 
@@ -405,7 +461,7 @@ TG Pro (Temperature Gauge Pro) 2.8.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374751.jpg" />
 </div>
 
 
@@ -432,7 +488,7 @@ iTubeDownloader 6 v6.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374721.jpg" />
 </div>
 
 
@@ -460,7 +516,7 @@ ProFind 1.6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374720.jpg" />
 </div>
 
 
@@ -486,7 +542,7 @@ Alfred 4 Powerpack 4.0.5.1113 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374719.jpg" />
 </div>
 
 
@@ -515,7 +571,7 @@ Yate 5 v5.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374718.jpg" />
 </div>
 
 
@@ -544,7 +600,7 @@ Cisdem Duplicate Finder 4 v4.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374717.jpg" />
 </div>
 
 
@@ -572,7 +628,7 @@ WonderPen 1.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374716.jpg" />
 </div>
 
 
@@ -600,7 +656,7 @@ Ink2Go 1.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374635.jpg" />
 </div>
 
 
@@ -627,7 +683,7 @@ Athentech Perfectly Clear Complete 3.8.0.1671 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374634.jpg" />
 </div>
 
 
@@ -640,58 +696,6 @@ Perfectly Clear – мощный плагин для Adobe Lightroom и Adobe Ph
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0DA2670B80D75FE38545D39E101F22B2AE43A4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327400   (374633) от 25.09.2019
-
-Translatium 9 v9.3.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Translatium - мощное приложение для перевода для macOS.Тип издания: macOS SoftwareРелиз состоялся: 23.09.2019Разработчик: Quang LamПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45AEC7089B458711E06CC3EAD190B4B1A0C1A2FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327367   (374632) от 25.09.2019
-
-BookMacster 2.9.15 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374632.jpg" />
-</div>
-
-
-###  Подробнее
-
-BookMacster - приложение синхронизирует закладки между браузерами: Safari, Firefox, Chrome, Camino, iCab, Opera и OmniWeb, а так же в Интернет с Delicious, Pinboard, и Google Bookmarks. BookMacster поддерживает теги, комментарии и ссылки и в любой момент времени доступны в строке меню. Все закладки можно отсортировать по алфавиту, проверить на наличие "мертвых" (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.09.2019Разработчик: Sheep SystemsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB8FC8F809981C12FC83A489639F256DEC4416E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

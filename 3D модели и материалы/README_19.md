@@ -1,3 +1,30 @@
+###  Публикация: 1240689   (523519) от 13.08.2018
+
+3D модели - Daz 3D - Zelara 8 Pro Bundle - 53503 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Zelara 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6FF36C4264A1BC955BB70CABB4C82E07CA1612B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241083   (521996) от 15.08.2018
 
 3D модели - Daz 3D - Сборник 3D моделей #19 [DUF]
@@ -6,7 +33,7 @@
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521996.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520041.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518956.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518903.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518850.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517780.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515796.jpg" />
 </div>
 
 
@@ -193,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513943.jpg" />
 </div>
 
 
@@ -219,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513941.jpg" />
 </div>
 
 
@@ -245,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513938.jpg" />
 </div>
 
 
@@ -271,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513936.jpg" />
 </div>
 
 
@@ -297,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513855.jpg" />
 </div>
 
 
@@ -323,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513853.jpg" />
 </div>
 
 
@@ -350,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513846.jpg" />
 </div>
 
 
@@ -376,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512974.jpg" />
 </div>
 
 
@@ -402,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512971.jpg" />
 </div>
 
 
@@ -428,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512882.jpg" />
 </div>
 
 
@@ -454,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512829.jpg" />
 </div>
 
 
@@ -480,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512816.jpg" />
 </div>
 
 
@@ -506,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512814.jpg" />
 </div>
 
 
@@ -532,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512744.jpg" />
 </div>
 
 
@@ -550,6 +577,37 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 235165   (498474) от 11.09.2010
+
+3D модели - Evermotion - HDModels Cars Vol. 03 [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_498474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник высококачественных моделей автомобилей от Evermotion vol.3
+BMW X6, Mazda 6 new, AUDI R8, Honda CR-V, Chevrolet Camaro, Dodge Charger, SEAT Ibiza, VolksWagen Scirocco, Citroen C4, AUDI A2
+
+примеры моделей - http://www.evermotion.org/comm/HDMC3/HDmodelscars_vol_3.pdf
+
+в раздаче только модели в формате .max и lowpoly_vray.max
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243104   (495900) от 25.08.2018
 
 3D модели - TurboSquid - Chevrolet Corvette Stingray (C7) Coupe 2014 - 1131721 [C4D, FBX, OBJ]
@@ -558,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495900.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495728.jpg" />
 </div>
 
 
@@ -610,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495724.jpg" />
 </div>
 
 
@@ -621,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24ECEB46370F277F8175364C31EA024AF5AEEDC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243037   (495719) от 25.08.2018
-
-3D модели - TurboSquid - Mercedes-Benz SS Roadster 1930 Erdmann&Rossi retro legend sport cabriolet - 641235 [MAX, OBJ, C4D]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495719.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки Mercedes-BenzФормат: MAX, OBJ, C4D
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:972C5E3ED9BA54A8C84A35A008AD920DF7103291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243136   (495587) от 25.08.2018
-
-3D модели - Hum3D - Skoda Karoq 2018 [MAX, 3DS, FBX, LWO]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495587.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки SkodaФормат: MAX, 3DS, FBX, LWO, OBJ, MTL, DFX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C501623FB87E7724C97B9C43D59F88F5DE96E20D
 ```
 
 https://mybot314.ru/tekegram_catalog/

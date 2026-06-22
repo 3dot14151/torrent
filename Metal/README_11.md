@@ -1,3 +1,119 @@
+###  Публикация: 973280   (976979) от 11.01.2016
+
+Artificum Nex - Epitaph of Life (2014) [MP3|320 кб/с] <Black Metal, Melodic Black Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Rotting Temple
+02 Behold the Agony
+03.From the Grave
+04.Ascended by Fire(   Читать дальше...   )Жанр: Black Metal, Melodic Black Metal, Death MetalПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D93928A4BE0558BA71DB4FCF354981D5EE439271
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974310   (976947) от 11.01.2016
+
+Odyssea - Storm (2015) [MP3|320 кб/с] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Compromise
+02. Anger Danger
+03. Understand
+04. Ice(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:00:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE9EF39761227F768488C51B1EA49494758DF8FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974349   (976940) от 11.01.2016
+
+Sybrid - Hetalony (2016) [MP3|320 кб/с] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Journey
+02. Versus
+03. Feel Free
+04. Cyclone Heroes(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8220922AC191FA0E9BA098FA486F0CB0BC105232
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356988   (976771) от 01.02.2020
+
+Dark Matter - Nebula to Black Hole (2020) [MP3|320 Kbps] <Atmospheric Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976771.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Except Love
+2. Earthless Child
+3. Theory of X
+4. Imperfect Universe(   Читать дальше...   )Жанр: Atmospheric Doom MetalПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F493FC139FF45E0168BC2096CBC77F136824B7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 615904   (976635) от 09.02.2013
 
 Caladan Brood - Echoes Of Battle (2013) [MP3|320 кб/с]<Atmospheric Black, Epic Metal>
@@ -6,7 +122,7 @@ Caladan Brood - Echoes Of Battle (2013) [MP3|320 кб/с]<Atmospheric Black, Epi
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976635.jpg" />
 </div>
 
 
@@ -37,7 +153,7 @@ Marty Friedman - 11 albums (1988-2011) Discography [MP3|224 - 320 кб/с] <thra
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975953.jpg" />
 </div>
 
 
@@ -72,7 +188,7 @@ Abbath - Abbath (2016) [MP3|320 кб/с] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975668.jpg" />
 </div>
 
 
@@ -101,7 +217,7 @@ Pelican - Australasia (2003) [MP3|320 kbps]<Instrumental Artcore / Sludge Doom M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974911.jpg" />
 </div>
 
 
@@ -130,7 +246,7 @@ My Dear Addiction - Kill the Silence (2016) [MP3|320 кб/с] <Modern Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974475.jpg" />
 </div>
 
 
@@ -159,7 +275,7 @@ Saxon - Sacrifice (2013) [MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973756.jpg" />
 </div>
 
 
@@ -194,7 +310,7 @@ Ewigheim - Nachruf (2013) [MP3|320 кб/с] <Industrial Metal, Gothic Metal, Dar
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973434.jpg" />
 </div>
 
 
@@ -223,7 +339,7 @@ Ecliptica - Ecliptified (2016) [MP3|320 кб/с] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973362.jpg" />
 </div>
 
 
@@ -252,7 +368,7 @@ Mr. Ego - Se7en (2015) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973360.jpg" />
 </div>
 
 
@@ -281,7 +397,7 @@ Rhapsody Of Fire - Into the Legend (2016) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973275.jpg" />
 </div>
 
 
@@ -310,7 +426,7 @@ Dissfigured - Thousand Yard Stare (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972259.jpg" />
 </div>
 
 
@@ -339,7 +455,7 @@ Non Divine Sun - Non Divine Sun (2016) [MP3|320 кб/с] <MDM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972257.jpg" />
 </div>
 
 
@@ -368,7 +484,7 @@ Brainstorm - Scary Creatures (2016) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971941.jpg" />
 </div>
 
 
@@ -397,7 +513,7 @@ Shok Paris - Full Metal Jacket (2020) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970733.jpg" />
 </div>
 
 
@@ -426,7 +542,7 @@ Delain - Apocalypse & Chill (2020) [MP3|320 Kbps] <Symphonic Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970730.jpg" />
 </div>
 
 
@@ -455,7 +571,7 @@ Sepultura - Quadra (2020) [MP3|320 Kbps] <Groove Metal, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970641.jpg" />
 </div>
 
 
@@ -484,7 +600,7 @@ Loathe - I Let It in and It Took Everything (2020) [MP3|320 Kbps] <Progressive M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968813.jpg" />
 </div>
 
 
@@ -513,7 +629,7 @@ Sylosis - Cycle of Suffering (2020) [MP3|320 Kbps] <Melodic Death Metal, Thrash 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968809.jpg" />
 </div>
 
 
@@ -542,7 +658,7 @@ Unzucht - Jenseits der Welt (2020) 2CD [MP3|320 kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968750.jpg" />
 </div>
 
 
@@ -571,7 +687,7 @@ Ravenword - Transcendence (2020) [MP3|320 Kbps] <Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968749.jpg" />
 </div>
 
 
@@ -600,7 +716,7 @@ Inhaler - Inhaler (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967867.jpg" />
 </div>
 
 
@@ -629,7 +745,7 @@ Orphaned Land - The Never Ending Way Of ORwarriOR (2010) [MP3|320 kbps]<Oriental
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966549.jpg" />
 </div>
 
 
@@ -643,134 +759,6 @@ Part I: Godfrey's Cordial - An ORphan's Life
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977517   (965742) от 21.01.2016
-
-Agonal - Death Defeated (2016) [MP3|320 кб/с] <Doom, Death, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Scars Of Memory
-02. Death Defeated
-03. Parting Heavens
-04. Prayer(   Читать дальше...   )Жанр: Doom, Death, Gothic MetalПродолжительность: 00:59:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A700369269924A707686809784DECE97699214AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618632   (965166) от 18.02.2013
-
-Jason Becker -8 albums + 2 Tributes (1987 - 2012) Discography [MP3|192 - 320 кб/с] <Heavy/Thrash/Speed/Instrumental/Neoclassical metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965166.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Desert Island (4:37)
-2. Colors (3:14)
-3. Feathers (5:09)
-4. Temple of Absurd (6:00)
-5. The Brightest Star Of All (4:09)
-6. Temple In The Cellar (4:22)
-7. Poem (3:49)
-8. Utopia (4:02)
-9. Dialogues at the Moon (5:09)
-10. When You Wish Upon a Star (5:38)(   Читать дальше...   )Жанр: heavy/thrash/speed/instrumental neoclassical metalПродолжительность: 06:21:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:423F56A5CC4ADFE33B5E3596B3DAE5B280B807AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 620487   (965095) от 18.02.2013
-
-Michael Angelo Batio - 9 albums (1995 - 2009) Discography [MP3|192 кб/с]<Heavy/Instrumental/Neoclassical metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965095.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dial In That Frequency (0:24)
-2. Tribute To Dimebag (7:36)
-3. Clapton Is God (6:04)
-4. Metallica Rules (8:40)
-5. Evh (7:59)
-6. Symphony Of Destruction (6:43)
-7. For Jimi: All Along The Watchtower (5:40)
-8. Tribute To Randy 2: You Can't Kill Rock And Roll (3:53)
-9. On The Double (3:31)
-10. MAB Forum Shreddathon (9:46)Жанр: Heavy/Instrumental/Neoclassical metalПродолжительность: 05:04:47
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977855   (964817) от 22.01.2016
-
-Dethrone - Incinerate All (2016) [MP3|320 кб/с] <Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reborn in Fire
-02. The Plague Carrier
-03. Rat King
-04. Morbid Existence(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB595EFBB62E9A8845CA9DE66E323583EF4640F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

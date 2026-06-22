@@ -1,3 +1,56 @@
+###  Публикация: 1376082   (860604) от 17.04.2020
+
+Александр Ананичев | Преподобный Сергий Радонежский. Ангел-хранитель России (2018) [EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нет в России человека, который бы не слышал имени преподобного Сергия Радонежского, любимого русского святого, которому народ дал почетное звание Игумена всея Руси. Многие обращались к нему с молитвой и получали утешение, исцеление, благословение на добрые дела.
+Ему, первому из русских святых был составлен акафист. Подобно тому, как хвалебное пение Пресвятой Богородице (   Читать дальше...   )Жанр: Духовная литература, ПравославиеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75B61B4A3852BD51C9F5B9FB8657807D96FFBB4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999939   (859068) от 25.03.2016
+
+Книжная серия | Религия. Войны за бога [9 книг] (2011-2014) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Увлекательная история литературных подделок в Древнем мире, написанная одним из самых известных в мире специалистов по Библии и раннему христианству. Почему авторами многих христианских евангелий, посланий, трактатов и откровений были совсем не те люди, которым их приписывают? Можно ли считать библейские тексты подделками? Зачем неизвестные христианские авторы сознательно (   Читать дальше...   )Жанр: Научно-популярная литература, АтеизмФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B7003D0311853726BFCB28AB741C5FCA74ADE78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376487   (859025) от 18.04.2020
 
 Архимандрит Андрей (Конанос) | Духовная амнезия. Беседы о том, как не забыть о Боге (2020) [FB2, EPUB]
@@ -6,7 +59,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859025.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856165.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855592.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855392.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855069.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852298.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851490.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850570.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850569.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850559.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850393.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850271.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849890.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848890.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848852.jpg" />
 </div>
 
 
@@ -405,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848658.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848586.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848427.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845041.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844545.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844536.jpg" />
 </div>
 
 
@@ -563,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843499.jpg" />
 </div>
 
 
@@ -592,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843417.jpg" />
 </div>
 
 
@@ -618,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843388.jpg" />
 </div>
 
 
@@ -629,58 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD78E74638D9937E6979C77022DB005A27A8F69F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112228   (843201) от 08.03.2017
-
-А. Струве | Загробные ужасы - как чёрный террор (1926) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843201.jpg" />
-</div>
-
-
-###  Подробнее
-
-В брошюре повествуется о запугивании верующих ужасами ада с целью удержания их в повиновении церковью и господствующими классами.Жанр: История, религиоведение, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80B281AC3E0EE028B7FAB3D8B74DEA59613FD472
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003694   (843125) от 03.04.2016
-
-Игнатий Викентьевич Ягич | Мариинское четвероевангелие (1883) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мариинское евангелие (в иностранной литературе обычно именуется Codex Marianus) — глаголическая неполная рукопись четвероевангелия, памятник старославянского языка, датируется XI веком. Её основную часть (171 лист) нашёл В. И. Григорович в русском скиту Пресвятой Богородицы Ксилургу на Афоне в Мариинском монастыре в 1840-х годах; после смерти Григоровича она поступила (   Читать дальше...   )Жанр: ЕвангелиеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B235FEDE32BF4864F2BC60560BE7B898E6435A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

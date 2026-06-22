@@ -1,3 +1,59 @@
+###  Публикация: 1336274   (280953) от 06.11.2019
+
+BusyContacts 1.4.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280953.jpg" />
+</div>
+
+
+###  Подробнее
+
+BusyContacts является менеджером контактов для OS X, что позволяет создавать, находить и управлять контактами более быстрым и эффективным способом.
+
+BusyContacts приносит в управление контактами те же возможности, мощность, гибкость, а также обмен ими, что и для пользователей BusyCal в управлении своими календарями. Более того, BusyContacts интегрируется с BusyCal (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.09.2019Разработчик: BusyCal, LLCПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38765E5C6F81189A99EC5453016EFADBB496114F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336392   (280952) от 06.11.2019
+
+Script Debugger 7 v7.0.10 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Script Debugger предлагает пользователям всё, что необходимо для быстрого создания авторских скриптов AppleScript. Ни одна из утилит не сравнится с Script Debugger в быстроте и простоте создания, редактирования и отладки скриптов AppleScript. Встроенный браузер Dictionary предлагает пользователю больше информации, чем любая другая утилита.
+
+Редактор полностью поддерживает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Late Night Software Ltd.Поддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36AC90EDA6DF106BAEABA78CD5F6584FA0F85BCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336443   (280949) от 06.11.2019
 
 RSS Menu 2.7.3 [En]
@@ -6,7 +62,7 @@ RSS Menu 2.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280949.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ BusyCal 3 v3.7.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280947.jpg" />
 </div>
 
 
@@ -59,7 +115,7 @@ GraphicConverter 11 v11.1.1 (4163) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280945.jpg" />
 </div>
 
 
@@ -85,7 +141,7 @@ Path Finder 9.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280944.jpg" />
 </div>
 
 
@@ -111,7 +167,7 @@ Screenshot Editor 2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280942.jpg" />
 </div>
 
 
@@ -137,7 +193,7 @@ Carbon Copy Cloner 5 v5.1.14 b1 (5850) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280941.jpg" />
 </div>
 
 
@@ -166,7 +222,7 @@ Numi 3.20.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280939.jpg" />
 </div>
 
 
@@ -192,7 +248,7 @@ MacAppBlocker 3.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280915.jpg" />
 </div>
 
 
@@ -221,7 +277,7 @@ Elements for iWork 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280913.jpg" />
 </div>
 
 
@@ -247,7 +303,7 @@ Folx Pro 5.1.13642 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280912.jpg" />
 </div>
 
 
@@ -275,7 +331,7 @@ Backgrounds 7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280817.jpg" />
 </div>
 
 
@@ -304,7 +360,7 @@ Compress PDF 2.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280816.jpg" />
 </div>
 
 
@@ -330,7 +386,7 @@ Geekbench 5 v5.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280812.jpg" />
 </div>
 
 
@@ -359,7 +415,7 @@ Adobe Zii 2020 - Universal Patcher v5.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280799.jpg" />
 </div>
 
 
@@ -385,7 +441,7 @@ UninstallPKG 1.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280769.jpg" />
 </div>
 
 
@@ -413,7 +469,7 @@ Script Debugger 6.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280760.jpg" />
 </div>
 
 
@@ -441,7 +497,7 @@ PopClip 2019.10 (3032) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280683.jpg" />
 </div>
 
 
@@ -469,7 +525,7 @@ Canary Mail 1.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280617.jpg" />
 </div>
 
 
@@ -498,7 +554,7 @@ PDF Expert 2.2.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280603.jpg" />
 </div>
 
 
@@ -527,7 +583,7 @@ NetSpot PRO Wi-Fi Reporter 2.11.1000 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280506.jpg" />
 </div>
 
 
@@ -556,7 +612,7 @@ Adguard 1.5.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280490.jpg" />
 </div>
 
 
@@ -582,7 +638,7 @@ Amadeus Pro 2.4.3 (1977) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280447.jpg" />
 </div>
 
 
@@ -608,7 +664,7 @@ Unclutter 2.1.6d [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280445.jpg" />
 </div>
 
 
@@ -637,7 +693,7 @@ Audirvana Plus 2.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280429.jpg" />
 </div>
 
 
@@ -651,61 +707,6 @@ Audirvana Plus - мощный аудиофильский плеер с широ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46ECA631CAF5A8581F534E0729F7FC1DE92C62A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336419   (280339) от 06.11.2019
-
-iMazing 2.10.5 (11536) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280339.jpg" />
-</div>
-
-
-###  Подробнее
-
-iMazing: отличная альтернатива iTunes
-Согласитесь, iTunes – отличный инструмент для работы с iДевайсами и медиафайлами, однако в нем чего-то не хватает. Разобраться, чего именно, решили разработчики софтины iMazing, которая не только может стать шикарной заменой «яблочному» сервису, но и неотъемлемым инструментом для полноценного функционирования вашего iPhone или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: DigiDNAПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A300F092C42E1310F88337411C81A54B8258B45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264502   (279573) от 24.11.2018
-
-IconFly 3.8.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279573.jpg" />
-</div>
-
-
-###  Подробнее
-
-IconFly позволяет легко создавать иконки в различных форматах для приложений Mac, iPhone, IPad и Apple Watch. Кроме того, IconFly позволяет создавать иконки для Android-приложений, а также веб-иконки и значки. IconFly активно поддерживается и постоянно обновляется.
-
-IconFly проста в использовании. Просто перетащите изображение в приложение, нажмите кнопку Создать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.10.2018Разработчик: Aperio Lux TeamПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64D8F013B82D4C34A918C06A788D4F0D4A96CCEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

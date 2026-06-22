@@ -6,7 +6,7 @@ Joe Cocker - Greatest Hits (2008) 2CD  [FLAC|Lossless]<Blues, rock, blues-rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247687.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Gov't Mule (Warren Haynes) - 22 Albums, 1 EP, 4 Box Set (1995 - 2023) (57 CD) [F
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247442.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Heritage Blues Orchestra - And Still I Rise (2012) [WavPack|Lossless]<Blues, Gos
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_246374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_246374.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Jeremy Edge - Saints and Souls, Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246025.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Harry Hmura - Goin’ Home (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245998.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Bernard Sellam & The Boyz From The Hood - Feelin' So Fine (2023) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245941.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Bart Ryan - Messenger (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245854.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VA - Funk, Soul & Blues Love Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245705.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Harry Manx & Kevin Breit - Jubilee (2003) [APE|Lossless|image + .cue] <Blues, Fo
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245686.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Harry Manx - Wise And Otherwise (2001) [WavPack|Lossless|image + .cue] <Blues, F
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245641.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Harry Manx - Road Ragas (2005) Live [WavPack|Lossless|image + .cue] <Blues, Folk
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245631.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ VA - News & The Blues: Telling It Like It Is (1990) Series: Roots n' Blues [WavP
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245522.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Harry Manx - 20 Strings And The Truth (2015) [FLAC|Lossless|tracks] <Blues, Folk
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245515.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Grant Haua - Awa Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245447.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ The Cadillac Cats - Billtown Boogie (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245426.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Jim Keller - By No Means (2021) [FLAC|Lossless|WEB-DL|tracks] <Roots Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245349.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ David Ronaldo - Tunes for a Dime - Tunes for a Dime (2023) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245278.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Slap Back Joe - Singing My Blues Away (2023) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244942.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Mike Zito & Albert Castiglia - Blood Brothers (2023) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244804.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ VA - Fresh Country (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country, Folk>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244739.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Ally Venable - Real Gone (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244710.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ The Cash Box Kings - Oscar's Motel (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244509.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Sunken Lands - Sunken Lands (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244476.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Vargas Blues Band - Stoner Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244301.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Ray Bordelon - Getting Better (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244280.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ The Differentials - Gary 3:17 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244235.jpg" />
 </div>
 
 

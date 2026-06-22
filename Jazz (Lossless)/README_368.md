@@ -1,119 +1,3 @@
-###  Публикация: 1810230   (17562) от 03.08.2025
-
-Boney James - Morning Sax (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All I Want Is You
-02. Boneyizm
-03. Coastin’
-04. Hold On Tight(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:10:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBFB2B912F0B602211C775A98AE65E2F7C01699F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810404   (17295) от 04.08.2025
-
-Dee Alexander - Songs My Mother Loves (2014) Blujazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. As Long as You're Living [6:18]
-02. Now or Never [6:41]
-03. Guess Who I Saw Today [4:53]
-04. Perdido [4:20](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:012B8072FAE8CE4F3BF5BF97AFD212219B033AE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810590   (17089) от 05.08.2025
-
-Dianne Reeves - That Day... (1997) Blue Note [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Will You Still Love Me Tomorrow [6:09]
-02. Blue Prelude [5:45]
-03. Close Enough for Love [6:51]
-04. Just a Little Lovin’ [3:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4605D4F1C8FAD34D5AB27AABB0C8BF5793F88BCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810804   (16870) от 06.08.2025
-
-Joe Pass - For Django (1964) 1998, BGO Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Django [3:23]
-02. Rosetta [3:08]
-03. Nuages [2:35]
-04. For Django [2:55](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:32:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF0E2B2514D586ECE68CE90617D68EA86A8C7749
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810927   (16806) от 07.08.2025
 
 Jazz Funk Soul - Simpatico (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz , Jazz Fusion , Funk>
@@ -122,7 +6,7 @@ Jazz Funk Soul - Simpatico (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz , J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16806.jpg" />
 </div>
 
 
@@ -151,7 +35,7 @@ Shelly Manne & His Men - Swinging Sounds, Vol.4 (1956) 1996, Original Jazz Class
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16779.jpg" />
 </div>
 
 
@@ -180,7 +64,7 @@ Carl Cox - Philly Strut (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16687.jpg" />
 </div>
 
 
@@ -209,7 +93,7 @@ Konstantin Klashtorni - Summer Favorites (2025) [FLAC|Lossless|WEB-DL|tracks] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16653.jpg" />
 </div>
 
 
@@ -238,7 +122,7 @@ Lemek - Boundless (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16652.jpg" />
 </div>
 
 
@@ -267,7 +151,7 @@ Love Suggestions - Chilly Summertime (2025) [FLAC|Lossless|WEB-DL|tracks] <Smoot
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16650.jpg" />
 </div>
 
 
@@ -296,7 +180,7 @@ Mark Winkler - Hold On (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16646.jpg" />
 </div>
 
 
@@ -325,7 +209,7 @@ Will Sumner - Rivers (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16641.jpg" />
 </div>
 
 
@@ -354,7 +238,7 @@ Duke Ellington - Ellington Uptown / The Liberian Suite / Masterpieces By Ellingt
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16527.jpg" />
 </div>
 
 
@@ -383,7 +267,7 @@ Susannah McCorkle - From Broken Hearts To Blue Skies (1999) Concord Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15838.jpg" />
 </div>
 
 
@@ -412,7 +296,7 @@ V.A. - Pop International Hits Vol. 5 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15761.jpg" />
 </div>
 
 
@@ -441,7 +325,7 @@ Susannah McCorkle - Dream (1987) 2002, The Jazz Alliance [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15743.jpg" />
 </div>
 
 
@@ -470,7 +354,7 @@ Mark Murphy - Love Is What Stays (2007) Verve Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15556.jpg" />
 </div>
 
 
@@ -499,7 +383,7 @@ Mark Murphy - Mark Murphy Sings (1975) 1995, Muse Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15537.jpg" />
 </div>
 
 
@@ -528,7 +412,7 @@ Rolf Ericson & Lennart Aberg - Ellington & Strayhorn (1995) Sittel AB [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15452.jpg" />
 </div>
 
 
@@ -557,7 +441,7 @@ Kenny Dorham - Four Classic Albums (1958 - 1962) 2CD, 2013, Avid Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15145.jpg" />
 </div>
 
 
@@ -586,7 +470,7 @@ Branford Marsalis Quartet - Belonging (2025) Blue Note [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15039.jpg" />
 </div>
 
 
@@ -615,7 +499,7 @@ Tim Hardin Trio - Light Intelligence Series 5 (1992) Golden Penguin [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15038.jpg" />
 </div>
 
 
@@ -644,7 +528,7 @@ Ella Fitzgerald - Golden Legends (2006) CD, Compilation [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15034.jpg" />
 </div>
 
 
@@ -673,7 +557,7 @@ Dexter Gordon - Three Classic Albums Plus (1955, 1960) 2CD, 2014, Avid Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14404.jpg" />
 </div>
 
 
@@ -702,7 +586,7 @@ The Lady & The Dappers - Electro Swing Vol. 1 (2025) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13600.jpg" />
 </div>
 
 
@@ -731,7 +615,7 @@ Electro Swing - Swing Beats 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Ele
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13581.jpg" />
 </div>
 
 
@@ -745,6 +629,122 @@ Electro Swing - Swing Beats 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB64B516E695C25B784AA23B60B29D5B818F43C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803690   (13580) от 24.06.2025
+
+Soundify Background Music - Electro Swing Cocktail (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Swing Machine (2:46)
+02.  Time Travel Affair (2:52)
+03.  Electro Swing (3:22)
+04.  Syncopation Nation (3:15)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F38FEAB7251695B5E04D431C3F5601AD581055D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803698   (13566) от 24.06.2025
+
+The Lady & The Dappers - Electro Swing Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Only For You (3:41)
+02.  I Don’t Know Who I Am (3:04)
+03.  All I Want Is To Be With You (4:04)
+04.  Strong Feelings (3:00)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46DE7C417C5298220FEC4E8E26D95D4F7F1198D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803696   (13557) от 24.06.2025
+
+The Lady & The Dappers - Electro Swing Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I Can’t Stand It When You Go (3:44)
+02.  I Don’t Want To Linger For You (4:10)
+03.  You're More Connected (3:38)
+04.  I Care For You (Reimagined) (3:40)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ABD3C328D1752C5D7228E250CB998469D92C8D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804106   (13259) от 27.06.2025
+
+Michael Sagmeister & Pat Martino - Conversation (2000) Acoustic Music Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conversation [5:26]
+02. Catch [6:41]
+03. Rejoin [8:37]
+04. On the Stairs [8:29](   Читать дальше...   )Жанр: Jazz Fusion, Post-Bop, Guitar JazzПродолжительность: 01:03:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D840D2158D7F54C394A734B31826F88230BCBF18
 ```
 
 https://mybot314.ru/tekegram_catalog/

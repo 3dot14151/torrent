@@ -1,3 +1,32 @@
+###  Публикация: 1205014   (784059) от 08.02.2018
+
+Franz Ferdinand - Always Ascending (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Always Ascending (05:21)
+02. Lazy Boy (02:59)
+03. Paper Cages (03:40)
+04. Finally (03:09)(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A3509F7A491A7EC93CCA1009B642758DE2FBE07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204930   (784051) от 08.02.2018
 
 MGMT - Little Dark Age (2018) [FLAC|Lossless|tracks + .cue] <Alternative, Indie, Electronic>
@@ -6,7 +35,7 @@ MGMT - Little Dark Age (2018) [FLAC|Lossless|tracks + .cue] <Alternative, Indie,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784051.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ The Wombats - Beautiful People Will Ruin Your Life (2018) [FLAC|Lossless|tracks 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783496.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Tonight Alive - Underworld (2018) [FLAC|Lossless|tracks + .cue] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781308.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ U2 - The Unforgettable Fire (1984) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781287.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ The Monochrome Set - Maisieworld (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779395.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Cary Brothers - Who You Are (2007) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779141.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Moaning - Moaning (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779018.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Cranes - Population Four (1997) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779014.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Superorganism - Superorganism (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778207.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Vance Joy - Nation of Two (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Pop 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776460.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Radiohead - A Moon Shaped Pool (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776019.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ De Staat - Bubble Gum (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, El
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774320.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Turbonegro - RockNRoll Machine (2018) [FLAC|Lossless|tracks + .cue] <Deathrock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774318.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Paleons - Hyperborean (2017) [FLAC|Lossless|tracks + .cue] <indierock, noise, kr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773453.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Bazooka - Bazooka (2012) [FLAC|Lossless|tracks + .cue] <Garage Rock, Psychedelic
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773305.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Lorelle Meets The Obsolete - De Facto (2019) [FLAC|Lossless|tracks + .cue] <Drea
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773180.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Weezer - Weezer (Teal Album) (2019) [FLAC|Lossless|tracks] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773167.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Bring Me The Horizon - amo (2019) RCA Records [FLAC|Lossless|WEB-DL|tracks] <Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772838.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Maroon 5 - Songs About Jane (2002) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772662.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Sufferer - Sufferer (2017) Limited Edition [FLAC|Lossless|tracks + .cue] <Post-H
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771995.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Better Oblivion Community Center - Better Oblivion Community Center (2019) [FLAC
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771990.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Alice Merton - MINT (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771827.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ The Smiths - The Sound Of The Smiths (2008) [FLAC|Lossless|tracks] <New wave, Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771256.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Namesake - Borders & Fences (2016) Deluxe Edition [FLAC|Lossless|tracks] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770274.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Hum - Inlet (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769875.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Hum - Inlet (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDC6CC5BD69B06118168DF674CBAD73D8072923A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278752   (768604) от 26.01.2019
-
-Bob Mould - Sunshine Rock (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunshine Rock (03:09)
-02. What Do You Want Me to Do (02:31)
-03. Sunny Love Song (03:01)
-04. Thirty Dozen Roses (02:53)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:36:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77B1C54C6365406392BF3A6D4454B89C62C42A39
 ```
 
 https://mybot314.ru/tekegram_catalog/

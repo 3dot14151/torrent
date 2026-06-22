@@ -6,7 +6,7 @@
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805356.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802255.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801888.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801242.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801236.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801232.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800568.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800558.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800008.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800005.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799736.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799456.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799317.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798620.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798116.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797974.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797959.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797954.jpg" />
 </div>
 
 
@@ -478,6 +478,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508347   (797397) от 08.11.2021
+
+Дуэты (2021) WEBRip [H.264/1080p-LQ] (сезон 1, выпуск 1-8 из 8)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_797397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярные артисты исполнят любимые миллионами хиты, но есть одно "но": впервые в жизни они даже не догадываются, с кем в дуэте им предстоит выступать! За огромной зеркальной стеной может скрываться кто угодно – артист-легенда, подающая надежды звезда, непримиримый соперник или бывшая любовь. Неизменно одно – в каждой паре участников существует связь и (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТВ-шоуПродолжительность: ~01:35:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B3045F43198FCEBF2DAD83D0CD1FD48FB879766
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508269   (797324) от 08.11.2021
 
 Музыкальная интуиция (2021) [H.264/720p] WEBRip (сезон 1, выпуск 1-12 из 12)
@@ -486,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797324.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794577.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794485.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794452.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794285.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793921.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793451.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C78B368C4B07622ED231CAB129CCF04525100279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012608   (793448) от 01.05.2016
-
-Голос. Дети. На самой высокой ноте (2016.05.01) SATRip (сезон 3)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большой артист – не значит взрослый. Это сезон за сезоном доказывает грандиозный и популярный вокальный проект «Голос. Дети».Телекомпания: Первый каналЖанр: ТВ-Шоу, развлекательныйСубтитры: ОтсутствуютПродолжительность: ~ 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA0496F69F2C39330585018441851F9B33DC248D
 ```
 
 https://mybot314.ru/tekegram_catalog/

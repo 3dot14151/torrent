@@ -1,3 +1,243 @@
+###  Публикация: 1662356   (187899) от 17.09.2023
+
+SystemRescue 10.02 [amd64] 1xCD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187899.jpg" />
+</div>
+
+
+###  Подробнее
+
+SystemRescue - восстановительный диск, основанный на Linux и доступный в качестве загрузочного CD/DVD-диска или USB-флешки для администрирования и восстановления системы и данных после сбоя.
+
+Загрузочный диск призван обеспечить простой способ для выполнения задач администратора на вашем компьютере, таких как, например, создание и редактирование разделов жесткого (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBD94367D527F4AAF2996AFD32910C6D3C507BA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583898   (184182) от 21.11.2022
+
+KingStation 0.2a [x86-64]
+
+>>Linux, Unix и другие ОС
+>>*Nix. Программы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184182.jpg" />
+</div>
+
+
+###  Подробнее
+
+KingStation - универсальный фронтенд для множества эмуляторов, ориентированный на удобный интерфейс и оригинальный игровой опыт (тот же, что и настоящие приставки). Изначально поддерживается эмуляция систем GB, GBC, GBA, PS1, SNES, NES, Nintendo 64.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:811A97928771197F6CC0BFA006F99A33694F3DE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428657   (178856) от 03.12.2020
+
+BlackArch Linux 2020.12.01 [Хакинг, аудит, безопасность] [x86_x64] 1xDVD + 1xNetinstallCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Опубликованы новые сборки BlackArch Linux, специализированного дистрибутива для исследований в области безопасности и изучения защищённости систем. Дистрибутив построен на пакетной базе Arch Linux и включает около 2300 связанных с безопасностью утилит. Поддерживаемый проектом репозиторий пакетов совместим с Arch Linux и может использоваться в обычных установках Arch (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBB53589EF9F3E591ACB555AAEB856580C13F8B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666779   (177899) от 06.10.2023
+
+Kali Linux 2023.3 [amd64, i386, arm64] 11xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177899.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 августа 2023 состоялся релиз обновления дистрибутива Kali Linux 2023.3, предназначенного для тестирования систем на предмет наличия уязвимостей, проведения аудита, анализа остаточной информации и выявления последствий атак злоумышленников.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84A50043B9F64FBD5AD32310A80EBA5A370FDAA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429680   (175732) от 07.12.2020
+
+Debian GNU/Linux 10.7.0 + nonfree Buster [i386] 4xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как сообщает OpenNET: опубликовано седьмое корректирующее обновление дистрибутива Debian 10, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 54 обновления с устранением проблем со стабильностью и 38 обновлений с устранением уязвимостей.
+
+Из изменений в Debian 10.7 выделяется обновление до свежих стабильных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1A3A4940F916DC4E504751543DD3C9F00030CFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429796   (175678) от 07.12.2020
+
+Debian Edu - Skolelinux 10.7.0 Buster [Linux для школы] [i386, x86-64] 2xBD, 2xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Debian Edu, также известный как Skolelinux, является дистрибутивом Linux на основе Debian, предоставляющим «из коробки» готовое окружение для развёртывания полностью готовой и настроенной школьной сети. Сразу же после установки на школьном сервере запускаются все необходимые для школьной сети службы и просто ждут пользователей, сами машины добавляются в сеть через (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B9031B8B34BC29983163B1356816B3905BDB883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429678   (175646) от 07.12.2020
+
+Debian GNU/Linux 10.7.0 + nonfree Buster [amd64] 4xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как сообщает OpenNET: опубликовано седьмое корректирующее обновление дистрибутива Debian 10, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 54 обновления с устранением проблем со стабильностью и 38 обновлений с устранением уязвимостей.
+
+Из изменений в Debian 10.7 выделяется обновление до свежих стабильных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED9FF2508F0E5598A7B0DFB2785D2712D8D66754
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085340   (173741) от 21.12.2016
+
+BlackArch Linux 2016.12.20 [Хакинг, аудит, безопасность] [i686, x86-64] 2xDVD, 2xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173741.jpg" />
+</div>
+
+
+###  Подробнее
+
+BlackArch Linux — специализированной Live модификации Arch Linux, созданной для проведения тестирования на возможность проникновения (пен-тестинга приложений) специалистами по безопасности. BlackArch Linux является функциональным аналогом проекта BackTrack (в марте 2013 года был переименован в Kali Linux), но основанный на наработках дистрибутива Arch Linux и полностью (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAA9690E031413E152B1D3C2A13E5E07A11C9FD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598390   (163086) от 18.12.2022
+
+Debian GNU/Linux 11.6.0 + nonfree (firmware) Bullseye [i386] 2xDVD+2xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как сообщает OpenNET: опубликовано шестое корректирующее обновление дистрибутива Debian 11, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 69 обновлений с устранением проблем со стабильностью и 78 обновлений с устранением уязвимостей. Из изменений в Debian 11.6 можно отметить обновление до свежих стабильных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A53FC97489671F363C2C58351B73188EEA7ABDD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598391   (163063) от 18.12.2022
 
 Debian Edu - Skolelinux 11.6.0 Bullseye + nonfree [Linux для школы] [i386, x86-64] 4xBD, 4xCD
@@ -6,7 +246,7 @@ Debian Edu - Skolelinux 11.6.0 Bullseye + nonfree [Linux для школы] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163063.jpg" />
 </div>
 
 
@@ -32,7 +272,7 @@ Debian GNU/Linux 11.6.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163042.jpg" />
 </div>
 
 
@@ -58,7 +298,7 @@ Kali Linux 2022.4 [amd64, i386, arm64] 8xDVD, 3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158819.jpg" />
 </div>
 
 
@@ -84,7 +324,7 @@ Whonix 12.0.0.3.2  [анонимный доступ в сети] [x86] Обра�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158545.jpg" />
 </div>
 
 
@@ -110,7 +350,7 @@ Cyborg Hawk 1.1 (хакинг и анализ безопасности) [x86-64]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158322.jpg" />
 </div>
 
 
@@ -138,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ОС *Nix - обсуждение
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_156685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_156685.jpg" />
 </div>
 
 
@@ -165,7 +405,7 @@ Debian GNU/Linux 11.2.0 + nonfree (firmware) Bullseye [i386] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155142.jpg" />
 </div>
 
 
@@ -191,7 +431,7 @@ Wowza Streaming Engine (linux) 4.7.8 [x64] (run)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154734.jpg" />
 </div>
 
 
@@ -217,7 +457,7 @@ Debian GNU/Linux 11.2.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153629.jpg" />
 </div>
 
 
@@ -243,7 +483,7 @@ elementary OS 6.1 Jolnir [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151959.jpg" />
 </div>
 
 
@@ -269,7 +509,7 @@ Univention Corporate Server 3.1 [i386 + amd64 +amd64 (U)EFI] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151072.jpg" />
 </div>
 
 
@@ -287,34 +527,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271351   (149194) от 23.12.2018
-
-CentOS 7.6 (1810) [x86-64] 5xDVD, 1xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_149194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доступен новый выпуск дистрибутивов CentOS 7.6.1810, вобравшие в себя изменения из Red Hat Enterprise Linux 7.6. Дистрибутивы полностью бинарно совместимы с RHEL 7.6, внесенные в пакеты изменения, как правило, сводятся к ребрендингу и замене художественного оформления.
-
-Сборки CentOS 7.6 доступны для архитектур x86_64, Aarch64 (ARM64), i386, ppc64le, Power9 и ARMv7 (   Читать дальше...   )Разработчик: CentOS Linux AltArch SIG (Special Interest Group) и © Red Hat Inc
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B773FF440F069EEA4BA55AFA932573EACF1DDDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434666   (148972) от 25.12.2020
 
 Интернет Контроль Сервер 8.0.1 [x86, amd64] 1xDVD
@@ -323,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148972.jpg" />
 </div>
 
 
@@ -351,7 +563,7 @@ KX Studio 14.04.2 (Мультимедийная рабочая станция) [
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148677.jpg" />
 </div>
 
 
@@ -377,7 +589,7 @@ AV Linux 6.0.4 (Мультимедийная рабочая станция на 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148299.jpg" />
 </div>
 
 
@@ -397,34 +609,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271702   (146478) от 25.12.2018
-
-CentOS 7.6 (1810) [i386] 2xDVD, 1xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_146478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доступен новый выпуск дистрибутивов CentOS 7.6.1810, вобравшие в себя изменения из Red Hat Enterprise Linux 7.6. Дистрибутивы полностью бинарно совместимы с RHEL 7.6, внесенные в пакеты изменения, как правило, сводятся к ребрендингу и замене художественного оформления.
-
-Сборки CentOS 7.6 доступны для архитектур x86_64, Aarch64 (ARM64), i386, ppc64le, Power9 и ARMv7 (   Читать дальше...   )Разработчик: CentOS Linux AltArch SIG (Special Interest Group) и © Red Hat Inc
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:961EE7368EFE3AAEFD320E97AB2DB54199E2B2B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969950   (145189) от 28.12.2015
 
 Sabayon 16.01 (KDE, XFCE, GNOME, SpinBase, Minimal + теперь с MATE и server) [amd64] 7xDVD
@@ -433,7 +617,7 @@ Sabayon 16.01 (KDE, XFCE, GNOME, SpinBase, Minimal + теперь с MATE и ser
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145189.jpg" />
 </div>
 
 
@@ -459,7 +643,7 @@ Red Hat Enterprise Linux (Server, Workstation, Client) 7.2 [x86-64]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142051.jpg" />
 </div>
 
 
@@ -486,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141312.jpg" />
 </div>
 
 
@@ -499,194 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B131E9A0D2915B166D30164A0BA11C2834388CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678681   (141066) от 23.11.2023
-
-РЕД Виртуализация 7.3.2 [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Система управления виртуализацией серверов и рабочих станций. Базируется на гипервизоре KVM (kernel-based virtual machine) и открытой платформе управления виртуальной инфраструктурой.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21AE6B77668AC98895A1192B91F7DD1D6F2D26A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348867   (140811) от 29.12.2019
-
-BlackArch Linux 2020.01.01 [Хакинг, аудит, безопасность] [x86_x64] 1xDVD + 1xNetinstallCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Опубликованы новые сборки BlackArch Linux, специализированного дистрибутива для исследований в области безопасности и изучения защищённости систем. Дистрибутив построен на пакетной базе Arch Linux и включает около 2300 связанных с безопасностью утилит. Поддерживаемый проектом репозиторий пакетов совместим с Arch Linux и может использоваться в обычных установках Arch (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1EB86A6F6C51C28B5AD9561C3C277F952B179A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088411   (140357) от 30.12.2016
-
-Calculate Linux 17 [i686] 2xCD, 6xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140357.jpg" />
-</div>
-
-
-###  Подробнее
-
-На серверах размещена следующая версия российского дистрибутива Calculate Linux - 17. Calculate Linux 17, построен на основе Gentoo Linux, поддерживает непрерывный цикл выпуска обновлений и оптимизирован для быстрого развёртывания в корпоративной среде.
-
-Доступны для загрузки следующие редакции дистрибутива: Calculate Linux Desktop с рабочим столом KDE (CLD), Mate (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FA18B8C44BAA024D02D73A17766DB13813A2576
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088387   (140316) от 30.12.2016
-
-Sabayon 17.01 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64] 8xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлен новый  релиз дистрибутива Sabayon Linux 17.01, сочетающего в себе удобство для конечного пользователя с гибкостью Gentoo. Sabayon Linux оформлен в виде Live-дистрибутива, снабжённого возможностью лёгкой установки на жёсткий диск. Sabayon использует модифицированную rolling-модель подготовки обновлений, которая делает выпуск обновлений более предсказуемым (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22597236C99D5B343662309275CF9FB857148C4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086967   (140146) от 30.12.2016
-
-OpenMandriva Lx 3.01 PLASMA [x86-64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доступно обновление дистрибутива OpenMandriva Lx 3.01. Проект развивается силами сообщества после того как компания Mandriva S.A. передала управление проектом в руки некоммерческой организации "OpenMandriva Association". Дистрибутив примечателен использованием по умолчанию компилятора Clang, инсталлятором на базе проекта Calamares и наличием пользовательского (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD1AE29DD5945DFA05B44E26739C8278F877D597
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088395   (140033) от 30.12.2016
-
-Calculate Linux 17 [x86-64] 2xCD, 6xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140033.jpg" />
-</div>
-
-
-###  Подробнее
-
-На серверах размещена следующая версия российского дистрибутива Calculate Linux - 17. Calculate Linux 17, построен на основе Gentoo Linux, поддерживает непрерывный цикл выпуска обновлений и оптимизирован для быстрого развёртывания в корпоративной среде.
-
-Доступны для загрузки следующие редакции дистрибутива: Calculate Linux Desktop с рабочим столом KDE (CLD), Mate (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C0E0B576B301D5ADCD902926D452F866B1BA15F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 855139   (138644) от 31.12.2014
-
-Sabayon 15.01 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 5xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлен релиз дистрибутива Sabayon Linux 15.01, сочетающего в себе удобство для конечного пользователя с гибкостью Gentoo. Sabayon Linux оформлен в виде Live-дистрибутива, снабжённого возможностью лёгкой установки на жёсткий диск. Sabayon использует модифицированную rolling-модель подготовки обновлений, которая делает выпуск обновлений более предсказуемым и менее болезненным.  Добавлены новые ядра - Linux Kernel 3.18.
-
-Пакетная база дистрибутива синхронизирована с коллекцией портажей Gentoo и полностью совместима (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D769BDE43AEDF14E5B9F17EC42BC740148C38CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

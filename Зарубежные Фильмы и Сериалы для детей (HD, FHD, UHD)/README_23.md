@@ -1,3 +1,81 @@
+###  Публикация: 1614053   (206841) от 20.02.2023
+
+Хроники Нарнии: Покоритель Зари / The Chronicles of Narnia: The Voyage of the Dawn Treader (2010) BDRip [H.264/1080p-LQ]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эдмунд, Люси, их кузен Юстас и король Каспиан отплывают на корабле «Покоритель Зари» на поиски друзей отца Каспиана - семи лордов: Ревелиана, Берна, Аргоза, Мавроморна, Октезиана, Рестимара и Рупа, изгнанных во время недолгого правления тирана Мираза.Производство: США / 20th Century Fox Film Corporation, Fox 2000 Pictures, Walden MediaЖанр: фэнтези, приключения, семейныйРежиссер: Майкл АптедАктеры: Бен Барнс, Скандар Кейнс, Джорджи Хенли, Уилл Поултер, Гари Свит, Тильда Суинтон, Анна Попплуэлл, Уильям Моусли, Лиам Нисон, Саймон ПеггПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: Русские, английскиеПродолжительность: 01:52:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B633AE83238CAD0548AAF9CCC8D80F4E6EB3972D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614550   (206690) от 22.02.2023
+
+Белль и Себастьян: Новое поколение / Belle et Sebastien: Nouvelle Generation (2022) WEB-DL [H.264/1080p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Себастьяну 10 лет. Его отправляют в горную деревню к бабушке, но это совсем не похоже на каникулы мечты. Но все меняется, когда он встречает Белль — огромную белую собаку, с которой плохо обращался хозяин. Они становится настоящими друзьями, и Себастьян готов на все, чтобы защитить Белль. Он даже не подозревает, что его ждут самые захватывающие каникулы в жизни.Производство: Франция / Radar Films, Gaumont, M6 FilmsЖанр: приключения, семейныйРежиссер: Пьер КореАктеры: Робинсон Менса Руане, Мишель Ларок, Алис Давид, Каролин Англад, Сайрус Шахиди, Орельен Рекуан, Лу Ламбрехт, Noa Faure-Duval, Noam Grasset, Alois PedronoПеревод: дублированный (Pride Production)Язык озвучки: русский, французскийСубтитры: русские (full)Продолжительность: 01:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:728176F7DAD2BA1AE7A1C89317F446F90AFE4671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652590   (206531) от 12.08.2023
+
+Привидение Чарли / Charlie's Ghost Story (1995) WEB-DL [H.264/1080p] [DVO]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Археолог находит место, где известный путешественник Коронадо погиб, попав в ловушку. Он привозит останки путешественника в музей, что заставляет Коронадо «пробудится» и выбрать сына археолога, для того чтобы тот помог ему похоронить кости в надлежащем месте.Производство: США / Crystal Sky CommunicationsЖанр: фэнтези, комедия, приключенияРежиссер: Энтони ЭдвардсАктеры: Трентон Найт, Чич Марин, Энтони Эдвардс, Чарльз Роккет, Линда Фиорентино, Роберт Хай Гормен, Дафна Зунига, Вероника Лорен, Дж.Т. Уолш, Дин КэмеронПеревод: двуголосый профессиональный, авторскийЯзык озвучки: русский, английскийСубтитры: английские (SDH)Продолжительность: 01:29:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C5159FA85D284B7A42F492F9670BD7666685821
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581287   (206478) от 05.10.2022
 
 Пиноккио / Pinocchio (2022) WEB-DL [H.264/1080p]
@@ -6,7 +84,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206478.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205762.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205506.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205430.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205380.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205343.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205311.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205305.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205272.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205268.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205261.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205246.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205235.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204695.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204647.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204514.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ SOS - лето загадок / S.O.S Svartskjaer / SOS: Summer of Suspense (200
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204410.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203575.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202807.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202416.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202415.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202316.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201611.jpg" />
 </div>
 
 
@@ -589,85 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F7C3B92EEB4849A3546634207173DF56E72B88B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619126   (201285) от 14.03.2023
-
-Матильда / Roald Dahl's Matilda the Musical (2022) BDRip [H.264/1080p-LQ] [MVO]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленькая Матильда Вормвуд умна не по годам и обладает выдающимися способностями. Она отправляется на учёбу в школу Кранчем, где правит деспотичная директриса Агата Транчбулл.Производство: Великобритания, США / Working Title Films, Netflix, TriStar PicturesЖанр: мюзикл, фэнтези, комедияРежиссер: Мэттью УорчасАктеры: Алиша Вейр, Эмма Томпсон, Лашана Линч, Стивен Грэм, Андреа Райзборо, Синду Ви, Карл Спенсер.Перевод: Многоголосый профессиональный (Jaskier)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F673FD3585FB2D2A9444808C85E02A61E19A1626
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619024   (201265) от 14.03.2023
-
-Хроники Нарнии: Лев, колдунья и волшебный шкаф / The Chronicles of Narnia: The Lion, the Witch and the Wardrobe (2005) BDRip [H.265/1080p] [10-bit]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четверых детей родители отправляют из Лондона в деревню, к старому профессору - другу семьи. В его доме дети обнаруживают таинственный платяной шкаф, посредством которого они попадают в сказочную страну Нарнию, где обитают фантастические люди, животные и существа.
-Оказывается, что эта мирная страна находится под властью злой Колдуньи, из-за которой там - вечная зима. (   Читать дальше...   )Производство: США, Великобритания / Walden Media, Walt Disney PicturesЖанр: Фэнтези, драма, приключения, семейный, экранизацияРежиссер: Эндрю АдамсонАктеры: Джорджи Хенли, Скандар Кейнс, Уильям Моусли, Анна Попплуэлл, Тильда Суинтон, Джеймс МакЭвой, Джим Бродбент, Киран Шах, Джеймс Космо, Джуди МакИнтошПеревод: ДублированныйЯзык озвучки: Русский, АнглийскийСубтитры: РусскиеПродолжительность: 02:22:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD1F4204B206DC5051BDBC8EE078EF0FC690588F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619952   (201185) от 18.03.2023
-
-Эллиот и волшебный амулет / Wickensburg (2022) WEB-DL [H.264/1080p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201185.jpg" />
-</div>
-
-
-###  Подробнее
-
-После смерти отца Эллиот с матерью переезжают в мрачный городишко Викенсбург, где мальчик тут же знакомится с Уиллоу, считающей себя ведьмой. Она рассказывает о проклятье, которое было наложено на город более древними ведьмами, и о злом колдуне, который по возвращении уничтожит его. Распутывание загадки, связанной с этим проклятьем, приводит детей к новому предприятию (   Читать дальше...   )Производство: Канада, Wickensburg Film StudiosЖанр: приключения, семейныйРежиссер: Ричард БоддингтонАктеры: Дженсен Геринг, Кэтрин Уайт, Дениз Ричардс, Сэм Эш Арнольд, Пиппа, Джулиан Ричингс, Стив Байерс, Леа Пинсент, Морис Дин Винт, Натаниэл БэйконПеревод: дублированный (iTunes)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:26:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8677C1A48D4C0B8D2A9C51A0C1B196501AF9BF8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

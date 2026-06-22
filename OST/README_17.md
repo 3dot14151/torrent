@@ -1,3 +1,160 @@
+###  Публикация: 1067156   (408025) от 28.10.2016
+
+Johan Soderqvist & Patrik Andren - Battlefield 1 (Original Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Battlefield One (03:21)
+02. The War to End All Wars (03:23)
+03. Mud and Blood (03:05)
+04. Hunted (01:58)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D51C0E074BE2C870DF03CAE905405E40FD69BEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 558844   (407769) от 13.10.2012
+
+Reservoir Dogs / Бешеные псы - OST (1992) [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407769.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. And Now Little Green Bag
+2. Little Green Bag - The George Baker Selection
+3. Rock Flock Of Five
+4. Hooked On A Feeling - Blue Swede
+5. Bohemiath
+6. I Gotcha - Joe Tex
+7. Magic Carpet Ride - Bedlam
+8. Madonna Speech
+9. Fool for Love - Sandy Rogers
+10. Super Sounds(   Читать дальше...   )Жанр: OSTПродолжительность: 00:30:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:845783EDBD4A0F79CD595893064A438E17790658
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559860   (407116) от 14.10.2012
+
+VA - Сборник Cаундтреков (1966-2012) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jan A.P. Kaczmarek - Goodbye (OST Хатико. Самый верный друг 2009)
+ 02. John Williams (violin Itzhak Perlman) – Theme from Schindlers List (Список Шиндлера 1993 OST)
+ 03. Michael Nyman - The Heart Asks Pleasure FirstThe Promise (Edit) (Пианино 1993 OST)
+ 04. Celine Dion - My Heart Will Go On (c бэк вокалом) (Титаник 1997 OST)
+ 05. Angelo Badalamenti - The Theme from Twin Peaks Fire Walk with Me (Твин Пикс 1990 OST)
+ 06. Andre Rieu - Love Theme From Romeo & Juliet (Nino Rota 1968)
+ 07. Hans Zimmer - Tennessee (Перл Харбор 2001OST)
+ 08. London Symphony Orchestra - Requiem for a dream (Orchestral version) (Реквием по мечте 2000 OST)
+ 09. Hans Zimmer - Leaving Wallbrook-On The Road Человек Дождя 1988 OST)
+ 10. Hans Zimmer & Lisa Gerrard Now We Are Free (Gladiator 2000 OST)Жанр: SoundtrackПродолжительность: 02:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1D24FC1B3E2B5362FFCF225B6AA31D03F3D2A8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169085   (403152) от 27.09.2017
+
+Brian Tyler - Law Abiding Citizen (2009) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Designs
+02 - Predestined
+03 - Mechanical Mind
+04 - Origins(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F674F5F0FDFA77B611E01F749A597675C96B14A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169689   (402405) от 28.09.2017
+
+Various Artists - Pretty Woman (1990) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Natalie Cole - Wild Women Do
+02 - David Bowie - Fame 90
+03 - Go West - King Of Wishful Thinking
+04 - Jane Wiedlin - Tangled(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C210D2B00847842A8999B9F28F9A38AFCCDEA02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169632   (401596) от 29.09.2017
 
 Rolfe Kent - Kate & Leopold (2001) [MP3|320 Kbps] <Score>
@@ -6,7 +163,7 @@ Rolfe Kent - Kate & Leopold (2001) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401596.jpg" />
 </div>
 
 
@@ -35,7 +192,7 @@ Various Artists - Lock, Stock & Two Smoking Barrels (Expanded) (1999) [MP3|320 K
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401554.jpg" />
 </div>
 
 
@@ -64,7 +221,7 @@ Two Steps From Hell - Unleashed (2017) [MP3|320 Kbps] <Soundtrack, Instrumental,
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401216.jpg" />
 </div>
 
 
@@ -93,7 +250,7 @@ VA - Pulp Fiction (Collector's Edition) (2002) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399290.jpg" />
 </div>
 
 
@@ -122,7 +279,7 @@ VA - Men in Black (1997) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398628.jpg" />
 </div>
 
 
@@ -151,7 +308,7 @@ Danny Elfman - Men In Black (1997) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397697.jpg" />
 </div>
 
 
@@ -180,7 +337,7 @@ VA - Music In Love, Movie Collection Vol. 1 (2017) [MP3|320 Kbps] <Soundtrack, E
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397682.jpg" />
 </div>
 
 
@@ -209,7 +366,7 @@ Randy Newman - Maverick (1995) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396779.jpg" />
 </div>
 
 
@@ -238,7 +395,7 @@ David Arnold - Stargate (The Deluxe Edition) (2006) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396734.jpg" />
 </div>
 
 
@@ -267,7 +424,7 @@ Joel Goldsmith - Stargate: Atlantis (2005) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396680.jpg" />
 </div>
 
 
@@ -296,7 +453,7 @@ Nino Rota & Carmine Coppola - The Godfather Trilogy I - II - III: 30th Anniversa
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396560.jpg" />
 </div>
 
 
@@ -325,7 +482,7 @@ Harald Kloser - The Day After Tomorrow (2004) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395754.jpg" />
 </div>
 
 
@@ -354,7 +511,7 @@ VA - La Femme Nikita (TV Series) (1998) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395703.jpg" />
 </div>
 
 
@@ -383,7 +540,7 @@ Thomas Newman - The Shawshank Redemption (1994) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395697.jpg" />
 </div>
 
 
@@ -412,7 +569,7 @@ Kristofer Maddigan - Cuphead - Original Soundtrack (2017) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392902.jpg" />
 </div>
 
 
@@ -441,7 +598,7 @@ Neil Davidge - Halo 4. Original Soundtrack (Special Digital Edition) (2012) [MP3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391533.jpg" />
 </div>
 
 
@@ -476,7 +633,7 @@ Lorne Balfe - Assassin's Creed 3 (2012) [MP3|320 кб/с]<Game OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390696.jpg" />
 </div>
 
 
@@ -511,7 +668,7 @@ Need for Speed Most Wanted  (2012) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390602.jpg" />
 </div>
 
 
@@ -546,7 +703,7 @@ Carter Burwell - Seven Psychopaths (Семь психопатов) (2012) [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389891.jpg" />
 </div>
 
 
@@ -575,7 +732,7 @@ Carpenter Brut - Blood Machines / Кровь машин (Original Motion Picture
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383305.jpg" />
 </div>
 
 
@@ -604,7 +761,7 @@ Gianni Marchetti - Le Notti Porno Nel Mondo N. 2 (Original Motion Picture Soundt
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380281.jpg" />
 </div>
 
 
@@ -618,155 +775,6 @@ Gianni Marchetti - Le Notti Porno Nel Mondo N. 2 (Original Motion Picture Soundt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEA477C5C6EFD2B63D96D07E5C2787F2FB3D10AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068728   (377887) от 02.11.2016
-
-Ramin Djawadi - Westworld / Мир Дикого Запада: Season 1 (Selections from the HBO® Series) - EP (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Title Theme – Westworld (01:43)
-02. Black Hole Sun (02:29)
-03. Paint It, Black (05:45)
-04. No Surprises (04:03)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CBE165FBA5E37CC229DDD753489E87F63E3F222
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573421   (377656) от 11.11.2012
-
-Сумерки. Сага. Рассвет: Часть 2 - The Twilight Saga: Breaking Dawn - Part 2 (2012)OST [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passion Pit / Where I Come From
-02. Ellie Goulding / Bittersweet
-03. Green Day / The Forgotten
-04. Feist / Fire In The Water
-05. The Boom Circuits / Everything And Nothing
-06. St. Vincent / The Antidote
-07. Pop Etc / Speak Up
-08. Iko / Heart Of Stone
-09. A Boy And His Kite / Cover Your Tracks
-10. James Vincent Mcmorrow / Ghosts(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:56:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0588CF84957C407C70AD20538C87181672A2571E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175524   (376456) от 19.10.2017
-
-Paul Haslinger - Halt and Catch Fire (2016) [MP3|320 Kbps] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Golden Gate [02:07]
-02. A Wolf In Unix [01:17]
-03. The Scenic Route [01:50]
-04. First Day On the Job [01:17](   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:756AF940DCCA31F94F3D32904F8AF583AA034F3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415397   (376341) от 12.10.2020
-
-Hans Zimmer - Themyscira (From Wonder Woman 1984: Original Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Themyscira (From Wonder Woman 1984: Original Soundtrack) (03:51)Жанр: SoundtrackПродолжительность: 00:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5123F6ECB4719995E254054370ED545E73EFEEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574330   (375454) от 12.11.2012
-
-Howard Drossin & RZA - Человек с железными кулаками (2012) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Black Keys / RZA - The Baddest Man Alive
-  02. Ghostface Killah / M.O.P. / Pharoahe Monch - Black Out
-  03. Kanye West - White Dress
-  04. The Revelations feat. Tre Williams - I Forgot To Be Your Lover
-  05. Idle WarshipЖанр: SoundtrackПродолжительность: 04:11:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:630D6AEC9C03854774F04D90A42AB668CAACFBC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1330901   (333235) от 14.10.2019
+
+Владимир Сухинин | Мы своих не бросаем (2019) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виктор Глухов, он же Ирридар тан Аббаи Тох Рангор, сбежав из плена, попадает на заброшенный старый эсминец, дрейфующий в астероидном поле. Единственное существо, которое живет на этом корабле, сумасшедший андроид, убивающий всех людей, считая их опасными для себя. Андроид запирает Ирридара и его товарища в холодильнике, где находятся замороженные тела членов экипажа… (   Читать дальше...   )Жанр: Фантастика, ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ACBA07010D7E3119D5A7778D605E267EF9333C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579576   (332960) от 29.09.2022
+
+Рэй Брэдбери | Темный карнавал [сборник] (2022) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая книга поистине уникальна – это самый первый сборник Брэдбери, с тех пор фактически не переиздававшийся, не доступный больше нигде в мире и ни на каком языке уже несколько десятков лет! Отдельные рассказы из «Темного карнавала» (в том числе такие классические, как «Странница» и «Крошка-убийца», «Коса» и «Дядюшка Эйнар») перерабатывались и включались в более (   Читать дальше...   )Жанр: ФантастикаПеревод: Марина ВоронежскаяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45B83A083C23C7701443906C4C60724A084A6EFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1258929   (332870) от 01.11.2018
 
 Дэйв Хатчинсон | Осень Европы (2018) [FB2]
@@ -6,7 +58,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332870.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332861.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332807.jpg" />
 </div>
 
 
@@ -89,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332724.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332412.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332372.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332338.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332258.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332035.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332027.jpg" />
 </div>
 
 
@@ -276,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332016.jpg" />
 </div>
 
 
@@ -305,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331836.jpg" />
 </div>
 
 
@@ -331,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330987.jpg" />
 </div>
 
 
@@ -359,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330984.jpg" />
 </div>
 
 
@@ -388,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330956.jpg" />
 </div>
 
 
@@ -417,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330925.jpg" />
 </div>
 
 
@@ -443,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330897.jpg" />
 </div>
 
 
@@ -471,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330774.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330270.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330162.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329398.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327940.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327555.jpg" />
 </div>
 
 
@@ -637,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327479.jpg" />
 </div>
 
 
@@ -649,60 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F11710D5DA4DA9284F7ACA4652CDEB072879B5BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957297   (327364) от 17.11.2015
-
-Михаил Ланцов | Русский медведь. Царь (2015) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман цикла «Русский медведь».
-
-Новый фантастический боевик от автора бестселлера «Русский медведь. Цесаревич»! Наш современник в теле Петра Первого не просто «рубит окно в Европу», но сносит ей крышу залпами российских орудий. Разгромив Швецию, десантник из будущего начинает «ВОЙНУ НА ОПЕРЕЖЕНИЕ» против Британской империи. Русский медведь показывает когти! (   Читать дальше...   )Жанр: Историческая фантастика, Боевая фантастика, ПопаданцыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB9CDCDC84DB1504142A49D8B4C2C9583C521673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957331   (327260) от 17.11.2015
-
-Мишель Уэльбек | Покорность (2015) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Блестящий и непредсказуемый Мишель Уэльбек – один из самых знаменитых писателей планеты, автор мировых бестселлеров “Элементарные частицы”, “Платформа”, “Возможность острова”, “Карта и территория” (Гонкуровская премия 2010 года). Его новый роман “Покорность” по роковому совпадению попал на прилавки в день кровавого теракта в журнале “Шарли Эбдо”, посвятившем номер (   Читать дальше...   )Жанр: Социальная фантастика, Зарубежная фантастика, Современная зарубежная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4AC38C499BA7E6A0E87DE9C29522DB7F9B58891
 ```
 
 https://mybot314.ru/tekegram_catalog/

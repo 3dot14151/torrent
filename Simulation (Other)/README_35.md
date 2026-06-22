@@ -1,55 +1,3 @@
-###  Публикация: 1789233   (22612) от 03.04.2025
-
-Train Yard Builder (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Train Yard Builder приглашает игроков в миниатюрный мир, где они могут построить и управлять собственными железнодорожными дворами. Благодаря разнообразному выбору поездов и вагонов можно собирать уникальные и персонализированные коллекции. В игре представлены инструменты для настройки, позволяя пользователям раскрашивать и украшать свои поезда, добавляя индивидуальный (   Читать дальше...   )Тип издания: RepackРазработчик: GameFormatic S.A.Жанр: Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:996823E47C7E52716B0A0202D917985407584AF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789517   (22560) от 04.04.2025
-
-MosGhost (2025) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Андрей по работе переехал в Москву и снял себе квартиру в панельном доме, что подходило ему по бюджету. Вскоре, проживая в квартире начал замечать странные вещи, которые происходят каждую ночь. То в дверь кто-то стучит или просто открывается сама по себе, то в середине ночи будят странные звуки и голоса. Днём вроде всё возвращалось на круги своя.Тип издания: RepackРазработчик: Sinka GamesЖанр: СимуляторыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:894E673B13BDB430FC5DE14CD7ECA753ACFDBFCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691160   (22557) от 04.04.2025
 
 Ship Graveyard Simulator 2 (2023) [Ru/Multi] (13195/dlc) Scene Rune
@@ -58,7 +6,7 @@ Ship Graveyard Simulator 2 (2023) [Ru/Multi] (13195/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22557.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Ship Simulator: Maritime Search and Rescue (2014) [Multi] (1.0) Repack R.G. Ме
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22542.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ The Planet Crafter (2022) [Ru/Multi] (1.410/dlc) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22519.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Yasuke Simulator (2025) [En] (1.0/dlc) Repack FitGirl [Digital Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22398.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Factory Outlet Simulator (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22041.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Old Market Simulator (2024) [Ru/Multi] (1.5.5) Pepack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21999.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ Cinemaster: Cinema Simulator (2025) [Ru/Multi] (1.6) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21879.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ SnowRunner (2020) [Ru/Multi] (35.0/dlc) Repack Other s [4-Year Anniversary Editi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21661.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ Project Hospital (2018) [Ru/Multi] (1.2.23584/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21601.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ Forever Skies (2023) [Ru/Multi] (build 18071558) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21357.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ Barotrauma (2023) [Ru/Multi] (1.8.6.2/dlc) Repack FitGirl [Supporter Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21267.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ Forever Skies (2023) [Ru/Multi] (1.0.0 Build #39119/dlc) Repack Wanterlude
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21169.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ Space for Sale (2025) [Ru/Multi] (2024.11.25.10.55/dlc) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21148.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ Lushfoil Photography Sim (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21145.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ Storage Guys (2025) [Ru/Multi] (1.0.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21023.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ UBOAT (2019) [Ru/Multi] (2025.1.1 Patch 1/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20963.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ Forever Skies (2023) [Ru/Multi] (1.0.0 #39095/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20949.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ Space for Sale (2024) [Ru/Multi] (2024.11.25.10.55) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20828.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ Pacific Drive (2024) [Ru/Multi] (1.9.2-CL30128/dlc) Repack Other s [Deluxe Editi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20763.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ Creepy Shift: House For Sale (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20722.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ Short Snow / Короткий Снег (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20623.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ Short Snow / Короткий Снег (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20615.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ Ambulance Life: A Paramedic Simulator (2025) [Ru/Multi] (1.4.0/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20544.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20542.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:761617E41CD40B62FEAE8F78507035616AAD5D7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793188   (20478) от 23.04.2025
+
+PowerWash Simulator (2022) [Ru/Multi] (1.10.0/dlc) Repack Pioneer
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20478.jpg" />
+</div>
+
+
+###  Подробнее
+
+В симулятор PowerWash Simulator вам необходимо очищать поверхности от грязи, налета, ржавчины и многое другое. Успокаивающий и умиротворяющий геймплей PowerWash Simulator создан для тех, кто любит шум посудомоечных машин и обожает чистоту. В ваших руках будет водонапорная машина, способная очистить абсолютно любую поверхность. Смывайте всю грязь с города и покажите (   Читать дальше...   )Тип издания: RepackРазработчик: FuturLabЖанр: Казуальные игры, СимуляторыЯзык субтитров: Русский, Английский, Корейский, Французский и другиеЯзык интерфейса: Русский, Английский, Корейский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D5CC1A6FB12DF99E7409D17F48EFE5D6B4E70E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793370   (20412) от 24.04.2025
+
+Sunset Motel (2025) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в чарующие объятия мотеля Sunset! Это пристанище, которое ласкает усталые души и побуждает путешественников сделать паузу и расслабиться. В этом единственном в своем роде симуляторе вы отправитесь в путешествие, чтобы вдохнуть жизнь в обветшалые номера и обеспечить лучезарные улыбки ваших дорогих гостей.Тип издания: RepackРазработчик: Efkey StudiosЖанр: Экшены, Казуальные игры, СимуляторыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFFC08F3498947D4BC921B54C2D487D36E4E2D89
 ```
 
 https://mybot314.ru/tekegram_catalog/

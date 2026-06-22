@@ -1,3 +1,108 @@
+###  Публикация: 1007720   (821400) от 15.04.2016
+
+С.И. Карантиров (сост.) | Этимологический словарь русского языка для школьников (2001) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Объясняется происхождение около 4 500 слов, входящих в лексический минимум школьника. Большинство из включённых слов имеют временную характеристику их появления в русском языке. Издательство надеется, что словарь будет полезен как школьникам, так и всем интересующимся русским языком.Жанр: Словарь русского языкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ADFF4E58F1FF865C073809E417DA1CC25902772
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007606   (821398) от 15.04.2016
+
+Георгий Дорофеев и др. | Алгебра. 8 класс [Учебник] (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Содержание учебника позволяет достичь планируемых результатов обучения, предусмотренных ФГОС основного общего образования. Учебный текст разбивается на смысловые фрагменты специальными знаками и завершается вопросами, позволяющими проверить, как понято прочитанное. В систему упражнений включены такие виды де-ятельности, как анализ информации, наблюдение и рассуждение, (   Читать дальше...   )Жанр: Учебная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66EA1A5ECFAED8F5FF506AC26ED676012DC35E03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007700   (821300) от 15.04.2016
+
+К.С. Горбачевич | Словарь эпитетов русского языка (2002) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эпитеты играют важную роль в любом тексте, будь то роман, научный доклад или школьное сочинение. Удачный эпитет усиливает выразительность речи, делает высказывание более точным, подчеркивает индивидуальный признак предмета и ли явления. Выбор точного эпитета часто вызывает затруднения. Решить эту проблему поможет данный словарь. Он содержит почти 600 словарных статей, (   Читать дальше...   )Жанр: СловарьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F0548C1246F98369CF9EB56B4781A2A2CB7DFDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007632   (821296) от 15.04.2016
+
+С. Зак | Все домашние работы к учебнику и задачнику Математика. 5 класс (2014) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все домашние работы к УМК "Сферы". Математика. 5 класс (арифметика, геометрия). К учебнику и задачнику Е. А. Бунимовича
+Данное учебно-методическое пособие (решебник) подготовлено с учетом изменений, внесенных в новое издание учебника и задачника Е.А.Бунимовича и коллектива авторов МАТЕМАТИКА 5 КЛАСС (УМК "Сферы"), издательства "Просвещение". (   Читать дальше...   )Жанр: Учебная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF11163060B9871BCBCD1BE605512A897F3FEDAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007613   (821185) от 15.04.2016
 
 Евгений Бунимович и др. | Математика. Арифметика. Геометрия. 5 класс. [Учебник] (2014) [PDF]
@@ -6,7 +111,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821185.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821175.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821059.jpg" />
 </div>
 
 
@@ -87,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819452.jpg" />
 </div>
 
 
@@ -113,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819329.jpg" />
 </div>
 
 
@@ -139,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819324.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818828.jpg" />
 </div>
 
 
@@ -191,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818777.jpg" />
 </div>
 
 
@@ -219,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817594.jpg" />
 </div>
 
 
@@ -245,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817465.jpg" />
 </div>
 
 
@@ -272,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817279.jpg" />
 </div>
 
 
@@ -300,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817124.jpg" />
 </div>
 
 
@@ -326,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815670.jpg" />
 </div>
 
 
@@ -352,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815422.jpg" />
 </div>
 
 
@@ -380,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814971.jpg" />
 </div>
 
 
@@ -406,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813778.jpg" />
 </div>
 
 
@@ -433,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813662.jpg" />
 </div>
 
 
@@ -461,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811222.jpg" />
 </div>
 
 
@@ -488,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809780.jpg" />
 </div>
 
 
@@ -514,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808814.jpg" />
 </div>
 
 
@@ -540,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808211.jpg" />
 </div>
 
 
@@ -566,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807873.jpg" />
 </div>
 
 
@@ -579,111 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F241039DAE878ED06472010387DE54D1F99CBF70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505233   (806517) от 26.10.2021
-
-Игорь Александров | Большие буквы. Большие картинки. Первая книга мальчика = Большой подарок любимому сыну (2014) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мальчишки быстро растут, а вместе с ними растут и их потребности. Уже прошло время игр с погремушками и складывания кубиков, поэтому, купив сыну современную игрушку-"развивалку", вы далеко не в полной мере утолите его естественный интеллектуальный голод… Что же подарить подрастающему малышу, чтобы занять его? Мы предлагаем вам книгу, которая не только станет (   Читать дальше...   )Жанр: Обучение и развитие детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40DE181BCE2FC91704A1EC9CB9ECD229318B8993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505290   (806310) от 26.10.2021
-
-Рассел Пантер | Мифы Древней Греции для детей (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806310.jpg" />
-</div>
-
-
-###  Подробнее
-
-По легенде, создавая нашу планету, боги просеивали землю через волшебное сито. Под конец у них осталось всего несколько камешков. Их не стали просеивать и выбросили в море. Так возникла Греция. Древние греки через удивительные и забавные истории про богов и героев объясняли природные явления, законы мироздания и человеческие пороки.
-Чем прославился Одиссей? Что за (   Читать дальше...   )Жанр: Детская литература/Мифы/Легенды/ЭпосФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F9324AF0C03A7671D1FFA63D06A05D950BDB67A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505243   (806252) от 26.10.2021
-
-Н.А. Ткаченко, М.П. Тумановская | Азбука в картинках для детей от двух лет (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Азбука в картинках для детей от 2-х лет — книга известного логопеда, педагога, автора множества книг и пособий Н.А. Ткаченко. Ею создана уникальная авторская программа по развитию и коррекции речи. Занимаясь по этой книге, ребёнок запомнит начертание каждой буквы, а также звук, который она обозначает. Благодаря красочным картинкам малыш в игровой форме быстро и легко (   Читать дальше...   )Жанр: Обучающая литература/АзбукаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F4AEF5C182258F674F89E2FDC94AC99729066E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505299   (806244) от 26.10.2021
-
-Н.П. Власенко (ред-сост.) | Проходим лабиринты: развиваем логику (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806244.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге серии "Самые первые знания" "Проходим лабиринты: развиваем логику" вошло более тридцати лабиринтов, расположенных по нарастанию сложности. Задания книги развивают логическое и пространственное мышление ребёнка и расширяют его знания об окружающем мире. Оригинальная игровая форма и фрагменты для раскрашивания разнообразят занятие и не дадут (   Читать дальше...   )Жанр: Головоломки/Лабиринты/Развитие ребенкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16AA6038EF72DB9F708087598435CD95ABCC0A62
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,58 @@
+###  Публикация: 1348156   (146423) от 26.12.2019
+
+InstaCal 1.9.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146423.jpg" />
+</div>
+
+
+###  Подробнее
+
+InstaCal - это недостающий календарь меню, которого заслуживает macOS.
+InstaCal - это доступное и в то же время мощное приложение для работы с календарем, которое всегда под рукой, и всегда доступно в строке меню вашего Mac. InstaCal быстрый и удобный, и может быть открыт в любое время с помощью настраиваемого сочетания клавиш. Оттуда вы можете просматривать события (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Higher Bar, LLCПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEC3894C1C0552C2201D43F5D11AEC30884E066A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348141   (146382) от 26.12.2019
+
+WindowSwitcher 1.26 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146382.jpg" />
+</div>
+
+
+###  Подробнее
+
+WindowSwitcher - позволяет Вам быстро находить и переключаться между открытыми окнами приложения (все окна, только активные окна, активные окна приложения) и управлять позицией окон на экране, например, прямо из списка окон, помещать окно Safari слева и окно Pages справа, таким образом, удобно искать и аннотировать информацию в Интернете.
+
+Переключение между окнами (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2019Разработчик: MacPlus SoftwareПоддерживаемая ОС: macOS 10.12 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF7252B0938413DC345DB97578F09F5C20D862B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348132   (146353) от 26.12.2019
 
 MediaHuman Youtube Downloader 3.9.9.30 (build 2512) [Multi/Ru]
@@ -6,7 +61,7 @@ MediaHuman Youtube Downloader 3.9.9.30 (build 2512) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146353.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ Tinderbox 8 v8.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146293.jpg" />
 </div>
 
 
@@ -63,7 +118,7 @@ AnyMP4 DVD Converter 8.2.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146283.jpg" />
 </div>
 
 
@@ -89,7 +144,7 @@ Scrutiny 12.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146265.jpg" />
 </div>
 
 
@@ -116,7 +171,7 @@ Integrity Pro 12.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146228.jpg" />
 </div>
 
 
@@ -142,7 +197,7 @@ AnyMP4 iPhone GPS Spoofer for Mac 1.0.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146221.jpg" />
 </div>
 
 
@@ -169,7 +224,7 @@ Garden Planner 3.7.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146201.jpg" />
 </div>
 
 
@@ -195,7 +250,7 @@ Alfred 3 Powerpack 3.7.1(948)b [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146173.jpg" />
 </div>
 
 
@@ -224,7 +279,7 @@ XMind 7 Pro 3.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146170.jpg" />
 </div>
 
 
@@ -250,7 +305,7 @@ Downie 3 v3.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146148.jpg" />
 </div>
 
 
@@ -278,7 +333,7 @@ eMail Address Extractor 4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146147.jpg" />
 </div>
 
 
@@ -305,7 +360,7 @@ Allegorithmic Substance Painter 2019.3.1 (build 3547) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146115.jpg" />
 </div>
 
 
@@ -331,7 +386,7 @@ Elmedia Player Pro 7.8 (build 1897) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146088.jpg" />
 </div>
 
 
@@ -359,7 +414,7 @@ Folx Pro 5 v5.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146053.jpg" />
 </div>
 
 
@@ -388,7 +443,7 @@ ATOM RPG: Post-apocalyptic indie game v1.11 (2019) [Multi/Ru] [macOS Native game
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146030.jpg" />
 </div>
 
 
@@ -415,7 +470,7 @@ MarsEdit 4 v4.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145959.jpg" />
 </div>
 
 
@@ -441,7 +496,7 @@ SmallCubed MailSuite 1.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145913.jpg" />
 </div>
 
 
@@ -467,7 +522,7 @@ FabFilter Total Bundle 2019.03.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145869.jpg" />
 </div>
 
 
@@ -493,7 +548,7 @@ Topaz Video AI for Mac 4.0.5 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145845.jpg" />
 </div>
 
 
@@ -519,7 +574,7 @@ BBEdit 14.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145827.jpg" />
 </div>
 
 
@@ -545,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145775.jpg" />
 </div>
 
 
@@ -571,7 +626,7 @@ Cocktail Monterey Edition 15.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145689.jpg" />
 </div>
 
 
@@ -597,7 +652,7 @@ Easy Data Transform 1.23.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145652.jpg" />
 </div>
 
 
@@ -623,7 +678,7 @@ Parallels Desktop for Mac Business Edition 15.1.2 + Toolbox 3.7.0  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145578.jpg" />
 </div>
 
 
@@ -636,61 +691,6 @@ Parallels Desktop (   Читать дальше...   )Тип издания: ma
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:903FB40E28ED2B0D5CD98FB3E49FD0AB6A899171
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520002   (145544) от 26.12.2021
-
-SimpleMind Pro 1.30.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Визуальная фиксация и организация идей, мыслей, информации и их взаимосвязей при помощи ментальных карт. С этой программой сразу же можно заняться именно построением ментальных карт, простота и удобство, плюс приятный дизайн и синхронизация с Dropbox.
-SimpleMind - это инструмент для построения интеллект-карт, который превращает ваш Мас в устройство для мозгового (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.10.2021Разработчик: © 2021 SimpleAppsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:948D46B377FA3243EE4F43A155979E46FB5241BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970002   (145520) от 28.12.2015
-
-DxO OpticsPro for Photos 1.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145520.jpg" />
-</div>
-
-
-###  Подробнее
-
-DxO OpticsPro for Photos разработан, чтобы предоставить бесшовный технологический процесс обработки изображения Фотографам, которые находятся на Mac и используют OS X Photos в качестве их основного фото редактора.
-
-С DxO OpticsPro, действующего как сторонней расширение, можно теперь получить доступ для поддерживаемых камер непосредственно из окна редактирования Photos. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 декабря 2015Разработчик: DxO LabsПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CC4980023AC23283DD136B77044679E3C1A02F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

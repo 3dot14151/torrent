@@ -6,7 +6,7 @@ VA - 100 Hits Pure 80s (100 Original Classics From The Decade) (2016) Box Set: 5
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243228.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - 70s Music Explosion - 70s One-Hit Wonders (2005) 2 CD [OGG Vorbis|480 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242897.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Slay Queen! (2023) [MP3|320 Kbps] <Pop, Rock, RnB,>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242882.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - 100 Greatest Throwback Songs (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242758.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Mega Hits 2014 (2023) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242423.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Totally '80s (1993) 2 CD[OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242255.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Corine - Un air de fete (2018) [MP3|320 Kbps] <Dance-Pop, Disco, Chanson>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242111.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Poom - 2016 (2016) [MP3|320 Kbps] <Synthpop, Dance-Pop, Post Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242082.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Female Pop Hits (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242050.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - NOW: 80s Alternative (2023) 4CD, Compilation, Special Edition [MP3|320 Kbps
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_241880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241880.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - DMC Dance Mixes 291 Ibiza (2021) [MP3|320 Kbps] <House, Dance-pop, Tech Hou
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241686.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - DMC Dance Mixes 291 (2021) [MP3|320 Kbps] <House, Dance-pop, Tech House, Nu
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241669.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - 80s Gold (2023) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241552.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - 50 Hits Spring (2023) [MP3|320 Kbps] <Latin Dance, Reggae, Dancehall, Synth
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241430.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Pop Hits 2023 (2023) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241150.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Sparks - Balls (2000) Deluxe Edition, Remastered, 2022, BMG [MP3|320 Kbps] <Pop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241034.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Mastermix Crate 034: Old Skool Fusion (2022) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240980.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - 80s Lost and Found (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240959.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Lost the breakup: great ones (2023) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_240886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_240886.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Sommerhits (2023) [MP3|320 Kbps] <Pop/Rock Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240848.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240412.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Legends (2023) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240408.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - The Best Valentines Album In The World...Ever! (2023) [OGG Vorbis|480 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240283.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - 90s Lost & Found (2023) [MP3|320 Kbps] <Pop, Rock, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240158.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Retro Hits (2023) [MP3|320 Kbps] <Pop, Rock, R&B, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239898.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - 90s Classics (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239798.jpg" />
 </div>
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1530862   (235294) от 12.02.2022
+
+Money Pro - Personal Finance 2.7.21 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Money Pro сократит расходы и покажет полную картину Ваших финансов. Money Pro - это единая программа для ведения бюджета, отслеживания операций по счетам и напоминания о предстоящих платежах. Money Pro отлично подходит для ведения домашнего бюджета, а также для финансового планирования малого бизнеса.
+Удобная синхронизация (iPhone, iPad, Mac). Money Pro является (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.02.2022Разработчик: © 2015-2019 iBear LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7981F5B7E08EE1FF383B2D5C4EBAB0D6DA8E34C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641583   (235287) от 23.06.2023
+
+SiteSucker 5.1.9 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235287.jpg" />
+</div>
+
+
+###  Подробнее
+
+SiteSucker- это альтернативный менеджер загрузки сайтов. SiteSucker это приложение для Macintosh, которое автоматически загружает веб-сайты из Интернета. Она делает это путем асинхронного копирования веб-страниц сайта, изображений, PDF-файлов, таблиц стилей и других файлов на локальном жестком диске, дублируя структуру каталогов сайта.
+SiteSucker умеет загружать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.06.2023Разработчик: © 2001-2022 Rick CraniskyПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FB10BE62FB373D67C672828FCB13B1E1F248E25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641612   (235279) от 23.06.2023
 
 Chain Timer 9.7 [Multi/Ru]
@@ -6,7 +60,7 @@ Chain Timer 9.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235279.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Infuse PRO 7.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235277.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ One Switch 1.24.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235270.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ PhotoSweeper X 4.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235263.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ Smultron 12 v12.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235257.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ EtreCheckPro 6.4.3 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235246.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235241.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ Permute 3 v3.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235239.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ GarageSale 8 v8.3.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235232.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ Dato 2.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235225.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ GoodNotes 5 v5.6.52 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235219.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ Default Folder X 5.5.8  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235207.jpg" />
 </div>
 
 
@@ -323,7 +377,7 @@ PreSonus Studio One 6 Professional 6.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235203.jpg" />
 </div>
 
 
@@ -349,7 +403,7 @@ myTracks 4.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235200.jpg" />
 </div>
 
 
@@ -377,7 +431,7 @@ Dropzone 4 Pro v4.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235197.jpg" />
 </div>
 
 
@@ -404,7 +458,7 @@ Yate 6.9.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235189.jpg" />
 </div>
 
 
@@ -432,7 +486,7 @@ FastScripts 3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235183.jpg" />
 </div>
 
 
@@ -459,7 +513,7 @@ Smooze Pro 2.0.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235174.jpg" />
 </div>
 
 
@@ -485,7 +539,7 @@ NetWorker Pro 7.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235164.jpg" />
 </div>
 
 
@@ -511,7 +565,7 @@ Hookshot 1.21.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235155.jpg" />
 </div>
 
 
@@ -537,7 +591,7 @@ Magic Battery 5.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235145.jpg" />
 </div>
 
 
@@ -564,7 +618,7 @@ Debookee v8.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235139.jpg" />
 </div>
 
 
@@ -590,7 +644,7 @@ IconFly 3.10.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235132.jpg" />
 </div>
 
 
@@ -617,7 +671,7 @@ System Toolkit 3.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235128.jpg" />
 </div>
 
 
@@ -628,59 +682,6 @@ System Toolkit - приложение «все-в-одном» для монит
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7806831EEB1720D27734F9E85509FECF8B415894
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638529   (235125) от 08.06.2023
-
-FastScripts 3.2.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_235125.jpg" />
-</div>
-
-
-###  Подробнее
-
-FastScripts - Утилита для быстрого запуска AppleScript-ов и шелл-скриптов в любом приложении. Если нажать на значок FastScripts в строке меню, раскроется список скриптов, для запуска которых нужен всего один клик.
-Помимо этого каждому скрипту можно назначить сочетание клавиш для запуска. При работе с определенным приложением, все доступные для него скрипты будут (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.06.2023Разработчик: © 2023 Red Sweater Software, LLC.Поддерживаемая ОС: macOS 10.14.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25EE2B33C2AFF1B5CA7FC49838F3949E9F161FE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536636   (235111) от 12.03.2022
-
-Iridient Developer 3.6.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Iridient Developer - мощное приложение для обработки и преобразования изображений RAW, разработанное и оптимизированное специально для macOS. Приложение предоставляет фотографам полный контроль над своими цифровыми изображениями и обеспечивает гибкую, быструю и удобную пакетную обработку. Все операции по редактированию изображений полностью не разрушают и никогда (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.03.2022Разработчик: © 2022 Iridient Digital, Inc.Поддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6B35E3B57E0C54F67E179ABC9EFF40FBE04E13A
 ```
 
 https://mybot314.ru/tekegram_catalog/

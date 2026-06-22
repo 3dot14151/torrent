@@ -1,3 +1,112 @@
+###  Публикация: 1598210   (163137) от 18.12.2022
+
+Юлия Ефимова | Игра вынужденных убийц (2022) [EPUB]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163137.jpg" />
+</div>
+
+
+###  Подробнее
+
+З1 декабря. 9 часов утра. 10 человек случайно оказываются в приемной директора делового центра «Абсолют». Им придется сыграть в «игру вынужденных убийц». Неподчинение влечет наказание. Что от них хотят: раскаяния или денег? Выйдет ли кто-нибудь из этой странной игры живым? Это знает только ведущий. Кто он? «Добрый» Дедушка Мороз. С новым годом – игра началась.Жанр: Классические детективыФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4333A92F6E1C82814E656B434FD54AD21E7C302C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346375   (162715) от 18.12.2020
+
+Брайан Смит | Дороги в ад [сборник] (2011) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дорога в ад вымощена ангелами и демонами. Мозговые черви и мертвые проститутки. Серийные убийцы и разочарованные писатели. Зомби и рок-н-ролл. И как только вы начнете этот путь, назад дороги уже не будет.
+
+Твоя жизнь скучна и однообразна, если ты развозчик пиццы. Но, всего лишь одна случайная встреча может все изменить... И ад уже ждет тебя с распростертыми объятиями... (   Читать дальше...   )Жанр: УжасыПеревод: ЛюбительскийФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:286B7C92CD759D6DAB0DF541D9D1BEF095E3944D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393625   (162493) от 18.12.2020
+
+Андрей Ефремов | Цикл: «История Бессмертного» [4 книги] (2020) [FB2, EPUB]
+
+>>След.
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162493.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Что если вам скажут, что наша жизнь — это всего лишь чей-то эксперимент? Что если некие Старшие поместили наш мир в стеклянный шар и наблюдают? Что если они настолько могущественны, что могут уничтожить всё, что нам дорого, по щелчку пальцев? Сдаться? Или бороться? Это и предстоит выяснить обычному парню Кириллу, оказавшемуся в нужном месте в нужное время.
+
+2. (   Читать дальше...   )Жанр: Боевая фантастика, Боевое фэнтези, LitRPGФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB9388610F1FB30721A5CF2A1A4ADB7032A152E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674256   (162253) от 04.11.2023
+
+Рэй Гартон | Ночная жизнь (2023) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошло восемнадцать лет с тех пор, как Дэйви Оуэн взорвал принадлежащий вампирам секс-клуб "Шоу Девочек" на Таймс-сквер в Нью-Йорке. В огне погибло множество вампиров, но не все. Уцелевшие вынашивают планы мести, пытаясь разыскать виновников пожара. И вот, наконец, им становится известно местоположение Дэйви...
+В увлекательнейшем продолжении романаЖанр: ХоррорПеревод: ЛюбительскийИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA89B42F160703253B8C903D1EF25372B67CCECB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433103   (162062) от 19.12.2020
 
 Михей Абевега | Муайто (2020) [FB2]
@@ -6,7 +115,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162062.jpg" />
 </div>
 
 
@@ -32,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162022.jpg" />
 </div>
 
 
@@ -58,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161975.jpg" />
 </div>
 
 
@@ -84,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161894.jpg" />
 </div>
 
 
@@ -112,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161854.jpg" />
 </div>
 
 
@@ -140,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161773.jpg" />
 </div>
 
 
@@ -168,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161761.jpg" />
 </div>
 
 
@@ -196,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161237.jpg" />
 </div>
 
 
@@ -225,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160747.jpg" />
 </div>
 
 
@@ -251,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160745.jpg" />
 </div>
 
 
@@ -279,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160050.jpg" />
 </div>
 
 
@@ -305,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159996.jpg" />
 </div>
 
 
@@ -331,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158641.jpg" />
 </div>
 
 
@@ -357,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158614.jpg" />
 </div>
 
 
@@ -383,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158144.jpg" />
 </div>
 
 
@@ -412,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158128.jpg" />
 </div>
 
 
@@ -441,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158078.jpg" />
 </div>
 
 
@@ -468,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158070.jpg" />
 </div>
 
 
@@ -494,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157930.jpg" />
 </div>
 
 
@@ -522,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157877.jpg" />
 </div>
 
 
@@ -548,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157835.jpg" />
 </div>
 
 
@@ -574,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157446.jpg" />
 </div>
 
 
@@ -585,116 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50A3360FC35AD18BD3EFE38D4526DDDBBF65696E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194292   (156442) от 24.12.2017
-
-Роман Прокофьев | Игра Кота. Книга третья (2017) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третья книга цикла «Один из семи».
-
-В «Сфере Миров» все измеряется в числах.
-Ведется счет прогрессу персонажей, характеристикам вещей, убийствам и смертям, заработанным деньгам.(   Читать дальше...   )Жанр: Боевое фэнтези, LitRPGФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF5C1C631B27ADE6AF20D28281F10F336EBB7F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968350   (156047) от 23.12.2015
-
-Александр Хиневич | Возвращение на Реулу (2015) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман цикла Путь к Истокам.
-Многие наверное читали книги разных авторов, пишущих в жанре "фантастика" про далёкие миры галактического "Содружества". Я заметил, что в этих книгах очень мало написано о древнем мире Джоре и древней расе Джоре. Джоре — на одном из древних языков означает — Потомки. В книгах разных авторов меня заинтересовали (   Читать дальше...   )Жанр: Научная фантастика, Космическая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A2B6C6FBD88E4F52C662BD732C5935B35628A7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968239   (155634) от 23.12.2015
-
-Андрей Васильев | Два огня (2015) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Десятая книга цикла «Файролл».
-
-Мир не стоит на месте, а потому и события, происходящие в жизни главного героя заставляют его двигаться вперед все быстрее и быстрее, не давая времени на то, чтобы остановиться и посмотреть — а куда он собственно бежит?Жанр: Боевая фантастика, LitRPGФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CBEB69658463F4E3C68B2914E4EAE90E4667ED6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346717   (155372) от 21.12.2019
-
-Рэт Джеймс Уайт | 400 дней угнетения (2013) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наташа встретила мужчину своей мечты, но она не сделала ничего, чтобы угодить ему. Афроамериканец Кеньятта рассказал Наташе о себе, дал ей чувство безопасности, которого она никогда не испытывала, и показал ей новый мир сексуального опыта. Теперь она должна изучить самую сложную часть любви: понимание. Чтобы помочь Наташе преодолеть ее белое воспитание и понять африканское (   Читать дальше...   )Жанр: Триллер, сплаттерпанкФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD1232FCB96CC7FE4387A8E8C4C8C8DA91061E55
 ```
 
 https://mybot314.ru/tekegram_catalog/

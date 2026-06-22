@@ -1,3 +1,61 @@
+###  Публикация: 1508227   (797978) от 07.11.2021
+
+VA - Gagarin Selection 2021 (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TELEGIMNASTIKA - MIR (5:34)
+02. Soulstring - Gagarin (5:50)
+03. Ionov - Spacewave (3:16)
+04. Efektvol - Bajkonur (5:24)(   Читать дальше...   )Жанр: Spacesynth, Synthpop, SynthwaveПродолжительность: 01:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF8D92C76CF29ABE02001E331C50CEAF26856EF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385249   (797813) от 24.05.2020
+
+Aurolab - Anna (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Nu-Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above The Rainbow (6:07)
+02. Anna (5:49)
+03. Artek (4:53)
+04. Close Your Eyes (6:43)(   Читать дальше...   )Жанр: Synthwave, Nu-DiscoПродолжительность: 00:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EED296569EBA394E3B8B75FCB062A5AACA2709C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385665   (797161) от 25.05.2020
 
 BELLATRIX - Droids (2020) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Disco>
@@ -6,7 +64,7 @@ BELLATRIX - Droids (2020) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Disco>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797161.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Zodiac - Pacific Time (2014) [FLAC|Lossless|image + .cue] <Electronic, Synth-pop
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796698.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ W O L F C L U B (Wolfclub) - Collection 5 Releases (2017-2020) [FLAC|Lossless|WE
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796543.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Pet Shop Boys - Super (2016) [FLAC|Lossless|image + .cue] <Synthpop, Europop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795969.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Dreamtime - Farout (2009) [APE|Lossless|image + .cue] <Spacesynth, Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795050.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Michael Elliot - Undercover (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Synthwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794131.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Pet Shop Boys - Collection 25 Releases (1986-2020) 43 CD [FLAC|Lossless|tracks +
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793640.jpg" />
 </div>
 
 
@@ -210,7 +268,7 @@ Yello - Touch Yello (Deluxe) + 6 Bonus Tracks (2009) [FLAC|Lossless]<Electronic,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793535.jpg" />
 </div>
 
 
@@ -239,7 +297,7 @@ Alphaville - Strange Attractor (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792407.jpg" />
 </div>
 
 
@@ -268,7 +326,7 @@ Spacehawk - The Last Guardian (2019) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789394.jpg" />
 </div>
 
 
@@ -297,7 +355,7 @@ Kroy - Scavenger (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785932.jpg" />
 </div>
 
 
@@ -326,7 +384,7 @@ Depeche Mode - Pop Legend: Music Legend (2000) 2CD, Bootleg [FLAC|Lossless|image
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785573.jpg" />
 </div>
 
 
@@ -355,7 +413,7 @@ Daniel Deluxe - Exile (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784776.jpg" />
 </div>
 
 
@@ -384,7 +442,7 @@ Eisfabrik - Null Kelvin (2017) Limited Edition [FLAC|Lossless|tracks + .cue] <Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784069.jpg" />
 </div>
 
 
@@ -413,7 +471,7 @@ Synth Dimension - Dreams Of Electronic Mind (2013) Full Edition [FLAC|Lossless|W
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783398.jpg" />
 </div>
 
 
@@ -442,7 +500,7 @@ Associates - Sulk (1982) Bonus Tracks, Remastered, Reissue, 2000, V2 Music Ltd. 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782723.jpg" />
 </div>
 
 
@@ -471,7 +529,7 @@ Cube - Can Can In The Garden (1983) 2017, Ltd, Num, RE, RM [FLAC|Lossless|tracks
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782516.jpg" />
 </div>
 
 
@@ -500,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780277.jpg" />
 </div>
 
 
@@ -529,7 +587,7 @@ Midnight Danger - Malignant Force (2018) [FLAC|Lossless|WEB-DL|tracks] <Darksynt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780236.jpg" />
 </div>
 
 
@@ -558,7 +616,7 @@ Debbie Tebbs - Chrome (2018) [FLAC|Lossless|WEB-DL|tracks] <Electro, Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779660.jpg" />
 </div>
 
 
@@ -587,7 +645,7 @@ HollySiz - Rather Than Talking (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778514.jpg" />
 </div>
 
 
@@ -616,7 +674,7 @@ John Maus - We Must Become the Pitiless Censors of Ourselves (2011) [FLAC|Lossle
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775095.jpg" />
 </div>
 
 
@@ -645,7 +703,7 @@ LaserDance - Greatest Hits & Remixes (2015) 2CD [FLAC|Lossless|image + .cue] <Sp
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773016.jpg" />
 </div>
 
 
@@ -674,7 +732,7 @@ Black Hole - Ancient Curse (2020) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769233.jpg" />
 </div>
 
 
@@ -688,64 +746,6 @@ Black Hole - Ancient Curse (2020) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AD7CE5C1B6F2DF05B8EBBF15F6F1A60E4C7EB87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392382   (769231) от 26.06.2020
-
-VA - Kiez Beats: Synthwave, Vol. 7 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Dreamsynth, Outrun>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Power Glove - Streets Of 2043 (6:02)
-02. Sandman - Hardline (4:36)
-03. Stellar Dreams - The Crusader (3:40)
-04. Elay Arson feat. Nova and the Ghost - Laser Castle (4:04)(   Читать дальше...   )Жанр: Synthwave, Retrowave, Dreamsynth, OutrunПродолжительность: 01:11:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B39C5E51629CE7A91CA83786913D5033EAB23A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393154   (766852) от 01.07.2020
-
-Depeche Mode - LiVE SPiRiTS SOUNDTRACK (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthpop, Alternative Rock, Pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766852.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro (LiVE SPiRiTS) (2:31)
-2. Going Backwards (LiVE SPiRiTS) (6:12)
-3. It's No Good (LiVE SPiRiTS) (4:57)
-4. A Pain That I'm Used To (LiVE SPiRiTS) (4:29)(   Читать дальше...   )Жанр: Electronic, Synthpop, Alternative Rock, PopПродолжительность: 01:56:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABE653D4C09F9BE4EACBAE88C50FA9DE77E93D25
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1512315   (787379) от 24.11.2021
+
+VA - Antistress Meditation (2021) [MP3|320 Kbps] <Ambient, Relax, New Age>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787379.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Somers - Avalanche
+002. Ctm & August Rosenbaum - Angel
+003. The Green Kingdom - In Shadow
+004. Mauro Rawn - Count Up(   Читать дальше...   )Жанр: Ambient, Relax, New AgeПродолжительность: 07:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F69EA1E64F76633C38FDC1F3F0FD402EB380BDA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388470   (786762) от 06.06.2020
+
+VA - Beatport Psy Trance: Electro Sound Pack #99 (2020) [MP3|320 Kbps] <Psychedelic, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786762.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Atomic Pulse - Signals
+002. Soundreamer - Megamix
+003. Beatman - Walking In The Forest
+004. Captain Hook - Space Tube 25(   Читать дальше...   )Жанр: Psychedelic, Goa TranceПродолжительность: 12:21:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE4156C6F499A50CD81D45A0D067D537879916C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388565   (786581) от 07.06.2020
+
+VA - Fusion Lounge Mix (2020) [MP3|320 Kbps] <Lounge, Relax, Ambient, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786581.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Five Seasons - Caminho De Amor
+002. W Ensemble - Contento
+003. Gene Bautista - Puzzles
+004. Innocent Dreams - Who Are You(   Читать дальше...   )Жанр: Lounge, Relax, Ambient, ChilloutПродолжительность: 07:57:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42023C07EDAA27A364E56BB3832C30772C7BCD0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388667   (786565) от 07.06.2020
 
 VA - Record Super Chart 639 (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -6,7 +93,7 @@ VA - Record Super Chart 639 (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786565.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ VA - Best Chillout Vol.28 (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786377.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ VA - Deep House For Lady (2017) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786206.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ VA - Record Super Chart #481 (2017) [MP3|320 Kbps] <House, Dance, Club>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786123.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ VA - Deep House Collection Vol.116 (2017) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786119.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ VA - Tropical House Vol.2 (2017) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785973.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ VA - Music For Peaceful Sleep (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785960.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ VA - Chillout Hits Vol.6 (2017) [MP3|320 Kbps] <Chillout, Chillstep >
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785957.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ VA - Music For Everyone - Breaks & Breakbeat Vol.5 (2017) [MP3|320 Kbps] <Breaks
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785942.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ VA - Color Emotion Vocal In House (2017) [MP3|212-320 Kbps] <Vocal House, Electr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785823.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ VA - Beatport Trance  Pack (10.04.) (2017) [MP3|320 Kbps] <Trance, Melodic, Upli
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785815.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ VA - Chillout Hits Vol.4 (2017) [MP3|320 Kbps] <Chillout, Chillstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785804.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ VA - Deep Vocal Mix: Extended Party (2017) [MP3|320 Kbps] <Vocal, Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785609.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ VA - The Official UK Top 40 Singles Chart 02.02.2018 [MP3|320 Kbps] <Pop, Dance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785440.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ VA - Record Super Chart 570 (2019) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785417.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ VA - Hits of My Soul Vol. 31 (2018) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784874.jpg" />
 </div>
 
 
@@ -473,7 +560,7 @@ VA - Progressive Psychodelic Trance (Exlusive Tracks) Vol.3 (2018) [MP3|320 Kbps
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784681.jpg" />
 </div>
 
 
@@ -502,7 +589,7 @@ VA - Deep House Collection Vol.156 (2018) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784659.jpg" />
 </div>
 
 
@@ -531,7 +618,7 @@ VA - Romantic Drum Vol 2 (2018) [MP3|320 Kbps] <Drum & Bass, Drumfunk, Techstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784653.jpg" />
 </div>
 
 
@@ -560,7 +647,7 @@ VA - Empire Records - Electro Chill 3 (2018) [MP3|320 Kbps] <Chillhouse, Chillel
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784411.jpg" />
 </div>
 
 
@@ -589,7 +676,7 @@ VA - Empire Records - House Swinging 2 (2018) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784406.jpg" />
 </div>
 
 
@@ -618,7 +705,7 @@ VA - Empire Records - Chill Boys (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784402.jpg" />
 </div>
 
 
@@ -647,7 +734,7 @@ VA - Empire Records - Bossanova 2 (2018) [MP3|320 Kbps] <Downtempo, Bossanova, L
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784390.jpg" />
 </div>
 
 
@@ -661,93 +748,6 @@ VA - Empire Records - Bossanova 2 (2018) [MP3|320 Kbps] <Downtempo, Bossanova, L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAEC1D3F415AF2928D1D46757DD1494EDF9FCD93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205195   (784108) от 08.02.2018
-
-VA - Progressive Psychodelic Trance Vol.4 (Exlusive Tracks) (2018) [MP3|320 Kbps] <Psy Trance, Psychodelic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Daniel Lesden  -  The Last Of Our Kind (Original Mix)  8:58
-02.  Gonzi & Boot Sequence  -  Day After Day (Ecolift Remix)  6:47
-03.  Pondora & Eran Gordon  -  The Story (Original Mix)  5:41
-04.  Zyce  -  Messier 74 (Original Mix)  7:00(   Читать дальше...   )Жанр: Psy Trance, PsychodelicПродолжительность: 03:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:271F13E764FBE769BDC5260D6FAC0872BF7AFDE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204979   (784064) от 08.02.2018
-
-VA - Лучшие клубные новинки Vol.11 (2018) [MP3|320 Kbps] <Dance, Club, House, Electro House и другие>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-Mase feat. Rave CHanne - Just Be (Deep Radio Mix) 3:48
-02. Abandoned & InfiNoise - Night Caller Feat. Project Nightfall (Original Mix) 4:29
-03. Above & Beyond feat. Justine Suissa - Cold Feet 5:35
-04. Activa - Generate (Original Mix) 7:32(   Читать дальше...   )Жанр: Dance, Club, House, Electro House и другиеПродолжительность: 23:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AE6B8BFE1668CE097416882CC2354C47C93B445
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204997   (784061) от 08.02.2018
-
-VA - Bass Killer 14 (2018) [MP3|320 Kbps] <Dubstep, Electro House, Trap>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alison Wonderland — U Don’t Know (Slushii Remix) (3:44)
-02. Bare x Sluggo — Adios (3:25)
-03. Bear Grillz — Defy The Odds (feat. Elle Vee) (4:09)
-04. Cardi B — Bodak Yellow (IZII Remix) (3:10)(   Читать дальше...   )Жанр: Dubstep, Electro House, TrapПродолжительность: 01:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:885CC78D71C8B4579B302640AC7F754B6E21D5A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

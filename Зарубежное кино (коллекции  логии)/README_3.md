@@ -1,3 +1,55 @@
+###  Публикация: 547773   (931168) от 13.03.2013
+
+Сумерки.Сага: Квадрология / Twilight. Saga: Quadrology (2008-2012) HDRip
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Белла, став вампиром, постепенно свыкается со своей новой природой. В этом ей помогают Эдвард и остальные члены семьи Калленов. К тому же теперь у Беллы есть дочь Ренесми и вечность впереди. Джейкоб, запечатленный с Ренесми, становится для девочки другом и наставником. Ненадолго для героев наступают спокойные, счастливые дни. Все заканчивается, когда вести о Ренесми (   Читать дальше...   )Производство: СШАЖанр: фэнтези, драма, мелодрама, приключенияРежиссер: Билл КондонАктеры: Кристен Стюарт, Роберт Паттинсон, Тэйлор Лотнер, Питер Фачинелли, Элизабет Ризер, Эшли Грин, Джексон Рэтбоун, Келлан Латс, Никки Рид, Билли БёркПеревод: ДубляжСубтитры: ОтсутствуютПродолжительность: 01:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CAAFC5AEE618BB60D30C8FC67975F31B2AE2E1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547779   (931166) от 13.03.2013
+
+Сумерки.Сага: Квадрология / Twilight. Saga: Quadrology (2008-2012) HDRip
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Белла, став вампиром, постепенно свыкается со своей новой природой. В этом ей помогают Эдвард и остальные члены семьи Калленов. К тому же теперь у Беллы есть дочь Ренесми и вечность впереди. Джейкоб, запечатленный с Ренесми, становится для девочки другом и наставником. Ненадолго для героев наступают спокойные, счастливые дни. Все заканчивается, когда вести о Ренесми (   Читать дальше...   )Производство: СШАЖанр: фэнтези, драма, мелодрама, приключенияРежиссер: Билл КондонАктеры: Кристен Стюарт, Роберт Паттинсон, Тэйлор Лотнер, Питер Фачинелли, Элизабет Ризер, Эшли Грин, Джексон Рэтбоун, Келлан Латс, Никки Рид, Билли БёркПеревод: ДубляжСубтитры: ОтсутствуютПродолжительность: 01:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F478E861F74FF44BB274650FFF5A5F05736846E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 547793   (931147) от 13.03.2013
 
 Сумерки.Сага: Квадрология / Twilight. Saga: Quadrology (2008-2012) BDRip [H.264]
@@ -6,7 +58,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931147.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930140.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929965.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929818.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928967.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926676.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926621.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923223.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920823.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917909.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916813.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916726.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916497.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916385.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911882.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911134.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911125.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ Zомбилэнд / Zombieland (2009, 2019) UHD BDRemux [H.265/2160p] [4K, HDR, 
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910648.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910216.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909947.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906342.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905536.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902563.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901832.jpg" />
 </div>
 
 
@@ -622,59 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE577383EAC8F22801C0C66C93E610894592980B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369589   (901176) от 24.03.2020
-
-Стражи Галактики / Guardians of the Galaxy (2014, 2017) BDRip [H.264/1080p] [Дилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отважному путешественнику Питеру Квиллу попадает в руки таинственный артефакт, принадлежащий могущественному и безжалостному злодею Ронану, строящему коварные планы по захвату Вселенной. Питер оказывается в центре межгалактической охоты, где жертва — он сам.
-Единственный способ спасти свою жизнь — объединиться с четверкой нелюдимых изгоев: воинственным енотом по (   Читать дальше...   )Производство: США / Marvel Studios, Walt Disney Pictures, Moving Pictures CompanyЖанр: фантастика, боевик, приключения, комедияРежиссер: Джеймс ГаннАктеры: Крис Прэтт, Зои Салдана, Дэйв Батиста, Вин Дизель, Брэдли Купер, Ли Пейс, Майкл Рукер, Карен Гиллан, Джимон Хонсу, Джон Си Райли, Сильвестр Сталлоне, Пом Клементьефф, Элизабет Дебики, Курт РасселлПеревод: ДублированныйСубтитры: русские (Forced, Full), английские (Full, SDH, SDH-Colored)Продолжительность: 02:00:51 / 02:15:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95483F29D5180B9FF5C784869A871F5B61577040
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 868543   (893912) от 13.02.2015
-
-Паранормальное явление: Квадрология / Paranormal Activity: Quadrilogy (2007-2012) BDRip [1080p]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается спустя 5 лет с момента событий фильма «Паранормальное явление 2». Алекс и её бойфренд борются с паранормальной активностью в их доме.Производство: СШАЖанр: Ужасы, триллер, детективРежиссер: Генри Джуст, Эриель ШульманАктеры: Кэтрин Ньютон, Кэти Физерстон, Мэтт Шивли, Стивен Данэм, Алексондра Ли, Брэйди Аллен, Эйден Лавкамп, Сара Морнелл, Алиша Боэ, Брэндон Хэйл ЭггерсенПеревод: ДублированныйЯзык субтитров: Русский , АнглийскийПродолжительность: 01:27:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C223983BD39D9B0F3DA4372443F62427CB9C4D51
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1600846   (153822) от 29.12.2022
+
+Владислав Чубаров | Лекарство от пропаганды (2022) [MP3, Михаил Мурзаков]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153822.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Мы не можем знать всего… всё не так однозначно…»
+«Не бывает дыма без огня…»
+«Все врут, я никому не верю…»
+«Я знаю этих ребят, они не могли так поступить…»(   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 04:25:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65BE347F8DE2ABAFD70EEB0D6379242FF2B13F30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194590   (153332) от 26.12.2017
 
 Игорь Окишев | Запрещенная Реальность (2017) [MP3]
@@ -6,7 +35,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153332.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153260.jpg" />
 </div>
 
 
@@ -59,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153038.jpg" />
 </div>
 
 
@@ -85,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152603.jpg" />
 </div>
 
 
@@ -111,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150682.jpg" />
 </div>
 
 
@@ -140,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148695.jpg" />
 </div>
 
 
@@ -166,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148557.jpg" />
 </div>
 
 
@@ -192,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148286.jpg" />
 </div>
 
 
@@ -218,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147147.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146534.jpg" />
 </div>
 
 
@@ -270,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145798.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145628.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144725.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141740.jpg" />
 </div>
 
 
@@ -379,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140841.jpg" />
 </div>
 
 
@@ -405,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139185.jpg" />
 </div>
 
 
@@ -432,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139027.jpg" />
 </div>
 
 
@@ -458,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138850.jpg" />
 </div>
 
 
@@ -485,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137727.jpg" />
 </div>
 
 
@@ -511,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137096.jpg" />
 </div>
 
 
@@ -537,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136979.jpg" />
 </div>
 
 
@@ -566,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136828.jpg" />
 </div>
 
 
@@ -594,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136179.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135857.jpg" />
 </div>
 
 
@@ -649,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132404.jpg" />
 </div>
 
 
@@ -660,32 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:548AAB4C9D7BD340C5ED06AB663247F85EF6D93A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682141   (131818) от 06.12.2023
-
-Борис  Кригер | Бритва Оккама По ту сторону простоты (2023) [MP3, Андрей Канаев]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аудиокнига погружает читателя в глубины философского и научного метода, именуемого Бритва Оккама, акцентируя внимание на тонкой грани между простотой и сложностью в поисках объяснения явлений реальности. Автор исследует различные аспекты применения этого метода, начиная от его исторического происхождения и заканчивая современными научными и философскими дебатами. (   Читать дальше...   )Жанр: ФилософияИздательство: Аудиокнига своими рукамиПродолжительность: 01:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBCF6D6A0A0114D2CA5C0E8B2F165CDA5F6B6967
 ```
 
 https://mybot314.ru/tekegram_catalog/

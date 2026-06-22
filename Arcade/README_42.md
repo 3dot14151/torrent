@@ -1,3 +1,55 @@
+###  Публикация: 1688138   (125406) от 28.12.2023
+
+Strayed Lights (2023) [Ru/Multi] (Build 11697504) Repack Other s
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Strayed Lights — это захватывающее экшен-приключение, действие которого разворачивается в бессловесном, похожем на сон мире разложения и теней. Вы — зарождающийся свет, отправившийся в путешествие, чтобы освободиться от цепких объятий окружающих вас теней.Тип издания: RepackРазработчик: EmbersЖанр: ActionЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1264D38A0BF128BAD81FB6F253B11911F3A64E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689855   (124459) от 04.01.2024
+
+Eternal Dread 3 (2023) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Eternal Dread 3 – это трехмерный ролевой экшен с видом от третьего лица и анимешной графикой. Его сеттинг скрещивает фэнтези и стимпанк. В игре можно сражаться с монстрами, качать способности и характеристики, получать более мощное снаряжение. Есть тайник, позволяющий делиться классовым лутом с другими персонажами. Действие разворачивается в порабощенном демонами (   Читать дальше...   )Тип издания: SceneРазработчик: Hitbear StudioЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Английский, Китайский, Японский, ТайскийЯзык интерфейса: Английский, Китайский, Японский, Тайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CFCB46CD78D714016ACE8B37C88DC9D7F55244D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689858   (124413) от 04.01.2024
 
 Deflector (2023) [Ru/Multi] (1.0.0.0) Scene Tenoke
@@ -6,7 +58,7 @@ Deflector (2023) [Ru/Multi] (1.0.0.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124413.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Tonight We Riot (2020) [Ru/Multi] (pcrelease.c) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124144.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Tools Up! (2024) [Ru/Multi] (1.06/dlc) License GOG [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124123.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Livestream 2: Escape from Togaezuka Happy Place (2023) [Multi] (1.01) License GO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124095.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Unstoppable (2024) [Ru/Multi] (1.0) Repack DjDI
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122664.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Spin Rhythm XD (2023) [Ru/Multi] (20231218/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122091.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Apex Heroines (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121188.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Tekken 8 (2024) [Ru/Multi] (1.01.03/dlc) Repack DjDI [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120579.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Inspector Gadget - Mad Time Party / Инспектор Гаджет – Безу
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120558.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Bomb Rush Cyberfunk (2023) [Ru/Multi] (1.0.20385) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120556.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Chambers of Devious Design (2022) [Ru/Multi] (1.3.0b) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117657.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Try to Survive Today / Попробуй выжить сегодня (2023) [Ru] 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116989.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ DRAGON QUEST BUILDERS (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116968.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Touhou Danmaku Kagura: Phantasia Lost (2024) [Multi] (1.0.1/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116943.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Neon Tail (2024) [Multi] (1.0.0.100) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116743.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Killer Instinct (2017) [Ru/Multi] (3.11.3111.1.294202/dlc) Repack dixen18 [Anniv
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116125.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Heretic's Fork (2023) [Ru/Multi] (1.0.71/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115786.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Besiege (2020) [Ru/Multi] (1.26-20573) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115780.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Song of Nunu: A League of Legends Story (2023) [Ru/Multi] (20231130) Scene Tenok
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115091.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Penny’s Big Breakaway (2024) [Ru/Multi] (1.1.20240131) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114896.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Cavern of Dreams (2023) [En] (7.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110535.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Pizza Possum (2023) [Ru/Multi] (1.4.16) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109831.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Asterix and Obelix: Slap them All! (2021) [Ru/Multi] (1.0.44) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106469.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Human Fall Flat (2016) [Ru/Multi] (20240605) Scene TinyISO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105156.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Human: Fall Flat – приключенческая головоломка с п
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D61BAE030026D4169C86A7B76F99C5184BCCFBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750860   (104138) от 22.09.2024
-
-30XX (2023) [Ru/Multi] (1.3.0/dlc) Repack FitGirl [Deluxe Edition]
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104138.jpg" />
-</div>
-
-
-###  Подробнее
-
-30XX сочетает в себе четкое управление и плавное движение, которые полюбились в экшн-прыгалках, таких как Mega Man X, мультиплеер современных "рогаликов" (Binding of Isaac, Enter the Gungeon, Dead Cells и т. д.) и совместная игра в одном великолепном пакете. Пробудившись через тысячу лет, ты обнаружишь, что мир, который в тебе нуждался, исчез, навсегда (   Читать дальше...   )Тип издания: RepackРазработчик: Batterystaple GamesЖанр: Экшены, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00BC863288DD5F7F08181008909E4D143B031447
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756128   (103559) от 19.10.2024
-
-Ember Knights (2023) [Ru/Multi] (2.0.0.b4510/dlc) Repack Pioneer
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103559.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом стремительном роуглайте вы станете Ember Knights, последней искрой надежды для погрузившейся в хаос вселенной. Безумный чародей Праксис похитил жизненные силы Горящего древа и бежал через четыре Начальных Мира, попутно заразив их своей скверной. В одиночку или в совместном режиме до 4 игроков используйте мощное оружие и навыки, чтобы прорубиться через орды (   Читать дальше...   )Тип издания: RepackРазработчик: Doom TurtleЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7DFA29EA8B7A0B087E23C3B54173B33F484C575
 ```
 
 https://mybot314.ru/tekegram_catalog/

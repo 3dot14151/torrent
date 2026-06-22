@@ -1,3 +1,55 @@
+###  Публикация: 1518993   (150867) от 22.12.2021
+
+Movavi Video Converter 22 Premium 22.2.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movavi Video Converter - конвертер видео и аудио файлов. Конвертируйте видео и аудио на вашем Mac. Сохраняйте видео для просмотра на портативном устройстве. Извлечение саундтреков из видео. И многое другое…Тип издания: macOS SoftwareРелиз состоялся: 22.12.2021Разработчик: © 2021 Movavi Software Limited.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:641D0DE0C929116F00A7B2CBDC4B5E0937AAD4F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519051   (150789) от 22.12.2021
+
+Movavi Video Editor Plus 2022 v22.1.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вам нужно больше инструментов для создания фильмов, скачайте Movavi Видеоредактор Плюс. В этом приложении есть все функции обычного Видеоредактора, а также новые дополнительные возможности – например, анимация объектов. Попробуйте утилиту прямо сейчас.Тип издания: macOS SoftwareРелиз состоялся: 22.12.2021Разработчик: © 2021 Movavi Software LimitedПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FCF3508EE6EFB0B154EFF7346AA593B4D2D26D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968886   (150455) от 25.12.2015
 
 Apple iMovie 10.1 [Multi/Ru]
@@ -6,7 +58,7 @@ Apple iMovie 10.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150455.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ Short Menu 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150436.jpg" />
 </div>
 
 
@@ -63,7 +115,7 @@ Maxon Cinema 4D Studio R25.115 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150400.jpg" />
 </div>
 
 
@@ -89,7 +141,7 @@ iShowU Studio 2 v2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150364.jpg" />
 </div>
 
 
@@ -117,7 +169,7 @@ Marked 2 v2.5.9
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150351.jpg" />
 </div>
 
 
@@ -144,7 +196,7 @@ Athentech Perfectly Clear Complete 3.6.3.1392 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150338.jpg" />
 </div>
 
 
@@ -172,7 +224,7 @@ Reeder 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150214.jpg" />
 </div>
 
 
@@ -201,7 +253,7 @@ Colibri - Native Lossless Audio for macOS 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150197.jpg" />
 </div>
 
 
@@ -230,7 +282,7 @@ MacX Video Converter Pro 6.4.0 (20181213) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150145.jpg" />
 </div>
 
 
@@ -257,7 +309,7 @@ iFlicks 2 v2.4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150081.jpg" />
 </div>
 
 
@@ -285,7 +337,7 @@ Paw 3.0.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150032.jpg" />
 </div>
 
 
@@ -313,7 +365,7 @@ PullTube 1.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150016.jpg" />
 </div>
 
 
@@ -339,7 +391,7 @@ Scrollow 1.6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149986.jpg" />
 </div>
 
 
@@ -365,7 +417,7 @@ Viper FTP 5.5.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149982.jpg" />
 </div>
 
 
@@ -392,7 +444,7 @@ XCap 1.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149969.jpg" />
 </div>
 
 
@@ -418,7 +470,7 @@ Zoom It 1.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149948.jpg" />
 </div>
 
 
@@ -446,7 +498,7 @@ Inklet 2.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149924.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Allavsoft Video Downloader Converter 3.24.2.8025 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149876.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ DxO PhotoLab 5 ELITE Edition 5.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149826.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ Cockos REAPER for Mac v6.43  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149817.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149810.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Combo Cleaner Premium 1.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149798.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ iMap Builder: Organisation 11.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149788.jpg" />
 </div>
 
 
@@ -631,7 +683,7 @@ AnyTrans for iOS 8.8.1.20201224 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149787.jpg" />
 </div>
 
 
@@ -643,58 +695,6 @@ AnyTrans, не в пример iTunes, прост и интуитивен. Ка�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2357E531389E14CF394841346617C0B03638E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519324   (149722) от 23.12.2021
-
-4K YouTube to MP3 4.4.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149722.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K YouTube to MP3 — приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио! Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url".Тип издания: macOS SoftwareРелиз состоялся: 22.12.2021Разработчик: © OpenMedia LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6B5D8F51A27D4F82773B4C98B82FF1E86F133D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519254   (149409) от 23.12.2021
-
-Wondershare Filmora Х v10.7.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобный видеоредактор, содержащий все необходимые инструменты для редактирования видео. В вашем распоряжении все необходимые инструменты для создания фильма с использованием нужных вам титров, плюс вы сможете добавлять большое количество встроенных фильтров и эффектов переходов, есть возможность работать со звуковыми дорожками, в целом все как в остальных редакторах. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.12.2021Разработчик: © 2021 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.14 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BFF72C450409F3C782D9ADB667058D659828DB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

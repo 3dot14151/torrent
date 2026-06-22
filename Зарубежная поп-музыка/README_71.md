@@ -6,7 +6,7 @@ VA - The Universal - 90's Easy (2023) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_235131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235131.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Sexy Pride Music 2023 | For Girls Who Want Boys Who Like Boys [MP3|320 Kbps
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235084.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Summer Chillin' (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_234787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234787.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Paula Abdul - The Greatest (1998) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234764.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Summer Pop 100 (2023) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234115.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Mastermix Essential Hits: 00s R’n’B (2022) [MP3|320 Kbps] <Pop, R’n�
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_234017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234017.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Cher - It's a Man's World (1995) Deluxe Edition, Remaster, 2023, Warner Records 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232138.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - 80's Super Hits (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231028.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Der deutsche Schlager Winter (2018) [MP3|320 Kbps] <Pop, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230009.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ VA - Pop Music from the 00s (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229812.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Cascada - It's Christmas Time (iTunes Version) (2012) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229423.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Amanda Lear - All Very Best (2012) [MP3|320 кб/с]<Pop,Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229246.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ VA - 100 Hits Winter 2021 (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229009.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ MARUV - Hellcat Story (2019) EP [MP3|320 Kbps] <Dance, Pop, Electronic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228645.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Various Artists - NOW #1s - 70 Years Of The Official Singles Chart (5 CD Box Set
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228544.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ VA - 100 Greatest Christmas Songs Ever (Top Xmas Pop Hits) (2019) [MP3|320 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228524.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Prince - HITnRUN Phase Two (2015) [MP3|320 кб/с] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228221.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Andrea Berg (Andrea Zellen) - 2 Albums (2022-2023) [MP3|320 Kbps] <Dance Pop, Sc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_227636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227636.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - Diskoteka в стиле O-Zone (2005) [MP3|320 Kbps] <Europop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227455.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Power Music Workout - Workout Top Songs 2023 - Summer Edition [MP3|320 Kbps] <Po
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_227416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227416.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ VA - Italian Golden Ballads (2010) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226829.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ VA - Schlager Club 2019 (63 Discofox Party Hits) (2018) 3CD [MP3|320 Kbps] <Schl
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226808.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Mylène Farmer - Désobéissance (2018) [OGG Vorbis|480 Kbps] <Electronic, Pop, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226624.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ VA - Dance Hits 2018 (2018) [MP3|320 Kbps] <Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226523.jpg" />
 </div>
 
 
@@ -723,7 +723,7 @@ Sade - The Best Of Sade (1994) [OGG Vorbis|480 Kbps] <Funk / Soul, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226477.jpg" />
 </div>
 
 
@@ -752,7 +752,7 @@ VA - Smashing 80s Hits (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226386.jpg" />
 </div>
 
 

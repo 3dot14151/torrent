@@ -6,7 +6,7 @@
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491090.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490601.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487691.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484593.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ NNM-Club Sound Cleaner Group Collection - s6
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484591.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482579.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480912.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475063.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471235.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468264.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466127.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466121.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ NNM-Club Sound Cleaner's - Cleared Soundtracks - Vol.06
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466017.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ NNM-Club Sound Cleaner Collection - andgelo12 - Album 4
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462969.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459778.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456693.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ NNM-Club Sound Cleaner - Чистые музыкальные треки с Audio
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456443.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454705.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454597.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449103.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448564.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446933.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446170.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444830.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444391.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440293.jpg" />
 </div>
 
 

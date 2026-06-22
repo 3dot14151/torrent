@@ -1,3 +1,57 @@
+###  Публикация: 1503006   (822814) от 17.10.2021
+
+Старые Деньги / Altes Geld (2015) WEBRip [H.264] (сезон 1, серии 1-8 из 8) [GER / RU, GER, EN Sub]
+
+>>Зарубежные сериалы
+>>Сериалы без перевода
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличный сериал, кондовый, культовый и музыкальный, энциклопедия австрийской жизни, свежо и отлично снятая вечная античная классика на новый лад, поэтому не советовал бы вникать в описание сюжета, не в нём дело, но если без этого никак, то со следующего абзаца в очень общих чертах!
+Семья, наделенная богатством и властью, отчаянно ищет печень для своего отца, который (   Читать дальше...   )Производство: Австрия / Superfilm, Österreichischer Rundfunk (ORF)Жанр: комедияРежиссер: Давид ШалькоАктеры: Удо Кир, Сунньи Меллес, Николас Офчарек, Эдита Маловчич, Мануэль Руби, Нора фон Вальдштеттен, Yohanna Schwertfeger, Флориан Тайхтмайстер, Томас Штипсиц, Урсула Штраусс и др.Перевод: ОтсутствуетЯзык озвучки: НемецкийСубтитры: Русские (вшитые + отдельно), английские, немецкие (вшитые full + hardsub на не немецкую речь)Продолжительность: серии по ~00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F186F396DCA7637C0CD4AAC19247C4060D25C10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 312092   (822542) от 26.03.2011
+
+[EN] Тюдоры - первый сезон диск 4 из 4 / The Tudors - The Complete First Season (2007) disk 4 of 4 (2007) DVD9
+
+>>Зарубежные сериалы
+>>Сериалы без перевода
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Публичная и тайная жизнь представителей нескольких поколений династии Тюдоров – противоречивого периода в жизни Англии. Процветание и разорение, мудрость королей и деспотия тиранов, скрытые аспекты жизни величайших деятелей того времени – Генриха VII, Генриха VIII, Марии I, Елизаветы I и многих других.
+......Генрих в исполнении Джонатана Рис-Майерса - это ярость (   Читать дальше...   )Жанр: Драма, Приключения, ЭротикаРежиссер: Чарльз МакДугалл, Стив Шилл, Киаран Доннелли, Брайан КиркАктеры: Джонатан Риз Майерс, Сэм Нил, Генри Кавилл, Натали Дормер, Ник Даннинг, Мария Дойл Кеннеди,Джеймс Фрейн, Padraic Delaney, Джереми Нортэм, Джэми Кинг, Энтони БрофиПеревод: ОтсутствуетПродолжительность: 00:54:00 минуты серия
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 559288   (808916) от 18.05.2013
 
 Стрела / Arrow [Сезон 1, полный] (2012) WEB-DL 720p [EN]
@@ -6,7 +60,7 @@
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808916.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793929.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787423.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786516.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785108.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785107.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785104.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785102.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785096.jpg" />
 </div>
 
 
@@ -242,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783624.jpg" />
 </div>
 
 
@@ -268,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783587.jpg" />
 </div>
 
 
@@ -295,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783585.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779888.jpg" />
 </div>
 
 
@@ -347,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757254.jpg" />
 </div>
 
 
@@ -373,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747419.jpg" />
 </div>
 
 
@@ -399,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745037.jpg" />
 </div>
 
 
@@ -425,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742917.jpg" />
 </div>
 
 
@@ -451,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742864.jpg" />
 </div>
 
 
@@ -477,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736329.jpg" />
 </div>
 
 
@@ -503,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734063.jpg" />
 </div>
 
 
@@ -529,7 +583,7 @@ CSI: Место Преступления / CSI: Crime Scene Investigation (2013-
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734035.jpg" />
 </div>
 
 
@@ -555,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730316.jpg" />
 </div>
 
 
@@ -581,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708745.jpg" />
 </div>
 
 
@@ -607,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707813.jpg" />
 </div>
 
 
@@ -618,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20742F92C1394821FA79FE287C7DDC6A9E84E0FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533269   (706919) от 23.02.2022
-
-Свет Харуки / Haruka no Hikari (2021) HDTVRip [H.265/1080p-LQ] (сезон 1, серии 1-5 из 5) [JP / RU, JP Sub]
-
->>Зарубежные сериалы
->>Сериалы без перевода
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дочь рыбака Харука, потерявшая дом и множество друзей во время сильнейшего землетрясения 11 марта 2011 года близ города Тохоку префектуры Мияги, прожив год во временном жилье, не захотела возвращаться обратно в родной город и уехала в Токио, где после долгих страданий и невзгод она устроилась на работу в магазин продающий свет, как тот что однажды спас её от погружения (   Читать дальше...   )Производство: Япония, NHKЖанр: повседневность, драмаРежиссер: Мацубара Хироси, Нагасава ЁсияАктеры: Куросима Юина, Фурутати Кандзи, Ямасита Ёриэ, Тамаки Сора, Огата Иссэй, Мидзума Рон, Адати Томомицу, Сиоми Сансэй, Ватанабэ Дайти, Утида ТикаПеревод: ОтсутствуетЯзык озвучки: ЯпонскийСубтитры: Русские (отдельно), Японские (ASS, SRT, отдельно)Продолжительность: серии по ~00:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31C1B32E739F9E6D3187350A891859E11F0AF0BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 649467   (698183) от 27.06.2013
-
-Ганнибал / Hannibal [Сезон 1, полный] (2013) WEB-DLRip 720p, WEBRip 720p [EN]
-
->>След.
->>Сериалы без перевода
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_698183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уилл Грэхэм — одаренный профайлер, который вместе с ФБР разыскивает серийного убийцу. Уникальный способ мышления Грэма дает ему удивительную способность глубоко проникаться чувствами другого человека, даже психопата. Он может понять, что ими движет. Но когда ум преследуемого убийцы оказывается слишком сложным, он прибегает к помощи доктора Лектера, одного из ведущих (   Читать дальше...   )Жанр: Детектив, Криминал, ДрамаРежиссер: Дэвид Слэйд, Гильермо Наварро, Майкл РаймерАктеры: Мадс Миккельсен, Хью Дэнси, Каролин Давернас, Лара Жан Чоростецки, Аарон Абрамс, Лоренс Фишбёрн, Эттьенн Парк, Скотт Томпсон, Торианна Ли, Демор Барнс и др.Перевод: ОтсутствуетЯзык субтитров: Русские (Продолжительность: ~00:42:00 мин  серия
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

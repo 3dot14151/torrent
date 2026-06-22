@@ -1,3 +1,109 @@
+###  Публикация: 931216   (512493) от 25.08.2015
+
+ENKI (2015) [Ru/Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Enki – это мистический квест, где игроку предстоит выбраться из плена и разгадать страшные тайны своего похитителя… С первого взгляда Enki можно определить, как некий «сурвайвл-хоррор», что, по сути, абсолютно неверно. Да, нашего героя похитили нехорошие люди… очень нехорошие люди, судя по давно засохшему мертвому соседу по камере.Тип издания: ЛицензияРазработчик: Storm in a TeacupЖанр: Action, Survival horror, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17081288076D89D25C11006D1E8968CD16F96664
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536919   (512117) от 20.08.2012
+
+Marvel Comics Spider-Man: The Sinister Six [En] (RePack) 1996 | RG Games/Pilotus
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игровой процесс представляет собой мультфильм: в роли Питера Паркера вы общаетесь с женой, коллегами жены, другими появляющимися в игре персонажами; в роли Человека Паука общаетесь с суперзлодеями, полицией, а также деретесь с первыми. Эта драка - нехитрое действо: нужно либо уворачиваться от бомб, щупалец и т.п, либо стрелять паутиной по несущимся в вашу сторону неприятностям. Помимо этого, иногда приходится решать несложные головоломки. Все управление - одной только мышкой.Тип издания: RePackЖанр: Приключение, аркада, интерактивный мультфильмЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931561   (511544) от 26.08.2015
+
+Corpse of Discovery (2015) [En] (1.0) License RELOADED
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Corpse of Discovery - это приключенческий проект, рассказывающий историю астронавта, очнувшегося на некой космической станции, и который не помнит совершенно ничего ни об этой базе, ни о своей миссии.Тип издания: ЛицензияРазработчик: Phosphor GamesЖанр: Adventure / IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCAB5909B5D6315616091B40BE9AB9CC830B0D8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 376688   (509926) от 17.08.2011
+
+Runaway Антология [Ru] (RePack) 2002-2009 | R.G. Catalyst
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что делать непутевому красавчику и бывшей стриптизерше в большом городе? Правильно – искать новых приключений на свои головы и другие части тела. Герои любимых квестов возвращаются – в новой, заключительной части культовой трилогии Runaway!
+
+  Со времени предыдущей игры в жизни Брайана и Джины многое изменилось. Но главное осталось прежним – присущее персонажам искрометное чувство юмора. Вас ожидает совершенно новая история с невероятными поворотами сюжета. Во время похождений вам доведется общаться с уже знакомыми и совершенно новыми персонажами, испытать флешбэки и как следует все вокруг встряхнуть! Игра изобилует отсылками к предыдущим частям Runaway и полностью сохранила все то, что так полюбилось миллионам поклонников по всему миру.Тип издания: RePackЖанр: AdventureЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30F3C1F9BE03957C1E08861B7A3FC874FA308D34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316086   (508660) от 23.07.2019
 
 VANE (2019) [Multi] (1.0/dlc) License HOODLUM
@@ -6,7 +112,7 @@ VANE (2019) [Multi] (1.0/dlc) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508660.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ VANE (2019) [Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508625.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ Pilot Brothers / Братья Пилоты: По следам полосатог
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507777.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ Dead In Bermuda (2015) [En/Fr] (1.01) Repack ALIAS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506847.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ STASIS (2015) [Ru/Multi] (1.04.0928) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506832.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ Amnesia: The Dark Descent / Амнезия: Призрак Прошлого [Ru/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506055.jpg" />
 </div>
 
 
@@ -165,7 +271,7 @@ Valiant Hearts: The Great War (2014) [Ru/En] (1.1.150818) Rip West4it
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503053.jpg" />
 </div>
 
 
@@ -191,7 +297,7 @@ Valiant Hearts: The Great War (2014) [Ru/Multi] (1.1.150818) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503049.jpg" />
 </div>
 
 
@@ -217,7 +323,7 @@ MADiSON (2022) [Ru/Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502218.jpg" />
 </div>
 
 
@@ -243,7 +349,7 @@ CENTRALIA (2019) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502050.jpg" />
 </div>
 
 
@@ -269,7 +375,7 @@ CENTRALIA (2019) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502045.jpg" />
 </div>
 
 
@@ -295,7 +401,7 @@ Atlantis 2: Beyond Atlantis / Атлантида 2 (1999) [Multi] (1.0) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500269.jpg" />
 </div>
 
 
@@ -321,7 +427,7 @@ MADiSON (2022) [Ru/Multi] (1.1.0/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500259.jpg" />
 </div>
 
 
@@ -347,7 +453,7 @@ Syberia 2 / Сибирь 2 (2004) [Ru/Multi] (1.0.0.10) Repack Cheshire28
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498952.jpg" />
 </div>
 
 
@@ -365,6 +471,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935294   (498950) от 08.09.2015
+
+Gridberd (2015) [Ru/Multi] (1.0) License CODEX
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_498950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый дом хранит много страшных тайн. Их не легко разгадать, да и от ответов порой возникают только новые вопросы. Но что делать, когда от этих ответов зависит ваша жизнь? Игра Gridberd представляет собой экшен-хоррор от первого лица, в котором вам, предстоит разгадать страшную тайну старинного особняка Джонсонов. Кто вы? Как вы здесь оказались? Что вообще произошло?Тип издания: ЛицензияРазработчик: WareberdЖанр: Action / Adventure / HorrorЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий, Испанский, ИтальянскийЯзык интерфейса: Русский, Английский, Французский, Немецкий, Испанский, Итальянский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE5EFD2DA9EDAAA5D4B9FC00CD8BCE88C7397E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317880   (498428) от 03.08.2019
 
 7th Sector (2019) [Ru/Multi] (1.0.4/dlc) License PLAZA
@@ -373,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498428.jpg" />
 </div>
 
 
@@ -399,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496183.jpg" />
 </div>
 
 
@@ -425,7 +557,7 @@ Wind Peaks (2020) [Ru/Multi] (2019.3.15.65342) Repack DeMax-95
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494714.jpg" />
 </div>
 
 
@@ -451,7 +583,7 @@ Obduction (2016) [Ru/Multi] (1.8.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494385.jpg" />
 </div>
 
 
@@ -477,7 +609,7 @@ Endling - Extinction is Forever (2022) [Ru/Multi] (0.16.25) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494306.jpg" />
 </div>
 
 
@@ -503,7 +635,7 @@ Event[0] (2016) [En] (1.0/u1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493498.jpg" />
 </div>
 
 
@@ -529,7 +661,7 @@ CYPHER: Cyberpunk Text Adventure [En] (Lossless Repack/1.0) 2012 | SHARINGAN
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492697.jpg" />
 </div>
 
 
@@ -545,136 +677,6 @@ CYPHER: Cyberpunk Text Adventure [En] (Lossless Repack/1.0) 2012 | SHARINGAN
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2478269611D00811401536A0DA7BEFF6190DC5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318719   (492285) от 07.08.2019
-
-Silver Chains (2019) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды в неспокойную ночь, после того, как машина Питера врезалась в дерево, он просыпается в старом заброшенном особняке, где-то в Англии. Питер не может вспомнить, почему и как он попал сюда, но вскоре он понимает, что дом не такой уж и заброшенный, каким кажется. В попытках найти выход из дома, главный герой должен раскрыть темные секреты того, что случилось (   Читать дальше...   )Тип издания: RepackРазработчик: Cracked Heads GamesЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45E686CC78D977819E4F6F87B966FBD691328F60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158686   (491270) от 16.08.2017
-
-The Trail: Frontier Challenge (2017) [Ru/Multi] (1.0) License PLAZA
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хочешь изведать неизведанное? Хочешь забраться на самые высокие горы, одеться в самые лучшие одежды и завладеть несметными богатствами? Тогда добро пожаловать в Новый свет! Добро пожаловать в The Trail: Frontier Challenge! Отправься вместе с первопроходцами со всех концов света в грандиозное путешествие по неизведанной стране! Пройдись по судьбоносному пути тихим (   Читать дальше...   )Тип издания: LicenseРазработчик: 22cansЖанр: Adventure, Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4847B05E59BAC898153E22C8750E7D0A009693D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554374   (490014) от 25.07.2022
-
-Raji: An Ancient Epic (2020) [Ru/Multi] (1.6.0/dlc) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490014.jpg" />
-</div>
-
-
-###  Подробнее
-
-История Raji: an Ancient Epic начинается со стартом новой войны между демонами и богами. Стремясь отомстить за свое поражение тысячу лет назад, армия демонов вторглась в мир, населенный людьми, угрожая существованию всего человечества. Люди, которые считали, что их враги были уничтожены тысячу лет назад, забыли древние искусства, которые могли помочь им выжить в (   Читать дальше...   )Тип издания: LicenseРазработчик: Nodding Heads GamesЖанр: Экшны, ПриключениеЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41533C7EF6F46FCDE798BEB69560EF1C62751EA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158736   (489427) от 17.08.2017
-
-Ken Follett's The Pillars of the Earth (2017) [Ru/Multi] (1.0.536) Repack Covfefe
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра The Pillars of the Earth, основанная на мировом бестселлере Кена Фоллетта "Столпы Земли", по-новому, в интерактивном стиле пересказывает историю городка Кингсбридж. Играйте за Джека, Алиену и Филипа и меняйте описанные в книге события с помощью диалогов, исследования и принятых решений. Этот интерактивный роман состоит из трех "книг", по (   Читать дальше...   )Тип издания: RepackРазработчик: Daedalic EntertainmentЖанр: Adventure, CasualЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF7A9BAAFDEB097E12BF902BBB54F78ECD011FC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155279   (489424) от 17.08.2017
-
-The Long Dark (2017) [Ru/Multi] (1.10) SteamRip R.G. Игроманы [Episode 1-2]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489424.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Long Dark - хардкорный симулятор выживания в бескрайних лесах Северной Канады! Вы будете играть за пилота по имени Вил Маккензи, самолет которого потерпел крушение после мистического геомагнитного шторма.Тип издания: SteamRipРазработчик: Hinterland StudioЖанр: Action (Survival), 3D, 1st PersonЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:604560B359E767160494D0B2F1AE212ED8EF16F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

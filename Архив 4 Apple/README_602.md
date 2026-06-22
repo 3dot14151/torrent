@@ -1,3 +1,55 @@
+###  Публикация: 1672270   (170137) от 27.10.2023
+
+MacCleaner 3 PRO 3.2.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очистите Mac и оптимизируйте его производительность. Ускорьте медленный Mac, освободите место на диске, удалите ненужные файлы, предотвратите ошибку «Startup Disk Full».Тип издания: macOS SoftwareРелиз состоялся: 26.10.2023Разработчик: © 2023 NektonyПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB91F2B6F06DA466DCA0F8DAACB64AA260F9C890
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430876   (170092) от 11.12.2020
+
+Data Guardian 6 v.6.0.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Безопасность и секретность — вот одни из наиболее важнейших вопросов в сегодняшнем мире. Это безопасная база данных, использующая 448-битный алгоритм Blowfish для шифрования и хранения ваших данных, не зависимо от уровня их важности. В этом приложении вы можете создавать множество баз данных, используя их для широкого ряда таких задач, как ведение адресной книги, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2020Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD1984BC2D02B4314886471B35AD0B9ADB647C7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430878   (170086) от 11.12.2020
 
 Librarian Pro 6 v6.0.1 [En]
@@ -6,7 +58,7 @@ Librarian Pro 6 v6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170086.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Screens 4 v4.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170084.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ CaptureGRID 4 v4.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170076.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ MacPilot 12.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170071.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Money Pro - Personal Finance 2.6.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170070.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ PopChar X 9.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170062.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ AirRadar 6 v6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170056.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ SoundSource 5.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170046.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ eMail Address Extractor 3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170045.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ PDF Expert 2.5.19 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170030.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ Templates for Keynote - DesiGN 6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170003.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ PopClip 2020.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169988.jpg" />
 </div>
 
 
@@ -329,7 +381,7 @@ DjVu Reader Pro 2.4.3 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169897.jpg" />
 </div>
 
 
@@ -357,7 +409,7 @@ Path Finder 10.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169894.jpg" />
 </div>
 
 
@@ -383,7 +435,7 @@ Cardhop 1.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169848.jpg" />
 </div>
 
 
@@ -411,7 +463,7 @@ A Better Finder Attributes 6.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169841.jpg" />
 </div>
 
 
@@ -437,7 +489,7 @@ cDock 4 v4.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169811.jpg" />
 </div>
 
 
@@ -464,7 +516,7 @@ System Toolkit 5.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169779.jpg" />
 </div>
 
 
@@ -490,7 +542,7 @@ Dropshare 5.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169775.jpg" />
 </div>
 
 
@@ -517,7 +569,7 @@ Pixelmator Pro 3.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169769.jpg" />
 </div>
 
 
@@ -544,7 +596,7 @@ Magic Battery 7.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169761.jpg" />
 </div>
 
 
@@ -571,7 +623,7 @@ Sublime Merge Dev Build 2064 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169753.jpg" />
 </div>
 
 
@@ -597,7 +649,7 @@ Apple MainStage 3.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169743.jpg" />
 </div>
 
 
@@ -626,7 +678,7 @@ SpamSieve 2.9.47 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169736.jpg" />
 </div>
 
 
@@ -638,60 +690,6 @@ SpamSieve 2.9.47 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:525C6A89769D6B6414FE45056ED17AF4DC14C694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515459   (169712) от 07.12.2021
-
-Submerge 3 v3.8 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Submerge - это самый простой способ добавления субтитров к вашим фильмам и телешоу.
-Фильм с субтитрами будет воспроизводиться практически на всех «девайсах», таких как ваш компьютер, смартфон, портативное устройство или игровая приставка. Submerge поддерживает множество текстовых форматов субтитров в качестве входных данных, и вы можете экспортировать фильм (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.12.2021Разработчик: © 2021 Bitfield ABПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Арабский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1251590EC13D2F0F3A6BDB5F15E87F992CB5F13B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515513   (169707) от 07.12.2021
-
-iPulse 3.1.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тысячи клиентов использовали iPulse, чтобы следить за производительностью своего Mac с момента его представления еще в 2002 году.
-Используя лаконичный и привлекательный пользовательский интерфейс, iPulse графически отображает внутреннюю работу macOS на рабочем столе, в строке меню или в Dock. Презентация полностью настраивается, поэтому вы можете установить именно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.12.2021Разработчик: © 2021 The Iconfactory, Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C063F956B7E5F40140F793542DA5D6DAE0E3BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

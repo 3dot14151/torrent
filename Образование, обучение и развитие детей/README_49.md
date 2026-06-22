@@ -1,3 +1,134 @@
+###  Публикация: 933495   (506165) от 01.09.2015
+
+Галина Шалаева (сост.) | Потешки и считалки (2009) [RTF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие мамы жалуются, что у них нет времени заниматься с детьми. Специально для занятых мам и их малышей мы создали серию «Веселые уроки». Если вы едете куда-нибудь с ребенком или ждете своей очереди в детской поликлинике, от кройте книжку и устройте малышу веселый урок. Всего 10–15 минут, а сколько нового узнает маленький человечек! Книги серии «Веселые уроки» так (   Читать дальше...   )Жанр: Воспитание детей, Дошкольное обучениеФормат: RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E8CD53A86617F7BACBD04D52EAB8F888D47120B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 378533   (505657) от 22.08.2011
+
+Ю.А. Соколова | Академия дошкольного развития. Знакомимся с геометрическими фигурами [2004] [PDF, JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга для детей старшего дошкольного возраста, которая в увлекательной форме познакомит их с основами геометрии. Занимаясь по книге, малыши освоят простые понятия геометрии, научатся различать прямые, кривые, ломаные линии; познакомятся с геометрическими фигурами и телами и др.Формат: PDF, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F435587D22E9420E0B638E9CD3B006D7F4B58C0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933516   (505367) от 02.09.2015
+
+Ирина Лыкова | Пусть тебе улыбнется задача. Осмысленый счет в пределах 20. Подготовка к школе (2007) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мальчикам и девочкам 5-7 лет. Наш основной журнал для подготовки к школе (домашний лицей). Каждый выпуск посвящен конкретной теме - обучению чтению и счёту, подготовке руки к письму, развитию внимания, памяти, мышления, речи. Авторы - учёные Российской Академии образования дают конкретные советы родителям.Жанр: Образование, развитиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97AF6046A198A59A1CF6AAB157FC88E7063646D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933710   (505364) от 02.09.2015
+
+Шалва Амонашвили | Здравствуйте, дети! (1983) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505364.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии раскрывается опыт работы с шестилетними детьми в подготовительном классе школы. В нем автор обобщает результаты своей педагогической деятельности, своих наблюдений над формированием личности самых маленьких школьников.
+Книга написана в виде рассказа и размышлений педагога, ставшего организатором увлекательной школьной жизни малышей. В ней раскрываются психологические (   Читать дальше...   )Жанр: Обучение, разватиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED575B3BBE770A3576E9A2DCB78901666AD7BFE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933852   (504339) от 03.09.2015
+
+Андрей Кашкаров | Разговоры с сыном. Пособие для неравнодушных отцов (2014) [FB2, RTF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для большинства современных детей «правильное» воспитание стало не интересным, излишняя дидактика не привлекает, а скорее отталкивает, значит, мальчишки не мотивированы учиться накопленному опыту у родителей, а пользуются «общественным» интеллектом – тем, что дает школа, улица, авторитеты в микрогруппе; это приводит к зависимости, шаблонному мышлению и потери духовности. (   Читать дальше...   )Жанр: Воспитание детей, Детская психологияФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF068A49207A65AB1731EF0359A3D708A0CBBB7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933853   (504337) от 03.09.2015
 
 Андрей Кашкаров | Разговоры с дочерью. Пособие для неравнодушных отцов (2015) [FB2]
@@ -6,7 +137,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504337.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ HSP | Сборник адаптированных  книг / Harcourt Leveled R
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503982.jpg" />
 </div>
 
 
@@ -60,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503138.jpg" />
 </div>
 
 
@@ -86,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502222.jpg" />
 </div>
 
 
@@ -112,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502109.jpg" />
 </div>
 
 
@@ -139,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501867.jpg" />
 </div>
 
 
@@ -168,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501668.jpg" />
 </div>
 
 
@@ -194,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501081.jpg" />
 </div>
 
 
@@ -222,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499540.jpg" />
 </div>
 
 
@@ -249,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499273.jpg" />
 </div>
 
 
@@ -276,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499071.jpg" />
 </div>
 
 
@@ -304,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498557.jpg" />
 </div>
 
 
@@ -331,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497739.jpg" />
 </div>
 
 
@@ -357,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497499.jpg" />
 </div>
 
 
@@ -383,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497438.jpg" />
 </div>
 
 
@@ -410,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497324.jpg" />
 </div>
 
 
@@ -436,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496182.jpg" />
 </div>
 
 
@@ -463,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496167.jpg" />
 </div>
 
 
@@ -489,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496153.jpg" />
 </div>
 
 
@@ -515,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496101.jpg" />
 </div>
 
 
@@ -541,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495983.jpg" />
 </div>
 
 
@@ -553,140 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C18AADF5BED9AC6140A44034A93BF84C311F7A08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936450   (495923) от 11.09.2015
-
-Галина Шалаева | Учимся рисовать (2005) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие посвящено развитию у детей школьного возраста творческих способностей к рисованию. Автор предлагает методику обучения рисованию в соответствии с программой обучения школьников, рекомендованной Министерством образования РФ.Жанр: РисованиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C76AD0070B328DB9DD958F79F26F228D1BC2921
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936411   (495753) от 11.09.2015
-
-Шейла Пембертон(сост.) | Мой Oxford. Англо - русский словарь в картинках (1997) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495753.jpg" />
-</div>
-
-
-###  Подробнее
-
-помощью этого великолепно иллюстрированного словаря даже совсем маленькие дети смогут научиться читать и говорить по-английски. В книге около 500 слов и столько же фраз, которые ребенок может активно использовать в повседневной жизни. Материал для книги тщательно отобран преподавателями Оксфордского университета.
-
-Игровые сценки, посвященные разным темам, помогут (   Читать дальше...   )Жанр: Английский язык для малышейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99FA814A3DC5C9964202D35E0D6811E844AF4E39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 382217   (495448) от 31.08.2011
-
-Л. Чадова, Н. Луконина | Выпускные праздники в детском саду (2007) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга содержит 10 сценариев для выпускных праздников в детском саду.
-В гости к ребятам придут любимые сказочные герои: Золушка, Кот в сапогах, Пеппи Длинный чулок, Мэри Поппинс, а также Алфавит, Букварь и школьные отметки. Они проведут с детьми самые разные игры и конкурсы, споют песни и, конечно, загадают множество любимых всеми загадок.
-Сборник поможет музыкальным (   Читать дальше...   )Жанр: Сценарии для праздников в детском садуФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C512E20B3DA36247FB397692673EE0DEA1BD4CF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936643   (494154) от 12.09.2015
-
-Инна Бельская | Английское чтение в школе и дома. English reading (2002) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга поможет вашему ребенку учиться читать и запоминать слова для последущего использования их в речи. Книга интересна тем что в сказке есть яркая крупная картинка, окруженная мелкими со ангийскими словами. Для того что бы ребенок запомнил эти слова везде в тексте они заменены мелкими картиночками, поэтому их приходится называть самим, что бы прочесть сказку. (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2637DA49BA8D815D6E51269812D079D0C72CAA27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936773   (494039) от 12.09.2015
-
-Ирина Ланина | 100 игр по физике (1995) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Физика занимает особое место среди школьных дисциплин. Как учебный предмет она создает у учащихся представление о научной картине мира. Являясь основой научно-технического прогресса, физика показывает гуманистическую сущность научных знаний,подчеркивает их нравственную ценность, формирует творческие способности учащихся, их мировоззрение, т.е. способствует воспитанию (   Читать дальше...   )Жанр: 5-09-004938-6Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E067258EF1484EE046AF6F31F55956398754C1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,112 @@
+###  Публикация: 552568   (448384) от 26.09.2012
+
+Книжная серия "Пространство отражений (14 томов) [2004 – 2010] [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пространство отражений - серия книжек самых разных жанров, начиная с фантастики и заканчивая эротикой, но качество прозы неизменно высокое. Высочайшее качество произведений становиться ясным, если назвать создателей этих книжек - Джон Бойнтон Пристли, Лео Перуц, Шодерло де Лакло, Рамон Перес де Айала и др.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74C0999E66EBA445C760CD9FE9CD91A180629994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553039   (445315) от 27.09.2012
+
+Книжная серия | Библиотека Крокодила (67 книг) [1923-1991] [FB2, DJVU, PDF]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Библиотека Крокодила - серия юмористических и сатирических брошюр, библиотека знаменитого журнала "Крокодил".
+Вышло более 1000 выпусков.
+Брошюрки маленькие, но смешные и с веселыми рисунками, карикатурами и шаржами.Жанр: ЮморФормат: FB2, DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16DE650EB5B5166A2A192E759B709BCD5CC795EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322851   (444167) от 31.08.2019
+
+Книжная серия | Легенда мирового детектива [32 книги] (2013-2019) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легенда мирового детектива - серия новых книг известных зарубежных авторов боевика, детектива и триллера. Печатают, в основном, новые переводы. Иногда в мягкой обложке переиздают книги из серии "Мастера детектива".Жанр: Детектив, ТриллерФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ED659283A3ACA3AA04854C6C864FECE6F267393
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 873657   (441802) от 06.10.2015
+
+Книжная серия | WarGames [13 книг, Обновляемая] (2014-2015) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441802.jpg" />
+</div>
+
+
+###  Подробнее
+
+WarGames - серия российской фантастики в жанрах ЛитРПГ и киберпанк.
+
+"Киберпространство размывает границы между действительностью и игровой реальностью.
+Для миллионов людей по всему земному шару "играть" означает "жить".(   Читать дальше...   )Жанр: Боевая фантастика, ЛитРПГ, ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36008AE4AE3CE3B9ABFB7334B3E4D0FA0FCA7A3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 553658   (441022) от 29.09.2012
 
 Книжная серия | Мировой фантастический боевик (9 книг) [2008] [FB2]
@@ -6,7 +115,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441022.jpg" />
 </div>
 
 
@@ -33,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438289.jpg" />
 </div>
 
 
@@ -60,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437158.jpg" />
 </div>
 
 
@@ -88,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_436549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_436549.jpg" />
 </div>
 
 
@@ -118,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436141.jpg" />
 </div>
 
 
@@ -144,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435474.jpg" />
 </div>
 
 
@@ -171,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433105.jpg" />
 </div>
 
 
@@ -198,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432799.jpg" />
 </div>
 
 
@@ -225,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427166.jpg" />
 </div>
 
 
@@ -254,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426375.jpg" />
 </div>
 
 
@@ -281,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426111.jpg" />
 </div>
 
 
@@ -310,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424176.jpg" />
 </div>
 
 
@@ -336,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423111.jpg" />
 </div>
 
 
@@ -354,6 +463,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 392721   (420163) от 03.10.2011
+
+"Библиотека Детской Фантастики" в 560 томах | 1955-2011 [FB2, DOC, RTF, FBD]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_420163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Детская фантастикаИздательство: Эгмонт Россия Лтд, АСТ, Юнацва, Детгиз, Китони, Розовый жираф, Диалог, Армада, Оникс 21 векФормат: FB2, DOC, RTF, FBDКачество: Ebook (изначально компьютерное)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 557948   (419037) от 08.10.2012
 
 Книжная серия "Пираты Южных морей" (9 книг) [2006-2011] [FB2]
@@ -362,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419037.jpg" />
 </div>
 
 
@@ -389,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418410.jpg" />
 </div>
 
 
@@ -415,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418019.jpg" />
 </div>
 
 
@@ -441,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415311.jpg" />
 </div>
 
 
@@ -468,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411963.jpg" />
 </div>
 
 
@@ -495,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410918.jpg" />
 </div>
 
 
@@ -521,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408965.jpg" />
 </div>
 
 
@@ -547,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407835.jpg" />
 </div>
 
 
@@ -567,148 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B90115CA46A4DF2AC2ABF23825E33189E67D4942
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559805   (407825) от 13.10.2012
-
-Книжная серия | Зарубежный детектив (Терра) в 6 томах [2000-2004] [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зарубежный детектив от издательства Терра - это авторские и коллективные сборники лучших детективных произведений мастеров жанра.
-Представлены все направления детектива: классический детектив, боевик, юмористические вещи, психологические детективные романы и т.д.Жанр: ДетективФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B8B5FBB30003A8068AF7E241205A3153746D054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252583   (407674) от 06.10.2018
-
-Книжная серия | Устами народа [7 книг] (1997-1998) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Богат русский фольклор не только сказками причудливыми, но и озорными, да и песнями не только о березе, но и о...
-Низовая культура - истинно народное явление, не терпящее завуалированности и двусмысленности, уста народа говорят прямо и называют вещи своими именами.
-Эту серию составили книги, в которых собраны различные примеры устного народного творчества. Стоит (   Читать дальше...   )Жанр: Фольклор, Сатира и юморФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ACB720B16442AB17F0ED26B0B69653E4D2CF775
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560533   (407079) от 14.10.2012
-
-Книжная серия "VIP - эксклюзивная серия" (10 томов) [1995-1996] [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшая серия VIP включает в себя остросюжетные произведения.
-Тут и триллеры, и ужастики, и приключения; знаменитые авторы и не очень известные.
-Серия называется по-разному: VIP, V.I.P., VIP - эксклюзивная серия.
-
-Диана Бейн.    	Глаза ночи
-Клайв Касслер. 	Дракон
-Клайв Касслер. 	Сахара
-Дин Кунц. 	Видение
-Дин Кунц. 	Слуги Сумерек
-Дин Кунц. 	Черные реки сердца(   Читать дальше...   )Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1F3E60AD38375338F6995A1582B7526270BAFE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560311   (406897) от 14.10.2012
-
-Книжная серия | Библиотека приключений [129 книг] (2002-2011) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406897.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Библитека приключений" от издательства "АСТ" - книжная серия для читателей всех поколений, не утративших любовь к приключениям, романтическим историям, захватывающим путешествиям не только по нашей планете. В сборнике представлены известные и любимые произведения авторов, ставших классиками мировой литературы, - Жюля Верна, Александра Дюма, Джека (   Читать дальше...   )Жанр: приключения, фантастика, классикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC46A72D3360388AF752D17E6FB6AA4906A8164C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561116   (406274) от 16.10.2012
-
-Сборник | Спецназ. Серия в 563 книгах [2003-2012] [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406274.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Спецназ» - сборник книг, состоящий из 12 подсерий, в которые вошли увлекательные остросюжетные романы от известных авторов, проходивших в свое время службу в армии. Герои - спецназовцы – парни, которые всегда придут на помощь, реагируют быстро, атакуют внезапно, защищают доблестно.Язык: РусскийФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6ECDE750579A19269D6B12748127F25E1C5CA74
 ```
 
 https://mybot314.ru/tekegram_catalog/

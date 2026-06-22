@@ -6,7 +6,7 @@ Udemy, Majid Kamran Ahmadabad | Моделирование мультиплик�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149102.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Learn Squared, Steve Wang | Concept Art Hacks (2019) WEB-DLRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149083.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ CGMA, Frank Tzeng | Hair Creation & Styling for Games (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149046.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ CGMA, Emilia Schatz | Level Design for Games (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148886.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ FXPHD, Victor Perez | NUK312 Photorealism in Compositing with NUKE Fundamentals 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148692.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ FXPHD, Victor Perez | NUK313 Photorealism in Compositing with NUKE Case Studies 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148642.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Udemy, Krystian Wojtarowicz | Leonardo AI: Ultimate Guide For AI Art in Leonardo
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148611.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148558.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ FlippedNormals, Tim Bergholz | SWORD Tutorial – COMPLETE EDITION (2019) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147659.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Fine Courses, Юлия Киселева | Воркшоп 2.0 Нейросети 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146624.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146413.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Ryan Ribot | Stylized Creature Texturing Volume 2 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146073.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Eran Dinur | PNT205 3D Plants and Digital Environments (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145955.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Ryan Ribot | Stylized Creature Texturing Volume 3 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145831.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Ryan Ribot | Stylized Creature Texturing (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145800.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Gumroad, Jad Saber | Дизайн стилизованный окружающе�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145349.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Hudozhnik Online, Ольга Кабаева | Природа акварелью 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145327.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Kalacheva School, Анастасия Ермакова | Между светом 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145291.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Eran Dinur | SPT201 SpeedTree Techniques for VFX (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145200.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Gumroad, Jad Saber | 3D рабочий процесс для концепт-ар
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145126.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Helloluxx.com | MILG11. Hard Surface Modelling Tactics for Cinema 4D (2016) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144950.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Liveclasses, Антон Мартынов | Практика генерации �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144590.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ CGMA, Anthony Vaccaro | Organic World Building in UE4 (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143408.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143359.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Chad Morgan | Animation Pipeline in Unreal Engine 4 1-4 (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143232.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ cmiVFX.com | Arnold for Houdini (2015) PCRec [H.264/720p-LQ]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141569.jpg" />
 </div>
 
 

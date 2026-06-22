@@ -1,3 +1,81 @@
+###  Публикация: 1462150   (1021278) от 13.04.2021
+
+Ночь в раю / Nakwonui bam / Night in Paradise (2020) WEB-DLRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из мести за гибель сестры и маленькой племянницы бандит Тхэ-гу убивает босса конкурирующей преступной группировки. Война между кланами неизбежна, и Тхэ-гу по приказу своего босса отправляется залечь на дно на острове Чеджу.Производство: Пак Хун-джонЖанр: Криминал, драмаРежиссер: Пак Хун-джонАктеры: Ом Тхэ-гу, Чон Ё-бин, Чха Сын-вон, Ли Ги-ён, Пак Хо-сан, Чо Дон-ин, Хён Бон-щикПеревод: Двуголосый профессиональный (Pazl Voice)Субтитры: Русские, английские - отдельными файламиПродолжительность: 02:12:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45EE3A4DCBD662285671693AA63A8BE6D6ED51E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462227   (1021252) от 13.04.2021
+
+Восемь сотен (Восемьсот) / Ba Bai / The Eight Hundred (2020) BDRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021252.jpg" />
+</div>
+
+
+###  Подробнее
+
+26 октября 1937 года, Японо-китайская война. 400 солдат из 524-го полка 88-й дивизии Народно-революционной армии Китая четыре дня и четыре ночи ведут оборону склада Сыхан в Шанхае от Императорской армии Японии.Производство: Китай / Beijing Diqi Yinxiang Entertainment, Huayi Brothers MediaЖанр: военный, боевик, драма, историяРежиссер: Гуань ХуАктеры: Ван Цяньюань, Чжан И, Цзян У, Хуан Чжичжун, Чжан Цзюнъи, Охо Оу, Ду Чунь, Вижен Вэй, Чжан Юхао, Тан ИсиньПеревод: Многоголосый любительский (STEPonee)Субтитры: Русские, английские - отдельными файламиПродолжительность: 02:22:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC284A64F36E68064D20D89B7F96C32648387EF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462694   (1020886) от 15.04.2021
+
+Первый клон / Seobok (2021) WEB-DLRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший агент разведки Ки-хун неохотно возвращается в строй, чтобы сопроводить в безопасное место первого в мире клонированного человека. Но по пути на их конвой совершается нападение, и теперь Ки-хуну предстоит закончить миссию в одиночку, а его подопечный будет с интересом изучать окружающий мир.Производство: Корея Южная, CJ Entertainment, STUDIO101, TPS CompanyЖанр: Фантастика, БоевикРежиссер: Ли Ён-джуАктеры: Кон Ю, Пак По-гом, Чо У-джин, Чан Ён-нам, Пак Пён-ын, Щин Сон-иль, На Гван-хун, Чон Ми-нам, Ли Он-джон, Хан Джи-хёнПеревод: Дублированный (iTunes)Язык озвучки: РусскийСубтитры: Русские (Forced, Full) отдельноПродолжительность: 01:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BA88A7962D352C28B0D6B01C43BC7A7B50AF272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463439   (1020479) от 18.04.2021
 
 Одноглазый самурай Исимацу / Mori no Ishimatsu / Ishimatsu - The One-Eyed Swordsman (1957) WEB-DLRip [AVO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020479.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020452.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019960.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019951.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019607.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019524.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019310.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019261.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019187.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019124.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019017.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018933.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018728.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018582.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018187.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017797.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017262.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016895.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016565.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016117.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015908.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015610.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015354.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F642CE944034B3D5074223BD5AC242346DD0BC77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471971   (1014609) от 23.05.2021
-
-Токийский декаданс / Topazu / Tokyo Decadence (1992) BDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая проститутка Ай по прозвищу Топаз после встречи с музыкантом-садомазохистом Сато, считавшим её «единственной надеждой нашей гнилой Японии», проходит по кругам современного ада. Она вынуждена удовлетворять потребности закомплексованных и жестоких японских бизнесменов и бандитов, с неизбывной тоской вспоминая о своём уже канувшем в небытие «учителе».Производство: Япония, Cinemabrain, Japan Video Distribution (JVD) Co. Ltd., Melsat Inc.Жанр: ДрамаРежиссер: Рю МуракамиАктеры: Михо Никайдо, Саёко Амано, Тэнмэй Кано, Масахико Симада, Яёи Кусама, Тиэ Сэма, Магаясу Исихара, Хироси Миками, Нами Носаки, Кан МикамиПеревод: Многоголосый профессиональный (Настроение Video), авторский одноголосый (Антон Пронин)Субтитры: Русские, английские, немецкие - отдельными файламиПродолжительность: 01:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:476632A9A629C30DD8DF4572D0C783911385B96D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472434   (1014377) от 25.05.2021
-
-Станция "Небеса" / Tengoku no eki: Heaven Station / Station to Heaven (1984) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каё Хаясиба осуждена на смерть за убийство мужа. Детектив Идзава распутывает длинный клубок, сотканный из страсти, жестокости, насилия, обмана, ревности и жажды любви. Эта кровавая драма наполнена настоящими чувствами, которые редко встретишь в японских фильмах 80-х годов.Производство: Япония, Toei Co. Ltd.Жанр: ДрамаРежиссер: Масанобу ДэмэАктеры: Саюри Ёсинага, Тосиюки Нисида, Томокадзу Миура, Кимиэ Сингёдзи, Каёко Сираиси, Мидори Ямамото, Хирохиса Наката, Нобуёси Араки, Тацуя Камэяма, Тосиэ КокабуПеревод: дед_сто_летСубтитры: Русские, английские - отдельными файламиПродолжительность: 02:13:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:531BD6EA28C002BBFEF77194AE5B9BB34CD8EFEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473734   (1013512) от 30.05.2021
-
-Единство героев / Huang fei hong zhi nan bei ying xiong / The Unity of Heroes (2018) HDRip [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013512.jpg" />
-</div>
-
-
-###  Подробнее
-
-30-летняя женщина возвращается в Поднебесную после многих лет изучения западной медицины. Цели и мечты у нее самые благородные — совместить западные и восточные учения, чтобы помогать людям и спасать жизни. Но знания попадают не в те руки, и вот уже коварная компания создает из людей киборгов. Защищать мир придется мастеру боевых искусств, возлюбленному героини.Производство: Китай / Tmeng Pictures, Zhong Lele PicturesЖанр: Боевик, фантастикаРежиссер: Линь ЧжэньчжаоАктеры: Винсент Чжао, Ли Бинъюань, Майкл ТунПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: отсутствуютПродолжительность: 01:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A825CCC6E9CC42B80281340264C0DC913E310C4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

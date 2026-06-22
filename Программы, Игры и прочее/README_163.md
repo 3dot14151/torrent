@@ -1,247 +1,3 @@
-###  Публикация: 1770981   (32044) от 04.01.2025
-
-AIDA64 2.05 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Информационно-диагностическая утилита для устройств на базе Android. Основываясь на обширных знаниях аппаратной части в AIDA64 для Windows, AIDA64 для Android способна показывать различные диагностические сведения для телефонов, планшетов, умных часов и телевизоров.Тип издания: PremiumРелиз состоялся: 26.11.2024Разработчик: FinalWire LtdПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E810C71A6CDB21C688F69ED8216F2B3724646AAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770928   (32039) от 04.01.2025
-
-Icewind Dale Enhanced Edition v2.6.6.12 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зло пробудилось в недрах Хребта Мира.
-
-На крайнем севере Забытых Королевств простирается область заснеженной тундры, известная как Долина Ледяного Ветра. Отправляйтесь в путешествие вглубь Хребта Мира по суровым и неумолимым землям, где обитают только самые выносливые народы. Столкнитесь с грозными животными, которые научились выживать среди высоких гор лишь благодаря (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 31 окт. 2023 г.Разработчик: BeamdogПоддерживаемая ОС: Android 4.0.3+Жанр: РПГЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E357CE3A11F8A488903981A7F0A1F0E179C97CD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770986   (32033) от 04.01.2025
-
-UniMote - Универсальный Пульт для ТВ v1.7.0 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите получить максимум от Вашего телевизора? Мы хотим помочь вам с этим, поэтому создали UniMote - универсальный пульт дистанционного управления для любого телевизора. Наше приложение поможет вам управлять своим телевизором и ваше устройство Android станет пультом дистанционного управления для Smart TV, Андроид ТВ, Google TV, Samsung, LG, TCL, Sony и т. д. Вы можете (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 03.01.2025Разработчик: SensusTech LLCПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CAB79FDE3F1EBAB70A5335E957F632D4057B0E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770997   (32006) от 04.01.2025
-
-Тайна Имени v2.0.5.3 Mod by vadj [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32006.jpg" />
-</div>
-
-
-###  Подробнее
-
-★ Значение имени ★ - несколько сотен мужских и женских имён.
-В описаниях имён рассказывается о характере человека и его совместимости с другими именами. Если не знаете, как назвать ребёнка или хотите узнать больше о себе и своих близких изучайте! :)Тип издания: AdfreeРелиз состоялся: 04.01.2025Разработчик: TTdictionary OfflineПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCE16713A8A2F98425D6128CB7318688DDB704A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770977   (32000) от 04.01.2025
-
-Textra SMS v4.78 Pro Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Надоел внешний вид стандартных "SMS"? Хочется чего-то новенького, и интересного? Попробуйте Textra! Приложение для SMS и MMS с большим количеством "фишек". Вы можете выразить свои эмоции собеседнику при помощи более, чем 800 смайликов. Новые всплывающие уведомления. Возможность отсылки SMS группе контактов. Присутствует и кастомизация. Можно поменять (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 30.12.2024Разработчик: DeliciousПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:348542816225DD4883E1986908A0A1D9F531EC2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770640   (31948) от 05.01.2025
-
-Graph Messenger (Telegraph) vT11.5.3 - P11.16.2 Mod by NNN x RBMods [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Graph Messenger — это продвинутое приложение для обмена сообщениями, созданное с использованием API Telegram, которое предлагает все преимущества Telegram, а также инновационные функции, такие как:
-🚩 Управление несколькими учетными записями: Легко переключайтесь между неограниченным количеством учетных записей без выхода из системы.
-🚩 Менеджер загрузок: (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 05.01.2025Разработчик: DatabiteПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1D17798E0A7C311DE5368DFFD299952388A5A3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771203   (31911) от 05.01.2025
-
-Баланс Подорожника (СПб) и Тройки (Москва) v4.1 Mod by Dymonyxx [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение позволяет проверить баланс электронных проездных карт Подорожник (СПб) и Тройка (Москва). Достаточно включить в телефоне NFC и поднести к нему карту.Тип издания: Adfree (без рекламы)Релиз состоялся: 05.01.2025Разработчик: Alpaca dreamsПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:371274A5742528573E4073559016DA674966ED17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771428   (31824) от 06.01.2025
-
-MiHome v10.0.706 Mod by Vevs [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая быстрая и качественная модификация MiHome.
-Управление и связь с устройствами.
-Подключение устройств к сети.
-Подключение устройств друг к другу.Тип издания: ModРелиз состоялся: 6.01.2025Разработчик: Beijing Xiaomi Mobile Software Co.,LtdПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F954C340DF6327367CDF6D0C167A256BCD14CB52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771455   (31799) от 06.01.2025
-
-Fully Fluent - Learn Languages / Бегло - Изучайте языки v2.5.4 Mod by misuri78 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31799.jpg" />
-</div>
-
-
-###  Подробнее
-
-🌟 Станьте бегло говорящим быстро с Бегло! 🌟
-Представьте, как вы говорите как носитель языка на работе 💼 или во время путешествий ✈️. Представьте, какие двери это откроет 🚪, какие связи вы сможете установить! 🤝
-Бегло поможет вам овладеть английским, испанским, французским, хинди, португальским, китайским (мандарин) (   Читать дальше...   )Тип издания: FullРелиз состоялся: 06.01.2025Разработчик: Fully FluentПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91A4ACEAE6D39BD2CBA1420D33FFD4F3F9F9735B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771611   (31727) от 07.01.2025
 
 Здоровая шея  v1.1.6 Mod by 0x7d [Ru/Multi]
@@ -250,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31727.jpg" />
 </div>
 
 
@@ -276,7 +32,7 @@ Smart AudioBook Player Pro v11.1.9 (A8.0+) Mod by 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31663.jpg" />
 </div>
 
 
@@ -302,7 +58,7 @@ Filmora - Редактор видео с AI v14.4.01 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31641.jpg" />
 </div>
 
 
@@ -328,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31279.jpg" />
 </div>
 
 
@@ -354,7 +110,7 @@ SnapEdit - AI photo editor v7.2.8 Mod by Maximoff⁠ [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31267.jpg" />
 </div>
 
 
@@ -380,7 +136,7 @@ Drink Water / Напоминание пить воду v2.26.0 Mod by PieMods [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31254.jpg" />
 </div>
 
 
@@ -406,7 +162,7 @@ Background Video Recorder Pro v11.3.59 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31252.jpg" />
 </div>
 
 
@@ -432,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31193.jpg" />
 </div>
 
 
@@ -461,7 +217,7 @@ FotoTweak - AI Image Generator v1.0.46 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30979.jpg" />
 </div>
 
 
@@ -487,7 +243,7 @@ Diabetes:M v9.0.8 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30976.jpg" />
 </div>
 
 
@@ -513,7 +269,7 @@ Gif Me! Camera Pro v1.90 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30937.jpg" />
 </div>
 
 
@@ -540,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30583.jpg" />
 </div>
 
 
@@ -566,7 +322,7 @@ WPS Office + PDF v18.15 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30543.jpg" />
 </div>
 
 
@@ -592,7 +348,7 @@ Pro Pool 2025 v1.60 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30536.jpg" />
 </div>
 
 
@@ -618,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30524.jpg" />
 </div>
 
 
@@ -647,7 +403,7 @@ English LinDuo HD v5.33.1 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30518.jpg" />
 </div>
 
 
@@ -673,7 +429,7 @@ AudioBooks v6.0 Plus Mod by smold2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30451.jpg" />
 </div>
 
 
@@ -685,6 +441,248 @@ Audio Books – новая платформа для прослушивания 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8846677D29A3F3C54EAAC739D57BB6002B455282
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774242   (30424) от 19.01.2025
+
+Garmin: TOPO Great Britain v3 PRO [En]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Топографическая карта Великобритании для навигаторов Garmin.
+
+Подготовьтесь к следующему большому приключению на свежем воздухе с самой подробной на сегодняшний день картой отдыха для Великобритании. Эта карта включает официальные карты Ordnance Survey (OS) масштаба 1:25 000, 1:50 000 и 1:250 000 для выбранного региона, а также предлагает руководство по тропам для (   Читать дальше...   )Тип издания: лицензияРелиз состоялся: октябрь 2023Разработчик: Garmin / HereПоддерживаемая ОС: GarminЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7026C02018EFF371BAB04AB9ACCA958D7267512
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774127   (30407) от 19.01.2025
+
+Lumii - Фоторедактор, Фильтры v1.700.167 Mod by PieMods [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Будучи бесплатным профессиональным фоторедактор и приложение для редактирования фото, Lumii ценит простоту и практичность. Простыми и быстрыми прикосновениями вы можете редактировать фото и обработка фото профессионально и создавать произведения высокого художественного качества без каких-либо профессиональных навыков.Тип издания: ProРелиз состоялся: 18.01.2025Разработчик: InShot Video EditorПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B44C3EFEA420B570A86AF5B99CB4BB6D8027E268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681207   (30368) от 20.01.2025
+
+Дневник давления и пульса v3.5.5 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дневник артериального давления и пульса - незаменимое приложение, которое позволяет отслеживать кровяное давление, а также вести записи измерений частоты сердечных сокращений (ЧСС) - является отличным методом лечения и контроля гипертонии или гипотонии. Кардио журнал позволит регулярно вносить измерения артериального давления и показатели тонометра, а также ЧСС и (   Читать дальше...   )Тип издания: ModРелиз состоялся: 20.01.2025Разработчик: mEL StudioПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72519B5A3FDE96EB5C897157F31A67926EECF425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774376   (30332) от 20.01.2025
+
+Психологический словарь v2.0.5.4 Mod by vadj [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Психологический бесплатный офлайн словарь с легким и функциональным интерфейсом.
+Характеристика:
+• Очень эффективный, быстрый и с хорошей производительностью.
+• возможность высокоскоростного поиска(   Читать дальше...   )Тип издания: AdfreeРелиз состоялся: 19.01.2025Разработчик: TTdictionary OfflineПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C486F794BD66C448DB51F2A5B963A4673B1895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774546   (30246) от 21.01.2025
+
+Art Me: ИИ-художник v5.4 Mod by PieMods [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давай, сразу же испытай самый креативный редактор художественных фотографий в один клик.
+Тщательно разработанный шаблон в сочетании с интеллектуальным алгоритмом обрезки лиц позволяет создавать новые художественные фотографии, загружая селфи. Создавать потрясающие фотографии еще никогда не было так просто.Тип издания: PremiumРелиз состоялся: 21.01.2025Разработчик: Cartoon Editor DevПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68F2F5027374573A046AEB0A529AC51F0622414D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774480   (30201) от 21.01.2025
+
+Reviver: Premium v1.0.2 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30201.jpg" />
+</div>
+
+
+###  Подробнее
+
+🦋 «Reviver» — нарративная головоломка о любви и выборе 🦋
+Окунитесь в мир, где каждое, даже самое незначительное, решение меняет жизни. Узнайте, как выборы переплетаются между собой и формируют истории двух людей. Отправьтесь в путешествие сквозь время и откройте для себя, как ваши действия влияют на их судьбы.Тип издания: PaidРелиз состоялся: 16 янв. 2025 г.Разработчик: CottonGameПоддерживаемая ОС: Android 6.0+Жанр: ГоловоломкиЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D66829F65E1369DEE1E12DEFFC8FDBFFA3B50CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774726   (30172) от 22.01.2025
+
+Monolith v1.1.12.065 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30172.jpg" />
+</div>
+
+
+###  Подробнее
+
+# # # ЗАХВАТЫВАЮЩАЯ ИСТОРИЯ # # #
+Классическое научно-фантастическое приключение, которое перенесет вас в глубокую историю и мрачную атмосферу, решая логические головоломки. Сопровождайте Тессу Картер и ее говорящего робота, пока она узнает о себе и ищет способ выжить.Тип издания: PaidРелиз состоялся: 23 окт. 2024 г.Разработчик: Animation Arts Creative GmbHПоддерживаемая ОС: Android 8.0+ (arm64-v8a)Жанр: ПриключенияЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78B5C89FC86DCFD1DC0B0C3B5E2D22A75F42081B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774600   (30171) от 22.01.2025
+
+Arcane Quest Legends 2 Offline v1.0.10 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправьтесь в эпическое путешествие по мирам времени в долгожданном продолжении нашумевшей игры Arcane Quest Legends. Приготовьтесь к захватывающему ролевому экшену, погружаясь в глубины Подземного мира, где последствия роковой сделки выходят на свет.Тип издания: Unlocked + Unlimited MoneyРелиз состоялся: 20 нояб. 2024 г.Разработчик: Nex Game StudiosПоддерживаемая ОС: Android 7.0+Жанр: РПГЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BA1FABC0C98A1EC1A37CAE64569DF84FA8CB42C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774584   (30170) от 22.01.2025
+
+Bright Memory: Infinite v1.0 b82 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30170.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2036 году в небе по всему миру произошло странное явление, которому ученые не могут найти объяснения. Исследовательская организация сверхъестественных наук (SRO) отправила агентов в различные регионы для исследования этого явления. Вскоре выясняется, что эти странные происшествия связаны с архаичной тайной - пока еще неизвестной историей двух миров, которая вот-вот (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 20 янв. 2025 г.Разработчик: FYQD-StudioПоддерживаемая ОС: Android 8.0+ (arm64-v8a)Жанр: ЭкшнЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89FB35D586742CBEF962CB0E5FE2CC4DD8D6ECFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

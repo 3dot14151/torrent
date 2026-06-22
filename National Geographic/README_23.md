@@ -1,3 +1,83 @@
+###  Публикация: 1306328   (555660) от 04.06.2019
+
+NG. Международный аэропорт Дубай / Ultimate Airport Dubai (2015) HDTV [H.264/1080i-LQ] (Сезон 3, серии 10 из 10)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Менее 55 лет назад на месте Международного аэропорта Дубая была огромная пустыня. Но сегодня это мекка международных воздушных перевозок. Это третий по загруженности аэропорт в мире для пассажиров международных рейсов, он принимает 344 000 рейсов, 57 млн. пассажиров и 2000 тысяч тонн грузов в год. Канал National Geographic покажет закулисную жизнь трех международных (   Читать дальше...   )Производство: США, Arrow International Media Ltd, National Geographic ChannelЖанр: Документальный, познавательный, научно-популярныйРежиссер: Давид КовардПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA4B08922850FF5ECFE6492903B361E87A3C8579
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306378   (555640) от 04.06.2019
+
+NG: Враждебная планета / Hostile Planet (2019) HDTVRip (Сезон 1, серии 6 из 6)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это сериал о дикой природе, который посвящен исследованию наиболее суровых для жизни уголков Земли. В течение шести серий вы исследуете самые экстремальные зоны жары, холода, влажности, сухости, побываете в самых экстремально высоких и глубоких точках планеты и откроете для себя действительно экстраординарные способы, с помощью которых животные научились адаптироваться (   Читать дальше...   )Производство: США, Plimsoll Productions, National Geographic ChannelЖанр: Документальный, природа, флора, фаунаРежиссер: Матео УиллисПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D6A2BE5791C488628490F93749E778154F149C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306028   (555631) от 04.06.2019
+
+Расследования Авиакатастроф / Mayday / Air Crash Investigation (2019) WEB-DLRip [H.264/720p-LQ] (сезон 19, серии 1-10 из 10)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реконструкция реальных воздушных катастроф,
+интервью с авиационным специалистами и
+очевидцами происшествий.Телекомпания: Cineflix Productions, CanadaЖанр: Документальный, реальное ТВ, драма.Режиссер: Tim WolochatiukПеревод: Одноголосый, профессиональный, закадровый. Студия «Велес».Субтитры: нетПродолжительность: каждая серия ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E42103DCF64D070BE208FAEC983AF377C540D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306580   (555541) от 05.06.2019
 
 NG: Загадки исполинов каменного века / Riddle of the Stone Age Giants (2019) HDTV [H.264/1080i-LQ]
@@ -6,7 +86,7 @@ NG: Загадки исполинов каменного века / Riddle of th
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555541.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554832.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ NG: Герои Средиземноморья / Heroes of the Mediterranean (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554428.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ NGW: Тайны дикой природы / Secrets Of The Wild (2013) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554388.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ NGW: Городские джунгли / Urban Jungle (2014) HDTV [H.264/1080i-L
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554151.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ NGW. Стая: Львы / The Pack: Lions (Leslie Schwerin) (2010) HDTV [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554149.jpg" />
 </div>
 
 
@@ -162,7 +242,7 @@ NGW. Тигр в бегах / Tiger on the Run (2015) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554147.jpg" />
 </div>
 
 
@@ -188,7 +268,7 @@ NGW: Убийцы с большого озера / The lakeshore Killers (2015) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554141.jpg" />
 </div>
 
 
@@ -214,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547631.jpg" />
 </div>
 
 
@@ -240,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547628.jpg" />
 </div>
 
 
@@ -266,7 +346,7 @@ NGW: Секретное королевство Борнео: странные и
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546984.jpg" />
 </div>
 
 
@@ -292,7 +372,7 @@ NG:Армия львов: Битва за выживание / Lion Army. Battle
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545750.jpg" />
 </div>
 
 
@@ -318,7 +398,7 @@ NG:Королева тигров / Tiger Queen (2010) HDTVRip[H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544866.jpg" />
 </div>
 
 
@@ -344,7 +424,7 @@ NG. Вампиры в Венеции / Vampires in Venice (2010) HDTV [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544509.jpg" />
 </div>
 
 
@@ -370,7 +450,7 @@ NGW: Человек против монстра / Man vs Monster (2011-2012) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543707.jpg" />
 </div>
 
 
@@ -396,7 +476,7 @@ NG. Настольная книга диктатора / Dictators Rulebook (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543267.jpg" />
 </div>
 
 
@@ -422,7 +502,7 @@ NG. Настольная книга диктатора / Dictators Rulebook (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543261.jpg" />
 </div>
 
 
@@ -448,7 +528,7 @@ NG. Хранители Природы / Guardian of Nature (2005) HDTVRip [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542270.jpg" />
 </div>
 
 
@@ -475,7 +555,7 @@ NG: Как это связано? От мечей до беспилотнико�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542144.jpg" />
 </div>
 
 
@@ -501,7 +581,7 @@ NG. Осушить океан: Тайны начала операции / Drain 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541713.jpg" />
 </div>
 
 
@@ -527,7 +607,7 @@ NG. Осушить океан: Тайны начала операции / Drain 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541709.jpg" />
 </div>
 
 
@@ -553,7 +633,7 @@ NG. С точки зрения науки: Пули / Naked Science: Bullets (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538597.jpg" />
 </div>
 
 
@@ -579,7 +659,7 @@ NG. С точки зрения науки: Секс / Naked Science: What's Sexy
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538456.jpg" />
 </div>
 
 
@@ -592,84 +672,6 @@ NG. С точки зрения науки: Секс / Naked Science: What's Sexy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81A5F45A62FED2CF492A19DB4D83ABA21CED610F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312177   (536097) от 02.07.2019
-
-NG. По его собственным словам / In His Own Words (2019) HDTV [H.264/1080i-LQ] (серии 1-3)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Необычный кинопроект, в котором люди, попавшие в экстремальные жизненные ситуации, рассказывают своими словами о том, что с ними случилось, пользуясь записями, сделанными ими в то время. Эти истории рассказываются от первого лица, описывая события в реальном времени, минуту за минутой, без каких либо рассказчиков и комментаторов.Производство: США, 1895 Films, National Geographic ChannelЖанр: Документальный, история, исследованияРежиссер: Том ДженнингсПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:629CD1FA33308AA59B756FE091FA8F9DD694A499
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239754   (534999) от 07.08.2018
-
-NG. Жизнь до рождения: Собаки / In The Womb. Dogs (2009) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проследите путь эмбрионального развития - от оплодотворения до рождения - трех домашних собак и их предка, волка.Производство: США, Pioneer Film, National Geographic ChannelЖанр: Документальный, научно-познавательныйРежиссер: Лорн ТаунендПеревод: Одноголосый закадровый, профессиональный (АРК ТВ)Субтитры: отсутствуютПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD3FC40F1AB05AA07858272ACD9B0591BE19AD33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050877   (534552) от 10.09.2016
-
-NG: Больше, чем тираннозавр / Bigger Than T.Rex (2014) SATRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это самый крупный убийца, когда-либо ходивший по земле. Острые как бритва зубы… Метровые челюсти… Серповидные когти. И если вы думаете, что мы говорим о Ти-рексе, подумайте ещё раз. Это — спинозавр. Его огромные размеры — и двухметровый парус на всю длину спины — делают его одним из самых странных существ, когда-либо найденных. Новый скелет был выкопан в Сахаре, (   Читать дальше...   )Телекомпания: США, National Geographic Studios And Nova/WGBH Boston For National Geogpaphic Cannels In Association With ZDFЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE14551022B6CCE6EFFD0099B27183B79A105154
 ```
 
 https://mybot314.ru/tekegram_catalog/

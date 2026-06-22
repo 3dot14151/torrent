@@ -1,3 +1,38 @@
+###  Публикация: 524322   (612603) от 18.07.2012
+
+Alex Clare - The Lateness of the Hour (2011) [FLAC|Lossless]<Soul/Pop/Dubstep>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_612603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Up All Night (2:43)
+02. Treading Water (3:38)
+03. Relax My Beloved (3:31)
+04. Too Close (4:16)
+05. When Doves Cry (4:08)
+06. Hummingbird (3:50)
+07. Hands Are Clever (3:16)
+08. Tightrope (3:37)
+09. Whispering (4:30)
+10. Love You (4:39)(   Читать дальше...   )Жанр: Soul/Pop/DubstepПродолжительность: 00:46:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 222010   (609412) от 27.07.2010
 
 Adiemus - Дискография (1995 - 2006) [FLAC|Lossless]<New Age>
@@ -6,7 +41,7 @@ Adiemus - Дискография (1995 - 2006) [FLAC|Lossless]<New Age>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_609412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_609412.jpg" />
 </div>
 
 
@@ -35,7 +70,7 @@ Teddy Pendergrass - The Real... Teddy Pendergrass (The Ultimate Collection) (201
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603412.jpg" />
 </div>
 
 
@@ -64,7 +99,7 @@ Plotnik82 - Акустика (2017) [FLAC|Lossless|tracks + .cue] <Acoustic, Roc
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603089.jpg" />
 </div>
 
 
@@ -93,7 +128,7 @@ Emir Kusturica and the No Smoking Orchestra - Corps Diplomatique (2018) [FLAC|Lo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593296.jpg" />
 </div>
 
 
@@ -122,7 +157,7 @@ Lykke Li - Wounded Rhymes (2011) [FLAC|Lossless]<Indie Pop>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_560585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_560585.jpg" />
 </div>
 
 
@@ -148,7 +183,7 @@ Marissa Nadler & Stephen Brodsky - Droneflower (2019) [FLAC|Lossless|tracks + .c
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554176.jpg" />
 </div>
 
 
@@ -177,7 +212,7 @@ Pirates of The Mississippi - Dream You (1993) [FLAC|Lossless|tracks + .cue] <cou
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545449.jpg" />
 </div>
 
 
@@ -206,7 +241,7 @@ Habib Koite & Bamada - Afriki (2007) [FLAC|Lossless]<Blues>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542289.jpg" />
 </div>
 
 
@@ -241,7 +276,7 @@ Maurice Ohana - Tombeau de Claude Debussy (1998) [APE|Lossless] <instrumental>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_524997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_524997.jpg" />
 </div>
 
 
@@ -276,7 +311,7 @@ Vangelis - The Collection (2CD) (2012) [FLAC|Lossless]<Electronic, New Age>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515361.jpg" />
 </div>
 
 
@@ -311,7 +346,7 @@ Xiu Xiu - Haitian Drums: Girl with Basket of Fruit (2019) EP [FLAC|Lossless|WEB-
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515015.jpg" />
 </div>
 
 
@@ -340,7 +375,7 @@ Emilie Autumn - Fight Like A Girl (2012) [FLAC|Lossless]<Dark Cabaret, Gothic, D
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512278.jpg" />
 </div>
 
 
@@ -375,7 +410,7 @@ Audiomachine - Life (2017) [FLAC|Lossless] <Soundtrack, Trailer music, Classical
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490757.jpg" />
 </div>
 
 
@@ -404,7 +439,7 @@ VA - Usher Audio Demonstation CD (2004-2010) 5CD[FLAC|Lossless]<High-End Audioph
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490629.jpg" />
 </div>
 
 
@@ -439,7 +474,7 @@ Can Atilla - 1453 Sultanlar Askina (2006) [APE|Lossless] <ambient, new age, turk
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_480882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_480882.jpg" />
 </div>
 
 
@@ -474,7 +509,7 @@ Art Of Noise - The Best Of The Art Of Noise - The Art Of Love (1992) [FLAC|Lossl
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476306.jpg" />
 </div>
 
 
@@ -503,7 +538,7 @@ VA - When Lotus is opening (2005) [FLAC|Lossless|tracks] <DreamMusic>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468156.jpg" />
 </div>
 
 
@@ -534,7 +569,7 @@ James Last - 16 альбомов (1987 – 2019) [FLAC|Lossless|image, track + .
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446680.jpg" />
 </div>
 
 
@@ -564,7 +599,7 @@ VA - Vargo Lounge Summer Celebration 1 (2013) [FLAC|Lossless|image + .cue]<Chill
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446618.jpg" />
 </div>
 
 
@@ -593,7 +628,7 @@ VA - 100 Instrumental - Hits (2008) 5CD [APE|Lossless]<Instrumental>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_441945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_441945.jpg" />
 </div>
 
 
@@ -622,7 +657,7 @@ Anthony Ventura - Je t'aime - Traum-Melodien  (1973-1982) 10 CD [FLAC|Lossless] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437174.jpg" />
 </div>
 
 
@@ -651,7 +686,7 @@ François Mardirossian - Moondog Piano Works (2019) [FLAC|Lossless|tracks + .cue
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433867.jpg" />
 </div>
 
 
@@ -680,7 +715,7 @@ VA - Meesters Der Sfeermuziek 2 - De beste Orkesten (2002) 3 CD [FLAC|Lossless|i
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433862.jpg" />
 </div>
 
 
@@ -709,7 +744,7 @@ Mattias Uneback - Voyage Beneath The Sea: The Adventurous Sounds of Mattias Uneb
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431825.jpg" />
 </div>
 
 
@@ -738,7 +773,7 @@ Malando & His Tango Orchestra - Malando Best Selection (2019) [FLAC|Lossless|ima
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431642.jpg" />
 </div>
 
 
@@ -754,35 +789,6 @@ Danny Malando Orchestra - знаменитый голландский оркес
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72162AE5131325001F1D0960575C829AC3AF2204
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411015   (429483) от 24.09.2020
-
-VA - Romantic Guitars (1995) [FLAC|Lossless|image + .cue] <Instrumental, Guitar>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. J. C. Aprile & His Orchestra / Feelings (04:14)
-02. Denny Wright / Try A Little Tenderness (02:59)
-03. Denny Wright / Fly Me To The Moon (02:57)
-04. Dick Abell / Minette (02:21)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 00:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58F10C83EC4AE7FE4132907AB864FFFF07D065FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,83 @@
+###  Публикация: 1580866   (151271) от 30.12.2022
+
+Ворона императорского гарема | Ворона в гареме | Koukyuu no Karasu | Raven of the Inner Palace [2022, TV, 13 из 13] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глубоко во внутреннем дворце живет загадочная императорская супруга, по имени Цзюйсэтсу Рюу, больше известная как Императрица-Ворона. Никто не знает её истинного облика. Одни видели её как дряхлую старуху, другие же как юную красавицу. Говорят, что она владеет тайными магическими искусствами, и если попросить, то она исполнит любое желание: найдёт потерянную вещь, (   Читать дальше...   )Производство: Япония / Студия BN PicturesЖанр: Исторический, магия, фэнтезиРежиссер: Мияваки ТидзуруЯзык озвучки: Русский многоголосый закадровый, Японский
+- HectoR, Hoopoe, NeoNoir, Night Shift (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 13 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA2C6272ACC7974E892765B418542D72BB799594
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271106   (150857) от 22.12.2018
+
+Chio-chan no Tsuugakuro | Дорога в школу Чио-чан [2018, TV, 12 из 12] [HEVC] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чио Миямо — обычная стеснительная девочка, которая обожает видеоигры и из-за того, что часто играет до поздней ночи, постоянно опаздывает в школу. Но даже идя по «обычному» пути туда, Чио регулярно попадает в разнообразные ситуации, иногда обычные, а иногда и не очень. Ей приходится иметь дело с бандой байкеров, строительными работами, острым желанием посетить уборную (   Читать дальше...   )Производство: студия Studio Barcelona / ディオメディアЖанр: комедияРежиссер: Инагаки ТакаюкиПеревод: Язык озвучки: Русский
+TV-1 (AniDub), (Anilibria), - внешними файламиЯзык субтитров: Русский, Английский, Испанский, ПортугальскийПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BE03195036C2D0E159D81C6D277AC1117B4FAAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677459   (150184) от 18.11.2023
+
+Cyborg 009 | Киборг 009 [1966, Movie] WEBRip 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отгремела Вторая мировая война, и нации теперь мирно соревнуются в автогонках, одним из участников которых является Шимамура Джо. В решающий момент вырвавшись вперед, Джо попадает в аварию, которую подстроили агенты тайной международной организации «Чёрный призрак» (Black Ghost). Похитив его тело на «скорой помощи», злодеи прибывают на секретную базу. Там профессор (   Читать дальше...   )Производство: Япония / Toei AnimationЖанр: приключения, фантастикаРежиссер: Сэрикава ЮгоПеревод: Кинозал МаанишаЯзык озвучки: Русский (Кинозал Мааниша - Одноголосый) + Японский (оригинал)Субтитры: Русские ( софтсаб на песню и полные внешние Ass. )  , Английские (софтсаб полные)Продолжительность: 65 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D7CE17ED4A75FC011EF5D6E674BBB94E1C3B44A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347661   (147762) от 24.12.2019
 
 Gate: Jieitai Kanochi nite, Kaku Tatakaeri | Врата: Там Бьются Наши Воины [2015-2016, TV, 24 эп.] BDRip 1080p 10-bit raw+rus
@@ -6,7 +86,7 @@ Gate: Jieitai Kanochi nite, Kaku Tatakaeri | Врата: Там Бьются Н�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147762.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ Fairy Gone / Пропавшие феи [2019, TV, 24 ep] WEBRip 1080p Rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147716.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147645.jpg" />
 </div>
 
 
@@ -86,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146909.jpg" />
 </div>
 
 
@@ -113,7 +193,7 @@ Taimadou Gakuen 35 Shiken Shoutai / Антимагическая академи�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146080.jpg" />
 </div>
 
 
@@ -141,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146042.jpg" />
 </div>
 
 
@@ -167,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146009.jpg" />
 </div>
 
 
@@ -193,7 +273,7 @@ Occultic;Nine / Оккультная девятка [2016, TV, 12 ep] WEB-DL 720
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145478.jpg" />
 </div>
 
 
@@ -220,7 +300,7 @@ Subete ga F ni Naru: The Perfect Insider / Everything Becomes F: The Perfect Ins
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144351.jpg" />
 </div>
 
 
@@ -246,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144181.jpg" />
 </div>
 
 
@@ -272,7 +352,7 @@ Ihara Saikaku Koushoku Ichidai Otoko | The Sensualist | Мужчина, неср
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143948.jpg" />
 </div>
 
 
@@ -298,7 +378,7 @@ Gekijouban KanColle / Gekijouban Kantai Collection / Fleet Girls Collection KanC
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143655.jpg" />
 </div>
 
 
@@ -324,7 +404,7 @@ Drifters / Скитальцы [2016, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143482.jpg" />
 </div>
 
 
@@ -350,7 +430,7 @@ Hataraku Saibou | Cells at Work! | Клетки за работой [2018, TV, 1
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143304.jpg" />
 </div>
 
 
@@ -376,7 +456,7 @@ Konohana Kitan / Сказания о Конохане [2017, TV, 12 ep] WEB-DL 7
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142996.jpg" />
 </div>
 
 
@@ -402,7 +482,7 @@ Kino no Tabi: The Beautiful World / Kino’s Journey -the Beautiful World- / П�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142990.jpg" />
 </div>
 
 
@@ -428,7 +508,7 @@ Dies Irae / Судный День [2017, TV, 11 ep + SP] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142974.jpg" />
 </div>
 
 
@@ -454,7 +534,7 @@ Kekkai Sensen & Beyond / Стражи Барьера и Загранье [ТВ-2
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142949.jpg" />
 </div>
 
 
@@ -480,7 +560,7 @@ Mob Psycho 100 | Моб Психо 100 [2016, TV, 12 эп.] BDRip 1080p rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142903.jpg" />
 </div>
 
 
@@ -506,7 +586,7 @@ Owari no Seraph: Nagoya Kessen Hen / Seraph of the End: Battle in Nagoya / По�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142056.jpg" />
 </div>
 
 
@@ -532,7 +612,7 @@ Two Car / Двое за Рулем [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141486.jpg" />
 </div>
 
 
@@ -558,7 +638,7 @@ Koe de Oshigoto! The Animation / Работа для голоса [2010, OVA, 2 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140944.jpg" />
 </div>
 
 
@@ -586,7 +666,7 @@ Mahouka Koukou no Rettousei: Raihousha Hen / The Irregular at Magic High School:
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140005.jpg" />
 </div>
 
 
@@ -597,84 +677,6 @@ Mahouka Koukou no Rettousei: Raihousha Hen / The Irregular at Magic High School:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B352F345692ECA093E675166592E89C787C2DCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420393   (140000) от 29.12.2020
-
-Сон в замке демона | Maou-jou de Oyasumi | Sleepy Princess in the Demon Castle [2020, TV, 12 из 12] WEBRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то давно люди жили рядом с демонами. В те времена король демонов украл принцессу королевства людей, пообещав вернуть девушку, если люди взамен отдадут ему свои земли. И пока герои пытались спасти несчастную из замка демона, та скучала в плену. Единственным удовольствием в заточении для принцессы стал сон, а чтобы поспать с комфортом, девушка готова сбежать (   Читать дальше...   )Производство: Cтудия Doga Kobo / 動画工房Жанр: комедия, фэнтезиРежиссер: Ямадзаки МицуэЯзык озвучки: Русский закадровый, многоголосый (AniDub), (AniLibria.tv)Субтитры: Русские надписи, Русский, JapaneseПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B503456D0CB0834E64055AB9BC9D9D51D233D75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520593   (139928) от 29.12.2021
-
-Eiga Daisuki Pompo-san | Pompo: The Cinephile | Киноманка Помпо [2021, Movie] BDRip 1036p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джоэль Давидович Помпонетт, или просто Помпо, — талантливая продюсер из столицы кино Ньялливуда. Несмотря на её умение раскрывать таланты актеров и сотрудников, она продюсирует только боевики и эротические фильмы B-класса. Однажды помощнику Помпо Джину, вечно недовольному её выбором жанров, дают задание снять фильм по её сценарию. Теперь им вместе предстоит воплотить (   Читать дальше...   )Производство: ClapЖанр: комедияРежиссер: Хирао ТакаюкиЯзык озвучки: японский, русскийСубтитры: отсутствуютПродолжительность: 95 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5817D7A50BD927C71961F66A5163DE90EB897F50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679099   (139799) от 24.11.2023
-
-Masamune-kun no Revenge R | Masamune-kun's Revenge R | Месть Масамунэ [ТВ-2] [2023, TV, 12 из 12] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Макабе Масамуне рос толстым ребёнком, из-за чего его постоянно дразнила и доводила до слёз мерзкая девчонка Адагаки Аки. И так она его достала, что он решил ей страшно отомстить: начал вести здоровый образ жизни, занялся спортом, взялся за учёбу и личностное развитие. Спустя несколько лет обновлённый Масамуне — красивый и популярный отличник-спортсмен-чемпион — переводится (   Читать дальше...   )Производство: студия Silver LinkЖанр: комедия, романтикаРежиссер: Минато МирайЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (Crunchyroll)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FBFBED6C99163935D5188FD2BC128547F2D13A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

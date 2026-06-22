@@ -1,3 +1,107 @@
+###  Публикация: 1797710   (17889) от 18.05.2025
+
+Avowed (2025) [Ru/Multi] (1.4/dlc) Scene Rune [Premium Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Живые земли, загадочный остров, полный приключений и опасностей! Avowed - фэнтезийная ролевая игра с видом от первого лица, разработанная знаменитой студией Obsidian Entertainment. Ее действие разворачивается в мире Эоры, уже знакомом игрокам по серии Pillars of Eternity. Живые земли - это остров, где в воздухе гудит древняя магия, растения могут (   Читать дальше...   )Тип издания: SceneРазработчик: Obsidian EntertainmentЖанр: Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6A680BDA33221CC82B53420E294A284235EBAC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798073   (17699) от 20.05.2025
+
+Dark Souls: Remastered (2018) [Ru/Multi] (1.03.1) Repack seleZen
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dark Souls: Remastered - это переиздание самой первой части культовой ролевой серии, которое предлагает игрокам подтянутую графику, увеличенное количество кадров в секунду, различные балансные правки. Также игра получила несколько небольших балансных изменений, обновленное расположение костров (например, добавился новый костер у кузнеца-скелета Вамоса), а также различные (   Читать дальше...   )Тип издания: RepackРазработчик: From Software, QLOCЖанр: Экшены, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB5FF454320782EDE1883579B9B67B055BF7C30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798290   (17622) от 21.05.2025
+
+Zoria: Age of Shattering (2024) [Ru/Multi] (1.1.8/dlc) Repack Let'sРlay [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тактическая командная RPG с отлаженной походовой системой боев, аванпостом и управлением последователями. Действие происходит в обширном фэнтези-мире Зории. Ведите команду из четырех героев, у каждого из которых есть свои уникальные умения и черты. Каждый ваш напарник по-своему полезен в бою.Тип издания: RepackРазработчик: Tiny Trinket GamesЖанр: Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:528C4582D97165D570896D6A8BCF1FF978997037
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745024   (17615) от 21.05.2025
+
+Tales and Tactics / Tales & Tactics (2023) [Ru/Multi] (1.1.03) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tales & Tactics – перед вами классический автобатлер-рогалик, приправленный элементами командной и ролевой игры. Где предстоит собрать свою разношерстную армию, заняться ее экипировкой, разместить отряды, принимать ответственные решения и повстречать на своем пути красочных персонажей. Так вы приготовились к Большому турниру?Тип издания: RepackРазработчик: Table 9 StudioЖанр: Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Китайский (упрощенный) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0871D60435E24B839519C118156A3303FA799E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789103   (17470) от 22.05.2025
 
 Ai Limit (2025) [Ru/Multi] (1.0.022/dlc) Repack FitGirl [Deluxe Edition]
@@ -6,7 +110,7 @@ Ai Limit (2025) [Ru/Multi] (1.0.022/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17470.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ Dwarven Realms (2022) [Ru/Multi] (1.4.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17438.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ FANTASIAN Neo Dimension (2024) [Multi] (29100132/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17404.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ Survive the Fall (2025) [Ru/Multi] (1.0.1.2364/dlc) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17320.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ Sea of Stars (2023) [Ru/Multi] (2.0.58728/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17279.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.0/dlc) Repack FitGirl [Su
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17076.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ Twilight Wars (2025) [Ru/Multi] (1.0.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17055.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ Fable Anniversary (2014) [Ru/En] (1.0.8767.0/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17051.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ Survive the Fall (2025) [Ru/Multi] (1.0.1.2364/dlc) Repack FitGirl [Ultimate Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17041.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ Dragon Quest III (3) HD-2D Remake (2024) [Multi] (1.2.0.0 Build 18186891/dlc) Sc
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17020.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ Fabled Lands (2022) [En] (2.1.4/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16928.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ Zoria: Age of Shattering (2024) [Multi] (1.1.8/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16926.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ Skelethrone: The Chronicles of Ericona (2024) [Ru/Multi] (1.5.5.0/dlc) Repack Le
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16917.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ Core Keeper (2022) [Ru/Multi] (1.1.2.1) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16891.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (2.0.1/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16802.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ King Arthur: Legion IX (2024) [Ru/Multi] (1.0.0C) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16791.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ The Axis Unseen (2024) [Ru/Multi] (1.11a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16774.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ Dark Souls II (2): Scholar of the First Sin (2015) [Ru/Multi] (1.03/dlc) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16693.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ Immortal Hunters (2025) [Ru/Multi] (0.1.1681.9f4ce919) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16599.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ Fuga: Melodies of Steel 3 (2025) [Multi] (Build 29182614) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16575.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (7.2.0.1/dlc) Repack seleZen 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16397.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ Artifact Seeker Resurrection (2024) [Ru/Multi] (1.4.12/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16343.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ Artifact Seeker - это 3D-игра в жанре Roguelike Survivor. Игра 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E11FD1B2E8C82187CE38CC82D21E2DA04798CE2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799888   (16316) от 30.05.2025
-
-Elden Ring Nightreign (2025) [Ru/Multi] (1.01/dlc) Repack FitGirl [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16316.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Elden Ring Nightreign, игроки переносятся в параллельную версию мира, известную как Лимвельд, где история Elden Ring пошла другим путем после Раскола - войны, которая разрушила баланс сил в этом мрачном фэнтезийном мире. Игра не связана напрямую с основной сюжетной линией Elden Ring, но сохраняет тот же уровень глубины и сложности, который сделал серию так популярной.Тип издания: RepackРазработчик: FromSoftwareЖанр: Экшены, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B4FC9B1C394D680EE3F08CF846184C357D875D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799886   (16286) от 30.05.2025
-
-Elden Ring Nightreign (2025) [Ru/Multi] (1.01/dlc) Repack seleZen [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16286.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Elden Ring Nightreign, игроки переносятся в параллельную версию мира, известную как Лимвельд, где история Elden Ring пошла другим путем после Раскола - войны, которая разрушила баланс сил в этом мрачном фэнтезийном мире. Игра не связана напрямую с основной сюжетной линией Elden Ring, но сохраняет тот же уровень глубины и сложности, который сделал серию так популярной.Тип издания: RepackРазработчик: FromSoftwareЖанр: Экшены, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2547194C44DC9A51118855B93F44D296FF21DAD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799844   (16275) от 30.05.2025
-
-FANTASY LIFE i: The Girl Who Steals Time (2025) [Multi] (1.1.1/dlc) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в эту неторопливую RPG, где вы сможете свободно переключаться между 14 уникальными профессиями - «Жизнями,» и наслаждаться беззаботным существованием в фэнтезийном мире. Рыбачьте, готовьте, создавайте остров как вам захочется, или объединяйтесь с друзьями для сражений с монстрами в огромном мире. Вам решать, какой «Жизнью» вы будете жить!Тип издания: RepackРазработчик: LEVEL5 Inc.Жанр: Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, Китайский (упрощенный) и другиеЯзык интерфейса: Английский, Японский, Китайский (упрощенный) и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A426AA436B7E11BDDBBEBB4E5923B402397CB3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799833   (16209) от 30.05.2025
-
-FANTASY LIFE i: The Girl Who Steals Time (2025) [Multi] (Build 29056319) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в эту неторопливую RPG, где вы сможете свободно переключаться между 14 уникальными профессиями - «Жизнями,» и наслаждаться беззаботным существованием в фэнтезийном мире. Рыбачьте, готовьте, создавайте остров как вам захочется, или объединяйтесь с друзьями для сражений с монстрами в огромном мире. Вам решать, какой «Жизнью» вы будете жить!Тип издания: SceneРазработчик: LEVEL5 Inc.Жанр: Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, Китайский (упрощенный) и другиеЯзык интерфейса: Английский, Японский, Китайский (упрощенный) и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:177B70A23FAED87B78DD3D0747DA59E436E97DE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

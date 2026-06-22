@@ -1,3 +1,145 @@
+###  Публикация: 324953   (727988) от 19.04.2011
+
+Волшебство Queen в Будапеште / Queen Live in Budapest (1986) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727988.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Live In Budapest» — концертная запись рок-группы «Queen», выпущенная 13 декабря 1986 года. Представляет собой фильм, созданный венгерским режиссером Янушем Жомболайей из кадров пребывания группы в Венгрии и записи концерта на стадионе «Непсштадион» в Будапеште 27 июля 1986 года. Данное выступление входило в «Magic Tour» - тур в поддержку альбома A Kind of Magic, (   Читать дальше...   )01 Intro
+02 One Vision
+03 Tie Your Mother Down
+04 In The Lap Of Gods(   Читать дальше...   )Жанр: МузыкаРежиссер: Януш ЖомболайеАктеры: Джон Дикон • Фредди Меркьюри • Брайан Мэй • Роджер ТэйлорПеревод: ОтсутствуетПродолжительность: 1:27:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FFB08361A433775861C8F6771B8C9DC65828FF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022876   (727475) от 03.06.2016
+
+Lynyrd Skynyrd - Pronounced Leh - Nerd Skin - Nerd & Second Helping (2015) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727475.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом концерте Lynyrd Skynyrd вернутся туда, где все когда-то начиналось. Вернутся в Джексонвилль, штат Флорида. Вернутся в город. Вернутся на землю, которая давала пищу как музыкальной, так и лирической составляющей большинства американских групп.01. I AIN'T THE ONE
+02. TUESDAY'S GONE
+03. GIMME THREE STEPS
+04. SIMPLE MAN(   Читать дальше...   )Жанр: Rock, Blues Rock, Southern RockПродолжительность: 01:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A9949550A76D1F1AA7EB79C02D1A95088A46AA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022707   (727237) от 03.06.2016
+
+Melody Gardot - Live at the Olympia Paris (2015) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление американской джазовой певицы,автора и композитора Мелоди Гардо (Melody Joy Gardot) на сцене L'Olympia Bruno Coquatrix в Париже 26-27.10.2015.1. Don't Misunderstand
+2. Same To You
+3. She Don t Know
+4. Bad News(   Читать дальше...   )Производство: Eagle Rock EntertainmentЖанр: МузыкальныйРежиссер: Thierry VilleneuveАктеры: Melody GardotПеревод: ОтсутствуетПродолжительность: 01:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83E63D8CCBB9E998DB488CE71968C9B493B82C72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128480   (727069) от 25.04.2017
+
+Джузеппе Верди - Аида / Giuseppe Verdi - Aida (2017) SATRip (2 части) (Teatro alla Scala) [IT / RU Sub]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный немецкий режиссер Петер Штайн предложил зрителям необычную версию одной из самых востребованных в Италии опер. По собственному признанию, Штайн стремился сделать из "Аиды" не привычное публике "яркое шоу", а тонкую психологическую драму."Перед нами классический любовный треугольник: две женщины любят одного мужчину. Все остальное (   Читать дальше...   )Производство: Россия, ГТРК "Культура", Театр Ла СкалаЖанр: Опера, драмаРежиссер: Петер ШтайнАктеры: Анита Рачвелишвили, Георгий Гангадзе, Кристина Льюис, Матти Салминен, Карло КоломбараСубтитры: РусскиеПродолжительность: 2 x ~ 01:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B318D41C0FF989A71E42E25D24AFDB8EDD74FC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530909   (726607) от 13.02.2022
+
+Квартирник у Маргулиса. Максим Леонидов и Hippoband (13.02.2022) WEBRip [VP9/2160p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа Hippoband образовалась в далеком 1996-м: с тех прошло около 26 лет, и за это время состав коллектива поменялся всего один раз — в 1997-м. А вот название коллективу дал их альбом Hippotazm и опечатка, допущенная гитаристом и аранжировщиком Владимиром Густовым. В гостях у Евгения Маргулиса музыканты поделились интересными воспоминаниями и исполнили песни, покорившие (   Читать дальше...   )00:00:00 Квартирник
+00:00:05 Видение
+00:06:22 7 утра
+00:14:10 Питерские коты(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Rock, PopЯзык озвучки: РусскийПродолжительность: 01:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B019A5748427BBF0587D4127C3898A347131AC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530937   (726537) от 13.02.2022
 
 Квартирник у Маргулиса. Максим Леонидов и Hippoband (12.02.2022) WEBRip [H.264/1080p-LQ]
@@ -6,7 +148,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726537.jpg" />
 </div>
 
 
@@ -35,7 +177,7 @@ Pink Floyd - Delicate Sound Of Thunder (1989) HDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726248.jpg" />
 </div>
 
 
@@ -64,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725525.jpg" />
 </div>
 
 
@@ -93,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724990.jpg" />
 </div>
 
 
@@ -120,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724749.jpg" />
 </div>
 
 
@@ -146,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724425.jpg" />
 </div>
 
 
@@ -175,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724087.jpg" />
 </div>
 
 
@@ -201,7 +343,7 @@ Within Temptation - Mother Earth Tour (2002) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723956.jpg" />
 </div>
 
 
@@ -227,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723735.jpg" />
 </div>
 
 
@@ -255,7 +397,7 @@ Within Temptation - Black Symphony (2008) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723528.jpg" />
 </div>
 
 
@@ -284,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723467.jpg" />
 </div>
 
 
@@ -310,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722675.jpg" />
 </div>
 
 
@@ -336,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722602.jpg" />
 </div>
 
 
@@ -365,7 +507,7 @@ OneRepublic: One Night in Malibu (2021) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722600.jpg" />
 </div>
 
 
@@ -394,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722584.jpg" />
 </div>
 
 
@@ -420,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722476.jpg" />
 </div>
 
 
@@ -449,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721725.jpg" />
 </div>
 
 
@@ -478,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721613.jpg" />
 </div>
 
 
@@ -507,7 +649,7 @@ Lisa Stansfield - Live In Birmingham '1990 (1990) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721393.jpg" />
 </div>
 
 
@@ -537,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721372.jpg" />
 </div>
 
 
@@ -563,7 +705,7 @@ Lisa Stansfield - Live At The Royal Albert Hall (1994) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721263.jpg" />
 </div>
 
 
@@ -578,145 +720,6 @@ Lisa Stansfield - Live At The Royal Albert Hall (1994) DVD5 [hand made]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:503E730C52F3630EA628C6E2D9C664064CB03E7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 669051   (721208) от 16.06.2013
-
-Океан Ельзи (Океан Эльзы) - Выступление с Минским симфоническим оркестром (2011) TVRip [H.264]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телеверсия концерта показанная по Первому Белорусскому Национальному каналу1. Мало менi
-2. Дівчина
-3. Вiльний
-4. Susy(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:28:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15713C1C10ABAB8435191AEF1276422978B943B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171968   (720944) от 26.02.2019
-
-5-25 (Пять - двадцать пять). Спектакль ЕГТИ, Мастерская В.Кокорин (2006) VHSRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спектакль молодых ребят, студентов Екатеринбургского театрального института, мастерская - Кокорин В.В. по пьесе Д. Привалова. В екатеринбургском ТЮЗе.Производство: РоссияЖанр: Драма, спектакльРежиссер: Ямбор В, Кокорин В.Актеры: Волоцкий Евгений, Ушакова Наталья, Герасимов Руслан, Манцыгин Алексей, Монгилев Сергей, Трясцын Александр.Субтитры: ОтсутствуютПродолжительность: 01:31:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D689C28DF199CFDE900305CF5428BEF4B81162CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285251   (720705) от 26.02.2019
-
-Сборник клипов - Rock & Metal Video Collection от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полностью переделал выпущенный ранее сборник Вся сила энергия и мощь понастоящему крутой музыки! Это 1я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Rock & Metal - Intro
-01. Thunder - She's So Fine
-02. Sebastian Bach - Tunnelvision
-03. Pantera  - Mouth For War(   Читать дальше...   )Жанр: RockПродолжительность: 02:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529D74141A97B571785F01820837DDD93263774B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531661   (720278) от 16.02.2022
-
-Pink Floyd: P. U. L. S. E. Live at Earls Court (1994) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720278.jpg" />
-</div>
-
-
-###  Подробнее
-
-«PULSE» — видеоверсия концерта группы Pink Floyd, прошедшего 20 октября 1994-го года в Лондонском Earls Court. Концерт проходил в рамках тура в поддержку альбома The Division Bell. Музыка сопровождалась очень красочным шоу с применением огромного количества прожекторов и лазеров, двух больших надувных свиней, пролетающего над зрителями самолета, демонстрацией видеороликов (   Читать дальше...   )Shine On You Crazy Diamond - 0:10
-Learning to Fly - 13:23
-High Hopes - 19:04
-Take it Back - 27:17(   Читать дальше...   )Производство: Великобритания / Pyro SpectacularЖанр: RockРежиссер: Дэвид МалеСубтитры: ОтсутствуютПродолжительность: 02:22:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AFFDA3C95BC1001A41B6DFB754D7C2EEB0055EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 327294   (720260) от 24.04.2011
-
-Музыкальный ринг на НТВ. Выпуск №19. Александр Маршал vs Вопли Видоплясова  (22.04.2011) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый музыкальный проект НТВ — это бескомпромиссное музыкальное состязание, где каждому участнику придется проявить всю силу и мощь своего таланта. Раз в неделю на «Музыкальный ринг НТВ» будут выходить два популярных артиста или коллектива. Их главное оружие — вокал, ведь петь звездным соперникам предстоит только вживую. А вести проект, по всем правилам настоящего (   Читать дальше...   )Жанр: Концерт, ТВ-ШоуПродолжительность: ~ 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05DDB6C02C65B54815A184AE5AFEE2BDA1520748
 ```
 
 https://mybot314.ru/tekegram_catalog/

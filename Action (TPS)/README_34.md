@@ -1,3 +1,159 @@
+###  Публикация: 1202362   (294462) от 15.11.2018
+
+Absolver (2017) [Ru/Multi] (1.27 503/dlc) License GOG [Deluxe Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Absolver - одиночные и сетевые многопользовательские сражения, где игроки скрываются под масками Претендентов по воле вездесущих Проводников, новых правителей падшей империи Адал, которые решают, достойны ли вы пополнить ряды их элитного корпуса силовиков. Претендентам предстоит скитаться по забытым землям, сталкиваться с другими, обучаться боевым навыкам, находить (   Читать дальше...   )Тип издания: LicenseРазработчик: SloclapЖанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:842859CF68CB47348983A30B1D24C67212B51960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 431444   (294329) от 29.10.2019
+
+Bully (2008) [Ru] (1.2) Repack R.G. UniGamers [Scholarship Edition]
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятнадцатилетний хулиган Джимми Хопкинс поступает в академию Булворт — закрытое учебное заведение с весьма сомнительной репутацией. В его стенах юному герою предстоит с лихвой хлебнуть подростковых радостей — со всеми вытекающими последствиями. Разгульный образ жизни, сложные взаимоотношения с девушками, жестокие потасовки со старшекурсниками, козни одноклассников, (   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar Vancouver, Rockstar New EnglandЖанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25D53413053FC4D1D69185271C8A3EE99615709F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262452   (292673) от 16.11.2018
+
+Tomb Raider I - III (1996-1998) [En] (0.74/1.1/1.0) Repack Other s
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tomb Raider III – присоединяйтесь к Ларе Крофт в ее новом и самом большом приключении в Tomb Raider III: Adventures of Lara Croft. Вам предстоит пройти пять огромных уровней, что бы отыскать древний метеор, дарующий жизненные силы. Вас ждут новые загадки, новые и некоторые старые враги, такие как T-Rex. Вместе с Ларой вы побываете в джунглях Индии, в ледяной Антарктике, (   Читать дальше...   )Тип издания: RepackРазработчик: Core Design LimitedЖанр: Adventure, Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D63971AA57622AE6C3B33608AB6E1745A2D1C57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262639   (292534) от 16.11.2018
+
+HellGate: London (2018) [En] (1.2) License PLAZA
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292534.jpg" />
+</div>
+
+
+###  Подробнее
+
+История игры проста - демонические существа вырвались наружу, уничтожая город за городом. Кто-то уже сотни лет ожидал пришествия демонов, как тамплиеры, а для кого-то появление дьявольских существ оказалась роковой неожиданностью.Тип издания: LicenseРазработчик: Flagship StudiosЖанр: Action (Shooter), RPG (Rogue, Action), 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8C0C8171F332D0C0785AAB9F47C62AFF5081F01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262857   (290708) от 17.11.2018
+
+Sunset Overdrive (2018) [Ru/Multi] (1.0) License CODEX
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sunset Overdrive — это площадка для всех постапокалиптических возможностей. Прыгайте, скользите и бегайте по стенам Сансет-сити, пользуясь смертоносным и необычным арсеналом. Полная свобода, уникальное оружие, изменяемые умения — все это полностью переформатирует жанр шутеров и создает большое и циничное приключение.Тип издания: LicenseРазработчик: Insomniac Games, Blind Squirrel GamesЖанр: 3rd Person, Action, ShooterЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C47DCB32DD632D486FD4CC2F528C531791F46E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080400   (289807) от 06.12.2016
+
+Son of Nor (2015) [Ru/Multi] (1.0.101/dlc) License PROPHET [Gold Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приветствуем вас на пустынной и безжизненной планете Ношрак, где человечество борется за существование, выкладываясь по-максимуму. Вы - Сын Нора, маг с огромной силой, обладающий умением подчинять себе стихии, использовать телекинез и манипулировать материей.Тип издания: LicenseРазработчик: Stillalive StudiosЖанр: Adventure (Puzzle), Action, 3D, 3rd PersonЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A3EA71DA31CE8D5E6F16BD288A3788657698A2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072070   (288887) от 18.11.2018
 
 Tom Clancy's Splinter Cell Blacklist (2013) [Ru/En] (1.03/dlc) Rip R.G. Revenants
@@ -6,7 +162,7 @@ Tom Clancy's Splinter Cell Blacklist (2013) [Ru/En] (1.03/dlc) Rip R.G. Revenant
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288887.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Darksiders III / Darksiders 3 (2018) [Ru/Multi] (215465/dlc) SteamRip =nemos= [D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288747.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Metal Gear Solid V: The Phantom Pain (2015) [Ru/Multi] (1.1.0/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287205.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Grand Theft Auto 4 [Ru/En] (RePack) 2008 | R.G. ReCoding
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287039.jpg" />
 </div>
 
 
@@ -111,7 +267,7 @@ State of Mind (2018) [Ru/Multi] (1.2.24280) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285454.jpg" />
 </div>
 
 
@@ -137,7 +293,7 @@ Enclave (2003) [Ru/Multi] (1.0.0.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283359.jpg" />
 </div>
 
 
@@ -163,7 +319,7 @@ The Ritual on Weylyn Island (2015) [Ru/Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283272.jpg" />
 </div>
 
 
@@ -189,7 +345,7 @@ Batman Anthology (2010-2015) [Ru/En] Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281846.jpg" />
 </div>
 
 
@@ -215,7 +371,7 @@ Assassin’s Creed Liberation HD (2014) [Ru] (1.0/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281620.jpg" />
 </div>
 
 
@@ -241,7 +397,7 @@ Shadow of the Tomb Raider (2018) [Ru/Multi] (1.0.237.6/dlc) License CPY [Croft E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280485.jpg" />
 </div>
 
 
@@ -267,7 +423,7 @@ Freedom Fighters (2003) [Ru/En] (1.0) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279900.jpg" />
 </div>
 
 
@@ -293,7 +449,7 @@ The Bureau: XCOM Declassified (2013) [Ru/En] (1.0.0.2177831/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279775.jpg" />
 </div>
 
 
@@ -319,7 +475,7 @@ Adam Waste (2017) [Ru/Multi] (1.0) License SKIDROW [Episode 1]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279757.jpg" />
 </div>
 
 
@@ -345,7 +501,7 @@ Styx: Master of Shadows (2014) [Ru/En] (1.02) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279755.jpg" />
 </div>
 
 
@@ -371,7 +527,7 @@ Control (2019) [Ru/En] (1.04.02/dlc) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278347.jpg" />
 </div>
 
 
@@ -397,7 +553,7 @@ Sniper Elite III (2014) [Ru/Multi] (1.15a/dlc) License PLAZA [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278169.jpg" />
 </div>
 
 
@@ -423,7 +579,7 @@ Dinosis Survival (2017) [Ru/Multi] (1.03) License SKIDROW [Episode 1-2]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278095.jpg" />
 </div>
 
 
@@ -449,7 +605,7 @@ Mafia II Enhanced Edition / Mafia 2 Расширенное Издание [Ru] (
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276775.jpg" />
 </div>
 
 
@@ -481,7 +637,7 @@ Sniper Elite III (2014) [Ru] (1.15a/dlc) Rip Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276640.jpg" />
 </div>
 
 
@@ -507,7 +663,7 @@ HITMAN 2 (2018) [Ru/Multi] (2.11.0/dlc) License CPY [Gold Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276065.jpg" />
 </div>
 
 
@@ -518,162 +674,6 @@ HITMAN 2 - это захватывающий шпионский триллер. 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85786F48116A437CC94AD00E2E61D50898D85696
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337114   (275621) от 09.11.2019
-
-JUMANJI: The Video Game (2019) [Ru/Multi] (11892) Repack Butter_
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тебя ждет убойное путешествие! Jumanji примет всех, кто готов дерзнуть найти в другой мир скрытый путь! Играй по сети, на одном экране с друзьями или с компьютером! Только объединив усилия под твоим чутким руководством, доктор Брэйвстоун, Руби, Мось и профессор Оберон смогут разделаться с противниками и спасти этот райский уголок!Тип издания: RepackРазработчик: Funsolve LTDЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Немецкий, ИспанскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E67D0E7C775C32E675D540F9D82EAD8EB263A10F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337178   (275555) от 09.11.2019
-
-JUMANJI: The Video Game (2019) [Ru/Multi] (11892) Repack Other s
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тебя ждет убойное путешествие! Jumanji примет всех, кто готов дерзнуть найти в другой мир скрытый путь! Играй по сети, на одном экране с друзьями или с компьютером! Только объединив усилия под твоим чутким руководством, доктор Брэйвстоун, Руби, Мось и профессор Оберон смогут разделаться с противниками и спасти этот райский уголок!Тип издания: RepackРазработчик: Funsolve LTDЖанр: Adventure, Action, 3DЯзык озвучки: Английский, Немецкий, ИспанскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC5440DB65280C7F3A131E18E70391BC9836CE1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187856   (275433) от 01.12.2017
-
-Bombshell (2016) [En] (1.2.10466) License GOG [Digital Deluxe Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bombshell – шутер, сделанный с применением технологии Unreal Engine. Вы познакомитесь с бывшим взрывотехником, а ныне наемницей Шелли Харрисон по кличке «Бомба». Ей предстоит преодолеть череду препятствий на 4 планетах, чтобы спасти президента (а заодно и человечество) от смертельной инопланетной угрозы. Враги из других миров, невиданный арсенал смертоносного вооружения (   Читать дальше...   )Тип издания: LicenseРазработчик: Interceptor EntertainmentЖанр: Шутер, От третьего лица, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E58CCE60EA5459D5CB4F527F4D6EDB66108F286
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098834   (275375) от 01.12.2017
-
-Resident Evil: Revelations (2013) [Ru/Multi] (1.0/upd4/dlc) Repack Other s [Complete Pack]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Resident Evil® Revelations — популярная игра в жанре "ужас выживания" погружает игроков в события, происходящие в период между Resident Evil®4 и Resident Evil®5 и раскрывающие правду о вирусе T-Abyss. В Resident Evil Revelations присутствуют звезды серии – Джилл Валентайн и Крис Редфилд, а также их партнеры по АПБТ – Паркер Лучиани и Джессика Шерават. Действие (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOMЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F8A276193173AE2049CF8D25025EA506EEB97BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607451   (274965) от 27.11.2018
-
-Lost: Via Domus / Lost. Остаться в живых (2008) [Ru/En] (1.0) License
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый герой со своей собственной историей, которая постепенно раскрывается на протяжении игры. Вы открываете глаза и видите перед собой догорающие обломки самолета, следовавшего рейсом 815. Со всех сторон слышни крики и стоны уцелевших пассажиров. Вы пытаетесь мысленно воспроизвести последние события, но понимаете, что ничего не помните. Вам предстоит увидеть остров (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Ubisoft MontrealЖанр: Adventure, Arcade, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5BE060FACD395F7D0268C02471A9ABADB95FB79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083380   (274301) от 15.12.2016
-
-Watchmen: The End is Nigh / Хранители (2009) [Ru/En] (1.0) Repack Seraph1 [Complete Pack]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда миру грозит опасность, на его защиту встают настоящие герои. Они действуют по-разному – кто-то предпочитает честную схватку со злом, иные бьют в спину. Зато такая команда не по зубам даже бандитам, кишащим под покровом ночи в переулках мегаполиса. Ночная Сова и Роршах отправляются на охоту. И ни одному злодею не под силу остановить их крестовый поход против (   Читать дальше...   )Тип издания: RepackРазработчик: Deadline GamesЖанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A931AC870B429B20A8D2F2366466F42D6FEA2F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

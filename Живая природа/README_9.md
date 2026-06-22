@@ -1,3 +1,107 @@
+###  Публикация: 1377435   (853271) от 21.04.2020
+
+Великая синяя бездна (Великие океаны) / Great Blue Wild (2015) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы увидеть некоторые из самых захватывающих природных чудес на планете, человек вынужден иногда погружаться в глубины океанов. Это рай для дайверов. Здесь можно встретиться с самыми потрясающими океанскими жителями: таинственными гигантами, беспощадными хищниками и легендарными глубоководными чудовищами. И все они ведут постоянную битву за выживание. Это родина (   Читать дальше...   )Производство: США, Канада, Blue Ant MediaЖанр: Документальный, природа, путешествияРежиссер: Дэн ХьюзПеревод: Двуголосый закадровый, профессиональныйСубтитры: АнглийскиеПродолжительность: 6 x ~00:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19A9B15FA4EF6740FA40C592FEA6EDC632971C58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377272   (853043) от 21.04.2020
+
+Дайвинг с целакантом / Diving with the Coelacanth / Le coelacanthe, plongee vers nos origines (2014) DVBRip [H.264] [hand made 50fps]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853043.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 120 метрах от дикого побережья Южной Африки живет существо, которое, как считалось, вымерло 65 миллионов лет назад. Целакант, известный в местных кругах под именем Гомбесса. Рыба-динозавр, живое ископаемое, которое остаётся единственным звеном, связывающим рыбу с наземными четвероногими: в её плавниках присутствуют зачатки костей рептилий и млекопитающих, а в огромной (   Читать дальше...   )Производство: Франция, ARTE, Andromède Océanologie, Les Films d'IciЖанр: Документальный, природа, флора, фаунаРежиссер: Жиль КебалиПеревод: Двуголосый закадровый, профессиональный (Видеофильм-ТВ)Субтитры: отсутствуютПродолжительность: 00:53:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47A6C0F56125593A9C50A445E7AE3356C672DD12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 839072   (850391) от 30.03.2016
+
+NG. Ночь льва / Night of The Lion (2010) HDTVRip [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Испытайте неизведанное, загляните в скрытый мир ночной саванны. Ночь, какой её ещё никогда не видели. Камеры повышенной светочувствительности с тепловым наведением, проникают сковзь кромешную тьму, предоставляя зрителю возможность проследить за действиями львов ночью, в период наибольшей активности. Понаблюдайте, как они используют темноту, себе во благо и навсегда (   Читать дальше...   )Жанр: Документальный, природа, фаунаПеревод: Одноголосый закадровый (профессиональный)Субтитры: отсутствуютПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E91C552854187B72CCAC0373598C32F7C09D4CF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 839501   (846675) от 01.04.2016
+
+Гренландия. Дикая природа страны викингов /  The Green Land: Wildlife in the Land of Vikings (2005) HDTVRip [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гренландия - уникальный уголок нашей планеты. Её северная красота на протяжении многих веков завораживала умы и души людей. Поддайтесь и вы её чарам.Жанр: Документальный, природа, фаунаПеревод: Одноголосый закадровый (профессиональный)Субтитры: отсутствуютПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E7C89C0B7AD6CFA76503D36CBB533624D947713
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 836792   (846666) от 01.04.2016
 
 Приключения бобрёнка / Meche Blanche, les aventures du petit castor (2008) BDRip [H.264]
@@ -6,7 +110,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846666.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846649.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846447.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844915.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843130.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840849.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840634.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837929.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837926.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837834.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836090.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834806.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834794.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_834247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_834247.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833160.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833043.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831835.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831209.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831097.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831007.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830996.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830008.jpg" />
 </div>
 
 
@@ -568,111 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9895FF321071C3674F4CE45D21A4342A199C2B81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115035   (829785) от 16.03.2017
-
-Странные контакты третьей степени / Strange Encounters of The Third Kind (2004) SATRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грибы растут на Земле более 400 миллионов лет. Они многообразны по размеру и форме. На сегодняшний день их насчитывается более 100 тысяч видов. В фильме рассказывается об удивительном мире грибов, таящем множество загадок и тайн.Телекомпания: АвстрияЖанр: Документальный, флора и фаунаРежиссер: Курт МюндлПеревод: Одноголосый профессиональный, студия СВ-дубль по заказу ВГТРК "Культура"Продолжительность: 00:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB8534D5013070BAD0AD090FDE220CD01FADDC01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365339   (829302) от 05.05.2020
-
-Африканские охотники / Africa's Hunters (2016-2017) UHDTV [H.265/2160p] [4K, 10-bit, 50fps] (сезоны 1-2, серии 1-12 из 12)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дикая природа, которая заставляет своих детищ сражаться за выживание, использует самые жестокие методы. Пищевая цепочка на Африканском континенте весьма запутана. Здесь животные одновременно могут быть как хищниками, так и жертвами. Сложно сказать, кто именно занимает вершину этой сложнейшей цепи. Здесь есть место и диким кошкам, и медведям, и псам и многим другим (   Читать дальше...   )Производство: Канада, Plimsoll Productions for Blue Ant Media InternationalЖанр: Документальный, природа, флора, фаунаРежиссер: Ханна ХоарПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:196AA02DF103C5CF6A226DDE204506F0B5DFBE6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 653644   (829098) от 08.05.2013
-
-Дикая Германия / Дикая природа Германии. Побережье Померании / Wildes Deutschland. Vorpommerns Kuste (2011) BDRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Германия - это страна с разнообразным и неповторимым ландшафтом. Этот минисериал покажет неизвестный и недоступный обычным туристам мир Германии, мир дикой природы.
-На Балтийском море расположился один из самых красивых природных ландшафтов Германии - переднее побережье Померании. В этом краю обитают благородные олени, лосось из моря идет по пресноводным рекам на (   Читать дальше...   )Жанр: Документальный, научно-познавательный, природаПеревод: Одноголосый закадровый (профессиональный, Ю.Сербин)Продолжительность: 00:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DCA02218B6B908F4CDE0822DB63AD3FA16B1223
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005977   (828795) от 11.04.2016
-
-Гринды - морские охотники (Дельфины – гепарды морских глубин) / Cheetahs Of The Deep (2013) [H.264/720p] HDTVRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие виды китов и дельфинов обитают в водах Канарских островов. Гринды с короткими плавниками обитают тут в большом количестве. Гринды живут, как правило, в группах из примерно 20-30 особей. Группа следует вожаку, социальное поведение внутри которой высоко развито. Одна такая группа следует Изоре, поведение которой ученые записывали в течение целого года. В то (   Читать дальше...   )Телекомпания: Viasat NatureЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C18EE227CD181F98EBCFE2C64DD83558CA0A9C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1732022   (52411) от 23.06.2024
+
+Женщина в песках / Suna no onna / Woman in dunes (1964) BDRip [H.264] [JP / RU Sub] [Режиссёрская версия]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (SD, DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сценарий к фильму адаптирован Кобо Абэ по его одноимённому роману 1962 года... Энтомолог-любитель Ники Дзюмпэй, охотясь за насекомыми в пустыне, опаздывает на последний автобус, и местные жители приглашают его переночевать в их деревне в доме у молодой женщины. Дом оказывается на самом дне ямы, в песке, куда Дзюмпэя спускают по верёвочной лестнице. Хозяйка дома, (   Читать дальше...   )Производство: Япония / Teshigahara Productions, Toho Film (Eiga) Co. Ltd.Жанр: драма, триллерРежиссер: Хироси ТэсигахараАктеры: Эйдзи Окада, Кёко Кисида, Хироко Ито, Кодзи Мицуи, Сэн Яно, Киндзо Сэкигути, Роберт Данэм, Киёхико Итиха, Хидэо Кандзэ, Хироюки НисимотоПеревод: субтитрыЯзык озвучки: японскийСубтитры: русские (японская коллекция; Skuf), английскиеПродолжительность: 02:27:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64ACEFE3A01A7A7697CAC13005DCC8F4D78F168F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1732544   (52010) от 25.06.2024
 
 Ребёнку дают слабительное / On purge bebe (1931) BDRip [H.264] [FR / RU Sub]
@@ -6,7 +32,7 @@
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52010.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47472.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35234.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33127.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33028.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25913.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21414.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11724.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11419.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11136.jpg" />
 </div>
 
 

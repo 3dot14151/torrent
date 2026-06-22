@@ -1,3 +1,29 @@
+###  Публикация: 1845757   (1050892) от 03.01.2026
+
+Truecaller: AI Call Blocker / Oпределитель номера v16.10.5 Mod by PieMods [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Определяйте звонки с неизвестных номеров с помощью мощного идентификатора вызывающего абонента в России. 400 миллионов пользователей полагаются на Truecaller при общении — будь то определение неизвестных номеров, с которых вам звонят, или блокировка СМС-спамеров. Приложение отфильтровывает ненужные звонки и сообщения и соединяет вас только с теми, кто действительно (   Читать дальше...   )Тип издания: Premium / ModРелиз состоялся: 02.01.2026Разработчик: TruecallerПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0415964684C87C72B456EADA60890B18C7CB9A6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845755   (1050891) от 03.01.2026
 
 PixelLab Pro - Text on pictures 2.1.6 Mod by Alex.Strannik [Ru/En]
@@ -6,7 +32,7 @@ PixelLab Pro - Text on pictures 2.1.6 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050891.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050823.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Genius Art: Image AI Generator v1.5.4 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050775.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Picsart AI Photo Editor, Video v29.1.4 Gold Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050739.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ IPTV Pro v9.1.14 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050738.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Exo Player - Видеоплеер и IPTV v2.1.3 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050693.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Device Info / Информация об устройстве v3.4.1.3 Mod by Bal
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050692.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ VK Музыка: песни и подкасты v8.7 Mod by VK Equals [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050691.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Night clock / Ночные часы v2.11.17 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050690.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Grok - ИИ ассистент v1.0.96-release.02 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050689.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Seven / 7 Минут Упражнение v9.24.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050683.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ STEEZY Studio - Learn To Dance v5.19.0 Mod by youarefinished [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050682.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ KineMaster - Video Editor & Maker v8.0.9.35926.GP Mod by youarefinished [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050676.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ Relax Rain: sleeping sounds v9.3.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050675.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ Photo Mate R3 v4.1.0 Mod by Balatan [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050667.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Listen Audiobook Player v5.4.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050666.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ SuperImage Pro - AI Enhancer v3.16.2 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050665.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ Photo Lab PRO v3.13.80 Mod by MixRoot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050663.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ FBReader Premium v3.8.22 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050662.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050660.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050321.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Auto Reply: автоответчик v6.3 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050318.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050317.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050316.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ PhotoDirector v20.8.8 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050300.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ PhotoDirector v20.8.8 Mod by Balatan [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F26867FAFCD46B42FB63990DBF8E7DA893E96818
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844637   (1050299) от 27.12.2025
-
-Цифровое ТВ v4.3.8 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильмы, сериалы, мультфильмы, новости, музыка и спорт - это прямой эфир самых популярных общероссийских телеканалов в отличном качестве специально для Вас! С приложением Цифровое ТВ популярные программы доступны круглосуточно и абсолютно бесплатно. Теперь Вы не пропустите любимые передачи или прямой эфир матчей, стоя в пробке, отдыхая на даче или ожидая рейс в аэропорту. (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 22.12.2025Разработчик: Лайм Эйч ДиПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F38106834C61E05730415AEF5CFD561CCC6B828
 ```
 
 https://mybot314.ru/tekegram_catalog/

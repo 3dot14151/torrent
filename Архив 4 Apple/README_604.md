@@ -1,3 +1,56 @@
+###  Публикация: 1596776   (169339) от 11.12.2022
+
+Valentina Studio Pro 12.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Valentina Studio - это идеальный инструмент управления данными для администраторов баз данных. Valentina Studio PRO для разблокировки современных инструментов моделирования данных, дизайна и редактирования отчетов и многого другого.Тип издания: macOS SoftwareРелиз состоялся: 09.12.2022Разработчик: 2001 - 2022 Paradigma SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44080772080E899E4155946E87BD558DBE4DD566
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515489   (169336) от 07.12.2021
+
+Sublime Text Dev Build 4123 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sublime Text — быстрый кроссплатформенный редактор исходных текстов программ. Поддерживает плагины на языке программирования Python.
+Sublime Text не является свободным или открытым программным обеспечением, однако, некоторые его плагины распространяются по свободной лицензии, а также разрабатываются и поддерживаются сообществом разработчиков. Он поддерживает подсветку (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.12.2021Разработчик: © 2021 Sublime HQ Pty LtdПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CDE196BBFB7D0CB5712340F013B6A90CE3797D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596774   (169324) от 11.12.2022
 
 Tinderbox 9 v.9.5.0 [En]
@@ -6,7 +59,7 @@ Tinderbox 9 v.9.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169324.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ Ghost Buster Pro 2.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169314.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ Apple Remote Desktop 3.9.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169313.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ Wondershare UniConverter 13.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169310.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ Synalyze It! Pro 1.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169305.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ DjVu Reader Pro 2.6.1 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169296.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ Outline 3.2212.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169263.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ Path Finder 2148 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169214.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ MediaHuman Youtube Downloader 3.9.9.62 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169213.jpg" />
 </div>
 
 
@@ -249,7 +302,7 @@ PDF Reader Pro Lite 2.9.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169210.jpg" />
 </div>
 
 
@@ -275,7 +328,7 @@ SnapMotion 4.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169197.jpg" />
 </div>
 
 
@@ -304,7 +357,7 @@ Rectangle Pro 2.7.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169192.jpg" />
 </div>
 
 
@@ -330,7 +383,7 @@ PopClip 2022.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169187.jpg" />
 </div>
 
 
@@ -357,7 +410,7 @@ FoldersSynchronizer 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169161.jpg" />
 </div>
 
 
@@ -384,7 +437,7 @@ iPulse 3 v3.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169135.jpg" />
 </div>
 
 
@@ -410,7 +463,7 @@ Grids for Instagram 8.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169123.jpg" />
 </div>
 
 
@@ -436,7 +489,7 @@ DxO ViewPoint 4 v.4.1.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169109.jpg" />
 </div>
 
 
@@ -463,7 +516,7 @@ Hookshot 1.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169098.jpg" />
 </div>
 
 
@@ -489,7 +542,7 @@ Debut Professional 6.61 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169094.jpg" />
 </div>
 
 
@@ -515,7 +568,7 @@ SyncBird Pro 3.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169088.jpg" />
 </div>
 
 
@@ -541,7 +594,7 @@ Alarm Clock Pro 13 v13.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169084.jpg" />
 </div>
 
 
@@ -569,7 +622,7 @@ MacCleanse 9.0.4 Pre-Release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169082.jpg" />
 </div>
 
 
@@ -595,7 +648,7 @@ iShowU Studio 2 v2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169077.jpg" />
 </div>
 
 
@@ -623,7 +676,7 @@ Display Maestro 4 v4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169074.jpg" />
 </div>
 
 
@@ -635,59 +688,6 @@ Display Maestro - простая утилита, которая дает вам 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5CBE4DD6D770097B205C474BEDCF5F2E6031B2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672472   (169068) от 28.10.2023
-
-Charles Web Debugging Proxy 4.6.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Charles Web Debugging Proxy – это набирающий популярность зарубежный веб-прокси-сервер, работающий на вашем персональном компьютере, или ноутбуке, который зачастую относят к разделу программ HTTP Monitor. Свою популярность данная программа получила из-за высокой функциональности, быстроты работы и отличного, понятного и доступного дизайна.
-Множество работников IT-отделов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2023Разработчик: © 2023 Matthew BuchananПоддерживаемая ОС: OS X 10.7 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ED68C4B9A9B9868ACD84D43522505AA9C0ABEB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431227   (169066) от 12.12.2020
-
-1Click - Screen Recorder 4 v4.1.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169066.jpg" />
-</div>
-
-
-###  Подробнее
-
-1Click - Screen Recorder - это простой в использовании, эффективный инструмент для записи экрана. С его помощью вы можете записать весь экран, можно записать отдельную область. Если вам требуется высококачественное видео, вам нужно просто выбрать качество записи. Включите записывающее оборудование, если хотите записать повествование.Тип издания: macOS SoftwareРелиз состоялся: 11.12.2020Разработчик: OpenCart SeasoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:089285702E2506F4C5FADAE3DE144E55D891FC72
 ```
 
 https://mybot314.ru/tekegram_catalog/

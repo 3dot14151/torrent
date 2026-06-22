@@ -1,3 +1,110 @@
+###  Публикация: 1335962   (282200) от 05.11.2019
+
+Стивен Эриксон |Цикл "Трилогия Харкенаса" [2 книги] (2016 - 2019) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наступило время разлада в Куральд Галайне, где под покровом мрака правит Мать Тьма. Однако древняя земля была прежде домом многих сил… и даже смерть не вечна. Сторонники побуждают почитаемого в народе героя, Урусандера из рода Вета, соединиться браком с Матерью Тьмой, но на пути этих планов встал консорт королевы лорд Драконус. Назревающая схватка посылает незримые (   Читать дальше...   )Жанр: Фантастика, ФэнтезиПеревод: Киницик КарбарнФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88AD0A19E454121E6EE911E93DBFCF766A14FACB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964365   (282096) от 11.12.2015
+
+Александр Отшельник | Хранители игры (2015) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282096.jpg" />
+</div>
+
+
+###  Подробнее
+
+С целью избавления от фобий и страхов Алекс соглашается на новый метод — сеанс гипнотического транса. Он посчитал, что при помощи такого вот нехитрого приема можно будет наконец разобраться в себе, в своих сомнениях и страхах, которые есть у любого человека, при этом, если повезет, то возможно и заглянуть одним глазком в свою прошлую жизнь? А после может и жизнь (   Читать дальше...   )Жанр: ФантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D1D645F0483E2DD659181424D86AB66B7B613E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335997   (282055) от 05.11.2019
+
+Дмитрий Серебряков | Девятый уровень [Часть первая] (2019) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвертая часть цикла "Система"
+То, что казалось нереальным в начале пути, теперь уже совсем рядом. Максиму осталось пройти последний уровень, и впереди... А что, собственно, впереди? Да и можно ли пройти этот уровень, когда он становится невероятно сложным. Особенно, если на мозги ночью давят глюки, а непонятные видения беспокоят днем. Что скрывается за (   Читать дальше...   )Жанр: Фэнтези, Фантастика,Боевое фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E7819C5BC2DCDA808E44682F535D072544216D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187096   (281759) от 27.11.2017
+
+Сергей Мусаниф | Колдуны и герои (2017) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Никто не слагает гимнов канализации.
+Никто не воспоет в балладе подвиг героя, выбравшегося из выгребной ямы. В этом нет величия, в этом нет истинного благородства, настоящие рыцари без страха и упрека так не поступают. От такой баллады бы слишком плохо пахло.
+Впрочем, как и от такого героя.Жанр: Юмористическое фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40F2886D4A770F5DE15E3696FE3DC83AAAF32740
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081936   (280594) от 11.12.2016
 
 Евгений Филенко | Мухосранские хроники (2016) [FB2]
@@ -6,7 +113,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280594.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280469.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280316.jpg" />
 </div>
 
 
@@ -86,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280187.jpg" />
 </div>
 
 
@@ -114,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280070.jpg" />
 </div>
 
 
@@ -142,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279399.jpg" />
 </div>
 
 
@@ -168,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279343.jpg" />
 </div>
 
 
@@ -194,7 +301,7 @@ Angel Delacruz | Молодые Боги (2018) [FB2]
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279240.jpg" />
 </div>
 
 
@@ -222,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279065.jpg" />
 </div>
 
 
@@ -249,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278960.jpg" />
 </div>
 
 
@@ -275,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278592.jpg" />
 </div>
 
 
@@ -301,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278589.jpg" />
 </div>
 
 
@@ -329,7 +436,7 @@ Ink O.N. Papyrus | Мастер божественной крови. Книга 
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277722.jpg" />
 </div>
 
 
@@ -355,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277709.jpg" />
 </div>
 
 
@@ -381,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277676.jpg" />
 </div>
 
 
@@ -407,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277668.jpg" />
 </div>
 
 
@@ -433,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277635.jpg" />
 </div>
 
 
@@ -459,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277624.jpg" />
 </div>
 
 
@@ -485,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277586.jpg" />
 </div>
 
 
@@ -511,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277339.jpg" />
 </div>
 
 
@@ -537,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276957.jpg" />
 </div>
 
 
@@ -563,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276924.jpg" />
 </div>
 
 
@@ -574,115 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A9FEF73270045CE214560FA145DB9571873FBA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187821   (276878) от 30.11.2017
-
-Р.В. Филин | В «Готике». Игра не по правилам (2017) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276878.jpg" />
-</div>
-
-
-###  Подробнее
-
-В королевстве Миртана, в котором правит король Робар II, после ряда военных побед королевские войска столкнулись с орками и начали терпеть одно поражение за другим. Единственным средством борьбы стало оружие и доспехи из магической руды, которая добывалась в нескольких местах королевства. Одним из таких мест являлся остров Хоринис с одноимённым городом-портом, в (   Читать дальше...   )Жанр: ЛитРПГ, КиберпанкФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7937455EB0DABF2D1A528597A84E31B0A48BFE51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187968   (276767) от 30.11.2017
-
-Иван Шаман | Универсал. Часть первая (2017) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман из цикла «100 лет апокалипсиса».
-
-Люди верят, что конец света может произойти за один миг. Но что если этот миг растянется на столетие?
-(   Читать дальше...   )Жанр: Боевая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D822EB0CA6065AA46DCFF59C64B9CEC04FDF93B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265231   (276287) от 26.11.2018
-
-Александр Шаравар | На краю 2 (2018) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман цикла «На краю».
-
-И вновь неприятности на голову Федора сыпятся со всех сторон. Но теперь он готов их встретить, как оказалось он не обычный человек, он ментальный маг. А менталисты это одни из самых опасных магов во вселенной.Жанр: Боевое фэнтези, Героическое фэнтези, ПопаданцыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:139281D36740CA915FD8CF21F1B61F6486754E54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336977   (276240) от 09.11.2019
-
-Энн Маккефри | Арфист драконов (2019) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очень драматичный роман Энн Маккефри, который она написала вместе со своим сыном, Тоддом. «Арфист драконов» повествует о времени болезни на Перне. Грипп уничтожил уже большую половину людей… И только Киндан, объединившись со своими друзьми, спасет людей и всадников.Жанр: Фантастика, ФэнтезиПеревод: Александр ПоповФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:952481BD3BAEF4EF5F0CEB4AB8C3A706DB51C541
 ```
 
 https://mybot314.ru/tekegram_catalog/

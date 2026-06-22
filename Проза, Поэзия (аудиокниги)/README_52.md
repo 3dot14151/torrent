@@ -1,3 +1,81 @@
+###  Публикация: 1299778   (594974) от 04.05.2019
+
+Жорж Перек, Клод Бюржелен | Кондотьер (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рукопись романа долгое время считалась утраченной. Через тридцать лет после смерти автора ее публикация дает возможность охватить во всей полноте многогранное творчество одного из самых значительных писателей XX века. Первый законченный роман и предвосхищает, и по-новому освещает всё, что написано Переком впоследствии. Основная коллизия разворачивается в жанре психологического (   Читать дальше...   )Жанр: Современная проза РоманПродолжительность: 05:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA5F66DBE9CB5E85693EB605308C91DFC0648B4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299773   (594971) от 04.05.2019
+
+Григорий Каковкин | Мужчины и женщины существуют (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каковкин Григорий Владимирович — писатель, драматург, журналист, режиссер и сценарист документального кино. Родился в Москве в 1953 году. Окончил философский факультет МГУ. Как журналист и публицист работал в ведущих изданиях страны, в газетах “Известия”, “Литературная газета”, журнале “Сельская молодежь” и “Открытая политика”. На телевидении был ведущим и автором (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 12:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCE66F434D630592383B85F739C2E9B808B13C1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299164   (594968) от 04.05.2019
+
+Сергей Козлов | Вид из окна (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сбежавший из родного города, а также пытающийся сбежать от самого себя разведённый поэт по объявлению в газете нанимается в сопровождающие к овдовевшей миллионерше-бизнесменше Вере. В скором времени между ними вспыхивает любовная страсть. Неожиданно появляется киллер, которого Вера нанимала для того, чтобы он разделался с убийцами её мужа, а потом начинают происходить (   Читать дальше...   )Жанр: Современная русская литератураПродолжительность: 11:24:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0011C3704EF17421AED98E08F8149FD7504BD792
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298843   (594965) от 04.05.2019
 
 Михаил Шполянский | Был такой случай (2019) [MP3]
@@ -6,7 +84,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594965.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594964.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594829.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594685.jpg" />
 </div>
 
 
@@ -115,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594526.jpg" />
 </div>
 
 
@@ -144,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594521.jpg" />
 </div>
 
 
@@ -170,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594001.jpg" />
 </div>
 
 
@@ -196,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593484.jpg" />
 </div>
 
 
@@ -222,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593410.jpg" />
 </div>
 
 
@@ -248,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593316.jpg" />
 </div>
 
 
@@ -274,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593199.jpg" />
 </div>
 
 
@@ -300,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592510.jpg" />
 </div>
 
 
@@ -326,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589432.jpg" />
 </div>
 
 
@@ -352,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589099.jpg" />
 </div>
 
 
@@ -378,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589058.jpg" />
 </div>
 
 
@@ -404,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588110.jpg" />
 </div>
 
 
@@ -431,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587990.jpg" />
 </div>
 
 
@@ -458,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587982.jpg" />
 </div>
 
 
@@ -484,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587981.jpg" />
 </div>
 
 
@@ -511,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587939.jpg" />
 </div>
 
 
@@ -538,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586812.jpg" />
 </div>
 
 
@@ -565,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585727.jpg" />
 </div>
 
 
@@ -591,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584848.jpg" />
 </div>
 
 
@@ -602,84 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10A78123FFDF5826E617FFA062555AD6F1B0FC91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040886   (584432) от 07.08.2016
-
-Андрей Кончаловский | Низкие истины. Семь лет спустя (2010) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семь лет спустя" Андрея Кончаловского - дополненное, снабженное подробным комментарием переиздание книги, по замыслу автора открывающей литературную трилогию, над завершением которой он в настоящее время работает. Первые две части этой трилогии - "Низкие истины" и "Возвышающий обман" - вышли в свет соответственно в 1998 и 1999 годах. В этих (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 20:08:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E297F40FFD01C7A91B0813975D7FB7ED892A9130
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040994   (584428) от 07.08.2016
-
-Леонид Леонов | Вор (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой книги — бывший красный командир Дмитрий Векшин, не найдя себя в новой эпохе времен НЭПа, опускается на дно жизни, становится вором. Леонид Леонов детально описывает людей того периода, дает глубокие портретные характеристики персонажей, среди которых бывшие помещики, крестьяне, прибывшие в столицу в поисках лучшей жизни, воры и проститутки, советские (   Читать дальше...   )Жанр: РоманПродолжительность: 32:00:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20A90855FF43CB436FEACCB4C16DF578E4DBA9F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919039   (584110) от 18.07.2015
-
-Кэрол Дринкуотер | Древо жизни (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это реальная история романа актрисы Кэрол Дринкуотер и телевизионного продюсера Мишеля на заброшенной оливковой ферме в Провансе.Жанр: Современная прозаПеревод: с англ.: Пандер Ирина ПавловнаПродолжительность: 12:06:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:293A8E59D074E0E58A25E3137DC7C035C2C763C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

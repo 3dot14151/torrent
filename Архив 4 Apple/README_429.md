@@ -1,3 +1,58 @@
+###  Публикация: 1577983   (350017) от 21.09.2022
+
+DxO PhotoLab 5 ELITE Edition 5.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обрабатывайте RAW и JPEG изображения в наилучшем качестве без труда: DxO PhotoLab обеспечивает полный набор умных коррекций, которые Вы можете настроить в ручную в любой момент. Возьмите контроль над Вашими фото: эффективно убирайте шум, исправляйте освещение, восстанавливайте детали цветов, корректируйте оптические искажения и улучшайте детализацию.
+Придайте Вашим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.09.2022Разработчик: © 2022 DxO LabsПоддерживаемая ОС: macOS 10.15.0 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67DFD7E3BC6F80D1F61C3966676B1A66FB8E0109
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072866   (349989) от 14.11.2016
+
+PaintCode 3.0.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349989.jpg" />
+</div>
+
+
+###  Подробнее
+
+PaintCode является отличным приложением для создания графических элементов, как в Photoshop . Но в этом случае эта программа генерирует не изображение, а Core Graphics код.
+Причины уникальности этого приложения заключаются в следующем:
+- Экономия времени разработки. Если бы Вы стали писать код для Core Graphics в ручную, то это заняло бы очень много времени, чем (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 ноября 2016Разработчик: PixelCut s.r.oПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77F3662578C9054DF21275D0D7B36B4C46772703
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256846   (349946) от 24.10.2018
 
 Sync Folders Pro 3.4.5 [Multi/Ru]
@@ -6,7 +61,7 @@ Sync Folders Pro 3.4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349946.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ Mac FoneLab for iOS 10.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349944.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ DxO PureRAW 2 for Mac v.2.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349869.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ Adguard 1.5.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349739.jpg" />
 </div>
 
 
@@ -114,7 +169,7 @@ Return of the Obra Dinn (2018) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349637.jpg" />
 </div>
 
 
@@ -142,7 +197,7 @@ Adobe - Premiere Pro CC 2019 13.1.4.2 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349505.jpg" />
 </div>
 
 
@@ -169,7 +224,7 @@ Grid 1.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349412.jpg" />
 </div>
 
 
@@ -195,7 +250,7 @@ Forecast Bar - Weather, Radar and Alerts 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349344.jpg" />
 </div>
 
 
@@ -224,7 +279,7 @@ Translatium - translator 7.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349219.jpg" />
 </div>
 
 
@@ -250,7 +305,7 @@ File Juicer 4.62 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349213.jpg" />
 </div>
 
 
@@ -278,7 +333,7 @@ SecuritySpy 4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349205.jpg" />
 </div>
 
 
@@ -306,7 +361,7 @@ Sketch 3.4.1 (15681) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349157.jpg" />
 </div>
 
 
@@ -333,7 +388,7 @@ Adobe InCopy 2021 v16.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349122.jpg" />
 </div>
 
 
@@ -360,7 +415,7 @@ Pacifist 3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349045.jpg" />
 </div>
 
 
@@ -389,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348998.jpg" />
 </div>
 
 
@@ -415,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348987.jpg" />
 </div>
 
 
@@ -441,7 +496,7 @@ Wondershare Filmora Х v10.0.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348953.jpg" />
 </div>
 
 
@@ -467,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348834.jpg" />
 </div>
 
 
@@ -493,7 +548,7 @@ Adobe XD 34.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348807.jpg" />
 </div>
 
 
@@ -519,7 +574,7 @@ Adobe Audition 2020 v13.0.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348803.jpg" />
 </div>
 
 
@@ -545,7 +600,7 @@ Color Finale Pro 1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348769.jpg" />
 </div>
 
 
@@ -571,7 +626,7 @@ Adobe After Effects 2020 17.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348534.jpg" />
 </div>
 
 
@@ -599,7 +654,7 @@ Adobe Character Animator 2020 v3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348529.jpg" />
 </div>
 
 
@@ -627,7 +682,7 @@ Axure RP Pro 7.0.0.3189 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348430.jpg" />
 </div>
 
 
@@ -638,59 +693,6 @@ Axure RP Pro - быстрое макетирование для приложен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C6EA0BFD52684A68CDB0EFBAB1A074CE93DABFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418473   (348403) от 24.10.2020
-
-Astute Graphics Plugins Elite Bundle v2.0.4 + Pro Texture Packs for Texturino
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Astute Graphics — сборник плагинов для векторного графического редактора Adobe Illustrator
-Английская компания Astute Graphics специализируется в разработке творческих инструментов для векторных дизайнеров, которые значительно экономят время, повышают творческий потенциал и помогают достигать прекрасных результатов.Тип издания: macOS SoftwareРелиз состоялся: 20.10.2020Разработчик: Astute GraphicsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E98EBE2FC45DE7AFCFCF9CA5DB90FB6EA7F7B99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418351   (348399) от 24.10.2020
-
-Adobe Dreamweaver 2020 v21.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Dreamweaver 2020 - новая версия приложения, предназначенного для создания профессиональных веб-сайтов. Программное обеспечение для веб-дизайна Adobe Dreamweaver  содержит интуитивно понятный визуальный интерфейс, позволяющий создавать и редактировать веб-сайты и мобильные приложения. Используйте «резиновые макеты» (Fluid Grid Layouts) с кроссплатформенной поддержкой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: октябрь 2020Разработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56471D48CD4FA4A89692F80CB109FF98D6FFB71E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,59 @@
+###  Публикация: 1348825   (141894) от 29.12.2019
+
+Stay 1.2.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы привередливы и стараетесь держать свои окна в порядке, это приложение для вас. Будьте уверены, что ваши окна находятся там, где вы хотите, даже когда вы подключаете и отключаете дисплеи.
+Как это работает?
+Переместите ваши окна туда, где вы хотите их видеть, затем сохраните их. После сохранения окна могут быть возвращены в их первоначальное состояние в любое (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.12.2019Разработчик: Cordless DogПоддерживаемая ОС: macOS 10.11.6+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8965C8E52B5929EE87D2EA4D4026B8375C313B07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348899   (141859) от 29.12.2019
+
+Movist Pro 2.2.14 (build 136) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movist является простым в использовании и мощным проигрывателем видео, который поддерживает множество полезных функций для просмотра фильмов включая: H.264 декодирование видео, цифровой аудиовыход (S / PDIF), высокое качество субтитров, полноэкранный режим, удобный и красивый пользовательский интерфейс.
+
+Из полезных функций можно также отметить удобный полноэкранный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: MovistПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0413B7F098A55A9AF45423B2F235802740EE7437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348932   (141820) от 29.12.2019
 
 BetterTouchTool 3 v3.215 [En]
@@ -6,7 +62,7 @@ BetterTouchTool 3 v3.215 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141820.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ Wondershare UniConverter 13.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141794.jpg" />
 </div>
 
 
@@ -59,7 +115,7 @@ Softorino YouTube Converter 2 v2.1.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141790.jpg" />
 </div>
 
 
@@ -88,7 +144,7 @@ Boom 3D 1.3.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141644.jpg" />
 </div>
 
 
@@ -114,7 +170,7 @@ BookMacster 2.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141634.jpg" />
 </div>
 
 
@@ -141,7 +197,7 @@ Privatus 5.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141337.jpg" />
 </div>
 
 
@@ -168,7 +224,7 @@ FoneLab HEIC Converter 1.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141149.jpg" />
 </div>
 
 
@@ -195,7 +251,7 @@ JetBrains PyCharm Professional for Mac 2023.2.5 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141081.jpg" />
 </div>
 
 
@@ -221,7 +277,7 @@ News Explorer 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141070.jpg" />
 </div>
 
 
@@ -250,7 +306,7 @@ Performance Index 64 Pro 4.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140960.jpg" />
 </div>
 
 
@@ -276,7 +332,7 @@ Metadata Converter Pro for Mac 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140955.jpg" />
 </div>
 
 
@@ -302,7 +358,7 @@ PDF Expert 2.5.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140943.jpg" />
 </div>
 
 
@@ -330,7 +386,7 @@ iSoftPhone Pro 4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140919.jpg" />
 </div>
 
 
@@ -357,7 +413,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140902.jpg" />
 </div>
 
 
@@ -384,7 +440,7 @@ Downie 4 v4.4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140888.jpg" />
 </div>
 
 
@@ -412,7 +468,7 @@ App Cleaner & Uninstaller Pro 7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140885.jpg" />
 </div>
 
 
@@ -440,7 +496,7 @@ NeoOffice 2017.32 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140857.jpg" />
 </div>
 
 
@@ -467,7 +523,7 @@ TG Pro (Temperature Gauge Pro) 2.65 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140810.jpg" />
 </div>
 
 
@@ -494,7 +550,7 @@ Wondershare UniConverter 12.5.3.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140724.jpg" />
 </div>
 
 
@@ -521,7 +577,7 @@ FontExplorer X Pro 6.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140722.jpg" />
 </div>
 
 
@@ -549,7 +605,7 @@ Rhinoceros 7 v7.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140690.jpg" />
 </div>
 
 
@@ -576,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140664.jpg" />
 </div>
 
 
@@ -604,7 +660,7 @@ ConceptDraw Office for Mac 8.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140649.jpg" />
 </div>
 
 
@@ -630,7 +686,7 @@ Aiseesoft AnyCoord for Mac 1.0.26 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140571.jpg" />
 </div>
 
 
@@ -641,59 +697,6 @@ Aiseesoft AnyCoord for Mac 1.0.26 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C60307C98848D9E72CF3DF4B60DD1FC36EA9A7FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679253   (140517) от 24.11.2023
-
-Menuwhere 2.2.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Единственная цель Menuwhere - вывести на экран меню самого переднего приложения в текущем местоположении мыши.Тип издания: macOS SoftwareРелиз состоялся: 14.11.2023Разработчик: © 2023 Many TricksПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E0DC8B30481BFE5B85A77544C9F8BB766906EAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679309   (140506) от 24.11.2023
-
-n-Track Studio Suite 10.0.0 Intel/ARM [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для обеспечения студийного качества записи, редактирования и микширования.
-Программа n-Track Studio привносит профессиональное качество аудио файлов и облегчает рабочий процесс.Тип издания: macOS SoftwareРелиз состоялся: 17.11.2023Разработчик: n-Track S.r.lПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E5E2F070785BC72AA5CC090642F86F3B036E87F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,109 @@
+###  Публикация: 1338151   (269869) от 15.11.2019
+
+Архимандрит Наум (Байбородин) (сост.) | Как очистить свой ум и сердце: По творениям святых отцов (2019) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269869.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге архимандрит Наум (Байбородин; 1927-2017) собрал изречения снятых отцов о том, что такое чистота ума и сердца, как её достичь, какие препятствия ожидают подвижника на этом пути, а также о цели этого делания — стяжании «ума Христова» и обожении человека.Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09083FCB09B2409F8F58CC2BC1E4FF1C65CA7A10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338350   (269849) от 15.11.2019
+
+В.П. Филимонов | Как создаются легенды. Под маской Православия. Допустима ли неправда в Церкви? (2012) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269849.jpg" />
+</div>
+
+
+###  Подробнее
+
+В брошюре на строго документальной основе разоблачается мифотворческая деятельность и ложь настоятеля подворья несуществующего монастыря священника Г. Беловолова относительно происхождения и истории иконы «Аз есмь с вами и никтоже на вы».Жанр: Христианская литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B413ACAF4AC603B62B23764DAFB77FBF1791000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189849   (269587) от 07.12.2017
+
+Старец Паисий Святогорец | Святой Арсений Каппадокийский (2008) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена житию и чудесам одного из самых замечательных святых последнего времени - греческого подвижника преподобного Арсения Каппадокийского (1924; пам. 28 октября/10 ноября). Автор - известный на Афоне Старец Паисий (1994), написавший несколько книг о подвижниках, с которыми Господь благословил ему встречаться в жизни. Отец Паисий был крещён преподобным (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C69BEE9F96589F5C054DC57CBDBF60D3046512FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189683   (269573) от 07.12.2017
+
+Спасо-Преображенский Мгарский монастырь (изд.) | Начинающему христианину (2006) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга расскажет о том, что должен знать человек, решивший идти в церковь, о том что такое духовная жизнь, кто такой духовник и для чего необходима молитва домашняя и общественная.
+
+В форматеЖанр: ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9750E912E5B080B76939850C3E2FD0B0979C6DC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338749   (268985) от 16.11.2019
 
 Юрий Максимов | Религия Креста и религия полумесяца (2008) [PDF, DJVU, FB2]
@@ -6,7 +112,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268985.jpg" />
 </div>
 
 
@@ -34,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268974.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268906.jpg" />
 </div>
 
 
@@ -86,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268897.jpg" />
 </div>
 
 
@@ -114,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268895.jpg" />
 </div>
 
 
@@ -140,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268866.jpg" />
 </div>
 
 
@@ -166,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267052.jpg" />
 </div>
 
 
@@ -194,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267037.jpg" />
 </div>
 
 
@@ -220,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266921.jpg" />
 </div>
 
 
@@ -246,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266014.jpg" />
 </div>
 
 
@@ -274,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265913.jpg" />
 </div>
 
 
@@ -300,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265362.jpg" />
 </div>
 
 
@@ -327,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265244.jpg" />
 </div>
 
 
@@ -355,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265240.jpg" />
 </div>
 
 
@@ -381,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265126.jpg" />
 </div>
 
 
@@ -407,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264474.jpg" />
 </div>
 
 
@@ -436,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264300.jpg" />
 </div>
 
 
@@ -464,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264293.jpg" />
 </div>
 
 
@@ -491,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264289.jpg" />
 </div>
 
 
@@ -519,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264236.jpg" />
 </div>
 
 
@@ -547,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264226.jpg" />
 </div>
 
 
@@ -573,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264173.jpg" />
 </div>
 
 
@@ -584,112 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:514AF6565B4029756E02216951340582316A6345
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191678   (264172) от 14.12.2017
-
-Джанфранко Равази | Краткая история души (2012) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человечество всегда искало ответ на вопрос: что такое душа; одни считали ее накрепко привязанной к телу, другие — чистым духом. Следы души приводили к сердцу человека, к совести и даже к разуму. Светские исследователи отождествляли ее с психе или с системой нейронов, верующие чувствовали, что она — бездна света, в которой открывается Бог. На страницах этой книги (   Читать дальше...   )Жанр: БогословиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:929142D5AFD8B25282D2DB7E9C26F352D8D9B171
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191668   (264142) от 14.12.2017
-
-Акоп Мегапарт | Книга пятницы [Урбатагирк / Ուրբաթագիրք] (1512) [PDF] [ARM]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая печатная книга на армянском языке называлась Урбатагирк ("Книга пятницы") и была издана в 1512 году в Венеции Акопом Мегапартом ("Грешником"). Об Акопе Мегапарте практически ничего не известно, так же как и о том, почему он именовал себя Грешником (или Грешным). В тот период Армения находилась под владычеством Османской империи, и существенную (   Читать дальше...   )Жанр: МолитвенникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8BBA5E1F2B4CBE6D3DB17ABD5167F06619B0F1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191940   (263890) от 15.12.2017
-
-Протоиерей Григорий Дьяченко | Вопросы на исповеди детей (2016) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая книга известного церковного пастыря и проповедника начала XX в. - протоиерея Григория Дьяченко - уникальна. До настоящего времени нет ни одной работы, которая могла бы ей соответствовать по знанию детской души с точки зрения христианской педагогики, по назидательности и одновременно лёгкости и красоте изложения.
-
-Книга призвана помочь родителям подготовить (   Читать дальше...   )Жанр: Православие. Духовно-просветительное изданиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AFEE4C355FFA43BA79FCAB26634EE9FDD94CA6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191971   (263882) от 15.12.2017
-
-Б. П. Кандидов | Религиозная контрреволюция 1918-20 гг. и интервенция [очерки и материалы] (1930) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задача настоящей брошюры заключается в том, чтобы показать деятельность религиозных учреждений и духовенства по организации интервенции. Однако классовый смысл этой деятельности не будет вполне ясен, если не помнить той обстановки, на фоне которой вели свою работу божьи служителя, служители бога-калитала. Поэтому автор считал необходимым первую главу посвятить краткой (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B696AE755ADB1797BB2287BE671CF0FF425DC5F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

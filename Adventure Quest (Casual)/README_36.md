@@ -1,3 +1,107 @@
+###  Публикация: 1314385   (519263) от 14.07.2019
+
+Crime Secrets: Crimson Lily / Преступные тайны: Алая лилия (2016) [Ru] (1.0) Unofficial
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте новую увлекательную игру. Отпуск частного детектива в курортном городке прерван жестоким убийством прямо у ворот отеля. Тело жертвы промерзло насквозь, и к нему прикреплена бумажная лилия. Визитная карточка убийцы? Метель отрезала героя от внешнего мира. Теперь надежда только на себя и свои детективные навыки: опрос свидетелей, поиск улик, преследование (   Читать дальше...   )Тип издания: UnofficialРазработчик: One More Level, Artifex MundiЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48C5222E95B3315E78267F2E9ACFA94DB19B82DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241723   (519002) от 18.08.2018
+
+Secret Investigations 3: Revelation / Загадочные расследования 3: Откровение (2018) [Ru] (1.0) Unofficial
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джулия - автор детективов, и ей нужна ваша помощь в расследовании преступлений. Готовы ли вы распутать самые сложные дела и раскрыть все тайны? Что вы думаете о том, чтобы стать главным детективом? Найдите все улики, которые помогут вам раскрыть преступление. Игра включает в себя десять дел с самыми жестокими преступлениями. Используйте свой острый ум и зоркий глаз (   Читать дальше...   )Тип издания: UnofficialРазработчик: Playzzi GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CE30E4F856A627845F691E8087EA7953C0EB954
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560742   (518728) от 01.07.2022
+
+Spirits Chronicles 2: Flower of Hope (2022) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение увлекательной игры Spirits Chronicles. Существование цветочного города Лорелай под угрозой, и вы - его единственная надежда. Жители паникуют - на город обрушилась ударная волна, а животные слегли от неизвестной болезни. Вас просят найти источник проблемы и спасти животных, но вскоре вы узнаёте, что странная болезнь - это только начало!Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B11D9B6E0EC3AC431C09C386C1A6DACCC8E80238
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314751   (517975) от 15.07.2019
+
+The Unseen Fears 4: Stories Untold / Невидимые страхи 4: Нерассказанные сказки (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение мистической игры The Unseen Fears. Ах, Прага сказочный город! Детектив собирался приятно провести здесь время, но угодил в новое приключение. Он услышал призыв о помощи, доносящийся из книги сказок. Удастся ли детективу спасти тех, кто оказался заключенным на ее страницах? Или ему суждено стать одним из персонажей?Тип издания: UnofficialРазработчик: GrandMA StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE91FAF1C43CF0AC22A32244B2CAF213E661C2B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930641   (515201) от 23.08.2015
 
 Dark Realm 2: Princess of Ice (2015) [En] Unofficial [Collector's Edition / Коллекционное издание]
@@ -6,7 +110,7 @@ Dark Realm 2: Princess of Ice (2015) [En] Unofficial [Collector's Edition / Ко
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515201.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Violett Remastered (2013) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514829.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Secret City 3: The Human Threat (2019) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513732.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Tales of Sorrow: Strawsbrough Town [En] (P) 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512418.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Queens Quest 5: Symphony of Death / Королевский Квест 5: Сим�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511666.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Beyond: Light Advent / Извне: Пришествие света (2015) [Ru] U
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510616.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ PuppetShow 13: The Curse of Ophelia / Шоу марионеток 13: Прокл
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508727.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ The Man with the Ivory Cane (2019) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507743.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Haunted Hotel 9: Phoenix (2015) [En] Unofficial [Collector's Edition / Колл�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507165.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Dark Tales 16: Edgar Allan Poe's. Ligeia (2019) [En] (1.0) Unofficial [Collector
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506855.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Mystery Trackers 9: Winterpoint Tragedy / Охотники за тайнами 9
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505940.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Bluebeard's Castle 2: Son of the Heartless / Замок Синей Бороды 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504144.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Hidden Expedition 18: Neptune's Gift / Секретная экспедиция 1
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504046.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Hidden Expedition 9: Dawn of Prosperity (2015) [En] Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503653.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Chimeras 9: Wailing Waters / Химеры 9: Кошмары Чёрного оз�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503231.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Mystical Riddles 2: Behind Doll Eyes (2022) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502488.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Dark Tales 16: Edgar Allan Poes. Ligeia / Тёмные истории 16: Эдг
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502232.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Lost Island: Eternal Storm (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502155.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Haunting Mysteries: Island of Lost Souls / Загадочные Истории: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502079.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Haunting Mysteries: Island of Lost Souls Collector's Edition / Загадочн�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500963.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Phantasmat: The Endless Night / Фантазм: Бесконечная ночь 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499146.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Beyond Eyes (2015) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499016.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Beyond Eyes (2015) [Ru/Multi] (1.0) License PLAZA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBA37FEB75813E30A3757DDB7A5499A615A429C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935620   (498278) от 09.09.2015
-
-Rack N Ruin (2015) [En/Multi] (1.0) License PLAZA
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rack N Ruin - это классическая экшен-адвенчура с видом сверху, которая сочетает в себе забавный открытый мир, головоломки, подземелья с различными секретами и битвы с громадными боссами. Главный герой игры (или лучше сказать «антигерой») - самый злобный злодей в истории зла по имени Рэк, который по приказу некоего темного властелина прибывает на невинную планетуТип издания: ЛицензияРазработчик: LifeSpark EntertainmentЖанр: AdventureЯзык озвучки: Английский, Французский, Немецкий, Испанский, ИтальянскийЯзык субтитров: Английский, Французский, Немецкий, Испанский, ИтальянскийЯзык интерфейса: Английский, Французский, Немецкий, Испанский, Итальянский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11ED429AB09362BC1DB7348FD2E7ED5E8D73C08B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935891   (497493) от 10.09.2015
-
-Mystery Tales 3: Alaskan Wild (2015) [En] Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваша сестра Элли давно приглашает вас приехать к ней на Аляску, где она нашла свою любовь. Наконец она делает предложение, от которого вы не можете отказаться - сделать фотографии для новой книги. И вот вы на Аляске. Однако здесь явно что-то не так. Оказывается, у возлюбленного вашей сестры есть темные тайны в прошлом.Тип издания: Неофициальное изданиеРазработчик: Domini gamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:904BDA3395E640B85E21A5C74E6E09CC8AF8B757
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935895   (497154) от 10.09.2015
-
-Rite of Passage 4: The Lost Tides / Обряд посвящения 4: Пропавшие в море (2015) [Ru] Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам предстоит разгадать тайну мистического корабля под названием "Стойкий". Он исчез без следа в море двадцать лет лет назад, вместе со всеми его пассажирами. Ваши родители тоже были на борту. И теперь, спустя столько времени... корабль вернулся. Что произошло с ним? И где все пропавшие пассажиры?Тип издания: Неофициальное изданиеРазработчик: Mad Head GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04A174B006580037890DD94EF4867038B8171038
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542901   (497120) от 04.09.2012
-
-Mystic Legacy: The Great Ring / Мистическое наследие: Власть кольца [Ru] (P) 2012
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мирный отдых обернулся для вас сущим кошмаром. Когда вы последовали за своим другом Марком, отстав от туристической группы, чтобы посетить отдаленный румынский замок, Марк был внезапно похищен и укушен вампиром. Но вещи становятся еще более странными по мере исследования замка... Вампир, похитивший вашего друга оказался кровососущим, но пьет он только ненастоящую кровь. И почему Марк, кажется, знал о замке больше, чем он делал вид? Вам предстоит найти ответы на эти вопросы, и раскрыть древнюю тайну замка!(   Читать дальше...   )Тип издания: ПираткаЖанр: Квест, Логическая, Я ищуЯзык озвучки: n/a (отсутствует)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FE5587E3549AC7F73EAF11428DE5C3C250D4DBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

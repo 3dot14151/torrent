@@ -6,7 +6,7 @@ Sword Art Online II| Мастера меча онлайн 2 [2014, TV, 25 эп. 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588929.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Isekai Maou to Shoukan Shoujo no Dorei Majutsu Omega | How Not to Summon a Demon
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588914.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Higurashi no Naku Koro ni: Sotsu | Higurashi: When They Cry - Sotsu | Когда
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588845.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Jahy-sama wa Kujikenai! | The Great Jahy Will Not Be Defeated! | Великая 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588839.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Escha & Logy no Atelier: Tasogare no Sora no Renkinjutsushi | Ателье Эс�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587722.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Amagi Brilliant Park | Великолепный парк Амаги [2014, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585097.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Saint Seiya: Legend of Sanctuary | Рыцари Зодиака (фильм ше�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584662.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NieA_7 | NieA Under 7 / Ния под_семёркой [2000, TV, 13 из 13] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584417.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Sarusuberi: Miss Hokusai / Дочь Хокусая [2015, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584329.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Appleseed XIII | Яблочное зернышко OVA-2 [2011, OVA, 13 эп.] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584302.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Selector Infected WIXOSS | Селектор: Заражение WIXOSS [ТВ-1][
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584210.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Kaginado | Key и всякое | Кагинадо [ТВ-1] [2021, TV, 12 из 12
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583758.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Mahouka Koukou no Rettousei / Mahouka / The Irregular at Magic High School / Б�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583627.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Tenkuu no Shiro Laputa / Laputa: The Castle in the Sky / Небесный зам
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582520.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Zombieland Saga | Zombie Land Saga | Зомбиленд. Сага [2018, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_581130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_581130.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Koyomimonogatari | Истории Коёми [2015, TV, 12 эп.] BDrip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580266.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Slow Loop | Медленная петля [2022, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579949.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Kampfer: Fur die Liebe | Кемпфер (спэшл) [2011, OVA, 2 эп.] BDRip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_579728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_579728.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Evangelion Shin Gekijouban: Ha / Evangelion 2.22: You Can (Not) Advance / Ева
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579501.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Evangelion Shin Gekijouban: Jo / Evangelion 1.11: You are (not) alone / Еван
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579428.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Uchi no Maid ga Uzasugiru! | UzaMaid! | Наша служанка слишком
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578116.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ DMC | Detroit Metal City | Detroit Metal City: The Animated Series | Детро�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576895.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Gekijouban Ao no Exorcist / Ao no Exorcist The Movie / Синий Экзорци
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576794.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Gin no Saji (2014) / Silver Spoon (2014) / Серебряная ложка [ТВ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576338.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Shirokuma Cafe | Polar Bear Cafe | Кафе «У Белого Медведя» [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574323.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Kuroko no Basuke / Kuroko's Basketball / Баскетбол Куроко [ТВ-1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573990.jpg" />
 </div>
 
 

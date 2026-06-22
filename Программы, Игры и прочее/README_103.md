@@ -1,237 +1,3 @@
-###  Публикация: 1654015   (194119) от 18.08.2023
-
-Truecaller: определитель номера 13.29.6 Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Truecaller - представляет собой электронную телефонную книгу для устройств на платформе Android. Данное приложение позволит быть в курсе того, кто вам звонит с неизвестного вам номера телефона. Анализ номеров вашего листа контактов происходит в автоматическом режиме. Чем больше пользователей использует приложение, тем больше номеров будет доступно в базе данных. (   Читать дальше...   )Тип издания: Premium (Mod)Релиз состоялся: 16.08.2023Разработчик: TruecallerПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C40A7A7CEDEAAED58D6CA1D65A73B4A3753F9DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654393   (194103) от 20.08.2023
-
-jetAudio HD Music Player Plus 11.2.6 Mod by derrin [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194103.jpg" />
-</div>
-
-
-###  Подробнее
-
-jetAudio HD Music Player Plus - мощный и стильный аудиоплеер обладающий 10 или 20 полосным эквалайзером. Всё зависит от выбора и предпочтений меломана желающего получить идеальный звук за счёт точной ручной регуляции. Конечно же стоит отметить, что jetAudio воспроизводит практически все форматы аудио. Так что пользователи фактически полностью избавлены от необходимости (   Читать дальше...   )Тип издания: Plus (Mod)Релиз состоялся: 31.07.2023Разработчик: Team JetПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96E28A3212B145697B75F22CE58CB4C99AFB8E90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654619   (194044) от 21.08.2023
-
-Offline Maps / Офлайн карты для путешественников v1.44 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобные карты, предназначенные для навигации в условии отсутствия широкополосного доступа в сеть. Обширная база достопремечательностей и энциклопедических данных о них.Тип издания: PremiumРелиз состоялся: 04.08.2023Разработчик: AerostatmapsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FD19DDA9EFAE98EF8E850D03CCA35798F2E8489
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654691   (194025) от 22.08.2023
-
-3D Sense Clock & Weather 6.40.2 Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194025.jpg" />
-</div>
-
-
-###  Подробнее
-
-3D Sense Clock & Weather - удобный проект объединяющий в себе сразу часы и прогноз погоды. Учитывая отличный дизайн и качество исполнения программа стала весьма популярна и востребована среди поклонников персонализации за счёт красивых виджетов и прочего. Настройки помогают настраивать и получать самые разные варианты и решения, определять какая информация выводится (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 22.08.2023Разработчик: MACHAPP Software LtdПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7B8F62D8BC4BDDDEF8AA0C2E2028C592E631776
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654664   (193997) от 22.08.2023
-
-VPN Russia - VPN сервера в России 1.168 Mod by ANiK555 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрый и бесплатный Vpn Russia позволяет в один клик получить российский IP или разблокировать доступ к закрытым сайтам и приложениям. Безопасное и анонимное подключение к открытым WIFI сетям обеспечивает технология подключения VPN с ключом 2048 бит.Тип издания: ProРазработчик: Local networksПоддерживаемая ОС: Android 4.4+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF75684D27A032F08006014750166F88651E1E8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654880   (193956) от 23.08.2023
-
-Радио онлайн - PCRADIO 2.7.2.2 Mod by NURIK [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Радио онлайн - PCRADIO - отличный проект, что благодаря своим качествам завоевал весьма впечатляющих размеров аудиторию пользователей. Им предлагается удобная и функциональная платформа для поиска и прослушивания радиостанций и всего прочего потокового аудиоконтента. Порадует и серьёзная экономия трафика. Это обеспечивает совершенно невысокий уровень потребления (   Читать дальше...   )Тип издания: ModРелиз состоялся: 26.12.2022Разработчик: PCRADIOПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35E3649FE3B370C31962B3EE020D6AE38F584B87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654978   (193892) от 23.08.2023
-
-QR & Barcode Scanner / Сканер QR и штрих- кодов 2.5.39 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193892.jpg" />
-</div>
-
-
-###  Подробнее
-
-QR & Barcode Scanner Pro - очередное приложение для считывания штрих-кодов и QR-кодов. Пользователи смогут быстро получать исчерпывающую информацию скрывающуюся за полосками и квадратиками. Товары и продукты, реклама и объявления, билеты и зашифрованные полезные знания. Подобные элементы окружают нас со всех сторон в современном мире. И зачастую мы их просто-напросто (   Читать дальше...   )Тип издания: Pro (Patched)Релиз состоялся: 12.04.2023Разработчик: Gamma PlayПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D801E9EC402693107E1572FE33D2117E2E80C41C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654995   (193883) от 23.08.2023
-
-Очиститель для WhatsApp (от LookAndFeel Lab) v2.9.4 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cleaner for WhatsApp — это мощный инструмент для очистки полученных и отправленных медиафайлов через WhatsApp. Самая важная функция приложения Cleaner for WhatsApp заключается в том, что вы можете автоматически очищать медиафайлы WhatsApp со своего телефона или планшета Android через регулярные промежутки времени или в соответствии с ограничением хранилища. Cleaner (   Читать дальше...   )Тип издания: Premium / ModРелиз состоялся: 21.08.2023Разработчик: LookAndFeel LabПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3B379B27D6413AF2184B915EB352879360C611F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655100   (193846) от 24.08.2023
-
-XY VPN - Security Proxy VPN 4.6.112 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193846.jpg" />
-</div>
-
-
-###  Подробнее
-
-XY VPN — это абсолютно бесплатный VPN! Быстрое и глобальное VPN-приложение для обеспечения конфиденциальности и безопасности в Интернете для всех пользователей Android.Тип издания: VIPРазработчик: MATRIX MOBILE PTE. LTD.Поддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80B596B38DBAB261D56725C264964FEED304E0A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655450   (193843) от 26.08.2023
 
 Все коды регионов. Штрафы ГИБДД v9.00.25 Mod от Alex.Strannik [Ru]
@@ -240,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193843.jpg" />
 </div>
 
 
@@ -266,7 +32,7 @@ Smart AudioBook Player Pro v10.0.6 Mod by Balatan, Kirlif', Alex.Strannik [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193792.jpg" />
 </div>
 
 
@@ -292,7 +58,7 @@ LazyIPTV Deluxe v2.46 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193723.jpg" />
 </div>
 
 
@@ -318,7 +84,7 @@ InviZible Pro: Tor & Firewall v7.3.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193701.jpg" />
 </div>
 
 
@@ -346,7 +112,7 @@ MultiTimer: МультиТаймер v1.10.2 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193666.jpg" />
 </div>
 
 
@@ -372,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193663.jpg" />
 </div>
 
 
@@ -398,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193554.jpg" />
 </div>
 
 
@@ -424,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193493.jpg" />
 </div>
 
 
@@ -450,7 +216,7 @@ WaveStudio (WaveEditor Record & Edit Audio) v1.109 Mod by Alex.Strannik [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193051.jpg" />
 </div>
 
 
@@ -477,7 +243,7 @@ DIGI Clock Widget Plus 3.3.2 (build 25412) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193002.jpg" />
 </div>
 
 
@@ -503,7 +269,7 @@ iTranslate  v5.10 Mod by Dymonyxx [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192955.jpg" />
 </div>
 
 
@@ -529,7 +295,7 @@ Casse-o-player 3.2.3 Jubilee Update Mod by TryRoom + Cassette Pack (Unpacked) [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192918.jpg" />
 </div>
 
 
@@ -555,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192762.jpg" />
 </div>
 
 
@@ -581,7 +347,7 @@ FFmpeg Медиа-кодер v6.0.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192664.jpg" />
 </div>
 
 
@@ -608,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192596.jpg" />
 </div>
 
 
@@ -634,7 +400,7 @@ Flibusta Downloader v4.5.1 Test [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192569.jpg" />
 </div>
 
 
@@ -660,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192553.jpg" />
 </div>
 
 
@@ -671,6 +437,243 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BD49DA5ACF70041CA5D613D0A65010C03678CA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655565   (192546) от 03.09.2023
+
+All Language Translate App 1.65 Mod by ModdingUnited [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение All Language Translate очень простое для изучения и преобразования языков. Вы можете переводить и говорить на любом языке мира, переводить на нужный вам язык. Вы можете говорить и переводить все языки с помощью голоса и речи переводчика текста. Письменный контент можно переводить с родного языка. Он обеспечивает высококачественный перевод и идеально подходит (   Читать дальше...   )Тип издания: PremiumРазработчик: Dream Edge TechnologiesПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59E5BBF9EBEEBC301E96B781C7793FBDE3DEBC90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657166   (192543) от 03.09.2023
+
+Аудиокниги Бесплатно от Изибук v1.11(17) [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192543.jpg" />
+</div>
+
+
+###  Подробнее
+
+У нас вы можете слушать аудиокниги бесплатно. Очень большой каталог аудиокниг для бесплатного прослушивания.
+
+Плюсы нашего приложения:
+- Большой каталог аудиокниг с навигацией по жанрам, авторам и чтецам(   Читать дальше...   )Тип издания: FreeРелиз состоялся: 30.08.2023Разработчик: Easy ABooksПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:509035081B5CE1BD1220CEA6C56BAFD662443E8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587661   (192530) от 31.10.2022
+
+Справочник по транзисторам v1.2 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192530.jpg" />
+</div>
+
+
+###  Подробнее
+
+В справочнике представлены все основные категории транзисторов: транзисторы биполярные кремниевые и германиевые, транзисторы с предварительно заданным током смещения, полевые транзисторы с изолированным затвором (MOSFET) и с управляющим переходом, биполярные транзисторы с изолированным затвором (IGBT). Также имеются транзисторные сборки: транзисторные пары биполярные, (   Читать дальше...   )Тип издания: AdfreeРелиз состоялся: 30.10.2022Разработчик: Эдуард ПаньковПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5FF60140ACAA2E9347825221FAF7CE20375978A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464957   (192513) от 31.10.2022
+
+Справочник по диодам v1.1 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192513.jpg" />
+</div>
+
+
+###  Подробнее
+
+В справочнике представлены все основные категории диодов и диодных пар: выпрямительные диоды, диоды с барьером Шоттки, быстрые и переключательные диоды, радиочастотные и PIN-диоды, стабилитроны - диоды Зенера. Также имеются диодные мосты выпрямительные - однофазные и трехфазные.Тип издания: AdFree (без рекламы)Релиз состоялся: 30.10.2022Разработчик: Эдуард ПаньковПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E243972EF29ABE0A9DB20CB071ED72DD46DB4F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533728   (192489) от 31.10.2022
+
+Буковки: учимся читать весело v5.32 [Ru/En]
+
+>>Программы, Игры и прочее
+>>Всё для детей и родителей для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192489.jpg" />
+</div>
+
+
+###  Подробнее
+
+“Буковки” - это инструмент для обучения чтению общепризнанным звуко-буквенным методом, в сочетании с преимуществами небезызвестной методики Зайцева и других методик обучения чтению. Приложение “Буковки” позволит составлять любые слова с помощью удобной озвученной клавиатуры. С ним дети учатся читать по-русски с удовольствием! Слова автоматически разбиваются на склады*. (   Читать дальше...   )Тип издания: Full (Разблокированы все буквы, Disabled Google services)Релиз состоялся: 22.10.2022Разработчик: EditaleПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4296A568A6CC164690E96DBC2E4D27ABE22B0CFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657634   (192378) от 04.09.2023
+
+Windy.app: погода и ветер 40.0.6 Mod by GIP-79 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windy.app - очень и очень востребованное погодное приложение, что детально визуализирует прогнозы на ближайшее время. Владельцы гаджетов смогут воочию наблюдать за вероятным течением ветра, перемещением осадков и прочими аспектами. Это поможет и пилотам и рабочим, что так или иначе зависят от подобных условий и спортсменам, что не хотят рисковать понапрасну. Высокое (   Читать дальше...   )Тип издания: ModРелиз состоялся: 11.07.2023Разработчик: Windy Weather World IncПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6D34D94B5F8864916E65020E9C778FF5283AE81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657664   (192363) от 04.09.2023
+
+Windy.com - Weather Forecast 39.1.5 Mod by Jenny66 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windy.com - Weather Forecast - очень и очень востребованное погодное приложение, что детально визуализирует прогнозы на ближайшее время. Владельцы гаджетов смогут воочию наблюдать за вероятным течением ветра, перемещением осадков и прочими аспектами. Это поможет и пилотам и рабочим, что так или иначе зависят от подобных условий и спортсменам, что не хотят рисковать (   Читать дальше...   )Тип издания: ProРелиз состоялся: 10.08.2023Разработчик: Windyty SEПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC504A7E9AB4B6181611AA8F6C30A98246B944ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587725   (192250) от 01.11.2022
+
+Unified Remote v3.21.0 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великолепный клиент для дистанционного управления вашим компьютером (сервер можно взять там. Поддерживает как работу внутри домашней сети, так и доступ извне с использованием внешнего IP вашего компьютера. В наличии доступ к множеству разнообразных пультов (виртуальная мышь и клавиатура, трансляция экрана, управление мультимедиа и многое другое).  Превратите свое (   Читать дальше...   )Тип издания: FullРелиз состоялся: 22.05.2022Разработчик: Unified IntentsПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1A1823F91C9D7B3D3AD609F8B54B5097F7CD33E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657792   (192248) от 05.09.2023
+
+InShot - Фото и видеоредактор 1.960.1416 Mod by 0x7d [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192248.jpg" />
+</div>
+
+
+###  Подробнее
+
+InShot - впечатляющее своими возможностями и удобством приложение, что завоевало стойкую положительную репутацию у пользователей мобильных гаджетов. Проект представляет собой фоторедактор и видеоредактор, а так же обладает функцией превращения статичных изображений в так называемые живые фотографии. Не стоит ожидать от программы внешность и функционал профессионального (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 26.08.2023Разработчик: InShot Video EditorПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8ECEF4B909F0A5124FA782F2DD42ED1E7FA0552
 ```
 
 https://mybot314.ru/tekegram_catalog/

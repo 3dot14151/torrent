@@ -1,3 +1,56 @@
+###  Публикация: 1505203   (233802) от 26.10.2021
+
+Dato 3.1.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dato - это замена часов системного меню. По умолчанию он выглядит точно так же, но когда вы нажимаете на него, вы получаете небольшой календарь, события календаря, текущее время в разных часовых поясах и многое другое.
+Dato поддерживает все языковые стандарты и языки, которые macOS поддерживает для текста, даты, времени и календаря в строке меню, но меню доступны (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.10.2021Разработчик: Sindre SorhusПоддерживаемая ОС: macOS 11.5+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B50967CA22ABE252271081E9BCC089BE485041E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505202   (233795) от 26.10.2021
+
+Color Wheel 6.5 [Multi/Rus]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровой, абстрактный, классический - все типы цветовых кругов в одном приложении!Тип издания: macOS SoftwareРелиз состоялся: 25.10.2021Разработчик: Roman SevastyanovПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F25FA30F12056F7A96DB0ECD56A0EC2AA78725CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641045   (233784) от 20.06.2023
 
 Feeder 4 v.4.5.2 [En]
@@ -6,7 +59,7 @@ Feeder 4 v.4.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233784.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233777.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ SimpleMind − Mind Mapping 2.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233772.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ MacPilot 13 v13.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233771.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ Viper FTP 6.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233766.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ A Better Finder Rename 11 v11.39 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233755.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ Things 3 v3.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233749.jpg" />
 </div>
 
 
@@ -195,7 +248,7 @@ GraphicConverter for Mac 12.0.3 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233742.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ iTubeGo YouTube Downloader Pro for Mac 7.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233741.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ EdgeView 4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233733.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ TunesKit Screen Recorder 2.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233721.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ OnlySwitch 2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233714.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ QLab 5.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233709.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ Bartender 4 v4.1.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233687.jpg" />
 </div>
 
 
@@ -379,7 +432,7 @@ FoneDog Toolkit for Android 2.1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233685.jpg" />
 </div>
 
 
@@ -405,7 +458,7 @@ File List Export 2.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233682.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ System Dashboard 4.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233678.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ Invisor - Media File Inspector 3.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233675.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ Movist Pro 2.10.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233671.jpg" />
 </div>
 
 
@@ -512,7 +565,7 @@ ProFind 1.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233670.jpg" />
 </div>
 
 
@@ -538,7 +591,7 @@ Slidepad 1.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233667.jpg" />
 </div>
 
 
@@ -566,7 +619,7 @@ ToothFairy 2.7.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233661.jpg" />
 </div>
 
 
@@ -593,7 +646,7 @@ RightFont 8.0.2 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233660.jpg" />
 </div>
 
 
@@ -620,7 +673,7 @@ Screens 4.12.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233655.jpg" />
 </div>
 
 
@@ -631,59 +684,6 @@ Screens 4.12.8 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BA1418A41F1D83CA7F4296314D09632EEC54C06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511534   (233653) от 21.11.2021
-
-PullTube 1.7.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузка видео размещённым на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРелиз состоялся: 19.11.2021Разработчик: © 2020 MyMixAppsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D14B12A67A1E90CC470FD18132C48675B988880
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641238   (233651) от 21.06.2023
-
-BatchOutput PDF 2.4.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233651.jpg" />
-</div>
-
-
-###  Подробнее
-
-BatchOutput PDF упрощает вашу жизнь, автоматически распечатывая файлы PDF из папок на вашем компьютере. И это единственный инструмент для автоматизации печати PDF-файлов для Mac.
-Создавайте «горячие» папки для различных настроек печати и помещайте свои PDF-файлы в эти папки. BatchOutput PDF сделает все остальное автоматически, сэкономив вам время и хлопоты, связанные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.06.2023Разработчик: © 2012-2020 Zevrix SolutionsПоддерживаемая ОС: macOS 10.9.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30E5B15DC66B5BE5022F11502B73C1870782B8C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

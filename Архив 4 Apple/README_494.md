@@ -1,3 +1,58 @@
+###  Публикация: 1624282   (245289) от 05.04.2023
+
+Athentech Perfectly Clear WorkBench for Mac 4.4.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Athentech Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.04.2023Разработчик: © 2022 EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB2814902F66B1F391105A4647DBBAAFDC12762F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624233   (245284) от 05.04.2023
+
+Geekbench 6.0.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Geekbench 5 – бенчмарк для измерения производительности в реальных задачах
+Когда мы покупаем Mac или когда мы хотим быть уверены, что все компоненты нашей системы работают хорошо, мы, как правило, используем программы для выполнения тестов.
+Geekbench 5 предлагает обновленный интерфейс и ряд новых бенчмарков, которые созданы специально для измерения быстродействия (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.02.2023Разработчик: © Primate Labs Inc.Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F803C159A5929508B566FB22F825B3AF1980C9B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523015   (245275) от 09.01.2022
 
 Yate 6.8 [En]
@@ -6,7 +61,7 @@ Yate 6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245275.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ WiFiSpoof 3.8.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245270.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ Xojo 2022 Release 4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245269.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ OmniZip - Universal Extractor Pro for Mac 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245260.jpg" />
 </div>
 
 
@@ -113,7 +168,7 @@ Swift Publisher 5 v5.5.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245258.jpg" />
 </div>
 
 
@@ -139,7 +194,7 @@ Xliff Editor 2.9.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245251.jpg" />
 </div>
 
 
@@ -166,7 +221,7 @@ Dash 6.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245241.jpg" />
 </div>
 
 
@@ -192,7 +247,7 @@ ColorWell 7.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245236.jpg" />
 </div>
 
 
@@ -218,7 +273,7 @@ TaskPaper 3.8.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245234.jpg" />
 </div>
 
 
@@ -245,7 +300,7 @@ Nova 5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245228.jpg" />
 </div>
 
 
@@ -272,7 +327,7 @@ Debookee v8.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245222.jpg" />
 </div>
 
 
@@ -298,7 +353,7 @@ Downie 4 v4.1.19 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245214.jpg" />
 </div>
 
 
@@ -326,7 +381,7 @@ Clipboard Manager 2.3.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245213.jpg" />
 </div>
 
 
@@ -354,7 +409,7 @@ Reader for Mac 4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245208.jpg" />
 </div>
 
 
@@ -381,7 +436,7 @@ Piezo 1.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245207.jpg" />
 </div>
 
 
@@ -409,7 +464,7 @@ Iridient Developer 3.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245202.jpg" />
 </div>
 
 
@@ -435,7 +490,7 @@ Pixelmator Pro 3.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245200.jpg" />
 </div>
 
 
@@ -462,7 +517,7 @@ SyncBird Pro 3.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245193.jpg" />
 </div>
 
 
@@ -488,7 +543,7 @@ GM CHM Reader Pro for Mac 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245180.jpg" />
 </div>
 
 
@@ -514,7 +569,7 @@ Things 3 v3.13.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245175.jpg" />
 </div>
 
 
@@ -541,7 +596,7 @@ MouseBoost 3.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245159.jpg" />
 </div>
 
 
@@ -567,7 +622,7 @@ Invisible 2.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245158.jpg" />
 </div>
 
 
@@ -594,7 +649,7 @@ Capture One 23 Pro 16.1.2.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245157.jpg" />
 </div>
 
 
@@ -621,7 +676,7 @@ TransData: Internet Data Speed 2.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245155.jpg" />
 </div>
 
 
@@ -632,59 +687,6 @@ TransData: Internet Data Speed 2.9 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BAE7634E4F52F035E0CAEB6DB1CFF161FADD313
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621005   (245148) от 23.03.2023
-
-Wondershare Filmora for Mac  12.1.3  [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобный видеоредактор, содержащий все необходимые инструменты для редактирования видео. В вашем распоряжении все необходимые инструменты для создания фильма с использованием нужных вам титров, плюс вы сможете добавлять большое количество встроенных фильтров и эффектов переходов, есть возможность работать со звуковыми дорожками, в целом все как в остальных редакторах. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.03.2023Разработчик: © 2023 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C426F3E0B9F0697380BBCF4062C745F6B0B26F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609274   (245146) от 02.02.2023
-
-Athentech Perfectly Clear WorkBench for Mac 4 v.4.3.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Athentech Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.02.2023Разработчик: © 2022 EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D049E3688580AACCAB72A5B3E41EA63E5582CF69
 ```
 
 https://mybot314.ru/tekegram_catalog/

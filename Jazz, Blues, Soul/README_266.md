@@ -1,32 +1,3 @@
-###  Публикация: 926398   (535586) от 09.08.2015
-
-Rebecca Kilgore and Nicki Parrott - Two Songbirds Of A Feather (2015) [MP3|320 кб/с]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two Songbirds Of A Feather (03:48)
-02. A Woman's Perogitive (03:56)
-03. BlueMoon MoonGlow (04:15)
-04. El Cajon (03:21)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFA863BCFA651C056B139F28CF0E0E8ADAC929E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926108   (535581) от 09.08.2015
 
 Bugge Wesseltoft - Moving (2001) [FLAC|tracks +.cue]<Future Jazz>
@@ -35,7 +6,7 @@ Bugge Wesseltoft - Moving (2001) [FLAC|tracks +.cue]<Future Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535581.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Grover Washington Jr. - The Best Is Yet To Come (1982) Elektra [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535539.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Matthew Shipp - 4D (2010) Thirsty Ear [FLAC|Lossless|tracks + .cue] <Avant-Garde
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535490.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Mose Allison - My Backyard (1990) Blue Note [FLAC|Lossless|tracks + .cue] <Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535488.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Johnny Griffin - Congregation (1957) 2006, Blue Note [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535487.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Defunkt - Classic Defunkt (1996) [FLAC|Lossless|image + .cue] <Jazz-Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535484.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Dan Patlansky - Dear Silence Thieves (2014) [FLAC|image+.cue]<Blues, Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535473.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Josh Smith - Over Your Head (2015) [FLAC|image+cue]<Blues, Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535472.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Lester Bowie's Brass Fantasy - The Fire This Time (1992) [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535423.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Members Of The Woody Herman Orchestra - A Tribute To Woody Herman (1997) Green H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535422.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Weather Report - This Is This (1986) [FLAC|Lossless|image + .cue] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535416.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Weather Report - Domino Theory (1984) [FLAC|Lossless|image + .cue] <Jazz-Rock, F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535415.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Trudy Lynn - I'll Sing The Blues For You (2016) [MP3|320 Kbps] <Texas Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535315.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Detroit Blues Band - Real Life (1990) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535303.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Naniwa Express - No Fuse (1982) Sony[APE|Lossless|image + .cue] <Jazz Fusion, Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535141.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Ella Fitzgerald - Ella A Nice (1971) 1983, Pablo[FLAC|Lossless|image + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535131.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ VA - Pillow Talk (2018) [MP3|320 Kbps] <Soul, Boogie, Jazz>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535094.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Dickie Wells - 1927 - 1943 (1997) Classics [FLAC|Lossless|tracks + .cue] <New Or
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534499.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ James Williams - Magical Trio 2 (1988) Emarcy [FLAC|Lossless|tracks + .cue] <Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534498.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Gene Krupa & Harry James - The Complete Capitol Recordings Of Gene Krupa & Harry
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533768.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Mavis Rivers & Shorty Rogers - Mavis Meets Shorty (1962) /2014, Warner/[FLAC|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533663.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Lester Bowie's Brass Fantasy - I Only Have Eyes For You (1985) [FLAC|image+.cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533662.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Cedar Walton - Pit Inn (1974) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533659.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Stefano Di Battista - Trouble Shootin' (2007) EMI [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533624.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Jasmine Tommaso - Nelle Mie Corde (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533572.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ Jasmine Tommaso - Nelle Mie Corde (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DE1C4BC6FE1CCDEB976FF3548D396A9F5D037A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155530   (533534) от 03.08.2017
+
+Joyce Cooling - Global Cooling (2009) [FLAC|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grass Roots
+02. Global Cooling
+03. Save This Dance for Me
+04. Cobra(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A4D5AFC4117487124FB1A30DBF634ECEB7C933E
 ```
 
 https://mybot314.ru/tekegram_catalog/

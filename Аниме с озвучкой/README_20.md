@@ -1,3 +1,82 @@
+###  Публикация: 1388539   (786614) от 06.06.2020
+
+Tokyo Magnitude 8.0 | Токийское Восьмибалльное [2009, TV, 11 ep] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786614.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основе проекта лежит прогноз о 70% вероятности того, что в ближайшие тридцать лет в Токио произойдёт землетрясение силой 7.0 баллов. Данное аниме описывает, что же может случиться с Токио, если произойдёт землетрясение силой 8.0 баллов.
+Повествование ведётся от лица ученицы средних классов Мирай Онодзавы, на летних каникулах приехавшей со своим младшим братом Юки (   Читать дальше...   )Производство: Bones, ЯпонияЖанр: ДрамаРежиссер: Татибана МасакиОзвучка: Одноголосая, Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 11 Эпизодов по 23 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84ABAF0CAB1757817D38982CE267F27D62CED384
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388441   (786613) от 06.06.2020
+
+No Guns Life | Жизнь без оружия [TV-1] [2019, TV, 12 из 12] BDRip HEVC 10-bit 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Война закончилась, оставив после себя «Экстендов» — людей, части тел которых заменило оружие. Дзюдзо Инуи как раз из таких, — вместо головы у него револьвер, и он ничего не помнит о себе до преобразования. Дзюдзо желает лишь одного: найти того, кто сделал из него живое оружие, чтобы вернуть потерянные воспоминания. А пока Инуи зарабатывает на жизнь, расследуя дела, (   Читать дальше...   )Производство: Япония, студия Madhouse Studios / マッドハウスЖанр: приключенияРежиссер: Ито НаоюкиЯзык озвучки: Русский дублированный (Wakanim.tv), English дублированный (FUNimation)Субтитры: русские надписи, Русский, English, Français, PortuguêsПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7C6E7C06C96ED9350BEB982830F3747A6496CCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358851   (786612) от 06.06.2020
+
+Usagi Drop | Брошенный Кролик [2011, TV, 11 ep + 4 sp] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вернувшегося домой на похороны деда, тридцатилетнего холостяка Дайкичи Кавачи просто сбивает с ног шокирующее открытие: у его покойного деда есть незаконнорождённая дочь, которую родила молодая любовница. Остальные члены семьи шокированы в равной степени и возмущены таким сюрпризом — никто не хочет брать на себя ответственность опеки над маленькой молчаливой девочкой (   Читать дальше...   )Производство: Production I.G, ЯпонияЖанр: Комедия, Драма, ПовседневностьРежиссер: Камэй КантаОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи/ПолныеПродолжительность: 11 Эпизодов по 25 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37ADD7B7B08378C8A23C9A7C32092D11CED87EBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388540   (786611) от 06.06.2020
 
 Yakusoku no Neverland | Обещанный Неверленд [2019, TV, 12 ep] BDRip 1080p raw+rus
@@ -6,7 +85,7 @@ Yakusoku no Neverland | Обещанный Неверленд [2019, TV, 12 ep] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786611.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ Godzilla. Kessen Kidou Zoushoku Toshi | Годзилла. Город на Гра
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786492.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ Godzilla. Hoshi wo Kuu Mono | Годзилла. Пожиратель звёзд 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786491.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ Godzilla. Kaijuu Wakusei  | Годзилла. Планета Чудовищ [201
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786490.jpg" />
 </div>
 
 
@@ -112,7 +191,7 @@ Tenki no Ko | Weathering with You | Дитя погоды [2019, Movie] BDRip 72
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786486.jpg" />
 </div>
 
 
@@ -140,7 +219,7 @@ Youjo Senki / Saga of Tanya the Evil / Военная хроника мален�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785680.jpg" />
 </div>
 
 
@@ -167,7 +246,7 @@ Chaos;Child / Хаос; Дитя [2017, TV, 12] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785495.jpg" />
 </div>
 
 
@@ -193,7 +272,7 @@ Shirobako | Белая Коробка [2014, TV, 24 ep + 2 Specials] BDRip 1080p
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785041.jpg" />
 </div>
 
 
@@ -219,7 +298,7 @@ Non Non Biyori | Деревенская Глубинка [TV-1] [2013, TV, 12 ep
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785040.jpg" />
 </div>
 
 
@@ -245,7 +324,7 @@ Kidou Senshi Gundam F91 | Mobile Suit Gundam F91 | Мобильный воин �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784692.jpg" />
 </div>
 
 
@@ -271,7 +350,7 @@ Strike Witches: Operation Victory Arrow | Штурмовые Ведьмы: Оп�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784427.jpg" />
 </div>
 
 
@@ -298,7 +377,7 @@ Anime-Gataris | Аниме Истории [2017, TV, 12 ep] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784426.jpg" />
 </div>
 
 
@@ -324,7 +403,7 @@ Denpa Teki na Kanojo | Электромагнитная Подружка [2009, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784425.jpg" />
 </div>
 
 
@@ -350,7 +429,7 @@ Yagate Kimi ni Naru | В Конечном Счёте я Стану Твоей [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784423.jpg" />
 </div>
 
 
@@ -376,7 +455,7 @@ Go-Toubun no Hanayome | Пять Невест [TV-1] [2019, TV, 12 ep] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784422.jpg" />
 </div>
 
 
@@ -402,7 +481,7 @@ Gokudou-kun Manyuuki | Gokudo | Путешественник Гокудо [1999,
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784224.jpg" />
 </div>
 
 
@@ -428,7 +507,7 @@ Strike Witches the Movie | Штурмовые Ведьмы Фильм [2012, Mov
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784121.jpg" />
 </div>
 
 
@@ -454,7 +533,7 @@ Gabriel Dropout | Габриэль Бросает Школу [2017, TV, 12 ep + 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782989.jpg" />
 </div>
 
 
@@ -480,7 +559,7 @@ Kuroshitsuji / Black Butler / Темный дворецкий [2008, TV, 24 ep] 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782986.jpg" />
 </div>
 
 
@@ -506,7 +585,7 @@ Shokugeki no Souma: Ni no Sara | Кулинарные поединки Сомы 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781750.jpg" />
 </div>
 
 
@@ -532,7 +611,7 @@ Shokugeki no Souma: San no Sara | Кулинарные поединки Сомы
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781749.jpg" />
 </div>
 
 
@@ -559,7 +638,7 @@ New Game! | Новая игра! [TV-1] [2016, TV, 12 ep + OVA] BDRip 1080p 10-b
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780920.jpg" />
 </div>
 
 
@@ -585,7 +664,7 @@ Hajimete no Gal | My First Girlfriend Is a Gal | Моя первая гяру [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776260.jpg" />
 </div>
 
 
@@ -597,86 +676,6 @@ TV-1 (AniDub), (Anilibria), (Animedia), (AniPlay), (AniStar), (JWA Project), (SH
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38A92609456A22DBA90DE91E07D6531054518D1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212693   (774875) от 13.03.2018
-
-Noragami | Noragami Aragoto | Бездомный Бог | Бог-Бродяга | Бездомный Бог: Арагото [2014-2015, TV (1-2 season)+OVA] BDRip 1080р 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почти забытый всеми бог Ято мечтает стать самым уважаемым божеством в мире со своим храмом и прочей роскошью. Но, во-первых, денег у него нет, во-вторых, работать он желанием не горит, а, в-третьих, ко всему прочему, нашего героя оставляет очередное оружие.
-Как-то раз, когда Ято выполнял одно из заданий, старшеклассница Хиёри Ики, не подозревающая о божественном (   Читать дальше...   )Производство: Япония, BonesЖанр: экшен, приключения, мистика, комедияРежиссер: Тамура Котаро (Tamura Koutarou)Перевод: любительский, смешанный от: Fratelli, Firegorn-Team, LeDi-MaHo Team, AniLibria
-Все субтитры встроены в контейнер!Язык озвучки: Японский и русский (Anidub, AniLibria, SHIZA, Onibaku)Субтитры: Русские, любительскиеПродолжительность: 29 серий по ~24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72D22C595FF35B5FBAF4D21FEA05240951214AB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976159   (774680) от 10.05.2016
-
-Ajin (2016) / Получеловек [2016, TV, 13 ep] HDTV 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Адзин — форма жизни, принимающая человеческий облик, но обладающая поистине удивительными способностями. Полулюди бессмертны, способны на огромные физические нагрузки и часто вселяются в обычных людей. Охота на полулюдей — стала обычным делом, отрезают ноги, руки, даже сердце считается обычным трофеем в такой безжалостной войне. Люди боятся этого феномена и стараются (   Читать дальше...   )Жанр: приключения, мистика, драмаРежиссер: Сэсита ХироюкиПеревод: CafesubsСубтитры: ASS, Встроенные, Полные | Надписи «Cafesubs»Формат: MKVПродолжительность: 13 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8701DC6D8F3DF2AF60CF13F3228FD4F7F41625CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391537   (772430) от 21.06.2020
-
-Sewayaki Kitsune no Senko-san | Заботливая Лисица Сэнко [2019, TV, 12 ep] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772430.jpg" />
-</div>
-
-
-###  Подробнее
-
-В несчастливой и напряжённой жизни молодого служащего Накано вряд ли можно разглядеть позитивные моменты, что уж говорить об отдыхе и развлечениях. Парень с утра до вечера пашет на своей работе, уделяя ей почти всё свободное время. Но однажды ночью, вернувшись после очередного трудового дня и едва открыв дверь своего дома, он обнаружил, что какая-то маленькая и симпатичная (   Читать дальше...   )Производство: Doga Kobo, ЯпонияЖанр: Комедия, Романтика, ПовседневностьРежиссер: Косида ТомоакиОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 12 Эпизодов по 23 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADE5B58BC5109E6C86FDF9D5E78D206D6F2E364C
 ```
 
 https://mybot314.ru/tekegram_catalog/

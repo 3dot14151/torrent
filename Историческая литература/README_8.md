@@ -1,3 +1,107 @@
+###  Публикация: 1477847   (1010770) от 16.06.2021
+
+Сергей Глезеров | Предатели в русской истории. 1000 лет коварства, ренегатства, хитрости, дезертирства, клятвопреступлений и государственных измен… (2021) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предательство страшно тем, что от него невозможно уберечься: оно исходит от самых близких людей, которых мы любим и которым мы доверяем. Недаром Данте в «Божественной комедии» поместил предателей в самый страшный круг ада… У предательства как исторического явления – невероятная гамма форм и оттенков. Что считать предательством, можно ли его оправдать или понять? (   Читать дальше...   )Жанр: Популярно об историиФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7689577FC4AD3B1DA1CFCF04943E931D93B10F24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478089   (1010645) от 17.06.2021
+
+Борис Соколов | Рейх. История германской империи (2021) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Германская империя существовала с 1871 по 1945 г., хотя она и восходит к империи Карла Великого и Священной Римской империи. Созданная волей «железного канцлера» Бисмарка, она объединила разрозненные немецкие земли в сильное государство, которое разбило Францию, захватило ряд колоний. В дальнейшем Третий рейх под руководством Гитлера cмог подчинить себе почти всю (   Читать дальше...   )Жанр: Общая историяФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77D074C9C12A42B93AE08B197C1EE4AE4FC9AD46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481096   (1008564) от 01.07.2021
+
+Кэтрин Грей | Германия. Полная история страны (2021) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Германия. Страна под этим названием появилась не так давно. Сто пятьдесят лет назад. До этого германские княжества, объединённые общим языком и культурой, заключали союзы, воевали, ссорились и мирились. Их правители перекраивали карту Европы и решали судьбы мира. История германского народа богата на события. В ней есть как величайшие взлеты, невероятные достижения, (   Читать дальше...   )Жанр: Популярно об историиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B098710853482A0E25AF97ACA5F1C21248E0388A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481469   (1008258) от 03.07.2021
+
+Том Биркетт | Скандинавские мифы и легенды. Жизнеописания богов и героев с иллюстрациями и подробными комментариями (2021) [FB2, EPUB, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скандинавские мифы – яркий пример живой мифологии: истории обрастают новыми сюжетными поворотами, образами и деталями и адаптируются с течением времени, сохраняясь в различных вариантах. Эти поэтические и прозаические произведения, первоначально бытовавшие в устной традиции, наполнены множеством аллюзий и чрезвычайно сложны для изучения как в оригинальном виде, так (   Читать дальше...   )Жанр: Мифы / легенды / эпосПеревод: Владислав ФедюшинФормат: FB2, EPUB, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:730258B37EC8FFCC391C389EDB2D5DFF39EC2F99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482905   (1007284) от 10.07.2021
 
 А.А. Иванов | История Петербургских особняков. Дома и люди (2018) [PDF]
@@ -6,7 +110,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007284.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007182.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007154.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006729.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006375.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005582.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005181.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004594.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004581.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004551.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004227.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004032.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003595.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003444.jpg" />
 </div>
 
 
@@ -375,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003381.jpg" />
 </div>
 
 
@@ -401,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003362.jpg" />
 </div>
 
 
@@ -427,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003292.jpg" />
 </div>
 
 
@@ -455,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002943.jpg" />
 </div>
 
 
@@ -481,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002745.jpg" />
 </div>
 
 
@@ -509,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001013.jpg" />
 </div>
 
 
@@ -535,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000992.jpg" />
 </div>
 
 
@@ -562,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000846.jpg" />
 </div>
 
 
@@ -574,114 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CE75F2848B7A2528CBE023D713957DCADDA53FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605859   (995038) от 21.01.2013
-
-Эдвард Радзинский | Иван IV Грозный [2012] [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995038.jpg" />
-</div>
-
-
-###  Подробнее
-
-В страшные дни войны, когда немцы рвались к Москве, на стол к Иосифу Сталину попала пьеса А. Н. Толстого об Иване Грозном. Прочитав ее и, видимо, о чем-то раздумывая, Сталин несколько раз написал на задней стороне обложки одно слово – «Учитель».
-
-Учитель… но в чем? Сталинская любовь к Грозному связана с неким важнейшим вопросом, который когда-то задал наш великий историк Карамзин. И ответ на который скрывает история самого загадочного и самого кровавого из русских царей…Формат: FB2.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8098F2613A105CFA4553BDD6DD8F91FCE210FC1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607791   (994001) от 24.01.2013
-
-"Вече" | Книжная серия "Враги и союзники" (19 томов) [2009-2012] [FB2, DJVU, PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книrи рассматривают феномен Советского коллаборационизма на примере представителей народов СССР. Они стала результатом работы в архивах и библиотеках rермании. Особый интерес представляют документальные материалы различных учреждений националсоциалистической Германии как военных, так и rpажданских: материалы Министерства иностранных дел, Министерства по делам оккупированных восточных территорий (Восточноrо министерства), rлавноro управления СС, командования Восточных леrионов и различных военных соединений вермахта. Имеющийся материал позволяет с дoстаточной точностью воспроизвести одну из масштабных военнополитических афер Tpeтьero рейха  попытку орrанизовать военное и политическое сотрудничество с представителями народов СССР.
-Нацизм в Сербии, Словакии и Венгрии.
-Штурмовые отряды Националистической немецкой рабочей партии и многое другое.Формат: FB2 (9 книг), DJVU (8 книг), PDF (2 книги)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAF6A14471EC2CCF5B4463E0190DE2C6398D9B4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352988   (993277) от 16.01.2020
-
-Генри Дэвид Торо | Уолден, или Жизнь в лесу (1962) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993277.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1845 году молодой поэт принял решение бросить вызов индустриальному обществу, увлеченному погоней за материальными ценностями. Он выстроил себе дом на берегу пруда в лесах Массачусетса и провел там два года, отказавшись от достижений цивилизации и любой собственности. Автобиографическая книга Генри Торо, где он рассказывает об эксперименте, намного опередившем (   Читать дальше...   )Жанр: История, автобиографияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3CD288BFC068652C9C1606916794EFD9E156806
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348137   (993002) от 16.01.2020
-
-Марк Курлански | Молоко! Самый спорный продукт (2019) [PDF, EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Историю человечества невозможно себе представить без молока. Первая пища, которую мы пробуем в своей жизни, оставила след в религии, политике, культуре, экономике, медицине… Многие мифы о сотворении мира восходят к молоку. Древние греки, например, считали, что Млечный Путь появился, когда богиня женственности Гера пролила молоко при кормлении Геракла – каждая капля (   Читать дальше...   )Жанр: История, продукты питанияФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52424B94A280FA6C6A12AECD9E555211F7F6618E
 ```
 
 https://mybot314.ru/tekegram_catalog/

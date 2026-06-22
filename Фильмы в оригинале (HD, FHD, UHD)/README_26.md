@@ -1,3 +1,134 @@
+###  Публикация: 1536468   (674308) от 12.03.2022
+
+Человек-паук: Нет пути домой / Spider-Man: No Way Home (2021) BDRip [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь и репутация Питера Паркера оказываются под угрозой, поскольку Мистерио раскрыл всему миру тайну личности Человека-паука. Пытаясь исправить ситуацию, Питер обращается за помощью к Стивену Стрэнджу, но вскоре всё становится намного опаснее.Производство: США / Columbia Pictures, Marvel Studios, Pascal PicturesЖанр: фантастика, боевик, приключенияРежиссер: Джон УоттсАктеры: Том Холланд, Зендея, Мариса Томей, Бенедикт Камбербэтч, Энгаури Райс, Дж.К. Симмонс, Альфред Молина, Джейми Фокс, Мартин Старр, Джейкоб БаталонПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (Full, SDH)Продолжительность: 02:28:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A36987287DEF7E2728BEE84EB05A8E7FBC7907D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135840   (674220) от 22.05.2017
+
+Т2 Трейнспоттинг (На игле 2) / T2 Trainspotting (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошло двадцать лет. Рентон возвращается в единственное место, которое может считать своим домом. Они все ждут его: Кочерыжка, Кайфолом и Бегби. А вместе с ними другие старые знакомые: месть и страх, ненависть и любовь, дружба, сожаление и надежда. Все они выстроились в шеренгу, приветствуя Рентона, и он, кажется, готов к ним присоединиться.Производство: Великобритания, DNA Films, Decibel Films, Cloud Eight FilmsЖанр: ДрамаРежиссер: Дэнни БойлАктеры: Юэн МакГрегор, Юэн Бремнер, Джонни Ли Миллер, Роберт Карлайл, Кевин МакКидд, Кайл Фицпатрик, Келли Макдоналд, Анжела Недялкова, Полин Линч, Джеймс Космо ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (форсированные на иностранную речь (не английскую))Продолжительность: 01:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A125EC28E3D43FE535EA7E5EDD4D55549EABCF6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136290   (674216) от 22.05.2017
+
+Хижина / The Shack  (2017) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мистические события происходят в судьбе главного героя, переживающего трагедию. Он получает личное приглашение встретиться с самим Всевышним в очень уединенном месте...Производство: СШАЖанр: фэнтези, драмаРежиссер: Стюарт ХэзелдайнАктеры: Сэм Уортингтон, Октавия Спенсер, Тим МакГроу, Рада Митчелл, Меган Чарпентье, Гейдж Манро, Амели Ив,  Сумирэ Мацубара, Алиси Брага, Грэм Грин, Райан РоббинсПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 02:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FA51F18D14AAF8A091DFFF1C0B8DF3837AA53A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029714   (674158) от 30.06.2016
+
+Большой всплеск / A Bigger Splash (2015) BDRemux [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рок-звезда Марианна Лэйн и ее бойфренд наслаждаются отдыхом на юге Италии. Островную идиллию пары нарушает визит Гарри, бывшего любовника Марианны, и его взрослой дочери. Легкомысленная игра, невинный флирт, настоящая страсть и всепоглощающая ревность обернутся для героев смертельной опасностью.Производство: Италия, Франция / Frenesy Film Company, Cota Film, StudioCanal, Ministero per i Beni e le Attività Culturali (MiBAC), Regione Siciliana, Sicilia Film Commission, Sensi Contemporanei Cinema e AudiovisivoЖанр: Триллер, Криминал, ДетективРежиссер: Лука ГуаданьиноАктеры: Тильда Суинтон, Маттиас Шонартс, Рэйф Файнс, Дакота Джонсон, Коррадо Гуццанти, Алессандро Феррара, Дэвид Маддалена, Сальваоре Габриэле, Ливио Франко Бландино, Аврора Клеман,..Перевод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийПродолжительность: 02:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A97029EF50ED35EAA3158E90093A241114869B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290840   (673832) от 22.03.2019
+
+Счастливого нового дня смерти / Happy Death Day 2U (2019) WEBRip [H.264/1080p-LQ] [EN / Kor Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673832.jpg" />
+</div>
+
+
+###  Подробнее
+
+На прошлый день рождения судьба преподнесла ей сомнительный подарок — праздник повторялся снова и снова, а в финале её неизменно убивал маньяк в маске. То ли дело в этом году: какое счастье проснуться с утра пораньше и оказаться в той же самой петле времени! Только теперь с тобой умирают все твои друзья…
+Смертельная тоска? Нет, бесконечное веселье!Производство: США, Blumhouse Productions, Digital Riot MediaЖанр: Ужасы, Триллер, ДетективРежиссер: Кристофер ЛэндонАктеры: Джессика Рот, Израэль Бруссар, Фи Ву, Сурадж Шарма, Сара Яркин, Рэйчел Мэттьюз, Руби Модин, Стив Зиссис, Чарльз Эйткин, Лаура КлифтонПеревод: ОтсутствуетЯзык озвучки: английский (оригинал)Субтитры: Корейские (хардсаб)Продолжительность: 01:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80B2BE1877B250C245C6F134018AE0E8583E249D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223491   (672953) от 05.05.2018
 
 Чёрная Пантера / Black Panther  (2018) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
@@ -6,7 +137,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672953.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671233.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671103.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670632.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670621.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669476.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668262.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667660.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666991.jpg" />
 </div>
 
 
@@ -240,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666599.jpg" />
 </div>
 
 
@@ -266,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666393.jpg" />
 </div>
 
 
@@ -292,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666392.jpg" />
 </div>
 
 
@@ -318,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666316.jpg" />
 </div>
 
 
@@ -344,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665874.jpg" />
 </div>
 
 
@@ -370,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665288.jpg" />
 </div>
 
 
@@ -396,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665126.jpg" />
 </div>
 
 
@@ -422,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664718.jpg" />
 </div>
 
 
@@ -448,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663700.jpg" />
 </div>
 
 
@@ -474,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663694.jpg" />
 </div>
 
 
@@ -500,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663648.jpg" />
 </div>
 
 
@@ -526,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662020.jpg" />
 </div>
 
 
@@ -537,136 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7942F6DA8448E214544555E6F50A646D9363D5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138799   (661928) от 31.05.2017
-
-Лекарство от здоровья / A Cure for Wellness  (2016) BDRemux [H.264/1080p] [EN / EN and other Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой амбициозный сотрудник отправляется в затерянный в швейцарских Альпах оздоровительный центр, чтобы вернуть оттуда руководителя своей компании. Но по прибытии он понимает, что чудодейственные процедуры спа-салона вовсе не те, чем кажутся. В то время как парень начинает распутывать страшные тайны этого места, его здравый ум проходит настоящую проверку на прочность. (   Читать дальше...   )Производство: Германия, СШАЖанр: ужасы, фантастика, фэнтези, триллер, драма, детективРежиссер: Гор ВербинскиАктеры: Дэйн ДеХаан, Джейсон Айзекс, Миа Гот, Иво Нанди, Адриан Шиллер, Селия Имри, Гарри Гронер, Томас Норстрем, Ашок Манданна, Магнус Креппер, Питер Бенедикт, Михаэль МендльПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанские, французские, китайские, хорватские, чешские, португальские, греческие, иврит, исландские, хинди, венгерские, малайские, румынские, сербские, словацкие, словенские, тайские, турецкие, вьетнамские, арабские, болгарскиеПродолжительность: 02:26:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D481C0889148AC53A1629D64F865DB52C97A9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902524   (660698) от 28.05.2015
-
-Век Адалин / The Age of Adaline  (2015) WEB-DL [H.264/1080p-LQ] [EN / Ro, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660698.jpg" />
-</div>
-
-
-###  Подробнее
-
-По сюжету главная героиня родилась вместе с XX веком и живет на свете уже сто лет, но при этом не стареет. Несмотря на свою долгую жизнь, Адалин так и не смогла найти любимого человека. Однако наконец-то она встречает мужчину, ради которого сможет снова стать смертной и состариться вместе с ним.Производство: США, Lakeshore Entertainment, Sidney Kimmel Entertainment, Sierra / AffinityЖанр: драма, мелодрамаРежиссер: Ли Толанд КригерАктеры: Блейк Лайвли, Михил Хаушман, Кэти Бейкер, Харрисон Форд, Эллен Бёрстин, Аманда Крю, Линда Бойд, Хью Росс, Ричард Хэрмон, Фульвио Чечере, Анджали Джай, Хиро КанагаваПеревод: ОтсутствуетЯзык субтитров: румынский, английскийПродолжительность: 01:52:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31CE2411E2201E95C5B2E0BD717B41C8D85789A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139459   (659897) от 02.06.2017
-
-Исключение / The Exception (2016) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нидерланды 40-х годов. После вторжения нацистов агенты Сопротивления пытаются внедрить своего человека в дом экс-кайзера Вильгельма II. На этом фоне между офицером СС и прекрасной молодой еврейкой вспыхивает страстный роман, последствия которого оказываются непредсказуемыми как для влюбленных, так и для самого кайзера.Производство: США, Великобритания / Egoli Tossell KLK, Alton Road Productions, Ostar ProductionsЖанр: ДрамаРежиссер: Давид ЛевоАктеры: Loïs van Wijk, Лили Джеймс, Джай Кортни, Кристофер Пламмер, Эдди Марсан, Бен Дэниелс, Джанет МакТир, Марк Декстер, Верона Вербакель, Даан Ауфенаккер, Дин Константин Гэйгани ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:808DD607734C37A2F62241DBE4AA3EC74BACFF57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139467   (659804) от 02.06.2017
-
-Живое / Life (2017) WEB-DL [H.264/1080p-LQ] [EN]
-
->>След.
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа исследователей с международного космического корабля обнаруживает жизнь на Марсе. Они еще не подозревают, какие события повлечет за собой их открытие.Производство: США, Columbia Pictures, Skydance Media, Sony Pictures Entertainment (SPE)Жанр: Ужасы, Фантастика, ТриллерРежиссер: Даниэль ЭспиносаАктеры: Хироюки Санада, Райан Рейнольдс, Ребекка Фергюсон, Джейк Джилленхол, Ольга Дыховичная, Эрион Бакаре, Хесус Дель Орден, Аллен МакЛин, Лейла Грэйс Боствик-Ридделл, Мари Гвелесиани ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE4212CE5656F4DFB37C7CF70B0755841504F11B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139817   (658656) от 03.06.2017
-
-Последнее лицо / The Last Face  (2016) BDRemux [H.264/1080p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Директор международной гуманитарной организации в Африке встречается с врачом гуманитарной помощи во время политической/социальной революции. Вместе им предстоит пережить эти непростые времена.Производство: СШАЖанр: драмаРежиссер: Шон ПеннАктеры: Шарлиз Терон, Хавьер Бардем, Адель Экзаркопулос, Джаред Харрис, Жан Рено, Денис Ньюман, Оскар Бест,  Себелету Бонколо, Хоппер Пенн, Мерритт Уивер, Тина ЯхаПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:10:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4EDD92ED348D146B60A1C17D883F7F5EBBC1141
 ```
 
 https://mybot314.ru/tekegram_catalog/

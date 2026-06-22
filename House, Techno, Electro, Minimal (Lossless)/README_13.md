@@ -1,3 +1,90 @@
+###  Публикация: 990684   (910025) от 26.02.2016
+
+VA - Salvacion Ibiza (2003) [FLAC|Lossless|tracks + .cue] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_910025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam La More - Takin' Hold (6:00)
+02. Demetreus - Better Love (5:50)
+03. Noferini & DJ Guy - A Sunny Day (5:19)
+04. Gaudino feat. Crystal Waters - Destination Unknown (5:05)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:09:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23976FCC2A27E61CB5EDCEF7AF1753C09480DC7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368478   (909253) от 20.03.2020
+
+Four Tet - Sixteen Oceans (2020) Text Records [FLAC|Lossless|tracks+.cue] <House, Ambient, Tech House, Downtempo, IDM, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. School (04:02)
+ 02. Baby (04:24)
+ 03. Harpsichord (02:54)
+ 04. Teenage Birdsong (03:25)(   Читать дальше...   )Жанр: House, Ambient, Tech House, Downtempo, IDM, MinimalПродолжительность: 00:54:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5342A3F42D185FD2DBA9554B69256DCCC6F2AC5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246925   (908845) от 20.03.2020
+
+SHXCXCHCXSH | HSXCHCXCXHS - Discography 15 Releases (2012-2020) Avian, Rösten [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental, Industrial, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VOOO (05:35)
+ 02. OPPP (06:02)
+ 03. POPP (05:52)
+ 04. VVOV (05:58)Жанр: Techno/IndustrialПродолжительность: 08:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB6C891FBA24505BAF78347ED91579CB08AAACCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990805   (908021) от 27.02.2016
 
 Eric Prydz vs. CHVRCHES - Tether (2015) Single [FLAC|tracks|WEB-DL]<Progressive House>
@@ -6,7 +93,7 @@ Eric Prydz vs. CHVRCHES - Tether (2015) Single [FLAC|tracks|WEB-DL]<Progressive 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908021.jpg" />
 </div>
 
 
@@ -32,7 +119,7 @@ Eric Prydz - Opus (2016) [FLAC|tracks|WEB-DL]<House, Progressive House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907923.jpg" />
 </div>
 
 
@@ -61,7 +148,7 @@ Dani Corbalan - Best of . 2019 (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907425.jpg" />
 </div>
 
 
@@ -90,7 +177,7 @@ Sofi Tukker - Treehouse (2018) [FLAC|Lossless|tracks + .cue] <Dance-pop, Indie P
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907214.jpg" />
 </div>
 
 
@@ -119,7 +206,7 @@ HVL | Kaiji | Kiyadama - Discography 23 Releases (2013-2021) Rough House Rosie [
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906929.jpg" />
 </div>
 
 
@@ -148,7 +235,7 @@ VA - Космонавт и Спутники - Наверх (2010) [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906872.jpg" />
 </div>
 
 
@@ -174,7 +261,7 @@ VA - Live In Montreal (Mixed By John Digweed) (2016) [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906056.jpg" />
 </div>
 
 
@@ -203,7 +290,7 @@ Scooter - Ace (2016) [FLAC|Lossless|image + .cue] <Techno, Hardstyle, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905905.jpg" />
 </div>
 
 
@@ -232,7 +319,7 @@ VA - Klubb House 2006 (2006) [FLAC|Lossless|tracks + .cue] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904228.jpg" />
 </div>
 
 
@@ -261,7 +348,7 @@ Krewella - zer0 (2020) [FLAC|Lossless|WEB-DL|tracks] <Dance, Electronic>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903815.jpg" />
 </div>
 
 
@@ -290,7 +377,7 @@ Clarke : Hartnoll  (Vince Clarke & Paul Hartnoll) - 2Square (2016) [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901870.jpg" />
 </div>
 
 
@@ -319,7 +406,7 @@ VA - Потанцуем ? (2000) S&V #03/2000 [FLAC|Lossless|tracks + .cue] <Eur
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901015.jpg" />
 </div>
 
 
@@ -348,7 +435,7 @@ VA - Hypnotized Creations Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899842.jpg" />
 </div>
 
 
@@ -377,7 +464,7 @@ VA - Kontor Festival Sounds 2017.01 The Beginning (2017) [FLAC|Lossless|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899528.jpg" />
 </div>
 
 
@@ -406,7 +493,7 @@ Duckson - Stuff i did last year (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898569.jpg" />
 </div>
 
 
@@ -435,7 +522,7 @@ Pablo Moriego - Deep House Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898539.jpg" />
 </div>
 
 
@@ -464,7 +551,7 @@ Alex Spite - Melodic Cosmonaut (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898535.jpg" />
 </div>
 
 
@@ -493,7 +580,7 @@ Satin Jackets - Solar Nights (The Remixes) (2019) [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898529.jpg" />
 </div>
 
 
@@ -522,7 +609,7 @@ Scooter - The Ultimate Aural Orgasm (2007) [FLAC|Lossless|tracks + .cue] <Trance
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897289.jpg" />
 </div>
 
 
@@ -551,7 +638,7 @@ Dr. Alban - The Very Best Of 1990 - 1997 (1997) [FLAC|Lossless|tracks + .cue] <E
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896949.jpg" />
 </div>
 
 
@@ -580,7 +667,7 @@ Headkube - Live in Turin (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895289.jpg" />
 </div>
 
 
@@ -609,7 +696,7 @@ VA - Urban Dance Vol.19 (2017) [FLAC|Lossless|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894430.jpg" />
 </div>
 
 
@@ -638,7 +725,7 @@ Crooked Colours - Langata (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Orga
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894209.jpg" />
 </div>
 
 
@@ -652,93 +739,6 @@ Crooked Colours - Langata (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Orga
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEF4F0D500027EA82535CCF35CFA1E20CA90624C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992759   (893803) от 06.03.2016
-
-Lady Gaga - The Remix (2010) [FLAC|Lossless|tracks + .cue] <Progressive House, House, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Dance (Richard Vission remix) (6:14)
-02. Poker Face (LLG vs. GLG radio mix remix) (4:03)
-03. Lady Gaga feat. Marilyn Manson - LoveGame (Chew Fu Ghettohouse mix) (5:21)
-04. Eh, Eh (Nothing Else I Can Say) (FrankMusik remix) (3:49)(   Читать дальше...   )Жанр: Progressive House, House, ElectroПродолжительность: 01:17:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED2B9B2B066DFF12EEE87660D6F8C6D3E1F213C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993475   (893455) от 06.03.2016
-
-Etienne De Crecy - Super Discount 3 (2015) [FLAC|Lossless|tracks + .cue] <Electro, House, Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night (Cut The Crap) (5:23)
-02. You (with Madeline Follin) (3:34)
-03. WTF (with Pos & Dave) (3:34)
-04. Hashtag My Ass (3:12)(   Читать дальше...   )Жанр: Electro, House, DiscoПродолжительность: 00:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1948673A4F094C373A70DAF83FEDC781D1F83AB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994310   (891542) от 07.03.2016
-
-VA - Die Hit-Giganten - Hits Der 90er (2004) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Euro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haddaway - What Is Love (4:28)
-02. Londonbeat - I've Been Thinking About You (3:48)
-03. Crystal Waters - Gypsy Woman (La da Dee la da Da) (3:42)
-04. Robin S. - Show Me Love (4:25)(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 01:15:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5732EB870F467ADCD53904E567AA295D7DC072EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

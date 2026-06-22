@@ -1,3 +1,108 @@
+###  Публикация: 1106540   (871554) от 20.02.2017
+
+Л.Д. Троцкий | Моя жизнь Опыт автобиографии [В двух томах] (1930) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наше время снова сильно обильно мемуарами, может быть более, чем когда-либо. Это потому, что есть о чём рассказывать. Интерес к текущей истории тем напряжённее, чем драматичнее эпоха, чем богаче она поворотами. "Пересечённые" эпохи, как наша, порождают потребность взглянуть на вчерашний и уже столь далёкий день глазами его активных участников.
+Может быть (   Читать дальше...   )Жанр: Мемуары, АвтобиографияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:138172A441222E264B072ED5E890A985AF2F65AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106561   (871047) от 20.02.2017
+
+В.И. Ленин | Сочинения (Издание четвертое) [48 книг] (1941-1967) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871047.jpg" />
+</div>
+
+
+###  Подробнее
+
+По постановлению ЦК ВКП(б) (1940) начало выходить 4-е издание Сочинений Ленина. Объем его вначале был определен в 35 томов, затем увеличен до 45. В него было включено много новых документов, в т. ч. последние работы Ленина по важнейшим вопросам социалистического строительства и политики партии: «Письмо к съезду», «О придании законодательных функций Госплану», «К (   Читать дальше...   )Жанр: история, философия, социология, политология, политэкономия, публицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E559A6D1645072115089A645C56AF41FF4CC141
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374820   (870770) от 11.04.2020
+
+A.M. Стриннгольм | Походы викингов (2003) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами одна из самых известных книг, рассказывающих о походах викингов, государственном устройстве, нравах и обычаях древних скандинавов. С момента её издания она многократно переиздавалась и продолжает оставаться одним из авторитетнейших исследований по истории Скандинавии эпохи викингов Стриннгольма имеет большую ценность и как исторический труд, и как популярная (   Читать дальше...   )Жанр: ИсторияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D0F4FBD3763D0AAD108462C3AC86C9113747C06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374650   (870516) от 11.04.2020
+
+Джоэл Харрингтон | Праведный палач. Жизнь, смерть, честь и позор в XVI веке (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды профессор истории Университета Вандербильда Джоэл Харрингтон на пыльных полках букинистического магазина в Германии обнаружил дневники Мейстера Франца Шмидта, написанные в XVI веке в городе Нюрнберге. В течение 45 лет господин Шмидт убил и искалечил сотни людей. Он работал палачом. Уникальный исторический документ не должен был просто пропасть. Так родилась (   Читать дальше...   )Жанр: История Средних веков, Популярно об историиПеревод: Тимофей РаковФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD562EDC5B98A6B7F84CD45ACB4D9BA70A38DE65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998018   (870280) от 19.03.2016
 
 Тим Милн | Ким Филби. Неизвестная история супершпиона КГБ. Откровения близкого друга и коллеги по МИ-6 (2016) [FB2]
@@ -6,7 +111,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870280.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870209.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868403.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868324.jpg" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868234.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868229.jpg" />
 </div>
 
 
@@ -164,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868129.jpg" />
 </div>
 
 
@@ -190,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867856.jpg" />
 </div>
 
 
@@ -216,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867854.jpg" />
 </div>
 
 
@@ -242,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867791.jpg" />
 </div>
 
 
@@ -270,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866485.jpg" />
 </div>
 
 
@@ -297,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866471.jpg" />
 </div>
 
 
@@ -324,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866468.jpg" />
 </div>
 
 
@@ -350,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866370.jpg" />
 </div>
 
 
@@ -376,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866363.jpg" />
 </div>
 
 
@@ -402,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866359.jpg" />
 </div>
 
 
@@ -428,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866107.jpg" />
 </div>
 
 
@@ -454,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865312.jpg" />
 </div>
 
 
@@ -480,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864622.jpg" />
 </div>
 
 
@@ -506,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864573.jpg" />
 </div>
 
 
@@ -532,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864535.jpg" />
 </div>
 
 
@@ -558,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863751.jpg" />
 </div>
 
 
@@ -569,111 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55824D5484260CE5690D5F51EF456575CF94BF6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999947   (862947) от 23.03.2016
-
-Арчи Браун | Взлет и падение коммунизма (2014) [PDF, DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Расцвет коммунизма — наиболее важный политический процесс первой половины XX в. не только в России и СССР, но и во всем мире. Во второй половине столетия самой кардинальной политической переменой стало отстранение коммунистов от власти в Европе и упадок коммунизма за ее пределами. Нашумевшая книга Арчи Брауна, переведенная и изданная в девяти странах, представляет (   Читать дальше...   )Жанр: История, Политические партии и движенияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5997939E6684532B0E571C1B43AF8C12EAB1F078
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108807   (862351) от 25.02.2017
-
-П.И. Кеппен | О виноделии и винной торговле в России (1832) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862351.jpg" />
-</div>
-
-
-###  Подробнее
-
-В представленном здесь труде дан экскурс в историю потребления вина в России, начиная с эпохи Древней Руси. Приведены подробные сведения о различных сортах винограда и вина, получаемого из него на момент написания работы. Также приводятся статистические сведения, в частности, сведения о производстве вина в России и его импорте в начале XIX в, о пошлинах на ввозимые (   Читать дальше...   )Жанр: история Отечества, история виноделия, раритетФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A11D4B4E10989E8C6FCA341A8F68DC32355FE8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 768455   (862319) от 19.03.2014
-
-А.В. Венков | Казаки против Наполеона. От Дона до Парижа (2013) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга известного российского историка А.В. Венкова рассказывает об участии донского казачества в Заграничном походе Русской армии в 1813—1814 гг. Наряду с описанием боевых действий, автор рассказывает о военной подготовке казачества, особенностях тактики, принципах организации разведки и охранения, униформе.
- В 1813 г. казачество стало основной ударной силой Русской (   Читать дальше...   )Жанр: ИсторияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96E6E466566EAB4D61EF85A89BF37A189864BD3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000477   (859313) от 25.03.2016
-
-Д. И. Чесноков | Советское социалистическое государство (1952) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вопрос о государстве и революции, как и все вопросы марксистской теории, имеет не только громадное теоретическое, но и непосредственное практически-политическое значение. Из всех вопросов марксистской теории вопрос о государстве прежде всего и самым непосредственным образом связан с насущными нуждами освободительной борьбы рабочего класса и всех трудящихся масс. (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE9540AA0FDAB13EE95B32D18CC9C55E5756F67D
 ```
 
 https://mybot314.ru/tekegram_catalog/

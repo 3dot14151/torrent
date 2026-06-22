@@ -1,3 +1,110 @@
+###  Публикация: 1161454   (467563) от 28.08.2017
+
+И.В. Сталин | Речь на совещании передовых комбайнеров и комбайнерок СССР с членами ЦК ВКП(б) и правительства. Речь на совещании передовых колхозников и колхозниц Таджикистана и Туркменистана с руко ...
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брошюра содержит две стенограммы речей, произнесённых Иосифом Виссарионовичем Сталиным:
+1. Речь на совещании передовых комбайнеров и комбайнерок СССР с членами ЦК ВКП(б) и правительства 1 декабря 1935г.
+2. Речь на совещании передовых колхозников и колхозниц Таджикистана и Туркменистана с руководителями партии и правительства 4 декабря 1935.Жанр: историяФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D4BB4FB659537FED7F7657E0101316B352A918A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161422   (467475) от 28.08.2017
+
+И.В. Сталин | Речь на XIX съезде партии (1953) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стенограмма речи, произнесённой Иосифом Виссарионовичем Сталиным на XIX съезде Коммунистической партии Советского Союза 14 октября 1952 года.Жанр: историяФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1185F8C991FFEA34DC46A14744335387A33E4C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548492   (466749) от 18.09.2012
+
+Книжная серия "Оклеветанная Русь" (15 томов) [2005 – 2007] [FB2, DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оклеветанная Русь - серия книг по истории России издательства Эксмо, в которых делаются попытки разобраться, в том, кто виноват в бедах страны под названием Россия и кто же клевещет на неё. Прочитав эту серию, можно получить ответ на эти вопросы - это мы, россияне. Лишь от нас самих зависит судьба нашей страны, ее счастье и наше благополучие!Формат: FB2 (8 книг), DJVU (7 книг)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9378A42B106F31C1AED5F84FAF5567C494BEF722
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161494   (465704) от 29.08.2017
+
+А.И. Хмельков (сост.) | Сталин в Царицыне (1940) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465704.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Сталин в Царицыне" - сборник документов о военной работе товарища Сталина Иосифа Виссарионовича на Царицынском фронте.
+Издание второе, дополненное новыми документами.Жанр: историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F3C3C4E28AFF814D2A028DCE3205FA02119EB6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1161519   (465703) от 29.08.2017
 
 А. Серебренников (сост.) | Хрущев о Сталине (1989) [DJVU]
@@ -6,7 +113,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465703.jpg" />
 </div>
 
 
@@ -35,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465702.jpg" />
 </div>
 
 
@@ -62,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465701.jpg" />
 </div>
 
 
@@ -89,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465699.jpg" />
 </div>
 
 
@@ -115,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465646.jpg" />
 </div>
 
 
@@ -141,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465640.jpg" />
 </div>
 
 
@@ -167,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464947.jpg" />
 </div>
 
 
@@ -193,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464895.jpg" />
 </div>
 
 
@@ -219,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464884.jpg" />
 </div>
 
 
@@ -245,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464758.jpg" />
 </div>
 
 
@@ -271,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464361.jpg" />
 </div>
 
 
@@ -297,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463708.jpg" />
 </div>
 
 
@@ -323,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463655.jpg" />
 </div>
 
 
@@ -349,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463654.jpg" />
 </div>
 
 
@@ -376,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463650.jpg" />
 </div>
 
 
@@ -403,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463643.jpg" />
 </div>
 
 
@@ -429,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463584.jpg" />
 </div>
 
 
@@ -455,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463579.jpg" />
 </div>
 
 
@@ -481,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463575.jpg" />
 </div>
 
 
@@ -507,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463347.jpg" />
 </div>
 
 
@@ -533,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462849.jpg" />
 </div>
 
 
@@ -559,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462710.jpg" />
 </div>
 
 
@@ -570,112 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:451FED6BC7BA535C6A72FCB7C2267D9E70514F46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941476   (462509) от 27.09.2015
-
-Сабит Ахматнуров | Распад Тюркского каганата. VI–VIII вв. (2015) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пора согласиться с точкой зрения великих русских евразийцев начала ХХ столетия, что у России своя евразийская цивилизация, – утверждает автор. Тысячи лет здесь народы удивляли мир не только своею воинственностью, вооружением или древним ювелирным искусством, но литературой, музыкой, художественными произведениями, архитектурой.
-
-Народы бывших союзных республик нынче (   Читать дальше...   )Жанр: История, археология, этнографияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08126BD028C38ED29A42E2056224D18E097D1F65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058985   (462101) от 04.10.2016
-
-К. Баллод | Государство будущего (1906) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462101.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге профессор К. Баллод (Баллодис) сделал попытку показать трансформацию капиталистической Германии из ее тогдашнего состояния в социалистическое общество мирным путем и описать суть социализма. При этом социализм явился бы более экономной системой, чем капитализм. Работа стала одним из оснований для разработки плана ГОЭЛРО.Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22F5AC1011BA886BE44F862516EFCBCEEB912C82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059521   (461978) от 04.10.2016
-
-Н. И. Бухарин | Енчмениада [к вопросу об идеологическом вырождении] (1923) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чрезвычайная запутанность наших социально-экономических отношений, одновременное сосуществование самых разнообразных хозяйственных форм и соответствующих им людских группировок, сложный переплет этих элементов, их крайняя подвижность и т. д., — все это неизбежно выплывает и дает себя знать не только в сфере политических настроений и политических формулировок, но (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B19C95F85CBB6EF6FFBA5DA895DC675BD69D1F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059405   (461972) от 04.10.2016
-
-М. П. Павлович | Милитаризм , маринизм и война 1914-1918 гг. [Воен. бюджеты и воен. силы европ. государств накануне войны] (1918) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вопрос о политике вооруженного мира накануне войны, о всеобщей милитаризации бюджетов и росте налогового бремени, падавшего на народные массы, настолько важен, что ни один серьезный исследователь, поставивший своей задачей изучение причин войны и условий, благоприятствовавших катастрофе, разразившейся над Европой в 1914 г., не сумеет его обойти.Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26E57E51C48F6ED39D0B7A3A27FEE0CAB6BD6428
 ```
 
 https://mybot314.ru/tekegram_catalog/

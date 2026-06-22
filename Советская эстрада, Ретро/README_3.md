@@ -1,61 +1,3 @@
-###  Публикация: 1068676   (380447) от 01.11.2016
-
-Вадим Козин - Последний концерт (1995) [MP3|320 Kbps] <Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. О матери
- 02. Над рекой
- 03. Стан журавлиный
- 04. День и ночь (по Киплингу)(   Читать дальше...   )Жанр: РетроПродолжительность: 00:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EA94C2D3BDF1AFA99C5E5ED0660CFE10AC34289
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068634   (380273) от 01.11.2016
-
-Вадим Козин - К 100-летию со дня рождения (2003) [MP3|320 Kbps] <Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Любушка
- 02 - Маша
- 03 - Осень
- 04 - Мой костер(   Читать дальше...   )Жанр: РетроПродолжительность: 01:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA3D18A4AD7E18E10B7003CF0129E979C4B605D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 250957   (379847) от 28.10.2010
 
 VA - Ретро перепевки (2008) [MP3|320 kbps]<Retro, Pop>
@@ -64,7 +6,7 @@ VA - Ретро перепевки (2008) [MP3|320 kbps]<Retro, Pop>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379847.jpg" />
 </div>
 
 
@@ -90,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379006.jpg" />
 </div>
 
 
@@ -119,7 +61,7 @@ VA - Звездная Италия. Хиты 80-х (2010) [MP3|128 kbps]<Pop>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372966.jpg" />
 </div>
 
 
@@ -145,7 +87,7 @@ Louis Prima & Keely Smith - Buona Sera (1999) [MP3|320 кб/с]<pop>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372786.jpg" />
 </div>
 
 
@@ -171,7 +113,7 @@ VA - Суперхиты дискотеки 90-х ...продолжение (2011
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370542.jpg" />
 </div>
 
 
@@ -206,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370424.jpg" />
 </div>
 
 
@@ -241,7 +183,7 @@ VA - Суперхиты дискотеки 90-х. Золотые баллады 
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370092.jpg" />
 </div>
 
 
@@ -276,7 +218,7 @@ White Nights Brass - Soviet Retro (2003) [MP3|320 кб/с]<Retro>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368291.jpg" />
 </div>
 
 
@@ -311,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364406.jpg" />
 </div>
 
 
@@ -340,7 +282,7 @@ VA - Кружатся Диски - Хиты 70-х (2 CD) (2002) [MP3|320 kbps]<r
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364165.jpg" />
 </div>
 
 
@@ -366,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359509.jpg" />
 </div>
 
 
@@ -395,7 +337,7 @@ VA - Любимые глаза. Хиты 1960 - 1980-х (2010) [MP3|320 кб/с]
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357800.jpg" />
 </div>
 
 
@@ -424,7 +366,7 @@ VA - Замыкая круг. Хиты 1960 - 1980-х (2010) [MP3|320 кб/с]<�
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357703.jpg" />
 </div>
 
 
@@ -453,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357692.jpg" />
 </div>
 
 
@@ -482,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356946.jpg" />
 </div>
 
 
@@ -517,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354772.jpg" />
 </div>
 
 
@@ -543,7 +485,7 @@ VA - Хиты 80-х в Новых Версиях (2012) [MP3|320 кб/с]<Pop>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353036.jpg" />
 </div>
 
 
@@ -572,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351908.jpg" />
 </div>
 
 
@@ -598,7 +540,7 @@ VA - А нам всё равно. Хиты 1960 - 1980-х (2010) [MP3|320 кб/�
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351033.jpg" />
 </div>
 
 
@@ -627,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347479.jpg" />
 </div>
 
 
@@ -656,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337837.jpg" />
 </div>
 
 
@@ -691,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332213.jpg" />
 </div>
 
 
@@ -720,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330141.jpg" />
 </div>
 
 
@@ -749,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329691.jpg" />
 </div>
 
 
@@ -763,6 +705,75 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7391A786F1A5D22B2667C0923F2F406653A220F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582052   (319519) от 29.11.2012
+
+VA - Русская дискотека 70-х (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319519.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Михаил Боярский - Песня мушкетеров
+002 Валерий Павлов - Остановите музыку
+003 Лев Лещенко - Ни минуты покоя
+004 Пламя - Снег кружится
+005 Игорь Иванов - Песенка студента
+006 Ариэль - Старая пластинка
+007 Земляне - Красный конь
+008 Лейся, Песня - Вот увидишь
+009 Эдита Пьеха - Наш сосед
+010 Пламя - КрасноталЖанр: PopПродолжительность: 12:12:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85EA59B9A79D155851FC568FB67A54A71522A8BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583331   (312666) от 02.12.2012
+
+Frank Duval - Touch My Soul (1989) [MP3|320 кб/с]<Pop-Rock>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch My Soul (To Sai Baba) 7:31
+02. Avedana (Instrumental) 4:20
+03. Life Will Go On 4:12
+04. He Came From Space 4:29
+05. And At The End Of Every Street 4:02
+06. Children Of Our Time 4:15
+07. And One Day 5:05
+08. Closer To Heaven 5:13
+09. Help Me 5:25Жанр: Pop-RockПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DF0D0CEAAB2E7301FCB7DD74B0A4900770E7A02
 ```
 
 https://mybot314.ru/tekegram_catalog/

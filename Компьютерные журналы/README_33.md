@@ -1,3 +1,160 @@
+###  Публикация: 561187   (406351) от 16.10.2012
+
+Журнал | Компьютер Пресс №9 [2012] [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежемесячный компьютерный журнал «Компьютер Пресс» выпускается с 1989 г. Сегодня на страницах журнала «Компьютер Пресс» находится практически вся информация о компьютерах и обо всем, что с ними связано. Актуальность данного журнала не только в том, что он очень своевременно реагирует на все новые веяния и тенденции компьютерной моды, но и в том, что это издание имеет практическую направленность и является ценным практическим руководством в самых различных ситуациях. Журнал адресован в первую очередь специалистам в области информационных технологий. Подавляющее большинство материалов написано отечественными авторами, и это говорит о том, что «Компьютер Пресс» ориентирован прежде всего на российских пользователей ПК.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6504BA76829AFD623E00FD725F1F7C292C12BB65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562532   (405618) от 19.10.2012
+
+Журнал | MacUser №21 (UK) [12 октября 2012] [PDF] [En]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание, посвященное электронике Apple. В каждом номере представлен обзор технических и программных новинок для этих устройств. Тема номера: iPhone 5 изнутри.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74DF9C124037FB009E48B74604C3061F29E2B49E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564394   (402753) от 23.10.2012
+
+Журнал | Chip [Украина] №11 (ноябрь 2012) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chip — первый компьютерный журнал в Европе, сейчас издается в 16 странах тиражом более 1 миллиона экземпляров.
+ Журнал Chip  — это высочайшее качество в освещении таких тем, как аудио-, видео- и фототехника, компьютеры, программное обеспечение, Интернет, современные технологии телекоммуникаций и развлечений. Работая в тесной связке с редакцией журнала Chip, сайт  публикует (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C0782818C4D043B1D3E4AC764334C06BC4C694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564705   (402336) от 24.10.2012
+
+Журнал | Computerworld [Россия] №26 (2012) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402336.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Computerworld» - еженедельник, посвященный информационным технологиям: обзор важнейших событий ИТ-индустрии в России и в мире, материалы о новых технологиях.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D56ED7FFF265416E1E7B7C035631E5C1C8078836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564808   (402206) от 24.10.2012
+
+Журнал | Журнал сетевых решений LAN №10 [октябрь 2012] [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402206.jpg" />
+</div>
+
+
+###  Подробнее
+
+«LAN / Журнал сетевых решений» - издание для специалистов по проектированию, установке, эксплуатации и модернизации информационных систем о компьютерных сетях, системах передачи данных, управления сетями и проектами, средствах связи, системах безопасности разного уровня. Тематика охватывает весь круг вопросов, связанных с корпоративными сетями, их сопряжением с общедоступными сетями, вычислительной и телекоммуникационной инфраструктурой, включая центры данных, СКС, системы бесперебойного питания.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F61D237F683AA746358A195C60BEF8234A64039B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 648458   (401309) от 21.10.2013
+
+Подшивка журналов | BSD Magazine (2007 - 2013) [PDF] [EN]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401309.jpg" />
+</div>
+
+
+###  Подробнее
+
+BSD Magazine – это бесплатный англоязычный журнал, полностью посвящённый операционным семействам семейства *BSD. Журнал содержит статьи написанные профессионалами в области Open Source технологий и исследования тонкостей различных проектов. Также имеется "How To" раздел - ориентированный как на опытных пользователей, так и для тех кто только осваивается (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 565047   (401048) от 25.10.2012
 
 Журнал | Advanced Photoshop №101 [2012] [PDF] [En]
@@ -6,7 +163,7 @@
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401048.jpg" />
 </div>
 
 
@@ -33,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400765.jpg" />
 </div>
 
 
@@ -59,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400445.jpg" />
 </div>
 
 
@@ -85,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398818.jpg" />
 </div>
 
 
@@ -111,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398554.jpg" />
 </div>
 
 
@@ -137,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397549.jpg" />
 </div>
 
 
@@ -163,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396084.jpg" />
 </div>
 
 
@@ -189,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395976.jpg" />
 </div>
 
 
@@ -215,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395802.jpg" />
 </div>
 
 
@@ -241,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395471.jpg" />
 </div>
 
 
@@ -267,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395440.jpg" />
 </div>
 
 
@@ -293,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395092.jpg" />
 </div>
 
 
@@ -319,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394273.jpg" />
 </div>
 
 
@@ -345,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392964.jpg" />
 </div>
 
 
@@ -371,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392194.jpg" />
 </div>
 
 
@@ -397,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389647.jpg" />
 </div>
 
 
@@ -423,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389374.jpg" />
 </div>
 
 
@@ -449,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389132.jpg" />
 </div>
 
 
@@ -476,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388192.jpg" />
 </div>
 
 
@@ -502,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385493.jpg" />
 </div>
 
 
@@ -513,162 +670,6 @@ Linux Magazine - журнал, целиком посвященный опера�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38C66552AFD602B4C96DA068C49BC6526307DCDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174329   (384942) от 15.10.2017
-
-Журнал | Linux Format №8 (226) (август 2017) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Linux Format - первый в России ежемесячный журнал на русском языке, целиком посвященный операционной системе Linux. Редакционная политика — своевременное и полноценное информирование читательской аудитории о современном состоянии индустрии программного обеспечения с Открытым кодом, публикация обзоров о технологических новинках и обучающих программах, новости и интервью.Жанр: Компьютерный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CA0403117EDA229985B7FCEBFFA9FC3ABAE52CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 719603   (384202) от 06.11.2013
-
-Журнал | Computerworld [Россия] №27 (812) (ноябрь 2013) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384202.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Computerworld» - ведущий международный еженедельник, посвященный информационным технологиям. В журнале вы найдете обзор важнейших событий ИТ-индустрии в России и в мире, материалы о новых технология.Жанр: Компьютерный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D4B4E5A0E0D849D9AED4F14644E12CE490B40EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068470   (382344) от 31.10.2016
-
-Журнал | Интернет-гид №10 (октябрь 2016) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382344.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Интернет-гид» — это универсальный проводник, спусковая кнопка в необъятный мир веб-страниц. Это полезная прогулка по ту сторону браузера, по самым живописным местам на карте глобальной сети.Жанр: Компьютерный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39C371030127A0E35838CD3388E6A07471EAA8C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573255   (381580) от 10.11.2012
-
-Журнал | PC Week [Россия] №30 (ноябрь 2012) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381580.jpg" />
-</div>
-
-
-###  Подробнее
-
-PC Week - Журнал информирует о передовых технологиях, новейших разработках и важнейших событиях и новостях как отечественного, так и зарубежного компьютерных рынков. В Журнале PC WEEK около десяти постоянных разделов: "Новости", "Корпоративные системы", "Мобильные и настольные системы", "Netweek", "Связь", "Дистрибуция", (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F53D2D51327181055EF980735DA32A8EA93461B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949213   (379469) от 22.10.2015
-
-Журнал | Журнал сетевых решений LAN №10 (октябрь 2015) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание для специалистов по проектированию, установке, эксплуатации и модернизации информационных систем о компьютерных сетях, системах передачи данных, управления сетями, средствах связи, системах безопасности разного уровня. Тематика охватывает весь круг вопросов, связанных с корпоративными сетями, их сопряжением с общедоступными сетями, вычислительной и телекоммуникационной (   Читать дальше...   )Жанр: Компьютерный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2E0E5C4A67286A10F93204F673CE256122064C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253827   (379309) от 11.10.2018
-
-Журнал | Журнал сетевых решений LAN №4 (сентябрь 2018) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание для специалистов по проектированию, установке, эксплуатации и модернизации информационных систем о компьютерных сетях, системах передачи данных, управления сетями, средствах связи, системах безопасности разного уровня. Тематика охватывает весь круг вопросов, связанных с корпоративными сетями, их сопряжением с общедоступными сетями, вычислительной и телекоммуникационной (   Читать дальше...   )Жанр: Компьютерный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C680F512710AB3D324A2090F57925F30B41AAC67
 ```
 
 https://mybot314.ru/tekegram_catalog/

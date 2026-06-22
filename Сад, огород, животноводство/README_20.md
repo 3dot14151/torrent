@@ -1,3 +1,58 @@
+###  Публикация: 1783037   (25842) от 03.03.2025
+
+Игорь Лядов | Грядка для отличного урожая. Картофель без химии и хлопот на любой почве (2017) [PDF, FB2]
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мечта любого огородника - получить свою картошку, крупную, вкусную, без химии и, что совсем немаловажно, дешевую. Однако капризы погоды, дорогие удобрения, необходимость полоть, окучивать, копать превращают выращивание картошки в очень непростое занятие. Но существует метод, который гарантирует отличный урожай при минимальных усилиях! И этот метод стремительно набирает (   Читать дальше...   )Жанр: Сад, огород, справочники садовода и огородникаИздательство: АСТФормат: PDF, FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD301ECD11E48F89E03E17E5A388AEB0B428A1DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783584   (25564) от 06.03.2025
+
+В. Карелина | Блокнот-помощник садовода. Часть 2. Заболевания (2024) [PDF]
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Блокнот-помощник для садоводов от агронома и блогера Виктории Карелиной поможет определить:
+- от каких болезней страдают растения, почему опадают плоды или желтеют листья
+- как отличить заболевание от дефицитов питания
+- как бороться с болезнями растений максимально эффективно и безопасно(   Читать дальше...   )Жанр: садоводство, справочная информацияИздательство: Семена АлтаяФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4DD948EE987F366F97A31E3FFBC5B4F3D4CFC79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783575   (25563) от 06.03.2025
 
 В. Карелина | Блокнот-помощник садовода. Часть 1. Вредители (2024) [PDF]
@@ -6,7 +61,7 @@
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25563.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25540.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17407.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11592.jpg" />
 </div>
 
 
@@ -114,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10675.jpg" />
 </div>
 
 
@@ -142,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7105.jpg" />
 </div>
 
 

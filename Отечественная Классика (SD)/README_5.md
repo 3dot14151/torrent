@@ -1,3 +1,59 @@
+###  Публикация: 183424   (992159) от 04.01.2012
+
+Идиот (1958) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Блестящая экранизация первой части одноимённого романа Фёдора Михайловича Достоевского. Классика советского кино.
+
+Князь Лев Николаевич Мышкин приезжает в Петербург из Швейцарии. Ему двадцать шесть лет, он последний из знатного дворянского рода, рано осиротел, заболел тяжелой нервной болезнью и был помещен своим опекуном и благодетелем в швейцарский санаторий. Там (   Читать дальше...   )Жанр: ДрамаРежиссер: Иван ПырьевАктеры: Юлия Борисова, Юрий Яковлев, Николай Подгорный, Леонид Пархоменко, Вера Пашенная, Николай Пажитнов, Леонид Пархоменко, Эммануил Геллер, Раиса Максимова, Владимир Муравьев, Григорий Шпигель, Иван Любезнов, Олеся Иванова, Клавдия Половикова, Андрей Файт, Сергей Мартинсон, Людмила ИвановаПеревод: ОригинальныйПродолжительность: 01:01:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 149699   (991895) от 01.01.2010
+
+Слуги дьявола на чёртовой мельнице (1972) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991895.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Слуги дьявола на чёртовой мельнице» (латышск. «Vella kalpi Vella dzirnavās»), СССР, 1972 — художественный фильм, историко-приключенческая комедия. Фильм снят по роману Рутку Тева.
+
+Продолжение фильма Рижской киностудии — «Слуги дьявола». Трое неразлучных друзей, прозванных «Слугами дьявола», выкрадывают ключи от Риги, которые должны были быть переданы шведскому (   Читать дальше...   )Жанр: Комедия, ПриключенияРежиссер: Александр ЛейманисАктеры: * Харальд Ретинбергс — Андрис     * Артур Экис — Петерис     * Эдуард Павулс — Эрманис     * Лолита Цаука — Рута     * Ольга Дреге — Анна     * Байба Индриксоне — Лене     * Карлис Себрис — Самсон     * Эльза Радзиня — Гертруда     * Ингрид Андриня — Цецилия     * Улдис Ваздикс — молодой барон     * Эвалдс Валтерс — Экс     * Валентин Скулме — генерал Свенсен     * Волдемар Акуратерс — Розенкранц     * Эдгар Зиле (   Читать дальше...   )Продолжительность: 01:26:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 148089   (990923) от 02.01.2010
 
 Слуги дьявола (1970) DVDRip
@@ -6,7 +62,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990923.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990881.jpg" />
 </div>
 
 
@@ -58,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990040.jpg" />
 </div>
 
 
@@ -84,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989781.jpg" />
 </div>
 
 
@@ -110,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989177.jpg" />
 </div>
 
 
@@ -137,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987931.jpg" />
 </div>
 
 
@@ -164,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987748.jpg" />
 </div>
 
 
@@ -190,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987717.jpg" />
 </div>
 
 
@@ -216,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987648.jpg" />
 </div>
 
 
@@ -246,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987060.jpg" />
 </div>
 
 
@@ -272,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986832.jpg" />
 </div>
 
 
@@ -298,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986332.jpg" />
 </div>
 
 
@@ -324,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986331.jpg" />
 </div>
 
 
@@ -350,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986312.jpg" />
 </div>
 
 
@@ -379,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985318.jpg" />
 </div>
 
 
@@ -405,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984013.jpg" />
 </div>
 
 
@@ -431,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983242.jpg" />
 </div>
 
 
@@ -457,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983100.jpg" />
 </div>
 
 
@@ -483,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981941.jpg" />
 </div>
 
 
@@ -509,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980764.jpg" />
 </div>
 
 
@@ -536,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980656.jpg" />
 </div>
 
 
@@ -563,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980584.jpg" />
 </div>
 
 
@@ -591,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979644.jpg" />
 </div>
 
 
@@ -617,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979641.jpg" />
 </div>
 
 
@@ -628,60 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612787   (979588) от 06.02.2013
-
-Приваловские миллионы (2 серии из 2) (1972) [H.264] DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979588.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноименному роману Дмитрия Мамина-Сибиряка. 2-е серии.
-
-В родной город после длительного отсутствия возвращается молодой наследник огромного состояния, владелец заводов на Урале - Сергей Привалов. Посетив принадлежащие ему заводы, он загорается идеей модернизации, надеется улучшить жизнь рабочих, построив школы и больницы. Однако его интересы сталкиваются с интересами местных богачей.Жанр: Драма, историяРежиссер: Ярополк ЛапшинАктеры: Леонид Кулагин, Людмила Чурсина, Владислав Стржельчик, Людмила Хитяева, Андрей Файт, Любовь Соколова, Александр Демьяненко, Евгений Евстигнеев, Юрий Пузырёв, Игорь Ясулович, Станислав Чекан, Людмила Шагалова, Григорий Шпигель, Никифор Колофидин, Галина Киндинова, Анатолий Торопов, Валентина Шарыкина, Виктор Щеглов, Виктор Чекмарёв, Юрий Леонидов (II), Игорь Головин (II), Анатолий Кубацкий, Владимир Маренков, Ю. Мыльников, Маргарита БуторинаПродолжительность: 01:20:54 + 01:17:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FF64B67C6512E1187EAAF9E2C1166B65188B371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 433874   (978834) от 16.01.2012
-
-Каратель (1968) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в Греции конца 60-х годов. Солдат Венгелис получает увольнительную вне очереди. Но этот день, полученный за участие в расстреле коммуниста, он не знает куда деть. Спасаясь от патруля после уличной драки, Венгелис укрывается у своей девушки. Их встреча полна горечи, исповедь солдата-карателя мучительна. Утром герой даст возможность себя арестовать, (   Читать дальше...   )Жанр: ДрамаРежиссер: Манос ЗахариасАктеры: Георгий Бурков, Армен Джигарханян, Леонид Каневский, Евгений Киндинов, Светлана Орлова, Сергей Шакуров, Виктор Войническу-СоцкиПродолжительность: 01:20:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:320DA64AE4B17B3FE15C041FF766338EEACDECFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

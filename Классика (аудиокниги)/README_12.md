@@ -1,3 +1,55 @@
+###  Публикация: 1116139   (822755) от 20.03.2017
+
+Джон Апдайк | Давай поженимся (1979) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джон Апдайк – писатель, в мировой литературе XX века поистине уникальный, по той простой причине, что творчество его НИКОГДА не укладывалось НИ В КАКИЕ стилистические рамки. Легенда и миф становятся в произведениях Апдайка реальностью; реализм, граничащий с натурализмом, обращается в причудливую сказку; постмодернизм этого автора прост и естественен для восприятия, (   Читать дальше...   )Жанр: Зарубежная классикаПродолжительность: 13:08:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAB9DCE25E06F3B3F10F3F75A6475144967A8FE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116687   (822610) от 20.03.2017
+
+Чингиз Айтматов | И дольше века длится день... (1989) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман Чингиза Айтматова «И дольше века длится день...» предлагает слушателю универсальную концепцию бытия и человека. Писатель-мыслитель пытается охватить всю безмерность жизни и вселенной: от лисицы, вышедшей к железнодорожному полотну, до иных галактик, вступивших в контакт с землянами. Но в центре всего стоит человек, личность, душа, в которой совершают свою извечную (   Читать дальше...   )Жанр: Радиоспектакль, драмаПродолжительность: 02:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E40D9A32E40796ECE482CC1730134AD76B28F1AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116590   (822478) от 20.03.2017
 
 Михаил Булгаков | Записки юного врача (2017) [MP3, Александр Комиссаров, Антонина Дмитриева и др.]
@@ -6,7 +58,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822478.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821765.jpg" />
 </div>
 
 
@@ -64,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821502.jpg" />
 </div>
 
 
@@ -91,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819107.jpg" />
 </div>
 
 
@@ -117,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818234.jpg" />
 </div>
 
 
@@ -144,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813931.jpg" />
 </div>
 
 
@@ -170,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813828.jpg" />
 </div>
 
 
@@ -196,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813544.jpg" />
 </div>
 
 
@@ -223,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813509.jpg" />
 </div>
 
 
@@ -249,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813417.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811779.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810100.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810050.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809132.jpg" />
 </div>
 
 
@@ -380,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807973.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806522.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806427.jpg" />
 </div>
 
 
@@ -461,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806422.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805619.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805373.jpg" />
 </div>
 
 
@@ -540,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805258.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803455.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803353.jpg" />
 </div>
 
 
@@ -618,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802043.jpg" />
 </div>
 
 
@@ -629,58 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:201506FD05FC33F489C19B08EBCAB8D5AEB243BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120416   (802014) от 31.03.2017
-
-Владимир Набоков | Подвиг (2015) [MP3, Евгений Терновский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802014.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Подвиг" (1930, опубл. 1931-1932) повествует о судьбе Мартына Эдельвейса - молодого русского эмигранта со швейцарскими корнями, чей жизненный путь пролегает едва ли не через всю Европу, отчасти совпадая с эмигрантскими маршрутами автора и заставляя вспомнить старинное значение слова "подвиг" - путешествие, странствие, движение. Мартын упорно ищет (   Читать дальше...   )Жанр: Классика, романИздательство: Нигде не купишьПродолжительность: 08:33:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA8CE7D866B54CA0BC2BFD12AB82289DDDAC6C58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120092   (802003) от 31.03.2017
-
-Александр Блок | Стихотворения (2007) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великий русский поэт, ярчайший представитель Серебряного века отечественной культуры, Александр Блок оставил бесценное творческое наследие. Проникновенный лиризм, завораживающая страстность и музыкальность поэтической речи привлекли внимание знаменитых современников блока — ему посвящала свои стихи Марина Цветаева, о нем писали Владислав Ходасевич и Анна Ахматова (   Читать дальше...   )Жанр: ПоэзияПродолжительность: 01:08:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37C12FD4E6218B3742352DFC25DD7C347C332949
 ```
 
 https://mybot314.ru/tekegram_catalog/

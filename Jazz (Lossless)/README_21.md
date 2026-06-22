@@ -6,7 +6,7 @@ VA - Cool Vibes - An Acid Jazz Adventure (1997) [FLAC|Lossless]<Acid jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995660.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Wynton Kelly Trio & Wes Montgomery - Smokin' at the Half Note (1989) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995632.jpg" />
 </div>
 
 
@@ -71,7 +71,7 @@ Diana Panton - To Brazil With Love (2011) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994856.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Patricia Barber - Smash (2013) [FLAC (tracks+.cue)|Lossless]<Contemporary Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994526.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Shirley Horn - 5 альбомов (1987-2001) [FLAC|Lossless]<Jazz - Vocal, Pian
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994497.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Akiko - Greatest HIts (2011) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993668.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Stacey Kent - 8 альбомов (1996-2010) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993363.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Alex Skolnick Trio - Transformation (2004) [WavPack|Lossless]<Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992932.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Rachelle Ann - Love Me (2009) [FLAC|Lossless]<Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992855.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ V.A. - Johnny Hodges & Friends - Jazz Ballads Vol. 15 (2006) 2CD [FLAC|Lossless]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992845.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Eric Dolphy - Musical Prophet 1963 - 1964 (2019) 3CD, Resonance [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992736.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Various Artists - Jazz & Hitzaz No. 2 (1998) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992429.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Various Artists - Gershwin Jazz (1998) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992422.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Various Artists - All Around Jazz (2000) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992365.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Various Artists - Jazz Sensuality - Close Your Eyes (2006) [FLAC|Lossless]<Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992307.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Roger Wang - 2 альбома (2009, 2010) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992263.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Various Artists - Funky Groove (1999) [FLAC|Lossless]<Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992261.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Various Artists - Basstorius - Music Inspired by the Genius of Jaco Pastorius (1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992214.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Pasadena Roof Orchestra - Licensed To Swing (2011) [FLAC|Lossless]<Swing, Big Ba
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992178.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Modern Gustin Trio - The Beatles Go Jazz (1995) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992096.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Brian Simpson & Steve Oliver - Unified (2020) [FLAC|Lossless|image + .cue] <Smoo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991861.jpg" />
 </div>
 
 
@@ -716,7 +716,7 @@ The Andrews Sisters - The Best Of Anthology (The Deluxe Edition) (2009) [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991200.jpg" />
 </div>
 
 
@@ -751,7 +751,7 @@ Flip Phillips - Four Classic Albums 1947 - 1952 (2012) 2CD, Avid Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990852.jpg" />
 </div>
 
 
@@ -780,7 +780,7 @@ Ralph Sharon Trio - The Magic Of Cole Porter (1990) Horatio Nelson Records & Tap
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990810.jpg" />
 </div>
 
 
@@ -809,7 +809,7 @@ John Pizzarelli - Double Exposure (2012) Telarc [FLAC|Lossless|tracks + .cue] <V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990804.jpg" />
 </div>
 
 
@@ -838,7 +838,7 @@ Diana Krall - Wallflower (2015) [FLAC|Lossless]<Vocal Jazz, Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990731.jpg" />
 </div>
 
 

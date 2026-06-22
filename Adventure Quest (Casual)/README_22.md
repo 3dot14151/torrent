@@ -1,3 +1,113 @@
+###  Публикация: 507313   (685275) от 07.06.2012
+
+Mortimer Beckett And The Secrets Of Spooky Manor / Мортимер Бэккетт и секреты усадьбы с привидениями (P) [Ru] 2008
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мортимер Бэккетт получает письмо от своего дядюшки Джерома, которого не видел уже много лет. Встревоженный дядюшка вкратце пытается рассказать племяннику о беде, произошедшей с его чудо-машиной Призраков. Машина была почти готова, но стартер украден, и теперь запуск Машины на грани срыва. Мортимер отправляется в дом дяди на поиски частей стартера.(   Читать дальше...   )Тип издания: ПираткаЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: n/a (отсутствует)Язык интерфейса: Русский (официальная версия)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4792FBD626DEF89D7C8AD0FBE3DD3906FC8D0582
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 558870   (685265) от 14.06.2014
+
+DeathMan / Кощей Бессмертный (L) [Русский] (2012)
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685265.jpg" />
+</div>
+
+
+###  Подробнее
+
+В тридесятом царстве переполох — сказочный злодей похитил матушку-царицу! Седлайте коня, приготовьте булатный меч и отправляйтесь на выручку вместе с младшим царевичем. Помогите ему до конца пройти путь, полный загадок, мистики и неожиданных открытий!
+
+Захотел Кощей Бессмертный жениться, взял волшебное зеркало и повелел ему показать самую пригожую красавицу земли русской. Показало зеркало на царицу пригожую, и вот она уже томится в замке за тридевять земель. Кто сможет ей помочь?
+
+Прежде чем отправляться в дорогу, необходимо как следует вооружиться и выбрать надежного коня. Затем — пройти долгий путь по лесам да горам, через земли Бабы Яги прямо в логово Кощея. Будьте внимательны и осторожны — злодей хитер и коварен, повсюду у него слуги верные да ловушки хитрые. Только смелый и отважный сможет добраться до цели, разгадать все загадки и обойти все опасности!
+
+Вас ждет удивительный мир русских сказок, в котором каждая деталь кажется знакомой, но предстает в новом свете. Интересные головоломки, увлекательные задания (   Читать дальше...   )Тип издания: LЖанр: Приключения, Квест, Логическая, Поиск предметовЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2504506A8571E84799161E2E147C16677F4B852
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289745   (684327) от 17.03.2019
+
+Hiddenverse. The Iron Tower (2018) [En] (1.0) Unofficial
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Злой лорд Маркус узурпировал трон королевства и похитил великого механика Леонардо - единственного человека, который мог противостоять новому правителю. Теперь, Сара, дочь Леонардо,хочет спасти своего отца и свергнуть лорда Маркуса. Помогите ей попасть в цитадель и закончить свое царствование.Тип издания: UnofficialРазработчик: Shaman GamesЖанр: Квест, Поиск предметовЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF8375F9C5F4E952E4B509E35FC7FA95CB5F18F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289744   (684233) от 17.03.2019
+
+Tales of Lagoona 3: Frauds, Forgeries, and Fishsticks (2018) [En] (1.0) Unofficial
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глубоко внизу, на дне моря Лагуна, назревает проблема. Мэр Финн исчез, и теперь Леону и Тео предстоит разобраться с подлыми уловками нового мэра Пибоди самостоятельно. Доброжелательные жители подводного царства снова нуждаются в Вашей помощи. Готовы ли Вы к новым приключениям и многочисленными загадкам? Заработайте сотни достижений, трофеев и бонусов и спасите парк (   Читать дальше...   )Тип издания: UnofficialРазработчик: Playcademy GamesЖанр: Квест, Поиск предметовЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3915BFA57E7928C07DFEB08FCBFB7168DD19742E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289746   (684135) от 17.03.2019
 
 Myths of the World 14: Love Beyond (2017) [En] (1.0) Unofficial [Collector's Edition]
@@ -6,7 +116,7 @@ Myths of the World 14: Love Beyond (2017) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684135.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ Fright Chasers 4: Thrills, Chills and Kills / Ловцы Страхов 4: Тр�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684000.jpg" />
 </div>
 
 
@@ -58,7 +168,7 @@ Secret City 2: The Sunken Kingdom / Тайный город 2: Затонувш�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683601.jpg" />
 </div>
 
 
@@ -84,7 +194,7 @@ Lost Lands: The Four Horsemen / Затерянные Земли. Четыре В
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683108.jpg" />
 </div>
 
 
@@ -110,7 +220,7 @@ Lost Trails / Остров: Затерянные судьбы (2015) [Ru] Unoffi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683106.jpg" />
 </div>
 
 
@@ -136,7 +246,7 @@ Tales of Terror 3: Estate of the Heart / Трепетные Истории 3: П
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682573.jpg" />
 </div>
 
 
@@ -162,7 +272,7 @@ Infected: The Twin Vaccine Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680970.jpg" />
 </div>
 
 
@@ -188,7 +298,7 @@ Mystery of the Ancients 7: Black Dagger (2018) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680429.jpg" />
 </div>
 
 
@@ -214,7 +324,7 @@ Hidden Expedition 16: The Golden Secret (2017) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680428.jpg" />
 </div>
 
 
@@ -240,7 +350,7 @@ Enchanted Kingdom 3: Fog of Rivershire (2018) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680427.jpg" />
 </div>
 
 
@@ -266,7 +376,7 @@ The Forgotten Fairytales 2: Canvases of Time (2018) [En] (1.0) Unofficial [Colle
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680424.jpg" />
 </div>
 
 
@@ -292,7 +402,7 @@ Sable Maze 4: Twelve Fears (2015) [En] Unofficial [Collector's Edition / Кол�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679672.jpg" />
 </div>
 
 
@@ -318,7 +428,7 @@ Fierce Tales 3: Feline Sight / Жестокие истории 3. Кошачий
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679340.jpg" />
 </div>
 
 
@@ -344,7 +454,7 @@ Haunted Hotel 4: Charles Dexter Ward Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678798.jpg" />
 </div>
 
 
@@ -370,7 +480,7 @@ Ghost Files: The Face of Guilt / Дело Призрака: Лики вины (2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678586.jpg" />
 </div>
 
 
@@ -396,7 +506,7 @@ Spirit Of Revenge 4: Florry's Well (2016) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678168.jpg" />
 </div>
 
 
@@ -422,7 +532,7 @@ Fear for Sale 4: Phantom Tide / Страх на продажу. Призрак �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677037.jpg" />
 </div>
 
 
@@ -448,7 +558,7 @@ Blacked out / Жуть (L) [Ru] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676645.jpg" />
 </div>
 
 
@@ -474,7 +584,7 @@ Dark Parables: Curse of Briar Rose / Темные предания. Прокля
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676362.jpg" />
 </div>
 
 
@@ -500,7 +610,7 @@ Bridge to Another World 6: Gulliver Syndrome (2019) [En] (1.0) Unofficial [Colle
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676309.jpg" />
 </div>
 
 
@@ -526,7 +636,7 @@ Blacked Out / Жуть (P) [Ru] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676226.jpg" />
 </div>
 
 
@@ -552,7 +662,7 @@ Haunted Hotel 4: Charles Dexter Ward Collector's Edition / Проклятый о
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676213.jpg" />
 </div>
 
 
@@ -563,110 +673,6 @@ Haunted Hotel 4: Charles Dexter Ward Collector's Edition / Проклятый о
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31474F526AAF17A9226DE6FA259BED978C46D084
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 899393   (673173) от 19.05.2015
-
-Grim Tales 8: The Final Suspect (2015) [En] Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение мистической игры Grim Tales. Неутомимого детектива А.Грэй снова ждут новые приключения, но на этот раз она сама попадает в историю с убийством и трупом в собственном доме. Анна очнулась в больнице и её обвиняют в убийстве! К сожалению, из-за амнезии (   Читать дальше...   )Тип издания: Неофициальное изданиеРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D69B6ECBF381AA3E831AECE24048301648224367
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536803   (672437) от 13.03.2022
-
-Redemption Cemetery 12: The Day of the Almost Dead / Кладбище искупления 12: День Почти Мертвых (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение мистической серии игр Redemption Cemetery. Когда Санта Муерте обращается к Вам за помощью, Вы тут же отправляетесь к ней. Прибыв на кладбище, Вы находите сильного духа, готовившегося к борьбе за спасение мира. Злое божество хочет превратить ваш дом в землю мертвых, и только Вы можете остановить его! Есть ли у Вас всё необходимое, чтобы спасти души пока (   Читать дальше...   )Тип издания: UnofficialРазработчик: AMAX InteractiveЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D928DA058C4EAD2A57F073C1F7B190C6567D45F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291128   (672208) от 23.03.2019
-
-Witches Legacy 12: Secret Enemy / Наследие Ведьм 12: Тайный враг (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672208.jpg" />
-</div>
-
-
-###  Подробнее
-
-На ведьм снова объявлена охота! Монстры вернулись и Орден Охотников, считая, что в этом виновны Ведьмы, стремится уничтожить всех магических существ, включая и их. Но гнев Охотников таит в себе нечто большее, чем кажется первый взгляд. Сможете ли Вы раскрыть тайны своего общего врага и победить древнее зло, пока еще не слишком поздно? Узнайте ответ в этой новой захватывающей (   Читать дальше...   )Тип издания: UnofficialРазработчик: EleFun GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2650EA2DE59FED57ED20303585A979DB7D8B8DD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030682   (671971) от 01.07.2016
-
-Darkness and Flame. Born of Fire (2016) [En] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Элис была обычной девушкой... пока не нашла яйцо в таинственном сундуке. Одно прикосновение навсегда изменило ее жизнь. Теперь ей предстоит удивительное путешествие, полное чудес и опасных приключений. Хватит ли у Элис сил и мужества, чтобы преодолеть все препятствия, что уготовила ей судьба?Тип издания: UnofficialРазработчик: Five-BN GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F353922B56505021866441D210AC659729498561
 ```
 
 https://mybot314.ru/tekegram_catalog/

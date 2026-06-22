@@ -1,238 +1,3 @@
-###  Публикация: 1688555   (119413) от 04.02.2024
-
-Эфир ТВ v3.7.5 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы провели ребрендинг нашего приложения, изменили название и логотип сервиса. Приложение Эфир ТВ позволяет смотреть большое количество популярных каналов в прямом эфире, в том числе 20 цифровых общероссийских каналов и региональное цифровое ТВ (ЦТВ). Смотрим телеканалы в HD вместе!
-Более 300 дополнительных бесплатных телеканалов будут доступны вам сразу после установки: (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 03.02.2024Разработчик: Лайм ЭйчДиПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE6610755D6E05DAAB212BD14579B3AB99182F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696787   (119348) от 04.02.2024
-
-Rock Identifier - Stone ID v2.3.36 Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Просто сделайте или загрузите фото камня, и Rock Identifier расскажет все за считанные секунды. Исследуйте свое геологическое окружение, узнавайте о различных породах и знакомьтесь с миром природы с помощью Rock Identifier!Тип издания: PremiumРелиз состоялся: 18.01.2024Разработчик: Next Vision LimitedПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17798905BA13235343887E9ED95F63A946B271A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696811   (119344) от 04.02.2024
-
-Simply Piano: Learn Piano Fast v7.22.7 Mod by youarefinished [Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Simply Piano - это одно из лучших приложений для обучения игры на фортепиано с любого уровня владения навыком: от новичка до профессионала. Мечтаете научиться играть известные композиции легендарных композиторов всех времен и народов, но нет времени посещать музыкальную школу? Начните свой путь с самоучителем от JoyTunes – Simply Piano, с приложением, которое научит (   Читать дальше...   )Тип издания: Premium + CheatsРелиз состоялся: 01.02.2024Разработчик: Simply (formerly JoyTunes)Поддерживаемая ОС: Android 5.0+Язык интерфейса: Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:624312BC00112ECCA9987F1CEB3358EADBAB912E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696926   (119237) от 05.02.2024
-
-Clean Master 9.4.9.3479 Mod by Dymonyxx [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое clean master? Эта программа – очиститель приложений, которую должен иметь каждый пользователь андроид. Она содержит в себе всеобъемлющие методы для очистки: кэша, неиспользуемых файлов, личной истории и пакетов приложений на андроид телефонах. Она так же завершает приложения и освобождает память для ускорения телефона и продлевает время работы аккумулятора. (   Читать дальше...   )Тип издания: VIPРелиз состоялся: 17.01.2024Разработчик: KS MobileПоддерживаемая ОС: Android 4.3+Язык интерфейса: Русский, английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D75D47D1724F345FE7A2838409375271B4905255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696584   (119190) от 05.02.2024
-
-WPS Office + PDF v18.7.1 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119190.jpg" />
-</div>
-
-
-###  Подробнее
-
-WPS Office - очень полезное, офисное приложение для любого пользователя мобильных устройств. Проект обладает всеми необходимыми функциями, что позволяют работать со всеми документами и файлами пакета программ Microsoft Office. Открытие, редактирование, объединение и многое другое подвластно всем желающим без установки оригинального программного обеспечения. Ну а (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 04.02.2024Разработчик: WPS SOFTWARE PTE. LTD.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F654E83099F51D9D882782FF9744998D8D9AF76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470128   (119029) от 06.02.2024
-
-Таблица Калорийности v3.9.19 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Функциональный дневник питания Таблица Калорийности - это счетчик калорий, где легко делать подсчет кбжу. Похудение теперь не проблема. Удобный калькулятор калорий позволит правильно худеть и произведет расчет ккал и бжу. Приложение Таблица Калорийности - это трекер питания и незаменимый помощник для любителей здорового образа жизни (ЗОЖ), кто предпочитает делать (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 30.01.2024Разработчик: Dine4Fit, a.s.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91EE81C678F75A15812BA99A93B54C6756F530E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676140   (119009) от 06.02.2024
-
-AudioLab v1.2.18 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119009.jpg" />
-</div>
-
-
-###  Подробнее
-
-AudioLab: Audio Editor Recorder – это самый продвинутый комплексный аудиоредактор, программа для записи звука, создания рингтонов, аудиомикшера и звукового редактора, в котором есть все функции, которые вам когда-либо понадобились! AudioLab — это идеальное приложение для микширования, редактирования звука и создания рингтонов, позволяющее гибко микшировать музыку (   Читать дальше...   )Тип издания: ProРелиз состоялся: 05.02.2024Разработчик: HitroLabПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:545D6E089AF6034A1350BDA5DE3314534F955A5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697701   (118876) от 07.02.2024
-
-Навигатор Грибника v3.16 Paid [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправляясь в лес возьмите с собой дождевик, нож, спички, компас и полностью заряженный смартфон с приложением "Навигатор Грибника". "Навигатор Грибника" запомнит и поможет вернуться на ваши грибные, ягодные, рыбные, охотничьи и другие примечательные места. Использование приложения гарантированно исключает движение по кругу, что часто случается (   Читать дальше...   )Тип издания: Paid / Full с МаркетаРелиз состоялся: 02.02.2024Разработчик: HobbySoftПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F49B4984E0EFA6AADF6439593834C592C5FE2B74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697569   (118786) от 07.02.2024
-
-Textra SMS v4.70 Pro
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Надоел внешний вид стандартных "SMS"? Хочется чего-то новенького, и интересного? Попробуйте Textra! Приложение для SMS и MMS с большим количеством "фишек". Вы можете выразить свои эмоции собеседнику при помощи более, чем 800 смайликов. Новые всплывающие уведомления. Возможность отсылки SMS группе контактов. Присутствует и кастомизация. Можно поменять (   Читать дальше...   )Тип издания: ProРелиз состоялся: 06.12.2023Разработчик: DeliciousПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBC2CAD723E8D924FC043FC266FBECE9D76D4B32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698297   (118656) от 08.02.2024
 
 Adobe Photoshop Express 12.5.284 Mod by Balatan [Ru/Multi]
@@ -241,7 +6,7 @@ Adobe Photoshop Express 12.5.284 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118656.jpg" />
 </div>
 
 
@@ -267,7 +32,7 @@ MyBible - Библия 5.7.1 Mod by Infiltrovat' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118640.jpg" />
 </div>
 
 
@@ -293,7 +58,7 @@ Ultra GPS Logger 3.196 Mod by Balatan [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118635.jpg" />
 </div>
 
 
@@ -319,7 +84,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso 11.
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118606.jpg" />
 </div>
 
 
@@ -345,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118516.jpg" />
 </div>
 
 
@@ -371,7 +136,7 @@ ToonMe v0.6.109 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118328.jpg" />
 </div>
 
 
@@ -397,7 +162,7 @@ Spyglass v3.9.9 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118315.jpg" />
 </div>
 
 
@@ -423,7 +188,7 @@ Ventusky: Прогноз погоды v31.0 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118310.jpg" />
 </div>
 
 
@@ -449,7 +214,7 @@ inShot (ex. instaShot) / Фото и видеоредактор v2.016.1439 Mod 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118291.jpg" />
 </div>
 
 
@@ -475,7 +240,7 @@ ActionDirector - Видеоредактор v7.12.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118256.jpg" />
 </div>
 
 
@@ -501,7 +266,7 @@ SD Maid v5.6.3 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118193.jpg" />
 </div>
 
 
@@ -527,7 +292,7 @@ MX Player Pro v1.78.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118188.jpg" />
 </div>
 
 
@@ -553,7 +318,7 @@ Offline Maps / Офлайн карты для путешественников v
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118178.jpg" />
 </div>
 
 
@@ -579,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118172.jpg" />
 </div>
 
 
@@ -605,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118163.jpg" />
 </div>
 
 
@@ -631,7 +396,7 @@ Strava: бег, велоезда, хайкинг v346.7 Mod by ReVanced Team [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117974.jpg" />
 </div>
 
 
@@ -657,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117690.jpg" />
 </div>
 
 
@@ -668,6 +433,240 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBB35C6CF7277C546DA1EFCB8935EE25CB909FA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700523   (117134) от 17.02.2024
+
+DNS Changer - Secure VPN Proxy v1321-2r Pro Mod by derrin [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117134.jpg" />
+</div>
+
+
+###  Подробнее
+
+DNS Changer — это самый простой способ изменить свой DNS и проверить скорость DNS-серверов. Работает без рута и работает как для WiFi, так и для подключения к мобильной сети. DNS Changer изменяет DNS-адрес вашего устройства, никак не влияя на скорость вашего соединения. Таким образом, это быстрее, чем обычный VPN. Установите DNS Changer для Android и попробуйте сами!Тип издания: Pro / ModРелиз состоялся: 05.02.2024Разработчик: Mega FortunaПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский и Турецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C5E05CD58886104060EE55AFDC27D4B844B45F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688552   (117126) от 17.02.2024
+
+Лайт HD ТВ v3.8.0 Mod by vadj [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лайт — это ваше HD ТВ онлайн. Все каналы бесплатно. Можно смотреть ТВ-передачи в поездке, в очереди, на обеде, на даче, дома — телевизор всегда с собой. Простое, удобное и лёгкое приложение, чтобы телевидение смотреть: онлайн и бесплатно. 330+ ТВ-каналов бесплатно. Смотрите онлайн ТВ, кино, сериалы и мультфильмы.Тип издания: Premium / ModРелиз состоялся: 16.02.2024Разработчик: Лайм Эйч ДиПоддерживаемая ОС: Android 5.0+ и Android TVЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E022E195990B9D006A7DB100D3FA8231610998EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641299   (117100) от 17.02.2024
+
+Photo Editor v9.9 Pro Mod by Balatan, Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Editor - уникальная программа для обработки качественных фотографий. Настройка цвета, различные эффекты, поворот, обрезка, изменение размера, рамки, а также возможность рисовать прямо на фото. Настройка цвета включает в себя тон, насыщенность, контраст, яркость. Вдобавок Photo Editor предлагает множество эффектов для фотографий, включая гамма-коррекцию, автоконтраст, (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 12.02.2024Разработчик: dev.macgyverПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5F37D03517DE960F1139BC1DB421B7EB8FE4033
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700512   (117094) от 17.02.2024
+
+Astrological Charts / Астрологические Карты Pro v10.5.1 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Астрологические Карты Pro (Astrological Charts Pro) – это профессиональная астрологическая программа для Android, которая строит 12 типов астрологических карт, содержит, кроме планет, ещё 13 астероидов и 23 фиктивные точки, включая транснептуновые, и несколько жребиев. А так же есть выбор из 12 систем домов, 22 вида аспектов с настраиваемыми орбисами и база данных (   Читать дальше...   )Тип издания: Paid / ProРелиз состоялся: 10.02.2024Разработчик: full-astro-devПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EC3B7717E3DF4456A99E112D7411DC21BC3EDD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700604   (117085) от 17.02.2024
+
+Sense Flip Clock & Weather v6.51.0 Mod by youarefinished [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полнофункциональное погодное приложение с набором виджетов погоды и часов. Приложение предоставляет прогнозы погоды для вашего текущего местоположения или любого другого места по всему миру. Вы можете добавить до 10 мест и проверить погоду и время для любого места в мире.Тип издания: PremiumРелиз состоялся: 16.02.2024Разработчик: MACHAPP Software LtdПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B77AE030133E279C39BD1874EB934252506E3213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699334   (117084) от 17.02.2024
+
+Plus Messenger (Telegram+) v10.6.4.1 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Plus Messenger - неофициальное приложение для обмена сообщениями, на основе Telegram API. Весьма крутой альтернативный клиент для Telegram. Много настроек. Развивается. Вкладки. Категории. В наличии весьма немалое количество дополнительных настроек. Быстро обновляется. Plus без проблем синхронизируется со всеми вашими устройствами и может использоваться на планшетах (   Читать дальше...   )Тип издания: ModРелиз состоялся: 14.02.2024Разработчик: rafalenseПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94375DAC855FAF723584936A772907BB9EA5ED2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700514   (117067) от 17.02.2024
+
+Horary Chart / Астрология: Хорарная Карта v3.1.1 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хорарная карта - это программа для построения хорарных карт, включающая астрологическую карту с линейкой, расчет событий в пределах знака и отображающая соединения планет и домов с антисами и звездами. Есть функция добавления формул жребиев и выбор из ста звезд.Тип издания: PaidРелиз состоялся: 10.02.2024Разработчик: Roman ShimchenkoПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:245556024EC3F26286F9CC27CD3C67A15085F065
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700705   (116940) от 18.02.2024
+
+Слушать аудиокниги! v2.1.3 Mod by Viktor245 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слушать аудиокниги - это красиво оформленное и удобное приложение для Android, которое предлагает огромную библиотеку аудиокниг для прослушивания в пути. С подпиской пользователи получают доступ к обширной коллекции аудиокниг всех жанров, включая классическую литературу, саморазвитие, деловую литературу и детские книги.Тип издания: FullРелиз состоялся: 29.06.2023Разработчик: Audiolitera.ruПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5772C0A1DD8CF504F23DBACB7A791B4370654225
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701396   (116616) от 20.02.2024
+
+IPTV Pro v7.1.5 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смотрите IP-телевидение вашего интернет-провайдера или ТВ из любого другого интернет-источника на телефоне или планшете! Саму трансляцию осуществляет провайдер, поэтому если вдруг что-то перестало показывать, то скорее всего дело именно в провайдере, обращайтесь к нему. Чтобы убедиться в этом наверняка, просто откройте плейлист на компьютере при помощи VLC или IP-TV (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 19.02.2024Разработчик: Alexander SofronovПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:657497FBC4D2A092068D823AE11AED0B5C28850D
 ```
 
 https://mybot314.ru/tekegram_catalog/

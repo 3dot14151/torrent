@@ -1,3 +1,87 @@
+###  Публикация: 609255   (991733) от 27.01.2013
+
+Сборник клипов - VA - Various Music part. 39 (2013) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991733.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 2CELLOS - Supermassive Black Hole ft. Naya Rivera 1080p (3:46)
+2. 50 Cent - Major Distribution (Explicit) 1080p (4:23)
+3. AMOUAGE - Солнце 1080p (3:49)
+4. Armin van Buuren & Markus Schulz - The Expedition (ASOT600 Anthem) 720p (5:24)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A891A1D93077FC7BF2D65D4A7C446566FE36A8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 431538   (991390) от 05.01.2012
+
+Отличный Новый Год! Концерт Дискотека 80-х (2011) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991390.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Дискотека 80-х" - золотые хиты, любимые мелодии, которые всегда молоды.1. Юрий Шатунов "Белые розы"
+2. Юрий Шатунов "Седая ночь"
+3. Ottawam "Hands Up"
+4. Ottawan "D.I.S.C.O."(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:24:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93FFCB93138757F9E2CC001344F636D9B83E0669
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609890   (991231) от 28.01.2013
+
+David Guetta Feat. Taio Cruz & Ludacris - Little Bad Girl (2011) BDRip [h.264,1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2D87314B768A9D0EC7D959D87126E711C362ED7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 609529   (991229) от 28.01.2013
 
 Inna - Endless (2011) HDRemux [h.264,1080p]
@@ -6,7 +90,7 @@ Inna - Endless (2011) HDRemux [h.264,1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991229.jpg" />
 </div>
 
 
@@ -32,7 +116,7 @@ Ke$ha / Kesha - C'Mon (2013) HDRemux [h.264,1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991157.jpg" />
 </div>
 
 
@@ -58,7 +142,7 @@ Gotye ft. Kimbra - Somebody That I Used To Know (2011) BDRip [h.264,1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991153.jpg" />
 </div>
 
 
@@ -84,7 +168,7 @@ Linkin Park - Burn It Down (2012) BDRip [h.264,1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991112.jpg" />
 </div>
 
 
@@ -110,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990862.jpg" />
 </div>
 
 
@@ -140,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990828.jpg" />
 </div>
 
 
@@ -169,7 +253,7 @@ Tom Boxer feat. Antonia - Shake It Mama (2011) HDRemux [h.264,1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990343.jpg" />
 </div>
 
 
@@ -195,7 +279,7 @@ Avril Lavigne - What The Hell (2011) BDRip [h.264,1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990253.jpg" />
 </div>
 
 
@@ -221,7 +305,7 @@ Avril Lavigne - Alice (2010) BDRip [h.264,1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990225.jpg" />
 </div>
 
 
@@ -247,7 +331,7 @@ John Fogerty- Comin down The Road The Concert At Royal Albert Hall (2009) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990204.jpg" />
 </div>
 
 
@@ -282,7 +366,7 @@ Rihanna - Diamonds (2012) HDRemux [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990073.jpg" />
 </div>
 
 
@@ -308,7 +392,7 @@ Blackmore's Night Live In Germany (1998) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989866.jpg" />
 </div>
 
 
@@ -337,7 +421,7 @@ Scorpions - Acoustica (2001) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989306.jpg" />
 </div>
 
 
@@ -363,7 +447,7 @@ BAZUKA - Stand Up (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989230.jpg" />
 </div>
 
 
@@ -389,7 +473,7 @@ Lindemann (2015-2019) WEB-DL [H.264/1080p-LQ] (12 видеоклипов)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988865.jpg" />
 </div>
 
 
@@ -418,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988699.jpg" />
 </div>
 
 
@@ -444,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988578.jpg" />
 </div>
 
 
@@ -471,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988492.jpg" />
 </div>
 
 
@@ -498,7 +582,7 @@ Stromae - Racine Carree Live (2015) WEB-DL
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988413.jpg" />
 </div>
 
 
@@ -527,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988322.jpg" />
 </div>
 
 
@@ -556,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988314.jpg" />
 </div>
 
 
@@ -587,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988260.jpg" />
 </div>
 
 
@@ -613,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987510.jpg" />
 </div>
 
 
@@ -624,90 +708,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C797F8A50ED9DDC0991A6E4F0627ED310F2F7A22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970064   (987310) от 02.01.2016
-
-Концерт в Париже / Evanescence - Anywhere But Home (2004) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Anywhere but Home («Куда угодно, только не домой» — англ.) — концертный альбом американской рок-группы Evanescence, записанный на концерте Zenith in Paris в Париже в 2004 году, включающий, помимо записи концерта, бонусный би-сайд-трек «Missing». Выпущен на CD и DVD в 2004 году.01. Haunted (Intro)
-02. Haunted
-03. Going Under
-04. Taking Over Me(   Читать дальше...   )Жанр: Концерт, Alternative rockПродолжительность: 02:10:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FC7CFCC381B4E81FA84CB828635162CD2C97D4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610556   (987256) от 01.02.2013
-
-Flo Rida - Whistle (2012) HDRemux [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rap, Hip-hop, R'n'BПродолжительность: 00:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6455DEE0B3112A84A9D00D44A8E55ECF742226C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970997   (987145) от 02.01.2016
-
-Легенды Ретро FM на РенТВ (2015.12.31) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наступление 2016 года в эфире Пятого ознаменует новогоднее супершоу лучшей музыки 70-х, 80-х и 90-х с участием Юрия Антонова, ВИА «Верасы», Сандры, Юрия Шатунова, Игоря Николаева, Рикардо Фольи, E-Type, дуэтов «Оттаван» и Baccara, группы «Технология» и других исполнителей.01. Комбинация - "Бухгалтер", "Вишневая девятка", "Американ бой"
-02. Электроклуб - "Кони в яблоках", "Схожу с ума", "Ты замуж за него не выходи"
-03. Технология - "Полчаса", "Странные танцы", "Нажми на кнопку"
-04. Золотые голоса группы "Мираж" (М. Суханкина, М. Гулькина, (   Читать дальше...   )Телекомпания: РЕНЖанр: КонцертПродолжительность: 03:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9EECE4D14492FAE6CF144724BEE517F53AB9446
 ```
 
 https://mybot314.ru/tekegram_catalog/

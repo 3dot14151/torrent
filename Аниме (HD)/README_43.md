@@ -6,7 +6,7 @@ Takt Op.Destiny / Такт Опус. Судьба [2021, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151911.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Houkago Saikoro Club | After School Dice Club | Клуб настольных и
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151151.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Fairy Gone 2 / Пропавшие феи 2 [2019, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151111.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Guraburu! | Grand Blues! | Великий блюз! [2020, TV, 12] WEBRip 720p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150331.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Ikebukuro West Gate Park | Западные ворота парка Икэбук
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150279.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Puraore! Pride of Orange / Оранжевая гордость [2021, TV, 12] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150244.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Sekai Saikou no Ansatsusha, Isekai Kizoku ni Tensei Suru / Лучший в ми�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150111.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Jahy-sama wa Kujikenai! | The Great Jahy Will Not Be Defeated! | Великая 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150094.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Ani Tore! XX: Hitotsu Yane no Shita de / Тренировки с аниме! XX 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149371.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Bakumatsu: Ren'ai Bakumatsu Kareshi Gaiden | Бакумацу [2018, TV, 12] WEB
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149284.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Kishuku Gakkou no Juliet | Boarding School Juliet | Джульетта из шк
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149162.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Selection Project / Отборочный проект [2021, TV, 13] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147750.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Sakugan | Сакуган [2021, TV, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147614.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Scarlet Nexus / Алый Нексус [2021, TV, 26] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147544.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Yuusha ni Narenakatta Ore wa Shibushibu Shuushoku o Ketsui Shimashita. / YuShibu
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147529.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Kuma Kuma Kuma Bear / Ми-ми-ми-мишка [2020, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147323.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Adachi to Shimamura / Adachi and Shimamura / Адати и Симамура [202
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147140.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ High Score Girl II | Девчонка не промах [ТВ-2] [2019, TV, 9] H
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146894.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Mahou Shoujo Nante Mou Ii Desu kara. Second Season / Меня достало б�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146428.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Release the Spyce / Выпустить Спайс [2018, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146331.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Ken En Ken: Aoki Kagayaki | Xuan Yuan Sword Luminary | Меч Жёлтого и�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146308.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Ore ga Suki na no wa Imouto Dakedo Imouto ja Nai / My Sister, My Writer / Я л�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146288.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Komi-san wa, Komyushou Desu. | Komi Can't Communicate | У Коми пробле
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146121.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Cheating Craft / Искусство обмана [2016, TV, 12 из 12] WEB-DLRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146031.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Soul Buster: Shousei Ran / Разрушитель душ [2016, TV, 12 из 12] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145511.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Chuukan Kanriroku Tonegawa | Менеджер среднего звена Тон
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144920.jpg" />
 </div>
 
 

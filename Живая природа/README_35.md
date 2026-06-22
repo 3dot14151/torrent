@@ -1,3 +1,107 @@
+###  Публикация: 1627342   (240041) от 18.04.2023
+
+Зачарованный лес / Enchanted Forest (2020) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лес — поистине волшебное место. Один день в лесу, среди целительных сил природы — лучшая релаксация из всех возможных. Давайте вместе пройдемся по лесу, где на каждом шагу нас ждет маленькое чудо.Производство: Германия, NDR Naturfilm, DoclightsЖанр: документальный, природа, флора, фаунаПеревод: дублированныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED1DE472D20BAF63D57DCBB39275A164996F1D03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621275   (240038) от 24.03.2023
+
+Библейские животные / Animals of the Bible (2022) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240038.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Библии присутствует множество разных животных. Наверняка вы уже вспомнили змея или ослика Девы Марии. А вы знали, что в Библии упоминаются газели, львы, киты, скорпионы и прочие "твари земные"? Некоторые животные действительно обитали в Святой земле, другие же удостоились упоминания благодаря своим качествам, которым можно придать символическое значение.Производство: Германия, NDR Naturfilm, DoclightsЖанр: документальный, природа, флора, фаунаРежиссер: Фил КоулзПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBE651E6152641B91902E389CE1D59CA6B238EDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621803   (239632) от 26.03.2023
+
+Сулавеси: Увидеть и сохранить / Sulawesi, expedition au coeur de l'ile mystere (2020) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Индонезийский остров Сулавеси, расположенный к востоку от Борнео, состоит из нескольких полуостровов, которые соединяются в гористом центре. Горный массив Сулавеси, самый малоисследованный уголок живой природы хранит много тайн...Производство: Франция, Les Gens Bien Productions, Naturevolution, ArteЖанр: документальный, познавательный, путешествияРежиссер: Жиль КебальПеревод: двуголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3437715827B0FA6421AB08E0833F42681A62FD8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622437   (239281) от 28.03.2023
+
+Гении природы / Bionik Revolution - Die besten Ideen der Natur (2012) BDRemux [H.264/1080i] (серии 1-3 из 3)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь развивалась на планете Земля в течение почти трех с половиной миллиардов лет. В то время процесс естественного отбора сформировал существ, способных выживать практически во всех уголках планеты, от кипящих горячих источников до сокрушительного давления Марианской впадины на глубине 11 километров. И за эти три с половиной миллиарда лет выжившие должны были передвигаться (   Читать дальше...   )Производство: Германия, Великобритания, Terra Mater Factual Studios, Oxford Scientific Films, BBCЖанр: документальный, научно-познавательныйРежиссер: Джон КапенерПеревод: одноголосый профессиональный (телеканал Наука)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 3x ~00:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1EB5CC9D30E92B1785CC4BCDDDA4A9C2C6318E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636086   (239279) от 28.05.2023
 
 Три маленьких бородавочника / Les Trois Petits Phacocheres (2022) HDTVRip
@@ -6,7 +110,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239279.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ RTG. Птицы Юго-Запада Сибири (2012) HDTV [H.264/1080i]
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239149.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238671.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ NG. Львиная династия / Lion Dynasty (2021) HDTVRip
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238662.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_238510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238510.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_238501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238501.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238456.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238439.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238384.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238366.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238364.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237881.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237873.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237773.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237764.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237754.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237719.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237562.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237432.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237334.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237269.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237257.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D97BC1CD6792546B92EDB05E2D456EDE52AD967C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640639   (237206) от 18.06.2023
-
-Райские птицы / Birds of Paradise (2014) WEB-DL [H.264/1080p] (сезон 1, серии 1-3 из 3) CLS Media
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нетронутая современной цивилизацией и расположенная под палящим экваториальным солнцем в Папуа-Новой Гвинее находится яркая экосистема. Там обитают птицы, которые настолько эффектны и привлекательны, что их называют райскими птицами. Рассказ об этих красивейших птицах, их замысловатых брачных танцах, о сложных конструкциях, которые они строят, чтобы привлечь самок.Производство: Корея Южная / Educational Broadcasting System (EBS)Жанр: документальныйРежиссер: Сон Сын-уПеревод: Одноголосый профессиональный (CLS Media)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67985672AF413E0B023AA4CABA787795447B9F2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630464   (237175) от 02.05.2023
-
-Большой Кавказ; Малый Кавказ / The Greater Caucasus; The Lesser Caucasus (2014) HDTVRip [H.264/720p] (серии 1-2 из 2)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кавказские горы образуют мистическую границу между Европой и Азией. Кинорежиссер Генри М. Микс и его съемочная группа провели больше года в Кавказских горах и создали впечатляющий документальный фильм о невероятной природе этой уникальной горной системы, расположенной между Черным и Каспийским морями.Телекомпания: ARTE, Terra Mater, Doclights, NDRЖанр: документальный, природа, фауна, флораРежиссер: Генри МиксПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийПродолжительность: 00:49:22 + 00:48:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF70DAFE0E0DBD3E2B4869664974DDE5FFFCD8F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640716   (237002) от 19.06.2023
-
-Наша планета / Our Planet (2023) WEB-DLRip (сезон 2, серии 1-4 из 4) HDrezka Studio
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237002.jpg" />
-</div>
-
-
-###  Подробнее
-
-В документальном сериале натуралист Дэвид Аттенборо рассказывает о разнообразии животного мира Земли и исследует влияние климатических изменений на способность различных видов к выживанию. Вместе с ведущим зрители побывают в заледенелой арктической тундре, пышных тропических лесах и обширных южно-африканских пустынях. Шоу повествует о чудесах природы, взаимосвязи (   Читать дальше...   )Производство: США, Великобритания / Silverback FilmsЖанр: документальныйРежиссер: Адам Чэпман, Хью Пирсон, Хув КордиУчастники: Дэвид АттенбороПеревод: Одноголосый профессиональный (HDrezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (SDH) | отдельными файламиПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03E9920387F522AAA37BFBA99068AF79959B3F83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628075   (236950) от 21.04.2023
-
-Животные, изменившие мир (Курица не птица?) (2022) WEB-DLRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сейчас на свете живет невероятное количество этих животных. Целых 24 миллиарда особей! Вы удивитесь, но это — куры. Судя по размеру популяции, этих птиц можно назвать самыми успешными животными планеты. По крайней мере, вымирание, как многим обитателям дикой природы, им точно не грозит... Эта небольшая по размерам птица живет рядом с нами тысячи, а то и десятки тысяч (   Читать дальше...   )Производство: Россия, ЕМГЖанр: документальный, научно-познавательныйРежиссер: Илья ЦыгановЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D55BBD9D9FB5175AF0494F9934CD8C3A1448FD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

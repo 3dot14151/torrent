@@ -1,3 +1,164 @@
+###  Публикация: 1302196   (407271) от 18.09.2019
+
+Sniper Elite V2 Remastered (2019) [Ru/Multi] (1.0.2797/upd4) Rip =nemos=
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы — элитный снайпер США, Карл Фейрберн, заброшенный в Берлин, где находится последняя линия обороны немцев. Ваше задание — не дать попасть в руки красной армии секретной технологии нацистов, ракете «Фау-2». Вы должны помочь главным ученым, которые склонны переметнуться на сторону США, и устранить всех, кто стоит у вас на пути. Скрытность — ваше всё, потому что вы (   Читать дальше...   )Тип издания: RipРазработчик: RebellionЖанр: Action (Shooter), Stealth, 3rd PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ABB6D583832DEE99D5AB6AAC7DB5DE9D0D3D4F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560690   (406457) от 15.10.2012
+
+Star Wars: The Force Unleashed Dilogy [Ru/En] (Repack) 2009 - 2010 | R.G. Shift
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение истории о Старкиллере, ученике Дарта Вейдера, обманутом и предательски убитом в финале первой части игры. Благодаря технологиям клонирования Старкиллер возвращается к жизни, однако он лишен памяти. Теперь он отправляется в новое путешествие с единственной целью — вспомнить все!
+
+Однако на пути к утерянным воспоминаниям Старкиллера ждет множество опасностей и, конечно, встреча со своим учителем, который так и не оставил надежды создать идеального воина-ситха. (   Читать дальше...   )Тип издания: RePackЖанр: Action / 3D / 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ADDF7B8F07CF3FCAEE52A360C4D22927A3AC401
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561153   (406005) от 17.10.2012
+
+Wanted: Weapons of Fate / Особо опасен: Орудие судьбы [Ru/En] (Repack) 2009 l R.G. Механики
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wanted: Weapons of Fate — это боевик от третьего лица в котором перестрелки будут чередоваться с драками. В игре будут реализованы все инновационные моменты, представленные в оригинальном голливудском боевике «Особо опасен» — стрельба по изогнутой траектории и, конечно же, замедление времени во время перестрелок и драк. Для этого используется сложнейшее физическое ядро, которое будет просчитывать сразу несколько уровней различных действий и происходящих на экране событий. Действие в игре начинается там, где заканчивается фильм. Уэсли ждут новые приключения — он вынужден играть роль творца правосудия. (   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 3st PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C23E68DFE8EC077F39A5CD1D9E2750FBA4FB7787
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561830   (405676) от 18.10.2012
+
+Psi-Ops: The Mindgate Conspiracy / Psi-Ops: Врата разума [Ru/En] (RePack) 2005 | R.G. Механики
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405676.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Psi Ops: Врата разума» резко выделяется из череды экшенов от третьего лица своей экстраординарностью. Основной акцент в игре сделан на уникальных способностях, которыми обладают герои. Телекинез, пирокинез, управление разумом, просмотр ауры, удаленное видение, опустошение разума – вкупе с обычным оружием эти навыки дадут вам массу новых возможностей при сражении с противниками.
+
+Умело комбинируя свои псионические навыки с классическим набором специального агента, главный герой сможет убивать своих врагов самыми изощренными способами, ведь единственное ограничение в игре – это предел воображения! (   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67A3C320C2A01D302C74C83CDC31D262FB6AA56B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562656   (405412) от 19.10.2012
+
+Viking: Battle for Asgard [Ru/En] (RePack/1.0.u.1) 2012 | Fenixx
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Викинги, беспощадные и яростные воины, всю свою жизнь посвящали сражениям. Умереть на поле боя — высшая честь для скандинавского воина, ведь павших храбрецов ждет вечная жизнь в Валгалле, где они будут готовиться к новым подвигам, но уже в битвах богов! Близится роковое противостояние высших существ. Реки наполнятся кровью, небесное царство Асгард превратится в руины, а мир погрузится в лютый холод и тьму — грядет Рагнарек.
+  Скандинавы оставили после себя богатую мифологию, и благодаря новому проекту от создателей серии Total War вы лично можете принять участие в противостоянии древних богов. Ареной для сражений станет мир простых смертных, беззащитных перед жерновами всесокрушающей войны. Остановить «апокалипсис» способен только Скарин — выдающийся бесстрашный герой. Именно ему предстоит отправиться в опасное путешествие, собрать войско для последней битвы и лицом к лицу столкнуться с опасным врагом. (   Читать дальше...   )Тип издания: RePackЖанр: Action (Slasher) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C7F3FC8BEE28C32B4201190332756ACEF51D0AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562255   (405391) от 19.10.2012
+
+Second Sight [Ru/En] (RePack) 2005 | R.G. Механики
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_405391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он очнулся в исследовательской лаборатории и теперь не может вспомнить ничего, кроме собственного имени. Все, кого он встречает на своем пути, бояться его или хотят убить. Таинственная организация охотится за ним, как за опасным зверем, желая заполучить живым или мертвым. Но Джон Ваттик, искалеченный и лишенный памяти, не так беззащитен, как может показаться на первый взгляд. Чудовищные эксперименты превратили Джона в могущественного телепата, возможности которого позволяют контролировать как неодушевленные предметы, так и живых людей! С таким оружием Джон становится грозным противником для любого, кто попытается встать у него на пути, а желание узнать правду и наказать виновных делает его еще опаснее.  (   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 3rd Person / StealthЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2D814AA575BF54797FCB377889ECE7D3B213CFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 562361   (405355) от 19.10.2012
 
 Viking: Battle for Asgard [Ru/En] (RePack/1.0.u.1) 2012 | R.G. Механики
@@ -6,7 +167,7 @@ Viking: Battle for Asgard [Ru/En] (RePack/1.0.u.1) 2012 | R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405355.jpg" />
 </div>
 
 
@@ -33,7 +194,7 @@ Devil May Cry 4 [Ru/En] (RePack/1.1) 2008 | R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404266.jpg" />
 </div>
 
 
@@ -63,7 +224,7 @@ Raiders of the Broken Planet (2017) [Ru/Multi] (1.0.0.1/dlc) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403743.jpg" />
 </div>
 
 
@@ -89,7 +250,7 @@ Through the Woods (2016) [Ru/Multi] (1.2) License GOG [Collector's Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402095.jpg" />
 </div>
 
 
@@ -115,7 +276,7 @@ Hitman: Sniper Challenge (2012) [Ru/Multi] (1.0.364.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397328.jpg" />
 </div>
 
 
@@ -141,7 +302,7 @@ Uprising 44. The Silent Shadows [Ru] (Repack/1.03) 2012 | Fenixx
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394613.jpg" />
 </div>
 
 
@@ -167,7 +328,7 @@ DroneZ / КиберZона [Ru] (L) 2001
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392608.jpg" />
 </div>
 
 
@@ -193,7 +354,7 @@ The Evil Within (2014) [Ru/Multi] (1.05/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392590.jpg" />
 </div>
 
 
@@ -219,7 +380,7 @@ Bully Scholarship Edition [Ru] (L) 2008
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_391779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_391779.jpg" />
 </div>
 
 
@@ -246,7 +407,7 @@ Sleeping Dogs (2014) [Ru/En] (1.0/u1) Repack xatab [Definitive Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391646.jpg" />
 </div>
 
 
@@ -272,7 +433,7 @@ Batman: Arkham City / Batman: Аркхем Сити (2011) [Ru/En] (1.1/dlc) ReP
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391467.jpg" />
 </div>
 
 
@@ -303,7 +464,7 @@ Overlord - Complete Pack [En/Ru] (Repack) 2007 - 2009 | R.G. Origami
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391385.jpg" />
 </div>
 
 
@@ -331,7 +492,7 @@ Through the Woods (2016) [Ru/Multi] (1.0) Repack Other s [Collector's Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388544.jpg" />
 </div>
 
 
@@ -357,7 +518,7 @@ Alice: Madness Returns (2011) [Ru/En] (1.0/dlc) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386893.jpg" />
 </div>
 
 
@@ -383,7 +544,7 @@ Devil's Hunt (2019) [Ru/Milti] (1.0) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386561.jpg" />
 </div>
 
 
@@ -409,7 +570,7 @@ Red Faction: Guerrilla Re-Mars-tered (2018) [Ru/Multi] (cs:4931) Repack R.G. Cat
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385233.jpg" />
 </div>
 
 
@@ -435,7 +596,7 @@ Absolver (2017) [Ru/Multi] (1.25/dlc) Repack R.G. Catalyst [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385116.jpg" />
 </div>
 
 
@@ -461,7 +622,7 @@ The Evil Within 2 (2017) [Ru/En] (1.0/dlc) Repack R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384542.jpg" />
 </div>
 
 
@@ -487,7 +648,7 @@ Tom Clancy's Splinter Cell Blacklist (2013) [Ru/En] (1.03/dlc) Rip R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384497.jpg" />
 </div>
 
 
@@ -513,7 +674,7 @@ ECHO (2017) [Ru/Multi] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382365.jpg" />
 </div>
 
 
@@ -524,162 +685,6 @@ ECHO (2017) [Ru/Multi] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3086D163A257E7A6157F0A26BB0C8A525034B62D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 572533   (382310) от 09.11.2012
-
-James Bond 007: Blood Stone [Ru/En] (RePack/1.0) 2010 | R.G. Shift
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжетная линия игры James Bond 007: Blood Stone создана Брюсом Ферштайном (Bruce Feirstein) — автором сценариев знаменитых киноблокбастеров «Золотой глаз», «Завтра не умрет никогда», «И целого мира мало». Внешность главных героев игры повторяет облики персонажей фильмов, в главных ролях которых выступили Дэниел Крейг и Джуди Денч (Dame Judith Olivia Dench), а в образе новой девушки Бонда без труда можно узнать певицу Джосс Стоун (Joss Stone). Также эти звезды приняли участие в озвучении оригинальной версии игры. Актером Motion Capture, исполнившим роль суперагента, стал дублер Дэниела Крейга — Бен Кук (Ben Cooke). Помимо захватывающей сюжетной кампании, в игре представлен многопользовательский режим с поддержкой до шестнадцати участников. С помощью обширного инструментария каждый сможет создать агента по своему вкусу — настроить внешность и подобрать экипировку.(   Читать дальше...   )Тип издания: RepackЖанр: Action (Shooter) / Arcade / Racing (Cars) / 3D / 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77E88AC0600DAADB3F7A3C5FBAFAD0839C97CD16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068331   (381952) от 31.10.2016
-
-Advent Rising (2005) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Advent Rising предлагает вам насладиться идеальным, отточенным геймплеем, сочетающим в себе динамичный экшен и непревзойденный геймдизайн. Больше всего Advent напомнит вам фантастический фильм, в котором игрок оказывается в постоянном водовороте всевозможных событий и совпадений. Специально для Advent знаменитый фантаст Орсон Скотт Кард создал захватывающую историю, (   Читать дальше...   )Тип издания: LicenseРазработчик: GlyphX GamesЖанр: Action (Shooter), 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1185DEB3232B42D97141E86C1C1A7E81BD0FE9AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 833866   (381938) от 23.10.2014
-
-Enclave (2003) [Multi] (1.0.0.1) License PROPHET
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Древний, как сама Тьма, демон пробудился от вечного забвения и обратил горящие дикой ненавистью глаза на земли, где царит светлая магия. Он стремительно зашагал в направлении своего взгляда, чтобы захватить неиссякаемый источник силы. Только один белый маг смог остановить врага, разбив пропасть под его ногами. Эта пропасть изолировала цивилизованный анклав от безжалостного внешнего мира. С тех пор прошло много тысяч лет. Сегодня провал затянулся и начинается война Света против Мрака. На чьей вы стороне ?(   Читать дальше...   )Тип издания: LicenseРазработчик: Starbreeze StudiosЖанр: Action (Slasher) / 3D / 3rd PersonЯзык озвучки: Английский, Немецкий, Французский, Испанский, ИтальянскийЯзык субтитров: Английский, Немецкий, Французский, Испанский, ИтальянскийЯзык интерфейса: Английский, Немецкий, Французский, Испанский, Итальянский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCCC8AFA7BF16E4C165E0DD83BC9C6FA1870E8EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068111   (381823) от 31.10.2016
-
-Through the Woods (2016) [Ru/Multi] (1.0/u1) Repack R.G. Revenants
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Through the Woods — это приключенческая игра от третьего лица в жанре «хоррор». Действие разворачивается в лесах западного побережья Норвегии и повествует о матери, потерявшей своего сына. По мере игры вам предстоит узнать от женщины, что предшествовало исчезновению ее сына.Тип издания: RepackРазработчик: Antagonist GamesЖанр: Adventure, Action (Survival horror), 3D, 3rd PersonЯзык озвучки: Английский, НорвежскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:436CAC40213A810713E3B0DFBC1F994A52E3395D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231708   (381242) от 10.10.2018
-
-Outbreak: The Nightmare Chronicles (2018) [En] (1.3/dlc) License PLAZA [Complete Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Город и сельская местность охвачены эпидемией. Чудовищные звери и изуродованные остатки людей свободно перемещаются по округе, быстро распространяющаяся мутация убивает все на своем пути. Лидия (Lydia) отделяется от своих оставшихся в живых товарищей и остается совсем одна, прячась в крупном поместье, где её единственной целью становится выживание. Она должна исследовать (   Читать дальше...   )Тип издания: LicenseРазработчик: Dead Drop Studios LLCЖанр: Adventure (Horror), Action, 3D, 3rd PersonЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50220BBB19611A954A831EB8D5D5164E97A68EC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253520   (381128) от 10.10.2018
-
-The Amazing Spider Man 2 / Новый Человек-паук (2014) [Ru/Multi] (09102018/dlc) Repack xatab
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очистить Нью-Йорк от преступников оказалось не так легко, как представлял себе Питер Паркер. Несмотря на все способности и умения Человека-паука битва со злом никак не закончится победой правосудия. Но в тенях кроется тот, кому наплевать на закон и порядок.Тип издания: RepackРазработчик: BeenoxЖанр: 3D, 3rd Person, ActionЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04305F544CB2AAF6FD167D46B401F62B243C0E05
 ```
 
 https://mybot314.ru/tekegram_catalog/

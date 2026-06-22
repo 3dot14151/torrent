@@ -1,3 +1,229 @@
+###  Публикация: 1185549   (291230) от 22.11.2017
+
+David Guetta feat. Rihanna - Who's That Chick (2010) 540p HDTV
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальный видеоклип David Guetta feat. Rihanna - Who's That Chick.Жанр: Музыкальный видеоклип.Субтитры: отсутствуютПродолжительность: 00:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F155C8F39B492685A10C0B18F91E85D6C473931
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185781   (285646) от 25.11.2017
+
+Сборник клипов - Ballads and Lyrics от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот сборник клипов я собирал когда то для девушки которую очень любил и вложил в него всю свою душу. Каждый кто любил по настоящему, найдет в нем частицу себя. Это 2я часть сборника. Смотрите,слушайте и наслаждайтесь. Все лучшее для вас. ALEXnROCK000 Intro
+051 Brian Adams - Do I Have To Say The Words
+052 Puff Daddy & Faith Evans - I'll be missing you
+053 Челси - Крылья(   Читать дальше...   )Жанр: Pop, RockФормат: MKVПродолжительность: 03:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:967CC11A56ABE0AC830B6C205E98252AFD6F4E51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185446   (285488) от 25.11.2017
+
+Сборник клипов - Русский Рок от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2) [upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Посвящается рок музыкантам и поэтам рано ушедшим, но продолжающим жить в своих стихах и песнях - исцелять,и радовать сердца и души людей своим творчеством. В сборник вошли самые сильные клипы за всю историю русского рока. Наши рокеры раньше не сильно заботились о качестве видео и о звуке в этом видео, да у многих и возможности не было. Поэтому при реанимации некоторых (   Читать дальше...   )000 Вступление
+052 Григорий Лепс - Ну и что
+053 Виктор Цой и Кино - Песня без слов
+054 Легенды рока - Все это рок-н-ролл(   Читать дальше...   )Жанр: РокПродолжительность: 03:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06008B1847E880FA660128523E3D4C366DAB83E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963983   (285130) от 09.12.2015
+
+VA - Зимний марафон № 211: Коктейль Хитовых Новинок (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зимние (09.12.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. 4G - Улыбайся (Премьера!) (00:03:48)
+02. Eros Ramazzotti - Buon Natale (Official Video) (00:04:25)
+03. Iva - Хочешь (Call Remix) (Премьера!) (00:03:16)
+04. Вера Брежнева - Мамочка (Live, 2015) (Премьера!) (00:02:54)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Dubstep, R'n'B, SoulПродолжительность: 01:29:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65B2001DAB6B330E405058C2B0D52223D7B74E47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264052   (282289) от 22.11.2018
+
+Битлз - Видеография / The Beatles - Videography (1963-1970) DVDRemux (2 диска)
+
+>>След.
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британская рок-группа из Ливерпуля, основанная в 1960 году, в составе которой играли Джон Леннон, Пол Маккартни, Джордж Харрисон и Ринго Старр. Также в разное время в составе группы выступали Стюарт Сатклифф, Пит Бест и Джимми Никол. Большинство композиций The Beatles созданы в соавторстве и подписаны именами Джона Леннона и Пола Маккартни. Дискография группы включает (   Читать дальше...   )Жанр: РокПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 01:09:23+01:09:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA8168415FE2621A7D59624892B88E3570E81559
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186819   (282171) от 27.11.2017
+
+Сборник клипов - Rap & Hip Hop от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я долго работал над этим сборником клипов. Перепахал много гектар видеоматериала и выбрал лучшее что есть в мировом рэпе. Да прибудет с нами качественная музыка! Все лучшее для вас. ALEXnROCK000 Intro
+054 Nelly & P.Diddy & Murphy Lee - Shake Ya Tailfeather
+055 Dino MC47 - Время
+056 2Pac- California Love(   Читать дальше...   )Жанр: Rap, Hip hopФормат: MKVПродолжительность: 03:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:311A91ECAA49937B565FA648D9F1C3292F2A5D22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186836   (282030) от 27.11.2017
+
+Сборник клипов - Hard Rock and Metal от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282030.jpg" />
+</div>
+
+
+###  Подробнее
+
+000 Intro
+051 Guns N' Roses - You Could Be Mine
+052 Kingdom Come - Should I
+053 Limp Bizkit - Take a Look Around(   Читать дальше...   )Жанр: Rock, MetalФормат: MKVПродолжительность: 03:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4E577E4E204B5508AAAD8B3BFC12B2FA337E374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187681   (278470) от 29.11.2017
+
+Сборник клипов - Best Pop Hits от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278470.jpg" />
+</div>
+
+
+###  Подробнее
+
+000 Intro
+061 Nicole Kidman & Ewan McGregor - Come What May
+062 Elize - Hot Stuff
+063 Blue - One Love(   Читать дальше...   )Жанр: PopФормат: MKVПродолжительность: 03:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BC93F865F4C9D30FA99E2F3590C9FBE23FF9D99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081362   (278171) от 12.12.2016
 
 Сборник клипов - Philizz "Video Yearmix" (2016) HDTV [AVC/1080p]
@@ -6,7 +232,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278171.jpg" />
 </div>
 
 
@@ -36,7 +262,7 @@ Thunder - Flawed to Perfection: the Video Collection 1990-1995 (2005) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277070.jpg" />
 </div>
 
 
@@ -65,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276877.jpg" />
 </div>
 
 
@@ -94,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275429.jpg" />
 </div>
 
 
@@ -123,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272327.jpg" />
 </div>
 
 
@@ -149,7 +375,7 @@ Def Leppard - Visualize, Video Archive (2001) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271125.jpg" />
 </div>
 
 
@@ -178,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267324.jpg" />
 </div>
 
 
@@ -207,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264071.jpg" />
 </div>
 
 
@@ -236,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264066.jpg" />
 </div>
 
 
@@ -266,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262025.jpg" />
 </div>
 
 
@@ -295,7 +521,7 @@ Queen feat. Adam Lambert — MTV EMA 2011. LIVE (2011) [H.264/720p-LQ] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256139.jpg" />
 </div>
 
 
@@ -323,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255052.jpg" />
 </div>
 
 
@@ -349,7 +575,7 @@ Inna. Caliente (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253449.jpg" />
 </div>
 
 
@@ -375,7 +601,7 @@ Lionel Richie feat. Shania Twain. Endless Love (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253405.jpg" />
 </div>
 
 
@@ -401,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252049.jpg" />
 </div>
 
 
@@ -430,7 +656,7 @@ Sandra - The Complete History (2003) DVDRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251584.jpg" />
 </div>
 
 
@@ -459,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_251223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251223.jpg" />
 </div>
 
 
@@ -485,7 +711,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_251044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251044.jpg" />
 </div>
 
 
@@ -496,230 +722,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0D9A230C39B71EB6BC1403ED6219EF02E635A3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490705   (248236) от 06.05.2012
-
-VA - Сборник клипов part. 3 Deutsch Rap (2002-2012) WEBRip 720p | KURD28
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Deutsch RapПродолжительность: ~03:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16C9704141D6AE486D774B3EF0AFCA2F1D30129D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 206123   (230982) от 05.06.2022
-
-Lita Ford-The Complete Video Collection (2003) DVD9
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гитаристка, певица и композитор Лита Форд родилась 23 сентября 1959 года в Великобритании.
-Лита Форд была участницей первого состава первой в истории хард-рока женской группы Runaways, с которой начала выступать в 15 лет. В 1979 году Runaways распались, и Лита Форд начала сольную карьеру, которая привела ее в лидеры глэм-рока. Дебютный альбом Форд записывался при (   Читать дальше...   )1) Kiss Me Deadly (music video)
-2) Dancing on the Edge (live)
-3) Broken Dreams (live)
-4) Can't Catch Me (live)(   Читать дальше...   )Режиссер: Bmg Special ProductАктеры: Lita FordПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBE80D61B2C35E6C6D3B252031A4DF2B9EE84BFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586297   (229407) от 08.12.2012
-
-DVJ Bazuka - Rock'n'Roll (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Electro HouseПродолжительность: 00:02:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3CBEF1E1B6337D3B9E9436BAE2AEDCF045ED58E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965333   (225379) от 14.12.2015
-
-VA - Зимний марафон № 212: Дискотека в стиле Country (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зимние (13.12.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.01. Amy Wilcox - Summer in Slow Motion (Official Video) (00:03:29)
-02. Ashley Monroe - Bombshell (Official Video) (00:03:17)
-03. Brad Paisley - Country Nation (Official Video) (00:03:50)
-04. Cam - Burning House (Official Video) (00:04:02)(   Читать дальше...   )Жанр: CountryПродолжительность: 01:23:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AD691863888AE1BCC0B22A3845398D622D9B85B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587090   (223829) от 10.12.2012
-
-OKSI - Новогодняя 2013 (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия раздач отЖанр: Pop, DanceПродолжительность: 00:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0CD3B6756EB5BAFD9A1FCABBBF73D60B7AAC6C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268587   (222452) от 13.12.2018
-
-Сборник клипов - Christmas & Happy New Year Collection от ALEXnROCK (2018) WEBRip [H.264/720p-LQ/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подарок слушателям к наступающему Новому году! Рожденственские и новогодние клипы на все времена. Ремастеринг видео и звука. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK000 Intro Christmas
-001 Darlene Love - All Alone On Christmas
-002 Kylie Minogue - It's The Most Wonderful Time Of The Year
-003 Cascada - Last Christmas(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:879B46EA051DC2A7F6D2AAC52C722CA2B8DFB1B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965969   (222117) от 16.12.2015
-
-Anacondaz - 18 клипов+4 видеопрезентации (2012-2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник видеоклипов российской альтернативной хип-хоп группы Anacondaz.Акуле плевать (Official Music Video) :: 04:18
- Беляши (Official Music Video) :: 04:06
- Бесит (Official Music Video) :: 02:50
- Вызывай (п.у. DJ MOS) :: 02:31(   Читать дальше...   )Жанр: Pauzern Rap, Hip-HopПродолжительность: 01:12:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7518212777648772B76304668770265593A4A0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343364   (217523) от 06.12.2019
-
-Сборник клипов - Old School Hits от ALEXnROCK часть 2 (2019) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217523.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли самые хитовые клипы нулевых. Это 2я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK00. Old Sckool Hits 2 - Intro
-01. Nicole Kidman & Ewan McGregor - Come What May
-02. Elize - Hot Stuff
-03. Blue - One Love(   Читать дальше...   )Жанр: PopПродолжительность: 02:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CE6CBC2BA18C38913CF3CB5B396BDD8F1090D2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

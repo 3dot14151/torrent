@@ -1,3 +1,81 @@
+###  Публикация: 1447354   (1031818) от 13.02.2021
+
+Голос тишины / Sorido eopsi / Voice of Silence (2020) WEBRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хромой Чхан-бок и немой Тхэ-ин работают на преступную организацию: готовят место для «допросов», после прибираются и избавляются от трупов. Однажды босс настойчиво просит их присмотреть за похищенной 11-летней девочкой, пока её отец не заплатит выкуп — так маленькая Чхо-хи из богатой семьи отправляется с Тхэ-ином в его деревенский запущенный дом.Производство: Корея Южная, Broccoli Pictures, Broedmachine, Lewis PicturesЖанр: Драма, криминал, триллерРежиссер: Хон И-джонАктеры: Ю А-ин, Ю Джэ-мён, Мун Сын-а, Ким Джа-ён, Ю Сон-джу, Ли Хэ-ун, Лим Ган-сон, Ким Хан-наПеревод: Многоголосый любительский (RealFake)Субтитры: Английские - отдельным файломПродолжительность: 01:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F00128236F70DE0AEC15479C7437BA5908AE9F42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447475   (1031777) от 13.02.2021
+
+Легендарная морская рыба (Большая морская рыба) / Hai Da Yu / Enormous Legendary Fish (2020) WEB-DLRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легенда гласит, что в Северном море живёт дух Хайру - Бог Моря. Раз в 100 лет одна выбранная девушка должна стать его женой. Али живет в деревушке на берегу моря и мечтает однажды выйти замуж за своего возлюбленного Вэнью. Но этому не суждено сбыться: морские пучины вновь требуют невесту для Бога Моря. Али противится выбору сельчан, но смиряется судьбе, когда понимает, (   Читать дальше...   )Производство: Китай, Oriental FeiyinЖанр: Фэнтези, история, мелодрамаРежиссер: A ЦзяньАктеры: Цзян Цзин Цзо, Хань Дун, Цзя Чжэн Юй, Дэн Юй Ли, Чжан Юй Си, Сяо Сян ФэйПеревод: Двуголосый любительский (Phoenixes) | Двуголосый любительский (Exa)Субтитры: Китайские (hardsub (неотключаемые), английские - отдельным файломПродолжительность: 02:00:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C18FE640E51F883D5C19773542F3D6DBD91D2DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447499   (1031718) от 13.02.2021
+
+Космические чистильщики / Seungriho (Space Sweepers) (2021) WEB-DLRip [H.265] [10-bit] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031718.jpg" />
+</div>
+
+
+###  Подробнее
+
+2092 год. Из-за глобального загрязнения Земля становится непригодной для жизни, поэтому компания UTS с помощью нанотехнологий планирует терраформировать Марс. Но в светлое будущее возьмут далеко не всё население, и команда космического корабля «Победа» в число этих счастливчиков не входит. Нищеброд Тхэ-хо, красавица-капитан Чан, матёрый космонавт Тайгер Пак и робот, (   Читать дальше...   )Производство: Корея Южная / Bidangil Pictures, Huayi Tencent Entertainment Company, Merry Christmas EntertainmentЖанр: Фантастика, комедия, приключения, боевикРежиссер: Чо Сон-хиАктеры: Сон Джун-ги, Ким Тхэ-ри, Чин Сон-гю, Ю Хэ-джин, Ричард Армитедж, Пак Е-рин, Ким Му-ёль, О Джи-юль, Нас Браун, Кевин ДокриПеревод: Многоголосый профессиональный (HDRezka Studio), Двуголосый любительский (Zozya & Numinel)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английскиеПродолжительность: 02:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B88E8E1B09B4BE422E7229C3244A19269B8C2415
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447525   (1031708) от 13.02.2021
 
 Служба спасения / Jin ji jiu yuan (The Rescue) (2020) WEBRip [MVO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031708.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031699.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031567.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031455.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031354.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031313.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029361.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029015.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028511.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028438.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028345.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028344.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028341.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028050.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028034.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027685.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027196.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027070.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026906.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026735.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026366.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026243.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026121.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02EFD8976F71926A9468577C55DE41D29D0D555E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454885   (1025967) от 17.03.2021
-
-Восьмилетняя помолвка / 8-nengoshi no hanayome / The 8-Year Engagement (2017) BDRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основано на реальных событиях. Хисаси и Маи должны были пожениться через три месяца, но Маи серьёзно заболевает и впадает в кому. Хисаси не сдаётся и не бросает свою невесту, парень не перестаёт молиться о её выздоровлении. Но когда Маи приходит в себя, она не может вспомнить ничего об их отношениях.Производство: Япония, Shochiku, Tokyo Broadcasting System (TBS)Жанр: Драма, мелодрамаРежиссер: Такахиса ДзэдзэАктеры: Такэру Сато, Тао Цутия, Кандзи Фурутати, Кэнта Хамано, Кэисукэ Хорибэ, Кадзуки Китамура, Юри Накамура, Тэтта Сугимото, Хироко ЯкусимаруПеревод: Двуголосый любительский (Bonsai Studio)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:59:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E78ACF9054A3EFEB95059163F7740B69CF83F542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454952   (1025963) от 17.03.2021
-
-Горячая дорога / Hotto rodo / Hot Road (2014) HDRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мияити Кадзуки живёт с матерью. Она всегда чувствовала себя нелюбимым ребёнком из-за обстоятельств, связанных со своим рождением. Ей не нравится бойфренд её матери, поэтому девочка в знак протеста становится проблемным ребёнком. Однажды, её знакомят с Харуямой Хироси, безрассудным парнем, членом банды мотоциклистов «Nights». Хироси — «трудный» подросток, который (   Читать дальше...   )Производство: Япония, Chukyo TV Broadcasting Company (CTV), Fukuoka Broadcasting System (FBS), Hiroshima Telecasting (HTV)Жанр: Драма, мелодрамаРежиссер: Такахиро МикиАктеры: Рэна Нонэн, Хирооми Тосака, Ёсино Кимура, Рина Ота, Рёхэй Судзуки, Сэйка ТакэтомиПеревод: Двуголосый любительский (Bonsai Studio)Субтитры: Русские, английские - отдельными файламиПродолжительность: 02:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B2A317B60A5094D637D4DC920589EA96614B8E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454887   (1025950) от 17.03.2021
-
-Лебедь из Синдзюку / Shinjuku suwan / Shinjuku Swan (2015) BDRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит в Кабуки-тё, квартале красных фонарей района Синдзюку. Безработный Сиритори Тацухико случайно знакомится с вербовщиком Маторой. Мужчина промышляет тем, что предлагает молодым девушкам влиться в бизнес развлечений для взрослых. Сиритори Тацухико приглянулся Маторе, и мужчина предложил ему работать вместе. Приступив к работе, Сиритори оказывается (   Читать дальше...   )Производство: Япония, Happinet, Japan Music Entertainment, Kodansha Ltd., Tristone Entertainment Inc.Жанр: КомедияРежиссер: Сион СоноАктеры: Такаюки Ямада, Юсукэ Исейа, Mao Асо, Эрика Савадзири, Кэн Ясуда, Эрина Мано, Го Аяно, Мотоки Фуками, Дзюн Мураками, Косукэ Тоёхара, Нобуаки Канеко, Ю ЯмадаПеревод: Двуголосый любительский (Bonsai Studio)Субтитры: Русские, английские - отдельными файламиПродолжительность: 02:19:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C29CFA99B8A625518085BE4DC3F194758101BD41
 ```
 
 https://mybot314.ru/tekegram_catalog/

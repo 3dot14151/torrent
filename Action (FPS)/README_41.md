@@ -1,3 +1,29 @@
+###  Публикация: 1824535   (128839) от 15.10.2025
+
+Borderlands 2 (2012) [Ru/En] (Build 9218157/dlc) Repack Wanterlude [Game of the Year Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение знаменитого ролевого шутера, заслужившего высокие оценки прессы и признание игроков. В команде с тремя соратниками по сети или же вдвоем с другом в старом добром режиме разделенного экрана отправляйтесь в рейд по неизведанным еще территориям Пандоры искать приключения на свою… голову. Выберите героя, как следует снарядите его - по традиции в вашем распоряжении (   Читать дальше...   )Тип издания: RepackРазработчик: Gearbox SoftwareЖанр: Экшены, ШутерыЯзык озвучки: Русский, АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38613B5884CA6DCBE237A71289130D6586BB4C52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684459   (127014) от 20.12.2023
 
 Ready or Not (2023) [Multi] (39903) Repack DjDI [Supporter Edition]
@@ -6,7 +32,7 @@ Ready or Not (2023) [Multi] (39903) Repack DjDI [Supporter Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127014.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Painkiller: Overdose / Painkiller: Передозировка (2007) [Ru/En] (1.
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125261.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ S.E.C.U. (2023) [Ru/En] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124491.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Hedon Bloodrite (2019) [En] (2.4.2/dlc) License GOG [Extra Thicc Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124013.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ GoreBox (2023) [En] (14.9.3) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123604.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Blood: Fresh Supply (2019) [Ru/En] (1.9.10-1/dlc) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122863.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Serious Sam 3: BFE (2011) [Ru/Multi] (3.0.3.0.261096/dlc) Repack Other s [Gold E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121480.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Heretic + Heretic 2 (1994, 1998) [Ru/En] (1.0) Repack/Rip Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118212.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Shadow Warrior 3 (2022) [Ru/Multi] (1.06de/dlc) Repack Decepticon [Deluxe Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117894.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Terminator: Resistance (2019) [Ru/Multi] (1.0/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117125.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Green Hell (2019) [Ru/Multi] (2.7.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117097.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Serious Sam: Siberian Mayhem (2022) [Ru/Multi] (1.07) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116819.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Skibidi Toilets: Invasion (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116793.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Turok 3: Shadow of Oblivion Remastered (2023) [Ru/Multi] (1.1.2381.1623) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116631.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ The Carrier and Crows (2024) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116623.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Sons of the Forest (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115957.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Singularity (2010) [Ru/En] (1.1) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115951.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Seed of the Dead: Sweet Home (2021) [Multi] (2.103/dlc) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115657.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Dying Light 2: Stay Human (2022) [Ru] (1.15.1/dlc) Repack Other s [Reloaded Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115630.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Fossilfuel 2 (2024) [Multi] (1.0.1) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115269.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ WRATH: Aeon of Ruin (2019) [Ru/Multi] (1.5) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114906.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Hospital of the Undead (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114574.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Fida Puti Samurai (2022) [En] (1.0b) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112672.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Deadlink (2022) [Ru/Multi] (1.2.32484) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104418.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Sniper Elite [En/Ru] (RePack) 2005 l R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101688.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ Sniper Elite [En/Ru] (RePack) 2005 l R.G. Catalyst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56F6F8F888B2E35C1C629999EAA6F3B5553C068C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822238   (100808) от 06.10.2025
-
-Sker Ritual (2022) [Ru/Multi] (1.3.2.25602/dlc) Repack Let'sРlay [Anniversary Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молчуны возвращаются в раундовом шутере с элементами выживания по мотивам отмеченного наградами британского хоррора Maid of Sker! Вас ждут орды уже знакомых и новых элитных чудовищ со сверхестественными способностями, оружие в стиле стим-панк, сменные ужасающие маски и загадочные цели.Тип издания: RepackРазработчик: Wales InteractiveЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E520F1DCAF1EB561122C85CF3D35638DD677249
 ```
 
 https://mybot314.ru/tekegram_catalog/

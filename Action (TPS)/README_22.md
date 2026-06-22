@@ -1,3 +1,133 @@
+###  Публикация: 1042179   (580280) от 11.08.2016
+
+Shadwen (2016) [En/Multi] (1.0.0/build 1356/dlc) License SKIDROW
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женщина-убийца получает задание уничтожить короля-тирана, узурпировавшего власть в небольшом государстве. По пути во дворец тирана Шадвен встречает девочку, оставшуюся без родителей. И теперь им придется вместе продолжить опасное путешествие. Шадвен должна пробираться, как можно тише, так как она рискует теперь не только своей жизнью, но и жизнью сироты. Да и убийство (   Читать дальше...   )Тип издания: LicenseРазработчик: FrozenbyteЖанр: Action, 3D, 3rd Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3867800519DDC75DB17C66B56025F5EC8476F9DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920495   (579621) от 22.07.2015
+
+Yasai Ninja (2015) [En/Esp] (1.0) License PLAZA
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yasai Ninja — игра жанра hack`and`slash, и своеобразная пародия на культ ниндзя в Японии. Главными героями здесь являются два простых овоща, а именно лук Каору и брокколи Джо. Вместе двоим друзьям предстоит пройти через серию разнообразных испытаний и приключений, попутно буквально разбивая, разрезая и разрубая всех своих врагов.Тип издания: ЛицензияРазработчик: Recotechnology S.L.Жанр: Action-RPG (Hack&Slash) / 3D / 3rd PersonЯзык озвучки: -/-Язык субтитров: Английский, испанскийЯзык интерфейса: Английский, испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72EFA6FAB0E937F6D9742EAE91C565B858FF2BF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042316   (579188) от 12.08.2016
+
+SNIPER BLACKLIST (2016) [En] (1.0) License PLAZA
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра в жанре экшен от студии jago138. Игрок берет на себя роль снайпера. Для достижение своей цени вам требуется использовать анемометр чтобы знать скорость ветра, контролировать дыхание и корректировать снайперскую наводку в зависимости от расстояния. Исследуйте свой путь в тылу противника в различных условиях, таких как: пустыня, джунгли и острова.Тип издания: LicenseРазработчик: jago138Жанр: Action, 3rd Person, 1st personЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5406CF2713C424320DA2186CB70B6050AE8B8940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042297   (579122) от 12.08.2016
+
+CASE: Animatronics (2016) [Ru/Multi] (1.0/u1) License PLAZA
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в полицейский участок, где работа до поздна может свести вас в могилу. Вы - детектив Джон Бишоп, который задержался в полицейском участке до глубокой ночи. От очередного кошмарного сна вас пробуждает странный звонок от старого знакомого, который переворачивает все с ног на голову.Тип издания: LicenseРазработчик: Case HorrorЖанр: Action (Survival horror), 3D, 1st Person, StealthЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F19B592FC47E866C632FFE1C7DFFD115D3C023E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042494   (579059) от 12.08.2016
+
+Eisenhorn: XENOS (2016) [En] (1.0) Repack Other s
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Eisenhorn: XENOS – приключенческий экшен, основанный на первой книге трилогии «Эйзенхорн» Дэна Абнетта. События игры разворачиваются в мрачной темной вселенной Warhammer 40,000 и рассказывают историю инквизитора Грегора Эйзенхорна, который призван защищать жителей Империи от всяческих угроз. В Eisenhorn: XENOS вас ждут сражения в реальном времени в группе с другими (   Читать дальше...   )Тип издания: RepackРазработчик: Pixel Hero GamesЖанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F49E3FF17FBE7330B274E1971B8105F4C1C1D61E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302832   (578878) от 17.05.2019
 
 Assassin's Creed III Remastered / Assassin's Creed 3 (2019) [RuMulti] (1.0.3/dlc) Repack Other s
@@ -6,7 +136,7 @@ Assassin's Creed III Remastered / Assassin's Creed 3 (2019) [RuMulti] (1.0.3/dlc
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578878.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ SNIPER BLACKLIST (2016) [En] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577697.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ SNIPER BLACKLIST (2016) [En] (1.0) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577693.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Sleeping Dogs (2012) [Ru] (2.1.437044/dlc) Repack Other s [Limited Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577282.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Assassin's Creed Liberation Remastered (2019) [Ru/Multi] (1.0.3) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575545.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Man O' War: Corsair - Warhammer Naval Battles (2017) [Multi] (1.4.2/dlc) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575544.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Alpha Protocol (2010) [Ru/Multi] (1.1) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_575520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_575520.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ The Cursed Crusade / The Cursed Crusade: Искупление (2011) [Ru/En] (Up
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571109.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Onechanbara Z2: Chaos (2016) [En/Jp] (1.07/dlc) Repack АRMENIAC
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568385.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Spec Ops: The Line (2012) [Ru/Multi] (1.0.689hf) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568305.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Prototype 2 [Ru]  (RePack) 2012 l cdman
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564323.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ Man O' War: Corsair - Warhammer Naval Battles (2017) [Multi] (1.1.4/dlc) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562736.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ Warhammer 40,000: Space Marine (2012) [Ru/Multi] (1.0.165.0/dlc) License PROPHET
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562623.jpg" />
 </div>
 
 
@@ -347,7 +477,7 @@ Prototype 2 [Ru/En] (RePack) 2012 l R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562316.jpg" />
 </div>
 
 
@@ -375,7 +505,7 @@ Prototype 2 + DLC [Ru] (RePack) 2012 l R.G. Origami
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562296.jpg" />
 </div>
 
 
@@ -402,7 +532,7 @@ Remothered: Tormented Fathers (2018) [Ru/Multi] (1.5.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561795.jpg" />
 </div>
 
 
@@ -428,7 +558,7 @@ Spec Ops: The Line (2012) [Ru] (1.0.6890.0/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561163.jpg" />
 </div>
 
 
@@ -454,7 +584,7 @@ Super Cloudbuilt (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560937.jpg" />
 </div>
 
 
@@ -480,7 +610,7 @@ Tom Clancy's Ghost Recon: Wildlands (2017) [Ru/Multi] (1.6.0/dlc) License STEAMP
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560936.jpg" />
 </div>
 
 
@@ -506,7 +636,7 @@ Red Faction: Armageddon (2011) [Ru/Multi] (1.01/dlc) License PROPHET [Complete E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560865.jpg" />
 </div>
 
 
@@ -532,7 +662,7 @@ Warhammer 40,000: Space Marine (2012) [Ru] (1.0.165.0/dlc) Repack =nemos= [Colle
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560772.jpg" />
 </div>
 
 
@@ -543,139 +673,6 @@ Warhammer 40,000: Space Marine (2012) [Ru] (1.0.165.0/dlc) Repack =nemos= [Colle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC25BFB15E620C7D687AFBD222D46EDAB64D46A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045215   (560765) от 22.08.2016
-
-The Bureau: XCOM Declassified (2013) [Ru/Multi] (1.0.0.2177831/Upd1/dlc) License PROPHET
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год 1962. Из-за холодной войны нация охвачена страхом. Секретная правительственная организация под названием "Бюро" начинает расследовать таинственные атаки нового врага поопаснее, чем коммунизм. В роли агента Картера вы будете отдавать приказы, нажимать на курок и вести за собой отряд в этом увлекательном тактическом шутере от третьего лица. Защитите человечество (   Читать дальше...   )Тип издания: LicenseРазработчик: 2K MarinЖанр: Action (Tactical, Shooter), 3D, 1st Person, 3rd PersonЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83660799F000357A3FF9819439A34681272CE176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994208   (560757) от 22.08.2016
-
-Red Faction: Armageddon (2011) [Ru/Multi] (1.01/dlc) Repack =nemos=
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя полвека после того, как команда сопротивления Красная Бригада и их союзники мародеры освободили Марс от жестоких Сил обороны Земли, гармония на Марсе вновь находится под угрозой, но на этот раз она исходит от смертоносной силы, покрытой тайной. Когда огромный Терраформер, обеспечивающий Марс воздухом и погодой, подобными Земле, был уничтожен, атмосфера превратилась (   Читать дальше...   )Тип издания: RepackРазработчик: Volition, Inc.Жанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: АнлийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF42E66CF0B5DB7DAB960D01B288D6011D8BFFC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234812   (558378) от 12.07.2018
-
-Red Faction: Guerrilla Re-Mars-tered (2018) [Ru/Multi] (4514) Rip Other s
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558378.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие в Red Faction: Guerrilla разворачивается спустя 50 лет после событий первой части игры. На этот раз игроку предстоит оказаться в роли повстанца из воссозданной вновь Красной бригады, сражающегося за свободу с Силами Обороны Земли (СОЗ). Red Faction: Guerrilla раздвигает пределы игрового процесса, основанного на разрушении, и отличается от других подобных (   Читать дальше...   )Тип издания: RipРазработчик: Volition, KAIKOЖанр: Action, 3rd Person, 3DЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:550188AD1852F5850536D20396B681A0243F68ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235585   (558374) от 12.07.2018
-
-The Saboteur (2009) [Ru/Multi] (1.3.22140/hotfix/dlc) License GOG
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действия The Saboteur происходят в оккупированном нацистами Париже. Вам предстоит сыграть роль диверсанта. Главный герой - Шон Девлин, уличный парнишка с Ирландии, работающий уличным механиком. Он пытается отомстить фашистскому офицеру за то, что тот испортим ему всю жизнь. Мстить вы будете с помощью британской разведки и французского Сопротивления. Шон может использовать (   Читать дальше...   )Тип издания: LicenseРазработчик: Pandemic StudiosЖанр: Action, 3D, 3rd PersonЯзык озвучки: Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A9725EF1EF3063370F2FD1D650F844C6D3EF39D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531284   (558334) от 04.08.2012
-
-Manhunt 2 [Ru] (RePack) 2009 l R.G. Element Arts
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558334.jpg" />
-</div>
-
-
-###  Подробнее
-
-PC-версия второй части кровавого триллера — одной из самых скандальных игр в истории мировой индустрии развлечений.
-В ходе секретных лабораторных испытаний произошла роковая ошибка, приведшая к катастрофическим последствиям. Из всех участников неудачного эксперимента уцелели двое пациентов — Даниель Лэм и Лео Каспер. Теперь «Проект Пикмана» не остановится ни перед чем, чтобы уничтожить свидетелей и скрыть правду о случившемся.
-Последние шесть лет ты находился в психиатрической клинике. Открыв глаза, ты видишь человека в белом халате. Его тело медленно оседает на пол. Из твоих дрожащих рук падает окровавленный шприц. Что происходит ? Как ты здесь очутился ? Кто ты такой ?
-Двери открыты. Это твой единственный шанс на спасение. Когда-то тебя лишили права на жизнь. Пришло время его вернуть(   Читать дальше...   )Тип издания: RePackРазработчик: Rockstar London, Rockstar Toronto, Rockstar NorthЖанр: Action / 3D / 3rd Person / StealthЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA534F90C644F5A5A2567EFADF8CB6282B748E8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

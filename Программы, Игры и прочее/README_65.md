@@ -1,3 +1,29 @@
+###  Публикация: 918441   (586665) от 15.07.2015
+
+WiFi Premium 4.120.02 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легкая версия легендарного приложения osmino WiFi. Это бесплатный доступ к WiFi по всему миру - более 20 миллионов точек WIFI. Легкий WiFi-менеджер, с помощью которого пользователи могут автоматически подключаться к бесплатному WiFi и обмениваться данными об открытых и закрытых WiFi сетях. Поиск и подключение к открытым WiFi сетям запускается одной кнопкой. Никаких (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 14.07.15Разработчик: RIWWПоддерживаемая ОС: Android 2.3 +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AED49722A33A337DA394127AA2A68B15754C192
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552484   (586599) от 21.05.2022
 
 GPX Viewer PRO v1.40.4 [Ru] (обновляемая)
@@ -6,7 +32,7 @@ GPX Viewer PRO v1.40.4 [Ru] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586599.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ ABC Bukvarik \ Букварик v2.0 [Ru]
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585646.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585622.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ ABBYY TextGrabber + Translator 1.13.1.209 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585108.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584789.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_584783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_584783.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584717.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584641.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584510.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584200.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584004.jpg" />
 </div>
 
 
@@ -304,7 +330,7 @@ Defense Zone 2 HD  МОДх4  1.5.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583617.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582733.jpg" />
 </div>
 
 
@@ -361,7 +387,7 @@ Sound Touch 2 V1.1 [Ru]
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582731.jpg" />
 </div>
 
 
@@ -389,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582730.jpg" />
 </div>
 
 
@@ -415,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582702.jpg" />
 </div>
 
 
@@ -444,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582554.jpg" />
 </div>
 
 
@@ -470,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581766.jpg" />
 </div>
 
 
@@ -499,7 +525,7 @@ Smart Kitty - развивающая игра 1.0.5 [Ru]
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581702.jpg" />
 </div>
 
 
@@ -525,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581640.jpg" />
 </div>
 
 
@@ -551,7 +577,7 @@ High-Speed Camera Plus v3.1.0 [Ru/Multi] - высокоскоростная ка
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580701.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_579931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_579931.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ Aldiko Book Reader Premium v3.0.13 [Ru/Multi]
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579750.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579746.jpg" />
 </div>
 
 
@@ -661,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578776.jpg" />
 </div>
 
 
@@ -673,32 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AB62BD0F90D7D24CC029E822C067C1DA3526D28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918995   (578745) от 23.07.2015
-
-Сказки народов мира 1.01 [Ru]
-
->>Программы, Игры и прочее
->>Всё для детей и родителей для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшая книга сказок для детей. Сказки народов мира. Более 1300 сказок!Тип издания: FreeРелиз состоялся: 9 июля 2015 г.Разработчик: by.andreidanilevichПоддерживаемая ОС: Android 2.3+Жанр: ДетскиеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7A209C62422BEFEF2C33319D585E186E17918D
 ```
 
 https://mybot314.ru/tekegram_catalog/

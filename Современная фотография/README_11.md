@@ -1,3 +1,32 @@
+###  Публикация: 467453   (83146) от 19.03.2012
+
+[Картинки] Фото знаменитости/Нюша
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ню́ша Влади́мировна Шу́рочкина, при рождении — Анна Владимировна Шурочкина; также используется псевдоним Nyusha; 15 августа 1990, Москва, СССР) — российская певица.
+Анна Владимировна Шурочкина родилась 15 августа 1990 года в семье музыкантов.
+Отец Владимир Вячеславович Шурочкин (род. 12 апреля 1966) — бывший участник музыкального коллектива «Ласковый май», будущий продюсер певицы. Мать Ирина Шурочкина в юности пела в рок-группе. Когда Анне исполнилось два года, родители развелись, но отец проводил с дочкой много времени. Сводная сестра Нюши — Мария Шурочкина, — двукратная чемпионка Европы среди юниоров по синхронному плаванию. Нюша впервые попала на студию в пятилетнем возрасте и записала «Песенку большой медведицы».
+Музыкального образования певица не получила, в детстве полтора года занималась с преподавателем по сольфеджио. Фортепиано, по собственному признанию, владеет не слишком хорошо. Также в детстве занималась тайским боксом. В 11 лет начала выступать на сцене (в составе группы «Гризли»). (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0705095B424BF651EBFCA474536E6077860035D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 468026   (82268) от 15.03.2012
 
 [Картинки] Фото знаменитости/Танита Феникс/Tanit Phoenix
@@ -6,7 +35,7 @@
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82268.jpg" />
 </div>
 
 
@@ -36,7 +65,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81439.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80826.jpg" />
 </div>
 
 
@@ -88,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80229.jpg" />
 </div>
 
 
@@ -114,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64491.jpg" />
 </div>
 
 
@@ -140,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32144.jpg" />
 </div>
 
 
@@ -166,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30429.jpg" />
 </div>
 
 
@@ -192,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27643.jpg" />
 </div>
 
 
@@ -218,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27634.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26718.jpg" />
 </div>
 
 
@@ -270,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26609.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24733.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23148.jpg" />
 </div>
 
 
@@ -348,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23009.jpg" />
 </div>
 
 
@@ -375,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15791.jpg" />
 </div>
 
 
@@ -401,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14053.jpg" />
 </div>
 
 
@@ -427,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14045.jpg" />
 </div>
 
 
@@ -453,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13795.jpg" />
 </div>
 
 
@@ -479,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13504.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13027.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11962.jpg" />
 </div>
 
 
@@ -559,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11877.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11844.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11742.jpg" />
 </div>
 
 
@@ -639,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11429.jpg" />
 </div>
 
 
@@ -650,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86827CF83807F3D52505D68670D47A340DB4F02B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819515   (1467) от 22.09.2025
-
-Фотография - Proko - Poses for Artists - Hands [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Позы рук для художников: мужские и женские. Они отлично подходят для практики рисования рук и изучения анатомии. Независимо от того, изучаете ли вы жесты, структуру, ракурс, штриховку, пропорции или просто ищете референс для иллюстрации.Формат: JPGРазрешение файлов: 1080x1920 - 4500x3375
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4A02163DD169CE6545846B2F73E48F4CC0E1634
 ```
 
 https://mybot314.ru/tekegram_catalog/

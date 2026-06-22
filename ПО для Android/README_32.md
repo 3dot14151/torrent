@@ -1,3 +1,29 @@
+###  Публикация: 1353236   (992619) от 17.01.2020
+
+MPC MACHINE - Sampling Drum Machine Beat Maker 1.36 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте лучшие музыкальные биты с барабанными колодками и сэмплами в месте с MPC MACHINE - Sampling Drum Machine Beat Maker. Профессиональный пробоотборник и ударные инструменты сделают ваш битбокс уникальным.Тип издания: Premium (Лицензия из Google Play)Релиз состоялся: 27.03.2019Разработчик: Incredible Software UKПоддерживаемая ОС: Android 1.5+Жанр: Мультимедиа, Music MakersЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D260E000F0614384F41173B6D5CBC327E8BD92B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353129   (992449) от 17.01.2020
 
 Cheat Engine 1.0 [Ru/En]
@@ -6,7 +32,7 @@ Cheat Engine 1.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992449.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Calendar+ 1.08.58 (Paid) [Ru/Multi] - Календарь
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992311.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Adobe Photoshop Touch 2.0.0 Mod by Normik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990538.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Self Camera HD Pro 4.2.21 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990367.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989684.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988693.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Free Audiobooks v1.14.7 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987823.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ GreenPower Premium 9.21 [Ru] - Экономная работа аккумуля�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985319.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ TurboScan Paid 1.5.7 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976473.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Compass Pro 1.49 (Paid) [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976381.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976165.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974394.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972875.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971526.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970484.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ Birthdays / Дни рождения v2016-01-15.34-paid Patched  [Ru/Multi] - В
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970193.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ Canva Premium 2.47.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969299.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963299.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963169.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ Adblock Plus 1.3.0.369 [Ru] - Блокировщик рекламы
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961821.jpg" />
 </div>
 
 
@@ -540,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959287.jpg" />
 </div>
 
 
@@ -566,7 +592,7 @@ Check Engine  v1.5.8.01 [Ru] - на русском языке
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959176.jpg" />
 </div>
 
 
@@ -592,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958964.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ WPS Connect 1.3.1 (Beta) [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954825.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ Assistant Premium 3.3.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954144.jpg" />
 </div>
 
 
@@ -655,32 +681,6 @@ Assistant Premium 3.3.9 [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5300A037959595928F9B2A0739ABEFE2A3683482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 832999   (951380) от 03.01.2017
-
-IP Tools Premium v7.0.4 [Ru/Multi] - инструмент для анализа сети
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951380.jpg" />
-</div>
-
-
-###  Подробнее
-
-IP Tools - удобный и мощный инструмент для анализа сети. Программа включает в себя самые распространенные утилиты, которые вы можете встретить в Windows или в Linux. Все, что необходимо для получения информации об ip адресе или сайте теперь в вашем устройстве! Простой интерфейс позволяет быстро узнать свой ip адрес и получить подробную информацию о любом другом адресе (   Читать дальше...   )Тип издания: Пиратка (PREMIUM features Unlocked)Релиз состоялся: 01.01.2017Разработчик: AmazingByteПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58B337037A64267068F56B35857F17A846A2E4B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

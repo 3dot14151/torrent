@@ -1,3 +1,109 @@
+###  Публикация: 1859667   (1061256) от 17.03.2026
+
+Избави нас. Одержимые / Deliver Us (2023) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда монахиня католического монастыря в Архангельской области заявляет о беременности близнецами, на место прибывают кардинал Руссо и отец Фокс, специалисты по мёртвым языкам. Они расшифровывают древние источники и узнают, что один из младенцев будет Мессией, а другой — Антихристом. Спасая монахиню от желающего её убить тайного ордена, священники бегут в Эстонию (   Читать дальше...   )Производство: США, Эстония / World's Fair PicturesЖанр: ужасыРежиссер: Кру Эннис, Ли Рой КунцАктеры: Ли Рой Кунц, Мария Вера Ратти, Томас Кречман, Александр Сиддиг, Яуне Киммел, Елена Раяпу, Анил Капур, Кэтлин Халлик, Вивек Тьяги, Марина ПушкарПеревод: Дублированный (Paragraph Media)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (full, SDH)Продолжительность: 01:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:292ED29ED6FA0DAAA4514D70BF97D803D696439E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859669   (1061254) от 17.03.2026
+
+Леди Наска / Lady Nazca / Maria Reiche (2025) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перу, 1930-е годы. Мария Райхе, молодая учительница математики, перебравшаяся в Лиму из Германии, обнаруживает в пустыне загадочные линии, простирающиеся на десятки километров. Пленённая тайной этих древних рисунков, она отказывается от прежней жизни и карьеры, чтобы посвятить себя их изучению и сохранению.Производство: Германия, Франция / Centre national du cinéma et de l’image animée (CNC), ARTE, Eurimages, Digital DistrictЖанр: драмаРежиссер: Дамьен ДорсазАктеры: Деврим Лингнау, Гийом Гальен, Оливия Росс, Марина Пумачапи, Хавьер Вальдес, Бето Бенитес, Альберик Гарсиа, Виктор Прада, Хорхе Помаканчари, Каталина Сильвестр ОреПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, французскийСубтитры: русские (full - AI), немецкие(full, SDH), английские, французские (forced)Продолжительность: 01:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63B727D20A25C0048C82D0B32FBB7D3A5428BB4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859735   (1061216) от 17.03.2026
+
+Уроды / Freaked (1993) BDRip [H.264] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двое парней и одна девушка приезжают во владения сумасшедшего учёного-доктора «Freek Land», чтобы познакомиться с жизнью тамошних уродцев. Доктор превращает их в монстров. Один становится чудовищем с наполовину обезображенным лицом, а остальные вдвоём трансформируются в одного: нижняя половина тела у них общая, а выше пояса они раздваиваются...Производство: США / Chiodo Brothers Productions, Tommy, Ufland, Will Vinton StudiosЖанр: фантастика, комедияРежиссер: Том Штерн, Алекс УинтерАктеры: Брук Шилдс, Уильям Сэдлер, Эдуардо Рикард, Дип Рой, Михай «Миху» Месарош, Брайан Брофи, Алекс Уинтер, Морган Фэйрчайлд, Рэнди Куэйд, Мистер ТиПеревод: авторский (Дольский; Дохалов; Филонов)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:19:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22EDC2F5B27DC53D4578C2F1B3156EDF7D9D2CAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859441   (1061187) от 15.03.2026
+
+Свободная страна / Land of the Free (1998) DVDRip [АVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фрэнк Дженнингс — обычный наивный менеджер, безоглядно преданный своему боссу, преуспевающему политику Айдану Карвеллу. Но его вера рушится, когда он узнает про своего кумира страшную правду. Получив доступ к секретным материалам ФБР, Фрэнк выяснил, что любимец американского народа напрямую связан с коррумпированными военными.
+
+Перед Фрэнком встает непростая задача: (   Читать дальше...   )Производство: США / PM Entertainment Group Inc.Жанр: боевикРежиссер: Джерри ДжеймисонАктеры: Джефф Спикмэн, Уильям Шетнер, Лиза Дарр, Ларри Седар, Джон Фьюри, Крис Леммон, Чарльз Робинсон, Коди Доркин, Роберт Торти, Кэндис АззараПеревод: Авторский (Юрий Сербин)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2971F30E12F02B878262F9E7DDE3D453BBCBD8B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859515   (1061125) от 16.03.2026
 
 Советник / The Counselor (2013) BDRip [H.264] [Расширенная версия]
@@ -6,7 +112,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061125.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061037.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060784.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060735.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060675.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060598.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060536.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060423.jpg" />
 </div>
 
 
@@ -214,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060390.jpg" />
 </div>
 
 
@@ -240,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060286.jpg" />
 </div>
 
 
@@ -266,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060241.jpg" />
 </div>
 
 
@@ -292,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060062.jpg" />
 </div>
 
 
@@ -318,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1059953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059953.jpg" />
 </div>
 
 
@@ -345,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059917.jpg" />
 </div>
 
 
@@ -372,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059863.jpg" />
 </div>
 
 
@@ -398,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059756.jpg" />
 </div>
 
 
@@ -424,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059527.jpg" />
 </div>
 
 
@@ -450,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059416.jpg" />
 </div>
 
 
@@ -476,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059415.jpg" />
 </div>
 
 
@@ -502,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059410.jpg" />
 </div>
 
 
@@ -528,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059405.jpg" />
 </div>
 
 
@@ -554,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059392.jpg" />
 </div>
 
 
@@ -565,110 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6FC5EB07CC727AB91D2DC7D267413CA29C2D94F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856974   (1059235) от 03.03.2026
-
-Женский бой / Girlfight (2000) BDRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Диана - девчонка упрямая. От этого в жизни у неё одни неприятности. В тех районах Нью-Йорка, где она выросла, иначе нельзя... Однажды она попадает в боксёрский зал и решает, что будет боксёром. Плевать, что бокс не женское дело. Побеждает упорнейший, а упорства Диане не занимать. Привкус пота и крови, схватка, победа над собой и противником вдыхают смысл в каждый (   Читать дальше...   )Производство: США / Green/Renzi, Independent Film ChannelЖанр: драма, спортРежиссер: Карин КусамаАктеры: Мишель Родригес, Хайме Тирелли, Пол Кэлдерон, Сантьяго Дуглас, Рэй Сантьяго, Виктор Сьерра, Элиса Боканегра, Шеннон Уолкер Уильямс, Луис Гасс, Хёрб Лоувелл, Томас Барбо, Дж.П. Линтон, Ирис Литтл Томас, Чак Хикки, Энтони РуисПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:50:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:712D04B6D1ADCBA6600BBE08FDF59C3DB38E1591
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856796   (1059170) от 02.03.2026
-
-Кровь на границе / Frontier Crucible (2025) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Опытный наемник, солдат в прошлом, Меррик должен доставить важный медицинский груз. Путь его ведет через опасные земли, где кровь льется рекой, а пули летят чаще, чем капли дождя с неба. Встретив разношерстную компанию вояк, он решает помочь прекрасной незнакомке и ее раненому мужу. Но не всем по вкусу такое благородство, и вот за Мерриком начинается настоящая охота.Производство: США / Bonfire Legend, Buffalo 8 Productions, Renegade EntertainmentЖанр: триллер, драма, вестернРежиссер: Трэвис МиллсАктеры: Майлз Клоэсси, Томас Джейн, Арми Хаммер, Райан Массон, Мэри Стикли, Илай Браун, Уильям Х. Мэйси, Зейн Холц, Эдди Спирс, Juwan LakotaПеревод: Дублированный (Leff Sound)Язык озвучки: РусскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 02:04:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE9ED099A8A3417040A25FA4C11F93D543313602
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856821   (1059150) от 02.03.2026
-
-Финикийская схема / The Phoenician Scheme (2025) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059150.jpg" />
-</div>
-
-
-###  Подробнее
-
-1950 год, где-то на Ближнем Востоке. Экстравагантный магнат Жа-Жа Корда переживает череду покушений и затевает грандиозный трансконтинентальный проект «Финикийская схема». В стремлении защитить свою империю, Корда назначает единственной наследницей дочь Лисл, вытащив её из монастыря. Им предстоит столкнуться с многочисленными врагами, государственными интригами и (   Читать дальше...   )Производство: США, Германия / American Empirical Pictures, Focus Features, Indian Paintbrush, Studio BabelsbergЖанр: драма, комедия, криминалРежиссер: Уэс АндерсонАктеры: Бенисио Дель Торо, Миа Триплтон, Майкл Сера, Риз Ахмед, Том Хэнкс, Брайан Крэнстон, Матьё Амальрик, Ричард Айоади, Уиллем Дефо, Скарлетт ЙоханссонПеревод: Дублированный (Movie Dubbing)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские - отдельными файламиПродолжительность: 01:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00403CD3912820DBE7A215F49CF2179A0331307B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856820   (1059149) от 02.03.2026
-
-Финикийская схема / The Phoenician Scheme (2025) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059149.jpg" />
-</div>
-
-
-###  Подробнее
-
-1950 год, где-то на Ближнем Востоке. Экстравагантный магнат Жа-Жа Корда переживает череду покушений и затевает грандиозный трансконтинентальный проект «Финикийская схема». В стремлении защитить свою империю, Корда назначает единственной наследницей дочь Лисл, вытащив её из монастыря. Им предстоит столкнуться с многочисленными врагами, государственными интригами и (   Читать дальше...   )Производство: США, Германия / American Empirical Pictures, Focus Features, Indian Paintbrush, Studio BabelsbergЖанр: драма, комедия, криминалРежиссер: Уэс АндерсонАктеры: Бенисио Дель Торо, Миа Триплтон, Майкл Сера, Риз Ахмед, Том Хэнкс, Брайан Крэнстон, Матьё Амальрик, Ричард Айоади, Уиллем Дефо, Скарлетт ЙоханссонПеревод: Дублированный (Movie Dubbing)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Forced, SDH)Продолжительность: 01:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54F2CB502DC1ADB9643D42406016E058BFC3765B
 ```
 
 https://mybot314.ru/tekegram_catalog/

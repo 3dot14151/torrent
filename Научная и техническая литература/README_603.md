@@ -1,51 +1,23 @@
-###  Публикация: 1725888   (108829) от 27.05.2024
+###  Публикация: 1697717   (118753) от 07.02.2024
 
-Diane Larsen-Freeman, Marti Anderson | Techniques and Principles in Language Teaching (2011) [PDF] [EN]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108829.jpg" />
-</div>
-
-
-###  Подробнее
-
-This is an third edition of our popular introduction to language teaching methodology, which describes different methods and approaches in language teaching. Clear and jargon-free, it provides practical step-by-step guidance for new teachers, and introduces more experienced teachers to new approaches and teaching ideas. Includes a new chapter on the use of digital (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Oxford University PressФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5719691AEE22CCAB10F86697A3091DFEEC0E3CCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726399   (108770) от 28.05.2024
-
-Alex Forero | ESL Conversation Lessons (2016) [EPUB] [EN]
+К. С. Кириченко | Почвы Краснодарского края (1952) [PDF]
 
 >>Научная и техническая литература
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118753.jpg" />
 </div>
 
 
 ###  Подробнее
 
-This book contains not only questions but also activities including, role-plays, board games, discussions and much more designed to get your students speaking effortlessly. Lessons are best suited to lower intermediate to advance level learners. Features:
-Instant lessons. Print and go type lessons inside.
-Easy to follow lessons.
-Online access- FREE Downloadable worksheets (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: CreateSpace Independent Publishing PlatformФормат: EPUBКачество: Изначально электронное (ebook)
+Автор настоящей книги «Почвы Краснодарского края»  по­ставил перед собой задачу дать научно-популярный очерк о почвенных  ресурсах  края.
+Систематизируя итоги своей многолетней работы автор использовал в необходимой мере литературные и оригинальные материалы  других  исследователей,  работавших по изучению почв края. Автор старался дать читателю возможно более полный очерк (   Читать дальше...   )Жанр: Учебная литератураИздательство: Крайгосиздат КраснодарФормат: PDFКачество: OCR с ошибками
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:940E9536FAA056F260E75F1E5E103DD034DF2C83
+magnet:?xt=urn:btih:095B8F2E4EC7E9A051A81362581B1B006B622E95
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,26 +25,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726359   (108765) от 28.05.2024
+###  Публикация: 1697715   (118743) от 07.02.2024
 
-John Hughes | ETpedia: 1,000 Ideas for English Language Teachers (2017) [PDF] [EN]
+Ю.И. Якимов,  А.В. Осадчий и др. | Практикум по эксплуатации машинно-тракторного парка (2004) [PDF]
 
 >>Научная и техническая литература
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118743.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ETpedia is an essential resource for those who teach English as a second or foreign language. It provides novice teachers and those who are in the early years of their careers with 1,000 creative tips, techniques, questions, thoughts and ideas on common teaching and classroom issues.
-Each section covers a different aspect of teaching and offers a selection of 10 (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Pavilion PublishingФормат: PDFКачество: Изначально электронное (ebook)
+В пособии дана общая характеристика машинно-тракторных агрегатов, рассмотрены вопросы их комплектования и кинематики, приведены технико-экономические показатели работы машинно-тракторных агрегатов, описаны основные операционные технологии механизированных работ в полеводстве, овощеводстве, садоводстве, виноградарстве и др. вопросы.
+Для предоставления возможности (   Читать дальше...   )Жанр: Учебное пособиеИздательство: КраснодарФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C9C036D1F5055520696401D55BC33976D21B59BD
+magnet:?xt=urn:btih:C8665945452D5B39172F6AC72242B1709433012A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,25 +52,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726340   (108762) от 28.05.2024
+###  Публикация: 1698236   (118655) от 08.02.2024
 
-Andrew William | ESL Classroom Games: 180 Educational Games and Activities for Teaching ESL/EFL Students (2017) [PDF] [EN]
+В. Плэтт | Информационная работа стратегической разведки (1958) [PDF, DJVU, EPUB]
 
 >>Научная и техническая литература
->>Учебники
+>>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118655.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The book features a wide variety of reading, writing, speaking and listening games and activities which are suitable for teen and adult learners alike. With focus on warm-up, repetition and drilling, team-based, spelling and grammar, speaking and pronunciation, memory and concentration, turn-based and one-on-one games. It's broken down into games for beginner, intermediate (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: CreateSpace Independent Publishing PlatformФормат: PDFКачество: Изначально электронное (ebook)
+Обучение логическому мышлению и поступкам. Логическое предсказание поступков окружающих людей.Жанр: Военное делоИздательство: Издательство иностранной литературыФормат: PDF, DJVU, EPUBКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5997703CF08B402DED99BA614728EE10A4947FB9
+magnet:?xt=urn:btih:0721A39DE442733C33D0BC75299133BDBBA0A894
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -106,28 +78,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726972   (108635) от 31.05.2024
+###  Публикация: 1698259   (118644) от 08.02.2024
 
-Pamela J. Sharpe | Barron's TOEFL iBT. Fourteenth edition (2013) [PDF] [EN]
+И.П. Степаненко | Основы теории транзисторов и транзисторных схем (1977) [DJVU]
 
 >>Научная и техническая литература
->>Иностранные языки (литература)
+>>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118644.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The most up-to-date test prep manual on the market, Barron's TOEFL iBT is available as a book only, but can also be purchased with several additional test preparation tools. The manual presents:
-A general overview of the TOEFL iBT
-Seven model TOEFL iBT tests with explanations or examples for all questions
-A review of required academic skills, including note taking, (   Читать дальше...   )Жанр: учебная литератураЯзык: английскийИздательство: Barron's Educational SeriesФормат: PDFКачество: Изначально электронное (ebook)
+В книге проводятся анализ и расчет основных типов транзисторных усилителей, импульсных схем и источников питания. Анализу схем предшествует рассмотрение физических процессов в полупроводниковых диодах и транзисторах и характеристик диодов и транзисторов в качестве схемных элементов. Существенно переработана по сравнению с третьим изданием, вышедшим в 1973 г., первая (   Читать дальше...   )Жанр: ЭлектроникаИздательство: ЭнергияФормат: DJVUКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A4CE4EDBC9A53D701FBDC365BA105A32D95818E
+magnet:?xt=urn:btih:5259D94808C7531A2DD6F3E3F82C9E0113F4084E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -135,379 +104,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726962   (108632) от 31.05.2024
+###  Публикация: 1698088   (118628) от 08.02.2024
 
-Rod Ellis | Understanding Second Language Acquisition (2015) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108632.jpg" />
-</div>
-
-
-###  Подробнее
-
-The book reflects recent trends in looking at cognitive and social aspects of second language acquisition, as well as examining the roles played by implicit and explicit instruction in language learning.
-Additional online resources are available at www.oup.com/elt/teacher/understandingsla
-Rod Ellis is the Distinguished Professor of Applied Language Studies in the (   Читать дальше...   )Жанр: учебная литератураЯзык: английскийИздательство: Oxford University PressФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28494274DC632D6D0D9CFE4B3CF32AB197E0EE74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727194   (108598) от 01.06.2024
-
-Ed Swick | English Problem Solver (2013) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108598.jpg" />
-</div>
-
-
-###  Подробнее
-
-English Problem Solver doesn't pretend that learning English is easy. Instead of covering the entirety of the language, it hones in on those areas where you might have difficulty--areas such as definite vs. indefinite articles, little vs. few, using get, and restrictive and non-restrictive relative clauses.
-Inside...
-A variety of extensive exercises for practice. (   Читать дальше...   )Жанр: учебная литератураЯзык: английскийИздательство: McGraw-Hill EducationФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3269CCD1501EE290515AEE6EE2A306C10D55D4AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727532   (108511) от 02.06.2024
-
-Brian Tomlinson (editor) | Materials Development in Language Teaching. Second Edition (2011) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Materials Development in Language Teaching aims to help readers apply current theoretical principles and research findings to the practical realities of developing and exploiting classroom materials. The authors also suggest new ideas and directions in materials development, which readers can pursue for themselves. This book is accessible to readers with little previous (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Cambridge University PressФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B34CDA85EA06E8ED262157C6E1716ACAB1235E43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727630   (108453) от 03.06.2024
-
-Adrian Wallwork | Word Games, Riddles and Logic Tests (2017) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tax Your Brain and Boost Your English
-This book contains exercises connected with some of the fun or more unusual aspects of the English languageand with games that typically a native English speaker would do. The games have been adapted into a manageable format, but the actual vocabulary contained has not been changed.
-The types of games include: lateral thinking (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61C80478D7D798F2CB850E7FA06492F755F5B989
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727641   (108433) от 03.06.2024
-
-Larry Ferlazzo, Katie Hull-Sypniesk | The ESL / ELL Teacher's Survival Guide (2012) [EPUB] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ready-to-Use Strategies, Tools, and Activities for Teaching English Language Learners
-Provides research-based instructional techniques which have proven effective with English learners at all proficiency levels
-Offers thematic units complete with reproducible forms and worksheets, sample lesson plans, and sample student assignments
-The book?s ESL lessons connect (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Jossey-BassФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3FF2ACD96DAF3806705AB0DD56054432CD05927
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728452   (108352) от 07.06.2024
-
-James Dean Brown, Christine Coombe (еditors) | The Cambridge Guide to Research in Language Teaching and Learning (2016) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108352.jpg" />
-</div>
-
-
-###  Подробнее
-
-This book provides an up-to-date and comprehensive overview of research methods in second-language teaching and learning, from experts in the field. The Cambridge Guide to Research in Language Teaching and Learning covers 36 core areas of second-language research, organised into four main sections Primary Considerations; Getting Ready; Doing the Research; Research (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Cambridge University PressФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D808CCCB3B9D44057E97A02FBEB2A78076C06AFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729704   (108067) от 12.06.2024
-
-Mike Thacker, Casimir Angelo | Essential French Grammar (2013) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Essential French Grammar is a student-friendly French grammar designed to give learners a firm foundation on which to build a real understanding of both spoken and written French.
-Clear explanations of grammar are supported by contemporary examples, lively cartoon drawings and a variety of exercises.
-Key features of each chapter:
-each grammar point explained initially (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: RoutledgeФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A973F47F99FB5E20C9DE3A8D886A0B0F4973E32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729738   (108066) от 12.06.2024
-
-Yeşim Aksan, Mustafa Aksan | A Frequency Dictionary of Turkish (2017) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108066.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Frequency Dictionary of Turkish enables students of all levels to build on their study of Turkish in an efficient and engaging way.
-Based on a 50 million word corpus, A Frequency Dictionary of Turkish provides a list of core vocabulary for learners of Turkish as a second or foreign language. It gives the most updated, reliable frequency guidelines for common vocabulary (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: RoutledgeФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5B95ABC190F94F0BAED47B2AD55EA85FF6E8432
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731597   (107721) от 21.06.2024
-
-Mitsuko Maeda-nye, Shizuro Okada | 15-Minute Japanese. Learn in just 12 weeks (2019) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Twelve themed chapters are broken down into easy-to-follow 15-minute daily lessons, spanning a range of practical themes, including leisure, business, food and drink, travel, and shopping. Each lesson combines vocabulary and grammar essentials with attractive full-color images, making it quick, easy, and fun to learn new Japanese vocabulary. There is no writing or (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: DK PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67C988787514623B1C1B80DA029EC07E5924FAA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732160   (107572) от 23.06.2024
-
-И.И. Привалов | Интегральные уравнения (1935) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая книга представляет собой систематический курс теории интегральных уравнений, в котором особое внимание уделено теории и подробно развиты применения к краевым задачам математической физики. Этот курс будет полезным руководством для физико-метематических факультетов университетов, а также полезным пособием для лиц смежных специальностей, желающих познакомиться (   Читать дальше...   )Жанр: МатематикаИздательство: Объединённое научно-техническое издательство НКТП СССРФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D172A7222026C2803BF2968A0FEA8F430D8EB575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732140   (107568) от 23.06.2024
-
-К. Поссе, И. Привалов | Курс интегрального исчисления (1939) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107568.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящем издании мною произведена коренная переработка курса интегрального исчисления проф. К. Поссе. Эта книга содержит полный курс интегрального исчисления и включает в объеме, необходимом для втузов, разделы диференциальных уравнений и рядов Фурье. В изложение всего материала книги я внес существенные изменения, причем значительная часть текста написана мною (   Читать дальше...   )Жанр: МатематикаИздательство: ГостехиздатФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07E72557700981B153A42D8F0EDB9FCC2DC6A1E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732106   (107567) от 23.06.2024
-
-К. Поссе | Курс дифференциального исчисления (1935) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник Поссе предназначается Комитетом по высшему техническому образованию в качестве стабильного для втузов с расширенной программой по математике. Он выходит в переработке профессора МГУ И.И.Привалова.
-Книга снабжена большим количеством упражнений.Жанр: МатематикаИздательство: Объединённое научно-техническое издательство НКТП СССРФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E6EC597507A6A8C582BDC8A3BC45CD1F788B16F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732179   (107562) от 23.06.2024
-
-Anita Ganeri | Amazing Earth (2021) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Award-winning children's author Anita Ganeri takes curious kids who love learning to the most incredible locations in the world. This science book for kids includes breathtaking images and mind-blowing facts about our majestic home - Earth. Turn the pages to discover natural wonders, stunning vistas and other jaw-dropping places from around the world.
-The Most Incredible (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: DK PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A423C3B507DDBA37BE34CF92D379A937877DA4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734805   (107061) от 05.07.2024
-
-Д.М. Блейкли | Поверхностная диффузия (1965) [PDF]
+Г.Д. Бурдун, В.А. Базакуца | Единицы физических величин (1984) [PDF]
 
 >>Научная и техническая литература
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118628.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Настоящий обзор, написанный одни из исследователей в этой области Д.М. Блейкли, содержит наиболее доступный для наблюдения случай поверхностной диффузии в однокомпонентных системах, то есть поверхностной самодиффузии.
-Рассмотрены не только основные экспериментальны методы, но и состояние теории вопроса.Жанр: ФизикаИздательство: МеталлургияФормат: PDFКачество: Обработанный скан
+В справочнике приведены единицы Международной системы (СИ), даны наименования, обозначения, определения и рассмотрены вопросы их практического применения. В книге кратко изложены также другие единицы, применявшиеся ранее.
+
+Нормативные материалы приведены по состоянию на 1 января 1984 г.
+(   Читать дальше...   )Жанр: ФизикаИздательство: Вища школаФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C7764BEC3E1C21192888ED7684E468C4C3BC1CA3
+magnet:?xt=urn:btih:4F0B39924DC0890FE1959F49019E68F13144E168
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -515,25 +133,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735008   (107034) от 06.07.2024
+###  Публикация: 1698256   (118619) от 08.02.2024
 
-П. Джурс, Т. Айзенауэр | Распознавание образов в химии (1977) [PDF]
+В.К. Захаров | Электронные элементы автоматики (1967) [DJVU]
 
 >>Научная и техническая литература
->>Точные и естественные науки
+>>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118619.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга посвящена применению кибернетических методов классификации объектов при помощи ЭВМ для анализа данных химического эксперимента. Эта монография - первая по автоматизации обработки данных научных исследований в области химического анализа как отечественной, так и в переводной литературе. Используются данные распространенных аналитических методов: масс-спектрометрии (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
+В книге рассмотрены принципы работы и методы расчета схем усилителей низкой частоты и постоянного тока, модуляторов, усилителей среднего значения тока, фазочувствительных усилителей-выпрямителей, избирательных усилителей и генераторов синусоидальных колебаний низкой частоты. Анализируются ламповые и полупроводниковые варианты схем.
+Книга предназначена для студентов (   Читать дальше...   )Жанр: ЭлектроникаИздательство: ЭнергияФормат: DJVUКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7CB91F389A0B7C1D52FCA2002EB2476CF252CDCB
+magnet:?xt=urn:btih:8066BA7A39AF10BBC67B9D078D62BD13E3D4C39E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -541,51 +160,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735019   (107032) от 06.07.2024
+###  Публикация: 1698457   (118477) от 09.02.2024
 
-Э. Стьюпер, У. Брюггер, П. Джурс | Машинный анализ связи химической структуры и биологической активности (1982) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книгу, написанную авторами из США, отличает актуальность темы (связь между химической структурой и биологической активностью), а также перспективность излагаемого метода (распознование образов) и средств его реализации (ЭВМ). В ней изложены принципы распознавания образов. На примере психтропных и снотворных агентов, одорантов и раздражителей носовой полости убедительно (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B29710ABE55813C48480835E5D8119CB642365
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735752   (106870) от 09.07.2024
-
-В.И. Смирнов | Технология интегральных микросхем (2023) [PDF]
+Ю.Г. Антонов и др. | Радиотехнические цепи и сигналы. Лабораторный практикум (2011) [PDF]
 
 >>Научная и техническая литература
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118477.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Изложены вопросы технологии производства интегральных микросхем. Основное внимание уделено вопросам формирования структуры полупроводниковых микросхем. Рассмотрена технология получения тонких пленок в гибридных интегральных схемах.Жанр: ЭлектроникаИздательство: Инфра-инженерияФормат: PDFКачество: OCR
+Представлены описания 14 лабораторных работ, выполняемых при изучении курсов цикла «Радиотехнические цепи и сигналы». Предназначен для студентов факультета радиотехники и телекоммуникаций направлений 210400 «Радиотехника», 210700 «Инфокоммуникационные технологии и системы связи» и 211000 «Конструирование и технология электронных средств».Жанр: РадиотехникаИздательство: СПбГЭТУ «ЛЭТИ»Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:74F7D4C827619053D558D027300CDE0E00A11720
+magnet:?xt=urn:btih:E2F4AAB4DABE03B17F189F95276D8CB3C12B748F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -593,26 +186,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736690   (106652) от 13.07.2024
+###  Публикация: 1698556   (118470) от 09.02.2024
 
-О.С. Ушакова (редактор) | Развитие речи детей 5-7 лет (2012) [PDF]
+Я. Б. Мордкович, Е. А. Соколов | Справочник-определитель карантинных и других опасных вредителей сырья, продуктов запаса и посевного матери­ала (1999) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дано морфологическое описание жуков-вредителей промышленного сырья и продуктов запаса (более 400 видов, представителей 24 семейств), а также гусениц-вредителей промышленного сырья растительного и живот­ного происхождения, пищевых продуктов, в том числе свежих фруктов и овощей, цветочной рассады, черенков и саженцев плодовых деревьев и кус­тарников (всего 158 видов (   Читать дальше...   )Жанр: Справочник-определительИздательство: КолосФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92A5D95F39648C8F9C7F93E9F672F6AE02C422E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698542   (118430) от 09.02.2024
+
+Н. В. Парахин,  И. В. Кобозев и др. | Кормопроизводство (2006) [PDF]
 
 >>Научная и техническая литература
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118430.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга посвящена вопросам развития речи детей дошкольного возраста старшей и подготовительной к школе групп. Предлагаются методические рекомендации по организации образовательной деятельности. Рассмотрены возрастные особенности развития речи детей 5-7 лет. Вводная часть знакомит с теоретическими основами программы и методики.
-В пособии дается материал для занятий, (   Читать дальше...   )Жанр: учебное, методическое пособиеИздательство: Москва: СфераФормат: PDFКачество: Обработанный скан
+Изложены биологические и экологические основы лугового и полевого кормопроизводства. Приведены классификация и характеристика природных кормовых угодий. Рассмотрены ресурсосберегающие технологии со­здания и использования высокопродуктивных сенокосов и пастбищ, заго­товки и хранения различных видов кормов. Уделено особое внимание основам семеноводства кормовых культур. (   Читать дальше...   )Жанр: УчебникИздательство: КолосСФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0D9D99321E50D6EF1AEAF6C6E63691ED50BE671
+magnet:?xt=urn:btih:3DC612225DEFC52469ED6435E4BFF15980387A67
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -620,25 +238,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738007   (106477) от 20.07.2024
+###  Публикация: 1698635   (118300) от 10.02.2024
 
-Джон Г. Мэтьюз, Куртис Д. Финк | Численные методы. Использование MATLAB (2001) [DJVU]
+Н. Коновалова и др. | От ЭР-200 до "Сапсана" (2023) [DJVU, PDF]
 
 >>Научная и техническая литература
->>Точные и естественные науки
+>>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118300.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В данной книге, ориентированной на пакет MATLAB, изложены основные методы численного анализа: численные решения нелинейных уравнений, систем линейных уравнений, дифференциальных уравнений и т. д. Все методы иллюстрируются примерами, в которых используютсяпрограммы из пакета MATLAB. Книга также содержит приложение, которое знакомит читателя с основными принципами (   Читать дальше...   )Жанр: МатематикаИздательство: ВильямсФормат: DJVUКачество: Обработанный скан
+В книге рассматривается история развития скоростного железнодорожного сообщения в СССР и России. Рассказывается о создании и развитии техники для высокоскоростного движения.
+И конечно о людях, которые рарабатывали ее, внедряли и обеспечивали ее эксплуатацию.
+Книга может быть использована как учебное пособие для дополнительного образования по истории железных дорог.Жанр: история техникиИздательство: Издательский дом "ОМ-Экспресс"Формат: DJVU, PDFКачество: Обработанный скан + OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD458E0EA1119A94FCE632D0F21D2BAE2938BFD4
+magnet:?xt=urn:btih:2D7E977DF9B40BC5DCB085F4AADF86DEBC244C25
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -646,25 +266,106 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737984   (106444) от 20.07.2024
+###  Публикация: 1699146   (118160) от 11.02.2024
 
-С.И. Туманов | Поиски решения задачи (1969) [PDF]
+Г.Б. Белоцерковский | Радиолокационные устройства (1961) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118160.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге описаны общие принципы работы, электрические схемы и конструктивные особенности нескольких образцов наземных и самолетных радиолокационных станций различного назначения.
+При этом автор не ограничивается простым описанием выбранных образцов аппаратуры, а расширяет сведения о них на основе анализа характеристик и параметров станций, критической оценки и сопоставления (   Читать дальше...   )Жанр: ЭлектроникаИздательство: ОборонгизФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:047717DF0078CB3E77E538887AB28C450498B8E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699147   (118157) от 11.02.2024
+
+Г.Б. Белоцерковский | Основы радиолокации и радиолокационные устройства (1975) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга является учебником для техникумов по курсу «Основы радиолокации и радиолокационные устройства». В ней изложены принципы радиолокации. Большое внимание уделяется обработке радиолокационных сигналов, в частности применению сложных сигналов. Рассматриваются структура РЛС, выходные устройства, изучаются особенности наземных, судовых и авиационных РЛС.
+Книга полезна (   Читать дальше...   )Жанр: ЭлектроникаИздательство: Советское радиоФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A77F3FB9C379F0FEA2F8FA724BC9946ECD1022B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698967   (118151) от 11.02.2024
+
+Г.Б. Белоцерковский | Антенны (1962) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во втором издании книги, значительно переработанном и дополненном, учтены последние достижения в области антенной техники. В ней рассматриваются теория длинных линий, электромагнитные волны и распространение радиоволн, антенно-фидерные устройства различных диапазонов волн и техника антенных измерений. Наиболее подробно излагаются вопросы теории и конструкции антенн (   Читать дальше...   )Жанр: ЭлектроникаИздательство: ОборонгизФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB2E42500F85BE0D9373DDAF02AF462944A50576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699119   (118144) от 11.02.2024
+
+А. Ф. Сафонов, А. М. Гатаулин и др. | Системы земледелия (2006) [PDF]
 
 >>Научная и техническая литература
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118144.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге подробно разобрано много задач и примеров по всему курсу математики старших классов средней школы. Показаны приемы и методы решения различных задач алгебры, геометрии и тригонометрии. Около 500 задач для самостоятельной работы, в конце к ним даны ответы, указания или полные решения. Из оглавления. 1. Алгебра. Уравнения в целых числах. Задачи на делимость. (   Читать дальше...   )Жанр: МатематикаИздательство: ПросвещениеФормат: PDFКачество: Обработанный скан
+Изложены теоретические, методологические и технологические основы систем земледелия. Даны агроэкономическое и агроэкологическое обосно­вания структуры посевных площадей, оценка системы севооборотов. Пока­зана почвозащитная ресурсосберегающая направленность системы обра­ботки почвы. Рассмотрена система обустройства природных кормовых уго­дий.
+Для студентов вузов, (   Читать дальше...   )Жанр: УчебникИздательство: КолосСФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CFEB624C8D22F3F3667AABBC57CA7797F9623FCF
+magnet:?xt=urn:btih:2D3552AD195CAB39BB66343E04D6528C489B5540
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -672,25 +373,315 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738233   (106363) от 21.07.2024
+###  Публикация: 1699139   (118137) от 11.02.2024
 
-P. Bettiol, R.B. Vinter | Principles of Dynamic Optimization (2024) [PDF] [EN]
+Н. Б. Натальин | Рисоводство (1973) [PDF]
 
 >>Научная и техническая литература
->>Точные и естественные науки
+>>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118137.jpg" />
 </div>
 
 
 ###  Подробнее
 
-This monograph explores key principles in the modern theory of dynamic optimization, incorporating important advances in the field to provide a comprehensive, mathematically rigorous reference. Emphasis is placed on nonsmooth analytic techniques, and an in-depth treatment of necessary conditions, minimizer regularity, and global optimality conditions related to the (   Читать дальше...   )Жанр: учебное пособиеИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+Учебное пособие «Рисоводство» написано в соответствии с программой, утвержденной Главным управлением высшего и среднего сельскохозяйственного образования Министерства сельского хозяйства СССР, и предназначено для агрономических специальностей (специализация «Рисоводство») сельскохозяйственных вузов. Разделы «Болезни» и «Вредители» написаны старшим научным сотрудником (   Читать дальше...   )Жанр: Учебное пособиеИздательство: КолосФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DECE3376C9A067B1BDEAC1609952F022AA915BCD
+magnet:?xt=urn:btih:406632AFC115ADEEA4A69E0F7888B6991F7ACB97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699126   (118134) от 11.02.2024
+
+Н.Г. Малюга, Э.Ф. Тюпаков и др. | Практикум по технологии производства продукции растениеводства (2008) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118134.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии рассмотрены материалы, которые помогут студентам изучить классификацию и морфологию полевых культур, определять посевные качества семян и рассчитывать их нормы высева семян, составлять технологические схемы, узнать назва­ния сортов и гибридов.
+Для студентов высших учебных заведений сельскохозяйственных ВУЗов, проходя­щих обучение в качестве бакалавров (   Читать дальше...   )Жанр: ПрактикумИздательство: КраснодарФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F147101BA394764B5A86BC27A069DB55EE681F23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699138   (118131) от 11.02.2024
+
+А.Н. Матвеев (ред.) | Общий физический практикум [4 книги] (1987 - 1991) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Общий физический практикум для студентов физических специальностей высших учебных заведений.Жанр: ФизикаИздательство: Издательство Московского университетаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD81402C87C62D3BE6B88AC4EF3D7AA81091B39D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699134   (118128) от 11.02.2024
+
+А. Ч. Уджуху, В. А. Масливец | Почвенное плодородие и продуктивность культур в рисовом севообороте (2005) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118128.jpg" />
+</div>
+
+
+###  Подробнее
+
+На основании многолетних исследований, с использованием опыта мирового и отечественного земледелия, разработаны научно обоснованные приемы повышения эффективности использования орошаемых земель, агроклиматических ресурсов, регулирования  плодородия и улучшения биологической активности почв. Для практического внедрения в хозяйства Кубани разработаны приемы регулирования (   Читать дальше...   )Жанр: УчебникИздательство: КраснодарФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92E1FDCAE24A49F6C11112A04ADA5ACF6E99C06D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699116   (118121) от 11.02.2024
+
+В.А. Масливец, H.H. Здесенко | Интенсивное использование земли в рисовых севооборотах (2008) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118121.jpg" />
+</div>
+
+
+###  Подробнее
+
+На основании многолетних исследований, с использованием опыта мирового и отечественного земледелия разработаны и научно обоснованы основные направления интенсификации орошаемых земель применительно к региону Северного Кавказа. При этом основное внимание уделено путям и способам  повышения эффективности использования промежуточных и парозанимающих культур в системе (   Читать дальше...   )Жанр: Учебное пособиеИздательство: КраснодарФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5BECEB54D93C0FFA477D41280F049968B4C7B61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699130   (118117) от 11.02.2024
+
+А. Я Ачканов, Ю.В Хомутов, Э. К. Эйсерт | Эффективное применение удобрений на Северном Кавказе (1984) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118117.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматриваются пути повышения эффективности применения органических и минеральных удобрений на Северном Кавказе освещаются вопросы организации и совершенствования агрохимического обслуживания колхозов и совхозов, внедрения автоматизированной системы управления агрохимслужбой.
+Рассчитана на руководителей хозяйств и специалистов.Жанр: УчебникИздательство: РоссельхозиздатФормат: PDFКачество: Необработанный скан с OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC1B722C0D45E0CAFEBCEE661286F19CBE645FE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699161   (117992) от 12.02.2024
+
+С.И. Надененко | Антенны (1959) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая вниманию читателей книга предназначается в качестве учебного пособия по курсу антенн для студентов факультетов радиосвязи и радиовещания электротехнических институтов связи и радиотехнических факультетов высших учебных заведений.Жанр: ЭлектроникаИздательство: Государственное издательство литературы по вопросам связи и радиоФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4D432D5847C016AD0A1569EC152821ABA8BAB1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699496   (117870) от 13.02.2024
+
+Станислав Дробышевский | Борьба за обед: Ещё 50 баек из грота (2024) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы – это то, что мы едим. Но мы – ещё и способ добычи пищи. Миллионы лет наши предки искали фрукты, ловили рыб, охотились на птиц и зверей, а иногда пытались и сами не стать чьим-то обедом. Вся наша жизнь вертится вокруг еды. Даже чувство удивления, способы общения, ритуалы – всё это либо проистекает из желания поесть, либо сопровождается пиром.
+Благодаря анализу (   Читать дальше...   )Жанр: Биология, биофизика, биохимияИздательство: Альпина нон-фикшнФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D032D9352C53D9C19BABE1E6BF0A8301BD915492
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699385   (117866) от 13.02.2024
+
+Ю.Ф. Опадчий, О.П. Глудкин, А.И. Гуров | Аналоговая и цифровая электроника (2005) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассматривается элементная база устройств полупроводниковой электроники, диоды, транзисторы, тиристоры, приборы с зарядовой связью: приведена классификация, вольт-амперные и частотные характеристики, основные схемы включения и особенности применения конкретных приборов в различных режимах работы. Излагаются принципы построения типовых аналоговых, импульсных и цифровых (   Читать дальше...   )Жанр: ЭлектроникаИздательство: Горячая линия-ТелекомФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FAD2712AA17A596A34806DE8911EBFA319CC27B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699410   (117864) от 13.02.2024
+
+А. Н. Николаева | Греческие мифы (2023) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот путеводитель по миру древнегреческих мифов и легенд отправит вас в далекое прошлое колыбели европейской цивилизации и заставит задуматься о том, как наши предки объясняли возникновение мира. В этой книге вы встретите богов и героев – от грозного Зевса и могущественного Посейдона до солнцеликого Аполлона и мудрой Афины. Вы узнаете о битвах между богами Олимпа (   Читать дальше...   )Жанр: Мифы. Легенды. ЭпосИздательство: Эксмо: БомбораФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2B20FDD324F35DB219925107263FC1CC5057B2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699396   (117861) от 13.02.2024
+
+Николаева А. Н. | Скандинавские мифы (2023) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга станет вашим спутником в мире скандинавской мифологии, начиная от древних легенд и заканчивая современными исследованиями. Вы узнаете о великих богах и героях, о волшебной Вальхалле и прекрасном ясене Иггдрасиле, о мифических существах древней скандинавской мифологии: чудесных животных, гномах, эльфах и прочих интересных и загадочных существах.Жанр: Мифы / легенды / эпосИздательство: Эксмо: БомбораФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BF5C093E2BB46DEFC036FA2BC85BF7F89F815EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699414   (117854) от 13.02.2024
+
+А. Н. Николаева | Славянские мифы (2023) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Славянские мифы» включает в себя множество интересных историй, описаний божеств, существующих в славянской мифологии. Она охватывает различные темы, которые будут интересны не только специалистам, но и любителям истории, фольклора и мифологии.
+Боги и богатыри, фантастические существа, традиции прошлого и настоящего, удивительные истории из жизни и культуры (   Читать дальше...   )Жанр: Мифы. Легенды. ЭпосИздательство: Эксмо: БомбораФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:080CD5F620126E30760D53299AC830F55B732177
 ```
 
 https://mybot314.ru/tekegram_catalog/

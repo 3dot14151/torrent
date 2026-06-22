@@ -1,3 +1,29 @@
+###  Публикация: 1771440   (29540) от 28.01.2025
+
+Места тут тихие (1967) WEBRip [H.264/1080p] [handmade upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29540.jpg" />
+</div>
+
+
+###  Подробнее
+
+1942 год. Великая Отечественная война. Молодой моторист Морозов вместе с опытным лётчиком майором Кабаровым летят на "самый северный аэродром". Из-за недостатка топлива экипаж вынужден совершить посадку во время бомбардировки на промежуточном аэродроме. Солдаты стройбата ремонтируют взлётную полосу и попадают под новую бомбардировку. Морозов помогает добраться (   Читать дальше...   )Производство: СССР, МосфильмЖанр: военныйРежиссер: Георгий ЩукинАктеры: Сергей Никоненко, Михаил Глузский, Николай Гриценко, Николай Тимофеев, Геннадий Крашенинников, Борис Юрченко, Болот Бейшеналиев, Вадим Захарченко, Анхель Гутьеррес, Павел ШпрингфельдПеревод: не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:20:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACB84112F29AC6699CF95EBE707F51F842A1E19A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775652   (29509) от 28.01.2025
 
 Мистер и миссис Смит / Mr. & Mrs. Smith (2005) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29509.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29502.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29481.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29474.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29441.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29440.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29438.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29432.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29423.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29422.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29415.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29407.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29406.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29403.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29317.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29309.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29297.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29284.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29262.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29229.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29228.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29226.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29219.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29218.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29209.jpg" />
 </div>
 
 
@@ -656,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:007D84ADC382BC8253B62E73093F8DFD52C4251C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821057   (29207) от 30.09.2025
-
-Близнецы-драконы / Seong lung wui / Twin Dragons (1992) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два идентичных близнеца были разлучены при рождении и оказались в разных семьях и по разные стороны Тихого океана. Один из близнецов — специалист по боевым искусствам, хулиган и задира, работает автомехаником в гараже отеля, в котором останавливается во время гастролей в Гонконге его брат — знаменитый музыкант всемирно известный дирижер из Нью-Йорка. Когда они встретятся, (   Читать дальше...   )Производство: Гонконг / Golden Harvest Company Ltd., Golden Way Films Ltd., Paragon Films Ltd.Жанр: боевик, комедияРежиссер: Ринго Лам, Цуй ХаркАктеры: Джеки Чан, Мэгги Чун, Тедди Робин, Джеймс Вон, Сильвия Чан, Кирк Вон, Дэвид Цзян, Мэйбл Чун, Альфред Чун, Джонни ВанПеревод: Многоголосый профессиональный (ОРТ)Язык озвучки: Русский, КитайскийСубтитры: русские, английскиеПродолжительность: 01:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F665887B54073EE80288D34509410903F11C7F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

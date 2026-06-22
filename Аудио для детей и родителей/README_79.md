@@ -1,3 +1,84 @@
+###  Публикация: 1427473   (183430) от 28.11.2020
+
+Екатерина Вильмонт | Даша и Ko. Трудно быть храбрым. Книга 4 (2018) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слабо помочь бандиту, который пытается спасти свою девушку? А поджарить яичницу в логове преступников? Только не Даше Лаврецкой, в жизни которой подобные истории приключаются на каждом шагу. За это-то она нравится мальчишкам, и они готовы идти за ней в огонь и воду. Но, чтобы добиться Дашиного расположения, им нужно проявить себя настоящими мужчинами и на собственном (   Читать дальше...   )Жанр: Детская литература/ДетективПродолжительность: 05:56:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A59E972E2F7DFDD6AA37439AEF94C524D7333786
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088933   (182933) от 28.11.2020
+
+Андрей Усачёв | Дед Мороз из Дедморозовки. Путешествие на Айсберге (2016) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы ждали продолжения?! Слушайте! Далеко на севере, где-то в Архангельской или Вологодской области, есть невидимая деревня Дедморозовка. В этой деревне и живут Дед Мороз со Снегурочкой и их помощники – снеговики и снеговИчки. Правда, время от времени они выбираются из Дедморозовки: едут за почтой в Великий Устюг, или совершают новогоднее путешествие по стране, а один (   Читать дальше...   )Жанр: Детям, аудиоспектакльПродолжительность: 02:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8956705CC0723181AFCDDBE80B3837F5BFAF9DB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155313   (182783) от 28.11.2020
+
+Добрые волшебники - Песни из сказок. Часть 1 (2015) [MP3|320 Kbps] <Детские песни>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Песня царевича и царевны Будур (из сказки «1001 ночь. Царевна Будур»)
+02. Песня колдуньи Маймуны (из сказки «1001 ночь. Царевна Будур»)
+03. Финальная песня царевича и царевны Будур (из сказки «1001 ночь. Царевна Будур»)
+04. Морская песня (из сказки «Остров сокровищ»)(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0EFE403981F6DBB45EA8B84639FBD7FE52D9632
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592930   (182575) от 24.11.2022
 
 Эсфирь Цюрупа | Улица Зелёная (2021) [MP3, Дмитрий Гугуев]
@@ -6,7 +87,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182575.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182480.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182416.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182381.jpg" />
 </div>
 
 
@@ -110,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182196.jpg" />
 </div>
 
 
@@ -136,7 +217,7 @@ VA - Музыка для оформления детских празднико�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181748.jpg" />
 </div>
 
 
@@ -165,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181407.jpg" />
 </div>
 
 
@@ -193,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181339.jpg" />
 </div>
 
 
@@ -219,7 +300,7 @@ Karunesh - Baby Massage (2012) [MP3|320 кб/с]<New age, Relax>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181254.jpg" />
 </div>
 
 
@@ -248,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180866.jpg" />
 </div>
 
 
@@ -277,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180848.jpg" />
 </div>
 
 
@@ -303,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180675.jpg" />
 </div>
 
 
@@ -329,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180600.jpg" />
 </div>
 
 
@@ -356,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180590.jpg" />
 </div>
 
 
@@ -385,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179956.jpg" />
 </div>
 
 
@@ -414,7 +495,7 @@ VA - Союз Детский 2 (2015) [MP3|320 Kbps] <Детские песни>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179697.jpg" />
 </div>
 
 
@@ -443,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179439.jpg" />
 </div>
 
 
@@ -469,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179431.jpg" />
 </div>
 
 
@@ -496,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178992.jpg" />
 </div>
 
 
@@ -525,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178985.jpg" />
 </div>
 
 
@@ -551,7 +632,7 @@ Volker Rosin - Alle Kinder tanzen (2012) [MP3|320 kbps] <Детские танц
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178897.jpg" />
 </div>
 
 
@@ -580,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178144.jpg" />
 </div>
 
 
@@ -606,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178055.jpg" />
 </div>
 
 
@@ -620,88 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D2E565739AC166A25518A7D630C63FD56699F48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975986   (177977) от 04.12.2020
-
-Кир Булычёв | Каникулы в космосе, или Планета Пять-Четыре (2015) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Радиоспектакль по повести Кира Булычёва "Гай-до".
-Первая редакция повести «Гай-до» под названием «Каникулы в космосе, или Планета Пять-четыре» была написана в соавторстве с читателями газеты «Пионерская правда». Дети присылали Булычёву свои варианты развития событий, а он выбирал один из них и писал по нему новую главу, которая публиковалась в следующем (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 01:59:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0133A821781609DD3E52E867F39F28FABD904350
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 686815   (177916) от 04.12.2020
-
-Трио Мультики - Песни для детей и их родителей (1994) [MP3|320 кб/с]<Детские песенки / Bard>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Трио 'Мультики' - Мультики (2:03)
-02. Трио 'Мультики' - Мышонок (2:20)
-03. 'Мультики' - Культпоход в оперу (2:16)
-04. Трио 'Мультики' - Африка (2:36)(   Читать дальше...   )Жанр: Детские песенки / BardПродолжительность: 00:58:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08F5583D043541403E632ABEBC3D2A54A36ABB8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148474   (175655) от 07.12.2020
-
-Рудольф Эрих Распе | Приключения барона Мюнгхаузена (2017) [MP3, Сергей Царегородцев]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_175655.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Прямо из дому отправился я в Россию, в самой середине зимы, совершенно правильно рассуждая, что в зимнюю пору на севере Германии, Польши, Курляндии и Лифляндии проезжие дороги, которые, по свидетельству всех путешественников, еще убийственнее дорог, ведущих к храму Добродетели, должны улучшиться благодаря снегу с морозом – без всякого вмешательства власть имущих, (   Читать дальше...   )Жанр: Классическая проза Сказка Детские приключенияИздательство: ИДДКПродолжительность: 03:10:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FC15891694FDFC69E1C988B1123437B8CACACE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

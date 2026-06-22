@@ -1,3 +1,82 @@
+###  Публикация: 973535   (979261) от 09.01.2016
+
+Легенды мирового кино. Гойко Митич (2014) SATRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979261.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Каждая программа цикла "Легенды мирового кино" - это своеобразная "легенда о легенде", отражающая взгляд авторов передачи на жизнь и творчество знаменитых актеров и режиссеров. Благодаря увлекательным и динамичным историям, которые создают автор цикла Андрей Истратов и ведущий Константин Карасик, герои их программ - действительно "легенды (   Читать дальше...   )Телекомпания: Россия, Гамаюн, ИП Истратов А.ВЖанр: ДокументальныйПродолжительность: 00:25:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D0CD614EF17F072A12B4953CFD53C4A372CE5CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973530   (979216) от 09.01.2016
+
+Легенды мирового кино. Луи де Фюнес (2008) SATRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неподражаемый король комедии Луи де Фюнес.Он учился на драматических курсах Р. Симона, работал в театре, на радио, в кабаре, а в 1946 году дебютировал в кино. Снимался в фильмах: "Папа, мама, служанка и я", "Не пойман - не вор", "Дьявол и десять заповедей", "Разиня", "Большая прогулка".
+В серии фильмов о Фантомасе (   Читать дальше...   )Телекомпания: ООО Телекомпания "Гамаюн"Жанр: ДокументальныйПродолжительность: 00:25:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751018827F5656DCB0723D1A2E15695AF436BFEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 884764   (976715) от 11.01.2016
+
+Дэвид Боуи: Пять лет / David Bowie: Five Years (2013) DVB
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм посвящен пяти важнейшим годам в карьере Дэвида Боуи: 1971, 1975, 1977, 1981 и 1983. Используя редчайшие, никогда до этого не обнародованные архивные съемки, разговоры с его соратниками в диапазоне от Брайна Ино до Тони Висконти и слова самого Боуи, записанные на пленку, режиссер Фрэнсис Уотли, потративший на этот фильм больше 10 лет, создает (   Читать дальше...   )Телекомпания: Серебряный ДождьЖанр: ДокументальныйРежиссер: Френсис УотлиПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76C0114FB039999D1A07ECDB94FAECBC5DA83687
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973747   (975739) от 12.01.2016
 
 К нам приехал... - Александр Кутиков (2015) DVBRip
@@ -6,7 +85,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975739.jpg" />
 </div>
 
 
@@ -35,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972718.jpg" />
 </div>
 
 
@@ -61,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972273.jpg" />
 </div>
 
 
@@ -87,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971806.jpg" />
 </div>
 
 
@@ -113,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971799.jpg" />
 </div>
 
 
@@ -139,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970924.jpg" />
 </div>
 
 
@@ -165,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969828.jpg" />
 </div>
 
 
@@ -191,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969717.jpg" />
 </div>
 
 
@@ -217,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969527.jpg" />
 </div>
 
 
@@ -245,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968818.jpg" />
 </div>
 
 
@@ -271,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968808.jpg" />
 </div>
 
 
@@ -297,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968570.jpg" />
 </div>
 
 
@@ -323,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967341.jpg" />
 </div>
 
 
@@ -351,7 +430,7 @@ Queen. Рок по-королевски / Becoming Queen (2004) IPTVRip [H.264]
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967175.jpg" />
 </div>
 
 
@@ -377,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967125.jpg" />
 </div>
 
 
@@ -403,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966135.jpg" />
 </div>
 
 
@@ -429,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965785.jpg" />
 </div>
 
 
@@ -455,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965775.jpg" />
 </div>
 
 
@@ -481,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965774.jpg" />
 </div>
 
 
@@ -507,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965750.jpg" />
 </div>
 
 
@@ -533,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965673.jpg" />
 </div>
 
 
@@ -559,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965601.jpg" />
 </div>
 
 
@@ -585,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965543.jpg" />
 </div>
 
 
@@ -596,84 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:518682AA0FFAF5CA5A59BECC5ADACDC994B49529
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359855   (962976) от 13.02.2020
-
-Полицейский с Рублевки. Новогодний беспредел 2. Фильм о фильме (2019) WEB-DL [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что осталось за кадром.Производство: Россия / ТНТ, LEGIO FELIXЖанр: Документальный, фильм о фильмеРежиссер: Марина СтепановаАктеры: Сергей Бурунов, Роман Попов, София Каштанова, Рина Гришина, Светлана Суханова, Александр Дерепко, Сергей Штатнов, Ростислав Гулбис, Ирина Вилкова, Александра Бортич и др.Субтитры: ОтсутствуютПродолжительность: 00:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC87DED9B3F288F77165A7490D246E2D04470493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977957   (962409) от 24.01.2016
-
-Как Чарли Чаплин стал бродягой / La naissance de Charlot (2013) HDTVRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очень многое уже рассказано о легенде Чарли Чаплина. Но как же все-таки вышло, что дитя улицы, родившийся в одном из самых неблагополучных кварталов Лондона, за столь короткий срок стал самым знаменитым человеком в мире?Телекомпания: Франция, Arte France, Lobster Films, Roy Export Company EstablishmentЖанр: Документальный, биографияПеревод: Многоголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:00:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCCBC59169B89DE2038AE12DDB9CD502E9D251FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978451   (962284) от 24.01.2016
-
-Приключения со "Звездной командой Джейсона" / The Adventures of Jason of Star Command (2005) DVDRip [H.264]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм о том как снимался легендарный сериал "Звездная команда Джейсона"Производство: США, FilmationЖанр: Документальный, ТелепередачаПеревод: Одноголосый закадровый (Трамвай-фильм)Субтитры: Русские (softsub (SRT), коментарии и надписи)Продолжительность: 00:31:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A752DAAF820FD71CDBD1D75F6878AFFB13E9FE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

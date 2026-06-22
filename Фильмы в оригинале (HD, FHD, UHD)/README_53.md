@@ -1,3 +1,134 @@
+###  Публикация: 1269004   (222637) от 13.12.2018
+
+Багровая мята / Peppermint (2018) BDRemux [EN / EN, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222637.jpg" />
+</div>
+
+
+###  Подробнее
+
+После жестокого нападения Райли Норт выходит из комы и узнает, что ее муж и дочь не выжили. Когда она понимает, что правосудие не настигнет убийц, женщина решает отомстить им собственными руками. Годами они тренирует свое тело и дух, готовясь отобрать жизнь у тех, кто повинен в смерти ее семьи.Производство: Гонконг, США / Huayi Brothers, Lakeshore Entertainment, STXfilmsЖанр: Боевик, Триллер, ДрамаРежиссер: Пьер МорельАктеры: Дженнифер Гарнер, Ричард Кебрал, Джон Галлахер мл., Джон Ортис, Метод Мэн, Энни Илонзе, Тайсон Риттер, Хуан Пабло Раба, Джефф Хефнер, Пелл ДжеймсПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCDD95AAAC2DCF6926E9A168C1ADEBD2AC2350E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269184   (222246) от 13.12.2018
+
+Месть Лиззи Борден / Lizzie (2018) BDRemux [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм, основанный на реальных событиях, рассказывает о Лиззи Борден, которую связывали близкие отношения с молодой горничной семьи, ирландкой Бриджет Салливан (Кристен Стюарт). В 1892 году Борден была обвинена в двойном убийстве, а суд над ней стал одним из самых противоречивых процессов в истории США.Производство: США / Powder Hound Pictures, Artina Films, Destro FilmsЖанр: Триллер, Драма, КриминалРежиссер: Крэйг Уилльям МакнейллАктеры: Хлоя Севиньи, Кристен Стюарт, Ким Диккенс, Дэнис О’Хэр, Фиона Шоу, Джефф Перри, Джейми Шеридан, Джэй Хьюджули, Джереми Сайкес, Тара ОксПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:501F0AA6BEE86194B1F7BCA3ADD3B6B5A88336B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342835   (221969) от 03.12.2019
+
+К звёздам / Ad Astra (2019) WEB-DL [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Недалёкое будущее. Несколько лет назад человечество запустило программу поиска внеземной жизни «Проект «Лима»», во главе которой стоял капитан Клиффорд Макбрайд. Последний сигнал экспедиции был зафиксирован в районе Нептуна, и с тех пор о её судьбе ничего не было известно. Сам капитан Макбрайд стал героем и самым известным космонавтом, вдохновившим многих на исследование (   Читать дальше...   )Производство: США, Китай, Бразилия / New Regency Pictures, Bona Film Group, Keep Your HeadЖанр: Фантастика, триллер, драма, детектив, приключенияРежиссер: Джеймс ГрэйАктеры: Брэд Питт, Томми Ли Джонс, Рут Негга, Дональд Сазерленд, Кимберли Элиз, Лорен Дин, Донни Кешаварц, Шон Блейкмор, Бобби Ниш, Лиза Гэй ХэмилтонПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 02:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F4826EAF7A8A8880F56BAEAAB0498CABFE75FB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966138   (221851) от 16.12.2015
+
+Синистер 2 / Sinister 2  (2015) BDRemux [H.264/1080p] [EN / Da, Fi, No, Sw Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сиквел рассказывает о молодом шерифе, решившем продолжить расследование серии таинственных убийств, описанных в первой части фильма, из-за которых в своё время потерял жизнь друг шерифа, сержант Элиссон Освальф.
+Расследование приводит шерифа к ферме, где он знакомится с дружелюбной семьей - близнецами Заком, Диланом и их матерью Кортни. Семьей, сбежавшей от издевательств (   Читать дальше...   )Производство: США, Великобритания, Alliance Films, Blumhouse Productions, IM Global, Automatik Entertainment, Entertainment One, Tank Caterpillar, Steady AimЖанр: ужасы, триллер, детективРежиссер: Киран ФойАктеры: Джеймс Рэнсон, Шаннин Соссамон, Роберт Дэниэл Слоун, Дартаниан Слоун, Лиа Коко, Тейт Эллингтон, Джон Бизли, Лукас Джейд Зуманн, Джейден Клейн, Лайла Хейли, Кейден М. Фриц, Оливия РэйниПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: датский, финский, норвежский, шведскийПродолжительность: 01:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0069359BC10902521699F53B4C6B5EBD8D36D30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965934   (221843) от 16.12.2015
+
+400 дней / 400 Days  (2015) BDRemux [H.264/1080p] [EN / Fr Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет вращается вокруг астронавтов, отправившихся на симуляторе в путешествие по направлению к далекой планете. Цель этого эксперимента состоит в том, чтобы проверить членов экипажа космического корабля на психологическую совместимость во время длительного полета.Производство: США, New Artists AllianceЖанр: фантастика, триллер, детективРежиссер: Мэтт ОстерманАктеры: Брэндон Рут, Кейти Лотц, Бен Фельдман, Дейн Кук, Томас Кэвэна, Грант Боулер, Сэлли Прессман, Фернанда Ромеро, Фрэнк Эшмор, Доминик Богарт, Марк Стегер, Люк БарнеттПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: французскийПродолжительность: 01:30:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98ACBDC2D6764AE9500FDB7FC4A1379083DB0B60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 966170   (220839) от 17.12.2015
 
 Близкое расстояние / Close Range  (2015) BDRip [H.264/1080p] [EN]
@@ -6,7 +137,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220839.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220695.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220343.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219801.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216931.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216606.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216396.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215917.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215851.jpg" />
 </div>
 
 
@@ -240,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215719.jpg" />
 </div>
 
 
@@ -266,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215672.jpg" />
 </div>
 
 
@@ -292,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215658.jpg" />
 </div>
 
 
@@ -318,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215104.jpg" />
 </div>
 
 
@@ -344,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214327.jpg" />
 </div>
 
 
@@ -370,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214307.jpg" />
 </div>
 
 
@@ -399,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214233.jpg" />
 </div>
 
 
@@ -425,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213965.jpg" />
 </div>
 
 
@@ -451,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213848.jpg" />
 </div>
 
 
@@ -477,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213819.jpg" />
 </div>
 
 
@@ -503,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213117.jpg" />
 </div>
 
 
@@ -529,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212766.jpg" />
 </div>
 
 
@@ -540,136 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D983614EA5ED223FE52CE41FB9AB030E5C35E97E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831768   (212211) от 29.10.2025
-
-Баллада о маленьком игроке / Ballad of a Small Player (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лорд Дойл затаился в Макао, проводя дни и ночи в казино, пьянствуя и играя на те немногие деньги, что у него остались. Пытаясь расплатиться с быстро растущими долгами, он получает спасение от таинственной Дао Мин, сотрудницы казино, хранящей свои тайны. Однако за ним по пятам следует Синтия Блайт — частный детектив, готовая напомнить Дойлу от чего он бежит. Пока (   Читать дальше...   )Производство: Германия, Великобритания / Good Chaos, Nine Hours, Stigma FilmsЖанр: триллер, драма, криминал, детективРежиссер: Эдвард БергерАктеры: Колин Фаррелл, Chik-Ka Lai, Alan Chang, Маргарет Чунг, Джейсон Тобин, Тильда Суинтон, Чэнь Фала, Динни Ип, Selena Fong, Christina YongПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские, Английские (Forced, Full, SDH)Продолжительность: 01:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27EAF774762F51C2708F47C4081050B93C06EAF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585451   (211709) от 22.10.2022
-
-Стримеры / Slayers (2022) WEB-DL [H.264/1080p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приехав в особняк затворника-миллиардера, группа интернет-знаменитостей оказывается в логове злого вампира. Спасти их могут только известный онлайн-игрок и охотник на вампиров.Производство: США / BondIt Media Capital, Buffalo 8 Productions, Fasehun FilmsЖанр: ужасы, фэнтези, комедияРежиссер: К. Эшер ЛевинАктеры: Томас Джейн, Кара Хэйуорд, Джек Доннелли, Лидия Хёрст, Малин Акерман, Эбигейл Бреслин, Эшли Рейс, Райли Дель Рей, Сойер Шарбино, Адам АмбрусоПеревод: отсутствуетЯзык озвучки: английскийСубтитры: отсутствуютПродолжительность: 01:28:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2A86A9A6D0D797B47D1D38F7E3C3775942598FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585448   (211694) от 22.10.2022
-
-З/Л/О 99 / V/H/S/99 (2022) WEB-DL [H.264/1080p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211694.jpg" />
-</div>
-
-
-###  Подробнее
-
-На видеокассете, куда подросток записывал свои игры в солдатики, обнаруживаются свидетельства других ужасающих событий. Музыкальная группа залезает в подвал, где несколько лет назад погибли другие музыканты; студентка, очень желающая вписаться в сообщество популярных девчонок, соглашается провести ночь в гробу; на детском телешоу происходит несчастный случай; компания (   Читать дальше...   )Производство: США / Cook Filmworks, Winterspectre EntertainmentЖанр: ужасыРежиссер: Flying Lotus, Мэгги Левин, Тайлер МакИнтайрАктеры: Джесси ЛаТуретт, Кеануш Тафреши, Дэшил Дерриксон, Джексон Келли, Тайби Дискин, Верона Блу, Aminah Nieves, Келли Миссал, Мелисса Маседо, Элли ИоаннидесПеревод: отсутствуетЯзык озвучки: английскийСубтитры: отсутствуютПродолжительность: 01:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC382CC796948F51418555314185D125209C6F75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585456   (211689) от 22.10.2022
-
-Ужасающий 2 / Terrifier 2 (2022) WEB-DL [H.264/1080p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211689.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этот Хэллоуин в городке округа Майлз снова пробуждается зло: клоун Арт возвращается после воскрешения из мертвых. Чтобы остановить его, девушке с братом предстоит раскрыть секрет Арта и понять, из какого мира он пришел.Производство: США / Dark Age Cinema, Fuzz on the Lens ProductionsЖанр: ужасыРежиссер: Дэмиен ЛеонеАктеры: Дэвид Ховард Торнтон, Дженна Кэнелл, Лорен ЛаВера, Катрин Коркоран, Саманта Скаффиди, Фелисса Роуз, Кэти Магуайр, Гриффин Сантопьетро, Кэйси Хартнет, Kailey HymanПеревод: отсутствуетЯзык озвучки: английскийСубтитры: отсутствуютПродолжительность: 02:18:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83ECBB1A1893D560B45EBB1C21B4D13232728CEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572341   (209633) от 26.08.2022
-
-Время для себя / Me Time (2022) WEB-DL [H.264/1080p] [EN / RU, UKR, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает об отце, который впервые за много лет находит время для себя, пока его жена и дети отсутствуют. Он воссоединяется с другом для диких выходных.Производство: США / 5150 Action, Hartbeat ProductionsЖанр: комедияРежиссер: Джон ГамбургАктеры: Марк Уолберг, Кевин Харт, Луис Херардо Мендес, Реджина Холл, Джимми О. Ян, Джон Эймос, Таж Моури, Анна Мария Хорсфорд, Эндрю Сантино, Карло РотаПеревод: отсутствуетЯзык озвучки: английскийСубтитры: русские, украинские, английские и др.Продолжительность: 01:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:595823267B66C219FB1AE11D6ED7BEF001BE0139
 ```
 
 https://mybot314.ru/tekegram_catalog/

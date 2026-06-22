@@ -1,3 +1,55 @@
+###  Публикация: 637430   (898470) от 01.04.2013
+
+Les Enfoires - Attention Au Depart (2013) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A1F9F941406444605DD20AE4B8EFABA25E4D152
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 637496   (898347) от 01.04.2013
+
+Marios Brasil - Sem Para (2013) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE87D607FFD3B9C412BD033B45B6D34F5CA8CDCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 637679   (897988) от 01.04.2013
 
 Depeche Mode - Soothe My Soul (Uncensored) (2013) [1080p] HDRemux
@@ -6,7 +58,7 @@ Depeche Mode - Soothe My Soul (Uncensored) (2013) [1080p] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897988.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Welicoruss - Siberian Heathen Horde (2020) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896861.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Kreator - 666 - World Divided (2020) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896789.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Lamb of God - Checkmate, Memento Mori (2020) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896755.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Die Antwoord - 23 Music Videos (2009-2020) WEBRip [VP9/H.264/2160p/1080p/720p/48
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896555.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896543.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ Anna Cyzon - Into The Sun (2013) WEBRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894922.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893489.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ Skrik - Апофеоз (COVID-19. Коронавирус, Италия) (2020) W
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893417.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ VA - Весенний марафон № 226: Хиты до Утра (2016) WEBR
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893177.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ Lana Del Rey - The Video Collection 2011-2012 [1080] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892066.jpg" />
 </div>
 
 
@@ -307,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891528.jpg" />
 </div>
 
 
@@ -336,7 +388,7 @@ Vermicide Violence - Coronaviscerated (feat. Jared Dines) COVID-19 (2020) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_890090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_890090.jpg" />
 </div>
 
 
@@ -363,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889948.jpg" />
 </div>
 
 
@@ -389,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889900.jpg" />
 </div>
 
 
@@ -416,7 +468,7 @@ Timeflies - I Choose U (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889506.jpg" />
 </div>
 
 
@@ -442,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889092.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888957.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ Inna - Party Never Ends (Ok Edition. CD №4) (2013) [H.264/1080p-LQ] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888941.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ Jenifer - L'amour Fou (2012) HDTV [H.264/1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887230.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887110.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Northern Genocide - 3 Music Videos (2015-2019) WEBRip [H.264/1080p-LQ] <Industri
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886991.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ Malevolence (UK) 7 Music Videos (2015-2020) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886980.jpg" />
 </div>
 
 
@@ -636,7 +688,7 @@ NikitA - Игра (2013) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886814.jpg" />
 </div>
 
 
@@ -647,58 +699,6 @@ NikitA - Игра (2013) WEBRip [H.264/720p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E7200EB5EE407A5B682B29351DB6842BE5904A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 762964   (886643) от 05.03.2014
-
-NikitA - Avocado (2012) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF17BF7C87935FAC6980F64D364838104E2FBA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 296892   (885256) от 19.02.2011
-
-Агата Кристи - Сборник видеоклипов (1993-2003)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 01:33:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75130B978045A3B8804181DAA973A7C0127A4A16
 ```
 
 https://mybot314.ru/tekegram_catalog/

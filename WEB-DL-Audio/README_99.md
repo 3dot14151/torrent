@@ -6,7 +6,7 @@ Injustice System - Collapse of Mind (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68325.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Thornhill - Bodies (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68306.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Phantom Alley Swing - Pineapple Parade (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68265.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Heavylution - The Cycle (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68252.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Nova Revolution - Tour de force (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68249.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Night Intruder - Sick Pretty Thing (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68246.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Night Intruder - Hellbound & Free (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68242.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Seth Walker - Why The Worry (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68240.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Mulvey's Medicine - Dopamine (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68233.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Alliance - Before Our Eyes (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68230.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Jerome Godboo - Deep Down (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68229.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ The Devil Makes Three - Spirits (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68228.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Natacha Lycurgue - Falling Petals - The Fearful-Avoidant's Discard (2025) [FLAC 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68227.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Bleed from Within - Zenith (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68222.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Sheila - A L’avenir (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Chanson>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68220.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Fractal Universe - The Great Filterspic (2025) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68206.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Lo-Pan - Get Well Soon (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68205.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Luna Kills - Deathmatch (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt. Metal, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68204.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Sirens - In Goat We Trust (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68203.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Benediction - Ravage Of Empires (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <De
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68201.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Savage Master - Dark & Dangerous (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hea
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68199.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Bright Light Bright Light - Enjoy Youth (2024) Enjoy More: Deluxe Version, 2025,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68198.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Grace VanderWaal - Childstar (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68197.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Behind Crimson Eyes - An Exodus From Eden (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68077.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Yandel - Sinfonico  (En Vivo) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68067.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Derek MC Gowan - Rainlight (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68029.jpg" />
 </div>
 
 

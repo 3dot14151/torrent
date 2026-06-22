@@ -1,3 +1,55 @@
+###  Публикация: 921023   (577238) от 24.07.2015
+
+Discovery: Ледяное золото / Ice Cold Gold (2013) SATRip (1 сезон: 1-6 серии из 6)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Льды Гренландии - завораживающе красивы и исключительно опасны! Но кто знает, может быть за ними скрываются золотые горы?Телекомпания: Discovery ChannelЖанр: ДокументальныйРежиссер: Синтия А. ПалермоПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6748ED3B7AFF67778BBED2490EA402035F16A2EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915736   (577182) от 24.07.2015
+
+Discovery. Дом для авто / House of Cars (2014) HDTVRip [Серия 1-4] [Обновляемая]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хосе Висенте Диес обожает классические автомобили. В своей мастерской он восстанавливает потрясающие винтажные машины и связанные с ними истории.Телекомпания: Испания, Discovery ChannelЖанр: Документальный, ТелепередачаПеревод: Двуголосый закадровый, профессиональныйПродолжительность: Серия по ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3311032E26FA1049646EACF418CCE3FDB398D0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921042   (577178) от 24.07.2015
 
 Discovery: Ледяное золото / Ice Cold Gold (2014) HDTVRip (2 сезон: 1-9 серии из 9)
@@ -6,7 +58,7 @@ Discovery: Ледяное золото / Ice Cold Gold (2014) HDTVRip (2 сез�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577178.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Discovery. Дом для авто / House of Cars (2014) HDTV [H.264/720p] [Се
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577174.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Discovery. Как устроена Вселенная / Discovery. How the Unive
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577087.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ Discovery: Безопасность границ: США (сериия 1-11 из
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576914.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576896.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ Discovery Channel: Battlefield / Поля сражений (2005) TvRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_576624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_576624.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ Discovery: История изобретений, Промышленные от�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_576605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_576605.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ Discovery: Стальные мышцы / American Muscle (2014) HDTVRip (Вып�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575379.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ Discovery: Двойники Земли / Alien planet Earths (2014) HDTVRip [H.2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575086.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ Discovery: Новый мир (1-12 серии из 12) / Discovery: Next World (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574626.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ Discovery. Наркосиндикат Сэм Гор / The World's Biggest Drug L
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572086.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ Discovery: Искривление времени / Time Warp (2008) BDRip (Се�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566730.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ Discovery: Мегамир. Мексика / Megaworld. Mexico (2011) HDTVRip [H.
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565727.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ Discovery. Первым делом - самолеты / Airplane Repo (2013) HDT
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562566.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ Discovery. Что у вас в гараже? / What's in the Barn? (2013) HDTVRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560717.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ Discovery. Что у вас в гараже? / What's in the Barn? (2013) HDTV [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560707.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ Discovery. Первым делом - самолеты / Airplane Repo (2013) HDT
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560663.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559432.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559416.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559319.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558988.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ Discovery: Правда о Бермудском треугольнике / Bermu
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558652.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558373.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ Discovery. Взрывая историю / Blowing up History (2018) HDTVRip (С
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557739.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ Discovery. Взрывая историю / Blowing up History (2018) HDTVRip (С
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09668F2EC235FD400F81BE613DAB006DFCEF4D7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915735   (557377) от 04.08.2015
-
-Discovery. Катастрофа на колесах / Wheels That Fail (2014) HDTVRip [Серии 1-10]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герои этой программы съехали с катушек – когда они за рулем, это просто катастрофа! Такой подборки видео о происшествиях на колесах вы еще не видели: Discovery Channel выбрал самые смешные, самые опасные и самые захватывающие ролики, где автомобили и мотоциклы сталкиваются, переворачиваются, взрываются, падают в воду, летят под откос – и этот список можно продолжать (   Читать дальше...   )Телекомпания: США, Discovery ChannelЖанр: Документальный, ТелепередачаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: Серия по ~00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EE753E04ED803DFBDF2F600A1CDA6029F28B1E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307197   (555169) от 08.06.2019
-
-Discovery: Коварная Земля / Rogue Earth (2018) HDTVRip [H.264/1080p-LQ] (серии 1-2)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недавние изменения климата Земли привели к возникновению экстремальных погодных явлений. Ураганы, торнадо, жара и наводнения стали более частыми и непредсказуемыми.Производство: Канада, Discovery CanadaЖанр: Документальный, природа, катаклизмыРежиссер: Джо УичаПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~ 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41EEDBAFEB0AB550A71180507001CE65DC543074
 ```
 
 https://mybot314.ru/tekegram_catalog/

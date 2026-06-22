@@ -1,3 +1,29 @@
+###  Публикация: 1178623   (353002) от 29.10.2017
+
+Gekijouban Soushuuhen Overlord | Повелитель (компиляция ТВ-сериала) [2017, Movie, 2 эп.] BD-rip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бежать из тягостной повседневности, покорить дивный новый мир, стать неуязвимым и бессмертным суперменом – такова мечта пресловутого «офисного планктона». Типичный его представитель, сражавшийся в недалеком будущем в виртуальную РПГ «Иггдрасиль» под ником Момонга, не захотел покидать закрывающуюся игру. Зачем же уходить из обжитой иллюзии, если можно даром получить (   Читать дальше...   )Жанр: приключенияПеревод: YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 2 фильма по ~95 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B89322A68D9484A0B4F99819D169E25E65AF62E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 881452   (352902) от 02.11.2015
 
 Log Horizon 2 | Лог Горизонтa  2 [TV-2][2014, TV, 25 эп.] BDrip 1080p raw
@@ -6,7 +32,7 @@ Log Horizon 2 | Лог Горизонтa  2 [TV-2][2014, TV, 25 эп.] BDrip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352902.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Yami Shibai / Театр тьмы [ТВ-7] [2019, TV, 13 ep.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351868.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Mix: Meisei Story | Микс: История Мейсей [2019, TV, 24] WEBRip 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351765.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Mitsuami no Kamisama | Pigtails | Богиня с косичками [2015, Movi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351396.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Kemono Friends | Животные-друзья | Дикие друзья [2017, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351132.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Natsume Yuujinchou Roku / Тетрадь дружбы Нацумэ [ТВ-6] [201
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350667.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Queen's Blade Unlimited | Клинок Королевы: Безграничны�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350650.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Rizelmine / Rizerumain / Моя Ризельмина [2002; TV; 24] DVDRip 544p 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350607.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Queen's Blade: Rebellion | Клинок Королевы: Мятеж [2012, TV +
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350508.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Queen's Blade: Rurou no Senshi | Queen's Blade: Wandering Warriors | Клино�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350501.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Queen's Blade: Utsukushiki Toushitachi | Queen's Blade: Beautiful Warriors | К�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350497.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Queen's Blade: Vanquished Queens | Клинок королевы: Поверже
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350490.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ Guri Guri / Green Green TV / Жаркое лето [2002 - 2004, TV + OVA, 13+1]
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350227.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ Ame o Tsugeru Hyouryuu Danchi | Drifting Home | Плавучий дом [2022, M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350163.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ Tokyo Mew Mew New | Токио Мяу Мяу [ТВ-2] [2022, TV, 12 эп.] WEBRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349873.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ Jashin-chan Dropkick X | Dropkick on My Devil!! X | Дропкик злого д
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349526.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ Kindaichi Shounen no Jikenbo / Kindaichi Case Files / Дело ведёт юны
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347299.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ Sengoku Collection / Parallel World Samurai / Коллекции смутног�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345761.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Sakamichi no Apollon / Аполлон: Дети на холме [2012, TV, 12 с
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345759.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ Shadows House 2nd Season | Дом теней [ТВ-2] [2022, TV, 12 эп.] WEBRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345372.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ Jormungand: Perfect Order / Ёрмунганд [ТВ-2] [2012, TV, 12 эп.] BDr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345274.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ Bungou Stray Dogs 3 / Великий из бродячих псов [ТВ-3] [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345263.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ Jormungand / Ёрмунганд [ТВ-1] [2012, TV, 12 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345125.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ Pupipoo! | Пупипо! [2013, TV, 15 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343439.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ Fumikiri Jikan | Crossing Time | Железнодорожный переезд [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343438.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ Fumikiri Jikan | Crossing Time | Железнодорожный переезд [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:597AB7604DD3157BD1A9755391FF4BFF96A851D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257841   (343125) от 27.10.2018
-
-Busou Shoujo Machiavellianism | Armed Girl's Machiavellism | Тирания вооруженных девушек [2017, TV, 12 эп. + 1 OVA] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343125.jpg" />
-</div>
-
-
-###  Подробнее
-
-В академии сожительства Аичи ношение оружия - дело совершенно обычное. Для девушек. Каждая из них в качестве самообороны носит с собой, например, биту. Когда-то давно в этой элитной академии обучали только девушек, и бояться им было нечего. Но с тех пор, как туда начали зачислять и парней, ситуация изменилась, и из-за страха девушки начали вооружаться. В академии (   Читать дальше...   )Жанр: приключения, комедияРежиссер: Татибана ХидэкиПеревод: 1) AniPlay; 2) SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. + 1 OVA по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EF5F28B95035058701B65DE5F2E9D4F3CD59E1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 1265248   (276181) от 26.11.2018
+
+Гномы в доме / Gnome Alone (2017) Blu-ray 3D/2D [H.264/1080p] [Custom]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переезжая в старинный особняк, никто даже не подозревал, что большой дом скрывает «маленькие» тайны. Садовые гномы, живущие тут, веками защищали наш мир от злобных троггов. У людей не останется выбора — они должны будут присоединиться к великой битве…Производство: Великобритания, Канада, США / 3QU Media, Cinesite Animation, SC Films InternationalЖанр: Мультфильм, фэнтези, боевик, комедияРежиссер: Питер ЛепениотисАктеры: Бекки Джи, Джош Пек, Тара Стронг, Оливия Холт, Дэвид Кокнер, Джефф Данэм, Патрик Стамп, Нэш Гриер, Мэдисон Де Ла Гарза, Джордж ЛопесПеревод: Дублированный (iTunes)Субтитры: Португальские (полные)Продолжительность: 01:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E31FC73F2E6A4CF5E2F3CF2376CE81D29D50E7F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082940   (275588) от 14.12.2016
+
+Аисты / Storks (2016) BDRemux [H.264/1080p] [2D/3D] [ISO]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аисты приносят детей… или, во всяком случае, раньше приносили. Теперь же они занимаются доставкой посылок для огромного сайта интернет-продаж. Джуниор, лучший аист в курьерской компании, должен пойти на повышение, но он случайно активирует машину для создания детей и получает очаровательную, но совершенно незапланированную девочку.
+Пытаясь доставить эту «посылку» (   Читать дальше...   )Производство: США / RatPac-Dune Entertainment, Stoller Global Solutions, Warner Animation Group, Warner Bros. Animation, Warner Bros.Жанр: Мультфильм, Фентези, Комедия, Приключения, СемейныйРежиссер: Николас Столлер, Даг СвитлэндПерсонажи: Энди Сэмберг, Кэти Краун, Келси Грэммер, Дженнифер Энистон, Тай Бурелл, Антон Старкман, Кигэн-Майкл Ки, Джордан Пил, Дэнни Трехо, Стив ГликманПеревод: Дублированный (iTunes)Язык субтитров: Русский (forced, full), Английский (SDH)Продолжительность: 01:26:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93E976F1BC7C409D99D401EA4DFDD59A725E603D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 850939   (274937) от 17.12.2014
+
+Болт и Блип спешат на помощь / Bolt & Blip: Battle of the Lunar League (2012) BDRip [1080p] 3D [Вертикальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274937.jpg" />
+</div>
+
+
+###  Подробнее
+
+2080 год, Земля. Благодаря стараниям гениального ученого Доктора Томми на планете прекратились все войны и люди стали жить без забот! В это время на Луне роботы Болт и Блип случайно становятся членами спортивной команды «Роботы грома», которая находится на последней строчке в турнирной таблице игр Лунной Лиги. С помощью своих новых друзей Болт и Блип становятся чемпионами (   Читать дальше...   )Жанр: Мультфильм, Фантастика, Приключения, СемейныйРежиссер: Питер Лепениотис, Тим ДиконПерсонажи: Мэтт Мюррэй, Терри Макгуррин, Мелисса Альтро, Гленн Колсон, Патрик Гэрроу, Дуэйн Хилл, Мартин Жюльен, Пол Уэнсли, Колин Фокс, Джонатан УилсоПеревод: Дублированный (Лицензия R5)Продолжительность: 01:16:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59DBDE63A9EEB89824A89FB7A48B3710C53AE283
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083514   (273293) от 16.12.2016
+
+Кубо. Легенда о самурае / Kubo and the Two Strings (2016) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара] [hand made 16:9]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубо — наследник великого рода, но когда возвратились духи прошлого, жаждущие мести, на его защиту отважилась встать лишь странная парочка хранителей. И теперь для Кубо единственный шанс на спасение — найти магические доспехи отца, легендарного самурая.Производство: США / Focus Features, Laika EntertainmentЖанр: мультфильм, фэнтези, приключения, семейныйРежиссер: Трэвис НайтАктеры: Арт Паркинсон, Шарлиз Терон, Рэйф Файнс, Джордж Такей, Кэри-Хироюки Тагава, Бренда Ваккаро, Руни Мара, Мэттью МакКонахи, Мейрик Мерфи, Мина Нодзи.Перевод: Дублированный (iTunes)Продолжительность: 01:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E76059D139E4C154CC153FBAEC21DC3B21D6BF4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083274   (273290) от 16.12.2016
 
 Аисты / Storks (2016) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара] [hand made 16:9]
@@ -6,7 +111,7 @@
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273290.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273282.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266753.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266680.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263682.jpg" />
 </div>
 
 
@@ -137,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261068.jpg" />
 </div>
 
 
@@ -166,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260908.jpg" />
 </div>
 
 
@@ -193,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257544.jpg" />
 </div>
 
 
@@ -219,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250195.jpg" />
 </div>
 
 
@@ -245,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250180.jpg" />
 </div>
 
 
@@ -271,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249584.jpg" />
 </div>
 
 
@@ -297,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249037.jpg" />
 </div>
 
 
@@ -323,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249036.jpg" />
 </div>
 
 
@@ -349,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249035.jpg" />
 </div>
 
 
@@ -375,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245802.jpg" />
 </div>
 
 
@@ -401,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_241369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241369.jpg" />
 </div>
 
 
@@ -429,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235231.jpg" />
 </div>
 
 
@@ -455,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234310.jpg" />
 </div>
 
 
@@ -482,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234304.jpg" />
 </div>
 
 
@@ -508,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234282.jpg" />
 </div>
 
 
@@ -534,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234268.jpg" />
 </div>
 
 
@@ -560,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234198.jpg" />
 </div>
 
 
@@ -571,110 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E819A50093376BFFB4622B8268044C0B565F385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168906   (234179) от 19.09.2022
-
-Гадкий я 3 / Despicable Me 3 (2017) BDRemux [H.264/1080p] [3D/2D] [ISO]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грядет третье пришествие. Многодетный суперагент, роковая красотка и бессмертные миньоны на подходе. Готовьтесь. Они будут править миром.Производство: США, Illumination Entertainment, Universal PicturesЖанр: Мультфильм, фантастика, боевик, комедия, приключения, семейныйРежиссер: Эрик Гуильон, Кайл Балда, Пьер КоффанПерсонажи: Стив Карелл, Кристен Уиг, Трей Паркер, Миранда Косгров, Дэна Гайер, Нев Шаррел, Пьер Коффан, Стив Куган, Джули Эндрюс, Дженни Слейт ...Перевод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), английские (Full)Продолжительность: 01:29:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5703600BBD8A45A99D1A27085609C8A0AC8E8432
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635787   (232275) от 27.05.2023
-
-Ральф против интернета / Ralph Breaks the Internet (2018) WEB-DL 3D [H.264/1080p] [Горизонтальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232275.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз Ральф и Ванилопа фон Кекс выйдут за пределы зала игровых автоматов и отправятся покорять бескрайние просторы интернета, который может и не выдержать сокрушительного обаяния громилы.Производство: США / Walt Disney PicturesЖанр: мультфильм, комедия, приключения, семейный, фантастикаРежиссер: Фил Джонстон, Рич МурПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23BE1D4BEC9969C586D86AD312FF3B64FE9812BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635770   (232193) от 27.05.2023
-
-Город героев / Big Hero 6 (2014) WEB-DL 3D [H.264/1080p] [Горизонтальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юный Хиро Хамада — прирожденный изобретатель и гений конструирования роботов. Вместе со старшим братом Тадаши они воплощают в жизнь самые передовые идеи в Техническом университете города будущего Сан-Франсокио. После серии загадочных событий друзья оказываются в центре коварного заговора. Отчаявшись, Хиро решает использовать веселого и добродушного экспериментального (   Читать дальше...   )Производство: США / FortyFour Studios, Walt Disney Animation Studios, Walt Disney PicturesЖанр: мультфильм, фантастика, комедия, семейный, боевикРежиссер: Дон Холл, Крис УильямсПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские (full), английские (full)Продолжительность: 01:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77D260C2D74E6F05657B3382FAB36963DB6C0231
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635764   (232155) от 27.05.2023
-
-Хороший динозавр / The Good Dinosaur (2015) WEB-DL 3D [H.264/1080p] [Горизонтальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленький динозавр Арло, который всего боится, потерялся, и чтобы выжить и вернуться домой ему предстоит многому научиться, и преодолеть свои страхи. Компанию ему составит дикий первобытный мальчик, с которым они становятся друзьями и помогают друг другу на их непростом, полном приключений и опасностей пути домой.Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: мультфильм, фэнтези, драма, комедия, приключения, семейныйРежиссер: Питер СонПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:29:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88523C56B5993CF9488523659D26EA7BA44BA274
 ```
 
 https://mybot314.ru/tekegram_catalog/

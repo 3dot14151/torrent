@@ -1,3 +1,56 @@
+###  Публикация: 1495085   (884202) от 10.09.2021
+
+Soulburn scripts pack v.112 [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Soulburn scripts pack - это сборник полезных скриптов для моделирования для 3ds Max.
+Это финальный пакет скриптов, автор отказался от дальнейшей разработки ввиду лицензионной политики AutoDesk.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AEB1322713B06F6166919A12154B6786D80E1CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495066   (883731) от 10.09.2021
+
+V-ray 5.10.22 Cinema 4D R20-R24 [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883731.jpg" />
+</div>
+
+
+###  Подробнее
+
+V-Ray для Cinema 4D предоставляет стандарт в отрасли технологии фотореалистичного 3D-рендеринга в руках художников и дизайнеров Cinema 4D. Благодаря интеллектуальным инструментам и мощным возможностям рендеринга сочетание скорости и творческого контроля V-Ray идеально подходит для любого проекта. Единственный на сегодняшний день визуализатор способный рендерить GPU (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C634196FEAA02861E5DB1B68AE9BE9D27A19CAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373938   (876424) от 08.04.2020
 
 FD UVToolkit 1.0 For Cinema 4D [En]
@@ -6,7 +59,7 @@ FD UVToolkit 1.0 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876424.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ Noise Scape v.2 For Cinema 4d [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874096.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ Motion Drop 1.5 For Cinema 4d [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868536.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ WTools3D LWCAD v2018.31 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868525.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ City Rig 2.13 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868523.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ Aurora 3D Animation Maker 16.01070843 Portable by PortableAppС [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862069.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ Aurora 3D Animation Maker 16.03230029 RePack & Portable (x86) by FoXtrot [Multi/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860407.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ Vertex Normal Tool v1.04 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858356.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ NextLimit RealFlow 3.1.1.0026 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844121.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ X-Particles 2.1 Build 08 Pro [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818701.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ IKMAX v1.0b for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816932.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ HDR Light Studio 5.4.2 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812559.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ Autodesk Entertainment Creation Suite Ultimate 2016 (x64) [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812501.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ Simulation Lab Software SimLab Composer 8 8.2.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811441.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ Folding Title GENERATOR 1-0 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808653.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ Vectric Aspire 8.517 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799969.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ Toporizer 1.0 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797737.jpg" />
 </div>
 
 
@@ -451,7 +504,7 @@ Quixel Suite 2.3.2 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792603.jpg" />
 </div>
 
 
@@ -477,7 +530,7 @@ UVlayout Professional 2.09.04 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786900.jpg" />
 </div>
 
 
@@ -503,7 +556,7 @@ ArCon Eleco Professional 2012.01 [De]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786424.jpg" />
 </div>
 
 
@@ -530,7 +583,7 @@ NewTek Lightwave 3D 2018.0.1 Build 3064 + Content [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783426.jpg" />
 </div>
 
 
@@ -556,7 +609,7 @@ Next Limit RealFlow 10.1.2.0162 + Plugins [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782405.jpg" />
 </div>
 
 
@@ -582,7 +635,7 @@ Pilgway 3D-Coat 4.8.10 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779560.jpg" />
 </div>
 
 
@@ -609,7 +662,7 @@ Lightmap HDRLightStudio Carbon 5.5.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778926.jpg" />
 </div>
 
 
@@ -620,58 +673,6 @@ HDR Light Studio - одно из ведущих приложений для им
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32B1713B9BE0CBDE676FF35B7036ED23778B47C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012403   (778131) от 02.05.2016
-
-Mixamo Fuse Character Creator 1.3.0 [En]
-
->>След.
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fuse - отдельная программа для моделирования и текстурирования 3D персонажей. Первоначальная версия была разработана группой исследований Владлена Колтуна в Стенфордском университете, главным программистом был Сидхарта Чодхури. Mixamo продолжило разработку Fuse, добавляя, помимо прочего, построение бесшовного меша, умную поддержку текстур вместе с Allegorithmic, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B333D121CCCC08325A8956CD8231EF37205573A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012795   (777853) от 03.05.2016
-
-Flora3D 2014.06.14 [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Flora3D, является процедурным генератором 3D-моделей растений, кустов, деревьев. Основное предназначение этой программы - генерация трехмерных растений, с последующим сохранением в форматы *.obj; *.3ds; *.x или как Delphi-модули (*.pas). Прежде всего, сетки моделей оптимизируются под игровые проекты и реал-тайм рендеринг. Программа не создает множество дополнительных (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4E65397C20A1AC362E6EA0BA42677A794F1A0D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

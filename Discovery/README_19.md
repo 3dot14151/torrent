@@ -1,3 +1,81 @@
+###  Публикация: 842033   (329187) от 17.11.2014
+
+Discovery Scienceу: Двойники Земли / Alien Planet Earths (2014) HDTVRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329187.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 лет назад казалось, что во Вселенной есть только одна планета, способная поддерживать жизнь. Сегодня мнение астрономов изменилось. Мы расскажем о поисках близнеца Земли.Жанр: Документальный, научно-познавательный, космосРежиссер: Марк БрайджПеревод: Одноголосый закадровыйПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0BEAB08B4BEF72BA8EF0BED848D93AF5FF9EBD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 842134   (328127) от 18.11.2014
+
+Discovery Scienceу: НАСА. Необъяснимые материалы / NASA's. Unexplained Files (2014) HDTVRip (Серия 2)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Существует ли жизнь за пределами нашей планеты? Невероятные съемки НАСА и интервью с астронавтами и учеными знакомят с историями НЛО.Жанр: Документальный, научно-познавательный, космос, уфологияРежиссер: Рассел Эйтач, Дэниел Эдвардс, Райан Гафни, Ян ЛевисонПеревод: Одноголосый закадровыйПродолжительность: 00:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:373F36F03D65401B34E79ACB2751E915AAA44CC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 842030   (328026) от 18.11.2014
+
+Discovery Scienceу: НАСА. Необъяснимые материалы / NASA's. Unexplained Files (2014) HDTVRip (Серия 1)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Существует ли жизнь за пределами нашей планеты? Невероятные съемки НАСА и интервью с астронавтами и учеными знакомят с историями НЛО.Жанр: Документальный, научно-познавательный, космос, уфологияРежиссер: Рассел Эйтач, Дэниел Эдвардс, Райан Гафни, Ян ЛевисонПеревод: Одноголосый закадровыйПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F40083D1D5E5F153B7D8DDD9762AFD7B28A4E100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 842689   (327315) от 19.11.2014
 
 Discovery Scienceу: НАСА. Необъяснимые материалы / NASA's. Unexplained Files (2014) HDTVRip (Серия 3)
@@ -6,7 +84,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327315.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Discovery: Инородные тела / Body Invaders (2014) HDTVRip (Сери�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324671.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Discovery. Дороги России: Трасса Лена (2016) HDTVRip [720p
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323137.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Discovery. Дикие эксперименты Адама Сэвиджа / Savag
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322366.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Discovery: Инородные тела / Body Invaders (2014) HDTVRip (Сери�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321478.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Discovery: Разрушители легенд. Звёздные войны: О�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321099.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Discovery: Вечера науки с Константином Хабенски�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320678.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Discovery: Вечера науки с Константином Хабенски�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320664.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318487.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Discovery: Смертоносные эпидемии / Killer outbreaks (2011) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316395.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Discovery: Вот это странно / Williams Shatner's Weird or What (2012
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316170.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Discovery: Инородные тела / Body Invaders (2014) HDTVRip (Сери�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311503.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Discovery. Инженерия невозможного / Impossible Engineering 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309702.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Discovery. На краю Аляски  / Edge of Alaska (2014) HDTVRip (1-8 се
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308473.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Discovery. Дороги России: Трасса Колыма (2016) HDTVRip [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306324.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Discovery. Северная Америка / North America (2013) BDRemux [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300968.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299711.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Discovery. Гонка на вымирание / Racing Extinction (2015) HDTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296711.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Discovery: Шерпа / Sherpa (2015) HDTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295718.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288054.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Discovery. Священная сталь / Sacred Steel Bikes (2016) HDTVRip [H.
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286082.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Discovery: Невидимые миры. Вода / Invisible Worlds. Water (2010
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285723.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ Discovery Channel Россия. Техногеника. Русский колл�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282185.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ Discovery Channel Россия. Техногеника. Русский колл�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:394531D116487A36D0828A0B46698D1E749842EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252772   (279030) от 24.11.2018
-
-Discovery: Аляска: Семья из леса / Alaskan Bush People (2018) HDTVRip [H.264/720p-LQ] [50fps] (Сезон 6, серии 1-10 из 10)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279030.jpg" />
-</div>
-
-
-###  Подробнее
-
-В глуши Аляски живет семья, все члены которой родились и выросли среди дикой природы. Билли Браун, его жена Эми и их семеро детей – пятеро сыновей и две дочери – удалились от цивилизации и почти не контактируют с другими людьми. Они даже говорят на особом диалекте и называют себя «волчьей стаей».Производство: США, Park Slope Productions, Discovery ChannelЖанр: Документальный, выживание, историяРежиссер: Т.Дж. Шанкс, Джейсон Берман, Эзра ЭпвеллПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09110E3650ABAA6F7A02AF55474B5FD5E1B43094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243196   (278906) от 24.11.2018
-
-Discovery: Забытая инженерия / Abandoned Engineering (2018) HDTVRip [H.264/720p-LQ] [50 fps] (Сезон 2, серии 1-14 из 14)
-
->>След.
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одни из самых выдающихся сооружений и конструкций, которые ещё недавно считались воплощением смелой мечты, теперь лежат в руинах. Как и почему это произошло? Возможно ли возродить их? Разработчики и конструкторы расскажут об их прошлом, а новаторы и предприниматели постараются подарить этим проектам будущее. Вы увидите самые знаменитые заброшенные объекты, расположенные (   Читать дальше...   )Производство: Великобритания, Like a Shot Entertainment, Discovery ChannelЖанр: Документальный, научно-познавательный, исследования, историяПеревод: Двуголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии х ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D974287811BF78188E1106B9D7167F01A345B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243195   (278800) от 24.11.2018
-
-Discovery: Забытая инженерия / Abandoned Engineering (2018) HDTVRip (Сезон 2, серии 1-14 из 14)
-
->>След.
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одни из самых выдающихся сооружений и конструкций, которые ещё недавно считались воплощением смелой мечты, теперь лежат в руинах. Как и почему это произошло? Возможно ли возродить их? Разработчики и конструкторы расскажут об их прошлом, а новаторы и предприниматели постараются подарить этим проектам будущее. Вы увидите самые знаменитые заброшенные объекты, расположенные (   Читать дальше...   )Производство: Великобритания, Like a Shot Entertainment, Discovery ChannelЖанр: Документальный, научно-познавательный, исследования, историяПеревод: Двуголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии х ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAE992C2C0EE64D95885321AE7D83E7740063DDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

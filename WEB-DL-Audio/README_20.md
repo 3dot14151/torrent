@@ -6,7 +6,7 @@ Elena Malaguti - Jazz Chronicles (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118244.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Heretic - Filthy Hymns for Sleazy Demons (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118116.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ My Life Story - Loving You is Killing Me (2024) [FLAC 24/44.1,96|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118093.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Minuit 10 - Sans Bruit (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118079.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Emanuele Uva - Harbor Harmonies (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117954.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Pineapple Thief - It Leads To This (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117949.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Galleons - Violent Delights (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117933.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Riot - Fire Down Under (1981) Reissue, 2023, Rhino[FLAC 24/192|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117928.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Gregory Aigersson - White Morning & Valentine Coffee (2024) [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117922.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Crush++ - Power Pleasure (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117920.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Iolanda Lomuscio - Jazzscape Harmony (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117918.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Die Sterne - Grandezza (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117789.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Seth James - Lessons (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117780.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Lyna Mahyem - Mon âme (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul/Funk/R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117776.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Romantic Moods Academy - Happy Valentine's Day 2024 (2024) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117656.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Jazz Sax Lounge Collection, Magical Memories Jazz Academy - Best Sexy Saxophone 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117648.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Positive Music Universe, Most Relaxing Music Academy - Relaxing Sunday Brunch: S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117627.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Smooth Jazz Music Ensemble, Background Instrumental Music Collective - A Cup of 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117622.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Cafe Chill Jazz Background, Jazz Music Lovers Club, Jazz Erotic Lounge Collectiv
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117606.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Italian Romantic Piano Jazz Academy, Sexy Lovers Music Collection, Romantic Even
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117600.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Witherfall - What Have You Done? (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117578.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Chris Shooter - Big Fat Bloke With A Hat (2024) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117438.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Birds of Vale - Limbo (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117399.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Honeymoon Suite - Alive (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117383.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117378.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Ahmed Mouici - Tribute To Goldies, Vol II (Pinte de blues production) (2024) [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117372.jpg" />
 </div>
 
 

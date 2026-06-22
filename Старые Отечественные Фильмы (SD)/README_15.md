@@ -1,3 +1,56 @@
+###  Публикация: 988344   (920795) от 20.02.2016
+
+Бой на перекрестке (1982) DVB (серии 1-2 из 2)
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первые годы становления ВЧК. Медсестра Юнна Ружич и поэт Лафар, ставшие чекистами, принимают активное участие в раскрытие контрреволюционного заговора в Москве в 1918 году.Производство: CCCР, Одесская киностудияЖанр: Исторический, ДетективРежиссер: Анатолий ТютюнникАктеры: Василий Лановой, Вячеслав Гостинский, Зинаида Славина, Георгий Куликов, Владимир Седов, Валерий Рыжаков, Всеволод Абдулов, Леонид Кулагин, Людмила Чурсина, Лидия Константинова, Лесь Сердюк, Юрий Горобец, Павел Ремезов, Виктор Мурганов, Александр Самойлов, Виталий Соломин, Максуд Иматшоев, Тимофей Спивак, Анатолий Наумов, Татьяна КондыреваПродолжительность: ~ 01:03:00 (одна серия)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8C157AB65E71751AF4428A553C1727F675A0357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988427   (920689) от 20.02.2016
+
+Каир-2 вызывает Альфу (1990) DVB
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920689.jpg" />
+</div>
+
+
+###  Подробнее
+
+В начале 70-х годов на Ближний Восток были посланы воины из подразделений ООН для поддержания мира после арабо-израильского конфликта.
+Таким образом на наблюдательной станции 'Альфа' оказались вместе советский майор Андреев и голландский майор Фабер. У них мало шансов на возвращение.Производство: СССР, Киновидеостудия ЛатернаЖанр: Боевик, ВоенныйРежиссер: Григорий ТорчинскийАктеры: Александр Фатюшин, Арнис Лицитис, Борис Щербаков, Екатерина Тарковская, Олег ЦаревПродолжительность: 01:16:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDBC0B995D6B8529AC9E0DE3237D0440C06E7401
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 244932   (919765) от 29.01.2015
 
 Второй раз в Крыму (1984) SATRip
@@ -6,7 +59,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919765.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919702.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919633.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918995.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918983.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917669.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916988.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916904.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915215.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914824.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914753.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914607.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913824.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913014.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912862.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912248.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912052.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912027.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911911.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911837.jpg" />
 </div>
 
 
@@ -531,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911637.jpg" />
 </div>
 
 
@@ -557,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911417.jpg" />
 </div>
 
 
@@ -583,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911201.jpg" />
 </div>
 
 
@@ -609,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910902.jpg" />
 </div>
 
 
@@ -620,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54451C724E9B19DCFAEB0E09073C8A979F450DE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368309   (910659) от 19.03.2020
-
-Улан (1977) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пагубная сила алкоголя подчинила сознание и волю Азата, подобно штормовому ветру Улану... Ответственный работник порта - Азат Майрамов часто выпивает с друзьями и сослуживцами и не замечает, как становится алкоголиком. Его снимают с инженерной должности; став матросом на судне, некоторое время он удерживается от выпивки. Но радостное событие - рождение сына - становится (   Читать дальше...   )Производство: СССР, КиргизфильмЖанр: драмаРежиссер: Толомуш ОкеевАктеры: Суйменкул Чокморов, Наталья Аринбасарова, Вацлав Дворжецкий, Асанкул Куттубаев, Асанбек  Умуралиев, Советбек Джумадылов, Джамал СейдакматоваПеревод: Не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:30:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D207E37C0AE12C8524B95A4C9F56139A6FED12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368374   (910535) от 19.03.2020
-
-Летное происшествие (1986) TVRip (2 серии)
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авиационный инженер Виктор Росанов мечтает сесть за штурвал самолета — он уверен, что только так сможет реализовать свои возможности. Руководство завода отправляет Росанова на Север и поручает подготовить к полетам новый самолет. Он с блеском выполняет задание, и когда возвращается, его назначают начальником аэропорта и вносят в списки летного состава. Но теперь (   Читать дальше...   )Производство: СССР / Свердловская киностудияЖанр: ДрамаРежиссер: Павел ФаттахутдиновАктеры: Дмитрий Брусникин, Александр Феклистов, Елена Майорова, Мария Ситко, Алексей Михайлов, Алексей Миронов, Юрий Гребенщиков, Рим Аюпов, Владимир Старостин, Валерий ЗахарьевСубтитры: ОтсутствуютПродолжительность: 01:04:13 + 01:02:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D3001838434C293DDACADA30BF21B9265BAE262
 ```
 
 https://mybot314.ru/tekegram_catalog/

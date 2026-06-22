@@ -1,3 +1,55 @@
+###  Публикация: 1643407   (231558) от 01.07.2023
+
+PullTube 1.8.5.12 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузка видео размещённым на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРелиз состоялся: 01.07.2023Разработчик: © 2020 MyMixAppsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26C1734A215BA180EB32C300859AE9B1E7387A4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647923   (231538) от 20.07.2023
+
+4K YouTube to MP3 Pro for Mac 4.10.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231538.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K YouTube to MP3 — приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио! Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url".Тип издания: macOS SoftwareРелиз состоялся: 18.07.2023Разработчик: © 2023 Open Media OOO.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DD0DF607DC4A46583BAB5BBAF40DE82AC08A9B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643399   (231529) от 01.07.2023
 
 Overlay 4.21 [En]
@@ -6,7 +58,7 @@ Overlay 4.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231529.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231523.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ iTubeGo YouTube Downloader Pro for Mac 7.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231512.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Dynamic Wallpaper 15.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231507.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ YT Saver Video Downloader & Converter for Mac 7.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231499.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ Live Wallpaper & Themes 4K Pro 17.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231482.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Integrity Pro 12.7.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231458.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ PDF Expert 3.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231436.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ RAR Extractor Max-Unzip File 11.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231426.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ Elmedia Player Pro 8.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231401.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ GM EPUB Reader Pro 2.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231362.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ Live Home 3D Pro Edition 4.7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231361.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231354.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ Codepoint for Mac 1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231345.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ Data Guardian 7 v.7.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231338.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ Screens v.4 4.12.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231332.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ OmniReader Pro for Mac 2.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231329.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ BusyCal 2023.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231326.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ CADintosh X 8.8.5 Beta [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231323.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ Keep It 2.2.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231315.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ Iris 1.5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231313.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ MacCleanse 12 v.12.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231306.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ WiFi Explorer 3.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231291.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231286.jpg" />
 </div>
 
 
@@ -625,59 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B87F70B6781E2387293273CD86F69DEAD4342222
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649103   (231271) от 26.07.2023
-
-OmniReader Pro for Mac 2.3.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231271.jpg" />
-</div>
-
-
-###  Подробнее
-
-OmniReader - полифункциональное приложение для чтения книг с простым и красивым интерфейсом и хорошим опытом чтения.Тип издания: macOS SoftwareРелиз состоялся: 25.07.2023Разработчик: © 2023 shrekПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E482A85EEB2BDB63EC0CC81CB18A4FD895EC7720
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649092   (231255) от 26.07.2023
-
-FontLab 8 v.8.2.0.8533 beta [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231255.jpg" />
-</div>
-
-
-###  Подробнее
-
-FontLab - профессиональный редактор шрифтов. Программа ориентирована на печатников, профессиональных дизайнеров, художников-шрифтовиков и студии, занимающиеся графическим дизайном. FontLab Studio обеспечивает широкий выбор функциональных средств для создания, обработки и модификации шрифтов категорий Type 1, TrueType, Multiple Master и OpenType.
-По словам специалистов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.07.2023Разработчик: © 2023 by Fontlab Ltd, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AEAE02B4BF97A90F7916DB1F3CB01381A4C761F
 ```
 
 https://mybot314.ru/tekegram_catalog/

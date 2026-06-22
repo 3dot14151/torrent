@@ -1,3 +1,55 @@
+###  Публикация: 911055   (613741) от 24.06.2015
+
+Миллениум Стига Ларссона / The Stieg Larsson's Millennium (2010) BDRip [H.264/1080p] [Extended Version] [Трилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613741.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Миллениум» — детективная трилогия, написанная шведским писателем Стигом Ларссоном, главными героями которой являются Микаэль Блумквист, детектив-журналист, и девушка-хакер Лисбет Саландер. Трилогия включает в себя: «Девушку с татуировкой дракона», «Девушку, которая играла с огнем» и «Девушку, которая взрывала воздушные замки». Все книги стали бестселлерами с общим (   Читать дальше...   )Производство: Швеция, Германия, Норвегия, Дания / Yellow Bird, ZDF Enterprises, Sveriges Television (SVT)Жанр: триллер, драма, криминал, детективРежиссер: Нильс Арден Оплев, Даниэль АльфредсонАктеры: Микаэл Нюквист, Нуми Рапас, Лена Эндре, Питер Абер, Владимир Антоник, Свен-Бертиль Таубе, Петер Андерссон, Ингвар Хирдвалль, Марика Лагеркранц, Бьёрн Гранат, Ева Фрёлинг, Михалис Куцогиннакис, Анника Халлин, София Ледарп, Томас Колер, Давид Денсик, Стефан Саук, Фредерик Олссон, Джейкоб Эрикссон, Гуннель Линдблум, Барбро ЭнбергПеревод: профессиональный (многоголосый закадровый)Язык субтитров: русский, английскийПродолжительность: 01:33:00, 01:33:00 | 01:33:15, 01:33:11 | 01:32:20, 01:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B30B8102C9150290670E41492304B37D32FCE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 345745   (613114) от 24.07.2016
+
+Крокодил Данди / Crocodile Dundee (Трилогия) (1986 / 1988 / 2001) [1080i] HDTV
+
+>>След.
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы готовы к возвращению Крокодила Данди? В третьей части этого безумно популярного фильма Мик Данди, следуя за своей подругой, журналисткой Сью Чарльстон, переселяется из деревенской глуши Австралии в модный и суетливый Лос-Анджелес. Сью возглавляет лос-анжелесский офис газеты своего отца и пытается выяснить причины гибели одного из лучших журналистов. Данди, которому (   Читать дальше...   )Жанр: Комедия, ПриключенияРежиссер: Саймон Уинсер / Simon WincerПродолжительность: 01:28:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C95DF8684719D0C58A9D7FE16180CD02A367DF9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912250   (610167) от 26.06.2015
 
 Железный человек / Iron Man (2008-2013) BDRip [H.264/720p-LQ] [Трилогия]
@@ -6,7 +58,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610167.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_609291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_609291.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608024.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_607795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_607795.jpg" />
 </div>
 
 
@@ -117,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607780.jpg" />
 </div>
 
 
@@ -143,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605910.jpg" />
 </div>
 
 
@@ -170,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598703.jpg" />
 </div>
 
 
@@ -196,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596989.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596658.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595547.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593196.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_591708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_591708.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588574.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587075.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_586149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_586149.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582645.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580553.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580236.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_574956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_574956.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574125.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573900.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_568661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_568661.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568459.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568253.jpg" />
 </div>
 
 
@@ -631,60 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 714719   (565275) от 08.07.2018
-
-Арнольд Шварценеггер (1969-2013) BDRip, HDTV [H.264/1080p-LQ] [Коллекция из 27 фильмов]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия фильмов с участием знаменитого актёра. Полное имя — Арнольд Алоис Шварценеггер.
-Арнольд с 1969 года начал сниматься в фильмах, как это делали многие его кумиры. Для ряда фильмов Арнольду приходилось существенно снижать вес. Он берёт уроки актёрского мастерства и старается избавиться от акцента.
-Первые фильмы публика приняла сдержанно; успех пришёл после «Конана-варвара». (   Читать дальше...   )Производство: США, Millennium FilmsЖанр: Экшн, Боевик, Фантастика, Триллер, Комедия, ПриключенияРежиссер: Джеймс Кэмерон, Пол Верховен, Джон МакТирнан, Роб Шмидт, Джо Линч и тд..Актеры: Арнольд Шварценеггер, Шэрон Стоун, Карл Уэзерс, Линда Хэмилтон, Эдвард Ферлонг, Роберт Патрик, Джейми Ли Кёртис и тд...Перевод: Дублированный, Многоголосый закадровый, Двухголосый закадровый, Одноголосый закадровыйСубтитры: Вшитые отключаемыеЯзык субтитров: Русские, Русские (Пучков), АнглийскиеПродолжительность: 01:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3890B020A5F31920A9F83D99A92312FA2DACB5B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529434   (564312) от 01.08.2012
-
-Хищник: Антология / Predator: Anthology (1987-2010) BDRip [H.264/720p-LQ]
-
->>След.
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наемник Ройс невольно вынужден возглавить группу профессионалов, выполняющих загадочную миссию на неизвестной планете. За исключением опального доктора все они — хладнокровные убийцы: наемники, гангстеры, осужденные и участники отрядов смерти людские «хищники». Но когда их начинает систематически преследовать и истреблять невообразимое чудовище, становится очевидно, (   Читать дальше...   )Жанр: Боевик, Приключения, ФантастикаРежиссер: Нимрод АнталАктеры: Эдриан Броуди, Тофер Грейс, Алиси Брага, Уолтон Гоггинс, Олег Тактаров, Лоренс Фишбёрн, Дэнни Трехо Луис, Одзава Чангчьен, Махершалалхашбаз Али, Кэри ДжонсПеревод: Дублированный, украинский дублированный, авторский одноголосыйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58DA965844CA4990196AB4C47EDF0E43C1C9F838
 ```
 
 https://mybot314.ru/tekegram_catalog/

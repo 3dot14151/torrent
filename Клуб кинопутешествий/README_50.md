@@ -1,3 +1,29 @@
+###  Публикация: 1631222   (245276) от 04.05.2023
+
+RTG. Национальная Президентская библиотека (2013) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книжные фонды 21 века — цифровое хранилище, которому не страшно время. Самым большим виртуальным собранием России считается Президентская библиотека, расположенная в Санкт-Петербурге. Это более 250 тысяч единиц хранения: книги по истории и праву, редкие документы, раритетные издания. Большая их часть доступна любому пользователю сети Интернет, но избранные книги (   Читать дальше...   )Производство: Россия, RTG Production StudiosЖанр: документальный, познавательныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B339A5F4245F7E4E4E3F361A60DCA5BA6E8239A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1631219   (245220) от 04.05.2023
 
 RTG. Музей оптики (2013) HDTV [H.264/1080i]
@@ -6,7 +32,7 @@ RTG. Музей оптики (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245220.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ RTG. Сибирские пимы (2012) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245205.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244043.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243975.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243507.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243348.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243341.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243135.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ RTG. Выходные в горах. Поселок Каменномостски
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_243103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243103.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ RTG. Выходные дни в Геленджике (2014) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_243019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243019.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242462.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ RTG. Дальневосточный морской заповедник (2013) H
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242343.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ RTG. Заповедник Утриш (2015) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242332.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ RTG. Зеленчукская астрофизическая обсервато�
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242304.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ RTG. Зимний отдых в Домбае (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242296.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241929.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241478.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241136.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ RTG. Музей-усадьба Льва Толстого "Ясная Полян�
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241115.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ RTG. Святки в деревне Шуваловка (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240149.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ RTG. Подземный мир хребта Азиш-Тау (2013) HDTV [H.264/1
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239871.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ RTG. Летний отдых в Анапе (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239603.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239372.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239246.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ RTG. Путешествие к горе Фишт (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239223.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ RTG. Путешествие к горе Фишт (2013) HDTV [H.264/1080i]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98CD3E0557ECA5A225F7FE4DB0A3A3252F95A541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476676   (239131) от 12.06.2021
-
-Золотой Глобус: Бавария / Golden Globe: Bayern (2010) BDRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239131.jpg" />
-</div>
-
-
-###  Подробнее
-
-На западе — Линдау и Боденское озеро, на востоке — национальный парк Берхтесгаден и озеро Кёнигзее, на юге Альпы, а между ними — Бавария, считающаяся красивейшей из земель Германии...Производство: Германия, Komplett-MediaЖанр: Документальный, познавательный, путешествияРежиссер: Кэтрин Вагнер, Герберт Ленц, Генрих ВитманПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD1F8A5F871FD73AFCCE3F12F36E10C17BD2768E
 ```
 
 https://mybot314.ru/tekegram_catalog/

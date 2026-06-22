@@ -1,3 +1,110 @@
+###  Публикация: 1473685   (1013457) от 30.05.2021
+
+Камеди Клаб / Комеди Клаб / Comedy Club (28.05.2021) WEB-DL [H.264/1080p-LQ]
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013457.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Павел Воля, Гарик Харламов, Тимур Батрутдинов, Александр Ревва, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин и др.Субтитры: ОтсутствуютПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E82023D9B310ADDCD2A9D399872E461A559D7903
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475190   (1012526) от 05.06.2021
+
+КВН-2021. Высшая лига. 1/4 финала, игра 1 (05.06.2021) HDTVRip [H.264/1080p-LQ]
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юмористическая телевизионная игра, в которой команды соревнуются в умении остроумно реагировать на заданные темы. Постоянные конкурсные задания - "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри, многие из них раньше сами играли (   Читать дальше...   )Телекомпания: "Первый канал"Жанр: ЮморПродолжительность: 01:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A23B62D6CA35CF5BA25613EBB370FE49E68BB2E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475244   (1012372) от 06.06.2021
+
+КВН-2021. Высшая лига. 1/4 финала, игра 1 (05.06.2021) WEBRip [H.264/1080p-LQ]
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН, знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания: "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри — люди, у которых с чувством юмора все в (   Читать дальше...   )Телекомпания: Первый каналЖанр: ЮморПродолжительность: 01:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:755AF40976B4E01D49A2BE9EE4487981BC0B3319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478378   (1009941) от 21.06.2021
+
+Дизель Шоу. Реакция, угар и лучшие приколы 2021 (2021.06.18) WEBRip [H.264/720p-LQ]
+
+>>Юмор (ТВ)
+>>Украинские шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самое смешное видео от DIZEL STUDIO.
+Новое направление юмористических шоу на телевидении.
+Только качественные шутки и никакой политики.
+"Дизель Студио" - лидер на рынке производства рейтинговых телевизионных проектов: тв-шоу, юмористических программ, сериалов.(   Читать дальше...   )Производство: Украина, DIZEL STUDIOЖанр: ТВ-шоу, Скетчи, ЮморАктеры: Егор Крутоголов, Александр Бережок, Виктория Булитко, Евгений Гашенко, Евгений Сморигин, Яна Глущенко, Маруся Грицук, Дмитрий Танкович, Марина Поплавская, Сергей Писаренко, Евгений НикишинПеревод: Не требуетсяЯзык озвучки: РусскийПродолжительность: 01:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A32486147A2C49B17C08836C8A53E50BD5436887
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1478643   (1009936) от 21.06.2021
 
 Дизель Шоу. День Отца 2021. Папа - лучшая профессия в мире / Праздник день отца, юмор и приколы (2021.06.20) WEBRip [H.264/720p-LQ]
@@ -6,7 +113,7 @@
 >>Украинские шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009936.jpg" />
 </div>
 
 
@@ -35,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Украинские шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009929.jpg" />
 </div>
 
 
@@ -64,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Украинские шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009652.jpg" />
 </div>
 
 
@@ -93,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Украинские шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009414.jpg" />
 </div>
 
 
@@ -122,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Украинские шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009402.jpg" />
 </div>
 
 
@@ -151,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Украинские шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009396.jpg" />
 </div>
 
 
@@ -180,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Украинские шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009252.jpg" />
 </div>
 
 
@@ -209,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004428.jpg" />
 </div>
 
 
@@ -235,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004427.jpg" />
 </div>
 
 
@@ -253,6 +360,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604504   (996334) от 17.01.2013
+
+Куклы (1994-2002) VHSRip
+
+>>Юмор (ТВ)
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Развлекательная сатирическая телевизионная передача Виктора Шендеровича на острые темы актуальной российской политики.Жанр: ТелепередачаПродолжительность: 363 х ~00:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B43477BAAA698D7079E786006D1D67C6FB03B44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 606052   (995351) от 20.01.2013
 
 Игорь Маменко - Сборник выступлений (2005-2012) SATRip
@@ -261,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатирики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995351.jpg" />
 </div>
 
 
@@ -287,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990539.jpg" />
 </div>
 
 
@@ -313,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Украинские шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988223.jpg" />
 </div>
 
 
@@ -339,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987317.jpg" />
 </div>
 
 
@@ -365,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985397.jpg" />
 </div>
 
 
@@ -391,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984618.jpg" />
 </div>
 
 
@@ -417,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979137.jpg" />
 </div>
 
 
@@ -443,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979132.jpg" />
 </div>
 
 
@@ -469,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979064.jpg" />
 </div>
 
 
@@ -495,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976710.jpg" />
 </div>
 
 
@@ -521,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975290.jpg" />
 </div>
 
 
@@ -547,7 +680,7 @@ Stand Up (26.01.2020) WEB-DLRip (сезон 7, выпуск 11)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974015.jpg" />
 </div>
 
 
@@ -558,136 +691,6 @@ Stand Up - это взгляд на наши жизненные повседне
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC41D5198418079021677EA245A2D070879D0D9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357401   (974004) от 03.02.2020
-
-Stand Up (02.02.2020) WEB-DLRip (сезон 7, выпуск 12)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stand Up - это взгляд на наши жизненные повседневные ситуации. Это история, которую рассказывает человек на сцене, - обычно очень откровенную. Это правда жизни. Это что-то современное, что-то новое. Это что-то невообразимо оригинальное, яркое, интересное и обязательно смешное. Встречайте...Телекомпания: ТНТЖанр: ЮморАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр Шаляпин и др.Субтитры: ОтсутствуютПродолжительность: 00:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99BC925D6578C4265676FF0E16EBABBF0EB0D2B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358694   (968567) от 08.02.2020
-
-Женский Stand Up (08.02.2020) WEB-DL [H.264/1080p-LQ] (выпуск 4)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если ты думаешь, что женщины не ругаются, не жалуются на детей, не шутят о сексе и еще множество всяких «не», то это шоу докажет обратное! Для героинь «Женского стендапа» нет запретных тем. Они честно говорят о том, что их не устраивает в отношениях, высмеивают стереотипы семейной жизни и откровенно заявляют, что быть хорошей матерью вообще-то очень сложно. Хочешь (   Читать дальше...   )Производство: Россия / Comedy Club ProductionЖанр: Ток-шоу, юморСубтитры: ОтсутствуютПродолжительность: 00:48:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F881290E6FDF150B055149550743431E8CA5BFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 365844   (964228) от 22.01.2016
-
-Наша Russia.  Сергей Юрьевич Беляков (нарезка) (2011) SATRip
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все хохмы 5-го сезона от любителя болтать с телевизором!Жанр: ТелепередачаПродолжительность: 00:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBEB9F980884ED5158D7F0D230694EAA998DBCC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978907   (962042) от 24.01.2016
-
-Дежурный по стране. Михаил Жванецкий (2016.01.24) SATRip
-
->>Юмор (ТВ)
->>Сатирики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один раз в месяц на ТВ выходит телепередача, в которой М.М. Жванецкий, отвечая на вопросы ведущего, комментирует события произошедшие в стране за истекший месяц, отвечает на вопросы зрителей и читает что-нибудь новое.Телекомпания: РоссияЖанр: Ток-шоу, аналитический, ироническийРежиссер: Андрей МаксимовПродолжительность: ~ 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF350016D79E91BCFB67423A1ABC6AE5494B8643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360657   (959288) от 16.02.2020
-
-Женский Stand Up (15.02.2020) WEB-DL [H.264/1080p-LQ] (выпуск 5)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если ты думаешь, что женщины не ругаются, не жалуются на детей, не шутят о сексе и еще множество всяких «не», то это шоу докажет обратное! Для героинь «Женского стендапа» нет запретных тем. Они честно говорят о том, что их не устраивает в отношениях, высмеивают стереотипы семейной жизни и откровенно заявляют, что быть хорошей матерью вообще-то очень сложно. Хочешь (   Читать дальше...   )Производство: Россия / Comedy Club ProductionЖанр: Ток-шоу, юморСубтитры: ОтсутствуютПродолжительность: 00:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9CCF077CCD50CE1130D705B94B2F391A39E8F97
 ```
 
 https://mybot314.ru/tekegram_catalog/

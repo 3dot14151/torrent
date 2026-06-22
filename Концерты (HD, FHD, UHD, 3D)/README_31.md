@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330798.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330717.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Queen - Rock Montreal & Live Aid (2007) BDRemux [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330258.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329843.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329769.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329761.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Europakonzert 2004 from Athens BDRip [H.264/1080i-LQ] <сlassical>
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328404.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327495.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325641.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Bon Jovi - Live At Nokia Theatre (2005) HDTVRip [H.264/1080i-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324870.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Bon Jovi - Rock in Rio V (2013) HDTVRip [H.264/1080i-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324836.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323359.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Roger Waters - The Wall (2015) [H.264] BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323246.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322978.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Pain - We Come In Peace (2012) Blu-Ray [1080]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_322174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_322174.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Katy Perry - Live At Glastonbury (2017) HDTVRip [H.265/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322100.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Black Sabbath - Live... Gathered In Their Masses (2013) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321941.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Roger Waters - The Wall (2014) BDRip [H.265/1080p-LQ] [PR]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321104.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Linkin Park - Live in Moscow (2011) HDTVRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318906.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318764.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317487.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317479.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314045.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313894.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Delain - Live At Paradiso (2017) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313822.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312726.jpg" />
 </div>
 
 

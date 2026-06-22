@@ -1,3 +1,56 @@
+###  Публикация: 1067659   (386487) от 29.10.2016
+
+Waltr 2 v2.0.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386487.jpg" />
+</div>
+
+
+###  Подробнее
+
+WALTR 2 — революционный способ передачи файлов в любых форматах на iPhone, iPad и iPod
+Одним из постоянных упреков в адрес iOS является «сложность» передачи на устройства медиаконтента. Сложность эта, конечно, изрядно преувеличена, не надо быть семи пядей во лбу для того, чтобы выполнить обычный drag-n-drop, а в случае покупки лицензионного контента в iTunes — все (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 28 октября 2016Разработчик: Softorno Inc .Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA601D2047331BC36E4784336FC7C718AE8714E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174643   (385572) от 15.10.2017
+
+QuartzCode 1.62.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385572.jpg" />
+</div>
+
+
+###  Подробнее
+
+QuartzCode — это быстрый, легкий и мощный инструмент, который превращает векторную графику и анимации в код Objective C и Swift. Создание анимаций для вашего iOS или OS X проекта теперь проще некуда. Просто изменяйте любые параметры и смотрите на изменения в реальном времени. Используя QuartzCode вы можете создать любую анимацию за считанные секунды и тут же посмотреть (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.10.2017Разработчик: WAN LUTFI WAN MD HATTAПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DBE6BB325EAD9C8B785515799C4D706708DDAE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253261   (385545) от 08.10.2018
 
 Acorn 6.2.2 [En]
@@ -6,7 +59,7 @@ Acorn 6.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385545.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ Nice Clipboard - a cloud synced clipboard manager 1.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385219.jpg" />
 </div>
 
 
@@ -63,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385217.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ Wondershare Recoverit 8 v8.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385206.jpg" />
 </div>
 
 
@@ -116,7 +169,7 @@ MathType 7 v7.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385085.jpg" />
 </div>
 
 
@@ -142,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384978.jpg" />
 </div>
 
 
@@ -169,7 +222,7 @@ SizeUp 1.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384921.jpg" />
 </div>
 
 
@@ -196,7 +249,7 @@ WiFiSpoof 2.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384913.jpg" />
 </div>
 
 
@@ -225,7 +278,7 @@ Deponia 2: Chaos on Deponia [Native]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_384687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_384687.jpg" />
 </div>
 
 
@@ -255,7 +308,7 @@ PictureCode Photo Ninja 1.3.4b [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384620.jpg" />
 </div>
 
 
@@ -282,7 +335,7 @@ Keep It 1.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383591.jpg" />
 </div>
 
 
@@ -308,7 +361,7 @@ Sketch 69 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383526.jpg" />
 </div>
 
 
@@ -335,7 +388,7 @@ SnippetsLab 1.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383509.jpg" />
 </div>
 
 
@@ -361,7 +414,7 @@ Dash 4.6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383508.jpg" />
 </div>
 
 
@@ -387,7 +440,7 @@ Liquivid Video Improve 2.7.1 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383507.jpg" />
 </div>
 
 
@@ -415,7 +468,7 @@ Newsflow v 1.4.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383505.jpg" />
 </div>
 
 
@@ -444,7 +497,7 @@ ExpanDrive 7.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383494.jpg" />
 </div>
 
 
@@ -472,7 +525,7 @@ Live Home 3D Pro Edition 3.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383383.jpg" />
 </div>
 
 
@@ -500,7 +553,7 @@ Privatus 5.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383356.jpg" />
 </div>
 
 
@@ -527,7 +580,7 @@ KCNcrew Pack 10.15.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383260.jpg" />
 </div>
 
 
@@ -555,7 +608,7 @@ DaisyDisk 4.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383224.jpg" />
 </div>
 
 
@@ -583,7 +636,7 @@ Postbox 5.0.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383126.jpg" />
 </div>
 
 
@@ -609,7 +662,7 @@ Block Advertising on Internet 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383123.jpg" />
 </div>
 
 
@@ -637,7 +690,7 @@ Ableton Live Suite 10 v10.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383107.jpg" />
 </div>
 
 
@@ -648,60 +701,6 @@ Live - это быстрое и гибкое программное обеспе
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60E4AEBAD4C2B3DB14A7229584C98135FD6556AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326596   (383099) от 21.09.2019
-
-Postbox 7 v7.0.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Postbox является почтовым клиентом, в основу создания которого лёг код Mozilla Thunderbird с большими функциональными возможностями. Во-первых, программа будет весьма полезна для тех, кто часто отправляет и получает письма, содержащие вложения – документы, фотографии и пр. Просматривать фотографии, которые вам прислали, можно непосредственно в программе, а потом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.09.2019Разработчик: Postbox, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EEEC7378616970B50F7DBE36CD7E7CDEDCA7B37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174869   (382845) от 16.10.2017
-
-Luminar 1.2.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382845.jpg" />
-</div>
-
-
-###  Подробнее
-
-Luminar является первым в мире редактором фотографий, который адаптируется к вашему стилю и уровню квалификации. Luminar делает сложное редактирование легким и приятным. Luminar основан на последних технологиях фото-обработки команды Macphun с более чем 10-летним опытом разработки, удостоенного наградами и любимым миллионами.
-
-Адаптивный интерфейс, который вдохновляет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29 сентября 2017Разработчик: Macphun SoftwareПоддерживаемая ОС: macOS 10.10.5 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD2525719A809E0D7362C1595891A7ABC5CED71C
 ```
 
 https://mybot314.ru/tekegram_catalog/

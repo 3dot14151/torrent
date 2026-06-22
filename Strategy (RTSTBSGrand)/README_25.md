@@ -1,107 +1,3 @@
-###  Публикация: 1755350   (887) от 26.09.2025
-
-9-Bit Armies: A Bit Too Far (2024) [Ru/Multi] (864064/864396/dlc) Repack FitGirl
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ветераны стратегий в реальном времени Petroglyph представляют 9-Bit Armies: A Bit Too Far продолжение их триумфальной 8-битной серии игр. В 9-Bit Armies объединяйте свои военные силы на различных полях сражений и реализуйте свою стратегию на суше, на море и в воздухе. Размещайте своих воздушно-десантных солдат, разрушайте мосты и цельтесь из супероружия в новом виде (   Читать дальше...   )Тип издания: RepackРазработчик: PetroglyphЖанр: Экшены, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Китайский, Французский и другиеЯзык интерфейса: Русский, Английский, Китайский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:807F26909559CFD247EFCD5EC95944F330149696
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760651   (734) от 27.09.2025
-
-Ara: History Untold (2024) [Ru/Multi] (2.0.0.523/dlc) Repack Let'sРlay [Anniversary Edition]
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ara: History Untold - это эволюция жанра глобальной исторической стратегии, сочетающая любимую классику ПК-стратегий с инновационными элементами: национальное ремесленное производство, настоящие одновременные ходы, нелинейное дерево технологий и синхронный/асинхронный мультиплеер с поддержкой облака.Тип издания: RepackРазработчик: Oxide GamesЖанр: СтратегииЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D25017218BBDF6ADF8A69D17FD936C312527B438
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820382   (523) от 27.09.2025
-
-Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack Other s [Ultimate Bundle]
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глобальная стратегия галактического масштаба Отправляйтесь во Вселенную полную чудес и посвятите себя исследованию безграничного космоса! Компания Paradox Development Studio, создавшая знаменитые серии Crusader Kings и Europa Universalis, представляет новое слово в жанре глобальных стратегий. Stellaris – это вдумчивый стратегический геймплей, впечатляющее разнообразие (   Читать дальше...   )Тип издания: RepackРазработчик: Paradox Development StudioЖанр: Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA707B903BEDCC2DCF2D793AF88D36A59AD3F21F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796317   (151) от 29.09.2025
-
-Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack Pioneer [Steam Edition]
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глобальная стратегия галактического масштаба Отправляйтесь во Вселенную полную чудес и посвятите себя исследованию безграничного космоса! Компания Paradox Development Studio, создавшая знаменитые серии Crusader Kings и Europa Universalis, представляет новое слово в жанре глобальных стратегий. Stellaris – это вдумчивый стратегический геймплей, впечатляющее разнообразие (   Читать дальше...   )Тип издания: RepackРазработчик: Paradox Development StudioЖанр: Simulation, StrategyЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17F62672111E6BDB4EB9723EF53A90F89120529A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795863   (120) от 29.09.2025
 
 Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack FitGirl [Ultimate Bundle]
@@ -110,7 +6,7 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack FitGirl [Ultimate Bundle]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120.jpg" />
 </div>
 
 
@@ -136,7 +32,7 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109.jpg" />
 </div>
 
 

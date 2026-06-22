@@ -1,3 +1,133 @@
+###  Публикация: 1356761   (976292) от 01.02.2020
+
+Два Папы / The Two Popes (2019) WEB-DLRip [H.265] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976292.jpg" />
+</div>
+
+
+###  Подробнее
+
+История духовного пути и избрания Папы Римского Франциска, который в 2013 году неохотно сменил в Ватикане отрекшегося Папу Бенедикта XVI. Два самых влиятельных лидера католической церкви пытаются каждый по-своему укрепить в вере современный мир и самих себя.Производство: Великобритания, Италия, Аргентина, США / NetFlixЖанр: Драма, комедия, биографияРежиссер: Фернанду МейреллишАктеры: Джонатан Прайс, Энтони Хопкинс, Хуан Минухин, Сидни Коул, Thomas D Williams, Федерико Торре, Пабло Тримарчи, Walter Andrade, Juan Miguel Arias, Лисандро ФиксПеревод: Дублированный (Netflix)Субтитры: Русские, английские, французские, немецкиеПродолжительность: 02:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFCF6403EEA3C99918AC9DAD1189197B66767A09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356790   (976247) от 01.02.2020
+
+Химера / Braid (2018) WEB-DLRip [H.265] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы провернуть ограбление, художницы-авантюристки Петула и Тильда затевают игру в «дочки-матери» с безумной хозяйкой таинственного особняка. Но скоро преступницы оказываются в зловещем лабиринте кошмаров, извращений и галлюцинаций, полном болезненных фантазий и садистских пыток...Производство: США / Wandering Bard, Somnia ProductionsЖанр: Ужасы, триллер, детективРежиссер: Митци ПейронеАктеры: Мадлен Брюэр, Сара Хэй, Скотт Коэн, Имоджен Уотерхаус, Мэри Лурман, Дхони Миддлтон, Джилл Далтон, Таи Лин Сандху, Маурицио Овейлл, Брэд КалькатерраПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:21:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:947AF32658A18497304FFDB7BAB4E13BD3AA0988
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356808   (976245) от 01.02.2020
+
+Малыш Джо / Little Joe (2019) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мать-одиночка Элис, сотрудница отдела по выведению новых видов растений, создаёт необычный цветок — если за ним правильно ухаживать, он делает своего владельца счастливым. Но всё не так просто, и оказывается, что за счастье, даже сиюминутное, придётся заплатить, а цена может оказаться слишком высокой.Производство: Великобритания, Австрия, Германия, Coop99 Filmproduktion, The Bureau, Essential Filmproduktion GmbHЖанр: Фантастика, драмаРежиссер: Джессика ХауснерАктеры: Эмили Бичем, Бен Уишоу, Керри Фокс, Кит Коннор, Феникс Броссар, Лиэнн Бест, Эндрю Раджан, Дэвид Уилмот, Горан Костич, Яна ЯнежичПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:339365C9C6784164F9F37D5D8DBE9E9868077CAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356794   (976239) от 01.02.2020
+
+Код 8 / Code 8 (2019) BDRip [H.265] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ещё в 1950-е были обнаружены люди, обладающие сверхспособностями. Сначала их использовали при строительстве, но после повсеместного внедрения спецмашин такие рабочие стали не нужны. Теперь власти пытаются контролировать особенных людей, а остальные боятся их и презирают. Парень Коннор, обладающий способностью генерировать в себе электроэнергию, отчаянно пытается (   Читать дальше...   )Производство: Канада / Colony Pictures Inc.Жанр: Фантастика, боевикРежиссер: Джефф ЧанАктеры: Стивен Амелл, Робби Амелл, Кари Матчетт, Лайсла Де Оливейра, Грег Брайк, Сон Ган, Питер Аутербридж, Шон Бенсон, Аарон Абрамс, Алекс Маллари мл.Перевод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 01:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D89A64B09442814A21A9FA88FD21054DB3D0CC2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356887   (976228) от 01.02.2020
+
+Песня имен / The Song of Names (2019) WEB-DLRip [H.265] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лондон. Вторая мировая. Когда семья маленького скрипача Довидла погибает, Симмондсы принимают талантливого мальчика, как родного, а для их сына Мартина он становится больше, чем брат. В день, когда Довидл должен был дать первый концерт, никто так и не смог его отыскать... Лишь сорок лет спустя Мартину удается раскрыть тайну исчезновения юного музыканта.Производство: Канада, Венгрия / Serendipity Point Films, Lyla Films, Feel FilmsЖанр: Драма, историяРежиссер: Франсуа ЖирарАктеры: Клайв Оуэн, Тим Рот, Джона Хауэр-Кинг, Кэтрин МакКормак, Эдди Иззард, Сол Рубинек, Герран Хауэлл, Ричард Бреммер, Эми Слоун, Макс Макмиллан, Джулиан УэдэмПеревод: Дублированный (iTunes)Субтитры: отсутствуютПродолжительность: 01:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:377B1F7369C09A209D08D42A6921C9D8A93CE120
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356981   (976171) от 01.02.2020
 
 Хеллбой / Hellboy (2019) BDRip [H.264] [RUS Transfer] [Локализованная версия]
@@ -6,7 +136,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976171.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976090.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976031.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976021.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975974.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975914.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975906.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975841.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975830.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975824.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975787.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975669.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975634.jpg" />
 </div>
 
 
@@ -347,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975628.jpg" />
 </div>
 
 
@@ -373,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975499.jpg" />
 </div>
 
 
@@ -399,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975472.jpg" />
 </div>
 
 
@@ -425,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975396.jpg" />
 </div>
 
 
@@ -451,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975393.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975307.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975306.jpg" />
 </div>
 
 
@@ -529,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975304.jpg" />
 </div>
 
 
@@ -540,136 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0B3DD38BEB6CCCC89562F638AF57FD30DC42A90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974789   (975298) от 12.01.2016
-
-Мохаве / Mojave (2015) WEBRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975298.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о художнике, который, чтобы пережить личный кризис, отправляется в пустыню. Там он встречает своего двойника - жестокого убийцу. С этого момента главный герой с суицидальных мыслей переключается на поиск возможностей выжить.Производство: СШАЖанр: ТриллерРежиссер: Уильям МонахэнАктеры: Оскар Айзек, Гаррет Хедлунд, Марк Уолберг, Уолтон Гоггинс, Хейли Магнус, Мэтт Джонс, Даня Рамирес, Фрэн Кренц, Кристофер Нейман, Луиз БургуанПеревод: Любительский двуголосый (Parovoz Production)Субтитры: ОтсутствуютПродолжительность: 01:29:19Реклама: Присутствуют голосовые и видео вставки рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:153CF47CEBB4FB180968A3F914439EE3D002D862
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357066   (975275) от 02.02.2020
-
-Мустанг / The Mustang (2019) BDRip [Line]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осуждённый преступник Роман Коулман, отбывающий срок в тюрьме Невады, вынужден участвовать в реабилитационной программе по приручению мустангов. Неожиданно для себя он привязывается к самой неукротимой лошади, которая помогает ему бороться с собственными демонами.Производство: Франция, США / Canal+Жанр: ДрамаРежиссер: Лор де Клермон-ТоннерАктеры: Маттиас Шонартс, Джейсон Митчелл, Брюс Дерн, Гидеон Адлон, Конни Бриттон, Джош Стюарт, Томас Смитл, Кейт Джонсон, Ноэль Гульеми, Джеймс МакфарландПеревод: Профессиональный многоголосый (Online Cin.)Субтитры: ОтсутствуютПродолжительность: 01:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E437012616965E84D77A730D3438BB3ED49B7313
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357159   (975176) от 02.02.2020
-
-Мустанг / The Mustang (2019) HDRip [H.265] [10-bit] [Line]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осуждённый преступник Роман Коулман, отбывающий срок в тюрьме Невады, вынужден участвовать в реабилитационной программе по приручению мустангов. Неожиданно для себя он привязывается к самой неукротимой лошади, которая помогает ему бороться с собственными демонами.Производство: Франция, США / Canal+, Cine+, Legende FilmsЖанр: ДрамаРежиссер: Лор де Клермон-ТоннерАктеры: Маттиас Шонартс, Джейсон Митчелл, Брюс Дерн, Гидеон Адлон, Конни Бриттон, Джош Стюарт, Томас Смитл, Кейт Джонсон, Ноэль Гульеми, Джеймс МакфарландПеревод: Профессиональный многоголосый (Онлайн кинотеатр)Субтитры: Русские, английскиеПродолжительность: 01:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A63CDA34D6F4D35069C89993377A7940B633BF80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357174   (975170) от 02.02.2020
-
-Боль и слава / Dolor y gloria (2019) BDRip [H.265] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Талантливый кинорежиссер на закате своего творческого пути оглядывается в прошлое, и на него обрушивается поток ярких воспоминаний. Нежные чувства к матери, любовь и расставание, поиски счастья и успеха. Всё это приводит творца к важным размышлениям о жизни и искусстве — боли и славе.Производство: Испания / Canal+, Cine +, El DeseoЖанр: ДрамаРежиссер: Педро АльмодоварАктеры: Антонио Бандерас, Пенелопа Крус, Леонардо Сбаралья, Асьер Эчеандиа, Сесилия Рот, Рауль Аревало, Хульета Серрано, Нора Навас, Розалия, Агустин Альмодовар, Сесар Висенте, Асьер Флорес, Суси СанчесПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 01:53:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E0F569ACF483364DAE3A22161F683C251DD709A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357115   (975166) от 02.02.2020
-
-Рождество на двоих / Last Christmas (2019) BDRip [Line]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кейт работает в магазине рождественских товаров, злоупотребляет выпивкой и давно бросила переживать из-за собственной жизни. Но всё меняется после знакомства с милым и очаровательным Томом...Производство: США, Великобритания / Calamity Films, Feigco Entertainment, Perfect World PicturesЖанр: драма, мелодрама, комедияРежиссер: Пол ФигАктеры: Эмилия Кларк, Генри Голдинг, Мишель Йео, Эмма Томпсон, Ребекка Рут, Лидия Леонард, Пэтти ЛюПон, Мэдисон Инголдсби, Борис Исакович, Люси МиллерПеревод: Дублированный (Онлайн кинотеатр)Субтитры: отсутствуютПродолжительность: 01:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D5DFC93189A43ACD6C0D7B588BFF24BAF1CCBAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

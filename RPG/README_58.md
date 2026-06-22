@@ -1,3 +1,107 @@
+###  Публикация: 1739591   (48585) от 28.07.2024
+
+Bloodstained: Ritual of the Night (2019) [Ru/Multi] (1.5/dlc) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bloodstained: Ritual of the Night – это смесь готического хоррора, экшна, платформера и RPG в атмосфере Англии XIX века. Сверхъестественные силы призвали на Землю замок, населенный демонами, и кристаллы-осколки, полные магической силы. Играйте за Мириам - сироту, чье тело медленно превращается в кристалл из-за алхимического проклятия.Тип издания: LicenseРазработчик: Inti Creates, Dico Co., Ltd., ArtPlay, MonobitЖанр: Экшны, Ролевая игра, MetroidvaniaЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Японский и другиеЯзык интерфейса: Русский, Английский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C2801AF13643CC97917F4F0F73785025A866A76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727910   (48529) от 29.07.2024
+
+Smalland: Survive the Wilds (2024) [Ru/Multi] (1.3.1) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48529.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Smalland: Survive the Wilds игрок берет на себя роль героя, который был уменьшен при необъяснимых обстоятельствах. Протагонист проснулся в лесу, не зная, была ли такая же судьба у других людей. С головой, полной вопросов, он начинает борьбу, цель которой состоит не только в том, чтобы узнать правду, но, прежде всего, чтобы выжить в новом негостеприимном мире.Тип издания: SceneРазработчик: Merge GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86BEF0525E09F6B793B85D224F782402E5B3C69A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721836   (48454) от 30.07.2024
+
+The Thaumaturge (2024) [Ru/Multi] (1.1.1 HotFix) Scene Rune
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48454.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Thaumaturge - изометрическая ролевая игра с глубоким сюжетом, уникальной тактической системой боя, развитием персонажа, детективными элементами и непростыми моральными дилеммами в мире загадочных потусторонних сил и таинственных существ, салюторов. Варшава, 1905 год. Город живет под гнетом Российской империи.Тип издания: SceneРазработчик: Fool's TheoryЖанр: Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2D427BDED2CD944A5C544D175162C9863FB4E80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967287   (48346) от 31.07.2024
+
+Ruzar - The Life Stone (2015) [Ru/Multi] (1.0) Scene PLAZA
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ruzar - The Life Stone - ролевой данжен-кроулер, в котором вам предстоит выступить в роли искателя приключений, задача которого - найти магический камень жизни. Набирайтесь смелости и отправляйтесь в многочисленные, полные тайн и опасностей подземелья горы Руз, чтобы восстановить легендарный артефакт.Тип издания: SceneРазработчик: Hammer Glass StudioЖанр: Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, ФранцузскийЯзык интерфейса: Русский, Английский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3749F3FFF58C14F298AB04F138DB50EFC94A3C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740064   (48339) от 31.07.2024
 
 Ruzar - The Dark Stones (2024) [Multi] (1.0) Scene Tenoke
@@ -6,7 +110,7 @@ Ruzar - The Dark Stones (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48339.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Secrets of Magonia (2024) [En] (1.03) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48230.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Space Prison (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl [Supporter Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48201.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Dread Delusion (2024) [En] (1.1.0.13) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48123.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ ELDEN RING (2022) [Ru/Multi] (1.13/dlc) Repack Other s [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48116.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Relic Space (2023) [En] (1.03) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48107.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Oblivion Override (2024) [Multi] (1.1.2.1574) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48038.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ S.T.A.R.W.I.E.L.D. (2024) [Ru/En] (1.04) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48008.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ S.T.A.R.W.I.E.L.D. (2024) [Ru/En] (1.04) Scene SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47833.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Minecraft Dungeons (2020) [Ru/Multi] (1.17.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47823.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Earl vs. the Mutants (2024) [Ru/Multi] (1.0) Scene Unleashed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47796.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Octopath Traveler II (2) (2023) [Multi] (1.1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47788.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Citizen Sleeper (2022) [En] (1.4.9) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47716.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ USC: Counterforce (2023) [Multi] (1.00.0a) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47710.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Thalassa: Edge of the Abyss (2024) [Ru/Multi] (1.0.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47699.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ LunarLux (2023) [Multi] (1.371) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47570.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Arranger: A Role-Puzzling Adventure (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47395.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Thalassa: Edge of the Abyss (2024) [Ru/Multi] (1.0.0-012215) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47388.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ S.T.A.R.W.I.E.L.D. (2024) [Ru/En] (1.04) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47278.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Deathbound (2024) [Ru/Multi] (1.1.3) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47258.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ That Time I Got Reincarnated as a Slime ISEKAI Chronicles (2024) [Multi] (1.01) 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47241.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Voltaire: The Vegan Vampire (2023) [Multi] (1.03.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47093.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Voltaire: The Vegan Vampire - это фермерский рогалик-экш�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D796D6DB055A13CCE196C3310E514EB00E3A8D82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699426   (47090) от 12.08.2024
-
-Atlas Fallen (2023) [Ru/Multi] (1.118888.1721314771/dlc) Repack Other s
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47090.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Atlas Fallen предстоит восстать из пыли и освободить человечество от гнета коррумпированных богов. Это ролевая игра с видом от третьего лица, в которой сочетаются манипуляции с песком, изменение формы оружия и воздушный бой. Действие происходит в мире, разрушенном богом Солнца, который поработил людей и заставил их копать землю.Тип издания: RepackРазработчик: Deck13Жанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9FF34D90847B36F04B6D899A2401A58A2AE5A91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704807   (47087) от 12.08.2024
-
-The Thaumaturge (2024) [Ru/Multi] (73.424/dlc) Repack Decepticon [Digital Deluxe Edition]
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47087.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Thaumaturge - изометрическая ролевая игра с глубоким сюжетом, уникальной тактической системой боя, развитием персонажа, детективными элементами и непростыми моральными дилеммами в мире загадочных потусторонних сил и таинственных существ, салюторов. Варшава, 1905 год. Город живет под гнетом Российской империи. На его улицах сталкиваются люди множества судеб, взглядов (   Читать дальше...   )Тип издания: RepackРазработчик: Fool's TheoryЖанр: Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:314408D0D32415418EF8924FE98315573DEE041E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742600   (47070) от 12.08.2024
-
-Deathbound (2024) [Ru/Multi] (1.1.3) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deathbound - действие игры разворачивается в средневековом мире Зиеминал, в котором технологическое прошлое сочетается со средневековым настоящим и где сталкиваются жизнь и смерть. В Deathbound игроки управляют существом, которое является результатом экспериментов по обретению вечной жизни, проводимых Культом Жизни. Тем временем Церковь Смерти отправляется в крестовый (   Читать дальше...   )Тип издания: RepackРазработчик: Trialforge StudioЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B21EB2D092118BB5248EACFFFAD7DDB141924CEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742537   (47062) от 12.08.2024
-
-That Time I Got Reincarnated as a Slime ISEKAI Chronicles (2024) [Multi] (1.01/dlc) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Присоединитесь к любимым героям аниме-сериала и станьте творцом новой истории о Федерации Джуры-Темпеста! Игроков ждут захватывающие бои с использованием эффектных способностей и мощных комбо-атак. Укрепляйте дружбу со своими соратниками, чтобы сражаться с ними плечом к плечу и открывать для Римуру новые спецатаки. Применяйте анимированные в 8-битном стиле спецнавыки (   Читать дальше...   )Тип издания: RepackРазработчик: ZOC Co.,Ltd.Жанр: Экшены, Ролевые игрыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Немецкий, Французский, Китайский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Китайский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25F7700E57F0F891489EA35DE20F1738332F90CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

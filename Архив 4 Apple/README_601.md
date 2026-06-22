@@ -1,3 +1,57 @@
+###  Публикация: 1515377   (170526) от 06.12.2021
+
+Yate 6.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yate - Мощный и удобный редактор ID3-тегов с широким набором полезных функций.
+Yate был разработан для людей, которые серьезно относятся к маркировке и организации их аудио файлов. Yate позволит привести в порядок и сделать более красивым ваш сборник музыки с помощью тегов и огромного количества дополнительной информации о песнях.
+У Yate есть длинный список особенностей, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.12.2021Разработчик: Many RobotsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23E8068B729C7F6E0796000FA86CF23330CAAF68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344326   (170524) от 10.12.2019
+
+Adguard 2.4.0.693 nightly (CL - 1.5.141) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adguard — это лучший способ избавиться от раздражающей рекламы, защититься от онлайн-слежки и мошеннических сайтов. Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: AdguardПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66F601B8155EEE26BB9501ED6D753A8E0F68BC3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515355   (170520) от 06.12.2021
 
 Script Debugger 8 v8.0.3 [En]
@@ -6,7 +60,7 @@ Script Debugger 8 v8.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170520.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ Soulver 3 v.3.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170519.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ GrabIt 4.931 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170510.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ VideoDuke 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170505.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ Swift Publisher 5 v.5.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170494.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ Vinegar 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170485.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ OmniPlayer Pro - Media Player 1.4.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170484.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ SILKYPIX Developer Studio Pro 11 v.11.0.12.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170478.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ Nisus Writer Pro 3.2.2 fix [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170475.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ Typora 1.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170471.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ Sensei 1.5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170467.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ Sound Studio 4 v4.9.6 fix [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170465.jpg" />
 </div>
 
 
@@ -325,7 +379,7 @@ MaxCommander 2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170458.jpg" />
 </div>
 
 
@@ -354,7 +408,7 @@ MenuBar Stats 3 v3.8.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170452.jpg" />
 </div>
 
 
@@ -382,7 +436,7 @@ Project Office Pro 9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170448.jpg" />
 </div>
 
 
@@ -408,7 +462,7 @@ Caffeinated 2.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170441.jpg" />
 </div>
 
 
@@ -434,7 +488,7 @@ BBEdit 14.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170420.jpg" />
 </div>
 
 
@@ -460,7 +514,7 @@ Mate Translate 8.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170404.jpg" />
 </div>
 
 
@@ -487,7 +541,7 @@ Capture One 21 Pro 14.0.1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170397.jpg" />
 </div>
 
 
@@ -514,7 +568,7 @@ GoodNotes 5 v5.7.52 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170372.jpg" />
 </div>
 
 
@@ -541,7 +595,7 @@ Live Home 3D Pro Edition 4.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170356.jpg" />
 </div>
 
 
@@ -568,7 +622,7 @@ Topaz Photo AI for Mac 2.0.7 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170344.jpg" />
 </div>
 
 
@@ -594,7 +648,7 @@ Art Text 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170323.jpg" />
 </div>
 
 
@@ -621,7 +675,7 @@ Audio Editor - Merge Split And Edit 1.5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170283.jpg" />
 </div>
 
 
@@ -632,58 +686,6 @@ Audio Editor - Merge, Split And Edit - программа для редакти�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2D44D22A775297A6AC44261F61133E035001D1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672270   (170137) от 27.10.2023
-
-MacCleaner 3 PRO 3.2.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очистите Mac и оптимизируйте его производительность. Ускорьте медленный Mac, освободите место на диске, удалите ненужные файлы, предотвратите ошибку «Startup Disk Full».Тип издания: macOS SoftwareРелиз состоялся: 26.10.2023Разработчик: © 2023 NektonyПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB91F2B6F06DA466DCA0F8DAACB64AA260F9C890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430876   (170092) от 11.12.2020
-
-Data Guardian 6 v.6.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Безопасность и секретность — вот одни из наиболее важнейших вопросов в сегодняшнем мире. Это безопасная база данных, использующая 448-битный алгоритм Blowfish для шифрования и хранения ваших данных, не зависимо от уровня их важности. В этом приложении вы можете создавать множество баз данных, используя их для широкого ряда таких задач, как ведение адресной книги, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2020Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD1984BC2D02B4314886471B35AD0B9ADB647C7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 517157   (646886) от 01.07.2012
+
+Нападение на 13-й участок / Assault on Precinct 13 (1976) BDRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646886.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первый же свой рабочий день лейтенант полиции Бишоп получает временное назначение на старый участок номер 13, который готовится к закрытию. Почти все имущество уже вывезено, электропровода и телефонные линии обрезаны. Но именно этот день члены самой «отмороженной» банды Лос-Анджелеса выбрали для мести за гибель шестерых своих товарищей.
+Бандиты поклялись на крови (   Читать дальше...   )Жанр: Боевик, Триллер, Криминал, ДетективРежиссер: Джон КарпентерАктеры: Остин Стокер, Дарвин Джостон, Лори Зиммер, Мартин Уэст, Тони Бертон, Чарльз Сайферс, Нэнси Кайс, Питер Бруни, Джон Дж. Фокс, Марк Росс, Алан Косс, Генри БрэндонПеревод: Многоголосый закадровый, одноголосыйЯзык субтитров: РусскийПродолжительность: 01:30:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DC2FB4B91B487731CF56AE84C02F727A9BF252A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226368   (646584) от 26.05.2018
+
+Бандолеро! / Bandolero! (1968) BDRip [H.265/1080p-LQ] [10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дерзких контрабандистов и отважных бандолеро, мексиканские простолюдины считают лицами поэтическими. Ди — крепкий парень вне закона. Он со своим приятелем решает ограбить банк в маленьком техасском городке. Во время налета в перестрелке один из них убивает богатого владельца местного ранчо. Полиция арестовывает грабителей и приговаривает их к смертной казни через (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: Драма, Мелодрама, Криминал, ВестернРежиссер: Эндрю В. МакЛагленАктеры: Джеймс Стюарт, Дин Мартин, Рэкел Уэлч, Джордж Кеннеди, Эндрю Прайн, Уилл Гир, Клинт Ричи, Денвер Пайл, Том Хитон, Руди ДиасПеревод: Многоголосый закадровый x3Субтитры: русские, английскиеПродолжительность: 01:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12ED010DEBC88CE7FD30D88EF9440B488F61CF3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 216621   (645815) от 07.07.2010
 
 Зелёные береты / The Green Berets (1968) [1080p] BDRip
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645815.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645579.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645559.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645223.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643764.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643687.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643314.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643197.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642576.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641516.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_640736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_640736.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640389.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640181.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639431.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639004.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_638763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_638763.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_638010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_638010.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637020.jpg" />
 </div>
 
 
@@ -484,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636935.jpg" />
 </div>
 
 
@@ -510,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636865.jpg" />
 </div>
 
 
@@ -536,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636580.jpg" />
 </div>
 
 
@@ -563,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635804.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635578.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635414.jpg" />
 </div>
 
 
@@ -627,59 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:492BEDE8F5ED6B2CBCB31726351B36C80AEEE485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906127   (635291) от 13.06.2015
-
-Люди, забытые временем / Капрона-парк / The People That Time Forgot (1977) HDTV [H.264/1080i]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация повести Эдгара Райса Берроуза, являющаяся продолжением фильма "Земля, забытая временем."
-В конце 1917 г. у берегов Шотландии находят небольшой контейнер, внутри которого оказались листы бумаги с посланием от некоего Боуэна Тайлера. Во время Первой мировой войны, он, вместе со своими товарищами, попал на затерянный в Океане остров, окруженный (   Читать дальше...   )Производство: Великобритания, American International Pictures (AIP), Amicus ProductionsЖанр: Фантастика, Фэнтези, ПриключенияРежиссер: Кевин КоннорАктеры: Патрик Уэйн, Даг МакКлюр, Сара Даглас, Дана Гиллеспи, Торли Уолтерс, Шэйн Риммер, Тони Бриттон, Джон Хэллам, Дэвид Праус, Милтон РейдПеревод: Двуголосый закадровыйПродолжительность: 01:26:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD3F5F92A9484548D383FE71B772A24413659A01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519990   (634695) от 07.07.2012
-
-Полицейская академия 1, 2 / Police Academy 1, 2 (1984, 1985) [1080p] Blu-ray
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_634695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Банда хулиганов творит безобразия по всему городу и опустошает карманы всех, кто находится с ними на одном тротуаре. Осторожно! Когда увальни в голубой форме решат разобраться с этими парнями, это закончится умопомрачительным смехом.Производство: Жанр: Боевик, комедияРежиссер: Джерри ПэрисПеревод: Дубляж, русский (3 шт.) и украинский закадровый многоголосый, одноголосый (2 шт.)Субтитры: (PGS): Английские, Французские, Немецкие, Испанские, Португальские, Датские, Финские, Норвежские, РусскиеПродолжительность: 01:27:09
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

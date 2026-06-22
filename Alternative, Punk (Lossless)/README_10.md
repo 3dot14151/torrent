@@ -1,3 +1,32 @@
+###  Публикация: 1371876   (888709) от 01.04.2020
+
+Ty Segall - Segall Smeagol (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Coconut
+02 Gotta Get Up
+03 Drivin Along
+04 Early in the Morning(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:20:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B878F744E111D244129D705E9456DAA9213EC46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371597   (888706) от 01.04.2020
 
 British Sea Power - Let The Dancers Inherit The Part (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
@@ -6,7 +35,7 @@ British Sea Power - Let The Dancers Inherit The Part (2017) [FLAC|Lossless|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888706.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Basia Bulat - Are You in Love? (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888705.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884512.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884281.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Imagine Dragons - Smoke + Mirrors (2015) Deluxe Edition [FLAC|Lossless]<Indie Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883980.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ The Calling - Camino Palmero (2002) [FLAC|Lossless|tracks + .cue] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880958.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ The Used - Heartwork (2021) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Emo-Screamo, P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880815.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ The Calling - Two (2004) [FLAC|Lossless|image + .cue] <Alternative Rock, Soft Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879174.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Hoobastank - The Greatest Hits: Don't Touch My Moustache (2012) [FLAC|Lossless|t
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879169.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879090.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Electric Guest - Plural (2017) [FLAC|Lossless|tracks + .cue] <Indie, Rock, Synth
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874997.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Tommy Lee - TommyLand: The Ride (2005) [FLAC|Lossless|image + .cue] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873684.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Iggy Pop - Post Pop Depression (2016) [FLAC|Lossless|tracks + .cue] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873680.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Walking Rumor - Symbiosis (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873159.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Laura Marling - Song for Our Daughter (2020) [FLAC|Lossless|WEB-DL|tracks] <Indi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872978.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Billy Idol - The Roadside (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872717.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Placebo - A Place For Us To Dream (2016) 3CD, Compilation, Japanese Edition [FLA
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872575.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868481.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Panic! At The Disco - Death Of A Bachelor (2016) [FLAC|Lossless|tracks + .cue] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868074.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Sex Pistols - God Save The Queen (2002) Single [FLAC|Lossless|image + .cue] <Pun
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860494.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ We Butter The Bread With Butter - Das Album (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857929.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Sex Pistols - 76-77 (2021) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857805.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Gengahr - Sanctuary (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857011.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ Attila - About That Life (2013) [FLAC|Lossless|tracks + .cue] <Alternative Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854533.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Attila - Guilty Pleasure (2014) [FLAC|Lossless|tracks + .cue] <Alternative Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854531.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ Attila - Guilty Pleasure (2014) [FLAC|Lossless|tracks + .cue] <Alternative Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A69FD39069196A3F76392B2D8CCA4F57A7D6A278
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498785   (854415) от 28.09.2021
-
-Attila - Outlawed (2011) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Metalcore, Rapcore, Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/10. Outlawed (2:02)
- 02/10. Light Me Up (3:04)
- 03/10. Nothing Left To Say (3:02)
- 04/10. Another Round (2:38)(   Читать дальше...   )Жанр: Alternative Rock, Metalcore, Rapcore, DeathcoreПродолжительность: 00:29:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9C752A3D65689F932C7441798F75F68A5514963
 ```
 
 https://mybot314.ru/tekegram_catalog/

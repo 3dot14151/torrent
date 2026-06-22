@@ -1,3 +1,29 @@
+###  Публикация: 1203299   (1032163) от 11.02.2021
+
+AirReceiver v4.9.5 FTV/MITV [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032163.jpg" />
+</div>
+
+
+###  Подробнее
+
+AirReceiver - это универсальный сервер ChromeCast, AirPlay и DLNA. С помошью него вы можете передавать видео, фотографии, музыку на устройство Android из Android, iOS / Mac OS или Windows ПК. Так же поддерживается дублирование / расширение экрана iOS / macOS и просмотр / воспроизведение содержимого сетевых папок Windows/NAS и других DLNA-устройств в локальной сети. (   Читать дальше...   )Тип издания: Русская модификация без проверки лицензииРелиз состоялся: 11.02.2021Разработчик: felix.longПоддерживаемая ОС: Android 2.3 или более поздняяЯзык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D898BD6C8E73EFA53FEB50CF22DFE50043093EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388050   (1032035) от 12.02.2021
 
 Супер ЦИФРЫ для детей! Счет 123! v2.0.2.3 [Ru/En] (обновляемая)
@@ -6,7 +32,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032035.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Resize Me! v2.01.2 [Ru/Multi] - изменение размера изображ
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031971.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ SketchAR v4.57 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031835.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Piano Kids - Music & Songs v2.73 [En]
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031570.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031565.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Play Magnus - играть в шахматы v4.7.4 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031536.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Sonic Dash 2 v2.3.2 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031534.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ The Walking Zombie 2: Zombie shooter v3.5.5 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031502.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Hellrider 3 v1.15 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031323.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Tempest: Pirate Action RPG Premium v1.4.7 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031265.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031264.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Facetune2 - Фоторедактор селфи, ретушь и фильтры 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030869.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ WinZip v6.1.1 Premium  [En] – Zip UnZip Tool
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030448.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030367.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Cafeland - World Kitchen v2.1.63 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030223.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030217.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030183.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ VPN Russia - VPN сервера в России 1.160 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030173.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030151.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ Noblemen: 1896 v1.04.05.5 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030150.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030146.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ Blade Bound Legendary v2.13.3 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030137.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030134.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030104.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ Bubble Witch 2 Saga v1.126.1 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029918.jpg" />
 </div>
 
 
@@ -645,34 +671,6 @@ Bubble Witch 2 Saga - аркада, в которой главными геро�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2A6322C803CE4933055B7989B5B1E4AD186968D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449680   (1029686) от 22.02.2021
-
-Vinylage Music Player v2.0.16 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vinylage Music Player - стильный аудио-плеер с анимацией винилового проигрывателя.
-
-Используя Vinylage Music Player вы можете не только насладиться любимой музыкой, но и выбирать из нескольких моделей реальных Hi-Fi проигрывателей, менять цвет виниловых дисков и тип исторически достоверных наклеек, услышать шум и треск винила в тишине между музыкальными треками и (   Читать дальше...   )Тип издания: Пиратка (AdFree - удалена реклама)Релиз состоялся: 13 октября 2020 г.Разработчик: Valentyn VieshchunovПоддерживаемая ОС: Android 4.0.3Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10E0300B63678E0EFF114BE77B10613DE8ADC377
 ```
 
 https://mybot314.ru/tekegram_catalog/

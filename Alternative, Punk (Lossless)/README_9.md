@@ -1,3 +1,32 @@
+###  Публикация: 1099446   (905023) от 01.02.2017
+
+No Resolve - Unity (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wake Up
+02. Love Me to Death
+03. Prelude
+04. What You Wanted(   Читать дальше...   )Жанр: Alternative Rock, Modern RockПродолжительность: 00:34:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD1A9D9A3005BD92E32A2185BCF223CF1D990065
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 458721   (903976) от 29.02.2016
 
 Morrissey - You Are The Quarry (Deluxe Edition) 2 СD (2004) [FLAC|Lossless]<Alternative Rock>
@@ -6,7 +35,7 @@ Morrissey - You Are The Quarry (Deluxe Edition) 2 СD (2004) [FLAC|Lossless]<Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903976.jpg" />
 </div>
 
 
@@ -38,7 +67,7 @@ Penelope Houston - Cut You (1996) [FLAC|Lossless|tracks + .cue] <Rock, Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903582.jpg" />
 </div>
 
 
@@ -67,7 +96,7 @@ DISQ - Collector (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902129.jpg" />
 </div>
 
 
@@ -96,7 +125,7 @@ Stephen Malkmus - Traditional Techniques (2020) [FLAC|Lossless|tracks + .cue] <I
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902031.jpg" />
 </div>
 
 
@@ -125,7 +154,7 @@ Grouplove - Healer (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900437.jpg" />
 </div>
 
 
@@ -154,7 +183,7 @@ Facs - Void Moments (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900428.jpg" />
 </div>
 
 
@@ -183,7 +212,7 @@ The The - Dusk (1993) Remastered, 2002, Epic [FLAC|Lossless|tracks + .cue] <Indi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900427.jpg" />
 </div>
 
 
@@ -212,7 +241,7 @@ Linde - Cold Sore (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898560.jpg" />
 </div>
 
 
@@ -241,7 +270,7 @@ Pearl Jam - Gigaton (2020) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Hard
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898401.jpg" />
 </div>
 
 
@@ -270,7 +299,7 @@ HorrorPops - Hell Yeah! (2004) [APE|Lossless|image + .cue] <Rockabilly, Punk Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898021.jpg" />
 </div>
 
 
@@ -299,7 +328,7 @@ Highly Suspect - The Boy Who Died Wolf (2016) [FLAC|Lossless|WEB-DL|tracks] <Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897745.jpg" />
 </div>
 
 
@@ -328,7 +357,7 @@ Tonight Alive - Limitless (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Alt.Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895530.jpg" />
 </div>
 
 
@@ -357,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895205.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ The Birthday Massacre - Diamonds (2020) [FLAC|Lossless|WEB-DL|tracks] <Industria
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895070.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ Nickelback - No Fixed Address + Feed the Machine (2014, 2017) Album + Single [FL
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894407.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Norma Jean - All Hail (2019) [FLAC|Lossless|tracks + .cue] <Chaotic Hardcore, Me
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893685.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893653.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Superlitio - Tripping Tropicana (2005) [FLAC|Lossless|tracks + .cue] <Electronic
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893139.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ R.E.M. - Murmur (1983) [FLAC|Lossless|tracks + .cue] <Indie, Alternative>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891212.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Pixies - Indie Cindy (2014) Deluxe Limited Edition [FLAC|Lossless|image + .cue] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891197.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ Adept - 4 Альбома (2009-2016) [FLAC|Lossless|tracks+.cue]<Post-Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890942.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Nickelback - The Best Of Nickelback (Volume 1) (2013) Compilation [FLAC|tracks +
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890565.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ The No Ones - The Great Lost No Ones Album (2020) [FLAC|Lossless|tracks + .cue] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_890189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_890189.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ R.E.M. - Reckoning (The I.R.S. Years) (1984) Reissue, 1992 [FLAC|Lossless|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889456.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ Icon For Hire - Scripted (2011) [FLAC|Lossless|image + .cue]<Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889258.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ Icon For Hire - Scripted (2011) [FLAC|Lossless|image + .cue]<Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFE202FFC76C134474857D580047762B783EF922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371876   (888709) от 01.04.2020
-
-Ty Segall - Segall Smeagol (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Coconut
-02 Gotta Get Up
-03 Drivin Along
-04 Early in the Morning(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:20:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B878F744E111D244129D705E9456DAA9213EC46
 ```
 
 https://mybot314.ru/tekegram_catalog/

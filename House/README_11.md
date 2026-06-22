@@ -1,3 +1,88 @@
+###  Публикация: 998612   (868590) от 20.03.2016
+
+Flash Cartel - Elevate (2012) [MP3|320 кб/с] <Progressive House, Drum & Bass, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elevate (Original Mix) [05:56]
+02. Elevate (Three20 Remix) [05:36]
+03. Breakaway (Original Mix) [06:46]
+04. Boulevard (Original Mix) [04:12]Жанр: Progressive House, Drum & Bass, Electro HouseПродолжительность: 00:22:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29DA6534A3453BAC43455A286C2D2E78615E565D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997862   (868576) от 20.03.2016
+
+VA - We Love Deep Vol. 1 (2016) [MP3|320 кб/с] <Tech House, Indie Dance, Nu Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phunk Investigation - Cadillac Man (Radio Edit)
+ 02. Mart - Hollywood (Short Edit)Жанр: Tech House, Indie Dance, Nu DiscoПродолжительность: 01:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A80DA118C937C9420C2A9B83BB93CF1224D9A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107216   (868328) от 22.02.2017
+
+VA - Ibiza Forecast (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jamie Hughes - Save The Moonlight 03:50
+02. Dbn - The Griid 04:35
+03. Luca Debonaire & Matt Auston - Hold U 4 Ever 05:36
+04. Denine - 9 Bit 03:07(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C2B2C0CBCF4B1498633C202F78CE996F3723E60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107169   (868241) от 22.02.2017
 
 VA - Fitness Addicted (2017) [MP3|320 Kbps] <Minimal, Tech House>
@@ -6,7 +91,7 @@ VA - Fitness Addicted (2017) [MP3|320 Kbps] <Minimal, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868241.jpg" />
 </div>
 
 
@@ -35,7 +120,7 @@ VA - Sexy Collection Deep House Vol.2 (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868131.jpg" />
 </div>
 
 
@@ -64,7 +149,7 @@ KlubbHeads - 20 Live's,13 Albums,15 Compilations (1996 - 2011) [MP3|192 - 320 kb
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866961.jpg" />
 </div>
 
 
@@ -93,7 +178,7 @@ VA - Sofa Lovers (Deephouse Selection) (2016) [MP3|320 кб/с] <Electronic, Dee
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866619.jpg" />
 </div>
 
 
@@ -122,7 +207,7 @@ VA - 12 Bombs To Rock: Tech and Deep-House Edition 15 (2017) [MP3|320 Kbps] <Fun
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866566.jpg" />
 </div>
 
 
@@ -151,7 +236,7 @@ VA - Going Deep in London (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866565.jpg" />
 </div>
 
 
@@ -180,7 +265,7 @@ VA - A Deep and Soulful House Selection Vol.1 (2017) [MP3|320 Kbps] <Deep House,
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866488.jpg" />
 </div>
 
 
@@ -209,7 +294,7 @@ VA - Disco Nights, Vol. 2 (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866478.jpg" />
 </div>
 
 
@@ -238,7 +323,7 @@ VA - From Fitness To Dance (2020) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865609.jpg" />
 </div>
 
 
@@ -267,7 +352,7 @@ VA - Deep House Stewardess Vol.2 (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864748.jpg" />
 </div>
 
 
@@ -296,7 +381,7 @@ VA - Cold and Deep #13 (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864745.jpg" />
 </div>
 
 
@@ -325,7 +410,7 @@ VA - Morning Conversation Vol.8 Black Deep (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864744.jpg" />
 </div>
 
 
@@ -354,7 +439,7 @@ VA - Finest Groovy House Music Vol.26 (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864742.jpg" />
 </div>
 
 
@@ -383,7 +468,7 @@ VA - This Is My Church Vol.2: The Deep-House Edition (2017) [MP3|320 Kbps] <Deep
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864732.jpg" />
 </div>
 
 
@@ -412,7 +497,7 @@ VA - Deep House Edition  № 009 (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864632.jpg" />
 </div>
 
 
@@ -441,7 +526,7 @@ VA - House Ladies Vol.1 (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861083.jpg" />
 </div>
 
 
@@ -470,7 +555,7 @@ VA - Deep House Connection Vol.2 Night Selection (2017) [MP3|320 Kbps] <Deep Hou
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861077.jpg" />
 </div>
 
 
@@ -499,7 +584,7 @@ VA - Proper Vibes (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861072.jpg" />
 </div>
 
 
@@ -528,7 +613,7 @@ VA - Sirup Deep Anthems Dubai (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861071.jpg" />
 </div>
 
 
@@ -557,7 +642,7 @@ VA - Don't Let Daddy Know - Amsterdam (The Official 2017 Compilation) (2017) [MP
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860998.jpg" />
 </div>
 
 
@@ -586,7 +671,7 @@ Tim Dash - Afterlight 001 (2020) unmixed [MP3|320 Kbps] <Deep Techno, Progressiv
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860499.jpg" />
 </div>
 
 
@@ -615,7 +700,7 @@ VA - Body Building Music Hits 2020 Fitness Session (2020) [MP3|320 Kbps] <Progre
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860485.jpg" />
 </div>
 
 
@@ -644,7 +729,7 @@ Ron Trent - Prescription: Word, Sound & Power (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859164.jpg" />
 </div>
 
 
@@ -658,93 +743,6 @@ Ron Trent - Prescription: Word, Sound & Power (2017) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC42E2BB6C51E594C6AD4F78C124AC32C55D12FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376577   (858917) от 18.04.2020
-
-VA - Erotic House (Erotic And Sensual Selection House Music) (2020) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858917.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Tony Queen - You Have a Problem (Aston Romeo Deep Mix) (3:30)
-2.Wireless - Robot Communication (Electric Mix) (5:42)
-3.Jeffrey Evans - She's Happy (Stairway to Mix) (3:12)
-4.Diego Suarez - Bossa and Trip (Luxury Mix) (3:06)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A8F2F74251DE9A5A0FC2CF0544FE0B1CF63A5CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376532   (858671) от 18.04.2020
-
-VA - Home Workout (2020) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CDM Project - Ritmo (Bad Boys For Life)
-02. Countdown Singers - Adore You (Original Mix)
-03. Sassydee - Say So (Original Mix)
-04. Vibe2Vibe - Intentions (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:01:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C87812D853616E337B5FE9FA08F894B7B0CC3387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109664   (857489) от 28.02.2017
-
-VA - Argentina Avenue #01 (2017) [MP3|320 Kbps] <Progressive House,House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cristian R & Kasall - Solar Eclipse (Original Mix) (08:00)
-02. LOM (AR) - Lonely Time (Paul Deep & Martin Gardoqui Remix) (08:00)
-03. Pablo Cetrini - For You (Original Mix) (09:04)
-04. Sound Process - Simple Chords (Martin Garcia Remix) (07:48)(   Читать дальше...   )Жанр: Progressive House,HouseПродолжительность: 06:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A788CD425F57EBF33DBCE0CB09B21E89B281A51C
 ```
 
 https://mybot314.ru/tekegram_catalog/

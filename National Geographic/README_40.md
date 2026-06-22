@@ -1,3 +1,107 @@
+###  Публикация: 460213   (79153) от 29.02.2012
+
+Nat Geo Wild: Болотные львы / Swamp Lions (2011) HDTVRip [720p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самец прайда убит браконьерами, и теперь три львицы и их львята остались без защиты в одном из самых трудных для выживания львов районов Африки.Жанр: ДокументальныйПеревод: ДублированныйПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453556   (76498) от 16.02.2012
+
+Nat Geo Wild: Возвращение дымчатых леопардов / Return of the Clouded Leopards (2011) HDTVRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пара редких в своем виде детенышей дымчатого леопарда спасенные от браконьеров и выращенные специалистом по защите природы, который, чтобы помочь им выжить, пытается научить их всему тому, чему их научила бы мать. Оцените работы фотографа Сандреша Кадура, проследите за работой ветеринара Бхаскара Чоудхури, как они осуществляют реабилитацию двух осиротевших детенышей (   Читать дальше...   )Жанр: ДокументальныйПеревод: Дублированный*Продолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81F82E3B08EA03CCF836396973EB1D6C48FB40E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362405   (62919) от 15.03.2024
+
+NG. Последствия: Нулевое население / Aftermath: Population Zero (2008) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что бы случилось, если бы каждый человек на Земле просто исчез? Ушел. Не умер, просто ушел. Это - поразительная история мира, который мы никогда не увидим. Мир без людей, где городские улицы все еще населяются автомобилями, но без водителей. Шаг за шагом, природа отвоевывает свои позиции, животные выходят из леса, электростанции перестают работать, а плотины разрушаются. (   Читать дальше...   )Производство: США, Cream Productions Inc., National Geographic ChannelЖанр: Документальный, научно-познавательныйРежиссер: Кристофер РоулиПеревод: Дублированный (ТВ3)Субтитры: Русские (от S0luS и Uncle Fedor)Продолжительность: 01:31:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DADA7411EE71E78AD2D667124835B48D4BDE7AE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708295   (62354) от 20.03.2024
+
+NG: Путешествие на край Вселенной / Journey to the Edge of the Universe (2008) BDRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это путешествие увлекает нас к истокам зарождения жизни, Столпам Мироздания, давая возможность заглянуть далеко за облака космической пыли, туда, где рождаются огромные звезды, даря Вселенной свой свет, а может быть и жизнь.Телекомпания: США / National Geographic TelevisionЖанр: документальныйРежиссер: Явар АббасПеревод: ДублированныйЯзык озвучки: РусскийПродолжительность: 01:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17997BE9BFFAAFA2D58438EA41E47A1D81A3E63D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439154   (57430) от 06.05.2024
 
 NG: Самые страшные стихийные бедствия: Землетрясения / Ultimate Disaster: Earthquake (2006) HDTVRip [H.264/720p-LQ]
@@ -6,7 +110,7 @@ NG: Самые страшные стихийные бедствия: Земле�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57430.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NG: Самые страшные стихийные бедствия: Торна�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57429.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55457.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49582.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ NG: Пираты: Больше, чем легенда / Pirates: Behind the Lege
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47509.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ NG: Покорители океана / OceanXplorers (2024) WEB-DL [H.264/1080p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45013.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39217.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ NG: Затерянные сокровища Египта / Lost Treasures of Egy
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37746.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ NG: Конкистадоры: Взлет и падение / Conquistadors: The 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36293.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33888.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31558.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ NG. Приключения настоящего Флика / A Real Bug's Life (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30144.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ NG. Приключения настоящего Флика / A Real Bug's Life (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29966.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ NG: Неизвестный Китай / Lost In China (2009) HDTVRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27570.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19076.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ NG: Известная Вселенная. Есть там Кто-Нибудь? 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16636.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ NG: Первозданная природа. Эдем жизни / The Living Ed
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16449.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14525.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14372.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ NG: Королевы / Queens (2024) WEBRip [H.264/1080p] (сезон 1, сер�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14315.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ NG. Игры разума / Brain Games (2011-2016) IPTVRip [H.264] (сезон�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13943.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ NG: Аутсайдеры / Underdogs (2025) WEBRip [H.264/1080p] (сезон 1, 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13925.jpg" />
 </div>
 
 
@@ -568,110 +672,6 @@ NG: Аутсайдеры / Underdogs (2025) WEBRip [H.264/1080p] (сезон 1, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C90E705ADC2EEB110D6CD70D732FC7DDF82728F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804568   (12988) от 30.06.2025
-
-NG: Дэвид Аттенборо: Океан / Океан с Дэвидом Аттенборо / Ocean with David Attenborough (2025) WEBRip [H.264/2160p] [4K, SDR, 8-Bit] [DVO]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12988.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Океан с Дэвидом Аттенборо» — это документальный фильм, где великий натуралист приглашает нас в сердце Мирового океана. В свои 99 лет Аттенборо подводит итог десятилетиям наблюдений, открывая перед нами не только завораживающую красоту подводного мира, но и тревожные признаки его разрушения. С помощью впечатляющих съёмок в открытых водах, на коралловых рифах и в (   Читать дальше...   )Производство: Великобритания | Silverback Films, Open Planet Studios, All3Media InternationalЖанр: Документальный, природаРежиссер: Тоби Ноулан, Кейт Шоли, Колин БатфилдУчастники: Дэвид АттенбороПеревод: Двуголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:23:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51BDB2A90ECAF1C9E614F8101D456609A1C00976
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804566   (12867) от 01.07.2025
-
-NG: Дэвид Аттенборо: Океан / Океан с Дэвидом Аттенборо / Ocean with David Attenborough (2025) WEBRip [H.264/1080p] [DVO]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12867.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Океан с Дэвидом Аттенборо» — это документальный фильм, где великий натуралист приглашает нас в сердце Мирового океана. В свои 99 лет Аттенборо подводит итог десятилетиям наблюдений, открывая перед нами не только завораживающую красоту подводного мира, но и тревожные признаки его разрушения. С помощью впечатляющих съёмок в открытых водах, на коралловых рифах и в (   Читать дальше...   )Производство: Великобритания | Silverback Films, Open Planet Studios, All3Media InternationalЖанр: Документальный, природаРежиссер: Тоби Ноулан, Кейт Шоли, Колин БатфилдУчастники: Дэвид АттенбороПеревод: Двуголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:23:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93BB94D81B27EA9962B59E7355CB8523A6A524DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810827   (9132) от 06.08.2025
-
-NG: В поисках Атлантиды / Finding Atlantis (2011) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Где же могла быть расположена легендарная Атлантида? Используя современные технологии и опираясь на записи Платона, учёные пытаются раскрыть одну из величайших тайн мира. Три научные экспедиции проверяют гипотезы о местоположении мифического, исчезнувшего города и получают поразительные результаты...Производство: Канада / An Associated Producers Ltd., Discovery Channel CanadaЖанр: документальный, историяРежиссер: Грэм БоллПеревод: Одноголосый профессиональныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41FFC1E39A926B84C77FABD55B738DEFA1283EEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810797   (9106) от 06.08.2025
-
-Побережье Хорватии: Бескрайнее и дикое / Croatias Coast - Endless and Wild (2025) HDTVRip  [H.264/720p] [VO]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для миллионов жителей Центральной Европы хорватское побережье – место отдыха, популярное туристическое направление со средиземноморским колоритом. Но вдали от пляжей начинается мир, который часто остаётся скрытым от нас, людей: более 1000 островов и 6000 километров береговой линии – место обитания между сушей и морем, которое предлагает не только разнообразие пейзажей, (   Читать дальше...   )Производство: Германия | ORF, NDR NaturfilmЖанр: документальный, природаРежиссер: Марк Граф, Кристин СонвиллаПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7314BF87599EB9FCCC9857684FF77EFB16F83C52
 ```
 
 https://mybot314.ru/tekegram_catalog/

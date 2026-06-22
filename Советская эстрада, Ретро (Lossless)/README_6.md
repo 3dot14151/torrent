@@ -6,7 +6,7 @@
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162792.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Кружатся диски. Хиты 70-х (2002) CD № 1 [FLAC|Lossless]
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162783.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ VA - В русском ресторане. Оригинальные записи
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162781.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162779.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162777.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162772.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162770.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VA - Мелодии и ритмы советской эстрады (2003) (Вы
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162760.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VA - Песни 70-х (2 CD) (2005) [FLAC|Lossless]<Retro>
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162745.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162724.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162718.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ VA - Кружатся диски. Хиты 70-х (2002) CD № 1-2 [APE|Lossless
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162714.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162709.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ VA - Старая танцплощадка. Незабываемые имена 
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162707.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162706.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162703.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162699.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ VA - Хиты 80-х. Как молоды мы были (в 4-х частях) (2
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162694.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ VA - Русская коллекция. Хиты 80-х (2009) 6CD [WavPack|Lossl
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162664.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Anna German - Recital Opole '71 (2013) [FLAC|Lossless]<Retro|Pop>
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161978.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161973.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Юрий Силантьев. Памяти маэстро (2010) [APE|Lossle
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161969.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ VA - Яростный стройотряд (Repress 2007) [FLAC|Lossless]<Retro,
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161955.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161944.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161931.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161926.jpg" />
 </div>
 
 

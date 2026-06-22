@@ -1,3 +1,162 @@
+###  Публикация: 1379304   (840684) от 28.04.2020
+
+Григорий Лепс / Онлайн-концерт (2020) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заслуженный артист России, лауреат многочисленных премий и обладатель одного из самых узнаваемых голосов на нашей эстраде, Григорий Лепс выступит с новой концертной программой "Иди и смотри" на платформе онлайн-кинотеатра Okko. Зрители концерта услышат любимые хиты артиста, его премьеры и песни, которые давно не исполнялись на сцене."Самый лучший день", (   Читать дальше...   )Производство: РоссияЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBCE3B008E08127C4E0BBE329DE30599F7B9EB7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 193789   (839910) от 19.04.2010
+
+Дискотека Авария - Лето всегда! (OST ''Любовь в большом городе 2'')  (2010) TVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ВидеоклипПродолжительность: 00:04:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499778   (839819) от 07.10.2021
+
+The Pretty Reckless - Only Love Can Save Me Now (2021) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839819.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Pretty Reckless выпустили видеоклип на песню «Only Love Can Save Me Now», совместную с гитаристом Soundgarden Ким Тайилом и барабанщиком Мэттом Кэмероном.Жанр: RockПродолжительность: 0:05:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB4DB4E1DC701E97AB6EB5CFA889897446841AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 193631   (839796) от 19.04.2010
+
+George Michael - Twenty Five (2006) 2xDVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джордж Майкл (George Michael) - один из самых успешных артистов в истории поп-музыки. Впервые он прославился в начале 80-х, в составе дуэта Wham! Группа пользовалась огромным успехом - с 1984 по 1986-й они записали 6 синглов №1 в Англии и 3 - в США. Впрочем, первые же сольные записи Джорджа Майкла затмили успех его прежнего проекта: альбом «Faith» (1987) разошелся (   Читать дальше...   )Жанр: РОРПеревод: ОригинальныйПродолжительность: 3:19:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500058   (839585) от 07.10.2021
+
+AC DC - Through the Mists of Time (2021) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839585.jpg" />
+</div>
+
+
+###  Подробнее
+
+AC/DC устроили экскурсию по своей истории в клипе «Through The Mists Of Time». Видео снято по той же технологии, что и клип «Realize», еще один сингл с прошлогоднего альбома «Power Up». Каждый из участников группы был отснят по отдельности в разных частях мира, а затем с помощью монтажа и специальных эффектов режиссер Наджиб Тарази поместил музыкантов вместе на одну (   Читать дальше...   )Жанр: RockПродолжительность: 0:03:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85B2D897364F0CBE1CE71F690882F5EBFC947F77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 651412   (839499) от 02.05.2013
+
+Disco Дача. Весенний концерт (2013.05.01) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весна – время, когда заядлые дачники начинают делать первые приготовления для открытия нового сезона. Чтобы хорошо отдохнуть летом, нужно зарядиться правильным настроением уже весной. Открываем дачный сезон на телеканале "Россия"!1. Верка Сердючка - Розовый свитер
+2. Николай Басков - Кто тебе сказал
+3. Ани Лорак - Зажигай сердце
+4. Стас Пьеха - Зелёный омут(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:22:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1500973   (839236) от 07.10.2021
 
 Nightwish - Nemo (2008) DVDRip [H.264/1080p-LQ] [Upscale]
@@ -6,7 +165,7 @@ Nightwish - Nemo (2008) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839236.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839067.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838986.jpg" />
 </div>
 
 
@@ -88,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838899.jpg" />
 </div>
 
 
@@ -121,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838442.jpg" />
 </div>
 
 
@@ -150,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838344.jpg" />
 </div>
 
 
@@ -179,7 +338,7 @@ Giuseppe Verdi - NABUCCO (Teatre alla Scala) (2004) DVD9
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838058.jpg" />
 </div>
 
 
@@ -209,7 +368,7 @@ Nightwish - Sleeping Sun (2005) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837993.jpg" />
 </div>
 
 
@@ -235,7 +394,7 @@ Nightwish - The Islander (2008) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837870.jpg" />
 </div>
 
 
@@ -261,7 +420,7 @@ Madonna: Rebel Heart Tour Showtime (09.12.2016) WEB-DL [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837827.jpg" />
 </div>
 
 
@@ -287,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837757.jpg" />
 </div>
 
 
@@ -314,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837635.jpg" />
 </div>
 
 
@@ -341,7 +500,7 @@ Leonard Cohen: Songs from the Road (2010) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837383.jpg" />
 </div>
 
 
@@ -367,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837321.jpg" />
 </div>
 
 
@@ -394,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837001.jpg" />
 </div>
 
 
@@ -423,7 +582,7 @@ Beth Hart & Joe Bonamassa - Live in Amsterdam (2014) BDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836837.jpg" />
 </div>
 
 
@@ -452,7 +611,7 @@ Crematory - Greed (2004) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836561.jpg" />
 </div>
 
 
@@ -478,7 +637,7 @@ Crematory - Left The Ground (2006) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836559.jpg" />
 </div>
 
 
@@ -504,7 +663,7 @@ WINX CLUB IN CONCERTO / Клуб Винкс - Школа волшебниц. К�
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836495.jpg" />
 </div>
 
 
@@ -530,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836062.jpg" />
 </div>
 
 
@@ -541,168 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE442E6AB23B0EE54BE6A502031F06288E2D0773
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 310724   (835868) от 19.03.2011
-
-Музыкальный ринг на НТВ. Выпуск №16. Анне Веске vs Людмила Сенчина  (18.03.2011) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый музыкальный проект НТВ — это бескомпромиссное музыкальное состязание, где каждому участнику придется проявить всю силу и мощь своего таланта. Раз в неделю на «Музыкальный ринг НТВ» будут выходить два популярных артиста или коллектива. Их главное оружие — вокал, ведь петь звездным соперникам предстоит только вживую. А вести проект, по всем правилам настоящего (   Читать дальше...   )Жанр: ТВ-ШоуПродолжительность: ~ 01:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF853A73F468A9F85BCA7E6D5BF882557F48D470
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 652419   (835653) от 04.05.2013
-
-Whitesnake - Made In Japan (2013) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Best Years
-02. Give Me All Your Love Tonight
-03. Love Ain't No Stranger
-04. Is This Love(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 194555   (835162) от 22.04.2010
-
-Школа волшебниц. Музыкальное ледовое шоу Винкс. / Winx on Ice (2008) TVRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835162.jpg" />
-</div>
-
-
-###  Подробнее
-
-WINX и Специалисты начнут новое захватывающее путешествие против монстров на льду, гигантских пауков, в поисках тайны, что скрывается за Каролиной и ее тайного дневника. «Каролина» - известная итальянская фигуристка Каролина Костнер, она играет саму себя, как фея, которую обманом привлекли к себе Валтор и Трикс. На мой взгляд самое красивое и зрелищное шоу! Фанатам (   Читать дальше...   )Жанр: МьюзиклПеревод: ОригинальныйПродолжительность: 01:28:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501535   (835036) от 10.10.2021
-
-Квартирник НТВ у Маргулиса. Александр Пушной с новой группой (09.10.2021) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_835036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Карьера российского музыканта-мультиинструменталиста и певца Александра Пушного началась с создания группы «Медведь» в далеком 1993 году. С тех пор он прочно обосновался на музыкальной сцене, его карьера с каждым годом набирает обороты, он записывает каверы на различные песни и выпускает альбомы, а количество поклонников его творчества только увеличивается. В гостях (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA8834519F1DA7B4ADA02BA749C24161AA7426F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 652675   (834277) от 05.05.2013
-
-Cirque du Soleil: Сказочный мир / Cirque du Soleil: Worlds Away (2012) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ФэнтезиРежиссер: Эндрю АдамсонАктеры: Эрика Линц, Игорь Зарипов, Лутс Халбхюбнер, Джон Кларк, Даллас Барнетт, Таня Дрюери, Сара Хуболт, Аскья Мэйбери, Дэмиен Гордон, Зэк Бриклэнд ...Перевод: Дублированный (студия «Пифагор»)Язык субтитров: русские, украинские, английские |UTF-8|Продолжительность: 01:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C350DD143268AE21700C492B0BCA4216EB19DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004705   (834068) от 08.04.2016
-
-G. BIZET - Carmen - Metropolitan Opera, Garanca, Alagna  (2010) 2DVD5
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834068.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Opening Credits / Vorspann / Generique debut 0:53
-Metropolitan Opera Orchestra, Yannick Nezet-Seguin
-2. Introduction by Renée Fleming (I) 1:52
-Renee Fleming(   Читать дальше...   )Жанр: OperaПеревод: ОтсутствуетЯзык субтитров: Francais, English, Deutsch, Espanol, ChineseПродолжительность: 02:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:598F0B6BB7ADAC97DAE620F04DE3804F8216DD2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

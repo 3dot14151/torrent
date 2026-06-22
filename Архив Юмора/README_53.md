@@ -1,3 +1,55 @@
+###  Публикация: 550417   (457763) от 22.09.2012
+
+Юрмала 2012. Международный фестиваль юмора (21.09.2012) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457763.jpg" />
+</div>
+
+
+###  Подробнее
+
+И снова Юрмала! И снова смех! Гостеприимный зал "Дзинтари" вновь приветствует своих гостей и всех телезрителей. Здесь, как всегда, царит непринужденная атмосфера, а на сцене – признанные мастера юмористического жанраЖанр: Телепередача, Развлекательное ШоуТелекомпания: Россия 1Перевод: Не требуетсяПродолжительность: 01:26:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69016156F6A1A2FF0610447A6D9796A71127EBB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 826047   (457213) от 28.09.2014
+
+Однажды в России. Выпуск 1 (2014.09.28) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шоу «Однажды в России», как и многие проекты ТНТ, имеет оригинальный формат. Это будет «реальный театр». То есть заранее написанный сценарий герой шоу «Однажды в России» постарается воплотить в повседневной жизни. А это совсем не так просто, как может показаться сначала, но зато очень смешно. Передача построена на чередовании скетчей. Создатели «Однажды в России» – Семен Слепаков и Слава Дусмухаметов, за плечами которых – продюсирование сериала «Интерны», «Наша RUSSIA», и других нашумевших фильмов и передач. (   Читать дальше...   )Жанр: Юмористическое тв-шоуВ ролях: Азамат Мусагалиев, Игорь Ласточкин, Ирина Чеснокова, Тимур Тания, Ольга Картункова, Александр Пташенчук, Максим Киселёв, Денис Дорохов, Заур Байцаев, Давид Цаллаев и др.Продолжительность: 00:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6569729A3CF32BCF70D11D8B1EF2BDA46968C76A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 550533   (457142) от 22.09.2012
 
 КВН-2012. Высшая лига. Летний кубок в Сочи (2012.09.21) SATRip
@@ -6,7 +58,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457142.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456901.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ Love Is / Comedy Club / Comedy  Woman (2017.09.01) WEB-DLRip (выпуск 3)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456899.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456822.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ Love Is / Comedy Club / Comedy  Woman (2017.09.01) WEB-DL [720p-LQ] (выпус�
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456814.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ Love Is / Comedy Club / Comedy  Woman (2017.09.01) HDTV [H.264/1080i-LQ] (вып
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456615.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456611.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456288.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455939.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455858.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455758.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455745.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455605.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455296.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455122.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454821.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ Comedy Woman (2016.10.07) SATRip
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454810.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454673.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ Comedy Woman (2018.09.14) SATRip
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454643.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453987.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453982.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453448.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453153.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453087.jpg" />
 </div>
 
 
@@ -626,58 +678,6 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECCB7F7CE10B133B52A2E4EFA5E154E88406EF31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058682   (453075) от 08.10.2016
-
-Лига смеха (2016.10.01) SATRip (сезон 2, выпуск 9)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453075.jpg" />
-</div>
-
-
-###  Подробнее
-
-В субботу, 28 февраля состоялась премьера телевизионного проекта "Лига смеха" - крупнейшего юмористического шоу в Украине. Участниками первого Чемпионата Украины с юмора стали все желающие: команды КВН, СТЕМы и просто веселые компании. Всего на фестиваль зарегистрировалось 280 команд со всей Украины - Киева, Луганска, Днепропетровска, Львова, Одессы, Тернополя... (   Читать дальше...   )Телекомпания: 1+1Жанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:29:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94FA9F588C33DCA8E56214AE2F67E62905697405
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060843   (452669) от 08.10.2016
-
-Михаил Задорнов (2016.10.07) WEB-DLRip [H.264/720p-LQ] (Неформат 85)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неформат вернулся! Михаил Задорнов вновь расскажет вам всю правда о самых актуальных событиях в стране и за ее пределами.Телекомпания: Юмор FMЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: ~ 01:56:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F47C790DD48D3BA9FB88F46E7D10E7751E3E7EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

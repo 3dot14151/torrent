@@ -1,3 +1,90 @@
+###  Публикация: 1084176   (220802) от 18.12.2016
+
+Annie Lennox - Diva (1992) Reissue, 2007, BMG Japan [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why (4:54)
+ 02. Walking On Broken Glass (4:13)
+ 03. Precious (5:09)
+ 04. Legend In My Living Room (3:46)(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6EFD7C568AF9C2FAB5A20C0E684C84FD348C9B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084240   (220778) от 18.12.2016
+
+Sandra - Fading Shades (1995) [FLAC|Lossless|image + .cue] <Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_220778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fading Shades (Part I) (1:03)
+ 02. Nights In White Satin (3:36)
+ 03. Son Of A Time Machine (5:07)
+ 04. Won't Run Away (4:17)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F3E61E505BF79CDF49BB403ECF2C9F53ADD0D2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425668   (220446) от 21.11.2020
+
+Sarah Brightman - France (2020) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Show Me How To Love You
+02. Nella Fantasia
+03. There For Me
+04. Dans La Nuit(   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 01:14:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A66676E4E7242052D865328271580366FEEAC0B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 966191   (220392) от 17.12.2015
 
 Michael Jackson - Bad (1987) [FLAC|Lossless|tracks + .cue] <Pop Rock, Ballad, Disco>
@@ -6,7 +93,7 @@ Michael Jackson - Bad (1987) [FLAC|Lossless|tracks + .cue] <Pop Rock, Ballad, Di
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220392.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Carly Rae Jepsen - The Loneliest Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220252.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Jef Scott - Ten Stories (1986) Remastered, 2013, Yesterrock [FLAC|Lossless|image
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_220209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220209.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Taylor Swift - Midnights (2022) 3am Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220022.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Michael Jackson - Dangerous (1991) [FLAC|Lossless|tracks + .cue] <Soul, Ballad, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219932.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Die Partymixer - Hit Sommer Mix (1998) [FLAC|Lossless|tracks] <Pop, Cover, Medle
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218747.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Vision Mastermixers - Reggae Mega Mix (1999) [FLAC|Lossless|image + .cue] <Regga
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218703.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ VA - Blow Up Disco Vol 3: Back To Italodisco (2019) [FLAC|Lossless|WEB-DL|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218696.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ VA - Blow Up Disco Vol 2: Twisted Italodisco (2019) [FLAC|Lossless|WEB-DL|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218689.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ VA - Blow Up Disco Vol 6 : Nu-Disco & Italodisco Grooves From Blow Up Disco (201
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218685.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ VA - MNM Big Hits 2016 Vol. 1 (2016) [FLAC|Lossless|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218634.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ VA - Blow Up Disco Vol 4: A Taste Of Blow Up Disco & Italo Instrumentals (2019) 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218610.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ VA - Blow Up Disco Vol 1: Club Series Italodisco Grooves (2019) [FLAC|Lossless|W
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218591.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ VA - Blow Up Disco Vol 5: Italo Heaven (A Sexy Selection Of Italodisco!) (2019) 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218585.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Jennifer Paige - Crush: The Best of Jennifer Paige (2013) Compilation [FLAC|Loss
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218544.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ VA - Just The Hits 2016 (2016) [FLAC|Lossless|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218443.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ VA - 538 Hitzone: Best Of 2019 (2019) Box Set, 2CD [FLAC|Lossless|tracks + .cue]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218391.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ VA - The Greatest Xmas Song (2019) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <J
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_218115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218115.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Taylor Swift - Midnights (2022) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216555.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ VA - Tiktock Best Of 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216520.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ VA - Simply the Best 80's (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, Other
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216307.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Vanessa Daou - Songs for Solace (2020) Compilation [FLAC|Lossless|WEB-DL|tracks]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216170.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Bjork - Fossora (2022) [FLAC|Lossless|image + .cue] <Pop, Electronic>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215638.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Bjork - Fossora (2022) [FLAC|Lossless|image + .cue] <Pop, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59B890FBE5C050C6EF70D5251E0E2369FE89C74A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343892   (214975) от 08.12.2019
-
-Марта - 3 Альбома (2003 - 2008) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Несколько секунд
-02. Буду твоей
-03. Колыбельная
-04. Берег(   Читать дальше...   )Жанр: PopПродолжительность: 01:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89DB01BA950E1598F85864988ECCD58FA8500A90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343922   (214767) от 08.12.2019
-
-Supermax - Living In A World (1996) [FLAC|Lossless|image + .cue] <Pop, reggae, disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214767.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Living In A World 6:04
-2 Going Back Home 4:59
-3 Hara Hara 5:51
-4 Scream Of A Butterfly 4:38(   Читать дальше...   )Жанр: Pop, reggae, discoПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7DEB6C5ADECC6E1A14D2BBEEBB0EA036F70CFB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085230   (214312) от 21.12.2016
-
-Supermax - 20th Anniversary (1997) 2CD, Compilation [FLAC|Lossless|image + .cue] <Pop, Funk, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jungledance (6:57)
-02. Bango bongo (6:28)
-03. Kick the nation (6:59)
-04. Good times (4:42)(   Читать дальше...   )Жанр: Pop, Funk, SoulПродолжительность: 01:09:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F40B728F2214411103993898DD0B2FD1E7C5ADAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

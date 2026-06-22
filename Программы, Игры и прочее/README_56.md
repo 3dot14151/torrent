@@ -1,3 +1,60 @@
+###  Публикация: 981106   (729362) от 23.04.2017
+
+Snapseed 2.17.0.150426010 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фоторедактор, завоевавший множество сердец пользователей iOS теперь доступен и на Android c версии 4.0+
+Теперь лучшее приложение по обработке фотографий выставки TIPA и IPad App 2011 доступно и на Android!
+Snapseed является единственным приложением, которое вы будете желать использовать каждый день. Вы сможете высококачественно обрабатывать ваши фотографии парой (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 23.04.17Разработчик: Google Inc.Поддерживаемая ОС: Android 4.1 +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C304B50A11D10A597C9A2C412D6ED67E757CAD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 858735   (729208) от 23.04.2017
+
+My Android Tools Pro 1.3.7.2  [Rus]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение от разработчика небезызвестной - Disable service.
+В этом приложении автор пошёл дальше, и добавил возможность для манипуляций кроме сервисов ещё и activity, receiver, provider.
+Также добавил отображение запущенных процессов и выполняемых задач, просмотр uid приложений, бекап отключённых компонентов, отключение/включение апк целиком.
+В приложение встроен (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 23.04.17Разработчик: WangQiПоддерживаемая ОС: Android 2.3  +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92724377B303705B7B4817060684DDF9CBF14D93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530545   (728914) от 11.02.2022
 
 Дого - Дрессировка Собак v7.19.1 [Ru] (обновляемая)
@@ -6,7 +63,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728914.jpg" />
 </div>
 
 
@@ -32,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728802.jpg" />
 </div>
 
 
@@ -59,7 +116,7 @@ Erectile Dysfunction Cure Yoga v6.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728695.jpg" />
 </div>
 
 
@@ -88,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728077.jpg" />
 </div>
 
 
@@ -117,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727622.jpg" />
 </div>
 
 
@@ -143,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727204.jpg" />
 </div>
 
 
@@ -169,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726514.jpg" />
 </div>
 
 
@@ -197,7 +254,7 @@ RawBT служба печати v5.52.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726505.jpg" />
 </div>
 
 
@@ -226,7 +283,7 @@ iHeart: #1 for Radio, Podcasts v10.12.0 [En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726255.jpg" />
 </div>
 
 
@@ -254,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726105.jpg" />
 </div>
 
 
@@ -280,7 +337,7 @@ Onkyo HF Player v2.9.1 [Ru] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726037.jpg" />
 </div>
 
 
@@ -306,7 +363,7 @@ Runtastic PRO GPS Бег и фитнес v6.8.1 [Ru/Multi] - GPS трекер, �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725617.jpg" />
 </div>
 
 
@@ -332,7 +389,7 @@ Terabox: облачное хранилище v2.10.3 Premium MegaMod [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723986.jpg" />
 </div>
 
 
@@ -358,7 +415,7 @@ Month: виджет календаря 2.9.16.5.9 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723828.jpg" />
 </div>
 
 
@@ -385,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723633.jpg" />
 </div>
 
 
@@ -412,7 +469,7 @@ Legs Workout and Exercises v1.3.31 [Ru/Multi] - Комплекс упражне�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723527.jpg" />
 </div>
 
 
@@ -438,7 +495,7 @@ Butt Workout v1.3.31 [Ru/Multi] - Тренировка Ягодиц
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723523.jpg" />
 </div>
 
 
@@ -464,7 +521,7 @@ Chest Workout v2.4.31 [Ru/Multi] - Тренировка грудных мышц
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723517.jpg" />
 </div>
 
 
@@ -490,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723362.jpg" />
 </div>
 
 
@@ -516,7 +573,7 @@ DigiSender TV Launcher 2.6.3 RU [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722934.jpg" />
 </div>
 
 
@@ -542,7 +599,7 @@ GlassWire для Android (Data Usage Privacy) 1.0.50r [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722276.jpg" />
 </div>
 
 
@@ -568,7 +625,7 @@ Balance BY Pro 6.0.203 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721822.jpg" />
 </div>
 
 
@@ -594,7 +651,7 @@ Talking Tom Gold Run 1.0.1.561 Mod [Infinite Gold Bars] [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721601.jpg" />
 </div>
 
 
@@ -620,7 +677,7 @@ ClockSync 1.2.5 [Ru] - Синхронизация времени телефон�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721328.jpg" />
 </div>
 
 
@@ -631,58 +688,6 @@ ClockSync 1.2.5 [Ru] - Синхронизация времени телефон�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25731C8E591618C26B2838258B669F3221107BE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 892092   (721113) от 25.04.2015
-
-120 игр SEGA на Android (5 выпуск) 5.0 [Ru/En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередная порция культовых незабываемых игр консоли SEGA, оптимизированных для платформы Android, которые не вошли в прежние выпуски. Удобное управление встроенных кнопок, повторяющих настоящую модель геймпада SEGA, плавность движения, чистый стереозвук и простота установки позволяют полностью окунуться в игровой процесс эпохи 90-х, когда программисты умудрялись делать игровые шедевры из 16 бит.Тип издания: RepackРелиз состоялся: 24.04.2015Разработчик: SEGAПоддерживаемая ОС: Android 2.3 и вышеЖанр: Adventure, Horror, Fighting, RacingЯзык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D427BC56408E6296AC0DB6ABD10574858AA2A570
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 789820   (717683) от 29.05.2014
-
-CamMove  - фоторегистратор из телефона (2014) <Ru>
-
->>Программы, Игры и прочее
->>ПО и Игры на Java
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717683.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью данного Java приложения  и старенького ненужного телефона Вы легко можете сделать  охранную сигнализацию с фотофиксацией и уведомлений по СМС и соседи, ворующие Ваши помидоры с грядки, не уйдут от справедливого возмездия.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:798912E4039F647E0F7046169E9D2C942F9F22F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

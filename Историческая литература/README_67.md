@@ -1,3 +1,110 @@
+###  Публикация: 1164577   (439196) от 10.09.2017
+
+Л.И. Арефьева, А.И. Мусатов (отв. за вып.) | Иллюстрированная хронология истории Российского государства в портретах [Репр. с изд. 1909 г.] (1990) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Репринтное воспроизведение издания 1909 года.
+Более 60 портретов русских князей и царей с краткой информацией к каждому об истории жизни и правления. Для князей информации поменьше, для царей, соответственно, побольше. Но в среднем - на один разворот. Начинается от Рюрика и заканчивается Николаем II.Жанр: историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F70634B7CBAF5788D530E41AE704627737F1ABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062639   (438872) от 14.10.2016
+
+Лев Гумилев | От Руси до России. Иллюстрированная история (2016) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438872.jpg" />
+</div>
+
+
+###  Подробнее
+
+«От Руси до России» – оригинальное и по-настоящему глубокое исследование выдающегося русского историка и географа Л.Н. Гумилева. Оно обращает взгляд читателя на исторический период нашей страны, ограниченный становлением Киевского княжества и эпохой петровских реформ, причем все события и поступки исторических лиц объяснены с позиций разработанной автором пассионарной (   Читать дальше...   )Жанр: История, этнографияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B0C2D8A01FFB63DD8E6EBA953C5A390BB2D89A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944771   (438198) от 08.10.2015
+
+Джеффри Хоскинг | Россия и русские. Книга 1 (2003) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как ни парадоксально это звучит, наиболее интересные - в смысле оригинальности и нетрадиционное взгляда - исследования истории нашей страны всегда, с древнейших времен, создавали иностранцы.
+Почему?
+Возможно, здесь сказывается суровая непредвзятость объективного научного критицизма? Возможно, нам любопытна сама попытка "понять Россию умом"? Возможно... (   Читать дальше...   )Жанр: История, этнографияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED80B2B075C52BA4E4D36EFD57142ED97D16021
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410245   (437907) от 20.09.2020
+
+Филипп Матышак | Греческие и римские мифы. От Трои и Гомера до Пандоры и «Аватара» (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мифы Древней Греции и Рима завораживают людей не первое тысячелетие. Все мы знаем о подвигах Геракла, Троянской войне, распрях богов и приключениях героев. Осколки этих историй повсюду разбросаны в современных культуре и языке. Эта книга – путеводитель по основным сюжетам, героям и мотивам – поможет собрать разрозненные фрагменты в единую величественную картину. (   Читать дальше...   )Жанр: Культурология, Мифы, легенды, эпосПеревод: Н.Ю. ЖивловаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A53E9D164AF9EEA0194611F19EF370DA96E04425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249008   (437853) от 22.09.2018
 
 М. П. Вяткин и др. (сост.) | Очерки по истории Киргизской ССР: с древнейших времен до Великой Октябрьской социалистической революции [Часть 1] (1952) [PDF]
@@ -6,7 +113,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437853.jpg" />
 </div>
 
 
@@ -35,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437381.jpg" />
 </div>
 
 
@@ -61,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437338.jpg" />
 </div>
 
 
@@ -87,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437252.jpg" />
 </div>
 
 
@@ -115,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437227.jpg" />
 </div>
 
 
@@ -144,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437225.jpg" />
 </div>
 
 
@@ -171,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437223.jpg" />
 </div>
 
 
@@ -197,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437069.jpg" />
 </div>
 
 
@@ -224,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437061.jpg" />
 </div>
 
 
@@ -253,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436591.jpg" />
 </div>
 
 
@@ -280,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436587.jpg" />
 </div>
 
 
@@ -308,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436007.jpg" />
 </div>
 
 
@@ -334,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435960.jpg" />
 </div>
 
 
@@ -361,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435790.jpg" />
 </div>
 
 
@@ -390,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435246.jpg" />
 </div>
 
 
@@ -416,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435161.jpg" />
 </div>
 
 
@@ -442,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435025.jpg" />
 </div>
 
 
@@ -469,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435014.jpg" />
 </div>
 
 
@@ -496,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435010.jpg" />
 </div>
 
 
@@ -522,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434816.jpg" />
 </div>
 
 
@@ -548,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434392.jpg" />
 </div>
 
 
@@ -574,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433923.jpg" />
 </div>
 
 
@@ -585,115 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96B8C49495E4A9F0155AF698AE43947E0899C845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323608   (433801) от 05.09.2019
-
-Д. А. Баевский | Рабочий класс в первые годы Советской власти [1917-1921 гг.] (1974) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Монография представляет собой исследование истории рабочего класса в первые годы Советской власти. В ней освещается широкий круг вопросов: роль рабочего класса в социалистическом преобразовании промышленности, участие рабочих в рабочем контроле и создании органов управления народным хозяйством, в претворении в жизнь ленинских принципов демократического централизма (   Читать дальше...   )Жанр: История, политология, социология, экономика, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44F993A5BDCFB67F4E9E5E99F536278E5FF1A13A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945276   (433707) от 10.10.2015
-
-Е. А. Косминский, Я. А. Левицкий (ред.) | Английская буржуазная революция XVII века [2 тома] (1954) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный коллективный труд посвящен английской буржуазной революции XVII в.— первой буржуазной революции европейского масштаба.
-
-Первый том охватывает историю буржуазной революции на ее подъеме, до перехода к протекторату, второй посвящен периоду спада революционной волны и закрепления буржуазией за собой результатов одержанной английским народом победы.
-(   Читать дальше...   )Жанр: История, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E254D41E9A8B38431E0879BAD8220669FD17473
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945378   (433695) от 10.10.2015
-
-Э. А. Желубовская и др. (ред.) | Парижская Коммуна 1871 г. [2 тома] (1961) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433695.jpg" />
-</div>
-
-
-###  Подробнее
-
-В марте 1871 года всю Европу потрясла весть о небывалом событии: власть в столице Франции перешла в руки восставшего пролетариата, провозгласившего свое правительство - Коммуну.
-
-Двухтомный коллективный труд, в создании которого принимали участие советские и зарубежные историки, представляет собой попытку дать научное обобщение истории Парижской Коммуны, Центрального (   Читать дальше...   )Жанр: История, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AD79DBC2809AEC78206414E23839AE07AECAF80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945436   (433585) от 10.10.2015
-
-Джоан Дежан | Как Париж стал Парижем. История создания самого притягательного города в мире (2015) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433585.jpg" />
-</div>
-
-
-###  Подробнее
-
-В начале XVII века Париж, как и другие европейские столицы, находился в оковах средневекового прошлого, но всего за сто лет он превратился в тот легендарный, прекрасный и волнующий город, который мы знаем сегодня. За прошедшие столетия Париж претерпел много изменений, избавился от крепостных стен, стал первым городом, который приглашал гостей, а не закрывался от (   Читать дальше...   )Жанр: История архитектуры, градостроительствоФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1A0CACD35FABE5BAF6BB1B6302F7CEF7C1F3487
 ```
 
 https://mybot314.ru/tekegram_catalog/

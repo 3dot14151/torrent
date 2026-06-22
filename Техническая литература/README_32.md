@@ -1,3 +1,55 @@
+###  Публикация: 1589227   (190520) от 08.11.2022
+
+Г.И. Гончаров | Составление и чтение чертежей в машиностроении (1966) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит систематическое изложение вопросов, относящихся к составлению и чтению машиностроительных и приборостроительных чертежей. Излагаются правила расположения видов, разрезов и сечений на чертежах., Подробно рассматривается вопрос нанесения размеров. В краткой форме даются сведения об условных обозначениях допусков и посадок, чистоты поверхности и видов (   Читать дальше...   )Жанр: учебное пособие, справочникФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEDA96FC90EB15203F04B8BE188DE0008A525E99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589251   (190514) от 08.11.2022
+
+Е.В. Зеленин | Элементарный справочник по черчению (1964) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник предназначен для начинающих чертежников - молодых рабочих, учащихся средней школы, техникумов, ремесленных училищ, студентов первых курсов высших учебных заведений, а также лиц, изучающих черчение самостоятельно.Жанр: учебное пособие, справочникФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E842DA00447DD70FD2C275EFEBE2C1AB000FA97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658859   (190472) от 10.09.2023
 
 П. Ходж, Д. Шеррингтон | Реакции на полимерных подложках в органическом синтезе (1983) [PDF]
@@ -6,7 +58,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190472.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190339.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190224.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190182.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189646.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189290.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189258.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188988.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188826.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187767.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186358.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186209.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184180.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181349.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177814.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177020.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175058.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171728.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171359.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167135.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166739.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166437.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166397.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164700.jpg" />
 </div>
 
 
@@ -624,59 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32FE7C4C1E21369840A3338E73E3E70CED4896B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598541   (162536) от 19.12.2022
-
-А.И. Васильев | Грузоподъемность и долговечность мостовых сооружений (2021) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлена методология оценки грузоподъёмности и долговечности автодорожных и городских мостов на основе системного подхода и положений теории надёжности. Приводятся характеристики функциональных потребительских свойств мостовых сооружений. Подробно описаны методы оценки проектного и фактического значений грузоподъёмности. Изложен состав натурных исследований, (   Читать дальше...   )Жанр: МостостроениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4728CC84D3EBEBC1697D85FF5DD55DDFEBB7C3B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674285   (162246) от 04.11.2023
-
-Г. Аттура | Магнитные усилители (1963) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162246.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге в доступной форме изложены основы теории современных магнитных усилителей. Внимание главным образом уделено двум основным типам магнитных усилителей - дросселю насыщения и усилителю с самонасыщением. Рассмотрены одно- и двухполупериодные, одно- и двухтактные магнитные усилители, а также комбинированные магнитно-полупроводниковые усилители.
-Излагаются преимущественно (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: ГосэнергоиздатФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F856DD1F07A79754A0A6507C08F7B675B28AC055
 ```
 
 https://mybot314.ru/tekegram_catalog/

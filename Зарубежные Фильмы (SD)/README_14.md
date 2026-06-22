@@ -1,3 +1,135 @@
+###  Публикация: 1603135   (1045654) от 10.01.2023
+
+Стихия огня / Nature Unleashed: Fire (2004) DVDRip [H.265]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Может ли человек совладать со стихией? Решив прокатиться по лесу на мотоциклах, четверо молодых людей и не подозревали, что скоро на пути их встанет стена огня, а некогда райский уголок превратится в адский лабиринт, выбраться из которого смогут далеко не все.
+
+Вывести группу из пылающего леса берется Джейк — сотрудник местного отряда спасателей. Однако вскоре он (   Читать дальше...   )Производство: Канада, Румыния, Великобритания / Millennium Films, Euroimage EOOD, GFT Entertainment, Studio Eight ProductionsЖанр: боевик, триллер, драма, приключенияРежиссер: Аллан А. ГолдштейнПеревод: Двухголосый профессиональныйЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:26:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A615CB98A55356033A2E9A624591772D37E30D02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603663   (1045621) от 10.01.2023
+
+Всевидящее око / The Pale Blue Eye (2022) WEB-DLRip [H.264] [AVO]
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045621.jpg" />
+</div>
+
+
+###  Подробнее
+
+1830 год. Отставного констебля Лэндора нанимают для расследования смерти курсанта военной академии Вест-Пойнт. Парня нашли повешенным, а когда перенесли в лазарет, кто-то вырезал у него сердце. Осмотрев тело и место повешения, Лэндор приходит к выводу, что бедолага умер насильственной смертью, когда в помощники ему вызывается кадет Эдгар Аллан По — молодой человек (   Читать дальше...   )Производство: США / Cross Creek Pictures, Grisbi Productions, Le, Streamline Global GroupЖанр: детектив, триллерРежиссер: Скотт КуперАктеры: Кристиан Бэйл, Гарри Меллинг, Саймон Макберни, Тимоти Сполл, Тоби Джонс, Гарри Лоути, Фред Хехингер, Джозеф Брукс, Шарлотта Генсбур, Люси БойнтонПеревод: Авторский (Дмитрий Есарев)Язык озвучки: русский, английскийСубтитры: русские, английские (full, SDH), украинскиеПродолжительность: 02:10:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C382D80BF0F35F2604F6EE56EDF4FC033DA1402
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603837   (1045538) от 11.01.2023
+
+Ограбление на лайнере / The Black Square (2021) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Арт-мир потрясен: неизвестные украли знаменитый «Черный квадрат» Казимира Малевича, шедевр, стоящий миллионы. Это дело рук двух дерзких напарников, которые теперь с размахом отмечают свой триумф и планируют встречу с клиентами на круизном лайнере, на котором и состоится передача награбленного искусства. Однако все идет не совсем так, как планировалось — оказавшись (   Читать дальше...   )Производство: Германия / Port au Prince Film & Kultur Produktion, Frisbeefilms, FunDeMental StudiosЖанр: Комедия, криминалРежиссер: Петер МайстерАктеры: Сандра Хюллер, Бернхард Шюц, Фелине Рогган, Якоб Маченц, Виктория Трауттмансдорфф, Кристофер Шерф, Оссейн Рахмани Манеш, Кристиан Эрих, Вольфганг Пакхёузер, Габриэль ХайнрихПеревод: Дублированный (Paragraph Media)Язык озвучки: русскийСубтитры: русские (Forced, Full) - отдельноПродолжительность: 01:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C81E928543CB987C6DF66831AF2DD1806E5C5F6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603785   (1045531) от 11.01.2023
+
+Хищники / As bestas / The Beasts (2022) HDRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Городская пара переезжает в небольшую деревню в поисках спокойной жизни в гармонии с природой. Однако им придется столкнуться с жестокостью и недружелюбием местных жителей, что приведет к непредотвратимым последствиям.Производство: Испания, Франция / Arcadia Motion Pictures, Caballo Films, Canal+ frЖанр: триллерРежиссер: Родриго СорогойенАктеры: Марина Фоис, Дени Меноше, Луис Саера, Диего Анидо, Мари Коломб, Луиса Мерелас, Хосе Мануэль Фернандес и Бланко, Федерико Перес Рей, Javier Varela, Дэвид МенендесПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: русский, испанскийСубтитры: английские - отдельным файломПродолжительность: 02:18:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AF1945A47BD6CD0393ED9ED213A84BA551A1AAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604087   (1045477) от 12.01.2023
+
+Дрожь земли 4. Легенда начинается / Tremors 4: The Legend Begins (2004) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приквел к предыдущим фильмам (1990-2001 годов) и сериалам о гигантских подземных червях. После того как жителей отдаленного городка в штате Невада стал безжалостно истреблять невидимый враг, владелец копей Хирам Гаммер нанимает лучшего стрелка на Диком Западе по кличке Келли Черная Рука, чтобы тот расправился со зловещими существами, оставляющими уважаемого бизнесмена (   Читать дальше...   )Производство: США, Stampede EntertainmentЖанр: ужасы, фантастика, боевик, комедия, приключения, вестерн, триллерРежиссер: Сид УилсонАктеры: Майкл Гросс, Сара Ботсфорд, Билли Драго, Брент Роам, Аугуст Шелленберг, Дж.Э. Фримен, Ло Минг, Лидия Лук, Сэм Ли, Нил КопитПеревод: дублированный (ТВ3), профессиональный многоголосый (СТС), авторские (Сергей Визгунов; Андрей Дольский)Субтитры: русские, английскиеПродолжительность: 01:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE20A85954822E70672628B52E8A0E40F6BBFD9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326667   (1045447) от 12.01.2023
 
 Любовь со взломом / Breaking & Exiting (2018) BDRip [H.265] [10-bit]
@@ -6,7 +138,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045447.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045412.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045381.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045296.jpg" />
 </div>
 
 
@@ -111,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045293.jpg" />
 </div>
 
 
@@ -137,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045261.jpg" />
 </div>
 
 
@@ -163,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045260.jpg" />
 </div>
 
 
@@ -189,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045257.jpg" />
 </div>
 
 
@@ -215,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045239.jpg" />
 </div>
 
 
@@ -241,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045172.jpg" />
 </div>
 
 
@@ -268,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045048.jpg" />
 </div>
 
 
@@ -294,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045037.jpg" />
 </div>
 
 
@@ -320,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044974.jpg" />
 </div>
 
 
@@ -346,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044929.jpg" />
 </div>
 
 
@@ -372,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044899.jpg" />
 </div>
 
 
@@ -398,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044893.jpg" />
 </div>
 
 
@@ -424,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044834.jpg" />
 </div>
 
 
@@ -450,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044706.jpg" />
 </div>
 
 
@@ -476,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044674.jpg" />
 </div>
 
 
@@ -502,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044672.jpg" />
 </div>
 
 
@@ -528,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044666.jpg" />
 </div>
 
 
@@ -539,136 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA813C09985744F732EF7D035B9D710984F03297
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024623   (1044585) от 20.01.2023
-
-Простая формальность / Una pura formalita (1994) DVDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Той ночью разразилась страшная гроза. Пытаясь спрятаться, он бежал по улицам, не зная куда, как вдруг путь ему преградили трое. Вскоре он был арестован. За что? В чем его преступление? Это первый фильм, который поставил не Роман Поланский, и в котором он сыграл одну из главных ролей. Единственный фильм Джузеппе Торнаторе, где он выступил не только сценаристом и режиссёром, (   Читать дальше...   )Производство: Италия, ФранцияЖанр: Триллер, драма, криминал, детективРежиссер: Джузеппе ТорнатореАктеры: Жерар Депардьё, Роман Полански, Серджио Рубини, Никола Ди Пинто, Тано Чимароза, Паоло Ломбарди, Мария Роза Спаньоло, Альберто Сирони, Джованни Морриконе, Махди КрайемПеревод: Профессиональный многоголосый, авторскийЯзык субтитров: РусскийПродолжительность: 01:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6763221003A693BDE79CB907C5BD6A56D220659
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606235   (1044501) от 21.01.2023
-
-Буря в пустыне / Браво-два-ноль / Bravo Two Zero (1999) BDRip [H.264] [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044501.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноимённой книге Энди Макнаба. В фильме показана реальная история произошедшая с патрулём Специальной авиационной службы (SAS) Великобритании во время войны в Персидском заливе (1991). Патруль «Браво-два-ноль» в ходе выполнения задания по поиску и обнаружению мобильных установок иракских ракет «Скад» был обнаружен противником. Четверо членов патруля попали в (   Читать дальше...   )Производство: ЮАР, Великобритания, BBC, Distant Horizon, Icon Entertainment International, Videovision EntertainmentЖанр: драма, военный, боевик, триллерРежиссер: Том КлеггАктеры: Шон Бин, Джэми Бартлетт, Кевин Коллинз, Йен Кертис, Ричард Грэм, Роберт Хоббс, Стив Николсон, Рик Уорден, Рон Сеньор мл., Роберт УайтхедПеревод: авторские (Василий Горчаков; Юрий Живов)Язык озвучки: русский, английскийСубтитры: нетПродолжительность: 02:02:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A547AF2250E486F07847CC197BB28CC138E9D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606273   (1044480) от 21.01.2023
-
-Пария / Despiser (2003) DVDRip [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повздоривший с женой независимый художник и не предполагал, что это еще не самая большая беда в его жизни. Он попадает в автокатастрофу и ему уготовано долгое путешествие в полном опасностей Потустороннем Мире, где идет непрерывная схватка невообразимых и в самом изощренном кошмаре тварей и их антиподов...Производство: США / Eagle Films Inc., Green SolutionsЖанр: ужасы, фэнтезиРежиссер: Филип Дж. КукАктеры: Марк Редфилд, Даг Браун, Гейдж Шеридан, Фрэнк Смит, Майкл Вайц, Tara Bilkins, Майк Дизель, Марк Хайд, Эндрю Бартлетт, Энрике КастиллоПеревод: Двуголосый любительскийЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6693ECB88D2D5818D1CB4F71618B364964506E6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606240   (1044469) от 21.01.2023
-
-Хранитель тайн / Objetos (2022) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марио обладает особым даром — он может разгадывать секреты, которые хранят даже самые простые вещи. Однажды к нему попадает чемодан с жутким содержимым. Марио начинает расследование.Производство: Испания, Аргентина, Германия / Comunidad de Madrid, Crea SGR, Instituto Nacional de Cine y Artes Audiovisuales (INCAA)Жанр: триллерРежиссер: Хорхе ДорадоАктеры: Альваро Морте, Мария Эухения Суарес Риверо, Вероника Эчеги, Даниэль Араос, Энди Горостиага, Майтане Сан Николас, Пепа Грасиа, Сорион Эгилор, Сельва Алеман, Дэвид ЛюкПеревод: Дублированный (Велес)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43E39DB57838F5F6DAA41532C9C2CF28849244E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606427   (1044357) от 22.01.2023
-
-С детьми что-то не так / There's Something Wrong with the Children (2023) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семейная пара с двумя маленькими детьми в компании давних друзей отправляется на выходные в лес, где компания сталкивается с какими-то необъяснимыми явлениями. А после возращения их дети начинают вести себя очень странно.Производство: США / Blumhouse Television, Epix Film ProductionЖанр: ужасыРежиссер: Роксанна БенжаминАктеры: Аманда Крю, Зак Гилфорд, Бриелла Гуиса, David Mattle, Карлос Сантос, Рамона Тайлер, Алиша ВейнрайтПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, английскийСубтитры: английские (full, SDH), французскиеПродолжительность: 01:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ACD015D47CD5250F4A0289E656D7F5DBADECC17
 ```
 
 https://mybot314.ru/tekegram_catalog/

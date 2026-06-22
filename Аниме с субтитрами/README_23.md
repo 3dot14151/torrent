@@ -1,3 +1,29 @@
+###  Публикация: 947376   (941695) от 07.02.2016
+
+Lance N' Masques / Копьё и маски [2015, TV, 12] HDTVRip Hi10p 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941695.jpg" />
+</div>
+
+
+###  Подробнее
+
+В наше современное и технологически развитое время настоящих рыцарей уже не осталось. Все они вышли из моды и канули в небытие. Йотаро Ханабуса — один из немногих оставшихся верным старым традициям рыцарь, последний из своего ордена, стремящийся вернуть старые традиции. Сюжет данного аниме описывает приключения юного рыцаря, а также его подруги — Макио Кидоин, девушки (   Читать дальше...   )Производство: Studio GokumiЖанр: приключенияРежиссер: Исигуро КёхэйПеревод: Veles (Ani-Panic)Субтитры: ASSФормат: MKVПродолжительность: 12 серий по ~25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F4047502464A59A05D7C39C1FC5D7696C2EF2C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091681   (941124) от 10.01.2017
 
 Chain Chronicle: Short Animation / Цепные хроники - короткометражки [2014, OVA, 8 из 8] DVDRip 720p raw
@@ -6,7 +32,7 @@ Chain Chronicle: Short Animation / Цепные хроники - коротко�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941124.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Mayoi Neko Overrun! / Stray Cats Overrun! / Нашествие бродячих 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941083.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Isekai Cheat Magician | Маг-обманщик из другого мира [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940834.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Gekijouban Gintama: Shinyaku Benizakura Hen / Gintama: Benizakura Arc [2010] DVD
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940104.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Soukyuu no Fafner: Dead Aggressor - Exodus | Небесный Фафнир: Ис
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939586.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ Kagaku na Yatsura OVA / Эти чокнутые учёные OVA [2013, OVA, 1] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939572.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ Orange: Mirai | Орендж: Будущее [2016, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939418.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ Toshokan Sensou / Library War / Библиотечная война [2008, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938618.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ Gakuen Utopia Manabi Straight! / Непоседливая Манаби! [2007, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938613.jpg" />
 </div>
 
 
@@ -252,7 +278,7 @@ Sora no Otoshimono: Forte / Утраченное небесами: Стойко�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_938161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_938161.jpg" />
 </div>
 
 
@@ -282,7 +308,7 @@ No.6 / Шестая зона [2011, TV, 11] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936476.jpg" />
 </div>
 
 
@@ -310,7 +336,7 @@ Orange | Орендж [2016, TV, 13] BDRip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936395.jpg" />
 </div>
 
 
@@ -336,7 +362,7 @@ Ookami Kodomo no Ame to Yuki / The Wolf Children Ame and Yuki / Дети вол�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934379.jpg" />
 </div>
 
 
@@ -364,7 +390,7 @@ Ushio to Tora / Ushio and Tora / Усио и Тора [1992, OVA, 10 ep.+Omake] 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934300.jpg" />
 </div>
 
 
@@ -391,7 +417,7 @@ Soukyuu no Fafner: Dead Aggressor | Fafner in the Azure: Dead Aggressor | Неб
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934287.jpg" />
 </div>
 
 
@@ -419,7 +445,7 @@ Mushishi Tokubetsu Hen: Hihamu Kage | Mushishi Special: Sun-Eating Shade | Ма�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931438.jpg" />
 </div>
 
 
@@ -446,7 +472,7 @@ Ginga Tansa 2100-nen: Border Planet | Galaxy Investigation 2100: Border Planet |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930682.jpg" />
 </div>
 
 
@@ -473,7 +499,7 @@ Gekijouban Bungaku Shoujo / Literature Girl / Литературная деву�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930435.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Gekijouban Blood-C: The Last Dark / BLOOD-C: Последний Тёмный [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929700.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ Ookami Kodomo no Ame to Yuki / The Wolf Children Ame and Yuki / Волчьи д�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929640.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ Tantei Kageki Milky Holmes TD / Детективная опера Румяшек
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928921.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ Arve Rezzle: Kikaijikake no Yousei-tachi  [2013, ONA, 1 из 1] WEBrip raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927878.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ Cocolors | Соцветие [2016, Movie] BDRip 816p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927034.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Home! | Домой! [2021, Web] WebRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926900.jpg" />
 </div>
 
 
@@ -667,7 +693,7 @@ Alexander Senki | Reign: The Conqueror | Александр [1999, TV, 13 эп.]
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925445.jpg" />
 </div>
 
 
@@ -678,36 +704,6 @@ Alexander Senki | Reign: The Conqueror | Александр [1999, TV, 13 эп.]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3017F291696128D124339F106583542154F2C7D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 631621   (924440) от 17.03.2013
-
-Ergo Proxy / Эрго прокси [2006, TV, 23 серий] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924440.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пустынном обезлюдевшем мире выжить можно лишь в городе-куполе, и Ромдо – одно из немногих мест, где сохранилась цивилизация. Но для поддержания порядка нужна крепкая рука, поэтому властью в Ромдо распоряжается не дряхлый наместник Донов Мейер, а четыре Советника-робота. Однако даже роботам нельзя доверять – с тех пор, как загадочный вирус Когито начал превращать послушных механических слуг в бунтовщиков и даже убийц.
-
-Внучка наместника Рил берётся за расследование: необходимо выяснить, что стало причиной вируса, и кто его распространяет. Вскоре и сама Рил подвергается нападению, а в круг подозреваемых попадает скромный юноша, которого она почти не знает – Винсент Лоу, бывший иммигрант, а ныне кандидат на звание примерного граждана. Его причастность сомнительна, но одно бесспорно: именно за Винсентом охотится странное чудовище, устроившее резню посреди города.
-
-В поисках ответа Винсент покидает Ромдо и вместе с заражённым роботом-девочкой Пино отправляется к своему родному городу, когда-то разрушенному по неизвестной (   Читать дальше...   )Жанр: Киберпанк, детектив, фантастикаРежиссер: Мурасэ СюкоПродолжительность: 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC4E8272CC43859DE07AE1F849C173522CC67505
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1346879   (155391) от 21.12.2019
+
+Path Finder 9.0.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов,  управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: CocoatechПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5FF76EB11AE2B2A6DC09AEC8C850C065A718279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518307   (155388) от 19.12.2021
+
+iZotope - RX 9 Audio Editor Advanced v9.2.0 STANDALONE, VST, VST3, AAX [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155388.jpg" />
+</div>
+
+
+###  Подробнее
+
+RX уже давно является популярным пакетом для ремонта и полировки звука для фильмов, телевидения, музыки, подкастов, видеоигр, библиотек сэмплов и многого другого. В RX мы создали новые инструменты и улучшили любимые модули, чтобы помочь вам достичь большего за меньшее время, чем когда-либо.
+В версии 8 мы добавили новые функции в линейку продуктов, чтобы ускорить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.12.2021Разработчик: © 2021 iZotope, Inc.Поддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60BDFE5CB1265AE42AA58B7708B56E19E4486BB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600767   (155378) от 28.12.2022
 
 4K Video Downloader Pro 4.23.0 [Multi/Ru]
@@ -6,7 +59,7 @@
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155378.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Allegorithmic Substance Painter 2019.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155376.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ PDF to Word Converter 6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155293.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ EagleFiler 1.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155248.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ Sketch 61.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155239.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ GrandTotal 7 v7.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155233.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ Middle 1.5.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155220.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ PrefEdit 4.51 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155208.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ PDF Search 10.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155195.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ Keep It 1.9.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155189.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ Posterino 3 v3.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155175.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ Duplicate File Finder Pro 6.12  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155152.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ Net Radar 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155145.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ Airtool 2 v2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155139.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ Downie 4 v4.1.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155122.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ Templates for Pixelmator by GN 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155114.jpg" />
 </div>
 
 
@@ -434,7 +487,7 @@ FxFactory Pro 8.0.4 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155109.jpg" />
 </div>
 
 
@@ -461,7 +514,7 @@ Espresso 5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155081.jpg" />
 </div>
 
 
@@ -487,7 +540,7 @@ GarageSale 8 v8.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155060.jpg" />
 </div>
 
 
@@ -513,7 +566,7 @@ Chaotica 2.0.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155047.jpg" />
 </div>
 
 
@@ -539,7 +592,7 @@ One Switch 1.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154979.jpg" />
 </div>
 
 
@@ -565,7 +618,7 @@ Permute 2.3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154957.jpg" />
 </div>
 
 
@@ -592,7 +645,7 @@ Notebooks - Create Documents, Organize Files, Manage Tasks 2.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154956.jpg" />
 </div>
 
 
@@ -618,7 +671,7 @@ Nik Complete 2 Collection by DxO 2.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154909.jpg" />
 </div>
 
 
@@ -630,61 +683,6 @@ Nik Complete 2 Collection by DxO 2.3.1 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:188BE8FBCE038D75BF33840036F181A5A6728A7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086086   (154877) от 23.12.2016
-
-Orion Markup - image notes and annotations 3.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение позволяет открыть изображение (в том числе  скриншоты), и добавить все виды аннотаций в виде текста, графических элементов, подчеркиваний, выносок, и многое другое.
-
-- Добавлять заметки и в файлы изображений и PDF-документов
-- Увеличение: создает увеличенные версии выбранных областей изображения(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 декабря 2016Разработчик: Aidaluu Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E119880AAFB292A7D666E1C5EEE07E7B968BE508
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346973   (154849) от 21.12.2019
-
-Photo Mechanic 6 v6.0 build 4155 (e068498) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Mechanic — фотобраузер и фоторедактор оперативно обрабатывающий тысячи снимков в одиночном и пакетном режимах, отбирает из них самые удачные, обрезает, добавляет информацию к фото, рейтинг, корреспондируется с цифровыми камерами, интегрируется со многими редакторами в т.ч. Adobe Photoshop, позволяет легко экспортировать данные. Программа предназначена для профессиональных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Camera Bits, Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75E95E006F20D7710C6883714B72BE495800391F
 ```
 
 https://mybot314.ru/tekegram_catalog/

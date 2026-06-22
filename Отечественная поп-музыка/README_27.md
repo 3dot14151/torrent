@@ -1,3 +1,150 @@
+###  Публикация: 1595709   (174457) от 07.12.2022
+
+Ц.В.Е.Т.А.Е.В.А. - Без сомнений (2022) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - В пути [00:04:14]
+02 - Музы [00:03:57]
+03 - Нитка [00:02:49]
+04 - Оставьте [00:05:59](   Читать дальше...   )Жанр: PopПродолжительность: 00:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:113EDE190768AE6312DA542A3018BE630138F74B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165609   (173776) от 23.12.2017
+
+Тина Кароль - 7 альбомов, 14 синглов, 6 сборников (2006 - 2017) [MP3|192-320 Kbps] <Pop, Soul, Jazz>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тина Григорьевна Кароль (укр. Тіна Григорівна Кароль), имя при рождении Татьяна Григорьевна Либерман (укр. Тетяна Григорівна Ліберман; род. 25 января 1985, Оротукан, Ягоднинский район, Магаданская область, РСФСР, СССР) — украинская певица, актриса и телеведущая. Народная артистка Украины (2017).
+
+Татьяна Григорьевна Либерман родилась 25 января 1985 года в посёлке (   Читать дальше...   )2006 - Show Me Your Love
+2006 - Ноченька
+2007 - Полюс притяжения
+2010 - 9 жизнейЖанр: Pop, Soul, JazzПродолжительность: 14:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E625E3857E324D54F83A7271FAB20731127FB26E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669917   (172439) от 18.10.2023
+
+Фактор 2 - Начало (2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172439.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 200 грамм (Первая версия)
+2. Белый снег
+3. Биография
+4. Бродяга(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58173528E85B36EFA2EF516457B85DB2E34AA7E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670200   (172261) от 19.10.2023
+
+Игорь Николаев - Лучшие хиты (2023) [MP3|256-320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172261.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Пять причин
+2. Выпьем за любовь
+3. Синий Ветер - Белый Лён
+4. Такси, такси(   Читать дальше...   )Жанр: PopПродолжительность: 01:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED1DF3E8FE528F51C32125E253DE6ADF3025333F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670403   (172081) от 20.10.2023
+
+VA - Любовь всегда права (2023) Посвящение Александру Шевченко [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172081.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Валерий Сюткин - Будет всё, как ты захочешь
+2. A'Studio - Это было
+3. Олег Митяев - Подумать о тебе
+4. Саша Попова - Никто не скажет мне(   Читать дальше...   )Жанр: PopПродолжительность: 01:36:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:877B84AF82BFA397399A25F6F5B25C4F18BBA2F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596236   (170361) от 09.12.2022
 
 Стас Михайлов - Код да Винчи (2022) [MP3|320 Kbps] <Pop>
@@ -6,7 +153,7 @@
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170361.jpg" />
 </div>
 
 
@@ -35,7 +182,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170222.jpg" />
 </div>
 
 
@@ -64,7 +211,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170085.jpg" />
 </div>
 
 
@@ -93,7 +240,7 @@ Zivert - В МИРЕ ВЕСЁЛЫХ (2023) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169944.jpg" />
 </div>
 
 
@@ -122,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169690.jpg" />
 </div>
 
 
@@ -151,7 +298,7 @@ A'Studio - A’21 (2022) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168990.jpg" />
 </div>
 
 
@@ -180,7 +327,7 @@ Emin - Девочка моя (2019) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168989.jpg" />
 </div>
 
 
@@ -209,7 +356,7 @@ Loboda - SOLD OUT (2019) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167209.jpg" />
 </div>
 
 
@@ -238,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166698.jpg" />
 </div>
 
 
@@ -267,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166090.jpg" />
 </div>
 
 
@@ -296,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164807.jpg" />
 </div>
 
 
@@ -325,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163030.jpg" />
 </div>
 
 
@@ -354,7 +501,7 @@ Soprano Турецкого - Новогодние хиты (2020) [MP3|320 Kbps]
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162926.jpg" />
 </div>
 
 
@@ -383,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162896.jpg" />
 </div>
 
 
@@ -412,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159258.jpg" />
 </div>
 
 
@@ -441,7 +588,7 @@ Michael Kistanov - All About You and Me (2022) [MP3|320 Kbps] <Pop-Rock, Folk>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159036.jpg" />
 </div>
 
 
@@ -470,7 +617,7 @@ Manizha - Колыбель для повзрослевшего (2022) [MP3|320 K
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158988.jpg" />
 </div>
 
 
@@ -499,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158684.jpg" />
 </div>
 
 
@@ -528,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157474.jpg" />
 </div>
 
 
@@ -557,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157470.jpg" />
 </div>
 
 
@@ -586,7 +733,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157323.jpg" />
 </div>
 
 
@@ -600,151 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A08BA7FB6BACC19F112D2F07FFB200274D45E2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085695   (156282) от 22.12.2016
-
-Блестящие - Best 20 (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Там, только там
-02. Цветы
-03. Облака
-04. Ча-ча-ча(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F77AC3309B7A64719B168D8F38981589ACEC543
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676725   (155398) от 14.11.2023
-
-Лолита - И этим всё сказано (2023) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155398.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пошлю его на...
-2. Расскажи, как...
-3. Ориентация Север
-4. По-другому(   Читать дальше...   )Жанр: PopПродолжительность: 01:23:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A93EDFB352594AC0431838E631F2D499A57D16B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676698   (155037) от 14.11.2023
-
-Shaman - Сделано в России (2023) 2CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155037.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Моя Россия
-2. Дай Жару
-3. Да
-4. Мы(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFED9A7A2FADE54C76201D77DAAE1BD86DA22A6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194749   (153982) от 26.12.2017
-
-Ева Польна - Феникс (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153982.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Феникс. Intro
-2. Официальные лица
-3. Фантастика (New Version)
-4. Вернись ко мне(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B272AA95A242E4E98E20FA582128E891779FECC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347298   (153836) от 22.12.2019
-
-Наташа Королёва - Ягодка (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ягода
-02. Зять
-03. Кандидат
-04. Подруга(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:804627631B60C8D23C67FA41F08BFAF998888675
 ```
 
 https://mybot314.ru/tekegram_catalog/

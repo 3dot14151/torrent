@@ -1,3 +1,107 @@
+###  Публикация: 1039559   (595596) от 01.08.2016
+
+The Eyes of Ara (2016) [En] (1.0.01) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595596.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Eyes of Ara - это трехмерный приключенческий паззл-квест, вдохновленный классикой вроде Myst. Игрокам предстоит отправиться в древний заброшенный замок, чтобы разгадать его секреты.Тип издания: RepackРазработчик: 100 Stones InteractiveЖанр: Adventure, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76CBA9F2EA3291395CA24810EC4F9733FD7E15B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039566   (595591) от 01.08.2016
+
+The Eyes of Ara (2016) [En] (1.0.01) License POSTMORTEM
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595591.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Eyes of Ara - это трехмерный приключенческий паззл-квест, вдохновленный классикой вроде Myst. Игрокам предстоит отправиться в древний заброшенный замок, чтобы разгадать его секреты.Тип издания: LicenseРазработчик: 100 Stones InteractiveЖанр: Adventure, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2B3A19526A04D5D403D6DE37DA9A4D8B65F1CB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526828   (595321) от 25.07.2012
+
+Captain Morgane And The Golden Turtle [Multi5/+] (RePack) 2012 l Fenixx
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключения всегда были у неё в крови. Родившись простой дочкой капитана она стала величайшей женщиной-пиратом Карибского моря; Моргана Кастилио никогда не вела скучной жизни! Начните путь Морган от невинной и добродушной 8-летней девчонки, живущей на острове к становлению известнейшим пиратом Карибского моря! Морган путешествует уже несколько лет в поисках великого и таинственного скоровища, под названием Золотая Черепаха. Помогиnt разгадать тайны и загадки; используйnt подсказки, чтобы обмануть врагов на ее пути. Наберите новую команду, исследуйте более 50 мест на 5 красивых экзотических островах в Карибском море, но старайтесь держаться подальше от неприятностей... ведь она девушка, мать вашу.(   Читать дальше...   )Тип издания: RePackРазработчик: WizarboxЖанр: AdventureЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Multi5
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28E2ABD92E9A90791DA1DFA84FE22E0A2704CB60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039895   (594201) от 02.08.2016
+
+Rising Islands (2016) [Ru/Multi] (1.010) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давным-давно, в этом мире царили хаос и раздор. Лишь создав реликвии, Древние сумели восстановить мир и гармонию. Постепенно мир восстановился после эпохи междоусобиц. Но зло не побеждено, и скоро хаос вернется, чтобы нарушить природное равновесие. Только вы, молодая женщина по имени Хайро, можете спасти мир. Используя уникальную способность, позволяющую перемещаться (   Читать дальше...   )Тип издания: LicenseРазработчик: Lone Hero StudiosЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06766CB19EEC3296F5BCE891C749EF4426936DAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039659   (594155) от 02.08.2016
 
 Slap Village (2016) [En/Multi] (1.0) License POSTMORTEM [Episode 1]
@@ -6,7 +110,7 @@ Slap Village (2016) [En/Multi] (1.0) License POSTMORTEM [Episode 1]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594155.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Slap Village (2016) [En/Multi] (1.0) Repack Other s [Chapter 1]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594115.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Close to the Sun (2019) [Ru/Multi] (108) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593442.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ AER Memories of Old (2017) [Ru/Multi] (1.0.4.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592830.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Layers of Fear: Inheritance (2016) [Ru/Multi] (1.1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588093.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ The Subject (2018) [En] (2.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587899.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Lorelai (2019) [En] (1.0.4/dlc) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587838.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Pneuma: Breath of Life (2015) [Ru] (1.0.0.0) Repack xGhost
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587613.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Half Dead (2016) [Ru/Multi] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587118.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Near Death (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587067.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ AR-K: The Great Escape (2015) [En/Sp] License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585592.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Sherlock Holmes Chapter One (2021) [Ru/Multi] (7839_1.4/dlc) License GOG [Deluxe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585519.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ The Long Dark (2017) [Ru/Multi] (1.49) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585027.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1) Repack R.G. Catal
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584910.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ The Long Dark Redux (2017) [Ru/Multi] (1.49) SteamRip R.G. Origins [Episode 1-2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584895.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Lacuna - A Sci-Fi Noir Adventure (2021) [Ru/Multi] (1.3.0.1) License GOG [Save t
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584505.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ LEGO Indiana Jones 2: The Adventure Continues (2010) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583688.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Apartment 666 (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583123.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ LEGO Star Wars - The Complete Saga (2009) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582748.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Campus [Ru] (RePack) 2007 | CCG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582714.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ Niko: Through The Dream (2015) [Ru/En] (1.0) RePack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582549.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ The Subject (2018) [En] (2.0.3) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580050.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ The Subject (2018) [En] (2.0.3) License PLAZA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFDBF1EC298A3E1D1533E7591E7B96317D3F1B54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303009   (577392) от 18.05.2019
-
-A Plague Tale: Innocence (2019) [Ru/Multi] (1.0.0/dlc) Repack R.G. Catalyst
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577392.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Plague Tale: Innocence – это невероятный средневековый мир, благодаря поразительным декорациям и таланту опытных разработчиков оживающий под незабываемую музыку, что пробирает до глубины души. Осмелитесь ли вы открыть ужасающую страницу историиТип издания: RepackРазработчик: Asobo StudioЖанр: Adventure, Action, Stealth, 3rd PersonЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BA4832C34869B269B5927EA450DDA422D09B0B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042991   (575853) от 14.08.2016
-
-Doorways: Holy Mountains of Flesh (2016) [En/Es] (1.0) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Doorways: Holy Mountains of Flesh - это приключенческий хоррор, повествующий о загадочных исчезновениях в небольшом аргентинском городке. Про исчезновение Хуана Торреса и его семьи ходили страшные слухи – говорят, они жили в маленькой деревне (с населением в 4800 человек) в провинции Аргентины. Одна из историй связана с каннибализмом, другая – с черной магией, а (   Читать дальше...   )Тип издания: LicenseРазработчик: Saibot StudiosЖанр: Adventure (Horror), Action, 3D, 1st Person, 3rd PersonЯзык озвучки: Английский, ИспанскийЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F71DCE8323CA9C2AB858195216BF68CB2E0142AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043020   (575843) от 14.08.2016
-
-Doorways: Holy Mountains of Flesh (2016) [En/Es] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Doorways: Holy Mountains of Flesh - это приключенческий хоррор, повествующий о загадочных исчезновениях в небольшом аргентинском городке. Про исчезновение Хуана Торреса и его семьи ходили страшные слухи – говорят, они жили в маленькой деревне (с населением в 4800 человек) в провинции Аргентины. Одна из историй связана с каннибализмом, другая – с черной магией, а (   Читать дальше...   )Тип издания: RepackРазработчик: Saibot StudiosЖанр: Adventure (Horror), Action, 3D, 1st Person, 3rd PersonЯзык озвучки: Английский, ИспанскийЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:768713A7B3C1CD81EF7F7F322F52B9DC36178344
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303116   (575733) от 19.05.2019
-
-The Long Dark (2017) [Ru/Multi] (1.50) Repack R.G. Catalyst
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575733.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Long Dark – это хардкорный симулятор выживания в бескрайних лесах Северной Канады! Вы будете играть за пилота по имени Вил Маккензи, самолет которого потерпел крушение после мистического геомагнитного шторма. Главной вашей задачей будет выжить как можно дольше, чтобы выяснить что же произошло с миром и как он изменился...Тип издания: RepackРазработчик: Hinterland Studio Inc.Жанр: Action, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EABC7C3950080184268494E0F67EABC42D583A89
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1206044   (782812) от 12.02.2018
+
+Rock of Ages 2: Bigger & Boulder (2017) [Ru/Multi] (1.07/dlc) Repack R.G. Catalyst
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rock of Ages 2: Bigger & Boulder продолжает сокрушительные традиции величайшей игры в жанре Tower Defense про историю, искусство и гигантские валуны. Само название намекает, что в Bigger & Boulder еще больше абсурда и драйва. Вас ждут новые безумные многопользовательские баталии двое на двое и новые эпохи, а также улушенные графика, физика и разрушаемость (   Читать дальше...   )Тип издания: RepackРазработчик: ACE TeamЖанр: Экшены, Инди, Гонки, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1425E9C2A71EB9C802302944B002F3B0A359DA32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188511   (782366) от 13.02.2018
+
+Redeemer (2017) [Ru/Multi] (1.5) Repack R.G. Catalyst
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Играйте в качестве элитного оперативника, Василия, который когда-то работал для одного из крупнейших производителей кибернетического оружия в мире. Во время работы в сфере безопасности, вам давали задания, такие как проникновение, убийство, вымогательство и пытки. Но когда в конце концов корпорация решила превратить вас в одного из своих солдат-киборгов, вам удалось (   Читать дальше...   )Тип издания: RepackРазработчик: Sobaka StudioЖанр: Arcade (Fighting), Action, IndieЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D4C991ED8A09D6E6764513AD92BBF887F0E53F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 201067   (781068) от 14.05.2010
 
 Rocket Knight [En/Multi5] (RePack) 2010 | -Ultra-
@@ -6,7 +58,7 @@ Rocket Knight [En/Multi5] (RePack) 2010 | -Ultra-
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_781068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_781068.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Iconoclasts (2018) [Multi] (1.14) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780694.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Dungreed (2018) [En/Co] (2.19) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780329.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ RUINER (2017) [Ru/Multi] (1.06) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779731.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Injustice: Gods Among Us (2013) [Ru/En] (1.0.2787.0upd5/dlc) Repack R.G. Мех�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779704.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Guns, Gore and Cannoli 2 (2018) [Ru/Multi] (1.0.1) License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778779.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Rad Rodgers (2018) [Ru/Multi] (1.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778581.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Rad Rodgers (2018) [Ru/Multi] (1.5.6511) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778419.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Bell Ringer (2016) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778213.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ Super Luckys Tale (2017) [Ru/Multi] (1.0/dlc) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778037.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Shadow Complex Remastered (2016) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777769.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ The Beggar's Ride (2016) [En/Multi] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777091.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Chicku (2016) [En] (1.05) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777060.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Otem's Defiance (2016) [En/Sp] (2.1.0.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777059.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ Hyposphere (2016) [En] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776651.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ UTOPIA 9 - A Volatile Vacation (2016) [En] (1.0 u23) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776641.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ The Beggar's Ride (2016) [En/Multi] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776639.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Fear Effect Sedna (2018) [En/Fra/Ge] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776632.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ CHUCHEL (2018) [Ru/Multi] (1.0.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776257.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ SkyKeepers (2017) [En] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775977.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ I and Me (2016) [En/Zh] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775892.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ SOULCALIBUR VI / SOULCALIBUR 6 (2018) [Ru/Multi] (01.10.01/dlc) Repack Other s [
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775558.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ The Hong Kong Massacre (2019) [En] (1.0) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774851.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ Sundered (2017) [Ru/Multi] (911/upd2) License PLAZA [Eldritch Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774793.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ Sundered – ужасающая борьба за выживание и здра
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A8B7EF4EB0D7C9124A648A2FD20ED9658E59D9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015740   (773909) от 11.05.2016
-
-Braid (2009) [Ru/Multi] (1.0) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Braid — это выполненный в живописном стиле платформер-головоломка, который дает вам возможность управлять течением времени множеством странных и необычных способов. Начав с городского особняка, вы посетите разнообразные мирыТип издания: LicenseРазработчик: Number NoneЖанр: Arcade (Platform), LogicЯзык озвучки: -/-Язык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6372D023C8DFF4AD712C2CCA81503D5A9103D87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124674   (772736) от 13.04.2017
-
-The Sexy Brutale (2017) [En] (1.0) License SKIDROW
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772736.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Sexy Brutale принадлежит перу студии Cavalier Game Studios и Tequila Works. Игра идет по стопам «Дня сурка»: герою приключения, как и персонажу Билла Мюррея, предстоит вновь и вновь переживать один и тот же день. Действие The Sexy Brutale происходит во время маскарада в особняке загадочного господина Маркиза.Тип издания: LicenseРазработчик: Cavalier Game Studios, Tequila WorksЖанр: Aracde, AdventureЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1D92903BB45D0D11D971CE87A051A246A71AD7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

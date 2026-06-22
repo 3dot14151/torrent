@@ -1,3 +1,81 @@
+###  Публикация: 1300376   (593114) от 06.05.2019
+
+NG. Взлёт чёрных фараонов / Rise of the Black Pharoahs (2014) HDTV [H.264/1080i-LQ] [hand made 60fps]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древний Египет - родина Великих пирамид, поразительного искусства, властных фараонов и мощных империй... Египет выделяется среди других античных цивилизаций, поражая нас потрясающей иконографией и культурной харизмой. Но даже когда древние египтяне явили миру свою силу, они скрыли шокирующий секрет своей власти. Они стерли историю о крупном подчиненном королевстве, (   Читать дальше...   )Производство: США, National Geographic, Public Broadcasting Service (PBS)Жанр: Документальный, история, исследованияРежиссер: Джеймс БарратПеревод: Двуголосый закадровый, профессиональныйСубтитры: АнглийскиеПродолжительность: 00:54:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86B15AC668C420FCF9EE544DFC241D82B1A77591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233553   (592989) от 30.06.2018
+
+NGW: Короли ящериц / Lizard Kings (2009) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592989.jpg" />
+</div>
+
+
+###  Подробнее
+
+От трехметрового комодского варана до карликового варана длиной в 20 см, эти ящерицы - не типичные рептилии. Вараны отличаются от всех остальных ящериц. Они свирепы, сильны и очень умны. Некоторые из них гиганты другие пигмеи, но столь разными этим древних хищников делает именно их характер. Вараны ящерицы понимающие свой статус, они знают что находятся на вершине (   Читать дальше...   )Производство: Австралия, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Гизела КауфманнПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B79D11B3FEB8AA80057A27F3E73F95B02C34706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233460   (592969) от 30.06.2018
+
+NG: Экспедиция на Марс / Expedition Mars (2016) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марс, обладая своеобразными условиями и атмосферой, является весьма трудной планетой для изучения. Однако его расположенность дает возможности человеческой цивилизации отправлять не только спутники, но и марсоходы, собирающие информацию и посылающие ее на Землю. Именно по этой причине эта планета вызывает искренний интерес у ученых, исследователей и тех, кому не (   Читать дальше...   )Производство: США, National Geographic ChannelsЖанр: Документальный, научно-познавательный, космосРежиссер: Марк ДэвисПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 01:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:393EA29E20538C180412CA8DB3844ABE666339D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233445   (592877) от 30.06.2018
 
 NGW: Змеи в городе / Snakes in the city (2015-2017) HDTV [H.264/1080i-LQ] (Сезоны 3;4, эпизоды 1-10) (Обновляемая)
@@ -6,7 +84,7 @@ NGW: Змеи в городе / Snakes in the city (2015-2017) HDTV [H.264/1080i
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592877.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ NG: Египет с величайшим исследователем в мир�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592709.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591157.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589748.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ NG: Дикая сторона кошек / Wild Side of Cats (2012) HDTVRip [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589503.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ NG: Дикая река Конго / Wild Congo (2013) HDTVRip [H.264/720p-LQ] (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589172.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ NGW: Дикие охотники. Змеи / Wild Hunters. Snakes (2019) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586168.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ NG: Миссия Плутон (Встреча с Плутоном) / Mission Plu
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585749.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ NGW: Хищник в раю. На мелководье / Predator in Paradise. I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_582144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_582144.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580873.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578795.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ NGW: Пир драконов / Dragons Feast (Into the Dragon's Lair) (2012) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578058.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ NGW: Кошачья душа / Soul of the Cat (2017) HDTVRip [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577928.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ NGW: Дикая природа Индонезии / Wild Indonesia (2014) HDTV [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577867.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ NG: Хиросима: На следующий день / Hiroshima: The Next Dey
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577835.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ NG. Настольная книга диктатора / Dictators Rulebook (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577517.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ NGW: Птичья популяция / Bird Nation (2018) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576000.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ NGW: Хищник в раю. Прибрежные убийцы / Predator in Par
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575995.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ NGW. Королевство обезьян: Брат против брата / K
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575987.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ NGW: По следам мифических чудовищ. Монгольски
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575784.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ NG: Суперсооружения Третьего рейха / Nazi Megastruct
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575191.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ NG: Суперсооружения Третьего рейха / Nazi Megastruct
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575186.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ NG: Осушить океан: затонувший город пиратов / 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574057.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ NG: Осушить океан: затонувший город пиратов / 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C78547FD395062FA6E744B57AB76474324ECB890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151537   (572596) от 19.07.2017
-
-NG: Восхождение чёрного волка / The Rise of black Wolf (2012) HDTVRip [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572596.jpg" />
-</div>
-
-
-###  Подробнее
-
-У волков есть свой свод законов - уважай иерархию, сохраняй порядок, соблюдай правила. Но, эта история о бунтовщике. Волке, что появился в национальном парке Йеллоустон, о несравнимом ни с кем вольном волке, играющем по собственным правилам. Он позволил по новому взглянуть на разум волка.Производство: США, National Geographic ChannelЖанр: Документальный, исследование, познавательный, природа, фаунаРежиссер: Тодд ХерманнПеревод: Одноголосый закадровый, профессиональный (АРК·ТВ)Субтитры: отсутствуютПродолжительность: 00:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:872C2F93A59BD31E15A7C5B6019017FA96533BF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151688   (572375) от 19.07.2017
-
-NG: Дикая природа Таиланда / Wild Thailand (2013) HDTV [H.264/1080i-LQ] (Серии 1-2 из 2)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Таиланд - страна красот и контрастов. Забытая и сокрытая от глаз дикая природа. Сезон дождей и засуха сменяют друг друга в нескончаемом круговороте. Это одно из самых богатых флорой и фауной мест на планете, приютившее 10 процентов видов животных на Земле.Производство: Дания, Таиланд, Greenasia Production Co., Nat Geo WildЖанр: Документальный, природа, фауна, флораРежиссер: Канит Прукпракарн, Петер РинггаардПеревод: Дублированный (АРК-ТВ)Субтитры: отсутствуютПродолжительность: 2 x ~00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C08166220D11B0CF253FEB13FAE597D2BCD818B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921964   (571685) от 27.07.2015
-
-NG: Последние львы / The Last Lions (2011) BDRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Львы мудрые и сильные животные по праву считаются царями природы. Так и было до недавнего времени… Человеческий эгоизм, неукротимая жажда развития поставила этот вид кошачьих на грань вымирания. Те особи, что остались в дикой природе, находятся под пристальным вниманием как защитников природы, так и алчных браконьеров. Ведь на черном рынке шкура льва стоит невероятно (   Читать дальше...   )Производство: США, БотсванаЖанр: Документальный, семейныйРежиссер: Дерек ЖуберАктеры: Джереми АйронсПеревод: Одноголосый закадровый, А.ДасевичЯзык субтитров: АнглийскийФормат: MKVПродолжительность: 01:29:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DD95C6274B2C03BF45302E016F42BC2CC26EB1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

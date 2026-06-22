@@ -6,7 +6,7 @@ Dogfight 1942 (2012) [Ru/Multi] (1.0/dlc) Repack =nemos= [Limited Edition]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865712.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Into the Stars (2016) [Ru/Multi] (1.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865514.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ X-COM: Interceptor (1998) [En] (1.2) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862024.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Starpoint Gemini 2 (2014) [Ru] (1.9200/dlc) Repack SEYTER
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835936.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Julai (2016) [En] (1.0) License PLAZA
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826426.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Terminus (2000) [Ru] (1.1) Unofficial
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807756.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Airplane Racer 2021 (2021) [Multi] (1.0) License DARKSiDERS
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797886.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Midnight Ohota (2021) [Ru/Multi] (1.0) License DARKSiDERS
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797261.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Jumpdrive (2018) [En] (1.0) License HI2U
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796005.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Ultra Fighters (1998) [En] (1.1) License
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794201.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Exo One (2021) [Ru/Multi] (21.11.18.1756) License CODEX
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787752.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Homeplanet (2005) [Ru/En] (1.0) License [Gold]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782575.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Space Engineers / Космические инженеры (2019) [Ru/Multi] (1.1
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769265.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ final m00n Defender of the Cubes (2019) [En/Ge] (1.0) License PLAZA
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761586.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Arc Savior (2019) [En] (1.01) License CODEX
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761498.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Leveron Space (2016) [En/Chi] (1.0.1.1) License CODEX
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758820.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Leveron Space (2016) [En/Zh] (1.0.1.1) Repack Other s
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758712.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Drox Operative 2 (2020) [En] (1.006) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741885.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Bomber Crew (2017) [Ru/Multi] (1.0/upd2) License PLAZA
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722841.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Ace Combat 7: Skies Unknown (2019) [Ru/Multi] (1.0.1/dlc) Repack xatab
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722287.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Vertical Strike Endless Challenge (2017) [En/Jp] (1.0) Repack Other s
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715762.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Space Engineers (2019) [Ru/Multi] (1.189.039) License CODEX
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710603.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Space Engineers (2019) [Ru/Multi] (1.189.039/dlc) SteamRip R.G. Origins [Deluxe 
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708616.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Dovetail Games Flight School (2016) [En/Multi] (1.0.8470) License HI2U
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689952.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Helicopter's Flight Simulators Collection Vol.1 / Коллекция симул�
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684989.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Gunship! / Gunship! Война в небе Война в небе (RePack) [Ru/E
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678496.jpg" />
 </div>
 
 

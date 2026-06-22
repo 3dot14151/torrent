@@ -1,3 +1,108 @@
+###  Публикация: 1569351   (453664) от 12.08.2022
+
+Джошуа Беккер | Дом минималиста (2020) [MP3, Андрей Крупник]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представьте жизнь, о которой всегда мечтали. Продуктивная. Осознанная. Избавленная от беспорядка и окруженная покоем и безмятежностью. Вы можете полюбить ваш дом еще больше, владея меньшим и организуя окружающее пространство. Применяя минимализм, вы сможете сосредоточиться самом важном: общении с близкими, путешествиях, любимом хобби и на том, чтобы жить более насыщенной (   Читать дальше...   )Жанр: СаморазвитиеПродолжительность: 07:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E15ACB18D994262BD291848A9DBA1E693AA99A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570160   (445009) от 16.08.2022
+
+Стивен Пинкер | Просвещение продолжается (2021) [MP3, Стефан Барковский]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вам кажется, что мир катится в пропасть, оглянитесь вокруг. Люди теперь живут дольше, они здоровее, свободнее и счастливее, чем когда бы то ни было.
+В захватывающем дух обзоре состояния человечества в третьем тысячелетии психолог и популяризатор науки Стивен Пинкер призывает нас отвлечься от сенсационных заголовков новостей и катастрофических предсказаний, которые (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 25:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A35DDB214A74BE4F05314A5DDA8FE0F0C40AF6AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061910   (441606) от 13.10.2016
+
+Владимир Мегре | Энергия Жизни (2013) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия книг объединена общей сюжетной линией; повествование ведётся от лица автора. Главной героиней является Анастасия — женщина, живущая в сибирской тайге. Все основополагающие идеи книг изложены от её лица. Основной идеей книг является идея создания «родовых поместий». В книге «Энергия Жизни» - притчи Анастасии о жизни человека, о достижении любви, представления (   Читать дальше...   )Жанр: ЭзотерикаПродолжительность: 09:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB84380C4271AC74332A708C9BF8745DC9C6A8AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570686   (440484) от 18.08.2022
+
+Коллектив авторов | Лекции по литературе (Лекторий ВШЭ) (2018) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Понятийная система русского языка XIX века, на первый взгляд, не содержит никаких секретов и чрезвычайно близка сегодняшнему словоупотреблению. Между тем зачастую оказывается, что привычные для нашего слуха категории в прошлом имели совсем иное значение, связывались с социальными и литературными практиками, не имеющими аналогов в современной культуре. Одному такому (   Читать дальше...   )Жанр: классическая прозаПродолжительность: 11:46:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DDC8B9370CF6AE0CA6A4D160D9FFD5210C5285E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410139   (438206) от 20.09.2020
 
 Марк Лашье-Рей | Эйнштейн на отдыхе. Постигаем теорию относительности (2020) [MP3]
@@ -6,7 +111,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438206.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438179.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436578.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434668.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434653.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431748.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429650.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429557.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429551.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425176.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422378.jpg" />
 </div>
 
 
@@ -293,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422258.jpg" />
 </div>
 
 
@@ -319,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421377.jpg" />
 </div>
 
 
@@ -345,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421222.jpg" />
 </div>
 
 
@@ -371,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421204.jpg" />
 </div>
 
 
@@ -397,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421195.jpg" />
 </div>
 
 
@@ -423,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421193.jpg" />
 </div>
 
 
@@ -449,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421046.jpg" />
 </div>
 
 
@@ -475,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420506.jpg" />
 </div>
 
 
@@ -501,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419325.jpg" />
 </div>
 
 
@@ -527,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419321.jpg" />
 </div>
 
 
@@ -553,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419101.jpg" />
 </div>
 
 
@@ -564,113 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB85E27C57EBCCC4BC43DA4D93E3BA08CC4B5CC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555606   (416326) от 09.10.2012
-
-А.В. Чечулин | Курильские острова. Чьи они? Мифы и действительность [2012] [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это издание посвящено территориальному спору, который имеет место в российско-японских отношениях.
-На основе документальных источников, достоверных исторических фактов и действующих норм международного права предпринята попытка анализа и осмысления того, что происходит вокруг Курильских островов. Эта аудиоформация позволяет в новом ракурсе осмыслить сущность территориальной проблемы, возникшей между Россией и Японией, и вынести каждому свое суждение по исследуемому вопросу.Жанр: наука, история
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA8325583F76F9F45EE49DD05B29437EAF6A4FD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168039   (412476) от 22.09.2017
-
-Роман Андронов | Аудио-Мысли. Личностный рост. Бизнес-статьи. Саморазвитие. Советы (2013) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аудио - статьи про успех, личностный рост, советы, саморазвитие. Для тех, кому интересно развиваться, достигать успехов, изучать что то новое в сфере саморазвития. Аудио - Статьи это как мини-аудиокнига. Интересно слушать под музыкальное сопровождение.Жанр: Личностный рост, саморазвитиеПродолжительность: 01:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDF6E66EFA54C44C5F74AC17B8AEEDEFC00E90F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065949   (409387) от 27.10.2016
-
-Серов Игорь | Действуй быстрее других (2009) [MP3, PDF, DOC]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это комплексный тренинг на развитие памяти и интуиции. Мы будем учиться мыслить образно, задействуя правое полушарие мозга. И как следствие – запоминать всё, что нам нужно помнить и принимать интуитивные решения в повседневной жизни.
-Приёмов запоминания очень и очень много. Самые полезные – те, которые работают быстро и эффективно – преподаются в оперативной психологии. (   Читать дальше...   )Жанр: Мнемотехники, ИнтуицияФормат: MP3, PDF, DOCПродолжительность: 15:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:612685E4DE509E8CC85143BAC817BEEF8A0A4FBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252425   (409086) от 05.10.2018
-
-Валентина Горчакова | Психология создания персонального бренда (2018) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаем вашему вниманию аудиокнигу известного психолога и имиджеолога Валентины Горчаковой «Психология создания персонального бренда».
-Что такое персональный брендинг? Возможно ли выделиться среди конкурентов, войти в систему современных маркетинговых коммуникаций будучи воспринимаемым окружающими как бренд? Возможно – уверяет автор. Значительная часть современного (   Читать дальше...   )Жанр: Саморазвитие, личностный ростПродолжительность: 15:25:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB4FF76BF4E3F265DD9BAF0FD7D4A08663FE9BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

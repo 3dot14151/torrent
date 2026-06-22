@@ -1,3 +1,56 @@
+###  Публикация: 791667   (714180) от 31.05.2014
+
+Лев Толстой | Крейцерова соната (2010) [MP3. Алексей Громов и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714180.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Крейцерова соната", еще до публикации разошедшаяся в списках, в свое время наделала шуму. Толстой вынес безжалостный приговор обществу, превратившему женщин в рабынь. По его мнению, женщины мстили за это, манипулируя инстинктами мужчин путем сознательного превращения себя в объекты вожделения. Беднягам, вынужденным жениться, всю последующую жизнь приходится (   Читать дальше...   )Жанр: КлассикаИздательство: 1C
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D25071E81BD7201F4E577FFC0349F25D5F95A7F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024489   (714144) от 10.06.2016
+
+Стефан Цвейг | Триумф и трагедия Эразма Роттердамского (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга о великом гуманисте эпохи Возрождения Эразме из Роттердама.
+Стефан Цвейг написал увлекательную и, можно сказать, проникновенную книгу о выдающемся нидерландском гуманисте эпохи Возрождения Дезидерии Эразме Роттердамском (1469-1536), которого наши читатели хорошо знают как автора "Похвалы глупости" и других произведений, привлекающих блеском ума и (   Читать дальше...   )Жанр: Зарубежная классикаПродолжительность: 07:20:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9E6052FF80DFED7C16A3E880A49B6ACF75686E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024607   (714074) от 10.06.2016
 
 Владимир Даль и др. | Великие исполнители [Том 13] (2012) [MP3]
@@ -6,7 +59,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714074.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713527.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713012.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712459.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711618.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711368.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710944.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709721.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708902.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708741.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708005.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707075.jpg" />
 </div>
 
 
@@ -320,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706612.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706361.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705916.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705552.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704757.jpg" />
 </div>
 
 
@@ -452,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700961.jpg" />
 </div>
 
 
@@ -478,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700528.jpg" />
 </div>
 
 
@@ -504,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699317.jpg" />
 </div>
 
 
@@ -530,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697716.jpg" />
 </div>
 
 
@@ -556,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697708.jpg" />
 </div>
 
 
@@ -582,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696943.jpg" />
 </div>
 
 
@@ -608,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696597.jpg" />
 </div>
 
 
@@ -619,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F541906A2FA27A1C19C2B5C9D77DE0749F7DAED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025773   (696191) от 19.06.2016
-
-Фрэнсис Скотт Фицджеральд | Великий Гэтсби (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман американского писателя Фрэнсиса Скотта Фицджеральда вышел в свет 10 апреля 1925 года и является в американской литературе типичным представителем так называемого «Века Джаза». Роман был начат Фицджеральдом в Нью-Йорке, а закончен и опубликован в Париже, где он тогда проживал во время своего путешествия по Европе. Действие романа, главной линией сюжета которого (   Читать дальше...   )Жанр: РоманПродолжительность: 06:54:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1824ED8DA20FB0DFB988B0D76F064C6DF425722
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 211475   (694906) от 20.06.2010
-
-Эрнест Хемингуэй | Зелёные холмы Африки [2007] [MP3, Всеволод Кузнецов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автобиографичная повесть Эрнеста Хемингуэя, вышедшая в 1935 году. Повествует об охоте писателя и его жены в африканских саваннах. В книге описано всё то, что происходило с Хемингуэем во время его двух сафари. События описаны не последовательно, автор слегка изменил их чередование. Сама книга повествует о волнениях, удачах и неудачах охоты, о жизни туземцев и окружающей (   Читать дальше...   )Жанр: повесть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8643142160A9084703516C88E800A8AB5DDF85F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 771219   (846975) от 27.03.2014
+
+Living Legends 2: Frozen Beauty / Живые Легенды: Ледяная Красавица (2013) [Ru] Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что и говорить, у правителей свои забавы. Устраивать конкурсы с выбором преемницы, готовить испытания участницам, а затем похищение. И все это ради сохранения собственной красоты. Пора поставить королеву на место и остановить эти магические штучки с мирными гражданами!(   Читать дальше...   )Тип издания: Неофициальное изданиеРазработчик: 4 Friends GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECF8B8ED9F111980A711FBC0360DA799B676C358
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499771   (845919) от 03.10.2021
+
+Immortal Love 8: Sparkle of Talent / Бессмертная любовь 8: Искра таланта (2021) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодому и талантливому актёру Оливеру редко когда выпадал шанс принять участие в крупном представлении, поэтому он и его жена Эмма едва сводят концы с концами. Но всё меняется, когда Оливер встречает таинственного и богатого господина Рэдклифа, который предлагает ему главную роль в серии спектаклей "Король-Ворон". Однако мечтам юноши о богатстве и славе (   Читать дальше...   )Тип издания: UnofficialРазработчик: Friendly Fox studioЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8160C0A273744CC95BD190011DDED93696D6B2D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 771359   (845206) от 28.03.2014
+
+Grim Legends: The Forsaken Bride / Зловещие легенды. Брошенная невеста (2014) [Ru] Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девушка приезжает на свадьбу сестры, но счастливое событие превращается в трагедию. На празднестве появляется огромный медведь и похищает невесту. Несчастный жених вместе с сестрой своей нареченной отправляется в погоню. Какие испытания и приключения придется пережить отважным преследователям? Начните это захватывающее приключение и спасите мир от Зла!(   Читать дальше...   )Тип издания: Неофициальное изданиеРазработчик: Artifex MundiЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4942950EA53DAE834749FFDB890157E9EAC7734F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002994   (845104) от 02.04.2016
+
+Whispered Secrets 5: Ever Burning Candle (2016) [En] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возникший пожар в местной психиатрической клинике носит характер сверхестественного происхождения. Вы, как детектив, призваны для расследования причин пожара и темных делишек, творившихся в лечебнице. На кону жизнь нескольких пациентов "изгоев". Кто эти так называемые "изгои", и почему они здесь, в клинике?Тип издания: UnofficialРазработчик: GrandMA StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2106F7EC0C5B725BBF82B95F1799C1860FFCC85C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002985   (845025) от 02.04.2016
 
 New York Mysteries 3: The Lantern of Souls (2016) [En] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -6,7 +110,7 @@ New York Mysteries 3: The Lantern of Souls (2016) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845025.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Lost Lands 7: Redemption / Затерянные земли 7: Искуплени
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844410.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Entwined 2: The Perfect Murder / Запутанное дело 2: Идеальн
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844409.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Frankenstein 2: The Village (2016) [En/Multi] (1.1) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842869.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Beyond the Invisible: Evening / За гранью невидимого: Суме
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842734.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Hidden Motives: The Diamond Rush / Скрытые мотивы: Алмазная
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842467.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ HdO Adventure. FBI: Paranormal cases / Мистические истории. С
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842296.jpg" />
 </div>
 
 
@@ -194,7 +298,7 @@ Halloween Stories 5: The Neglected Dead (2021) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839697.jpg" />
 </div>
 
 
@@ -220,7 +324,7 @@ Mystery of the Earl / Тайна пропавшего графа (P) [Ru] 2010
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839014.jpg" />
 </div>
 
 
@@ -251,7 +355,7 @@ Rack N Ruin (2015) [En/Multi] (1.03) Repack R.G. Механики
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837743.jpg" />
 </div>
 
 
@@ -277,7 +381,7 @@ Mind Snares: Alice's Journey / Ловушки Разума: Путешестви
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836688.jpg" />
 </div>
 
 
@@ -303,7 +407,7 @@ Legendary Tales 2: Cataclysm / Легендарные Предания 2: Кат
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836143.jpg" />
 </div>
 
 
@@ -329,7 +433,7 @@ Family Mysteries 2: Echoes of Tomorrow / Семейные тайны 2: Эхо �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835710.jpg" />
 </div>
 
 
@@ -355,7 +459,7 @@ Fear for Sale 4: Phantom Tide (2014) [En] Unofficial [Collector’s Edition / К
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834412.jpg" />
 </div>
 
 
@@ -381,7 +485,7 @@ Love Chronicles 5: Beyond the Shadows (2016) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832460.jpg" />
 </div>
 
 
@@ -407,7 +511,7 @@ Secret Trails: Frozen Heart / Секретные тропы: Ледяное се
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830578.jpg" />
 </div>
 
 
@@ -433,7 +537,7 @@ Dark Tales 9: Edgar Allan Poe's Metzengerstein / Темные Истории 9: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829405.jpg" />
 </div>
 
 
@@ -459,7 +563,7 @@ Halloween Chronicles 4: Behind the Door (2021) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828141.jpg" />
 </div>
 
 
@@ -485,7 +589,7 @@ Living Legends Remastered: Ice Rose (2020) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826027.jpg" />
 </div>
 
 
@@ -511,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825899.jpg" />
 </div>
 
 
@@ -537,7 +641,7 @@ Dead Link: Pages Torn / Цепи смерти: Обрывки страниц (20
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820613.jpg" />
 </div>
 
 
@@ -563,7 +667,7 @@ Grim Tales 18: The Generous Gift / Страшные сказки 18: Щедры�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818693.jpg" />
 </div>
 
 
@@ -574,110 +678,6 @@ Grim Tales 18: The Generous Gift / Страшные сказки 18: Щедры�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3A1FEA53B9C62A34EE726E1C005DE5E420E1DF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382710   (817089) от 12.05.2020
-
-Persian Nights 2: The Moonlight Veil (2020) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение сказочной игры Persian Nights. Twin Moons приближаются к полной фазе, и в Академии запрещено использование магии. Однако что-то пошло не так. В результате разрушения мощного магического канала исчезают два ученика и ваша сестра. Вы начинаете поиски и вскоре понимаете, что события гораздо масштабнее, чем можно было предположить. Вместе с существами, называемыми (   Читать дальше...   )Тип издания: UnofficialРазработчик: Artifex Mundi, SodigitalЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41E0BEB51774F28F168F8C8EC3338FF55807BE2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197502   (815423) от 07.01.2018
-
-Darkheart: Flight of the Harpies / Темное Сердце: Полет гарпий (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте новую увлекательную игру. Вам предстоит взять на себя роль мессии. Легенда гласит, что один злой маг смог завладеть тайной вечной жизни, украв души нескольких сельских жителей. Никто из смертных не мог ему противостоять. Но в пророчество значится, что найдется храбрец, который бросит вызов злу. Однажды маг отправил своих гарпий за новыми душами. И среди (   Читать дальше...   )Тип издания: UnofficialРазработчик: Lazy Turtle GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E865230B4A124A56E06B34AF67340709AE15564
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197568   (815419) от 07.01.2018
-
-Myths of the World 13: Behind the Veil / Мифы народов мира 13: За завесой (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение захватывающей мистической серии игр Myths of the World. Вы отправляетесь домой чтобы отпраздновать вместе с сестрой "Dia de Muertos" — праздник, посвящённый памяти умерших! Но все планы идут под откос, когда злые тени нападают на местных жителей, а Вашу сестру похищают... Теперь Вам предстоит найти этих злых духов и спасти город. Сможете ли (   Читать дальше...   )Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69EE7C35BE8B5E320E462A58365B7FCC299A14FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383028   (814926) от 13.05.2020
-
-Castle. Never Judge a Book by Its Cover / Касл. Не судите книгу по обложке (2013) [Ru] (1.0) Unofficial
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра-детектив, созданная по мотивам сериала "Касл". Детектив Кейт Беккет и писатель Ричард Касл расследуют дело маньяка, которого журналисты окрестили "Убийцей в твердом переплете". Жертвами становятся люди, причастные к книжной индустрии. Чего добивается убийца и не попадёт ли под удар сам Касл? В игре вы проведете настоящее расследование. В (   Читать дальше...   )Тип издания: UnofficialРазработчик: Game Mill Entertainment, Gunnar GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4EB7656E60954E0E45B76373B8230C8AC982BC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

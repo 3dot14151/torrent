@@ -1,3 +1,29 @@
+###  Публикация: 1819515   (1467) от 22.09.2025
+
+Фотография - Proko - Poses for Artists - Hands [JPG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Позы рук для художников: мужские и женские. Они отлично подходят для практики рисования рук и изучения анатомии. Независимо от того, изучаете ли вы жесты, структуру, ракурс, штриховку, пропорции или просто ищете референс для иллюстрации.Формат: JPGРазрешение файлов: 1080x1920 - 4500x3375
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4A02163DD169CE6545846B2F73E48F4CC0E1634
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819700   (1356) от 23.09.2025
 
 Фотография - ArtStation - Everyday Drawing Art Poses 850+ - JpmN7 [JPG]
@@ -6,7 +32,7 @@
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1356.jpg" />
 </div>
 
 

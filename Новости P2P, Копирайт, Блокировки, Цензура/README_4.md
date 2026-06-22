@@ -1,3 +1,133 @@
+###  Публикация: 1730473   (53181) от 16.06.2024
+
+DNS-резолверы – новая линия фронта: Google, Cloudflare и Cisco должны блокировать пиратские трансляции
+
+>>След.
+>>Новости P2P, Копирайт, Блокировки, Цензура
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Суд обязал Google, Cloudflare и Cisco блокировать доступ к пиратским спортивным сайтам.Французский суд принял решение, согласно которому компании Google, Cloudflare и Cisco должны вмешиваться в работу своих DNS-резолверов для предотвращения обхода блокировок, направленных на около 117 пиратских спортивных сайтов. Это очередной шаг в борьбе с пиратством со стороны (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733427   (51527) от 30.06.2024
+
+Корейский провайдер решил наказать пользователей торрентов вирусами, но теперь наказание грозит ему самому
+
+>>Поговорим
+>>Новости P2P, Копирайт, Блокировки, Цензура
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из крупнейших южнокорейских интернет-провайдеров KT Corporation намеренно заразил компьютеры более 600 тыс. пользователей вредоносным ПО за то, что те пользовались торрент-сервисом. Таковы результаты журналистского расследования, проведённого местной телекомпанией JTBC.Проблема обозначилась в мае 2020 года, когда клиенты завалили корейского поставщика облачных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735887   (50464) от 10.07.2024
+
+Apple по требованию РКН удалила из российского App Store ещё 10 VPN-сервисов
+
+>>След.
+>>Новости P2P, Копирайт, Блокировки, Цензура
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50464.jpg" />
+</div>
+
+
+###  Подробнее
+
+По информации профильных источников, Apple по требованию Роскомнадзора удалила из российского App Store ещё 10 VPN-сервисов, включая копию PlanetVPN (оригинал был удалён месяц назад), AdGuard VPN, Ru VPN, TOP VPN, Potato VPN, VPN super - Proxy Master, Turbo VPN, VPN TM, VPNIFY и TipTop VPN. Это всё приложения, которые позиционировали себя как средство для обхода (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749815   (43418) от 16.09.2024
+
+В Австралии планируют запретить доступ в соцсети для детей младше 16 лет
+
+>>След.
+>>Новости P2P, Копирайт, Блокировки, Цензура
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Премьер-министр Австралии Энтони Альбанезе заявил, что правительство собирается ввести запрет на доступ к социальным сетям для подростков и детей до 16 лет в скором времени.Чиновник объявил, что внесёт в парламент к концу 2024 года законопроект, который заблокирует детям доступ к социальным сетям и другим цифровым платформам, если они не достигли определённого возраста (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750638   (42669) от 23.09.2024
+
+Илон Маск нашел способ обойти запрет X в Бразилии
+
+>>След.
+>>Новости P2P, Копирайт, Блокировки, Цензура
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Техническая лазейка помогла соцсети вновь заработать после блокировок.Соцсеть X вновь заработала в Бразилии после трёхнедельной блокировки по решению Верховного суда страны. Это стало возможным благодаря техническому манёвру — изменению маршрутизации интернет-трафика. Компания использовала сервис Cloudflare, чтобы обойти блокировки, установленные бразильскими интернет-провайдерами.Глава (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751564   (42368) от 26.09.2024
 
 Apple заблокировала в российском App Store вдвое больше сервисов VPN, чем официально требовал Роскомнадзор
@@ -6,7 +136,7 @@ Apple заблокировала в российском App Store вдвое б
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42368.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38535.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38251.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35019.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33610.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32854.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30479.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27680.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19729.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13425.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10637.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9997.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9197.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8613.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3077.jpg" />
 </div>
 
 

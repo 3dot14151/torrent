@@ -1,3 +1,58 @@
+###  Публикация: 1270364   (157286) от 19.12.2018
+
+LRTimelapse Pro 5.1.1 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157286.jpg" />
+</div>
+
+
+###  Подробнее
+
+LRTimelapse — программа предназначена исключительно для профессионалов и опытных фото-любителей. Ее функции заключаются в обработке интервальных съемок (timelapse, цейтраферная съемка). Основная фишка программы, это автоматическая установка параметров: экспозиция, контраст и т д., для каждого файла, фото-изображения, по нескольким ключевым кадрам.
+
+Интервальная съемка (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.12.2018Разработчик: Gunther WegnerПоддерживаемая ОС: OS X 10.8 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06FF8B2275DEFA607011A1F16CB28875C813C833
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433701   (156320) от 21.12.2020
+
+Capture One 20 Pro 13.1.4 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Capture One Pro один из самых мощных профессиональных конверторов цифровых фотографий в формате RAW с поддержкой широкого модельного ряда современных фотокамер. Программа позволяет в одиночном и пакетном режимах конвертировать "на лету" файлы в полноразмерный TIFF (RGB / CMYK) и JPG форматы, корректировать баланс белого, эффективно обрабатывать "пересвеченные" (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Phase OneПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Русский, Английский, Немецкий и др.
+* язык интерфейса приложения зависит от дефолтного языка операционной системы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1544B1AA5BAD306179BC5854925BC54C0496D480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346870   (155770) от 21.12.2019
 
 Teorex iResizer 3.0 [Multi/Ru]
@@ -6,7 +61,7 @@ Teorex iResizer 3.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155770.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Affinity Designer Beta 1.10.5.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155369.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ Affinity Photo Beta 1.10.5.270 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155363.jpg" />
 </div>
 
 
@@ -85,7 +140,7 @@ PhotoChef 1.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155162.jpg" />
 </div>
 
 
@@ -111,7 +166,7 @@ Templates for Photoshop by GN 1.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155049.jpg" />
 </div>
 
 
@@ -139,7 +194,7 @@ TechSmith Snagit 2022.0.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154083.jpg" />
 </div>
 
 
@@ -165,7 +220,7 @@ Aerate Pro 2.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153192.jpg" />
 </div>
 
 
@@ -192,7 +247,7 @@ Xee 3.5.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152794.jpg" />
 </div>
 
 
@@ -218,7 +273,7 @@ Color Palette from Image Pro 2.2.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152481.jpg" />
 </div>
 
 
@@ -244,7 +299,7 @@ Noise Reducer Pro 1.8 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151774.jpg" />
 </div>
 
 
@@ -270,7 +325,7 @@ Pixelmator Pro 1.5.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151703.jpg" />
 </div>
 
 
@@ -298,7 +353,7 @@ ON1 Photo RAW 2020.6 v14.6.0.9837 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151641.jpg" />
 </div>
 
 
@@ -324,7 +379,7 @@ Vectorize! 1.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151361.jpg" />
 </div>
 
 
@@ -350,7 +405,7 @@ SuperPhoto 2.21 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149991.jpg" />
 </div>
 
 
@@ -379,7 +434,7 @@ GIF'ted 2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149901.jpg" />
 </div>
 
 
@@ -405,7 +460,7 @@ Panorama 2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149836.jpg" />
 </div>
 
 
@@ -431,7 +486,7 @@ TouchRetouch for Mac 2.3.5 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149717.jpg" />
 </div>
 
 
@@ -460,7 +515,7 @@ ACDSee Photo Studio 8 v8.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148125.jpg" />
 </div>
 
 
@@ -487,7 +542,7 @@ Affinity Publisher 1.10.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147807.jpg" />
 </div>
 
 
@@ -514,7 +569,7 @@ JixiPix Rip Studio Pro 1.1.18 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147753.jpg" />
 </div>
 
 
@@ -540,7 +595,7 @@ Affinity Designer 1.10.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147708.jpg" />
 </div>
 
 
@@ -567,7 +622,7 @@ Affinity Photo 1.10.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147656.jpg" />
 </div>
 
 
@@ -593,7 +648,7 @@ Icons8 5.7.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145155.jpg" />
 </div>
 
 
@@ -619,7 +674,7 @@ JixiPix Aquarella 1.38 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144712.jpg" />
 </div>
 
 
@@ -630,58 +685,6 @@ Aquarelle - прекрасный прозрачный и светлый худо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:637D8F33CCDF408018297BBE4B8B845D1789F340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435401   (144704) от 28.12.2020
-
-JixiPix Rainy Daze 1.23 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rainy Daze привносит силу и эмоции в ваши фотографии с этим потрясающим эффектом дождя. Окутайте свои фотографии романтическим сиянием мягкого тумана, очистите пейзажи от несовершенства и внесите в свое личное самовыражение капли смысла, большие и маленькие, быстрые или плавные.Тип издания: macOS SoftwareРелиз состоялся: 25.12.2020Разработчик: JixiPix Software, LLCПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0423486526CF7BDDF0C46ECEAA23ABD05A70FF4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435403   (144688) от 28.12.2020
-
-JixiPix Romantic Photo 2.3.5 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144688.jpg" />
-</div>
-
-
-###  Подробнее
-
-JixiPix Romantic Photo автоматически создает романтическое настроение или обстановку из любого фото. Благодаря изысканному освещению и дизайну ваши фотографии будут выглядеть так, как будто они были сделаны с использованием высочайших профессиональных технологий и фильтров камеры.Тип издания: macOS SoftwareРелиз состоялся: 25.12.2020Разработчик: JixiPix Software, LLCПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC09A48FBA4B07BF246D118782DF474E9BB16454
 ```
 
 https://mybot314.ru/tekegram_catalog/

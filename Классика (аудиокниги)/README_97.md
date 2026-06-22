@@ -1,3 +1,59 @@
+###  Публикация: 1796018   (19033) от 07.05.2025
+
+Александр Твардовский | Василий Тёркин. Главы поэмы (2023) [MP3, Александр Лыков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Литературные чтения.
+Александр Трифонович Твардовский (1910–1971) – советский писатель и поэт. Главный редактор журнала «Новый мир» (1950–1954; 1958–1970).
+Поэма «Василий Тёркин» одно из главных произведений в творчестве поэта, получившая всенародное признание. Поэма посвящена вымышленному герою – Василию Тёркину, солдату Великой Отечественной войны. (   Читать дальше...   )Жанр: Русская литература, классика, поэмаИздательство: Радио России – Санкт-ПетербургПродолжительность: 01:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10DDFD101EBD38F101F26DF5D525FB19F284B62D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796019   (19024) от 07.05.2025
+
+Александр Твардовский | Василий Тёркин. Книга про бойца (2007) [MP3, Виктор Татарский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Военная поэзия.
+Александр Трифонович Твардовский (1910–1971) – советский писатель и поэт.
+Поэма «Василий Тёркин», весёлая и печальная, проникновенно-лирическая и в то же время насыщенная «фронтовой хроникой», – одно из самых ярких произведений советской поэзии военного времени. Собирательный образ русского солдата, находящего выход из самых трудных положений, (   Читать дальше...   )Жанр: Русская литература, классика, поэмаИздательство: 1С-Паблишинг, VOX recordsПродолжительность: 03:38:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57CEFFDA7AC7B0371763C63E8DB0A1A36288882A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810157   (17634) от 03.08.2025
 
 Ги де Мопассан | Лунный свет. Сборник новелл (2022) [MP3, Наталья Первина]
@@ -6,7 +62,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17634.jpg" />
 </div>
 
 
@@ -34,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17525.jpg" />
 </div>
 
 
@@ -63,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17294.jpg" />
 </div>
 
 
@@ -91,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16679.jpg" />
 </div>
 
 
@@ -117,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16350.jpg" />
 </div>
 
 
@@ -143,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15741.jpg" />
 </div>
 
 
@@ -172,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14719.jpg" />
 </div>
 
 
@@ -201,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13682.jpg" />
 </div>
 
 
@@ -229,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13672.jpg" />
 </div>
 
 
@@ -255,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13257.jpg" />
 </div>
 
 
@@ -284,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13250.jpg" />
 </div>
 
 
@@ -312,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13249.jpg" />
 </div>
 
 
@@ -338,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12934.jpg" />
 </div>
 
 
@@ -365,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12663.jpg" />
 </div>
 
 
@@ -393,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12645.jpg" />
 </div>
 
 
@@ -421,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12644.jpg" />
 </div>
 
 
@@ -447,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12641.jpg" />
 </div>
 
 
@@ -473,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12553.jpg" />
 </div>
 
 
@@ -499,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11819.jpg" />
 </div>
 
 
@@ -526,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11493.jpg" />
 </div>
 
 
@@ -555,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11312.jpg" />
 </div>
 
 
@@ -583,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11192.jpg" />
 </div>
 
 
@@ -609,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11072.jpg" />
 </div>
 
 
@@ -635,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10478.jpg" />
 </div>
 
 
@@ -649,63 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:832B70285A8962A5837F1753B777EF1081FD576D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 417283   (10127) от 28.07.2025
-
-Габриэль Гарсиа Маркес | Сто лет одиночества (2004) [MP3, Александр Балакирев]
-
->>След.
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: «XX век. Зарубежная проза».
-Габриэль Гарсиа Маркес – прославленный колумбийский литератор, лауреат Нобелевской премии (1982), один из самых знаменитых писателей ХХ века.
-«100 лет одиночества» (1967) – лучший роман Гарсиа Маркеса, переведенный на языки большинства стран мира и вошедший в сокровищницу мировой литературы. Роман признан шедевром латиноамериканской (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Маргарита БылинкинаИздательство: Студия «АРДИС»Продолжительность: 16:01:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:801A4DDD197FB9757403248E07D9B42DEAA560EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821049   (8534) от 30.09.2025
-
-Джером К. Джером | Томми (Радиоспектакль) (1988) [MP3, Олег Табаков, Марина Неёлова и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Из архива «Гостелерадиофонда».
-Джером Клапка Джером (1859–1927) – английский писатель-юморист, драматург.
-Радиоспектакль роману Джером Клапка Джерома «Томми и Ко» (1904). Рассказ о том, как некий доктор рассмотрел в маленьком оборванце не просто девочку...
-(   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: ГостелерадиофондПродолжительность: 00:53:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60B0E89A032DF2D933F67DCE39160094958E94B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

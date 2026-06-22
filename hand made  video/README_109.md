@@ -1,3 +1,29 @@
+###  Публикация: 1695490   (120228) от 30.01.2024
+
+Миранда / Miranda (1985) HDRip [H.264/1080p] [Handmade correction AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миранда - хозяйка гостиницы, трактирщица. Ее неотразимая красота и потрясающая сексуальность влекут, соблазняют, покоряют и подчиняют мужчин. Ее гостиница - настоящий клуб поклонников Миранды. Но выбирает всегда она. И только самый страстный, безумно, но тайно желающий ее - терпеливо ждет своего часа.Производство: Италия, San Francisco FilmЖанр: мелодрама, комедия, для взрослых, эротикаРежиссер: Тинто БрассАктеры: Серена Гранди, Андреа Оккипинти, Франко Интерленги, Энди Дж. Форест, Франко Бранчароли, Мализа Лонго, Лаура Сасси, Изабель Ийе Жан, Рене Лемойн, Лучана ЧиренеиПеревод: Двуголосый профессиональный, авторскийЯзык озвучки: русский, английский, итальянский, немецкийСубтитры: немецкиеПродолжительность: 01:35:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2153636FC56D41F7DDC75D96144AD47B2656F707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695680   (120214) от 30.01.2024
 
 Доберман / Dobermann (1997) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120214.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120212.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120033.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120031.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120023.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120015.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119900.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119889.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119880.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119738.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119726.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119561.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119558.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119557.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119534.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119518.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119414.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118867.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118718.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118678.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118498.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118371.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118360.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118333.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118198.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EA0B55F919B9A0BE464BDD5FA393F40EDAFBF66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694969   (118171) от 11.02.2024
-
-Председатель (1964) DVDRip [H.264/1080p] (серии 1-2 из 2) [50fps] [Колоризованная версия] [hand made Upscale AI]
-
->>След.
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тяжелый послевоенный 1947 год. Фронтовик Егор Трубников возвращается в родную деревню восстанавливать разоренное хозяйство. Ему приходится нелегко. Став председателем, он берет на себя ответственность не только за колхозные дела, но и за судьбы людей...Производство: СССР / «Мосфильм»Жанр: драмаРежиссер: Алексей СалтыковАктеры: Михаил Ульянов, Иван Лапиков, Нонна Мордюкова, Вячеслав Невинный, Валентина Владимирова, Николай Парфенов, Кира Головко, Антонина Богданова, Владимир Этуш, Сергей КуриловЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55F0FE7E404435A00784E68C257109629D5DDF22
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1243836   (29537) от 28.01.2025
+
+BBC: Аляска. Земли замёрзшего королевства / Alaska. Earth's Frozen Kingdom (2015) HDTVRip [H.264/720p-LQ] (Сезон 1, серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Её называют последней границей Америки. 500 тысяч квадратных миль пустыни. Это Аляска. Дом для самых выносливых животных планеты. Времена года на Аляске сменяются быстро и резко, а потому возможностей гораздо меньше, как для людей, так и для животных. “Выживание” здесь звучит так же серьёзно, как “золотая лихорадка”. Играйте по правилам – и сорвёте джек-пот. Ошибётесь (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: Документальный, природа, флора, фаунаРежиссер: Джейн Эткинс, Алекс ЛанчестерУчастники: Дугрей СкоттПеревод: Одноголосый закадровый, профессиональный (Viruse Project)Субтитры: отсутствуютПродолжительность: 3 x ~ 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30DC81333B1CE2289F2D4BE1C349A875C5E6DB5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330019   (29528) от 28.01.2025
 
 BBC: Вулканы в космосе / Space Volcanoes (2017) HDTV [H.264/1080i] (Сезон 53, эпизод 6)
@@ -6,7 +32,7 @@ BBC: Вулканы в космосе / Space Volcanoes (2017) HDTV [H.264/1080i
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29528.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ BBC. Нас уже 7.7 миллиардов человек. Дальше - бо�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29357.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ BBC: Horizon. Тёмная сторона Всемирной Паутины / In
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29334.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ BBC: Теории заговора: Тайное правительство и �
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29303.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ BBC. Подделка или удача / Fake or Fortune? (2011) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28997.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ BBC. История возникновения лекарств (Спасите�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28993.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ BBC. Охота / The Hunt (2015) BDRemux [H.264/1080p] (сезон 1, сери�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28957.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ BBC: Майти Буш / The Mighty Boosh (2004-2007) DVDRip (сезоны 1-3) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28952.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28931.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28920.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ BBC: Чем мы кормим наших детей? / What Are We Feeding Our K
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28829.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ BBC. Чудеса природы: жизнь на краю Земли / Earth's 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28821.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ BBC: Тайны Тихого океана / South Pacific (Wild Pacific) (6 се
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28739.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ BBC: Плотоядные. Касатка  / Wildlife Specials. Killer Whale (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28638.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ BBС. Внутренняя вселенная: Тайная жизнь клет�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28637.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ BBC. Операция Стоунхендж: Тайна, скрытая под к
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28621.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28597.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ BBC. Суперчувство / Суперчувства животных / Supe
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28583.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ BBC: Дикая Патагония / Wild Patagonia (2015) BDRip [H.264/1080p] (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28576.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28549.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ BBC: Саймон Шама - История Британии / BBC: Simon Schama
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28500.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28475.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ BBC: Космическая одиссея. Путешествие по гала
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27587.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26512.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ BBC. Вселенная / Universe / Das Universum - Faszination Weltall (2022) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21091.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ BBC. Вселенная / Universe / Das Universum - Faszination Weltall (2022) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B0AF73E5C89BC5D1C08ABBE7BF971A9EAAF86C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598445   (21068) от 18.04.2025
-
-BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.265/2160p] [4K, HDR, 10-bit] (Сезон 1, эпизод 1-7 из 7)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несмотря на то, что вода занимает две трети планеты, о глубинах океана мы знаем меньше, чем о поверхности Луны. Сериал открывает всю красоту и очарование океана, поражая воображение многообразием его обитателей. Использование новейших технологий и уникального оборудования для глубоководных съёмок раскроют зрителю самые сокровенные тайны мирового океана и позволят (   Читать дальше...   )Производство: Великобритания, BBC Natural History Unit (NHU), BBC StudiosЖанр: Документальный, природа, путешествие, флора, фаунаРежиссер: Дэвид АттенбороУчастники: Дэвид АттенбороПеревод: многоголосый любительский (ColdFilm)Язык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: ~00:53:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0BCF9C0FA77147DD238BDD3E522AE8EA2B98558
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,109 @@
+###  Публикация: 931518   (510947) от 27.08.2015
+
+Борис Никитин | Роковые годы (1937) [FB2, RTF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Войны всегда начинают политики, и именно политики их заканчивают.
+В чем причина победы большевиков и поражения Белого движения? В том, что с одной стороны были политики, а с другой стороны политиков не было. Были честные офицеры. Патриоты. Но не политики.
+Борис Владимирович Никитин, мемуары которого Вы читаете, был человеком весьма осведомленным. В 1917 году он был (   Читать дальше...   )Жанр: Мемуары, ИсторияФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FB5074C4726E722157A63AD6FE15E85377BB562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932012   (510276) от 28.08.2015
+
+А. Гринберг (ред.) | Беспризорные о себе (1925) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510276.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге собраны рассказы беспризорных детей о своей жизни, войне, голоде, эксплуатации со стороны взрослых.Жанр: История, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92E9C5370D948058B6D7E26D024711A439451863
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932017   (510265) от 28.08.2015
+
+Э. И. Дейчман | Алкоголизм и борьба с ним (1929) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510265.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге освещены медицинские, социальные, экономические последствия алкоголизма в России и СССР, данные о потреблении различных видов алкогольной продукции в нашей стране в годы НЭПа, мероприятия Советской власти по борьбе с алкоголизмом.Жанр: История, медицина, социология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B0C0358A471E2CB6E03709F64584A073FF619F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932849   (507258) от 31.08.2015
+
+Б. И. Кошечкин | Сын Новой Земли (1980) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очерк посвящен путешественнику и художнику Тыко Вылке, который вместе с выдающимся ученым и исследователем Арктики В. А. Русановым участвовал в экспедициях на Новой Земле. После Великой Октябрьской социалистической революции помогал первым советским экспедициям, изучавшим далекий остров. Как художник, первый дал правдивые картины природы сурового края, способствовал (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADD93636B6FDFA2C24D015091AACFD62F72D1CCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932028   (507253) от 31.08.2015
 
 С. Н. Канев | Октябрьская революция и крах анархизма [Борьба партии большевиков против анархизма 1917—1922 гг.] (1974) [PDF]
@@ -6,7 +112,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507253.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507174.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506819.jpg" />
 </div>
 
 
@@ -86,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506159.jpg" />
 </div>
 
 
@@ -112,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504616.jpg" />
 </div>
 
 
@@ -138,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503666.jpg" />
 </div>
 
 
@@ -164,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503564.jpg" />
 </div>
 
 
@@ -191,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500634.jpg" />
 </div>
 
 
@@ -219,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500555.jpg" />
 </div>
 
 
@@ -245,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499395.jpg" />
 </div>
 
 
@@ -271,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498614.jpg" />
 </div>
 
 
@@ -297,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497068.jpg" />
 </div>
 
 
@@ -325,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496482.jpg" />
 </div>
 
 
@@ -351,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496104.jpg" />
 </div>
 
 
@@ -377,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495648.jpg" />
 </div>
 
 
@@ -403,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494603.jpg" />
 </div>
 
 
@@ -429,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494375.jpg" />
 </div>
 
 
@@ -455,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494366.jpg" />
 </div>
 
 
@@ -481,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494213.jpg" />
 </div>
 
 
@@ -507,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494190.jpg" />
 </div>
 
 
@@ -533,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493704.jpg" />
 </div>
 
 
@@ -559,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492382.jpg" />
 </div>
 
 
@@ -570,113 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FB041982B14C1203FFCEDEA2369B87C322EE90B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054847   (492380) от 20.09.2016
-
-Я. И. Руднев | Народы мира. Этнографические очерки (1928) [DJVU, PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автором сделана достаточно удачная попытка этнографически охарактеризовать многочисленные народы земного шара в их главных физико-антропологических, общественно-социальных, хозяйственных, религиоведческих чертах. Во вводной части тома дан обзор этнографии как описательной части народоведения, определена ее роль в разработке классификации народов мира, определены (   Читать дальше...   )Жанр: История, науковедение, этнография, языкознание, культурология, искусство, социологияФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0902AD3778FE7A73A9E29F727FA9DB18E15612E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054212   (492350) от 20.09.2016
-
-А. В. Мелехин (сост.) | Чингисхан. Имперская идея (2016) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492350.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге «Чингисхан. Имперская идея» повествуется о том, что вдохновляло великого правителя и полководца Чингисхана на столь обширные завоевания и каковы были глубинные причины огромных успехов ведомого им народа.
-
-В первом разделе книги вы узнаете об основанном Чингисханом монгольском тэнгэризме как идеологии кочевой империи, которой он придавал не меньше значения, (   Читать дальше...   )Жанр: История, этнография, культурологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:458E05424C645E106A5AEEFC14EEED5AFE221431
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054995   (488358) от 22.09.2016
-
-Шарль Бенар | Воспоминания о 1812 годе. Французский узник в России (1907) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторский перевод (с французского) "Воспоминания о 1812 годе. Французский узник в России" Шарля Бенара, сержанта 4-го линейного полка французской наполеоновской армии с сохранением некоторых оборотов речи и стиля письма, присущих XIX столетию.
-В 19 лет он участвовал в русской кампании 1812 года. Со своим полком прошел от Булонь-сюр-Мер, на западе Франции, (   Читать дальше...   )Жанр: ИсториографияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F362B2AB354471868D57E6F23D1FABF0C90D4CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243712   (488277) от 29.08.2018
-
-А. П. Семенников | Политика Романовых накануне революции [От Антанты - к Германии] (1926) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда царская власть, поддерживаемая широкими слоями буржуазии, начинала войну, то ей рисовался «победоносный мир», который казался обеспеченным, и особенно благодаря «дружбе» и «единению» с союзниками. Но прошли месяцы, истек год войны — победы не было: были лишь тяжелые поражения, все более и более расшатывавшие позиции самодержавия. Постепенно перспектива победоносного (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA6B51086B0A61DD5DF2115DEFDAE55D8EC01334
 ```
 
 https://mybot314.ru/tekegram_catalog/

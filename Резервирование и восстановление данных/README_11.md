@@ -6,7 +6,7 @@ GameSave Manager 3.1.535.0 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118632.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ AOMEI Backupper Technician Plus 8.0.0 Repack (& Portable) by elchupacabra [Multi
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117653.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ MiniTool Power Data Recovery 11.8 Technician RePack by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116746.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Hasleo Backup Suite 4.2 Portable by Игорь2011 [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114058.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ DiskGenius Pro 5.6.0.1565 (x64) Portable by FC Portables [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106811.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ R-Drive Image System Recovery Media Creator 7.2 Build 7201 RePack (& Portable) b
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62508.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Uranium Backup 9.9.0.7469 Free [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60678.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ AOMEI Backupper Pro 7.3.5 [Multi/Ru] (акция Comss)
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59671.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ FonePaw Android Data Recovery 6.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58564.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ MiniTool ShadowMaker Pro 4.2.0.66 (x64) Portable by 7997 [Multi]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57780.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ GetDataBack Pro 5.71 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55964.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Reboot Restore Rx Professional 12.7 Build 2709799653 RePack by KpoJIuK [Multi/Ru
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55577.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ FBackup 9.9.926 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51310.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Recuva Professional / Business / Technician 1.54.120 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50936.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ iFind Data Recovery Enterprise 9.2.2.0 [Multi]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50554.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Aiseesoft Data Recovery 1.8.22 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49948.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ AOMEI Backupper Technician Plus 7.4.0 WinPE by Updated Edition [Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47791.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ DiskGenius Pro 5.6.1.1580 (x64) Portable by Жека [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44247.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ RollBack Rx Professional 12.7 Build 2710121211 RePack by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43720.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Veeam Agent 6.2.0.121 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42132.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Eassos DiskGenius Professional 5.6.1.1580 RePack (& Portable) by elchupacabra [M
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41535.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Wise Data Recovery Pro 6.2.0.517 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41504.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Acronis Boot Disk 2024 05.10.24 Grub4Dos+EFI:GRUB2x64 by Bombokot [Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41436.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Macrium Reflect 8.1.8017 [Multi]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40244.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Macrium Reflect Server Plus v 7.3.5672 x64 BootCD [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34198.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ iFind Data Recovery 9.7.40.0 RePack (& Portable) by elchupacabra [Multi]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29227.jpg" />
 </div>
 
 

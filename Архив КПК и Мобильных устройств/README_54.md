@@ -6,7 +6,7 @@ Minecraft - Pocket Edition v.0.9.5 alpha [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589139.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Washington Post v6.5.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588998.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Guardian - News & Sport v6.82.13333 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588996.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588944.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Chronus: Home & Lock Widget 20.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588913.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Chronus: Home & Lock Widget 20.0 Mod by Rajat [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588883.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588610.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ QuickEdit Text Editor Pro 1.8.6 Mod by KirIif' [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588519.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ SeriesGuide – менеджер фильмов и сериалов 64.0.7 Mod b
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587621.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ DIGI Clock Widget Plus 3.1.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587619.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587615.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ TERMINATOR GENISYS: REVOLUTION v2.0.0 Mod [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587611.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585891.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ GoPro App 2.8.1340 [En] - Управления action-камерами GoPro
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585799.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Navigator PRO v1.01 [Ru/Multi] - навигатор с офлайн картам
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585642.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ CM Browser 5.20.04 [Ru] - Браузер
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585634.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ ABBYY FineScanner Pro 1.0.84 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585176.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584867.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Need for Speed: Most Wanted Мод 1.3.68 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584592.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_584501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_584501.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Orbit Space 3D Live Wallpaper v1.0.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583962.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583788.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582726.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Water Your Body / Пить воду 3.122.96 [En] - напоминалка о п
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582636.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ VPN Private v1.7.5 Premium + Mod [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581918.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581807.jpg" />
 </div>
 
 

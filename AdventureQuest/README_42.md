@@ -1,3 +1,133 @@
+###  Публикация: 1244909   (477637) от 03.09.2018
+
+The Vanishing of Ethan Carter Redux (2015) [Ru] (1.01) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477637.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Vanishing of Ethan Carter — это мистическая адвенчура, создаваемая под впечатлением от жутких бульварных романов начала XX века. Вы играете роль детектива, умеющего визуализировать сцены убийств благодаря своим экстрасенсорным способностям. На сей раз ему предстоит расследовать дело о похищенном мальчике, надеясь спасти его до того, как будет уже слишком поздно. (   Читать дальше...   )Тип издания: RepackРазработчик: The AstronautsЖанр: Adventure (Horror, Mystic), 1st Person, 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F59E22F2C56DFED7CD29DF8A76945DB560C96D45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160062   (477579) от 23.08.2017
+
+Blue Horizon (2017) [Ru/En/Ge] (1.0) Repack Covfefe
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Blue Horizon! Совершенно новая игра, созданная в «Инди-студио», игра полная приключений в открытом море! Шел 1686 год, на коробле Blue Horizon вам предстоит пересечь Карибские острова, найти сокровище и отомстить злому капитану пиратов «Кровавая-Борода»! У игрока от первого лица на его рабочем экране – появляются приключения, открытия и боевые (   Читать дальше...   )Тип издания: RepackРазработчик: Blue Horizon Studios LtdЖанр: Action, Adventure, RPG, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:062343C19A46947CE886281C0C2CA3AE995DF26B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319964   (476690) от 15.08.2019
+
+The Great Perhaps (2019) [Ru/Multi] (1.32.14) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476690.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Great Perhaps рассказывает историю космонавта, вернувшегося на уничтоженную природными катаклизмами Землю. Там, среди руин, он находит необычный артефакт — старый фонарь, в свете которого видно другое время, а если разжечь огонь сильнее, то можно даже ненадолго вернуться в прошлое. На пути вас ждут постоянные перемещения между пустынными меланхоличными пейзажами (   Читать дальше...   )Тип издания: RepackРазработчик: Caligari Games SLЖанр: Adventure (Platform), Puzzle, 2DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27E4F9EDD921F14029BFD946FAEA4951C18E2372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160291   (475612) от 24.08.2017
+
+Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) License CODEX [Episode 1-2]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475612.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того, как Джесси и его команде удалось одолеть Иссушающую бурю, спасти мир и обрести всеобщее признание, их жизнь сделалась чуточку... сложнее. Обязанностей стало больше, а на старые добрые приключения времени почти не осталось, так что их дружба начала угасать.Тип издания: LicenseРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16968D71D150BC5EF3AC11FA1F848E0F79FE0401
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320014   (474792) от 16.08.2019
+
+DARQ (2019) [Ru/Multi] (1.0) License HOODLUM
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474792.jpg" />
+</div>
+
+
+###  Подробнее
+
+DARQ — это игра про мальчика по имени Ллойд, который осознаёт, что спит. Сон стремительно превращается в кошмар, а все попытки проснуться оборачиваются неудачей. Исследуя тёмные уголки своего подсознания, Ллойд учится контролировать свой сон. Он ходит по стенкам, по потолку, скрывается от монстров и разгадывает невероятные головоломки чтобы не только остаться в живых (   Читать дальше...   )Тип издания: LicenseРазработчик: Unfold GamesЖанр: Adventure (Horror), Puzzle, 3DЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D7FF2FE15B44D2AB82FE38001D39C348A77BA99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057850   (472371) от 29.09.2016
 
 Edge of Twilight (2016) [Ru/Multi] (1.0) License CODEX [Episode 1]
@@ -6,7 +136,7 @@ Edge of Twilight (2016) [Ru/Multi] (1.0) License CODEX [Episode 1]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472371.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ The Room Dilogy (2014-2016) [Ru/En] (1.0.1/1.0.4) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472354.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Dark Fall Трилогия [Ru/En] (Repack) 2002-2009 | R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471290.jpg" />
 </div>
 
 
@@ -85,7 +215,7 @@ Warlock: The Curse of the Shaman / Чернокнижник: Проклятье 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470588.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ Tormented Souls (2021) [Ru/Multi] (1.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469751.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ DEEMO -Reborn- (2020) [Ru/Multi] (1.0/dlc) SteamRip CHRONOS [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467930.jpg" />
 </div>
 
 
@@ -165,7 +295,7 @@ Firewatch (2016) [Ru/En] (1.03) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467844.jpg" />
 </div>
 
 
@@ -191,7 +321,7 @@ The Raven: Legacy of a Master Thief (Episode 3: A Murder of Ravens) (2013) [En] 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462156.jpg" />
 </div>
 
 
@@ -223,7 +353,7 @@ The Testament of Sherlock Holmes / Последняя воля Шерлока Х
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461841.jpg" />
 </div>
 
 
@@ -249,7 +379,7 @@ Blade Runner (1997) [Multi] (1.0.1016) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461527.jpg" />
 </div>
 
 
@@ -275,7 +405,7 @@ Last Day of June (2017) [Ru/Multi] (5.6.1) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_460782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_460782.jpg" />
 </div>
 
 
@@ -301,7 +431,7 @@ Flynn & Freckles (2018) [En/Es] (3.0.0.5) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460756.jpg" />
 </div>
 
 
@@ -327,7 +457,7 @@ Call of Cthulhu: Prisoner of Ice (1995) [Ru] (1.0) Repack Pilotus
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457733.jpg" />
 </div>
 
 
@@ -353,7 +483,7 @@ Hooked on You: A Dead by Daylight Dating Sim (2022) [Ru/Multi] (1.0.15) Repack O
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457046.jpg" />
 </div>
 
 
@@ -379,7 +509,7 @@ Duke Grabowski, Mighty Swashbuckler (2016) [En/Ge] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456765.jpg" />
 </div>
 
 
@@ -405,7 +535,7 @@ Dreamfall Chapters (2014-2016) [Ru/Multi] (5.3.1) License GOG [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456638.jpg" />
 </div>
 
 
@@ -431,7 +561,7 @@ The Unfinished Swan (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455010.jpg" />
 </div>
 
 
@@ -457,7 +587,7 @@ Disneyland Adventures (2018) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454305.jpg" />
 </div>
 
 
@@ -483,7 +613,7 @@ Deponia Doomsday (2016) [Ru/Multi] (1.1.0246) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452571.jpg" />
 </div>
 
 
@@ -509,7 +639,7 @@ Agatha Christie: The ABC Murders (2016) [Ru/Multi] (1.02) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452364.jpg" />
 </div>
 
 
@@ -535,7 +665,7 @@ The Old House (2020) [Ru/En] (1.0) Steam-Rip CHRONOS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450956.jpg" />
 </div>
 
 
@@ -546,137 +676,6 @@ The Old House (2020) [Ru/En] (1.0) Steam-Rip CHRONOS
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A588B132CFB6F4B5BE71D4269221D0B4F8A85251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058239   (449987) от 09.10.2016
-
-Brothers: A Tale of Two Sons (2013) [Ru/Multi] (1.0/u1) License GOG
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brothers: A Tale of Two Sons, эмоциональная приключенческая игра о двух братьях и их путешествии в поисках самих себя. Что сказать, жизнь не очень-то добра к этим двум мальчикам. Не успели они оправиться от потери матери, как трагедия снова пришла к ним в дом: их отец заболел, и спасти его может только волшебная вода жизни.Тип издания: LicenseРазработчик: Starbreeze Studios ABЖанр: Adventure (Puzzle), 3D, 3rdЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F383968B580C2D103586A59C83664570AC7038A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163773   (445742) от 07.09.2017
-
-Amerzone: The Explorer's Legacy (1999) [Multi] (1.0) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы – журналист, которому один старый путешественник захотел рассказать свою историю, хотя его уже более 50 лет считают обманщиком и чудаком. История эта – о путешествии в таинственную страну Центральной Америки под названием Амерзон. По словам старика, оттуда он привез с собой большое яйцо, связанное с верованиями и ритуалами индейского племени, в том числе с размножением (   Читать дальше...   )Тип издания: LicenseРазработчик: MicroidsЖанр: Приключение, Квест, ФэнтезиЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E85654724AF11350360203DE203B5CB6229F44CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552670   (445422) от 27.09.2012
-
-Deponia [Ru/En] (Repack/1.3) 2012 | R.G. Механики
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на гигантскую мусорную свалку под названием Депония! Среди огромного числа ее жителей есть один простой, но очень своенравный паренек Руфус, который никак не может смириться со своей жалкой судьбой. Как и все остальные бедняки, он обречен прожить весь остаток своей жизни, в прямом смысле этого слова, на свалке. Больше всего на свете он мечтает попасть в мир богатых, который находится в поднебесном городе Элизиуме прямо над облаками. И однажды ему улыбается удача: прямо с небес на него падает загадочная девушка по имени Гоул. Парень решается помочь прекрасной девушке вернуться обратно к своему мужу. Когда Руфус понимает, что он и ее муж похожи как две капли воды, в голове у него рождается дьявольский план, как проложить себе дорогу в высшее общество. Тем не менее, не всё складывается так гладко: Руфус не может устоять перед красотой и обаянием прекрасной дамы и влюбляется в нее. Любовь творит с ним невероятные вещи, изменяя нашего героя в лучшую сторону прямо на глазах.
-Помогите Руфусу, бедному пареньку со свалки, завоевать сердце небесной девушки. Только с ее помощью он может выбраться из Депонии и, неожиданно для себя, спасти планету.(   Читать дальше...   )Тип издания: RepackЖанр: Point-and-click QuestЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B44B951CAC69DCB0F368863F769552C7E5078F9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943765   (444056) от 05.10.2015
-
-The Beginner's Guide (2015) [Ru/En] (1.0) Repack R.G. Механики
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444056.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Beginner's Guide, новая игра от создателя The Stanley Parable Дейви Редена. Вся задумка игры состоит в том, что к нам в руки попадает персональный компьютер незнакомого человека. Рассказчик, предлагая запустить несколько видеоигр, позже спрашивает, что же мы поняли о хозяине ПК? Нам предстоит окунуться в чужую жизнь и постараться осознать одинок ли этот человек, (   Читать дальше...   )Тип издания: RepackРазработчик: Everything UnlimitedЖанр: Adventure / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D2FEC0F7857128D11FD14F51ACA2FE8EA773948
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188898   (443680) от 19.09.2018
-
-Battle Chef Brigade (2017) [Ru/Multi] (1.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Battle Chef Brigade - это отрисованная вручную приключенческая игра в жанре фэнтези, в которой вам придется охотиться на монстров, выполняя различные комбо, и готовить блюда, решая увлекательные головоломки. В фэнтезийном королевстве Виктусия члены элитной Бригады боевых шеф-поваров пользуются глубочайшим почтением всего народа за умение искусно убивать монстров (   Читать дальше...   )Тип издания: LicenseРазработчик: Trinket StudiosЖанр: Экшн, Приключение, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E576F071C127A56BE06CF5B19EA6AB7C534308A
 ```
 
 https://mybot314.ru/tekegram_catalog/

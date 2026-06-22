@@ -6,7 +6,7 @@ Goethe Verlag | Book2. Аудиокурс испанского языка [2011]
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136071.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Berlitz | Греческий язык. Базовый курс [PDF + MP3] [2005
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136064.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136055.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Goethe Verlag | Book2. Аудиокурс чешского языка [2011] [PD
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135808.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Berlitz | Португальский язык. Базовый курс [APE+JPEG
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135798.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135787.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135772.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135767.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135548.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135501.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135492.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Berlitz | Японский язык. Базовый курс+Study guide "Langua
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135490.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134419.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134399.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Berlitz | Французский язык. Базовый курс [2006] [MP3+P
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134354.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Moore Martin | Oxford Grammar for Schools 1. Audio 2 (2014) [MP3] [EN]
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109140.jpg" />
 </div>
 
 
@@ -423,32 +423,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735444   (106932) от 08.07.2024
-
-Инна Раковская | Корни иврита (2008) [MP3, Инна Раковская]
-
->>Обучающие аудиоматериалы
->>Иностранные языки (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_106932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аудиокурс для самостоятельного обучения "Корни иврита" открывает вам новые перспективы роста на работе и в жизни! Этот курс разрушает миф о сложности иврита. Вы с удовольствием осваиваете иврит и убеждаетесь, что это просто, что иврит один из самых легких и доступных языков мира. Курс проводится по уникальной методике доктора филологии Инны Раковской. Методика (   Читать дальше...   )Жанр: учебное пособиеИздательство: Международный центр изучения иврита. Колледж Микцоан-2000Продолжительность: 10:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:452B3184EEDB8A60EBABBE368A5F99D957D74680
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 485865   (89959) от 21.04.2012
 
 Dr. Paul Pimsleur | Иврит по методике Д-ра Пимслера (Части 1-3) / Pimsleur Hebrew Phases 1-3 [2000-2004] [MP3]
@@ -457,7 +431,7 @@ Dr. Paul Pimsleur | Иврит по методике Д-ра Пимслера (�
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89959.jpg" />
 </div>
 
 
@@ -487,7 +461,7 @@ Moore Martin | Oxford Grammar for Schools 1. Audio 3 (2014) [MP3] [EN]
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55724.jpg" />
 </div>
 
 
@@ -513,7 +487,7 @@ Moore Martin | Oxford Grammar for Schools 1. Audio 1 (2014) [MP3] [EN]
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55714.jpg" />
 </div>
 
 
@@ -524,60 +498,6 @@ A 5-level series with clear explanations and communicative activities to help yo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C321C0BC234021B340D60F61C3270E405B6E0816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726681   (54891) от 30.05.2024
-
-Rachel Smith | American English Pronunciation. Audio (2015) [MP3, Rachel Smith] [EN]
-
->>Обучающие аудиоматериалы
->>Иностранные языки (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_54891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дополнительный аудиоматериал к пособию Rachel Smith "American English Pronunciation".
-В сборке в наличии много обучающих файлов настоящей английского речи с американским произношением. Кроме того, аудио и видео файлы доступны для копирования в действующих ссылках в указанном учебнике.Жанр: учебное пособиеЯзык озвучки: английскийИздательство: Rachel's English LLCПродолжительность: 02:27:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2BEF3B3230FE7950BAE8D795345E35BF41ECE6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735968   (50469) от 10.07.2024
-
-Дмитрий Гурбатов | Аудиокурс немецкого языка для начинающих (2021) [MP3, Д. Гурбатов]
-
->>Обучающие аудиоматериалы
->>Иностранные языки (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_50469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс состоит из 90 уроков, разбитых на 7 глав. В основе – история, написанная по мотивам сказки «Волшебник изумрудного города». Сказка адаптирована под взрослую аудиторию и современную речь, содержит 3000 самых распространённых немецких слов.
-Следуя за приключениями героини, вы освоите немецкий с нуля до уровня B2 – по итогам курса вы сможете свободно общаться на (   Читать дальше...   )Жанр: учебный аудиокурсИздательство: Персональный вебсайт gurbatov.ruПродолжительность: 82.10.24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECCD354741DCBFFABEEA12AD510C8AA5DAB73791
 ```
 
 https://mybot314.ru/tekegram_catalog/

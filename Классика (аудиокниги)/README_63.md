@@ -1,3 +1,57 @@
+###  Публикация: 278258   (124002) от 07.01.2024
+
+Ги де Мопассан | Исповедь женщины (2009) [MP3, Александр Бордуков, Александр Котов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Союз классика.
+Ги де Мопассан (1850–1893) – один из самых популярных французских писателей конца XIX века. Он написал более 300 новелл.
+Мечты о неком идеале женщины и переживания из реальной жизни тесно переплелись в романах, новеллах и рассказах великого французского писателя Ги де Мопассана. Аудиоверсия избранных из них вошла в этот сборник.Жанр: Зарубежная литература, классика, новеллаИздательство: Издательский дом «Союз»Продолжительность: 04:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AD1331239B9D70213398DF8429207B1570A1EAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 278261   (124000) от 07.01.2024
+
+Ги де Мопассан | Лунный свет (2006) [MP3, Владимир Рыбальченко]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник новелл «Лунный свет» был выпущен издателем Эдмоном Монье в самом начале 1884 года. В этом первоначальном виде сборник состоял из двенадцати новелл. В 1888 году «Лунный свет» был переиздан Оллендорфом, причем Мопассан дополнил книгу пятью новыми новеллами, напечатанными им в прессе 1887 – 1888 годов: «Дверь», «Отец», «Муарон», «Наши письма» и «Ночь». Сборник (   Читать дальше...   )Жанр: Зарубежная литература, классика, новеллаИздательство: БиблиофоникаПродолжительность: 04:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A957887CB7A13DBFA083A4DC24198CA2452BDA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 278242   (123995) от 07.01.2024
 
 Ги де Мопассан | Новеллы (2006) [MP3, Семён Ярмолинец, Лидия Леликова]
@@ -6,7 +60,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123995.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123993.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123990.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123971.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123922.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123921.jpg" />
 </div>
 
 
@@ -169,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123917.jpg" />
 </div>
 
 
@@ -197,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123916.jpg" />
 </div>
 
 
@@ -224,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123911.jpg" />
 </div>
 
 
@@ -251,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123909.jpg" />
 </div>
 
 
@@ -279,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123896.jpg" />
 </div>
 
 
@@ -308,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123874.jpg" />
 </div>
 
 
@@ -336,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123872.jpg" />
 </div>
 
 
@@ -364,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123844.jpg" />
 </div>
 
 
@@ -391,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123839.jpg" />
 </div>
 
 
@@ -418,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123817.jpg" />
 </div>
 
 
@@ -445,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123786.jpg" />
 </div>
 
 
@@ -472,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123774.jpg" />
 </div>
 
 
@@ -501,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123750.jpg" />
 </div>
 
 
@@ -528,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123744.jpg" />
 </div>
 
 
@@ -555,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123743.jpg" />
 </div>
 
 
@@ -582,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123737.jpg" />
 </div>
 
 
@@ -611,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123734.jpg" />
 </div>
 
 
@@ -639,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123716.jpg" />
 </div>
 
 
@@ -651,62 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47B8B365881C3CCD0BBAA4A0BCDBCB9335A54D42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690909   (123662) от 09.01.2024
-
-Сергей Есенин | Стихотворения (2013) [MP3, Вячеслав Герасимов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сергей Александрович Есенин (1895–1925) – русский поэт, представитель новокрестьянской поэзии и лирики, а в более позднем периоде творчества – и имажинизма.
-В том вошли стихотворения Сергея Есенина 1910–1925 гг., включенные им самим
-в первый том своего собрания сочинений:
-«По селу тропинкой кривенькой...», «О Русь, взмахни крылами...», «Персидские мотивы», «Цветы (   Читать дальше...   )Жанр: Русская литература, классика, поэзияИздательство: Нигде не купишьПродолжительность: 07:26:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3248CFFAECE16566AB45741107D4F5438A79501
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690890   (123640) от 09.01.2024
-
-Сергей Есенин | Поэмы. Стихи (2005) [MP3, Михаил Ульянов и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сергей Александрович Есенин (1895–1925) – русский народный поэт XX века.
-В сборник вошла лучшая лирика Сергея Есенина – от трагического «Чёрного человека» и яростного «Пугачёва» до нежных «Персидских мотивов» и стихотворений, ставших всем известными романсами («Клён», «Отговорила роща золотая», «Не жалею, не зову, не плачу»). Признанные шедевры русской поэзии звучат (   Читать дальше...   )Жанр: Русская литература, классика, поэзияИздательство: Элитайл, СиДиКомПродолжительность: 03:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C49730C5BA19FC22DA8A19D0589DCFA582D6B04B
 ```
 
 https://mybot314.ru/tekegram_catalog/

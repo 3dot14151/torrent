@@ -6,7 +6,7 @@ Madness - At Madstock (1998) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940075.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939718.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Ringo Starr & His All Starr Band Live 2006 (2008) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939392.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Steve Miller Band - Live from Chicago (2008) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938794.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Axel Rudi Pell - Live Over Europe (2008) 2*DVD-9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938550.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Modern Talking - Music & Video Stars (2013) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938140.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936636.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Def Leppard - Mirror Ball - Live & More (Bonus DVD) (2011) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936559.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ The Police - Certifiable: Live in Buenos Aires (2008) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936346.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927638.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Dead Can Dance / Toward The Within (1994), remastered 2001 4AD, DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927634.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925843.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Billy's Band. Живые концерты. / Billy's Band Live (2006, 2009) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920318.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Led Zeppelin: The Song Remains The Same (2007) DVD9 + DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916598.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Led Zeppelin: 2*DVD9 (2003)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916499.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915994.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911761.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Shania Twain - UP! Close & Personal (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911715.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Shania Twain - LIVE (1999) Come On Over, DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911625.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Shania Twain - The Platinum Collection (2001) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911616.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Shania Twain - UP! Live In Chicago (2003) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911603.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Shania Twain - The Specials (2001) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911599.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Louna - Проснись и Пой! (live) (2013) 2*DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907461.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ James Last - Live at the Royal Albert Hall (2007/2013) Blu-Ray->DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906721.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906622.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Gary Moore & The Midnight Blues - Live at Montreux 1990 (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902689.jpg" />
 </div>
 
 

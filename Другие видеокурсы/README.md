@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072840.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072835.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072817.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072813.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072772.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072759.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Medio Modo, Алексей Решетун | Что происходит с те�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071390.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Medio Modo, Алексей Решетун | Введение в судебную
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071379.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070924.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Medio Modo, Станислав Дробышевский, Алексей Реше
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070897.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Level One, Николай Маевский | Шахматы для каждог�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069344.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Magisteria, Александр Погребняк | Архитекторы см�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067887.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Magisteria, Анна Пожидаева | Обитатели Ада. Персо�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067878.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067712.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ TutorPlace, Ксения Панибратова | Макраме (2025) WEB-DLRi
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067258.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ TutorPlace, Леся Богатырева | Лепка из полимерной
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067253.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Best Motoring, Кэйити Цутия / Keiichi Tsuchiya | Библия дри�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065585.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ ClassGuru, Денис Драгунский | Писательское масте
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065562.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064673.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Magisteria, Дмитрий Бугай | Хайдеггер. Диалог с др
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062171.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ vabrain, Вячеслав Дубынин | Мозг против ИИ: есть 
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060556.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Magisteria, Анна Пожидаева | Античная мифология в
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060207.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059176.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059010.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Magisteria, Дмитрий Бугай | Бог философов и учёны�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058834.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058250.jpg" />
 </div>
 
 

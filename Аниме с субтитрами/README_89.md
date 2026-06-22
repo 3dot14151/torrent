@@ -1,3 +1,29 @@
+###  Публикация: 1334124   (298748) от 27.10.2019
+
+Uta Kata | Ута-Ката [2004, TV, 12 эп. + 1 OVA] DVDRip 576p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298748.jpg" />
+</div>
+
+
+###  Подробнее
+
+За день до летних каникул Итика Татибана занимается уборкой в старом здании школы и замечает необычное зеркало. Итика встречает в зеркале необычную девушку по имени Минацу, которая предлагает ей дать 12 разноцветных камней, в которых заключена сила джиннов. Во время летних каникул Итика использует силу камней, чтобы справится с различными опасностями. Однако каждый (   Читать дальше...   )Производство: студия Hal Film Maker / ハルフィルムメーカーЖанр: махо-сёдзё, романтика, драма, эттиРежиссер: Гото КэйдзиПеревод: A.k.M., Ramzes-III, ДмитрийЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин. + 1 OVA
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EBF663C01513CDC0489CC0B5FD8EF2A90A6444B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333907   (298733) от 27.10.2019
 
 Ranma 1/2: Akumu! Shunmin Kou | Ranma 1/2: Nightmare! The Incense of Spring Sleep | Ранма 1/2: Кошмар! Ладан сновидений [2008, Movie] BDRip 1080p raw
@@ -6,7 +32,7 @@ Ranma 1/2: Akumu! Shunmin Kou | Ranma 1/2: Nightmare! The Incense of Spring Slee
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298733.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Ranma Nibun No Ichi: Nettohen / Ranma 1/2 / Ранма пополам [1991-2008
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296649.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Musaigen no Phantom World | Myriad Colors Phantom World | Красочный м�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295581.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Kanata no Astra | Astra Lost in Space | Астра, затерянная в ко
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295573.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ The Idolm@ster Xenoglossia | Idolmaster Xenoglossia | Idol Master Xenoglossia | 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295497.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Peter Grill to Kenja no Jikan | Peter Grill and the Philosopher's Time | Пёт�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295437.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Taboo-Tattoo | Запретная татуировка [2016, TV, 12 эп.] BDri
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294919.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Slayers Return | Slayers Return | Рубаки (фильм второй) | Ру�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293700.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ GATE | Gate: Jieitai Kanochi nite, Kaku Tatakaeri | ВРАТА: искусств
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293106.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Alice to Zouroku | Алиса и Дзороку [2017, TV, 12 эп.] BDrip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291583.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Mugen no Ryvius / Infinite Ryvius / Бесконечное путешестви�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289897.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Ichiban Ushiro no Daimaou / Князь тьмы с задней парты [2010
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289566.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ Onii-sama e... | Dear Brother | Уважаемый старший брат [ТВ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287551.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ DNA2: Dokoka de Nakushita Aitsu no Aitsu | ДНК 2 [1994, TV+OVA, 15 эп.] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286016.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Suki ni Naru Sono Shunkan o. Kokuhaku Jikkou Iinkai | The Moment You Fall in Lov
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284055.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Be-Bop High School / Старшая школа Би-Боп [1990, OVA 7 эп.] D
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283911.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Charlotte | Шарлотта [2015, TV, 13 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283280.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ Rerided: Tokigoe no Derrida | РЕридеД: Деррида, что путеш�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282479.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ Zutto Mae kara Suki Deshita. Kokuhaku Jikkouiinkai | I've Always Liked You: Conf
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282177.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ Kyousogiga / Шутки чокнутой столицы [2011, OVA] DVDrip raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281989.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ Turn A Gundam | Гандам: Объединение [1999, TV, 50 из 50] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280525.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ Hoshi wo ou kodomo / Children Who Chase Lost Voices from Deep Below / Ловцы
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279703.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ Full Moon wo Sagashite | Searching for the Full Moon | В поисках Пол�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279058.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ Mouretsu Pirates - Akuu no Shin'en | Moretsu Pirates: Abyss of Hyperspace | Ли
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278991.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ Sword Art Online | Мастера меча онлайн [2012, TV, 25 эп. + 9 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278785.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ Sword Art Online | Мастера меча онлайн [2012, TV, 25 эп. + 9 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55D9253227DEB0C4EBA8B39ECA861C9AA248563E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264986   (277672) от 25.11.2018
-
-UQ Holder! Mahou Sensei Negima! 2 | Хранитель вечности! Волшебный учитель Нэгима! 2 [2017, TV, 12 эп. + 3 OVA] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие жители провинции грезят переехать в столицу или хотя бы в большой город, подальше от своего захолустья. Они считают, что перед ними тут же гостеприимно откроются двери в новый, счастливый мир, и их жизнь моментально наладится. Таков и наш герой Тота Коноэ, юный и амбициозный парень, живущий в глухой деревне, в которой не происходит ровным счётом ничего. И, (   Читать дальше...   )Жанр: приключенияРежиссер: Судзуки ЁхэйПеревод: AniPlay (TV 01-12);Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71EA32D8F853F30FE8267D1872CD9A7931EF6F9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,86 @@
+###  Публикация: 1866399   (1066097) от 20.04.2026
+
+Филипп Матышак | Древняя магия. От драконов и оборотней до зелий и защиты от тёмных сил (2020) [PDF, FB2, EPUB, RTF]
+
+>>Художественная литература
+>>Историческая проза, Мифы и Легенды, Фольклор
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Филипп Матышак рассказывает об истории магии в античном мире, опираясь на многочисленные и разнообразные источники, от греческих драм до табличек с проклятиями.
+
+Филипп Матышак – британский ученый и писатель, обладатель докторской степени Оксфорда по истории Рима. Он является автором множества книг по истории классической цивилизации, а также преподает древнюю историю (   Читать дальше...   )Жанр: История, Античность, Древний мир, Культурология, Мифы и легендыПеревод: Мария СухотинаИздательство: МИФФормат: PDF, FB2, EPUB, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4FF5192B0705E7450F540F17C0B0BFB47096D1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866398   (1066096) от 20.04.2026
+
+Гэрри Шоу | Египетские мифы. От пирамид и фараонов до Анубиса и «Книги мертвых» (2021) [PDF, FB2, EPUB, RTF]
+
+>>Художественная литература
+>>Историческая проза, Мифы и Легенды, Фольклор
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга о египетской мифологии и о том, как древние жители долины Нила объясняли окружающий их мир. Автор рассказывает о сотворении и эволюции мироздания и царствовании богов на земле, знакомит нас с проявлениями египетских божеств в природе, изобретательными способами, с помощью которых египтяне общались с витающими повсюду невидимыми силами, с их представлениями (   Читать дальше...   )Жанр: История, Мифы и легенды, Древний мир, ЕгипетПеревод: Мария СухотинаИздательство: МИФФормат: PDF, FB2, EPUB, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6AEBAAC39A343D1BB094330F6952594C5A4B7BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866539   (1066080) от 20.04.2026
+
+Лафкадио Хирн | Юки-онна, или Записки о ёкаях (Сборник легенд) (2025) [FB2, EPUB, MOBI, RTF]
+
+>>Художественная литература
+>>Историческая проза, Мифы и Легенды, Фольклор
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мистический мир ёкаев, неприкаянных духов и загадочных существ всегда притягивал и вызывал трепет.
+В японском фольклоре страшные истории о сверхъестественном получили название – кайданы.
+Такие легенды бережно собирал и записывал популярный востоковед Лафкадио Хирн, много лет проживший в Японии.
+В этой книге собраны интереснейшие из его находок:(   Читать дальше...   )Жанр: История, Мифология, Япония, МистикаИздательство: ЭксмоФормат: FB2, EPUB, MOBI, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A176E4EE9D42C2B0D0B329C1A34F69A9327BDA25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1866549   (1066070) от 20.04.2026
 
 А.П. Беннигсен (сост.) | Легенды и сказки Центральной Азии (1912) [PDF]
@@ -6,7 +89,7 @@
 >>Историческая проза, Мифы и Легенды, Фольклор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066070.jpg" />
 </div>
 
 
@@ -32,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая проза, Мифы и Легенды, Фольклор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066051.jpg" />
 </div>
 
 
@@ -61,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая проза, Мифы и Легенды, Фольклор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066050.jpg" />
 </div>
 
 
@@ -88,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065947.jpg" />
 </div>
 
 
@@ -116,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065946.jpg" />
 </div>
 
 
@@ -142,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065920.jpg" />
 </div>
 
 
@@ -168,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065918.jpg" />
 </div>
 
 
@@ -197,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065776.jpg" />
 </div>
 
 
@@ -224,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065773.jpg" />
 </div>
 
 
@@ -250,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065723.jpg" />
 </div>
 
 
@@ -276,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065722.jpg" />
 </div>
 
 
@@ -302,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065721.jpg" />
 </div>
 
 
@@ -328,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065704.jpg" />
 </div>
 
 
@@ -357,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065692.jpg" />
 </div>
 
 
@@ -383,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065584.jpg" />
 </div>
 
 
@@ -409,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065538.jpg" />
 </div>
 
 
@@ -437,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065531.jpg" />
 </div>
 
 
@@ -463,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065522.jpg" />
 </div>
 
 
@@ -491,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065518.jpg" />
 </div>
 
 
@@ -517,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065512.jpg" />
 </div>
 
 
@@ -544,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065330.jpg" />
 </div>
 
 
@@ -562,6 +645,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865413   (1065191) от 15.04.2026
+
+Кристин Коваль | Покаяние (2026) [EPUB]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1065191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что определяет нас как личность? Самое ужасное, что мы совершили? Или мы больше, чем страшные поступки?
+После шокирующего убийства в доме Энджи и Дэвида Шиханов их жизнь рассыпается на осколки. В отчаянии они обращаются за помощью к адвокату из своего городка, Мартине Дюмон. Но Мартина - не просто юрист, она мать первой любви Энджи, Джулиана, с которым их связывает (   Читать дальше...   )Жанр: ТриллерыПеревод: Наталья АлександроваИздательство: Дом историйФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94B89AAA8697A5F4DCCD1C961183E66CE7D0411B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1864679   (1065155) от 
 
 Арно Штробель | Игра в месть (2014) [FB2, EPUB, MOBI]
@@ -570,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065155.jpg" />
 </div>
 
 
@@ -582,113 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABA4C31EA19261A4201F2D2B4D57885851B831EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864717   (1065129) от 
-
-Петра Хартлиб | Мой замечательный книжный магазин (Книга 1). Мы купили книжный магазин. Как исполнить мечту книголюба и (почти) не сойти с ума от счастья и читателей (2023) [PDF, FB2, EPUB, MOBI]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065129.jpg" />
-</div>
-
-
-###  Подробнее
-
-В один день бросить упорядоченную жизнь и карьеру в Гамбурге и, поддавшись спонтанному порыву, купить маленький обанкротившийся книжный магазин в Вене? Почему бы нет! Это уютная и вдохновляющая история о том, как Петра Хартлиб воплотила в жизнь тайную мечту каждого книголюба и стала владелицей успешного венского книжного. Магазин стал настоящим домом для её семьи (   Читать дальше...   )Жанр: лёгкая проза, позитивная прозаПеревод: Анна РахманькоИздательство: Манн, Иванов и Фербер (МИФ)Формат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D971E1280059431D2A27C42901FAFA9DA1417F7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864722   (1065128) от 
-
-Петра Хартлиб | Мой замечательный книжный магазин (Книга 2). Книжный магазин и безумные праздники. Новогодние хроники (совсем не) уставшего книготорговца (2025) [PDF, FB2, EPUB, MOBI]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды Петра Хартлиб неожиданно для самой себя открыла книжный магазин в Вене. И вот прошло 15 лет, магазин процветает, но покой его владельцам только снится. В канун новогодних праздников от посетителей нет отбоя, кругом громоздятся горы книг, продавцы сбиваются с ног, а ведь ещё нужно найти ту самую кулинарную книгу для фрау Л., подобрать подарки для пятнадцати (   Читать дальше...   )Жанр: лёгкая проза, позитивная прозаПеревод: Анна РахманькоИздательство: Манн, Иванов и Фербер (МИФ)Формат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6243E2D12F345E3E1549C22B9DDA1D23D32D471
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863382   (1065103) от 04.05.2026
-
-Библиотека Либрусек [lib.rus.ec] очищенная и сжатая + LightLib (2009-2026) [FB2] [Обновляемая] (2009-2026) [FB2]
-
->>Художественная литература
->>Библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Либрусек - библиотека на русском и других языках, охватывает почти все жанры.
-Особенности сборки:
-- очищена от копий, дубликатов и битых файлов.
-- включены все книги на основных языках: русский, белорусский, английский, французский, испанский, немецкий, украинский.(   Читать дальше...   )Жанр: художественная литература, наука, образование, справочники, исскуство и другие.Издательство: РазличныеФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:877168542C1727427E05F7C774C9CC033E0324F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865041   (1064872) от 13.04.2026
-
-Арно Штробель | Чужой (2015) [FB2, EPUB, MOBI]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что, если однажды ваша жизнь перестанет вам принадлежать? Вернувшись домой, главная героиня обнаруживает в своей квартире незнакомца. Но настоящий кошмар начинается в тот момент, когда он спокойно заявляет, что он — ее жених, с которым они счастливо живут вместе уже почти год. У него есть ключи, он знает о ней слишком много, а друзья и знакомые лишь подтверждают (   Читать дальше...   )Жанр: Боевики, Детективы, ТриллерыПеревод: Иван ВисычЯзык: русскийИздательство: Rowohlt VerlagФормат: FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3172280F8151C0523285943149155989E0076554
 ```
 
 https://mybot314.ru/tekegram_catalog/

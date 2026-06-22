@@ -1,3 +1,111 @@
+###  Публикация: 1672341   (169517) от 28.10.2023
+
+Usher 2.2.1 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Usher - Отличное средство для создания и ведения собственной фильмотеки. Usher поможет управиться с видео, которое хранится на жестких дисках и в медиатеках iTunes, iPhoto, и Aperture. Пользователи могут добавлять подробную информацию о каждом видео и использовать "умные" плейлисты для их фильтрации по этим данным.
+С помощью Usher пользователи смогут искать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.06.2022Разработчик: © 2021 Many TricksПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC16B7E396C89D6B4DA8170F88E42DEFF3799F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515575   (169506) от 07.12.2021
+
+White Noise for Mac 7.4.0 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169506.jpg" />
+</div>
+
+
+###  Подробнее
+
+White Noise включает в себя 50 треков окружающей среды в формате HD, которые помогут вам расслабиться и лучше спать ночью. Вы в отеле и соскучились по знакомому звуку вентилятора или кондиционера? Летите в самолете и хотите вздремнуть? Утилита включает в себя высококачественные циклические шумы, такие как удары океанских волн, проливной дождь и текущая струя воды (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.12.2021Разработчик: © 2021 TMSOFT, LLCПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD3BB88C9F7165F2E60B4A06F27506B725E943B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515543   (169491) от 07.12.2021
+
+Picture Instruments Mask Integrator 2.0.10 fix [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утилита Mask Integrator автоматически маскирует и обрезает объекты во время фотосъемки. Для каждого объекта потребуется два снимка: регулярно освещенный объект и его версия с контровым освещением.
+После настройки системы создание масок обрезки даже для самых сложных объектов займет всего несколько секунд. В то время как обычная техника Freemask ограничена частотой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.03.2018Разработчик: © 2021 Picture InstrumentsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BD8E8F30298DC9B6A6C0C26680F8B13A76E9C2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515614   (169471) от 07.12.2021
+
+Manico 2.10.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Manico - это ваша единственная утилита запуска и переключения приложений для macOS.
+Использование клавиши «Option Number» для запуска или переключения на целевое приложение на очень высокой скорости.
+Если вы человек, который хотел бы использовать клавиатуру для эффективного использования операционной системы, Manico поможет вам добиться максимальной эффективности.Тип издания: macOS SoftwareРелиз состоялся: 05.12.2021Разработчик: © 2021 Ding ZhouПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Упрощенный китайский и Традиционный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:923695F89B6AB900A29AECF04E4973A2B5378649
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515603   (169436) от 07.12.2021
 
 MacX DVD Ripper Pro 6.6.2 [Multi]
@@ -6,7 +114,7 @@ MacX DVD Ripper Pro 6.6.2 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169436.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ Loop Mash Up - Music Maker for Mac 1.2.12 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169414.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ bliss for Mac 20230927 U2B Intel/ARM [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169411.jpg" />
 </div>
 
 
@@ -85,7 +193,7 @@ beaTunes 5 v.5.2.33 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169372.jpg" />
 </div>
 
 
@@ -112,7 +220,7 @@ ProFind 1.18.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169366.jpg" />
 </div>
 
 
@@ -138,7 +246,7 @@ BetterTouchTool 4.291 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169360.jpg" />
 </div>
 
 
@@ -164,7 +272,7 @@ Affinity Designer 2 v.2.0.3. beta [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169298.jpg" />
 </div>
 
 
@@ -191,7 +299,7 @@ Affinity Photo 2 v.2.0.3 beta [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169289.jpg" />
 </div>
 
 
@@ -217,7 +325,7 @@ Affinity Publisher 2 v.2.0.3 beta [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169281.jpg" />
 </div>
 
 
@@ -244,7 +352,7 @@ Metadatics 1.6.9 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169258.jpg" />
 </div>
 
 
@@ -271,7 +379,7 @@ MacBooster 8 Pro 8.2.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169075.jpg" />
 </div>
 
 
@@ -297,7 +405,7 @@ SmallCubed MailSuite 2019.0.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169065.jpg" />
 </div>
 
 
@@ -323,7 +431,7 @@ VideoTag 1.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169058.jpg" />
 </div>
 
 
@@ -349,7 +457,7 @@ ON1 Sky Swap AI 2023.5 v.17.5.1.140051 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168951.jpg" />
 </div>
 
 
@@ -375,7 +483,7 @@ AppCleaner 3.6.7 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168802.jpg" />
 </div>
 
 
@@ -402,7 +510,7 @@ iSnow 3.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168658.jpg" />
 </div>
 
 
@@ -429,7 +537,7 @@ Logic Pro X 10.4.8 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168559.jpg" />
 </div>
 
 
@@ -455,7 +563,7 @@ XnViewMP for Mac 0.99.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168520.jpg" />
 </div>
 
 
@@ -482,7 +590,7 @@ Corel Painter 2020 + Corel Premium Brush Packs v20.1.0.285 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168492.jpg" />
 </div>
 
 
@@ -509,7 +617,7 @@ BatchOutput PPT 2.2.23 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168485.jpg" />
 </div>
 
 
@@ -535,7 +643,7 @@ FontBook 5.3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168457.jpg" />
 </div>
 
 
@@ -562,7 +670,7 @@ Overlay 3.82 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168388.jpg" />
 </div>
 
 
@@ -574,111 +682,6 @@ Overlay 3.82 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CB84CCB2649104E0FF0C7FBCC83911E4FED98C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596908   (168353) от 12.12.2022
-
-Irvue 2.7.15 U2B [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Irvue переносит на ваш рабочий стол тысячи потрясающих фотографий с высоким разрешением из Unsplash. Наслаждайтесь новыми художественными обоями каждый день с помощью этого небольшого приложения, которое находится в строке меню.Тип издания: macOS SoftwareРелиз состоялся: 28.10.2022Разработчик: © 2022 LeonspokПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AB2068C1FC3DEA6C1C696EB8487D2B424C29403
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672742   (168340) от 29.10.2023
-
-Chronicle Pro 14.3.2 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если Вам приходится часто оплачивать счета, то - Chronicle будет незаменимым помощником. Программа дает Вам душевное спокойствие, с ее помощью Вы никогда не пропустите нужный платеж.
-Даже если вы используете другие приложение для учета Ваших финансов, Вы оцените помощь Chronicle . Просроченные платежи могут нанести ущерб вашей кредитной истории, что приведет к повышению (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2023Разработчик: © 2009, 2021 LittleFin LLCПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E25A02D52F68AE872ADC448F4C46DEDCDFC01B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596883   (168337) от 12.12.2022
-
-TogetherShare Data Recovery Professional for Mac 8.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168337.jpg" />
-</div>
-
-
-###  Подробнее
-
-TogetherShare Data Recovery предоставляет пользователям Apple простой и быстрый способ восстановить удаленные или потерянные данные на Mac. Многие пользователи Mac теряют важные данные из-за случайного удаления, форматирования или стирания. Но данные не теряются навсегда. С помощью надежного программного обеспечения для восстановления данных Mac, такого как TogetherShare (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.06.2022Разработчик: © 2022 TogetherShareПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD15E72CD75CC71D236723093DB23F3D26407D52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596945   (168287) от 12.12.2022
-
-Worksheet Crafter Premium Edition 2022.3.2 [En]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создайте свой собственный Worksheet быстро и легко. Сделайте идеальные обучающие шаблоны, рабочие листы и классные тесты для ваших  учеников всего за несколько кликов. Создайте свои Worksheet, это весело использовать и так же просто, как пользоваться Microsoft Word.Тип издания: macOS SoftwareРелиз состоялся: 12.12.2022Разработчик: © 2022 Worksheet CrafterПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:549AA3618A1A1E38EB1921AF58446EBCA21ED5D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

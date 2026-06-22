@@ -1,3 +1,56 @@
+###  Публикация: 946197   (428645) от 12.10.2015
+
+ForkLift 2.6.6 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428645.jpg" />
+</div>
+
+
+###  Подробнее
+
+ForkLift – это альтернативный файловый менеджер с функцией FTP-клиента.
+На ForkLift стоит обратит внимание, если вы очень много работаете с различными внешними носителями (поможет двухоконный режим) или активно пользуетесь FTP-серверами. В обоих этих случаях решающим фактором оказывается двухоконный режим. Он позволяет одновременно в одном окне ForkLift видеть две (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12 октября 2015Разработчик: BinaryNightsПоддерживаемая ОС: Mac OS X 10.7+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C996E89130376FD3DB5EF29220441289E633A602
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411480   (427553) от 25.09.2020
+
+Audulus 3 v3.5.1 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audulus - это минималистичное модульное приложение для обработки звука. С Audulus вы можете создавать синтезаторы, создавать новые звуки или обрабатывать аудио. И все это с обработкой в ​​реальном времени с низкой задержкой, подходящей для живых выступлений. Пользовательский интерфейс Audulus понятный, простой и легкий в освоении, что позволяет сосредоточиться (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.03.2018Разработчик: Audulus LLCПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F8331466D2E6226D9855A22C75AF0750135E99A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411319   (427342) от 25.09.2020
 
 TotalFinder 1.12.3 [Multi/Ru]
@@ -6,7 +59,7 @@ TotalFinder 1.12.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427342.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ iVolume 3.7.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427065.jpg" />
 </div>
 
 
@@ -63,7 +116,7 @@ BiglyBT 1.0.2.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426679.jpg" />
 </div>
 
 
@@ -90,7 +143,7 @@ Magnet 1.9.13 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425667.jpg" />
 </div>
 
 
@@ -116,7 +169,7 @@ Curio 9.4.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425054.jpg" />
 </div>
 
 
@@ -143,7 +196,7 @@ Adobe Acrobat Pro DC 20.012.20043 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424773.jpg" />
 </div>
 
 
@@ -169,7 +222,7 @@ Xee 3.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424708.jpg" />
 </div>
 
 
@@ -197,7 +250,7 @@ DAEMON Tools iSCSI for Mac 6.3.419 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424109.jpg" />
 </div>
 
 
@@ -224,7 +277,7 @@ TunesKit 3.5.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424073.jpg" />
 </div>
 
 
@@ -251,7 +304,7 @@ ImaPic Pro 1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424068.jpg" />
 </div>
 
 
@@ -280,7 +333,7 @@ OptimUSB 7.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423935.jpg" />
 </div>
 
 
@@ -308,7 +361,7 @@ Moom 3.2.12 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423898.jpg" />
 </div>
 
 
@@ -336,7 +389,7 @@ Disk Expert 2.3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423893.jpg" />
 </div>
 
 
@@ -365,7 +418,7 @@ Disk Inspector 2.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423785.jpg" />
 </div>
 
 
@@ -393,7 +446,7 @@ App Cleaner Pro 3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423778.jpg" />
 </div>
 
 
@@ -422,7 +475,7 @@ Apple iMovie 10.0.5 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423655.jpg" />
 </div>
 
 
@@ -450,7 +503,7 @@ MP3 Audio Recorder 3.0.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423087.jpg" />
 </div>
 
 
@@ -476,7 +529,7 @@ Mia for Gmail 2.4.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423059.jpg" />
 </div>
 
 
@@ -502,7 +555,7 @@ Artstudio Pro 2.3.25 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422969.jpg" />
 </div>
 
 
@@ -528,7 +581,7 @@ Receipts 1.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422773.jpg" />
 </div>
 
 
@@ -556,7 +609,7 @@ Mirror for Samsung TV 3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422541.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ Photo Mechanic 6 v6.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422411.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ onOne Perfect Photo Suite Premium Edition 9.5.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422240.jpg" />
 </div>
 
 
@@ -637,7 +690,7 @@ UnDistracted 1.73 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422052.jpg" />
 </div>
 
 
@@ -651,59 +704,6 @@ UnDistracted - Отключить все. Одним кликом. UnDistracted 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1CEAE78EF02E64FC2631469D9979A96AFA31FCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065370   (421636) от 22.10.2016
-
-Bevy 1.1.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bevy – все приложения в одном окне
-Многие пользователи Mac OS X используют на своих компьютерах столько программ, что они просто не помещаются в Dock. Для решения этой проблемы существуют специальные приложения, которые позволяют быстро запускать нужные программы. Одним из них является Bevy, с помощью которого можно легко получить быстрый доступ к ярлыкам программ. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 октября 2016Разработчик: bergdesign inc.Поддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6456271CE159522C25310F5997EE0F4A030E498
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412283   (420443) от 28.09.2020
-
-Adobe Zii 2020 - Universal Patcher 5.2.8 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Zii - это небольшая и замечательная утилита, которая помогает вам забыть обо всех проблемах с регистрацией всех существующих продуктов Adobe.Тип издания: macOS SoftwareРелиз состоялся: 28.09.2020Разработчик: TNTПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75B49F6F1F7BF062D7F1F5165D837288207CBA2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

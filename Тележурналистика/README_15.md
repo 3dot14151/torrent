@@ -1,3 +1,107 @@
+###  Публикация: 990269   (912299) от 25.02.2016
+
+Линия защиты. Тела особой важности (2016.02.24) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждую неделю, в прайм-тайм, фильм-репортаж – о нас, о главных и спорных моментах нашей с вами жизни. Это больше, чем новости. Мы освещаем самые актуальные события и проблемы, а авторы программы готовы взглянуть на них со своей особой, индивидуальной точки зрения. Все интересное, необычное, зрелищное, что заслуживает вашего внимания, найдёт отражение в нашем эфире.Производство: РоссияТелекомпания: ТВЦЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:25:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1509F104BF5C976350AD6E3EA59F6B35A890692
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097797   (912231) от 28.01.2017
+
+Научное расследование Сергея Малозёмова. Еда живая и мертвая (2017.01.28) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912231.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Еда живая и мертвая» – новый научно-популярный цикл Сергея Малозёмова, репортера с медицинским образованием, автора и ведущего программы «Чудо техники» и научных расследований о климате, технологиях, бессмертии и экологии.Производство: НТВЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD26BDB4AF40D83046962E297B74836263E1B09E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097922   (912047) от 28.01.2017
+
+Реальный Слендермен / Beware the Slenderman (2015) HDTV [H.264/1080i] [MVO]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм о том, на что способен “вдохновить” Интернет впечатлительные юные умы. Непридуманный хоррор – история, потрясшая всю Америку, произошла в 2014 году в провинциальном городке Уокешо, штат Висконсин. 12-летние девочки Морган Гейзер и Анисса Вейер позвали свою одноклассницу Пейтон Лойтнер в лес, напали на нее и оставили умирать. 19 (!) ножевых ранений (   Читать дальше...   )Телекомпания: США / Vermilion FilmsЖанр: Документальный, Криминал, БиографияПеревод: Многоголосый закадровый, профессиональный (NovaMedia)Язык субтитров: РусскийПродолжительность: 01:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D2DCCA95FC47C8895FD61C4FF656972263216F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098372   (910990) от 29.01.2017
+
+Главное. Итоговая программа (29.01.2017) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждое воскресенье в 18.00 ведущая программы Ника Стрижак подводит информационные итоги недели. В этом ей помогают авторитетные собеседники, ведущие авторских рубрик и команда корреспондентов Пятого канала.В этом выпуске: Немолодой мужчина в активном поиске. Зачем на самом деле Порошенко ездил в Эстонию и Финляндию? Как пытался убедить Хельсинки отказаться от сотрудничества с Россией по газу и не нашёл понимания? И почему Прибалтика так легко ведётся на фантазии об энергетической независимости? Зачем Эстония, Латвия и Литва – в ущерб своей экономике и здравому смыслу - хотят распрощаться (   Читать дальше...   )Телекомпания: Пятый каналЖанр: ТелепередачаПродолжительность: 01:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23E6923892DF6C339B8853BBD64834595BB83782
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098203   (910633) от 29.01.2017
 
 Чудо техники (2017.01.29) SATRip
@@ -6,7 +110,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910633.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910170.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910118.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910068.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910061.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910041.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909989.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909932.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909839.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908174.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908089.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908018.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908011.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907925.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907806.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907702.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907583.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906975.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906578.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906547.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906531.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906347.jpg" />
 </div>
 
 
@@ -566,111 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E2D9C68037AC1FC3196D01EDFF80CA6E1C49E34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991635   (906280) от 28.02.2016
-
-Нереальные аферисты. Психологические тренинги (2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906280.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой серии вы увидите, как реальные аферисты убеждают горожан лечиться тишиной. Почему несчастные женщины – легкая добыча для аферистов? Как псевдопсихологи наживаются на желании девушек выйти замуж за миллионера?Производство: Москва 24Жанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:20:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF452A33720C967FE8C68EDF13504FDA994B91AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991456   (906199) от 28.02.2016
-
-Чудо техники (2016.02.28) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906199.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Чудо техники» — это доходчивый и интересный рассказ о новейших научных разработках, которые способны поменять или уже меняют нашу повседневную жизнь. Автор проекта — Сергей Малозёмов — хорошо знаком зрителям НТВ по репортажам программы «Сегодня», касающимся новых технологий, гаджетов, медицины. Он в курсе последних научных разработок и одним из первых узнает о значимых (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63EE75415794EA13C5B70E2F1940C0D5FDD4BABF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991415   (906069) от 28.02.2016
-
-Следствие вели... с Леонидом Каневским. Черный платок (27.02.2016). HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эти уголовные дела гремели на весь Советский Союз. По ним были написаны романы и сняты художественные фильмы. Их фигуранты - миллионеры эпохи социализма, хитроумные воры, профессиональные грабители и валютчики. Они бросили вызов советскому обществу. Вызов приняли лучшие сыщики страны. В их распоряжении не было компьютеров, сотовой связи и бойцов ОМОНа. Но это не (   Читать дальше...   )В этом выпуске: 1989 год, Пермь. Первоклассница вышла погулять во двор и исчезла. Родители девочки вспоминают: незадолго до происшествия она начала бояться и даже отказывалась оставаться дома одна. Ей кто-то угрожал? Пропавшего ребенка безуспешно ищут несколько месяцев. Тем временем в Перми пропадает другая девочка. А затем еще одна…Телекомпания: НТВЖанр: Документальный, расследованиеРежиссер: Игорь Ромащенко, Борис ФёдоровПродолжительность: 00:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43D982592FCBA11638ED8DE6484391D392EF3DB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 852179   (905903) от 28.02.2016
-
-Шифры нашего тела. Кожа (2013) HDTVRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тело постоянно посылает нам свои таинственные знаки, коды и сигналы. Сердце пытается говорить с нами на своем языке. Кожа демонстрирует наше психологическое состояние. Слезы текут постоянно, даже если мы не плачем. И это далеко не все. Чем больше мы познаем, тем больше загадок и шифров. Мы лишь в самом начале пути к их отгадке.
-В 1670 году в Англии основоположник (   Читать дальше...   )Жанр: Документальный, познавательный, медицинаСубтитры: отсутствуютПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5C3DC9AA82C4D32CCBF4864E763547C6CF8EE0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

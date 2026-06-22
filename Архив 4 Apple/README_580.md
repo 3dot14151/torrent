@@ -1,3 +1,57 @@
+###  Публикация: 1426995   (185570) от 26.11.2020
+
+Art Files 3 v3.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Art Files идеально подходит для иллюстраторов и художников или тех, кто работает с графическими файлами и нуждается в отправке документов другим лицам для редактирования или печати.
+Программа собирает все данные о .ai файлах (Adobe illustrator) - данные о шрифтах, других файлах, которые относятся к Вашему проекту. Также Art Files обладает уникальной способностью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.11.2020Разработчик: Code LineПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A87987A40BE421B1E0FD6483AEA4BE1B7C28FD43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426905   (185563) от 26.11.2020
+
+PhotoSweeper X 3.9.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185563.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoSweeper — отличный способ поиска дубликатов изображений
+Проблема очистки компьютера остро стоит у многих пользователей. При «обычной» эксплуатации жесткий диск забивается ненужными файлами не очень быстро, но у тех, кто активно работает с определенными типами файлов, проблема с появлением дубликатов файлов весьма актуальна. Наиболее острую необходимость в приложениях (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 26.11.2020Разработчик: Gwinno Software IncПоддерживаемая ОС: OS X 10.12.2 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42ABE27294413609EF8D3F8C4B580566216D9F68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426840   (185557) от 26.11.2020
 
 EazyDraw 10.1.2 [Multi]
@@ -6,7 +60,7 @@ EazyDraw 10.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185557.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ iClock Pro 5.7.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185547.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ Linguist 2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185542.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ Permute 3 v3.5.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185523.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ Do Your Data Recovery Professional 7.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185499.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ DCommander 3 Premium v3.8.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185496.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185492.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ NetWorker Pro 8.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185486.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ Movist Pro 2.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185484.jpg" />
 </div>
 
 
@@ -247,7 +301,7 @@ Downie 4 v4.1.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185482.jpg" />
 </div>
 
 
@@ -275,7 +329,7 @@ Things 3 v3.13.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185462.jpg" />
 </div>
 
 
@@ -303,7 +357,7 @@ Color Folder Master 1.0.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185458.jpg" />
 </div>
 
 
@@ -329,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185452.jpg" />
 </div>
 
 
@@ -355,7 +409,7 @@ Magic Disk Cleaner 1.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185414.jpg" />
 </div>
 
 
@@ -383,7 +437,7 @@ Banktivity 7 v7.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185412.jpg" />
 </div>
 
 
@@ -411,7 +465,7 @@ DMG Canvas 3.0.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185398.jpg" />
 </div>
 
 
@@ -437,7 +491,7 @@ MacCleaner 2 PRO 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185387.jpg" />
 </div>
 
 
@@ -463,7 +517,7 @@ Zoc Terminal 8.01.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185384.jpg" />
 </div>
 
 
@@ -489,7 +543,7 @@ Blocs 4.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185372.jpg" />
 </div>
 
 
@@ -517,7 +571,7 @@ MacDroid Pro 1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185359.jpg" />
 </div>
 
 
@@ -543,7 +597,7 @@ Keka 1.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185253.jpg" />
 </div>
 
 
@@ -570,7 +624,7 @@ WiFi Explorer Pro 3 v.3.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185209.jpg" />
 </div>
 
 
@@ -597,7 +651,7 @@ Audiobook Builder 2.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185206.jpg" />
 </div>
 
 
@@ -625,7 +679,7 @@ Mate Translate 7.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185199.jpg" />
 </div>
 
 
@@ -638,58 +692,6 @@ Mate Translate обладает невероятно полной базой д�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADDB8937AB75C73DBE1A7603929207C239767146
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426878   (185184) от 26.11.2020
-
-Aurora HDR 2019 1.0.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aurora HDR, идеально подходит для фотографов всех уровней, обеспечивает полный набор самых современных инструментов для HDR фотографии. Это один из наиболее полных и мощных приложений HDR в мире. Совместный проект Macphun и Trey Ratcliff, одного из выдающихся в мире в области HDR фотографии с более чем 30 миллионов поклонников. Аврора HDR может помочь фотографам (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: MacPhun SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Испанский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5840FD8CE954F65A377E6FB9C2C44F29C24B871F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427001   (185090) от 26.11.2020
-
-Airbuddy 2 v2.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185090.jpg" />
-</div>
-
-
-###  Подробнее
-
-AirBuddy переносит ту же версию AirPods, что и на iOS, прямо на Mac. С AirBuddy вы можете открыть футляр AirPods рядом с Mac и сразу увидеть его статус, как на iPhone или iPad. Простой щелчок - вы подключены и воспроизводите аудио с вашего Mac на AirPods. Это также гарантирует, что аудиовход вашего Mac НЕ переключен на AirPods, чтобы вы могли получить наилучше качество.Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Guilherme RamboПоддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8646AAA879726C74F1F7BCE1FD1D2DABBF3C36FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,419 @@
+###  Публикация: 1425259   (222962) от 20.11.2020
+
+Александр Вестов - Рай (2020) [AAC|~309 Kbps] <Chanson>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А ты скучаешь в своей Москве (3:46)
+02. Давай улетим (4:00)
+03. Запах волос (4:26)
+04. Рай (3:16)(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC610C99D888B4FA59B10680F1B870FA5DB4313D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425269   (222954) от 20.11.2020
+
+VA - Early Morning Lounge: Chillout Your Mind (2020) [AAC|~340 Kbps] <Chillout, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - A Dream in Your Eyes (Original Mix) (6:27)
+02. Michael e - Let It Rain (Original Mix) (5:36)
+03. Charlie North - Saltwater (Ambient Mix) (6:32)
+04. Marie Therese - Gin & Tonic (Pier-O Bossa Chill Mix) (5:08)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:16:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:978A920525A9B1E892FBC7A6D96256FDDCB889B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425255   (222947) от 20.11.2020
+
+VA - Chillout Orange, vol. 2: Relaxing Chillout Vibes (2020) [AAC|~312 Kbps] <Chillout, Lounge, Trip-hop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillson, Marc Hartman - Free as a Bird (Original Mix) (4:38)
+02. Marga Sol - Imagine Me (Original Mix) (3:20)
+03. Nexus 5 - Be Gentle (Original Mix) (3:58)
+04. Pep Lladó - Vai Vedere (Original Mix) (5:47)(   Читать дальше...   )Жанр: Chillout, Lounge, Trip-hopПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:244FDA61DD96ED844D1E55D43B8A1276DA1105CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425266   (222914) от 20.11.2020
+
+VA - Beach House Lounge: Chillout Your Mind (2020) [AAC|~324 Kbps] <Chillout, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magmatunes - The Beach (Original Mix) (4:36)
+02. Project Blue Sun - About Love (Chillout Mix) (6:26)
+03. Gary B - No Secrets (Original Mix) (5:36)
+04. Marga Sol - Mine Tonight (Original Mix) (5:45)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:34:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88F50CA576A85E2109955BA7693CF89FA3993950
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425275   (222908) от 20.11.2020
+
+VA - Feeling Relaxed Lounge: Chillout Your Mind (2020) [AAC|~322 Kbps] <Chillout, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - A Special Time (Original Mix) (3:30)
+02. Olivier PC - Atlantis City (3:18)
+03. Chris le Blanc, Alison Degbe - Moon over Paradise (3:22)
+04. Pier-O - Long Kiss at Trocadero (Original Mix) (6:38)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:09:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9411F5CCD81497087E45E99C3062D25A0B688733
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425254   (222899) от 20.11.2020
+
+VA - Chillout Orange, vol. 1: Relaxing Chillout Vibes (2020) [AAC|~326 Kbps] <Chillout, Lounge, Trip-hop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beamy - Azure Waters (Chillout Mix) (5:24)
+02. Schwarz & Funk - 5 Am (Original Mix) (5:12)
+03. Roberto Sol, Florito, Martine - Love Finds You (Ibiza Lounge Mix) (4:21)
+04. Eivissarts - De La Tierra (Original Mix) (5:39)(   Читать дальше...   )Жанр: Chillout, Lounge, Trip-hopПродолжительность: 01:18:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E131DB4277CD2E6BD17F73877DA21892C8DCD99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513190   (222898) от 30.11.2021
+
+VA - We Are 3000Grad (Stephan Zovsky DJ Mix 002) (2021) [AAC|~316 Kbps] <Deep House, Tech House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taster Peter, Elfenberg - OracleЖанр: Deep House, Tech HouseПродолжительность: 01:05:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A15BDE361BDD7707F20A6C0E7CE9EEB36303E17F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425273   (222892) от 20.11.2020
+
+VA - Flower Blossom Lounge: Chillout Your Mind (2020) [AAC|~324 Kbps] <Chillout, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael e - I Love the Rain (Original Mix) (5:41)
+02. Jane Maximova - Puppets (Original Mix) (4:58)
+03. Peter Pearson - Apres Sun (Original Mix) (4:06)
+04. Johannes Huppertz - Lounge Light (Original Mix) (4:03)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5283D6180B920A370AA59451C9FE107BC2E03265
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513192   (222891) от 30.11.2021
+
+VA - We Are 3000Grad (Pophop DJ Mix 003) (2021) [AAC|~337 Kbps] <Deep House, Tech House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dolph - Angel DustЖанр: Deep House, Tech HouseПродолжительность: 01:22:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CD21728DDEF5ABA118D51CE5944F08A93E06D0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584244   (222890) от 10.12.2012
+
+Особо опасны / Savages (2012) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодые миллионеры Бен и Чон ведут дела на побережье Калифорнии. Бен — выдающийся ботаник и талантливый бизнесмен, Чон — мастер возвращения долгов и борьбы с конкурентами. В их работе много сложных моментов, ведь они выращивают лучшую в мире траву. Особо серьезные проблемы решает знакомый агент ФБР.Жанр: Триллер, Драма, КриминалРежиссер: Оливер СтоунАктеры: Тейлор Китч, Блейк Лайвли, Аарон Джонсон, Джон Траволта, Бенисио Дель Торо, Сальма Хайек, Яна Бенкер, Candra Docherty, Патрик Фоурми, Гари СтретчПеревод: Одноголосый закадровый, профессиональныйОзвучка / Автор перевода: А. Дасевич / перевод Антона Копанева (ak79)Продолжительность: 02:21:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513189   (222880) от 30.11.2021
+
+VA - We Are 3000Grad (Mollono.Bass DJ Mix 001) (2021) [AAC|~317 Kbps] <Deep House, Tech House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dole & Kom - Sine NoiseЖанр: Deep House, Tech HouseПродолжительность: 01:01:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:653D01BA264E23EE63D4F7F755E98A1962B8DFA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269083   (222856) от 13.12.2018
+
+Человек на Луне / First Man (2018) WEB-DLRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судьба любит смельчаков, а Нил Армстронг однозначно принадлежит к их числу. Весь мир знает его имя, но мало кому известно, какой ценой астронавту дался маленький шаг, ставший огромным скачком для всего человечества.Производство: США, ЯпонияЖанр: Драма, биография, историяРежиссер: Дэмьен ШазеллАктеры: Райан Гослинг, Клер Фой, Джейсон Кларк, Кайл Чандлер, Кори Столл, Патрик Фьюджит, Кристофер Эбботт, Киран Хайндс, Оливия Хэмилтон, Пабло ШрайберПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 02:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8E033BC17E383E877D75A24D33058F7DF507559
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425347   (222838) от 20.11.2020
+
+Аня Воробей - Зажгутся звёзды (2020) [AAC|~346 Kbps] <Chanson, Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Аргентинский мотивчик (4:02)
+02. Зажгутся звёзды (5:07)
+03. Знаю, сможем мы всё успеть (3:12)
+04. И кругом голова (3:23)(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:44:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABFBD795F27B43B15277E786FB39DB3A0C290BF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 585708   (222810) от 10.12.2012
+
+История игрушек: Большой побег / Toy Story 3 (2010) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Энди почти 18 лет, ему остаётся 3 дня до отправки в колледж, в то время как его игрушки, в том числе Вуди и Базз Лайтер, гадают о своём будущем.
+Куда забросит их судьба? На чердак, на свалку или, может быть, в детский сад «Солнышко»?
+События развиваются в самом неожиданном направлении, и приключения полюбившихся героев продолжаются!Жанр: Мультфильм, фэнтези, комедияРежиссер: Ли АнкричАктеры: Том Хэнкс, Тим Аллен, Джоан Кьюсак, Нед Битти, Дон Риклз, Майкл Китон, Уоллес Шоун, Джон Ратценбергер, Эстелль Харрис, Джон МоррисПеревод: ДублированныйПродолжительность: 01:43:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584656   (222668) от 10.12.2012
+
+Клятва / The Vow (2012) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время медового месяца Пейдж и Лео попадают в автокатастрофу. Пока жена находится в коме, Лео не отходит от ее кровати ни на час, но возвращение девушки к жизни омрачено потерей памяти — она не узнает любимого и не помнит об их романе. И тогда Лео решает заново завоевать сердце Пейдж.Жанр: Драма, МелодрамаРежиссер: Майкл СаксиАктеры: Рэйчел МакАдамс, Ченнинг Татум, Сэм Нил, Скотт Спидман, Джессика Лэнг, Джессика МакНэми, Венди Крюсон, Татьяна Маслани, Лукас Брайант, Джои КлейнПеревод: ДублированныйПродолжительность: 01:39:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 852120   (222624) от 21.12.2014
 
 Исчезнувшая / Gone Girl (2014) BDRip [1080p] ATV
@@ -6,7 +422,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222624.jpg" />
 </div>
 
 
@@ -32,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222513.jpg" />
 </div>
 
 
@@ -58,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222502.jpg" />
 </div>
 
 
@@ -85,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222481.jpg" />
 </div>
 
 
@@ -111,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222465.jpg" />
 </div>
 
 
@@ -137,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222440.jpg" />
 </div>
 
 
@@ -163,7 +579,7 @@ Halo 4: Идущий к рассвету / Halo 4: Forward Unto Dawn (2012) BDRi
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222364.jpg" />
 </div>
 
 
@@ -189,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222099.jpg" />
 </div>
 
 
@@ -216,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221758.jpg" />
 </div>
 
 
@@ -242,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221257.jpg" />
 </div>
 
 
@@ -268,7 +684,7 @@ Roxette - Joyride (30th Anniversary Edition) (2021) [AAC|~351 Kbps] <Pop, Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221165.jpg" />
 </div>
 
 
@@ -282,424 +698,6 @@ Roxette - Joyride (30th Anniversary Edition) (2021) [AAC|~351 Kbps] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9EB0E597DA681368DD12B7DFCE78CC19CDDB5EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269309   (221030) от 14.12.2018
-
-Лондонские поля / London Fields (2018) WEB-DLRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никола Сикс, роковая красотка, обладающая даром ясновидения, живет с предчувствием своей скорой смерти. Не удержавшись, она начинает опасный любовный роман сразу с тремя совершено разными мужчинами, хотя Никола точно знает, что один из них вскоре станет её убийцей…Производство: СШАЖанр: Триллер, криминал, детективРежиссер: Мэтью КалленАктеры: Эмбер Хёрд, Джим Стёрджесс, Тео Джеймс, Билли Боб Торнтон, Джейми Александер, Кара Делевинь, Джемма Чан, Джейсон Айзекс, Лили Коул, Дженнифер МиссониПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: Великобритания, США
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:412B52E31123391099E2491D1CB58495D2DAF626
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425531   (220961) от 21.11.2020
-
-Cassetter - Entropy (2020) [AAC|~357 Kbps] <Cyberpunk, Synthwave>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Catch Me If You Can (5:27)
-02. Blue Cabriolet (4:04)
-03. Cassetter, Mari Kattman - Nexus (4:20)
-04. Giant Drill (4:29)(   Читать дальше...   )Жанр: Cyberpunk, SynthwaveПродолжительность: 01:06:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7199044E445C620D3E33175C218FFAFCA05E0692
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425533   (220910) от 21.11.2020
-
-Cassetter - Entropy (Instrumentals) (2020) [AAC|~359 Kbps] <Cyberpunk, Synthwave>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Catch Me If You Can (5:27)
-02. Blue Cabriolet (4:04)
-03. Nexus (Instrumental) (4:20)
-04. Giant Drill (4:29)(   Читать дальше...   )Жанр: Cyberpunk, SynthwaveПродолжительность: 01:06:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B669FB2F4F063ADAD8314D11DFB7047C451A50A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425497   (220852) от 21.11.2020
-
-VA - One Jazzy Night, vol. 2: Best of Smooth Jazz Music (2019) [AAC|~326 Kbps] <Chillout, Lounge, Trip-hop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Floating on a Cloud (Original Mix) (5:28)
-02. Weber & Weber - Little Bird of Paradise (Original Mix) (5:47)
-03. Chillson, Marc Hartman - Dancing Seahorses (Original Mix) (4:36)
-04. Angela Muro - Por Mucho Que Viva (Leo de la Rosa remix) (3:39)(   Читать дальше...   )Жанр: Chillout, Lounge, Trip-hopПродолжительность: 01:26:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA6AC94EB1C612DF0D2A399F7346CC9B57079FC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425493   (220819) от 21.11.2020
-
-VA - One Jazzy Night, vol. 1: Best of Smooth Jazz Music (2018) [AAC|~319 Kbps] <Chillout, Lounge, Trip-hop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabrielle Chiararo - Estate (Original Mix) (3:40)
-02. Bruno Patinho - Minha Namorada (Original Mix) (2:59)
-03. Gabrielle Chiararo - Night and Day (Instrumental Mix) (3:22)
-04. Antonella Vitale - Notte (Original Mix) (6:22)(   Читать дальше...   )Жанр: Chillout, Lounge, Trip-hopПродолжительность: 01:08:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62A581BEB31244C8FB54E4B64971989375C8B80F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425498   (220788) от 21.11.2020
-
-VA - One Jazzy Night, vol. 3: Best of Smooth Jazz Music (2020) [AAC|~322 Kbps] <Chillout, Lounge, Trip-hop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_220788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Trend - Sunday Morning (4:27)
-02. Brazil Beat - Wave (3:46)
-03. Luna A. Whibbe - Minutos (Instrumental) (3:35)
-04. Vincenzo Ricca - 50 Years of Bossa (3:39)(   Читать дальше...   )Жанр: Chillout, Lounge, Trip-hopПродолжительность: 01:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D68443F87590700D47D60D035FFA6AFF20068B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 585667   (220732) от 11.12.2012
-
-Артур и месть Урдалака / Arthur et la vengeance de Maltazard (2009) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артур в восторге, потому что этой ночью заканчивается десятый лунный цикл, и он, наконец, сможет вернуться в страну минипутов, чтобы воссоединиться с Селенией. В деревне минипуты приготовили в его честь роскошный банкет, а маленькая принцесса облачилась в платье из лепестков роз. Но отец Артура именно в этот долгожданный день объявляет, что их каникулы у бабушки заканчиваются. Они уже собираются уезжать, как вдруг паук кладёт в ладонь Артуру рисунок, на котором написано слово S.O.S. Сомнений нет — Селении угрожает опасность!Жанр: Мультфильм, Фэнтези, СемейныйРежиссер: Люк БессонАктеры: Селена Гомес, Фредди Хаймор, Стэйси Фергюсон, Миа Фэрроу, Джимми Фэллон, Снуп Догг, Омар Си, Уилл Ай Эм, Логан Миллер, Роберт СтэнтонПеревод: ДублированныйПродолжительность: 01:33:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425500   (220490) от 21.11.2020
-
-Баста - 40 (2020) [AAC|~319 Kbps] <Rap, Hip-hop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро (2:26)
-02. С самых низов (5:39)
-03. Баста, Odi - Верил всегда (5:44)
-04. Баста, Moscow Gospel Team - Время догонит нас (6:07)(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 01:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2AEF2B00EC647C060240ED454C168D328556AD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966307   (220398) от 17.12.2015
-
-Grand Funk - Phoenix (1972) 1973, Capitol Records, Japan [ALAC|2.0 24/48|tracks]<Rock, Hard Rock>
-
->>Аудио и Видео
->>Музыка Lossless (ALAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side1:
-01. Flight Of The Phoenix (3:41)
-02. Trying To Get Away (4:13)
-03. Someone (4:06)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CA864014A45B99FF017FCA698E705A68FC629A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084312   (220390) от 18.12.2016
-
-Алексей Пехов | Ловцы удачи (2016) [m4b|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сложно убежать от своего прошлого. Для этого придется преодолеть множество трудностей и оказаться на другом конце света, в стране теплого солнца, ласкового океана и тропических островов. Где небо бороздят воздушные пираты и лихие капитаны, процветает разбой и контрабанда, рекой льется ром и все уважают летунов.
-В мире на границе Изнанки всех ловцов удачи ждут головокружительные (   Читать дальше...   )Жанр: ФантастикаФормат: M4BПродолжительность: 15:29:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:367948BBA5E95C04D7C311C66E202722676A40FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342866   (220368) от 04.12.2019
-
-Рэмбо: Последняя кровь / Rambo: Last Blood (2019) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он хранил секреты всю жизнь, но пришло время взглянуть в глаза прошлому. В последний раз собраться и стать безжалостной машиной для убийства. Рэмбо снова встанет на смертельно опасный путь — путь мести, который ему придется пройти до конца.Производство: США, Испания, Болгария / Balboa Productions, Campbell Grobman Films, Dadi Film GroupЖанр: Боевик, триллер, приключенияРежиссер: Адриан ГрюнбергАктеры: Сильвестр Сталлоне, Пас Вега, Серхио Перис-Менчета, Адриана Барраса, Ивет Монреаль, Джени Ким, Хоакин Косио, Паскасио Лопес, Оскар Хаэнада, Alexander DimitrovПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:40:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6F48416C780CAF75A5F5142DA7508D05B66CE4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966327   (220333) от 17.12.2015
-
-Пингвин нашего времени  (2015) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая немка Виня одержима идеей найти своего возлюбленного Андрея, который внезапно исчез. В поисках Андрея она приезжает на Крайний Север России. Случайность ли, что на своем пути она встречает таинственного миллионера Всеволода Старыча, одержимого странными и даже опасными идеями?…Производство: Россия, ГерманияЖанр: Комедия, триллерРежиссер: Штефан КромерАктеры: Люси Хайнце, Алексей Гуськов, Юрий Колокольников, Антон Пампушный, Евген Баль, Мария Семенова, Елена Ласкавая, Александр Слободяник, Анатолий Горячев, Сергей ГрековПеревод: Не требуетсяСубтитры: НетПродолжительность: 01:28:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91ADCE3D9912E8D765100795D4B544C221914820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425488   (220073) от 21.11.2020
-
-VA - Cyberpunk 2077 - Original Score EP (2020) [AAC|~331 Kbps] <Soundtrack>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marcin Przybyłowicz - Corposeduction (4:26)
-02. P.T. Adamczyk - Badlanders (2:04)
-03. Paul Leonard-Morgan - Battleground Arasaka (4:49)
-04. Marcin Przybyłowicz - NCPD Prowl (4:56)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:22:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:775C9B29ED40643D51BD75BD9E4AFB05372F5867
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343090   (219341) от 05.12.2019
-
-Ирландец / The Irishman (2019) WEB-DLRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219341.jpg" />
-</div>
-
-
-###  Подробнее
-
-В доме престарелых сильно пожилой мужчина по имени Фрэнк Ширан вспоминает свою жизнь. В 1950-е он работал простым водителем грузовика, совсем не хотел быть гангстером и думал, что маляры — это те, кто красит дома, когда случайно познакомился с криминальным авторитетом Расселом Буфалино. Тот взял парня под своё крыло, начал давать ему небольшие поручения, и вот уже (   Читать дальше...   )Производство: США, Fabrica de Cine, STX Entertainment, Sikelia Productions, Tribeca ProductionsЖанр: Криминал, драма, биографияРежиссер: Мартин СкорсезеАктеры: Роберт Де Ниро, Аль Пачино, Джо Пеши, Рэй Романо, Бобби Каннавале, Анна Пэкуин, Стивен Грэм, Стефани Курцуба, Джесси Племонс, Кэтрин НардуччиПеревод: Дублированный (Пифагор)Субтитры: Русские (Forced, Full), Английские (Forced, Full)Продолжительность: 03:29:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E14EB6CE62B86846BF0A72B8C3CF7A9ADA7F075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425872   (219310) от 22.11.2020
-
-Synth Replicants - Fairy Tales (2020) [AAC|~325 Kbps] <Electronic>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Last Angel (3:25)
-02. Walking Humans (4:28)
-03. Fairy Tales (5:39)
-04. Daydreamer (5:47)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50B09E851B814936B2EC56861C27AC7BF74BB18C
 ```
 
 https://mybot314.ru/tekegram_catalog/

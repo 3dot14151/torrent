@@ -1,3 +1,57 @@
+###  Публикация: 1546723   (241489) от 25.04.2022
+
+Nevercenter CameraBag Photo 2022.0.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241489.jpg" />
+</div>
+
+
+###  Подробнее
+
+CameraBag позволяет мгновенно применить одну из сотен красивых предустановок к вашим фотографиям, а затем погрузиться глубже с ультра-интуитивными профессиональными настройками.
+Благодаря CameraBag с предустановками, специально разработанными для портретов, различными пейзажными сценариями, точной эмуляцией аналогового кинопленки из прошлого, популярными современными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.04.2022Разработчик: © 2021 Nevercenter Ltd. Co.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E7662197EB3EF80203D7819376E0AA6D099A60A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114751   (241483) от 15.03.2017
+
+QR Factory 2.9.8 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241483.jpg" />
+</div>
+
+
+###  Подробнее
+
+QR Factory: создание QR-кода
+QR-код является незаменимым и универсальным способом быстро поделиться какой-либо текстовой информацией. Его главное достоинство — легкое распознавание — активно применяется в самых разных сферах: производстве, торговле, логистике, туризме рекламе, конкурсах, играх и др. Сканеры QR-кодов существуют практически на всех мобильных платформах, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 марта 2017Разработчик: Tunabelly SoftwareПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB63B83FDBFFF8CA3D8576976E5CCEC42BD2FE2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546745   (241481) от 25.04.2022
 
 Omni Toolbox 1.1.7 [En]
@@ -6,7 +60,7 @@ Omni Toolbox 1.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241481.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Adobe After Effects 2022 22.3.0 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241477.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ Screegle - Clean Screen Sharing 2.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241469.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ Scrutiny 9 v9.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241451.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ Omni Recover 3 v3.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241445.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ Xliff Editor 2.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241443.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ KCNcrew Pack 03-15-17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241434.jpg" />
 </div>
 
 
@@ -195,7 +249,7 @@ AnyMP4 Mac Blu-ray Player 6.3.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241427.jpg" />
 </div>
 
 
@@ -221,7 +275,7 @@ Paste 2.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241414.jpg" />
 </div>
 
 
@@ -249,7 +303,7 @@ Photo Image Editor Pixelstyle 3.8.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241395.jpg" />
 </div>
 
 
@@ -276,7 +330,7 @@ Capture One 23 Pro 16.2.1.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_241381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241381.jpg" />
 </div>
 
 
@@ -302,7 +356,7 @@ Rectangle Pro 2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241377.jpg" />
 </div>
 
 
@@ -328,7 +382,7 @@ SQLPro Studio 2020.47 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241366.jpg" />
 </div>
 
 
@@ -354,7 +408,7 @@ aText 2.36.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241359.jpg" />
 </div>
 
 
@@ -380,7 +434,7 @@ URL Manager Pro 5.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241351.jpg" />
 </div>
 
 
@@ -408,7 +462,7 @@ Auto Highlight 4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241310.jpg" />
 </div>
 
 
@@ -434,7 +488,7 @@ ImageRanger Pro Edition 1.7.1.1527 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241306.jpg" />
 </div>
 
 
@@ -460,7 +514,7 @@ Paste Queue (Multi Clipboard) 1.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241298.jpg" />
 </div>
 
 
@@ -487,7 +541,7 @@ Framer Studio v88 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241295.jpg" />
 </div>
 
 
@@ -514,7 +568,7 @@ GraphicConverter 11 v11.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241292.jpg" />
 </div>
 
 
@@ -540,7 +594,7 @@ Twixl Publisher Pro 11.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241290.jpg" />
 </div>
 
 
@@ -568,7 +622,7 @@ Integrity Pro 12.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241286.jpg" />
 </div>
 
 
@@ -594,7 +648,7 @@ QuickLinks 2.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241273.jpg" />
 </div>
 
 
@@ -620,7 +674,7 @@ Apeaksoft DVD Creator for Mac 1.0.36 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241250.jpg" />
 </div>
 
 
@@ -631,61 +685,6 @@ Apeaksoft DVD Creator for Mac 1.0.36 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C47D3788ABDE9A5D08A7AB04A5A174C31CA12D89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386689   (241244) от 30.05.2020
-
-Cookie 6.0.15 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Следить за безопасностью своего кошелька, квартиры или машины привыкли все, а вот соблюдать те же правила на просторах глобальной сети почему-то старается далеко не каждый. Хотя делать это нужно и не так уж сложно. Помочь вам обезопасить свое пребывание в интернете сможет наш обзор и приложение Cookie, следящее за всей подозрительной активностью сайтов.
-
-Cookie - (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.05.2020Разработчик: SweetP Productions.Поддерживаемая ОС: macOS 10.14 или более поздняя версияЯзык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F456C55F50DADB3B628E9611113B87CA8D030AB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119822   (241239) от 29.03.2017
-
-TinkerTool System 5.30 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241239.jpg" />
-</div>
-
-
-###  Подробнее
-
-TinkerTool System -  утилита для управления скрытыми настройками операционной системы Mac OS X.
-Программа позволяет выполнять циклические сценарии администрирования нажатием одной кнопки, восстанавливать права системных файлов, повторять процесс оптимизации системной производительности по окончании инсталляции приложений, удалять содержимое кэша популярных веб-браузеров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22 февраля 2017Разработчик: Marcel BresinkПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F30D7D3CE87EF6D8F786E0E44ABEAFD968428B67
 ```
 
 https://mybot314.ru/tekegram_catalog/

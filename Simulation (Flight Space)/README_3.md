@@ -6,7 +6,7 @@ Descent 3 (2000) [En] (1.4/dlc) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285338.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Bomber Crew (2017) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285336.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Silent Hunter 2 (2001) [En] (1.00.06) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281980.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Descent (1996) [En] (1.4a) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281756.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Descent 2 (1996) [En] (1.1) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279999.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Tomorrow War / Завтра Война  (2006-2007) (1.0) Repack R.G. Catalyst
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275933.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ SUNLESS SKIES (2019) [En] (1.3.4) Repack Other s
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270202.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ X Rebirth: Home of Light (2016) [Ru/Multi] (4.30/dlc) License GOG [Complete Edit
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263324.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ IL-2 Sturmovik: Cliffs of Dover / Ил-2 Штурмовик: Битва за Б�
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262368.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ IL-2 Sturmovik: Cliffs of Dover / Ил-2 Штурмовик: Битва за Б�
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262361.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Heliborne (2017) [Ru/Multi] (0.87.11/dlc) Repack Other s [Winter Complete Editio
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261843.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ StarLord [En] (RePack) 1993 | RG games (Pilotus)
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260915.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Delta V [En] (RePack) 1994 | RG Games (Pilotus)
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259920.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ F-19 Stealth Fighter (1988) [En] (435.04) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257642.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ STAR WARS: Squadrons (2020) [Ru/Multi] (1.0.10.39591) Repack Wanterlude
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256824.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Everspace 2 (2021) [Ru/Multi] (1.0.33479) Repack DjDI
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255361.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Freelancer (2003) [Ru/En] (1.0.2003) Repack Decepticon
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254901.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Extreme Assault [Ru] (RePack) 1997 | Pilotus
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_248303.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Crying Suns (2019) [Ru/Multi] (3.0.1) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247520.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Comanche 4 / Команч 4 (2001) [Ru] (1.14) Repack Pilotus
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246952.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Space Engine (2017) [Ru/En] (0.9.8.0e/dlc) License
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236338.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ orbit.industries (2022) [Ru/Multi] (1.1.9717.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_235923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235923.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Chorus (2021) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215989.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Strike Commander (1993) [En] (1.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208889.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Star Wars TIE Fighter (1994) [En] (1.0/dlc) License GOG [Special Edition]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199777.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ RC Airplane Challenge (2021) [En] (1.0) Scene PLAZA [VR]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198862.jpg" />
 </div>
 
 

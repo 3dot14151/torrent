@@ -1,3 +1,108 @@
+###  Публикация: 1051406   (531976) от 11.09.2016
+
+Angry Birds в кино / The Angry Birds Movie (2016) Blu-ray 3D [H.264/1080p] [ISO]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм расскажет о том, как началось знаменитое противостояние птичек и свинок, персонажей популярной компьютерной игры, а также раскроет некоторые секреты любимых героев.Производство: США / Sony Pictures Animation, Sony Pictures Imageworks (SPI)Жанр: Семейный, Боевик, КомедияРежиссер: Фергал РейлиПерсонажи: Питер Динклэйдж, Джейсон Судейкис, Билл Хейдер, Кигэн-Майкл Ки, Джош Гад, Дэнни МакБрайд, Майя Рудольф, Даниэль Брукс, Джеффри Аренд, Айк БаринхолцПеревод: Дублированный (Лицензия BD NORDiC)Язык субтитров: Русский, Английский, Датский, Эстонский, Финский, Латышский, Литовский, Норвежский, Шведский, УкраинскийПродолжительность: 01:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECC30B564FC32A3E7215AA77826663EF3556D883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051412   (531837) от 11.09.2016
+
+Angry Birds в кино / The Angry Birds Movie (2016) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм расскажет о том, как началось знаменитое противостояние птичек и свинок, персонажей популярной компьютерной игры, а также раскроет некоторые секреты любимых героев.Производство: США / Sony Pictures Animation, Sony Pictures Imageworks (SPI)Жанр: Семейный, Боевик, КомедияРежиссер: Фергал РейлиПерсонажи: Питер Динклэйдж, Джейсон Судейкис, Билл Хейдер, Кигэн-Майкл Ки, Джош Гад, Дэнни МакБрайд, Майя Рудольф, Даниэль Брукс, Джеффри Аренд, Айк БаринхолцПеревод: Дублированный (Лицензия BD NORDiC)Язык субтитров: Русский, Украинский, АнглийскийПродолжительность: 01:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1350F27BD12196F50FFBC800D4BBF7B970534EB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533278   (531788) от 10.08.2012
+
+Пираты! Банда неудачников / The Pirates! Band of Misfits (2012) BDRemux [H.264/1080p] [3D/2D]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация первой книги из серии романов писателя Гидеона Дефо, рассказывающих о банде незадачливых пиратов. В первой части пираты прибывают в Лондон, где знакомятся с молодым Чарльзом Дарвином и говорящим шимпанзе по имени Мистер Бобо, а также столкнутся с врагами, которые хотят их уничтожить.Производство: США, Великобритания | Aardman Animations, Sony Pictures AnimationЖанр: Мультфильм, Приключения, КомедияРежиссер: Питер Лорд, Джефф НьюиттПеревод: русский и украинский дубляжСубтитры: (PGS 3D): Русские (форсированные), АнглийскиеПродолжительность: 01:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A478AE497A382879B0CD4D36799900A663CD966
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928584   (521366) от 17.08.2015
+
+Гнездо дракона / Dragon Nest: Warriors' Dawn (2014) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто бы мог подумать, что всегда неуклюжий, но несомненно талантливый парень станет великим героем, который спасет свою красивейшую планету от пробудившегося зла?
+Много лет, пока легендарный Черный дракон спал, земля Алтера хранила хрупкий мир между расами людей, эльфов и неведомых нашему миру животных. Когда же он пробудился, охваченные ужасом жители были вынуждены (   Читать дальше...   )Производство: Китай / Mili PicturesЖанр: мультфильм, фэнтези, приключения, семейныйРежиссер: Юэфэн СонгАктеры: Цзяо Сюй, Гуаньлин Джи, Йинг Хуан, Давей Шен, Сянлонг Менг, Йе Сунь, Тиан Джин, Хон Шан, Цзытун Ся, Блайт ОффартПеревод: Дублированный (Лицензия BD-Rus)Субтитры: ОтсутствуютПродолжительность: 01:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCF30904F11F389336FC3D1F97E1D62CCBF40F24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 534218   (519705) от 13.08.2012
 
 Пираты! Банда неудачников / The Pirates! Band of Misfits (2012) [1080p] BDRip 3D [Горизонтальная анаморфная стереопара]
@@ -6,7 +111,7 @@
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519705.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514835.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514065.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513728.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512619.jpg" />
 </div>
 
 
@@ -137,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498307.jpg" />
 </div>
 
 
@@ -163,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495136.jpg" />
 </div>
 
 
@@ -190,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493500.jpg" />
 </div>
 
 
@@ -216,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479369.jpg" />
 </div>
 
 
@@ -242,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478406.jpg" />
 </div>
 
 
@@ -270,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477408.jpg" />
 </div>
 
 
@@ -296,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476107.jpg" />
 </div>
 
 
@@ -322,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474046.jpg" />
 </div>
 
 
@@ -348,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473321.jpg" />
 </div>
 
 
@@ -374,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471762.jpg" />
 </div>
 
 
@@ -400,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471758.jpg" />
 </div>
 
 
@@ -426,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471520.jpg" />
 </div>
 
 
@@ -452,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469162.jpg" />
 </div>
 
 
@@ -478,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468672.jpg" />
 </div>
 
 
@@ -504,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464266.jpg" />
 </div>
 
 
@@ -530,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459473.jpg" />
 </div>
 
 
@@ -556,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459285.jpg" />
 </div>
 
 
@@ -567,110 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8AC665F2D50A03587F57A9A19D53CCD0D66FA2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247367   (452421) от 15.09.2018
-
-Пчёлка Майя и Кубок мёда / Maya the Bee: The Honey Games (2018) Blu-ray 3D/2D [H.264/1080p] [Custom]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пчёлка Майя с нетерпением ждёт начала спортивных соревнований между ульями за Кубок мёда. Однако Императрица не только не допускает её улей до игр, но и требует, чтобы они отдали половину своего урожая мёда для питания других спортсменов. Такое положение дел не устраивает пчёлку, и она летит к Императрице, чтобы добиться включения её команды в список участников.Производство: Германия, Австралия / Studio 100 Media, Studio B AnimationЖанр: Мультфильм, Комедия, Приключения, СемейныйРежиссер: Ноэль Клири, Серджо Делфино, Алекс СтадерманнАктеры: Коко Джек Гиллис, Бенсон Джек Энтони, Ричард Роксбург, Джастин Кларк, Марни МакКуин, Линда Нго, Кэм Ральф, Джордан Хэа, Сэм Хафт, Питер МакАллумПеревод: Дублированный (iTunes)Субтитры: НемецкиеПродолжительность: 01:25:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:886D2F14125E235017D5A0ED8F1D933D19013A9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 827141   (448672) от 02.10.2014
-
-Букашки. Приключение в Долине муравьев / Minuscule - La vallee des fourmis perdues (2013) Blu-ray 3D [1080p] [3D/2D]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Активные и любознательные черные муравьишки обнаруживают брошенную после пикника коробку с сахаром. Дружный отряд муравьишек вместе с Божьей коровкой решают переправить лакомство в муравейник. Но сладкая коробка уже успела нарушить спокойствие во всей долине, и свои планы на лакомство появились у других обитателей леса, в частности — у злобных красных муравьев-захватчиков. (   Читать дальше...   )Производство: Франция, Бельгия, Futurikon, Entre Chien et Loup, Futurikon Production IIЖанр: Мультфильм, Семейный, ПриключенияРежиссер: Хелен Жиро, Томас ЗабоПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:28:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7FA43B188FEE8B7DDF18F89029E2FE73C703500
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 827116   (448668) от 02.10.2014
-
-Букашки. Приключение в Долине муравьев / Minuscule - La vallée des fourmis perdues (2013) BDRip [1080p] 3D [Вертикальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Активные и любознательные черные муравьишки обнаруживают брошенную после пикника коробку с сахаром. Дружный отряд муравьишек вместе с Божьей коровкой решают переправить лакомство в муравейник. Но сладкая коробка уже успела нарушить спокойствие во всей долине, и свои планы на лакомство появились у других обитателей леса, в частности — у злобных красных муравьев-захватчиков. (   Читать дальше...   )Производство: Франция | Futurikon, Entre Chien et Loup, Futurikon Production IIЖанр: Мультфильм, Семейный, ПриключенияРежиссер: Хелен Жиро, Томас ЗабоПеревод: Не требуетсяПродолжительность: 01:28:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D582F1E172AFFDB7DED731743E17BA576F8EEEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164781   (438775) от 10.09.2017
-
-Граница пустоты: Сад грешников (фильм первый) / Gekijo ban Kara no kyokai: Dai issho - Fukan fukei (2007) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сики Рёги — странная девушка из древнего и влиятельного рода. В любую погоду она ходит в кимоно, не любит общаться с посторонними, а из развлечений предпочитает прогулки по самым темным уголкам ночного Токио. Более-менее понимают ее только двое — циничная волшебница Токо Аодзаки и скромный гений оперативной работы Микия Кокуто. Вот такая веселая троица под чутким (   Читать дальше...   )Производство: Япония / Aniplex, Notes, UfotableЖанр: аниме, мультфильм, ужасы, триллерРежиссер: Эи АокиПерсонажи: Маая Сакамото, Кэнъити Судзумура, Такако Хонда, Аюми Фудзимура, Риэ Танака, Эри Накао, Сюдзо НакамураПеревод: Двуголосый закадровый, любительскийОзвучка: AnilibriaСубтитры: Русские - Полные (Вшитые отключаемые, отдельным файлом)Продолжительность: 00:49:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EFE63A86DF1023EF452E6CF7911DE03095F57EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,212 @@
+###  Публикация: 955522   (333609) от 11.11.2015
+
+Обои - Когда няшность зашкаливает. Часть 3. 2560x1440 - 100 шт [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третья часть очень няшного сборника про невыразимо пусеньких собачат.)Формат: JPGРазрешение файлов: 2560х1440
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:365B7F7EC6BDDC4E7E2445F43CBB7681E80938F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 840709   (333579) от 13.11.2014
+
+Современное изобразительное искусство - Phil Lewis [JPG]
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333579.jpg" />
+</div>
+
+
+###  Подробнее
+
+У художника Фила Льюиса (Phil Lewis) из Колорадо - особенный, неповторимый творческий стиль, благодаря которому его картины не забудешь, стоит их один раз увидеть. Кто-то скажет - психоделическая атака на мозг и глаза, кто-то назовет это бешенством цвета или художественным извращением... Фил Льюис (Phil Lewis) относится к своему творчеству с юмором и называет его (   Читать дальше...   )Формат: JPGРазрешение файлов: 481х740—1400х700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEF07B797592C661C9A6A1438E54016988BDDAAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955844   (332460) от 12.11.2015
+
+Обои - Творческий процесс. 2880x1620 - 100 шт [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Текстурные обои с "красочной мазнёй". Различные виды красок, подмалёвки на холсте, смешение цветов, палитрообразные фоны, тонкие оттенки, в общем, самый настоящий творческий процесс )). Находка для любителей создавать что-то новое на компе.Формат: JPGРазрешение файлов: 2880х1620
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6925728FA3A32DAAD05F3FFA6D7091304D6303B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955876   (332334) от 12.11.2015
+
+Обои - Best Wallpapers Mixed 169 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивые обои на различные темы для рабочего стола.Формат: JPGРазрешение файлов: 2560x1440
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:317B36E044EBF9A16275B49FDA16A4EF1BD404C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955801   (332214) от 12.11.2015
+
+Обои - Рабочий стол в стиле Суровый Челябинский. Часть 2. 1920x1080 - 100 шт [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередная подборочка сурового креатива для очень, очень серьезных парней (таких, как настоящие челябинцы), не терпящих всяческую "ваниль" и "няшность" на своем мониторе. )Формат: JPGРазрешение файлов: 1920х1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0540C1F44AE463EEC9FB05B6EEE336B681D9D578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 412754   (331398) от 20.11.2011
+
+Иллюстрации - Веселые иллюстрации Дениса Зильбера [JPG]
+
+>>Графика, Арт, Разное
+>>Книжная иллюстрация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весёлые иллюстрации Дениса Зильбера.
+О себе: "Привет! Меня зовут Денис Зильбер, и я внештатный иллюстратор и визуальный рассказчик с более чем 12-летним профессиональным опытом. Мне нравится работать в самых разных областях искусства, включая рекламу, редакцию и иллюстрацию детских книг, видео и настольные игры, дизайн персонажей для анимации и фильмов. В последние (   Читать дальше...   )Формат: JPGРазрешение файлов: от 451x700 до 1000x616
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64EB5EC1332596A2411DF40C0CF40CB9C54627CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956097   (331136) от 13.11.2015
+
+Картинки - Не бросила хозяйка зайку. 2048x1152 - 100 шт [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои с зайчками и кроликами, которых хозяева вовсе не бросили, а носят на руках, очень любят и активно фотографируют.)Формат: JPGРазрешение файлов: 2048x1152
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78ACD711DBCC24F6B64FBC3D4767B6206C0E3099
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956137   (331134) от 13.11.2015
+
+Обои - Архитектурные миры Трея Рэтклиффа. 1920x1080 - 100 шт [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальные HDR - фото американского фотографа, сделанные внутри разного рода архитектурных сооружений по всему миру. Всё самое интересное и грандиозное, что создано человечеством, не ускользнуло от наблюдательных "глаз" его фотокамеры. Интересные композиции, цветовые решения, оригинальная подача и даже чисто информационный аспект не оставят вас равнодушными).Формат: JPGРазрешение файлов: 1920х1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A05D87EAA3E68E0A5F2872AC076437BDF9FE635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 956230   (331067) от 13.11.2015
 
 Обои - Mix #3 1920x1200 [JPG]
@@ -6,7 +215,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331067.jpg" />
 </div>
 
 
@@ -33,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331064.jpg" />
 </div>
 
 
@@ -59,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331061.jpg" />
 </div>
 
 
@@ -85,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330264.jpg" />
 </div>
 
 
@@ -111,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330148.jpg" />
 </div>
 
 
@@ -137,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329218.jpg" />
 </div>
 
 
@@ -163,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329217.jpg" />
 </div>
 
 
@@ -189,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328344.jpg" />
 </div>
 
 
@@ -215,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327550.jpg" />
 </div>
 
 
@@ -241,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327498.jpg" />
 </div>
 
 
@@ -267,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327487.jpg" />
 </div>
 
 
@@ -293,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326715.jpg" />
 </div>
 
 
@@ -319,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326597.jpg" />
 </div>
 
 
@@ -345,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326594.jpg" />
 </div>
 
 
@@ -371,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326533.jpg" />
 </div>
 
 
@@ -397,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325737.jpg" />
 </div>
 
 
@@ -423,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325733.jpg" />
 </div>
 
 
@@ -449,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325682.jpg" />
 </div>
 
 
@@ -460,214 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:148E1DC901BAA88251C1F4D6593A082E28C15E76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958061   (325626) от 19.11.2015
-
-Обои - 100 Best Wallpapers 5 1920x1080 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325626.jpg" />
-</div>
-
-
-###  Подробнее
-
-100 Best Wallpapers в формате Full HDФормат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C36212493F48156E907306DA9C47C2533C46E634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957900   (325614) от 19.11.2015
-
-Картинки - Змей - искуситель. 2048x1152 - 100 шт [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эффектные обои с хитрыми, коварными, не на шутку опасными рептилиями, в том числе и легендарными в этом плане "змиями зелеными", вечно искушающими род людской.Формат: JPGРазрешение файлов: 2048х1152
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2A0F58E9B4CCE7913F0E6800AFE5AF991F05582
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957889   (325551) от 19.11.2015
-
-Иконки - Vista-like Visual Studio 2013 Boxes - Vol.1 - Impervious [ICO, PNG]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vista-like - это коробочные продукции распространенных операционных систем Windows и не только выполненные в стиле Windows Vista Box.Формат: ICO, PNGРазрешение файлов: 16x16 - 483x483
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E163855A48F27912B2BB3A2023F7694DF6DB0AF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957959   (325546) от 19.11.2015
-
-Иконки - Vista-like Visual Studio 2013 Boxes - Vol.2 - Translucent [ICO, PNG]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vista-like - это коробочные продукции распространенных операционных систем Windows и не только выполненные в стиле Windows Vista Box.Формат: ICO, PNGРазрешение файлов: 16x16 - 483x483
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5AAC814D0881D6634AC028994FB1EB2E9B710CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957872   (325541) от 19.11.2015
-
-Обои - Сборник обоев. Космос. 2560x1440 - 90 шт [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая подборка качественных обоев на тему космоса для вашего рабочего стола.Формат: JPGРазрешение файлов: 2560x1440
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8DDA12B007B46E086F15A9BBEC0032841138538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957778   (325490) от 19.11.2015
-
-Иконки - Vista-like Windows 10 Boxes v3 [ICO, PNG]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vista-like - это коробочные продукции распространенных операционных систем Windows и не только выполненные в стиле Windows Vista Box.Формат: ICO, PNGРазрешение файлов: 16x16 - 483x483
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1681722D9586213DA07FBC47EB09BE2CEC7BEDF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958127   (324912) от 20.11.2015
-
-Обои - Совсем не аngry birds. 2880x1620 - 100 шт [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои с очень милыми пташками, которые ну ни капельки не похожи на персонажей популярной игры "Аngry birds".)Формат: JPGРазрешение файлов: 2880х1620
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BF402C5305D7415F7BD35BA57E0675801107314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958259   (324777) от 20.11.2015
-
-Обои - Змей - искуситель. Часть 2. 1920x1080 - 100 шт [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая часть сборника обоев про жутко красивых змей.Формат: JPGРазрешение файлов: 1920х1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F7323B884D0B132410486114DEAC0F1E78A8AE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

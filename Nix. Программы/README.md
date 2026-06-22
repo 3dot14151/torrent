@@ -7,7 +7,7 @@ CrossOver Linux 26.1.0 [x64] (deb, rpm, bin)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070497.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ VMware Workstation Pro 26H1 26.0.0.25388281 [En] [x64] (bundle)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070496.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Tor Browser 15.0.14 [Multi/Ru] (tar.xz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070495.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ RAR for Linux 7.22 [x64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069863.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Zimbra OSE (Open Source Edition) 10.1.16 [x64, amd64] (tgz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066208.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ DeaDBeeF for Linux 1.10.2 [x86_64] (deb, rpm, pkg.tar.xz, tar.bz2)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061599.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ DeaDBeeF for Linux 1.10.1 [x86_64] (deb, rpm, pkg.tar.xz, tar.bz2)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061270.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ RAR for Linux 7.20 [x64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056130.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Tor Browser 2.3.25-2 [анонимный доступ в сети] [i686, x86-64
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997709.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Tor Browser 5.0.7 [анонимный доступ в сети] [х86, x64] (bun
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978814.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ MultiBootUSB 7.5.0 [x86, x86_64] (deb, rpm)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970371.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Insofta Cover Commander 3.6.0 Repack The Hacker [x86-64] (cxarchive)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969434.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Microsoft Office 2003 Professional SP3 (обновления 02.01.2016) Repack 
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965243.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Tor Browser 2.3.25-4 [анонимный доступ в сети] [i686, x86-64
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957534.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Tor Browser 5.5 [анонимный доступ в сети] [х86, x64] (bundl
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955673.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ MKVToolNix v6.1.0 ('Old Devil') for Ubuntu 12.04 ('Precise Pangolin')
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942695.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Dynamic A-D Ports for Applications [Авторский релиз] 1.0 [x86, x64
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932177.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Linux UsefulPack 16.02 (L) [Русский] (2016) [x86 + amd64]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_914721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_914721.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Tor Browser 2.3.25-5 [анонимный доступ в сети] [i686, x86-64
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912648.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Tor Browser 2.3.25-6 [анонимный доступ в сети] [i686, x86-64
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_884413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_884413.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Skype for Linux Alpha 1.17.0.1 [x86_x64] (deb, rpm)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876058.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ MovieShot 1.0 [x86] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862526.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Box Shot 3D 2.10 [En] [x86, x64] (cxarchive)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857171.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Tor Browser 2.3.25-8 [анонимный доступ в сети] [i686, x86-64
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807285.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798982.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ DaVinci Resolve for Linux 17.4.3 Build 10 [amd64] (run, deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743432.jpg" />
 </div>
 
 

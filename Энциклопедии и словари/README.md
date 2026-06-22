@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068445.jpg" />
 </div>
 
 
@@ -27,6 +27,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867705   (1067232) от 26.04.2026
+
+Памва Берында | Лексикон славеноросский. Имен толкование (1653) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1067232.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Лексикон славеноросский и имен толкование» Памвы Берынды — фундаментальный печатный церковнославянский словарь, содержащий толкование около 7000 слов. Это важнейший памятник лексикографии, включающий первую часть — толковый словарь, и вторую — толкование собственных имен.
+"Лексикон ..." Памва Берынды - это не просто толково-переводной словарь с церковнославянского (   Читать дальше...   )Жанр: Историческая лексикография. Словари древнерусского языка и церковной лексикиИздательство: Кутеинский монастырьФормат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9753CFA9C6CA4035CBFA110287369A6306B019BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861053   (1062180) от 24.03.2026
 
 Валентин Цветков | Космос. Полная энциклопедия (2024) [PDF]
@@ -35,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062180.jpg" />
 </div>
 
 
@@ -53,6 +80,87 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859715   (1061487) от 17.03.2026
+
+Е.Н. Антонова (сост.) | Русско-цыганский словарь (2025) [PDF, FB2, RTF, TXT, EPUB, MOBI] [RU, RM]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1061487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это новая редакция словаря, с большим дополнением и исправлениями.  «Русско-цыганский словарь. Диалект русска рома» можно назвать словарём-разговорником. Это один из наиболее полных современных ресурсов по диалекту русских цыган. Издание включает тысячи слов, выражения, грамматические пояснения, ориентировано на сохранение языка и традиций, а также на понимание песенной (   Читать дальше...   )Жанр: Справочная литератураЯзык: Русский. ЦыганскийИздательство: Самиздат в системе RideroФормат: PDF, FB2, RTF, TXT, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06A8C47E288B94A922A5BEA8444B438FA77AC151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858802   (1060739) от 13.03.2026
+
+Ольга Бортник | Все алкогольные напитки и коктейли мира (2015) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1060739.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной книге представлены основные виды спиртных напитков: виски, водка, джин, коньяк, ликер, вино и др. Рассказывается об истории их появления, регионах и технологических особенностях производства. Информация о ведущих производителях и марках, а также дегустационные заметки (аромат, вкус), приведенные на страницах этого издания, несомненно, помогут вам лучше разобраться (   Читать дальше...   )Жанр: ЭнциклопедииИздательство: ХарвестФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69CEAC4E7581B0D9BFD7F31D8CC5BCB32BB702B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858262   (1060320) от 10.03.2026
+
+О.В. Михайлова (ред.) | Словарь синонимов русского языка. Словарь антонимов русского языка (2016) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1060320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Словарь (издание 3-е) состоит из двух частей. Первая часть посвящена синонимам и содержит около 8000 статей, вторая – антонимам и содержит около 8000 пар антонимов.
+Основные характеристики словаря
+- Содержание: Объединяет словарь синонимов и словарь антонимов в одной книге.
+- Объем: Включает наиболее употребительне слова, живую разговорную речь, общеупотребительные (   Читать дальше...   )Жанр: лингвистическая, справочная литератураИздательство: Виктория плюсФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6727DDEC67F96C545520DC87ED9E2661F521C3F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854582   (1057543) от 18.02.2026
 
 Ос Арутюнян | Домашние животные. Популярный иллюстрированный гид (2026) [PDF]
@@ -61,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057543.jpg" />
 </div>
 
 
@@ -90,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055051.jpg" />
 </div>
 
 
@@ -116,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055049.jpg" />
 </div>
 
 
@@ -143,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055048.jpg" />
 </div>
 
 
@@ -169,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055045.jpg" />
 </div>
 
 
@@ -197,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055044.jpg" />
 </div>
 
 
@@ -223,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055043.jpg" />
 </div>
 
 
@@ -251,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055042.jpg" />
 </div>
 
 
@@ -277,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055041.jpg" />
 </div>
 
 
@@ -303,7 +411,7 @@ The Diagram Group | Musical Instruments of the World. An Illustrated Encyclopedi
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055039.jpg" />
 </div>
 
 
@@ -331,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055024.jpg" />
 </div>
 
 
@@ -357,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054894.jpg" />
 </div>
 
 
@@ -383,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054893.jpg" />
 </div>
 
 
@@ -409,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054892.jpg" />
 </div>
 
 
@@ -435,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054773.jpg" />
 </div>
 
 
@@ -462,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054354.jpg" />
 </div>
 
 
@@ -488,7 +596,7 @@ Marek Golebiowski | An Encyclopedia of American Culture (2016) [PDF] [EN]
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053799.jpg" />
 </div>
 
 
@@ -514,7 +622,7 @@ Anthony C. Thiselton | A Concise Encyclopedia of the Philosophy of Religion (200
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053798.jpg" />
 </div>
 
 
@@ -540,7 +648,7 @@ Manju Jaidka, Tej N. Dhar | The Routledge Encyclopedia of Indian Writing in Engl
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053797.jpg" />
 </div>
 
 
@@ -566,7 +674,7 @@ Philip M. Peek, Kwesi Yankah | African Folklore. An Encyclopedia (2004) [PDF] [E
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053796.jpg" />
 </div>
 
 
@@ -577,118 +685,6 @@ Written by an international team of experts, this is the first work of its kind 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54696353725CDC91CD8F8EABB496483FF29D8037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849376   (1053793) от 23.01.2026
-
-Lilia Fernández | 50 Events That Shaped Latino History. An Encyclopedia of the American Mosaic (2018) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Which historical events were key to shaping Latino culture? This book provides coverage of the 50 most pivotal developments over 500 years that have shaped the Latino experience, offering primary sources, biographies of notable figures, and suggested readings for inquiry.
-
-Latinos—people of European, Indigenous, and African descent—have had a presence in North America (   Читать дальше...   )Жанр: Энциклопедии, Латинская АмерикаЯзык: АнглийскийИздательство: GreenwoodФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB599AFF561F7C943C4CB303642E02E7550C24EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849375   (1053792) от 23.01.2026
-
-BradyGames | Capcom 30th Anniversary Character Encyclopedia (2013) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Established in 1983, Capcom is one of the world's most well-known video game publishers and is recognized for creating many important game franchises, such as Mega Man™, Resident Evil™, and Street Fighter™.
-Full of facts, statistics, and historical information, the Capcom 30th Anniversary Character Encyclopedia will offer any fan of Capcom's illustrious library of (   Читать дальше...   )Жанр: Энциклопедии, ИгрыЯзык: АнглийскийИздательство: DKФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:502DC2AA051A9D903844AD98AF6B051B9E2A7DBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849364   (1053791) от 23.01.2026
-
-Jay H. Lehr, Jack Keeley | Alternative Energy and Shale Gas Encyclopedia (2016) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053791.jpg" />
-</div>
-
-
-###  Подробнее
-
-A comprehensive depository of all information relating to the scientific and technological aspects of Shale Gas and Alternative Energy.
-Conveniently arranged by energy type including Shale Gas, Wind, Geothermal, Solar, and Hydropower.
-Perfect first-stop reference for any scientist, engineer, or student looking for practical and applied energy information.
-Emphasizes (   Читать дальше...   )Жанр: Энциклопедии, ГидроэнергетикаЯзык: АнглийскийИздательство: John Wiley & SonsФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:812B47F2A176FB4CE2298F46FF19DD3211F9655F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849415   (1053777) от 23.01.2026
-
-Mathew Klickstein | The Little Encyclopedia of Jewish Culture/ 101 People, Places, Things (and Foods) Every Jew Should Know (2022) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Celebrate Jewish culture with this fun collection of facts and stories!
-
-Jewish traditions aren't just something they sing about in Fiddler on the Roof. Explore them all with this delightful book of essential Jewish foods, philosophers, pop culture, and more. It's sure to be way more satisfying than the typical encyclopedia—but probably not as exciting as finding (   Читать дальше...   )Жанр: Энциклопедии, Традиции народовЯзык: АнглийскийИздательство: CallistoФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:023E9339C39F1EBCD5A28480C9050ECA8F69A217
 ```
 
 https://mybot314.ru/tekegram_catalog/

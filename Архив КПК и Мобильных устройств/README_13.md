@@ -6,7 +6,7 @@ Download Accelerator Plus v20190816 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918976.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Womba - Icon Pack v1.6.2 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918974.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Gaming Logo Maker - Premium v1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918971.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BusyBox PRO v70 + Русская версия [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918892.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918161.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918092.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918054.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918037.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918015.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917958.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917530.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916680.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Dogz 2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916607.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916600.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ The Last Defender [zh]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916589.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ City Navigator Southern Africa NT 2013.40 [Карта] (Garmin)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916525.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916500.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ GUN BROS HD 1.3.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916483.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916420.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ City Navigator India NT 2013.10 [Карта] (Garmin)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916375.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Reactable Mobile v2.3.17 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915780.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ aCurrency Pro (Exchange Rate) v5.07 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915661.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ INKredible PRO v1.1.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915647.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VSD Viewer for Visio Drawings v1.0.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915555.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Pear Launcher Pro v2.0.8 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915536.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Stellarium Mobile PLUS - Star Map v1.2.10 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915446.jpg" />
 </div>
 
 

@@ -1,3 +1,89 @@
+###  Публикация: 1604661   (1045305) от 14.01.2023
+
+Above & Beyond - Group Therapy Best Of 2022 pt.2 (2022) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Above & Beyond -  Group Therapy Intro (ABGTN2023)  (0:31)
+02.  16BL, Wild Dark, Megan Morrison -  Shadows On The Wall (ABGTN2023) (3:56)
+03.  Above & Beyond -  Group Therapy (Messages Pt. 1)Жанр: EDM, Progressive House, Tech HouseПродолжительность: 01:56:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CF06366E462198B1CBD562AE9FEBE3F14B90AC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605088   (1045079) от 16.01.2023
+
+Danilo Ercole - Profundo Collected Vol.2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Electro House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bit (6:45)
+ 02. Deep Space (6:08)
+ 03. Dopamina (6:46)
+ 04. Payback (6:08)(   Читать дальше...   )Жанр: Progressive House, Electro House, Tech HouseПродолжительность: 01:26:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D92404ADF85B8205DD049EECF1FB03B6627629D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605543   (1044854) от 18.01.2023
+
+Boundless - 100Sec to Midnight (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Electro House, Tech House, Bassline>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Subliminal Villages (Original mix) (8:08)
+ 02. Contrast (ft. Synesthetic) (Original mix) (7:03)
+ 03. Butterfly  (ft. Luis M) (Original mix) (7:21)
+ 04. Modern Miracles (Original mix) (8:26)(   Читать дальше...   )Жанр: Progressive House, Electro House, Tech House, BasslineПродолжительность: 01:54:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C6394930EFE1FA6FD13A38112EAE41141838B39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606789   (1044301) от 23.01.2023
 
 VA - Black Hole House Music 01-23 (2023) [FLAC|Lossless|WEB-DL|tracks] <EDM, Club House>
@@ -6,7 +92,7 @@ VA - Black Hole House Music 01-23 (2023) [FLAC|Lossless|WEB-DL|tracks] <EDM, Clu
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044301.jpg" />
 </div>
 
 
@@ -35,7 +121,7 @@ Dj Nikk - The Millenniummmix (2000) [FLAC|Lossless|tracks + .cue] <House, Hard H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044162.jpg" />
 </div>
 
 
@@ -64,7 +150,7 @@ VA - The Soundgarden: Winter Collection 2023 (2023) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043936.jpg" />
 </div>
 
 
@@ -93,7 +179,7 @@ Satin Jackets - Reunion (2022) [FLAC|Lossless|tracks + .cue] <House, Deep House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043813.jpg" />
 </div>
 
 
@@ -122,7 +208,7 @@ VA - Dialtone Records - 15 Years Anniversary (2023) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043634.jpg" />
 </div>
 
 
@@ -151,7 +237,7 @@ VA - FG Top10: January 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043555.jpg" />
 </div>
 
 
@@ -180,7 +266,7 @@ Stanisha - Slow (2023) [FLAC|Lossless|WEB-DL|tracks] <Deep Techno, Organic House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043366.jpg" />
 </div>
 
 
@@ -209,7 +295,7 @@ Marsh - Endless (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043242.jpg" />
 </div>
 
 
@@ -238,7 +324,7 @@ Jean-Michel Jarre - Welcome To The Other Side (2020) [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042995.jpg" />
 </div>
 
 
@@ -267,7 +353,7 @@ VA - Nine Years Of Techno: Selected by Greencross (2019) [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042818.jpg" />
 </div>
 
 
@@ -296,7 +382,7 @@ VA - Nine Years Of Techno Part 2: Selected by Greencross (2019) [FLAC|Lossless|W
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042815.jpg" />
 </div>
 
 
@@ -322,7 +408,7 @@ VA - Notes & Harmonies, Vol. 10 (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042155.jpg" />
 </div>
 
 
@@ -351,7 +437,7 @@ Gui Boratto - Backstage (2020) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042038.jpg" />
 </div>
 
 
@@ -380,7 +466,7 @@ Kerala Dust - Light, West (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Orga
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041729.jpg" />
 </div>
 
 
@@ -409,7 +495,7 @@ Hoten - 29 Summers Album Remixes (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040560.jpg" />
 </div>
 
 
@@ -438,7 +524,7 @@ Bob Moses - Коллекция [3 Albums] (2020-2021) [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040369.jpg" />
 </div>
 
 
@@ -467,7 +553,7 @@ Hoten - 29 Summers (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040140.jpg" />
 </div>
 
 
@@ -496,7 +582,7 @@ Dezza - Cosmos (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040121.jpg" />
 </div>
 
 
@@ -525,7 +611,7 @@ Shingo Nakamura - Silk Music Pres. Shingo Nakamura 02 (2017) Compilation, DJ Mix
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039926.jpg" />
 </div>
 
 
@@ -554,7 +640,7 @@ VA - The Sound of 2023 Mix 3: Tokyo (2023) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039652.jpg" />
 </div>
 
 
@@ -583,7 +669,7 @@ Shingo Nakamura - Silk Music Pres. Shingo Nakamura 03 (2019) Compilation, DJ Mix
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039609.jpg" />
 </div>
 
 
@@ -612,7 +698,7 @@ Shingo Nakamura - Silk Digital Pres. Shingo Nakamura 01 (2014) Compilation, DJ M
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039564.jpg" />
 </div>
 
 
@@ -641,7 +727,7 @@ VA - The Sound of 2023 Mix 2: Seoul (2023) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039087.jpg" />
 </div>
 
 
@@ -655,92 +741,6 @@ VA - The Sound of 2023 Mix 2: Seoul (2023) [FLAC|Lossless|WEB-DL|tracks] <Progre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82DC7EC3732B648A7383405ECFADA9DB6DBEE857
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613991   (1038867) от 21.02.2023
-
-VA - Defected Presents House Masters - Mr. V (2022)[FLAC|Lossless|WEB-DL|tracks] <Electronic, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. V – Jus Dance (06:51)
-02. Mr. V – Somethin' Wit Jazz (07:03)
-03. Mr. V – V Gets JazzyЖанр: Electronic, HouseПродолжительность: 03:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:381C57D6C86A27659FF1194823E2ABD68EB8407C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614240   (1038862) от 21.02.2023
-
-VA - The Sound of 2023 Mix 1: Hong Kong (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Techno, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  F4T4L3RR0R -  The Pulse of Darkness (Intro)  (2:06)
-02.  One Release -  Helm's Deep  (5:41)
-03.  Monodusk -  Eden 2099  (5:21)
-04.  James De Torres -  Out of Darkness  (5:12)(   Читать дальше...   )Жанр: Progressive House, Techno, TranceПродолжительность: 01:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9756BB2A556E6CED5701D1C964FB2E190A9F1A36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440582   (1038848) от 17.01.2021
-
-VA - Balearic Headspace Volume 1-5 (2016-2020) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-Disco, Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BestInSpace - Emmanuelle Kant (4:16)
-02. Hong Kong Syndikat - Too Much (7:12)
-03. Massimo Vanoni - For Your Love (8:24)
-04. Tripman & Sandrobianchi - Woman (6:24)(   Читать дальше...   )Жанр: House, Nu-Disco, DiscoПродолжительность: 09:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B3F558C1339F12A6B77E740380A39F9FC62408
 ```
 
 https://mybot314.ru/tekegram_catalog/

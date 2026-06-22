@@ -6,7 +6,7 @@
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641150.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635068.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631775.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628809.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618342.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609465.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605513.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566087.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560399.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557236.jpg" />
 </div>
 
 
@@ -264,6 +264,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 211529   (540156) от 30.07.2017
+
+Классическое искусство - Айвазовский Иван Константинович [JPG]
+
+>>Графика, Арт, Разное
+>>Классическое искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_540156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иван Константинович Айвазовский (арм.  , Ованнес Айвазян; 17 [29] июля 1817 год, Феодосия — 19 апреля [2 мая] 1900 год, там же) — всемирно известный русский художник-маринист, баталист, коллекционер, меценат. Живописец Главного Морского штаба, академик и почётный член Императорской Академии художеств, почётный член Академий художеств в Амстердаме, Риме, Париже, Флоренции (   Читать дальше...   )Формат: JPGРазрешение файлов: 491x800 - 2299x1100
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 531752   (540037) от 06.08.2012
 
 [Графика] Галерея православных икон
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540037.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538509.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509573.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504388.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504382.jpg" />
 </div>
 
 
@@ -412,7 +438,7 @@ Artworks by Tiziano Vecellio [Графика]
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489151.jpg" />
 </div>
 
 
@@ -438,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489060.jpg" />
 </div>
 
 
@@ -464,7 +490,7 @@ Artworks by Jan Brueghel The Elder (1568-1625) [Графика]
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476292.jpg" />
 </div>
 
 
@@ -490,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475756.jpg" />
 </div>
 
 
@@ -516,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471278.jpg" />
 </div>
 
 
@@ -544,7 +570,7 @@ Artworks by LUKYANOV [Графика]
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460430.jpg" />
 </div>
 
 
@@ -570,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457778.jpg" />
 </div>
 
 
@@ -596,7 +622,7 @@ Metropolitan Museum Of Art - European Paintings p.1 [Графика]
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450435.jpg" />
 </div>
 
 
@@ -622,7 +648,7 @@ Metropolitan Museum Of Art - European Paintings p.2 [Графика]
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450278.jpg" />
 </div>
 
 
@@ -648,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446519.jpg" />
 </div>
 
 
@@ -659,33 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A6AF562DC40D9640E411B48E0C9772A544BFA70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 268976   (446510) от 15.08.2022
-
-Репродукции картин - Русская и советская живопись. Иконы [JPG]
-
->>След.
->>Классическое искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русская живопись. Большая коллекция (Дополненная).
-Вашему вниманию предлагается большая, кропотливо собранная из различных источников коллекция русской живописи, начиная приблизительно с ХV века и заканчивая настоящим временем. Более 1000 мастеров и 25 000 полотен. Присутствует короткая информация о художнике в персональных папках.Формат: JPGРазрешение файлов: 600x600 до ~7500x5250
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6548A31E695753FEAD07A87F1A27930F16943F2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

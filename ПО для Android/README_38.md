@@ -1,3 +1,30 @@
+###  Публикация: 1331700   (874029) от 09.04.2020
+
+Notify & Fitness for Amazfit v9.0.4 [Ru/Multi] - Программа для умных часов Amazfit (обновляемая)
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение для синхронизации данных, прошивки, отслеживания сна и спортивной деятельности умных часов.
+Приложение Notify & Fitness for Amazfit позволяет выводить на экран Amazfit Bip/Arc/Cor имя вызывающего абонента, сообщения из мессенджеров, анализировать результаты тренировки, настраивать уведомления для любого контакта, осуществлять мониторинг сна, обновлять (   Читать дальше...   )Тип издания: Пиратка (Pro версия)Релиз состоялся: 01.04.2020Разработчик: OneZeroBitПоддерживаемая ОС: Android 4.3+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7E6EBDF470A8E4E822780633C974392A3C939D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997726   (873278) от 17.03.2016
 
 The Meridian v2.0 [En] - 3D-модель человеческого тела с меридианами и акупунктурными точками
@@ -6,7 +33,7 @@ The Meridian v2.0 [En] - 3D-модель человеческого тела с 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873278.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Parallel SpaceMulti Accounts v4.0.8934 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872446.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ Magisto Video Editor & Maker 4.13.15782 [Ru] - Редактор видео со 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872409.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ Chromatix (Black and White Photo Colorizer) v1.3.98 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872334.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ Wunderlist: To-Do List & Tasks Pro 3.4.19 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868474.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ Scan - QR and Barcode Reader v2.3 [En/Ru] - Сканирование QR и сч�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867409.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ MultiNotes v2.10 [Ru/Multi] - удобные Заметки с напомина�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866349.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866346.jpg" />
 </div>
 
 
@@ -220,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864292.jpg" />
 </div>
 
 
@@ -246,7 +273,7 @@ FolderSync Pro v3.1.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864276.jpg" />
 </div>
 
 
@@ -272,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863282.jpg" />
 </div>
 
 
@@ -299,7 +326,7 @@ Relax Mountain ~ Nature Sounds PRO v4.3.1 [Ru/Multi] - Расслабьтесь 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862817.jpg" />
 </div>
 
 
@@ -326,7 +353,7 @@ Relax Night ~ Nature Sounds PRO v4.4.0 [Ru/Multi] - Отдых с лучшими
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862802.jpg" />
 </div>
 
 
@@ -353,7 +380,7 @@ Relax Sea ~ Ocean Sounds PRO v5.3.1 [Ru/Multi] - Расслабьтесь с л�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862719.jpg" />
 </div>
 
 
@@ -380,7 +407,7 @@ RAR v6.10 Premium [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862625.jpg" />
 </div>
 
 
@@ -406,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862505.jpg" />
 </div>
 
 
@@ -435,7 +462,7 @@ Bass Guitar Tutor Pro ver.Feels (134) [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861087.jpg" />
 </div>
 
 
@@ -461,7 +488,7 @@ Root Essentials Premium 2.4.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860183.jpg" />
 </div>
 
 
@@ -487,7 +514,7 @@ Manual FX Camera 1.0.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860154.jpg" />
 </div>
 
 
@@ -513,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859302.jpg" />
 </div>
 
 
@@ -539,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859292.jpg" />
 </div>
 
 
@@ -566,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859233.jpg" />
 </div>
 
 
@@ -592,7 +619,7 @@ Photo Editor by Aviary Premium 4.5.5 [Rus] - Фоторедактор
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858624.jpg" />
 </div>
 
 
@@ -618,7 +645,7 @@ VOCHI v2.28.1 [Ru/Multi] - видеоредактор, эффекты и фил�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857794.jpg" />
 </div>
 
 
@@ -644,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857402.jpg" />
 </div>
 
 
@@ -655,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:167C5EDE6F0BEAE91541A990612A0B58F69DC2AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 654942   (857401) от 26.09.2021
-
-PicsArt - Photo Studio v18.1.1 Mod by Alexey070315 [Ru/En]
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многофункциональный фото редактор и фото сообщество. PicsArt сочетает в себе лучшие черты многих фото приложений. Это один из лучших и наиболее завершённых фото редакторов доступных бесплатно на рынке для устройств с операционной системой Android. Графический редактор - миллион фото манипуляций - маски, коллажи, рамки, границы, наклейки, текстовые эффекты, иллюстративная (   Читать дальше...   )Тип издания: Пиратка (PREMIUM features Unlocked | Ads Removed)Релиз состоялся: 23.09.2021Разработчик: PicsArtПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B7B32980F7F90638A685D16A37F965366E2EA1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

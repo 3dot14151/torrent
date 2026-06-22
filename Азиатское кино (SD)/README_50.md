@@ -1,3 +1,81 @@
+###  Публикация: 1583136   (230174) от 13.10.2022
+
+Волки / The Wolves (2022) WEB-DLRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самолет с членами отряда по борьбе с браконьерами терпит крушение над тайгой. Выживают не все, но тем, кто пришел в себя после приземления, еще предстоит побороться за свою жизнь со стаей волков-мутантов – гигантских, высокоорганизованных и очень голодных.Производство: КитайЖанр: Приключения, триллер, драмаРежиссер: Ло Ци, Хуан СыюаньАктеры: Аллен Го, Ши Чжэньлун, Ма Юань, Лю Ихань, Чжу Шубэй, Люн Ка-Янь, Ду ШуайПеревод: Одноголосый любительский (datynet)Язык озвучки: русский, китайскийСубтитры: отсутствуютПродолжительность: 01:21:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21BDCB2C2EAB7AA475ECFDC4D04C4CCA9446E0EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583393   (230081) от 14.10.2022
+
+Ты была подобна дикой хризантеме / Nogiku no gotoki kimi nariki / She Was Like a Wild Chrysanthemum (1955) WEB-DLRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой возвращается в места, где прошла его юность, и предается воспоминаниям о первой любви. Развиваются два параллельных сюжета — в прошлом и в настоящем. Но, как бы не сложился нынешний, былой уже свершился, и никакие действия не могут повлиять на его исход.Производство: Япония, Shochiku Films Ltd.Жанр: драма, мелодрамаРежиссер: Кэйсукэ КиноситаАктеры: Норико Арита, Тисю Рю, Харуко Сугимура, Такахиро Тамура, Тошио Кобаяси, Каппэй Мацумото, Кадзуко Мотохаси, Нобуо Такаги, Синдзи Танака, Кумэко УрабэПеревод: Двуголосый любительский (Head Pack Films)Язык озвучки: русский, японскийСубтитры: русский, английскийПродолжительность: 01:32:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B7C520FFA72307F0A2D53E6622AC773141A66A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341491   (230007) от 28.11.2019
+
+Сторонник (Нарковойна) / Dokjeon / Believer (2018) HDRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230007.jpg" />
+</div>
+
+
+###  Подробнее
+
+В руки оперативников из отдела по борьбе с наркотиками попадает один из работников взорвавшейся нарколаборатории. Чтобы отомстить за погибшую мать, он начинает сотрудничество с органами и обещает сдать всю сеть, вплоть до верховного наркобарона, неуловимого мистера Ли. Глава опергруппы, используя информатора, запускает масштабную операцию, и теперь его команде предстоит (   Читать дальше...   )Производство: Южная Корея, Yong FilmЖанр: Боевик, триллер, драма, криминалРежиссер: Ли Хэ-ёнАктеры: Чо Джин-ун, Рю Джун-ёль, Ким Джу-хёк, Пак Хэ-джун, Чха Сын-вон, Ким Сон-нён, Со Хён-у, Кан Сын-хён, Чон Джун-вон, Чон Га-рамПеревод: Двуголосый любительский, одноголосый любительскийСубтитры: Русские (ФСГ 'cardinals'), английские - отдельными файламиПродолжительность: 02:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BA7FAAB7CD3F43B5AD6EB4ECFB1EF8D2350BAD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341510   (229930) от 28.11.2019
 
 С Богами: Последние 49 дней / Singwa hamkke: ingwa yeon / Along with the Gods: The Last 49 Days (2018) HDRip [MVO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_229930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229930.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229876.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229870.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229854.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229781.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229336.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229052.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228936.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228842.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228642.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228321.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228108.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228072.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227885.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227157.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226790.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226327.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226284.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225161.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225140.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225000.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_224050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224050.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223873.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2402B229EF25ECE0DB9119329042EA435A192050
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342494   (223655) от 02.12.2019
-
-Бог китов / Kujira gami / The Whale God (1962) DVDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь китобоев сурова и опасна. Дед, отец и старший брат Сяки погибли в борьбе с огромным китом. Теперь смыслом жизни Сяки стала месть. Но покорить чудовище, которое в два раза больше обычного кита очень непросто. За победу обещана щедрая награда, многие жители деревни хотели бы вступить в бой с морским дьяволом.Производство: Япония, Daiei StudiosЖанр: Фэнтези, драмаРежиссер: Токудзо ТанакаАктеры: Кёко Энами, Сихо Фудзимура, Кодзи Фудзияма, Кодзиро Хонго, Синтаро Кацу, Бонтаро Миякэ, Тиэко Мурата, Такаси Симура, Митико Такано, Косукэ ТакэмураПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские - отдельным файломПродолжительность: 01:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87DC8E561AFBD773ADA50D57F72DA2BBBAADAA23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342577   (223222) от 02.12.2019
-
-Кровавый транзит / The Mongolian Connection (2019) SATRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работающий под прикрытием агент ФБР Уэйд Далтон совершает дерзкий захват Серика Ибраева, члена преступного синдиката по торговле людьми. В кратчайший срок Далтон вместе с опытным полицейским Ганзоригом должен доставить Ибраева в Монголию для того, чтобы тот дал показания в суде против лидера синдиката, своего друга детства, Тенжина. А Тенжин сделает все возможное, (   Читать дальше...   )Производство: Монголия / Hollywood Film Academy, IFI ProductionЖанр: БоевикРежиссер: Дрю ТомасАктеры: Балжиннямын Амарсайхан, Каиви Лайман, Санжар Мади, Жандос Айбасов, Бямбын Цэцэгээ, Кейт Амундсен, Брэндон Фоббс, Дебора ПуэттеПеревод: ДублированныйСубтитры: Английские (на надписи, hardsub)Продолжительность: 01:32:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C9F181543247D013477A5703E1BC87AD54B5B29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425333   (222683) от 20.11.2020
-
-Операция «Пума» / Codename Cougar / Dai Hao Mei Zhou Bao (1989) DVDRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа тайваньских террористов захватывает личный самолет одного из самых видных бизнесменов на острове с заложниками на борту, чтобы освободить из тюрьмы своего лидера. В ходе операции главарь террористов выводит из строя систему навигации самолета, и тогда пилот оказывается вынужден совершить аварийную посадку на территории, подвластной КНР. Смогут ли правительства (   Читать дальше...   )Производство: Китай, Xi'an Film StudioЖанр: Драма, триллерРежиссер: Чжан Имоу, Ян ФэнлянАктеры: Гэ Ю, Гун Ли, Цзя Чжаоцзи, Лю Сяонин, Тянь Минь, Ван Сюэци, Ян Ячжоу, Юй ЖунгуанПеревод: Двуголосый любительский (Franek Monk & Filkons)Субтитры: Английские - отдельным файломПродолжительность: 01:16:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAED385800CB064E0AE9BB569CBACFBF7E04CF88
 ```
 
 https://mybot314.ru/tekegram_catalog/

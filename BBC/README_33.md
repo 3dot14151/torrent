@@ -1,3 +1,29 @@
+###  Публикация: 1598445   (21068) от 18.04.2025
+
+BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.265/2160p] [4K, HDR, 10-bit] (Сезон 1, эпизод 1-7 из 7)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несмотря на то, что вода занимает две трети планеты, о глубинах океана мы знаем меньше, чем о поверхности Луны. Сериал открывает всю красоту и очарование океана, поражая воображение многообразием его обитателей. Использование новейших технологий и уникального оборудования для глубоководных съёмок раскроют зрителю самые сокровенные тайны мирового океана и позволят (   Читать дальше...   )Производство: Великобритания, BBC Natural History Unit (NHU), BBC StudiosЖанр: Документальный, природа, путешествие, флора, фаунаРежиссер: Дэвид АттенбороУчастники: Дэвид АттенбороПеревод: многоголосый любительский (ColdFilm)Язык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: ~00:53:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0BCF9C0FA77147DD238BDD3E522AE8EA2B98558
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526778   (19746) от 01.05.2025
 
 BBC. Чудо Песни Дэвида Аттенборо / Attenborough's Wonder of Song (2022) WEB-DL [H.265/2160p] [4K, HLG, 10-bit]
@@ -6,7 +32,7 @@ BBC. Чудо Песни Дэвида Аттенборо / Attenborough's Wonder
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19746.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ BBC: Я и гравитация. Сила, формирующая нашу жи�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19221.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ BBC: Млекопитающие / Mammals (2024) WEBRip [H.264/1080p] (сезо�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14860.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ BBC. Легендарные тигры Индии / Легендарні тиг�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14504.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ BBC: Древние державы / Ancient Powers (2023) WEBRip [H.264/720p] (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13641.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13057.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ BBC: Помпеи: Новые раскопки / Pompeii: The New Dig (2024) WEB
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11436.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ BBC: Хиросима / Hiroshima (2005) DVDRip [H.264] (серии 1-2 из 2)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9162.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ BBC: Родительство / Parenthood (2025) WEBRip [H.264/1080p] (сезо
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786957.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Comedy Баттл. Новый сезон (2020) WEB-DLRip (сезон 10, вып
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786610.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Stand Up (2017.04.09) WEB-DL [H.264/720p-LQ] (сезон 6, выпуск 8)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785915.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779858.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778771.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778639.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776745.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776709.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771615.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771611.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771575.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770151.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ STAND UP. Концерт Руслана Белого (15.05.2016) SATRip
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769471.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769420.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768684.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Stand Up (2017.04.16) WEB-DL [H.264/720p-LQ] (сезон 6, выпуск 9)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766239.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765928.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765849.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765143.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765056.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765052.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764946.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764181.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763414.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ STAND UP. Концерт Руслана Белого (15.05.2016) WEB-DL [H.264/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762484.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761467.jpg" />
 </div>
 
 

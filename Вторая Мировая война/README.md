@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1876774   (1073314) от 17.06.2026
+
+Вторжение (2026) WEB-DL [H.264/1080p] (серии 1-2 из 5) (обновляемая)
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073314.jpg" />
+</div>
+
+
+###  Подробнее
+
+85 лет назад, 22 июня 1941 года, жизнь каждого человека в нашей стране разделилась на до и после. В конце 30-х европейские политики улыбались, жали друг другу руки, подписывали соглашения. Но каждый новый компромисс только приближал катастрофу. Они называли это борьбой за мир. На деле — сдавали Гитлеру страну за страной. Как мир сорвался в катастрофу Второй мировой (   Читать дальше...   )Производство: Россия / Первый каналЖанр: документальный, история, политикаЯзык озвучки: русскийСубтитры: русскиеПродолжительность: серии по ~01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09C83AC4A17F630650978F649C6DBA632EDE3094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870362   (1069105) от 11.05.2026
 
 Неизвестная война / Великая Отечественная / The Unknown War (1978) WEBRip [H.264/1080p] (серии 1-20 из 20) [handmade Remastered]
@@ -7,7 +33,7 @@ https://t.me/izofen
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069105.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068653.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062097.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054546.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043294.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043227.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043218.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041953.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041842.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040224.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038033.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036173.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034483.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031440.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031199.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029021.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ National Geographic. Нераскрытые тайны Второй мирово
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028417.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028258.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027364.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027074.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027052.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025640.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021438.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020574.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018576.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3904C81BA3A4C12EAD384B9F62A839F03E5E5D29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 334842   (1016839) от 09.05.2021
-
-Исторический Парад Победы 24 июня 1945 года (2011) IPTVRip [В цвете]
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016839.jpg" />
-</div>
-
-
-###  Подробнее
-
-9 мая 2011 года к 66-й годовщине победы в Великой Отечественной войне 1941-1945 гг. канал СТС покажет парад победы 1945 годаЖанр: ДокументальныйРежиссер: И.М. Посельский, И.В. Венжер, Н.В. СоловьёвПродолжительность: 00:18:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6939D239860BCCDD84E3A48701290E53186D0ACE
 ```
 
 https://mybot314.ru/tekegram_catalog/

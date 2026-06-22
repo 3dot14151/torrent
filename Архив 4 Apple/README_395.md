@@ -1,3 +1,57 @@
+###  Публикация: 947966   (415219) от 18.10.2015
+
+Topaz Plugins Bundle (10.09.2015) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Bundle — это набор плагинов от известной компании Topaz Labs для Adobe Photoshop, а также для Photoshop Elements, Apple Aperture и Lightroom. Плагины предназначены для регулирования программного расширения, имитации рисования маслом и акварелью, снижения шумов, отделения объекта от фона и объединения с другим изображением, увеличения резкости и многого другого. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: сентябрь 2015Разработчик: Topaz Labs, LLC.Поддерживаемая ОС: OS 10.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C275EB77418A37AFB7724ACBC1342EE4A993BAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251649   (415161) от 02.10.2018
+
+Wondershare MobileTrans 6.9.9 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переход на новое устройство будет лёгким благодаря Wondershare MobileTrans для Mac Можно перенести все ваши данные - в том числе контакты, текстовые сообщения, журналы вызовов, фото, музыку, видео и приложения - без риска и потери качества.
+
+Кросс-платформенная передача данных одним щелчком мыши. Если вы хотите обновить телефон, поменять устройство или сменить оператора, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.10.2018.10.2018Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский, Немецкий, Французский, Итальянский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40AD8A115518EEEFC8A9DAE6BAB40B51646E25A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167561   (415083) от 21.09.2017
 
 Network Utility X 6.0.2 [Multi]
@@ -6,7 +60,7 @@ Network Utility X 6.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415083.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ DirEqual 4.4.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415053.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ Backgrounds 1.4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415018.jpg" />
 </div>
 
 
@@ -89,7 +143,7 @@ Templates for Numbers 4.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414934.jpg" />
 </div>
 
 
@@ -117,7 +171,7 @@ System Toolkit 5.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414920.jpg" />
 </div>
 
 
@@ -143,7 +197,7 @@ GlueMotion 2.0.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414919.jpg" />
 </div>
 
 
@@ -170,7 +224,7 @@ Texifier 1.9.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414909.jpg" />
 </div>
 
 
@@ -196,7 +250,7 @@ FileMaker Pro 19 v.19.5.3.300 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414907.jpg" />
 </div>
 
 
@@ -223,7 +277,7 @@ PowerPhotos 2.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414902.jpg" />
 </div>
 
 
@@ -249,7 +303,7 @@ EverWeb (Standalone) 3.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414774.jpg" />
 </div>
 
 
@@ -276,7 +330,7 @@ Ghost Buster Pro 1.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414605.jpg" />
 </div>
 
 
@@ -302,7 +356,7 @@ iStat 3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414468.jpg" />
 </div>
 
 
@@ -331,7 +385,7 @@ Pro Paint 3.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414459.jpg" />
 </div>
 
 
@@ -357,7 +411,7 @@ Art Text 3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414320.jpg" />
 </div>
 
 
@@ -386,7 +440,7 @@ OS X Server 4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414280.jpg" />
 </div>
 
 
@@ -414,7 +468,7 @@ Navicat Premium 11.2.15 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414034.jpg" />
 </div>
 
 
@@ -442,7 +496,7 @@ Transmit 5.8.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414015.jpg" />
 </div>
 
 
@@ -470,7 +524,7 @@ SQLPro Studio 2020.85 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413827.jpg" />
 </div>
 
 
@@ -496,7 +550,7 @@ BusyContacts 1.2.17 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413518.jpg" />
 </div>
 
 
@@ -524,7 +578,7 @@ BookMacster 2.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413513.jpg" />
 </div>
 
 
@@ -550,7 +604,7 @@ Dash 4.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413512.jpg" />
 </div>
 
 
@@ -577,7 +631,7 @@ iShowU Instant 1.2.8 (Advanced) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413511.jpg" />
 </div>
 
 
@@ -605,7 +659,7 @@ Watercolor Studio Pro 1.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413508.jpg" />
 </div>
 
 
@@ -631,7 +685,7 @@ iShowU Studio 2 v2.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413507.jpg" />
 </div>
 
 
@@ -644,59 +698,6 @@ iShowU Studio предоставляет эффективные инструме
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:466BB59FD4F6D0241B143BAA8608F78C0DF34AB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251882   (413366) от 03.10.2018
-
-Wondershare AllMyMusic 2.4.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите слушать любимые песни, радио программы и аудио из видео в любое время и без подключения к интернету? Запишите все это легко с профессиональным Mac Audio Recorder : Wondershare AllMyMusic для Mac. Audio Recorder для Mac , что позволяет записывать программы онлайн музыку и радио с качеством 1:1 в один клик. AllMyMusic для Mac соответствует всем законам об авторском (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.10.2018Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:285C157D225330D68EEBEDE09BA128281FE32E60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251864   (413362) от 03.10.2018
-
-Wondershare Recoverit 7.3.3.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплексный набор для восстановления данных (был Wondershare Data Recovery).
-Wondershare Recoverit - профессиональное приложение, которое поможет вам восстановить удаленные, отформатированные и потерянные данные с любого внешнего диска установлена на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 01.10.2018Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:722AC8B3C6507FA724084ADE2C1B597FCABBEFA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

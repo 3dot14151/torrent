@@ -6,7 +6,7 @@ Berserk: Ougon Jidai Hen II - Doldrey Kouryaku | Berserk Golden Age Arc II: The 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15544.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Promare | Промар [2019, Movie] Blu-ray 1080p raw+rus
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14922.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Coquelicot-zaka Kara | Kokuriko-zaka Kara | From Up on Poppy Hill | Со скл�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14541.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её завет�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14436.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Violet Evergarden: Etern
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14208.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14199.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Berserk: Ougon Jidai Hen III - Kourin | Берсерк: Сошествие | Ber
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13608.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Honkai: Star Rail (Animated Short) | Хонкай: Звёздный рельс
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12792.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Megami no Cafe Terrace II | The Cafe Terrace and Its Goddesses II | Богини
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12540.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Nihon e Youkoso Elf-san. | Welcome to Japan, Ms. Elf! | Добро пожало�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9935.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Ookami Kodomo no Ame to Yuki | Wolf Children | Волчьи дети Амэ и �
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8603.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её завет�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4838.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Shikanoko Nokonoko Koshitantan | My Deer Friend Nokotan | Моя подруга-
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4527.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Berserk: Ougon Jidai Hen | Берсерк | Berserk Golden Age Arc | Берсе�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4217.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Zuori Qing Kong | Crystal Sky of Yesterday | Хрустальное небо в�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2465.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Berserk: Ougon Jidai Hen - Memorial Edition | Berserk: The Golden Age Arc - Memo
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2447.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Zuori Qing Kong | Crystal Sky of Yesterday | Хрустальное небо в�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2446.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Evangelion Shin Gekijouban: Q | Evangelion: 3.0 You Can (Not) Redo | Evangelion 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2302.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Evangelion Shin Gekijouban: Q | Evangelion: 3.0 You Can (Not) Redo | Evangelion 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2299.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Evangelion Shin Gekijouban: Jo | Evangelion: 1.0 You Are (Not) Alone | Evangelio
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2142.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Evangelion Shin Gekijouban: Jo | Evangelion: 1.0 You Are (Not) Alone | Evangelio
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2133.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Byousoku 5 Centimeter | 5 сантиметров в секунду | 5 Centimete
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1979.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Toki o Kakeru Shoujo | The Girl Who Leapt Through Time | Девочка, пок�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1967.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Evangelion Shin Gekijouban: Ha | Evangelion: 2.0 You Can (Not) Advance | Evangel
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1961.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Summer Wars | Летние Войны [2009, Movie] DVD9 480p raw+rus
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1960.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Byousoku 5 Centimeter | 5 Centimeters per Second | Пять сантиметро
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1954.jpg" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1533943   (700885) от 26.02.2022
+
+Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e | Classroom of the Elite | Добро пожаловать в класс превосходства [ТВ-1] [2017, TV, 12 из 12] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Киётака Аянокодзи только что поступил в Токийскую центральную углублённую старшую школу, которая славится тем, что 100% выпускников поступают в университет или находят работу. Правда, ему не повезло попасть в класс Д, куда направляют всех проблемных учеников. К удивлению поступивших оказалось, что каждый месяц школа начисляет ученикам баллы общей стоимостью на 100 (   Читать дальше...   )Производство: Студия Lerche / ラルケЖанр: драма, повседневностьРежиссер: Киси СэйдзиЯзык озвучки: Японский и русскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3B8E12B3F71930A0B0D9F19297AA945CC9D92B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132740   (698579) от 10.05.2017
+
+Dagashi Kashi / Магазинчик сладостей [2016, TV, 12 эп.] BDRip 1080р raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коконоцу Шикада — юный наследник семейного бизнеса: магазинчика сладостей в небольшой провинциальной деревушке, в отношении которого отец лелеет большие надежды, что тот займет его место. Однако парень отказывается от наследства.  Шикада просто метит выше: он хочет стать известным сёдзё-мангакой! Сможет ли добиться парень своей мечты, пройдя все испытания юной любительницы-соблазнительницы (   Читать дальше...   )Производство: Япония/feel.Жанр: комедия, повседневность, пародияРежиссер: Такаянаги Сигэхито (Takayanagi Shigehito)Язык озвучки: Русский (Anidub/AniLibria/Onibaku)Субтитры: Русские, встроенные, полные+вспомогательные (YakuSub Studio)Продолжительность: 12 эп., ~24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0443A2CBDB25000E0C6047F4D92EC54FECEE3497
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178716   (698283) от 22.04.2018
+
+Sangatsu no Lion (2017) / Мартовский лев [ТВ-2] [2017, TV, 22 ep] WEB-DL 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Будучи совсем ребёнком, Рэй Кирияма потерял всю семью в страшной автокатастрофе. Его отец любил играть в сёги со своим другом, поэтому Рэй, жаждая внимания отца, начал проявлять интерес к этой игре, а позже и показывать в ней немыслимые результаты. После смерти отца, его друг забирает Рэя к себе в семью, чтобы развивать талант мальчика, и относится к нему даже лучше, (   Читать дальше...   )Жанр: повседневность, драма, сэйнэнРежиссер: Симбо АкиюкиЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 22 эпизода по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F8707B1B658F0BD3E563504CA0B1FAAB7191045
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200998   (698140) от 22.04.2018
 
 Hakata Tonkotsu Ramens / Тонкоцу-рамен из Хакаты [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
@@ -6,7 +84,7 @@ Hakata Tonkotsu Ramens / Тонкоцу-рамен из Хакаты [2018, TV, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698140.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Death March kara Hajimaru Isekai Kyousoukyoku / Death March to the Parallel Worl
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698139.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Citrus / Цитрус [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698138.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ Garo: Vanishing Line / Гаро: Линия Схода [2017, TV, 24 ep] WEB-DL 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698136.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Walkure Romanze / Романс Валькирий [2013, TV, 12 ep] BDRip Hi10p 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697467.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ Gakuen Babysitters / Школьные няньки [2018, TV, 12 ep] WEB-DL 720p
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696643.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ Ryuuou no Oshigoto! / The Ryuo's Work is Never Done! / Работёнка для
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696621.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ Dagashi Kashi 2 / Магазинчик сладостей [ТВ-2] [2018, TV, 12
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696366.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ Hataraku Onii-san! / Коты-Работяги! [2018, TV, 13 ep] WEB-DL 720p Ra
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696364.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ Karakai Jouzu no Takagi-san / Насмешница Такаги-сан [2018, TV
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696360.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ Killing Bites / Смертельный укус [2018, TV, 12 ep] WEB-DL 720p Ra
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696358.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ Kokkoku / Миг за мигом [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696354.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ Koi wa Ameagari no You ni / After the Rain / Любовь - словно про�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696352.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ Itou Junji: Collection / Junji Ito Collection / Коллекция Ито Дзю
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696346.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ Mahou Tsukai no Yome / The Ancient Magus' Bride / Невеста Чародея 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696344.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ Takunomi / Выпиваем дома [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694658.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ Pop Team Epic / Эпичная попса [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694652.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ Sora Yori mo Tooi Basho / A Place Further Than the Universe / Место, что
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694650.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ Violet Evergarden / Виолетта Эвергарден [2018, TV, 13 ep] WEB-
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694648.jpg" />
 </div>
 
 
@@ -504,7 +582,7 @@ Overlord II / Повелитель 2 [2018, TV, 13 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694644.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ Sanrio Danshi / Sanrio Boys / Парни из «Санрио» [2018, TV, 12 ep]
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692893.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ Cyber City Oedo 808 / Кибер-город Эдо 808 [1990, OVA, 3] BDRip 720p
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691997.jpg" />
 </div>
 
 
@@ -582,7 +660,7 @@ Sword Art Online / Мастера меча онлайн [2012, TV, 25 ep] BDRip 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690243.jpg" />
 </div>
 
 
@@ -593,88 +671,6 @@ Sword Art Online / Мастера меча онлайн [2012, TV, 25 ep] BDRip 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535313   (686011) от 06.03.2022
-
-Cider no You ni Kotoba ga Wakiagaru | Words Bubble Up Like Soda Pop | Слова пузырятся подобно газировке [2021, Movie] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686011.jpg" />
-</div>
-
-
-###  Подробнее
-
-«В своё семнадцатое лето я встретил тебя».
-Черри всегда носит наушники и с большим трудом сходится с людьми. Все чувства, что не может выразить, он вкладывает в своё главное увлечение — хайку. Смайл надевает маску, чтобы скрыть крупные передние зубы, из-за которых ей приходится носить брекеты. Она ведёт популярный видеоблог про поиски «милоты».
-Паренёк, который испытывает (   Читать дальше...   )Производство: Signal MD / シグナル・エムディ, Sublimation / サブリメイションЖанр: романтика, повседневностьРежиссер: Исигуро КёхэйПеревод: Ольга Цяцька, OkanaTsoyЯзык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 90 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01B8780FD4B586468914112DF5E304AEA24040F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946340   (685766) от 24.06.2016
-
-Gakusen Toshi Asterisk / The Asterisk War / Боевая академия города Астериск [2015, TV, 24] HDTV 720p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир изменился. Тотальные войны и атомные бомбы ушли в прошлое, зато Инверсия, великая перемена, породила Генестелл – детей, одаренных магическими способностями. Они быстрее, сильнее, выносливее за счет использования маны, но это еще не все – отдельные гении могут исцелять, ставить барьеры, оживлять големов и даже заглядывать в будущее. Самым уважаемым в любой стране, (   Читать дальше...   )Производство: Япония, A-1 Pictures Inc.Жанр: Приключения, Романтика, ЭттиРежиссер: Оно МанабуСубтитры: Полные, отключаемые (Внутренние) | RusПродолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:646963C992C965350CEFB507168E547365A88C4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535790   (682007) от 08.03.2022
-
-Senpai ga Uzai Kouhai no Hanashi | My Senpai Is Annoying | Мой сэмпай раздражает! [2021, TV, 12 из 12] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682007.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одной торговой компании продавщице Футабе Игараси удалось продержаться на уважаемой работе почти два года благодаря руководству своего старшего коллеги - Харуми Такеды. Однако из-за невысокого роста Игараси Такеда часто дразнит ее и обращается с ней как с ребенком, из-за чего Игараси постоянно раздражается из-за его выходок.
-
-Несмотря на это, Игараси замечает надежность (   Читать дальше...   )Производство: Студия Doga Kobo / 動画工房Жанр: романтика, комедияРежиссер: Ито РётаЯзык озвучки: Японский и русскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A352FE7CFB6D974B940E741C28C31387778B25C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ James Schauf | Vehicle Texturing in Substance Painter: From Clean to Mean (2018)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033869.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ FXPHD, Jeronimo Maggi | Taking Houdini Digital Assets to the Next Level (2023) W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033820.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Steven Knipping | Applied Houdini Dynamics I (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033729.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033658.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Steven Knipping | Applied Houdini Dynamics IV (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033537.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Steven Knipping | Applied Houdini Dynamics II (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033535.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Steven Knipping | Applied Houdini Dynamics III (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033531.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Steven Knipping | Applied Houdini Rigids II (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033526.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Steven Knipping | Applied Houdini Dynamics V (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033525.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Steven Knipping | Applied Houdini Rigids III (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033511.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Steven Knipping | Applied Houdini Rigids I (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033510.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Steven Knipping | Applied Houdini Dynamics VI (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033503.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Steven Knipping | Applied Houdini Rigids IV (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033492.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033171.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ WDI Design School | Распродажа всех видеоуроков шко�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033110.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ David Lesperance | Environment Sculpting (2012) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032979.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Daniel Thiger | Substance Fundamentals Tutorial Part 1-5 (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032924.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Kurt Williams | Creating an Alpha Pack in ZBrush (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032923.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Vincent Dérozier | Mosaic Creation Techniques with Substance Designer (2019) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032897.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ David Lesperance | Environment Creation Techniques (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032895.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Daniel Thiger | Creating Roof Tiles in Substance Designer (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032888.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Pablo Munoz Gomez | Booleans In ZBrush 4R8 (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032870.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032854.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Daniel Danielsson | The Process of Motion (2020) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032668.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Mehdi Salehi | Houdini Snow System Simulations (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032518.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Spencer Lueders | Introduction to FX using Houdini (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032478.jpg" />
 </div>
 
 

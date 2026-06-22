@@ -1,3 +1,30 @@
+###  Публикация: 1369467   (903664) от 23.03.2020
+
+Fukuyama Gekijou: Natsu no Himitsu | Театр Фукуямы: Летний секрет [1990, OVA, 1 эп.] LDRip 480p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшой сборник клипов и коротких историй, основанный на манге Фукуямы Кейко, представляет собой рассказы из книжки, которую мышиная семья читает перед сном. Всего 8 историй (4 музыкальных и 4 повествовательных) плюс морской эндинг и маленькая вставка с мышами, открывающие и закрывающие ОВАшку.
+ОВАшка несёт каплю японского "моно но аварэ" ("печального (   Читать дальше...   )Жанр: приключенияРежиссер: Сакурай МитиёПеревод: Orphan; World_Houp & Аццкий КритегЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 1 эп. по 55 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C433E5ABB540BD92A7A0D685325C21FEC0C8A2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363861   (903660) от 23.03.2020
 
 Watashi, Nouryoku wa Heikinchi dette Itta yo ne! | Разве я не просила усреднить мои способности в следующей жизни?! [2019, TV, 12 эп.] BDRip 1080p raw
@@ -6,7 +33,7 @@ Watashi, Nouryoku wa Heikinchi dette Itta yo ne! | Разве я не проси
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903660.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Tsugumomo (2020) | Цугумомо OVA [2020, OVA, 1 эп.] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903490.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ Ni no Kuni | Другой мир | Вторая страна [2019, Movie] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903377.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ Kaijuu no Kodomo | Children of the Sea | Дети моря [2019, Movie] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903373.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ Macross FB7: Ginga Rukon - Ore no Uta o Kike! / Макросс ФБ7: Блужд
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903142.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ Shisha no Teikoku / The Empire of Corpses / Империя мертвых [2015,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901922.jpg" />
 </div>
 
 
@@ -163,7 +190,7 @@ Fumetsu no Anata e | To Your Eternity | Для тебя, Бессмертный 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901755.jpg" />
 </div>
 
 
@@ -189,7 +216,7 @@ Uchi Tama?! Uchi no Tama Shirimasenka? | Uchitama?! Have You Seen My Tama? | Т�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901387.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ Yatogame-chan Kansatsu Nikki Nisatsume | Заметки Ятогамэ [ТВ-2] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901344.jpg" />
 </div>
 
 
@@ -244,7 +271,7 @@ Hataraku Maou-sama! | The Devil is a Part-Timer! | Повелитель Тьмы
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901204.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ Eizouken ni wa Te o Dasu na! | Keep Your Hands Off Eizouken! | Руки проч
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901141.jpg" />
 </div>
 
 
@@ -296,7 +323,7 @@ Kyoukai no Kanata | Beyond the Boundary | За гранью [2013, TV, 12 из 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900772.jpg" />
 </div>
 
 
@@ -322,7 +349,7 @@ Kikou Ryouhei Mellowlink / Armor Hunter Mellowlink / Бронебойщик Ме
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900134.jpg" />
 </div>
 
 
@@ -349,7 +376,7 @@ Bikini Warriors / Воительницы в бикини [2015, TV, 13] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898802.jpg" />
 </div>
 
 
@@ -375,7 +402,7 @@ Alps no Shoujo Heidi / Heidi: Girl of the Alps / Хайди - девочка А�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898752.jpg" />
 </div>
 
 
@@ -401,7 +428,7 @@ Soukou Kihei Votoms: Kakuyaku taru Itan / Armored Trooper Votoms: Shining Heresy
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898163.jpg" />
 </div>
 
 
@@ -427,7 +454,7 @@ Kuutei Dragons | Drifting Dragons | Небесные драконы [2020, ONA, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898122.jpg" />
 </div>
 
 
@@ -453,7 +480,7 @@ Natsunagu! | Нацунагу! [2020, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898007.jpg" />
 </div>
 
 
@@ -479,7 +506,7 @@ Tenkuu Senki Shurato / Heaven Wars Shurato / Небесные войны Сюр�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897839.jpg" />
 </div>
 
 
@@ -505,7 +532,7 @@ Dominion Tank Police | Доминион: Танковая полиция [1988, 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897747.jpg" />
 </div>
 
 
@@ -531,7 +558,7 @@ To Love-Ru: Trouble - Darkness 2nd / Любовные неприятности: 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896872.jpg" />
 </div>
 
 
@@ -557,7 +584,7 @@ Kono Subarashii Sekai ni Shukufuku o! Kurenai Densetsu | KonoSuba Movie | Это
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896373.jpg" />
 </div>
 
 
@@ -583,7 +610,7 @@ Nanatsu no Taizai: Kamigami no Gekirin | The Seven Deadly Sins: Wrath of the God
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896256.jpg" />
 </div>
 
 
@@ -609,7 +636,7 @@ Mugen no Juunin: Immortal | Клинок бессмертного (2019) [2019, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896248.jpg" />
 </div>
 
 
@@ -635,7 +662,7 @@ Tsukimonogatari: Yotsugi Doll / История одержимости: Кукл�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895766.jpg" />
 </div>
 
 
@@ -646,32 +673,6 @@ Tsukimonogatari: Yotsugi Doll / История одержимости: Кукл�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76F20AEF9E5380CC66AB2CF32A74A27F65EE1092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351581   (894682) от 28.03.2020
-
-Nekopara (2020) | Кошачий рай [ТВ] [2020, TV, 12 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каcю Миназуки — отпрыск древнего и уважаемого рода японских кондитеров — решил переехать, чтобы открыть свою собственную кондитерскую «Ла Солей». Во время отъезда среди своего багажа он обнаружил двух спрятавшихся кошкодевочек Чоколу и Ваниллу, которых вырастили в семье Кащю. Он попытался отправить их обратно, но после долгих уговоров сдался, и в итоге они открыли (   Читать дальше...   )Производство: студия Felix FilmЖанр: комедияРежиссер: Ямамото ЯсутакаПеревод: Funimation; SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5B976D4B7C451B2A72B074F17ADFF7573D05A30
 ```
 
 https://mybot314.ru/tekegram_catalog/

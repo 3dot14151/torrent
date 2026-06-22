@@ -1,3 +1,55 @@
+###  Публикация: 1093838   (931883) от 16.01.2017
+
+Professional Farmer 2017 (2016) [Multi] (1.3) License SKIDROW
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вас ждет собственная ферма! Ее увлекательные задачи и трудности! Водите спец.машины, возделывайте поля, ухаживайте за животными и торгуйте на рынке! Нет ничего лучше, чем греться у камина после тяжелого трудового дня на ферме.Тип издания: LicenseРазработчик: VIS - Visual Imagination SoftwareЖанр: Simulator, 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A92C784A00C28817FBB701716E7AE91A70B16E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093833   (931791) от 16.01.2017
+
+Legend of Merchant (2016) [Multi] (1.83) Unofficial SiMPLEX
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Legend of Merchant – симулятор торговца небольшой лавки, в котором игроку нужно закупать товары и заниматься их дальнейшей перепродажей. От принимаемых игроком решений напрямую зависит, окажется ли виртуальный бизнес прибыльным или обернется убытками и будет вынужден закрыться.Тип издания: UnofficialРазработчик: 疯王子Жанр: Casual, Indie, SimulationЯзык субтитров: Английский, Китайский и другиеЯзык интерфейса: Английский, Китайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1F0227B418C0C161023A587636ABFF35E31FB95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315341   (928682) от 08.03.2020
 
 Thief Simulator (2018) [Ru/Multi] (1.4) Repack xatab
@@ -6,7 +58,7 @@ Thief Simulator (2018) [Ru/Multi] (1.4) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928682.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Masters of The World: Geopolitical Simulator 3 [En] (L) 2013 | SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927883.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Car Mechanic Simulator 2014 (2014) [Ru/Multi] (1.2.0.5/dlc) Repack R.G. Меха
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927190.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Bus Simulator 18 (2018) [Ru/Multi] (1.0/upd13/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909969.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Subway Simulator (2020) [Ru/Multi] (A 2.8.0/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909950.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Mainlining (2017) [En] (1.0.06.9536) License GOG [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902568.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Kitaria Fables (2021) [Ru/Multi] (7286275) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896950.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ OPUS: Echo of Starsong (2021) [Multi] (7280057) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896849.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Bus Driver Simulator 2019 (2019) [Ru/Multi] (5.7.c/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889688.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ Take On Mars (2017) [En] (1.0) License RELOADED
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888506.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Bus Simulator 16 (2016) [Ru/Multi] (1.0.0.754.6956) Repack Valdeni
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885617.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ SimAirport (2020) [Ru/Multi] (1.0/upd1/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879620.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Farming Simulator 15 (2014) [Ru/Multi] (1.4.2/dlc) License SKIDROW [Gold Edition
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878533.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ Farming Simulator 15 (2014) [Ru/Multi] (1.4.2.0/dlc) Repack R.G. Механик�
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878430.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ Farming Simulator 17 (2016) [Ru] (1.4.2/dlc) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877534.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ Farming Simulator 15 (2015) [Ru/Multi] (1.4.2/dlc) Repack xatab [Gold Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876565.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ Emergency Room: Code Red  / Скорая Помощь 3 [Ru] (L) 2001/2005
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870647.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ Professional Farmer 2017 (2016) [En/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860411.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860107.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ Forestry 2017 - The Simulation (2016) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858623.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ Judgment: Apocalypse Survival Simulation (2018) [Ru/Multi] (1.1.4215/dlc) Repack
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858123.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ Radio Commander (2019) [Ru/Multi] (1.122/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858117.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ Accident (2021) [Ru/Multi] (1.63) License DOGE
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857422.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ SnowRunner (2020) [Ru/Multi] (15.0/dlc) Repack R.G. Механики [Premium Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857409.jpg" />
 </div>
 
 
@@ -622,58 +674,6 @@ SnowRunner (2020) [Ru/Multi] (15.0/dlc) Repack R.G. Механики [Premium Ed
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D825A5DE1D722C40448E4723B4E33B1E8F9CF3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111012   (849791) от 04.03.2017
-
-Orwell (2016) [En] (1.1.6254.19879) License GOG
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большой Брат уже здесь... и это вы. Проследите за частной жизнью граждан, чтобы найти организаторов серии терактов. Вам доступно все: данные из Интернета, личные документы и переписка. Однако имейте в виду: эта информация напрямую влияет на чьи-то жизни...Тип издания: LicenseРазработчик: Osmotic StudiosЖанр: Симулятор, Головоломка, ДетективЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3DDECAC1D2957DF897E617874669FA2A9F29F55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378144   (847802) от 24.04.2020
-
-Spintires: The Original Game (2014) [Ru/Multi] (1.4.5) Repack =nemos=
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Spintires®: The Original Game — уникальный симулятор от компании Oovee® Game Studios с реалистичной графикой и отличной физикой взаимодействия колес техники с поверхностью. Игра, изначально являющаяся демонстрацией физического движка Havok, была создана для конкурса Havok Physics Innovation Contest (от компании Intel). Вам предстоит управлять грузовиками по бездорожью (   Читать дальше...   )Тип издания: RepackРазработчик: Oovee® Game StudiosЖанр: Simulator, 3DЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4695DBE1A0C96A3D95CBFC63FDDD5BE59F0CE9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

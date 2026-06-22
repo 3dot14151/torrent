@@ -1,3 +1,108 @@
+###  Публикация: 910041   (624320) от 19.06.2015
+
+Владимир Гладышев (сост.) | ТерпИлиада. Жизнь и творчество Генриха Терпиловского (2008) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624320.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге, посвященной судьбе одного из основателей отечественного джаза, вводится в научный оборот немало уникальных материалов. Это и биографические сведения о Г. Р. Терпиловском, сопровождаемые богатым иллюстративным рядом. Это и воспоминания, письма, автографы многих музыкантов, таких как Дмитрий Шостакович, Леонид Утесов, Олег Лундстрем, Никита Богословский, Юрий (   Читать дальше...   )Жанр: Биографии и Мемуары, Музыка, балетФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA528924830B2174F05D543546416F08928ED0B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145556   (621542) от 25.06.2017
+
+Борис Васильев | В окружении. Страшное лето 1941-го (2017) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Борис Львович Васильев – классик советской литературы, по произведениям которого были поставлены фильмы «Офицеры», «А зори здесь тихие», «Завтра была война» и многие другие. В годы Великой Отечественной войны Борис Васильев ушел на фронт добровольцем, затем окончил пулеметную школу и сражался в составе 3-й гвардейской воздушно-десантной дивизии.
+Главное место в его (   Читать дальше...   )Жанр: Биографии и мемуары, Новейшая историяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ECF4C01EEDFBF7123EB90DA80CC3302070EB66A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036233   (620994) от 20.07.2016
+
+П.П. Михайленко, Я.Ю. Кондратьев | История милиции Украины в документах и материалах [3 книги] (1997-2000) [PDF, DJVU] [Ukr, Rus]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга о милиции Украины, об историческом пути, пройденном ею, о годах, овеянных пламенем и романтикой, об отваге и героизме, о драматических событиях и милицейских буднях. Документы, собранные в книге, рассказывают о нелегких годах, которые выпали на долю нашей страны. Каждый документ, каждая фотография, помещенные на страницах книги - это рассказ о мужестве (   Читать дальше...   )Жанр: ИсторияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49848E9448910D84EE3C597FD2F7DABD3A307B3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036309   (620737) от 20.07.2016
+
+Владимир Шемшук | Украденная история России, Европы, Азии и Америки (2012) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга "Украденная история России, Европы, Азии и Америки", входит в серию " В поисках сокровенного". Она является значительным дополнением книги "Запрещённой истории России". В ней представлены портретные сходства королей, канцлеров и президентов стран Европы, Америки и Азии с императорами и руководителями Российской империи из чего (   Читать дальше...   )Жанр: Нетрадиционные исторические теории и гипотезыФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A202B2BE19D70FA314EE5E74E2DD4055D23DA168
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910910   (620245) от 21.06.2015
 
 В. С. Зорин | Владыки без масок (1972) [DJVU]
@@ -6,7 +111,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620245.jpg" />
 </div>
 
 
@@ -34,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620232.jpg" />
 </div>
 
 
@@ -60,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620111.jpg" />
 </div>
 
 
@@ -87,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619991.jpg" />
 </div>
 
 
@@ -113,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619096.jpg" />
 </div>
 
 
@@ -139,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618965.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618315.jpg" />
 </div>
 
 
@@ -191,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618291.jpg" />
 </div>
 
 
@@ -217,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618236.jpg" />
 </div>
 
 
@@ -243,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618096.jpg" />
 </div>
 
 
@@ -269,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616439.jpg" />
 </div>
 
 
@@ -295,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616427.jpg" />
 </div>
 
 
@@ -321,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616158.jpg" />
 </div>
 
 
@@ -348,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616064.jpg" />
 </div>
 
 
@@ -374,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614225.jpg" />
 </div>
 
 
@@ -400,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614079.jpg" />
 </div>
 
 
@@ -426,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614023.jpg" />
 </div>
 
 
@@ -452,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613214.jpg" />
 </div>
 
 
@@ -479,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613076.jpg" />
 </div>
 
 
@@ -507,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613072.jpg" />
 </div>
 
 
@@ -533,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613070.jpg" />
 </div>
 
 
@@ -561,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612905.jpg" />
 </div>
 
 
@@ -572,111 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CA69CAA2621B995816A9A4D062821A33DA0322B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912164   (612892) от 25.06.2015
-
-Константин Ковалев | Бортнянский (1989) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выдающимся композитором России "доглинковского" периода по праву считается Д.С. Бортнянский. Он - один из основоположников русской национальной классической композиторской школы. В наше время все чаще звучат его знаменитые духовные хоровые концерты, в театрах и концертных залах исполняются его оперы, камерные и симфонические инструментальные произведения, (   Читать дальше...   )Жанр: Биографии российских знаменитостейФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0162AC3F626404B13CAF6152F2CDE0AEB2DEADBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912311   (612808) от 25.06.2015
-
-Вячеслав Козляков | Царица Евдокия (2014) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последняя московская царица, отвергнутая жена царя Петра I, монахиня Елена, заточенная сначала в Суздальском Покровском монастыре, а затем в бастионе Шлиссельбургской крепости, и, наконец, "государыня-бабушка", считавшаяся важной и влиятельной персоной во время короткого царствования ее внука, императора Петра II, — это всё разные стороны биографии царицы-инокини (   Читать дальше...   )Жанр: Биографии российских знаменитостейФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD56346FC11B34CDAE7FA8D8E87F7DF5B05A62C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912146   (612800) от 25.06.2015
-
-Михаил Лобанов | Сергей Тимофеевич Аксаков (1987) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь и творчество известного писателя, проникновенного певца русской природы Сергея Тимофеевича Аксакова неразрывно связаны с личностями крупнейших представителей русской культуры XIX века. Биография Аксакова-отца как бы продолжает семейную хронику, давая возможность проследить и за общественной деятельностью его сыновей - К. С. и И. С. Аксаковых.Жанр: Мемуары отечественных деятелейФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F6CC2C6C323A0F3621C5A02972FD8D5E602439
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912175   (612796) от 25.06.2015
-
-В. А. Врубель | Адмиралы Бутаковы - флотская слава России (2014) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Династия Бутаковых, берущая свое начало от Федора Бутакова, служившего в Новгородском полку при Иване Грозном, дала русскому Военно-морскому флоту 121 моряка, в числе которых было 19адмиралови 14 капитанов 1-го ранга. В семье Ивана Николаевича Бутакова было четыре адмирала: отец и три его сына.
-Алексей Иванович Бутаков — российский гидрограф, контр-адмирал, участник (   Читать дальше...   )Жанр: Биографии российских знаменитостейФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B02C132046A4285B28658B22ECA606023AE057
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033134.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033131.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032849.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032617.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032391.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032184.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031715.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031464.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031251.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031016.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030323.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030099.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029850.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029655.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029436.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028808.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028280.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027983.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027472.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023038.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023028.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023027.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023023.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022680.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022677.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022667.jpg" />
 </div>
 
 

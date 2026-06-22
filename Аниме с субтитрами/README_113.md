@@ -1,3 +1,29 @@
+###  Публикация: 1256499   (137418) от 31.12.2018
+
+Himote House | Himote House: A Share House of Super Psychic Girls | Дом Химотэ [2018, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три сестры Химотэ: Токиё, Кинами и Кокоро живут в одном доме вместе со своими подругами и котом. И всё бы ничего, вот только все обитатели дома обладают таинственными силами.Производство: BouncyЖанр: комедияРежиссер: Исидатэ КотароПеревод: официальный (Cranchroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 12 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03DBFAF011A075809037A7366BC74B8629E5E8F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1172694   (137414) от 31.12.2017
 
 Kekkai Sensen & Beyond | Фронт кровавой блокады-2 [2017, TV, 12] WEBRip 720p raw
@@ -6,7 +32,7 @@ Kekkai Sensen & Beyond | Фронт кровавой блокады-2 [2017, TV,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137414.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Senran Kagura: Shinovi Master - Tokyo Youma Hen / Сэнран Кагура 2 [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137326.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Shokugeki no Souma: Shin no Sara | Food Wars! The Fourth Plate | Кулинар�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137322.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen | В�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137244.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137230.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Irozuku Sekai no Ashita kara | Iroduku: The World in Colors | Из завтра�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137223.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Yagate Kimi ni Naru / Bloom Into You / В конечном счёте я ста�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137218.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Enen no Shouboutai | Fire Force | Пламенная бригада пожарн
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137144.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Obey Me! (2022) | Повинуйся мне! (2022) [12, Web] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137115.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Long Zu II: Daowangzhe Zhi Tong | Dragon Raja II -The Mourner's Eyes- | Драк
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136951.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Arknights: Holy Knight Light / Рыцари ковчега: Святые рыц�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136601.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Gochuumon wa Usagi Desuka? Bloom | Is the Order a Rabbit? Bloom | Кролика
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136593.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ Acchi Kocchi / Там-сям [2012, TV, 12 + 1Sp] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_135550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135550.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ Afro Samurai Resurrection (Director's Cut) | Афросамурай: Воскр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132814.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ Elfen Lied / Эльфийская песнь [2004, 13 +1 эп.] BDRip Hi10p 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131210.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Mahou Kishi Rayearth 2 | Magic Knight Rayearth 2 | Рыцари магии 2 [19
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130986.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Mahou Kishi Rayearth | Magic Knight Rayearth | Рыцари магии [1994, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130971.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Rayearth | Magic Knight Rayearth | Рыцари магии [1997, OVA, 3 из 3]
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130967.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Dekoboko Majo no Oyako Jijou / The Family Circumstances of the Irregular Witch /
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129623.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Chitose-kun wa Ramune Bin no Naka / Chitose is in the Ramune Bottle / Читос
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128932.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Kimi to Koete Koi ni Naru | With You, Our Love Will Make It Through | Перес
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128888.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Isekai Quartet 3 | Четвёрка попаданцев [ТВ-3] [2025, TV, 1 �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128882.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ Maou 2099 | Повелитель демонов 2099 [2024, TV, 12 эп.] BDRip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128582.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ Amrita no Kyouen | Праздник Амриты [2023, Movie] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128451.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ Watashi no Oshi wa Akuyaku Reijou. / I'm in Love with the Villainess / Я пре
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127165.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ Watashi no Oshi wa Akuyaku Reijou. / I'm in Love with the Villainess / Я пре
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:637D0335DDC90B140D2343795102A7DDF6434D47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666221   (127160) от 19.12.2023
-
-Seiken Gakuin no Maken Tsukai / The Demon Sword Master of Excalibur Academy / Мастер демонического клинка из академии Святого Меча [2023, TV, 12] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Князь Тьмы Леонис пробуждается от магического стазиса, в который сам себя и погрузил на тысячу лет. Однако что-то пошло не так, и теперь у него тело десятилетнего мальчика. После пробуждения он встречает девушку по имени Риселия, которая сражается с «Пустотой», существами, почти истребившими человечество. Осознав, что мир за время его стазиса сильно изменился, и (   Читать дальше...   )Жанр: приключения, фэнтези.Режиссер: Морита ХироюкиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C15B0215052FE3DEA4926F01AAD068B648638EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

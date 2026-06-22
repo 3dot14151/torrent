@@ -1,3 +1,109 @@
+###  Публикация: 1711624   (112344) от 31.03.2024
+
+Integrity Pro 12.8.9 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Integrity Pro  основано на Integrity Plus. У него есть новый механизм сканирования v9, оно проверяет ссылки и создает карту сайта со всеми функциями поиска, фильтрации и экспорта версии Plus. Добавляет детали SEO и проверку орфографии. Не предназначено для замены Scrutiny и имеет промежуточное положение между Integrity Plus и Scrutiny, более доступными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.03.2024Разработчик: © 2007-2021 S P DixonПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DF52E87ADC44AFDBFAFC98CED0B5406230D1453
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711898   (112305) от 01.04.2024
+
+Cookie 7.2.9 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Следить за безопасностью своего кошелька, квартиры или машины привыкли все, а вот соблюдать те же правила на просторах глобальной сети почему-то старается далеко не каждый. Хотя делать это нужно и не так уж сложно. Помочь вам обезопасить свое пребывание в интернете сможет наш обзор и приложение Cookie, следящее за всей подозрительной активностью сайтов.
+Cookie - (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.03.2024Разработчик: © 2024 SweetP Productions, Inc.Поддерживаемая ОС: macOS 12.0 или более поздняя версияЯзык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0DCEC354E9F4C6C204F13D99DFFBFB345E510E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712148   (112232) от 02.04.2024
+
+iBarcoder 3.14.8 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cristallight iBarcoder - профессиональный генератор штрих-кодов Mac для создания любого количества отдельных или последовательных штрих-кодов, и их печати в виде красочных этикеток со штрих-кодом в собственном стиле, любого размера или формы или их экспорта в виде файлов графических изображений в обычном векторном и растровом изображении.Тип издания: macOS SoftwareРелиз состоялся: 26.03.2024Разработчик: © 2024 Cristallight SoftwareПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E493049D2C9BD8551109BAB01A71335A2E061BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712528   (112228) от 02.04.2024
+
+TunesKit Audio Capture 3.2.0 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучший потоковый аудио рекордер и экстрактор для захвата, извлечения и редактирования любого звука на вашем Mac, включая Apple Music, Spotify, радио, игровую музыку, фильмы и т. д. С качеством без потерь и конвертирования записей в MP3, AAC, WAV, FLAC и многие другие популярные форматы.
+TunesKit Audio Capture для Mac - это самое умное и простое решение для аудиозаписи, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.03.2024Разработчик: © 2024 TunesKitПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:635BFC336702246A8C29C394DC0051922CFAEF4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1712490   (112225) от 02.04.2024
 
 Adobe InCopy 2024 v.19.3.0 U2B [Multi/Ru]
@@ -6,7 +112,7 @@ Adobe InCopy 2024 v.19.3.0 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112225.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ LocalSend for Mac 1.14.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112217.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ MarsEdit 5.1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112197.jpg" />
 </div>
 
 
@@ -85,7 +191,7 @@ Bigasoft FLAC Converter for Mac 5.8.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112144.jpg" />
 </div>
 
 
@@ -111,7 +217,7 @@ QLab 5.3.7 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112142.jpg" />
 </div>
 
 
@@ -137,7 +243,7 @@ Bigasoft Video Downloader Pro for Mac 3.27.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112139.jpg" />
 </div>
 
 
@@ -163,7 +269,7 @@ Final Cut Express HD 4.0 [Eng]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90315.jpg" />
 </div>
 
 
@@ -192,7 +298,7 @@ Bento 4.0.6 [Eng/Rus]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90300.jpg" />
 </div>
 
 
@@ -220,7 +326,7 @@ Microsoft Office for Mac 2011 Service Pack 2 [RU/EN/DE]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88514.jpg" />
 </div>
 
 
@@ -246,7 +352,7 @@ SteerMouse 4.1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87251.jpg" />
 </div>
 
 
@@ -274,7 +380,7 @@ Alien Skin Bokeh 2.0.1.442 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81759.jpg" />
 </div>
 
 
@@ -302,7 +408,7 @@ Alien Skin Snap Art 3.0.0.697 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81712.jpg" />
 </div>
 
 
@@ -330,7 +436,7 @@ Spectra Foo Complete 4.2.3 [English]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79465.jpg" />
 </div>
 
 
@@ -356,7 +462,7 @@ DiskWarrior Boot DVD 4.4 rev. 1102 [Eng]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78614.jpg" />
 </div>
 
 
@@ -384,7 +490,7 @@ RAR Extractor - Unarchiver (vip) 6.5.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65065.jpg" />
 </div>
 
 
@@ -410,7 +516,7 @@ The Unarchiver - Unzip RAR ZIP 3.4.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65047.jpg" />
 </div>
 
 
@@ -436,7 +542,7 @@ MacGPT 3.20 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63811.jpg" />
 </div>
 
 
@@ -462,7 +568,7 @@ iA Writer 7.1.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63802.jpg" />
 </div>
 
 
@@ -488,7 +594,7 @@ Remote Desktop Manager Enterprise Edition 2024.1.5.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63789.jpg" />
 </div>
 
 
@@ -514,7 +620,7 @@ Pixelmator Pro 3.5.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63762.jpg" />
 </div>
 
 
@@ -541,7 +647,7 @@ ForkLift 4 v.4.1.1 U2B fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63748.jpg" />
 </div>
 
 
@@ -567,7 +673,7 @@ Bundle for MS Office Templates for Mac 7.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63726.jpg" />
 </div>
 
 
@@ -578,115 +684,6 @@ Bundle for MS Office Templates for Mac 7.7 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A14E83A30448FD502087368FCF564934A4900AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705013   (63685) от 07.03.2024
-
-HitPaw Video Converter for Mac 4.0.1 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конвертируйте видео и музыку без потерь с невероятной скоростью в/из более чем 1000 форматов: MP4, MOV, AVI, VOB, MKV и т. д. Не только для обычных кодеков, но и для продвинутых кодировщиков VP9, ​​ProRes и Opus. Это решает все ваши проблемы с неподдерживаемыми форматами и позволяет воспроизводить ваши видео на любой платформе и устройстве.
-Скачивайте (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.03.2024Разработчик: © 2024 HitPawПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA6F55F5ECF772061DC5486921584E465BB08452
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705338   (63652) от 08.03.2024
-
-App Cleaner & Uninstaller Pro 8.2.7 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63652.jpg" />
-</div>
-
-
-###  Подробнее
-
-App Cleaner - это приложение для просмотра установленных приложений и деинсталлирования пакета файлов для полного удаления.
-App Cleaner - лучшее приложение для удаления файлов приложения службы на macOS X и деинсталляции приложений.
-Удалить служебные файлы приложения. Убедитесь, что они не съедают драгоценное пространство на вашем Mac с этим полезным приложением, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.03.2024Разработчик: © 2024 NektonyПоддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:808A4E3C6DDD03D8BB3CA30556CAACAEBF342333
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705297   (63618) от 08.03.2024
-
-Capture One 23 Pro 16.3.7.10 [En/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Capture One 23 Enterprise — решение для редактирования фотографий для студий обработки изображений и платформ электронной коммерции. Его аутентичная реалистичная обработка цветов, беспрепятственный процесс редактирования и самое быстрое в отрасли подключение дают вам полный творческий контроль, что делает его имя нарицательным в студиях по всему миру. Компания Capture (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.03.2024Разработчик: © 2023 Phase OneПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
-* язык интерфейса приложения зависит от дефолтного языка операционной системы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DBEE2DF1BE8F79DBA09DC0502F5D2BF4AAECBA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705311   (63609) от 08.03.2024
-
-Capture One 23 Enterprise 16.3.7.10 [En/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Capture One 23 Enterprise — решение для редактирования фотографий для студий обработки изображений и платформ электронной коммерции. Его аутентичная реалистичная обработка цветов, беспрепятственный процесс редактирования и самое быстрое в отрасли подключение дают вам полный творческий контроль, что делает его имя нарицательным в студиях по всему миру. Компания Capture (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.03.2024Разработчик: © 2024 Phase OneПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский, Немецкий и др.
-* язык интерфейса приложения зависит от дефолтного языка операционной системы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4637F73B8B1654502C9EAF58AD214A971FFB7FDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

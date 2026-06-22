@@ -1,3 +1,60 @@
+###  Публикация: 513275   (662732) от 20.06.2012
+
+Мистические истории. Выпуск №16. Невеста / Идеальная смерть  (2012.06.19) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662732.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Мистические истории» это цикл из 50 документальных фильмов, каждый из которых расскажет о странной и страшной цепи событий. Это рассказы о необычных историях любви и родовых проклятиях, о странных снах, которые предсказывают будущее, и также о том, как самые, казалось бы, незначительные события могут повлиять на ход всей жизни человека... Каждая «Мистическая история» - невыдуманная. Авторы передачи по крупицам собирали таинственные сведения, тщательно восстанавливали ход событий, опрашивали свидетелей историй. Герои программы становятся участниками поистине загадочных явлений, происходящих в их жизни. Проклятия соседей, ворожба на крови, смертельные опыты... Каждый сюжет комментируют опытные специалисты: доктора наук, ученые, экстрасенсы и даже священники... С их помощью мы сможем узнать, как обезопасить себя от неблагоприятных событий и как можно сгладить негативное влияние тех или иных факторов.
+Все истории нам расскажет ведущий передачи – знаменитый актер Виктор Вержбицкий. Это не случайный выбор, ведь в карьере (   Читать дальше...   )В выпуске: Невеста
+Во сне Максиму является девушка. Она рассказывает, что совершила самоубийство из-за своего отца и просит молодого человека о помощи. Максим находит единственный выход успокоить душу умершей, обратившись к ее родной матери…
+
+Идеальная смерть
+К Ларисе во сне приходит ее умершая мать и сообщает, что на самом деле она стала жертвой убийства. Долгое время дух женщины не дает дочери спокойно спать и, в конце концов, рассказывает, что все свое наследство мать завещала юному любовнику.Жанр: ТелепередачаПродолжительность: ~ 00:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBD437A55E28BB84E8C72297897585346AA81B44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138411   (662218) от 31.05.2017
+
+Засекреченные списки. Битва пророков: 10 главных прогнозов (Эфир от 27.05.2017) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пустые леса, разнообразие животного мира и ни одного человека, таким видят наше будущее современные пророки, ведь они знают, что гибель человечества неизбежна. Они назовут точные причины и сроки уничтожения нашей цивилизации. Мир знал уже немало дат, которые обещали нам апокалипсис. Самой известной из них стало 21 декабря 2012 года, когда согласно пророчеству майя (   Читать дальше...   )Телекомпания: Россия, RenTV, Юнайтед медиаЖанр: ДокументальныйПродолжительность: 01:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA08870ADE30B96ECC12D1878BDFA13FA8A4CB6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 514008   (660312) от 22.06.2012
 
 Странное дело.  Гунны. Русский след (2012.06.22) SATRip
@@ -6,7 +63,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660312.jpg" />
 </div>
 
 
@@ -32,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_659255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_659255.jpg" />
 </div>
 
 
@@ -58,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659207.jpg" />
 </div>
 
 
@@ -84,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659199.jpg" />
 </div>
 
 
@@ -110,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659053.jpg" />
 </div>
 
 
@@ -136,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659012.jpg" />
 </div>
 
 
@@ -167,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658989.jpg" />
 </div>
 
 
@@ -194,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_658974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_658974.jpg" />
 </div>
 
 
@@ -220,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658869.jpg" />
 </div>
 
 
@@ -246,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658135.jpg" />
 </div>
 
 
@@ -273,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658107.jpg" />
 </div>
 
 
@@ -300,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657930.jpg" />
 </div>
 
 
@@ -327,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657666.jpg" />
 </div>
 
 
@@ -353,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654576.jpg" />
 </div>
 
 
@@ -384,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654511.jpg" />
 </div>
 
 
@@ -415,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_654425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_654425.jpg" />
 </div>
 
 
@@ -441,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653539.jpg" />
 </div>
 
 
@@ -472,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651713.jpg" />
 </div>
 
 
@@ -498,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651418.jpg" />
 </div>
 
 
@@ -529,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650433.jpg" />
 </div>
 
 
@@ -555,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649357.jpg" />
 </div>
 
 
@@ -581,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646513.jpg" />
 </div>
 
 
@@ -607,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644856.jpg" />
 </div>
 
 
@@ -633,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643509.jpg" />
 </div>
 
 
@@ -649,63 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E64CD0B615A9D7607176EA9AB64C54B92D808EAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518524   (643442) от 03.07.2012
-
-Мистические истории. Выпуск №23. Лесная вампирша / Вечная любовь  (2012.07.02) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643442.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Мистические истории» это цикл из 50 документальных фильмов, каждый из которых расскажет о странной и страшной цепи событий. Это рассказы о необычных историях любви и родовых проклятиях, о странных снах, которые предсказывают будущее, и также о том, как самые, казалось бы, незначительные события могут повлиять на ход всей жизни человека... Каждая «Мистическая история» - невыдуманная. Авторы передачи по крупицам собирали таинственные сведения, тщательно восстанавливали ход событий, опрашивали свидетелей историй. Герои программы становятся участниками поистине загадочных явлений, происходящих в их жизни. Проклятия соседей, ворожба на крови, смертельные опыты... Каждый сюжет комментируют опытные специалисты: доктора наук, ученые, экстрасенсы и даже священники... С их помощью мы сможем узнать, как обезопасить себя от неблагоприятных событий и как можно сгладить негативное влияние тех или иных факторов.
-Все истории нам расскажет ведущий передачи – знаменитый актер Виктор Вержбицкий. Это не случайный выбор, ведь в карьере (   Читать дальше...   )В выпуске: Лесная вампирша
-Возвращаясь из командировки, Руслан оказывается ночью на незнакомой трассе. Его автомобиль сломался, и парень решает дойти пешком до ближайшего поселка. Идти приходится через лес. Там Руслан видит фигуру девушки в белом, которая как будто ведет его за собой…
-
-Вечная любовь
-Молодой реставратор давно мечтал найти старинный клад. Однажды его мечта сбывается. В старом доме какого-то обедневшего офицера он случайно находит потайную комнату, где видит похожий на мумию труп женщины, держащей в своих руках старинный кубок.Жанр: ТелепередачаПродолжительность: ~ 00:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78F9860DCD3F6A77E65555697DD2A6185A64397D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032976   (641668) от 09.07.2016
-
-Экстрасенсы ведут расследование (2016.07.09) SATRip (сезон 7, выпуск 9)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный триллер-детектив с участием самых загадочных экстрасенсов России! Это не шоу, а демонстрация реальной мощи ясновидения. Участники и победители нескольких сезонов «Битвы экстрасенсов» приводят документальные доказательства того, как паранормальные способности способны помочь людям. В этом цикле экстрасенсы находят пропавших родственников и угнанные (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D365489C6E8C18012C1E39E46CB14597ECE055F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 1839970   (1047048) от 02.12.2025
+
+Эдуард Сирота | Английский язык. Для тех, кто хочет все успеть (2025) [MP3, Эмилия Казанцева]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Английский язык – язык международного общения. Политика, торговля, туризм, искусство, интернет, технологии – нет такой сферы жизни, где не пригодилось бы знание английского языка. Многое, что сложно объяснить с точки зрения современности, объясняет история языка. Почему читаем не так, как пишем? Почему англичанину будет сложно понять американца? Почему «Алису в Стране (   Читать дальше...   )Жанр: Английская грамматика, Английский для начинающих, Английский языкИздательство: БОМБОРА, Правообладатель ЭксмоПродолжительность: 03:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACFD0D6D02A059142F517D3B632AD007F9AA0A97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839663   (1046828) от 30.11.2025
+
+Рашид Мухаев | Политология (2025) [MP3, Аркадий Пучков]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник содержит анализ концепций, ключевых понятий и проблемных комплексов, с помощью которых описывается сложный и противоречивый мир политики, выявляется логика его развития, определяется место и роль политики в жизни человека. Отличительная черта данного издания состоит в том, что в нем теоретическая интерпретация политики органично дополняется эмпирическим анализом (   Читать дальше...   )Жанр: Учебник для вузовИздательство: Нигде не купишьПродолжительность: 17:16:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F05AC91F16F1DD4C42DDE11359075DEEF15DBC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839666   (1046768) от 30.11.2025
+
+Ричард Докинз | Наука души. Избранные заметки страстного рационалиста (2025) [MP3, Константин Корольков]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046768.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом сборнике Докинз предстает не только как блестящий полемист, но и как вдохновенный проповедник научного мировоззрения.
+«Наука души» – это сборник статей и речей блестящего биолога и популяризатора науки Ричарда Докинза, в которых он рассуждает о науке как таковой, о ее роли в обществе, о научных ценностях. Краткие колкие заметки перемежаются развернутыми эссе, (   Читать дальше...   )Жанр: Научное знание, Научное мировоззрение, Научные бестселлерыИздательство: CorpusПродолжительность: 15:24:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22D0B0F3380073A4C8E7510019F74EF6795F7889
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839828   (1046749) от 01.12.2025
+
+Мор Томас | Золотая книга, столь же полезная, как забавная, о наилучшем устройстве государства и о новом острове Утопии (2010) [MP3, Юрий Рудник]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046749.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Диалог <<Утопия>> (1516, рус. пер. 1789), принесший наибольшую известность Томасу Мору, содержащий описание идеального строя фантастического острова Утопия (греческий, буквально -- <<Нигдения>>, место, которого нет; это придуманное Мором слово стало впоследствии нарицательным). Мор впервые в истории человечества изобразил общество, где (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: Нигде не купишьПродолжительность: 05:20:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA95A1D9C160CEAE4EBDECA7A2E5E7F75ED3D7DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603503   (1045676) от 10.01.2023
 
 Люси Уорсли | Чисто британское убийство. Удивительная история национальной одержимости (2022) [MP3, Валерий Кухарешин]
@@ -6,7 +111,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045676.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045387.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045029.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044967.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044803.jpg" />
 </div>
 
 
@@ -137,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044366.jpg" />
 </div>
 
 
@@ -163,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044294.jpg" />
 </div>
 
 
@@ -189,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044225.jpg" />
 </div>
 
 
@@ -216,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044121.jpg" />
 </div>
 
 
@@ -242,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044063.jpg" />
 </div>
 
 
@@ -268,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043934.jpg" />
 </div>
 
 
@@ -294,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043904.jpg" />
 </div>
 
 
@@ -321,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043500.jpg" />
 </div>
 
 
@@ -347,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043284.jpg" />
 </div>
 
 
@@ -373,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042650.jpg" />
 </div>
 
 
@@ -399,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041639.jpg" />
 </div>
 
 
@@ -425,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041620.jpg" />
 </div>
 
 
@@ -451,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041080.jpg" />
 </div>
 
 
@@ -477,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040757.jpg" />
 </div>
 
 
@@ -504,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039881.jpg" />
 </div>
 
 
@@ -531,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039296.jpg" />
 </div>
 
 
@@ -557,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037552.jpg" />
 </div>
 
 
@@ -570,111 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE6E2F843D5D2F1B31C8792C59CFDBB3B8E0848C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615716   (1037287) от 27.02.2023
-
-Жак Фреско | Проектирование будущего (2010) [MP3, Vlad gur]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жак Фреско - архитектор и промышленный дизайнер, производственный инженер и изобретатель, социолог и футуролог – все в одном лице. И во всем самоучка. Жак Фреско смотрит в наше общее будущее и видит там только хорошее. В абсолютно идиллическом будущем Фреско нет бедных и нет богатых, все равны, живут в одном мире без границ и ничто не омрачает их существования. В (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 02:33:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEDE22B9E136425D1957807993B73CAF4A2C5D7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615932   (1035850) от 04.03.2023
-
-Колин Вард | Анархизм. Очень краткое введение (2016) [MP3, Ильяс Фекердинов]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анархизм - это социальная и политическая идеология, которая, несмотря на историю, полную неудач, постоянно возрождается в новом обличье или в новой стране, прибавляя таким образом еще одну главу к своей хронологии или еще шире распространяясь. Я поставил перед собой одну задачу - просто попытаться в немногих словах ввести читателя в курс идей анархистов и указать (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 03:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A3E5B3D9D4827092EC4BF3FA9A5ADDAC2727305
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615930   (1035841) от 04.03.2023
-
-Франс де Вааль | Наша внутренняя обезьяна (2023) [MP3, Михаил Андрианов]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга одного из известнейших приматологов мира Франса де Вааля посвящена эволюционным истокам человеческой натуры, ее двойственности и биологическим корням.
-Де Вааль рассматривает четыре ключевые стороны нашей природы – стремление к власти, потребность в сексе, склонность к актам насилия и проявлениям доброты – и на основании многолетних наблюдений за человекообразными (   Читать дальше...   )Жанр: Научно-популярная литература, АнтропологияПродолжительность: 11:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:825E07B81407D6D28A74BFDC8BB80FF4434D40A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616849   (1035840) от 04.03.2023
-
-Грейсон Брюс | После (2021) [MP3, Александр Мозгунов]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Случаи, когда люди, оказавшиеся при смерти, рассказывали о «свете в конце тоннеля» и необычных переживаниях, известны еще с древности. Сегодня подобный опыт описывают 10% людей, переживших остановку сердца. Однако в медицинском сообществе принято игнорировать такие «околосмертные переживания», принимая их за самообман и «игры разума». Но после рассказов некоторых (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 09:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DAF25732E722FB356E042D69EE3164303D6DC79
 ```
 
 https://mybot314.ru/tekegram_catalog/

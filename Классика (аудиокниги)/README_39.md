@@ -1,3 +1,60 @@
+###  Публикация: 1835154   (250554) от 05.11.2025
+
+Максим Горький | Дачники (Радиоспектакль) (2014) [MP3, Леонид Галлис, Алексей Консовский, Мария Волкова, и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Из архива «Гостелерадиофонда».
+Максим Горький (1868–1936) – русский писатель, литературный критик и публицист, в творчестве которого нашли отражение история, быт и культура России первой трети XX века.
+Спектакль «Дачники» по одноимённой пьесе Максима Горького, написанной им в 1904 году. Спектакль о русской интеллигенции, беседующей на философские темы (   Читать дальше...   )Жанр: Русская литература, классика, драма, пьесаИздательство: ИДДК, БизнессофтПродолжительность: 03:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C4575058B9BF8BEF2DF89671B8289A2A1372310
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835152   (250553) от 05.11.2025
+
+Максим Горький | Васса Железнова (Радиоспектакль) (2013) [MP3, Вера Пашенная, Михаил Жаров и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: «Звуковой архив Малого театра».
+Максим Горький (1868–1936) – русский писатель, литературный критик и публицист, в творчестве которого нашли отражение история, быт и культура России первой трети XX века.
+Пьеса «Васса Железнова» – Максима Горького, написанная в 1910 году и переработанная в 1935 году.
+Радиопостановка Государственного академического Малого (   Читать дальше...   )Жанр: Русская литература, классика, драма, пьесаИздательство: Студия «Звуковая книга», ГостелерадиофондПродолжительность: 01:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3360FEC250985F9B713AB3D71EF343E76AF258CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1835178   (250539) от 05.11.2025
 
 Максим Горький | Мать (2023) [MP3, Юлия Тархова]
@@ -6,7 +63,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250539.jpg" />
 </div>
 
 
@@ -35,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249801.jpg" />
 </div>
 
 
@@ -61,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247584.jpg" />
 </div>
 
 
@@ -87,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247365.jpg" />
 </div>
 
 
@@ -113,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246201.jpg" />
 </div>
 
 
@@ -142,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245840.jpg" />
 </div>
 
 
@@ -168,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245632.jpg" />
 </div>
 
 
@@ -194,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245050.jpg" />
 </div>
 
 
@@ -220,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241488.jpg" />
 </div>
 
 
@@ -246,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239838.jpg" />
 </div>
 
 
@@ -272,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238819.jpg" />
 </div>
 
 
@@ -300,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238143.jpg" />
 </div>
 
 
@@ -326,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_238027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238027.jpg" />
 </div>
 
 
@@ -352,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237270.jpg" />
 </div>
 
 
@@ -380,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237244.jpg" />
 </div>
 
 
@@ -408,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236432.jpg" />
 </div>
 
 
@@ -436,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235709.jpg" />
 </div>
 
 
@@ -464,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235137.jpg" />
 </div>
 
 
@@ -490,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234597.jpg" />
 </div>
 
 
@@ -517,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234581.jpg" />
 </div>
 
 
@@ -544,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234532.jpg" />
 </div>
 
 
@@ -570,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234508.jpg" />
 </div>
 
 
@@ -597,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234492.jpg" />
 </div>
 
 
@@ -625,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234390.jpg" />
 </div>
 
 
@@ -636,58 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91EA82EF6B6302D1DD517E71EBB45FBB48CD8BF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577195   (233309) от 17.09.2022
-
-Синклер Льюис | Похищенная процессия (2022) [MP3, Дмитрий Иванов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Синклер Льюис (7 февраля 1885 – 10 января 1951) — американский писатель и драматург. В 1930 году он стал первым писателем из Соединенных Штатов (и первым из Америки), получившим Нобелевскую премию по литературе, которая была присуждена «за его энергичное и графическое искусство описания и его способность создавать с остроумием и юмором новые типы персонажей». Он (   Читать дальше...   )Жанр: КлассикаПродолжительность: 00:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55F36C2A8152368BEC158842902F19F8F812F5F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634848   (233090) от 22.05.2023
-
-У Чэн-энь | Путешествие на Запад (Том 3) (2013) [MP3, Владимир Сушков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_233090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот роман - жемчужина китайской классической прозы. Он написан более трехсот лет назад и стал неотъемлемой частью мировой культуры. Историческое ядро сюжета - путешествие буддийского монаха Сюань-цзана в Индию за священными сутрами. Реальное путешествие удивительно переплетается с фантастическими подробностями. Оригинальные сюжетные ходы, схватки с демонами и оборотнями (   Читать дальше...   )Жанр: Зарубежная классическая проза, Роман, Героико-фантастическая эпопеяПродолжительность: 27:09:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CD7F66BFA3DE3F56065EF58BB40D180C7284268
 ```
 
 https://mybot314.ru/tekegram_catalog/

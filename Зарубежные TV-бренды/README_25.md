@@ -1,3 +1,107 @@
+###  Публикация: 1460865   (798370) от 04.11.2021
+
+Реальность или фантастика? Чупакабра / Is it Real? Chupacabras (2005) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Некое загадочное существо тайком от людей пьёт кровь домашнего скота. Эти странные события происходят в Южной и Центральной Америке. Такие вещи не могут не тревожить местных жителей, они называют это существо – «чупакабра», что в переводе означает «козий вампир». Всю Латинскую Америку охватил непреодолимый интерес к этим загадочным происшествием, что можно назвать (   Читать дальше...   )Производство: США, National Geographic TelevisionЖанр: Документальный цикл, познавательныйРежиссер: Полетт МурПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:337ED09A64437743BFC98AE82E0B2CA532DD0763
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 656187   (798359) от 04.11.2021
+
+NG: Самый опасный наркотик / The World`s Most Dangerous Drug (2006) HDTVRip [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798359.jpg" />
+</div>
+
+
+###  Подробнее
+
+У него множество названий: кристалл, лед, тина, и заводка, большинство просто называют его MET – сокращенно от метамфетамин. Он сильнее и дешевле чем кокаин, действие стандартной дозы продолжается от 6 до 12 часов, кроме того его можно изготовить прямо на заднем дворе, если вы умеете готовить шоколадное печенье, то сможете изготовить и метамфетамин. Для изучения (   Читать дальше...   )Жанр: ДокументальныйРежиссер: David MurdockПеревод: Одноголосый профессиональныйПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9794E524ED30C159333E06503B3703A314D90699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385425   (797759) от 24.05.2020
+
+NG. Дикая природа Тайваня: остров джунглей / Wild Taiwan: Jungle Island (2018) WEBRip [H.264/1080p-LQ] [PR]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тайвань - это остров, непохожий на другие острова. На этом расположенном непосредственно на тропике Рака небольшом кусочке Азии вы найдете тропические пляжи, сумрачные леса и покрытыми льдом и снегом горы. Жизнь здесь скрытна и скудна, она разделена между теплыми низменностями на западе и высокими горами на востоке. Но весной, когда снег на Нефритовой горе отступает, (   Читать дальше...   )Производство: США, Natural History New Zeland for National GeographicЖанр: Документальный, Флора, Фауна, ПриродаРежиссер: Лорн ТаунендПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 00:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6B1247FC8D8C1D80925829FB9830906EA716416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008924   (797540) от 26.04.2016
+
+Нетронутые уголки дикой природы / Natures Microworlds (2012-2014) SATRip (сезон 1-3 из 3, серии 1-16 из 16)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наша планета – величайшая загадка Вселенной. Миры внутри других миров, каждый из которых - это самостоятельная экосистема, наполненная жизнью. Для того чтобы понять, как эти миры устроены, мы попытаемся исследовать их по отдельности. Мы сможем разобрать эту необыкновенную мозаику по кусочкам и обнаружить главный элемент – ключ к самой жизни, спрятанный глубоко в (   Читать дальше...   )Телекомпания: Великобритания, British Broadcasting Corporation (BBC)Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: ~00:30:00 (одна серия)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61834014E25578D900E040F3CB8FF5CC37939024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 733773   (797473) от 26.04.2016
 
 NG. Кунг-Фу – Мастерство убийства / Kung Fu Killers (2006) HDTVRip [H.264/720p-LQ]
@@ -6,7 +110,7 @@ NG. Кунг-Фу – Мастерство убийства / Kung Fu Killers (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797473.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797353.jpg" />
 </div>
 
 
@@ -50,6 +154,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 752772   (797345) от 26.04.2016
+
+History Channel. Нацистский "Титаник" / The Nazi Titanic (2012) HDTVRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_797345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полнометражный художественно-документальный фильм, рассказывающий о создании не менее легендарного, чем сам затонувший "Титаник", одноименного блокбастера, снятого в Германии в 1943 году. Картина снималась по заказу Геббельса и должна была стать не только мощным пропагандистским оружием против Великобритании, но и даже затмить Голливуд. Однако не все пошло (   Читать дальше...   )Жанр: Документальный, историяПеревод: Одноголосый закадровый (любительский)Продолжительность: 01:26:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCB1EB213D343197C22E1069AD33E1F3061EC36D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508466   (797340) от 08.11.2021
 
 BBC: Секреты космических войн / Space War Secrets (2020) WEBRip [H.264/1080p]
@@ -58,7 +188,7 @@ BBC: Секреты космических войн / Space War Secrets (2020) W
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797340.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797338.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ NGW: Наследие леопарда / The Leopard Legacy (2021) WEBRip [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797332.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ NG: Дикая природа Филиппин / Untamed Philippines (2018) WEBR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797138.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ NGW: Дикие Филиппины. Скрытые чудеса / Untamed Philip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797132.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Discovery. Северная Америка / North America (2013) HDTV [H.264/10
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797130.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ BBC. Тайны вселенной: Великие ученые своими с�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797118.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ NGW: Дикие Филиппины. Скрытые чудеса / Untamed Philip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797109.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796686.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ NG. Мегазаводы: Wargaming / Ultimate Factories: Wargaming (2013) HDTVR
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796597.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ NG: Дикая природа Новой Зеландии: затерянный 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796549.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ NG: Земля под рентгеном / X-Ray Earth (2020) HDTVRip [H.264/720
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796541.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ BBC: Удивительный мир данных / The Joy of Data (2016) HDTVR
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796508.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ BBC. Взломщики кодов. Забытые герои Блетчли-П�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796056.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ NG. Храм фашизма / Nazi Temple of DOOM (2012) HDTVRip [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795250.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ History Channel. Пропавший римский легион / Rome's Lost Le
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794923.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ History Channel. Пропавший римский легион / Rome's Lost Le
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794852.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ BBC. Искусство стран Бенилюкса / The High Art of the Low 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794625.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ Discovery: Бушкрафт: лесная лига / Bushcraft Build-Off (2017) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794592.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ Discovery: Бушкрафт: лесная лига / Bushcraft Build-Off (2017) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B17FC5F40ACD26A6256CA0FFB8310022AF64C8B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012090   (794581) от 30.04.2016
-
-BBC. Искусство Германии / Art of Germany (2010) HDTVRip (серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для поэта Фридриха Шиллера не существовало страны Германии, только вопрос: - "Германия, где это?". Большую часть своей истории Германия не была единой, она представляла собой несколько отдельных земель, не государство, а процесс становления. На протяжение веков Германия существовала только в фантазии, в воображении писателей, художников, провидцев, поэтому (   Читать дальше...   )Телекомпания: BBCЖанр: ДокументальныйРежиссер: Карен МакГанн / Karen McGann, Роджер Парсонс / Roger ParsonsПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:59:00 (одна серия)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:925BF9A960C42D08E95DC817CA85CF3699DCA453
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012087   (794569) от 30.04.2016
-
-BBC. Искусство Испании / The Art of Spain (2008) SATRip (серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Часто при мысли об Испании мы представляем себе пляжный отдых, но существует и другая Испания. Эта страна дала миру самое поразительное искусство из существовавших когда-либо в мире. Искусство, которое незаслуженно находится в тени культурных достижений остальной Европы. Между тем, испанское искусство - именно то, которое мы должны знать, ведь оно является ключом (   Читать дальше...   )Телекомпания: BBCЖанр: ДокументальныйРежиссер: Робин Дэшвуд / Robin DashwoodПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:51:00 (одна серия)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D00ECDADDABFBB63E254218E00F5E242253190E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012098   (794495) от 30.04.2016
-
-BBC. Искусство России / The Art of Russia (2009) HDTVRip (серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794495.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Art of Russia - 3-х серийный фильм о русском искусстве, начиная с 10 века. Рассказывает об искусстве древней Руси, 18 века, до революции, в советский период и в наше время. Фильм вышел в декабре 2009 года в рамках русского сезона на BBC Four.Телекомпания: BBCЖанр: ДокументальныйРежиссер: Эндрю Грэм-Диксон / Andrew Graham-DixonПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:59:00 (одна серия)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FD71BDD1A38237141FB4E9898AA2CECFE43CB9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122649   (794239) от 05.04.2017
-
-PBS: Истории из королевской спальни / Tales from the Royal Bedchamber (2013) HDRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>PBS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старший куратор исторических королевских дворцов Люси Уорсли заглянет в королевские спальни, чтобы раскрыть нам их величайшие тайны. Ведь, взлеты и падения великолепных спален отражают изменения положения самой монархии.Телекомпания: Великобритания, Tiger Aspect Productions for BBCЖанр: Документальный, ИсторияПеревод: Одноголосый закадровый, профессиональный, ("SDI Media")Продолжительность: 00:53:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D03430CF7BBC7692C1B9EF821A893C662C277BE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509753   (793857) от 13.11.2021
-
-BBC: Бог любит Уганду / God Loves Uganda (2013) WEBRip [H.264/1080p]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793857.jpg" />
-</div>
-
-
-###  Подробнее
-
-В фильме «Бог любит Уганду» обладатель премии Оскар режиссёр Роджер Росс Уильямс исследует роль христианской церкви в установлении в Уганде закона, жестоко карающего за гомосексуальность. Этот страшный закон в начале 2010-х продвигали в Уганде политики и горячо пропагандировали некоторые церковные лидеры. Но идея принятия такого закона, равно как и деньги на кампанию (   Читать дальше...   )Производство: США / Full Credit Productions, Motto PicturesЖанр: ДокументальныйРежиссер: Роджер Росс УильямсПеревод: Многоголосый профессиональный (Lucky Production)Субтитры: ОтсутствуютПродолжительность: 00:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6FEBFE3C35247D87CD6D62B034E7667DA4D28C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

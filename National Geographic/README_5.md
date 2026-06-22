@@ -1,3 +1,82 @@
+###  Публикация: 1503490   (819260) от 19.10.2021
+
+NGW: Супер-змея Америки / America's Super-Snake (2019) WEBRip [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Техасский гремучник, обитающий в пустыне в условиях знойного лета вынужден противостоять огромному количеству вызовов, чтобы выжить и оставить потомство.Производство: Южная Африка / Earth Touch and National GeographicЖанр: Документальный, Природа, ФаунаРежиссер: Кира ИвановПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22850954F6C9ACD6B1F37214512394B14C0091A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 858258   (819162) от 16.04.2016
+
+NG. Тайны Креста / Secrets Of The Cross (2009) SATRip [1-4 серия из 4]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тайны Креста - это цикл из четырех программ о христианских секретах, которые веками будоражили умы людей. Истории, которые повлияли на формирование западной культуры, скрупулезно изучаются в виду выявления новых исторических фактов. Передачи представляют собой анализ Евангелие, на который авторов подвигла книга . Всем известные рассказы из воскресной школы будут (   Читать дальше...   )Жанр: Документальный, религия, история, археология, исследованиеПеревод: Одноголосый закадровый (профессиональный)Субтитры: отсутствуютПродолжительность: 4 x ~ 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F8160DD8DA9487F961685BE62FDC6EFF919C65E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116874   (818561) от 22.03.2017
+
+NG: Дикий Секс / WILD Sex (2005) SATRip (Серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Забудьте о сексе старой школы-сексе птичек и пчёлок, самцов и самок.
+Мы проникнем в динамичный и заряженный особой энергией мир искателей сексуальных приключений, мир животных испытывающих сладострастное влечение к необычному, немысленному и невообразимому.....Телекомпания: СШАЖанр: Документальный, научно-познавательныйРежиссер: Петер ВэнПродолжительность: 6x ~ 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E47C800B90023DC161CCABE53CBDEDBAC1362274
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 833715   (817592) от 17.04.2016
 
 NG. Жизнь до рождения. Близнецы. Двойни, тройни, четверни / In The Womb. Twins, Triplets And Quads (2007) HDTVRip [H.264/720p-LQ]
@@ -6,7 +85,7 @@ NG. Жизнь до рождения. Близнецы. Двойни, тройн
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817592.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ NG: Гибель морского монстра / Death of a Sea Monster (2010)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817132.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ NGW: Самая большая в мире белая акула / World's Bigge
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817090.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ NGW: Пумы на краю света / Pumas At The End of The World (2020) WE
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815852.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ NG: Секреты гробницы Христа: специальный реп�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815280.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ NGW: Дикие животные Японии / Japan's Wild Year (2014) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813451.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ NG: Солнечное затмение / Eclipse (2010) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813311.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ NG. Наука рукопашного боя / Fight Science (2006) HDTV [H.264/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813102.jpg" />
 </div>
 
 
@@ -215,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811534.jpg" />
 </div>
 
 
@@ -241,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811462.jpg" />
 </div>
 
 
@@ -267,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811184.jpg" />
 </div>
 
 
@@ -293,7 +372,7 @@ NG. Львиное королевство / Lion Kingdom (2017) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809842.jpg" />
 </div>
 
 
@@ -319,7 +398,7 @@ NG. Файлы секретных служб: Охрана президента 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805843.jpg" />
 </div>
 
 
@@ -345,7 +424,7 @@ NG. Освещённая пучина / Light the Ocean (2011) HDTVRip [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805678.jpg" />
 </div>
 
 
@@ -371,7 +450,7 @@ NG. Взгляд изнутри: Гугл / Inside: Google (2010) HDTVRip [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805676.jpg" />
 </div>
 
 
@@ -397,7 +476,7 @@ NG. Джон Ф. Кеннеди. Пропавшая пуля / JFK: The Lost Bul
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805559.jpg" />
 </div>
 
 
@@ -423,7 +502,7 @@ NG. Суперсооружения Третьего рейха / Nazi megastruct
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805228.jpg" />
 </div>
 
 
@@ -449,7 +528,7 @@ NGW: Холодные острова / Frozen Islands (2020) WEBRip [H.264/1080p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804245.jpg" />
 </div>
 
 
@@ -475,7 +554,7 @@ National Geographic: Самые опасные животные: Восьмин�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803197.jpg" />
 </div>
 
 
@@ -501,7 +580,7 @@ NGW: Кошачьи приемы / Cat Attack-Tics (2019) WEBRip [H.264/1080p-LQ
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801474.jpg" />
 </div>
 
 
@@ -527,7 +606,7 @@ NGW: Южная Африка: Земля контрастов / South Africa: La
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800835.jpg" />
 </div>
 
 
@@ -553,7 +632,7 @@ NGW: Дикие места Ирана / Iran's Wild Side (2019) WEBRip [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800115.jpg" />
 </div>
 
 
@@ -579,7 +658,7 @@ NG. Дикие места Таиланда / Thailand's Wild Side (2019) WEBRip 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800043.jpg" />
 </div>
 
 
@@ -590,84 +669,6 @@ NG. Дикие места Таиланда / Thailand's Wild Side (2019) WEBRip 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEC521910D3390AF57A32531413F3FDDAD99F047
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 164658   (799432) от 03.04.2017
-
-NG: Запреты / Taboo (2002-2009) SATRip [30 серий]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_799432.jpg" />
-</div>
-
-
-###  Подробнее
-
-У каждой культуры существуют свои традиции и свои правила жизни. Мы знакомимся с самыми странными и порой неприемлемыми для природы человека обрядами и ритуалами, которые являются неотъемлемой частью культуры некоторых народностей на нашей земле. Что заставляет некоторых людей вставлять стальные рыболовные крючки в кожу на спине своего приятеля, чтобы подвесить его (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: ~30 -00:45:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507056   (798375) от 04.11.2021
-
-NGW: Холодное королевство снежного барса / The Frozen Kingdom of The Snow Leopard (2020) WEBRip [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это рассказ об одной самке снежного барса, которой пришлось родить и воспитывать детенышей в негостеприимной и враждебной долине.Производство: Франция / ZED, Regard Du Vivant, Doclight, CCTV9Жанр: ДокументальныйРежиссер: Фредерик ЛаррейПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22294EE7E4FAA5AEEAFC7F8EAAB73B707023EF7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 656187   (798359) от 04.11.2021
-
-NG: Самый опасный наркотик / The World`s Most Dangerous Drug (2006) HDTVRip [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798359.jpg" />
-</div>
-
-
-###  Подробнее
-
-У него множество названий: кристалл, лед, тина, и заводка, большинство просто называют его MET – сокращенно от метамфетамин. Он сильнее и дешевле чем кокаин, действие стандартной дозы продолжается от 6 до 12 часов, кроме того его можно изготовить прямо на заднем дворе, если вы умеете готовить шоколадное печенье, то сможете изготовить и метамфетамин. Для изучения (   Читать дальше...   )Жанр: ДокументальныйРежиссер: David MurdockПеревод: Одноголосый профессиональныйПродолжительность: 00:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9794E524ED30C159333E06503B3703A314D90699
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Kyle Culkin - Shades of Trouble (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2938.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ RG1 Project - Bourbon & Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2937.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Paris Kis - BLUES 6 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2928.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Monster Mike Welch - Keep Living Til I Die (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2919.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Mikey Junior - Tribute to Aleck "Rice" Miller (Sonny Boy Williamson) (2025) [FLA
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2915.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Antonio Vergara - Vergara Street (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2914.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Michele Biondi - World Traveler (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2911.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Willie Phoenix - Happy Vibrations (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2910.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Bleary Eyed Bastards - Good Enough for Who It's For (2025) (2CD) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2756.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ The 251s - From the Five (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2755.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ SirJoe Polito - Black & White (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2754.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ The Name Droppers - Cool Blue Shoes (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2753.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Charlie Daniels Band - Country Stars N' Stripes (2025) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2750.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Ripoff Raskolnikov Band - Another Seven (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2749.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Willie Phoenix - Friends (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2740.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Matt Swanton Band - Growing Pains (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2733.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ CHristina Crofts - Best Of Bottleneck (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1980.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Candice Ivory - New Southern Vintage (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1968.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Clara Mae Hollins & The Royal Blues - Clara Mae Hollins & The Royal Blues – Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1952.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Ben Rice & the PDX Hustle - Fallen Angel (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1947.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Catfish John Tisdell - Rust and Rain (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1944.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Enlly Blue - Softly Floating (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1808.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ John Haydock - Reckless Burning (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1802.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ John Haydock - More Best of Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1801.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ The Mystix - Dream Girl (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1797.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ The Mississippi Black Snakes - White Buffalo (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1795.jpg" />
 </div>
 
 

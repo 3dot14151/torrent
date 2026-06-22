@@ -1,3 +1,81 @@
+###  Публикация: 1854552   (1057550) от 18.02.2026
+
+Эликсир молодости / Abadi Nan Jaya / The Elixir (2025) WEBRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057550.jpg" />
+</div>
+
+
+###  Подробнее
+
+В тихой деревне Ваниреджо на острове Ява семейный бизнес по производству традиционных травяных лекарств (джаму) переживает тяжёлые времена. Стареющий владелец компании Садимин (Пак), устав от семейных дрязг и финансовых проблем, решает продать дело и уйти на покой. Но в последний момент он создаёт революционный новый эликсир — Abadi Nan Jaya («Вечный и Славный»), (   Читать дальше...   )Производство: Индонезия / Mowin PicturesЖанр: ужасы, боевикРежиссер: Кимо СтамболАктеры: Миха Тамбайон, Эва Челиа Латджуба, Члареста Тауфан Кусумарина, Димас Ангара, Мартхино Лио, Ардит Эрвандха, Варрен Арианда Чалиеф, Донни Дамара, Кики Нарендра, Вонни Анграини и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CF19E64CA9E562671A5E1811FFE01E7F394121C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854392   (1057468) от 17.02.2026
+
+Служанка / Горничная / Hanyo / The Housemaid / (1960) BDRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мелкобуржуазная семья, состоящая из учителя музыки, белошвейки и пары нагловатых детей младшего школьного возраста, в связи с переездом из барака в двухэтажный дом и скорым прибавлением потомства, нанимает помогать по хозяйству девушку из фабричного общежития — пугливое, неразговорчивое, много курящее существо, чей главный и единственный талант пробуждать в окружающих (   Читать дальше...   )Производство: Южная Корея, Hanguk Munye Yeonghwa, Kim Ki-Young ProductionЖанр: драма, мелодрама, криминал,  триллерРежиссер: Ким Ки-ЁнАктеры: Ли Ын-щим, Чу Джын-нё, Ким Джин-гю, Ан Сон-ги, Ом Эн-ран, Кан Сок-чэ, Ко Сон-э, На Джон-окПеревод: любительский одноголосый (liosaa)Язык озвучки: русский, корейскийСубтитры: русские (liosaa), английскиеПродолжительность: 01:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F19A12620BE827F6450E5FAD3F32E7A1ECE6B9FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853125   (1056443) от 11.02.2026
+
+Мой пропавший Валентин / Xiao shi de qing ren jie / My Missing Valentine (2020) BDRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сяо-чи делает всё так быстро, что на шаг опережает других. На работе дела идут отлично, а вот личная жизнь не складывается. Перед днём Святого Валентина Сяо-Чи наконец встречает симпатичного парня и собирается провести день всех влюблённых с ним. Однако, проснувшись на следующее утро, она с ужасом обнаруживает, что наступило 15 февраля...Производство: Тайвань, 1 Production Film, Ambassandor Theatres, Mandarin VisionЖанр: фэнтези, мелодрама, комедияРежиссер: Чэнь ЮйсюньАктеры: Лю Куаньтин, Патти Ли, Дункан Лай, Бамбу Чэнь, Крес Чуан, Хэвен Хай, Керр Сю, Гу Баомин, Берри Вен-и Куо, Цу-Цзюнь ЛангПеревод: любительский одноголосый (porcellus)Язык озвучки: русский, китайскийСубтитры: английскиеПродолжительность: 01:59:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78D7DB6A35D12C360125F896C22DE93EF040AF11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852793   (1056066) от 10.02.2026
 
 Церемония / Gishiki (1971) BDRip [H.264] [VO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056066.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054710.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052716.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052507.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052333.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050736.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050359.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049815.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049526.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047362.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046896.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046340.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046083.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045988.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045618.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045586.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045318.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045211.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044831.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044612.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044533.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043932.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043867.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2231E0DD636FEB626C4297EA0FDD58FAFF4AA09B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608597   (1043560) от 31.01.2023
-
-Ода Нобунага / Fuunji Oda Nobunaga / Lucky Adventurer Oda Nobunaga (1959) WEB-DLRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043560.jpg" />
-</div>
-
-
-###  Подробнее
-
-После смерти старого князя в Овари, главой клана становится его сын - Ода Нобунага. Нобунага довольно беспечный молодой человек, ведущий, так сказать разгульный образ жизни, а всеми делами управляет за него "дедушка" Хирате Масахидэ. Однако враг не дремлет: соседний князь Имагава Ёсимото, обладающий значительной силой и завышенными амбициями, стремится (   Читать дальше...   )Производство: Япония / Toei CompanyЖанр: драма, историяРежиссер: Тосикадзу КоноАктеры: Kyoko Mitsui, Кацуо Накамура, Кинносукэ Накамура, Эитаро Синдо, Рюносукэ Цукигата, Эидзиро ЯнагиПеревод: Одноголосый любительский (Shaman)Язык озвучки: русский, японскийСубтитры: английские - отдельным файломПродолжительность: 01:35:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7970F1005D3133E5395789DC1B23527C1942CFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608604   (1043523) от 31.01.2023
-
-Месть / Рождественская песнь / Keuriseumaseu kaereol / Christmas Carol (2022) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043523.jpg" />
-</div>
-
-
-###  Подробнее
-
-В рождественское утро Оль У, брата-близнеца Иль У, нашли мёртвым с множественными синяками на теле. Несмотря на это, в полиции дело закрыли, сочтя произошедшее несчастным случаем. Иль У решает сам отомстить убийцам. Единственная зацепка, которая у него есть, - голоса на заднем плане, которые он слышал во время разговора с братом. Но этого хватает, чтобы примерно (   Читать дальше...   )Производство: Южная Корея / FinecutЖанр: триллер, криминалРежиссер: Ким Сон-суАктеры: Чинён, Ким Ён-мин, Хо Дон-вон, Ким Дон-хвиПеревод: Многоголосый любительский (STEPonee | 18+)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:10:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA52F475067C70780F6B300067D12C05DD573414
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609445   (1043251) от 03.02.2023
-
-Сасаки в моей памяти / Sasaki, in, mai main / Sasaki in My Mind (2020) WEB-DLRip [AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043251.jpg" />
-</div>
-
-
-###  Подробнее
-
-27-летний Юдзи Митани приехал в Токио, чтобы стать актером, но так и остался невостребованным. Отношения с девушкой практически разрушены, жизнь пуста и бесцветна. Однажды Юдзи воссоединяется с одноклассником Тада и вспоминает свои дни с Сасаки, который был чрезвычайно харизматичным человеком в школе. Сасаки всегда очаровывал окружающих своей взрывной энергией. Однако (   Читать дальше...   )Производство: Япония / Third Window FilmsЖанр: драмаРежиссер: Такуя УтиямаАктеры: Кисэцу Фудзивара, Минори Хагивара, Гаку Хосокава, Сатору Игути, Rii Ishihara, Нидзиро МуракамиПеревод: Авторский (Александр Смирнов)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:59:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB26F096349C027AEE732C9121E52CCA47744451
 ```
 
 https://mybot314.ru/tekegram_catalog/

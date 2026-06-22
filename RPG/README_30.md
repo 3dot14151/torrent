@@ -1,3 +1,107 @@
+###  Публикация: 1251026   (421849) от 29.09.2018
+
+Tower of Time (2018) [Ru/Multi] (1.2.4.2476) Repack R.G. Catalyst
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tower of Time — удивительная игра со множеством приключений, в которую входит около 50 часов игрового времени. Все уровни в игре созданы вручную, а увлекательный сюжет раскрывается через видеовставки.Тип издания: RepackРазработчик: Event HorizonЖанр: Strategy, RPG, ActionЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90ACF622A10E41B4122876499D321AA426D33D02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191869   (421714) от 29.09.2018
+
+Diluvion: Resubmerged (2017) [Ru/Multi] (1.2.33/dlc) License PLAZA [Fleet Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Diluvion — трехмерная игра о странствиях в морских глубинах. Она пронизана духом книг Жюля Верна, содержит элементы ролевой игры и захватывающие бои субмарин. Станьте капитаном собственного корабля!Тип издания: LicenseРазработчик: Arachnid GamesЖанр: Adventure, Action, RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3B5946829E3D7299C8AAB4D8814BA9C52582F12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572606   (420564) от 27.08.2022
+
+King's Bounty II (2021) [Ru/Multi] (1.7/dlc) License GOG [Duke's Edition]
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Над Нострией сгущается тьма. Заговоры, диверсии, чернокнижничество – поводов для тревоги несть числа. Но, быть может, спаситель – последняя надежда королевства – уже среди нас, и он сумеет дать отпор силам зла! King’s Bounty II – долгожданное продолжение легендарной серии King’s Bounty, которая славится как один из лучших представителей жанра ролевых игр с пошаговыми (   Читать дальше...   )Тип издания: LicenseРазработчик: Fulqrum GamesЖанр: Ролевая игра, ПриключениеЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C96B1F24A4826D5F2DDA5C8EBFFB140E3EBFA12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159293   (416314) от 20.09.2017
+
+Darkwood (2017) [Ru/En] (1.1 Hotfix 4) Repack Covfefe
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Darkwood - это игра о выживании, исследовании и страхе, действие которой происходит в таинственных лесах где-то на территории Советского блока. С видом сверху, со свободой перемещения, этот сюрреалистический хоррор-опыт ждёт вас в мире, который каждый раз генерируется заново. Беря пример с классических игр, где часто нужно было разобраться самостоятельно, и впитав (   Читать дальше...   )Тип издания: RepackРазработчик: Acid Wizard StudioЖанр: Action (Survival horror), RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B17E964479BC3647B4F0EF6F5D4237CDB7D1B6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570575   (416079) от 29.08.2022
 
 Noelle Does Her Best (2022) [Multi] (2/dlc) License GOG [18+]
@@ -6,7 +110,7 @@ Noelle Does Her Best (2022) [Multi] (2/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416079.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Dragon Age - Anthology / Эпоха Дракона - Антология (2009-20
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415636.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Pine (2019) [Ru/Multi] (Patch 13) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415284.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Shadows: Heretic Kingdoms (2014) [Ru/En/De] (1.0.0.8172) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415212.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Wasteland 2: Director's Cut (2014) [Ru/En] (1.0/upd1) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415143.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Wasteland 3 (2020) [Ru/Multi] (1.1.1/dlc) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413313.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Wasteland 2: Director's Cut (2015) [Ru/Multi] (1.0/u1) Repack R.G. Games
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412908.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Rezrog (2017) [Ru/En] (1.1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412814.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (SC:6879) Repack xatab (об�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411012.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Final Fantasy XII International: Zodiac Job System (En) [RePack/Emulator] 2007 |
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410945.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Overlord: Fellowship of Evil (2015) [En/Multi] (1.0) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410639.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Legends of Dawn Reborn (2015) [Ru/Multi] (2.01s) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408931.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ Seven: The Days Long Gone (2017) [Ru/Multi] (1.2.0/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408900.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ Gerda: A Flame in Winter (2022) [Ru/Multi] (1.1.14-00f6b) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407225.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ Middle-earth: Shadow of Mordor (2014) [Ru/Multi] (rc2/dlc) License GOG [Game of 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407217.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ Kingdom Hearts [En] [RePack/Emul] 2002 | MoveXX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406264.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ R.A.W.: Realms of Ancient War / R.A.W.: Проклятье древних кор
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405660.jpg" />
 </div>
 
 
@@ -453,7 +557,7 @@ Lichdom: Battlemage (2014) [En] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402903.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ Of Orcs And Men [Ru/En] (Repack/1.0.0.2) 2012 | Fenixx
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402654.jpg" />
 </div>
 
 
@@ -507,7 +611,7 @@ Might & Magic: Heroes VI. Gold Edition / Герои Меча и Магии 6. З
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402582.jpg" />
 </div>
 
 
@@ -534,7 +638,7 @@ Stonekeep (1995) [Multi] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402151.jpg" />
 </div>
 
 
@@ -560,7 +664,7 @@ Of Orcs and Men [Ru/En] (RePack/1.0.0.2) 2012 | Audioslave
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401828.jpg" />
 </div>
 
 
@@ -573,115 +677,6 @@ Of Orcs and Men [Ru/En] (RePack/1.0.0.2) 2012 | Audioslave
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:173A76C3A9EAF718F183BD842213A365AC1CDD48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564731   (401677) от 24.10.2012
-
-Risen 2. Dark Waters / Risen 2. Тёмные воды [Ru/En/Gr] (RePack/1.0.1210) 2012 | R.G. Catalyst
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Risen 2: Dark Waters, посвященная пиратским похождениям на многочисленных островах, объединяет в себе популярную классическую RPG-механику оригинальной игры Risen со свежей тематикой. RPG от третьего лица в темной и мрачной вселенной Risen 2: Dark Waters сохраняет характерные особенности первой Risen и предлагает множество вариантов решения каждой задачи, поэтому каждый игрок сможет выбрать путь прохождения по своему вкусу. Каждый вариант выполнения задания позволит открыть новые возможности, пути, способности и дополнительные навыки для персонажа. Богатая интерактивная среда и полноценный цикл смены дня и ночи, влияющий на многочисленные аспекты игрового мира, ? вот что среди прочего позволит создателям обеспечить максимальный эффект присутствия, какой только возможен на сегодняшний день.
-
-Отправляйтесь вместе с вашими товарищами в эпический поход и освободите Архипелаг Арбореи от темного владычества Титанов. Станьте настоящим пиратским капитаном, с непременным попугаем на плече и мартышкой на привязи, ищите древние артефакты, постигайте суть магии Вуду, разите своих противников из мощного огнестрельного оружия и исследуйте полные опасностей непроходимые джунгли и заманчивые берега, где бурлит ночная жизнь и таятся несметные богатства. Жизнь пирата в этом мире придется вам по душе(   Читать дальше...   )Тип издания: RePackРазработчик: Piranha BytesЖанр: RPG / 3D / 3rd PersonЯзык озвучки: Русский / Английский / НемецкийЯзык субтитров: Русский / Английский / НемецкийЯзык интерфейса: Русский / Английский / Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C5DB89B40CCC9D9BF35754251BE7BC823044A1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564964   (400652) от 25.10.2012
-
-Risen 2: Dark Waters [Ru/En] (RePack/1.1.0.0/3 DLC) 2012 | R.G. Revenants
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Risen 2: Dark Waters, посвященная пиратским похождениям на многочисленных островах, объединяет в себе популярную классическую RPG-механику оригинальной игры Risen со свежей тематикой. RPG от третьего лица в темной и мрачной вселенной Risen 2: Dark Waters сохраняет характерные особенности первой Risen и предлагает множество вариантов решения каждой задачи, поэтому каждый игрок сможет выбрать путь прохождения по своему вкусу. Каждый вариант выполнения задания позволит открыть новые возможности, пути, способности и дополнительные навыки для персонажа. Богатая интерактивная среда и полноценный цикл смены дня и ночи, влияющий на многочисленные аспекты игрового мира, ? вот что среди прочего позволит создателям обеспечить максимальный эффект присутствия, какой только возможен на сегодняшний день.
-
- Отправляйтесь вместе с вашими товарищами в эпический поход и освободите Архипелаг Арбореи от темного владычества Титанов. Станьте настоящим пиратским капитаном, с непременным попугаем на плече и мартышкой на привязи, ищите древние артефакты, постигайте суть магии Вуду, разите своих противников из мощного огнестрельного оружия и исследуйте полные опасностей непроходимые джунгли и заманчивые берега, где бурлит ночная жизнь и таятся несметные богатства. Жизнь пирата в этом мире придется вам по душе.(   Читать дальше...   )Тип издания: RePackЖанр: RPG / 3D / 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B347F49CA5C3C1E18319BD6892CE1521D1660DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566970   (398038) от 28.10.2012
-
-Spirit of Excalibur [En] (RePack) 1990 | RG Games/Pilotus
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы играете в роли рыцаря по имени Константин (Constantine) и ваш долг защитить и объединить всю страну, некогда принадлежащую доброму королю Артуру. К сожалению, не все рыцари признают вашу власть, так что вы должны будете рано или поздно доказать им своё превосходство.Тип издания: RePackЖанр: ролевая играЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566990   (397858) от 28.10.2012
-
-Dark Heart of Uukrul [En] (RePack) 1989 | RG games/Pilotus
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основной игровой экран The Dark Heart of Uukrul выполнен в VGA-палитре из 256 цветов и представляет собой несколько информационных панелей и маленькое окошко, сквозь которое игрок смотрит в игровой мир. Бои проходят в виде тактических сражений наподобие Betrayal at Krondor. Управление игрой осуществляется исключительно с клавиатуры, все доступные в любой момент времени команды перечисляются на специальной панели. Звука в игре нет.
-Сюжет игры предельно прост: игрок ведёт группу из четырёх персонажей (воина, паладина, мага и священника – состав группы предопределён) по километрам коридоров, залов и пещер подгорного королевства Eriosthe, уничтожая монстров, собирая артефакты, решая головоломки и пытаясь спасти королевство от тирании злого Uukrul’а. Вот только на самом деле игра оказывается намного интереснее, чем её сюжет.Тип издания: RePackЖанр: Ролевая играЯзык озвучки: -/-Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

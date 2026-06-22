@@ -1,3 +1,232 @@
+###  Публикация: 801714   (534932) от 09.08.2015
+
+ДДТ - Иначе (Live in Essen) (2013) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534932.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2013 году группа ДДТ завершила свой двухлетний тур с программой «Иначе». Отличительной чертой этой программы является концептуальный видеоряд, разработанными молодыми талантливыми художниками в области современного искусства. Весной 2013 года в Германии состоялись сразу два грандиозных концерта легендарной российской рок-группы ДДТ! 8 мая 2013 года на площадке (   Читать дальше...   )Live in Essen Часть 1:
+
+01. Noise №1
+02. Родившимся этой ночью(   Читать дальше...   )Жанр: RockПродолжительность: 02:46:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCBDBBF0C9B92D83D9E53F147F8A9C84F98590A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925981   (534931) от 09.08.2015
+
+Michael Jackson - Moonwalker (1988) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смесь видеозаписей живых концертов Майкла Джексона и ряда художественных сцен с ним, как главным героем. Сюда вошли некоторые из лучших видеоклипов Майкла, отснятых во время мирового турне с альбомом «Bad», а также видео «Smooth Criminal» с сюжетной линией в стиле «фэнтези».Жанр: Фантастика, фэнтези, семейный, мюзиклРежиссер: Джерри Крамер, Джим Блэшфилд, Колин ЧилверсСубтитры: Русские, АнглийскиеПродолжительность: 01:32:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBD0C5B4AD54469BB9DE305F4F54BD6F6171DE62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239711   (534892) от 07.08.2018
+
+Sting - Live At The Olympia Paris (2017) DVD5 [hand made]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия выступления Стинга в легендарном зале Olympia Paris во французской столице, состоявшегося 12-13 апреля 2017г в рамках мирового тура "57th and 9th"01.Synchronicity II
+02.Spirits In The Material World
+03.Englishman in New York
+04.I Can't Stop Thinking About You(   Читать дальше...   )Производство: Eagle Rock EntertainmentЖанр: Rock, PopРежиссер: Alexandre BuissonАктеры: Sting & BandПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A8320EF7C4EC4EC0A33ADB7B4EA56B5844171A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 430426   (534681) от 09.08.2015
+
+Дискотека 80-х - 10 лет вместе! / Авторадио (2012.01.01) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Феерическое шоу для тех, кто хочет зажечь по-взрослому! Новогодняя «Дискотека 80-х» на Первом!
+
+«Дискотека 80-х» стала дискотекой в полном смысле этого слова, где в одном непрерывном музыкальном ряду встали кумиры 80-х: «итальянский соловей» Pupo и его соотечественники Аль Бано и группа Ricchi e Poveri, немецкий коллектив Alphaville, шведская группа Secret Service, (   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 03:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:100FB5DC6002D34FDB5A42A945916B1D97F98C23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365183   (534476) от 24.07.2011
+
+Queen - Greatest Flix I & II LDRip Edition [2011г.; Full Version with Bonus; Good Quality][Rock][LDRip][2xDVD9]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта двухдисковая версия Greatest Flix I & II - является качественным аппаратным LDRip'ом, сделанным при помощиЖанр: МузыкаПеревод: Не требуетсяФормат: 2xDVD9Продолжительность: DVD1 - 1:13:24 + 0:17:34; DVD2 - 1:20:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8629057C37CD770ACD1AE1B46FDAEF05FC44F1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479091   (534343) от 09.08.2012
+
+Без вины виноватые / Театр им. Вахтангова (1994) TVRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спектакль театра им. Вахтангова по одноименной пьесе А.Н.Островского.
+
+Знаменитая актриса Кручинина соглашается гастролировать в городе, с которым у нее связаны тяжелые воспоминания, и находит там сына, оставленного ею в силу обстоятельств много лет назад...
+
+Спектакль поставлен Петром Фоменко в Малом зале, бывшем некогда буфетом театра. Выбор площадки объясняется в самой пьесе. Комик Шмага произносит свою крылатую фразу — «истинное место актера в буфете». Мелодраму Островского об актерах провинциального театра позапрошлого века Фоменко решил как свое признание в любви к Театру, этому средоточию смеха и слез, закулисных интриг и благородных движений души, мелкой подлости и высокой нравственности. Театр здесь показывает то, что знает лучше всего — самое себя. Богатый барин и обожатель актрис дает в пьесе определение актерам — «птицы небесные». Эти самые птицы живут по законам драм, которые играют и зачастую не могут отличить жизнь на сцене от подлинной жизни.Жанр: мелодрама, спектакльРежиссер: Петр ФоменкоПродолжительность: 01:19:41 + 01:29:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86B946C19B2BD65E368E59BD9147C25AE9F9CD0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533082   (534223) от 09.08.2012
+
+The Sex Pistols: There'll Always Be an England - Live from Brixton Academy (2011) [1080i] Blu-Ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534223.jpg" />
+</div>
+
+
+###  Подробнее
+
+• «Sex Pistols» — легендарная британская панк-рок группа. В основу этой программы легли 5 концертов, которые прошли с аншлагом в ноябре 2007 года в Лондонской Brixton Academy. Концерты были приурочены 30-летнему юбилею выхода дебютного альбома группы Sex Pistols «Never Mind the Bollocks».color]1. There'll Always Be An England (intro)
+2. Pretty Vacant
+3. Seventeen
+4. No Feelings
+5. New York
+6. Did You No Wrong
+7. Liar
+8. Beside the Seaside
+9. Holidays in the Sun
+10. Submission(   Читать дальше...   )Жанр: Rock, Рunk-rockРежиссер: Жюльен ТемплФормат: BDMVПродолжительность: 01:10:53 + 00:34:06 + 0:23:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 227502   (534010) от 17.08.2010
+
+Chet Atkins - Certified Guitar Player'87 (2010) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чет Аткинс... Пожалуй композитор, гитарист и поэт №1 в стиле кантри. На данном диске представлен сейшн с музыкантами, которые пришли засвидетельствовать свое почтение и признание Маэстро! Среди пришедших : Mark Knopfler, the Everly Brothers, Emmylou Harris, Waylon Jennings, Willie Nelson, Michael McDonald and a band of Music City' s finest players!Жанр: Country / FolkПеревод: ОригинальныйПродолжительность: 01:18:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311872   (533969) от 03.07.2019
 
 Квартирник НТВ у Маргулиса. Алексей Романов и группа Воскресение (29.06.2019) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +235,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533969.jpg" />
 </div>
 
 
@@ -32,7 +261,7 @@ VA - Летний марафон № 181 / Видеоклипы (Коктейл�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533322.jpg" />
 </div>
 
 
@@ -61,7 +290,7 @@ Europe - Live! At Shepherd's Bush, London (2011) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533314.jpg" />
 </div>
 
 
@@ -90,7 +319,7 @@ Europe - Live at Sweden Rock - 30th Anniversary Show (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533312.jpg" />
 </div>
 
 
@@ -119,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533304.jpg" />
 </div>
 
 
@@ -148,7 +377,7 @@ NikitA - Avocado (2012) MasterRip [H.264/1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533108.jpg" />
 </div>
 
 
@@ -176,7 +405,7 @@ Sak Noel - Where? (I lost my underwear) (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532748.jpg" />
 </div>
 
 
@@ -202,7 +431,7 @@ Eagles - Farewell I Tour: Live From Melbourne (2005) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532722.jpg" />
 </div>
 
 
@@ -228,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532548.jpg" />
 </div>
 
 
@@ -254,7 +483,7 @@ Deep Purple: Phoenix Rising (2011) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532070.jpg" />
 </div>
 
 
@@ -284,7 +513,7 @@ Blackmore's Night - A Knight In York (2012) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531922.jpg" />
 </div>
 
 
@@ -319,7 +548,7 @@ The Doors - The Very Best Of (2007) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531348.jpg" />
 </div>
 
 
@@ -348,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531290.jpg" />
 </div>
 
 
@@ -377,7 +606,7 @@ Elton John - The Million Dollar Piano (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531194.jpg" />
 </div>
 
 
@@ -406,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530775.jpg" />
 </div>
 
 
@@ -433,7 +662,7 @@ Rick Astley. Live in Berlin 27.08.2016 DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530682.jpg" />
 </div>
 
 
@@ -462,7 +691,7 @@ Alice Cooper - Live at Bonnaroo Festival (2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529715.jpg" />
 </div>
 
 
@@ -491,7 +720,7 @@ A MusiCares Tribute to Carole King (2015) BDRip [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529627.jpg" />
 </div>
 
 
@@ -506,234 +735,6 @@ You’ve Got A Friend - Lady Gaga(   Читать дальше...   )Жанр: P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2FF1723BBC845F39A55FB9E897B1C8BB5A3180D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927239   (529517) от 12.08.2015
-
-Голубой огонек 1963года (2005) DVDRip [H.264] [hand made colored]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Праздничные Новогодние "Голубые огоньки" 62-го — 70-го годов (точнее все то, что ценой неимоверных усилий удалось собрать, скомпоновать и все-таки выпустить, используя материалы, чудом сохранившиеся в Государственном Телерадиофонде). На черно-белой пленке возникают знакомые лица — лица известных актеров, музыкантов, телевизионных ведущих. Советские космонавты (   Читать дальше...   )01. Танец снежинок (Женск. танц. группа)
-02. Интермедия "Дед Мороз и Снегурочка" (Л.Миров, М.Новицкий)
-03. Подожди (Л.Клемент)
-04. Кукольный номер "Оркестр" (Студенты Ленингр.кораблестроит. института)(   Читать дальше...   )Производство: СССР/Россия, ГостелерадиофондЖанр: Фильм-концерт, телепередачаАктеры: Артисты советской эстрадыПродолжительность: 01:06:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70D4FB52E0020F68BDACDEB4D542330E8AEA50CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927102   (529508) от 12.08.2015
-
-Alice Cooper - Raise the Dead – Live from Wacken (2014) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт,  дословно названный "Восстание Мертвых", который состоялся на открытой площадке Wacken 3 августа 2013 года.01. Hello Hooray 02:40
-02. House Of Fire 03:30
-03. No More Mr Nice Guy 03:03
-04. Under My Wheels 02:54(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy Metal, Glam Metal, Shock RockПродолжительность: 01:28:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0558FA1E5017ABF5355E0867EDC7BC0FED7D21D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927199   (529450) от 12.08.2015
-
-Алексей Брянцев - Лучшие песни о любви. Видеоальбом (2015) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алексей Брянцев - Лучшие песни о любви. Видеоальбом1. Мне не хватает твоих глаз
-2. Как будто мы с тобой
-3. Спасибо что ты есть
-4. Привет, малыш(   Читать дальше...   )Производство: РоссияЖанр: МузыкаПеревод: ОтсутствуетСубтитры: НетПродолжительность: 01:24:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77D550D0B6EEAD50FFF89212DD272B755A1AD8A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927071   (529395) от 12.08.2015
-
-Eagles - Farewell I Tour - Live From Melbourne (2004/2013) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта феноменально успешная группа Eagles, была как саундтрек к жизни целого поколения, и они все еще находят новые аудитории. Этот концерт включает в себя все лучшие хиты Eagles и был записан 14, 15 и 17 ноября 2004 года в Мельбурне во время их прощального турне.01. The Long Run
-02. New Kid In Town
-03. Wasted Time
-a. Wasted Time(   Читать дальше...   )Производство: Австралия | Warner Music GroupЖанр: RockРежиссер: Carol DoddsПродолжительность: 02:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D8FF3B18952B8BC754545205DD61B36273619ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926939   (529387) от 12.08.2015
-
-Аркадий Кобяков - Сборник видеоклипов (2014) WEBRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Всё позади
-02. Мерцание звёзд
-03. Некуда бежать
-04. Я не забуду(   Читать дальше...   )Производство: РоссияЖанр: Музыка, клипыПеревод: ОтсутствуетПродолжительность: 00:30:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06CBAC3391EA7D4B5538CED796F8AEF514E40B4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051936   (529203) от 13.09.2016
-
-Легенда о любви (1969) DVDRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529203.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основу сюжета положена очень старинная легенда - "возраст" ее исчисляется столетиями. Только на выжженной, изнемогающей от жажды земле могло родиться сказание о Ферхаде, пробившем гору железной палицей, чтобы добыть людям воду, для чего ему пришлось пожертвовать своей любовью к Ширин.
-Премьера балета Ю.Григоровича "Легенда о любви" состоялась (   Читать дальше...   )Жанр: Фильм-балетРежиссер: СССР, ЦТАктеры: Юрий Григорович, Евгений МачеретПеревод: ОтсутствуетПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2127BF8E4CAA67DD67DAF4B00B7C80D96AE0602
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 368596   (528145) от 28.07.2011
-
-Lara Fabian - En Toute Intimite a l'Olympia (2003) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lara Fabian - это уже не просто имя - это знак качества. En toute intimite представляет собой живой альбом, состоящий из ее лучших песен и песен других знаменитых исполнителей.01. Intro Bambina
-02. J'y crois encore
-03. Comme ils disent
-04. Caruso(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A9BD7A24D2012C619E169918775FBD1815D2552
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052401   (528072) от 14.09.2016
-
-Максим Горький - Варвары (1953) DVDRip (2 части) (Малый театр)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Драматический фильм-спектакль по одноименной пьесе М. Горького.
-Спектакль полон событиями и действиями: на наших глазах строятся и распадаются любовные многоугольники, происходят жаркие объяснения в любви и ненависти, случаются ограбление, попытка убийства, разрывы мужей с жёнами и детей с отцами. В сонный провинциальный городок приезжают столичные инженеры, и обыватели (   Читать дальше...   )Производство: СССР, Киностудия им. М. ГорькогоЖанр: Фильм-спектакль, драма, экранизацияРежиссер: Леонид Луков, Константин ЗубовАктеры: Евдокия Турчанинова, Евгений Велихов, Елена Гоголева, Николай Анненков, Ксения Тарасова, Павел Оленев, Константин Зубов, Ирина Ликсо, Николай Шамин, Павла Богатыренко, Владимир Головин (II), Валентина Орлова, Александр Коротков, Аркадий Смирнов, Пётр Старковский (Староверкин), Валентина Темкина, Владимир Савельев (II), Владимир Вилль, Николай Сивов, Геннадий Сергеев, (   Читать дальше...   )Продолжительность: 2 х ~ 01:25:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5581648982D2E84FBAEDFF557BB1DBF9B2150255
 ```
 
 https://mybot314.ru/tekegram_catalog/

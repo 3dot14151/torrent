@@ -1,3 +1,55 @@
+###  Публикация: 1838529   (260851) от 23.11.2025
+
+OlliOlli (2022) [Ru/Multi] (1.0/dlc) License GOG [World Rad Edition]
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260851.jpg" />
+</div>
+
+
+###  Подробнее
+
+OlliOlli World – это новый лихой экшен-платформер на тему скейтбординга с непревзойдённой индивидуальностью. Гоняйте по живому и яркому миру Рэдландии в поисках заветной Гнарваны и загадочных скейтерских богов, попутно знакомясь с колоритными персонажами и выполняя грайнды, эйры и прочие трюки.Тип издания: LicenseРазработчик: Roll7Жанр: Экшны, Спорт, ПлатформерЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D22A75A7E6D466286131B7B6793ABF356C2F61CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502947   (259099) от 28.05.2012
+
+Rampart [En] (RePack) 1992 | RG Games (Pilotus)
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Замок на безлюдном побережье периодически подвергается нападкам агрессоров с моря. Чтобы защититься от вторженцев, он обведён плотной стеной, а в гарнизоне дежурят несколько орудий. Отличившийся оборонитель продолжит отстаивать государеву землю в других краях, а проигравшему отрубят всё, что выше шеи. Казалось бы просто. Но увы, так только кажется. Замок должен обязательно быть обнесён каменным валом, чтобы противостоять дальнейшим вылазкам противника. Поэтому, откуда-то сверху на землю падают шести- и менее угольные блоки, которыми и можно латать дыры в обороне. Но дело тем не ограничивается - на зелёных равнинах неподалёку стоят и другие укреплённые сооружения. Если окружить их стеной, то появится новый плацдарм для размещения орудий.Тип издания: RePackЖанр: АркадаЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 502945   (259097) от 28.05.2012
 
 Fire and Ice [En] (RePack) 1994 | RG Games (Pilotus)
@@ -6,7 +58,7 @@ Fire and Ice [En] (RePack) 1994 | RG Games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259097.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Steg the Slug [En] (RePack) 1993 | RG Games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259074.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Mortal Kombat Trilogy (1996) [En] (3.42) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257928.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Police Stories (2019) [Ru/Multi] (1.4.7/dlc) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256776.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ An Arcade Full of Cats, A Park Full of Cats, A Building Full of Cats 2 (2023-202
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256738.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Troublemaker 2: Beyond Dream (2025) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255901.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Space Dude [En] (RePack) 1994 | RG Games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255719.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ Beyond Contact (2023) [Ru/Multi] (1.0) Scene DOGE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255359.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ Mokoko X (2023) [Ru/Multi] (1.03/dlc) License GOG [18+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254867.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ Archvale (2021) [Ru/Multi] (1.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254828.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Shieldwall (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254794.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ Arto (2023) [En] (1.0.03) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254492.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ City of Beats (2023) [Multi] (20230427) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254486.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ Curse of the Dead Gods (2021) [Ru/Multi] (1.24.4.6b) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254480.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ Smurfs (RePack) [En] 1996 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254055.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ Sonic the Hedgehog 4: Episode 2 [Multi5/-] (RePack) 2012 | R.G. ReCoding
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253580.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ Sonic the Hedgehog 4: Episode 2 (P) [Multi5/-] 2012 | THETA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253522.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ Hunter×Hunter Nen×Impact (2025) [Multi] (1.1.1/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252478.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ Sonic Racing: CrossWorlds (2025) [Ru/Multi] (1.1.2) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252469.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ Unreal [En] (RePack) 1991 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251549.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ Lego Indiana Jones 2: The Adventure Continues / LEGO Indiana Jones 2: Прикл
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_251060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251060.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ BALL x PIT (2025) [Ru/Multi] (build 20625643) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250932.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ Shotgun Cop Man (2025) [Ru/Multi] (20251028_1119) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250889.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ Alien Shooter 2 - The Legend (2020) [Ru/En] (1.3.2) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250600.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ Alien Shooter 2 - Легенда это масштабное продолжен�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA554296A49702D5C8293D00A34BC188EA14FC9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492838   (249160) от 09.05.2012
-
-Boppin [En] (RePack) 1994 | Pilotus
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249160.jpg" />
-</div>
-
-
-###  Подробнее
-
-По-настоящему шедевральный гибрид паззла и аркады и совершенно точно одна из наиболее недооценённых игр этого направления в истории. Сюжет следующий: некая группа «добрых» существ пленила всех известных злодеев из видеоигр, и спасти их теперь могут только забавные существа с треугольными головами.Тип издания: RePackЖанр: ЛогическаяЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493120   (248676) от 07.05.2012
-
-Street Fighter x Tekken [Ru/En] (RePack) 2012 | R.G. Origami
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Персонажи из двух величайших серий файтингов, Street Fighter и Tekken, сойдутся вместе в одной игре. Проект основан на том же принципе, что и Street Fighter IV – трехмерные бойцы двигаются в 2D плоскости. Среди персонажей вы встретите Рью (Street Fighter), Чан-Ли (Street Fighter), Казую Мисима (Tekken), Нину Уильямс (Tekken) и многих других. Все бойцы сохранили свои уникальные характеристики и приемы.Тип издания: RePackЖанр: Arcade (Fighting) / 3DЯзык озвучки: Английский, ЯпонскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29B1435AA311C6AAA0774EBB713D113BCF5DF026
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 885067   (902939) от 23.03.2020
+
+Easy Currency Converter Pro 3.5.9 [Rus/Multi] - Курс и конвертер валют
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс мировых валют (180+), свежие данные, возможность просматривать избранное в автономном режиме, графики и т.д. Не нужно прокручивать бесконечные списки - просто настройте свой персональный список валют, которые Вам необходимо отслеживать.Тип издания: ПираткаРелиз состоялся: 23.03.2020Разработчик: ExtraAndroaryПоддерживаемая ОС: Android. 4.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:164FB099BAD989C6FCF88313154091FD05465C11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492687   (902070) от 30.08.2021
 
 XEFX v2.4.9 [Ru/Multi] - оживить фото и Живые обои и Фото Аниматор (обновляемая)
@@ -6,7 +32,7 @@ XEFX v2.4.9 [Ru/Multi] - оживить фото и Живые обои и Фо�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902070.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Garmin: City Navigator Middle East and North Africa 2017.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898958.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Blackmart 2020.1.7 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898001.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Ancleaner Pro, Android cleaner 3.30 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897167.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ CountThings from Photos v3.23.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897099.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Garmin: City Navigator Thailand 2016.40 (Dual) [En/Th]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895700.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ YouTube Детям 2.07.1 [En]
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893985.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ PortraitPro v15.0 [En] - редактор портретных фотограф�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893117.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Equalizer FX Pro 1.3.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891663.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ LocalAPK 2.0 Repack by Alex Zaguzin [Ru]
 >>Вспомогательное ПО для др. мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888773.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888733.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ TextGrabber Офлайн Распознавание Текста + Перево�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_887245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_887245.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ ESET Mobile Security & Antivirus v6.3.66.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887043.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ Fallout Shelter 1.10 + Mod [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886853.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ Mapcam.info Radar detector v3.83.1107 [Ru/En]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885570.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884263.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884104.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ Adblocker Browser v80.0.2016123424 [Ru/Multi] - Adblock & блокировка �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883766.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883577.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883257.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882248.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ Trigonometry. Unit circle / Тригонометрический круг v3.22 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881708.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880745.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880551.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879088.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A35A226229910E09DF241B5B7E7986D7438F8C07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996792   (879079) от 14.03.2016
-
-Национальная галерея искусств HD v1.3 [Ru/En] - 920 лучших картин из Национальной галереи искусств в Вашингтоне
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение содержит 920 лучших картин из Национальной галереи искусств в Вашингтоне. Здесь вы найдете работы Рембрандта, Рафаэля, Рубенса, Гойя и других именитых мастеров живописи. Наше приложение не просто откроет вам возможность пройти по виртуальным коридорам одного из наиболее уважаемых мировых музеев, но также позволит приобщиться к мировой сокровищнице искусства, (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 08.09.2015Разработчик: Evolution Games LLPПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92B23A41590EB0199D2B1AB9CED5FD4D143E39AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

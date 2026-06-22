@@ -6,7 +6,7 @@ VA - Hit News Vol. 8 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, I
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133875.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Kelly Clarkson - Greatest Hits Chapter One (Deluxe Edition) (2012) [MP3|320 кб
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132044.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Frank Farian - Star-Discothek (1978) LP [MP3|320 Kbps] <Pop, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131833.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Kylie Minogue - Extension (2023) The Extended Mixes [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129911.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ James Morrison - The Awakening (2011) [MP3|320 кб/с]<Soul, Adult Contemporary
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129762.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ VA - M6 Hits 2024 (2023) [MP3|320 Kbps] <Pop, Rock, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127640.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ VA - The Best Of Hit News (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126897.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ TV Girl - French Exit (2014) Digital Album [MP3|320 Kbps] <Hypnotic Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126877.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - The Best Of Hit News Vol.2 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro H
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126587.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ VA - The Best Of Hit News Vol.4 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro H
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126271.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ VA - Bravo Hits 18 (1997) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126264.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ VA - The Best Of Hit News Vol.3 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro H
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126242.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ TV Girl - Death of a Party Girl (2018) Digital Album [MP3|320 Kbps] <Hypnotic Po
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126199.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ VA - Bravo Hits 20 (1997) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125737.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ VA - Bravo Hits 19 (1997) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125727.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Agnetha Faltskog - A+ (2023) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125578.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ VA - 101 70s Hits (2017) 5 CD [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125473.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ VA - 101 80s Hits (2017) 5 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125340.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ VA - 101 Electronic 80s (2017) 5 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125213.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ VA - 101 90s Hits (2017) 5 CD [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125048.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Confetti's - Greatest Hits (2001) [OGG Vorbis|480 Kbps] <Electronic, New Beat, A
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125040.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - 100 Hits Great British Songs (2017) 5 CD [OGG Vorbis|480 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124898.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ VA - 80s Lost & Found (2023) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123961.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ VA - Ronny's Pop Show 25 (1994) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123913.jpg" />
 </div>
 
 
@@ -713,7 +713,7 @@ VA - Disco Balls Miami 2023 (2023) CD, Compilation [MP3|320 Kbps] <Soulful, Deep
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123673.jpg" />
 </div>
 
 
@@ -742,7 +742,7 @@ Michael Cretu - 5 Albums (1979-1992) LP [MP3|320 Kbps] <Electronic, Pop, Disco, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122960.jpg" />
 </div>
 
 

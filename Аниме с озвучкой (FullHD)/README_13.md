@@ -6,7 +6,7 @@ Gabriel Dropout | Габриэль Бросает Школу [2017, TV, 12 ep + 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782989.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Shokugeki no Souma: Ni no Sara | Кулинарные поединки Сомы 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781750.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Shokugeki no Souma: San no Sara | Кулинарные поединки Сомы
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781749.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ New Game! | Новая игра! [TV-1] [2016, TV, 12 ep + OVA] BDRip 1080p 10-b
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780920.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Kono Subarashii Sekai ni Shukufuku wo! Kurenai Densetsu | Этот Замеча�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780917.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Hajimete no Gal | My First Girlfriend Is a Gal | Моя первая гяру [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776260.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Noragami | Noragami Aragoto | Бездомный Бог | Бог-Бродяга 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774875.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Sewayaki Kitsune no Senko-san | Заботливая Лисица Сэнко [20
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772430.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Strike Witches 2 | Штурмовые Ведьмы [ТВ-2] [2010, TV, 12 ep] BD
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772429.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen (2020
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772428.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Yesterday o Utatte | Sing "Yesterday" for Me | Спой мне "Yesterday" [2020
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772427.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ ReLife | Повторная Жизнь [2016, TV, 13 ep + 4 OVA] BDRip 1080p 10-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770275.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Ore no Imouto | Ну не Может Моя Сестрёнка Быть Тако
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770273.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Another | Иная [2012, TV, 12 ep + OVA] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770271.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Tsugu Tsugumomo | Цугумомо [ТВ-2] [2020, TV, 12 из 12 эп.] WEB-DL 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769266.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Tachibanakan to Lie Angle | Любовные Страсти Пансиона Т�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768908.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Carnival Phantasm | Карнавальный Фантазм [2011, TV, 12 ep + 2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768903.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Kore wa Zombie Desuka? Of the Dead | Уж не Зомби ли Это? Сред�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768837.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Sora no Otoshimono Final: Eternal My Master | Утраченное Небеса�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768836.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Sora no Otoshimono: Tokeijikake no Angeloid | Утраченное Небеса�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768835.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Kore wa Zombie desuka? | Уж не Зомби ли Это? [2011-2012, OVA, 3 ep
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768833.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Sora no Otoshimono: Forte | Утраченное Небесами: Сильне�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768832.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Sora no Otoshimono | Утраченное Небесами [TV-1] [2009, TV, 13 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768831.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Mahouka Koukou no Rettousei Movie: Hoshi wo Yobu Shoujo | Непутевый у�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767148.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Suisei no Gargantia | Гаргантия на Зелёной Планете [201
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766649.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Ore no Imouto 2 | Ну не Может Моя Сестрёнка Быть Так
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766647.jpg" />
 </div>
 
 

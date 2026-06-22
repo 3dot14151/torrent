@@ -1,3 +1,61 @@
+###  Публикация: 915335   (590321) от 09.07.2015
+
+VA - Летний марафон № 176 / Видеоклипы (Самые Новые Русские Треки) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летние (04.07.2015) поп. новинки русской эстрады.Не пропустите, держите новые треки.1. 4G - Прости меня, мама (ПРЕМЬЕРА!) (00:03:59)
+2. A.R.M.I.A - Другая (ПРЕМЬЕРА!) (00:03:32)
+3. Emin - На краю (ПРЕМЬЕРА!) (00:03:50)
+4. Karen ТУЗ ft. A-Sen - Закрой Глаза (Official Video) (00:02:41)(   Читать дальше...   )Жанр: PopПродолжительность: 01:27:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B7845CCE47042B635FCAA3D8512C37423316C60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917230   (588575) от 13.07.2015
+
+ВИА ГРА - Избранное (Видеография, лучшие хиты ''2000-2010'') (2015) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшая подборка видео хитов за 2000 - 2010 годы.1. Попытка N5
+2. Обними меня
+3. Бомба
+4. Я не вернусь(   Читать дальше...   )Жанр: PopПродолжительность: 01:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF9FF16D8A9DEF49B9C0C04E3A2C2E4E8724A90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 165835   (588165) от 03.08.2016
 
 France Gall - видеозаписи (1963 - 1984)/ VHSRip
@@ -6,7 +64,7 @@ France Gall - видеозаписи (1963 - 1984)/ VHSRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_588165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_588165.jpg" />
 </div>
 
 
@@ -33,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585895.jpg" />
 </div>
 
 
@@ -59,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580788.jpg" />
 </div>
 
 
@@ -85,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579075.jpg" />
 </div>
 
 
@@ -114,7 +172,7 @@ MEDINA - FOR ALTID (2011) HDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578611.jpg" />
 </div>
 
 
@@ -140,7 +198,7 @@ Beyonce - Best Thing I Never Had (2011) HDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576955.jpg" />
 </div>
 
 
@@ -166,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576949.jpg" />
 </div>
 
 
@@ -192,7 +250,7 @@ Alex Kunnari vs. Delerium feat. Sarah McLachlan - Lost Silence (2012) [H.264/720
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573316.jpg" />
 </div>
 
 
@@ -218,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570750.jpg" />
 </div>
 
 
@@ -244,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567083.jpg" />
 </div>
 
 
@@ -273,7 +331,7 @@ The Eagles - Hotel California (2005) HDTV [MPEG-2/1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564934.jpg" />
 </div>
 
 
@@ -299,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564326.jpg" />
 </div>
 
 
@@ -328,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562894.jpg" />
 </div>
 
 
@@ -357,7 +415,7 @@ Avril Lavigne - Rock N Roll (2013) HDTV [1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560052.jpg" />
 </div>
 
 
@@ -384,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559355.jpg" />
 </div>
 
 
@@ -410,7 +468,7 @@ Chris Isaak - Видеоклипы (Best Of) (2006) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558877.jpg" />
 </div>
 
 
@@ -439,7 +497,7 @@ VA - Летний марафон № 178 / Видеоклипы (Зажигат�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558871.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ Remember the first people (Native American clips) (2015) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558870.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ VA - Летний марафон № 179 / Видеоклипы (Зарубеж�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557234.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ VA - Old Pop songs (1969 - 1997) vol.2 (2013) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550320.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ VA - Vocal Trance Sessions vol.2 (2013) WEBRip [1080p, 720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546670.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546127.jpg" />
 </div>
 
 
@@ -605,6 +663,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365395   (542881) от 20.07.2011
+
+The Eagles - Rocky Mountain Way (Live) (2005) HDTV
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_542881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Актеры: The EaglesПеревод: ОтсутствуетПродолжительность: 00: 05:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:703AB81E1A11B1AFB6C75EBD6ECA551E2A46F618
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924916   (542816) от 05.08.2015
 
 VA - Летний марафон № 180 / Видеоклипы (Новинки Русской Эстрады) (2015) WEBRip [H.264/1080p-LQ]
@@ -613,7 +697,7 @@ VA - Летний марафон № 180 / Видеоклипы (Новинки 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542816.jpg" />
 </div>
 
 
@@ -627,94 +711,6 @@ VA - Летний марафон № 180 / Видеоклипы (Новинки 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4337C3C54F20D79293917D7FAACB6F70F2B1693
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049796   (542024) от 06.09.2016
-
-Herbie Hancock - Future2Future (2002) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wisdom
- 02. Kebero
- 03. This is DJ Disk
- 04. Dolphin Dance(   Читать дальше...   )Жанр: Музыка, Музыкальный, Acid JazzАктеры: Herbie HancockПродолжительность: 01:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CACD2500D60502B3EAB0D405F8ECFCC8949B474D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049785   (542012) от 06.09.2016
-
-Джаз в Париже, ремиксы / Jazz in Paris remixed (2006) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Замечательный андеграундный видеоряд с видами Парижа под не менее замечательную музыку.01. Miles Davis. Ascenseur Pour L’Echafaud (remixed by Nicolas Repac)
- 02. Pierre Michelot. Elephant Green (remixed by Pierre Audetat)
- 03. Raymond Fol. Les 4 Saisons (remixed by Yvinek)
- 04. Chet Baker. Everything Happens To Me (remixed by VV (Gonsales & Renaud Letang)(   Читать дальше...   )Жанр: Музыка, МузыкальныйРежиссер: Antoine CarlierПродолжительность: 00:54:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85D77416F0EBB7A05EC0CE478D64FFB1AED3CE6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154369   (540446) от 30.07.2017
-
-Сборник клипов - Philizz "Back To The 90s" (episode 4) (2017) WEB-DLRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник клипов "Back To The 90s" - фирменный видеомикс от голландского ви-джея Philizz. Очередная - четвёртая часть серии видеомиксов популярных клипов легендарных 90-х. Продолжаем танцевать в стилях  Rock Ballads, Reggae, R&B и Eurodance! Вспоминаем и наслаждаемся приятной и танцевальной музыкой 90-х!
-- Разбивка по трекам отсутствует.N Sync – Tearin’ Up My Heart
-2Pac – Changes
-Puff Daddy - I'll Be Missing You
-House Of Pain – Jump Around(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ED67907AC4752F652373699532F30CD06217C3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

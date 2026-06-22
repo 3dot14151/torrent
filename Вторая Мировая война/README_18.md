@@ -1,55 +1,3 @@
-###  Публикация: 697449   (168198) от 12.12.2020
-
-Блокадный дневник Тани Савичевой (2013) HDTVRip [H.264/1080p]
-
->>След.
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бессмертный подвиг блокадного Ленинграда… Не много найдется в человеческой истории таких глубоко трагических и невероятно тяжких испытаний, подобно тем, которые вынес этот город в годы Великой Отечественной войны. И хотя об этом написаны горы книг, память людей неизменно возвращается к пылающим огнем и болью страницам великой эпопеи.Производство: Россия, Russian Travel GuideЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4736A5F5AAE15A0B4FA2CD9997C73A7F8CA1B2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516280   (166830) от 10.12.2021
-
-Берлин 41-го. Долетали сильнейшие (2017) WEB-DLRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немногим известно, что авиация СССР впервые нанесла авиаудары по Берлину уже через 6 недель после начала Великой Отечественной войны. Фильм рассказывает о героизме советских лётчиков и о цене, которую они заплатили, чтобы в штаб могло прийти сообщение: «Местоположение - Берлин. Задание выполнено».Производство: Россия / ООО "РД Студия"Жанр: Документальный, история, Великая Отечественная войнаРежиссер: Кристина КозловаЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:11:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6040A69A37580DA1AADB152296C337818EC936CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345561   (166394) от 15.12.2019
 
 NG. Суперсооружения Третьего рейха - 7 / Nazi Megastructures - 7 (2019) HDTVRip  (7 сезон: 2-4 серия из 6) (Обновляемая)
@@ -58,7 +6,7 @@ NG. Суперсооружения Третьего рейха - 7 / Nazi Megast
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166394.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ NG. Суперсооружения Третьего рейха / Nazi Megastruct
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166388.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ NG. Суперсооружения Третьего рейха - 7 / Nazi Megast
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166369.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165078.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165019.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164944.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164921.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164909.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157096.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156242.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153041.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150759.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148302.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148272.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147729.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143030.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142969.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142917.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128774.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128719.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126960.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126811.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122069.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120709.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BEE965EA26F99CC8236D96CB63E006FDB410FE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679952   (114192) от 05.03.2024
+
+Тегеранский лабиринт. Сталин, Черчилль, Рузвельт (2003) IPTVRip [H.264] (серии 1-2 из 2)
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Историческая встреча Сталина, Рузвельта и Черчилля - Тегеранская конференция - коренным образом изменила не только дальнейший ход Второй Мировой войны, но и во многом предопределила развитие всей истории ХХ века. Фильм-исследование рассказывает о трудностях и тайных интригах подготовки и проведения Тегеранской конференции. В фильме принимают участие виднейшие историки (   Читать дальше...   )Производство: Россия / ООО «Караван-Арт», Moriland International Inc.Жанр: документальный, история, Вторая мировая войнаРежиссер: Александр ИванкинЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:40:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4E037BFA211CFB61055FC7A2B56AA9F7DDC44C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427204   (111842) от 07.04.2024
+
+Нормандия-Неман. Монолог / Normandia Neman Monolog (2015) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм посвящен истории легендарной советско-французской эскадрильи «Нормандия-Неман». Его цель – не только напомнить о подвигах пилотов авиаполка и отдать дань памяти тем, кто боролся за мир в воздухе, но и рассказать о тесной дружбе представителей двух народов. Из первых рук – от участников событий, их потомков, современных историков.Производство: Россия, Франция, Творческое Объединение КедрЖанр: Документальный, история, ВОВРежиссер: Егор КлимовичУчастники: Кристина Бабушкина, Дмитрий ПевцовЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:133D893DCBF2AE3AE4FD42C14A3C3F122257677B
 ```
 
 https://mybot314.ru/tekegram_catalog/

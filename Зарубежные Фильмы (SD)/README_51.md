@@ -1,3 +1,133 @@
+###  Публикация: 1487858   (1002749) от 08.08.2021
+
+Здесь и сегодня / Here Today (2021) HDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Постепенно впадающий в маразм ветеран комедийной сцены Чарли Бёрнс однажды встречает уличную певицу Эмму Пейдж, которая, несмотря на свою взбалмошность, помогаем ему в борьбе с недугом.Производство: США / Astute Films, Big Head Productions, Big Indie PicturesЖанр: Драма, комедияРежиссер: Билли КристалАктеры: Билли Кристал, Тиффани Хэддиш, Пенн Бэджли, Лаура Бенанти, Луиса Краузе, Чад Дженнингс, Дирдре Фрил, Алекс Брайтман, Мэттью Бруссар, Макс Гордон МурПеревод: Профессиональный многоголосый (iTunes)Язык озвучки: Русский, АнглийскийСубтитры: Русские (forced, full), Украинские (full), Английские (full)Продолжительность: 01:57:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C927E1698BD9890046EB410C087B4BF262BB49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487940   (1002741) от 08.08.2021
+
+Чужой: Завет / Alien: Covenant (2017) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время обследования удаленной планеты, расположенной на другой стороне галактики, экипаж колониального корабля «Завет» обнаруживает, что то, что они изначально приняли за неизведанный рай, на самом деле - тёмный и опасный мир. Его единственный житель - синтетический андроид Дэвид, оставшийся в живых после обреченной экспедиционной миссии «Прометей».Производство: США, Великобритания / Twentieth Century Fox, TSG Entertainment, Scott Free ProductionsЖанр: Ужасы, Фантастика, ТриллерРежиссер: Ридли СкоттАктеры: Майкл Фассбендер, Кэтрин Уотерстон, Билли Крудап, Дэнни Макбрайд, Демиан Бичир, Кармен Эджого, Джусси Смоллетт, Калли Эрнандес, Эми Саймец, Натаниель ДинПеревод: Дублированный (BD CEE)Субтитры: ОтсутствуютПродолжительность: 02:02:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCDE19CE7352A353CBF1802B82C304A0008EFD5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487822   (1002700) от 08.08.2021
+
+Прячься / The Boy Behind the Door (2020) WEB-DLRip [H.264] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда мальчика Бобби и его лучшего друга Кевина похищают и отвозят в изолированный загородный дом, у Бобби получается сбежать. Но чтобы спасти друга, он решает вернуться назад. Теперь Бобби придется узнать тайны этого места и посмотреть своим страхам в глаза. Каждый шорох может стоить жизни. Каждый угол таит новую опасность. Каждый шаг может стать последним.Производство: США, Kinogo Pictures, Whitewater FilmsЖанр: ужасыРежиссер: Давид Шарбонье, Джастин ПауэллАктеры: Лонни Чевис, Эзра Дьюи, Кристин Бауэр, Мика Хауптман, Скотт Майкл Фостер, Рич Кероло, Анна Шаффер, Альфредо ТаваресПеревод: Дублированный (Кипарис) iTunesЯзык озвучки: РусскийСубтитры: русские (полные), английские (полные, SDH)Продолжительность: 01:28:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62548932C6AB50726C9C0144A6E27506EE75A0B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487837   (1002690) от 08.08.2021
+
+Начать с нуля (Изменю всё) / Cambio tutto (2020) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джулия — менеджер по маркетингу в компании, где босс не ценит верных сотрудников. Бойфренд Джулии, Раф — свободный художник, который ничего не делает по дому. Ее бывший, Оттавио, собирается сыграть свадьбу, но продолжает отправлять ей сообщения по ночам. А подруга Ванесса нагло пользуется ее безотказностью. Когда на работе появляется 20-летняя блогерша с миллионом (   Читать дальше...   )Производство: Италия / Colorado Film Production, Medusa Film S.p.a.Жанр: КомедияРежиссер: Гуидо КьезаАктеры: Валентина Лодовини, Нери Маркоре, Либеро Де Риенцо, Дино Аббрешия, Андреа Писани, Николя Ночелла, Флора Канто, Chiara Spoletini, Stefano Skalkotos, Danilo ArenaПеревод: Профессиональный многоголосый (iTunes)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:33:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:565E0A10ECB27F1CD3D44B7B60C88326A70C9B4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351027   (1002618) от 08.01.2020
+
+Не верь никому / Trust No 1 (2019) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002618.jpg" />
+</div>
+
+
+###  Подробнее
+
+31 декабря 1999, канун 2000 года. Мировые системы безопасности находятся на грани полного краха. Правительство Соединенных Штатов вынуждено принять экстренные меры предосторожности и создает резервные копии сверхсекретных файлов на двух дисках... Десять лет спустя полицейский из маленького городка, Даг Брэдли, расследует серию убийств, которые он считает частью кровавой (   Читать дальше...   )Производство: США, DR Productions, Motion ForcesЖанр: БоевикРежиссер: Daron NiemerowАктеры: Дуглас Руйяр, Бриттон Пурвис, Чарльз Джусто, Ryan Rouillard, Michele Gomez, Michael Zammito, Scott D Gold, Брэдфорд Экхарт, Пол Блэк, Eric BolesПеревод: Профессиональный (многоголосый)Субтитры: ОтсутствуютПродолжительность: 01:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6FEFC0C0C0FD031645622C482072A6DC2B090FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488133   (1002541) от 09.08.2021
 
 Ноттинг Хилл / Notting Hill (1999) WEB-DLRip  [H.264]
@@ -6,7 +136,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002541.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002531.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002526.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002488.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002380.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002358.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002355.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002339.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002267.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002216.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002108.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002090.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001941.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001865.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001850.jpg" />
 </div>
 
 
@@ -399,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001845.jpg" />
 </div>
 
 
@@ -425,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001837.jpg" />
 </div>
 
 
@@ -451,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001819.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001714.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001713.jpg" />
 </div>
 
 
@@ -529,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001700.jpg" />
 </div>
 
 
@@ -540,136 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9DCEEA7BB483C9E03245DD66092EE798760DC1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488537   (1001634) от 12.08.2021
-
-Город потерянных детей / La cite des enfants perdus / The City of Lost Children (1995) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мрачный грязный туманный портовый город, где никогда не восходит солнце. Рано повзрослевшая девочка Мьет — вожак банды малолетних грабителей, и верзила-неандерталец по прозвищу One ищут пропавшего Денрé, необыкновенно прожорливого малыша, съедающего курицу за 20 секунд. Он единственный в этом мерзком городе ребенок, не видящий кошмаров, и потому позарез нужен (   Читать дальше...   )Производство: Франция / Studio Canal+, Constellation, Lumière PicturesЖанр: фантастика, драма, приключения, антиутопияРежиссер: Марк Каро, Жан-Пьер ЖёнеАктеры: Рон Перлман, Жюдит Витте, Доминик Пинон, Жан-Клод Дрейфюс, Женевьев Брюнэ, Одиль Мале, Мирей Мосе, Серж МерленПеревод: Многоголосый профессиональныйСубтитры: РусскиеПродолжительность: 01:52:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D2CC89D3EBB6879AD957771D5EE897B654DD1FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351876   (1001578) от 12.01.2020
-
-Травка / Leaves of Grass (2009) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001578.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета братья-близнецы, один из которых — успешный преподаватель философии, а другой — его полная противоположность, лодырь, выращивающий марихуану. Однажды преподаватель оказывается вынужден вернуться в родную Оклахому, к брату, где оказывается втянут в опасную аферу против местного наркобарона…Производство: США / Class 5 Films, Grand Army Entertainment, Langley Films, Leaves Productions, Millennium FilmsЖанр: Триллер, Драма, Комедия, КриминалРежиссер: Тим Блейк НельсонАктеры: Эдвард Нортон, Кери Рассел, Тим Блейк Нельсон, Ричард Дрейфусс, Сьюзен Сарандон, Тай Бурелл, Мелани Лински, Люси ДеВито, Кент Джуд Бернард, Амелия КэмпбеллПеревод: Многоголосый профессиональный, Студия ВелесСубтитры: Русские, английскиеПродолжительность: 01:44:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3201A0F6E4ECE363F3C291285ECF3BFE8E2224D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352019   (1001576) от 12.01.2020
-
-Хорошие мальчики / Good Boys (2019) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001576.jpg" />
-</div>
-
-
-###  Подробнее
-
-История троих друзей-шестиклассников, планирующих посетить крутую вечеринку. Но прежде они должны хорошенько подготовиться, чтобы не ударить в грязь лицом. Так начинается безумное путешествие по долине Сан-Фернандо, в котором надо вернуть наркотики, украсть пиво и починить сломанного дрона — все это нужно сделать, пока родители не вернулись домой.Производство: США / Good Universe, Point Grey Pictures, Universal PicturesЖанр: Комедия, приключенияРежиссер: Джин СтупницкиАктеры: Джейкоб Трамбле, Кит Л. Уильямс, Брэйди Нун, Молли Гордон, Мидори Френсис, Исаак Ванг, Милли Дэвис, Джош Барклай Карас, Уилл Форте, Мариесса ПортелансПеревод: Дублированный (Лицензия DVD R2)Субтитры: русские (forced) - отдельным файломПродолжительность: 01:29:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B5C26CF8E6627C76A2B941D4D254927958E035D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352025   (1001520) от 12.01.2020
-
-Хорошие мальчики / Good Boys (2019) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001520.jpg" />
-</div>
-
-
-###  Подробнее
-
-История троих друзей-шестиклассников, планирующих посетить крутую вечеринку. Но прежде они должны хорошенько подготовиться, чтобы не ударить в грязь лицом. Так начинается безумное путешествие по долине Сан-Фернандо, в котором надо вернуть наркотики, украсть пиво и починить сломанного дрона — все это нужно сделать, пока родители не вернулись домой.Производство: США / Good Universe, Point Grey Pictures, Universal PicturesЖанр: Комедия, приключенияРежиссер: Джин СтупницкиАктеры: Джейкоб Трамбле, Кит Л. Уильямс, Брэйди Нун, Молли Гордон, Мидори Френсис, Исаак Ванг, Милли Дэвис, Джош Барклай Карас, Уилл Форте, Мариесса ПортелансПеревод: Дублированный (Лицензия DVD R2)Субтитры: русские (forced) - отдельным файломПродолжительность: 01:29:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2039816A1A652D0ABC61DA32550CA9F53B922DEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488983   (1001336) от 13.08.2021
-
-Беккет / Beckett (2021) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Находясь на отдыхе в Греции вместе со своей девушкой, американский турист Беккет попадает в автокатастрофу, после чего оказывается в бегах от пытающейся его убить полиции, замешанной в непонятном политическом заговоре. Всё, что ему нужно — добраться до посольства и понять, что случилось с его девушкой, пропавшей после аварии.Производство: Италия, Бразилия, Греция / Faliro House Productions, Frenesy Film Company, MeMo Films, Rai Cinema, RT FeaturesЖанр: боевик, триллер, драма, криминалРежиссер: Фердинандо Чито ФиломариноАктеры: Джон Дэвид Вашингтон, Мария Вотти, Вики Крипс, Алисия Викандер, Бойд Холбрук, Панос Коронис, Йоргос Пирпассопулос, Филлипос Иоаннидес, Лена Кицопулу, Изабелла МаргараПеревод: Дублированный (Невафильм) NetflixЯзык озвучки: РусскийСубтитры: русские (форсированные, полные)Продолжительность: 01:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74AD4B2A5D101ADD3122CCE70B5C2AD730C5CA57
 ```
 
 https://mybot314.ru/tekegram_catalog/

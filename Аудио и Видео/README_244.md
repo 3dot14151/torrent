@@ -1,3 +1,432 @@
+###  Публикация: 1424791   (226243) от 18.11.2020
+
+VA - Urban City Vibes, vol. 6 (Urban Funk, Soul and Lounge Music) (2020) [AAC|~321 Kbps] <Chillout, Lounge, Trip-hop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marco Moli - This Natural Groove (Original Mix) (4:00)
+02. Eivissarts - The Unknown (Original MIx) (5:54)
+03. Lounge Groove Avenue - Downtown Groove (2:32)
+04. Marga Sol - Nightsail (Original Mix) (5:50)(   Читать дальше...   )Жанр: Chillout, Lounge, Trip-hopПродолжительность: 01:14:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE1E367852A74DA1FA7DB6410C7D9366A5D8108B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424794   (226225) от 18.11.2020
+
+VA - Urban City Vibes, vol. 4 (Urban Funk, Soul and Lounge Music) (2020) [AAC|~319 Kbps] <Chillout, Lounge, Trip-hop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Citylife (Original Mix) (4:48)
+02. Chillson, Marc Hartman - Breaking Waves (Original Mix) (3:45)
+03. Chillson, Marc Hartman - Now That You're Gone (Original Mix) (4:30)
+04. Roberto Bronco - Dude (Original Mix) (4:50)(   Читать дальше...   )Жанр: Chillout, Lounge, Trip-hopПродолжительность: 01:09:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B97FE36648E872B2CABA66DA8981BE069BFB083B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268644   (226217) от 11.12.2018
+
+Кодахром / Kodachrome (2017) WEB-DL [1080p] ATV [MVO]
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глава звукозаписывающей компании едет в Канзас, чтобы выполнить посмертную просьбу своего отца — проявить фотографии с плёнки «Кодахром». Просьба не так проста, как кажется: во всём мире осталась только одна лаборатория «Кодак», занимающаяся проявкой, и та со дня на день может закрыться.Производство: Канада, США / 21 Laps Entertainment, Gotham Group, Motion Picture CapitalЖанр: ДрамаРежиссер: Марк РасоАктеры: Элизабет Олсен, Брюс Гринвуд, Эд Харрис, Джейсон Судейкис, Венди Крюсон, Гетин Энтони, Дэннис Хэйсбёрт, Аманда Бругел, Би Сантос, Себастьян ПижоттПеревод: Профессиональный многоголосый (Jaskier)Субтитры: Английские (Full)Продолжительность: 01:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABA577C51F549AAB8302E43F6C0095B558E4672D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513271   (226183) от 28.11.2021
+
+VA - Dark Melodies, Vol. 5 (2021) [AAC|~323 Kbps] <Progressive House, Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carsten Halm - Culture (7:25)
+02. Vomee, Path To Sun - Robert (6:04)
+03. The Kimonos - Ready When You Are (7:09)
+04. Haus On Fire - Leave Me Behind (7:30)(   Читать дальше...   )Жанр: Progressive House, TechnoПродолжительность: 01:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDC6009564346CFC21D2341D4FE22BC2270026A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424797   (226179) от 18.11.2020
+
+VA - Urban City Vibes, vol. 2 (Urban Funk, Soul and Lounge Music) (2019) [AAC|~316 Kbps] <Chillout, Lounge, Trip-hop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Bronco - Breakfast Club Di Milano (Original Mix) (5:29)
+02. Martin Liege - Above Blue Water (Original Mix) (3:44)
+03. Living Room - Feel the Sun (Original Mix) (4:43)
+04. Atmospherical 45 - Au Contraire (Original Mix) (4:49)(   Читать дальше...   )Жанр: Chillout, Lounge, Trip-hopПродолжительность: 01:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D62CC7073724F9D91A72DD2E357948F087A5A1C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513275   (226160) от 28.11.2021
+
+VA - Polyptych Limited: Year One (2021) [AAC|~314 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manu Be - Lockdown (Christian Florio Remix) (9:09)
+02. Zebulon - Shine Again (Extended Mix) (7:33)
+03. Joe di Bianco - Visionary Route (Extended Mix) (7:39)
+04. Ezek - Sixth Sense (Extended Mix) (6:39)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 03:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AC3722BB862FA58BF696559BCE9DB5FF98F64A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424792   (226145) от 18.11.2020
+
+VA - Urban City Vibes, vol. 5 (Urban Funk, Soul and Lounge Music) (2020) [AAC|~323 Kbps] <Chillout, Lounge, Trip-hop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillson, Marc Hartman - Just a Little Bit of Jazz (Original Mix) (4:37)
+02. Roberto Bronco - Dude (Original Mix) (4:50)
+03. Roberto Sol, Chris le Blanc - Good to Me (Extended Mix) (4:31)
+04. Marga Sol - Imagine Me (Original Mix) (3:20)(   Читать дальше...   )Жанр: Chillout, Lounge, Trip-hopПродолжительность: 01:18:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E064E36234319EE4727EC45CFC69AD817BCAB81B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513277   (226143) от 28.11.2021
+
+VA - Summer Collection 2021 (2021) [AAC|~339 Kbps] <Progressive House, Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leandro Caceres - Strange A Case (7:45)
+02. Urmet K, Shawni - Sri Sukta (7:16)
+03. Nosssia - Amoureux (7:16)
+04. Marcan Liav - Aninat In Space (5:37)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 02:31:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D72E283400BF30BD7C128C51DF8D69E205F09B61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513272   (226135) от 28.11.2021
+
+VA - Dark Melodies, Vol. 6 (2021) [AAC|~323 Kbps] <Progressive House, Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airbas - When the Silence Ends (Add-us Remix) (6:59)
+02. Balad - Existential (Instrumental) (6:40)
+03. Clivton - Silence (7:25)
+04. Emmanuella - Kyoto (6:34)(   Читать дальше...   )Жанр: Progressive House, TechnoПродолжительность: 01:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A525FD162D9F780AFEA46C9EC636E3C020EAAC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424800   (226129) от 18.11.2020
+
+VA - Urban City Vibes, vol. 1 (Urban Funk, Soul and Lounge Music) (2018) [AAC|~328 Kbps] <Chillout, Lounge, Trip-hop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Liege - Baby Come On (Original Mix) (3:39)
+02. James Butler - Coastline (Original Mix) (3:16)
+03. Mark Oakland - Live Forever (Original Mix) (3:39)
+04. Roberto Bronco - Boll (Original Mix) (5:33)(   Читать дальше...   )Жанр: Chillout, Lounge, Trip-hopПродолжительность: 01:16:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC9DE5E2A9201F47450B83249C05925FC9E85F0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424774   (226123) от 18.11.2020
+
+Till Brönner, Bob James - On Vacation (2020) [AAC|~324 Kbps] <Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Save Your Love for Me (5:27)
+02. Lemonade (4:51)
+03. Late Night (5:24)
+04. Lavender Fields (5:13)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6C05FA528352473A95BE5AD530010FEF6FB9A71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424795   (226095) от 18.11.2020
+
+VA - Urban City Vibes, vol. 3 (Urban Funk, Soul and Lounge Music) (2019) [AAC|~333 Kbps] <Chillout, Lounge, Trip-hop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Bronco - Monkeys (Original Mix) (4:51)
+02. Martin Liege - Sunrise Drive (Original Mix) (4:09)
+03. Elton Dumont - All Night Long (Original Mix) (3:16)
+04. Ricky Jones - Just Be (Orginal Mix) (4:44)(   Читать дальше...   )Жанр: Chillout, Lounge, Trip-hopПродолжительность: 01:13:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1111A20F73A46D0B5AC66F09BED4A0F0B0E6F88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513193   (226077) от 28.11.2021
+
+VA - We Are 3000Grad (Katzengold DJ Mix 004) (2021) [AAC|~307 Kbps] <Deep House, Tech House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Micronaut - WidelensЖанр: Deep House, Tech HouseПродолжительность: 00:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68DDA004593F5C87306ED830FD7B70D9C16B8F14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513203   (226069) от 28.11.2021
+
+VA - Prognoesis, Vol. 02 (2021) [AAC|~337 Kbps] <Organic House, Progressive House, Melodic House & Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I.R.A.L.I - Star (6:53)
+02. Goda Brother - Return (6:54)
+03. MAAND - Lanus (8:16)
+04. Gonzalo Sacc, Franco Leonardini - Living for Today (8:28)(   Читать дальше...   )Жанр: Organic House, Progressive House, Melodic House & TechnoПродолжительность: 00:59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BACBC42F388AA1B10EF63354AC2133CD72DA3C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424806   (226068) от 18.11.2020
+
+Dabro - Юность (2020) [AAC|~301 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Белая луна (2:48)
+02. Она не такая (3:29)
+03. Все за одного (3:25)
+04. Почему так происходит (3:26)(   Читать дальше...   )Жанр: PopПродолжительность: 00:23:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7746A0F5357E8A3599B19D4254D616F570526642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424775   (226060) от 18.11.2020
 
 Fourplay - Best of Fourplay (2020 Remastered) (2020) [AAC|~360 Kbps] <Jazz>
@@ -6,7 +435,7 @@ Fourplay - Best of Fourplay (2020 Remastered) (2020) [AAC|~360 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226060.jpg" />
 </div>
 
 
@@ -35,7 +464,7 @@ VA - Morttagua - 5 Years, Vol. 1 (2021) [AAC|~306 Kbps] <Progressive House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226051.jpg" />
 </div>
 
 
@@ -64,7 +493,7 @@ VA - Dark Melodies, Vol. 3 (2020) [AAC|~325 Kbps] <Progressive House, Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226028.jpg" />
 </div>
 
 
@@ -93,7 +522,7 @@ VA - Dark Melodies, Vol. 2 (2020) [AAC|~327 Kbps] <Progressive House, Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225991.jpg" />
 </div>
 
 
@@ -122,7 +551,7 @@ VA - Morttagua - 5 Years, Vol. 2 (2021) [AAC|~314 Kbps] <Progressive House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225973.jpg" />
 </div>
 
 
@@ -151,7 +580,7 @@ VA - Prognoesis, Vol. 01 (2021) [AAC|~329 Kbps] <Organic House, Progressive Hous
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225965.jpg" />
 </div>
 
 
@@ -180,7 +609,7 @@ VA - World Of Psychill (2021) [AAC|~307 Kbps] <PsyChill, Psybient>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225957.jpg" />
 </div>
 
 
@@ -209,7 +638,7 @@ VA - Dark Melodies, Vol. 4 (2021) [AAC|~330 Kbps] <Progressive House, Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225950.jpg" />
 </div>
 
 
@@ -238,7 +667,7 @@ VA - Berlin Rooftop Sessions 2k22 (2021) [AAC|~308 Kbps] <Melodic House & Techno
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225944.jpg" />
 </div>
 
 
@@ -267,7 +696,7 @@ Paul Mauriat - Emmanuelle & Fantastic 4 Channel (2020) [AAC|~336 Kbps] <Pop, Jaz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225913.jpg" />
 </div>
 
 
@@ -296,7 +725,7 @@ VA - Rail Tail (2021) [AAC|~337 Kbps] <Psy-Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225912.jpg" />
 </div>
 
 
@@ -310,418 +739,6 @@ VA - Rail Tail (2021) [AAC|~337 Kbps] <Psy-Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1350B841322150D506490E3F83D57040F1A82D5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513262   (225896) от 28.11.2021
-
-VA - Dark Melodies, Vol. 1 (2020) [AAC|~324 Kbps] <Progressive House, Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abstraal - Massalia (Danito & Athina Remix) (7:52)
-02. Bosek - Sentinel (Da Fresh Remix) (7:02)
-03. Dashka - Afterglow (8:52)
-04. Eudi - Nostalgia (Gabriel Moraes Remix) (6:26)(   Читать дальше...   )Жанр: Progressive House, TechnoПродолжительность: 01:51:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BDEADDBA81BA0A31F366EAA993768187A9822B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965115   (225879) от 14.12.2015
-
-Халиль Джебран | Сборник (2012) [m4b|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джебран Халиль Джебран (англ. Khalil или Kahlil Gibran, Gibran Khalil Gibran, 6 января 1883, Бишари - 10 апреля 1931, Нью-Йорк) - ливанский, американский философ, художник, поэт и писатель. Прославившая Джебрана Халиля Джебрана книга - The Prophet (Пророк) (1923), вершина философии поэта. Переведена на более чем 100 языков. Его живопись выставляется во многих столицах (   Читать дальше...   )Автор: Халиль ДжебранЖанр: Роман, проза, эзотерикаФормат: M4BПродолжительность: 09:21:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0310D75D6669F7FDFCB26F406E213074EFD12AC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268572   (225838) от 11.12.2018
-
-Хищник / The Predator (2018) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой, бывший морпех, обнаруживает злобную инопланетную расу на Земле, но никто не верит ему, что эти твари существуют. Его сын-аутист, которого все обижают в школе, становится ключевой фигурой в схватке с Хищниками, поскольку мальчик умеет невероятно быстро учить языки и, судя по всему, сможет понять пришельцев.Производство: США, Канада / Twentieth Century Fox, Davis Entertainment, TSG EntertainmentЖанр: боевик, фантастика, триллер, приключения, ужасыРежиссер: Шейн БлэкАктеры: Бойд Холбрук, Треванте Роудс, Джейкоб Тремблей, Кигэн-Майкл Ки, Оливия Манн, Стерлинг К. Браун, Томас Джейн, Алфи Аллен, Августо Агилера, Джейк БьюзиПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Русские,  АнглийскиеПродолжительность: 01:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA44478B4B0DF7B07F6A8D511D3F657A0C7C90B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268586   (225795) от 11.12.2018
-
-Хищник / The Predator (2018) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой, бывший морпех, обнаруживает злобную инопланетную расу на Земле, но никто не верит ему, что эти твари существуют. Его сын-аутист, которого все обижают в школе, становится ключевой фигурой в схватке с Хищниками, поскольку мальчик умеет невероятно быстро учить языки и, судя по всему, сможет понять пришельцев.Производство: США, Канада / Twentieth Century Fox, Davis Entertainment, TSG EntertainmentЖанр: боевик, фантастика, триллер, приключения, ужасыРежиссер: Шейн БлэкАктеры: Бойд Холбрук, Треванте Роудс, Джейкоб Тремблей, Кигэн-Майкл Ки, Оливия Манн, Стерлинг К. Браун, Томас Джейн, Алфи Аллен, Августо Агилера, Джейк БьюзиПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Русские,  АнглийскиеПродолжительность: 01:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E573B2328A6A69B2A7C3D46B173C601EEF44E60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513281   (225780) от 28.11.2021
-
-VA - The 100, Vol. 1 (2021) [AAC|~330 Kbps] <Progressive House, Deep House, Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madloch, Subnode - Pattern Lock (6:51)
-02. Eric Lune - Milan to Minsk (6:39)
-03. Kastis Torrau, Arnas D - Take Over (7:20)
-04. Daraspa - Patterns (Deepfunk Remix) (8:14)(   Читать дальше...   )Жанр: Progressive House, Deep House, TechnoПродолжительность: 12:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EF8E6E593AFA9408B6276F55286A27A917240EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513255   (225738) от 28.11.2021
-
-Pink Floyd - Chillout (2021) [AAC|~320 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marooned (2011 Remaster) (5:29)
-02. Side 3, Pt. 3: Night Light (1:42)
-03. Signs Of Life (2019 Remix) (4:23)
-04. Side 1, Pt. 1: Things Left Unsaid (4:25)(   Читать дальше...   )Жанр: RockПродолжительность: 00:25:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A3C729DEB4A783E0992A8864F5752086C200998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513258   (225559) от 28.11.2021
-
-Pink Floyd - Night (2021) [AAC|~334 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Side 4, Pt. 4: Louder Than Words (6:33)
-02. Lost For Words (2011 Remaster) (5:15)
-03. On The Turning Away (2019 Remix) (5:42)
-04. A Great Day For Freedom (2011 Remaster) (4:18)(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFF3781188860E9E82B4CA55DD59EB8BE7A3A88A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513200   (225542) от 28.11.2021
-
-Pink Floyd - Home (2021) [AAC|~322 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terminal Frost (2019 Remix) (6:16)
-02. High Hopes (2011 Remaster) (8:31)
-03. The Dogs Of War (2019 Remix) (6:05)
-04. Poles Apart (2011 Remaster) (7:04)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B62FA814470965A87D1A17F05D30602C5E6A450F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513299   (225447) от 28.11.2021
-
-Pink Floyd - Play (2021) [AAC|~332 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Learning To Fly (2019 Remix) (4:53)
-02. What Do You Want From Me (2011 Remaster) (4:21)
-03. Yet Another Movie (2019 Remix) (6:15)
-04. Coming Back To Life (2011 Remaster) (6:19)(   Читать дальше...   )Жанр: RockПродолжительность: 00:29:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C9025D92CC86E603ED044291903FFBA0775ACF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965556   (225442) от 14.12.2015
-
-Выхода нет / No Escape (2015) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семья техасского инженера Джека Двайера прилетает в неназванную азиатскую страну. Главу семейства ожидает работа в солидной инжиниринговой корпорации, новая карьера и заманчивые перспективы. Но переехавшая в поисках лучшей жизни на другой край света американская семья оказывается в огне охватившего страну военного переворота. Как далеко сможет зайти загнанный в угол (   Читать дальше...   )Производство: СШАЖанр: Боевик, триллерРежиссер: Джон Эрик ДаудлАктеры: Оуэн Уилсон, Лэйк Белл, Пирс Броснан, Стерлинг Джеринс, Клер Джир, Thanawut Ketsaro, Чатчаваи Камонсакпитак, Сахайак Бунсанакит, Танапол Чуксрида, Нопханд БуньяйПеревод: Дублированный (IPTV)Субтитры: Русские,  Английские (полные, отключаемые)Продолжительность: 01:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:069D7C029302807A4BDE63D7B73B8FB4B9652892
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268504   (225418) от 11.12.2018
-
-Вечная жизнь Александра Христофорова (2018) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225418.jpg" />
-</div>
-
-
-###  Подробнее
-
-В прошлом Христофоров был звездой театра и кино, теперь он аниматор в курортном городке. Но бывший актер не отчаивается — живет здесь и сейчас. И пусть бывшая жена строит козни, а сын его избегает, Христофоров упорно двигается дальше. После скандального увольнения фортуна делает герою сказочный подарок в виде любимой женщины. Поможет ли судьбоносная встреча изменить (   Читать дальше...   )Производство: Россия / «58,5 ПРОДАКШН»Жанр: КомедияРежиссер: Евгений ШелякинАктеры: Алексей Гуськов, Оксана Фандера, Тимофей Трибунцев, Роман Курцын, Игорь Угольников, Лидия Вележева, Полина Пушкарук, Станислав Любшин, Анастасия Сомова, Александр ГохПеревод: Не требуется (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AF434A226B5EE77F21AC34B5C5EE8080A80AC94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342274   (225184) от 01.12.2019
-
-Следи за дорогой / Adopt a Highway (2019) WEB-DL [1080p] (MVO) ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассел вышел на свободу, отсидев 20 лет в тюрьме. Он пытается приспособиться к жизни, работая в закусочной и проживая в маленькой убогой квартире. Однажды ночью в мусорном баке он находит младенца и решает заботиться о нем.Производство: США / Divide/Conquer, Blumhouse Productions, Under the InfluenceЖанр: ДрамаРежиссер: Логан Маршалл-ГринАктеры: Итэн Хоук, Крис Салливан, Кристофер Хейердал, Илэйн Хендрикс, Энн-Мари Джонсон, Бетти Гэбриел, Мо, Нат Муни, Дон Норвуд, Милона Джексон, Крис Уильямс, Дайан Маршалл-Грин, Джереми Харрис, Хорхе Диас, Лони ЛавПеревод: Любительский двухголосый (Voice Project Studio)
-Присутствует ненормативная лексика!Субтитры: Русские (FOCS), английскиеПродолжительность: 01:21:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA0DC1D42FCC29F0F9DDC2E85D6EE94F5568E2A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342156   (225060) от 01.12.2019
-
-Иные / Freaks (2018) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225060.jpg" />
-</div>
-
-
-###  Подробнее
-
-В уединенном домике одного из районов Лос-Анджелеса живут маленькая девочка и ее заботливый отец. Вполне нормальная семья, если не считать, что девочка одним взглядом может поднять в воздух тяжеленный шкаф, а у отца всегда наготове снятый с предохранителя пистолет. Каждый день, уходя из дома, папа запирает дочь, и категорически запрещает открывать дверь. Ей нельзя (   Читать дальше...   )Производство: Канада, США, Amazing, Bloomgarden Films, My Way EntertainmentЖанр: Фантастика, триллер, драма, детективРежиссер: Зак Липовски, Адам Б. СтейнАктеры: Эмиль Хирш, Брюс Дерн, Грейс Пак, Аманда Крю, Лекси Колкер, Ава Телек, Мишель Харрисон, Мэтти Финочио, Алекс Паунович, АрДжей ФезерстонхоПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40B38C03520CE539FF5609EDA0115EAC97BC5013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268859   (225001) от 12.12.2018
-
-Джимини Глик в Ля-ля-вуде / Jiminy Glick in Lalawood (2004) WEB-DL [1080p] ATV [DVO]
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джимини начал свою карьеру как обозреватель развлекательных мероприятий на телевизионной станции в Бьютте, штат Монтана. Когда он впервые приезжает с женой и детьми на кинофестиваль в Торонто, то полон решимости найти свою славу. Но никто не хочет уделять ему внимание, поскольку никто его не знает. Но все меняется, когда он начинает выдавать себя за звезду жанра (   Читать дальше...   )Производство: Канада, США / Brillstein-Grey Entertainment, Dolshor Productions, Gold Circle Films, La La Wood ProductionsЖанр: Комедия, ДетективРежиссер: Вадим ЖанАктеры: Мартин Шорт, Джен Хукс, Линда Карделлини, Джанин Гарофало, Джон Майкл Хиггинс, Элизабет Перкинс, Ларри Джо Кэмпбелл, Мо Коллинз, ДеРэй Дэвис, Карлос ДжекоттПеревод: Профессиональный двухголосыйСубтитры: Английские (Full, SDH)Продолжительность: 01:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A440B7A95F6429318A4BE0213E2F3EF9C50A8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425075   (224522) от 19.11.2020
-
-VA - Urban Orange Music 1: Downtempo Experience (2020) [AAC|~311 Kbps] <Chillout, Lounge, Trip-hop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eivissarts - Minor Mind (Original Mix) (5:28)
-02. Marga Sol - On the Porch (Original Mix) (5:05)
-03. Roberto Bronco - Come Together (Original Mix) (4:47)
-04. Chillson, Marc Hartman - Like the River Flows (5:00)(   Читать дальше...   )Жанр: Chillout, Lounge, Trip-hopПродолжительность: 01:12:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6D402BA50F46011484EA4CB55C342DF2DAD688D
 ```
 
 https://mybot314.ru/tekegram_catalog/

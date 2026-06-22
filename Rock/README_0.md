@@ -1,3 +1,61 @@
+###  Публикация: 1603191   (1045830) от 08.01.2023
+
+Nightwish - From Wishes To Eternity - Live (2001) [OGG Vorbis|550 Kbps] <Rock, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Kinslayer
+02. She Is My Sin
+03. Deep Silent Complete
+04. The Pharaoh Sails To Orion(   Читать дальше...   )Жанр: Rock, Symphonic MetalПродолжительность: 01:07:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C0AFA5951C808CFC4FCDC39ADC971400A3B2ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603583   (1045651) от 10.01.2023
+
+Deep Purple, The Royal Philharmonic Orchestra Conducted By Malcolm Arnold - Concerto For Group And Orchestra (1969) Remastered, 2002, Harvest, 2 CD [OGG Vorbis|450 Kbps] <Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Malcolm Arnold's 6th Symphony op.95 First Movement- Energico
+02. Malcolm Arnold's 6th Symphony op.95 Second Movement- Lento
+03. Malcolm Arnold's 6th Symphony op.95 Third Movement- Con Fuoco
+04. Deep Purple - Electric Set- Hush(   Читать дальше...   )Жанр: Rock, Symphonic RockПродолжительность: 01:52:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEA20F3980527C40D0D3C93D55D6890796842C2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603954   (1045467) от 12.01.2023
 
 Eric Clapton - Slowhand (1977) Reissue, Remastered, 2004, Polydor [OGG Vorbis|470 Kbps] <Rock, Blues Rock, Classic Rock>
@@ -6,7 +64,7 @@ Eric Clapton - Slowhand (1977) Reissue, Remastered, 2004, Polydor [OGG Vorbis|47
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045467.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Eric Clapton - 461 Ocean Boulevard (1974) Reissue, Remastered, 2004, Polydor [OG
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045420.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Eric Clapton - Pilgrim (1998) Reissue, Remastered, 2014, Audio Fidelity [OGG Vor
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044876.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Eric Clapton - Journeyman (1989) Reissue, Remastered, 2014, Audio Fidelity [OGG 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044861.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Eric Clapton - Time Pieces - The Best Of Eric Clapton (1982) Remastered, 2014, A
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044811.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Billy Preston - The Collection (1988) [MP3|320 Kbps] <Funk, Soul>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044642.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Nightwish - Angels Fall First (1997) [OGG Vorbis|600 Kbps] <Rock, Symphonic Meta
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044621.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Richard Marx, Matt Scannell - Duo (2008) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044564.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Journey - Escape (1981) Reissue, 2000, Columbia [OGG Vorbis|450 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044552.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Dire Straits - Love Over Gold (1982) Reissue, Remastered, 2011, Vertigo [OGG Vor
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044525.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Scorpions - Blackout (1982) Reissue, Remastered, 2014, Audio Fidelity [OGG Vorbi
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044475.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Rainbow - Difficult To Cure (1981) Reissue, 2013, Polydor [OGG Vorbis|450 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044442.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Bonnie Tyler - 3 Original Classics Box Set (1992) [MP3|320 Kbps] <Pop Rock, Soft
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044441.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Rainbow - Ritchie Blackmore's Rainbow (1975) Reissue, 2014, Polydor [OGG Vorbis|
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044305.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Silt - The Hazmat Game (2022) [MP3|320 Kbps] <Gothic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044084.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Silent Hope - Silent Hope (2023) [MP3|320 Kbps] <Gothic Rock, Gothic Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044080.jpg" />
 </div>
 
 
@@ -462,6 +520,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607464   (1044068) от 26.01.2023
+
+Skrizhali - В холодном свете (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1044068.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Быть твоей болью
+2. Истекло навсегда
+3. Супер-герой
+4. Зови когда ты ослабеешь (Гитарная версия)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D917E7437579BA808A50DD4991C2672C727C5BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607633   (1043965) от 27.01.2023
 
 The One - Sunrise (2023) [MP3|320 Kbps] <Progressive Rock>
@@ -470,7 +557,7 @@ The One - Sunrise (2023) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043965.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Eric Clapton - Behind The Sun (1985) Reissue, Remastered, 2014, Audio Fidelity [
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043964.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Overhead - Telepathic Minds (2023) [MP3|320 Kbps] <Progressive Rock, Crossover P
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043963.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Davide Ronfetto - Enlightening Nights, Darkening Days (2023) [MP3|320 Kbps] <Pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043960.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Steve Vai - Vai/Gash (2023) [MP3|320 Kbps] <Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043941.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Green Day - Nimrod (1997) 25th Anniversary Edition, 2023, Reprise Records [MP3|
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043798.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Deep Purple - Live On The BBC (2004) [OGG Vorbis|500 Kbps] <Rock, Classic Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043737.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Deep Purple - Live On The BBC (2004) [OGG Vorbis|500 Kbps] <Rock, Classic Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20E338960D9A54B41CD598E3DB8616934B6408E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607870   (1043715) от 29.01.2023
-
-Pink Floyd - Wish You Were Here (1975) Reissue, Remastered, 2011, EMI [OGG Vorbis|500 Kbps] <Rock, Psychedelic Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine On You Crazy Diamond (parts I - V)
-02. Welcome To The Machine
-03. Have A Cigar
-04. Wish You Were Here(   Читать дальше...   )Жанр: Rock, Psychedelic Rock, Prog RockПродолжительность: 00:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6553899BFB06DEB326EC80FFAF69FAF29D1A935A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607759   (1043697) от 29.01.2023
-
-Pink Floyd - The Dark Side Of The Moon (1973) Reissue, Remastered, 2003, Capitol Records [OGG Vorbis|490 Kbps] <Rock, Psychedelic Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speak To Me
-02. Breathe
-03. On The Run
-04. Time(   Читать дальше...   )Жанр: Rock, Psychedelic Rock, Prog RockПродолжительность: 00:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05D58ABD732CA6E8C98B049485F740BD79ADA0C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608331   (1043552) от 31.01.2023
-
-Rainbow - Long Live Rock ‘n’ Roll (1977) Reissue, Remastered, 2010, Polydor [OGG Vorbis|480 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long Live Rock ‘n’ Roll
-02. Lady Of The Lake
-03. L.A. Connection
-04. Gates Of Babylon(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAD4C4AF7F2E5B0CAD7EDFF62875C87390A4EF9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,172 @@
+###  Публикация: 1112080   (844591) от 07.03.2017
+
+Annihilator - Triple Threat (2017) Blu-ray [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844591.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канадские ветераны трэша ANNIHILATOR выпустили релиз под названием "Triple Threat". Главное место в релизе занимает подборка классических номеров ANNIHILATOR в акустическом исполнении, для записи которой лидер группы, вокалист, авторе песен и гитарист Джефф Уотерс (Jeff Waters), привлек своих штатных музыкантов Аарона Хомму (Aaron Homma, гитара) и Ричарда (   Читать дальше...   )[01]. Sounds Good to Me
+[02]. Bad Child
+[03]. Innnocent Eyes
+[04]. Snake in the Grass(   Читать дальше...   )Производство: Канада, UDR MusicЖанр: Thrash MetalПеревод: ОтсутствуетПродолжительность: 00:59:08 + 00:44:59 + 00:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F95A28CFBFE83F2D8DAB3BFB2BBA0723E8AE1DBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007278   (844380) от 07.03.2017
+
+Стас Намин и Группа ЦВЕТЫ - 40 лет (Полная версия концерта) - Crocus Hall (Live) (2010) HDTVRip [AVC/H.264, 1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группе "Цветы" в 2009 году группе исполнилось 40 лет. Свое сорокалетие кумиры 1970 - 80-х отметили большим концертом 6 марта, 2010 г. в Крокус Сити Холле (Москва) участием знаменитых гостей: Людмилы Гурченко, Оскара Фельцмана, Юрия Шевчука, Константина Никольского, Гарика Сукачева, Николая Носкова. В программе прозвучали знаменитые хиты: "Колыбельная", (   Читать дальше...   )01. Инструментальное вступление.
+02. Я не сдаюсь.
+03. Звёздочка моя ясная.
+04. Есть глаза у цветов.(   Читать дальше...   )Жанр: Концерт, RockПродолжительность: 02:27:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C398F0B95759746426CC48374BE8A6EE601BAAB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378818   (844122) от 26.04.2020
+
+гр. Пелагея - Концерт на платформе МТС Live (2020) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись концерта группы ПЕЛАГЕЯ, который состоялся в прямом эфире, 19 апреля 2020 года на платформе МТС Live.
+Пелагея получила известность как исполнительница народных песен. В её репертуар также входят романсы и авторские сочинения. Кроме того, певица исполняет кавер-версии песен рок-исполнителей.01. 00:00:02 Пташечка
+02. 00:07:09 Когда мы были на войне
+03. 00:17:05 Вишня белоснежная
+04. 00:23:17 Конь(   Читать дальше...   )Жанр: КонцертПродолжительность: 02:18:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6954D47F8A62E8934A4F48700064C3BD396A0D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 308823   (843691) от 14.03.2011
+
+Собор Парижской Богоматери / Notre Dame de Paris (1999) DVDRip [Дубляж]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Мьюзикл, ДрамаРежиссер: Жилль АмадуАктеры: Элен Сегара, Даниэль Лавуа, Брюно Пельтье, Гару, Патрик Фьори, Люк Мервиль, Жюли ЗенаттиЯзык субтитров: РусскиеПродолжительность: 02:12:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B9E47D14FB04699435DA306DE0B3462E812868E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 650350   (843512) от 30.04.2013
+
+Цирк дю Солей: Сказочный мир / Cirque du Soleil: Worlds Away (2012) DVD9
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: США / Cirque du Soleil Burlesco, Cirque du Soleil Burlesco, Strange Weather FilmsЖанр: ФэнтезиРежиссер: Эндрю АдамсонАктеры: Эрика Линц, Игорь Зарипов, Лутс Халбхюбнер, Джон Кларк, Даллас Барнетт, Таня Дрюери, Сара Хуболт, Аскья Мэйбери, Дэмиен Гордон, Зэк БриклэндПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русские, английские, украинскиеПродолжительность: 01:27:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C958B754B8D5D7CEBD4CDDA279C018F2D8777B01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003362   (843315) от 03.04.2016
+
+Борис Гребенщиков и группа Аквариум - Весенний концерт 30 марта, Самара, КРЦ "Звезда" (2015) HDCam [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843315.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче находится запись концерта прошедшего в Самаре, в КРЦ "Звезда", 30 марта 2015 года. Запись была произведена на 2 камеры (с рук и со штатива) и обе вы найдёте в раздаче. Так как запись с первой камеры довольно большая по объёму, то сделан так же и её уменьшенный вариант (для тех, кто сильно ограничен по объёму или имеет слабый компьютер), который (   Читать дальше...   )01-Не было такой и не будет
+02-Огонь на себя
+03-Королевское утро
+04-Стучаться в двери травы(   Читать дальше...   )Жанр: РокПродолжительность: 02:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B22B25837CAEEFE27126A58CDB012E37F6DA2309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003375   (843132) от 03.04.2016
 
 Квартирник у Маргулиса. 23 выпуск. Тайм-Аут (2016) WEBRip
@@ -6,7 +175,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843132.jpg" />
 </div>
 
 
@@ -32,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842940.jpg" />
 </div>
 
 
@@ -62,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842926.jpg" />
 </div>
 
 
@@ -91,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842904.jpg" />
 </div>
 
 
@@ -120,7 +289,7 @@ Annihilator - Triple Threat (2017)  BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842829.jpg" />
 </div>
 
 
@@ -149,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842794.jpg" />
 </div>
 
 
@@ -177,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_842684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_842684.jpg" />
 </div>
 
 
@@ -208,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842672.jpg" />
 </div>
 
 
@@ -235,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842289.jpg" />
 </div>
 
 
@@ -261,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842263.jpg" />
 </div>
 
 
@@ -291,7 +460,7 @@ Supermax - Rhythm Of Live (2010) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842116.jpg" />
 </div>
 
 
@@ -318,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841604.jpg" />
 </div>
 
 
@@ -347,7 +516,7 @@ Silvesterkonzert / New Year's Eve Concert (2015) [H.264/1080i-LQ] <сlassical>
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841597.jpg" />
 </div>
 
 
@@ -377,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841497.jpg" />
 </div>
 
 
@@ -406,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841356.jpg" />
 </div>
 
 
@@ -435,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841252.jpg" />
 </div>
 
 
@@ -464,7 +633,7 @@ Europa Plus TOP 40 март (2017) WEB-DL [1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840860.jpg" />
 </div>
 
 
@@ -494,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840695.jpg" />
 </div>
 
 
@@ -520,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840687.jpg" />
 </div>
 
 
@@ -546,7 +715,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840685.jpg" />
 </div>
 
 
@@ -560,165 +729,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1BFC578AB563C01F17C5B505BD37D83A63D06E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379304   (840684) от 28.04.2020
-
-Григорий Лепс / Онлайн-концерт (2020) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заслуженный артист России, лауреат многочисленных премий и обладатель одного из самых узнаваемых голосов на нашей эстраде, Григорий Лепс выступит с новой концертной программой "Иди и смотри" на платформе онлайн-кинотеатра Okko. Зрители концерта услышат любимые хиты артиста, его премьеры и песни, которые давно не исполнялись на сцене."Самый лучший день", (   Читать дальше...   )Производство: РоссияЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBCE3B008E08127C4E0BBE329DE30599F7B9EB7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 193789   (839910) от 19.04.2010
-
-Дискотека Авария - Лето всегда! (OST ''Любовь в большом городе 2'')  (2010) TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ВидеоклипПродолжительность: 00:04:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499778   (839819) от 07.10.2021
-
-The Pretty Reckless - Only Love Can Save Me Now (2021) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839819.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Pretty Reckless выпустили видеоклип на песню «Only Love Can Save Me Now», совместную с гитаристом Soundgarden Ким Тайилом и барабанщиком Мэттом Кэмероном.Жанр: RockПродолжительность: 0:05:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB4DB4E1DC701E97AB6EB5CFA889897446841AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 193631   (839796) от 19.04.2010
-
-George Michael - Twenty Five (2006) 2xDVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джордж Майкл (George Michael) - один из самых успешных артистов в истории поп-музыки. Впервые он прославился в начале 80-х, в составе дуэта Wham! Группа пользовалась огромным успехом - с 1984 по 1986-й они записали 6 синглов №1 в Англии и 3 - в США. Впрочем, первые же сольные записи Джорджа Майкла затмили успех его прежнего проекта: альбом «Faith» (1987) разошелся (   Читать дальше...   )Жанр: РОРПеревод: ОригинальныйПродолжительность: 3:19:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500058   (839585) от 07.10.2021
-
-AC DC - Through the Mists of Time (2021) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839585.jpg" />
-</div>
-
-
-###  Подробнее
-
-AC/DC устроили экскурсию по своей истории в клипе «Through The Mists Of Time». Видео снято по той же технологии, что и клип «Realize», еще один сингл с прошлогоднего альбома «Power Up». Каждый из участников группы был отснят по отдельности в разных частях мира, а затем с помощью монтажа и специальных эффектов режиссер Наджиб Тарази поместил музыкантов вместе на одну (   Читать дальше...   )Жанр: RockПродолжительность: 0:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85B2D897364F0CBE1CE71F690882F5EBFC947F77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 651412   (839499) от 02.05.2013
-
-Disco Дача. Весенний концерт (2013.05.01) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весна – время, когда заядлые дачники начинают делать первые приготовления для открытия нового сезона. Чтобы хорошо отдохнуть летом, нужно зарядиться правильным настроением уже весной. Открываем дачный сезон на телеканале "Россия"!1. Верка Сердючка - Розовый свитер
-2. Николай Басков - Кто тебе сказал
-3. Ани Лорак - Зажигай сердце
-4. Стас Пьеха - Зелёный омут(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:22:59
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

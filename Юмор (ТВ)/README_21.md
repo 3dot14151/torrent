@@ -1,3 +1,133 @@
+###  Публикация: 934777   (500993) от 06.09.2015
+
+КВН-2015. Премьер лига (2015) HDTVRip (Весь сезон!!!)
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН, знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания: "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри — люди, у которых с чувством юмора все в (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ЮморПродолжительность: Каждая игра х 01:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AB90A2515416F94949480A21C87C90CB31B24D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935213   (500112) от 07.09.2015
+
+КВН-2015. Высшая лига. Голосящий КиВиН-2015  (2015.09.06) WEB-DL  [H.264/720p-LQ]
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН, знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания: "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри — люди, у которых с чувством юмора все в (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ЮморПродолжительность: 02:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95F921EE255872780DB58C436B66B87A38561D3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541976   (499949) от 01.09.2012
+
+Лучшие приколы скрытой камерой / Just For Laughs Gags (2012) WEBRip [H.264] [Part 2]
+
+>>Юмор (ТВ)
+>>Приколы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшая передача жанра. Ничего не понимающие прохожие оказываются в самых нелепых ситуациях, в этом им помогают несколько профессиональных актёров.Происходящее снимается на скрытую камеру.Жанр: Юмор, скрытая камера, розыгрышиПеревод: Не требуетсяПродолжительность: 01:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86D629FE83230055BF7C1CC3A51D8A7553362C67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541978   (499948) от 01.09.2012
+
+Лучшие приколы скрытой камерой / Just For Laughs Gags (2012) WEBRip [H.264] [Part 3]
+
+>>Юмор (ТВ)
+>>Приколы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшая передача жанра. Ничего не понимающие прохожие оказываются в самых нелепых ситуациях, в этом им помогают несколько профессиональных актёров.Происходящее снимается на скрытую камеру.Жанр: Юмор, скрытая камера, розыгрышиПеревод: Не требуетсяПродолжительность: 01:55:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6095B8C10DE1091420A274A306001D91BCF2852
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541974   (499917) от 01.09.2012
+
+Лучшие приколы скрытой камерой / Just For Laughs Gags (2012) WEBRip [H.264] [Part 1]
+
+>>Юмор (ТВ)
+>>Приколы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшая передача жанра. Ничего не понимающие прохожие оказываются в самых нелепых ситуациях, в этом им помогают несколько профессиональных актёров.Происходящее снимается на скрытую камеру.Жанр: Юмор, скрытая камера, розыгрышиПеревод: Не требуетсяПродолжительность: 01:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:618F65EE20331CDB48ECC8DBED12CFAC9B0CD759
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 541981   (499914) от 01.09.2012
 
 Лучшие приколы скрытой камерой / Just For Laughs Gags (2012) WEBRip [H.264] [Part 4]
@@ -6,7 +136,7 @@
 >>Приколы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499914.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Stand Up (2018.08.26) WEB-DLRip [H.264/720p-LQ] (сезон 6, выпуск 2)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491891.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489799.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Stand Up. Сезон 3. Выпуск №1 (2015.09.13) WEB-DL [H.264/720p-LQ]
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489716.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489276.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487733.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483302.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ Stand Up (30.08.2020) WEB-DL [H.264/1080p-LQ] (сезон 8, выпуск 1)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480950.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479811.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ Stand Up (2016.09.25) WEB-DL [H.264/720p-LQ] (сезон 5, выпуск 2)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479184.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ Stand Up (2018.09.02) WEB-DLRip [H.264/720p-LQ] (сезон 6, выпуск 3)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477828.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ Stand Up. Сезон 3. Выпуск №2 (2015.09.20) WEB-DL [H.264/720p-LQ]
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475269.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471406.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ Stand Up (06.09.2020) WEB-DL [H.264/1080p-LQ] (сезон 8, выпуск 2)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466128.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатирики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465869.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ Stand Up (2016.10.02) WEB-DL [H.264/720p-LQ] (сезон 5, выпуск 3)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463784.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ Stand Up (2018.09.09) WEB-DLRip [H.264/720p-LQ] (сезон 6, выпуск 4)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463302.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461870.jpg" />
 </div>
 
 
@@ -476,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461200.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ Stand Up. Сезон 3. Выпуск №3 (2015.09.27) WEB-DL [H.264/720p-LQ]
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459741.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459062.jpg" />
 </div>
 
 
@@ -539,136 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0E2B93E29D9C6B55CE128DAAE7546B7E796EBAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942163   (455595) от 30.09.2015
-
-КВН-2014. Высшая лига (2014) HDTVRip [H.264/720p] [Весь сезон]
-
->>Юмор (ТВ)
->>КВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455595.jpg" />
-</div>
-
-
-###  Подробнее
-
-КВН — телевизионные юмористические игры, в которых команды различных коллективов соревнуются в юмористических ответах на заданные вопросы, импровизациях на заданные темы, разыгрывании заранее заготовленных сцен и т. д.Телекомпания: Первый каналЖанр: Тв-шоу, юморПродолжительность: Каждая игра х 01:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F18D8C9B4994655B031F78214AF1A23CC66EDDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321844   (454451) от 26.08.2019
-
-КВН. Премьер лига. Первая 1/2 финала (25.08.2019) WEB-DL [H.264/1080p-LQ]
-
->>Юмор (ТВ)
->>КВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое КВН - знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания - "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри - люди, у которых с чувством юмора все (   Читать дальше...   )Телекомпания: Первый каналЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:11:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3968FB3B46D058788327DA185C118E0C845C753
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163056   (454424) от 03.09.2017
-
-Дежурный по стране. Михаил Жванецкий (2017.09.03) SATRip
-
->>Юмор (ТВ)
->>Сатирики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один раз в месяц на ТВ выходит телепередача, в которой М.М. Жванецкий, отвечая на вопросы ведущего, комментирует события произошедшие в стране за истекший месяц, отвечает на вопросы зрителей и читает что-нибудь новое.Телекомпания: РоссияЖанр: Ток-шоу, аналитический, ироническийРежиссер: Андрей МаксимовСубтитры: ОтсутствуютПродолжительность: ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D304CBC34F25B45EEEB1E12EF3F3026436159608
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408821   (451294) от 14.09.2020
-
-Stand Up (13.09.2020) WEB-DL [H.264/1080p-LQ] (сезон 8, выпуск 3)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stand Up - это взгляд на наши жизненные повседневные ситуации. Это история, которую рассказывает человек на сцене, - обычно очень откровенную. Это правда жизни. Это что-то современное, что-то новое. Это что-то невообразимо оригинальное, яркое, интересное и обязательно смешное. Встречайте...Телекомпания: ТНТЖанр: ЮморАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр Шаляпин и др.Субтитры: ОтсутствуютПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68F1545F6EE5C5369A311000894BD07B0693E4E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408819   (450962) от 14.09.2020
-
-Однажды в России (13.09.2020) WEB-DL [H.264/1080p-LQ]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Телекомпания: ТНТЖанр: Юмористическое тв-шоуАктеры: Азамат Мусагалиев, Екатерина Моргунова, Тимур Тания, Ольга Картункова, Александр Пташенчук, Максим Киселёв, Денис Дорохов, Заур Байцаев, Давид Цаллаев, Яна Кошкина и др.Субтитры: ОтсутствуютПродолжительность: 00:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D7852E46638DD5AC7CABA4C59D157688E146DD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

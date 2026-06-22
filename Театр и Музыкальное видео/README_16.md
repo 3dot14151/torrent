@@ -1,3 +1,172 @@
+###  Публикация: 1357933   (969634) от 07.02.2020
+
+Babooshka (Александр Константинов) - 7 Music Videos (2019-2020) [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969634.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Babooshka 2018 Материнский капитал
+002 Babooshka 2019 Детей надо чикать!
+003 Babooshka 2019 Надо больше церквей!
+004 Babooshka 2019 Отмороженные во Христе(   Читать дальше...   )Производство: GARDEGROB studioЖанр: православное дискоПродолжительность: 00:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D10FE7B6CC230E368A7E5F89DDAD3D77097C0C6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357808   (969633) от 07.02.2020
+
+Мы не оставим города свои! Песни донбасской войны - Video Release (42 Music Videos) (2017) WEB-DL [H.264/480p/720p/1080p]-LQ
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969633.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1-Video Release (21 Music Videos) 01:20:37
+
+01 Александр Ф. Скляр - Миллионы (Когда война на пороге)
+02 Зверобой - Едут-едут БТРы(   Читать дальше...   )Жанр: Alternative Rock, Hip-HopАктеры: VariousПродолжительность: 02:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDBC14981F32EC491D4D1CCA5D30E5CDBD5D2E7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976224   (969603) от 17.01.2016
+
+Квартирник у Маргулиса. 9 выпуск. Найк Борзов (2016) WEBRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня в гостях у Евгения Маргулиса певец и автор песен Найк Борзов. В теплой и душевной атмосфере гость квартирника исполнит свои самые известные и полюбившиеся песни: Верхом на звезде, Ева, Приснится мне, что я тебя, Три слова, Лошадка и многие другие. Дата эфира: 16.01.201601. Верхом на звезде
+02. Ты говоришь
+03. Ева
+04. Приснится мне(   Читать дальше...   )Производство: ЧеЖанр: КонцертПродолжительность: 0:46:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5BCE2B02036D9E6860486CFF76C11BDEF8843AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358393   (969394) от 07.02.2020
+
+Сборник клипов - Rock & Pop Ballads от ALEXnROCK часть 1 (2020) WEBRip [H.264/1080p-LQ] [upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Именно с этого сборника клипов всё и началось 9 лет назад. Я собирал его для девушки, которую очень любил и вложил в него всю свою душу. Каждый кто любил по настоящему найдет в нем частицу себя. Со временем доработал обложку, улучшил качество клипов и немного поправил треклист, но энергетика и посыл остались те же. Это 1я часть.00. Rock & Pop Ballads 1 — Intro
+01. Bryan Adams — Please Forgive Me
+02. Mr. Big — Wild World
+03. Рондо — Я буду помнить(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 05:26:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6971B75E0D794500BEDAC21423048A47012E770
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 618406   (969258) от 14.02.2013
+
+Сборник видеоклипов / Clips DISCO (Hits 1970-1996) TVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник музыкальных клипов составлен из файлов полученных в разных источниках.
+Сборник видеоклипов разных лет в хорошем качестве.Жанр: DiscoПродолжительность: ~04:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28A1B14687DF88C8002A08C0B0239D8339622C39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 618341   (969256) от 14.02.2013
+
+Легенды Ретро FM (2012) DVD9 [Полная версия]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: МузыкаРежиссер: Актеры: Александр Айвазов, Baccara,Лев Лещенко,C.C. Catch, Al Bano Carrisi,Мираж, Gianni Morandi,Юрий Антонов, Анжелика Варум,Secret Service,Юрий Лоза,Corona, Крис Кельми,Afric Simone.Перевод: ОтсутствуетПродолжительность: 03:15:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 745251   (968949) от 13.01.2014
 
 Metallica: Сквозь невозможное / Metallica Through the Never (2013) BDRip [720p]
@@ -6,7 +175,7 @@ Metallica: Сквозь невозможное / Metallica Through the Never (20
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968949.jpg" />
 </div>
 
 
@@ -35,7 +204,7 @@ Metallica: Сквозь невозможное / Metallica Through the Never (20
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968895.jpg" />
 </div>
 
 
@@ -64,7 +233,7 @@ Tom Boxer & Morena - Las Vegus (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968794.jpg" />
 </div>
 
 
@@ -90,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968699.jpg" />
 </div>
 
 
@@ -116,7 +285,7 @@ N'Klabe ft. Yomo - Me Gustas Muchisimo (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968675.jpg" />
 </div>
 
 
@@ -142,7 +311,7 @@ Depeche Mode – The Best Of Videos (Volume 1) (2007) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968530.jpg" />
 </div>
 
 
@@ -171,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968241.jpg" />
 </div>
 
 
@@ -201,7 +370,7 @@ Jacques Loussier Trio - Play Bach... and more (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967783.jpg" />
 </div>
 
 
@@ -232,7 +401,7 @@ Paramore -  Now (2013) [1080p] HDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967734.jpg" />
 </div>
 
 
@@ -258,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967688.jpg" />
 </div>
 
 
@@ -284,7 +453,7 @@ Depeche Mode – The Best Of Videos (Volume 1) (2007) DVDRip (MPEG-2, PCM)
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967665.jpg" />
 </div>
 
 
@@ -313,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967560.jpg" />
 </div>
 
 
@@ -339,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967522.jpg" />
 </div>
 
 
@@ -369,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967348.jpg" />
 </div>
 
 
@@ -395,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967200.jpg" />
 </div>
 
 
@@ -421,7 +590,7 @@ Roger Taylor - The Lot (2013) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967150.jpg" />
 </div>
 
 
@@ -451,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967117.jpg" />
 </div>
 
 
@@ -478,7 +647,7 @@ Dj Vj Magrao - Festa Mix Volume 1 (2013) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966183.jpg" />
 </div>
 
 
@@ -504,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966128.jpg" />
 </div>
 
 
@@ -533,7 +702,7 @@ VA - Зимний марафон № 220: Зимний Снегопад Хито
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965412.jpg" />
 </div>
 
 
@@ -547,177 +716,6 @@ VA - Зимний марафон № 220: Зимний Снегопад Хито
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1655826636DC41B1D153115735325D22B451B364
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977762   (965409) от 21.01.2016
-
-Квартирник у Маргулиса. 10 выпуск. Варвара Визбор (2016) WEBRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Варвара Визбор — внучка известного советского барда Юрия Визбора. Талантливая девушка пробовала пройти «слепые» прослушивания шоу «Голос», но, несмотря на проникновенное исполнение, ни один из наставников к ней не повернулся. Зато Варвара обрела самое дорогое — зрительскую любовь. В теплой и душевной атмосфере Варвара Визбор исполнит песни, полюбившиеся слушателям. (   Читать дальше...   )01. Рассказ женщины
-02. Зима
-03. Осень
-04. Радуга(   Читать дальше...   )Производство: ЧеЖанр: КонцертПродолжительность: 0:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5D7A4C332DD59C2F78E6FB25F11329588151C36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359160   (964996) от 11.02.2020
-
-Новогодний концерт Венского филармонического оркестра / Neujahrskonzert der Wiener Philharmoniker (2020) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новогодний концерт в Вене (нем. Das Neujahrskonzert der Wiener Philharmoniker) — традиционный ежегодный концерт Венского филармонического оркестра 1 января в столице Австрии. Концерты, которые Венский филармонический оркестр дает ежегодно, по праву считаются одним из крупнейших мировых музыкальных событий года. К этому концерту знаменитый симфонический оркестр долго (   Читать дальше...   )Carl Michael Ziehrer
-Overture to "Die Landstreicher (The Vagabonds)"
-Josef Strauss
-Liebesgrüße (Greetings of Love) Waltz, op. 56(   Читать дальше...   )Производство: Австрия/Sony Classical, ORFOЖанр: Музыкальный концерт, классическая музыкаРежиссер: Хеннинг КастенПеревод: Не требуется (нет диалогов и озвученных комментариев)Продолжительность: 01:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D87E2E5ADF82B96DE958966EA5BB86688E087AAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359222   (964934) от 11.02.2020
-
-Сборник клипов 01 (02.2020) WEB-DLRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник зарубежных и отечественных видеоклипов за февраль 202001_Francesca Lombardo - Call Me Wrong
-02_Боронина - Малолетка
-03_Milk Sugar, Münchner Symphoniker, Euphonica - Right Here, Right Now
-04_МАЧЕТЕ - Никуда не смыться(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 02:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F264249F1B1E5C1F4405E7307086D3098D60C23F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 746255   (964828) от 17.01.2014
-
-Gregorian - Epic Chants Tour 2013 (2013) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964828.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Gregorian" проект знаменитого продюсера Франка Петерсона, среди подопечных которого Сара Брайтман, Офра Хаза, "Enigma". Название отражает суть, вернее, ее часть: в манере григорианского песнопения звучат отнюдь не молитвы, а знаменитые на весь мир поп и рок хиты! В раздаче находится бонусный DVD, вышедший в специализированном издании в Германии (   Читать дальше...   )01. Chariots Of Fire
-02. Conquest Of Paradise
-03. The Sound Of Silence
-04. The Rose(   Читать дальше...   )Производство: Nemo StudiosЖанр: New Age, Pop, Neo-Medieval, Symphonic Rock, Classical CrossoverСубтитры: НетПродолжительность: 01:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84DEAA392C173C2CD730B7CE5D8A80F2A67CD7E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 619111   (964048) от 19.02.2013
-
-BAZUKA - Make Your Move (2013) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance, HouseПродолжительность: 00:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3E9C1F354FF00B031A155202E6931A3C14D141E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359616   (964011) от 12.02.2020
-
-Сборник клипов - Rock & Metal Video Collection от ALEXnROCK часть 4 (2020) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вся сила энергия и мощь понастоящему крутой музыки! Это 4я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами энергия музыки!. Все лучшее для вас. ALEXnROCK00. Rock & Metal 4 — Intro
-01. Def Leppard — Let’s Get Rocked
-02. Offspring — Gotta Get Away
-03. Lee Aaron — Some Girls Do(   Читать дальше...   )Жанр: RockПродолжительность: 02:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9DA6B0B7BE3848C150851034293B197E4FB36BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

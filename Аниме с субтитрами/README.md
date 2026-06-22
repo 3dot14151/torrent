@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1876831   (1073597) от 17.06.2026
+
+Shounan Jun'ai-gumi! | Young GTO | Крутой учитель Онидзука: Ранние годы [1994, OVA, 5 из 5] VHSRip 480p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эйкити Онидзука, в возрасте 22 лет ставший учителем в старшей школе, далеко не всегда мечтал о педагогической карьере, а его лучший друг Рюдзи Дамма – о собственном автосервисе. Когда они еще учились в школе, мысли о будущем редко посещали головы юных хулиганов, сколотивших собственную банду. Волновали их только красивые девушки, недостаток которых особенно сильно (   Читать дальше...   )Производство: J.C. Staff, Life Work / ライフワークЖанр: приключения, комедияРежиссер: Аканэ КадзукиПеревод: Petechet-Sub-Club, TermЯзык озвучки: японскийСубтитры: русскиеПродолжительность: 5 эп. по 50 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC5D3114CC4CD6D5A418F4366C2FDCB6CDC47679
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874837   (1072147) от 
 
 Ogami Matsugorou | Огами Мацугоро [1989, OVA, 1 из 1] LDRip 480p 10-bit raw
@@ -7,7 +33,7 @@ Ogami Matsugorou | Огами Мацугоро [1989, OVA, 1 из 1] LDRip 480p 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072147.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Choujikuu Romanesque Samy: Missing 99 | Superdimensional Romanesque Samy: Missin
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072144.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Super no Ura de Yani Suu Futari | Smoking Behind the Supermarket with You | Ис
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072108.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ All You Need Is Kill | Всё, что тебе нужно, это убивать
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072090.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Zatsu Tabi: That's Journey / Это путешествие [2025, TV, 12] BDrip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071411.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Gatchaman Crowds / Гатчамэн Толпы [2013, TV, 12+SP] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071069.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Gatchaman Crowds Insight / Гатчамэн Толпы 2 [2015, TV, 13] BDrip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071068.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Silent Witch: Chinmoku no Majo no Kakushigoto / Secrets of the Silent Witch / М
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070371.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Ruri no Houseki / Ruri Rocks / Рури любит камни [2025, TV, 13] BDr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069906.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Mahou no Shimai Lulutto Lily / Magical Sisters Lulutto Lilly / Волшебны�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069533.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Iya na Kao Sarenagara Opantsu Misete Moraitai Returns | Изобрази отв�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069103.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Kowloon Generic Romance | Обычный роман в Цзюлуне [2025, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068640.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Higeki no Genkyou to Naru Saikyou Gedou Last Boss Joou wa Tami no Tame ni Tsukus
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068530.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Babylon | Вавилон [2019, TV, 12 эп.] BDRip 1080p HEVC 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068481.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Nemure Omoigo, Sora no Shitone ni | Сладко спи, моё дитя, в н�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068426.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ Hateshi Naki Scarlet | Scarlet | Скарлет [2025, Movie] WebRip 1080p raw+e
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068366.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Class no Daikirai na Joshi to Kekkon suru Koto ni Natta | Я женился на
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068233.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ Marika-chan no Koukando wa Bukkowarete Iru | Симпатия Марики [2026
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068133.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ Boku no Hero Academia: More | My Hero Academia: More | Моя геройская
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067689.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ Arve Rezzle: Kikaijikake no Yousei-tachi | Арве Реззл: Механиче
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067395.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Snowball Earth | Земля-снежок [2026, TV, 3 из 13 эп.] WEBRip 720p
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067329.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ Kamiina Botan, Yoeru Sugata wa Yuri no Hana | Botan Kamiina Fully Blossoms When 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066903.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ Ichijouma Mankitsu Gurashi! / Жизнь в манга-кафе [2026, TV, 2 и�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066589.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ Akane-banashi / Сказание об Аканэ [2026, TV, 3 из ?] WEBRip 720
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066587.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ Yowayowa Sensei | Yowayowa Teacher | Учитель Ёваёва [2026, TV, 2 и
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066210.jpg" />
 </div>
 
 
@@ -653,33 +679,6 @@ Yowayowa Sensei | Yowayowa Teacher | Учитель Ёваёва [2026, TV, 2 и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E8BE17656FAEE0F7635D5521F0C76A213703C8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866550   (1066077) от 20.04.2026
-
-Yowayowa Sensei / Yowayowa Teacher / Учитель Ёваёва [2026, TV, 2 из 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066077.jpg" />
-</div>
-
-
-###  Подробнее
-
-С началом нового семестра второкурсник Абикура обнаруживает, что его классным руководителем стала ни кто иная, как Хиёри Хивамура, известная под прозвищем «Страшная-страшная сенсей» — женщина, о которой ходят слухи, что она проклинает всех, кто переходит ей дорогу.
-Но однажды после уроков Абикура случайно становится свидетелем совершенно неожиданной стороны характера (   Читать дальше...   )Жанр: комедия, романтика, этти.Режиссер: Исиодори ХиросиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56E0D4C17EE37732B9077A45AE9FCE3B7687CD98
 ```
 
 https://mybot314.ru/tekegram_catalog/

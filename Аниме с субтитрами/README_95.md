@@ -1,3 +1,30 @@
+###  Публикация: 135560   (228067) от 29.11.2019
+
+One Piece TV Special: Umi no Heso Daiboken hen / One Piece Special: Adventure in the Ocean's Navel / Ван-Пис - спецвыпуск #1 [2000] DVDrip raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228067.jpg" />
+</div>
+
+
+###  Подробнее
+
+ТВ-спэшл транслировался между 52-м и 53-м эпизодами основного ТВ-сериала.
+Смотреть желательно после 53го эпизода ТВ сериалаЖанр: приключения, комедия, фэнтези, сёнэнРежиссер: Маюми ТанакаПродолжительность: 50 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFAAC04BCC6B2F673157C6AFF2D1F6FEB0018DA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 135607   (228056) от 29.11.2019
 
 One Piece Jidaigeki Special: Luffy Oyabun Torimonocho / One Piece: The Detective Memoirs of Boss Straw Hat Luffy / Ван-Пис - спецвыпуск #4 [2005] DVDrip raw
@@ -6,7 +33,7 @@ One Piece Jidaigeki Special: Luffy Oyabun Torimonocho / One Piece: The Detective
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228056.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ One Piece: Taose! Kaizoku Ganzack / One Piece: Defeat the Pirate Ganzack! / Ва
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228033.jpg" />
 </div>
 
 
@@ -62,7 +89,7 @@ One Piece TV Special 2:Oounabara ni hirake! Dekkai Dekkai Chichi no Yume / One P
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228008.jpg" />
 </div>
 
 
@@ -89,7 +116,7 @@ Muteking the Dancing Hero | Герой-танцор Мутэкинг [2021, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227935.jpg" />
 </div>
 
 
@@ -115,7 +142,7 @@ One Piece: Strong World / Ван Пис: Фильм десятый [2009] BDrip 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227900.jpg" />
 </div>
 
 
@@ -142,7 +169,7 @@ One Piece: Romance Dawn Story / Ван Пис: Рассвет романтиче
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227870.jpg" />
 </div>
 
 
@@ -170,7 +197,7 @@ Deji Meets Girl | Девушка встречает дэдзи [2021, TV, 12 э�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227653.jpg" />
 </div>
 
 
@@ -196,7 +223,7 @@ Lupin Sansei vs. Meitantei Conan The Movie | Lupin III vs. Detective Conan The M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227286.jpg" />
 </div>
 
 
@@ -222,7 +249,7 @@ Aharen-san wa Hakarenai | Непостижимая Ахарэн [2022, TV, 12 э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226525.jpg" />
 </div>
 
 
@@ -248,7 +275,7 @@ Slap Up Party: Arad Senki | Крутая компания: Арадские пр
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225374.jpg" />
 </div>
 
 
@@ -274,7 +301,7 @@ Nanatsu no Taizai Movie 2 Hikari ni Norowareshi Mono-tachi | The Seven Deadly Si
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225262.jpg" />
 </div>
 
 
@@ -300,7 +327,7 @@ Shakugan no Shana II / Жгучий взор Шаны [ТВ-2] [2007, TV, 24] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224781.jpg" />
 </div>
 
 
@@ -326,7 +353,7 @@ Shakugan no Shana III Final / Жгучий взор Шаны III Финал [TV3
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224639.jpg" />
 </div>
 
 
@@ -352,7 +379,7 @@ Shakugan no Shana Special: Love and Outdoor Hot Spring Tutorial! / Жгучий 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224590.jpg" />
 </div>
 
 
@@ -379,7 +406,7 @@ Shin Ikkitousen | Истинная сила тысячи [2022, TV, 3 эп.] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224390.jpg" />
 </div>
 
 
@@ -405,7 +432,7 @@ Guin Saga / Сага о Гуине [2009, TV, 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223969.jpg" />
 </div>
 
 
@@ -431,7 +458,7 @@ Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer: Mugen Train Arc | Истре�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223101.jpg" />
 </div>
 
 
@@ -457,7 +484,7 @@ One Punch Man: Road to Hero / Ванпанчмен: Путь к становле
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221622.jpg" />
 </div>
 
 
@@ -484,7 +511,7 @@ Sounan Desuka? | Are You Lost? | Бедствие ли это? [2019, TV, 12 э�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221295.jpg" />
 </div>
 
 
@@ -510,7 +537,7 @@ Tiger & Bunny 2 | Тигр и Кролик 2 [2022, Web, 25 эп.] WEBRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221232.jpg" />
 </div>
 
 
@@ -536,7 +563,7 @@ Hajimari no Boukensha-tachi: Legend of Crystania | Legend of Crystania: The Moti
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221217.jpg" />
 </div>
 
 
@@ -562,7 +589,7 @@ Levius | Левиус [2019, ONA, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221143.jpg" />
 </div>
 
 
@@ -590,7 +617,7 @@ Hakumei to Mikochi | Хакумэй и Микоти [2018, TV, 12 эп. + OVA] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220902.jpg" />
 </div>
 
 
@@ -616,7 +643,7 @@ Maou-sama, Retry! | Demon Lord, Retry! | Король демонов, попыт
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_220782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_220782.jpg" />
 </div>
 
 
@@ -643,7 +670,7 @@ Seishun Buta Yarou wa Yumemiru Shoujo no Yume o Minai | Эта глупая св
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219616.jpg" />
 </div>
 
 
@@ -654,32 +681,6 @@ Seishun Buta Yarou wa Yumemiru Shoujo no Yume o Minai | Эта глупая св
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83DE300E94D2C5746D3C3E8C9AA6999118E1B4C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425912   (218656) от 22.11.2020
-
-Mahou Shoujo Ore | Magical Girl Ore | Как я стала мальчиком-волшебницей [2018, TV, 12] BDRip 1080 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218656.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Любовь делает девушек сильнее». Эту популярную фразу можно услышать где угодно, но именно она становится девизом девочек-волшебниц. Саки Уно усердно трудится в айдол-юните «Волшебные близняшки» вместе с Сакуё Микагэ, чьим братом, Мохиро Микагэ, она восхищается во всех смыслах. Брат этот, между прочим, является частью айдол-юнита СТАР☆ПРИНЦ. Ради него влюблённая (   Читать дальше...   )Производство: Студия Pierrot Plus / ぴえろプラスЖанр: приключения, комедияРежиссер: Кавасаки ИцуроПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C849AAB7C4539777D74D0D65D3F6745A47E82B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ VA - Harmonic Electro Jazz (2023) [MP3|320 Kbps] <Electro Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171386.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Jazz Improvisational Collection (2023) [MP3|320 Kbps] <Jazz, Smooth Jazz, I
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170256.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Love Blues (2020) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169469.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Jazz Maestro (2023) [MP3|320 Kbps] <Jazz, Smooth Jazz, Instrumental>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167875.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - The Blues For Yesterday (Vol.05) (2021) [MP3|320 Kbps] <Rock Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167422.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Saxophone Dreamsound (2023) [MP3|320 Kbps] <Jazz, Saxophone, Instrumental>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165037.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Instrumental Jazz: Masters Of Improvisation (2021) [MP3|320 Kbps] <Jazz, In
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162216.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - The Chill Jazz Pleasure (2021) [MP3|320 Kbps] <Smooth Jazz, Chillout, Downt
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162157.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Electro Jazz Inspiration And Improvisation (2023) [MP3|320 Kbps] <Jazz, Smo
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160834.jpg" />
 </div>
 
 
@@ -259,35 +259,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674111   (160808) от 06.11.2023
-
-VA - My Playlist - Hammond organ blues, soul, jazz & funk music (2023) [MP3|320 Kbps] <Jazz, Blues, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_160808.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Scary Goldings - Equal Parts Timing & Romance [03:16]
-002. Rahsaan Roland Kirk - I'll Be Seeing You [06:22]
-003. Joey DeFrancesco - More Music [06:05]
-004. Soulive - Uncle Junior [07:18](   Читать дальше...   )Жанр: Jazz, Blues, InstrumentalПродолжительность: 21:54:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F93255D85B953280A3A530FA64D4ACA7776C9910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675669   (159215) от 11.11.2023
 
 VA - Immense slow blues (2023) [MP3|320 Kbps] <Blues>
@@ -296,7 +267,7 @@ VA - Immense slow blues (2023) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159215.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - Christmas Jazz And Lounge Music (2016) [MP3|320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154488.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ VA - Latin Blues (2023) [MP3|320 Kbps] <Blues, Rock, Latino>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150440.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ VA - Jazzy And Chic The Perfect Smooth Jazz Selection For Your Dinner (2016) [MP
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150124.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ VA - Rain Song Reggae (2015) [MP3|320 кб/с] <Reggae, Blues Soul, Pop Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149207.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - Aesthetic Blues: Modern & Old Style (2021) [MP3|320 Kbps] <Blues, Folk Blue
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148496.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ VA - The Vanilla Jazz: Instrumental Collection (2021) [MP3|320 Kbps] <Jazz, Inst
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148492.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ VA - Christmas Blues Rock (2021) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146723.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ VA - Blues Collection 5 (2016) [MP3|320 Kbps] <Blues, Folk, Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146266.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ VA - Виртуозы жанра: Women's Blues 2CD, vol. 24 (2015)[MP3|320 кб
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143013.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Ed Calle - Compilation (2021) [MP3|320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141831.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ VA - Inviting Blues Guitar Instrumentals (2023) [MP3|320 Kbps] <Blues, Instrumen
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141746.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ VA - Romantic Collection Gold (2002) [MP3|192 кб/с] <Jazz, Blues, Guitar Musi
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140638.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ VA - Stranger Blues (2018) [MP3|320 Kbps] <Blues, Soul, Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137686.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ VA - Smooth Live Jazz (2023) [MP3|320 Kbps] <Smooth Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134877.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ VA - Romantic Relaxing and Nostalgic Blues Music (2023) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132549.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ VA - Romantic Relaxing and Nostalgic Blues Music (2023) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69457AB884B635D2D67E3E30F2523535EC4D0F64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682142   (130780) от 09.12.2023
+
+VA - 120 Best Slow Songs For Relax [part II] (2023) [MP3|320 Kbps] <Blues-Rock, Country, Ballad>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130780.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Buddy Guy feat. Jason Isbell - Gunsmoke Blues [03:09]
+002. Larry Miller - Blues Forever [05:26]
+003. Danielle Nicole - Take It All [02:58]
+004. Kenny Wayne Shepherd - Blue On Black [05:30](   Читать дальше...   )Жанр: Blues-Rock, Country, BalladПродолжительность: 11:32:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C2F9128F9BB79AB1574327C981ED926E392762
 ```
 
 https://mybot314.ru/tekegram_catalog/

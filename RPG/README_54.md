@@ -1,3 +1,107 @@
+###  Публикация: 1725913   (55334) от 26.05.2024
+
+Venture to the Vile (2024) [Ru/Multi] (1.0.1) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Venture to the Vile переносит геймеров в загадочный городок Рейнибрук, где теперь царит зловещее влияние, известное только как "Vile". Эта теневая сущность исказила некогда знакомые окрестности, превратив их в коварные ландшафты, полные опасностей и тайн. По мере того как юзеры будут ориентироваться в этой преобразованной среде, они столкнутся с целым рядом (   Читать дальше...   )Тип издания: RepackРазработчик: Studio Cut to BitsЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Японский, Испанский и другиеЯзык интерфейса: Русский, Английский, Японский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C294A0F87386BA198F4652E92621F9AC1362AD13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726292   (55149) от 28.05.2024
+
+C.A.R.D.S. RPG: The Misty Battlefield (2024) [Multi] (1.0/dlc) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55149.jpg" />
+</div>
+
+
+###  Подробнее
+
+C.A.R.D.S. RPG: The Misty Battlefield объединяет в себе карточный баттлер и механику SRPG, предлагая новый подход к тактическому геймплею. Игроки следуют за Велом и батальоном Клаузевица, сражаясь с Фахфтанией и бригадой Хеллмута. Здесь представлено более 100 уникальных карточек, каждую из которых можно собирать, создавая мощные комплекты, необходимые для победы (   Читать дальше...   )Тип издания: SceneРазработчик: ACQUIRE Corp.Жанр: Ролевые игры, СтратегииЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Японский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B92CD4C34493C59136C44FF2FB415565C216110F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726338   (55136) от 28.05.2024
+
+Little-Known Galaxy (2024) [En] (1.0) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Little-Known Galaxy - приключенческая RPG с элементами симулятора, где вы отправитесь исследовать отдаленные уголки необъятного космоса. Космический Альянс нуждается в вас, стажер, поэтому самое время взять под свой контроль космический корабль и отправиться в путешествие. Вместе с командой таких же безбашенных искателей приключений вам предстоит изучить отдаленные (   Читать дальше...   )Тип издания: SceneРазработчик: Carbon & KayЖанр: Приключенческие игры, Казуальные игры, Ролевые игры, СимуляторыЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F2ADB7E1EA13AE7B269F9EE6F9054A6F6188ACA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726329   (55121) от 28.05.2024
+
+CyberHoney (2024) [Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55121.jpg" />
+</div>
+
+
+###  Подробнее
+
+CyberHoney - карточный рогалик, где вы окажетесь в удивительном, но при этом крайне опасном мире. Находясь в самом эпицентре высокотехнологичной войны, вам потребуется дать отпор многочисленным противникам, поэтому самое время прихватить с собой оружие и ступить на поле боя. Сами разработчики называют свой проект военными шахматами, и в этом есть толика правды.Тип издания: RepackРазработчик: aliothgameЖанр: Казуальные игры, Ролевые игры, СтратегииЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, Корейский, КитайскийЯзык интерфейса: Английский, Японский, Корейский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A67A92D5E9E5D7FA3C24613F9B63238F889AE41A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725448   (55072) от 29.05.2024
 
 CONSORTIUM Remastered (2024) [Multi] (1.0.1) Scene Skidrow
@@ -6,7 +110,7 @@ CONSORTIUM Remastered (2024) [Multi] (1.0.1) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55072.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ SpellForce 3 Reforced (2017-2021) [Ru/Multi] (163238.365571) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55054.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Withering Rooms (2024) [Multi] (1.25) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55036.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Ikonei Island: An Earthlock Adventure (2023) [Multi] (20240425/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55034.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ SpellForce 3: Soul Harvest (2019) [Ru/Multi] (163238.365571) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54952.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ SpellForce 3: Fallen God (2020) [Ru/Multi] (163238.365571) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54951.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ The Mageseeker: A League of Legends Story (2023) [Ru/Multi] (1.0.0/dlc) Repack F
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54814.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Astor: Blade of the Monolith (2024) [Ru/Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54726.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Astor: Blade of the Monolith (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54688.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ The Elder Scrolls V: Skyrim (2016-2021) [Ru/Multi] (1.6.318.0.8/dlc) Repack FitG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54650.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Granblue Fantasy: Relink (2024) [Multi] (1.3.1/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54640.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Taboo Trial (2023) [Multi] (5.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54627.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Vendir: Plague of Lies (2024) [Ru/Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54626.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ C.A.R.D.S. RPG: The Misty Battlefield (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54596.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Trinity Fusion (2023) [Multi] (20240412/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54557.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Kingdom of Arcana (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54527.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Kingdom of Fallen: The Last Stand / Королевство Павших: Пос�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54495.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Crown Wars: The Black Prince (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54489.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ CONSORTIUM Remastered (2024) [Multi] (1.0.1) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54482.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Kingdom of Fallen: The Last Stand / Королевство Павших: Пос�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54478.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Dark Souls 2: Scholar of the First Sin (2015) [Ru/En] (1.0.2/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54473.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Esports Godfather (2024) [Multi] (1.0.10) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54460.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Esports Godfather (2024) [Multi] (1.0.10) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A99C7EF309EE8C1CEE99752B8996A9E074D5284A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727707   (54454) от 03.06.2024
-
-Little-Known Galaxy (2024) [En] (1.0) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Little-Known Galaxy - приключенческая RPG с элементами симулятора, где вы отправитесь исследовать отдаленные уголки необъятного космоса. Космический Альянс нуждается в вас, стажер, поэтому самое время взять под свой контроль космический корабль и отправиться в путешествие. Вместе с командой таких же безбашенных искателей приключений вам предстоит изучить отдаленные (   Читать дальше...   )Тип издания: RepackРазработчик: Carbon & KayЖанр: Приключенческие игры, Казуальные игры, Ролевые игры, СимуляторыЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCFD2ED81007EA6EF01A74B518198E5D2D9F21A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727790   (54423) от 04.06.2024
-
-Wizardry: Proving Grounds of the Mad Overlord (2024) [Multi] (1.0.1) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wizardry: Proving Grounds of the Mad Overlord - это полный 3D-римейк первой игры легендарной серии ролевых игр Wizardry. Wizardry: Proving Grounds of the Mad Overlord, первая из когда-либо выпущенных видеоигр в жанре ролевой игры для вечеринок, стала прямым источником вдохновения для таких серий, как Final Fantasy и Dragon Quest. Возрождение Digital Eclipse сохраняет (   Читать дальше...   )Тип издания: RepackРазработчик: Digital EclipseЖанр: Экшены, Ролевые игрыЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3C8D55B98E84308CC18320190176811427CF61A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727898   (54418) от 04.06.2024
-
-Vendir: Plague of Lies (2024) [Ru/Multi] (1.2.101) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vendir: Plague of Lies погружает игроков в мир, наполненный атмосферой классической CRPG. Земля Вендир - это обширный интерактивный мир, манящий игроков исследовать шумные города, жуткие подземелья и скрытые секреты. Стратегический пошаговый бой лежит в основе игрового процесса.Тип издания: RepackРазработчик: Early Morning StudioЖанр: Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B14207994812E19AE9054CC6F2256A12EB29F38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694201   (54312) от 05.06.2024
-
-梦灯花 Noctuary (2023) [Multi] (1.1.3) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Noctuary - сплав визуальной новеллы и приключенческого экшена, который погружает в яркий мир Абортерии, следуя за переплетенными путешествиями Фанчии и Алины. Будучи начинающими арборантами, дуэт проходит через богатый гобелен персонажей, квестов и врагов в этом красочном царстве. Отличаясь изобретательной механикой боя, игра позволяет плавно переключать персонажей (   Читать дальше...   )Тип издания: SceneРазработчик: GratescaЖанр: Приключенческие игры, Казуальные игры, Инди, Ролевые игрыЯзык озвучки: Китайский (упрощенный, традиционный)Язык субтитров: Английский, Китайский (упрощенный, традиционный), ЯпонскийЯзык интерфейса: Английский, Китайский (упрощенный, традиционный), Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08819F9E24D0A9789D9B4B8698C1E7FD3AE99C62
 ```
 
 https://mybot314.ru/tekegram_catalog/

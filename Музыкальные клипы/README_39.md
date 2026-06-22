@@ -1,3 +1,230 @@
+###  Публикация: 1722538   (56653) от 13.05.2024
+
+Emma Shapplin (1997-1999) DVDRip [MPEG2]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эмма Шапплин (настоящее имя - Кристель Мадлен Жолитон) – французская певица, композитор и продюсер, выступающая в жанре классического кроссовера.
+
+В раздаче представлены видеоклипы с официальных изданий
+Emma Shapplin - The Concert In Caesarea 2003 DVD5(   Читать дальше...   )01 Emma Shapplin - Cuor Senza Sangue 1997 (DVD5)
+02 Emma Shapplin - Spente Le Stelle 1997 (DVD5)
+03 Emma Shapplin - Discovering Yourself 1997 (DVD5)
+04 Emma Shapplin - Cuor Senza Sangue (The Concert In Caesarea Israel) 1999(   Читать дальше...   )Жанр: Classical Crossover, Neoclassica
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC56229FCD4EF7FFCD01ED281838421BA1585B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723202   (56499) от 15.05.2024
+
+Modern Talking - Video Collection (2024) WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дарю это собрание клипов легендарного дуэта, всем кто любит музыку 80х. Сделал всё что смог, из того материала, который нашёл для реставрации, в приемлемом качестве. Творчество Modern Talking, приятно и смотреть и слушать. Чтобы понять гениальность этой музыки, рекомендую послушать их альбомы 80х, в формате FLAC, в хороших наушниках, с нормальным усилителем. Откроете (   Читать дальше...   )00. Intro
+01. Atlantis Is Calling (S.O.S. For Love)
+02. You're My Heart, You're My Soul
+03. Cheri Cheri Lady(   Читать дальше...   )Жанр: Pop, DiscoКачество: WEBRipПродолжительность: 03:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83CF46D233D9DA3AF063DE3812519ADA0210AFD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649908   (55436) от 25.05.2024
+
+Bomfunk MC's - Video collection (1998-2019) DVDRip, TVRip, WEBRip [H.264/1080p] [Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cборник видеоклипов финской музыкальной группы, пик популярности которой пришёлся на вторую половину 90-ых и первую половину "нулевых".Жанр: Electronic breakbeat, Freestyle, Hip-HopРежиссер: Раймонд Эбанкс, Яакко СаловаараАктеры: Рэймонд Ибэнкс, Исмо Лаппалайнен, Яакко СаловаараПродолжительность: 00:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F8B082789C0A32573B6E0FE1712DEB7A1687B4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 241116   (51554) от 30.06.2024
+
+Chris Isaak  "BEST OF" (2006) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полное собрание клипов Криса Айзека1. Wicked Game
+2. Dancin'
+3. Somebody's Crying
+4. San Francisco Days(   Читать дальше...   )Жанр: Blues Rock/Southern Rock/PopПеревод: Оригинальный
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:484206F5E971D1BB1782900808FCBE7BF4EB3533
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 51018   (50210) от 13.07.2024
+
+ZZ Top: Greatest Hits (2004) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Greatest videos, a groundbreaking collecton from the band that made chopped cars, great- -lookinf girls and fur-covered guitars an art form all their own. Right from the start, with "Gimme All Your lovin'" and the rest of the Elminator trilogy - "Sharp Dressed Man" And "Legs" - ZZ Top has pioneered the High-Concept video. And they're (   Читать дальше...   )1. Gimme All Your Lovin'
+2. Sharp Dressed Man
+3. Legs
+4. TV Dinners(   Читать дальше...   )Жанр: Музыка, Rock, Hard Rock, Blues RocПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:871AFA9761BC49C91AFB7AB29ECE1794E23F64D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737325   (49699) от 17.07.2024
+
+Агутин, Куценко, Полицеймако, Гутин – «ПОНТЫ» (2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49699.jpg" />
+</div>
+
+
+###  Подробнее
+
+В анимационном видео четверо артистов играют участников популярной группы, отправляющейся на гастроли из Москвы в Сочи. Принарядившись в дорогом бутике, они выходят на сцену в дизайнерских костюмах, чем вызывают гнев публики и вынуждены бежать на необитаемый остров на катере, по дороге скормив обновки акуле.Жанр: PopРежиссер: Денис КузьминПродолжительность: 00:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:252568D511F5AEF946B8DE332C799C7119B6A100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 112803   (49160) от 23.07.2024
+
+Shocking Blue - Greatest Hits Around the World (2004) DVD-5
+
+>>След.
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49160.jpg" />
+</div>
+
+
+###  Подробнее
+
+TracklistЯзык: АнглийскийПродолжительность: 01:10:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BD15B0A3B79CDE795F9DD1A09EDFEA66950D1B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 318660   (48827) от 26.07.2024
+
+Status Quo - "XS All Areas" (2004) DVD9
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта видео компиляция лучших клипов и концертных съемок этой великой группы включает в себя все хиты Фрэнсиса Росси и Рика Парфитта с 1968 по 2004 годы.
+Помимо всемирно известных хитов, таких как "Whatever You Want" "In The Army Now", сборник включает в себя ранее не выходивший на видео материал.1. Caroline
+2. Down Down
+3. Paper Plane
+4. Big Fat Mama(   Читать дальше...   )Жанр: Rock'n'Roll, BoogieПродолжительность: 02:30:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AD8893E9EAB917BB7F649607B3499C30D063910
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 338707   (48824) от 26.07.2024
 
 Cinderella / Cinderella Rocked, Wired & Bluesed The Greatest Video Hits (2005) DVD9
@@ -6,7 +233,7 @@ Cinderella / Cinderella Rocked, Wired & Bluesed The Greatest Video Hits (2005) D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48824.jpg" />
 </div>
 
 
@@ -35,7 +262,7 @@ Genesis - The Video Show 2004 DVD
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48817.jpg" />
 </div>
 
 
@@ -64,7 +291,7 @@ W.A.S.P. / 1993 - First Blood... Last Visions... (2007) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47485.jpg" />
 </div>
 
 
@@ -93,7 +320,7 @@ BBC - Top Of The Pops [1967-2004] (2005) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47308.jpg" />
 </div>
 
 
@@ -122,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47163.jpg" />
 </div>
 
 
@@ -148,7 +375,7 @@ Michael Jackson's Vision (2010) 2xDVD9 + DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47088.jpg" />
 </div>
 
 
@@ -174,7 +401,7 @@ Metallica - The Videos 1989-2004 (2006) DVD-9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46784.jpg" />
 </div>
 
 
@@ -203,7 +430,7 @@ Depeche Mode - Personal Jesus (1990) HDTV [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45963.jpg" />
 </div>
 
 
@@ -229,7 +456,7 @@ Manfred Mann's Earth Band - Unearthed. The Best of 1973-2005 (2006) DVD5 <Rock>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43535.jpg" />
 </div>
 
 
@@ -258,7 +485,7 @@ ABBA - Super Troupers (Ultimate Edition) (2004) [2xDVD5, DVD9]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43212.jpg" />
 </div>
 
 
@@ -287,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43190.jpg" />
 </div>
 
 
@@ -313,7 +540,7 @@ Bjork / Greatest Hits: Volumen 1993-2003 (2003) DVD
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42145.jpg" />
 </div>
 
 
@@ -342,7 +569,7 @@ Paul Van Dyk. Video collection (1994 - 2024) DVDRip, WEBRip [H.264/1080p] [handm
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36784.jpg" />
 </div>
 
 
@@ -368,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36441.jpg" />
 </div>
 
 
@@ -398,7 +625,7 @@ Iggy Azalea feat. Charli XCX - Fancy (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35126.jpg" />
 </div>
 
 
@@ -424,7 +651,7 @@ Skylar Grey feat. Eminem - C'Mon Let Me Ride (2012) WEB-DLRip [H.265/2160p] [4K,
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35033.jpg" />
 </div>
 
 
@@ -450,7 +677,7 @@ Ava Max - Kings & Queens (2020) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35027.jpg" />
 </div>
 
 
@@ -476,7 +703,7 @@ Katy Perry - Roar (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Up
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35025.jpg" />
 </div>
 
 
@@ -487,214 +714,6 @@ Katy Perry - Roar (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Up
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF61D44BCD14524494E8EBC647D2EF05D0F59A4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764205   (35020) от 06.12.2024
-
-will.i.am feat. Britney Spears - Scream & Shout (2012) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35020.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Scream & Shout» — песня американского рэпера will.i.am, записанная при участии Бритни Спирс и выпущенная 20 ноября 2012 года в качестве третьего сингла из альбома #willpower. Премьера клипа на песню «Scream & Shout» состоялась в США во время прямого эфира шоу The X Factor 28 ноября 2012 года и была доступна для просмотра на Vevo сразу после трансляции шоу (   Читать дальше...   )Жанр: Данс-попПродолжительность: 00:04:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4152ED94568DC19247109C53A573E7A3070D6AC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764199   (35007) от 06.12.2024
-
-Eminem feat. Juicy WRLD - Godzilla (2020) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35007.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Godzilla» — песня американского рэпера Эминема при участии американского рэпера Juice WRLD из одиннадцатого студийного альбома Эминема Music to Be Murdered By (2020). Песня является первым посмертным релизом Juice WRLD после его смерти в декабре 2019 года. 6 марта 2020 года Эминем выпустил фрагмент музыкального клипа в сотрудничестве с Lyrical Lemonade. Музыкальный (   Читать дальше...   )Жанр: Хардкор-хип-хоп, хорроркорПродолжительность: 00:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:315856E3788C608FE20AF8619EA266DC4585FD31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764198   (35005) от 06.12.2024
-
-Eminem - Berzerk (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35005.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Berzerk» (c англ. «Берсерк») — песня, которую написал американский рэпер Эминем, выпустил в качестве первого сингла из своего восьмого студийного альбома The Marshall Mathers LP 2. В начале ролика зритель видит стоящий на крыше многоэтажного дома бумбокс с лежащей на нём кассетой. Дом стоит в окружении более высоких. Далее к бумбоксу подходит Eminem и наклонившись (   Читать дальше...   )Жанр: рэп-рокПродолжительность: 00:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61A743CECBCC602B01B0D3D40E1F0BA08A307357
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764204   (35002) от 06.12.2024
-
-Taylor Swift - We Are Never Ever Getting Back Together (2012) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35002.jpg" />
-</div>
-
-
-###  Подробнее
-
-«We Are Never Ever Getting Back Together» (с англ. — «Мы никогда больше не будем вместе») — сингл американской кантри и поп-певицы Тейлор Свифт, изданный 13 августа 2012 года лейблом Big Machine Records и ставший первым с нового 4-го альбома Red, выход которого состоялся позднее, 22 октября 2012 года. Премьера клипа на песню состоялась на каналах CMT, (   Читать дальше...   )Жанр: бабблгам-поп, поп-рок, электро-фолкПродолжительность: 00:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A8074FABB78E0F7DBB86CDDE70580650148F86D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764203   (35001) от 06.12.2024
-
-Eminem - Rap God (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35001.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Rap God» (с англ. — «Бог рэпа») — третий сингл американского рэпера Эминема из его восьмого студийного альбома. Премьера песни состоялась 14 октября 2013 года. Песня занесена в Книгу рекордов Гиннесса как хит с самым большим количеством слов (1560). 27 ноября 2013 года, как и планировалось, клип был выпущен на Vevo. В клипе Эминем пародирует Max Headroom. (   Читать дальше...   )Жанр: хип-хопПродолжительность: 00:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54657164CAA39109FA0A2A3F6145A58CE3FC1C2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764200   (34990) от 06.12.2024
-
-Eminem feat. Rihanna - Love The Way You Lie (2010) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34990.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Love the Way You Lie» (с англ. — «Мне нравится, как ты лжёшь») — песня американского рэпера Эминема, записанная при участии барбадосской певицы Рианны, и второй сингл его седьмого студийного альбома Recovery, выпущенный в июне 2010 года лейблами Shady Records, Interscope Records и Aftermath Entertainment. Официальная премьера клипа на YouTube-канале (   Читать дальше...   )Жанр: поп-рэпПродолжительность: 00:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8623DEB9542F51FC799359B3326A14450E70E76A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764383   (34908) от 07.12.2024
-
-Eminem feat. Rihanna - The Monster (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34908.jpg" />
-</div>
-
-
-###  Подробнее
-
-«The Monster» — четвёртый сингл американского рэпера Эминема с его восьмого студийного альбома The Marshall Mathers LP 2. Клип был представлен 17 декабря 2013 года на сайте YouTube. На протяжении всего видеоклипа Эминем перевоплощался в героев своих предыдущих видеоклипов и выступлений периода 1999—2002 годов.Жанр: Хип-хопПродолжительность: 00:05:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5ABF80C9A24CD500B2D2560001ED2EFAA9289A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764381   (34907) от 07.12.2024
-
-Hurts - Wonderful Life (2010) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34907.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Wonderful Life» — песня британского дуэта Hurts из дебютного альбома группы «Happiness». В клипе Wonderful Life прослеживается влияние фильма «Восемь с половиной» Федерико Феллини, как несколько перекликающихся идей, так и внешнее сходство главных героев. Релиз клипа: 24 июля 2010 года.Жанр: синтипоп, электроникаПродолжительность: 00:04:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAF0A20227E337D1DA2D07DFDFF0D17D6F8789B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

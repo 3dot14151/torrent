@@ -6,7 +6,7 @@ Medina - Addiction (2011) HDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577206.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ David Guetta ft Nicki Minaj & FloRida – Where Them Girls At (2011) HDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576939.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Steve Brian - La Playa (2012) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573474.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572148.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Linkin Park - Iridescent (2011) HDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571371.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Dj Aligator feat. Daniel Kandi - The Perfect Match (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571289.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_570869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_570869.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Blackmore’s Night - A Knight In York  (2012) DVD5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_570674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_570674.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Styx And The Contemporary Youth Orchestra - One With Everything (2006) BDRip [H.
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564503.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Bad Company - Live At Wembley (2011) DVD5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561639.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Guitar Legends - EXPO '92 Sevilla / Folk Rock Concert (День четверты
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_561487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_561487.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Guitar Legends - EXPO '92 Sevilla / Fusion (День второй -16.11.1991) D
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_561353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_561353.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Guitar Legends - EXPO '92 Sevilla / Blues Night (День первый-15.11.199
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_561229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_561229.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Guitar Legends - EXPO '92 Sevilla / Experimental Concert (День третий 
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_561222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_561222.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Inside Djs - Chica Latina (2012) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560989.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Florence and The Machine - Breath Of Life (OST Snow White & The Huntsman) (2012)
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560697.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Joe Cocker - Fire It Up (Bonus DVD) (2012) DVDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547581.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539502.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Dino MC47 - Среда Обитания (2012) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536840.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Tony Ray feat. Emma & Mr. Funky - Miami (2012) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536838.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ DaCav feat. Jump Smokers - Sexy Body (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536831.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ The 69 Eyes - Red (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536697.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Ensiferum - In My Sword I Trust (2012) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530841.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Angra - Angels Cry – 20th Anniversary Tour (2013) BDRip [H.264/1080р]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519545.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518409.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Flying Colors - Live In Europe (2013) BDRip [H.264/1080р]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517348.jpg" />
 </div>
 
 

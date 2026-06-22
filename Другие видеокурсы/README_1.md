@@ -6,7 +6,7 @@
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028418.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028154.jpg" />
 </div>
 
 
@@ -55,6 +55,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455502   (1025598) от 19.03.2021
+
+Udemy, Dave Rongey | Basic Home Electrical Wiring by Example and On the Job (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1025598.jpg" />
+</div>
+
+
+###  Подробнее
+
+При сохранении здорового уважения к электричеству, проекты домашней электропроводки не должны пугать. Этот курс даст вам знания, необходимые для выполнения этих проектов. Этот курс, предназначенный для начинающих, основан на более чем 30-летнем опыте лицензированного подрядчика по электромонтажу, а также на сотнях фотографий, сделанных в процессе работы, и простых (   Читать дальше...   )Производство: UdemyЖанр: ЭлектрикаЯзык озвучки: АнглийскийПродолжительность: 04:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8358BF2526D9B8A846260E2FB52476B407920DF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456358   (1025047) от 22.03.2021
 
 SciOne | Дамп YouTube-канала SciOne (2014-2021) WEB-DL
@@ -63,7 +89,7 @@ SciOne | Дамп YouTube-канала SciOne (2014-2021) WEB-DL
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025047.jpg" />
 </div>
 
 
@@ -92,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024875.jpg" />
 </div>
 
 
@@ -121,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024837.jpg" />
 </div>
 
 
@@ -150,7 +176,7 @@ ScienceVideoLab | Дамп Youtube-канала ScienceVideoLab (2015-2021) WEB-
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024704.jpg" />
 </div>
 
 
@@ -176,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023780.jpg" />
 </div>
 
 
@@ -202,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023764.jpg" />
 </div>
 
 
@@ -228,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1020037.jpg" />
 </div>
 
 
@@ -257,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020026.jpg" />
 </div>
 
 
@@ -286,7 +312,7 @@ Nate Schutta, Neal Ford | Presentation Patterns (2016) PCRec [En]
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014361.jpg" />
 </div>
 
 
@@ -312,7 +338,7 @@ Lifexpert, Алексей Губанов | Защиты. На все случа�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007357.jpg" />
 </div>
 
 
@@ -340,7 +366,7 @@ Skillbox, Дмитрий Бородин | Математика для финан
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007217.jpg" />
 </div>
 
 
@@ -369,7 +395,7 @@ shop.makeupbyellin, Эллин Святимова | Визаж для себя (
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006936.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006173.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003112.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001976.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001972.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Hookah.school | Курс профессионального кальянщика
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001125.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ imoib | Обеспечение безопасности ПДн при их об�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000803.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997660.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985826.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983486.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981201.jpg" />
 </div>
 
 
@@ -667,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980583.jpg" />
 </div>
 
 
@@ -678,33 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF5C69046A5B2F4B7FA733C97E12213DF68FC112
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973048   (974181) от 13.01.2016
-
-Раокриом | Ведические технологии для роста лидера и продвижения его бизнеса (2011) CamRip
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974181.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ведические технологии для роста лидера и продвижения его бизнеса» включает в себя три больших курса: «Ведическая Магия: Белая Магия 1-го Круга (Уровня) и основы Теургии. Ведическая Магия: Белая Магия 2-го Круга (Уровня) и Основы Теургии. Основы Ведической Медицины».
-Само понятие «Ведическая Магия» существует несколько тысячелетий. В ведических традициях магия – (   Читать дальше...   )Производство: Корпорация "Бизнес-Мастер"Жанр: Магия, Эзотерика, ТеологияПродолжительность: 28:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D130EF2AD6A4B1C591169679073034FEE875FF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

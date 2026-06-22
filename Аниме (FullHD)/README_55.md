@@ -6,7 +6,7 @@ Loop 7-kaime no Akuyaku Reijou wa, Moto Tekikoku de Jiyuukimama na Hanayome Seik
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66281.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kyuuketsuki Sugu Shinu 2 | The Vampire Dies in No Time 2 | Этот вампир
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66277.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Tensei Kizoku, Kantei Skill de Nariagaru | As a Reincarnated Aristocrat, I'll Us
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66276.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Date a Live V | Рандеву с жизнью [ТВ-5] [2024, TV, 12 эп.] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66275.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Kono Subarashii Sekai ni Shukufuku o! 3 | Этот замечательный м
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66274.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Choujigen Game Neptune The Animation | Hyperdimension Neptunia - The Animation |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65124.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ D.Gray-man Hallow | Ди.Грэй-мен: Святые | Ди Грэй-мен: �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64946.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Synduality: Noir | Синдуальность: Нуар [2023, TV, 24 эп.] Web
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61467.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Ragna Crimson | Рагна Багровый [2023, TV, 24 эп.] WEBRip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61229.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Alice to Therese no Maboroshi Koujou | Фабрика иллюзий Алисы 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61073.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Undead Unluck | Undead Unluck | Нежить и Неудача [2023, TV, 24 э�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60101.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Nanatsu no Taizai: Mokushiroku no Yonkishi | The Seven Deadly Sins: Four Knights
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59447.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Girls und Panzer: Saishuushou | Girls und Panzer das Final | Девушки и �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57452.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Ayakashi Triangle | Треугольник аякаси [2023, TV, 12 эп.] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57410.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Hikikomari Kyuuketsuki no Monmon | The Vexations of a Shut-In Vampire Princess |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57403.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Suki na Ko ga Megane o Wasureta | The Girl I Like Forgot Her Glasses | Моя в
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57393.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Benriya Saitou-san, Isekai ni Iku | Handyman Saitou in Another World | Разн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57390.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Ninja Kamui | Ниндзя Камуи [2024, Web, 13] WEBRip 1080 raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57143.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Gekijouban Hibike! Euphonium: Todoketai Melody | Играй, эуфониум! �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56881.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Gekijouban Hibike! Euphonium: Chikai no Finale | Sound! Euphonium: The Movie - O
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56878.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Tokubetsu Hen Hibike! Euphonium: Ensemble Contest Hen | Sound! Euphonium: Specia
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56877.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Gekijouban Servamp: Alice in the Garden | Сервамп (фильм) [2018, Mov
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56665.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Kurokami The Animation / Темная богиня [2009, TV,   23 серий] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56516.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Campione! Matsurowanu Kamigami to Kami Koroshi no Maou | Чемпион! ~Шко
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56298.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Grimm Kumikyoku | The Grimm Variations | Вариации Гриммов [2024, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55303.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Suki demo Kirai na Amanojaku | My Oni Girl | Моя подруга — демо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55219.jpg" />
 </div>
 
 

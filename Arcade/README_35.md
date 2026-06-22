@@ -1,3 +1,55 @@
+###  Публикация: 965224   (221309) от 16.12.2015
+
+Helldivers (2015) [Ru/Multi] (Build 901447/dlc) SteamRip Let'sРlay [Digital Deluxe Edition]
+
+>>След.
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир игры погряз в войне между людьми, киборгами и агрессивно настроенными пришельцами из других вселенных. В составе элитного боевого подразделения под названием «HELLDIVERS» и используя футуристическое вооружение будущего, включая роботов, вам предстоит сражаться за человечество против всех этих врагов и трех инопланетных рас, защищая жителей Супер Земли от уродливых (   Читать дальше...   )Тип издания: SteamRipРазработчик: Arrowhead Game StudiosЖанр: Arcade (Shoot'em up), 3D, Top-downЯзык озвучки: Русский, Английский, Французский, Итальянский, Немецкий, ИспанскийЯзык субтитров: Русский, Английский, Французский, Итальянский, Немецкий, ИспанскийЯзык интерфейса: Русский, Английский, Французский, Итальянский, Немецкий, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B212908CC94E1BA8BEA3D6574B2EC45F8FB2F35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910549   (221301) от 16.12.2015
+
+Magicka 2 (2015) [Ru/Multi] (1.2.0.0/dlc) SteamRip Let'sРlay [Deluxe Edition]
+
+>>След.
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самое хулиганское ко-оп приключение возвращается! В новой главе Magicka, игроки восстают из руин замка Алдрехейм, чтобы обнаружить Мидгард практически очищенным от волшебников. Лишь немногие остались живы после Войны магов, да и те либо обезумили, либо стали невероятно враждебны ко всему живому. Чтобы снова избавить мир от зла, четверым волшебникам и их гиду Владу (   Читать дальше...   )Тип издания: SteamRipРазработчик: Pieces InteractiveЖанр: Arcade, 3D, IsometricЯзык озвучки: -/-Язык субтитров: Русский, Английский, Немецкий, Французский, Итальянский, ИспанскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Итальянский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C252816860AEE01C4E1813F67CBA4DB6BB66909
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084369   (219426) от 18.12.2016
 
 Inside (2016) [Ru/Multi] (1.0/u10) Repack R.G. Catalyst
@@ -6,7 +58,7 @@ Inside (2016) [Ru/Multi] (1.0/u10) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219426.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ The Escapists: The Walking Dead (2015) [Ru/Multi] (Build 263) SteamRip Let'sРla
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217105.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Evoland 2 (2015) [En/Multi] (1.0.9135) SteamRip Let'sРlay [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217065.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Blue Fire (2021) [Ru/Multi] (5.0.5/dlc) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216897.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Bleak Sword DX (2023) [Ru/Multi] (0.3072001) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216573.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ World's End Club (2021) [Ru/Multi] (0.0.0+hotfix) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214909.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Magicka 2 (2015) [Ru/Multi] (1.2.0.0/dlc) Repack R.G. Механики [Deluxe E
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214864.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Deathtrap (2015) [Ru/Multi] (1.0.5) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214824.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Solar Ash (2021) [Ru/Multi] (1.03.44179) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214676.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Nickelodeon All-Star Brawl (2021) [Multi] (1.0.5) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214604.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Asterix & Obelix XXXL: The Ram From Hibernia (2022) [Ru/Multi] (1.03.2) License 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214220.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Black Skylands (2021) [Ru/Multi] (1.0.0/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213496.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Mari and Bayu - The Road Home (2022) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212279.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Shing! (2020) [Ru/Multi] (2.0/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209928.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Edge Of Galaxy (2021) [Ru/En] (1.29) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209900.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ LEGO DC Super-Villains (2018) [Ru/Multi] (1.0/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209630.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Rhythm Sprout: Sick Beats & Bad Sweets (2023) [Ru/Multi] (1.005b) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208130.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Koa and the Five Pirates of Mara (2023) [Multi] (1.2.1s) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207143.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Bandits: Phoenix Rising / Бандиты: Безумный Маркс (2002) [Ru
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207047.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Nobody Saves the World (2022) [Ru/Multi] (31300/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207026.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Starless (2022) [Ru/Multi] (1.051) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207016.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Secret Agent (1992) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206971.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Swordship (2022) [Ru/Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206527.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Nitro Racers (2022) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206400.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Nitro Racers (2022) [En] (1.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46BFF8A8146F0223EE91DFCB35506CFE6909EF98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652779   (206366) от 13.08.2023
-
-Baby Storm (2023) [Multi] (2.12.4) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Присматривайте за непредсказуемыми детьми, устраивающими хаос в детском саду! Поддерживайте порядок, бегайте, прибирайтесь и кормите своих подопечных, чтобы побить рекорд, а затем перейти на другой уровень или даже на другую планету! Играть можно как одному, так и в режиме совместной игры на четверых игроков! Вам предстоит заботиться о детях, очарование которых может (   Читать дальше...   )Тип издания: LicenseРазработчик: Baby CorpЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык субтитров: Английский, Немецкий, Итальянский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Итальянский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C0DCE2FB4DB2E1BC05112668795529034899DE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830692   (205629) от 27.10.2025
-
-Mortal Kombat 11 (2019) [Ru/Multi] (0.384-34-CL237394/dlc) Repack Necros [Ultimate Edition]
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mortal Kombat 11 – продолжение культовой серии файтингов Mortal Kombat, в котором игроков ждут широкие возможности кастомизации бойцов благодаря новой системе Custom Character Variations. Новый графический движок переместит вас в гущу боев, заставляя буквально прочувствовать каждую ломающуюся кость и вылетающие из обрит глаза. В Mortal Kombat 11 представлены классические (   Читать дальше...   )Тип издания: RepackРазработчик: NetherRealm Studios, QLOCЖанр: Экшен, ФайтингЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3714EDFD2580FC0C3B3C9186B6EF5EEA86BB26D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

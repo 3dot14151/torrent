@@ -1,3 +1,194 @@
+###  Публикация: 1337265   (274445) от 10.11.2019
+
+TNA Impact! (2008) [PS3] [EUR] 2.41 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274445.jpg" />
+</div>
+
+
+###  Подробнее
+
+TNA iMPACT! - игра созданная по мотивам сверхпопулярного телевизионного шоу, посвященного реслингу. Выберите свой стиль в реслинге, узнайте самые зрелищные и эффективные приемы, завоюйте любовь зрителей и главное - станьте абсолютным чемпионом! Только в TNA iMPACT! вы встретите целую плеяду великих реслеров из телевизора - Курт Энгл, Джефф Джаретт, Носорог, монстроид (   Читать дальше...   )Тип издания: LicenseРазработчик: Midway StudiosЖанр: FightingЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:306AB873F2164E0E1A56497B043A9EFDDEB2C960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273945   (273220) от 23.12.2010
+
+[Wii] Far Cry Vengeance [English][PAL] (2007)
+
+>>Консольные Игры
+>>Wii, GameCube
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Far Cry Vengeance  — компьютерная игра, разработанная компанией Ubisoft Montreal и изданная компанией Ubisoft эсклюзивно для игровой консоли Nintendo Wii.
+ Игра была издана 12 декабря 2006 года в Северной Америке и 20 декабря 2006 года в Австралии.
+ Far Cry Vengeance является второй игрой после Tom Clancy's Splinter Cell: Double Agent для консоли Wii, которая была выпущенная в Северной Америке с возрастным рейтингом ESRB M — Mature (рейтинг «Для взрослых»).
+
+Эта игра является римейком на Far Cry Instincts: Evolution, эксклюзивной игры для консоли Xbox, однако в отличие от оригинала Far Cry Vengeance имеет три новых уровня, новые виды оружия, транспортные средства и рычаги управления.
+
+Игровой процесс
+
+Игра в полной мере использует Wii Remote и его геймпад Нунчак. Например, игрок может подпрыгнуть подняв рычаг геймпада вверх. Навеведение оружия, и рукопашные атаки осуществляется остановкой движения по геймпаду. Увеличение на снайперской винтовки аналогичным образом контролируется перемещениеми рычага вверх. Также (   Читать дальше...)Жанр: шутер от первого лицаЯзык интерфейса: EnglishФормат: ISO
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF2DBE3A0E3B7B2ADF4DD5BE807F9C154EA21EBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337593   (272356) от 12.11.2019
+
+Happy Feet Two: The Videogame (2011) [PS3] [USA] 3.70 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Happy Feet Two: The Videogame является второй частью веселой музыкальной аркады, созданной по мотивам анимационного фильма с симпатичными пингвинами в главной роли, в которой вас ждет встреча со многими известными персонажами из мультфильма. Как живется пингвинам в Антарктиде? Оказывается, очень-очень весело, хотя, конечно, и без неприятностей не обходится. В новом (   Читать дальше...   )Тип издания: LicenseРазработчик: KMM GamesЖанр: Adventure, Music, Rhytm, PlatformerЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7CE3FE89E859A7255B5146F0D0BA88BDAA5DD6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337821   (272354) от 12.11.2019
+
+Score International Baja 1000: World Championship Off Road Racing (2008) [PS3] [EUR] 2.42 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создатели SCORE International Baja 1000 при разработке проекта поставили себе за цель воссоздать атмосферу гоночных соревнований в экстремальных условиях. В итоге игра предлагает выбор из более чем девяноста различных гоночных авто и мотоциклов, среди которых есть реальные копии с соревнований Baja 1000. Главной задачей в этом проекте является не просто достичь финиша, (   Читать дальше...   )Тип издания: LicenseРазработчик: Left Field ProductionsЖанр: RacingЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC882AED17444B109D056B676C0A4BF2559F34DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273729   (272262) от 24.12.2010
+
+Trauma Team [Wii] [NTSC] [Eng] (2010)
+
+>>Консольные Игры
+>>Wii, GameCube
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая игра во вселенной Trauma Center, эксклюзив для Wii. 
+ATLUS решила внести кардинальные перемены в серию — если раньше играющий был преимущественно хирургом, то теперь нам предоставляется возможность побыть еще и например, судебно-медицинским экспертом, сотрудником скорой помощи и эндоскопедистом. Всего в игре будет 6 вариантов профессий, 6 основных героев, которые (   Читать дальше...   )Разработчик: AtlusЖанр: Визуальная новелла/Логическая/Симулятор/AнимеЯзык интерфейса: EngФормат: Образ в формате
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65ECCD3992CB77BD54EB87C0E7A8A6FCD9CBD84E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 274512   (272178) от 24.12.2010
+
+Tomb Raider: Anniversary [Wii] [PAL] [Multi 5] (2007)
+
+>>Консольные Игры
+>>Wii, GameCube
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уже десять лет легендарная Лара Крофт расхищает не только сокровища древних - она крадет сердца игроков. В нее влюбляются, о ней снимают фильмы, на нее мечтают быть похожими девушки. Весь мир замирает от одного упоминания ее имени - путь от заурядной героини видеоигр до "звезды" первой величины пройден! Но кто помнит, с чего начиналось восхождение Tomb (   Читать дальше...   )Разработчик: Crystal Dynamics, Buzz Monkey SoftwareЖанр: platformer, actionЯзык интерфейса: Multi 5 (EN, FR, DE, ES, IT)Формат: Образ в формате
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC199415F8609F210A90BCAD94C3EC61A9BDCE46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337866   (271338) от 13.11.2019
+
+Lucha Libre AAA: Heroes del Ring (2010) [PS3] [EUR] 3.42 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lucha Libre AAA: Heroes del Ring основана на Мексиканской лиге реслинга «Lucha Libre». В игре представлены все самые известные «luchadores» бойцы, Мексиканского первого дивизиона. Игра предлагает Вам окунуться в мир Мексиканского реслинга, который считается самым акробатическим и быстрым реслингом в мире. В игре реализована система наборов очков, которая позволит (   Читать дальше...   )Тип издания: LicenseРазработчик: Immersion Games, SabarasaЖанр: FightingЯзык озвучки: Английский, ИспанскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E17248C1F27546233F68DB6D7ADAAD201D89AA4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337357   (271271) от 13.11.2019
 
 2014 FIFA World Cup Brazil (2014) [PS3] [USA] 4.55 [License] [Multi]
@@ -6,7 +197,7 @@
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271271.jpg" />
 </div>
 
 
@@ -32,7 +223,7 @@ Just Dance 2020 (2019) [Wii] [USA] [License] [En]
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271169.jpg" />
 </div>
 
 
@@ -58,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271077.jpg" />
 </div>
 
 
@@ -86,7 +277,7 @@ Battalion Wars 2 [Wii] [PAL] [Multi 5] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270611.jpg" />
 </div>
 
 
@@ -112,7 +303,7 @@ The Legend of Zelda: Breath of the Wild (2017) [Switch] [Region Free] 4.1.0 [XCI
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269751.jpg" />
 </div>
 
 
@@ -138,7 +329,7 @@ Dante's Inferno (2010) [PS3] [EUR] 3.01 [Cobra ODE / E3 ODE PRO ISO] [License / 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269212.jpg" />
 </div>
 
 
@@ -165,7 +356,7 @@ The Legend of Zelda: Link's Awakening (2019) [Switch] [EUR] 9.0.1 [License / 1.0
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268600.jpg" />
 </div>
 
 
@@ -193,7 +384,7 @@ Meow Motors (2019) [Switch] [EUR] 8.1.0 [NSZ] [License / 1.0.1] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267882.jpg" />
 </div>
 
 
@@ -219,7 +410,7 @@ Spyro Reignited Trilogy (2019) [Switch] [EUR] 8.1.0 [NSP] [Unofficial / 1.01] [R
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267787.jpg" />
 </div>
 
 
@@ -245,7 +436,7 @@ MUD: FIM Motocross World Championship (2012) [PS3] [EUR] 3.40 [Cobra ODE / E3 OD
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266871.jpg" />
 </div>
 
 
@@ -271,7 +462,7 @@ Dead Cells (2018) [Switch] [USA] 8.1.0 [NSP] [License / DLC / 1.5.0] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266796.jpg" />
 </div>
 
 
@@ -297,7 +488,7 @@ Final Fantasy Fables: Chocobo's Dungeon [Wii] [PAL] [ENG] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266708.jpg" />
 </div>
 
 
@@ -325,7 +516,7 @@ Monster Boy and the Cursed Kingdom (2018) [Switch] [USA] 9.0.1 [NSZ / 1.0.5] [Li
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265297.jpg" />
 </div>
 
 
@@ -351,7 +542,7 @@ Blade Arcus from Shining EX (2015) [PS3] [ASIA] 3.40 [CFW / HEN / Cobra ODE ISO]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265260.jpg" />
 </div>
 
 
@@ -377,7 +568,7 @@ Nintendo 3DS ROMPack (2011-2017) [3DS] [ALL] [Decrypted] [Unofficial] [Multi] (1
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264905.jpg" />
 </div>
 
 
@@ -403,7 +594,7 @@ Narcos Rise of the Cartels (2019) [Switch] [USA] 9.0.1 [NSP] [License / 1.0.3] [
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264559.jpg" />
 </div>
 
 
@@ -429,7 +620,7 @@ Valkyria Chronicles (2018) [Switch] [USA] 8.1.0 [NSZ] [Unofficial] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263862.jpg" />
 </div>
 
 
@@ -455,7 +646,7 @@ South Park: The Stick of Truth (2018) [Switch] [USA] 8.1.0 [NSZ] [License / 1.0.
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263796.jpg" />
 </div>
 
 
@@ -482,7 +673,7 @@ South Park: The Fractured But Whole (2018) [Switch] [USA] 8.1.0 [NSZ] [License /
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263790.jpg" />
 </div>
 
 
@@ -494,189 +685,6 @@ South Park: The Fractured but Whole, сиквел знаменитой игры 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED9595E4388F999DCF986E397997B8FBDD75C8A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340669   (263476) от 24.11.2019
-
-Bee Simulator (2019) [Switch] [EUR] 9.0.1 [NSP] [License / 0.2] [Ru/Multi]
-
->>Консольные Игры
->>Switch
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263476.jpg" />
-</div>
-
-
-###  Подробнее
-
-В момент когда первые солнечные лучи появляются над горизонтом , медленно просыпается пчелиный улей. Иерархия и усердность , жизненно необходимы для благополучия всего роя. Так что проверьте крылья , градус отклонения ваших антенн, берите приказы от королевы и полетели на первое задание. Это только начала ваших приключений. Вы случайно обнаруживаете, что люди хотят (   Читать дальше...   )Тип издания: LicenseРазработчик: VARSAV Game StudiosЖанр: Приключения, СимуляторЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3370C20535FD497D409F387B1C8A675042DF4BB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340725   (263465) от 24.11.2019
-
-FIFA Street 3 (2008) [PS3] [EUR] 2.01 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение знаменитой серии аркадных футбольных симуляторов FIFA Street, подарит вам красивый уличный футбол. Бурные эмоции, неподдельный азарт и всплеск адреналина, сопровождают любой матч среди бетонных стен, а упрощенная система управления, позволит осуществлять непостижимые финты и трюки.
-Действие FIFA Street 3 разворачивается в самых экзотических и необычных (   Читать дальше...   )Тип издания: LicenseРазработчик: EA CanadaЖанр: СпортЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54D7D4707EFECD69725DBE25BB3A0BB4C90EFB15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838467   (260857) от 23.11.2025
-
-Star Wars Jedi: Survivor / Звёздные войны Джедаи: Выживший (2023) [PS4] [HEN] [USA] 11.0 [License] [Ru/Multi]
-
->>Консольные Игры
->>PS4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скрывайтесь от Империи и выживайте в роли одного из последних джедаев галактики. Действие «Звёздные войны Джедаи: Выживший» происходит спустя пять лет после событий, описанных в «Звёздные войны Джедаи: Павший Орден»‎‎. Имперские войска преследуют Кэла - он всегда должен быть на шаг впереди. К тому же на его плечах тяжёлая ноша: он один из последних джедаев (   Читать дальше...   )Тип издания: LicenseРазработчик: Respawn EntertainmentЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A7E1DE5AAA6FA1AA160EFC5815A4FB8E5CA542E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501814   (259753) от 30.05.2012
-
-[PS3] Comix Zone PSN PS3 [3.55] [Английский] (2010)
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет игры рассказывает нам о Скетче Тернере - художнике и рок-музыканте, который работает над своим новым комиксом о вторжении инопланетян. Однажды ночью, во время грозы, в дом Тернера ударяет молния. Электрический разряд магическим образом отправляет Скетча в его нарисованный мир, где он теперь должен спасти Землю от пришельцев. Главный злодей Мортус, наоборот, из комиксов попадает в реальный мир, и оттуда всячески противодействует нашему герою.2010Жанр: ActionЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500010   (257360) от 23.05.2012
-
-[PSP] Persona 2: Batsu [JAP] (2012)
-
->>Консольные Игры
->>PSP
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257360.jpg" />
-</div>
-
-
-###  Подробнее
-
-На город Сумару кто то наложил страшное проклятие, которое подобно инфекции стремительно распространяется. Более того уже началась серия жестоких убийств. Вам предстоит разобраться во всем этом круговороте мистики и ужасов. Кстати об ужасах. Моментов, способных изрядно пощекотать нервы предостаточно. Практически нигде вы не сможете чувствовать себя в полной безопасности. Многочисленные демоны и монстры, населяющие бесчисленные темные уголки мира будут преследовать вас на протяжении всей этой увлекательной игры...2012Жанр: JRPGЯзык интерфейса: JAP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2D958A7DC389A2CD4C74527A284DE349CF76966
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226650   (255000) от 19.04.2023
-
-Transformers: Devastation (2015) [PS3] [EUR] 4.75 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вступите в сражение против Десептиконов и главного врага по имени Мегатрон в новой захватывающей игре Transformers: Devastation. Игрокам будут доступны превращения автоботов из роботов в транспортные средства, не занимающие много времени, огромное количество уникальных ударов, среди которых – атаки, контратаки, броски и прочие комбинации. Оригинальная боевая система, (   Читать дальше...   )Тип издания: LicenseРазработчик: Platinum GamesЖанр: Action, Hack and slash, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47E9C0B94183A0F5C03FF6C2B2B2CF450C2D82A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354027   (254602) от 03.05.2023
-
-Dead Space 3 (2013) [PS3] [EUR] 3.30 [HEN / CFW] [Repack / DLC] [Ru/Multi]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dead Space 3 отправляет Айзека Кларка и незнающего жалости солдата Джона Карвера в глубины космоса на поиски источника нашествия Некроморфов. Совершив аварийную посадку на скованной холодом планете Тау Волантис, Айзек вынужден противостоять враждебной среде, искать необходимые ресурсы и оборудование. Играйте в одиночку за Айзека Кларка или сражайтесь вместе с другом (   Читать дальше...   )Тип издания: RepackРазработчик: Visceral GamesЖанр: Action, Horror, ShooterЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BC3A34A39F16C35599F5C19C7EDC56ABDEC8FA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

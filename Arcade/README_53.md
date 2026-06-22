@@ -1,3 +1,55 @@
+###  Публикация: 1740320   (33534) от 21.12.2024
+
+Ashes of the Union (2024) [Ru/Multi] (0.3.5 Hotfix 2) Repack FitGirl
+
+>>След.
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам предстоит исследовать разрушенные советские села и города на вооруженной до зубов технике в поисках полезных ресурсов и информации. Уничтожать насекомых-мутантов встречающихся на пути, преодолевать сложные ландшафты и препятствия. В середине 20 века, когда мир стоял на пороге новых открытий и перемен, Советский Союз столкнулся с невиданным ранее испытанием.Тип издания: RepackРазработчик: 700 Games StudioЖанр: Экшены, Инди, ГонкиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B984BE60C4990A7F714A40B31D5607CCE72C36A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757217   (33218) от 24.12.2024
+
+Kong: Survivor Instinct (2024) [Multi] (1.0.4) Scene Rune
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kong: Survivor Instinct - это 2.5D экшен-платформер, действие которой происходит в городе, опустошенном внезапным нападением титанов. Игрок будет играть за Дэвида, отца, который бродит среди руин в поисках своей пропавшей дочери Стейси и ему придется много работать, чтобы выжить как с враждебными людьми, так и с близкими столкновениями с монстрами.Тип издания: SceneРазработчик: 7LevelsЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:263970F52CAEA6B9D23E0CB2EFD19C8354CA3A26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729584   (33195) от 24.12.2024
 
 Nine Sols (2024) [Ru/Multi] (202412161711) Repack FitGirl
@@ -6,7 +58,7 @@ Nine Sols (2024) [Ru/Multi] (202412161711) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33195.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Exographer (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32954.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Viscera (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32775.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Only Up! Skibidi Together (2024) [Ru/Multi] (1.0) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32738.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Only Up 2! (2023) [Ru/Multi] (1.0) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32727.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ The Binding of Isaac: Rebirth (2014) [En] (1.0.1.1f/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32653.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Ink Inside (2024) [Multi] (1.0.2) Repack FitGirl [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32415.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Penny Blood: Hellbound (2024) [Multi] (1.0.00628) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32363.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Slopecrashers (2024) [En] (1.0.0.4) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32345.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Snow Bros. Wonderland (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32341.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Snow Bros. Wonderland (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32282.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Finding Frankie (2024) [Ru/Multi] (Build 16260850) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32218.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32116.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Tekken 8 (2024) [Ru/Multi] (1.10.01/dlc) Repack seleZen [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31945.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Only Up: Lizards Must Fall / Only Up: Восхождение Русов (2025) [
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31853.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Adventure Allies (2025) [Ru/Multi] (build 16612391) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31832.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Living With Sister: Monochrome Fantasy (2024) [En] (20241219/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31746.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Only Up: Lizards Must Fall / Only Up: Восхождение Русов (2025) [
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31526.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Warden's Will (2025) [Ru/Multi] (1.0.0c) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31512.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Warden's Will (2025) [Ru/Multi] (1.0.0c) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31375.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Warden's Will (2025) [Ru/Multi] (1.0.0c) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31302.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31272.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Bugs Bunny & Taz: Time Busters (2000) [Ru/Multi] (1.0) Repack Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31007.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ JUMP! The Floor Is... (2025) [Ru/Multi] (build 16957809) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30998.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ JUMP! The Floor Is... (2025) [Ru/Multi] (build 16957809) Repack seleZen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B447165721B8594FA9202F97C2BF87D4EEE092C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774462   (30229) от 21.01.2025
-
-My Memory of Us (2018) [Ru/Multi] (Build 16287132) Repack FitGirl
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30229.jpg" />
-</div>
-
-
-###  Подробнее
-
-My Memory of Us – это воспоминание о дружбе между мальчиком и девочкой. Дружбой, которая объединяла их в трудные времена. Во времена террора, боли и изгнания, когда люди были вынуждены жить в двух искусственно разделенных мирах. Вы любите истории? Если да, то я вам сейчас расскажу одну историю. Но это не просто старая байка. Она другая, ведь речь в ней пойдет про (   Читать дальше...   )Тип издания: RepackРазработчик: Juggler GamesЖанр: Экшны, Приключение, ДрамаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2711366D0928289602E0210BBDB829D062692B17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774945   (29984) от 24.01.2025
-
-STAR WARS: Episode I: Jedi Power Battles (2025) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29984.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отвоюйте королевский дворец Тида в быстрой и яростной экшен-игре со световыми мечами. С вами Сила и ваш верный световой меч, а значит, пора встать против легионов боевых дроидов, дроидов-разрушителей, ликвидаторов и других существ из фильма «Звездные Войны: Эпизод I - Скрытая угроза». Отправьтесь в галактику «Звездных войн» в сайд-скроллерной экшен-аркаде - Играйте (   Читать дальше...   )Тип издания: RepackРазработчик: LucasArts Entertainment Company, Aspyr MediaЖанр: Action, ArcadeЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91CEA4130ADCFC23830BE36F2AD84720E708287F
 ```
 
 https://mybot314.ru/tekegram_catalog/

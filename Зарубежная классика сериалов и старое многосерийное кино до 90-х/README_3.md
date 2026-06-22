@@ -1,3 +1,83 @@
+###  Публикация: 1416471   (352826) от 22.10.2020
+
+Луи Фейад. Фантомас / Fantomas (1913-1914) DVDRip (фильмов 5 из 5) [VO]
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Зарубежная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352826.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименному авантюрному роману Марселя Аллена и Пьера Сувестра.
+Легкое, примитивное, развлекательное чтиво превратилось в аналогичный фильм. Правда, фильм, ввиду недостаточной "технологичости" производства, оказался почти полностью лишен динамики. Тем не менее, стоит отметить, что Фейяд преотлично вычленил главную фишку романа. Его Фантомас, таинственный (   Читать дальше...   )Производство: Франция, GaumontЖанр: Криминал, драма, немое киноРежиссер: Луи ФейадАктеры: Рене Наваро, Эдмунд Бреон, Жорж Мельхиор, Рени Карл, Джейн Фабер, Андре Вольберт, Надьер Мейлар, Иветт Андрейор, Андре ЛюгеПеревод: Одноголосый любительский (Ivanov)Субтитры: Французские интертитры (закадровый перевод по русски)Продолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:582F6ACEFCFD98388AC52CA372774BF9417D18F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579290   (338578) от 26.09.2022
+
+Герои Хогана / Hogan's Heroes (1966-1967) BDRemux [H.264/1080p] (сезон 2, серии 1-30 из 30) Дольский
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Зарубежная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал рассказывает о группе американских военнопленных, заключенных в немецкий концлагерь во время Второй мировой войны. Товарищами по несчастью руководит изобретательный полковник Хоган, который даже будучи в плену, находит множество возможностей саботировать врага. Комендант лагеря полковник Клинк хочет только одного — чтобы у него не было проблем с начальством. (   Читать дальше...   )Производство: США / Bing Crosby Productions, Bob Crane EnterprisesЖанр: комедия, военныйРежиссер: Джин Рейнольдс, Эдвард Х. Фельдман, Брюс БилсонАктеры: Джин Рейнольдс, Эдвард Х. Фельдман, Брюс Билсон, Марк Дэниелс, Боб Суини, Ховард Моррис, Ричард Кинон, Джерри Лондон, Роберт Батлер, Джон Рич, Ирвинг Дж. МурПеревод: Авторский (Дольский)Язык озвучки: русский, английскийСубтитры: английские, немецкиеПродолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C64D9D2D19B890D0CD3EE98D5438FFF136A827A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 259276   (334140) от 17.11.2010
+
+Спрут / La piovra (1984-1992) TVRip (сезоны 1-6)
+
+>>След.
+>>Зарубежная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334140.jpg" />
+</div>
+
+
+###  Подробнее
+
+В небольшой сицилийском городке убивают начальника уголовного розыска Маринео. Кажется, что это преступление мафии. В тот же день становится известно еще об одной смерти. Покончила с собой маркиза Печчи Шалойя.
+На место убитого комиссара назначают Коррадо Каттани, опытного полицейского, который переезжает на Сицилию с женой и дочерью. Расследуя убийство предшественника, (   Читать дальше...   )Жанр: Криминал, Мелодрама, СемейныйРежиссер: Дамиано Дамиани (1), Флорестано Ванчини (2), Луиджи Перелли (3-6)Актеры: Микеле Плачидо, Джулиана Де Сио, Франсуа Перье, Алэн Кюни, Франциско Рабаль, Мари Лафоре, Луиджи де Филиппо, Ремо Жирон, Пьер Ванек, Поль Гуэр, и др.Перевод: Русский МногоголосыйПродолжительность: 36 серий примерно от 60 до 100 минут
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579289   (330610) от 01.10.2022
 
 Герои Хогана / Hogan's Heroes (1965-1966) BDRemux [H.264/1080p] (сезон 1, серии 1-32 из 32) Дольский
@@ -6,7 +86,7 @@
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330610.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324334.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_300565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_300565.jpg" />
 </div>
 
 
@@ -85,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283380.jpg" />
 </div>
 
 
@@ -111,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276036.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265536.jpg" />
 </div>
 
 
@@ -164,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262159.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252710.jpg" />
 </div>
 
 
@@ -216,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250288.jpg" />
 </div>
 
 
@@ -242,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249951.jpg" />
 </div>
 
 
@@ -268,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247784.jpg" />
 </div>
 
 
@@ -294,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247366.jpg" />
 </div>
 
 
@@ -320,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247364.jpg" />
 </div>
 
 
@@ -346,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247071.jpg" />
 </div>
 
 
@@ -372,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247058.jpg" />
 </div>
 
 
@@ -398,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245436.jpg" />
 </div>
 
 
@@ -424,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243576.jpg" />
 </div>
 
 
@@ -450,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243518.jpg" />
 </div>
 
 
@@ -476,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241959.jpg" />
 </div>
 
 
@@ -502,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221485.jpg" />
 </div>
 
 
@@ -528,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_218299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218299.jpg" />
 </div>
 
 
@@ -554,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215839.jpg" />
 </div>
 
 
@@ -581,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215607.jpg" />
 </div>
 
 
@@ -592,86 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EF00B7B9FCBFEA493B3E17E619185247B641DFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571585   (208659) от 07.09.2022
-
-Такси / Taxi (1978-1983) DVDRip [H.264] (сезон 1-5, серии 1-114 из 114) CBS Drama
-
->>Классика сериалов и многосерийное кино до 90-х
->>Зарубежная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сотрудники такси в Нью-Йорке ходят на свою работу, мечтая о более высоких достижениях.Производство: США / John-Charles-Walters Productions, Paramount TelevisionЖанр: комедияРежиссер: Джеймс Берроуз, Ноам Питлик, Майкл ЦинбергАктеры: Джадд Хёрш, Дэнни ДеВито, Мэрилу Хеннер, Тони Данза, Энди Кауфман, Кристофер Ллойд, Дж. Алан Томас, Джефф Конэвей, Кэрол Кейн, Рэндолл КарверПеревод: Двуголосый профессиональный (CBS Drama)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (SDH)Продолжительность: ~00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B83D817B4BE6B132C43B432CD41063BD27F349F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576733   (208027) от 15.09.2022
-
-Сёгун / Shogun (1980) BDRip (сезон 1, серии 1-3 из 3) Домашний
-
->>Классика сериалов и многосерийное кино до 90-х
->>Зарубежная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208027.jpg" />
-</div>
-
-
-###  Подробнее
-
-XVI век. Английское судно терпит крушение у берегов Японии. Выжившие члены экипажа, среди которых лоцман Джон Блэкторн, попадают в плен. Могущественный князь Торанага берет Блэкторна, знающего географию, математику и военное дело, под свою опеку. Шаг за шагом англичанин постигает суровые самурайские законы, учит японский язык, вникает в абсолютно чуждую европейцу (   Читать дальше...   )Производство: США, Япония / Asahi National Broadcasting Company, Jardine Matheson Co. Ltd., National Broadcasting Company (NBC), Paramount Television, Toho CompanyЖанр: приключения, история, драма, военныйРежиссер: Джерри ЛондонАктеры: Ричард Чемберлен, Тосиро Мифунэ, Ёко Симада, Фуранки Сакаи, Алан Бэдел, Дэмиен Томас, Джон Рис-Дэвис, Владек Шейбал, Юки Мэгуро, Хидэо ТакамацуПеревод: Многоголосый профессиональный (Домашний)Язык озвучки: русскийПродолжительность: ~03:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A479BEBAF83D2601D3E66F56F932660D323A663
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523994   (207800) от 18.09.2022
-
-Коломбо / Columbo (5 сезон, полный) (1975-1976) [1080i] 2*Blu-ray
-
->>Классика сериалов и многосерийное кино до 90-х
->>Зарубежная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лейтенант Коломбо — антипод классического детектива: он рассеян и несовременен, со своим одним глазом явно не тянет на красавца, курит дешевые сигары, все время ходит в одном и том же мятом плаще, ездит на разваливающемся «Пежо» и за женщинами не ухлестывает, потому как давно и беспросветно женат.Знаменитый фокусник-иллюзионист Сантини боится, что его темное прошлое выплывет на свет. Владелец кабаре Джесси Джером узнал о том, что во время войны под именем Стефан Мюллер Сантини служил надзирателем в концлагере. Поэтому Сантини задумывает убийство.
-
-В тот момент, когда публика ждет его появления из металлического куба, опущенного в аквариум с водой, Сантини (   Читать дальше...   )Жанр: драма, криминал, детективРежиссер: Харви ХартАктеры: Питер Фальк, Джек Кэссиди, Боб Диши, Нехемия Персофф, Роберт Лоджа, Синтия Сайкс, George Sperdakos, Тэйер Дэвид, Редмонд Глисон, Патрик КаллитонПеревод: Двухголосый закадровыйСубтитры: Английские, ЯпонскиеПродолжительность: 01:29:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE38FE5F27D0B7E3FDE39D1034554E0F56DA4936
 ```
 
 https://mybot314.ru/tekegram_catalog/

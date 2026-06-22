@@ -1,3 +1,29 @@
+###  Публикация: 1553928   (580931) от 27.05.2022
+
+Shoaib Khan | Industrial Power Systems (2007) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_580931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Модернизация промышленных энергосистем сдерживается принятием промышленностью крайне устаревшей практики. Промышленность не решается отойти от практики проектирования энергосистем под влиянием экономических проблем и технологий периода после Второй мировой войны. Для того чтобы освободиться от устаревших методов и обеспечить качество продукции и непрерывность работы, (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D100DAE8D7406398DFF03C04B443B3AB987ECCD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 360182   (580724) от 07.07.2011
 
 ВНИИПО | Справочник по огнестойкости и пожарной опасности строительных конструкций [1999] [DJVU]
@@ -6,7 +32,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_580724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_580724.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576055.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576042.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574340.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571964.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571675.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570491.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570490.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570486.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570366.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570214.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570201.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568727.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568651.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568595.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568586.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568436.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568432.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568118.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568073.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567090.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566972.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566958.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566844.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566838.jpg" />
 </div>
 
 
@@ -650,33 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAE8ACB8191EFF38C385CA0357329112B6588F86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234608   (565517) от 08.07.2018
-
-Подборка | Подборка статей по оружию (2018) [CHM]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565517.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой раздаче собраны материалы об оружии. Здесь описаны различные виды пистолетов, винтовок,
-бронетехники, флотилии  и других видов вооружения. Материалы содержат множество иллюстраций.Жанр: Оружейная литература.Формат: CHM
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AC6DD36E87873F2E8DD295D009295638725FD2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1597948   (164427) от 17.12.2022
+
+EdgeView 3 v.3.8.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164427.jpg" />
+</div>
+
+
+###  Подробнее
+
+EdgeView 3 - это новейший просмотрщик изображений. Вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2022Разработчик: © DJ ProductionПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский, Корейский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E244769AC99F184C19DFD14F980261ECF2D2EF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516981   (164426) от 13.12.2021
+
+PhotoScape X Pro 4.1.1 fix [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164426.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoScape X Pro – это простой и быстрый инструмент для редактирования фотографий. Помимо основных функций, таких как изменение размера, обрезка и повороты, вы можете применять различные эффекты и корректировки с помощью всего одного клика. Вы также можете украсить свои фотографии с помощью таких инструментов, как фреймы, наклейки (стикеры) и кисти.
+В качестве более (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2020Разработчик: © 2021 Mooii TechПоддерживаемая ОС: macOS 10.12 или вышеЯзык интерфейса: Английский, немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D30006C98E2A9A57F2FD6C4BAED64752B7634E8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673682   (164425) от 02.11.2023
 
 Topaz Video AI for Mac 4.0.2 [En]
@@ -6,7 +59,7 @@ Topaz Video AI for Mac 4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164425.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Big Sur Cache Cleaner 16.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164396.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Native Instruments Maschine 2 v2.14.6 STANDALONE, VSTi, AUi [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164395.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ Battery Health 3 v1.0.25 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164381.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ Sync Folders Pro 4.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164376.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ Bootstrap Studio 5.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164367.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ Native Instruments Traktor Pro Plus 3 for Mac v.3.10.1.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164363.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ SuperDuper! 3.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164357.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ iStatistica 6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164353.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ Easy Data Transform 1.44.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164349.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ Things 3 v3.13.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164340.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ Apeaksoft Android Toolkit 1.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164338.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ DCommander 3 Premium v3.8.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164335.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ iStatistica Pro 5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164333.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ Artlantis 2021.2 v9.5.2.29009 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164324.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ SwitchResX 4.11.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164310.jpg" />
 </div>
 
 
@@ -433,7 +486,7 @@ Mac FoneLab Android Data Recovery 3.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164308.jpg" />
 </div>
 
 
@@ -459,7 +512,7 @@ Task Office 8.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164305.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ Wondershare UniConverter for Mac 15.0.4 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164265.jpg" />
 </div>
 
 
@@ -512,7 +565,7 @@ ON1 Photo RAW 2024 v.18.0.3.14689  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164263.jpg" />
 </div>
 
 
@@ -538,7 +591,7 @@ AnyDroid 7 v.7.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164255.jpg" />
 </div>
 
 
@@ -564,7 +617,7 @@ SiteSucker Pro 5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164235.jpg" />
 </div>
 
 
@@ -590,7 +643,7 @@ Final Draft 12 v.12.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164214.jpg" />
 </div>
 
 
@@ -618,7 +671,7 @@ FileMaker Pro 19 v19.2.1.14  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164212.jpg" />
 </div>
 
 
@@ -630,58 +683,6 @@ FileMaker Pro - это платформа для разработки и для 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7680B12083B55F9FE56D3CCD4100584BD2CCDD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432371   (164189) от 17.12.2020
-
-Easy Data Transform 1.11.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преобразование файлов Excel и CSV без программирования с помощью Easy Data Transform.Тип издания: macOS SoftwareРелиз состоялся: 01.12.2020Разработчик: Oryx Digital LtdПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CC73376853987D9A513B8BA6E06BDE8AC7EC38E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432366   (164131) от 17.12.2020
-
-TechSmith Camtasia 2020 Studio v2020.0.12 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Camtasia for Mac — эффективное приложение для создания различных видеороликов: от наглядных презентаций до видеоуроков и демонстрационных слайдов для выступлений. Camtasia for Mac делает процесс создания и редактирования видео еще быстрее и удобнее. С новыми удобными программными инструментами время на производство роликов сокращается на 40-60%, а само видео имеет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.12.2020Разработчик: TechSmith CorporationПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECFB0F75F5585574DFF980D8F7B33B5ADED530A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1762885   (32559) от 30.12.2024
+
+Sin Slayers: Reign of The 8th (2024) [Ru/Multi] (1.5.0.6/dlc) Repack Let'sРlay [Supporter Pack]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sin Slayers возвращается на Steam спустя некоторое время в своем лучшем виде. Это сложная RPG Roguelite, в которой вы решаете судьбу мира, взяв на себя его грехи. Сможете ли вы держаться за свет, когда все остальное погрузилось во тьму? Семь смертных грехов. А вы слышали о восьмом? Погрузитесь в безумие в Sin Slayers, RPG Roguelite, где вам предстоит решить, сколько (   Читать дальше...   )Тип издания: RepackРазработчик: goonswarmЖанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36F10546C87F27B755F6C65A978E1AE9E6F4B887
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769788   (32548) от 30.12.2024
+
+Stray Blade (2023) [Ru/Multi] (1.8/dlc) Repack Let'sРlay [Ultimate Bundle]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проявите себя в этом приключенческом экшене, исследуйте развалины загадочной цивилизации и участвуйте в ожесточенных схватках. Легенды гласят о затерянной долине — диком и заросшем зеленью месте, в котором сокрыта великая сила. Вы нашли эти забытые края, но погибли. Спустя некоторое время жизнь вернулась к вам. Но у всего есть своя цена — теперь вы привязаны к этому (   Читать дальше...   )Тип издания: RepackРазработчик: Point Blank GamesЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AA10E0E57C7712F68D596F8A9947526C46FB6CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770023   (32522) от 30.12.2024
+
+Caribbean Legend (2024) [Ru/En] (1.3.5/dlc) Repack seleZen
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Caribbean Legend - пиратская РПГ с открытым миром погружает в захватывающую эпоху карибского пиратства, предлагая пройти увлекательное путешествие в роли Шарля де Мора, молодого французского дворянина, ищущего приключений и помогающего своему брату в Новом Свете. На протяжении 200-часового приключения по разнообразным островам и регионам игроки сталкиваются с огромным (   Читать дальше...   )Тип издания: RepackРазработчик: BlackMark StudioЖанр: Ролевые игрыЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0FB7F430DC518E093A06562A03A752B780B4C2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770428   (32343) от 01.01.2025
+
+Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 16756464) Scene Rune
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Играйте в тактическую RPG с увлекательным, неповторимым сюжетом, действие которого разворачивается в мире пиратов. Капитан Флинт отправляется на поиски загадочного сокровища вместе со своей командой и другом Билли Бонсом. И хотя капитана манит неизведанное, он еще не подозревает, что после этого приключения станет по-настоящему свободен. Отправляйтесь в фантастический (   Читать дальше...   )Тип издания: SceneРазработчик: Savage LevelЖанр: Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB00D9697B233441708809DBBFC8EF10E5B08FA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770427   (32342) от 01.01.2025
 
 Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 16756464) Repack FitGirl
@@ -6,7 +110,7 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 16756464) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32342.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ The Ghost Treasure / Призрачные сокровища (2024) [Ru/Multi] (
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32253.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ The Ghost Treasure / Призрачные сокровища (2024) [Ru/Multi] (
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32203.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 16756464) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32176.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Realms of Arkania: Star Trail (Remake) (2017) [Multi] (1.10) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32171.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.0.1.1) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32145.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Starcom: Unknown Space (2022) [Ru/Multi] (17344) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32139.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (Build 16179329/dlc) Repack seleZen 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31960.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Heads Will Roll Reforged (2023) [Ru/En] (2.02b/dlc) Repack Let'sРlay [Deluxe Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31846.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Coromon (2022) [Ru/Multi] (1.3.6) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31787.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ G.O.P.O.T.A 2 / Г.О.П.О.Т.А 2 (2024) [Ru/En] (1.1) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31731.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ For The King II (2023) [Ru/Multi] (1.3.5) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31624.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Pyrrhic Tales: Prelude To Darkness (2002) [En] (1.8) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31599.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ The Dungeon Of Naheulbeuk: The Amulet Of Chaos (2020) [Ru/Multi] (1.7 51 47889/d
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31435.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Valhalla Path: Survival (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31428.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Teenage Mutant Ninja Turtles: Splintered Fate / Черепашки-ниндзя:
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31221.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Dungeon Defenders: Going Rogue (2022) [En] (0.9.34625EA) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31219.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Exsys (2020) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31208.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Valhalla Path: Survival (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31186.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Lords of the Fallen (2023) [Ru/Multi] (1.7.19/dlc) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31119.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ The Redundant (2025) [Ru/Multi] (build 16931999) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31113.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Status One (2025) [Ru/Multi] (1.0.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31110.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Status One (2025) [Ru/Multi] (1.0.0) Repack seleZen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEDE4964A1CDB7209403177C4A528D808E27D6F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773077   (31095) от 13.01.2025
-
-Bloodstained Ritual of the Night (2019) [Ru/Multi] (1.06/dlc) Repack Let'sРlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bloodstained: Ritual of the Night - это игровой опыт ориентированный на исследование, сайд-скроллерный экшен RPG, объединяющий все лучшие особенности, которые вы знаете и любите из жанра Metroidvania, в одну, наполненную контентом игру. Играйте за Мириам, сироту, изуродованную проклятием алхимика, которое медленно кристаллизует ее тело. Чтобы спасти себя и, конечно (   Читать дальше...   )Тип издания: RepackРазработчик: ArtPlayЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDB5E0CA3EB70259EAB7AEE97DCA8170F8753E08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773091   (31090) от 13.01.2025
-
-Megaloot (2024) [Ru/Multi] (1.14) Repack Pioneer
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31090.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом мире существует загадочная башня, которая воспроизводит самые разные объекты из других реальностей, создавая неопределенное пространство, наполненное монстрами, странными существами, людьми и лутом. Вы оказались в этой реальности, и здесь начинается Ваш путь. Войдя в башню, Вы оказываетесь в жестких битвах, требующих ценных предметов лута - брони, магических (   Читать дальше...   )Тип издания: RepackРазработчик: axilirateЖанр: Казуальные игры, Инди, Ролевые игры, СтратегииЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C8B55C61489B3824719F4B8677584E222692451
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773027   (31087) от 13.01.2025
-
-Book of Demons (2018) [Ru/Multi] (1.05.230215/dlc) Repack Let'sРlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Book of Demons это гибрид Hack & slash и карточной игры, в котором ТЫ опредяеляешь длительность игры. Возьми в руки магические карты вместо обычного оружия и уничтожай армии тьмы в подземельях под Старым Собором. Спаси охваченную ужасом Бумажную Вселенную из когтей самого Архидемона.Тип издания: RepackРазработчик: Thing TrunkЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:771B3D14B64F8B6819F2E61DBF29703513E7A55E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773154   (30956) от 14.01.2025
-
-Status One (2025) [Ru/Multi] (1.0.0) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создайте свой собственный контртеррористический отряд с нуля. Вы являетесь и лидером, и оператором на поле боя. Тренируйте свой отряд, приобретайте лучшее снаряжение и ведите ваших людей в борьбе с различными преступными группировками по всей стране. Вы играбельный персонаж, а также командир отряда. Вы можете участвовать в каждом столкновении или давать команды на (   Читать дальше...   )Тип издания: RepackРазработчик: LastCall StudioЖанр: Экшены, Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5050D3254EAA50BAE7A56C95743E28C83A3F2947
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1038215   (608610) от 27.07.2016
+
+Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H.264/1080i-LQ] (Сезон 16, эпизод 02) [Discovery]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608610.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Профессиональный многоголосый - DiscoveryСубтитры: ОтсутствуютПродолжительность: ~ 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:860B125CF770A851F862E2E3A527E4520173DFAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038214   (608494) от 27.07.2016
+
+Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (Сезон 16, эпизод 02) [Discovery]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608494.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Профессиональный многоголосый - DiscoveryСубтитры: ОтсутствуютПродолжительность: ~ 00:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2294A0708FBEA56B45128ECB35E41C6933740467
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038216   (608492) от 27.07.2016
 
 Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (Сезон 16, эпизод 06) [Discovery]
@@ -6,7 +58,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608492.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608489.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608361.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608245.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607510.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Discovery: 11 Сентября - Звонки из небоскрёбов / 9/11
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607319.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Discovery: Через магию к звёздам / The Pop Illusionist (El Mag
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607130.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ Discovery. Гигантские хабы / Giant Hubs (2018) HDTVRip (серии
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606000.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ Discovery. Дома на деревьях / Treehouse Masters (2014-2015) HDTV [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604857.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ Discovery: Невероятные бассейны / Insane Pools Off the Deep E
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604236.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Discovery. Чудо на Гудзоне / Miracle of the Hudson Plane Crash (200
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603413.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ Discovery. Москиты / Mosquito (2017) HDTVRip [H.264/720p-LQ]
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603403.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ Discovery: Вся жизнь - завод / Factory city (2011) HDTV [H.264/1080
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602875.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ Discovery: Как устроена Земля / How the Earth Works (2013) HDTVR
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602236.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ Discovery. Эд Стаффорд: Игра на вылет / Ed Stafford: First 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601658.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ Discovery. Почему пал Древний Египет? / Why Ancient Egypt 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601565.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ Discovery. Природа человека / Human Nature (2012) SATRip [Сер�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601139.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ Discovery. Преступники Третьего рейха / Hitler's Most Wa
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599121.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ Discovery. Преступники Третьего рейха / Hitler's Most Wa
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599116.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ Discovery. Игра на жизнь / Survive That! (2013) HDTVRip [Сезон 1
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598337.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ Discovery. Игра на жизнь / Survive That! (2014) HDTVRip [Сезон 2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598331.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ Discovery. Встречи на краю света / Encounters at the End of th
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597663.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ Discovery: Крушение Concordia: Взгляд изнутри / Cruise Ship
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597294.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ Discovery: Внутри планеты Земля / Inside Planet Earth (2009) B
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597136.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ Discovery: Внутри планеты Земля / Inside Planet Earth (2009) B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0032C88B5E4B8CF01B3F767C5C509AD4853B2E55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026574   (597090) от 31.07.2016
-
-Discovery. Уличные гонки: Новый Орлеан / Discovery. Street Outlaws: New Orleans (2015) HDTVRip [H.264/720p-LQ] (сезон 1, серия 1-8 из 8)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уличные гонки набирают популярность: в каждом городе идет борьба за первенство в подпольной лиге гонщиков. В передаче "Уличные гонки: Новый Орлеан" вы увидите одну из таких команд. Эта разношерстная группа безбашенных смельчаков участвует в гонках, чтобы доказать, что они самые быстрые. Заезды проходят не реже трёх раз в неделю, и каждый любитель может (   Читать дальше...   )Телекомпания: DiscoveryЖанр: ТелепередачаПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D12921B79FBAE4446DE3137215DF1F2196E2FD72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 841312   (597076) от 31.07.2016
-
-Discovery. Через червоточину с Морганом Фрименом / Through the Wormhole with Morgan Freeman (2014) HDTVRip [H.264/720p] (Сезон 5, 1-10 серия из 10)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Discovery Channel и Морган Фримен снова ведут зрителей за собой на поиски ответов на вопросы, которыми испокон веков интересуется человечество. «Что такое счастье и существует ли оно?», «Когда начался отсчет времени?» и «Как действует гравитация?» - вот лишь несколько тем, о которых пойдет речь в новых выпусках одной из самых популярных программ телеканала. Морган (   Читать дальше...   )Телекомпания: The Incubator, Revelations Entertainment, Discovery Communications, Science ChannelЖанр: Документальный, научно-познавательный, исследования, гипотезыРежиссер: Курт СайенгаПеревод: Двухголосый закадровый (профессиональный)Продолжительность: 10 х ~ 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38789D36BB4DD93F30068152F469939C7AD9BFB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

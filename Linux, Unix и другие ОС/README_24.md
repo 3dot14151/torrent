@@ -1,3 +1,300 @@
+###  Публикация: 1336508   (276854) от 08.11.2019
+
+Red Hat Enterprise Linux 8.1
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Red Hat выпустила дистрибутив Red Hat Enterprise Linux 8.1. Установочные сборки подготовлены для архитектур x86_64, s390x (IBM System z), ppc64le и Aarch64, но доступны для загрузки только зарегистрированным пользователям Red Hat Customer Portal. Исходные тексты rpm-пакетов Red Hat Enterprise Linux 8 распространяются через Git-репозиторий CentOS. Ветка RHEL (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AF000F77DD712C9EC8995CF0BED0202809307F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336507   (275776) от 09.11.2019
+
+Red Hat Enterprise Linux 7.7
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Red Hat выпустила дистрибутив Red Hat Enterprise Linux 7.7. Установочные образы RHEL 7.7 доступны для загрузки только зарегистрированным пользователям Red Hat Customer Portal и подготовлены для архитектур x86_64, IBM POWER7+, POWER8 (big endian и little endian) и IBM System z. Исходные тексты пакетов можно загрузить из Git-репозитория проекта CentOS.
+
+Ветка (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:425F4F78DA953919F6A07C4FEF4A837FC2EDE870
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082617   (275404) от 14.12.2016
+
+CentOS 7.3(1611) [x86_64] 4xDVD + 2xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Состоялся выпуск дистрибутива CentOS 7.1611, вобравшего в себя изменения из Red Hat Enterprise Linux 7.3. Напомним, что номер версии 7.1611 связан с введением в практику ежемесячной сборки rolling-обновлений установочных образов и отражает время очередной сборки, при том, что в рамках подготовки данной сборки репозиторий был переведён на пакетную базу RHEL 7.3, т.е. (   Читать дальше...   )Разработчик: CentOS Linux AltArch SIG (Special Interest Group) и © Red Hat Inc
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79E910DD5DDF4F4C020D5BDFCCB53B793B8F5AFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083297   (274390) от 15.12.2016
+
+Linux Mint 18.1 Serena (Mate) [64bit] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Linux Mint — дистрибутив операционной системы Linux, основанный на Ubuntu LTS. Цель дистрибутива заключается в предоставлении конечному пользователю максимально простой системы, которая будет готова к работе сразу после установки и не потребует загружать наиболее популярное программное обеспечение, в том числе и дополнительные кодеки для воспроизведения популярных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA299658EB7C185FC0092948ECACA3A909B7E4C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189707   (270060) от 06.12.2017
+
+Sublime Text 3 Build 3156 Dev [x86_x64] (deb, rpm, tar.bz2, tar.xz)
+
+>>Linux, Unix и другие ОС
+>>*Nix. Программы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sublime Text — быстрый кроссплатформенный редактор исходных текстов программ. Поддерживает плагины на языке программирования Python.
+Sublime Text не является свободным или открытым программным обеспечением, однако, некоторые его плагины распространяются по свободной лицензии, а также разрабатываются и поддерживаются сообществом разработчиков. Он поддерживает подсветку (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:680640077438F66E9C8F838938E8BAF49D3C02DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338822   (267883) от 17.11.2019
+
+IRIX 5.3 [MIPS] 4xCD
+
+>>Linux, Unix и другие ОС
+>>Другие ОС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267883.jpg" />
+</div>
+
+
+###  Подробнее
+
+IRIX — операционная система, используемая на рабочих станциях и серверах фирмы Silicon Graphics (SGI) архитектуры MIPS. Основана на UNIX System V и включает расширения BSD.
+Основное применение — профессиональные задачи, связанные с применением программного обеспечения, требующего больших графических ресурсов. На домашних компьютерах практически не используется. Использует (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BA67E7941B29968C506C2F48739621DA11BCF9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341186   (262589) от 27.11.2019
+
+Debian GNU/Linux 10.2.0 + nonfree Buster [i386] 4xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Опубликовано второе корректирующее обновление дистрибутива Debian 10, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 67 обновлений с устранением проблем со стабильностью и 49 обновлений с устранением уязвимостей.
+
+Из изменений в Debian 10.2 можно отметить обновление до свежих стабильных версий пакетов flatpak, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F538B4A9509D39B0671A993D8983E7A89A99ADE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341192   (262563) от 27.11.2019
+
+Debian GNU/Linux 10.2.0 + nonfree Buster [amd64] 4xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Опубликовано второе корректирующее обновление дистрибутива Debian 10, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 67 обновлений с устранением проблем со стабильностью и 49 обновлений с устранением уязвимостей.
+
+Из изменений в Debian 10.2 можно отметить обновление до свежих стабильных версий пакетов flatpak, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BB1576AF79B0C65E0E934EAC651517026A39B60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340964   (262557) от 27.11.2019
+
+IRIX 6.5 [MIPS] 12xCD
+
+>>Linux, Unix и другие ОС
+>>Другие ОС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262557.jpg" />
+</div>
+
+
+###  Подробнее
+
+IRIX — операционная система, используемая на рабочих станциях и серверах фирмы Silicon Graphics (SGI) архитектуры MIPS. Основана на UNIX System V и включает расширения BSD.
+Основное применение — профессиональные задачи, связанные с применением программного обеспечения, требующего больших графических ресурсов. На домашних компьютерах практически не используется. Использует (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751C917D2FAF3991C44FC7B281DB58F30B3A6B08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341194   (262547) от 27.11.2019
+
+KNOPPIX 8.6.1 [x32, x64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клаус Кноппер (Klaus Knopper) представил выпуск KNOPPIX 8.6.1, исторически одного из первых дистрибутивов, поддерживающих работу в Live-режиме. Дистрибутив построен на основе оригинального набора загрузочных скриптов и включает в себя пакеты, импортированные из Debian Buster, со вставками из веток Debian "testing" и "unstable". Для загрузки доступна (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74424385CE35C41AAB8FD9C909A2A6E2FC6C47D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838854   (261599) от 25.11.2025
+
+Red Hat Enterprise Linux 10.1 [x86_64, aarch64] 4xDVD 1xWSL
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Red Hat Enterprise Linux (RHEL) - популярная коммерческая операционная система на базе ядра Linux, имеющая открытый исходный код и предназначенная для развёртывания на предприятиях. RHEL можно использовать как серверную систему, а также как рабочую станцию или сервер с графическим окружением GNOME.
+
+Операционная система Red Hat Enterprise Linux ориентирована на стабильность (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17FE448278658634CAE114AB299FBA0C8E5E4B19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626502   (255157) от 15.04.2023
 
 Ubuntu*Pack 22.04 MATE (март 2023) [amd64] 1xDVD
@@ -6,7 +303,7 @@ Ubuntu*Pack 22.04 MATE (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255157.jpg" />
 </div>
 
 
@@ -33,7 +330,7 @@ Ophcrack 3.4.0 (Взлом паролей Windows)[x86] (3xCD)
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253568.jpg" />
 </div>
 
 
@@ -61,7 +358,7 @@ Mathworks Matlab R2023a (9.14) + Update1+ Update2 + Addon Packages [x64] (iso)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252022.jpg" />
 </div>
 
 
@@ -87,7 +384,7 @@ TrueNAS CORE 13.0-U4 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251905.jpg" />
 </div>
 
 
@@ -115,7 +412,7 @@ Debian GNU/Linux 11.4.0 + nonfree (firmware) Bullseye [i386] 2xDVD+3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250316.jpg" />
 </div>
 
 
@@ -143,7 +440,7 @@ Debian GNU/Linux 11.4.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250305.jpg" />
 </div>
 
 
@@ -171,7 +468,7 @@ Kali Linux 2022.1 (ex. BackTrack) [amd64, i386, arm] 8xDVD, 3xCD Аудит бе
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249347.jpg" />
 </div>
 
 
@@ -197,7 +494,7 @@ Sopcast 0.8.2 (ubuntu ppa,.tar.gz) [Multi/Русский]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_249326.jpg" />
 </div>
 
 
@@ -223,7 +520,7 @@ GIMP 2.8 (ubuntu ppa,.tar.bz2)[Multi/Русский]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_248306.jpg" />
 </div>
 
 
@@ -249,7 +546,7 @@ Fedora 36 Workstation Server Beta [x86_64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243659.jpg" />
 </div>
 
 
@@ -276,7 +573,7 @@ Ubuntu*Pack 22.04 Xfce / Xubuntu (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240592.jpg" />
 </div>
 
 
@@ -303,7 +600,7 @@ Ubuntu*Pack 22.04 Unity (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240559.jpg" />
 </div>
 
 
@@ -330,7 +627,7 @@ Ubuntu*Pack 22.04 LXqt / Lubuntu (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240518.jpg" />
 </div>
 
 
@@ -357,7 +654,7 @@ Ubuntu*Pack 22.04 LikeWin (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240254.jpg" />
 </div>
 
 
@@ -384,7 +681,7 @@ Ubuntu*Pack 22.04 GNOME (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240245.jpg" />
 </div>
 
 
@@ -396,303 +693,6 @@ Ubuntu*Pack 22.04 GNOME (март 2023) [amd64] 1xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:379F648E336676D9C0CF5200F29E84F0CB21CA49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626506   (240228) от 15.04.2023
-
-Ubuntu*Pack 22.04 KDE / Kubuntu (март 2023) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB674431DADF96F73AEF3573DA85E60D74693F6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626508   (240167) от 15.04.2023
-
-Ubuntu*Pack 22.04 DDE (март 2023) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC70D122184CE6B6B2A36D77997581737B769BFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546163   (239989) от 22.04.2022
-
-Xubuntu 22.04 Jammy Jellyfish LTS [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Xubuntu 22.04 под кодовым названием Jammy Jellyfish — это выпуск с долгосрочной поддержкой (LTS), который будет поддерживаться в течение 3 лет, до 2025 года.
-
-Команды разработчиков Xubuntu и Xfce добились больших успехов в плане удобства использования, расширенных функций и дополнительных приложений за последние два года. Пользователи, перешедшие с версии 20.04, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23D897CD86C6230F27E3D790DC727D7A0ABF51D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551451   (233365) от 24.05.2022
-
-Xubuntu Custom 22.04 LTS с доп. пакетами [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Модифицированный с помощью Cubic оригинальный образ Xubuntu 22.04 LTS. Предназначен как для установки, так и для проверки функционирования, тестирования, обслуживания ПК, ноутбуков. Весит меньше (2.28GB вместо 2.52GB) так как filesystem.squashfs пересжат xz вместо gzip.
-Добавлены пакеты: cheese chntpw cpu-x ethtool exfatprogs gddrescue gsmartcontrol htop iperf iperf3 (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96B9BC2D879A2BC3214A35774286B997B8B4C225
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578945   (233177) от 25.09.2022
-
-Debian GNU/Linux 11.5.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+3xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как сообщает OpenNET: опубликовано пятое корректирующее обновление дистрибутива Debian 11, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 58 обновлений с устранением проблем со стабильностью и 53 обновления с устранением уязвимостей.
-
-Из изменений в Debian 11.5 можно отметить: Обновлены до свежих стабильных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8B5AFD5E5D75404649F461CF51B1D185B8FF494
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964758   (229065) от 12.12.2015
-
-pfSense 2.2.5-RELEASE [i386, amd64] 2xCD, 16хIMG
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229065.jpg" />
-</div>
-
-
-###  Подробнее
-
-pfSense - компактный дистрибутив для создания межсетевых экранов и сетевых шлюзов.
-Дистрибутив основан на кодовой базе FreeBSD 10.1  :fury:  с задействованием наработок проекта m0n0wall и активным использованием pf и ALTQ.
-Управление дистрибутивом производится через web-интерфейс. Для организации выхода пользователей в проводной и беспроводной сети может быть использован (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5023F244885E55715815E1192F923A13760841B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423078   (228774) от 16.11.2020
-
-SUSE Linux Enterprise Desktop Server 15
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания SUSE представила релиз промышленного дистрибутива SUSE Linux Enterprise 15. Пакеты SUSE 15 уже использованы в качестве основы в поддерживаемом сообществом дистрибутиве openSUSE Leap 15. На основе платформы SUSE Linux Enterprise также сформированы такие продукты, как SUSE Linux Enterprise Server, SUSE Linux Enterprise Desktop, SUSE Manager 3.2 и SUSE Linux (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE1957AA503D2119EDA29D05321F5D9D35D78DD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586295   (228770) от 08.12.2012
-
-Tor Browser 2.3.25-1 [x32, x64] (bundle)
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tor Browser for Linux - удобная и простая модификация Firefox с интегрированной (встроенной) системой TOR, устраняющая проблему установки и сложной первоначальной настройки (для малоопытного пользователя). Tor Browser Bundle предотвращает наблюдение за интернет-соединением пользователя и получение информации о том, какие сайты посещаются, а также скрывает от всех посещаемых хостов информацию о физическом расположении посетителя. Включает в себя программное обеспечение Tor и соответствующим образом настроенный браузер Firefox.
-
-Распаковать и запустить исполняемый файл.Название программы: Tor Browser
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423081   (228765) от 16.11.2020
-
-SUSE Linux Enterprise Desktop Server Workstation 15.1
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228765.jpg" />
-</div>
-
-
-###  Подробнее
-
-После года разработки компания SUSE представила релиз промышленного дистрибутива SUSE Linux Enterprise 15 SP1. Пакеты SUSE 15 SP1 уже использованы в качестве основы в поддерживаемом сообществом дистрибутиве openSUSE Leap 15.1. На основе платформы SUSE Linux Enterprise также сформированы такие продукты, как SUSE Linux Enterprise Server, SUSE Linux Enterprise Desktop, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5874EB378E306F63875F3569564D1CA3764F0266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423085   (228519) от 16.11.2020
-
-SUSE Linux Enterprise Desktop Server Workstation 15.2
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228519.jpg" />
-</div>
-
-
-###  Подробнее
-
-После года разработки компания SUSE представила релиз промышленного дистрибутива SUSE Linux Enterprise 15 SP2. Пакеты SUSE 15 SP2 уже использованы в качестве основы в поддерживаемом сообществом дистрибутиве openSUSE Leap 15.2. На основе платформы SUSE Linux Enterprise также сформированы такие продукты, как SUSE Linux Enterprise Server, SUSE Linux Enterprise Desktop, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DBF19A69D9F75D0CBF2DE1AE0783A7E4B7E9B3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 851551   (226885) от 19.12.2014
-
-Kubuntu 15.04 Vivid Vervet Alpha I [i386, amd64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС *Nix (Alpha, Beta, RC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышел первый  Alpha релиз следующей версии Kubuntu 15.04 -  Vivid Vervet. Kubuntu — производный от Ubuntu дистрибутив Linux. Kubuntu использует графическое окружение KDE вместо стандартного для Ubuntu Unity. Слоган проекта Kubuntu — «Дружественный компьютер». Дистрибутив разрабатывался и поддерживался компанией Canonical Ltd. до версии 12.04. Релиз 15.04 разрабатывается сообществом. Дистрибутив содержит все необходимые программы, которые Вам нужны или могут потребоваться: программу просмотра Интернет, офисный (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59657C58F5D0736259D98CA737574FACBE475F62
 ```
 
 https://mybot314.ru/tekegram_catalog/

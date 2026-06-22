@@ -1,3 +1,81 @@
+###  Публикация: 1841694   (1048055) от 12.12.2025
+
+Barotrauma (2023) [Ru/Multi] (1.11.4.1/dlc) Repack Other s
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Barotrauma - сайд-скроллер, позволяющий играть по сети с другом на пиратке или же бесплатно участвовать во всех мультиплеерных режимах по интернету онлайн. События разворачиваются на просторах океана поблизости Европы. В одиночку или в компании друзей необходимо выживать на подводной лодке. Сетевая игра направлена на взаимодействие членов экипажа. Только действуя (   Читать дальше...   )Тип издания: RepackРазработчик: FakeFish, Undertow GamesЖанр: Экшены, Инди, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57AFBF4B084C950FCD55C6F73352FEFC0AA9E841
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841348   (1047928) от 10.12.2025
+
+Gold Mining Simulator (2017) [Ru/Multi] (1.10.0.12/dlc) Repack FitGirl [Ultimate Gold Edition]
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стань золотоискателем. Тяжело работай, глубоко копай, найди золото и стань самым богатым человеком на Аляске. Используй различные специальные машины, чтобы добыть как можно больше золота! Те, кто никогда даже не мечтал о том, чтобы найти золотой самородок, поднимите руку вверх. A теперь, идите сюда все, мне надо вам кое-что сказать. Остальные пусть радуются опыту, (   Читать дальше...   )Тип издания: RepackРазработчик: Code Horizon, PlayWay S.A.Жанр: Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4FD80203825A3FC1BC19928E04A3F4934FDEEA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841172   (1047790) от 09.12.2025
+
+Snow Plowing Simulator (2024) [Ru/Multi] (build 20948151/dlc) Repack seleZen
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы начинаете свое приключение в центре города с одной простой лопатой, вручную расчищая снег с тротуаров и подъездов к гаражам. После того, как вы заработали немного дополнительных денег, пришло время покупать все более и более серьезные машины и транспортные средства. Чем более эффективное оборудование у вас есть, тем более сложные задания будут доступны для вас (   Читать дальше...   )Тип издания: RepackРазработчик: FreeMind S.A.Жанр: Приключенческие игры, Казуальные игры, Инди, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D7E638B09890B52ACF7B980CF090D341EF4C073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840977   (1047671) от 08.12.2025
 
 Restaurats (2025) [Ru/Multi] (0.19.0.19/dlc) Repack FitGirl [Deluxe Edition]
@@ -6,7 +84,7 @@ Restaurats (2025) [Ru/Multi] (0.19.0.19/dlc) Repack FitGirl [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047671.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Crime Simulator (2025) [Ru/Multi] (1.21 HF) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046922.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.13.378/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046641.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Bridge Constructor Studio (2025) [Ru/Multi] (1.0r11-fix) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046504.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Shortest Trip to Earth (2019) [En] (1.3.7/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046378.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Workshop Simulator (2022) [Ru/Multi] (1.3.13977) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046072.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Atomicrops (2020) [Ru/Multi] (1.6.1f1-g/dlc) License GOG [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045782.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Moonshine Inc (2022) [Multi] (1.0.5) License GOG [Supporter Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044780.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Tortuga - A Pirate's Tale (2023) [Ru/Multi] (1.0.1.46268) Repack DjDI
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044263.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Bus Driving Sim 22 (2023) [Multi] (1.0) License TENOKE
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043199.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Per Aspera (2020) [Ru/Multi] (1.8.1.30444.2023.2.2/dlc) License GOG [Deluxe Edit
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041510.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Factorio (2020) [Ru/Multi] (1.1.35) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041229.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Garbage Truck Simulator (2023) [Ru/En] (1.0) License Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040970.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Warehouse Simulator: Forklift Driver (2023) [En] (1.0) License TENOKE
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040676.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Farming Simulator 19 (2018) [Ru/En] (1.7.1.0/dlc) Repack xatab [Platinum Expansi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035304.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ House Flipper (2018) [Ru/Multi] (1.2366/dlc) License GOG (обновляемая
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034250.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Contraband Police (2023) [Ru/Multi] (1.0) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033817.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Contraband Police (2023) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033581.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Barotrauma (2023) [Ru/Multi] (1.0.70/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033326.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Crossroads Inn (2019) [Ru/Multi] (2.38-3.0.5/dlc) Repack xatab [Anniversary Edit
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033103.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030829.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ House Flipper (2018) [Ru/Multi] (1.2136/dlc) Repack xatab (обновляема�
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029829.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ PC Building Simulator (2018) [Ru/En] (1.10.5/dlc) Repack xatab [Overclocked Edit
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029248.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ PC Building Simulator (2018) [Ru/En] (1.10.5/dlc) Repack xatab [Overclocked Edit
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:272F229EEDF2AB137E5FFA102DAE70E7ECB3F0E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456093   (1025166) от 21.03.2021
-
-Police Simulator: Patrol Duty (2019) [Multi] (1.0) Repack xatab
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повседневная работа полицейских с арестами и погонями за преступниками воплощена в Police Simulator: Patrol Duty. Симулятор полицейского патруля позволяет примерить роль офицера американской полиции, который выполняет свою работу. Город, где разворачивается действие, реализован с помощью мощного движка UnrealEngine 4. Юзер может свободно перемещаться в открытом мире, (   Читать дальше...   )Тип издания: RepackРазработчик: Bigmoon EntertainmentЖанр: СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DA83CF3FC236C7DE07D21A8208B211FE8132DE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413544   (1025148) от 21.03.2021
-
-Train Station Renovation (2020) [Ru/Multi] (2.2.0.1) Repack Other s
-
->>След.
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Train Station Renovation – это игра, действие которой происходит на заброшенных и разрушенных железнодорожных станциях. Нашу работу начнем с маленьких сельских станций, а закончим огромными железнодорожными станциями в больших городах. Игра разделена на 10 карт (станций), на которых Вы будете изучать новые игровые механики, благодаря которым познакомитесь с новыми (   Читать дальше...   )Тип издания: RepackРазработчик: Live Motion GamesЖанр: Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB992A1762816ADB542B3F3FEA11290428B52BED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456858   (1024692) от 24.03.2021
-
-Railroad Corporation (2019) [Ru/Multi] (1.1.12894/dlc) Repack SpaceX [Deluxe Edition]
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Постройте карьеру амбициозного руководителя железнодорожной компании XIX-го века, выполняйте поручения инвесторов. Прокладывайте железные дороги в старые и новые города. Решайте, как использовать проложенные пути, чтобы получить максимальную выгоду для компании. Наслаждайтесь красотой природы - вскоре она будет пронизана извилистыми линиями железных дорог, тоннелями (   Читать дальше...   )Тип издания: RepackРазработчик: Corbie GamesЖанр: Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41402BF0E988DDECE8CAB406E73F6EA67B1E2FA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

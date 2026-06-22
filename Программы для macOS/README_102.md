@@ -1,3 +1,110 @@
+###  Публикация: 1415213   (379104) от 11.10.2020
+
+Seasonality Core 2.7.2 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Seasonality Core - превращает ваш Mac в домашнюю метеостанцию, показывая вам, прогноз погоды с использованием спутниковых и радиолокационных изображений, с помощью которых вы сможете посмотреть облачность и где идет дождь или снег. Также можно посмотреть погоду на следующие 7 дней. Вы можете следить за погодой не только в вашем городе, но и по городам всего мира. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.09.2020Разработчик: Gaucho Software, LLC.Поддерживаемая ОС: macOS 10.8.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CE3B00C5BE610998474FDDC07969E8EBE83B119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415315   (378947) от 11.10.2020
+
+Bongiovi Digital Power Station (DPS) 2.1.0.15 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bongiovi Digital Power Station ™ (DPS) - это идеальное решение для обработки звука которое сочетает в себе усовершенствованную акустическую технологию, созданную звукорежиссерами со страстью к отличному звучанию.
+Bongiovi DPS - запатентованный алгоритм, который оптимизирует аудио в реальном времени. Профили DPS создаются и реализуются для максимальной гибкости звука (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Bongiovi AcousticsПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6D1D06FED2EE3926E609839ECDE33AEE4E9678B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175399   (378764) от 18.10.2017
+
+Productivity Lab for Pages - Templates Bundle 3.2.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Business Template Lab - представляет собой комплект из более, чем 600 шаблонов для Pages, начиная от визитных карточек и информационных бюллетеней, брошюр, календарей, товарных чеков и счетов, заканчивая различными формами для менеджемента и других публикаций.
+
+Сотни профессиональных шаблонов и почти бесконечных возможностей настройки делают этот комплект, самым (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.10.2017Разработчик: JumsoftПоддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF1F41E58D3B8995FAC8F16B2CCC261BC4CE2FB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326908   (378641) от 23.09.2019
+
+LightWave 3D v2019.1.3 [En]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378641.jpg" />
+</div>
+
+
+###  Подробнее
+
+LightWave 3D 2019.1.3 сочетает в себе современное средство визуализации с мощными, интуитивно понятными инструментами моделирования и анимации. В пакет продукта входят инструменты, которые могут стоить дороже в других профессиональных 3D-приложениях, включая 999 бесплатных кроссплатформенных узлов рендеринга, поддержку Windows и Mac UB 64 и 32-битных операционных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: NewTekПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB639244A4E67645855A9793821B78B5CDB9C948
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175414   (378459) от 18.10.2017
 
 Fireplace HD+ - Камин HD+: Заставки и фоны 3.1.0 [En]
@@ -6,7 +113,7 @@ Fireplace HD+ - Камин HD+: Заставки и фоны 3.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378459.jpg" />
 </div>
 
 
@@ -34,7 +141,7 @@ MathType 7 v7.4.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378350.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ DivX Plus Pro 10.8.5 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378051.jpg" />
 </div>
 
 
@@ -87,7 +194,7 @@ CounterPath Bria 4.6.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377810.jpg" />
 </div>
 
 
@@ -113,7 +220,7 @@ Duplicate Detective: Cleaner 1.99.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377510.jpg" />
 </div>
 
 
@@ -142,7 +249,7 @@ Grabber : Screenshot Master 1.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377388.jpg" />
 </div>
 
 
@@ -171,7 +278,7 @@ Adguard 2.5.0.902 release [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376161.jpg" />
 </div>
 
 
@@ -197,7 +304,7 @@ Cookie 5 v 5.11 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374629.jpg" />
 </div>
 
 
@@ -226,7 +333,7 @@ PictureCode Photo Ninja 1.3.8b [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374511.jpg" />
 </div>
 
 
@@ -253,7 +360,7 @@ Fidelia 1.6.5 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374363.jpg" />
 </div>
 
 
@@ -280,7 +387,7 @@ Caramba Switcher 2019.09.16 (beta) [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374089.jpg" />
 </div>
 
 
@@ -307,7 +414,7 @@ Mixed In Key 8 v8.5.3 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374088.jpg" />
 </div>
 
 
@@ -333,7 +440,7 @@ Templates Lab for MS Office 3.2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374067.jpg" />
 </div>
 
 
@@ -360,7 +467,7 @@ Adobe Photoshop Lightroom Classic CC 2019 v8.4.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373974.jpg" />
 </div>
 
 
@@ -386,7 +493,7 @@ World Clock 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373776.jpg" />
 </div>
 
 
@@ -415,7 +522,7 @@ FSMonitor 1.1 (116) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372542.jpg" />
 </div>
 
 
@@ -444,7 +551,7 @@ Entity 1.3.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372134.jpg" />
 </div>
 
 
@@ -470,7 +577,7 @@ Toast Titanium 14.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372058.jpg" />
 </div>
 
 
@@ -496,7 +603,7 @@ ChatMate for WhatsApp 4.2.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371904.jpg" />
 </div>
 
 
@@ -523,7 +630,7 @@ Bundle for iWork 5.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371543.jpg" />
 </div>
 
 
@@ -552,7 +659,7 @@ Microsoft Office Standard 2019 for Mac v16.42 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371156.jpg" />
 </div>
 
 
@@ -580,7 +687,7 @@ Recordam 1.3.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370969.jpg" />
 </div>
 
 
@@ -593,122 +700,6 @@ Recordam 1.3.3 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC9D6467370CED00DAAB239BA40390EC881D738C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254716   (370967) от 15.10.2018
-
-Mirror for Philips TV 2.3 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отображение экрана для телевизоров Philips
-Приложения для зеркального отображения экрана вашего Мака на любом Smart TV. Philips. Никаких проводов и дополнительных аппаратных средств не требуется!
-
-Приложение работает на любой модели Smart TV. Philips с 2012 и позже.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.09.2018Разработчик: AirBeamTV BVПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46360B2E1DDC048A5F572D5188BEA7AC09F212E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254719   (370954) от 15.10.2018
-
-Mirror for Panasonic TV 3.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложения для зеркального отображения экрана вашего Мака на любом Смарт-ТВ Panasonic. Никаких проводов и дополнительных аппаратных средств не требуется!
-Приложение работает на любой модели Смарт-ТВ Panasonic с 2012 и позже.
-
-При использовании приложения, будет возникать задержка в секунд (обычно между 1 и 3 секундами). Так что зеркальное отображение не подходит (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.09.2018Разработчик: AirBeamTV BVПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:802F028F87A63A27872964F1F4C79C6D8A771656
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254711   (370827) от 15.10.2018
-
-Mirror for Sony TV 2.3 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отображение экрана для телевизоров Sony
-Приложения для зеркального отображения экрана вашего Mac на любом Смарт-ТВ Sony. Никаких проводов и дополнительных аппаратных средств не требуется!
-
-Приложение работает на любой модели Смарт-ТВ Sony с 2012 и позже.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.10.2018Разработчик: AirBeamTV BVПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94334533BC4F8E58EB6938A2F851E1C04BF27465
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254706   (370687) от 15.10.2018
-
-Mirror for Samsung TV 3.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отображение экрана для телевизоров Samsung
-Приложения для зеркального отображения экрана вашего Мака на любом Смарт-ТВ Samsung. Никаких проводов и дополнительных аппаратных средств не требуется!
-
-Приложение работает на любой модели Смарт-ТВ Samsung с 2012 и позже.Тип издания: macOS SoftwareРелиз состоялся: 13.10.2018Разработчик: AirBeamTV BVПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87CBECCD48144975AE383030BC55527782D0828F
 ```
 
 https://mybot314.ru/tekegram_catalog/

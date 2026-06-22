@@ -1,3 +1,29 @@
+###  Публикация: 1815253   (5354) от 29.08.2025
+
+Журнал | Домашний повар №4 (73) (2025) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Домашний повар» адресован тем, кто хочет порадовать себя и близких чем-то вкусненьким. Тем, кто с плитой и духовкой на «ты», и тем, кто только планирует научиться готовить. Сборники рецептов «Домашний повар» подскажут, как из привычного набора продуктов приготовить необычное и вкусное блюдо, достойное занять место в семейной книге рецептов. Издание поможет (   Читать дальше...   )Жанр: КулинарияИздательство: ООО "Издательская группа "КАРДОС"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:555D813C0831A6F8DB8DE06549522BF8800D1E3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817218   (3580) от 09.09.2025
 
 Журнал | На нашей кухне №05 (сентябрь-октябрь 2025) [PDF]
@@ -6,7 +32,7 @@
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3580.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3325.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3315.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2489.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2483.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1304.jpg" />
 </div>
 
 

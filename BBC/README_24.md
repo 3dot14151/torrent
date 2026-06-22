@@ -1,3 +1,29 @@
+###  Публикация: 728209   (244286) от 03.04.2022
+
+BBC: Любовница и жена / The Mistress and the Wife (2009) SATRip
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любовница — женщина, состоящая с мужчиной или женщиной в половой связи. В прошлом любовницей называли влюблённую женщину, возлюбленную. В настоящее время обычно это слово означает женщину, состоящую с мужчиной в половой связи, а так же испытывающая по отношению к нему нежные чувства, чаще всего взаимныеТелекомпания: BBCЖанр: Документальный, историяРежиссер: Эмма СейцПеревод: Одноголосый профессиональныйПродолжительность: 00:47:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35D9ABB396D52D71F70080E8CDF8B09F97405395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576743   (235045) от 15.09.2022
 
 Кулинарные жемчужины Европы / Remarkable Places to Eat (2019) WEBRip [H.264/720p] (сезон 1, серии 1-4 из 4)
@@ -6,7 +32,7 @@
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235045.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ BBC. Чувствуешь ли ты это - Как танцевальная м�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232056.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ BBC: Египет. Тайны, скрытые под землей / Egypt: What 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228583.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ BBC: Тигры в доме / Tigers About the House (2014) HDTVRip (Сезон�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224683.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ BBC: Горизонт. Как построить машину времени / H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223497.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ BBC: Биологические часы - как они работают? / Bod
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222343.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ BBC. Панорама. Amazon: Что они знают о нас / Amazon: What
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222022.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ BBC. Как устроены шикарные отели. Эм-Джи-Эм (Ма
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220854.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220432.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ BBC: Жизнь птиц / The Life of Birds (1998) DVDRip (сезон 1, сер
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220273.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ BBC: Детские хирурги: совершая чудеса / Baby Surgeon
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219090.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ BBC. Скрытые вершины (Заповедник Бен-Эй) / The Hidd
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217608.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ BBC. Космическая гонка 21 века / The 21st Century Race for S
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217361.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ BBC: День Д: Последние слова / D-Day: Last Words (D-Day in 14
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216934.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ BBC. Африканские Драконовы горы / BBC: Africa's Dragon M
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215931.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ BBC: Инстинкт человека (Человеческие инстинк�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211376.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ BBC. Белая королева и ее соперницы / The Real White Que
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209885.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ BBC. Как действуют наркотики / How Drugs Work (2011) HDTVRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208846.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ BBC: Планета Земля 2 / Planet Earth II (2016) HDRip (серии 1-6 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207777.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ BBC: Армада. Неизвестная история / Armada: The Untold St
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207042.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206960.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205760.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204799.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ BBC: Дикая Патагония / Wild Patagonia (2015) BDRip [H.264/720p] (�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203941.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203763.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59865B492281142838A1DA3B41EAE74151BD70D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385193   (196491) от 26.06.2023
-
-BBC: Тайны Бермудского треугольника / The Bermuda Triangle Enigma (2018) WEBRip [H.264/1080p-LQ] (серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный цикл передач, состоящий из 3 частей, открывает тайны Бермудского треугольника и зловещих историй, связанных  с ним. Сериал откроет тайны печальной судьбы американского грузового судна «Циклоп», загадочное исчезновение 5 бомбардировщиков - Звена 19, ведь спустя 75 лет, о их судьбе ничего не известно. Также зрители узнают, что такое "волна-убийца". (   Читать дальше...   )Производство: Великобритания, channel5 for British Broadcasting Corporation (BBC)Жанр: ДокументальныйУчастники: Ортис Делей, Рик ЭдвардсПеревод: Многоголосый профессиональный (BBC News - Русская служба)Субтитры: ОтсутствуютПродолжительность: 3 x ~ 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83666EF6CDC30067824E718D6710DEFA1DB70195
 ```
 
 https://mybot314.ru/tekegram_catalog/

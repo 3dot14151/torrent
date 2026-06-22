@@ -1,3 +1,31 @@
+###  Публикация: 1200723   (793806) от 23.01.2018
+
+Granblue Fantasy The Animation | Голубая мечта Грана [2017, TV, 13 эп.] BDrip 1080p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта история о мире, в котором высоко в небесах парят острова всех возможных форм и размеров. Это мир, который был брошен богами.
+Давным давно, существа, которых прозвали Астралами попытались захватить власть над миром своей невероятной силой. Но небожители дали им отпор и победили. Настал мир.
+А наша история начнется с того, как Гран, простой деревенский мальчишка (   Читать дальше...   )Производство: студия A-1 Pictures Inc.Жанр: приключения, фэнтезиРежиссер: Ито ЮкиПеревод: AniPlay (01-13)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26DD9FEDDAD4036C24C9537DEDFF162B808E0C05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200987   (793805) от 23.01.2018
 
 Nekopara | Кошачий рай [2017, OVA] BDrip 1080p raw
@@ -6,7 +34,7 @@ Nekopara | Кошачий рай [2017, OVA] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793805.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ Omoi, Omoware, Furi, Furare | Love Me, Love Me Not | Любит - не люби�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792887.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ Ingress the Animation | Ингресс [2018, TV, 11 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792866.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ Ichigo Marshmallow | Strawberry Marshmallow | Клубничный зефир [�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792633.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ Uchuu Senkan Tiramisu Zwei | Space Battleship Tiramisu Zwei | Космическ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792572.jpg" />
 </div>
 
 
@@ -137,7 +165,7 @@ Uchuu Senkan Tiramisu | Space Battleship Tiramisu | Космический ли�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792570.jpg" />
 </div>
 
 
@@ -164,7 +192,7 @@ Haikyuu!! OVA-1 | Волейбол OVA-1 [2014, OVA, 2 из 2] DVDRip 480 10bit 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792512.jpg" />
 </div>
 
 
@@ -190,7 +218,7 @@ Gekijouban Haikyuu!! | Волейбол (компиляция) [2015, Movie, 4 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792508.jpg" />
 </div>
 
 
@@ -216,7 +244,7 @@ Haikyuu!! Riku vs Kuu | Haikyu!! Land vs Air | Волейбол OVA-3 [2019, OVA
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792507.jpg" />
 </div>
 
 
@@ -242,7 +270,7 @@ Haikyuu!! Karasuno Koukou vs Shiratorizawa Gakuen Koukou | Haikyu!! Karasuno Hig
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792503.jpg" />
 </div>
 
 
@@ -268,7 +296,7 @@ Haikyuu!! Second Season | Волейбол [ТВ-2] [2015, TV, 25 из 25] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792481.jpg" />
 </div>
 
 
@@ -294,7 +322,7 @@ Haikyuu!! | Волейбол TB-1 [2014, 25 из 25] BDRip 1080 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792439.jpg" />
 </div>
 
 
@@ -320,7 +348,7 @@ Oshiete! Galko-chan | Расскажи нам, Гяруко-тян! [2016, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792412.jpg" />
 </div>
 
 
@@ -346,7 +374,7 @@ Ginga Tetsudou 999 / Galaxy Express 999 Movie / Галактический эк�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791970.jpg" />
 </div>
 
 
@@ -372,7 +400,7 @@ Blade Runner: Black Out 2022 | Бегущий по лезвию: Блэкаут 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791872.jpg" />
 </div>
 
 
@@ -401,7 +429,7 @@ Risu no Matoi | Белка и пожарное знамя [1991, OVA, 1 эп.] W
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791842.jpg" />
 </div>
 
 
@@ -428,7 +456,7 @@ Moekan The Animation | Моэкан [2003, OVA, 3 из 3] DVDRip 576p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791816.jpg" />
 </div>
 
 
@@ -454,7 +482,7 @@ Yuukan Club | Клуб веселого времяпровождения [1991, 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791815.jpg" />
 </div>
 
 
@@ -480,7 +508,7 @@ Mikeneko Holmes no Yuurei Joushu | Трёхцветный кот Холмс и �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791809.jpg" />
 </div>
 
 
@@ -506,7 +534,7 @@ Yume de Aetara | If I See You in my Dreams | Увидеть тебя в моих
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791808.jpg" />
 </div>
 
 
@@ -532,7 +560,7 @@ Godzilla 3: Hoshi wo Kuu Mono | Godzilla: The Planet Eater | Годзилла: �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791548.jpg" />
 </div>
 
 
@@ -558,7 +586,7 @@ Donguri to Yamaneko | Жёлуди и горный кот [1988, Movie] VHSRip 4
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791291.jpg" />
 </div>
 
 
@@ -585,7 +613,7 @@ Haikyuu!! Karasuno Koukou vs Shiratorizawa Gakuen Koukou | Haikyu!! Karasuno Hig
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791269.jpg" />
 </div>
 
 
@@ -611,7 +639,7 @@ Gon the Little Fox | Gongitsune [1985, Movie] VHSRip 360p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791261.jpg" />
 </div>
 
 
@@ -638,7 +666,7 @@ Dororo | Dororo and Hyakkimaru | Дороро [ТВ-1] [1969, TV, 26 + Pilot] DV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790928.jpg" />
 </div>
 
 
@@ -649,32 +677,6 @@ Dororo | Dororo and Hyakkimaru | Дороро [ТВ-1] [1969, TV, 26 + Pilot] DV
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A625B692971FDE25A26751568B5415A9712A4517
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202423   (790531) от 28.01.2018
-
-Azure Striker Gunvolt | Armed Blue: Gunvolt | Лазурный воин Ганвольт [2017, ONA, 1 ep.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790531.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ближайшем будущем появились люди со спецспособностями, называемые Семёрки. Япония благополучно живёт под контролем корпорации Сумераги, которая втайне занимается поиском и отловом Семёрок, для проведения над ними различных экспериментов. Злобной корпорации противостоит небольшая группа, называющаяся Перья. К этой группе и примыкает главный герой овашки Ганвольт.Производство: студия LandQ Studios / ランドック・スタジオЖанр: приключенияРежиссер: Одака ЁсинориПеревод: extvolЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E300F67D7362295A65C24313E8A0B6D184AB841A
 ```
 
 https://mybot314.ru/tekegram_catalog/

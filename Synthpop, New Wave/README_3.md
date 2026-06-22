@@ -1,3 +1,61 @@
+###  Публикация: 1395399   (755571) от 10.07.2020
+
+The Reels - Beautiful (1982) LP [MP3|320 Kbps] <Electronic, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Guy's In Love (With You) (4:34)
+02. Where Is The Love? (2:03)
+03. La Mer (3:18)
+04. Cry (3:16)(   Читать дальше...   )Жанр: Electronic, New WaveПродолжительность: 00:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87696516C57CC427181FFEB7CD2E3E514BEB7526
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280900   (755204) от 06.02.2019
+
+Spacehawk - Laser Squad (2018) [MP3|320 Kbps] <Spacesynth, Spacedisco>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:24)
+02. Zeratul's Return (3:55)
+03. Cosmic Expedition (4:28)
+04. Laser Squad (3:53)(   Читать дальше...   )Жанр: Spacesynth, SpacediscoПродолжительность: 00:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B219817E9050D21DB2AC5D591AA2C7E74C8DB9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246468   (751604) от 08.02.2019
 
 Sexy Suicide (ex-Neon Romance) - 2 Albums, 2 Singles (2014-2018) [MP3|320 кб/с] <Synthpop>
@@ -6,7 +64,7 @@ Sexy Suicide (ex-Neon Romance) - 2 Albums, 2 Singles (2014-2018) [MP3|320 кб/�
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751604.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ New Arcades - Proximity (2021) [MP3|320 Kbps] <Synthwave, Retrowave, Dreamwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_749900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749900.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Carpenter Brut - Leather Teeth (2018) [MP3|320 Kbps] <80s, Dark Synth, Retrowave
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749214.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Scandroid - Monochrome (2017) [MP3|320 Kbps] <Synthpop, Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744627.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Scandroid - Scandroid (2016) [MP3|320 Kbps] <Synthpop, Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744624.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Stereo - Back To Somewhere (2015) [MP3|320 кб/с] <Electronic, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743574.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ TodoTodo - Tecnodelia-Tendencias 1980-1981 (2012) LP [MP3|320 Kbps] <Electronic,
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734972.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ ZOT3 - Wave of Memories (2019) EP [MP3|192 Kbps] <Synthpop, Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728871.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Neo-Cyberpunk 2015 (2015) [MP3|320 Kbps] <Dark Electro, Synth Pop, Electro 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728657.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Andrey Zhitnev - The Best Of Playing Space and Ray Orion (2017) [MP3|320 Kbps] <
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724610.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Zoon Politicon - Black In White (2016) 2CD [MP3|320 кб/с] <Electronic, Synth-
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724542.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Hypnotix - Star Gates (2006) 2CD, mCITY Edition 2016 [MP3|320 кб/с] <Electron
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720308.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719247.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ The Violent Youth - Там, где нас нет (2020) [MP3|320 Kbps] <New Wave
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719145.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719143.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719031.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Turbo Drive, Vol. 1 (2020) [MP3|320 Kbps] <Synthpop, New Wave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719023.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Retro Drive: The Soundtrack (2020) [MP3|320 Kbps] <Synthpop, New Wave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718874.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ CHVRCHES - 4 Альбома, 3 EP, 3 Сингла (2013-2018) [MP3|320 kbps]<Syn
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716360.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ FM-84 - Atlas (2016) [MP3|320 кб/с] <Electronic, Synthwave, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713420.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Dead Eyes Open - In Times Like These (1991) [MP3|320 Kbps] <Synthpop, New Wave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711191.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Elegant Machinery - Degraded Faces (1991) [MP3|320 Kbps] <Synthpop, New Wave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711184.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Delpano Shock - Wired (2020) [MP3|320 Kbps] <Synthpop, New Wave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711014.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Retouch - Light Years (2017) [MP3|320 Kbps] <Synthwave, Retrowave, Electronic Ro
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708775.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Retouch - Light Years (2017) [MP3|320 Kbps] <Synthwave, Retrowave, Electronic Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB0928DD6896F1EB03EA3E8CA9F5E7B435FB76EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131732   (706476) от 06.05.2017
-
-Moskva-Kassiopeya - 3 Albums (2015-2017) [MP3|320 Kbps] <Synthpop, Electro, Retrowave, Space Disco, Synthwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Moskva-Kassiopeya - российский электронный проект музыканта Жарикова Александра (также известного под псевдонимом "B A I K A L"), созданный в 2011 году. Стиль проекта характеризуется как сплав электронного саунда 80-х и современных веяний Electro, объединенных единой научно-фантастической концепцией ретро-футуризма, сочетая в себе элементы классической (   Читать дальше...   )Список альбомов:
-2015 - Road To The Stars (Author's compilation)
-2016 - Jupiter And Beyond The Infinite
-2017 - Encounters(   Читать дальше...   )Жанр: Synthpop, Electro, Retrowave, Space Disco, SynthwaveПродолжительность: 02:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D214BF964E08A39168759838B51A4E8218E9B40F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286844   (705363) от 06.03.2019
-
-Silvia - Silvia (1982) Reissue CD, Genetic Music, 2003 [MP3|320 Kbps] <Synth-pop, Minimal, New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zuerst Ich (3:14)
-02. Ich Bin Nicht Die (3:52)
-03. Mata Hari (4:20)
-04. Morderinnen Kusst Man Nicht (3:38)(   Читать дальше...   )Жанр: Synth-pop, Minimal, New WaveПродолжительность: 00:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ECC1670216F65B23F7ABABF9D88A42FB7238BBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

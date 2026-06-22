@@ -1,3 +1,108 @@
+###  Публикация: 566599   (398661) от 27.10.2012
+
+В поисках Немо / Finding Nemo (2003) [1080p] BDRip [Вертикальная анаморфная стереопара 3D]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среди прекрасных тропических морских стихий, в районе Большого барьерного рифа в уединении живет рыба-клоун по имени Марлин. Он растит своего единственного сыночка Немо. Океан и существующие в нем опасности очень страшат Марлина, и он как может ограждает сына от них, но молодой Немо, страдающий излишним любопытством, очень хочет разузнать побольше о таинственном (   Читать дальше...   )Производство: Disney Enterprises Inc. / Pixar Animation Studios / Walt Disney PicturesЖанр: Мультфильм, комедия, приключения, семейныйРежиссер: Эндрю Стэнтон, Ли АнкричАктеры: Альберт Брукс, Эллен ДеДженерес, Александр Гулд, Уиллем Дефо, Брэд Гэррет, Эллисон Дженни, Остин Пендлтон, Стивен Рут, Викки Льюис, Джо РэнфтПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F37FBE179E91C6BA4498DD20750AD39211384CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567283   (396578) от 29.10.2012
+
+В поисках Немо / Finding Nemo (2003) [1080p] Blu-ray 3D  [3D/2D]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среди прекрасных тропических морских стихий, в районе Большого барьерного рифа в уединении живет рыба-клоун по имени Марлин. Он растит своего единственного сыночка Немо. Океан и существующие в нем опасности очень страшат Марлина, и он как может ограждает сына от них, но молодой Немо, страдающий излишним любопытством, очень хочет разузнать побольше о таинственном (   Читать дальше...   )Производство: США, АвстралияЖанр: Мультфильм, Комедия, Приключения, СемейныйПеревод: Дубляж, закадровый многоголосыйСубтитры: (PGS, 3D): Английский, РусскийПродолжительность: 01:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28E33472376149EC16FA1F945C16C7C29E1C0294
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 716086   (394343) от 28.10.2013
+
+Гадкий я 2 / Despicable Me 2 (2013) BDRip [1080p] [Вертикальная стереопара 3D]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394343.jpg" />
+</div>
+
+
+###  Подробнее
+
+В то время как Грю, бывший суперзлодей, приспосабливается к семейной жизни и пытается честным трудом зарабатывать в сфере бизнеса, тайные лаборатории Арктики оказываются украденными. Анти-Злодейская лига решает, что она нуждается в помощи Грю и его новобранцев в расследовании.Жанр: Мультфильм, Фантастика, Комедия, Криминал, Приключения, СемейныйРежиссер: Пьер Соффин, Крис РеноПерсонажи: Стив Карелл, Кристен Уиг, Бенджамин Брэтт, Миранда Косгров, Расселл Брэнд, Кен Жонг, Стив Куган, Элси Фишер, Дэна Гайер, Мойзес АриасПеревод: ДублированныйПродолжительность: 01:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E4CE7F2C78701D6782E443A37F2ACEE13E6C183
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 716398   (393555) от 29.10.2013
+
+Тачки / Cars (2006) BDRip [1080p] [Вертикальная стереопара 3D]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неукротимый в своем желании всегда и во всем побеждать гоночный автомобиль «Молния» Маккуин вдруг обнаруживает, что сбился с пути и застрял в маленьком захолустном городке Радиатор-Спрингс, что находится где-то на трассе 66 в Калифорнии.
+Участвуя в гонках на Кубок Поршня, где ему противостояли два очень опытных соперника, Маккуин совершенно не ожидал, что отныне (   Читать дальше...   )Жанр: Мультфильм, Комедия, Приключения, Семейный, СпортРежиссер: Джон Лассетер, Джо РэнфтПерсонажи: Оуэн Уилсон, Пол Ньюман, Бонни Хант, Ларри Кейбл, Гай Чич, Марин Тони Шэлуб, Гуидо Куарони, Дженифер Льюис, Пол Дули, Майкл УоллисПеревод: ДублированныйПродолжительность: 01:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1527BEEC781294A4669E314C7F04E32C0472FEBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 717403   (391666) от 31.10.2013
 
 Магический кристалл / Maaginen kristalli (2011) BDRip [1080p] [Вертикальная анаморфная стереопара 3D]
@@ -6,7 +111,7 @@
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391666.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391405.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390812.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390781.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390780.jpg" />
 </div>
 
 
@@ -137,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387802.jpg" />
 </div>
 
 
@@ -163,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_387658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_387658.jpg" />
 </div>
 
 
@@ -189,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387520.jpg" />
 </div>
 
 
@@ -215,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387281.jpg" />
 </div>
 
 
@@ -241,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381210.jpg" />
 </div>
 
 
@@ -267,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381195.jpg" />
 </div>
 
 
@@ -293,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377028.jpg" />
 </div>
 
 
@@ -319,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376528.jpg" />
 </div>
 
 
@@ -345,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374649.jpg" />
 </div>
 
 
@@ -371,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371968.jpg" />
 </div>
 
 
@@ -398,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371653.jpg" />
 </div>
 
 
@@ -424,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370918.jpg" />
 </div>
 
 
@@ -450,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362266.jpg" />
 </div>
 
 
@@ -476,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360293.jpg" />
 </div>
 
 
@@ -502,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360149.jpg" />
 </div>
 
 
@@ -528,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359867.jpg" />
 </div>
 
 
@@ -554,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356294.jpg" />
 </div>
 
 
@@ -565,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:456C97231E2F6F307A6F6AE4CBEA7C09BD02681E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 698419   (353927) от 19.09.2022
-
-Хранители снов / Rise of the Guardians (2012) BDRip [1080p] [Вертикальная стереопара 3D]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда злой дух Кромешник посягает на самое дорогое — детские мечты, Северянин, Ледяной Джек, Кролик, Зубная Фея и Песочный Человек впервые объединяются, чтобы создать команду Хранителей снов…Жанр: Мультфильм, Фэнтези, Приключения, СемейныйРежиссер: Питер РэмзиПерсонажи: Крис Пайн,  Алек Болдуин,  Джуд Лоу,  Айла Фишер,  Хью Джекман,  Дакота Гойо,  Хамани Гриффин,  Камиль МакФедден,  Джорджи Грив,  Эмили НордвиндПеревод: ДублированныйПродолжительность: 01:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84503A23061919B9FCD35E29BD4F47122F099878
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 427838   (353923) от 19.09.2022
-
-Теккен: Кровная месть / Tekken: Blood Vengeance (2011) [1080p] BDRip 3D [Горизонтальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лин Сяою, мастер китайских боевых искусств, получает задание от Анны Вильямс из корпорации G, находящейся под командованием Казуи Мисима. Задача Лин состоит в том, чтобы проникнуть в качестве шпиона в Киотскую международную школу и найти студента по имени Син Камия. Однако Син совершает самоубийство по неизвестной причине, и раcследование Сяою заходит в тупик. После (   Читать дальше...   )Жанр: мультфильм, фантастика, боевикРежиссер: Yoichi MoriАктеры: Тиба Иссин, Юки Мацуока, Аманда Селин Миллер, Мамору Мияно, Рётаро Окиаю, Маая Сакамото, Masanori Shinohara, Hidenari Ugaki, Акено ВатанабеПеревод: Закадровый многоголосыйСубтитры: НетПродолжительность: 01:32:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE0455F845D57EE4103F469648CD10D350C93FE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576122   (353908) от 19.09.2022
-
-Храбрая сердцем / Brave (2012) [1080p] Blu-ray [3D/2D]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Испокон веков мифы и легенды окутывают загадочной пеленой живописные отроги Шотландских гор. Искусной лучнице Мериде приходится выбирать свой путь в жизни самостоятельно, и однажды она отказывается следовать древним традициям королевства, бросая вызов могущественным шотландским кланам и их предводителям: нескладному лорду МакГаффину, угрюмому лорду Макинтошу и сварливому (   Читать дальше...   )Жанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Марк Эндрюс, Бренда Чэпман, Стив ПурселлАктеры: Келли Макдоналд, Эмма Томпсон, Билли Коннолли, Джули Уолтерс, Робби Колтрейн, Кевин МакКидд, Крэйг Фергюсон, Сэлли Кингхорн, Эйлид Фрайзер, Пейджи БаркерПеревод: Дублированный |Субтитры: Русский, Украинский, АнглийскийПродолжительность: 01:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2455488201A3C3A4A610207AD31430ABBF20D879
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178536   (353172) от 29.10.2017
-
-Гадкий я 3 / Despicable Me 3 (2017) BDRemux [H.264/1080p] [3D/2D] [ISO]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грядет третье пришествие. Многодетный суперагент, роковая красотка и бессмертные миньоны на подходе. Готовьтесь. Они будут править миром.Производство: США, Illumination Entertainment, Universal PicturesЖанр: Мультфильм, фантастика, боевик, комедия, приключения, семейныйРежиссер: Эрик Гуильон, Кайл Балда, Пьер КоффанПерсонажи: Стив Карелл, Кристен Уиг, Трей Паркер, Миранда Косгров, Дэна Гайер, Нев Шаррел, Пьер Коффан, Стив Куган, Джули Эндрюс, Дженни Слейт ...Перевод: Дублированный (Лицензия BD CEE)Субтитры: Русские (Forced, Full), английские (SDH)Продолжительность: 01:29:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:716FA20CAAB87B927FDF17246A9AA29D0320A5D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

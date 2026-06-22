@@ -1,3 +1,58 @@
+###  Публикация: 1330647   (336847) от 12.10.2019
+
+OmniGraffle Pro 7 v7.11.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336847.jpg" />
+</div>
+
+
+###  Подробнее
+
+OmniGraffle Pro - отличный инструмент для создания сложных графиков, диаграмм, схем. OmniGraffle Pro обладает простым и интуитивно понятным интерфейсом, который обеспечивает легкий доступ к вашим проектам, инструментам и стилям и другим меню. В число инструментов программы входят: кривая Безье, трафареты, кривые и многое другое. Для придания диаграмме презентабельного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Omni GroupПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C71C1BB3C50CD5DDCC66C6BC353C7CF4B045326
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330449   (336846) от 12.10.2019
+
+iClip - Clipboard Recorder & ClipArt Manager 5.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336846.jpg" />
+</div>
+
+
+###  Подробнее
+
+iClip - управляйте данными в буфере обмена.
+С iClip, вы быстро сохраните, организуете доступ к битам информации, которые просто не практично сохранять как целые документы. Утилита имеет удобный пользовательский интерфейс и приятную графику.
+
+iClip позволяет быстро заносить и хранить небольшие фрагменты текста и изображений, интернет адреса и другую информацию. Данные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.10.2019Разработчик: Irradiated Software, LLCПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACBC2852187B60255335DECFBFED156A12567374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330635   (336844) от 12.10.2019
 
 Mate Translate 6.1.2 [Multi/Ru]
@@ -6,7 +61,7 @@ Mate Translate 6.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336844.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ Renamer 6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336736.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ Power Manager 5.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336733.jpg" />
 </div>
 
 
@@ -89,7 +144,7 @@ Audirvana 3.5.23 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336730.jpg" />
 </div>
 
 
@@ -115,7 +170,7 @@ Carbon Copy Cloner 5 v5.1.12 (5830) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336728.jpg" />
 </div>
 
 
@@ -144,7 +199,7 @@ Things 3 v3.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336726.jpg" />
 </div>
 
 
@@ -172,7 +227,7 @@ iVI Video Converter 4 v4.650 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336725.jpg" />
 </div>
 
 
@@ -199,7 +254,7 @@ The Clock - The Best World Clock 4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336723.jpg" />
 </div>
 
 
@@ -227,7 +282,7 @@ Typeface 2 v2.61 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336717.jpg" />
 </div>
 
 
@@ -256,7 +311,7 @@ Librarian Pro 5 v5.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336605.jpg" />
 </div>
 
 
@@ -282,7 +337,7 @@ Scrivener 3 v3.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336603.jpg" />
 </div>
 
 
@@ -309,7 +364,7 @@ TablePlus 2.9 (263) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336599.jpg" />
 </div>
 
 
@@ -336,7 +391,7 @@ Sidify Apple Music Converter 1.4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336589.jpg" />
 </div>
 
 
@@ -363,7 +418,7 @@ Path Finder 8.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336522.jpg" />
 </div>
 
 
@@ -389,7 +444,7 @@ Ableton Live Suite 10 v10.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336472.jpg" />
 </div>
 
 
@@ -415,7 +470,7 @@ Alien Skin Eye Candy 7 v7.2.3.75 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336469.jpg" />
 </div>
 
 
@@ -441,7 +496,7 @@ Records 1.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336441.jpg" />
 </div>
 
 
@@ -468,7 +523,7 @@ WiFi Signal 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336431.jpg" />
 </div>
 
 
@@ -495,7 +550,7 @@ Paragon NTFS for Mac 15.5.62
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336372.jpg" />
 </div>
 
 
@@ -523,7 +578,7 @@ SSH Config Editor 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336239.jpg" />
 </div>
 
 
@@ -552,7 +607,7 @@ Slidepad 1.0.37 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335897.jpg" />
 </div>
 
 
@@ -580,7 +635,7 @@ Usher 2.0 Beta 4566 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335895.jpg" />
 </div>
 
 
@@ -607,7 +662,7 @@ Nova 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335824.jpg" />
 </div>
 
 
@@ -634,7 +689,7 @@ Money Pro - Personal Finance 2.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335822.jpg" />
 </div>
 
 
@@ -647,62 +702,6 @@ Money Pro сократит расходы и покажет полную кар�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DABFDD6CC6DF5C4A6D081C956F12C0077195E52A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420042   (335818) от 30.10.2020
-
-FontExplorer X Pro 7 v7.2.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335818.jpg" />
-</div>
-
-
-###  Подробнее
-
-FontExplorer X Pro предоставляет пользователю всевозможные средства и инструменты, которые позволяют проводить любые операции: сортировать старые шрифты, искать и импортировать новые, проводить выборку из любимых шрифтов и множество других функций.
-
-Программа интересна не только своими организационными возможностями, а они действительно неплохи и включают в себя (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.10.2020Разработчик: Linotype Corp., Woburn, MassachusettsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F7BFC02DCFFFDA0DDBF985E52CCDBCADDE96121
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420048   (335705) от 30.10.2020
-
-Wondershare UniConverter 12.0.6.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wondershare UniConverter - это полный набор инструментов для работы с видео, который позволяет конвертировать, редактировать, улучшать, загружать, записывать, систематизировать, захватывать и просматривать видеофайлы. Конвертируйте видео практически в любой формат видео с 30-кратной скоростью преобразования.
-
-Самое быстрое универсальное решение для развлечений с (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.10.2020Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1AD8B1D8555566E480B742926507C34DD1A6479
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,239 @@
+###  Публикация: 1243537   (492034) от 27.08.2018
+
+Обои - Desktop Wallpapers (4K) Ultra HD. Part (170) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25D7F9D7D3BD37A1916BB614BF38FDE274E3D2DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936940   (492021) от 13.09.2015
+
+Обои - Коллекция обоев FullHD 1920x1080 #45 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция обоев FullHD.Формат: JPGРазрешение файлов: 1920х1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BAE39C75493C416D4831D77D2983AF7B2704967
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054794   (491784) от 20.09.2016
+
+Обои - Computer Desktop Wallpapers Collection 1606-1610 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Довольно известная серия в сети качественных обоев на различную тематику для Вашего рабочего стола.
+В данный пак вошли выпуски 1606-1610.Формат: JPGРазрешение файлов: 1680x1050 - 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C57092B60E99AE09C0F795A4C79877F7AD6B831A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054799   (491781) от 20.09.2016
+
+Обои - LIFEstyle News MiXture Images. Wallpapers Part 1061-1065 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известная серия в сети качественных обоев на различную тематику для Вашего рабочего стола.
+В данный пак вошли выпуски из серии 1061-1065.Формат: JPGРазрешение файлов: 1680x1050 - 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7B5FFE7840FCF8CA17864F5FD616F17DE3529A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158643   (491416) от 16.08.2017
+
+Обои - 100 Best Wallpapers 12 1920x1080 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491416.jpg" />
+</div>
+
+
+###  Подробнее
+
+100 лучших обоев на Ваш рабочий стол в формате Full HD.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0447B04C46132959E443386A9494C13B1FFDAD90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937302   (490044) от 14.09.2015
+
+Обои - Как я провел лето. 1920x1080; 2880x1620 - 170 шт [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картинки, по которым можно легко написать веселое сочинение "в радужных тонах"). Своеобразный набор легких летних  впечатлений: пляжные аксессуары, обувь на песке, сохнущая одежда, ледяная питьевая вода и мороженое, цветочки и шарики на фоне неба, ну и конечно же, молоденькие хорошенькие девчонки в купальниках, без которых лето было бы не лето )). Отдых, (   Читать дальше...   )Формат: JPGРазрешение файлов: 1920x1080; 2880х1620
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EB8385AE9BFB848093887A59A08C30D7E8C0151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937268   (489901) от 14.09.2015
+
+Обои - Коллекция обоев FullHD 1920х1080 #46 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция обоев FullHD.Формат: JPGРазрешение файлов: 1920х1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C8DD3EC69197CCF7E52A01FD057271A7A978559
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 408729   (489748) от 14.09.2015
+
+[Wallpapers] Архитектура - Церкви, храмы, монастыри
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1024x768 - 2592x1944
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD1552B2C25594304E41072684B3BE389092CD9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937385   (489400) от 14.09.2015
+
+Современное искусство - Photomanipulation by soad2k [JPG]
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я soad2k или Джо Мур. Мне нравится абстрактное искусство во всех его формах, экспериментируя с формами цветов и фактур, проектирование, делаю всё, что угодно творчеству. Мне не нравится человек, его повседневная ерунда и драмы. Есть некоторые вещи, в том, что здесь действительно беспокоят меня, но это было действительно сделано быстро и просто для удовольствия. Я (   Читать дальше...   )Формат: JPGРазрешение файлов: от 750х1074 до 1468х822
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8B6F8A065EF4E805B89B37B0F4292572AC662EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404786   (489173) от 27.08.2020
 
 Картинки - Вкусная красота [GIF]
@@ -6,7 +242,7 @@
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489173.jpg" />
 </div>
 
 
@@ -32,7 +268,7 @@ Artworks by Tiziano Vecellio [Графика]
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489151.jpg" />
 </div>
 
 
@@ -58,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489060.jpg" />
 </div>
 
 
@@ -84,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488817.jpg" />
 </div>
 
 
@@ -110,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487943.jpg" />
 </div>
 
 
@@ -136,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487633.jpg" />
 </div>
 
 
@@ -162,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487003.jpg" />
 </div>
 
 
@@ -188,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486886.jpg" />
 </div>
 
 
@@ -214,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486851.jpg" />
 </div>
 
 
@@ -240,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486663.jpg" />
 </div>
 
 
@@ -266,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486078.jpg" />
 </div>
 
 
@@ -292,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486071.jpg" />
 </div>
 
 
@@ -318,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486070.jpg" />
 </div>
 
 
@@ -344,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485711.jpg" />
 </div>
 
 
@@ -370,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485697.jpg" />
 </div>
 
 
@@ -396,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484645.jpg" />
 </div>
 
 
@@ -422,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484571.jpg" />
 </div>
 
 
@@ -433,245 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80F7BF7D8C706F70042E38D861F83B452E369884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938131   (483935) от 17.09.2015
-
-Обои - Закаты 9 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои на тему закатовФормат: JPGРазрешение файлов: 1920x1080 - 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E9BE52CAE84BBF6D343D372E19157EF8FEABDBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938129   (483839) от 17.09.2015
-
-Обои - Водные обои 22 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои на тему водыФормат: JPGРазрешение файлов: 1920x1080 - 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DADF8B81F87E42028BD3603C3C101F4EA6E9C7DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938251   (483831) от 17.09.2015
-
-Обои - Прекрасны эти обезьянки. 1920x1080 - 100 шт [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои с очень выразительными мордашками различных обезьянок, как крупных, так и более миниатюрных. Обезьянки - они абсолютно ничем не хуже нас с вами (если честно, даже лучше), и также по-своему обворожительны и прекрасны, как и самки человека.)Формат: JPGРазрешение файлов: 1920х1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A823F0BCD3A89AE058C84082E43B60BDD5F8F324
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546069   (483335) от 11.09.2012
-
-[Wallpapers] HQ Wallpapers №16
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483335.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HQ Wallpapers №16
-Название: HQ Wallpapers №16
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Количество: 60 шт.
-Расширение (тип) файлов: jpgРелиз от:Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24C42939D472F0CCDFD19D4F5471A639355D0405
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546099   (483252) от 11.09.2012
-
-Best HD Wallpapers Pack (11.09.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CC8B76CDCA2FDBD044BE70FBC53F6457F5E759B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546097   (483238) от 11.09.2012
-
-Computer Desktop Wallpapers Collection (11.09.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C452AA128545AF448E07842A65064BA8CCE600E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545454   (482908) от 11.09.2012
-
-[Обои] Обои для рабочего стола. Спорт
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола на спортивную тему
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84D9DF300109CD0EB49C36A887BCD83C8A5B09FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319543   (482819) от 12.08.2019
-
-Обои - Desktop Wallpapers Full HD. Part (494) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F1CBA3EB04EF1637AC056A55CADCACFA5BDF6D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545758   (482750) от 11.09.2012
-
-[Обои] Обои для рабочего стола. Самолеты и вертолеты
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самолеты и вертолеты.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF07ADE8F2D2D466627F2C50A06985E4E399AD88
 ```
 
 https://mybot314.ru/tekegram_catalog/

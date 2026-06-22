@@ -1,3 +1,31 @@
+###  Публикация: 1064592   (426390) от 20.10.2016
+
+BusyContacts 1.1.3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426390.jpg" />
+</div>
+
+
+###  Подробнее
+
+BusyContacts является менеджером контактов для OS X, что позволяет создавать, находить и управлять контактами более быстрым и эффективным способом.
+
+BusyContacts приносит в управление контактами те же возможности, мощность, гибкость, а также обмен ими, что и для пользователей BusyCal в управлении своими календарями. Более того, BusyContacts интегрируется с BusyCal (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 октября 2016Разработчик: BusyCal, LLCПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский, Голландский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26F08D862FF6D88AD7086DF00D544D8C5E228F5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064599   (426374) от 20.10.2016
 
 ChronoSync 4.7.0 & ChronoAgent 1.6.1 [Multi]
@@ -6,7 +34,7 @@ ChronoSync 4.7.0 & ChronoAgent 1.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426374.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ Ummy Video Downloader 1.59 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426276.jpg" />
 </div>
 
 
@@ -62,7 +90,7 @@ Elements for iWork 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426261.jpg" />
 </div>
 
 
@@ -88,7 +116,7 @@ Graphic Styles 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426253.jpg" />
 </div>
 
 
@@ -116,7 +144,7 @@ Smultron 8.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426242.jpg" />
 </div>
 
 
@@ -145,7 +173,7 @@ Infographics for Pages 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426238.jpg" />
 </div>
 
 
@@ -172,7 +200,7 @@ uBar 4 v4.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426138.jpg" />
 </div>
 
 
@@ -198,7 +226,7 @@ Microsoft Office Standard 2019 v16.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426130.jpg" />
 </div>
 
 
@@ -225,7 +253,7 @@ SQLPro Studio 2020.84 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425978.jpg" />
 </div>
 
 
@@ -251,7 +279,7 @@ Adguard 2.5.0 (892) Nightly [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425720.jpg" />
 </div>
 
 
@@ -277,7 +305,7 @@ Axure RP 9 v9.0.0.3717 Pro / Team / Enterprise Edition macOS [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425575.jpg" />
 </div>
 
 
@@ -303,7 +331,7 @@ Dash 5.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425573.jpg" />
 </div>
 
 
@@ -329,7 +357,7 @@ Reallusion Cartoon Animator 4 v4.3 (2110.1) Pipeline macOS [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425466.jpg" />
 </div>
 
 
@@ -355,7 +383,7 @@ Adobe Premiere Rush v1.5.29 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425283.jpg" />
 </div>
 
 
@@ -381,7 +409,7 @@ Motion 5.4.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425281.jpg" />
 </div>
 
 
@@ -407,7 +435,7 @@ Compressor 4.4.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425272.jpg" />
 </div>
 
 
@@ -433,7 +461,7 @@ Adobe Audition 2020 13.0.10.32 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425271.jpg" />
 </div>
 
 
@@ -459,7 +487,7 @@ Adobe XD 33.1.12.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425183.jpg" />
 </div>
 
 
@@ -485,7 +513,7 @@ Adobe Media Encoder 2020 14.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425166.jpg" />
 </div>
 
 
@@ -511,7 +539,7 @@ Adobe After Effects 2020 17.1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425062.jpg" />
 </div>
 
 
@@ -539,7 +567,7 @@ Graphic 3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425041.jpg" />
 </div>
 
 
@@ -568,7 +596,7 @@ Cookie 5 v5.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424874.jpg" />
 </div>
 
 
@@ -597,7 +625,7 @@ Airmail 3 v3.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424873.jpg" />
 </div>
 
 
@@ -625,7 +653,7 @@ SuperDuper! 3.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424871.jpg" />
 </div>
 
 
@@ -651,7 +679,7 @@ Sip Pro 1.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424869.jpg" />
 </div>
 
 
@@ -663,34 +691,6 @@ Sip Pro 1.1.1 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3075F3B0EF802FC8CA91AE1E86596289032FD25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250580   (424867) от 28.09.2018
-
-Downcast 2.9.36 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downcast , популярное приложение подкаста iOS теперь доступно для OS X! Загрузка, проигрывание и синхронизация ** Ваши любимые подкасты с интуитивным интерфейсом, созданным исключительно для подкастов.
-
-Downcast – программа для загрузки и прослушивания подкастов без необходимости использовать iTunes. Поиск, подписка и скачивание видео и аудио подкастов любого размера. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.09.2018Разработчик: Enterprises LLCПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:108E14DC4B10A66D18EB368A0759784A4FEC412C
 ```
 
 https://mybot314.ru/tekegram_catalog/

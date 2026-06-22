@@ -6,7 +6,7 @@ NEMOPHILA. Oshikura Manju OSARETE WARAOU TOUR at SENDAI (2024) BDRip [H.264/1080
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29148.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Sarah Brightman - The Harem World Tour: Live From Las Vegas (2004) DVDRip [H.265
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28975.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Sarah Brightman - The Harem World Tour: Live From Las Vegas (2004) DVDRip [H.264
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28906.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28904.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28879.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28781.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27961.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27929.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27713.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27411.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Scooter - The stadium techno inferno - Live in Hamburg (2011) DVDRip [H.264/1080
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27398.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27226.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26695.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25936.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25796.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ eRa: The Live Experience 2025 (2025) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23090.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22205.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21666.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21009.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21003.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Lady Gaga на фестивале Coachella 2025 / Lady Gaga at Coachella Festiv
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20926.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Lady Gaga на фестивале Coachella 2025 / Lady Gaga at Coachella Festiv
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20921.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20862.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20857.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20066.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18706.jpg" />
 </div>
 
 

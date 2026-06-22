@@ -1,32 +1,3 @@
-###  Публикация: 1051918   (530678) от 12.09.2016
-
-Tommy Emmanuel, Martin Taylor - The Colonel & The Governor (2013) [FLAC|Lossless|tracks + .cue] <Crossover, Guitar Jazz, Instrumental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Won't Last A Day Without You     (05:11)
-02. Jersey Bounce     (03:54)
-03. Bernie's Tune     (03:28)
-04. A Smooth One     (05:30)(   Читать дальше...   )Жанр: Crossover, Guitar Jazz, InstrumentalПродолжительность: 01:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B6EB6AE221E07C7BB40DB4431040CD3EE6DF26A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558584   (530180) от 21.06.2022
 
 A.J. Poliquin - The Reason (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -35,7 +6,7 @@ A.J. Poliquin - The Reason (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530180.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Andy Robson & Urban Fox - Be Forgiving (2022) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530173.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Black Cat Biscuit - The Way It Is (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530077.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Art Blakey & The Jazz Messengers - Free For All (1964) /2014, Universal/[FLAC|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529995.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Fattburger - Good News (1987) /Intima Records/[FLAC|tracks+.cue]<Jazz, Smooth, J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529945.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ LaBelle - Nightbirds (1974) /2015, Audio Fidelity/ [FLAC|image+.cue]<Funk, Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529930.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Woody Herman - The 3 Herds (1945 - 1954) 2017, Sony Music [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529895.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Lucky Millinder - 1941 - 1942 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529864.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ The Exception - The Exceptional Exception (1969) Remastered /2006, Air Mail Arch
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529821.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VA - Nu Jazz Meets Lounge: Selected Cocktail Bar Beats (2017) [MP3|320 Kbps] <Ja
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529675.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Jeff Menteer - The Nature of My Dreams (2011) [MP3|256 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529275.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ John Coltrane - Blue Train (1957) 2CD, 2010, Not Now Music[FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529261.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ David Kikoski - Phoenix Rising (2019) HighNote [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529226.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Dave Stryker - Eight Track II (2016) Strikezone Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529225.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Dwight Trible - Inspirations (2017) Gondwana Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529224.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Mindi Abair And The Boneshakers - No Good Deed (2019) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529158.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Buddy DeFranco (De Franco) And Oscar Peterson - Play George Gershwin (1954) 1998
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528933.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Buddy Rich - Buddy Rich Band (1981) MCA Records [FLAC|Lossless|tracks + .cue] <M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528864.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Herbie Hancock - This Is Jazz (1998) Columbia [FLAC|Lossless|tracks + .cue] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528860.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Cabinet - The Sugarhouse Sessions (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528852.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Lee Morgan - The Complete Live At The Lighthouse (1970) 8CD, 2021, Blue Note [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528851.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Guido vom Flockenberg - Listen to the Blues (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528848.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Doug Henthorn - Three (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528802.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Wellington Heads - Southern Night Sky (2022) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528800.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Gabriel Delta, Daniele Mignone and Paolo Baltaro - A New World (2022) [FLAC|Loss
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528799.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ Gabriel Delta, Daniele Mignone and Paolo Baltaro - A New World (2022) [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1580853B1C14A42A4CC87CFAC7C421665E4372C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927537   (528767) от 13.08.2015
+
+Fattburger - Living In Paradise (1988) /Intima Records/[FLAC|tracks+.cue]<Jazz, Smooth, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Friends [04:35]
+02. One More Time [05:28]
+03. The Banana Bread Song [05:00]
+04. Imagine That [04:35](   Читать дальше...   )Жанр: Jazz, Smooth, Jazz-PopПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E660950F47220616A655FF2FCE5F87B18EC8C482
 ```
 
 https://mybot314.ru/tekegram_catalog/

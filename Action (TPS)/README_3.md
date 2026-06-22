@@ -1,3 +1,107 @@
+###  Публикация: 1847744   (1052342) от 15.01.2026
+
+Dead Space (2023) [Ru/Multi] (Build 10602756/dlc) Repack Wanterlude [Digital Deluxe Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классический научно-фантастический хоррор с элементами выживания возвращается: погрузитесь в атмосферу космического ужаса, воссозданную с нуля в мельчайших деталях. Умопомрачительная реалистичная графика, пугающе атмосферный звук и усовершенствованный игровой процесс ремейка дополняют неповторимый дух оригинальной Dead Space.Тип издания: RepackРазработчик: MotiveЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48302B13D090D759135DA5F0470B2B2B4D6A75B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847444   (1052248) от 12.01.2026
+
+Dead Space (2023) [Ru/Multi] (Build 10602756/dlc) Repack FitGirl [Digital Deluxe Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классический научно-фантастический хоррор с элементами выживания возвращается: погрузитесь в атмосферу космического ужаса, воссозданную с нуля в мельчайших деталях. Умопомрачительная реалистичная графика, пугающе атмосферный звук и усовершенствованный игровой процесс ремейка дополняют неповторимый дух оригинальной Dead Space.Тип издания: RepackРазработчик: MotiveЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36ED6167E2554FE06F2FF0D18AAF3400D5A07B37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847240   (1051924) от 11.01.2026
+
+Marvel's Spider-Man 2 (2025) [Ru/Multi] (1.526.0.0/dlc) Repack dixen18
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Достичь большего. Вместе. Невероятная сила симбиота становится серьезным вызовом для Питера Паркера и Майлза Моралеса. В этой части знаменитой франшизы им предстоит искать баланс между личной жизнью, дружбой и долгом, призывающим помогать людям. Паучье чутье зудит. Надевайте маску и совершайте подвиги, играя за отважных борцов со злом в «Marvel Человек-Паук 2» на (   Читать дальше...   )Тип издания: RepackРазработчик: Insomniac Games, Nixxes SoftwareЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93BFECE3B3EA0696DBCAA3CA61215E4FCD5933B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847277   (1051870) от 11.01.2026
+
+The Last of Us: Part I / Одни из нас: Часть I (2023) [Ru/Multi] (1.1.5.0/dlc) Repack HardwareMining [Digital Deluxe Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051870.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Last of Us Part I – игра для ПК от 3-го лица, представлена в жанре action-adventure с элементами survival horror. В мире все стало неспокойно. Много лет назад случилась глобальная катастрофа. Неизвестный вирус поразил большую часть Земли и превратил людей в различных зомби. Людям, которые сумели пережить это, теперь приходится бороться за свою жизнь, чтобы не (   Читать дальше...   )Тип издания: RepackРазработчик: Naughty Dog LLCЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Хорватский, Чешский и другиеЯзык интерфейса: Русский, Английский, Хорватский, Чешский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB6CAE02B1BC252CD8EB9DC18193CF929BB93B46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846989   (1051758) от 10.01.2026
 
 Alan Wake Remastered (2021) [Ru/En] (34885/dlc) Repack seleZen
@@ -6,7 +110,7 @@ Alan Wake Remastered (2021) [Ru/En] (34885/dlc) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051758.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Gotham Knights (2022) [Ru/Multi] (6.0.21.0/dlc) Repack FitGirl [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051751.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Gotham Knights (2022) [Ru/Multi] (6.0.21.0/dlc) Repack Let'sРlay [Deluxe Editio
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051682.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Yakuza 6: The Song of Life (2021) [Ru/Multi] (1.009a/dlc) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051622.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Ghost of Tsushima / Призрак Цусимы (2024) [Ru/Multi] (1053.8.1212.1
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051376.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Dead Space (2023) [Ru/Multi] (Build 10602756/dlc) Repack Other s [Digital Deluxe
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051282.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Dead Space (2023) [Ru/Multi] (1.1.14.17871/dlc) Repack Let'sРlay [Deluxe]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051009.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Yakuza 3 Remastered (2021) [Ru/Multi] (1.005a) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050940.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Yakuza 4 Remastered (2021) [Ru/Multi] (1.003a) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050939.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Yakuza 0 (2018) [Ru/Multi] (build 4746539) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050797.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Grand Theft Auto V (5) (2015) [Ru/Multi] (1.0.3725.0/1.72) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050629.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Tunguska: The Visitation (2021) [Ru/Multi] (1.95-1/dlc) Repack FitGirl [Final Cu
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049665.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Dynasty Warriors 8 Empires (2015) [Multi] (1.0) Scene CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049412.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Just Cause 3 (2015) [Ru/Multi] (1.05 Denuvoless/dlc) Repack FitGirl [XXL Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049336.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Just Cause 3 (2015) [Ru/Multi] (Build 20206564/dlc) Repack dixen18 [XXL Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049315.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Double Dragon Revive (2025) [Ru/Multi] (1.1.0.0/dlc) Repack Other s [Deluxe Edit
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049234.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Just Cause 3 (2015) [Ru/Multi] (Build 20206564/dlc) Repack Let'sРlay [XL Editio
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048990.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Hatred (2015) [Ru/Multi] (24112025_135232_rev.20802) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047912.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (47139 build 20790748/d
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047489.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Hi-Fi Rush (2023) [Ru/Multi] (Build 20567064/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047261.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Onimusha 2: Samurai's Destiny (2025) [Ru/Multi] (Build 16840726/dlc) Repack FitG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046920.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ ASTRONEER (2016) [Ru/Multi] (1.36.31.0/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046572.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ ASTRONEER (2016) [Ru/Multi] (1.36.31.0/dlc) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BD29796140F7DD6E4F1D86971266A0B92C55CC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603018   (1045784) от 08.01.2023
-
-X-Blades HD (2022) [Ru/Multi] (1.0) License GOG [Gold]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045784.jpg" />
-</div>
-
-
-###  Подробнее
-
-X-Blades подарит фанатам аниме оригинальное приключение, в котором вы будете играть за милую героиню Аюми. Она умеет захватывающе управлять двумя "ганблэйдами" - оружием, которое используется как в ближнем, так и дальнем бою. В мире видеоигры существуют две противоборствующие силы – Тёмные и Светлые. Но произошёл инцидент, благодаря которому обе стороны (   Читать дальше...   )Тип издания: LicenseРазработчик: Gaijin EntertainmentЖанр: Экшны, От третьего лица, ФэнтeзиЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C35C01FA1B475F082B50E0376386E7608AAF17DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277730   (1045617) от 10.01.2023
-
-Lara Croft Tomb Raider Trilogy (2006-2008) [Ru/Multi] Repack R.G Catalyst
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045617.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новой части сверхпопулярной игровой серии грациозная и смертоносная героиня вновь отправится в путешествие по всему миру, исследует заброшенные столетиями храмы и сразится с коварными и опасными врагами. Поклонников ожидают многочисленные новинки игрового процесса, который стал еще увлекательнее!Тип издания: RepackРазработчик: Crystal DynamicsЖанр: Action (Shooter), 3D, 3rd Person, AdventureЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A31C39E54ED379D90C6B0D4DA06B1350DAC4F785
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609533   (1043196) от 03.02.2023
-
-CRISIS CORE –FINAL FANTASY VII– REUNION (2022) [Multi] (1.0) License FLT
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главным героем игры является юный воин Зак Фэйр. Им восхищается будущий спаситель мира, его уважают герои легенд и любит девушка, держащая в своих руках судьбу планеты. История о мечте и чести Зака во всех подробностях рассказана в этой великолепной саге, далеко выходящей за рамки простого переиздания.Тип издания: LicenseРазработчик: Square Enix, TOSE CO., LTD.Жанр: Action, RPGЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Французский, Немецкий, Итальянский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8E65FC0F9F2320E6D510434111E82E6DC4529D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438060   (1041245) от 07.01.2021
-
-Devil May Cry 5 (2019) [Ru/En] (1.0.0.1.05962864/dlc) Repack xatab [Deluxe Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучший охотник на демонов возвращается в новом стильном боевике. В пятой части легендарной серии Devil May Cry вы вновь сможете насладиться сверхскоростными сражениями с участием невероятных персонажей. Новейшие технологии компьютерной графики позволили Capcom создать этот непревзойденный шедевр жанра экшен.Тип издания: RepackРазработчик: CAPCOMЖанр: Action, Hack and slash, 3rd PersonЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF365A6F78472F0B2504F6BD9ED60B0DD1058B3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

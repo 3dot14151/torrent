@@ -1,3 +1,29 @@
+###  Публикация: 1835920   (251820) от 08.11.2025
+
+Ледяная башня / La tour de glace / The Ice Tower (2025) WEB-DLRip [H.264] [FRA / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (SD, DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251820.jpg" />
+</div>
+
+
+###  Подробнее
+
+1970-е годы. Сирота Жанна сбегает из детского дома в город. Девушка находит пристанище в местной киностудии. Там она попадает под чары Кристины, загадочной звезды фильма «Снежная королева», который снят по её любимой сказке. Между актрисой и девушкой завязываются сложные отношения.Производство: Франция, Германия, Италия / Bayerischer Rundfunk (BR), Arte France Cinéma, Albolina Film, 3B Productions, Sutor KolonkoЖанр: фэнтези, драмаРежиссер: Люсиль АдзиалиловичАктеры: Марион Котийяр, Клара Пачини, Аугуст Диль, Марине Гесберт, Лила-Роз Жильберти, Гаспар Ноэ, Дуня Сычева, Валентина Веццали, Кассадра Луис Урбен, Вильгельм Бонелл, Рафаэль РебульПеревод: Субтитры (Dark Alice)Язык озвучки: французскийСубтитры: русские, английскиеПродолжительность: 01:57:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EFD88D4ACDEBAD82ECAF1E82E3AD7E84924448E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619611   (245533) от 23.03.2023
 
 Растин / Rustin (2001) DVD5 [EN]
@@ -6,7 +32,7 @@
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245533.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245509.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241730.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224476.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220756.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219828.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217038.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216620.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200173.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198405.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193679.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187988.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ The Fanimatrix: Run Program (2003) DVDRip [EN]
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183594.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181326.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181194.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176420.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164793.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160373.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158674.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158466.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158305.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157916.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149140.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147188.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143950.jpg" />
 </div>
 
 
@@ -642,34 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76ED0B119A73FC24B5DE3B0E3A97FE63E64B0412
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466230   (142244) от 29.12.2014
-
-Проделки близнецов / Das Doppelte Lottchen (1950) VHSRip [DE/EN, DE, RU Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (SD, DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Близнецы Луиза и Лотта разделяются в младенчестве из-за развода родителей. Луиза вырастает у отца, дирижера в Вене, Лотта у матери, редактора журнала в Мюнхене. Когда им исполняется 10, они встречаются в летнем лагере, узнают правду и меняются местами, чтобы помочь родителям снова воссоединиться.
-
-Доп. информация: Die Zwillinge Luise und Lotte werden als Babys wegen der Scheidung der Eltern getrennt. Luise wächst beim Vater, Dirigent in Wien, Lotte bei der Mutter, Zeitschriftenredakteurin in München, (   Читать дальше...   )Жанр: Комедия, Мелодрама, СемейныйРежиссер: Йозеф фон Баку/Josef von BákyАктеры: Петер Мосбахер, Ютта Гюнтер, Иза Гюнтер, Антье Вайссгербер, Зента ВенграфПеревод: отсутствуетЯзык субтитров: Английский, Немецкий, РусскийПродолжительность: 01:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91F8E8EBA481ADDBE80CF1109F4BDD58FA0E2CD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

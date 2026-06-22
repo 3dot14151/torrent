@@ -1,3 +1,107 @@
+###  Публикация: 1354308   (988751) от 21.01.2020
+
+Brothers - A Tale of Two Sons (2013) [Ru/Multi] (1.0/upd1) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Управляйте двумя братьями в сказочном приключении от мечтательного шведского режиссера Джозефа Фареса и первоклассного разработчика Starbreeze Studios. В инновационном одиночном режиме вам придется управлять сразу двумя братьями. Решайте головоломки, исследуйте игровые зоны и сражайтесь с боссами, управляя каждым братом с помощью своего мини-джойстика. Один мужчина (   Читать дальше...   )Тип издания: RepackРазработчик: Starbreeze Studios ABЖанр: Adventure, Action (Puzzle), 3DЯзык озвучки: Искусственный (Conlang)Язык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7CF2B1194EE36CC40916035A7598ADDCE8D45C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354846   (985779) от 24.01.2020
+
+HellScape: Two Brothers (2020) [Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hellscape: Two Brothers - это путешествие через ад, вдохновленное Божественной комедией Данте Алигьери. Два брата берут на себя задачу найти и спасти свою сестру, похищенную слугами дьявола. По мере продвижения через сражайтесь с демонами и исследуйте круги Ада, соберите информацию, чтобы разгадать историю исчезновения сестры.Тип издания: LicenseРазработчик: B100 GamesЖанр: Action, Adventure, LinearЯзык субтитров: Английский, Турецкий, Испанский, НемецкийЯзык интерфейса: Английский, Турецкий, Испанский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85040EC3A57E3538478884338568D71CA9930DF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355359   (983238) от 26.01.2020
+
+Path of Zen (2020) [En] (1.0) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983238.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Path of Zen» - это приключение, которое приводит игрока к спокойной прогулке по парку, где он исследует, как его мысли могут влиять на восприятие реальности. Игра представляет собой небольшое введение в медитацию с помощью короткого дыхательного упражнения и призвана дать игроку осознанный взгляд на то, как он можем справляться со своими мыслями. Присоединяйтесь (   Читать дальше...   )Тип издания: LicenseРазработчик: Longest Road StudioЖанр: Приключения, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DC4E4C1D9A94EF6A9B29C447D436994DB7004B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355345   (983142) от 26.01.2020
+
+Runner Heroes: The curse of night and day (2020) [Ru/Multi] (1.0) License HOODLUM
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983142.jpg" />
+</div>
+
+
+###  Подробнее
+
+RUNNER HEROES - это уникальное приключение, в котором вы управляете двумя персонажами одновременно. Откройте тайну проклятия героев, которое проявляется для одного ночью, для другого - днем. Веселье и мистические приключения на полной скорости через 47 уровней. Принимаете ли вы вызов?Тип издания: LicenseРазработчик: IKIGAI PlayЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08F73E9BB79C37C6A667CE24BADCE353EEE27D60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355781   (980810) от 28.01.2020
 
 Lightmatter (2020) [Ru/Multi] (1.02) License HOODLUM
@@ -6,7 +110,7 @@ Lightmatter (2020) [Ru/Multi] (1.02) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980810.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Last in Orbit (2020) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980759.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Louisiana Adventure / Однажды в Луизиане [Ru] (RePack) 2013 | Se
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980461.jpg" />
 </div>
 
 
@@ -89,7 +193,7 @@ Deponia: The Complete Journey (2014) [Ru/Multi] (3.3.0155) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979883.jpg" />
 </div>
 
 
@@ -115,7 +219,7 @@ Escape The Manor (2020) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979723.jpg" />
 </div>
 
 
@@ -141,7 +245,7 @@ Lightmatter (2020) [Ru/Multi] (1.05/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979706.jpg" />
 </div>
 
 
@@ -167,7 +271,7 @@ Mutazione (2019) [Ru/Multi] (1.7.5805) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978534.jpg" />
 </div>
 
 
@@ -193,7 +297,7 @@ Journey to the Savage Planet (2020) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978452.jpg" />
 </div>
 
 
@@ -219,7 +323,7 @@ Lucius [Ru/En/Multi7] (L) 2012 | PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978316.jpg" />
 </div>
 
 
@@ -245,7 +349,7 @@ The Stanley Parable (2013) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977581.jpg" />
 </div>
 
 
@@ -271,7 +375,7 @@ Through the Darkest of Times (2020) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977341.jpg" />
 </div>
 
 
@@ -297,7 +401,7 @@ Catherine Classic (2019) [Ru] (1.04) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977331.jpg" />
 </div>
 
 
@@ -323,7 +427,7 @@ Ministry of Broadcast (2020) [Ru/Multi] (1.1.0.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976233.jpg" />
 </div>
 
 
@@ -349,7 +453,7 @@ SOMA (2015) [Ru/Multi] (1.510) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976178.jpg" />
 </div>
 
 
@@ -375,7 +479,7 @@ The Pedestrian (2020) [En] (1.0.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976176.jpg" />
 </div>
 
 
@@ -401,7 +505,7 @@ Cognition: An Erica Reed Thriller. Episode 1 [En] (L/3.5.6.44817) 2012 | HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976022.jpg" />
 </div>
 
 
@@ -428,7 +532,7 @@ Song of Horror (2019) [Multi] (1.31.0.0/upd3/dlc) License CODEX [Episode 1-4]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975090.jpg" />
 </div>
 
 
@@ -454,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974008.jpg" />
 </div>
 
 
@@ -480,7 +584,7 @@ Black Mirror Anthology / Антология. Чёрное зеркало [Ru/En]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973046.jpg" />
 </div>
 
 
@@ -506,7 +610,7 @@ The Plan [En] (Repack) 2013 | R.G. Revenants
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973031.jpg" />
 </div>
 
 
@@ -533,7 +637,7 @@ Kentucky Route Zero (2013) [Ru/Multi] (22.0) Repack Other s [PC Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970263.jpg" />
 </div>
 
 
@@ -559,7 +663,7 @@ Utawarerumono: Mask of Deception (2020) [Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969399.jpg" />
 </div>
 
 
@@ -570,110 +674,6 @@ Utawarerumono: Mask of Deception (2020) [Multi] (1.0) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3667714395372A822CAEB72182222DE256DC0A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358290   (969304) от 07.02.2020
-
-Utawarerumono: Mask of Truth (2020) [Multi] (1.0) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дабы унаследовать маску Хаку пожертвовал многим. С присущей ему хитростью, опираясь на репутацию его ушедшего друга, он прокладывает путь к новому будущему. Кулисы поднимаются, открывая нашему взору эпоху борьбы, что потрясёт Ямато до самого основания.Тип издания: LicenseРазработчик: AQUAPLUSЖанр: Приключенческие игры, Ролевые игры, Симуляторы, СтратегииЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, Китайский (традиционный)Язык интерфейса: Английский, Японский, Китайский (традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8370F6E59161A184D49B8202FE001B230CD7217B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977059   (967301) от 19.01.2016
-
-Gemini: Heroes Reborn (2016) [Ru/Multi] (1.0) SteamRip Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gemini: Heroes Reborn - это экшен-приключение от первого лица, главным героем которого является двадцатилетняя Кассандра. Этой молодой девушке предстоит открыть в себе невероятные способности, уникальные для вселенной Heroes, и разгадать загадку своего прошлого. Она воссоединится с давно пропавшей семьей, но совсем не так, как ожидала.Тип издания: SteamRipРазработчик: Phosphor GamesЖанр: Action, Adventure, 3D, 1st-PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBCCDD93410ACEBACDCD6D510EE293851A79D5CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977156   (967293) от 19.01.2016
-
-Gemini: Heroes Reborn (2016) [Ru/Multi] (1.0) Repack =nemos=
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gemini: Heroes Reborn - это экшен-приключение от первого лица, главным героем которого является двадцатилетняя Кассандра. Этой молодой девушке предстоит открыть в себе невероятные способности, уникальные для вселенной Heroes, и разгадать загадку своего прошлого. Она воссоединится с давно пропавшей семьей, но совсем не так, как ожидала.Тип издания: RepackРазработчик: Phosphor GamesЖанр: Action, Adventure, 3D, 1st-PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ACF55CB85E42AEB74C88F5217CD9417B6FDFFD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976746   (966313) от 20.01.2016
-
-Scratches: Director's Cut / Шорох: Последний визит (2007) [Ru] (1.0) Repack GHOST549
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы играете роль Майкла Артхейта, начинающего писателя, внезапно разбогатевшего на продаже своего дебютного романа. Сегодня он переезжает во внушительный викторианский особняк, который только что приобрел. Пока Майкл ищет вдохновение для того, чтобы закончить свой следующий, очень ожидаемый роман, ему открываются страшные секреты, хранящиеся в стенах особняка - тайны, (   Читать дальше...   )Тип издания: RepackРазработчик: NucleosysЖанр: AdventureЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:213976E198E2F0F4B86E3D2A2455B0A85CAFB8C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

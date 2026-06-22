@@ -1,3 +1,107 @@
+###  Публикация: 1739396   (106076) от 27.07.2024
+
+Военная тайна с Игорем Прокопенко (27.07.2024) WEBRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106076.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:33:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:853A72CDEA939E96E74FEA9C19E90E15F49BC88E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740788   (105798) от 03.08.2024
+
+Военная тайна с Игорем Прокопенко (03.08.2024) WEBRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105798.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:33:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAA40B616F3B4EE51879D59CC5FA3587AD8ACFC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742244   (105574) от 10.08.2024
+
+Военная тайна с Игорем Прокопенко (10.08.2024) WEBRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105574.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:34:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45A15064EA3EB72F93F43D0B8F9D26F0856AB383
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745063   (105174) от 24.08.2024
+
+Военная тайна с Игорем Прокопенко (24.08.2024) WEBRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105174.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:34:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C29C14BECC09DF3073F435BC716AA40516F422FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746540   (104903) от 31.08.2024
 
 Военная тайна с Игорем Прокопенко (31.08.2024) WEBRip [H.264]
@@ -6,7 +110,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104903.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104682.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104630.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104291.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104144.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103963.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103772.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103677.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103549.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103285.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103136.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103027.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102823.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101518.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101437.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101424.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101387.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101350.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101208.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101145.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100673.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100641.jpg" />
 </div>
 
 
@@ -568,116 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5335008277D5C67CE1E5688EC7DA63146D8F1C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464990   (96098) от 09.03.2012
-
-Суть времени. 5 марта 2012. Митинг и съезд (2012.03.08) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_96098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Репортаж о митинге движения «Суть времени» 5 марта на Суворовской площади г. Москвы. Репортаж с оперативного съезда актива «Сути времени» 5 марта в Театре Российской Армии г. Москвы. Оценка ситуации в стране после выборов и возможные варианты ее развития.Жанр: ДокументальныйПродолжительность: ~ 00:40:58 + 01:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70D0F28E6FCD842B4CCD64F1121FA2382A9EC169
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482784   (89323) от 18.04.2012
-
-Жак Фреско - Проект «Венера» / Jacque Fresco - The Venus Project (2002-2011) DVDRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видео-интервью с футурологом, промышленным дизайнером, изобретателем,
-архитектором, мыслителем и философом - Жаком Фреско. Жак Фреско коротко рассказывает
-про основные принципы ресурсо-ориентированной экономики и отвечает на вопросы.
-(   Читать дальше...   )Жанр: Документальный фильм
-
-Официальный СайтРежиссер: Jacque Fresco, Roxanne MeadowsПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 24 x  ~ от 00:03:00 мин. - до 01:30:00 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C60FE9E9ED175E7A3CA6936073CF2AC36E444BAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 452158   (76324) от 15.02.2012
-
-План 13: Крах Мира / Blueprint 13: Where the World fall (2012) BDRip [1080p]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный фильм рассказывает о так называемом "Плане 13", за которым последует крах мира, - прежде всего в экономическом плане, и дальнейший переход на Новый Мировой Порядок.
-Автор не указывает на недавнюю попытку введения цензуры в Интернете; всё это будет приведено в действие, если описанные в фильме события произойдут.Жанр: ДокументальныйРежиссер: Illuminati InsiderАктеры: Illuminati Insider, Джим Роджерс, Геральд Селенте, Эндрю БруксПеревод: Одноголосый закадровыйЯзык субтитров: РусскийПродолжительность: 00:59:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:345ED1A6B33F775DDAECE4757B83763BB068DBA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779903   (70604) от 15.02.2025
-
-Реми Майснер. Исповедь метафизика-рогоносца. (2025) WEBRip [H.264]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня, товарищи, слушаем и разбираем примечательное интервью одиозного политического деятеля Василия Якеменко. Нашист Вася Якеменко — бывший путинский министр, во времена оны занимавшийся воспитанием российской молодёжи в духе путинского патриотизма и гундяевского православия, а ныне проживающий в Германии (Стране Западных Дьяволов) и проедающий там награбленное (   Читать дальше...   )Производство: Россия, Авторский блог Remi MeisnerЖанр: юмор, политикаЯзык озвучки: РусскийПродолжительность: 03:26:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25F9699A9E2DFEE1E3812FE1E5FEA7F8F80585A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

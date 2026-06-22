@@ -1,3 +1,55 @@
+###  Публикация: 1131600   (26224) от 28.02.2025
+
+World to the West (2017) [Multi] (1.6.0) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юная девочка - Тесламансер, маленький аутсайдер-оптимист, закалëнная путешественница и самоуверенный силач-аристократ по стечению обстоятельств оказались в центре чужой авантюры. Теперь им предстоит задействовать свои уникальные способности чтобы выжить на континенте, хранящем древние секреты и опасности. Кто-то ищет славу, кто-то желает отомстить, а кто-то (   Читать дальше...   )Тип издания: LicenseРазработчик: Rain GamesЖанр: Action, Adventure, PlatformerЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AF382403359D4DAC7ED6B951E12372F34792554
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782318   (26171) от 28.02.2025
+
+60 Seconds! Reatomized (2019) [Ru/Multi] (1.1.5.32) Repack EXROW
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пост-апокалиптическая чёрная комедия возвращается — обновлённая и ещё более радиоактивная! Соберите запасы, спасите свою семью и приготовьтесь выживать в бункере. Принимайте трудные решения, воюйте с тараканами… и, может, вам удастся выжить. Долорес, Теду, Мэри Джейн и Тимми вновь предстоит пережить атомный апокалипсис в обновлённой версии классической игры 60 Seconds! (   Читать дальше...   )Тип издания: RepackРазработчик: Robot GentlemanЖанр: Приключенческие игры, Казуальные игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50EE85BF182287B86A7741EA90CAFCBF572237B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783156   (25810) от 04.03.2025
 
 Subverse (2024) [Ru/En] (1.0.2/dlc) Repack Let'sРlay [18+]
@@ -6,7 +58,7 @@ Subverse (2024) [Ru/En] (1.0.2/dlc) Repack Let'sРlay [18+]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25810.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Everhood (2021) [Multi] (1.1.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25186.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ The Eternal Cylinder (2022) [Ru/Multi] (1.0.3.3) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25135.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Beyond the Ice Palace 2 (2025) [Ru/Multi] (1.1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25055.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Nightmare: The Lunatic (2024) [Ru/Multi] (1.2.1d) Repack Let'sРlay [Soundtrack 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24940.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Montezuma's Revenge (2025) [Multi] (1.15.0) License GOG [Director's Cut]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24523.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Contra: Operation Galuga (2024) [Ru/Multi] (1.3) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24426.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Castlevania Dominus Collection (2024) [Multi] (1.003.000) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24374.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Curse of the Sea Rats (2023) [Ru/Multi] (1.5.7) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23919.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Beyond the Ice Palace 2 (2025) [Ru/Multi] (1.1.1f) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23875.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Curse of the Sea Rats (2023) [Ru/Multi] (1.5.7) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23639.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ ENDER MAGNOLIA: Bloom in the Mist (2025) [Ru/Multi] (1.1.1.22380) Repack Let'sР
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23398.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Gal Guardians: Servants of the Dark (2025) [Multi] (1.1.2/dlc) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23253.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Beyond the Ice Palace 2 (2025) [Ru/Multi] (1.1.1h) Repack Wanterlude
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23062.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Twilight Monk (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22955.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Inayah - Life after Gods (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22936.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Rain World (2017) [Ru/Multi] (1.10.1/dlc) Repack FitGirl [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22897.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Inayah - Life after Gods (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22891.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Afterimage (2023) [Ru/Multi] (1.2.1/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22884.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Star of Providence / Monolith (2017) [Multi] (1.2/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22782.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Somber Echoes (2025) [Ru/Multi] (22449) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22754.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Bio Prototype (2025) [Ru/Multi] (1.0.12) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22677.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Gal Guardians: Servants of the Dark (2025) [Multi] (1.1.2) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22329.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Funko Fusion (2024) [Ru/Multi] (2.6.3.152571/dlc) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21986.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Funko Fusion - это экшн от третьего лица, посвящен�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7AE8F44893EFAE2ED6F24B084ED88834A02DB8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657381   (21925) от 10.04.2025
-
-The Making of Karateka (2023) [Multi] (1.1) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда мы говорим о классических играх прошлого века, одно из имён, что приходит на ум, это The Making of Karateka. Эта игра не просто рандомное сражение в стиле "бей их всех", это глубокий погружающий опыт, который расскажет о процессе создания одного из культовых произведений в истории видеоигр. Далеко не каждая игра удается с первого раза. За каждым успешным (   Читать дальше...   )Тип издания: LicenseРазработчик: Digital EclipseЖанр: Экшны, Сражения, ФайтингЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAC94F200E78E04974FAAFC34E3BEA831CDD3238
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751103   (21901) от 10.04.2025
-
-Funko Fusion (2024) [Ru/Multi] (2.6.3.152571/dlc) Repack FitGirl
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Funko Fusion - это экшн от третьего лица, посвященный фандому. Играйте с любимыми персонажами из сериалов, фильмов, игр и комиксов и исследуйте созданные вручную миры, вдохновленные «Миром Юрского периода», «Назад в будущее», «Челюстями», «Нечто», «Чаки», «Звездным крейсером «Галактика», «Типа крутые легавые», «Академией Амбрелла», «Пять ночей у Фредди», «Властелинами (   Читать дальше...   )Тип издания: RepackРазработчик: 1010 Games LtdЖанр: Экшены, ПриключенияЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CB7127A3F24E794A0607DD2CDF67C00D87434AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

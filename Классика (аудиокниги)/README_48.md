@@ -1,3 +1,61 @@
+###  Публикация: 1673647   (164510) от 02.11.2023
+
+Иван Тургенев | Вешние воды (2022) [MP3, Владимир Левашёв]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: XIX век. Русская проза.
+Иван Сергеевич Тургенев (1818–1883) – русский писатель, поэт, переводчик, член-корреспондент императорской Академии наук по разряду русского языка и словесности (1860). Считается одним из классиков мировой литературы.
+
+Студия «АРДИС» предлагает вашему вниманию повесть Ивана Тургенева Вешние воды из ряда повестей-воспоминаний о прошлом. (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Студия «АРДИС»Продолжительность: 06:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:760C5F0DAE7B734FC4BD1353FD99F87049B2DE05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673655   (164486) от 02.11.2023
+
+Иван Тургенев | Записки охотника (2003) [MP3, Вячеслав Герасимов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Школьная библиотека
+Мастер слова и тонкий психолог, прославленный русский писатель Иван Сергеевич Тургенев оказал огромное влияние на умы своих современников и внес существенный вклад в развитие отечественной и мировой литературы.
+В аудиокнигу вошли рассказы И.С. Тургенева – знаменитые «Записки охотника», принесшие писателю широкую известность.
+(   Читать дальше...   )Жанр: Русская литература, классика, повесть, рассказИздательство: Студия «АРДИС»Продолжительность: 08:24:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:375E2EB7005A567B480B5C848A36DEAB55C6419C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673667   (164474) от 02.11.2023
 
 Иван Тургенев | Дворянское гнездо (2013) [MP3, Владимир Самойлов]
@@ -6,7 +64,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164474.jpg" />
 </div>
 
 
@@ -34,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164469.jpg" />
 </div>
 
 
@@ -62,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164450.jpg" />
 </div>
 
 
@@ -89,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164374.jpg" />
 </div>
 
 
@@ -116,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164072.jpg" />
 </div>
 
 
@@ -142,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164058.jpg" />
 </div>
 
 
@@ -169,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164052.jpg" />
 </div>
 
 
@@ -197,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164015.jpg" />
 </div>
 
 
@@ -224,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163989.jpg" />
 </div>
 
 
@@ -252,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163975.jpg" />
 </div>
 
 
@@ -281,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163712.jpg" />
 </div>
 
 
@@ -308,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163493.jpg" />
 </div>
 
 
@@ -334,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163274.jpg" />
 </div>
 
 
@@ -362,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162939.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162878.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162425.jpg" />
 </div>
 
 
@@ -447,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162356.jpg" />
 </div>
 
 
@@ -475,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162113.jpg" />
 </div>
 
 
@@ -503,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162061.jpg" />
 </div>
 
 
@@ -530,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160860.jpg" />
 </div>
 
 
@@ -559,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160859.jpg" />
 </div>
 
 
@@ -587,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160851.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160782.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160780.jpg" />
 </div>
 
 
@@ -653,58 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F683772F5E9F7F973006C9DB7018FFB40946A53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 422009   (160772) от 06.11.2023
-
-Александр Дюма (отец) | Тысяча и один призрак (2011) [MP3, Михаил Поздняков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вампиры! Как в наш век электронных развлечений эти дракулы сумели стать хитом и моды и приколов молодежи? Как средневековые страшилки преобразили наших желторотых юнцов в мистических готов? Но есть вопрос и поинтереснее. Как мог предвидеть такой поворот событий самый популярный рассказчик планеты, да еще за полтора века до самого феномена? Поразительно современно. (   Читать дальше...   )Жанр: Зарубежная литература, классика, мистика, новеллаИздательство: МедиаКнигаПродолжительность: 08:57:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:085EE0CE853F7795060506C4C5F56BF854B1A798
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 421848   (160771) от 06.11.2023
-
-Александр Дюма (отец) | Верность до гроба (2011) [MP3, Михаил Поздняков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Дюма (отец) – знаменитый французский писатель, завоевавший любовь читателей историческими приключенческими романами. Литературное наследие Дюма огромно: кроме романов им написаны пьесы, воспоминания, путевые очерки, детские сказки и другие произведения самых различных жанров. В книгу вошли авантюрные повести и рассказы известного писателя.Жанр: Зарубежная литература, классика, повесть, рассказИздательство: МедиаКнигаПродолжительность: 15:19:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3BE064477C66C4F72670CCB460DB8EB14887171
 ```
 
 https://mybot314.ru/tekegram_catalog/

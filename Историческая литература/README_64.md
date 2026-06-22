@@ -1,3 +1,111 @@
+###  Публикация: 1059692   (459703) от 05.10.2016
+
+В. Ягов | Современный анархо-синдикализм (1928) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель настоящей брошюры — осветить состояние современного, т. е. послевоенного анархо-синдикализма.
+
+Но современный анархо-синдикализм можно понять лишь в связи с его состоянием до войны. Поэтому приходится уделить внимание изложению основных черт теории анархо-синдикализма и критике его основных положений.Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C89F28CB8D887E641424B10D9DC3E2A1D5C664F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941744   (458114) от 29.09.2015
+
+Виктория Миленко | Саша Черный: Печальный рыцарь смеха (2014) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Саша Черный (1880–1932), знаменитый сатирический поэт, по одним оценкам — «безнадежный пессимист», по другим — «детская душа». Каким был этот человек, создавший язвительную картину своей эпохи и вдруг развернувшийся к противоположным жанрам? Что заставляло его бросаться от сатиры — к лирике, от революционных манифестов — к религиозному миссионерству, от ядовитых (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:245EFFE33119A05B0C44BE2136C79D899FD9488B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060246   (457736) от 06.10.2016
+
+К. Форлендер | История социалистических идей (1925) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слова «социалист», «социалистический», «социализм», которые теперь у всех на устах, — сравнительно недавнего происхождения. Название «социалист» в первый раз появилось в одном лондонском кооперативном журнале 1827 года, а слово «социализм» в современном смысле впервые было употреблено почти совсем забытым последователем Сен-Симона Жонсьером в статье, напечатанной (   Читать дальше...   )Жанр: История, политология, экономика, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32967B65AF202B7A4B5A4F2115D9BB5198F45E84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060154   (457570) от 06.10.2016
+
+Г. Сальвиоли | Капитализм в античном мире (1923) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Введение:
+
+Наука может изучать явления экономической жизни двумя способами: в их реальном, объективном виде, какими они являются во времени и в пространстве; или в их субъективно-отраженном виде, т. е. какими они являются в изображении и представлении людей, какие чувства они в людях вызывают, и как последние их понимают. Каждый из этих способов имеет свои достоинства: (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED81331297A24317477296FF1EA97D00801D1EE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408482   (455585) от 12.09.2020
 
 Наталия Пронина | Великий Александр Невский. «Стоять будет Русская Земля!» (2014) [EPUB]
@@ -6,7 +114,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455585.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455134.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455131.jpg" />
 </div>
 
 
@@ -84,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455007.jpg" />
 </div>
 
 
@@ -110,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454569.jpg" />
 </div>
 
 
@@ -137,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453301.jpg" />
 </div>
 
 
@@ -163,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453216.jpg" />
 </div>
 
 
@@ -191,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453079.jpg" />
 </div>
 
 
@@ -218,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452957.jpg" />
 </div>
 
 
@@ -244,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452706.jpg" />
 </div>
 
 
@@ -270,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451288.jpg" />
 </div>
 
 
@@ -298,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449576.jpg" />
 </div>
 
 
@@ -324,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449441.jpg" />
 </div>
 
 
@@ -350,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449436.jpg" />
 </div>
 
 
@@ -378,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448686.jpg" />
 </div>
 
 
@@ -407,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448490.jpg" />
 </div>
 
 
@@ -433,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448421.jpg" />
 </div>
 
 
@@ -459,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448418.jpg" />
 </div>
 
 
@@ -485,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448403.jpg" />
 </div>
 
 
@@ -513,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448209.jpg" />
 </div>
 
 
@@ -539,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444663.jpg" />
 </div>
 
 
@@ -566,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444466.jpg" />
 </div>
 
 
@@ -577,111 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:498CED2D91B2B19C2D7A76DEB1CBD3F040EFE8BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164001   (444465) от 08.09.2017
-
-А. Фадeев (ред.) | Встречи с товарищем Сталиным (1939) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как увлекательные художественные произведения, читаются вышедшие в 1939 году под редакцией А. А. Фадеева воспоминания о встречах со Сталиным - А. Стаханова, И. Папанина, М. Громова, Б. Иофана, П. Ангелиной и других знатных людей нашей страны: рабочих, колхозников, ученых, летчиков, деятелей искусства. Из этих воспоминаний с большой яркостью вырисовывается исключительная (   Читать дальше...   )Жанр: история, мемуарыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC5D21E543986F184278E796751872F4AF30653
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164069   (444463) от 08.09.2017
-
-И. Бенедиктов, А. Рыбин | Рядом со Сталиным (2010) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444463.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге, представленной вашему вниманию, собраны воспоминания людей, близко знавших И.В. Сталина. Один из них, А.Т. Рыбин, был личным телохранителем вождя с 1931 года и являлся свидетелем многих эпизодов из жизни Сталина на протяжении двадцати лет. Второй, И. А. Бенедиктов, в течение двух десятилетий (с 1938 по 1958 год) занимал ключевые посты в руководстве сельским (   Читать дальше...   )Жанр: история, мемуарыФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E89CE253B96781EF61B2B7317E55CB1A050B9FC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163982   (444462) от 08.09.2017
-
-Ю.С. Гиренко | Сталин - Тито (1991) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мировая общественность была ошеломлена, когда летом 1948 г. в адрес руководителей компартии и правительства Югославии сталинское руководство выдвинуло тяжелые обвинения.
-На основе многочисленных документов и воспоминаний, ранее неизвестных советскому читателю, автор повествует о том, как начинался конфликт, приведший к разрыву государственных и  партийных отношений (   Читать дальше...   )Жанр: историяФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A95ECE6BF242D44E3ED605B7A5DB849BAD960EE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164086   (444460) от 08.09.2017
-
-А.Л. Малицкий (сост.) | Собрание Советских Конституций и Конституционных Актов (1928) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий сборник содержит в себе Конституции Союза ССР и всех шести союзных Республик в последних их редакциях. Помимо того, в сборнике помещены Конституции всех трёх договорных республик Закавказья в их последних редакциях, принятых вследствие образования Закавказской Федерации и Союза ССР.Жанр: история, правоФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:052569D1E080C5D1EB7719494D5A0E32875402DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

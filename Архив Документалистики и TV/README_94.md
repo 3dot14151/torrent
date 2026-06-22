@@ -1,3 +1,32 @@
+###  Публикация: 1125523   (768138) от 15.04.2017
+
+Кёрлинг. Чемпионат Мира 2017. Женщины. Пекин (Китай). 9 Сессия. Канада — Корея (21.03.2017) WEB-DL [H.264/1080p-LQ] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768138.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 марта 2017 года, вторник.
+Чемпионат мира по кёрлингу среди женщин 2017. Пекин (Китай).
+Предварительный этап. 9 Сессия
+Канада — Корея(   Читать дальше...   )Телекомпания: WCF TVЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:59:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BF6E8B46FE59D154BE0DC035087161E7DC0350B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125730   (768137) от 15.04.2017
 
 Формула 1. Сезон 2017. Гран-при Бахрейна. 3-й Этап. Свободная практика 1 (14.04.2017) HDTVRip [H.264/720p-LQ] [ hand made 50fps]
@@ -6,7 +35,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_768137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_768137.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768136.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768134.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768133.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768055.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767990.jpg" />
 </div>
 
 
@@ -176,7 +205,7 @@ Moto GP. Сезон 2017. Termas de Rio Hondo. Этап 2. Гонка (9.04.2017
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767934.jpg" />
 </div>
 
 
@@ -202,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767757.jpg" />
 </div>
 
 
@@ -230,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767751.jpg" />
 </div>
 
 
@@ -256,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767602.jpg" />
 </div>
 
 
@@ -285,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767552.jpg" />
 </div>
 
 
@@ -311,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767407.jpg" />
 </div>
 
 
@@ -340,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767321.jpg" />
 </div>
 
 
@@ -366,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767208.jpg" />
 </div>
 
 
@@ -395,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767207.jpg" />
 </div>
 
 
@@ -424,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767206.jpg" />
 </div>
 
 
@@ -453,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767205.jpg" />
 </div>
 
 
@@ -482,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767204.jpg" />
 </div>
 
 
@@ -511,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767202.jpg" />
 </div>
 
 
@@ -540,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767201.jpg" />
 </div>
 
 
@@ -569,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767200.jpg" />
 </div>
 
 
@@ -598,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767199.jpg" />
 </div>
 
 
@@ -627,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767198.jpg" />
 </div>
 
 
@@ -655,7 +684,7 @@ Moto GP. Сезон 2017. Losail International Circuit. Этап 1. Гонка (
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767073.jpg" />
 </div>
 
 
@@ -681,7 +710,7 @@ ARCA Menards Series-2020. 4-й Этап. Поконо 200. Гонка / ARCA Men
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766942.jpg" />
 </div>
 
 
@@ -692,32 +721,6 @@ ARCA Menards Series-2020. 4-й Этап. Поконо 200. Гонка / ARCA Men
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08C758BBC7968D51098566C5DD7CF69E8CF8F124
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393509   (766940) от 01.07.2020
-
-Серия Кубков NASCAR-2020. 15-й Этап. Поконо 350. Гонка / NASCAR Cup Series 2020. Round 15. Pocono 350. Race (2020) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766940.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 этап Nascar Cup Series, Pocono 350, Pocono Raceway (140 Laps, 350 Miles).Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 02:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7390A4D5A5EBCD0E24D6D4E8475B15EDD54F486F
 ```
 
 https://mybot314.ru/tekegram_catalog/

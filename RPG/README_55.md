@@ -1,3 +1,107 @@
+###  Публикация: 1727707   (54454) от 03.06.2024
+
+Little-Known Galaxy (2024) [En] (1.0) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Little-Known Galaxy - приключенческая RPG с элементами симулятора, где вы отправитесь исследовать отдаленные уголки необъятного космоса. Космический Альянс нуждается в вас, стажер, поэтому самое время взять под свой контроль космический корабль и отправиться в путешествие. Вместе с командой таких же безбашенных искателей приключений вам предстоит изучить отдаленные (   Читать дальше...   )Тип издания: RepackРазработчик: Carbon & KayЖанр: Приключенческие игры, Казуальные игры, Ролевые игры, СимуляторыЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCFD2ED81007EA6EF01A74B518198E5D2D9F21A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727790   (54423) от 04.06.2024
+
+Wizardry: Proving Grounds of the Mad Overlord (2024) [Multi] (1.0.1) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wizardry: Proving Grounds of the Mad Overlord - это полный 3D-римейк первой игры легендарной серии ролевых игр Wizardry. Wizardry: Proving Grounds of the Mad Overlord, первая из когда-либо выпущенных видеоигр в жанре ролевой игры для вечеринок, стала прямым источником вдохновения для таких серий, как Final Fantasy и Dragon Quest. Возрождение Digital Eclipse сохраняет (   Читать дальше...   )Тип издания: RepackРазработчик: Digital EclipseЖанр: Экшены, Ролевые игрыЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3C8D55B98E84308CC18320190176811427CF61A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727898   (54418) от 04.06.2024
+
+Vendir: Plague of Lies (2024) [Ru/Multi] (1.2.101) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vendir: Plague of Lies погружает игроков в мир, наполненный атмосферой классической CRPG. Земля Вендир - это обширный интерактивный мир, манящий игроков исследовать шумные города, жуткие подземелья и скрытые секреты. Стратегический пошаговый бой лежит в основе игрового процесса.Тип издания: RepackРазработчик: Early Morning StudioЖанр: Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B14207994812E19AE9054CC6F2256A12EB29F38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694201   (54312) от 05.06.2024
+
+梦灯花 Noctuary (2023) [Multi] (1.1.3) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Noctuary - сплав визуальной новеллы и приключенческого экшена, который погружает в яркий мир Абортерии, следуя за переплетенными путешествиями Фанчии и Алины. Будучи начинающими арборантами, дуэт проходит через богатый гобелен персонажей, квестов и врагов в этом красочном царстве. Отличаясь изобретательной механикой боя, игра позволяет плавно переключать персонажей (   Читать дальше...   )Тип издания: SceneРазработчик: GratescaЖанр: Приключенческие игры, Казуальные игры, Инди, Ролевые игрыЯзык озвучки: Китайский (упрощенный, традиционный)Язык субтитров: Английский, Китайский (упрощенный, традиционный), ЯпонскийЯзык интерфейса: Английский, Китайский (упрощенный, традиционный), Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08819F9E24D0A9789D9B4B8698C1E7FD3AE99C62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728102   (54295) от 05.06.2024
 
 The Leviathan's Fantasy (2023) [Multi] (2.0.1/dlc) Repack FitGirl [Ultimate Edition]
@@ -6,7 +110,7 @@ The Leviathan's Fantasy (2023) [Multi] (2.0.1/dlc) Repack FitGirl [Ultimate Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54295.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ SCP Operations (2024) [En] (1.0.0:73) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54229.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Cryptmaster (2024) [Multi] (1.032) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54212.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Outcast - A New Beginning (2024) [Ru/Multi] (1.0.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54008.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Elegy of Fate / Элегия судьбы (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53997.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ The Elder Scrolls V: Skyrim (2016-2021) [Ru/Multi] (1.6.1170.0.8/dlc) Repack dix
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53905.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Dark Souls II (2): Scholar of the First Sin (2015) [Ru/Multi] (1.03/dlc) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53887.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Ni no Kuni Wrath of the White Witch™ Remastered (2019) [Ru/Multi] (1.0) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53843.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ WitchSpring R (2023) [Multi] (1.307/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53804.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Coromon (2022) [Ru/Multi] (1.3.0/dlc) Scene Tenoke [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53793.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ The Inquisitor (2024) [Ru/Multi] (13389755/dlc) Repack Wagner [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53783.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Beneath Oresa (2022) [Ru/Multi] (1.0.23) Repack Wagner
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53764.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Baladins (2024) [Multi] (1.0.18) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53684.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ SKALD: Against the Black Priory (2024) [En] (1.0.3d/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53681.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Potty Knight Saga (2024) [Ru/Multi] (1.0) Scene TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53565.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Whispers in the Moss (2024) [En] (1.01) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53545.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Sinderfury (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53530.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Outward (2022) [Ru/Multi] (1.1.0/dlc) License GOG [Definitive Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53482.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Hood Story: Kaito Yamazaki (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53445.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Wizard with a Gun (2023) [Ru/Multi] (1.3/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53381.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Potty Knight Saga (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53361.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ SpiriTTea (2023) [Multi] (1.7.5) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53358.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ SpiriTTea (2023) [Multi] (1.7.5) Scene Tenoke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DC1E3C5B0C9BFA280293E825D6A8EAB1F2010AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730041   (53339) от 14.06.2024
-
-Bloodstained: Ritual of the Night (2019) [Ru/Multi] (1.5/dlc) Scene Rune
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bloodstained: Ritual of the Night – это смесь готического хоррора, экшна, платформера и RPG в атмосфере Англии XIX века. Сверхъестественные силы призвали на Землю замок, населенный демонами, и кристаллы-осколки, полные магической силы. Играйте за Мириам - сироту, чье тело медленно превращается в кристалл из-за алхимического проклятия.Тип издания: LicenseРазработчик: Inti Creates, Dico Co., Ltd., ArtPlay, MonobitЖанр: Экшны, Ролевая игра, MetroidvaniaЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Японский и другиеЯзык интерфейса: Русский, Английский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CC2A520855F3F2276EC176D3CE94E9CB5E0E493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683161   (53287) от 15.06.2024
-
-Born of Bread (2023) [Multi] (r3.2.4d) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этому миру и его обитателям грозит опасность! Существа из другого века пришли, чтобы сеять хаос. Спасти всех и раскрыть тайну длиной в тысячу лет предстоит необычному герою - голему из теста и муки. Вместе с друзьями он побывает в необычных местах и встретит забавных персонажей. Хотя наш сдобный герой и выглядит не очень грозно, он еще покажет, из какого он теста.Тип издания: LicenseРазработчик: WildArts Studio Inc.Жанр: Приключение, Ролевая играЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2DC0B9676F5FDC29AE748C44397D8BFB41C500C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730502   (53135) от 16.06.2024
-
-Freedom Force vs. the Third Reich (2005) [En] (1.0) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Freedom Force vs. the Third Reich – изометрическое ролевое приключение, наполненное юмором практически доверху и повторяющее стилистику золотого века для супергеройских комиксов в мельчащих деталях, создавая иллюзию того, что всё вокруг – ожившие страницы журнала. Вторая часть серии Силы Свободы. Сюжет стартует сразу после временного парадокса, вызванного Блицкригом, (   Читать дальше...   )Тип издания: LicenseРазработчик: Irrational GamesЖанр: Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C82D9029B3C5FAA7E2D1D26456770DD8EBBCAF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730482   (53117) от 16.06.2024
-
-Freedom Force (2002) [En] (1.3) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ролевая стратегическая игра - Freedom Force - стала комически смешным олицетворением команды супергероев, которые будут защищать базу Патриот Сити. Бороться мы будем непосредственно с мутантами, чудовищами и всякими прочими угрозами. Вся игра построена на визуализации старых комиксов, которые в более-менее современной графике выглядят достаточно смешно. Первые сюжетные (   Читать дальше...   )Тип издания: LicenseРазработчик: Irrational GamesЖанр: Ролевые игры, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:819EE5EB1E247D3DEC3246B5056CD35646D15DC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

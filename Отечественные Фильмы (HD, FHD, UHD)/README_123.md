@@ -1,3 +1,117 @@
+###  Публикация: 475746   (85633) от 31.03.2012
+
+Мамы (2012) [1080i] Blu-ray
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый год в день 8-го марта телефонные сети России передают миллионы звонков и смс-сообщений. Трудолюбивые аналитики подсчитали, что абсолютное большинство телефонных звонков адресовано самым главным женщинам в жизни каждого человека - мамам.
+
+Мы выросли, и заготовленные заранее аппликации и букеты цветов, купленные до маминого пробуждения, - давно забытые детские привычки. Отныне мы поздравляем мам по-взрослому: дожидаемся, когда они проснутся, и набираем телефонный номер.
+
+Но что, если случится коллапс, и из-за пиковой перегруженности телефонная сеть рухнет? Итак, связи нет. Что делать? Кто-то будет ждать, пока её восстановят - поздравит вечером или даже на следующий день. А другие, как и герои нашего киноальманаха, поменяют свои планы, чтобы поздравить своих мам именно сегодня... лично... как в детстве!
+
+Восемь разных поздравлений и жизненных ситуаций. Восемь разных МАМ.Жанр: мелодрама, комедияРежиссер: Евгений Абызов, Сарик Андреасян, Алан БадоевАктеры: Сергей Безруков, Дмитрий Дюжев, Михаил Пореченков, Егор Бероев, Гоша Куценко, Петр Федоров, Федор Добронравов, Иван Добронравов, Игорь Верник, Александр ОлешкоПеревод: ОригиналПродолжительность: 01:41:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474753   (85006) от 28.03.2012
+
+Фауст / Faust (2011) [720p] BDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: драмаРежиссер: Александр СокуровАктеры: Ханна Шигулла, Максим Мехмет, Антуан Моно мл., Георг Фридрих, Изольда Дюшаук, Йоханес Цайлер, Флориан Брюкнер, Ева-Мария Курц, Стефан Вебер, Антон АдасинскийПеревод: Одноголосый закадровыйСубтитры: Итальянские, РусскиеПродолжительность: 02:19:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AD54A4C897B03636B68580DC6728BB01D7F7629
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474390   (84968) от 28.03.2012
+
+Фауст / Faust (2011) [1080p] BDRemux
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжетной основой является первая часть поэтической драмы Гете, где повествование, в основном, строится на любовной линии Фауст-Маргарита.Жанр: драмаРежиссер: Александр СокуровАктеры: Ханна Шигулла, Максим Мехмет, Антуан Моно мл., Георг Фридрих, Изольда Дюшаук, Йоханес Цайлер, Флориан Брюкнер, Ева-Мария Курц, Стефан Вебер, Антон АдасинскийПеревод: Одноголосый закадровыйПродолжительность: 02:19:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFE4AF4154C91817634CAA1BACEDD6C53029CEE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474008   (84818) от 27.03.2012
+
+Август. Восьмого (2012) [1080p] Blu-ray
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда события нанизываются одно на другое, когда каждая минута ставит тебя перед выбором, когда жизнь и смерть становятся частью страшной компьютерной игры, пульт от которой - в чужих руках, тогда ты начинаешь действовать так, будто каждая минута - последняя.
+
+ Казалось бы, жизнь хорошенькой разведенной москвички Ксении оставляет не много места для драматических ситуаций: да, сын Тема тяжело переживает развод родителей, да, поклонник поглощен карьерой, да, мама вмешивается в личную жизнь, - но трудно назвать эти обстоятельства критическими.
+
+ Все меняется, когда бывший муж, офицер миротворческих сил, просит Ксению прислать Тему к нему, подышать горным воздухом в прекрасной деревушке в доме его родителей! Он уверяет, что это совершенно безопасно - да маленький Тема и не чувствует никакого страха, ведь рядом папа, добрый и непобедимый герой. Но наступает день, когда вражеские танки входят в город - и мир самых страшных игровых иллюзий мальчика становится реальностью. На экране оживают компьютерные драконы и злые космические (   Читать дальше...   )Жанр: Драма, ВоенныйРежиссер: Джаник ФайзиевАктеры: Светлана Иванова, Максим Матвеев, Егор Бероев, Артем Фадеев, Владимир Вдовиченков, Сергей Газаров, Гоша Куценко, Анатолий Белый, Кирилл Плетнёв, Алексей ГуськовПеревод: ОригиналПродолжительность: 02:12:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 474186   (84805) от 27.03.2012
 
 Август. Восьмого (2012) BDRip [H.264/720p-LQ]
@@ -6,7 +120,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84805.jpg" />
 </div>
 
 
@@ -33,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84797.jpg" />
 </div>
 
 
@@ -59,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84796.jpg" />
 </div>
 
 
@@ -85,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84795.jpg" />
 </div>
 
 
@@ -113,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84769.jpg" />
 </div>
 
 
@@ -141,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84763.jpg" />
 </div>
 
 
@@ -169,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81962.jpg" />
 </div>
 
 
@@ -195,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80681.jpg" />
 </div>
 
 
@@ -223,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80496.jpg" />
 </div>
 
 
@@ -249,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79640.jpg" />
 </div>
 
 
@@ -275,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77976.jpg" />
 </div>
 
 
@@ -301,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77608.jpg" />
 </div>
 
 
@@ -327,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77210.jpg" />
 </div>
 
 
@@ -353,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77144.jpg" />
 </div>
 
 
@@ -381,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77010.jpg" />
 </div>
 
 
@@ -407,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76404.jpg" />
 </div>
 
 
@@ -433,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76402.jpg" />
 </div>
 
 
@@ -459,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76321.jpg" />
 </div>
 
 
@@ -486,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76186.jpg" />
 </div>
 
 
@@ -512,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76173.jpg" />
 </div>
 
 
@@ -538,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74998.jpg" />
 </div>
 
 
@@ -564,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74956.jpg" />
 </div>
 
 
@@ -575,110 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 442709   (72502) от 27.01.2012
-
-Реальная сказка (2011) BDRip [H.264/720p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жили-были сестрица Олесенька и братец Саша… Нет, так не пойдет: кажется, прошла пора старых-добрых сказок. Даже сказочные персонажи, понимая это, переселились в наш мир: Василиса Премудрая стала учительницей, Леший — бомжом, Иван-дурак — ВДВшником, Кащей — олигархом. Злые дела творить он, конечно, не бросил. И главным его злодеянием стало то, что он лишил нас веры (   Читать дальше...   )Производство: РоссияЖанр: Фэнтези, Драма, КомедияАктеры: Сергей Безруков, Леонид Ярмольник, Максим Шибаев, Анастасия Добрынина, Ирина Безрукова, Георгий Штиль, Людмила Полякова, Анна Герман, Сергей Погосян, Антон ПампушныйПеревод: ОригиналСубтитры: нетПродолжительность: 01:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFC30318DE548BF467E1FD6988FFAD59AEBA8C02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794281   (67351) от 28.04.2025
-
-Индиго (2023) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67351.jpg" />
-</div>
-
-
-###  Подробнее
-
-В середине XX века в мире стали рождаться люди с аномальным развитием, которых назвали индиго. Но немногим известно, что есть те, чьи аномалии скрыты, и сами индиго называют их спящие. Появление индиго стало угрожать сложившемуся мировому порядку, поэтому на них втайне началась охота. Чтобы спастись, индиго начали вербовать спящих, используя списки с их именами.Производство: РоссияЖанр: короткометражный, фантастикаРежиссер: Тим ПавелкоАктеры: Александр Цой, Дмитрий Калязин, Сергей Бадюк, Кирилл Левашов, Келз Увво, Максим Якимов, Максим Павелко, Александр НапаринПродолжительность: 00:13:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53C0E3E16857C2ED37F8E69CC3443166AC75E4D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796517   (66987) от 10.05.2025
-
-Ты меня любишь? (2022) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вера живет с ненавистными соседями по квартире, встречается с парнем, который не готов к серьезным отношениям. Она также ухаживает за больной деменцией бабушкой. Чтобы снять отдельную квартиру, Вера задумывает украсть у нее дорогое кольцо.Производство: РоссияЖанр: Короткометражный, драма, ужасыРежиссер: Виктория ДёгтеваАктеры: Александра Быстржицкая, Саша Гросс, Галина Шмакова, Никита Клещёв, Наталья Акопова, Игорь Колесников, Ирина Помозова, Варвара МакароваПродолжительность: 00:20:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A68619F42977BC2094A0AC66DAC3D7CBCC7E6409
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797765   (66736) от 18.05.2025
-
-30 секунд (2023) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артём и Наташа — больничные клоуны. Они ведут видеоблог про свой опыт волонтёрства. В больнице уже продолжительное время лежит девочка Варя. Блогеры переживают за Варю, ведь как они ни пытаются ей помочь — у них ничего не выходит. Однажды Артём узнаёт, что мать девочки перестала навещать её. Он понимает, что победить болезнь может помочь только мама.Производство: Россия / Red Pepper FilmЖанр: Короткометражный, драма, комедияРежиссер: Иван СоснинАктеры: Сергей Гилев, Ольга Лерман, Ирина Плесняева, Есения Щипанова, Любовь Иванская, Андрей Бисеров, Ирина КалининаСубтитры: отсутствуютПродолжительность: 00:19:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86B64F957D410B29D4B7134708B60498AF5FCC57
 ```
 
 https://mybot314.ru/tekegram_catalog/

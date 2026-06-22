@@ -1,3 +1,107 @@
+###  Публикация: 991660   (905772) от 28.02.2016
+
+Дмитрий Златопольский | Занимательная информатика (2011) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга во многом аналогична популярным книгам «Занимательная физика» Я.И. Перельмана, «Математические чудеса и тайны» М. Гарднера, «В царстве смекалки» Б.И. Игнатьева, «Математическая смекалка» Б.А. Кордемского и др. Она содержит большое количество разнообразных занимательных логических задач и головоломок, интересных фактов и полезных программ, простейших компьютерных (   Читать дальше...   )Жанр: Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:071600EAF9B461B9D4E7BD33D55409CA33E6C16D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368971   (905568) от 22.03.2020
+
+Монсе Доменек | Монстры под кроватью: Как помочь ребёнку победить любые страхи (2017) [PDF, FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детские страхи – то, с чем сталкивается большинство родителей. Взрослые зачастую не склонны относиться к ним, как к чему-то серьёзному, и совершенно напрасно. Да, страх является важным адаптационным механизмом, неотъемлемой составляющей нашего инстинкта выживания. Однако если он становится навязчивым, закрепляется, то способен причинить немало страданий и в последующей (   Читать дальше...   )Жанр: Воспитание детей, Детская психология, Зарубежная прикладная литература, Зарубежная психологияПеревод: Анна ВасиленкоФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF33676678AA0E876FE91954E654EE8F23D45706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368947   (905055) от 22.03.2020
+
+Жанна Сио-Фашен | Сверходарённый ребёнок (2018) [PDF, FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сверходарёнными называют не только детей с высоким интеллектуальным или творческим потенциалом, но и крайне чувствительных и ранимых. В школе такие ребята порой мешают на уроках учителям и товарищам, задают слишком много вопросов, не могут приспособиться к общим правилам. Иногда им трудно справиться с простыми заданиями и даже писать под диктовку или учить наизусть (   Читать дальше...   )Жанр: Воспитание детей, Детская психология, Зарубежная психологияПеревод: Алина ПоповаФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03221040D056AE972D6CA01157486FC0CC0A25B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368882   (904803) от 22.03.2020
+
+И.Ю. Никитенко | Для самых любознательных. 1000 самых интересных задач и головоломок для детей и взрослых (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Можно сказать, что головоломки — это логические или математические задачи в занимательной форме. Решать их не только увлекательно, но и полезно: они развивают умение анализировать и систематизировать, помогают выработать терпение и внимание, стимулируют образное и логическое мышление. В этой книге представлено множество интересных задач и головоломок, сопровождаемых (   Читать дальше...   )Жанр: ГоловоломкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6296C045BB640962A44F0A220D030216DB645B2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991988   (904209) от 29.02.2016
 
 Лев Померанцев | Юные конструкторы (1956) [DJVU]
@@ -6,7 +110,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904209.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902370.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901923.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899304.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899207.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899045.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898442.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897992.jpg" />
 </div>
 
 
@@ -218,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897537.jpg" />
 </div>
 
 
@@ -245,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896964.jpg" />
 </div>
 
 
@@ -272,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895832.jpg" />
 </div>
 
 
@@ -299,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895342.jpg" />
 </div>
 
 
@@ -325,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894015.jpg" />
 </div>
 
 
@@ -353,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893690.jpg" />
 </div>
 
 
@@ -379,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893659.jpg" />
 </div>
 
 
@@ -406,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893582.jpg" />
 </div>
 
 
@@ -433,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893151.jpg" />
 </div>
 
 
@@ -460,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892949.jpg" />
 </div>
 
 
@@ -486,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889729.jpg" />
 </div>
 
 
@@ -512,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889619.jpg" />
 </div>
 
 
@@ -538,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887703.jpg" />
 </div>
 
 
@@ -564,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887594.jpg" />
 </div>
 
 
@@ -576,114 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:325A04613B109BC0C2C81ED3E68F68394DB85BA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103124   (887451) от 11.02.2017
-
-Николай Горькавый | Электрический дракон (2017) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887451.jpg" />
-</div>
-
-
-###  Подробнее
-
-На молнии, которые ослепляли ярким светом и оглушали громом, расщепляли вековые дубы, вызывали пожары и убивали, люди Средневековья смотрели со страхом, как на жестокого и сильного дракона. Кто сумел приручить этого ужасного электрического дракона, заставить его послушно бежать по проводам, мирно светить в лампочках и усердно крутить электромоторы? Это сделали учёные (   Читать дальше...   )Жанр: Познавательная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D8409F6EA3217CA376C6A9FDCEF64EE359ECD71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372236   (886867) от 02.04.2020
-
-Лорена Паджалунга | Играем в йогу утром (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дети от природы очень активны, и поэтому перед родителями стоит непростая задача — научить их не просто высвобождать и растрачивать эту энергию, а правильно ее использовать.
-
-Вот почему так важно предлагать детям заниматься йогой, особенно по утрам. Утренние упражнения отлично помогают проснуться и подготовиться к новому дню, чтобы войти в него энергичными и позитивным, (   Читать дальше...   )Жанр: Воспитание детей, Йога, ПедагогикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:256F123D694E555EBD00D25CE0295FC822F1012E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103612   (885243) от 12.02.2017
-
-Р. Курант, Г. Роббинс | Что такое математика? 7-е издание (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга написана крупным математиком Рихардом Курантом в соавторстве с Гербертом Роббинсом. Она призвана сократить разрыв между математикой, которая преподается в школе, и наиболее живыми и важными для естествознания и техники разделами современной математической науки. Начиная с элементарных понятий, читатель движется к важным областям современной науки. Книга написана (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5B78D308305C384DE5406E971041A63FB372531
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996038   (882508) от 12.03.2016
-
-Алла Журавлева, Василий Федиенко | Азбука от А до Я и числа от 0 до 10 (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой пособие для детей 4-7 лет. Данный стихотворный материал помо­жет в интересной, игровой форме познакомить ребенка с буквами от А до Я и числами от 0 до 10.
-
-Для родителей, воспитателей и педагогов.Жанр: Обучение, развитиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C6536701B3E4E78EEEDA278839BE71BA9FCDDF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

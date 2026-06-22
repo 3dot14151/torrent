@@ -6,7 +6,7 @@ Painstatic - The Unknown: 1 Year Edition (2018) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601603.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Chemical Brothers - No Geography (2019) Japan Edition [FLAC|Lossless|tracks 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593427.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Colombo - The Antological Big Beat (2021) [FLAC|Lossless|WEB|tracks] <Big Beat, 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591200.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Under Break - The Experience (2022) [FLAC|Lossless|WEB|tracks] <Breaks>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589738.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Hospital Mixtape - Lens (2022) [FLAC|Lossless|WEB|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589730.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Pendulum - Hold Your Colour (2014) Reissue [FLAC|Lossless|WEB|tracks] <Drum & Ba
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584694.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Grafix - Half Life (2022) [FLAC|Lossless|WEB|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_581814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_581814.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Chemical Brothers - Born in the Echoes (2015) Deluxe Edition [FLAC|tracks+.c
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573431.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_569998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_569998.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ The Prodigy - The Night Is My Friend (2015) EP [FLAC|tracks]<Electro, Breakbeat,
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562363.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - Sick Music 2018 (2018) Hospital Records [FLAC|Lossless|tracks+.cue] <Drum n
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554839.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Logistics - Hologram (2018) Hospital Records [FLAC|Lossless|tracks+.cue] <Drum n
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553604.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ S'apex (Daniel Myer) - Audiodesign (1998/2015) Remastered [FLAC|Lossless|WEB-DL|
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538977.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Chase & Status - RTRN II JUNGLE (2019) Virgin EMI Records [FLAC|Lossless|tracks+
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530698.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Lost Dubs 3 (2020) Microfunk Music [FLAC|Lossless|WEB-DL|tracks] <Drum n Ba
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485453.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Pessimist - Atyeo (2020) Ilian Tape [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475145.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Matrix & Futurebound - Universal Truth (2007) [WavPack|Lossless]<Drum'n'Base>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460211.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ AK1200 with MC Navigator - Mixed Live: Moonshine Overamerica, San Francisco (200
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445245.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Desimal - Discography 9 Releases (2005-2015) Armada, Obsessions, Barcode [FLAC|L
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439325.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ TMUX - State Of Exception (2020) False Industries [FLAC|Lossless|WEB-DL|tracks] 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429826.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Omni Trio - The Haunted Trax EP (1996) Sm:)e Communications [FLAC|Lossless|track
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429747.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Nebula - Astronomy (2017) Scientific Wax [FLAC|Lossless|tracks+.cue] <Drum n Bas
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413610.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Pola & Bryson - This Time Last Year: The Remixes (2017) [FLAC|Lossless|WEB-DL|tr
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402351.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ High Contrast - Night Gallery (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391089.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Naibu - Again / Uncalled (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391085.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ Infected Mushroom - Friends On Mushrooms (Deluxe Edition) (2015) [FLAC|tracks+.c
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376390.jpg" />
 </div>
 
 

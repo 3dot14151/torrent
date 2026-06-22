@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057124.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055026.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053904.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050841.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050213.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049562.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048522.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Andrea Bocelli: The Celebration 30th Anniversary (2025) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048328.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047448.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046868.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046376.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044844.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044630.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044608.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044386.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Trident — Blue Field, Finale Concert (2016) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043948.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043931.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Trident — Blue Snow, 1st Live Concert (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043925.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043919.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043714.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043002.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042936.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042690.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042476.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042430.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ Jean-Michel Jarre - Welcome To The Other Side (Concert From Virtual Notre-Dame) 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042184.jpg" />
 </div>
 
 

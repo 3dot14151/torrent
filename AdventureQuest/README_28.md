@@ -1,3 +1,107 @@
+###  Публикация: 1285252   (722318) от 25.02.2019
+
+Life is Strange 2 (2018) [Ru/Multi] (1.0) Repack Other s [Episode 1-2]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удостоенная наград Life is Strange от студии DONTNOD Entertainment наконец получила продолжение. Братья Шон и Даниэль Диас, 16 и 9 лет, вынуждены оставить дом в Сиэтле после произошедшей там трагедии. Они опасаются преследования полиции и бегут в Мексику, по пути разбираясь с внезапно появившимися сверхспособностями. Вдали от дома, преодолевая тяготы и невзгоды, (   Читать дальше...   )Тип издания: RepackРазработчик: DONTNOD EntertainmentЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:742B91771810CAC7BC61B7AD2B8E3C0F97CAF690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285459   (720518) от 26.02.2019
+
+Pacify (2019) [Multi] (1.0/upd1) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот дом был построен более чем 100 лет назад, владельцы которого управляли похоронным бюро. Ходили слухи, что они также предлагали совершенно особую услугу-ритуал, позволяющую пообщаться с умершим. После одного из ритуалов случилось непоправимое - человек из города и владельцы дома исчезли и никогда более не появились снова. Несколько детей, прогуливающихся вокруг (   Читать дальше...   )Тип издания: LicenseРазработчик: Shawn HitchcockЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:557110BA7967E310E63A586B7EB1029C2D6B61E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284656   (720389) от 26.02.2019
+
+Devotion (2019) [Multi] (1.0.5) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Devotion — это атмосферная игра ужасов от первого лица, изображающая жизнь семьи в тени религиозных убеждений. Исследуйте тайваньский жилой комплекс 1980-х годов, постепенно теряющийся в адском кошмаре. Окунитесь в обеты, которые сделал каждый член семьи, и станьте свидетелями их преданности.Тип издания: LicenseРазработчик: RedCandleGamesЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: КитайскийЯзык субтитров: Английский, Китайский, Японский и другиеЯзык интерфейса: Английский, Китайский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE15FBC74D33C5B2C87888C853759CC23440F23C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531135   (720145) от 16.02.2022
+
+Lust from Beyond (2022) [Ru/Multi] (01.02.2022) License GOG [M Edition] [18+]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lust from Beyond: Издание M - новая версия культового ужаса выживания «Lust from Beyond». Это издание адаптировано к предпочтениям игроков, которые любят жанр ужасов Лавкрафта за его загадочность, повествование и атмосферу, а не явный контент. Мы приглашаем Вас в другой мир. Мир, наполненный желанием, очарованием и страхом. Мир, вдохновленный поражающими работами (   Читать дальше...   )Тип издания: LicenseРазработчик: Movie Games LunariumЖанр: Экшн, Приключение, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE04B51E5AC16308ACF7DD2F9D62698B192935F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129542   (719976) от 29.04.2017
 
 What Remains of Edith Finch (2017) [Ru/Multi] (1.0) License HI2U
@@ -6,7 +110,7 @@ What Remains of Edith Finch (2017) [Ru/Multi] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719976.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Candleman: The Complete Journey (2018) [Ru/Multi] (1.0/upd2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718981.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Returner 77 (2018) [Ru/Multi] (4102018) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718974.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ The Long Dark (2017) [Ru/Multi] (1.29) License RELOADED [Episode 1-2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718966.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Nancy Drew: Midnight in Salem / Нэнси Дрю: Полночь в Сейле�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718534.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Life Is Strange 2 (2018) [Ru/Multi] (1.0) Repack xatab [Episode 1-2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718371.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ KAPIA (2022) [Ru/Multi] (1.266) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718176.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Scarf (2021) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718172.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Day of the Tentacle Remastered (2016) [En/Multi] (1.3.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717242.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ The Road to Hades (2018) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716916.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Skully (2020) [Ru/Multi] (1.0.161.6416) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716584.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Subnautica (2018) [Ru/Multi] (65786) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716446.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Minecraft: Story Mode (2015) [Ru/Multi] (1.0.0.1) Repack Other s [Episodes 1-6]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715286.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ Solas and the White Winter (2018) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715056.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ Amberskull (2018) [Ru/Multi] (1.1.2) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715053.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ Call of Cthulhu (2018) [Ru/Multi] (1.0/upd2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714368.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ Call of Cthulhu (2018) [Ru/En] (1.0/u2) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714356.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ Call of Cthulhu (2018) [Ru/Multi] (1.0/upd2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714355.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ Olav: the story of one boy (2017) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713928.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ The Journeyman Project 1: Pegasus Prime (1997) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712270.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ Resolutiion (2020) [Ru/Multi] (1.1.4.3) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708818.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ The Journeyman Project 2: Buried in Time (1995) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708435.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ The Journeyman Project 2: Buried in Time (1995) [En] (1.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:410D802BDE443F722A1A3651BDBDD67E80341632
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533223   (706799) от 23.02.2022
-
-Q.U.B.E. (2014) [En] (2.8/dlc) License GOG [Director's Cut]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая расширенная версия классической головоломки Q.U.B.E c новым сюжетом от признанного мастера своего дела, сценариста Роба Йескомба. Q.U.B.E: Director's Cut (расширенная версия) - самая полная версия классической головоломки с видом от первого лица, действительно заставляющей шевелить извилинами. Вам предстоит передвигать кубики с помощью высокотехнологичных перчаток. (   Читать дальше...   )Тип издания: LicenseРазработчик: Toxic GamesЖанр: Приключение, От первого лица, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2C20363EF9B2C9B18AF05CD94C52756EE7B7FAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532690   (706693) от 23.02.2022
-
-Black Book (2021) [Ru/Multi] (1.0.36/dlc) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в мрачный мир северной мифологии, созданный отечественными разработчиками из Перми! Юной крестьянке Василисе судьбой предначертано стать колдуньей. Идя наперекор своей участи, она решает бросить колдовство и обвенчаться со своим возлюбленным.Тип издания: LicenseРазработчик: MorteshkaЖанр: Стратегия, Приключение, RoguelikeЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Китайский (упрощённый)Язык интерфейса: Русский, Английский, Китайский (упрощённый)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C348F77006855D584886B60B7CDAB3AA42FD28B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287169   (706684) от 05.03.2019
-
-7th Sector (2019) [Ru/Multi] (1.0) License DARKSiDERS
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706684.jpg" />
-</div>
-
-
-###  Подробнее
-
-7th Sector предлагает Вам погрузиться в загадочный мир киберпанка и преодолеть непростой путь, решая разнообразные технические задачи, сталкиваясь с опасностями и собирая по крупицам информацию о мире и происходящих в нем событиях.Тип издания: LicenseРазработчик: Носков СергейЖанр: Adventure, Puzzle, Logic, 3DЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFDD307A1A6A639C0FA28076B94D51F8CC5CA392
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260746   (706666) от 05.03.2019
-
-KURSK (2018) [Ru/Multi] (3.0.8/dlc) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706666.jpg" />
-</div>
-
-
-###  Подробнее
-
-KURSK — первая документальная приключенческая игра, основанная на реальных событиях. Вы — шпион, внедренный на борт российской атомной подводной лодки K-141 «Курск», и ваша задача — добыть секретную информацию о суперторпедах «Шквал». Выполняя задание, вы становитесь свидетелем трагических событий, потрясших весь мир.Тип издания: RepackРазработчик: Jujubee S.A.Жанр: Action, Adventure, 3DЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58FFFF51A4905E575683F3531A4058D1890E8F43
 ```
 
 https://mybot314.ru/tekegram_catalog/

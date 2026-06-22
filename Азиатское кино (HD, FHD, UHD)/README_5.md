@@ -1,3 +1,159 @@
+###  Публикация: 1612756   (1040087) от 16.02.2023
+
+Экспресс миллионеров / Шанхайский экспресс / Foo gwai lip che / The Millionaires' Express / Shanghai Express (1986) BDRemux [H.264/1080p] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несмотря на все усилия начальника полиции Цао железнодорожные пути около маленькой станции взрывает Чин Фо-Тинь. Его цель благородна — с помощью находящихся в поезде он хочет дать заработать местным жителям. Но он не мог даже предположить, что привлечет внимание всех жуликов и отпетых головорезов.Производство: Гонконг / Bo Ho Film Company Ltd.Жанр: боевик, комедия, вестернРежиссер: Саммо ХунгАктеры: Саммо Хунг, Юэнь Бяо, Оливия Чэн, Розамунд Кван, Кенни Би, Эрик Цан, Ричард Нг, Лидия Сум, Эмили Чу, Полин ВонПеревод: Авторский (AVO, Вячеслав Котов)Язык озвучки: русский, китайскийСубтитры: АнглийскиеПродолжительность: 01:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4EDAD1DB456604E2B86DB2537FB61AC5A2DD9C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612924   (1039713) от 17.02.2023
+
+Ночная пташка / Nightbird (2023) WEB-DLRip [H.264/720p-LQ] [DVO]
+
+>>След.
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039713.jpg" />
+</div>
+
+
+###  Подробнее
+
+На вечеринке, устроенной подругами, Рэйчел знакомится с четырьмя мужчинами. Ночь, полная выпивки и наркотиков, превращается в хаос, когда мужчины насилуют Рэйчел и её подруг. Рэйчел клянется отомстить, чего бы это ни стоило.Производство: Филиппины / Viva FilmsЖанр: триллерРежиссер: Лоуренс ФахардоАктеры: Кристин Бермас, Сид Лусеро, Феликс Роко, Аррон Вильяфлор, Марк Энтони Фернандес, Гуджи Лоренцана, Алекса Окампо, Хлоя Дженна, Ниньо Мендоса, Ландер Вера-ПересПеревод: Любительский двухголосый (DeadSno & den904) 18+Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05AC8C0E1742BA3424CB21DAB64008DAEAFB4447
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614180   (1038874) от 21.02.2023
+
+Мятная конфета / Bakha satang / Peppermint Candy (1999) BDRip [H.264/720p] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038874.jpg" />
+</div>
+
+
+###  Подробнее
+
+История несчастного человека, обеспокоенного будущим и отягощенного печальным опытом прошлого.Производство: Корея Южная / East Film CompanyЖанр: драмаРежиссер: Ли Чхан-донАктеры: Гён Гу Сол, Мун Со Ри, Ким Ё Чжин, Со Чжон, Чжи Дэ Хан и др.Перевод: Одноголосый любительский (D.I.M), (viare)Язык озвучки: русский, корейскийСубтитры: русские, английскиеПродолжительность: 02:10:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29AE96D197055C43ED67F789389DDEA17291C289
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439026   (1038435) от 18.01.2021
+
+Атака на Пёрл-Харбор / Rengo kantai shirei chokan: Yamamoto Isoroku (2011) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конец 30-х годов прошлого века в Японии – время экономического кризиса, страшной безработицы и нищеты, политической нестабильности. Страна неуклонно двигалась к войне. Адмирал Ямамото, командующий императорским флотом, был одним из немногих, кто считал, что начинать войну с США нельзя. Ранее он не поддерживал ни вторжение в Маньчжурию, ни войну с Китаем. Его позиция (   Читать дальше...   )Производство: Япония / Bandai Visual Company, Toei Company, Kinoshita KomutenЖанр: Драма, военный, биография, историяРежиссер: Идзуру НарусимаАктеры: Кодзи Якусё, Хироси Абэ, Сюити Азумая, Мицугоро Бандо, Акира Эмото, Ёсихико Хакамада, Миэко Харада, Масато Ибу, Юсукэ Иидзука, Дзюн ИтоПеревод: Дублированный, АвторскийСубтитры: Немецкие (Full)Продолжительность: 02:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D9B7962D42DB97E789EF6E55E46B98CAAD671E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440043   (1038427) от 18.01.2021
+
+Плохие парни: Власть хаоса / Nappeun nyeoseokdeul: deo mubi / Bad Guys: The Movie (2019) BDRemux [H.264/1080i] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время перевозки опасных преступников тюремный автобус подвергся нападению, перевернулся, и заключённые сбежали. Самые опасные из них до сих пор не пойманы, поэтому полицейский детектив на пенсии, несколько лет назад руководивший спецподразделением, по такому поводу снова возвращается в строй, ведь он считает, что бороться со злом надо его же методами. И вот уже (   Читать дальше...   )Производство: Корея Южная / CJ EntertainmentЖанр: Боевик, Криминал, ТриллерРежиссер: Сон Ён-хоАктеры: Ма Дон-сок, Ким Сан-джун, Ким А-джун, Чан Ги-ён, Пак Хё-джун, Ким Ин-у, Ли Джэ-юн, Пак Вон-сан, Чо Ён-джин, Пак Хён-суПеревод: АвторскийСубтитры: АнглийскиеПродолжительность: 01:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05050F889905865DFB1ADA986C9BC12829564D68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440841   (1038198) от 19.01.2021
+
+Воспоминания убийцы / Sarinjaui gieokbeop (2017) BDRip [H.264/720p-LQ] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серийный убийца Ким Бён-су завязал 17 лет назад. Живёт теперь со взрослой дочерью и болезнью Альцгеймера и подумывает сдаться в дом престарелых, когда в округе вновь происходят убийства. Столкнувшись однажды в тумане с другим автомобилем, Бён-су замечает кровь в багажнике и явно человеческое тело, а у хозяина авто - такой же холодный взгляд убийцы.Производство: Южная Корея / Green Fish Pictures, Showbox/Mediaplex, Showbox EntertainmentЖанр: Триллер, драма, криминалРежиссер: Вон Щин-ёнАктеры: Соль Гён-гу, Ким Нам-гиль, Ким Соль-хён, О Даль-су, Хван Сок-чон, Чон Ин-гём, Щин Ги-джун, Ким Дон-хи, Ким Хан-джун, Ким Джон-ёнПеревод: Любительский одноголосыйСубтитры: Русские, английскиеПродолжительность: 01:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D68A270D2ADC9C30BDF0606F17464E68DFA5249
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441119   (1037972) от 20.01.2021
 
 Смертельные пальцы Брюса / Lung men bei chi / Bruce's Deadly Fingers (1976) BDRemux [H.264/1080p]
@@ -6,7 +162,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037972.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037831.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037148.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036656.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036382.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036303.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035939.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035602.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035243.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035119.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034929.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034867.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034608.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034589.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033442.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033403.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033402.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033196.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033194.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033150.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2C514D784A0725D5A4FD3397B875273D793CE82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445315   (1032651) от 09.02.2021
-
-Избави нас от лукавого / Daman akeseo guhasoseo (Deliver Us from Evil) (2020) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший секретный оперативник южнокорейских спецслужб Ин-нам уже 9 лет работает наёмным убийцей. После выполнения последнего задания — убийства главы клана якудза — он собирается навсегда уехать в Панаму, но внезапно узнаёт, что его бывшую девушку убили. Также выясняется, что у той была маленькая дочь, которую незадолго до этого похитила собственная няня. Задействовав (   Читать дальше...   )Производство: Южная Корея, CJ Entertainment, Hive MediaЖанр: Боевик, триллер, криминалРежиссер: Хон Вон-чханАктеры: Хван Джон-мин, Ли Джон-джэ, Пак Чон-мин, Пак Со-и, Чхве Хи-со, Пак Мён-хун, О Дэ-хван, Сон Ён-чхан, Ли Со-хван, Щим Ён-ынПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 01:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09D066E076AD7DAE9CB56F96FFBAA8AAEF788008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446570   (1032379) от 10.02.2021
-
-Мечник / Geomgaek (The Swordsman) (2020) BDRip [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чосон, 1623 год. После свержения монарха Кванхэ-гуна страна погружается в хаос. Через несколько лет солдаты империи Цин забирают крестьян на чужой территории в рабы, их предводитель ищет достойного соперника для поединка на мечах, а простая девушка пытается найти лекарство для слепнущего отца.Производство: Корея Южная / Opus PicturesЖанр: История, боевикРежиссер: Чхве Джэ-хунАктеры: Чан Хёк, Ким Хён-су, Джо Таслим, Чон Ман-щик, Ли На-гён, Ли Мин-хёк, Чхве Джин-хо, Чи Сын-Хён, Чи Гон-у, Кон Сан-аПеревод: Любительский двухголосый (Zozya & Numinel)Субтитры: Русские (Forced), английскиеПродолжительность: 01:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35A9240F064D892010FD6CCBEDD1AEF5C7BBA910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446819   (1032182) от 11.02.2021
-
-Избави нас от лукавого / Daman akeseo guhasoseo (Deliver Us from Evil) (2020) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший секретный оперативник южнокорейских спецслужб Ин-нам уже 9 лет работает наёмным убийцей. После выполнения последнего задания — убийства главы клана якудза — он собирается навсегда уехать в Панаму, но внезапно узнаёт, что его бывшую девушку убили. Также выясняется, что у той была маленькая дочь, которую незадолго до этого похитила собственная няня. Задействовав (   Читать дальше...   )Производство: Южная Корея, CJ Entertainment, Hive MediaЖанр: Боевик, триллер, криминалРежиссер: Хон Вон-чханАктеры: Хван Джон-мин, Ли Джон-джэ, Пак Чон-мин, Пак Со-и, Чхве Хи-со, Пак Мён-хун, О Дэ-хван, Сон Ён-чхан, Ли Со-хван, Щим Ён-ынПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 01:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:348C0DF1013FB5B24E0DA901C7FF2AA3E435A32E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620454   (1032138) от 20.03.2023
-
-Совсем мало времени / Am zin (1999) BDRip [H.264/720p] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инспектор полиции и превосходный переговорщик по захвату заложников Хо Шен Сан оказывается в затруднительном положении, когда его втягивает в 72-часовую игру больной раком преступник, жаждущий мести организованным преступным синдикатам Гонконга...Производство: Гонконг, China Star Entertainment, Win's Entertainment Ltd.Жанр: драма, криминал, боевик, триллерРежиссер: Джонни ТоАктеры: Энди Лау, Чин Ван Лау, Ёё Мунг, Уэйз Ли, Шиу Хунг Хуи, Сует Лам, Руби Вонг, Вэй Аи, Вэй Кин Лам, Роберт СпарксПеревод: авторскийЯзык озвучки: русский, китайскийСубтитры: английскиеПродолжительность: 01:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9513127659B2EDDAFD5A2C4791F24326BEB223F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620420   (1032103) от 20.03.2023
-
-Эсминец без цели / Эгида / Bokoku no ijisu (2005) BDRip [H.264/720p] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Биологическое оружие контрабандой перевозится на борту высокотехнологичного линкора под названием "Эгида". Боевики полны решимости обрушить это на Японию. Но у храброго главного старшины другие идеи. Он и агент под прикрытием пытаются остановить боевиков...Производство: Япония, Cross MediaЖанр: драма, боевик, военный, триллерРежиссер: Дзюндзи СакамотоАктеры: Хироюки Санада, Акира Тэрао, Коити Сато, Киити Накаи, Рё Кацудзи, Мин Со Чхэ, Эисаку Ёсида, Сёсукэ Танихара, Исао Тоёхара, Масанобу АндоПеревод: авторскийЯзык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 02:07:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0EB991251DD98E3469B74B131815C7FDBFCC3FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447524   (1031716) от 13.02.2021
-
-Служба спасения / Jin ji jiu yuan (The Rescue) (2020) WEBRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031716.jpg" />
-</div>
-
-
-###  Подробнее
-
-В службу спасения поступает сообщение о происшествии на морской буровой платформе. Ситуация осложняется тем, что сооружение может опрокинуться в любой момент, и к тому же взрывоопасно. Не думая о собственных жизнях, отважные спасатели сделают всё, чтобы помочь как можно большему числу людей.Производство: Китай / China Modern Film and Television Development, Film Fireworks, Mokexing FilmЖанр: БоевикРежиссер: Данте ЛамАктеры: Эдди Пэн, Ван Яньлинь, Синь Чжилэй, Лань Инъин, Ван Юйтянь, Ян Сю, Карлос Чан, Ли Миньчэн, Чжан Гоцян, Го СяодунПеревод: Многоголосый любительский (КОЛОБОК)Субтитры: АнглийскиеПродолжительность: 02:13:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FF998CAC4CFA66FF361D32318C9A94C1498AE7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

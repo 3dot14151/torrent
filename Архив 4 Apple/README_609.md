@@ -1,3 +1,56 @@
+###  Публикация: 1597136   (167567) от 13.12.2022
+
+OmniPlayer Pro - Media Player 2.0.15 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167567.jpg" />
+</div>
+
+
+###  Подробнее
+
+OmniPlayer Pro для Mac - это универсальный медиаплеер практически для любого видео и аудио формата в macOS. Он обладает мощными функциями с современным и простым интерфейсом. Вы можете использовать его для простого воспроизведения различных HD-видео 4K / 1080P / 720P и обычного / без потерь звука с помощью аппаратного декодирования. Богатые функции OmniPlayer позволяют (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2022Разработчик: © 2021 Omi Software Studio, Inc.Поддерживаемая ОС: macOS 10.13+Субтитры: ass, ssa, srt, idx и subЯзык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A143D95DFEE07B6699B3B0D536C51CEF37EDD4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345366   (167565) от 14.12.2019
+
+Secret Folder Pro 10.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Secret Folder - Прячет данные с вашего компьютера от любопытных глаз других пользователей.
+Наиболее простой способ защиты данных: работа программы построена на том, что никто не станет пытаться открыть файл, о существовании которого и не догадывается. Secret Folder позволит вам создать список файлов и папок, которые вы сможете делать видимыми и невидимыми одним щелчком (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: ApimacПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB58C8094BA90BEF4CBDBAB3B79A6BE794E21B2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345360   (167551) от 14.12.2019
 
 RAW Converter 2 v2.5.1 [En]
@@ -6,7 +59,7 @@ RAW Converter 2 v2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167551.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Internet Status 4.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167502.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Mac FoneLab iOS Unlocker 1.0.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167485.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Alfred PowerPack 5.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167482.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ TechSmith Camtasia 2022 Studio 2022.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167474.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ JRiver Media Center 25 v25.0.123 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167470.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ Adguard for Mac 2.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167457.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ Wondershare Recoverit 10.6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167438.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ EdgeView 4.3.7[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167401.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ Allegorithmic Substance Alchemist 2019.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167399.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ MWeb Pro 4.4.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167394.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ Adguard 2.9.2 nightly [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167352.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ Magic Disk Cleaner 2.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167351.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ Disk Xray 4.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167319.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ Navicat Premium 16.1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167317.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ Soulver 3 v.3.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167283.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ Scrivener 3 v3.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167262.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ Downie 4 v.4.6.33 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167251.jpg" />
 </div>
 
 
@@ -484,7 +537,7 @@ CloudMounter 4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167186.jpg" />
 </div>
 
 
@@ -510,7 +563,7 @@ VueScan Pro for Mac 9.8.20 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167145.jpg" />
 </div>
 
 
@@ -536,7 +589,7 @@ Permute 3 v3.7.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167054.jpg" />
 </div>
 
 
@@ -562,7 +615,7 @@ Yate 6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167030.jpg" />
 </div>
 
 
@@ -591,7 +644,7 @@ Deliver Express 2.6.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167026.jpg" />
 </div>
 
 
@@ -617,7 +670,7 @@ SQLPro for SQLite 2021.110 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167010.jpg" />
 </div>
 
 
@@ -631,59 +684,6 @@ SQLPro for SQLit‪e - профессиональный менеджер баз 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F29F82C1F96D8C235E2798C53DE669C61A740D63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431616   (167005) от 14.12.2020
-
-Deliver 2.6.23 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deliver - это комплексное решение для отправки файлов через Интернет и локальные сети с уведомлением по электронной почте. Он поддерживает FTP, SFTP, Amazon S3 и другие основные сервисы, а также предлагает автоматические уведомления о доставке электронной почты, сжатие, доставку по нескольким направлениям и многое другое. Сообщения уведомления основаны на переменных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.12.2020Разработчик: Zevrix SolutionsПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:820D11C4A26AD00D47EE6DE69E69C4E36A489FFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516201   (167000) от 10.12.2021
-
-Jettison 1.8.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jettison - размонтирование внешних дисков перед сном Mac. macOS X имеет свою философию и некоторые вещи в системе происходят несколько иначе, чем в других ОС. К этому можно просто привыкнуть, но можно и упростить себе жизнь используя простые утилиты или приложения.
-«Думаю, всем знакомы надоедливые системные баннеры с уведомлением о том, что один из ваших дисков был (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2021Разработчик: St. Clair SoftwareПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77AB3D8CAD992801A088E6F7B09AFBC4861F289A
 ```
 
 https://mybot314.ru/tekegram_catalog/

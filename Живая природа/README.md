@@ -1,4 +1,108 @@
 https://t.me/izofen
+###  Публикация: 1876585   (1073560) от 17.06.2026
+
+Жизнь на скалах / Vida sobre las rocas (2023) HDTV [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Горный козел – легендарное существо. Это, пожалуй, самое выносливое из всех животных. Они едят что угодно, переносят сильный холод и жару и населяют самые крутые ландшафты мира, где никто не может за ними последовать… В национальном парке Европы Гвадарраме, процветает колония козлов. Мы станем свидетелями их впечатляющих ссор, забавных ухаживаний и их неправильную (   Читать дальше...   )Производство: Испания / Terra IncognitaЖанр: документальный, природа, фауна, флораРежиссер: Альваро МендозаПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийПродолжительность: 00:47:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08805C1E1097E53D788B002ED0008ADE3307C66B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876477   (1073480) от 
+
+Загадки океана / Ocean Secrets (2020) HDTV [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот фильм унесет вас в невероятное путешествие в загадочный и прекрасный подводный мир и не только. Вы узнаете, что делает океан таким удивительным, кто живет в водных просторах и как общаются между собой обитатели глубин. Приглашаем вас в мир чудес природы!Производство: Великобритания / Aquaterrafilms, VisionHavk Films, Nedo ProduccionesЖанр: документальный, природа, фауна, флораРежиссер: Кристобаль СантамарияПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCCF307974D395B0FE1450712562AF36D7380E85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876485   (1073479) от 
+
+Доктор дятел / Dr. Woody: Forest E.R (2023) HDTV [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Со стороны может показаться, что милые обитатели лесов ежедневно заботятся лишь о собственном существовании. Тем не менее, сложные мир природы устроен так, что некоторые звери и птицы оказываются настоящими санитарами леса. К ним относятся и дятлы, ежедневно спасающие деревья от гибели и своей рутиной преобразующие окружающую среду.Производство: Франция / Roche Productions, France TelevisionЖанр: документальный, природа, фауна, флораРежиссер: Ariane Lamarsaude, Samuel ToutainПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28A9F520303E72DEBF99EAD8D5C6A473621E0DA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876513   (1073478) от 
+
+Королевства солнца / Los reinos del Sol (2021) HDTV [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Солнце согревает всё вокруг, но и может испепелять безжалостным зноем. Мы побываем в отдалённых джунглях Центральной Америки и засушливых землях Австралии и Намибии, чтобы увидеть, как дикая природа сумела приспособиться к меняющейся природе вокруг.Производство: Испания / Green Dreams Films EntertainmentЖанр: документальный, природа, фауна, флораРежиссер: Антонио Санчес ГалейПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:50:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:228471E0DB355EDB67558BFC31C494C7418C5E9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875481   (1072595) от 
 
 Горизонт / Horizon (2024) WEBRip [H.264/1080p] [EN / RU, EN Sub]
@@ -7,7 +111,7 @@ https://t.me/izofen
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072595.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072483.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072032.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072023.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ PBS Nature: Живая природа Кубы / Cuba's Wild Revolution (2019) W
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072018.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071797.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071560.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070938.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070573.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070558.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069449.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068703.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068404.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068023.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067293.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066819.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066818.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066479.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065862.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065174.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064421.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064346.jpg" />
 </div>
 
 
@@ -566,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABCCCE203C1F4DBFAFCCCB4BC401A60089C4FD5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863112   (1063710) от 02.04.2026
-
-Как выживают медведи / Ours, les derniers survivants (Bears: Ultimate Survivors) (2018) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Символ дикого континента - медведи, - навсегда связаны с Северной Америкой. Этого холодная суровая среда, где полярному медведю, барибалу и гризли нужно стараться изо всех сил. Каждый день - это борьба за выживание. Они сражаются с силами природы, меняющимся миром и друг с другом...Производство: Канада, Bear Road FilmsЖанр: документальный, природа, фауна, флораРежиссер: Келси ЭлиассонПеревод: ДублированныйЯзык озвучки: русский, французскийПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F433E4FB2810E5ECC649C4E22F274378520B0E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860284   (1061699) от 20.03.2026
-
-Жизнь рядом со львами / Living With Lions (2023) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ругари и его семья живут на границе Серенгети. Когда наступает засушливый сезон, голодные львы могут совершить набег на ближайший посёлок. Как живётся людям в соседстве с королями саванны? Смогут ли скотоводы уберечь свои стада от хищников? Не страшно ли детям ходить в школу и каким мерам безопасности их обучают на уроках?Производство: Танзания, Франция, Siima Media, Ouragan filmsЖанр: документальный, природа, фауна, экологияРежиссер: Эрика РугабанданаУчастники: Кениата Ругари, Чаусику Мтиро, Дауди РамадханиПеревод: Двуголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 00:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EDC56B41E12718BECFA66FA8705F78937FA1B6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859635   (1061279) от 16.03.2026
-
-Жизнь тропического леса / Rainforest Home (2020) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тропический лес - богатейшая естественная среда на Земле, где обитают миллионы удивительных растений и животных. От гигантских мастеров ландшафтного дизайна до целых семей, способных уместиться всего лишь на одном листе дерева. Здесь могут прекрасно уживаться вместе и крошечные лягушки и огромные пауки. Попугаи едят землю, а кенгуру карабкаются по деревьям. И возможно (   Читать дальше...   )Производство: Германия, NDR | Naturfilm, doclightsЖанр: документальный, природа, фауна, флораПеревод: ДублированныйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:504EB883594F93BFB6BD5BA9B21090F0574393E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859037   (1060893) от 14.03.2026
-
-Животные, изменившие ход истории / Animals That Changed History (2022) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одомашнивание диких животных и растений было одним из важнейших шагов в истории человечества. Когда люди поняли, что они могут менять окружающую среду под свои нужды и самостоятельно выращивать пищу, они отказались от кочевого образа жизни охотников и собирателей — и занялись земледелием и разведением скота: коров, овец и свиней.Производство: Германия, NDR Naturfilm, DoclightsЖанр: документальный, природа, история, фаунаПеревод: Одноголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DC9D2E974BF37FEC12376D503B3E871E96D23B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

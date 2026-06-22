@@ -1,55 +1,3 @@
-###  Публикация: 1577670   (234043) от 20.09.2022
-
-Darkest Hour: A Hearts of Iron Game (2011) [Ru/Multi] (1.05.1) License GOG
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_234043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Darkest Hour - самостоятельное дополнение для игры Hearts of Iron, созданное самыми опытными и преданными фанатами этой игры. Darkest Hour дает хорошую возможность не только оказаться в центре важнейших событий, но и изменить ход истории: действие дополнения охватывает период с июня 1914г., с самого начала Первой мировой, и до 1964 года, когда мир погрузился в пучины (   Читать дальше...   )Тип издания: LicenseРазработчик: Martin IvanovЖанр: Стратeгия, В реальном времени, ИсторическаяЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4003095AC7369DCD82A6BFAAF68BECCF6D11B0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555126   (231452) от 03.06.2022
-
-Patrician III: Rise of the Hanse / Patrician III: Расцвет Ганзы (2003) [Ru/En] (1.1) Unofficial
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Patrician III - это экономическая стратегия. Вы - обыкновенный житель средневекового городка, но вам хочется большего. Неплохо было бы превратиться из простого, незначительного торговца в патриции или, что еще лучше, стать главой Ганзейского союза. Для этого можно стать дипломатом и заняться обустройством города. А можно пойти по кривой дорожке пиратства и набить (   Читать дальше...   )Тип издания: UnofficialРазработчик: Ascaron EntertainmentЖанр: Стратегия (экономическая)Язык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56159AFD8ACB47563776A69F8B2360110AA0A222
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513385   (224411) от 28.11.2021
 
 Majesty 2 Collection (2011) [Multi] (1.5.356/dlc) License GOG
@@ -58,7 +6,7 @@ Majesty 2 Collection (2011) [Multi] (1.5.356/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224411.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Company of Heroes (2006) [Ru] (1.0) License
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221793.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Age of Wonders III (3) (2014) [Ru/Multi] (1.802fix/dlc) License GOG [Deluxe Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221498.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Druidstone: The Secret of the Menhir Forest (2019) [Ru/En] (1.2.12) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221013.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Total War: ROME II / Total War: Rome 2 (2013) [Ru/En] (2.4.0.19728/dlc) Repack x
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218450.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Imperium Galactica (1997) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217704.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ Stronghold: Warlords (2021) [Ru/Multi] (1.9.23494.D/dlc) License PLAZA [Complete
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216802.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Europa Universalis IV (2013) [En/Multi] (1.14.01/dlc) Repack R.G. Механик
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214623.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ Gord (2023) [Ru/Multi] (1.2.0.38299/dlc) Repack DjDI [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213497.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ Machiavelli the Prince (1995) [En] (1.0.3) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213389.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ Dark Reign + Expansion (1997) [En] (1.4hotfix/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209951.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ King's Bounty: The Legend / King's Bounty: Легенда о рыцаре (2008)
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208926.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ Heroes Chronicles: All Chapters (2000) [En] (1.0 v2) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205681.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ Planetary Annihilation: TITANS (2015) [Ru/Multi] (124627/dlc) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205678.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ Sins of a Solar Empire: Trinity (2010) [En] (1.38) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205604.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ Stellaris (2016) [Ru/Multi] (3.5.1/dlc) License FAiRLIGHT [Digital Anniversary E
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205307.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ Solstice (2021) [En] (1.0.1) Repack dark_elf2
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203221.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ Victoria II (2010) [Multi] (2.31-2/dlc) License GOG [Civil War Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202484.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ Total War: Three Kingdoms (2019) [Ru/En] (1.7.1/dlc) Repack dixen18 [Collection]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202459.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ Stronghold Crusader (2025) [Ru/Multi] (2.01/dlc) Scene Rune [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202454.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ Sins of a Solar Empire: Rebellion (2012) [Ru/En] (1.98/dlc) License GOG [Ultimat
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201968.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ Warhammer 40,000: Dawn of War Dark Crusade (2006) [Ru] (1.2) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201859.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ Age of Wonders (1999) [En] (1.36.0053) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200757.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ Age of Wonders 2: The Wizard's Throne (2002) [En] (1.20.0.3100) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200756.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ Age of Wonders 2: The Wizard's Throne – вторая часть прослав
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38126DE20B5FA4A61620E3D9CEAE4BAA5866D3F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621742   (200741) от 26.03.2023
+
+Age of Wonders: Shadow Magic (2004) [Ru/En] (1.30.0.2616) License GOG
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Age of Wonders: Shadow Magic – это продолжение знаменитой серии стратегических и ролевых игр, с возможностью создания своей авторской среды с генератором карт. Значительный опыт Triumph Studios в создании пошаговых стратегических игр очевиден в Shadow Magic, так как игра предлагает отшлифованный, хорошо сбалансированный геймплей и интересный сюжет. Сага о волшебниках (   Читать дальше...   )Тип издания: LicenseРазработчик: Triumph StudiosЖанр: Стратегия, Пошаговая, ФэнтeзиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4380A29856AB52B66B1BE8C6E11391214757ABA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621752   (200724) от 26.03.2023
+
+Drone Swarm (2020) [Ru/Multi] (7377621) Scene SKIDROW
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы капитан Картер, контролирующий рой из 32 000 дронов! Грамотно управляйте ими с борта корабля «Арго», чтобы достичь своих целей. Разделяйте рой, чтобы одновременно защищать корабль и атаковать врага, разрабатывайте свои собственные тактики, заставайте противника врасплох и используйте окружение себе на пользу для уничтожения агрессоров. Исследуйте неизведанную (   Читать дальше...   )Тип издания: SceneРазработчик: Stillalive StudiosЖанр: Стратегия в реальном времениЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA38951B3B9DB4355E15DDA8BE08EF1292B39202
 ```
 
 https://mybot314.ru/tekegram_catalog/

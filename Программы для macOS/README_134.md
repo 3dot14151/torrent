@@ -1,3 +1,110 @@
+###  Публикация: 1652314   (218917) от 10.08.2023
+
+Unite 4 v.4.5.0 U2B [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unite позволяет быстро и легко превратить веб-сайты в полнофункциональные нативные приложения для MacOS. Используя революционный браузер Unite в качестве бэкэнда, каждое приложение Unite имеет собственный браузер, оставаясь при этом невероятно маленьким и полнофункциональным. И поскольку приложения Unite являются уникальным браузером, они имеют отдельные файлы cookie (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.07.2023Разработчик: © 2023 BZG Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:055A33C47120082021049D539D37590B5E368200
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652238   (218739) от 10.08.2023
+
+FE File Explorer Pro 3.4.2 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218739.jpg" />
+</div>
+
+
+###  Подробнее
+
+FE File Explorer - это мощный файловый менеджер для macOS, iOS, Android и tvOS. Он может получать доступ к файлам не только в локальном хранилище, но также на вашем компьютере, NAS и облачных хранилищах. Переносите файлы из любого места в любое место. Транслируйте фильмы и музыку на свои мобильные устройства или Mac. Непосредственно просматривайте и управляйте документами, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.04.2023Разработчик: © 2023 Skyjos Co., Ltd.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:000525F8F1AE902B8F378EF29FD688609B2F5EAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342900   (218731) от 06.12.2019
+
+File Juicer 4.81 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218731.jpg" />
+</div>
+
+
+###  Подробнее
+
+File Juicer - уникальная программа, позволяющая извлекать мультимедийные документы, вложенные в другие файлы. Утилита находит и извлекает изображения, видеоролики, звуки и текст следующих форматов: PNG, PDF, JPEG, JP2, GIF, BMP, WMF, EMF, PICT, TIFF, Flash, Zip, MOV, WAV, MP3, HTML, AVI , MPG, WMV, MP4, AU, AIFF или текстовые файлы.
+
+File Juicer может быть использован (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.11.2019Разработчик: Echo OneПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A1141FD995C4FFF7224D05A3D59FBDEC1A8EDA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425744   (218705) от 22.11.2020
+
+Tower 6 v6.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tower - мощный и элегантный Git клиент для Mac
+Сегодня, системы контроля версий играют очень важную роль в разработке программного обеспечения. Одной из таких систем является Git, изначально разработанная Линусом Торвальдсом в 2005 году, на сегодняшний день снискавшая большую популярность среди разработчиков. Cейчас Git используют такие известные проекты, такие как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.11.2020Разработчик: fournova Software GmbHПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71589DE19C6C38C7811B85F0E1C4F1DCAB26B38B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652117   (218679) от 10.08.2023
 
 2Do for Mac 2.8.1 [Multi/Ru]
@@ -6,7 +113,7 @@
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_218679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218679.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ PDFify 3.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_218144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218144.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ Rottenwood 1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_217960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217960.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ CameraBag Photo Classic 3.2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217828.jpg" />
 </div>
 
 
@@ -111,7 +218,7 @@ Snapclear for Mac 1.0.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_217746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217746.jpg" />
 </div>
 
 
@@ -138,7 +245,7 @@ Micromat Drive Scope 1.2.15 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217707.jpg" />
 </div>
 
 
@@ -164,7 +271,7 @@ Downie 4 v.4.6.25 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_217701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217701.jpg" />
 </div>
 
 
@@ -192,7 +299,7 @@ Image2icon - Make your icon‪s‬ 2.18 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_217043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217043.jpg" />
 </div>
 
 
@@ -218,7 +325,7 @@ Soulver 3 v3.4.12 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217002.jpg" />
 </div>
 
 
@@ -246,7 +353,7 @@ Cryptey - a menu bar cryptocurrency ticker 1.9.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216846.jpg" />
 </div>
 
 
@@ -272,7 +379,7 @@ BackupLoupe for Mac 3.9 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216812.jpg" />
 </div>
 
 
@@ -298,7 +405,7 @@ Room Arranger 9 v.9.7.3 U2B [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216738.jpg" />
 </div>
 
 
@@ -324,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216675.jpg" />
 </div>
 
 
@@ -350,7 +457,7 @@ Topaz Gigapixel AI for Mac 5.7.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216504.jpg" />
 </div>
 
 
@@ -376,7 +483,7 @@ Mirror for Panasonic TV 3.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216332.jpg" />
 </div>
 
 
@@ -405,7 +512,7 @@ Rectangle Pro 3.0.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216200.jpg" />
 </div>
 
 
@@ -431,7 +538,7 @@ Temp Monitor 1.2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216039.jpg" />
 </div>
 
 
@@ -457,7 +564,7 @@ TunesKit Video Cutter 1.0.3 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215920.jpg" />
 </div>
 
 
@@ -483,7 +590,7 @@ Arturia Pigments v1.0.0.473 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215673.jpg" />
 </div>
 
 
@@ -510,7 +617,7 @@ CloudTV 3.9.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215665.jpg" />
 </div>
 
 
@@ -537,7 +644,7 @@ Cocktail Ventura Edition 16.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_215371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_215371.jpg" />
 </div>
 
 
@@ -563,7 +670,7 @@ iSwift 4.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215161.jpg" />
 </div>
 
 
@@ -574,116 +681,6 @@ iSwift - самый простой способ преобразовать ко�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CB52C042AB4317179EA5F152520CF444198B7F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426458   (215040) от 24.11.2020
-
-Pixave 2.3.13 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215040.jpg" />
-</div>
-
-
-###  Подробнее
-
-При работе с большим количеством изображений встает вопрос их эффективной организации и просмотра. Это важно для тех, кто связан с дизайном, оформлением, и просто людей, любящих, когда все разложено по полочкам. Именно для этого и создан менеджер изображений Pixave, в котором не только удобно хранить и просматривать картинки, но и сортировать их, редактировать, экспортировать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.11.2019Разработчик: YoungHo KimПоддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C14E704E955BF582E5F779792FD314DBA7F481AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343841   (214982) от 08.12.2019
-
-EdgeView 2 2.840 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214982.jpg" />
-</div>
-
-
-###  Подробнее
-
-EdgeView 2 – это небольшая, но мощная и очень быстрая программа просмотра изображений.
-Пользователь может легко найти изображение во внутреннем файловом браузере, а также быстро увидеть его в окне просмотра.
-
-EdgeView 2 – может читать самые известные форматы файлов изображений и даже может открывать архивные файлы zip, rar, 7-zip. Также поддерживается подключение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Dongjin HanПоддерживаемая ОС: macOS El Capitan 10.11 и вышеЯзык интерфейса: Английский, корейский, упрощенный китайский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B08525D692124598031DE56697CE4F3219C54F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653511   (214664) от 16.08.2023
-
-OmniPlan Pro 4 v.4.5.4 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_214664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Omni Group славится своими качественными программами для Mac. OmniPlan не стало исключением. Это приложение позволяет пользователям подробно планировать отдельные задания какого-то проекта или мероприятия. Некоторые люди предпочитают иметь визуальное представление своих идей, и именно для них разработано это приложение. Оно поможет набросать весь проект в виде схем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.04.2023Разработчик: © 1994 – 2023 The Omni GroupПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C79AD527746E487EC3775F50DF449B96B711255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085327   (214464) от 21.12.2016
-
-PDF Expert 2.1.1 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214464.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF Expert - многофункциональная утилита для работы с PDF
-PDF Expert - это один из лучших инструментов для работы с PDF на iPhone и iPad, который позволяет на ходу просматривать, редактировать и подписывать документы. Теперь популярное приложение доступно и на Mac.
-
-Разработчики учли все пожелания пользователей и сделали PDF Expert для Mac простым, как и его мобильная (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20 декабря 2016Разработчик: Readdle Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A364F32D4D270FED655AA02711C461947A0B2CFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

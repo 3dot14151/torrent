@@ -1,3 +1,81 @@
+###  Публикация: 1662828   (120710) от 27.01.2024
+
+Русалочка / Mala Morska Vila (1976) HDTVRip [H.264/1080p] [Hand made upscale AI]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русалочка, одна из дочерей морского царя, увидев принца на палубе роскошного корабля, влюбляется в него. Но во время бури корабль разбивается о скалу, и все его пассажиры оказываются в воде. Русалочка, ни раздумывая ни минуты, бросается на помощь и спасает своего возлюбленного от гибели. На берегу лежащего без сознания принца находит другая девушка. Придя в себя, (   Читать дальше...   )Производство: Чехословакия, Filmove Studio Barrandov, Kinostudiya ''Mosfilm''Жанр: фэнтези, драма, мелодрама, семейныйРежиссер: Карел КахиняАктеры: Мирослава Шафранкова, Радован Лукавски, Пётр Свойтка, Либуше Шафранкова, Мария Росулкова, Милена Дворска, Индржих Нарента, Иржи Орнест, Дагмар ПатрасовПеревод: Многоголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 01:26:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97A01BE3A64A6ABE022EA4638B91E410872182D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710660   (112677) от 27.03.2024
+
+Санта украл нашего пса: Веселое Собачье Рождество! / Santa Stole Our Dog: A Merry Doggone Christmas! (2017) WEBRip [H.264/1080p] [MVO]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Где-то в солнечной Калифорнии в Рождественский сочельник, пёс нечаянно забирается в мешок с подарками, которые разносит Санта Клаус. Так начинается приключение длиной в двенадцать дней, в котором семья отправляется на Северный полюс, чтобы вернуть всеобщего любимца.Производство: Канада / First American CinemaЖанр: семейныйРежиссер: Брайан Майкл СтоллерАктеры: Эдвард Эснер, Ивет Рейчел, Кэрри Шредер, Чейз Поллок, Ив Брайт, Samuel Portugal, Литтл Беар, Хулиана Сада, Элейн Партнау, Брайан Майкл СтоллерПеревод: Многоголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:33:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C82843B72984902BF62736D962A59B3F7511BA41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722289   (109840) от 10.05.2024
+
+Библиотекари: Тайна короля Олафа / Trio - Jakten pa Olavsskrinet / TRIO - The Hunt for the Holy Shrine (2017) WEBRip [H.264/1080p] [MVO]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четверо подростков должны разгадать тайну, связанную со священными останками короля викингов Олафа Святого. Найдут ли они сундук раньше немецкого похитителя произведений искусства по прозвищу Тень? Кому они могут доверять?Производство: Норвегия, Швеция, Германия / Film Fond Nord, Norddeutscher Rundfunk (NDR), NordicStoriesЖанр: семейныйРежиссер: Ева ДарАктеры: Наоми Хассельберг Торсруд, Бьорнар Люсфосс Хагесвен, Хенрик Хинес Грапе, Франциска Тёрнквист, Рейдар Сёренсен, Мин-Хай Фэн-Тхи, Пер Кьерштад Андерсен, Бернт Бьорн, Regine Stokkevåg Eide, Саманта ЛосонПеревод: Многоголосый профессиональный (Кипарис)Язык озвучки: Русский, норвежскийСубтитры: ОтсутствуютПродолжительность: 01:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AF70E933DF47139EAAD2C9852EC05A934FBEDEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739287   (106143) от 27.07.2024
 
 Голос из космоса / Wow! Nachricht aus dem All (2023) BDRip [H.264/1080p]
@@ -6,7 +84,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106143.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106141.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103017.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100762.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100761.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100760.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_100595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_100595.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_100594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_100594.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81904.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71900.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71874.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70465.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69449.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69439.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69259.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68584.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65995.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64269.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59956.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59839.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58195.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58189.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57543.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33CBFEC386C4DFC2F1B912FFAEA36FC06D411A13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718926   (57048) от 10.05.2024
-
-Наклз / Knuckles (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) HDRezka Studio, LostFilm, Red Head Sound
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ехидна Наклз обучает помощника шерифа Уэйда Уиппла способам воина-ехидны, чтобы они могли сражаться с Ежом Шэдоу.Производство: США, Япония, Paramount Pictures, Sega Sammy Group, Original Film, Blur Studio, Marza Animation PlanetЖанр: фантастика, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Кэрол Бенкер, Брэндон Трост, Ged WrightАктеры: Идрис Эльба, Адам Палли, Джейми Барбакофф, Alice Wren Tregonning, Tony Coughlan, Бен Шварц, Дэниэл Сингх, Коллин О’Шонесси, Альфредо Таварес, Adam KerrПеревод: Дублированный (Red Head Sound) Многоголосый профессиональный (HDRezka Studio, LostFilm)Язык озвучки: русский, английскийСубтитры: Русские (Forced), Английские (SDH)Продолжительность: ~00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8BE152D10504981177BE35BFE762774A9C7213E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720641   (56997) от 10.05.2024
-
-Наклз / Knuckles (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6)
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ехидна Наклз обучает помощника шерифа Уэйда Уиппла способам воина-ехидны, чтобы они могли сражаться с Ежом Шэдоу.Производство: США, Япония / Paramount Pictures, Sega Sammy Group, Original Film, Blur Studio, Marza Animation PlanetЖанр: фантастика, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Кэрол Бенкер, Брэндон Трост, Ged WrightАктеры: Идрис Эльба, Адам Палли, Джейми Барбакофф, Alice Wren Tregonning, Tony Coughlan, Бен Шварц, Дэниэл Сингх, Коллин О’Шонесси, Альфредо Таварес, Adam KerrПеревод: дублированный (Red Head Sound)Язык озвучки: русский, английскийСубтитры: русские (forced), английские (full, SDH)Продолжительность: ~00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858C9F0D72EAAFD7B6014B830C93920F3AEFF93F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718846   (56940) от 11.05.2024
-
-Наклз / Knuckles (2024) WEB-DL [H.265/2160p] [4K, SDR, 8-bit] (сезон 1, серии 1-6 из 6) RHS, TVShows, HDRezka Studio
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал Наклз спин-офф серии фильмов "Соник в кино" красная ехидна Наклз вступает в неожиданное партнёрство с полицейским Уэйдом Уипплом. Наклз соглашается стать наставником Уэйда и делится с ним своими уникальными приёмами воина. Вместе они принимаются за разгадывание сложных преступлений и борются с преступностью, в которую они втянуты из-за их совместных (   Читать дальше...   )Производство: США, Япония, Paramount Pictures, Sega Sammy Group, Original Film, Blur Studio, Marza Animation PlanetЖанр: фантастика, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Кэрол Бенкер, Брэндон Трост, Ged WrightАктеры: Идрис Эльба, Адам Палли, Джейми Барбакофф, Alice Wren Tregonning, Tony Coughlan, Бен Шварц, Дэниэл Сингх, Коллин О’Шонесси, Альфредо Таварес, Adam KerrПеревод: Дублированный (Red Head Sound), многоголосый профессиональный (TVShows, HDRezka Studio)Язык озвучки: русский, английскийСубтитры: русские (forced), английские (SDH)Продолжительность: ~00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB1DA1127ABBB4671398235347F9DF10778C0D35
 ```
 
 https://mybot314.ru/tekegram_catalog/

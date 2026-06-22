@@ -1,3 +1,32 @@
+###  Публикация: 597529   (1000362) от 02.01.2013
+
+Жан-Анри Фабр | Жизнь насекомых. Рассказы энтомолога [1963] [FB2]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000362.jpg" />
+</div>
+
+
+###  Подробнее
+
+На книге Жизнь насекомых, стоящей в одном ряду с «Жизнью животных» Альфреда Брема, выросло не одно поколение любителей природы и просто увлекающихся людей.
+«Насекомые. Они — истинные хозяева земли. Их — миллиард миллиардов, больше, чем звёзд в нашей галактике... Фабра должен прочесть каждый, так же как один раз в жизни надо заглянуть в микроскоп и поглядеть в телескоп на звёзды» (В. Песков).
+
+Выяснение вопроса, разумны ли насекомые, было целью жизни Фабра. Ему удалось получить твердый ответ, но он привел исследователя к неожиданным последствиям: собрав богатейшие материалы, доказывающие правоту учения Дарвина, Фабр не понял этого учения. А не поняв его, он раз навсегда решил, что при помощи этого учения никак нельзя объяснить собранные им факты. А между тем все написанное Фабром показывает обратное: его работы — блестящее доказательство правильности дарвиновской теории естественного отбора.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A7338BCA5E4772FB2FAD3DE95DD28F015114204
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 607483   (994449) от 23.01.2013
 
 Л. А. Растригин | Современные принципы управления сложными объектами [1980] [DJVU]
@@ -6,7 +35,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994449.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990139.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984830.jpg" />
 </div>
 
 
@@ -89,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983425.jpg" />
 </div>
 
 
@@ -117,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980598.jpg" />
 </div>
 
 
@@ -145,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977986.jpg" />
 </div>
 
 
@@ -171,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975825.jpg" />
 </div>
 
 
@@ -197,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972022.jpg" />
 </div>
 
 
@@ -223,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968823.jpg" />
 </div>
 
 
@@ -249,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966999.jpg" />
 </div>
 
 
@@ -275,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966500.jpg" />
 </div>
 
 
@@ -301,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964608.jpg" />
 </div>
 
 
@@ -327,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964557.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963571.jpg" />
 </div>
 
 
@@ -379,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963431.jpg" />
 </div>
 
 
@@ -408,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963370.jpg" />
 </div>
 
 
@@ -437,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959686.jpg" />
 </div>
 
 
@@ -466,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959661.jpg" />
 </div>
 
 
@@ -495,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955834.jpg" />
 </div>
 
 
@@ -524,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955790.jpg" />
 </div>
 
 
@@ -553,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954748.jpg" />
 </div>
 
 
@@ -579,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954505.jpg" />
 </div>
 
 
@@ -608,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951398.jpg" />
 </div>
 
 
@@ -637,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948267.jpg" />
 </div>
 
 
@@ -666,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948104.jpg" />
 </div>
 
 
@@ -680,32 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCAE527E6CA2C3F00037FA00F0FCF53FDC64DD41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983459   (941880) от 07.02.2016
-
-А. Г. Малышенко, С. Л. Цокало | Атлас Украинской ССР и Молдавской ССР (1983) [JPG, PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941880.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом атласе, являющимся картографическим трудом научно-справочного характера, показаны две смежные советские республики — Украинская ССР и Молдавская ССР.Жанр: Географический атласФормат: JPG, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D63E62C7D0B7AD0C7CD47C262A9C1FE6552C8ED4
 ```
 
 https://mybot314.ru/tekegram_catalog/

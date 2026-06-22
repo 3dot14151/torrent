@@ -1,3 +1,29 @@
+###  Публикация: 1642648   (210298) от 28.06.2023
+
+Балтийская слава (1957) DVDRip [H.264/1080p-LQ] [hand made Remastered Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о борьбе моряков Балтийского флота за революционный Петроград осенью 1917 года. В центре фильма судьбы матроса и морского офицера, которые встают в ряды борцов за революцию.Производство: СССР,  Киностудия "Ленфильм"Жанр: драма, историяРежиссер: Ян ФридАктеры: Иосиф Кутянский, Павел Кадочников, Леонид Кмит, Николай Макеев, Михаил Иванов, Инна Выходцева, Наталья Каташева, Герман Орлов, Владислав Стржельчик, Ефим Копелян, Константин Адашевский, Александр Борисов, Адольф Шестаков, Владимир Чобур, Борис Смирнов, Леонид Любашевский, Михаил ЕкатерининскийПродолжительность: 01:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE07EBD77B671EACCA975B2C1E769FCE21CD598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 741914   (210279) от 18.08.2022
 
 Гусарская баллада (1962) BDRip [1080p] [hand made 60fps]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210279.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210201.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210106.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210089.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210078.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209929.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209815.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209806.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209781.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209679.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209655.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209653.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209566.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209494.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209253.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209245.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209152.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209143.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209119.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208884.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208860.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208733.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208655.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208580.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208550.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F5AF7DD3FA5D5523CD786042FE776B977B6D903
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647649   (208487) от 20.07.2023
-
-Славные парни / Goodfellas (1990) BDRip [H.265/2160p] [4K, SDR, 8-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Генри Хилл — начинающий гангстер, занимающийся грабежами вместе с Джими Конвеем и Томми Де Вито, которые с легкостью убивают любого, кто встает у них на пути восхождения к вершинам Мафии. Приходит время когда Генри, сам пострадавший от своих напарников, должен приложить руку к началу конца Джимми и Томми…Производство: США / Warner Bros. Pictures Co.Жанр: драма, криминал, триллерРежиссер: Мартин СкорсезеАктеры: Роберт Де Ниро, Рэй Лиотта, Джо Пеши, Лоррейн Бракко, Пол Сорвино, Фрэнк Сиверо, Тони Дарроу, Майк Старр, Фрэнк Винсент, Деби Мейзар, Сэмюэл Л. ДжексонПеревод: Дублированный; двухголосый, многоголосый (профессиональный)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 02:25:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89F9F15E2B2E9345123855EBFD9B94F79244919F
 ```
 
 https://mybot314.ru/tekegram_catalog/

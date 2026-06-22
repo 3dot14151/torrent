@@ -1,3 +1,55 @@
+###  Публикация: 320259   (631518) от 03.06.2018
+
+Сережа (1960) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несколько историй из жизни очень маленького мальчика. Шестилетний Сережа постигает мир и проявляет себя при этом как самостоятельная личность - нежная, лиричная, мужественная и...очень одинокая. Но вот мама Сережи вышла замуж - и теперь у мальчика появился новый папа и лучший друг Коростылев, который помогает ему решать маленькие, но очень важные проблемы.Жанр: МелодрамаРежиссер: Георгий Данелия, Игорь ТаланкинАктеры: Боря Бархатов, Серёжа Метелицын, Сергей Бондарчук, Ирина Скобцева, Любовь Соколова, Василий Меркурьев, Павел Винник, Евгений КудряшовПродолжительность: 01:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E016598C02FBC1E4C97AEECFB37542C2CC9D9127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682113   (630431) от 23.07.2013
+
+В городе С. (1966) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630431.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам повести Антона Павловича Чехова "Ионыч". Фильм повествует о превращении молодого честолюбивого, полного планов и светлых мечтаний земского врача Старцева, поселившегося в губернском городе С, в скучного и уставшего от собственного благополучия доктора Ионыча.Жанр: ДрамаРежиссер: Иосиф ХейфицАктеры: Анатолий Папанов, Нонна Терентьева, Андрей Попов, Ольга Аросева, Игорь Горбачев, Лидия Штыкан, Алексей Баталов, Григорий Шпигель, Юрий Медведев, Леонид Быков, Георгий Юматов, Любовь Малиновская, Ия Саввина, Евгений Шутов, Степан Крылов, Рина Зелёная, Александр Борисов, Ольга Гобзева, Александр Орлов, Валентина Пугачева, Николай Сергеев, Алексей Смирнов, Роман Ткачук, (   Читать дальше...   )Продолжительность: : 01:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA9AA4C86657E5CCBB67AE1F5AB5773414BC9A28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 829107   (629310) от 16.06.2015
 
 О бедном гусаре замолвите слово (1980) DVDRip [H.264]
@@ -6,7 +58,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629310.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629159.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_628028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_628028.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627259.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625607.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625127.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624902.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624420.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623833.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623547.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623147.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622655.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621954.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621928.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619280.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617803.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616653.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616456.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616419.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615845.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615760.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615651.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614998.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614426.jpg" />
 </div>
 
 
@@ -628,59 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72E999F9E0B7D1D009E275336769BEA519B861C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523664   (614381) от 17.07.2012
-
-Гений (1991) [H.264] DVDRip [2 серии]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой фильма, в прошлом талантливый физик — электронщик, а ныне директор овощного магазина, имеет криминальное хобби. Его изобретательные и технические великолепные операции задевают интересы не только правоохранительных органов, но и кровожадных мафиозных структур.Производство: Россия, Ленфильм, киностудия "Ладога"Жанр: Комедия, КриминалРежиссер: Виктор СергеевАктеры: Александр Абдулов, Лариса Белогурова, Юрий Кузнецов, Иннокентий Смоктуновский, Сергей Проханов, Валентина Талызина, Анатолий Кузнецов, Альгис Матуленис, Виктор Костецкий, Михаил Морозов, Аркадий Коваль, Виктор Ильичев, Борис Клюев, Георгий Мартиросян, Лев Вигдоров, Владимир Баранов, Виктор Смирнов, Закир Мамедов, Артур Арутюнян, Ромуальд Макаренко, Мария Смоктуновская, (   Читать дальше...   )Продолжительность: 01:08:26 + 01:24:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54DA77C86E2DE573732ADFABF837DD58985BB5BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 684243   (614202) от 31.07.2013
-
-Пираты ХХ века (1979) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Советский сухогрузный корабль перевозил большой груз опиума для фармакологической промышленности. Современные пираты, охотившиеся за ценным грузом, коварством завладели кораблем и экипажем.
-Чтобы не осталось свидетелей этого разбойного нападения, пираты попытались уничтожить всю команду корабля. В океанских просторах разыгралась напряженная борьба между горсткой (   Читать дальше...   )Жанр: боевик, приключенияРежиссер: Борис ДуровАктеры: Николай Ерёменко мл., Пётр Вельяминов, Талгат Нигматулин, Рейно Арен, Дилором Камбарова, Наталья Хорохорина, Джигангир Шахмурадов, Юрий Кутырев, Тадеуш Касьянов, Майя ЭглитеПродолжительность: 01:19:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6D4E9498D71B826E6904E922D15888716183FE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

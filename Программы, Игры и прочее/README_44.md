@@ -1,3 +1,29 @@
+###  Публикация: 996792   (879079) от 14.03.2016
+
+Национальная галерея искусств HD v1.3 [Ru/En] - 920 лучших картин из Национальной галереи искусств в Вашингтоне
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение содержит 920 лучших картин из Национальной галереи искусств в Вашингтоне. Здесь вы найдете работы Рембрандта, Рафаэля, Рубенса, Гойя и других именитых мастеров живописи. Наше приложение не просто откроет вам возможность пройти по виртуальным коридорам одного из наиболее уважаемых мировых музеев, но также позволит приобщиться к мировой сокровищнице искусства, (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 08.09.2015Разработчик: Evolution Games LLPПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92B23A41590EB0199D2B1AB9CED5FD4D143E39AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996404   (878759) от 14.03.2016
 
 Русская живопись v1.3 HD [Ru/En] - 1500 произведений 250 величайших русских художников
@@ -6,7 +32,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878759.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ MT File Manager 13.03.16 (Mod) [Ru] - Файловый менеджер с ра�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878539.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Snipback - Lifehacker smart voice recorder PRO HD 1.00 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878428.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Password Depot For Android 14.0.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878421.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877075.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876850.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Chess King - Шахматные курсы v 0.9.6 - 0.9.7 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875984.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875865.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875858.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ WiFi Map 3.2.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874379.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Door Kickers: Action Squad 1.0.32 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874128.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ The Meridian v2.0 [En] - 3D-модель человеческого тела с 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873278.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Parallel SpaceMulti Accounts v4.0.8934 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872446.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Chromatix (Black and White Photo Colorizer) v1.3.98 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872334.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Wunderlist: To-Do List & Tasks Pro 3.4.19 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868474.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Scan - QR and Barcode Reader v2.3 [En/Ru] - Сканирование QR и сч�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867409.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ MultiNotes v2.10 [Ru/Multi] - удобные Заметки с напомина�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866349.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866346.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864292.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ FolderSync Pro v3.1.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864276.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863285.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863282.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ Relax Mountain ~ Nature Sounds PRO v4.3.1 [Ru/Multi] - Расслабьтесь 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862817.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ Relax Night ~ Nature Sounds PRO v4.4.0 [Ru/Multi] - Отдых с лучшими
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862802.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ Relax Sea ~ Ocean Sounds PRO v5.3.1 [Ru/Multi] - Расслабьтесь с л�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862719.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ Relax Sea ~ Ocean Sounds PRO v5.3.1 [Ru/Multi] - Расслабьтесь с л�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:169FDF2F516205518F7764A4079059EEB4093233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437371   (862625) от 23.09.2021
-
-RAR v6.10 Premium [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862625.jpg" />
-</div>
-
-
-###  Подробнее
-
-RAR компании RARLAB способен создавать RAR и ZIP и распаковывать RAR, ZIP, TAR, GZ, BZ2, XZ, 7z, ISO, ARJ архивы. Список команд включает восстановление поврежденных ZIP и RAR архивов, функцию измерения производительности, совместимую с аналогичной функцией WinRAR компании RARLAB. Среди прочих возможностей - данные для восстановления, обычные тома и тома для восстановления, (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 20 сентября 2021 г.Разработчик: RARLAB (published by win.rar GmbH)Поддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:635A1CE915ADEBB0C188D6D63F95D32E05F88DA9
 ```
 
 https://mybot314.ru/tekegram_catalog/

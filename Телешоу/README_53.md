@@ -1,3 +1,55 @@
+###  Публикация: 463089   (80253) от 05.03.2012
+
+Playboy: разденьте девушку / Undress a Woman (04.03.2012) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шоу скандального нью-йоркского фотографа Эндрю Эйнхорна. Он ищет новых моделей для своей эротической фото-книги  среди обычных прохожих на улицах. Эйнхорн просто предлагает красивым девушкам сняться обнаженными. И многие соглашаются.... Все это время за ним следует оператор, готовый заснять каждое движение мэтра. Результаты трудов знаменитого фотографа можно увидеть в новом откровенном эротическом шоу на МУЗе.Жанр: Телепередача, эротикаПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 00:25:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00695029AF3E56D24AC05BB3584179D3A2EB038C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462264   (80046) от 04.03.2012
+
+Playboy: разденьте девушку / Undress a Woman (03.03.2012) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шоу скандального нью-йоркского фотографа Эндрю Эйнхорна. Он ищет новых моделей для своей эротической фото-книги  среди обычных прохожих на улицах. Эйнхорн просто предлагает красивым девушкам сняться обнаженными. И многие соглашаются.... Все это время за ним следует оператор, готовый заснять каждое движение мэтра. Результаты трудов знаменитого фотографа можно увидеть в новом откровенном эротическом шоу на МУЗе.Жанр: Телепередача, эротикаПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 00:25:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D1647DBB0BCE1A3214316A31A3E5A1AB3F8C3A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 459076   (79342) от 01.03.2012
 
 84-я церемония вручения премии «Оскар» / The 84th Annual Academy Awards (2012) SATRip
@@ -6,7 +58,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79342.jpg" />
 </div>
 
 
@@ -36,7 +88,7 @@ Playboy: разденьте девушку / Undress a Woman (27.02.2012) SATRip
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78851.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ Playboy: разденьте девушку / Undress a Woman (26.02.2012) SATRip
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78824.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63392.jpg" />
 </div>
 
 
@@ -116,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58974.jpg" />
 </div>
 
 
@@ -144,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56772.jpg" />
 </div>
 
 
@@ -172,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55754.jpg" />
 </div>
 
 
@@ -199,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48389.jpg" />
 </div>
 
 
@@ -225,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48372.jpg" />
 </div>
 
 
@@ -251,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45006.jpg" />
 </div>
 
 
@@ -277,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44617.jpg" />
 </div>
 
 
@@ -303,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43424.jpg" />
 </div>
 
 
@@ -329,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35906.jpg" />
 </div>
 
 
@@ -361,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35904.jpg" />
 </div>
 
 
@@ -387,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32587.jpg" />
 </div>
 
 
@@ -413,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32339.jpg" />
 </div>
 
 
@@ -439,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27233.jpg" />
 </div>
 
 

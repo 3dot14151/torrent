@@ -1,3 +1,32 @@
+###  Публикация: 1605247   (1044746) от 19.01.2023
+
+Violet Fears - Thrillogy (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arrival (Prelude) [00:01:58]
+02. Look at Me [00:04:30]
+03. Blackwood (Interlude) [00:01:04]
+04. Memoria [00:03:40](   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:33:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C28C2838D8EE56E2A4C65FBB1BC546BE7AA1D2BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608408   (1043636) от 30.01.2023
 
 Code Elektro - Deeper Cuts (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Darksynth>
@@ -6,7 +35,7 @@ Code Elektro - Deeper Cuts (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043636.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Techni-ka - Contamination (2020) DJ Remix [FLAC|Lossless|WEB-DL|tracks] <Electro
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042793.jpg" />
 </div>
 
 
@@ -56,6 +85,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610081   (1042654) от 06.02.2023
+
+Cyberman - Mysterious Galaxy (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1042654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. War Against Machines (4:50)
+02. Gravity (5:29)
+03. Personal Wormhole (7:13)
+04. Space Maneuvers (5:10)(   Читать дальше...   )Жанр: Synthwave, SpacesynthПродолжительность: 01:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FDB7C8CE1A2D50C6CE9EF1F3523995487197A0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610393   (1042358) от 07.02.2023
 
 Danny Day - The Copper Kid (2023) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Synthwave, 80s>
@@ -64,7 +122,7 @@ Danny Day - The Copper Kid (2023) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Synt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042358.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ ARGH - Night In The City (2014) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electro
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042060.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Glenn Main - Back2basics (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042039.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - BEST OF NEON 2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <Chillsynth, Chillwa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041145.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Tyconic - Coastline Nights (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040567.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Orax - Crash (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040360.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ The Midnight - Heroes (2022) [FLAC|Lossless|tracks + .cue] <Synthwave, Synth-pop
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040307.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Monflame - Voyager (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038363.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Yello - Yell40 Years — Non-Album Songs & Remixes (2022) 2 x CD, Compilation [F
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038274.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Space Odyssey - Trip Seven: New Year's Voyage 2021 (2021) [FLAC|Lossless|WE
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038258.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Maxthor - Nothing (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrosynth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036980.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Occams Laser - The Grid Lives (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, R
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036719.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Caspro - Dimensions (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrosynth,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036715.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Synthwave Dreams, Vol. 6 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036337.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Synthwave Dreams, Vol. 8 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036334.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Synthwave Dreams, Vol. 7 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036331.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Synthwave Dreams, Vol. 9 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036309.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - I Love Didier Marouani & Space (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthp
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036004.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Pure Synthwave Vol. 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035183.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Spacehawk - Universe (2020) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Spacedisc
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034442.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Spacehawk - Terracide (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Spacedis
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034437.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Mr.Kitty - -+ (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Da
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034207.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Mr.Kitty - -+ (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8B125C04A44FB54DFF0C95D4AFF5F913EF81B0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445886   (1033295) от 07.02.2021
-
-VA - Pure Retrowave, Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phaserland & Nikki Dodds - Hot Stunner (Original Mix) (3:26)
-02. Freeweights - Lightweight (Original Mix) (4:32)
-03. Lghtnng - Sharks (Original Mix) (4:01)
-04. Adal & Freja - Fire To You (Original Mix) (3:19)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D86FC804E54C9CA3364C1D5EE9221572EA4C4EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445887   (1033278) от 07.02.2021
-
-VA - Pure Retrowave, Vol. 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Huggett & Parallels - Golden (Radio Edit) (3:52)
-02. Moonrunner83 & Josh Dally - Hearts On Fire (Original Mix) (4:02)
-03. Morgan Willis & Kel - Brand New (Original Mix) (5:25)
-04. Paradise Walk - Summer Heat (Original Mix) (4:29)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:30:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17BD8A41BADAA1B19631440E81AEC4A0D1F4C3E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,58 @@
+###  Публикация: 1129913   (710304) от 04.05.2017
+
+Подозрение / Suspicion (1941) BDRip [H.265/1080p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Викторианская Англия, мир садов, изящных господ, вежливых служащих и прекрасной погоды. Свет повсюду. Даже предполагаемое место убийства главной героини - ослепляюще белые утесы над Ла-Маншем. Тьма лишь в мыслях героев...
+
+Боясь остаться старой девой, Лина второпях выходит замуж за жизнерадостного бездельника Джонни Эйсгарта (первая из 4 ролей Кэри Гранта у сэра (   Читать дальше...   )Производство: сша / RKO Radio Pictures Inc.Жанр: Триллер, ДетективРежиссер: Альфред ХичкокАктеры: Кэри Грант, Джоан Фонтейн, Седрик Хардвик, Найджел Брюс, Мэй Уитти, Изабель Джинс, Хэзер ЭйнджелПеревод: Многоголосый закадровыйСубтитры: английскиеПродолжительность: 01:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:643B08E24FFB987BA6872F6CCBD83B26480C7E89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 791851   (710091) от 02.06.2014
+
+К востоку от рая / East of Eden (1955) BDRemux [1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта картина по праву считается классикой Голливуда и главным фильмом Джеймса Дина — блестящего актера, бунтаря и знаменитости своего времени. Его, еще до окончания съемок, уже прозвали вторым Брандо.
+«К востоку от рая» — экранизация знаменитого романа Стейнбека, романа о семейной драме юноши, который ревнует и страдает, видя как его отец отдает незаслуженное предпочтение (   Читать дальше...   )Производство: США / Warner Bros. PicturesЖанр: ДрамаРежиссер: Элиа Казан / Elia KazanАктеры: Джули Харрис, Джеймс Дин, Рэймонд Мэсси, Берл Айвз, Ричард Давалос, Джо Ван Флит, Альберт Деккер, Лоис Смит, Гарольд Гордон, Ник ДэннисПеревод: Многоголосый закадровый (профессиональный), Двухголосый закадровый (профессиональный), Одноголосый закадровый (авторский)Язык субтитров: Русский (форс. на непереведенные места аудио #3), английский (SDH)Продолжительность: 01:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56B008D6214C78B4DF34558A54CB86BA7901485D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217751   (709637) от 16.04.2018
 
 Розовая пантера наносит ответный удар / The Pink Panther Strikes Again (1976) BDRip [H.265/1080p] [10-bit]
@@ -6,7 +61,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709637.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708738.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708734.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708703.jpg" />
 </div>
 
 
@@ -111,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707011.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706480.jpg" />
 </div>
 
 
@@ -164,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705896.jpg" />
 </div>
 
 
@@ -190,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705882.jpg" />
 </div>
 
 
@@ -216,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705418.jpg" />
 </div>
 
 
@@ -244,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704813.jpg" />
 </div>
 
 
@@ -270,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702195.jpg" />
 </div>
 
 
@@ -296,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701794.jpg" />
 </div>
 
 
@@ -323,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_701671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_701671.jpg" />
 </div>
 
 
@@ -350,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701175.jpg" />
 </div>
 
 
@@ -376,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700889.jpg" />
 </div>
 
 
@@ -403,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700309.jpg" />
 </div>
 
 
@@ -429,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699858.jpg" />
 </div>
 
 
@@ -455,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697729.jpg" />
 </div>
 
 
@@ -482,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697685.jpg" />
 </div>
 
 
@@ -510,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696923.jpg" />
 </div>
 
 
@@ -536,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696488.jpg" />
 </div>
 
 
@@ -562,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694684.jpg" />
 </div>
 
 
@@ -588,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694133.jpg" />
 </div>
 
 
@@ -614,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693766.jpg" />
 </div>
 
 
@@ -625,60 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC07CDF083BD859B69E11F7CF2B4968354EC11B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 333419   (693302) от 07.05.2011
-
-В джазе только девушки / Some Like It Hot (1959) BDRip [720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда чикагские музыканты Джо и Джерри случайно становятся свидетелями бандитской перестрелки, они в срочном порядке смываются на поезде во Флориду, прикинувшись женщинами. Теперь они — Джозефина и Дафна, новенькие и хорошенькие инструменталистки женского джаз — банда.
-До поры до времени их маскировка срабатывает. Но вскоре любвеобильная солистка «западает» на переодетую (   Читать дальше...   )Жанр: мелодрама, комедия, криминал, приключения, музыкаАктеры: Мэрилин Монро, Тони Кертис, Джек Леммон, Джордж Рафт, Пэт О’Брайен, Джо Э. Браун, Нехемия Персофф, Джоан Шоули, Билли Грэй, Джордж Э. СтоунПеревод: Профессиональный (многоголосый) с Blu-Ray CEEСубтитры: русские, английскиеПродолжительность: 02:01:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D98B30FA2511B967FD40BA0648EF06976E1D4182
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 333566   (693294) от 07.05.2011
-
-В джазе только девушки / Some Like It Hot (1959) BDRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда чикагские музыканты Джо и Джерри случайно становятся свидетелями бандитской перестрелки, они в срочном порядке смываются на поезде во Флориду, прикинувшись женщинами. Теперь они — Джозефина и Дафна, новенькие и хорошенькие инструменталистки женского джаз — банда.
-До поры до времени их маскировка срабатывает. Но вскоре любвеобильная солистка «западает» на переодетую (   Читать дальше...   )Жанр: мелодрама, комедия, криминал, приключения, музыкаАктеры: Мэрилин Монро, Тони Кертис, Джек Леммон, Джордж Рафт, Пэт О’Брайен, Джо Э. Браун, Нехемия Персофф, Джоан Шоули, Билли Грэй, Джордж Э. СтоунПеревод: Профессиональный (многоголосый) с Blu-Ray CEEСубтитры: нетПродолжительность: 02:01:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4263F67CDC6348146B27DE7EC17393DE55F07F21
 ```
 
 https://mybot314.ru/tekegram_catalog/

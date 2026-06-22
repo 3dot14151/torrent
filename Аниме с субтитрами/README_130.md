@@ -1,3 +1,29 @@
+###  Публикация: 1800523   (15760) от 03.06.2025
+
+Arifureta Shokugyou de Sekai Saikyou Season 3 | Arifureta: From Commonplace to World's Strongest Season 3 | Арифурэта [ТВ-3] [2024, TV, 16 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хаджимэ Нагумо семнадцать лет, и он мало чем может похвастать: по ночам играет, а в школе только и делает, что спит. Всё изменилось в одночасье, когда его вместе со всем классом призвали в другой мир. Правда, Хадзимэ не отличился и здесь: пока одноклассники один за другим открывали невероятные, по меркам нового мира, способности, он обзавёлся лишь бесполезным ремесленным (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Иванага АкираПеревод: CrunchyRoll; YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 16 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42D64A5AAFC51345757D07050A0BB8AFBFE6243A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800520   (15755) от 03.06.2025
 
 2.5 Jigen no Ririsa | 2.5 Dimensional Seduction | Соблазн 2.5-мерного измерения [ТВ-1] [2024, TV, 24 эп.] BDRip 1080p raw
@@ -6,7 +32,7 @@
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15755.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Kimi no Koto ga Dai Dai Dai Dai Daisuki na 100 Nin no Kanojo | The 100 Girlfrien
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15645.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Megami no Cafe Terrace (2024) | The Cafe Terrace and Its Goddesses (2024) | Бо
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15639.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Failure Frame | Hazure Waku no Joutai Ijou Skill de Saikyou ni Natta Ore ga Sube
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15636.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Hataraku Maou-sama!! | The Devil Is a Part-Timer! Season 2 | Повелител�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15183.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Isekai Shikkaku | No Longer Allowed in Another World | Дисквалифици�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15166.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Tate no Yuusha no Nariagari Season 3 | The Rising of the Shield Hero Season 3 | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15165.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Hokkyoku Hyakkaten no Concierge-san | The Concierge at Hokkyoku Department Store
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15164.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Katsute Mahou Shoujo to Aku wa Tekitai Shite Ita. | The Magical Girl and the Evi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15161.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Tsuki ga Michibiku Isekai Douchuu Dai Ni Maku | Tsukimichi: Moonlit Fantasy 2 | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15160.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Shikanoko Nokonoko Koshitantan | My Deer Friend Nokotan | Моя подруга-
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15134.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ One Room, Hiatari Futsuu, Tenshi-tsuki. | Studio Apartment, Good Lighting, Angel
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15133.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ Tearmoon Teikoku Monogatari: Dantoudai kara Hajimaru, Hime no Tensei Gyakuten St
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15128.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ Tsuki ga Michibiku Isekai Douchuu | Tsukimichi: Moonlit Fantasy | Лунное �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15127.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Hataraku Saibou Black | Cells at Work! Code Black | Клетки за работ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15126.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Dungeon no Naka no Hito | Dungeon People | Люди подземелья [2024, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15125.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ Moonrise | Восход Луны [2025, Web, 18 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15080.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ Ballpark de Tsukamaete! | Catch Me at the Ballpark! | Ловец бейсбол�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14352.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ Aru Majo ga Shinu Made / Once Upon a Witch's Death / Пoкa вeдьмa нe ум�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14339.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ Wind Breaker Season 2 | Ветролом 2 [2025, TV, 12 эп.] WEBRip 720 raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14134.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ Kanpeki Sugite Kawaige ga Nai to Konyaku Hakisareta Seijo wa Ringoku ni Urareru 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14132.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ Enen no Shouboutai San no Shou | Fire Force (2025) | Пламенная бриг
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14055.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ Danjo no Yuujou wa Seiritsu Suru? (Iya, Shinai!!) / Can a Boy-Girl Friendship Su
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14049.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ Slime Taoshite 300-nen, Shiranai Uchi ni Level Max ni Nattemashita 2 / Убив�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13949.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ Shoushimin Series / How to Become Ordinary / Как стать обычным ч
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13833.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ Shoushimin Series / How to Become Ordinary / Как стать обычным ч
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81345ECDBDCC9C9D056027A76CBC08D1CE31681A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789985   (13756) от 23.06.2025
-
-Katainaka no Ossan, Kensei ni Naru / From Old Country Bumpkin to Master Swordsman / Мужчина средних лет из глубинки становится мастером меча [2025, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Берил Гардинант сам себя называет «скромным стариком», а зарабатывает на жизнь тем, что учит желающих обращению с мечом в своём додзё в глухой деревне. В молодости он мечтал о славе великом мечника, но те дни остались далеко позади. Внезапно его навещает знаменитый бывший ученик, который приносит сногсшибательные вести: Берил назначен особым инструктором рыцарей (   Читать дальше...   )Жанр: приключения, фэнтези.Режиссер: Кадзуми АкиоЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:562C7A07B703C79D83EDC6D7B7CFE2D7E6A71AC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

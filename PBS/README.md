@@ -7,7 +7,7 @@ PBS: Насекомые, которые правят миром / Bugs That Rule
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071619.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ PBS Nature: Сокровище Карибского моря / Treasure of the C
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047150.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ PBS Nova: Загадка пустыни Наска / Nazca Desert Mystery (2022)
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046702.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ PBS: Природа. Природа секса / Nature. The Nature of Sex. Sex 
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018697.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008665.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ PBS. Секреты Колизея / Colosseum. Roman Death Trap (2015) WEB-DL [
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004511.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ PBS: Сканеры древнего мира / Time scanners (2013) HDTVRip [H.
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976502.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ PBS Nature. Бегемоты - жизнь в воде / Hippos: Africa's River G
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950628.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ PBS: Мир Дикой Природы / Wild World (2011-2012) DVB (2-й сез�
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930262.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ PBS: Мир Дикой Природы / Wild World (2010) DVB (1 сезон, с�
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930256.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ PBS. Снежные макаки Японии / Snow Monkeys (2014) BDRip [H.264
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903855.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883023.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ NG: Хранители сокровищ Египта / Egypt's Treasure Guardian
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834503.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ PBS. Тайна кода майя / Cracking the Maya Code (2006) HDTVRip [H.264
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809222.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ PBS. Поиск жизни за пределами Земли / Finding Life Bey
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797293.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ PBS: Истории из королевской спальни / Tales from the 
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794239.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ PBS. Жизнь колибри. Волшебство в воздухе / Humming
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793159.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ PBS: Истории из королевского гардероба Люси У
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785558.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774935.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772598.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ PBS. Восстание дронов / Rise of the Drones (2013) WEB-DLRip [H.26
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770953.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ PBS. Природа - Дом животных / Nature - The Animal House (2007)
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749733.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ PBS Nature: Тайная жизнь леопарда / Revealing the Leopard (20
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739518.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729610.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728527.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ PBS. Секреты меча викингов / Secrets of the Viking Sword (201
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715422.jpg" />
 </div>
 
 

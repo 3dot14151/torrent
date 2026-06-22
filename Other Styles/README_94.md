@@ -1,3 +1,268 @@
+###  Публикация: 1304662   (561563) от 27.05.2019
+
+Alan Menken & VA - Aladdin / Аладдин (Оригинальный саундтрек) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Арабская ночь (2019) (03:13)
+02. На миг быстрее (02:55)
+03. На миг быстрее (Реприза) (01:00)
+04. Смелой (Часть 1) (01:18)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ACC0003FD26CBFC92376E77DD2B2C5776E18268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152250   (561486) от 25.07.2017
+
+VA - Anxiety Free. Clear Peaceful Mind: Deep Relaxation of the Soul (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calm Music Zone - Anxiety Free
+02. Meditation Mantras Guru - Breathe In & Breathe Out
+03. Calm Music Masters - Prepare Your Body for Meditation
+04. Sound Therapy Masters - Morning Meditation Music(   Читать дальше...   )Жанр: New AgeПродолжительность: 03:07:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98B6ACB54915E251EA227842230CCA0C5936C6CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045020   (561253) от 22.08.2016
+
+Jean Michel Jarre - Magnetic Fields (1981) Remastered, 2014, Sony Music [FLAC|Lossless|image + .cue]<Electronic, Instrumental, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magnetic Fields Part 1 17:57
+02. Magnetic Fields Part 2 03:59
+03. Magnetic Fields Part 3 04:11
+04. Magnetic Fields Part 4 06:25(   Читать дальше...   )Жанр: <Electronic, Instrumental, New Age>Продолжительность: 00:36:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE23FB2DDBB33075B9C3F5C287CD2AE65B97FE5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045056   (561005) от 22.08.2016
+
+Enya - The Magic Of Enya (2016) Chinese Dragon Music [FLAC|Lossless|tracks + .cue] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Only Time (3:38)
+02. Flora's Secret (4:08)
+03. Caribbean Blue (3:58)
+04. Once You Had Gold (3:18)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 1:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8402F01FE2395F0AD6A057557086968B97D1351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 337396   (560585) от 02.08.2015
+
+Lykke Li - Wounded Rhymes (2011) [FLAC|Lossless]<Indie Pop>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_560585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Indie Pop
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152996   (560078) от 26.07.2017
+
+Really Slow Motion & Instrumental Core - Angels Among Demons (2015) [MP3|320 Kbps] <Soundtrack, Instrumental>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evolving [05:50]
+02. Angels Among Demons [04:40]
+03. Become a Legend [03:41]
+04. Lost Cause [01:44](   Читать дальше...   )Жанр: Soundtrack, InstrumentalПродолжительность: 00:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88417EF5E80CA0E30A0CC34F00E7428C889274B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152994   (560076) от 26.07.2017
+
+Really Slow Motion & Instrumental Core - Other Worlds (2015) [MP3|320 Kbps] <Soundtrack, Instrumental>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Galaxy [04:56]
+02. A First Star [02:24]
+03. Mankind [04:26]
+04. Other Worlds [04:37](   Читать дальше...   )Жанр: Soundtrack, InstrumentalПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A49A6E7A1BE07F092FE933D3F02D689B958A344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365228   (559896) от 19.07.2011
+
+Hossam Ramzy - El-Sultaan (Classical Egyptian Dance) (2003) [MP3|320 kbps]<egypt ethnic music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_559896.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:03] 01.  Eddalla Ala Kefak (Play Hard, To Get What You Wish For)
+[04:20] 02.  Tool Omri Ba-Hebbak (I Loved You All My Life)
+[03:10] 03.  Rannet Khol-Khali (The Ringing of My Ankle Bracelet)
+[06:01] 04.  Ana Albi Elik Mayyal (My Heart Favours You)
+[05:54] 05.  Ya A-Az Min Eyini (You Are More Precious Than My Eyes)
+[06:34] 06.  Bait El-Ez Ya Betna (Ours Is a House of Goodness)
+[09:15] 07.  Ya Bent El-Sultaan (Daughter of the Sultan)
+[08:10] 08.  Yama Layali (Many a Night)Жанр: egypt ethnic musicПродолжительность: 00:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC395706A69C62931634EB1C91B8ECDD8179D21D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365218   (559889) от 19.07.2011
+
+Hossam Ramzy - Zeina (1996) [MP3|320 kbps]<egypt ethnic music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_559889.jpg" />
+</div>
+
+
+###  Подробнее
+
+[05:53] 01.  Zeina (Delightfully Pleasant Lady)
+[07:33] 02.  Set Elhabayib ya Habiba (Lady of all the Beloved)
+[10:51] 03.  Khai Khai (Brother oh Brother)
+[06:55] 04.  Olli Amallak Eih Albi (Tell me, what did my heart ever do to you?)
+[07:17] 05.  Mawkib Ennoour (The Procession of Enlightment)
+[04:57] 06.  Aziza
+[05:35] 07.  Layali Ramadan (Ramadan Evenings)Жанр: egypt ethnic musicПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1F1817BE6F994E598987AFC3DD38D99A5FBC425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1153342   (559844) от 26.07.2017
 
 VA - Latin Hits 2017 The Best (Reggaeton  Bachata  Kizomba) [MP3|320 Kbps] <Latin Music, Reggaeton, Bachata>
@@ -6,7 +271,7 @@ VA - Latin Hits 2017 The Best (Reggaeton  Bachata  Kizomba) [MP3|320 Kbps] <Lati
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559844.jpg" />
 </div>
 
 
@@ -35,7 +300,7 @@ VA - Latino 2017 - Essential Summer Hits  [MP3|320 Kbps] <Latin Music, Salsa, Me
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559836.jpg" />
 </div>
 
 
@@ -64,7 +329,7 @@ VA - 40 Latin Hits 2017 (Reggaeton, Electro Latino & Mambo) [MP3|320 Kbps] <Lati
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559710.jpg" />
 </div>
 
 
@@ -93,7 +358,7 @@ VA - Country Car Music (2019) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559644.jpg" />
 </div>
 
 
@@ -122,7 +387,7 @@ John Galanakis - Doom Vanguard (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack,
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558676.jpg" />
 </div>
 
 
@@ -151,7 +416,7 @@ Casey Weston - Find the Moon (2013) [MP3|320 Kbps] <Country Pop, Vocal>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558036.jpg" />
 </div>
 
 
@@ -180,7 +445,7 @@ Laura Sullivan - The Modern Romantic: New Relaxing Classical Piano Music (2016) 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557945.jpg" />
 </div>
 
 
@@ -209,7 +474,7 @@ Bob Dylan - The Best Of Bob Dylan (1997) [FLAC|Lossless|tracks + .cue] <Rock, fo
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557732.jpg" />
 </div>
 
 
@@ -238,7 +503,7 @@ VA - Grease (The Original Soundtrack From The Motion Picture) (1998) [FLAC|Lossl
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557724.jpg" />
 </div>
 
 
@@ -267,7 +532,7 @@ Mystica - Best Of Gregorian Voices: Parts 1-4 (2016) [FLAC|Lossless|tracks] <New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557723.jpg" />
 </div>
 
 
@@ -296,7 +561,7 @@ Llewellyn - Didgeridoo Gold: Music for Relaxation and Healing (2015) [MP3|320 к
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557535.jpg" />
 </div>
 
 
@@ -323,7 +588,7 @@ VA - Southpaw (2015) [MP3|320 кб/с]<OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557477.jpg" />
 </div>
 
 
@@ -352,7 +617,7 @@ Deuter - Sattva Temple Trance (2018) [MP3|320 Kbps] <New Age, Meditative, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557323.jpg" />
 </div>
 
 
@@ -379,7 +644,7 @@ Piano Peace - Piano Music for Movies (2018) [FLAC|Lossless|WEB-DL|tracks] <Instr
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557295.jpg" />
 </div>
 
 
@@ -408,7 +673,7 @@ Aythar - The God Particle (2016) [MP3|320 Kbps] <Ambient, Space>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556912.jpg" />
 </div>
 
 
@@ -437,7 +702,7 @@ Nick Murray - To the Stars (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556910.jpg" />
 </div>
 
 
@@ -466,7 +731,7 @@ Blue Stone - Pandora's Box (2011) [FLAC|Lossless|tracks + .cue] <New Age, Ethnic
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556845.jpg" />
 </div>
 
 
@@ -480,264 +745,6 @@ Blue Stone - Pandora's Box (2011) [FLAC|Lossless|tracks + .cue] <New Age, Ethnic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37A9679A16069B8DAC1450BAAA4795CAC3AD6F6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045756   (556838) от 25.08.2016
-
-Gomer Edwin Evans - Sensual Moods: Soulful Music for Erotic Moments (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exotic Moods, Pt. 1 [00:04:58]
-02. Exotic Moods, Pt. 2 [00:04:58]
-03. Walking on Sand [00:04:59]
-04. The Beauty of Nature [00:05:00](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7DBB0E3725EFCA2DCAD0123AEECC04852C54314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045787   (556836) от 25.08.2016
-
-David Arkenstone - Barcelona Nights (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Spanish Guitar>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556836.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fire In The Heart (4:27)
- 2. Island Dance (4:09)
- 3. Barcelona Nights (4:04)
- 4. Fuego En La Noche (4:08)(   Читать дальше...   )Жанр: New Age, Spanish GuitarПродолжительность: 00:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE7BAC3B7697D8B60124A8306EF6E5A5F2992EA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045792   (556675) от 25.08.2016
-
-Kyle Dixon & Michael Stein - Stranger Things / Очень странные дела, Vol. 2 (A Netflix Original Series Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hopper Sneaks In (01:39)
-02. I Know What I Saw (02:44)
-03. Rolling Out the Pool (01:13)
-04. Over (01:39)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:13:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4320261796528C2488FE44EC162EA377D653D716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556663   (556519) от 12.06.2022
-
-Schandmaul - Knüppel aus dem Sack (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Folk Rock>
-
->>Other Styles
->>Folk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Knüppel aus dem Sack (4:30)
-02. Königsgarde (3:31)
-03. Das Gerücht (2:47)
-04. Der Pfeifer (4:11)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:49:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41229C7481D8D15A8F7CED1F46421D6B889D7DEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556667   (556475) от 12.06.2022
-
-Satyricon - Satyricon & Munch (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Dark Ambient, Instrumental>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satyricon & Munch (56:08)Жанр: Dark Ambient, InstrumentalПродолжительность: 00:56:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4FBBA90F9B78B7C5BB3E4A4C5378A8FF049D81B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236056   (556268) от 15.07.2018
-
-Piano Peace - Piano Study Music (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Studying Song 02:25
-02. Focus 01:47
-03. Thinking Music 01:53
-04. Moonlight Piano 02:05(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:56:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:946453C9449BFE77D8F890CF7BFFA1F8D7E0E2FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236151   (556262) от 15.07.2018
-
-Piano Peace - Relaxing Piano Lullabies (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lullaby of Dreams 02:47
-02. Moonlight Music 02:56
-03. The Shape of Water 02:53
-04. Lullaby Waltz 02:35(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 01:52:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6F09307DDD8AD1A37DCE6C56BD9D982C39B6E03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305718   (556144) от 01.06.2019
-
-Laura Cantrell - Kitty Wells Dresses: Songs Of The Queen Of Country Music (2011) [FLAC|Lossless|tracks + .cue] <Country, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Kitty Wells Dresses  (3:26)
-02 - I Don't Claim To Be An Angel  (3:04)
-03 - Poison In Your Heart  (2:31)
-04 - One By One  (2:58)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F245505D8414AC36A474C1CF781DED451C3599C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305571   (556142) от 01.06.2019
-
-Kacey Musgraves - Same Trailer Different Park (2013) [FLAC|Lossless|tracks] <Country, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Silver Lining  (3:51)
-02 - My House  (2:42)
-03 - Merry Go 'Round  (3:29)
-04 - Dandelion  (3:04)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58ED960956602402404E7D8F13AC34CD57599F15
 ```
 
 https://mybot314.ru/tekegram_catalog/

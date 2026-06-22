@@ -6,7 +6,7 @@ MotoGP. Этап 14 из 20. Гран-при Эмилии-Романьи. Спр
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104125.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MotoGP. Этап 15 из 20. Гран-при Индонезии. Спринт (2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104000.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MotoGP. Этап 15 из 20. Гран-при Индонезии. Квалифи�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103969.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ MotoGP. Этап 15 из 20. Гран-при Индонезии. Гонка (29.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103947.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ MotoGP. Этап 16 из 20. Гран-при Японии. Квалификац�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103808.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ MotoGP. Этап 16 из 20. Гран-при Японии. Спринт (05.10.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103807.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ MotoGP. Этап 16 из 20. Гран-при Японии. Гонка (06.10.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103773.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ RDS GP: Шинная борьба (2023) HDTV [H.264/1080p] (сезон 2, се�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103643.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ RDS GP: Шинная борьба (2024) WEBRip [H.264/1080p] (сезон 3, с�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103639.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ MotoGP. Этап 17 из 20. Гран-при Австралии. Квалифи�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103526.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ MotoGP. Этап 17 из 20. Гран-при Австралии. Спринт (1
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103522.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ MotoGP. Этап 18 из 20. Гран-при Таиланда. Спринт (26.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103451.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ MotoGP. Этап 18 из 20. Гран-при Таиланда. Гонка (27.10
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103439.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ MotoGP. Этап 18 из 20. Гран-при Таиланда. Квалифик�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103436.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ MotoGP. Этап 19 из 20. Гран-при Малайзии. Квалифик�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103406.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ MotoGP. Этап 19 из 20. Гран-при Малайзии. Спринт (02.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103400.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ MotoGP. Этап 19 из 20. Гран-при Малайзии. Гонка (03.11
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103338.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ MotoGP. Этап 20 из 20. Гран-при Барселоны. Квалифи�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103149.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ MotoGP. Этап 20 из 20. Гран-при Барселоны. Спринт (1
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103144.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ MotoGP. Этап 20 из 20. Гран-при Барселоны. Гонка (17.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103125.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ MotoGP. Этап 18 из 22. Гран-при Индонезии. Гонка (05.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99142.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ MotoGP. Этап 18 из 22. Гран-при Индонезии. Квалифи�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91210.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ MotoGP. Этап 18 из 22. Гран-при Индонезии. Спринт (0
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91174.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ W2RC. Обзор ралли World Rally-Raid Championship (2024) WEBRip [H.264]
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71401.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Porsche Sprint Challenge Southern Europe. Кубок Порше. Эшторил 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70576.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Porsche Sprint Challenge Southern Europe. Кубок Порше. Эшторил 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70521.jpg" />
 </div>
 
 

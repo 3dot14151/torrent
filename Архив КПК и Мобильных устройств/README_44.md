@@ -6,7 +6,7 @@ Guncat 1.1.008 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630015.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Fazenda 1.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629896.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Garmin: City Navigator South America NT 2016.10 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629757.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ SpongeBob Marbles & Slides 1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629755.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Feed Me Oil 2 1.1.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629753.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629648.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629626.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629353.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ FRONTLINE COMMANDO: WW2 1.1.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629338.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Angry Birds Fight! V1.2.1 Mod [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629316.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Spotlight: Room Escape 6.4 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629151.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_628556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_628556.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628523.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Runico (Волшебные формулы) v2.1.1 Full [Ru/Multi] - коллек
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628406.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Orb Trials 1.0.6 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628202.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628194.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Viking Legends 1.4.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628054.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Notific Pro 3.3.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628048.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627764.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_627550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_627550.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Easy Uninstaller Pro 3.0.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627508.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Governor of Poker 2 Premium 1.2.32 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627500.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ MONOPOLY Millionaire 1.7.4 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627261.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Godfire: Rise of Prometheus 1.1.15 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627155.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_626834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_626834.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626649.jpg" />
 </div>
 
 

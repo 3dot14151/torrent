@@ -1,3 +1,66 @@
+###  Публикация: 577882   (354767) от 20.11.2012
+
+Led Zeppelin - Celebration Day (Bonus DVD) (2012) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_354767.jpg" />
+</div>
+
+
+###  Подробнее
+
+A bonus DVD in the deluxe versions features the dress rehearsal at Shepperton Studios, filmed a few days before the O2 concert. The band play the entire set that was to be performed at the O2, and this DVD gives the customer a unique insight into the final rehearsal. The rehearsal is filmed by a single camera in SD and recorded in stereo.1. Shepperton Rehearsal 06.12.07
+2. Zeppelin Media Moment
+3. Tampa Opening FilmЖанр: Hard RockПродолжительность: 1:56:45 + 0:03:39 + 0:01:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577993   (354760) от 20.11.2012
+
+Led Zeppelin - Celebration Day (Live at London O2 Arena 2007) (2012) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_354760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Led Zeppelin - Celebration Day (Live at London O2 Arena 2007)
+
+01. Good Times Bad Times
+02. Ramble On
+03. Black Dog
+04. In My Time Of Dying
+05. For Your Life
+06. Trampled Under Foot
+07. Nobody's Fault But Mine
+08. No Quarter(   Читать дальше...   )Жанр: RockПродолжительность: 2:04:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 255918   (354389) от 08.11.2010
 
 Юрий Антонов - От печали до радости... (2005) DVD-9
@@ -6,7 +69,7 @@
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354389.jpg" />
 </div>
 
 
@@ -32,7 +95,7 @@ Popa Chubby - Wild (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354308.jpg" />
 </div>
 
 
@@ -61,7 +124,7 @@ Iron Maiden - Maiden England '88 (2013) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353297.jpg" />
 </div>
 
 
@@ -90,7 +153,7 @@ Gregorian - Live! Masters of Chant: Final Chapter Tour (2016) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351721.jpg" />
 </div>
 
 
@@ -120,7 +183,7 @@ The Rolling Stones: Sweet Summer Sun - Hyde Park Live (2013) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350234.jpg" />
 </div>
 
 
@@ -149,7 +212,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_344866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_344866.jpg" />
 </div>
 
 
@@ -175,7 +238,7 @@ Suicidal Angels - Division Of Blood (Bonus DVD) (2016) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344455.jpg" />
 </div>
 
 
@@ -204,7 +267,7 @@ Led Zeppelin - Celebration Day(2007)  DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_342464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_342464.jpg" />
 </div>
 
 
@@ -230,7 +293,7 @@ Mike Oldfield - Incantations​ [1978 (переиздание 2011) г., Progres
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_341028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_341028.jpg" />
 </div>
 
 
@@ -256,7 +319,7 @@ Clan Of Xymox "Visible" (2008) 2хDVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327604.jpg" />
 </div>
 
 
@@ -285,7 +348,7 @@ The Beatles Anthology [Episode 1-4, русская озвучка М.Жолоб�
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323605.jpg" />
 </div>
 
 
@@ -311,7 +374,7 @@ Sodom - Live Depravity (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321704.jpg" />
 </div>
 
 
@@ -340,7 +403,7 @@ Venom - Live In London 1985 (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321588.jpg" />
 </div>
 
 
@@ -369,7 +432,7 @@ Overkill - Wrecking Everything (2002) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321581.jpg" />
 </div>
 
 
@@ -398,7 +461,7 @@ Riverdance - The Show 2002 (2002) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318014.jpg" />
 </div>
 
 
@@ -426,7 +489,7 @@ Motley Crue - The End.Live in Los Angeles.2015 (2016) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315679.jpg" />
 </div>
 
 
@@ -456,7 +519,7 @@ Rainbow - Memories in Rock: Live In Germany (2016) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315466.jpg" />
 </div>
 
 
@@ -485,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_314973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_314973.jpg" />
 </div>
 
 
@@ -511,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_314972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_314972.jpg" />
 </div>
 
 
@@ -537,7 +600,7 @@ Overkill - The Grinding Wheel (Bonus DVD) (2017) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312470.jpg" />
 </div>
 
 
@@ -566,7 +629,7 @@ Andrea Bocelli (Андреа Бочелли) & David Foster (Дэвид Фост
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312093.jpg" />
 </div>
 
 
@@ -596,7 +659,7 @@ Destruction - A Savage Symphony - The History Of Annihilation (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312051.jpg" />
 </div>
 
 
@@ -625,7 +688,7 @@ Iced Earth - Festivals Of The Wicked (2011) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309951.jpg" />
 </div>
 
 
@@ -651,7 +714,7 @@ Adriano Celentano - Greatest Video. Vol.1 (2010) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308315.jpg" />
 </div>
 
 
@@ -662,64 +725,6 @@ Adriano Celentano - Greatest Video. Vol.1 (2010) DVD5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75A55789F90AEA708D09E5F71540A983A37055D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260516   (307108) от 09.11.2018
-
-Steven Wilson - Home Invasion: In Concert at the Royal Albert Hall (2018) 2xDVD5 [custom]
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоверсия финального выступления Стивена Уилсона в зале The Royal Albert Hall 28.03.2018г в рамках тура в поддержку альбома «To The Bone». Стивен Уилсон (Steven Wilson) – один из крупнейших представителей прогрессивного рока, выпустивший более пятидесяти альбомов на протяжении трех десятилетий своей карьеры, его последний полноформатный альбом «To The Bone» стал (   Читать дальше...   )01. Intro Truth
-02. Nowhere Now
-03. Pariah
-04. Home Invasion / Regret #9(   Читать дальше...   )Производство: Eagle Rock EntertainmentЖанр: RockРежиссер: James RussellСубтитры: отсутствуютПродолжительность: 02:33:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E33B89FD8EF4A8C1DB1D7DF83C1F665B7E1F2037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183662   (305413) от 15.11.2017
-
-Rob Orlemans & Half Past Midnight - Open The Cage (2007) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rоb Orlemans & Half Past Midnight - голландское трио, играющее блюз-рок в лучших его традициях. "Лицо" группы - Rob Orlemans, инновационный и интересный гитарист-левша, обладающий своим стилем и неповторимым тембром звучания – динамичным и захватывающим. Группа завоевала популярность и авторитет среди поклонников всего мира за их взрывные, живые концерты (   Читать дальше...   )01. Introduction
-02. Going Down (D.Nix)
-03. Libertyville (R.Orlemans)
-04. Buzzin'King Bee (R.Orlemans / J.Moore)(   Читать дальше...   )Производство: Нидерланды, Silvox RecordsЖанр: Блюз-рокСубтитры: отсутствуютПродолжительность: 01:26:38 + 00:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC95B93CC1E066A2AC83AB66E5971F89C94F45FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

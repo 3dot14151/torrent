@@ -1,3 +1,29 @@
+###  Публикация: 1782759   (25652) от 05.03.2025
+
+Мы, нижеподписавшиеся (1980) HDTVRip [H.264/1080p] (серии 1-2 из 2) [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма разворачивается в поезде, которым возвращается в Москву приемочная комиссия, обнаружившая множество недоделок в новом хлебозаводе и отказавшаяся подписывать акт о его готовности к эксплуатации. Но герой фильма намерен – во что бы то ни стало! – убедить членов комиссии изменить это решение... Экранизация по произведению: Александра Гельмана.Производство: СССР / ТО «Экран»Жанр: драмаРежиссер: Татьяна ЛиозноваАктеры: Леонид Куравлёв, Ирина Муравьёва, Аристарх Ливанов, Юрий Яковлев, Клара Лучко, Олег Янковский, Николай Парфёнов, Вадим Захарченко, Владимир Шихов, Иосиф КобзонЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:17:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA411541B811128D2160530A636D77409A478578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783604   (25566) от 06.03.2025
 
 Полицейская академия 3: Переподготовка / Police Academy 3: Back in Training (1986) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25566.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25562.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25554.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25541.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25478.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25453.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25443.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25317.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25305.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25296.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25293.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25184.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25143.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25137.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25136.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25125.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25111.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25088.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25073.jpg" />
 </div>
 
 
@@ -514,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25036.jpg" />
 </div>
 
 
@@ -540,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24934.jpg" />
 </div>
 
 
@@ -566,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24922.jpg" />
 </div>
 
 
@@ -592,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24921.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24911.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24832.jpg" />
 </div>
 
 
@@ -657,34 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C52D64257D3EC091D1D75F33F2F88B3D97C8BF25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784979   (24725) от 14.03.2025
-
-Охотники за разумом / Mindhunters (2004) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24725.jpg" />
-</div>
-
-
-###  Подробнее
-
-На удаленном острове семь будущих агентов ФБР проходят решающий тест, чтобы попасть в элитный отдел «охотников за разумом» - людей, по мельчайшим уликам и любым сведениям составляющих психологические профили опаснейших преступников.
-
-Но испытание становится слишком реальным, когда в их группе оказывается настоящий серийный убийца. Успеют ли оставшиеся в живых выявить (   Читать дальше...   )Производство: США, Великобритания, Нидерланды, Финляндия / Avenue Pictures Productions, Dimension Films, Egmond Film & Television, Intermedia Films, Mindhunters (UK) Limited, Mindhunters Productie BV, Outlaw Productions, Outlaw Victoria Productions Inc., Tonna Oy, Weed Road PicturesЖанр: ужасы, триллер, криминалРежиссер: Ренни ХарлинАктеры: Кэтрин Моррис, Джонни Ли Миллер, ЭлЭл Кул Джей, Кристиан Слэйтер, Клифтон Коллинз мл., Вэл Килмер, Эйон Бэйли, Уилл Кемп, Патрисия Веласкес, Кассандра БеллПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBC53AB0FCA6E76B76BFF0C8A1A827EE266E8A30
 ```
 
 https://mybot314.ru/tekegram_catalog/

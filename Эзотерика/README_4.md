@@ -1,3 +1,29 @@
+###  Публикация: 1363144   (945067) от 26.02.2020
+
+А.Г. Мохан | Йога для тела, дыхания и разума. Как достичь внутреннего равновесия (2019) [PDF, EPUB]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга соединяет в себе три фундаментальных компонента полной йогической практики: асаны (поза), пранаяму (дыхательную практику) и медитацию. Автор разъясняет также основные философские концепции йоги и раскрывает йогический взгляд на здоровье и лечение. Книга содержит множество пошаговых инструкций и иллюстраций и представляет собой полноценное руководство, которое (   Читать дальше...   )Жанр: Эзотерика, Парапсихология, ЙогаПеревод: П.А. СамсоновФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BAF96D1F495A2F1C2E46FA8B39F123F014B501A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 752070   (943038) от 01.02.2014
 
 Вадим Эрлихман | Вольф Мессинг. Экстрасенс Сталина (2012) [PDF]
@@ -6,7 +32,7 @@
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943038.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942141.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942136.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941956.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938216.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935833.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934498.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933623.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933134.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932080.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930589.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925716.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924145.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923971.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916798.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ Inga Dream | Мечтай и действуй. Как повзрослеть и 
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910861.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910656.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910423.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910406.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910375.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910253.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909353.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906969.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906813.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906164.jpg" />
 </div>
 
 
@@ -655,33 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2A853DD863B62E081B05FB23C0A5D4DB5E20025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991561   (905850) от 28.02.2016
-
-Ольга Сорокина | Почему мы болеем. Откровенный разговор биолога с верующими и неверующими (2015) [FB2]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все мы хотим жить долго и не болеть, но наше тело рано или поздно требует ремонта и обновления. Считается, что изначально человек был создан без изъянов и болезней. Можно ли сейчас приблизиться к совершенству и как?
-Эта неожиданная книга написана ученым, научным редактором доктора Мясникова и многих других выдающихся врачей. Через увлекательные сюжеты, узнаваемые (   Читать дальше...   )Жанр: Вера и здоровьеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0EEF0297775129DD5A79849326FB8C32C257F40
 ```
 
 https://mybot314.ru/tekegram_catalog/

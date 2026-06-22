@@ -1,3 +1,29 @@
+###  Публикация: 1521961   (760063) от 06.01.2022
+
+Beastars 2nd Season | Выдающиеся звери [ТВ-2] [2021, TV, 12 эп.] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Убийство ученика-альпаки, произошедшее на территории академии «Черритон», привело к небывалому росту напряженности между травоядными и хищниками, поэтому необходимо срочно предпринять меры для сохранения мира и гармонии в школе. Предполагается, что с этой задачей справится «выдающийся зверь» — ученик, заслуживший этот особый титул за вклад, внесённый в дело объединения (   Читать дальше...   )Производство: студия Orange / オレンジЖанр: Драма, Повседневность, Психологическое, Сёнэн, ШколаРежиссер: Мацуми СинъитиПеревод: laciЯзык озвучки: ЯпонскийСубтитры: Русские (int + ext), Китайские (ext)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D68FD34C08EA63EAD7512CE071B83D77199EE65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197797   (757701) от 26.03.2018
 
 Kokkoku | Миг за мигом [2018, TV, 12 эп.] WEB-DL 720p raw
@@ -6,7 +32,7 @@ Kokkoku | Миг за мигом [2018, TV, 12 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757701.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Osake wa Fuufu ni Natte kara | Love is Like a Cocktail | Любовь похож
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757192.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Tejina Senpai | Magical Sempai | Фокусница-старшеклассниц
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_757186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757186.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757018.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Nihon Chinbotsu 2020 | Japan Sinks 2020 | Гибель Японии 2020 [2020, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757017.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Murenase! Seton Gakuen | Seton Academy: Join the Pack! | Добро пожало
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757015.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Domestic na Kanojo | Domestic Girlfriend | Домашняя девушка | Д�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757006.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Ryuuou no Oshigoto! | The Ryuo's Work is Never Done! | Работа для др�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756001.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Black Jack / Черный Джек [1993 - 1996, OVA, 10] DVDrip raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_755964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755964.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Hanamaru Youchien / Hanamaru Kindergarten / Детский сад Ханамар
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_755240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755240.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Log Horizon: Entaku Houkai | Log Horizon: Destruction of the Round Table | Ло�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755063.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ Bokutachi wa Benkyou ga Dekinai | We Never Learn | Мы не можем учит
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755036.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Seirei no Moribito / Guardian of the Sacred Spirit / Хранитель Свящ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754877.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ Mitsuboshi Colors | Звёздочки [2018, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754381.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ Sora Yori mo Tooi Basho | A Place Further Than the Universe | Место, что
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754280.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ Yuru Camp | Laid-Back Camp | Лагерь на свежем воздухе [2018
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754278.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ Karakai Jouzu no Takagi-san | Поддразнивание Такаги [2018, T
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754272.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ Citrus / Цитрус [2018, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754264.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ One Off / Эпизод [2012, OVA, 4 ep.] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_753130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_753130.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ Netojuu no Susume | Recommendation of the Wonderful Virtual Life | Гайд по
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752932.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ Zoku Touken Ranbu: Hanamaru | Танец мечей: Цветочный круг
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752725.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ Nekomonogatari (Kuro) | История кошки (чёрная глава) [201
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_752601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752601.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ Bokutachi wa Benkyou ga Dekinai! | We Never Learn: Bokuben Season 2 | Мы не 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751921.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ Oshiete! Galko-chan | Расскажи нам, Гяруко-тян! [2016, TV, 1
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751747.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ ViVid Strike! | Решающий удар! [2016, TV, 13 эп. + 2 SP] BDrip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750928.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ ViVid Strike! | Решающий удар! [2016, TV, 13 эп. + 2 SP] BDrip 108
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:401B55AB3769C2DCB6C75A3999203FD3BB9F5AB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174695   (750926) от 30.03.2018
-
-Roku de Nashi Majutsu Koushi to Akashic Records | Акашийские хроники худшего преподавателя магии | Никчёмный учитель магии и Хроники Акаши [2017, TV, 12 эп.] BD-rip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обучаться магии куда сложнее, чем любому другому делу. К этому нужно подходить со всей ответственностью. Маги обладают невероятными способностями и изучают тайны мироздания. Академический городок Феджит как раз занимается обучением лучших магов. Здесь учатся Систи и Люмия - трудолюбивые и целеустремлённые волшебницы. Но недавно их настигла печальная новость - их (   Читать дальше...   )Производство: студия Liden Films / ライデンフィルムЖанр: приключения, комедия, фэнтезиРежиссер: Кадзуто МинатоПеревод: Jarly & ZabrЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADC26096CF5B94A70D22DDEFEAF07535FF0A3F42
 ```
 
 https://mybot314.ru/tekegram_catalog/

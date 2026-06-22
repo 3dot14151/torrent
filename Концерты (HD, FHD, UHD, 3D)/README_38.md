@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190429.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190134.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ A-HA - Ending On A High Note (The Final Concert) (2011) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_189219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189219.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189094.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188038.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186202.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ T.Rex - Wembley Empire Pool (18th March 1972, Evening Concert) (2020) WEB-DLRip 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183057.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182145.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Two Steps From Hell - Europe Tour 2022 (2023) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182012.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181307.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180393.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178058.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176707.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176685.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176070.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176062.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175818.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Metallica: Fan Can Six - Live in Copenhagen (2009) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174924.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Korn: Live at Montreux 2004 (2008) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174368.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173634.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172964.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171713.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ The Cure - 40 Live (Curaetion 25: From There To Here + Anniversary) (2018) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169627.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167858.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167745.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167682.jpg" />
 </div>
 
 

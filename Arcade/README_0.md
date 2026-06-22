@@ -1,3 +1,55 @@
+###  Публикация: 1853625   (1056658) от 14.02.2026
+
+BlazBlue Entropy Effect (2024) [Ru/Multi] (1.0.8.139834.0/dlc) Repack FitGirl [Complete Edition]
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056658.jpg" />
+</div>
+
+
+###  Подробнее
+
+BlazBlue Entropy Effect - двухмерная приключенческая игра во вселенной BlazBlue, но с другим жанром и стилем, чем предыдущие файтинги. В ней присутствуют элементы рогелита, такие как процедурно генерируемые карты, permadeath и кастомизация персонажей. Также здесь имеется насыщенный сюжет с несколькими концовками, зависящими от выбора геймера.Тип издания: RepackРазработчик: 91ActЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Английский, Китайский (упрощенный), ЯпонскийЯзык субтитров: Русский, Английский, Немецкий, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Немецкий, Китайский (упрощенный) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6660D569889526DB7C01BF350BE1F81C2C1AD83B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852552   (1055966) от 08.02.2026
+
+Donna: The Canine Quest (2025) [En] (1.0.0/dlc) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055966.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фантастическом мире, где сосуществуют волшебные существа и мифологические персонажи, древнее зло начинает отбрасывать свою тень на землю. Только ротвейлер по имени Донна обладает достаточной силой и отвагой, чтобы противостоять этой тьме. Донна, отважная собака-воин с благородным сердцем, унаследовала от своих предков миссию по защите беззащитных собак и спасению (   Читать дальше...   )Тип издания: LicenseРазработчик: RAZE GAMESЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D323629EB445D20FE4AE54706E8CDC71BDFF000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852557   (1055963) от 08.02.2026
 
 Sky Force Reloaded (2017) [Ru/Multi] (build 3397294) Repack seleZen
@@ -6,7 +58,7 @@ Sky Force Reloaded (2017) [Ru/Multi] (build 3397294) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055963.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Cozy Caravan (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055828.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ SpongeBob SquarePants: Titans of the Tide (2025) [Ru/Multi] (1.3.0.0/dlc) Repack
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055337.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.19.1031/dlc) Repack Necros [The One Who 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055261.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.18.1029/dlc) Repack Wanterlude [The One 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054960.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.15.979/dlc) Repack Pioneer [Pilgrim Edit
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053917.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.15.979/dlc) Repack FitGirl [The One Who 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053915.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.15.980/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053692.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.15.979/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053691.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Aaero2 (2024) [Ru/Multi] (1.52) Repack FitGirl [Black Razor Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053418.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Thrae (2025) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053392.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Hunter×Hunter Nen×Impact (2025) [Multi] (1.2.2/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053185.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Machick 2 (2025) [Ru/Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052913.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Halls of Torment (2023) [Ru/Multi] (2025-12-04/dlc) Repack FitGirl [Tormented Su
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052912.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Under Night In-Birth II (2) Sys:Celes (2024) [Multi] (1.32/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052674.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Toy Tanks (2022) [En] (1.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052437.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Legend of Kay Anniversary (2015) [Multi] (1.0.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052021.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ R-Type Final 2 (2021) [Multi] (2.0.4/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051959.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ SHINOBI: Art of Vengeance (2025) [Ru/Multi] (1.01/dlc) Repack FitGirl [Port Swit
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051741.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Megabonk (2025) [Ru/Multi] (1.0.19) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051350.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ PixelJunk Eden 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051349.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Angeline Era (2025) [Multi] (43.9) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051283.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Airborne Ranger (1988) [En] (441.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050799.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Star Fire: Eternal Cycle (2025) [Ru/Multi] (1.25.271) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050793.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Star Fire: Eternal Cycle (2025) [Ru/Multi] (1.25.271) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63A853B717D0E19B2A324AAD874D2A0D3EDCF48D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845169   (1050470) от 30.12.2025
-
-Sonic Colors: Ultimate (2021) [Ru/Multi] (10078994/dlc) Repack FitGirl [Digital Deluxe Edition]
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Злой доктор Эггман построил космический парк развлечений и питает его энергией захваченных в плен инопланетян - виспов. Освободи виспов вместе с неуловимым Соником, узнай, какими силами они обладают, и исследуй шесть уникальных миров, полных непростых испытаний. Тебя ждут завораживающие виды, новые возможности, дополнительный игровой режим, а также улучшенный игровой (   Читать дальше...   )Тип издания: RepackРазработчик: Sonic Team, Blind Squirrel GamesЖанр: Экшены, Казуальные игрыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20345305B2511503642029FCC8362CD674FBBD6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844902   (1050439) от 28.12.2025
-
-Sonic Colors: Ultimate (2021) [Ru/Multi] (10078994/dlc) Scene voices38 [Digital Deluxe]
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Злой доктор Эггман построил космический парк развлечений и питает его энергией захваченных в плен инопланетян - виспов. Освободи виспов вместе с неуловимым Соником, узнай, какими силами они обладают, и исследуй шесть уникальных миров, полных непростых испытаний. Тебя ждут завораживающие виды, новые возможности, дополнительный игровой режим, а также улучшенный игровой (   Читать дальше...   )Тип издания: SceneРазработчик: Blind Squirrel EntertainmentЖанр: Аркада, ПлатформерЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ABA9E7390BBAD2DDC7C3C9B0B1EE533CE15D74C
 ```
 
 https://mybot314.ru/tekegram_catalog/

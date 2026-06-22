@@ -1,3 +1,141 @@
+###  Публикация: 469638   (82983) от 18.03.2012
+
+Yesterday / Yesterday: Печать Люцифера [Ru] (L/Steam-Rip) 2012
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нью-Йорк, 2011 год. Кому есть дело до погибших бездомных? Неужели никому, даже если их убивают какие-то психи? Никому… Кроме Генри Уайта, интеллигентного юноши, наследника одного из самых крупных состояний в Америке. Однажды, помогая нищим, прозябающим на заброшенной станции метро, молодой человек попал в серьезный переплет и угодил в плен к бродягам, одержимым идеями испанской инквизиции. Интересно, не тех ли самых убийц отыскал Генри?...
+
+ Знаменитая студия Pendulo, уже почти два десятилетия талантливо развлекающая публику юмористическими квестами, на этот раз выступила в новом амплуа, создав мрачный психологический триллер с мистическим уклоном «Yesterday: Печать Люцифера». Вы возьмете под контроль стразу трех персонажей и вместе с ними побываете в Америке, Европе, Азии, где, конечно, вам придется немало поломать голову над хитроумными загадками. Алхимия, сатанизм, Ватикан, Y-образные шрамы — какое уж тут веселье: все необычайно мрачно, но традиционно интригующе.
+
+ Будьте готовы к неожиданностям. Взгляните своим страхам в лицо. Выясните, кто же вы и что вы сделали… Вчера.
+(   Читать дальше...   )Тип издания: Лицензия (Steam-Rip)Разработчик: Pendulo StudiosЖанр: AdventureЯзык озвучки: русскийЯзык интерфейса: русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469164   (82734) от 17.03.2012
+
+Memento Mori / Memento Mori: Помни о смерти (RePack) [Ru] 2008 | a-line
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три ценные картины были тайно вынесены из Эрмитажа и заменены искусно выполненными подделками. С первого взгляда могло показаться, что это самая обыкновенная кража. Но при детальном расследовании выяснилось, что в похищении картин замешан малоизвестный финский орден. Некое тайное общество, история существования которого насчитывает многие века. На протяжении столетий орден пытался не допустить того, чтобы определенные полотна оказались открыты для широкой публики. Основная идея общества начиналась с легенды первой половины 15-го века. В ней говорилось, что есть картины, на которых можно рассмотреть Ангела Смерти. Многие художники хотели изобразить его. Некоторые всю жизнь ждали предсмертного часа ради этой цели. Те картины, на которых можно было увидеть Ангела Смерти, похищали и тщательно прятали. В расследовании дела о краже картин участвуют два персонажа. Первый герой - молодой профессор из Франции, специалист по истории искусств. Он был привлечен к следствию из-за своих связей с криминальным миром. Когда-то давно он привлекался к ответственности за подделку и продажу «старинных» картин. Второй персонаж - девушка из России, капитан милиции Санкт-Петербурга и по совместительству российский представитель в штаб-квартире Интерпола. От лица этих героев игроку предстоит участвовать в поиске картин, на которых якобы присутствует изображение Ангела Смерти. (   Читать дальше...   )Тип издания: RePackЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:375C45176D1A705D79A91BFD47F112414A9F39BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467291   (81919) от 13.03.2012
+
+Gabriel Knight 3: Blood of the Sacred, Blood of the Damned / Гэбриэл Найт: В поисках грааля [Ru] (L) 2005
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81919.jpg" />
+</div>
+
+
+###  Подробнее
+
+2000 лет ереси, лжи, предательств и одна пугающая истина - все это ожидает вашего героя, Гэбриэла Найта, во французской деревушке Рене-ле-Шато. Он отправляется туда, чтобы помочь местным жителям разыскать пропавшего ребенка, и оказывается затянут в круговорот шокирующих событий, главными участниками которых становятся служители темного культа, в течение тысячелетий скрывавшего свое существование. Чем дальше продвигается расследование, тем более мрачные тайны открываются Гэбриэлу – он находит одно из величайших сокровищ мира и сталкивается с вампирами.
+(   Читать дальше...   )Тип издания: ЛицензияЖанр: Adventure / Quest / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC357CBD5B6C1671B6BB32AA2E50F9E5E71DA410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466115   (81511) от 11.03.2012
+
+Арчи Баррел: Дело N2: Казино Golden Palace: В поисках золотого жука [Ru] (L) 2002
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Частный детектив из дружеской Америки по имени Арчи Баррел, заработав на поприще дедуктивного метода некоторый капиталец, а также пресытившись женским контингентом Соединенных Штатов, решается совершить путешествие по необъятной России, вкусить все прелести русского быта, обычаев и покорить славянских красоток на их исторической родине...
+Приключения начинаются уже в купе вагона, очаровательная блондинка, незаметно для самого Арчи, при содействии нескольких мошенников, оставляет Арчи без копейки и в добавок прикованным наручниками к окну купе.
+Вам предстоит провести Арчи через вереницу жизни в России вернуть проигранные в поезде деньги и попутно разоблачить шайку мошенников. А так же вывести американского разведчика крупного вора по кличке Зоофил на золотую неразменную фишку казино, а затем, прозрев - сдать его охране казино. Вас ждут захватывающие игры: американская рулетка, карты, казино, блэк - джек, а также игра на раздевание с очаровательной красавицей Юлией.Тип издания: ЛицензияЖанр: Интерактивный эротический квестЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9005F9F920F85C663C5C3EA0E69A894C656ADEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466393   (81487) от 11.03.2012
+
+Lost Horizon [Ru] (RePack) 2010 | LandyNP2
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великолепная игра в стиле знаменитых приключений Индианы Джонс. По сюжету игры - наступил 1930 год, нацисты перерывают мир в поисках оружия невероятной силы. В игру вступает Фэнтон Паддок, бывший наемник. Его взяли в состав экспедиции, которая отправляется в поиски легендарной Шамбаллы.(   Читать дальше...   )Тип издания: RePackЖанр: AdventureЯзык озвучки: НемецкийЯзык интерфейса: Русский (любительский перевод)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E95CD534BB627A99533420D8710697E3CB385341
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 465847   (81445) от 11.03.2012
 
 Арчи Баррел Дело: отель 'Империал' [Ru] (L) 2000
@@ -6,7 +144,7 @@
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81445.jpg" />
 </div>
 
 
@@ -33,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79273.jpg" />
 </div>
 
 
@@ -59,7 +197,7 @@ The Secret of Monkey Island: Special Edition [Ru/En] (RePack) 2009 | R.G. Мех
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74563.jpg" />
 </div>
 
 
@@ -88,7 +226,7 @@ Nine Sols (2024) [Ru/Multi] (Build 7c478ba3) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69655.jpg" />
 </div>
 
 
@@ -114,7 +252,7 @@ Leafing Home (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65896.jpg" />
 </div>
 
 
@@ -140,7 +278,7 @@ Sally Face (2016) [Ru/Multi] (1.5.44) Repack EXROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65891.jpg" />
 </div>
 
 
@@ -166,7 +304,7 @@ Tesla Effect: A Tex Murphy Adventure (2014) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65798.jpg" />
 </div>
 
 
@@ -192,7 +330,7 @@ Star Trek: Judgment Rites (1993) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65795.jpg" />
 </div>
 
 
@@ -218,7 +356,7 @@ Tex Murphy: Under a Killing Moon (1994) [Multi] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65664.jpg" />
 </div>
 
 
@@ -244,7 +382,7 @@ Tex Murphy: The Pandora Directive (1996) [Multi] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65662.jpg" />
 </div>
 
 
@@ -270,7 +408,7 @@ The Hungry Lamb: Traveling in the Late Ming Dynasty / Epiao: Ming Mo Qianli Xing
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65661.jpg" />
 </div>
 
 
@@ -296,7 +434,7 @@ Ever 17 - The Out of Infinity (2025) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65641.jpg" />
 </div>
 
 
@@ -322,7 +460,7 @@ The Bunker 69 (2019) [Ru/En] (1.0/dlc) Repack Other s [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63780.jpg" />
 </div>
 
 
@@ -348,7 +486,7 @@ Evil Nun: The Broken Mask (2023) [Ru/Multi] (1.671) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63754.jpg" />
 </div>
 
 
@@ -374,7 +512,7 @@ REVEIL (2024) [Ru/Multi] (1.0.3f4/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63676.jpg" />
 </div>
 
 
@@ -400,7 +538,7 @@ IMMORTALITY (2022) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63670.jpg" />
 </div>
 
 
@@ -426,7 +564,7 @@ Stellar Ghosts Settlers (2024) [En] (1.0.220) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63654.jpg" />
 </div>
 
 
@@ -452,7 +590,7 @@ Zoonomaly (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63023.jpg" />
 </div>
 
 
@@ -478,7 +616,7 @@ YOKO (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63020.jpg" />
 </div>
 
 
@@ -504,7 +642,7 @@ Somerville (2022) [Multi] (1.0) License Razor1911
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62934.jpg" />
 </div>
 
 
@@ -530,7 +668,7 @@ The Unknown (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62799.jpg" />
 </div>
 
 
@@ -541,136 +679,6 @@ The Unknown - психологический хоррор от первого л
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F6E884CE917AAC675CC98A510F153DE981C0B12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707340   (62764) от 16.03.2024
-
-Silent Cause (2024) [En] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Silent Cause - это однопользовательская игра в жанре хоррор с упором на сюжет и исследование. Игроки берут на себя роль следователя, привлеченного к расследованию загадочного дела: семья бесследно исчезла, не оставив после себя никаких улик. Полицейское расследование ничего не дало, но дело привлекло внимание разных людей, от охотников за привидениями до частных (   Читать дальше...   )Тип издания: RepackРазработчик: luxikЖанр: Exploration, First-person, HorrorЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AF5B09C33FA8CE203EFA7A544EBB6D4FE57EF91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708109   (62517) от 19.03.2024
-
-The Quarry (2022) [Ru/Multi] (1.07/dlc) Repack Decepticon [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62517.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Quarry - кинематографичный хоррор, в котором любое принятое решение имеет последствие как для общего развития истории, так и для жизни персонажей. Действия разворачиваются в летнем лагере Хэкеттс Куори. Подростков преследуют кровожадные маньяки и жуткие монстры, скрывающиеся в ночи. В игре представлено множество главных героев: Крис, Эбигейл, Кейтлин, Ник, Эмма (   Читать дальше...   )Тип издания: RepackРазработчик: Supermassive GamesЖанр: Adventure (Horror), Interactive Movie, QTEЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4AB794951BD77DC297276D08210B5232A542C81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708073   (62484) от 19.03.2024
-
-Death Trick: Double Blind (2024) [Multi] (1.1.13) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Death Trick: Double Blind - приключенческая игра в формате point-and-click. Бродячий цирк прибыл в город, и кажется, что это время для беззаботного веселья, но исчезновение фокусника заставило всех забить тревогу. Несмотря на пропажу столь ценного сотрудника, шоу должно продолжаться, и именно вам суждено занять его место. Развлекайте людей под куполом шапито, а в (   Читать дальше...   )Тип издания: RepackРазработчик: Misty Mountain StudioЖанр: Приключенческие игры, Казуальные игры, СтратегииЯзык субтитров: Английский, Китайский (упрощенный)Язык интерфейса: Английский, Китайский (упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C10B5916FF5931347EFCB8A308653F479FFECDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708082   (62480) от 19.03.2024
-
-Left Behind (2024) [En] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра представляет из себя не очень продолжительный хоррор, в котором вам будет рассказана очень интересная история человека по имени Лукас, которого гордость и желание прославиться заставляют искать старинный дом, который в течении множества лет постоянно ускользал от всех, кто пытался его отыскать...Тип издания: RepackРазработчик: SolitaryStudiosЖанр: Adventure, HorrorЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62DBAE4226489125EBD92D94E9526F52E75F9171
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708421   (62398) от 20.03.2024
-
-The Beast Inside (2019) [Ru/Multi] (1.05) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62398.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Beast Inside – психологический хоррор с современной графикой и новыми впечатлениями для любителей ужастиков. Помимо обычного прохождения страшных локаций, в этой игре присутствует отличный сюжет, в котором вы поиграете за двух персонажей, попавших в мрачную историю. Действия разворачиваются в 1979 и повествуют об Адаме, работнике ЦРУ, который переехал в загородный (   Читать дальше...   )Тип издания: RepackРазработчик: Illusion Ray StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAAF71586AFE101534E57D7F2342AA3FB8669651
 ```
 
 https://mybot314.ru/tekegram_catalog/

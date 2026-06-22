@@ -1,3 +1,29 @@
+###  Публикация: 1544263   (189564) от 11.11.2022
+
+Kingdom 4 | Царство [ТВ-4] [2022, TV, 26 из 26] WEBRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение аниме - Царство: Принц Ин Чжэн одолел заговорщиков и вернул себе трон царства Цинь, но почивать на лаврах преждевременно. У молодого правителя слишком мало верных сторонников, ведь многие погибли в бою, а большинство князей и сановников выжидают, желая знать, на что способен «этот юноша». Реальную власть в стране захватил бывший купец, авантюрист Люй (   Читать дальше...   )Производство: Studio Pierrot и Studio SignpostЖанр: Приключения, война, история, cэйнэнРежиссер: Имаидзуми КэнъитиСубтитры: Русские, Английские и другиеПродолжительность: 26 серий по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8117034A780F6B1586AB1FF9A7A5EEB4FF10E700
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590457   (189092) от 13.11.2022
 
 Momoiro Sisters | Розовые сёстры [1998, TV, 23 + SP] DVDRip 480p 10-bit raw
@@ -6,7 +32,7 @@ Momoiro Sisters | Розовые сёстры [1998, TV, 23 + SP] DVDRip 480p 10
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189092.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Gekijouban Hana yori Dango | Цветочки после ягодок (филь�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189085.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Hana yori Dango | Boys Over Flowers | Цветочки после ягодок [
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189079.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ Alien Nine | Чужой 9 [2001, OVA, 4 эп.] DVDRip 480p 10-bit raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189074.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ Tezuka Osamu no Don Dracula | Дон Дракула [1982, TV, 4 эп + 4 SP] DV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188767.jpg" />
 </div>
 
 
@@ -143,7 +169,7 @@ Ayaka | Ayaka: A Story of Bonds and Wounds | Аяка [2023, TV, 12 эп.] WEBRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188165.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ Liar Liar / Лжец Лжец [2023, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188152.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ Genjitsu no Yohane: Sunshine in the Mirror / Yohane the Parhelion: Sunshine in t
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187850.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ Saihate no Paladin | The Faraway Paladin | Паладин издалека [ТВ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187785.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ RWBY: Hyousetsu Teikoku | RWBY: Ice Queendom | RWBY Ледяное короле�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_187707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187707.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ Spy x Family | Семья шпиона [2022, TV, 12 из 25] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187697.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ Mononogatari (2023) | Malevolent Spirits (2023) | Истории нечисти 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187592.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ Masamune-kun no Revenge R | Masamune-kun's Revenge R | Месть Масамун
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187591.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ Heike Monogatari | The Heike Story | Повесть о доме Тайра [2021
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187542.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ Machikado Mazoku 2-Choume | The Demon Girl Next Door 2 | Городская дь
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187498.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ Kimetsu no Yaiba: Yuukaku Hen | Demon Slayer: Entertainment District Arc | Ис�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187418.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ Tensei Kenja no Isekai Life: Daini no Shokugyou o Ete, Sekai Saikyou ni Narimash
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_187401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187401.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ Machikado Mazoku | The Demon Girl Next Door | Городская дьяволи�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_187368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187368.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ Yumemiru Danshi wa Genjitsushugisha / The Dreaming Boy is a Realist / Из ме�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186937.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ Lv1 Maou to One Room Yuusha | Level 1 Demon Lord and One Room Hero | Однуш�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186508.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ Sugar Apple Fairy Tale (2023) | Сказка о сахарном яблоке [�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186344.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ Higeki no Genkyou to Naru Saikyou Gedou Last Boss Joou wa Tami no Tame ni Tsukus
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186342.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ Seija Musou: Salaryman, Isekai de Ikinokoru Tame ni Ayumu Michi | Великий
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186337.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ Tenpuru / Temple / Храм [2023, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186326.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ Horimiya: Piece | Horimiya: The Missing Pieces | Хоримия [ТВ-2] [2023, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186167.jpg" />
 </div>
 
 
@@ -652,34 +678,6 @@ Horimiya: Piece | Horimiya: The Missing Pieces | Хоримия [ТВ-2] [2023, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:439489E7E0F5BD703CAEA679C0715D84540D24C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623683   (186165) от 24.09.2023
-
-Mix: Meisei Story 2nd Season - Nidome no Natsu, Sora no Mukou e | Микс: История Мейсей [ТВ-2] [2023, TV, 24 из 24] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186165.jpg" />
-</div>
-
-
-###  Подробнее
-
-После успеха в летнем турнире года многие ученики подают заявки на вступление в бейсбольную команду средней школы Мэйсэй. Нишики Кендзи, который покинул команду из-за спора с ее менеджером, когда учился в среднем классе, также возвращается в команду, и команда продолжает работу с вновь присоединившимися участниками.
-
-Следующей весной Татибана Отоми, Нацуно Ичибан, (   Читать дальше...   )Производство: Студия OLM / オー・エル・エムЖанр: повседневность, романтика, спортРежиссер: Камитани ТомохироПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские (мультисаб)Продолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90ECE47DBEBF310334338BA249DAB791A587743C
 ```
 
 https://mybot314.ru/tekegram_catalog/

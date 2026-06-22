@@ -1,3 +1,83 @@
+###  Публикация: 648575   (852486) от 25.04.2013
+
+Edubuntu 13.04 (Ubuntu для школ и вузов) [i386, amd64] (2xDVD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Edubuntu — дистрибутив операционной системы Linux, основанный на дистрибутиве Ubuntu. Ориентирован на использование в образовательных учреждениях. В Edubuntu включён Linux Terminal Server Project и большое количество программ образовательного направления, таких как GCompris; KDE Education Project; SchoolTool Calendar (en — school management information system) и ряд других.
+
+Установив Edubuntu Вы получите все возможности текущей версии Ubuntu 13.04 плюс некоторый набор образовательных программ. Поскольку Edubuntu работает с теми же репозиториями, что и Ubuntu, в последней все эти программы также будут доступны, однако придется их устанавливать самостоятельно, на что уйдет дополнительное время.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378113   (846138) от 25.04.2020
+
+CAE Linux 2018 [x86_64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846138.jpg" />
+</div>
+
+
+###  Подробнее
+
+CAE Linux - операционная система для инженерного расчетного анализа и проектирования. Представляет из себя Xubuntu 16.04 LTS 64 bit, т.е. Ubuntu c легковесным рабочим столом XFCE с обширным набором предустановленных инженерного, научного и образовательного программного обеспечения, а также большое количество приложений для выполнения различных проектных, расчетных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AEFDD627D5CE4C3B48FAB390955CD3786183F8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003701   (843124) от 03.04.2016
+
+Debian GNU/Linux 8.4.0 Jessie [amd64] 3xDVD, 2x updateDVD, 1x netinstCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843124.jpg" />
+</div>
+
+
+###  Подробнее
+
+На зеркалах, с опозданием на сутки по отношению к объявленной дате, стали размещать четвертое обновление стабильного выпуска Debian 8 (кодовое имя "jessie"). Это обновление в основном содержит исправления проблем безопасности стабильного выпуска, а также несколько корректировок серьёзных проблем. Рекомендации по безопасности опубликованы отдельно и указываются (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1424D4844B3D46A1F2A5375A8E40102065ECD4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 650950   (841564) от 01.05.2013
 
 Sabayon 13.04 (CoreCDX, HardenedServer, ServerBase, SpinBase) [x86, x86-64] (4xDVD+4xCD)
@@ -6,7 +86,7 @@ Sabayon 13.04 (CoreCDX, HardenedServer, ServerBase, SpinBase) [x86, x86-64] (4xD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841564.jpg" />
 </div>
 
 
@@ -34,7 +114,7 @@ Sabayon 13.04 (GNOME, KDE, Xfce, Mate) [x86-64] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841482.jpg" />
 </div>
 
 
@@ -62,7 +142,7 @@ JonDo 0.9.42 (Анонимный доступ в сети) [x86] (DVD, CD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841481.jpg" />
 </div>
 
 
@@ -92,7 +172,7 @@ Sabayon 13.04 (GNOME, KDE, Xfce, Mate) [x86] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841466.jpg" />
 </div>
 
 
@@ -120,7 +200,7 @@ Debian GNU/Linux 8.4.0 Jessie [i386] 3xDVD, 2x updateDVD, 1x netinstCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841386.jpg" />
 </div>
 
 
@@ -146,7 +226,7 @@ Debian GNU/Linux 8.4.0 Jessie Live [i386] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839988.jpg" />
 </div>
 
 
@@ -172,7 +252,7 @@ Debian GNU/Linux 8.4.0 Jessie Live [amd64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839538.jpg" />
 </div>
 
 
@@ -198,7 +278,7 @@ Korora  Linux (ex. Kororaa) 18 [x86, x86-64] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837788.jpg" />
 </div>
 
 
@@ -226,7 +306,7 @@ Debian GNU/Linux 8.4.0 Jessie Live (nonfree) [i386] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836433.jpg" />
 </div>
 
 
@@ -252,7 +332,7 @@ Debian GNU/Linux 8.4.0 Jessie Live (nonfree) [amd64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836327.jpg" />
 </div>
 
 
@@ -278,7 +358,7 @@ Red Hat Enterprise Linux 8.2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834399.jpg" />
 </div>
 
 
@@ -304,7 +384,7 @@ Debian GNU/Linux 7.0.0 Live [i386] (2xDVD, 4xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832902.jpg" />
 </div>
 
 
@@ -332,7 +412,7 @@ Debian GNU/Linux 7.0.0 [amd64] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832585.jpg" />
 </div>
 
 
@@ -362,7 +442,7 @@ Debian GNU/Linux 7.0.0 [i386] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832510.jpg" />
 </div>
 
 
@@ -392,7 +472,7 @@ DoudouLinux (Rus, Eng). Linux для детей от 2-х лет. 2013.2 [i386] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832479.jpg" />
 </div>
 
 
@@ -422,7 +502,7 @@ OSGeo-Live 10.0 (Дистрибутив для географов, картог�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831250.jpg" />
 </div>
 
 
@@ -448,7 +528,7 @@ Debian GNU/Linux 7.0.0 (DVD N4-N10) [i386] (7xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830608.jpg" />
 </div>
 
 
@@ -478,7 +558,7 @@ Debian GNU/Linux 11.1.0 + nonfree (firmware) Bullseye [i386] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828029.jpg" />
 </div>
 
 
@@ -504,7 +584,7 @@ Manjaro Linux 0.8.5.2 (Arch + XFCE) [i686, x86-64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827287.jpg" />
 </div>
 
 
@@ -532,7 +612,7 @@ Manjaro Linux 0.8.5.2 (Arch + openbox, net) [i686, x86-64] (4xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827280.jpg" />
 </div>
 
 
@@ -560,7 +640,7 @@ AV Linux 2016 (Мультимедийная рабочая станция на �
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826518.jpg" />
 </div>
 
 
@@ -586,7 +666,7 @@ Debian Edu - Skolelinux 11.1.0 Bullseye + nonfree [Linux для школы] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826404.jpg" />
 </div>
 
 
@@ -612,7 +692,7 @@ Parrot Security OS 4.9 + netinstall x64-x32 [Хакинг, аудит, безо�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825928.jpg" />
 </div>
 
 
@@ -623,88 +703,6 @@ Parrot Security OS - это операционная система, ориен�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D3DF7C6E90CF699904B6CE879531A1E5A349745
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 654590   (825078) от 10.05.2013
-
-CrunchBang 11 Waldorf (Легкий дистрибутив) [i486, i686, amd64] (3xCD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Филип Ньюборо (Philip Newborough) выпустил новую сборку CrunchBang Linux 11 (облегчённый дистрибутив на основе Debian) для разработчиков. Образы CrunchBang 'Waldorf' уже доступны.
-
-Базовой системой для CrunchBang Linux 11 Waldorf служит Debian 7 Wheezy, перешедший 4 мая в положение стабильной ветки. Разработка Waldorf велась более года, и в результате, по мнению разработчика, это лучший релиз CrunchBang Linux из когда-либо выпускавшихся. Новые образы включают наиболее существенные изменения с момента последнего релиза.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502366   (824630) от 16.10.2021
-
-Debian GNU/Linux 11.1.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+2xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как сообщает OpenNET: Сформировано первое корректирующее обновление дистрибутива Debian 11, в которое включены обновления пакетов, выпущенные за два месяца с момента релиза новой ветки, и устранены недоработки в инсталляторе. Выпуск включает 75 обновлений с устранением проблем со стабильностью и 35 обновлений с устранением уязвимостей. Из изменений в Debian 11.1 (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A39ABAA531B40989EAFD598A7BF4B58D5AC5A855
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382268   (820510) от 10.05.2020
-
-Debian GNU/Linux 10.4.0 + nonfree Buster [i386] 4xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как сообщает OpenNET: опубликовано четвёртое корректирующее обновление дистрибутива Debian 10, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 108 обновлений с устранением проблем со стабильностью и 53 обновления с устранением уязвимостей.
-
-Из изменений в Debian 10.4 можно отметить обновление до свежих стабильных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FCE52BDD819CF25BC5F341A6E79426C53463BF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

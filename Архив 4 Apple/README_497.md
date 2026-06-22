@@ -1,3 +1,56 @@
+###  Публикация: 1536641   (244119) от 12.03.2022
+
+Loopback 2.2.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Синхронизация аудио между приложениями на вашем Mac.
+Создание виртуальных звуковых устройств, чтобы взять звук от приложений и аудио устройств ввода, а затем отправить его к аудио приложению обработки. Loopback дает вам силу студии микшерного пульта, прямо на вашем компьютере. Настройка виртуального звукового устройства из нескольких источников легко. Просто добавьте (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.03.2022Разработчик: © 2022 Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский, Немецкий, Французский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E804E5F01FF5704408D882638296F5540EF8DEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454341   (244115) от 14.03.2021
+
+Hookshot 1.19 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hookshot - позволяет привязывать окна с помощью перетаскивания, сочетаний клавиш или строки меню.Тип издания: macOS SoftwareРелиз состоялся: 13.03.2021Разработчик: Ryan HansonПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0020A2C7EE37CCA2AD21831DE35DF988DBCAE79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622829   (244103) от 30.03.2023
 
 OmniPlayer Pro - Media Player 2.0.19 [Multi]
@@ -6,7 +59,7 @@ OmniPlayer Pro - Media Player 2.0.19 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244103.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ PlistEdit Pro 1.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244076.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ URL Extractor 4 v 4.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244041.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ iA Writer 5.6.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244015.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ AnyMP4 Mac Video Converter Ultimate 9.2.16 [Rus/Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244012.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ GrandTotal 7 v7.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243997.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ Feeder 4 v4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243988.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ Checksum Thing 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243985.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ PatterNodes 2 v2.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243980.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ Keep It 1.11.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243976.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ Network & Battery 12.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243970.jpg" />
 </div>
 
 
@@ -302,7 +355,7 @@ Multitouch 1.27.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243968.jpg" />
 </div>
 
 
@@ -328,7 +381,7 @@ PDF Search 11.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243962.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ Movavi Video Suite for Mac 2022 v22.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243954.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ Artstudio Pro 4.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243946.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ Omni Recover 3 v3.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243932.jpg" />
 </div>
 
 
@@ -433,7 +486,7 @@ iCollections 6 v6.8.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243913.jpg" />
 </div>
 
 
@@ -459,7 +512,7 @@ Better Trash 1.6.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243900.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ MarkMyWords 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243892.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ EditReady 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243879.jpg" />
 </div>
 
 
@@ -540,7 +593,7 @@ Text Scanner - PDF & Document 1.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243871.jpg" />
 </div>
 
 
@@ -566,7 +619,7 @@ SyncBird Pro 3.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243864.jpg" />
 </div>
 
 
@@ -592,7 +645,7 @@ Data Extractor 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243863.jpg" />
 </div>
 
 
@@ -619,7 +672,7 @@ Things 3 v3.17.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243853.jpg" />
 </div>
 
 
@@ -631,60 +684,6 @@ Things — приятный и простой ежедневник. Это ид�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C7F0ACD92C1F469C48CE555C458A6EA423CEA19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455507   (243844) от 19.03.2021
-
-Bartender 4 v4.0.44 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bartender - утилита для простой организации иконок приложений в статус баре.
-Данное приложение поможет навести порядок в значках на панели меню. Принцип работы Bartender очень прост. В строке меню появляется иконка приложения, нажатие на которую открывает подменю, в котором будут прятаться все «лишние» иконки. В настройках приложения можно указать, какие объекты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.03.2021Разработчик: Surtees Studios LtdПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D47E335CF96AAC278017FE0344AA0E226924D61A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537849   (243832) от 18.03.2022
-
-Integrity Plus 12.1.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Integrity - приложение в помощь Web-мастерам и предназначено для проверки наличия изображений и целостности ссылок на вашем сайте. Проверка начинается с главной страницы и будет продолжена внутрь сайта (от новых страниц к более старым) следуя внутренним связям ресурса.
-Досконально проверяется каждая ссылка и анализируется ответ сервера. Вся информация выводиться (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.03.2022Разработчик: © 2007-2021 S P DixonПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F3B2269A4101D96AD0DCABBFE82E727DDC21255
 ```
 
 https://mybot314.ru/tekegram_catalog/

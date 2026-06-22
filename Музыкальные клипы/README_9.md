@@ -1,3 +1,59 @@
+###  Публикация: 635887   (907649) от 27.03.2013
+
+Justin Timberlake Suit & Tie (Official video) ft JAY Z (2013) [H.264/1080p WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8224B7D5D11788926A0F46C398C70A6218080BB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990276   (907446) от 27.02.2016
+
+VA - Коллекция клипов в авто (ZAP_part4) (2DIN) (2015 - 2016 + бонус) DVDRip,HDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение коллекции клипов в авто.Часть 4.
+Клипы на весь экран для автомагнитол, так же планшетов и тд.Keida - Ganja Tea.avi
+Kelis - Acapella.avi
+Kelly Clarkson - Heartbeat Song.avi
+Kelly Clarkson - Stronger.avi(   Читать дальше...   )Жанр: Музыкальные клипыПродолжительность: 40:25:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3FE3F34B5682060791BA0AE90945CCE3BDFB066
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 635733   (907129) от 27.03.2013
 
 Lindsey Stirling - Crystallize (2012) [1080i] HDRemux
@@ -6,7 +62,7 @@ Lindsey Stirling - Crystallize (2012) [1080i] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907129.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ The Saturdays - What About Us (2013) WEB-DLRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906004.jpg" />
 </div>
 
 
@@ -58,7 +114,7 @@ DJ Smash  DJ Miller feat. Anya - Angels (2013) WEB-DLRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905916.jpg" />
 </div>
 
 
@@ -84,7 +140,7 @@ Nicole Scherzinger - Boomerang (2013) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905871.jpg" />
 </div>
 
 
@@ -110,7 +166,7 @@ Aida Arami - Diamond (2013) WEB-DLRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905867.jpg" />
 </div>
 
 
@@ -136,7 +192,7 @@ Depeche Mode - Heaven (2013) WEB-DLRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905758.jpg" />
 </div>
 
 
@@ -162,7 +218,7 @@ Die Kreatur - Die Kreatur (2020) WEB-DLRip [VP9/2160p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905554.jpg" />
 </div>
 
 
@@ -188,7 +244,7 @@ Armin van Buuren - The Music Videos 1997-2009 (2010) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903884.jpg" />
 </div>
 
 
@@ -217,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903290.jpg" />
 </div>
 
 
@@ -244,7 +300,7 @@ Olga Vels - The Sound Of Love (2017) WEBRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903049.jpg" />
 </div>
 
 
@@ -273,7 +329,7 @@ Nells - Watch My Body (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902628.jpg" />
 </div>
 
 
@@ -299,7 +355,7 @@ Cascada - Glorious (2013) HDTV [H.264/1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902620.jpg" />
 </div>
 
 
@@ -325,7 +381,7 @@ Innocence feat. Brian Cross - Houdini Girl (Brian Cross Remix 2013) WEBRip [H.26
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902610.jpg" />
 </div>
 
 
@@ -351,7 +407,7 @@ Afrojack ft. Chris Brown - As Your Friend (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902580.jpg" />
 </div>
 
 
@@ -377,7 +433,7 @@ Marquess & Jessica D feat. Jimmy Dub - Beso (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902446.jpg" />
 </div>
 
 
@@ -403,7 +459,7 @@ INS - Loveheadshot (Uncensored) (2013) WEBRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902258.jpg" />
 </div>
 
 
@@ -429,7 +485,7 @@ Tatarka - 7 Music Videos (2016-2019) WEBRip [H.264/1080p/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901996.jpg" />
 </div>
 
 
@@ -456,7 +512,7 @@ Paradise Lost - Fall from Grace (2020) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901990.jpg" />
 </div>
 
 
@@ -482,7 +538,7 @@ Quest Pistols Show - 17 Mysic Videos (2012-2019) WEBRip [VP9/H.264/2160p/1080p-L
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901881.jpg" />
 </div>
 
 
@@ -511,7 +567,7 @@ Quest Pistols (Quest Pistols Show) - 12 Mysic Videos (2007-2011) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901783.jpg" />
 </div>
 
 
@@ -540,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901617.jpg" />
 </div>
 
 
@@ -566,7 +622,7 @@ Tommy Cash - 14 Music Videos (2014-2020) WEBRip [VP9/H.264/2160p/1080p/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901535.jpg" />
 </div>
 
 
@@ -595,7 +651,7 @@ Rammstein - Music Video (Клипография) (1995-2010) DVDRip, HQWEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901445.jpg" />
 </div>
 
 
@@ -624,7 +680,7 @@ Carly Rae Jepsen - Tonight I M Getting Over You (2013) HDTV [H.264/1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900704.jpg" />
 </div>
 
 
@@ -635,58 +691,6 @@ Carly Rae Jepsen - Tonight I M Getting Over You (2013) HDTV [H.264/1080i]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50143599F5CCF2BB744FD0F178A9B98EBCED6E82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637430   (898470) от 01.04.2013
-
-Les Enfoires - Attention Au Depart (2013) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A1F9F941406444605DD20AE4B8EFABA25E4D152
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637496   (898347) от 01.04.2013
-
-Marios Brasil - Sem Para (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 00:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE87D607FFD3B9C412BD033B45B6D34F5CA8CDCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,84 @@
+###  Публикация: 921988   (573733) от 26.07.2015
+
+Диктор Иванович. Солдат телевидения (2014) SATRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573733.jpg" />
+</div>
+
+
+###  Подробнее
+
+70-е годы двадцатого века. В 21.00 зрители рассаживались у телеэкрана в ожидании программы "Время". Больше всего ждали не "Вестей с полей" или "Новостей международной жизни". Зритель ждал… прогноза погоды. Чем же так была привлекательна эта страничка главной информационной программы СССР?
+
+Качество: SATRip
+Видео: XviD, 1800 Кбит/с, 720x400(   Читать дальше...   )Телекомпания: Россия, ВГТРКЖанр: Документальный, ТелепередачаРежиссер: Алексей ПанковПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D70B575BD4593AA7633AED87DFA8B44D60E5325
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043635   (571052) от 17.08.2016
+
+Мисс ТВ СССР и шесть всесильных мужчин (2010) DVBRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американцы назвали бы судьбу Калерии Кисловой сбывшейся американской мечтой. В Советском Союзе сказали бы:только в СССР возможно, чтобы девочка из глухого сибирского села стала главным "правительственным" режиссером страны. Ее жизнь зависела от распорядка дня, привычек и даже внешности первых лиц государства. Она, что называется, "командовала полками" (   Читать дальше...   )Телекомпания: Россия, GoldMediumЖанр: ДокументальныйПродолжительность: 00:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BFD8A63722C1C61499D5314C6314D6007817040
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922329   (569854) от 28.07.2015
+
+Сергей Безруков. Исповедь хулигана (2013) SATRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сергей Безруков, отмечает юбилей - 18 октября ему исполняется сорок лет. Сергей Безруков занимает первое место среди молодых российских актеров по количеству сыгранных ролей в кино и телесериалах – их около 40! Вряд ли в России еще найдется артист его возраста, кому удается так часто появляться на экране и иметь столько регалий. При этом он пишет картины, руководит (   Читать дальше...   )Телекомпания: Россия, ООО "Студия Ивана Усачёва"Жанр: ДокументальныйРежиссер: Максим ВолодинПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41C1199247D150BDF4215290F6EE3F68421CE6EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555627   (568594) от 04.06.2022
 
 Невероятные приключения Луи де Фюнеса / La folle aventure de Louis de Funes (2020) HDTV [H.264/1080p]
@@ -6,7 +87,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568594.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567861.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567154.jpg" />
 </div>
 
 
@@ -86,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565145.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563784.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561384.jpg" />
 </div>
 
 
@@ -164,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559977.jpg" />
 </div>
 
 
@@ -190,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558231.jpg" />
 </div>
 
 
@@ -216,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558072.jpg" />
 </div>
 
 
@@ -243,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557468.jpg" />
 </div>
 
 
@@ -269,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556579.jpg" />
 </div>
 
 
@@ -295,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556062.jpg" />
 </div>
 
 
@@ -321,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555983.jpg" />
 </div>
 
 
@@ -347,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553799.jpg" />
 </div>
 
 
@@ -373,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553582.jpg" />
 </div>
 
 
@@ -401,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549264.jpg" />
 </div>
 
 
@@ -431,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547019.jpg" />
 </div>
 
 
@@ -457,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545672.jpg" />
 </div>
 
 
@@ -483,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545671.jpg" />
 </div>
 
 
@@ -509,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545645.jpg" />
 </div>
 
 
@@ -535,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540877.jpg" />
 </div>
 
 
@@ -561,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540494.jpg" />
 </div>
 
 
@@ -587,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539201.jpg" />
 </div>
 
 
@@ -599,86 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9280633B42D1908A4D29981C4EE8FC8B0AC346C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926031   (537107) от 08.08.2015
-
-Олег Попов. "Я жив!" (2015) SATRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Имя Олега Попова в Советском Союзе было синонимом - доброты и улыбок. Его называли "солнечным клоуном", он превращал любое цирковое представление в настоящую сказку и заставлял всех поверить, что волшебство существует.
-Почему так получилось, что Олег Попов вот уже 25 лет живёт в Германии, работает для западной публики и не хочет ехать на Родину? В фильме (   Читать дальше...   )Телекомпания: 1 каналЖанр: ДокументальныйПродолжительность: 00:49:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F531857C4FB624253DFC2E0CB4BA21008B5E00B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926019   (536923) от 08.08.2015
-
-"Pink Floyd": История "The Dark Side Of The Moon" / Classic Albums: Pink Floyd - The Making of 'The Dark Side of the Moon (2003) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536923.jpg" />
-</div>
-
-
-###  Подробнее
-
-"The Dark Side Of The Moon - один из величайших альбомов всех времeн. Феномен статистики. Свыше 30 миллионов проданных пластинок, 740 недель (больше 14 лет) в чартах США.
-Этот фильм рассказывает историю создания шедевра – альбома Pink Floyd "The Dark Side Of The Moon", очаровавшего несколько поколений и занявшего место в книгах мировых рекордов. Благодаря (   Читать дальше...   )Телекомпания: Великобритания, Eagle Rock Entertainment, Isis Productions, Pink Floyd MusicЖанр: ДокументальныйПеревод: Многоголосый закадровый, профессиональный (Первый канал)Продолжительность: 00:48:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76485A00E71F2FEA701BEBA29275FE45C78FA250
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050607   (536579) от 09.09.2016
-
-Мосфильм. Фабрика советских грез (2014) HDTVRip (2 серии из 2)
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536579.jpg" />
-</div>
-
-
-###  Подробнее
-
-В конце 1927 года на Ленинских горах началось строительство огромного города кино. В порыве догнать и перегнать Голливуд молодая советская киностудия сразу стала действовать с размахом. Двум крошечным фабрикам Ханжонкова и Ермольева, из которых образовался "Мосфильм", и не снился такой масштаб. Вместе с государством киностудия переживала падения и взлёты. (   Читать дальше...   )Производство: Россия, ООО "Телекомпания Идея"Жанр: документальный, культура, киноведение, кинохроникаРежиссер: Игорь ТарасевичПродолжительность: 2 х ~ 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AE9BCB4BC45A9CF884B0F5CBB0A8840BE4175C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1454006   (1026593) от 13.03.2021
+
+Green Legend Ran | Зеленая легенда Рана [1992, OVA, 3 из 3] DVDRip 480p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Земная цивилизация погубила себя отходами собственной жизнедеятельности – загрязнила воду, иссушила почву, истощила недра. Однако настоящий апокалипсис случился, всё-таки, не сам собой: из космоса прибыли пришельцы – Родо, которые выкачали остатки воды и ископаемых, превратив голубую планету в засохший глиняный шар.
+
+Остатки человечества пугливо поклоняются пришлым (   Читать дальше...   )Производство: AICЖанр: приключения, драма, фантастикаРежиссер: Сага СатосиПеревод: SHmeLL & TurpisЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 3 эп. по 45 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B353FBF4A2D7ABA681F491210C7D0C05DF3A8D00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454014   (1026585) от 13.03.2021
 
 Otogizoushi | Otogi Zoshi | Отогидзоси [2004, TV, 26 из 26] DVDRip 480p raw
@@ -6,7 +34,7 @@ Otogizoushi | Otogi Zoshi | Отогидзоси [2004, TV, 26 из 26] DVDRip 4
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026585.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ Trava: Fist Planet | Трава: Межпланетный кулак [2002, OVA,
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026584.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ Kakurenbo | Hide and Seek | Kakurenbo: игра в прятки [2004, Movie] DV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026567.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ Twilight Q / Twilight Q / Сумерки Къю [1987, OVA, 2 эп.] DVDRip 480p
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026515.jpg" />
 </div>
 
 
@@ -111,7 +139,7 @@ Adachi to Shimamura | Adachi and Shimamura | Адати и Симамура [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026422.jpg" />
 </div>
 
 
@@ -137,7 +165,7 @@ Bus Gamer | Бизгеймер (Бизнес-игрок) [2008, OVA, 3 из 3] D
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026406.jpg" />
 </div>
 
 
@@ -163,7 +191,7 @@ Ningyo no Kizu | Mermaid's Scar | Шрам русалки [1993, OVA] DVDRip 480
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026390.jpg" />
 </div>
 
 
@@ -189,7 +217,7 @@ Ningyo no Mori | Mermaid Forest | Лес русалок OVA [1991, OVA] DVDRip 4
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026389.jpg" />
 </div>
 
 
@@ -215,7 +243,7 @@ Master Mosquiton 99 | Master of Mosquiton '99 | Хозяйка Москитон�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026386.jpg" />
 </div>
 
 
@@ -241,7 +269,7 @@ Asu no Yoichi! | Samurai Harem | Ёити завтрашнего дня [2009, T
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026384.jpg" />
 </div>
 
 
@@ -267,7 +295,7 @@ Keisatsu Sensha Tai TANK SWAT 01 | TANK S.W.A.T. 01 | Танковый спец�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026381.jpg" />
 </div>
 
 
@@ -293,7 +321,7 @@ Issho ni Training: Training with Hinako | Утренняя гимнастика 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026355.jpg" />
 </div>
 
 
@@ -319,7 +347,7 @@ Issho ni Sleeping: Sleeping with Hinako | Спим вместе с Хинако 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026348.jpg" />
 </div>
 
 
@@ -345,7 +373,7 @@ Issho ni Training Ofuro: Bathtime with Hinako & Hiyoko | В ванне с Хин
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026342.jpg" />
 </div>
 
 
@@ -371,7 +399,7 @@ Bannou Bunka Nekomusume  / All Purpose Cultural Cat Girl Nuku Nuku  / Униве
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026200.jpg" />
 </div>
 
 
@@ -400,7 +428,7 @@ Maou Gakuin no Futekigousha | The Misfit of Demon King Academy | Непризн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026191.jpg" />
 </div>
 
 
@@ -426,7 +454,7 @@ Skate Leading Stars | Звёзды фигурного катания [2020, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026062.jpg" />
 </div>
 
 
@@ -452,7 +480,7 @@ D.N.Angel | Код ангела [2003, TV, 26 из 26] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025960.jpg" />
 </div>
 
 
@@ -478,7 +506,7 @@ Boku wa Imouto ni Koi o Suru | Я люблю свою сестрёнку [2005, 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025768.jpg" />
 </div>
 
 
@@ -504,7 +532,7 @@ Fight Ippatsu! Juuden-chan!! | С первого удара заряжай-ка!
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025762.jpg" />
 </div>
 
 
@@ -530,7 +558,7 @@ Ninja Senshi Tobikage | Ninja Robot Tobikage | Ниндзя-воин Тобик�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025700.jpg" />
 </div>
 
 
@@ -556,7 +584,7 @@ Hataraku Saibou Black | Cells at Work! Code Black | Клетки за работ
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025538.jpg" />
 </div>
 
 
@@ -582,7 +610,7 @@ Otona no Bouguya-san II | Оружейная лавка для леди и дж�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025534.jpg" />
 </div>
 
 
@@ -610,7 +638,7 @@ Shinrei Tantei Yakumo | Psychic Detective Yakumo | Детектив-медиум
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025465.jpg" />
 </div>
 
 
@@ -636,7 +664,7 @@ Yume kara Samenai | Не пробуждаясь ото сна [1987, OVA] LDRip 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025279.jpg" />
 </div>
 
 
@@ -647,34 +675,6 @@ Yume kara Samenai | Не пробуждаясь ото сна [1987, OVA] LDRip 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7951553D1DE68189F957B9ED565E5901C2ECE6B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456143   (1025277) от 21.03.2021
-
-Fantasia | Girl from Phantasia | Девушка из Фантазии [1993, OVA] LDRip 480p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великий день для Акихиро Оцуки: сегодня Миюки-тян, самая хорошенькая девушка в школе, придет к нему гости. Если он только сумеет произвести на нее впечатление, как знать, чем могут закончиться посиделки вдвоем?! Ах, мечты, мечты.
-
-А пока Акихиро-кун споткнулся о выброшенный кем-то ковер. Сначала разозлился, а потом оценил качество выделки и решил: если отчистить (   Читать дальше...   )Производство: Студия Production I.G / プロダクション・アイジーЖанр: комедия, романтика, фэнтези, эттиРежиссер: Камия ДзюнПеревод: TargonЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:333811885A3A73245A7DE932007FA83FCE64214D
 ```
 
 https://mybot314.ru/tekegram_catalog/

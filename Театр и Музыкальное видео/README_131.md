@@ -1,3 +1,406 @@
+###  Публикация: 1823575   (125845) от 11.10.2025
+
+Scooter - Live in Hamburg (2012) WEBRip [H.264/1080p] [hand made upscale AI]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт прошёл 22 марта в рамках тура "The big mash up tour 2012" в концертном зале "02 World".01. Intro (The big mash up tour '12)
+02. Faster Harder Scooter / Ramp! (The logical song)
+03. Sugary dip
+04. The only one(   Читать дальше...   )Производство: Германия, ABC EntertaimentЖанр: Techno, Happy Hardcore, JumpstyleРежиссер: Jens TheleАктеры: H.P. Baxxter, Rick J. Jordan, Michael SimonПродолжительность: 02:09:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CBE758BA43907011C6EE7612EA2A15FC7F4FBC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687848   (125492) от 27.12.2023
+
+Pet Shop Boys – Performance (1991) DVDRip [H.264/1080p] [Handmade Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125492.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фильме-концерте Эрика Уотсона представлено живое выступление Британского поп-дуэта Pet Shop Boys во время их революционного мирового турне 1991 года. Создан совместно с режиссером Дэвидом Олденом и дизайнером Дэвидом Филдингом, наиболее известными своими авангардными оперными постановками.1 Intro
+2 This Must Be The Place I Waited Years To Leave
+3 It's A Sin
+4 Losing My Mind(   Читать дальше...   )Производство: Великобритания / Pet Shop Boys Partnership, PMI, EMI Records Ltd.Жанр: Pop, ElectronicРежиссер: Eric WatsonПеревод: ОтсутствуетПродолжительность: 01:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1733D721BE2D1361998978B8B595AF938E873F73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687183   (125096) от 30.12.2023
+
+Щелкунчик / The Nutcracker (1968) DVDRip [H.264/1080p] [Handmade Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Балетный шедевр Петра Чайковского по сказке Эрнста Гофмана "Щелкунчик и Мышиный король". Историческая постановка в Ковент-Гарден в 1968 году запечатлела Рудольфа Нуреева на пике его карьеры. Легендарное выступление Нуреева делает этот фильм неповторимым "Щелкунчиком". В роли Клары - Мерл Парк, прима-балерина Королевского балета Лондона. Рудольф (   Читать дальше...   )Производство: Великобритания, Covent Garden Pioneer FSPЖанр: балет,  музыка, сказкаРежиссер: Джон ВернонАктеры: Мерл Парк, Рудольф Нуреев, Джеффри Коли, Майкл Коулмэн, Лесли Колье, Лесли Эдвардс, Александр Грант, Кэрол Хилл, Стэнли Холден, Рональд ХайндПеревод: нет диалогов и озвученных комментариевСубтитры: отсутствуютПродолжительность: 01:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F747DB56F0F372C5CED8F8A38104F95A3086B298
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 247623   (124844) от 01.01.2024
+
+НеГолубой Огонёк на REN-TV  (2004) <Rock-Pop>  DVD-5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неголубой огонёк - это новогодняя музыкальная телепередача, выходившая на канале Ren-TV в новогоднюю ночь 2004. Впервые в истории отечественной ПОПСЫ, впервые в истории российского РОКА исполнители из этих двух враждующих кланов обойдутся без взаимных оскорблений и выступят не только на одной сцене, но и ансамблями. Первый «Неголубой Огонек» получил высокий рейтинг. (   Читать дальше...   )Жанр: Новогодняя тв-программаРежиссер: Максим ВиторганПеревод: ОригинальныйПродолжительность: 02:10:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3E0DA8B4B57AC8AA65B285E2249B205BE35381C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688262   (123209) от 13.01.2024
+
+Я тебя люблю — Je t’aime (2023) WEBRip [H.264/1080p] [FRE]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российские музыкальные исполнители, а вместе с ними и знакомые киногерои заговорили и запели на романтичном языке в стиле французской эстрады 60-70-х.Производство: Россия / Продакшн-Сервис (по заказу МТС Медиа)Жанр: мелодрама, мюзикл, фэнтезиРежиссер: Андрей Шавкеро, Миша Семичев, Роман КимАктеры: Сергей Бурунов, Валерия, Леонид Агутин, Анжелика Варум, Сергей Сироткин, Екатерина Иванчикова, Иосиф Пригожин, Кристина Орбакайте, Тося Чайкина, Юлия ПересильдПеревод: ОтсутствуетЯзык озвучки: ФранцузскийСубтитры: Русские (forced, hardsub)Продолжительность: 00:56:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D7E467994F7EF10BE9AE19838ADFD18BE943C2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691089   (120733) от 27.01.2024
+
+Роджер Уотерс - This Is Not a Drill / Roger Waters - This Is Not A Drill - Live at O2 Arena (2023) HDTVRip [1080p/H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Только в эту ночь, 25 мая 2023 года, в кинотеатрах по всему миру Роджер Уотерс, участник золотого состава группы Pink Floyd, представил свой прощальный тур "This Is Not A Drill", Live from Prague. Эта кинематографическая феерия стала потрясающим обличением корпоративной антиутопии, в которой мы все боремся за выживание. Концерт состоял из 20 классических (   Читать дальше...   )Жанр: RockРежиссер: Sean EvansПродолжительность: 02:14:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F69C3B7201A20F3427CE0136B0137745AF05CAAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691714   (120718) от 27.01.2024
+
+Легенды Ретро FM (2023) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Премьера телеверсии международного музыкального фестиваля Легенды Ретро FM-2023Производство: РоссияЖанр: музыка, popАктеры: Самоцветы, Joy, Дюна, Lian Ross, Александр Иванов и т.д.Перевод: не требуетсяСубтитры: отсутствуютПродолжительность: 02:04:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BC263A01171A6F1049D6DF6A23C879E48DE05CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693524   (120675) от 27.01.2024
+
+Paul Van Dyk - Music Discovery Project (The Planets Reloaded) (2009) WEBRip [H.264/1080p-LQ] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное видео является второй частью записи концерта который прошёл 13 февраля 2009 во Франкфурте. В первой части концерта, которая называется "The Planets", играет исключительно Франфуртский симфонический оркестр под руководством эстонско-американского дирижёра Па́аво Я́рви.
+Во второй части концерта, которая называется "Music Discovery Project (   Читать дальше...   )01. Forbidden fruit / Astral clusters
+02. Let go / Ionic plasma (vocals by Johnny McDaid)
+03. For an angel / Reionization
+04. Cast away / Cosmic odyssey (vocals by Josee Hurlock)(   Читать дальше...   )Производство: Германия (Франкфурт)Жанр: Classical, TranceРежиссер: неизвестенАктеры: Paul Van Dyk, Paavo JarviПродолжительность: 00:58:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F2284DC17AF3798628AD359C7795E8EC319C0E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689616   (120671) от 27.01.2024
+
+Paul Van Dyk - Volume - The best of Paul Van Dyk (2009) DVDRip [H.264/1080p-LQ] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официальный сборник из шести Live-выступлений Пола Ван Дайка с его концертного тура по США и Украине в 2009 году + эксклюзивное интервью об этом туре.01. White lies (feat. Jessica Sutta)
+02. For an angel
+03. Let go (feat. Rea Garvey)
+04. Talk in grey (feat. Ryan Merchant)(   Читать дальше...   )Производство: ГерманияЖанр: Trance, Progressive TranceРежиссер: Markus Hollmann-LogesАктеры: Paul Van Dyk, Jessica Sutta, Rea Garvey, Ryan Merchant, Johnny McDaidПеревод: ОтсутствуетСубтитры: РусскиеПродолжительность: 00:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74A9A33FFA212D694AEEC0327F07040499642226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695539   (120292) от 29.01.2024
+
+Lovebites: Clockwork Immortality (2018) BDRip [H.265/1080p] [10-bit]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lovebites brings the second album with 10 new tracks. Mixing and mastering by Mikko Karmila and Mika Jussila at Finnvox Studios. This edition includes a bonus Blu-ray with 15 live tracks total taken from the concert held on June 28, 2018 at SHIBUYA TSUTAYA O-EAST.Производство: ЯпонияЖанр: Power metalАктеры: Asami: Singer, Lead Vocals. Watanabe Miyako: Guitar, Piano, Backing Vocals. Tatematsu Midori: Guitar, Backing Vocals. Haruna: Drums, Backing Vocals. Miho: Bass, Backing Vocals.Продолжительность: 01:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:181D829DC4C36A53AF4F48C29A851A1FD48B4E70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696603   (119485) от 03.02.2024
+
+Астроскоп: Смотрим на звёзды / Stargazer: Astroscope / Astroscope (2022) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт кей-поп-группы Astro. Золотой состав, лучшие хиты, а также интервью с айдолами, репетиции, фотосессии и другие эксклюзивные моменты подготовки.Производство: Корея Южная / Wys En SceneЖанр: концерт, музыкаРежиссер: DohaАктеры: Чха Ын-у, Юн Сан-ха, Мун Бин, MJ, Роки, Чин Джин, AstroЯзык озвучки: КорейскийСубтитры: Русские (hardsub, forced)Продолжительность: 01:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E14080E0BB6998B84E7357824F94D1BA48A3EAE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698879   (116952) от 18.02.2024
+
+Scooter - Video collection - Chapter 1 (1994 - 1997) DVDRip [H.264/1080p-LQ] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список всех клипов группы за первую главу их творчества вместе с видео-комментариями.Производство: ГерманияЖанр: Techno, Happy HardcoreРежиссер: Eric Will, Rainer Thieding, Russel Curtis, Rainer Thieding, Robert BröllochsАктеры: H.P. Baxxter, Rick J. Jordan, Ferris BuellerПеревод: ОтсутствуетСубтитры: РусскиеПродолжительность: 00:53:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAC3DAD53AB6E80B4DDE0A1E582009B8C0AE8CFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701965   (116066) от 23.02.2024
+
+"Крематорий" 40 лет. Юбилейный концерт (2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарная московская рок-группа КРЕМАТОРИЙ выпустила новый фильм-концерт, посвящённый 40-летию коллектива. В основу концертной части релиза легли съёмки юбилейного шоу, состоявшегося в московском ДК имени Горбунова в Москве 25 ноября 2023 года.Жанр: концерт, музыкаПродолжительность: 01:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8661E53B5F727683C8EB52B6C30570B64891C8BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701966   (116060) от 23.02.2024
+
+Руки Вверх! Лужники на Бис! (2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любимые хиты на главном стадионе страны: видеоверсия концерта на БСА «Лужники» 22 июля 2023 года собравшего рекордные 75 000 зрителей.Жанр: концерт, музыкаРежиссер: Роман БутовскийПродолжительность: 01:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E801E4D52877DED495BB896519BC0C403F996E1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701988   (116056) от 23.02.2024
+
+«Крематорий» в Горбушке. 39 лет (2022) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крематорию – 39 лет! концерт состоялся 10 декабря 2022 года в московском ДК им. Горбунова.Жанр: концерт, музыкаПродолжительность: 01:54:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44D1E4A05367E3B9EF8ABB9778209F3C1D28AE4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703707   (114879) от 01.03.2024
 
 Дельфин. Прощай оружие (2023) WEBRip [H.264/1080p]
@@ -6,7 +409,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114879.jpg" />
 </div>
 
 
@@ -32,7 +435,7 @@ Scooter - Video collection - Chapter 2 (1998 - 2002) DVDRip [H.264/1080p-LQ] [ha
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114690.jpg" />
 </div>
 
 
@@ -58,7 +461,7 @@ Lovebites: In the Beginning. The Best of 2017–2021 (2021) BDRip [H.265/1080p] 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113895.jpg" />
 </div>
 
 
@@ -84,7 +487,7 @@ Scooter - Video collection - Chapter 4 (2007-2012) DVDRip, WEBRip [H.264/1080p-L
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112227.jpg" />
 </div>
 
 
@@ -110,7 +513,7 @@ Lovebites: Daughters Of The Dawn (2019) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112180.jpg" />
 </div>
 
 
@@ -136,7 +539,7 @@ Lovebites: Five Of A Kind (2020) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111874.jpg" />
 </div>
 
 
@@ -162,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111732.jpg" />
 </div>
 
 
@@ -188,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111628.jpg" />
 </div>
 
 
@@ -215,7 +618,7 @@ Arcade Fire - Lollapalooza (2024) HDTV [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111348.jpg" />
 </div>
 
 
@@ -242,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111049.jpg" />
 </div>
 
 
@@ -269,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110936.jpg" />
 </div>
 
 
@@ -280,423 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:203FFD6364A78ACADDD02FD609AB58F0C97F6F28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718919   (110779) от 27.04.2024
-
-Леонид Агутин — «Всё не зря» (2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не дочитав старый роман
-И сняв очки,
-Наш капитан выключил свет
-В кают-компании...Жанр: PopРежиссер: Артур ХарламовПродолжительность: 00:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21172242694CD6E268FCCB9FD7C28DCA89BF5244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719171   (110670) от 28.04.2024
-
-Квартирник у Маргулиса. Иван Замотаев и «Замотаев Бэнд» (27.04.2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все участники коллектива не только музыканты, но и профессиональные артисты театра и кино. Кроме игры в спектаклях театра «Русская песня», «Другого театра» и знаменитого «Квартета "И"», солист и лидер группы Иван Замотаев также пишет музыку для театральных постановок и телепроектов. Выступления артистов отличает удивительно проникновенная музыка, яркие (   Читать дальше...   )00:00:05 Ожидание
-00:05:45 Перекати поле
-00:13:02 Я тебя помню босой и прекрасной
-00:19:44 Песня(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBC7993ACB8D7042AE929B18DCA1A0CCBFBFC3D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721383   (110088) от 06.05.2024
-
-МузЛофт-подкаст / МузLoft. Ираклий Пирцхалава (2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ираклий Пирцхалава. Разговор о Боге, грузинах и Кобзоне.
-На этот раз в студии Музлофт оказался фабрикант, чьи хиты до сих пор поют в караоке, а сам он их петь не может. Об этом и многом другом вы узнаете, посмотрев выпуск с Ираклием Пирцхалавой.Производство: Россия | Y-GenerationУчастники: Ираклий ПирцхалаваПродолжительность: 01:10:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF6122D6C9323F2FFE0D9E82EF386EB6AE90115D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722042   (109798) от 10.05.2024
-
-Dessar - Кошмар (посв. студентам РГГУ) (2024) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не хочу ничего уже больше писать,
-Ведь песни мои как пророчества.
-На прогулку ведёт пятилапого пса
-Наше - Ваше высочество.(   Читать дальше...   )Жанр: RapПродолжительность: 00:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F253215582C5B3E2E3F86DF10D23968F790605F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725012   (109120) от 22.05.2024
-
-МузЛофт / МузLoft. Мария Зайцева (2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мария Зайцева. Опасные игры, жизненные ошибки, беспижамные вечеринки.
-Экс-солистка популярного проекта «2Маши» впервые спела «Мама, я танцую» без второй Маши. А ещё рассказала, почему плохо спит и опровергла многие женские стереотипы.Производство: Россия | Y-GenerationУчастники: Мария ЗайцеваПродолжительность: 00:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9907E6FF9FD3EB36852A8CD0862B1024726140B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729729   (108060) от 12.06.2024
-
-Lovebites: Knockin' At Heaven's Gate (2023) BDRip [H.265/1080p] [10-bit]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Recorded live at EX-Theater Roppongi, Tokyo, Japan on March 11, 2023.Производство: ЯпонияЖанр: Heavy Metal, Power MetalАктеры: Asami: Singer, Lead Vocals. Watanabe Miyako: Guitar, Piano, Backing Vocals. Tatematsu Midori: Guitar, Backing Vocals. Haruna: Drums, Backing Vocals. Fami: Bass, Backing Vocals.Продолжительность: 01:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:449FA62745FEACD2F18D4531B8CEE3B6AF704521
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730198   (107960) от 14.06.2024
-
-МузЛофт-подкаст / МузLoft. Мартиросян, Сорокин, Аверин, Матуа (2024) WEBRip [H.264/1440p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Такого ещё у нас не было! Сразу четыре артиста, да ещё и каких! Резиденты камеди клаб, змей Горыныч из Маски, да и вообще талантливые, музыкальные ребята с которыми было кайфово. Надеюсь, эта невероятная атмосфера передастся вам при просмотре.Производство: Россия | Y-GenerationУчастники: Мартиросян, Сорокин, Аверин, МатуаПродолжительность: 01:32:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45BA6CCA0C2DA261379CB9C8FA53725813C91A8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730901   (107816) от 18.06.2024
-
-BAND-MAID - Online Okyu-Ji (2021) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107816.jpg" />
-</div>
-
-
-###  Подробнее
-
-BAND-MAID — японская хард-рок-группа, сформированная в 2013 году. Группа сочетает в себе рок и образ горничной, подобный японским мэйдо-кафе.
-Онлайн концерт группы, состоявшийся 11 февраля 2021 и выпущенный на Blu-Ray диске 26 мая 2021.01. Intro
-02. Warning!
-03. DICE
-04. Screaming(   Читать дальше...   )Производство: ЯпонияЖанр: Hard rockУчастники: Саики Ацуми, Мику Кубато, Канами Тоно, Аканэ Хиросэ, МисаПродолжительность: 02:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A8496D052DA780307DAB37ED07C42D9F851F231
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730906   (107813) от 18.06.2024
-
-BAND-MAID - The Day of Maid (2021) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107813.jpg" />
-</div>
-
-
-###  Подробнее
-
-BAND-MAID — японская хард-рок-группа, сформированная в 2013 году. Группа сочетает в себе рок и образ горничной, подобный японским мэйдо-кафе.
-6-ть песен, выпущенные на бонусном Blu-Ray диске к лимитированному изданию сингла "Sense", с онлайн концерта группы "The Day of Maid", состоявшегося 10 мая 2021.01. I Still Seek Revenge.
-02. Youth
-03. Why Why Why
-04. H-G-K(   Читать дальше...   )Производство: ЯпонияЖанр: Hard rockУчастники: Саики Ацуми, Мику Кубато, Канами Тоно, Аканэ Хиросэ, МисаПродолжительность: 00:21:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E85226131D511E0F8CF4DABFC439049E9546C892
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731572   (107668) от 21.06.2024
-
-Семин, DESSAR, Штерк - НЕО (2024) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RapПродолжительность: 00:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAD243919078A9965DB97853F78B6FA134308199
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732053   (107541) от 23.06.2024
-
-Юрий Шатунов — «Грёзы» (2019) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юрий Шатунов - Грезы. Official VideoЖанр: PopПродолжительность: 00:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3B961F77B04B8559EB5440B62051D94F14AEDFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734377   (107125) от 03.07.2024
-
-Keane – Glastonbury (2024) HDTVRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление английской группы Keane на ежегодном фестивале современного искусства в Glastonbury, Англия. Группа Кин заслужила множество похвал от фанатов во время выступления на фестивале в Гластонбери 2024 года, а вокалист Том Чаплин покорил сердца тысяч своих поклонников.  Альтернативная рок-группа вышла на сцену Pyramid в субботу днем 29 июня во 2-й день фестиваля. (   Читать дальше...   )01. Keane - Bend And Break
-02. Keane - Silenced By The Night
-03. Keane - Nothing In My Way
-04. Keane - We Might As Well Be Strangers(   Читать дальше...   )Производство: Великобритания / BBCЖанр: Alternative rock, rock, post-BritpopУчастники: Tom Chaplin, Richard Hughes, Tim Rice-Oxley, Jesse QuinПродолжительность: 00:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DF7AC50027CD44D288154167207A614A326591B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738166   (106390) от 21.07.2024
-
-Scooter - Live in Hamburg (2010) BDRip [H.265/2160p] [hand made upscale AI]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Живой концерт группы с её лучшими хитами, который состоялся 12 марта 2010 года в концертном зале Гамбурга "Color Line Arena" (ныне "Barclays Arena").01. Intro
-02. J'adore Hardcore
-03. Posse (I Need You On The Floor)
-04. The Sound Above My Hair(   Читать дальше...   )Производство: ГерманияЖанр: Happy Hardcore, Techno, Trance, JumpstyleРежиссер: Jens TheleУчастники: H.P. Baxxter, Rick J. Jordan, Michael SimonСубтитры: Русские, английскиеПродолжительность: 01:35:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1418371F70FBBB21EC14EDFD4B09E3926FD3A375
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741558   (105592) от 10.08.2024
-
-МузЛофт-подкаст / МузLoft. Торнике Квитатиани (2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Торнике Квитатиани. Как борец стал вокалистом. Про Выжить в Дубае, Голос и КВН.
-Многогранный артист сегодня у нас в подкасте. Торнике расскажет про сложности в мире селебрити, желание написать хит, как случайно попал в команду к Борцам и пооткровенничает о шоу «Выжить в Дубае». Усаживайтесь поудобнее!Производство: Россия | Y-GenerationУчастники: Торнике КвитатианиПродолжительность: 01:25:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4DB8279A6E6BC760A8BA5DFCEC5B5CBB9F8AC46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744615   (105260) от 22.08.2024
-
-МузЛофт / МузLoft. Sevak (2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105260.jpg" />
-</div>
-
-
-###  Подробнее
-
-МУЗЛОФТ-Концерт. Sevak. Как правильно произносить имя. Споры с Ярушиным.
-В гостях неподражаемый, колоритный, красавчик, а именно Севак. Вас ждет множество каверов и личных хитов артиста. А еще Севак поделился историями из личной жизни и о том, какой он в семье.Производство: Россия | Y-GenerationУчастники: SevakПродолжительность: 01:11:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64282E72B0995B55059CF8BF8A9A240E9086501E
 ```
 
 https://mybot314.ru/tekegram_catalog/

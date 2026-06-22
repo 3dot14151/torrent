@@ -1,22 +1,126 @@
-###  Публикация: 1819714   (1219) от 24.09.2025
+###  Публикация: 1818380   (2550) от 16.09.2025
 
-PDF-XChange PRO 10.7.3.401 RePack by KpoJIuK [Multi/Ru]
+SoftMaker Office Professional 2024 rev. S1228.0906 RePack (& portable) by KpoJIuK [Ru/En]
 
 >>Утилиты, Офис, Интернет
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2550.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PDF-XChange Pro — универсальное решение для работы с PDF. Это пакет из трёх лучших приложений от Tracker Software: PDF-XChange Editor Plus, PDF-Tools и PDF-XChange Standard. При помощи PDF-XChange Editor Plus вы сможете создавать, просматривать, а также редактировать изображения и файлы PDF. PDF-Tools — мировой лидер в создании и манипуляции PDF-файлами. Благодаря (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Программный офисный пакет Softmaker Office 2024, основная разработка компании Softmaker GmbH, является отличной заменой для Microsoft Office. Пакет офисных программ в том или ином составе необходим и в организациях и дома на персональном компьютере для улучшения, оптимизации, облегчения процессов документирования, контроля и учета, автоматизации офисной работы. Вы, (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D843CDBB6E1828A8236404E76737B04181CDC53B
+magnet:?xt=urn:btih:11E907D406C58D72192CE9F7DA27D57CD67ABC5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818867   (2040) от 19.09.2025
+
+WinCHM Pro 5.551 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2040.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinCHM - небольшая утилита для создания файлов помощи, книг или журналов в формате HTML, CHM, Web help, PDF и Word файлов. Для работы в программе не обязательно обладать знаниями HTML, можно писать и редактировать текст так же как вы делаете это в Word, редактируя уже готовые документы CHM или создавая свои. Имеется визуальный дизайнер CHM и возможность редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E166E1C285A0D4D4A58E912A017228C01EB1FFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818898   (2038) от 19.09.2025
+
+Wondershare PDFelement 12.0.6.3738 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare PDFelement - программа для общего редактирования документов формата PDF, инструмент из серии все-в-одном. В функции редактирования входит поддержка изменения текста и шрифта. Реализована поддержка технологии OCR (оптическое распознавание символов), есть режим конвертирования документа в различные форматы, имеется поддержка добавления своих картинок в (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59AF262D660CF021554861EAA1D7FBA0EFB7F17F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818869   (2033) от 19.09.2025
+
+CoolUtils PDF Combine Pro 4.2.0.151 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2033.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Combine Pro — это настоящая находка для тех, кому нужно объединить файлы PDF, DOC, TXT, DOCX, HTML, XLS, изображения (TIFF, JPEG, PNG) и электронные письма в один PDF-файл. Теперь вам не нужно использовать несколько программ и конвертеров, чтобы получить один PDF-файл. PDF Combine Pro делает это за один раз. Поддерживаемые форматы ввода: DOC, DOCX, RTF, TXT, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8958C3832EFA7B7B991420FC32E97A340E1B1A39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817334   (1404) от 23.09.2025
+
+Microsoft Office LTSC 2024 Professional Plus / Standard + Visio + Project 16.0.17932.20540 (2025.09) (W10 / 11) RePack by KpoJIuK [Multi/Ru]
+
+>>След.
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Office LTSC 2024 предоставляет привычный набор приложений, таких как Word, Excel, PowerPoint, Outlook, OneNote, OneDrive и Access, и включает функции, представленные в корпоративных версиях Microsoft 365. Среди нововведений — динамические диаграммы в Excel, улучшенные возможности поиска и создания встреч в Outlook, а также улучшения производительности, безопасности (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F422A051DE955E04EF59BC5D6BD722B98458FF7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -32,7 +136,7 @@ PDF-XChange Editor Plus 10.7.3.401 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1210.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Wondershare PDFelement 12.0.6.3738 RePack by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1012.jpg" />
 </div>
 
 
@@ -76,32 +180,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819905   (1002) от 25.09.2025
-
-VueScan Pro 9.8.47.02 RePack (& Portable) by elchupacabra (DC 19.09.2025) [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002.jpg" />
-</div>
-
-
-###  Подробнее
-
-VueScan - программа предназначена для замены стандартного интерфейса сканера на собственный, функционально более богатый и предоставляющий массу дополнительных возможностей в зависимости от конкретной модели сканера. В большинстве случаев, стандартный драйвер устройства имеет крайне ограниченные возможности по регулировке параметров сканирования. Используя зачастую (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92548C4B61DB9168B8418B61E6D2C792FE74A9D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1820136   (869) от 26.09.2025
 
 Adobe Acrobat Pro 2025.001.20744 RePack by KpoJIuK [Multi/Ru]
@@ -110,7 +188,7 @@ Adobe Acrobat Pro 2025.001.20744 RePack by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_869.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Adobe Acrobat Pro 2025.001.20744 (x86/x64) Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_826.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ ExamDiff Pro 16.0.1.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_815.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Atlantis Word Processor 5.0.0.1 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_597.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ PDF24 Creator 11.28.2 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_575.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ Calibre 8.11.1 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_565.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ Master PDF Editor 5.9.95 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_305.jpg" />
 </div>
 
 

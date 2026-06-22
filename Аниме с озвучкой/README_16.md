@@ -1,3 +1,81 @@
+###  Публикация: 1005080   (833687) от 08.04.2016
+
+Full Metal Panic! The Second Raid | Full Metal Panic! Owaru Day By Day | Стальная тревога! Новый рейд [2005, TV, 13 эп.] BDrip 720p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий сезон продолжает основную сюжетную линию фильма. «Мифрил» делает своё обычное дело, противодействует террору и экстремизму, помогает гасить локальные конфликты. Похоже, Тидори Канаме уже ничего не угрожает, и командование чем дальше, тем больше задаётся вопросом: какой смысл держать возле девушки Сагару, который нужен для боевой работы и испытаний «Арбалеста»? (   Читать дальше...   )Производство: студия Kyoto Animation / 京都アニメーションЖанр: приключения, комедия, фантастика, мехаРежиссер: Такэмото ЯсухироПеревод: Alex/AT | MerlinЯзык субтитров: #1: Russian; #2: English;Продолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2184348FF7C02B03BAC4F0ACF0ECDDCDDCAC749
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005044   (833686) от 08.04.2016
+
+Full Metal Panic! | Стальная тревога! [2002, TV, 24 эп.] BDrip 720p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старшеклассница Канамэ Тидори оказывается в эпицентре невероятных приключений! За девушкой ведет охоту террористическая организация, чьи руководители убеждены, что Тидори обладает уникальными сверхъестественными способностями. На защиту школьницы встает секретная военизированная организация МИФРИЛ и ее агент Сосукэ Сагара. Сможет ли он защищать Тидори так, чтобы (   Читать дальше...   )Производство: студия Gonzo Digimation / ゴンゾЖанр: приключения, комедия, романтика, мехаРежиссер: Тигира КойтиПеревод: WitwoodЯзык субтитров: РусскийПродолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BB72AD95783E44416924D8EF1F63C327A8D5F57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572719   (831946) от 09.04.2016
+
+Pokemon: Battle Frontier (9 Season) / Покемон: Боевой Рубеж (9 сезон) [2006, TV, 47 ep] DVDRip 480p Rus+Eng
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Территория, может, и знакомая, но даже Эш и Брок находят немало сюрпризов в родном регионе Канто, как, например Рейнджер покемонов, которому поручено задание, связанное с двумя легендарными покемонами! Мэй возвращается к конкурсам, прорываясь к Большому Фестивалю в Канто, а Эш ищет скрытые сооружения Боевого Рубежа. Даже если бы поиски не были столь сложными, ему (   Читать дальше...   )Жанр: приключения, комедия, фэнтезиФормат: MKVПродолжительность: 47 эпизодов по 21 минуте
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EE58B344941479B6C81C571687430C8B83461D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978603   (829979) от 10.04.2016
 
 Hai to Gensou no Grimga / Гримгал пепла и иллюзий [2016, TV, 12 + SP] HDTV 720p rus
@@ -6,7 +84,7 @@ Hai to Gensou no Grimga / Гримгал пепла и иллюзий [2016, TV,
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829979.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Fairy Tail Zero / Фейри Тейл Зеро [2016, TV, 12] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828087.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ Manie-Manie: Meikyuu Monogatari / Neo-Tokyo / Нео-Токио (Лабирин�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827419.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ Dirty Pair | Грязная Парочка [1987, OVA, 10 ep] BDRip 1080p raw+ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827350.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Dirty Pair: Project Eden | Грязная Парочка: Проект Эдем 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827349.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ Dirty Pair: Affair of Nolandia | Грязная Парочка: Ноландск
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827348.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Dirty Pair: Flight 005 Conspiracy | Грязная Парочка: Загово�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827347.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ Dirty Pair | Грязная Парочка [1985, TV, 24 ep] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827346.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ Akatsuki no Yona | Yona of the Dawn | Рассвет Ёны | Красновол
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826312.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ Akatsuki no Yona | Yona of the Dawn | Рассвет Ёны | Красновол
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826231.jpg" />
 </div>
 
 
@@ -271,7 +349,7 @@ OreGairu | Yahari Ore no Seishun Lovecome wa Machigatte Iru | Жизнь - Лю�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825620.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ OreGairu 2 | Yahari Ore no Seishun Lovecome wa Machigatte Iru. Zoku | Жизнь
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825619.jpg" />
 </div>
 
 
@@ -323,7 +401,7 @@ Redline | Красная Черта [2009, Movie] BDRip 1048p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825618.jpg" />
 </div>
 
 
@@ -349,7 +427,7 @@ Berserk | Берсерк [TV-2+TV-3] [2016-2017, TV, 24 ep] BDRip 1080p HEVC 10-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825617.jpg" />
 </div>
 
 
@@ -375,7 +453,7 @@ Violet Evergarden | Виолетта Эвергарден [2018, TV, 13 ep + 1 s
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825616.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ Berserk | Берсерк [TV-1] [1997, TV, 25 ep] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825615.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ Sword Art Online | Мастера Меча Онлайн [ТВ-1] [2012, TV, 25 e
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825614.jpg" />
 </div>
 
 
@@ -455,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824197.jpg" />
 </div>
 
 
@@ -481,7 +559,7 @@ DanMachi  | Gekijouban Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka: 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823833.jpg" />
 </div>
 
 
@@ -507,7 +585,7 @@ Sword Art Online: Extra Edition | Мастера Меча Онлайн: Посл
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823832.jpg" />
 </div>
 
 
@@ -535,7 +613,7 @@ DanMachi | Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka Gaiden: Sword
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823831.jpg" />
 </div>
 
 
@@ -562,7 +640,7 @@ DanMachi | Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka | Is It Wrong
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823830.jpg" />
 </div>
 
 
@@ -588,7 +666,7 @@ DanMachi | Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka II | Is It Wr
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823828.jpg" />
 </div>
 
 
@@ -599,85 +677,6 @@ DanMachi | Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka II | Is It Wr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:055E5E2BD8BAF1D43FDD484D0D68E4358FEA0618
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115397   (823809) от 19.03.2017
-
-Manie-Manie: Meikyuu Monogatari / Neo-Tokyo / Нео-Токио (Лабиринт сновидений) [1987, MV] HDTV 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм, безусловно, необычен и по внешнему виду и по содержанию. Графика очень далека от привычных стандартов аниме: тут нет ни прилизанных, блестящих волос, ни огромных влажных глаз, ни ярких красок. Но, упаси Боже называть этот фильм некрасивым! Он очень красив своими резкими, причудливыми пейзажами, необычными ракурсами и полетами камеры, запоминающимися персонажами, (   Читать дальше...   )Производство: студия MADHOUSEЖанр: фантастика, фэнтези, приключенияРежиссер: Отомо КацухироЯзык озвучки: Японский, русскийЯзык субтитров: Русский, АнглийскийПродолжительность: короткометражный фильм, 50 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00D17F2528B00DDA9446CDE903985128C2B2EA06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084357   (823807) от 19.03.2017
-
-Храбрые ведьмы / Brave Witches [2016, TV, 12] HDTV 720p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823807.jpg" />
-</div>
-
-
-###  Подробнее
-
-В конце ХХ века планету ожидала военная катастрофа. Новый враг пришёл неожиданно, и был невероятно силён. Естественно, люди не знали способов борьбы с ним – на тот момент простые военные технологии были бесполезны. Прозванный Невроем, враг беспощадно разрушал всё на своём пути. Выжженные земли, бездушные руины – вот всё, что оставалось после его атак. Напуганные (   Читать дальше...   )Производство: Япония, Silver LinkЖанр: приключенияРежиссер: Такамура КадзухироПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A48E35386E08188CA91C99177106CDB86C347A02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095668   (823806) от 19.03.2017
-
-Kono Subarashii Sekai ni Shukufuku o! / Этот замечательный мир! TV-2 [2016, TV, 10] HDTV 720p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие начинается ровно с того момента, на котором закончился первый сезон "Замечательного мира", а именно обвинение Казумы в терроризме.
-И снова Казума вынужден решать наплывающие на него проблемы этого прекрасного, дабы суметь выжить.Производство: Япония, Studio DEEN / スタジオディーンЖанр: приключения, комедия, фэнтезиРежиссер: Канасаки ТакаомиСубтитры: Надписи, отключаемые (Вшитые) | RusПродолжительность: 10 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F58184343A69D2705F4A69EA8774AB26E8779DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

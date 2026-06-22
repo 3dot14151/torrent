@@ -1,3 +1,283 @@
+###  Публикация: 591565   (136264) от 20.12.2012
+
+VA - Exotic Wafture 2012 (New Year's Eve Special) (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nash & Pepper feat. Rogue Raven - Am I Wrong (Mike Foyle Remix)
+02. Kyau & Albert - A Night Like This (Original Mix)
+03. Gareth Emery - Concrete Angel (Original Mix)
+04. Andy Woldman vs. Nicole Ambresi & DJ Leo D feat. Kuku Sky - Always (Shane Cross Remix)
+05. Activa feat. Cat Martin - My Way Out (Sonic Element Remix)
+06. Cerf, Mitiska & Jaren - Another World (Shogun Remix)
+07. David Forbes feat. Antonia Lucas - Because Of You (Pulser Remix)
+08. Jordan Suckley feat. Leanne Thomas - Thunder (Original Mix)
+09. Andrew Rayel - Believe (Original Mix)
+10. Marcel Woods - Everything (Marcel Woods Treatment)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 06:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D4BC6E7C5F1CB3050E1CA76901112294431E4DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590893   (136199) от 20.12.2012
+
+VA - Music Box of Memories (2012) [MP3|320 кб/с]<Dub Step/Drum'n'Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136199.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ady - Ai (CruciA Remix)
+2. Alexx Rave feat. Kristin Loyen - Боль В Душе (B.Exp Remix)
+3. Anggun - Buy Me Happiness (Zette Remix)
+4. Brainbug - Rain (Assault Terror Remix)
+5. Childish Gambino - Heartbeat (Proper Villains Remix)
+6. Clint Mansell - Requiem For a Dream (Discotronique Remix)
+7. Clint Mansell - Requiem For A Dream (Fast Remix)
+8. Deadmau5 - Raise Your Weapon (Noisia Remix)
+9. Diverse feat. Olly B - Proud Feeling
+10. Ed Sheeran - This (Dub Rocca Remix)(   Читать дальше...   )Жанр: Dub Step/Drum'n'BassПродолжительность: 02:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B645DEBEA7BDF486243A952A07F26F16268C430
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591825   (136197) от 20.12.2012
+
+VA-New Age Style - Lounge Cafe (2012) [MP3|320 кб/с]<Chillout, Lounge, Downtempo, Easy Listening>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uomo - Mad World (4:50)
+02. Ely Bruna - The Final Countdown (4:17)
+03. MinusBlue - Sweet Harmony (5:56)
+04. Alex Palmer - Woman (4:09)
+05. The Tone - Relax (3:37)
+06. Sol Y Mar - Smooth Operator (5:12)
+07. Clony Chill Del Mar Inc feat. Rainfairy Mirjam - Drive (The Cars Mix) (3:54)
+08. Liula - Frozen (5:27)
+09. Banda Do Sul feat. Natascha - Sweet Chid O'mine (4:15)
+10. Urban Love Ft. Astrud C. & Moa - No Woman No Cry (4:45)Жанр: Chillout, Lounge, Downtempo, Easy ListeningПродолжительность: 03:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:386239F1678BF83C6FCDB6FA034DD9DF4E2923B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592037   (136027) от 20.12.2012
+
+VA - 70's Club Hits Reloaded, Vol. 4 (Best of Disco, House & Electro Remix Classics) (2012) [MP3|320 кб/с]<Disco, House, Electro, Grime>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jennifer Lowpass - I Need Your Lovin' (Sagy & Lingyi Mix)
+02. Yakooza - Lovin' You (Electro Dubstep Edit)
+03. Rob Nunjes - Ain't No Mountain High Enough (Last Days of Disco Mix)
+04. Freakend - Daddy Cool (Glamourama Rmx)
+05. Luv House - Relight My Fire (Uplifting Mix)
+06. Todd Humphries - Rock With You (Fudge X Featuring Steve Osaka Edit)
+07. Sunny Romero - Cuba (Rfn Edit)
+08. Disco Sugar - Let's All Chant (Rfn vs Milk Boys My Party Mix)
+09. Rod Bass, Heat Hunter - How Deep Is Your Love (Dub Kontor Mix)
+10. Angelstar - Mandy (DJ Cobra Mix)(   Читать дальше...   )Жанр: Disco, House, Electro, GrimeПродолжительность: 01:23:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DA8DA01BE5B227EF2C5A390F7028DBDED3DB7C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592863   (135722) от 22.12.2012
+
+VA - Trancern 2012.5 - Official Compilation (Best of 2012) (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rank 1 & Jochen Miller - Wild and Perfect Day (Extended Mix)
+ 02. Gareth Emery - Concrete Angel (Original Mix)
+ 03. Akira Kayosa & Bevan Miller feat. Carly Kling - Phase 3 (Original Mix)
+ 04. Lange vs. Gareth Emery - Another You Another Me (Rafael Frost Remix)
+ 05. Solarstone With Giuseppe Ottaviani - Falcons (John O'Callaghan Remix)
+ 06. DubVision - All By Myself (David Jones Remix)
+ 07. Delerium feat. Michael Logen - Days Turn Into Nights (Solarstone Pure Mix)
+ 08. Andrew Rayel - Believe (Original Mix)
+ 09. Andy Tau & Sean Truby - Rapture (Suncatcher Remix)
+ 10. The Thrillseekers feat. Fisher - Angel (Eximinds Remix)(   Читать дальше...   )Жанр: Trance
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:822E91B81BF0AADE5C8F94111C059B1E77FC1051
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592849   (135721) от 22.12.2012
+
+VA - Keri Gen - True Trance Nation (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Epos - Polarized (Magic Island 200th Episode Theme) (Original Mix)
+ 02. Armin van Buuren & Orjan Nilsen - Belter (Original Mix)
+ 03. Moonbeam feat. Jacob A - Only You (Club Mix)
+ 04. 2Players - Signet (Wellenrausch Remix)
+ 05. KhoMha - Days Gone Bye
+ 06. Aly & Fila vs. Ummet Ozcan - FSOE 200 Anthem (Keri Gen 2 in 1 Mashup)
+ 07. Above & Beyond feat. Zoë Johnston - Alchemy (Myon & Shane 54 Redemption Mix)
+ 08. Richard Durand vs. The World - Stand Again (Original Mix)
+ 09. Alexandre Bergheau - Adduria (Original Mix)
+ 10. Armin van Buuren feat. Jan Vayne - Serenity (Andrew Rayel Aether Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8528D18543B5A1A39328A7EFE1096370F21C1863
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593334   (135451) от 23.12.2012
+
+VA - Dance Vibration Vol 2 (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B-A-D-B-O-Y-Take Me Away (Vinylbreaker Remix) 05:41
+ 02. Basewalker & Vyrus-Dancing Through the Night 06:12
+ (DJ Locos Summer Remix)
+ 03. Clark Owen-Melody 05:45
+ (Wavepuntcher & Sexual Energy Remix)
+ 04. Dittin & Jockiboi-VI Dricker Redbull Och Vodka 05:19
+ (Saamen Van Aaren & Nrg-Boy Summer Remix)
+ 05. DJ Darroo-Black Magic 08:34
+ 06. DJ Equan-I'm Destination 06:47
+ 07. Edvard Hunger-Close My Eyes 05:41(   Читать дальше...   )Жанр: TranceПродолжительность: 02:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79843F382DC8FB8D76DAF39134FDA516C495C35E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592072   (135410) от 23.12.2012
+
+VA - Creative Music Box 6 (2012) [MP3|320 кб/с]<Dub Step/Glitch Hop/Drum'n'Bass/Drum Step/Metal Step>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135410.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Asking Alexandria - A Lesson Never Learned
+2. Bassex - Tinnitus
+3. Butch Clancy - Xlam
+4. Butch Clancy- The Devil's Quid Pro Quo
+5. Cenob1te - Hyperion
+6. Deltron 3030 - Upgrade (Figure Remix)
+7. Demented Dimensions - I Swear to God
+8. Document One feat. Maksim - Kick Snares And Brehs
+9. Dubwoofer - Carol Of The Bass
+10. Eliminate - Devil Theory(   Читать дальше...   )Жанр: Dub Step/Glitch Hop/Drum'n'Bass/Drum Step/Metal StepПродолжительность: 02:18:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34D9A6E0E12F409DF5BC70019504C1BF1BF2A7C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 591856   (135372) от 23.12.2012
 
 VA - DubStep Pro V.9 (2012) [MP3|320 кб/с]<DubStep>
@@ -6,7 +286,7 @@ VA - DubStep Pro V.9 (2012) [MP3|320 кб/с]<DubStep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135372.jpg" />
 </div>
 
 
@@ -41,7 +321,7 @@ VA - DubStep Pro V.8 (2012) [MP3|320 кб/с]<DubStep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135288.jpg" />
 </div>
 
 
@@ -76,7 +356,7 @@ Skrillex - Best of all time (2012) [MP3|256 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135179.jpg" />
 </div>
 
 
@@ -111,7 +391,7 @@ VA - Record Super Chart 25.11.2023 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135159.jpg" />
 </div>
 
 
@@ -140,7 +420,7 @@ VA - Ultra.Trance: 5 (2005) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134986.jpg" />
 </div>
 
 
@@ -175,7 +455,7 @@ VA - Liberation Melody (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134981.jpg" />
 </div>
 
 
@@ -210,7 +490,7 @@ VA - Fashion Cafe: A Journey Into Selected Lounge and Chillout Grooves (2012) [M
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134864.jpg" />
 </div>
 
 
@@ -245,7 +525,7 @@ VA - Ibiza Beach Merry XMAS: Winter Island Cafe Lounge Greatest (2012) [MP3|320 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134853.jpg" />
 </div>
 
 
@@ -280,7 +560,7 @@ AM 1984 - Compilation (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134831.jpg" />
 </div>
 
 
@@ -309,7 +589,7 @@ VA - Autumn Light Deep (2023) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134823.jpg" />
 </div>
 
 
@@ -338,7 +618,7 @@ VA - Rare Groove Moods: Chillout Lounge Bootleg Classics Vol.1 (2012) [MP3|320 �
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134779.jpg" />
 </div>
 
 
@@ -373,7 +653,7 @@ VA - Island Dreams (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134272.jpg" />
 </div>
 
 
@@ -408,7 +688,7 @@ VA - Chillout Cafe: Aperitif Edition (2012) [MP3|320 кб/с]<Downtempo, Chillou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134230.jpg" />
 </div>
 
 
@@ -443,7 +723,7 @@ VA - Chillout For Peace Of Mind (2023) [MP3|320 Kbps] <Chillout, Lounge, Relaxin
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134185.jpg" />
 </div>
 
 
@@ -472,7 +752,7 @@ VA - Sunset High Dreaming (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133287.jpg" />
 </div>
 
 
@@ -507,7 +787,7 @@ VA - Ferry Corsten presents Best Of Corsten's Countdown (2012) [MP3|320 кб/с]
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133246.jpg" />
 </div>
 
 
@@ -542,7 +822,7 @@ VA - Chill & Dub v.10 (2012) [MP3|320 кб/с]<Chillout/DubStep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132654.jpg" />
 </div>
 
 
@@ -573,7 +853,7 @@ VA - Night Rider 7 (2023) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132339.jpg" />
 </div>
 
 
@@ -587,280 +867,6 @@ VA - Night Rider 7 (2023) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FB0AB297683EC5E4F9C3F35F080E91FE5EB3994
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595790   (132312) от 29.12.2012
-
-VA - Aropa Records - Best Of 2012 (2012) [MP3|320 kbps]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dash Berlin feat. Chris Madin - Silence In Your Heart (Antillas Remix) (7:14)
-02. Dash Berlin feat. Emma Hewitt - Like Spinning Plates (Alexander Popov Remix) (6:09)
-03. Fred Numf & Etienne Overdijk - Endorphin (Original Mix) (6:52)
-04. Dash Berlin feat. Emma Hewitt - Waiting (W&W Remix) (6:15)
-05. James Dymond - Solar Decent (Original Mix) (8:58)
-06. Dash Berlin feat. Jonathan Mendelsohn - Better Half Of Me (Shogun Remix) (8:21)
-07. Dash Berlin feat. Jonathan Mendelsohn - World Falls Apart (Club Mix) (7:17)
-08. Rave CHannel - Illusion (Original Mix) (8:05)
-09. Dash Berlin feat. Sarah Howells - Go It Alone (Club Mix) (6:43)
-10. James Dymond - Sunset Bench (Original Mix) (8:28)Жанр: TranceПродолжительность: 01:14:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A384C695404B3F7FFE5FC413A5E401BEBA69D9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595787   (132293) от 29.12.2012
-
-VA - Winter Trance 2012 (2012) [MP3|320 kbps]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tritonal - Azuca - Club Mix
-02. Arty - Gentle Touch - Juventa Club Mix
-03. Adam Szabo - Lego - Original Mix
-04. Daniel Kandi - 3 Strikes UR In - Original Mix
-05. Lange - Crossroads - Original Mix
-06. Boxer - Utah Beach - Max Braiman Remix
-07. Tritonal - Everafter - Mike Shiver Remix
-08. C-Systems - Love Is Strong - Estiva Remix
-09. Fast Distance - Ys - Original Mix
-10. Robert Nickson - Suffer - Shingo Nakamura Remix(   Читать дальше...   )Жанр: TranceПродолжительность: 02:18:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFF8037208C83B30661CE0D79902C5183D133DEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595789   (132215) от 29.12.2012
-
-VA - Best of Berlin Minimal Underground Vol.2 (2012) [MP3|320 kbps]<Progressive House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sven & Olav - Blissful World (Bonus Berlin Exclusiv Mix) (06:54)
-02. Chris Rockz - Dromedario (Cubic Egg Tech Mix) (08:20)
-03. Mauerpark Community - The Divine Circus (Outdoor Club Mix) (06:07)
-04. Berlin Minimal - Freitag Frei, Feierei (Original Mix) (06:17)
-05. Jason Duff vs. Miss Thunderpussy - BelleVille (Original Mix) (05:41)
-06. Jimmy(Ge) - Space (Original Mix) (06:37)
-07. Jens Riemann - Dirty Rolando (Original Mix) (05:37)
-08. Technodar - Funny Day (Original Mix) (05:08)
-09. Crazy Krauts - Frau Wunderlich geht baden (Original Mix) (06:10)
-10. Walter Native - Love Strings (Sirkhan Remix) (06:44)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 02:08:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C138730A719374CDC7DCB1BE03C7A1C6EB11333
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595816   (132202) от 29.12.2012
-
-VA - Tunnel Trance Force: Best Of Vol.63 (2012) [MP3|320 kbps]<Trance, Hard Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Various - Tunnel Trance Force: Best Of Vol 63 (continuous DJ mix by DJ Dean) (58:15)
-02. DJ Dean vs DJ Analyzer - It's A Dream (5:37)
-03. Mike Nero - Spring 2013 (club mix) (5:03)
-04. Locanda & Kuznetsow - The Tournament (Round 1 mix) (6:57)
-05. Keamon - Watch Out (Impegment Syndrom remix) (5:17)
-06. Angel Beats & DJ Merlin - You Make My Dreams 2K12 (6:16)
-07. Alex M & Marc Van Damme - Rock The House 2012 (6:01)
-08. Sunset Project - Welcome Back (Empyre One remix) (5:47)
-09. DJ Fait - Love Will Save The Day 2  (Calderone Inc mix) (6:46)
-10. DJ Stardust & Benjamin Zane - Famous (Pulsedriver Oldschool Flavour mix) (5:14)(   Читать дальше...   )Жанр: Trance, Hard TranceПродолжительность: 03:40:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:169CEF3EB6FAEC3C7852CB26A4347E506FC467D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592045   (132149) от 29.12.2012
-
-VA - Fresh Meat (2012) [MP3|320 кб/с]<Dub Step/Heavy Electro/Metalstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132149.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Adroa feat. Ajapai - Decimation
-2. Asking Alexandria - A Lesson Never Learned
-3. Brainpain - Ebola
-4. Brainpain - Power Of Evil
-5. Bring Me The Horizon - Blacklist (Spark Remix)
-6. Bring Me the Horizon - Sleep With One Eye Open (Tek-One Remix)
-7. Declare Your Funeral - Amnesia (Tim Tonik Remix)
-8. Demented Dimensions - I Swear to God
-9. Drowning Pool - Bodies (The Mask Remix)
-10. Excision - Brutal(   Читать дальше...   )Жанр: Dub Step/Heavy Electro/MetalstepПродолжительность: 02:17:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F5FD6EEFCDDD323D25E0152F5BF7A3CF85DC4E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596085   (131751) от 29.12.2012
-
-VA - 90's Hits Euro Dance Remix Classics Vol 2 (2012) [MP3|320 кб/с]<Funky, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tunnel Alliance-Blue (Feat Saffron Beat-Trance Future Reloaded Mix) 03:31
-02. Supershake-Gonna Make You Sweat (Everybody Dance Now) (Alex Twister Edit) 03:30
-03. Latin Warriors-Macarena (That's Now Club Mix #44)03:35
-04. G6-Ray of Light (I Like A Mashup Mix) 03:40
-05. Paradise City & Billionaire-Another Day in Paradise (Stereo Love Remix) 03:39
-06. Ammonia-Don't Speak (Said & Done Total Party Dance Mix) 03:50
-07. Coleda-I Will Always Love You (Twister Club Edit)03:44
-08. Kings of Commotion-Whoomp (There it is) (Accolade Cut) 03:22
-09. Supershake-Pump Up The Jam (Rfn Electro Funhouse Remix) 03:35
-10. Mind & Moore-Infinity (Retro's White Sensation Electro Remix) 03:15(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:29:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90A6EAC825897E38C6EA8F5586C8DBD1C281CF2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682461   (131046) от 08.12.2023
-
-VA - Trance In Motion Vol.369 (2023) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christopher Corrigan - A Love Like This (Extended Mix)
-02. Danny Fervent - Be The One (N-sKing Dub Mix)
-03. Gayax & Eloquentia - Atlantis (Extended Mix)
-04. Steve Dekay - Dimorphos (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:25:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C47E9B91652B8130287562398B47B1DFC96E8B10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596808   (130954) от 31.12.2012
-
-VA - 111 Golden Lounge Tunes (2012) [MP3|320 кб/с]<Lounge, Chillout, Lo-Fi>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Zippel Feat. Sophie Tusnelda - Still Love - Klangstein & Chris Zippel Mix
-02. Ohm-G - Aya
-03. Geb.el - The Killer And The Chicken
-04. Naomi - Trust
-05. Audio Lotion - Igloo
-06. Llava - You're All I Need To Know Feat. Pat Appleton
-07. Koala - Floating Pillow - Original Mix
-08. Lemongrass - Falling Star
-09. JFC - Underwater
-10. Lexicon - Funk Corner - Advice Mix(   Читать дальше...   )Жанр: Lounge, Chillout, Lo-FiПродолжительность: 09:06:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7791844848A37971D056BD0ADABB1A7B21466851
 ```
 
 https://mybot314.ru/tekegram_catalog/

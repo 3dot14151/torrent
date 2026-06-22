@@ -1,3 +1,29 @@
+###  Публикация: 1666221   (127160) от 19.12.2023
+
+Seiken Gakuin no Maken Tsukai / The Demon Sword Master of Excalibur Academy / Мастер демонического клинка из академии Святого Меча [2023, TV, 12] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Князь Тьмы Леонис пробуждается от магического стазиса, в который сам себя и погрузил на тысячу лет. Однако что-то пошло не так, и теперь у него тело десятилетнего мальчика. После пробуждения он встречает девушку по имени Риселия, которая сражается с «Пустотой», существами, почти истребившими человечество. Осознав, что мир за время его стазиса сильно изменился, и (   Читать дальше...   )Жанр: приключения, фэнтези.Режиссер: Морита ХироюкиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C15B0215052FE3DEA4926F01AAD068B648638EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666302   (127006) от 20.12.2023
 
 Seijo no Maryoku wa Bannou Desu 2 / The Saint's Magic Power is Omnipotent 2 / Всемогущая сила Святой 2 [2023, TV, 12] WEBRip 720p raw
@@ -6,7 +32,7 @@ Seijo no Maryoku wa Bannou Desu 2 / The Saint's Magic Power is Omnipotent 2 / В
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127006.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Ojou to Banken-kun | A Girl & Her Guard Dog | Девушка и её сторо�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126831.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Konyakuhaki Sareta Reijou o Hirotta Ore ga, Ikenai Koto o Oshiekomu / Я под�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126829.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ S-Rank Musume | Boukensha ni Naritai to Miyako ni Deteitta Musume ga S Rank ni N
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126825.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Mahou Tsukai no Yome Season 2 | The Ancient Magus Bride Season 2 | Невест�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126813.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ Kizuna no Allele (2023) | Аллели Кидзуны [ТВ-2] [2023, TV, 12 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126803.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ Overtake! | Обгон! [2023, TV, 12 из 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126799.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ Goblin Slayer II | Убийца гоблинов [ТВ-2] [2023, TV, 12 эп.] W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126692.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ Keiken Zumi na Kimi to, Keiken Zero na Ore ga, Otsukiai Suru Hanashi. | Исто
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126670.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ Spy x Family 2 / Семья шпиона 2 [2023, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126389.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ Tearmoon Teikoku Monogatari / Tearmoon Empire / Хроники империи Т
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126365.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ Potion-danomi de Ikinobimasu! / I Shall Survive Using Potions! / Я выживу
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126362.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ Kikansha no Mahou wa Tokubetsu Desu | A Returner's Magic Should Be Special | М�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126357.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ Kimi no Koto ga Dai Dai Dai Dai Daisuki na 100 Nin no Kanojo / Сто девуш
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126354.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ The Idolmaster Million Live! / IDOLM@STER Million Live! / Миллион iDOLM@S
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126335.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ Atarashii Joushi wa Do Tennen | My New Boss Is Goofy | Мой новый бос�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126333.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ Dead Mount Death Play | Смертельная игра мёртвой горы 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126162.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ Hoshikuzu Telepath / Stardust Telepath / Телепат звёздной пыл�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126152.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ Saihate no Paladin: Tetsusabi no Yama no Ou | The Faraway Paladin: The Lord of R
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126148.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ Kamonohashi Ron no Kindan Suiri | Безумные расследования Р
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126144.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ Shadowverse Flame: Seven Shadows Hen | Поэзия теней [ТВ-3] [2023, T
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126139.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ Kanojo mo Kanojo (2023) | Girlfriend, Girlfriend (2023) | Мои девушки 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126135.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ Chanto Suenai Kyuuketsuki-chan / Li'l Miss Vampire Can't Suck Right / Вампи
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126108.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ Gnosia | Гносия [2025, TV, 1 из 12 эп.] WEBRip
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125890.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ Mashin Eiyuuden Wataru: Nana Tamashii no Ryuujinmaru | Маленькие спа
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125844.jpg" />
 </div>
 
 
@@ -657,32 +683,6 @@ Mashin Eiyuuden Wataru: Nana Tamashii no Ryuujinmaru | Маленькие спа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B370A0694117ED97DCACBF42667B4E202E53532E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823578   (125843) от 11.10.2025
-
-Chou Mashin Eiyuuden Wataru | Mashin Hero Wataru 3 | Маленькие спасатели 3 [1997, TV, 51 из 51] BDRip 1080p HEVC 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной сезон приключений героя горы Соукай - Вотару Икусабе. Он повзрослел на целый год (теперь ему 10) и его геройское сердце похищает очередной Лорд Тьмы - Даркедар. Пока наш разозлившийся герой занимается нагибаторством в родной школе, за ним из мира Соукай выслан отряд в количестве двух человек... Угадайте кто?! Конечно же вечно стебающая над всеми и всем (   Читать дальше...   )Производство: Sunrise / サンライズЖанр: приключения, комедия, фэнтезиРежиссер: Иути СюдзиПеревод: Code Giass (Kogaji)Язык озвучки: японскийСубтитры: русскиеПродолжительность: 51 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D45B3208B29D3B6F74A643C373DB31836C27FBAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

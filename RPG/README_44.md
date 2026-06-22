@@ -1,3 +1,107 @@
+###  Публикация: 1670989   (161622) от 04.11.2023
+
+Folk Hero (2023) [Ru/Multi] (1.0.9) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Истории о Леших, Домовых и Русалках всегда казались легендами, но сказки стали оживать в мире Folk Hero. Все больше загадочных событий происходит вокруг: животные исчезают в лесах, жители деревень замечают мифических существ, а на горизонте появился таинственный Остров… Станьте отважным героем, и отправляйтесь на Остров Буян, чтобы выяснить причину мистических явлений! (   Читать дальше...   )Тип издания: SceneРазработчик: Chudo-Yudo GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F87F7A6A3A124D026B97B82E657D9AA7674FD37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329318   (161571) от 04.11.2023
+
+Lovecraft's Untold Stories (2019) [Ru/Multi] (1.35) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lovecraft’s Untold Stories - это экшен-роглайт с элементами RPG. Вы исследуете уровни, создаваемые в случайном порядке, сюжет игры создан по мотивам произведений Г. Ф. Лавкрафта: стычки с культистами и всевозможными монстрами из Мифов. По ходу игры вы совершенствуете свое оружие и снаряжение, разгадываете головоломки, преодолеваете препятствия, находите разгадки (   Читать дальше...   )Тип издания: LicenseРазработчик: LLC Blini GamesЖанр: Экшны, Ролевая игра, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, ИспанскийЯзык интерфейса: Русский, Английский, Немецкий, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13446BB378831EA6CC12BBC4814EDA685A173701
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598720   (161546) от 20.12.2022
+
+Gray Zone (2022) [Ru/Multi] (1.9) Repack Other s
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gray Zone – RTS шутер с элементами RPG. Это одиссея раба, который в далеком будущем восстал против своих хозяев. Тебя ждут запоминающиеся персонажи, смешные диалоги и много экшена!Тип издания: RepackРазработчик: EastWorksЖанр: RTS, Action, RPG, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B30E0E31652485994F272DE7F6973C8C772C1CB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674434   (160970) от 05.11.2023
+
+A Quest That Became Legend (2023) [En] (1.0) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160970.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Квест, ставший легендой" - это игра, вдохновленная классикой олдскульных RPG, с пошаговыми боями и открытым миром. Отправляйтесь в эпическое путешествие, чтобы победить темных колдунов и спасти свой мир от разрушения. Исследуйте различные земли и отправляйтесь в различные склепы, подземелья и многие другие локации, чтобы сразиться со всевозможными монстрами (   Читать дальше...   )Тип издания: SceneРазработчик: Neon Light StudioЖанр: Экшены, Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EFE673421F3087E4E6E5B135A5DAD85DB3D313A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674452   (160919) от 05.11.2023
 
 Salt and Sacrifice (2023) [Multi] (1.0.1.0) Repack Other s
@@ -6,7 +110,7 @@ Salt and Sacrifice (2023) [Multi] (1.0.1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160919.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Little Goody Two Shoes (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160776.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Fading Afternoon (2023) [Ru/Multi] (20231009) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160729.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Company of Crime (2020) [Ru/Multi] (1.0.5.1178) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160347.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Racine (2023) [Multi] (1.0.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160049.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Lillusion (2023) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160040.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Colony Ship: A Post-Earth Role Playing Game (2021) [En] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159422.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Alluna and Brie (2019) [En] (1.0) Scene TinyIso
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159186.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ DYSMANTLE (2021) [Ru/Multi] (1.3.0.55/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159100.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Shadows Heretic: Kingdoms (2014) [Ru/En] (1.0.0.8183) Repack R.G. Механик
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158522.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Salt and Sacrifice (2023) [Multi] (2.0.0.0a8) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154898.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ BLACKTAIL (2022) [Ru/Multi] (1.3) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154796.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Sword of the Stars: The Pit (2013) [En] (1.6.2/dlc) License GOG [Osmium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154783.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ BELOW (2018) [Ru/Multi] (1.0.0.30) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154778.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Vikings - Wolves of Midgard (2017) [Ru/En] (2.1/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154649.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ StarCrawlers (2017) [En] (1.1.2) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153196.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Sailing Era (2023) [Multi] (1.3.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151906.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Immortals: Fenyx Rising (2020) [Ru/Multi] (1.3.4/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151483.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ The Void / Тургор. Голос цвета (2009) [Ru/Multi] (1.0) License G
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151070.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Divinity: Original Sin 2 / Divinity: Original Sin II (2017) [Ru/En] (3.6.31.2130
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150847.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Mass Effect 3 Digital Deluxe Edition [Ru/En] (RePack/1.04.5427.111/7 DLC) 2012 |
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149753.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ Might And Magic. Heroes 6 [Ru/En] (RePack/1.8.0/2 DLC) 2011 l R.G. Shift
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149718.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ Might And Magic. Heroes 6 [Ru/En] (RePack/1.8.0/2 DLC) 2011 l R.G. Shift
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0FF3D1F69CAD0F897B2851BF18D71A51ACB5166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519198   (148959) от 23.12.2021
-
-Disciples: Liberation (2021) [Ru/Multi] (1.0.3.B258.R57446/dlc) License PLAZA
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disciples: Освобождение - это история в жанре "тёмное фэнтези"; мрачная стратегия-RPG с пошаговыми сражениями. Освободите земли Невендаара и откройте бесчисленные тайны этого тщательно проработанного мира, в котором каждое решение имеет последствия, а неверный шаг может обернуться трагедией. Исследуйте обширный мир и выстраивайте отношения с различными (   Читать дальше...   )Тип издания: LicenseРазработчик: Frima StudioЖанр: Strategy, RPG, Tactical, IsometricЯзык озвучки: Русский, Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CBEB7EDEAC17CA0C5A54EF36F64540D2A56100F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228893   (148915) от 23.12.2018
-
-ATOM RPG: Post-apocalyptic indie game (2018) [Ru/En] (1.0.3) Repack West4it
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148915.jpg" />
-</div>
-
-
-###  Подробнее
-
-ATOM RPG это пост-апокалиптическая инди-игра вдохновлённая классическими CRPG: Fallout, Wasteland, System Shock, Deus Ex, Baldur's Gate. В 1986 году, СССР и Западный Блок были практически уничтожены, в ходе обмена ядерными ударами.Тип издания: RepackРазработчик: AtomTeamЖанр: RPG, Action, IndieЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FB0462040D6AA6D2E6812427DB21F0A3B114076
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677765   (148234) от 19.11.2023
-
-Stray Blade (2023) [Ru/Multi] (20231116/dlc) Scene Rune
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stray Blade – это мрачное фентези, в котором игроку предстоит исследовать огромный мир, чтобы разгадать все его секреты. После каждой победы или проигрыша все вокруг начнет постепенно меняться, что может привести к новым концовкам или неожиданным исходам. Возможно, сначала все будет казаться таким же, как и прежде, но позже более опытным взглядом можно будет понять, (   Читать дальше...   )Тип издания: SceneРазработчик: Point Blank GamesЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:461F92F9FFEFF1D089F89596FFA14B06EDC14285
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139690   (147885) от 24.12.2018
-
-Fallout 3 (2009) [En] (1.7.0.3/dlc) License GOG [Game of the Year Edition]
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инженеры из Vault-Tec круглосуточно работали над интерактивным воспроизведением жизни в Пустоши, чтобы вы могли насладиться ей, не покидая собственного убежища. Сюда входит обширный мир, уникальные бои, поразительно реалистичные визуальные эффекты, множество вариантов выбора и невероятная группа динамичных персонажей.Тип издания: LicenseРазработчик: Bethesda Game StudiosЖанр: Action (Shooter), RPG, 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD37BB188B1EA90426144898BF67D3FB8BB7CC82
 ```
 
 https://mybot314.ru/tekegram_catalog/

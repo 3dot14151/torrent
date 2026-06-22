@@ -1,3 +1,32 @@
+###  Публикация: 1229427   (626570) от 06.06.2018
+
+Хоккей. НХЛ. Кубок Стэнли 2018. Финал. 4-й матч. Вашингтон Кэпиталз – Вегас Голден Найтс (04.06.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626570.jpg" />
+</div>
+
+
+###  Подробнее
+
+05 июня 2018 года, вторник. 03:00 МСК
+НХЛ. Кубок Стэнли 2018.
+Финал. 4-й матч
+Вашингтон Кэпиталз – Вегас Голден Найтс(   Читать дальше...   )Телекомпания: Eurosport GoldЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD34E2EAAFAFF747275EE4F329BC2B87E291E04A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229440   (626567) от 06.06.2018
 
 Хоккей. НХЛ. Кубок Стэнли 2018. Финал. 4-й матч. Вашингтон Кэпиталз – Вегас Голден Найтс (04.06.2018) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
@@ -6,7 +35,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626567.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626522.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626401.jpg" />
 </div>
 
 
@@ -88,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626279.jpg" />
 </div>
 
 
@@ -114,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626066.jpg" />
 </div>
 
 
@@ -143,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626064.jpg" />
 </div>
 
 
@@ -172,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626060.jpg" />
 </div>
 
 
@@ -201,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626058.jpg" />
 </div>
 
 
@@ -230,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626019.jpg" />
 </div>
 
 
@@ -256,7 +285,7 @@ MotoGP. Этап 7/18. Гран При Испания Каталония. Гон
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626004.jpg" />
 </div>
 
 
@@ -284,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625940.jpg" />
 </div>
 
 
@@ -313,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625810.jpg" />
 </div>
 
 
@@ -342,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625744.jpg" />
 </div>
 
 
@@ -368,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624837.jpg" />
 </div>
 
 
@@ -394,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624774.jpg" />
 </div>
 
 
@@ -423,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624772.jpg" />
 </div>
 
 
@@ -452,7 +481,7 @@ BBC: Полет Земли. (Земля с птичьего полёта). Ев�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624688.jpg" />
 </div>
 
 
@@ -478,7 +507,7 @@ NG: Табу. Смена пола / Taboo. Sex Swap (2007) HDTV [H.264/720p]
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624622.jpg" />
 </div>
 
 
@@ -504,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624545.jpg" />
 </div>
 
 
@@ -533,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624542.jpg" />
 </div>
 
 
@@ -562,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624035.jpg" />
 </div>
 
 
@@ -591,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624029.jpg" />
 </div>
 
 
@@ -620,7 +649,7 @@ Virgin Australia Supercars Championship. Сезон 2017. Darwin. Этап 6. Г
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624028.jpg" />
 </div>
 
 
@@ -646,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623911.jpg" />
 </div>
 
 
@@ -675,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_623688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_623688.jpg" />
 </div>
 
 
@@ -686,34 +715,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145261   (623661) от 24.06.2017
-
-Футбол. Кубок Конфедераций 2017. Группа A. Мексика - Россия (24.06.2017) HDTV [H.264/1080i-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кубок конфедераций 2017 - восьмой по счёту футбольный турнир среди национальных сборных, проводимый под эгидой ФИФА, который должен пройти с 17 июня по 2 июля 2017 года в России. Рассматривается как «репетиционный» турнир перед чемпионатом мира, который пройдёт в 2018 году. Турнир будет играться на стадионах, которые позднее примут и матчи чемпионата мира.
-
-24 июня (   Читать дальше...   )Производство: Первый HDЖанр: СпортЯзык озвучки: Русский (Кирилл Дементьев и Константин Выборнов)Субтитры: ОтсутствуютПродолжительность: 00:52:38 + 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81CE7705842952B3F7C7D02C50023DC1F4BA5717
 ```
 
 https://mybot314.ru/tekegram_catalog/

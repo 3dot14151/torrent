@@ -6,7 +6,7 @@ VA - The Best Of Suanda Chillout 2024 (2024) [MP3|320 Kbps] <Downtempo, Chillout
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100647.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Smooth Moods Chill Out, Vol. 3 (2023) [MP3|320 Kbps] <Chillout, Lounge, Dow
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69536.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Buddha-Bar - XXVII (2025) [MP3|320 Kbps] <Downtempo, Lounge, Chill Out, Tri
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69384.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Ultimate Sunset Chillout Best Selections (2025) [MP3|320 Kbps] <Downtempo, 
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68557.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Chillout & Lounge Music Essentials (2025) [FLAC|Lossless|WEB-DL|tracks] <Do
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67838.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Santorini Solaire Chill 2025 (2025) [MP3|320 Kbps] <Downtempo, Chillout, Lo
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66721.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Jerome Isma-Ae - Encounter (2024) [MP3|320 Kbps] <Downtempo, Balearic, Electroni
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56769.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Ibiza Summer 2024 (2024) Lounge Cocktails From The Heart [MP3|320 Kbps] <Do
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54775.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Guitar Lounge & Chill Out (2024) [MP3|320 Kbps] <Lounge, Chill Out, Downtem
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53718.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - TikTok Billboard Top 50 Singles Chart (26.10.2024) [MP3|320 Kbps] <Pop, Dan
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38211.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Third Party - Live @ Ministry Of Sound London, United Kingdom (2024-10-04) [MP3|
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37873.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VA - Sunset Dreamer (Lounge & Chill out Sessions), Vol. 1 - 4 (2024)
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36473.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Asterius - Выхода Нет (2016) [FLAC|Lossless|WEB-DL|tracks] <Melodic Met
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35440.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Röyksopp (Royksopp) - Nebulous Nights - An Ambient Excursion into Profound Myst
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34080.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Chillout Winter Session 2024 (2024) [MP3|320 Kbps] <Downtempo, Chillout, El
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32294.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ VA - Smooth Moods Chill Out, Vol. 4 (2025) [MP3|320 Kbps] <Chillout, Lounge, Dow
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24894.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ PanteRa - Bad Angel (2025) [MP3|320 Kbps] <Eurodance, Eurobeat, Europop>
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23203.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ The Relaxation Hub - 6 Albums (2023-2025) [MP3|320 Kbps] <Relaxation>
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21410.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ VA - Relaxation Hub, Vol.1-4 (2024-2025) [MP3|320 Kbps] <Relaxation>
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21409.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ VA - Kontor Sunset Chill 2025 (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20381.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Morcheeba - Escape The Chaos (2025) [MP3|320 Kbps] <Electronic, Downtempo, Trip 
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17236.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ VA - Best of Label Cantroll, Pt. 7-9 (2023-2025) [MP3|320 Kbps] <Electronic, Dow
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11494.jpg" />
 </div>
 
 

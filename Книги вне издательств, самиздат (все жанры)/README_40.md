@@ -1,3 +1,84 @@
+###  Публикация: 1275273   (791037) от 10.01.2019
+
+Николай Беляев | Седьмая сестра (2017) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791037.jpg" />
+</div>
+
+
+###  Подробнее
+
+Часто попаданцы отлично осведомлены о мире, в который попадают. Но представьте, что отправившаяся в разведку группа бойцов Красной Армии после взрыва попадает... куда? В ад... или просто в другой мир?
+Данное произведение - художественное переложение книги Shadowdale: The scouring of the land (вселенная Forgotten Realms), написанной Ричардом Бэйкером, Эриком Л.Бойдом (   Читать дальше...   )Жанр: Попаданцы в другие миры, Эпическое фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:711C08A44A157B38F7310B09F7E982221A7E5B2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275255   (791002) от 10.01.2019
+
+Сергей Панченко | Сеть (2018) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идея превратить мозг в компьютер, на который можно записывать программы, расширяющие способности человека не нова. Можно сделать это при помощи компьютерных имплантантов, а можно адаптировать машинный код под сигналы, понимаемые мозгом и программировать сам мозг.
+Студентке Полине Громовой не повезло. Ее преподаватель, профессор Блохин, скинул в память девушке всю (   Читать дальше...   )Жанр: Боевая фантастика, Научная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F77D8660EC5BA2B18CBBD7B134560E8C8A3D999
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275263   (790927) от 10.01.2019
+
+Сергей Панченко | Жорж - иномирец (2018) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не стоит игнорировать знаки судьбы: увидел задницу - остановись. Не остановился - получи...
+Получил? Осмотрись. Иногда, только хороший пинок помогает человеку увидеть мир вокруг себя, а если тебя пнул проходимец из других миров, готовь свой рассудок к серьезным испытаниям.Жанр: Попаданцы в другие миры, Юмористическая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7822B425B6B03245E2E31CDCCAD1CEE9315E2F40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275250   (790921) от 10.01.2019
 
 Сергей Давыдов | Плывущие меж звёзд (2017) [FB2]
@@ -6,7 +87,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790921.jpg" />
 </div>
 
 
@@ -35,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790880.jpg" />
 </div>
 
 
@@ -61,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790431.jpg" />
 </div>
 
 
@@ -89,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790355.jpg" />
 </div>
 
 
@@ -116,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790323.jpg" />
 </div>
 
 
@@ -143,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790013.jpg" />
 </div>
 
 
@@ -171,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789822.jpg" />
 </div>
 
 
@@ -197,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789789.jpg" />
 </div>
 
 
@@ -223,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789673.jpg" />
 </div>
 
 
@@ -251,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789409.jpg" />
 </div>
 
 
@@ -277,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789387.jpg" />
 </div>
 
 
@@ -305,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789325.jpg" />
 </div>
 
 
@@ -331,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789268.jpg" />
 </div>
 
 
@@ -357,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788913.jpg" />
 </div>
 
 
@@ -384,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788557.jpg" />
 </div>
 
 
@@ -412,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788466.jpg" />
 </div>
 
 
@@ -440,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788060.jpg" />
 </div>
 
 
@@ -466,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788048.jpg" />
 </div>
 
 
@@ -494,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788025.jpg" />
 </div>
 
 
@@ -520,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787992.jpg" />
 </div>
 
 
@@ -549,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787645.jpg" />
 </div>
 
 
@@ -578,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787596.jpg" />
 </div>
 
 
@@ -605,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787588.jpg" />
 </div>
 
 
@@ -617,89 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EBB0F8B64FC41F42B6E4B9854E07670BC82875D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276776   (787509) от 17.01.2019
-
-Владимир Молотов | Отпуск в СССР или Назад в будущее (2019) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «Визиты в СССР».
-
-Когда весной 2013 года менеджер среднего звена Дима и его безработный товарищ Коля воспользовались лазейкой в 1983 год, они и не подозревали, какие проблемы их ожидают на обратном пути. Ведь за ними уже начали охоту и доблестная милиция СССР, и люди шамана Илко из пермской тайги 2013 года, и даже бравые агенты ФСБ.
-Но самое главное (   Читать дальше...   )Жанр: Историческая фантастика, ПопаданцыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5563924BF9B5A2473194252AE77148BE873D615C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512270   (787346) от 24.11.2021
-
-Кирилл Ивлев | И не будет других Богов [2 книги] (2021) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключения молодого мага Эмерика де Нибба.. Заговоры, предательства, таинственные культы, темная магия, опыты над людьми и конечно же, любовь.Жанр: приключения, фэнтазиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10518E99E7213D27117E39CA2D2C773640B0EA75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277006   (787189) от 18.01.2019
-
-Angel Delacruz | Светлые Боги (2019) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Магия и физика на перекрестках миров; кровь и вино во дворцах и на аренах. Третья мировая как предтеча первой войны кланов беспринципной новой знати и хищной старой аристократии.
-Молодые боги пришли в этот мир, чтобы взять все. Но на их пути встают хранители древних знаний, бесстрашные перед ликом дерзких владык.
-«Не нам, Господи…» - как и прежде, в разгорающемся (   Читать дальше...   )Жанр: Фантастика, Киберпанк, ЛитРПГФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6AA85F548FA693EE9255B02629FC996CD129DB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

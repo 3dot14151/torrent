@@ -1,3 +1,226 @@
+###  Публикация: 1668101   (175268) от 10.10.2023
+
+Леонид Агутин и Саша Ли & 3333 — Последний трек (2023) WEBRip [H.264/1440p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175268.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Это последний трек о тебе. Я закрываю между нами дверь, но всё жду, чтоб ты постучала...»
+
+"Написали эту песню и пригласили меня группа «3333» и Саша Ли, который был моим подопечным в 10-м сезоне «Голоса». Рад, что такие музыканты появляются и жизнь продолжается, несмотря ни на что..."
+© Леонид АгутинЖанр: PopРежиссер: Алексей ЛогвинченкоПродолжительность: 00:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE36D67A435D354168FF70386B28ACAF510E0323
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668719   (173349) от 13.10.2023
+
+SHAMAN – «До самого неба» (2022) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173349.jpg" />
+</div>
+
+
+###  Подробнее
+
+27 мая 2022 года, состоялась премьера клипа на песню SHAMAN – "До самого неба".
+За год клип набрал около десяти миллионов просмотров на YouTube.Жанр: PopПродолжительность: 00:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98614D9C7355DDEA19B123CFBEF14D3EDF0702CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668870   (173177) от 14.10.2023
+
+NO/НЕТ – «Не со мной» (ЧАЙФ Cover) 2022 [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Екатеринбургский хор NO/НЕТ записал душевный необычный кавер на песню "Не со мной" группы "Чайф". О создании новой версии композиции рассказывает автор аранжировки Евгений Борисенко:
+"Нужна была песня не сильно заезженная, но из обоймы хитов. Поэтому моментально отпали почти все передовые песни, в том числе и потому, что они не женские или (   Читать дальше...   )Жанр: Cover, акапеллаПродолжительность: 00:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FB47D8F27AD1E0A923FB5E77D046581C1123CF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548714   (169851) от 27.10.2023
+
+Леонид Агутин - Сборник официальных видео (2022) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Леонид Агутин - советский и российский певец, композитор, музыкант, автор песен, аранжировщик, режиссёр, заслуженный артист РФ. Родился 16 июля 1968 года в Москве, в 1992 году получил высшее образование, окончив Московский государственный институт культуры по специальности "режиссер-постановщик театрально-массовых представлений".«Я занимаюсь поп-музыкой. (   Читать дальше...   )01 Леонид Агутин и Владимир Пресняков – ДНК - (Официальное видео)
+02 Леонид Агутин – Ты беспощадна / JONY cover - (Лирик видео)
+03 Леонид Агутин, Луис Энрике и Райко Би – Asi de lento - (Официальное видео)
+04 Леонид Агутин – Большое небо - (Официальное видео)(   Читать дальше...   )Жанр: PopПродолжительность: 01:58:14 (общая)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B1409A8EE8DE863CC51733E135B149910035432
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343545   (169408) от 11.12.2019
+
+Сборник клипов (2019) WEB-DLRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник зарубежных и отечественных видеоклипов за декабрь 201901_C-BooL - Silesia
+02_Haart feat. Люся Чеботина, Palagin - Испорть мне ночь
+03_Lindsey Stirling - We Three Gentlemen (Medley)
+04_Kid Ink - Rich(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 02:52:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B9F2B7D71C480C0AD1ECC397D5714D87717BF96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 449298   (165522) от 15.12.2020
+
+Сборник клипов - 18 эротических клипов (2008) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: VariousПродолжительность: ~00:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A829700102589C6ACF8A65D6B71AC9F080CDC48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345660   (165491) от 16.12.2019
+
+Сборник клипов 02 (2019) WEB-DLRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник зарубежных и отечественных видеоклипов за декабрь 201901_Don Diablo ft. Brando - Congratulations
+02_Salt Cathedral - CAVIAR
+03_Sunnery James & Ryan Marciano, Magnificence - Monster
+04_Maryana Ro - Загадай(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 03:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35829D05AD16DDB972F40B009EC817DA4F382FE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345862   (165059) от 17.12.2019
+
+АГОНЬ - По темным улицам (2019) WEB-DL [VP9/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот релиз должен был состоятся в 2011 году под брендом Quest Pistols, но выходит спустя 8 лет в составе группы АГОНЬ в то самое время, когда в музыкальном мире рефлексировать о прошлом модно.
+Сингл «По темным улицам» авторства группы «Босиком по солнцу» - ностальгический хит нулевых, который нашел отклик в сердцах тех, кто встретил свою юность в начале нового тысячелетия. (   Читать дальше...   )Производство: Secret Service Digital & Publishing LTDЖанр: Поп музыкаПродолжительность: 00:03:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4672524948EA012282520BC8DF071D5C84B0FAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346065   (164283) от 18.12.2019
 
 Полина Гагарина - Смотри (2019) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +229,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164283.jpg" />
 </div>
 
 
@@ -32,7 +255,7 @@ Lulu & the Luvvers - Shout (1964) TVRip [H.264/2160p] [Handmade Upscale AI]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160400.jpg" />
 </div>
 
 
@@ -58,7 +281,7 @@ IVE – «I Want» (2023) WEB-DL [H.264/2160p] [4K, SDR]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158901.jpg" />
 </div>
 
 
@@ -84,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158448.jpg" />
 </div>
 
 
@@ -110,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157545.jpg" />
 </div>
 
 
@@ -136,7 +359,7 @@ Top Of The Pops 70s (vol.2) (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157346.jpg" />
 </div>
 
 
@@ -165,7 +388,7 @@ Top Of The Pops 70s (vol.1) (2008) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157289.jpg" />
 </div>
 
 
@@ -194,7 +417,7 @@ IVE – «Off The Record» (2023) WEB-DL [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157090.jpg" />
 </div>
 
 
@@ -220,7 +443,7 @@ ABBA - The Winner Takes It All (1980) WEB-DL [H.264/720p] [PR]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156220.jpg" />
 </div>
 
 
@@ -246,7 +469,7 @@ VA - Зимний марафон № 213: Новогодний Хит Драйв
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155824.jpg" />
 </div>
 
 
@@ -275,7 +498,7 @@ George Michael & Wham! - Last Christmas (2019) WEB-DL [VP9/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155074.jpg" />
 </div>
 
 
@@ -303,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153164.jpg" />
 </div>
 
 
@@ -332,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152776.jpg" />
 </div>
 
 
@@ -358,7 +581,7 @@ VA - Зимний марафон № 214: Дискотека Уходящего 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152540.jpg" />
 </div>
 
 
@@ -387,7 +610,7 @@ Top Of The Pops 70s (vol.3) (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152049.jpg" />
 </div>
 
 
@@ -416,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149098.jpg" />
 </div>
 
 
@@ -445,7 +668,7 @@ JO - Soapte (2015) WEB-DL [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148699.jpg" />
 </div>
 
 
@@ -471,7 +694,7 @@ VA - Зимний марафон № 215: Новогоднее Веселье (2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148345.jpg" />
 </div>
 
 
@@ -486,229 +709,6 @@ VA - Зимний марафон № 215: Новогоднее Веселье (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E85FEA54984787CFCF455FC5976F77CD24B54BAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 739055   (147959) от 27.12.2013
-
-Сборник клипов - VA - Various Music part. 49 (2013) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147959.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ahmed Chawki feat. Pitbull and Mandinga - Habibi I Love You 1080p (3:52)
-2. Antonia - Marabou (Madalin Sichitiu Remix Edit) (VJ Tony Video Edit) 1080p (3:25)
-3. Bad Girl Takeover (ft. DJ Khaled & Meek Mill) 1080p (3:36)
-4. BASTO - Live @ Starfloor 2013 (Paris) 1080p (13:42)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~04:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04586E8E76383A6B42E701B5DA8F4B1194E65A20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015394   (147953) от 24.12.2018
-
-Нюша - Сборник видеоклипов (2009-2018) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147953.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Больно
-2.  Вою на луну
-3.  Выбирать чудо
-4.  Выше(   Читать дальше...   )Производство: РоссияЖанр: Музыка, клипыПеревод: ОтсутствуетСубтитры: нетПродолжительность: 00:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD4D529935C109F27D31959E3BF05CBEB044CF08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589457   (147922) от 15.12.2012
-
-Rammstein - Mein Herz Brennt  (2012) WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rammstein - Mein Herz brennt. Второй официальный клип.Жанр: IndustrialРежиссер: Zoran BihaćАктеры: Тилль Линдеманн, Рихард Круспе, Пауль Ландерс, Оливер Ридель, Кристоф Шнайдер, Кристиан Лоренц.Перевод: ОтсутствуетПродолжительность: 00:05:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7291FF77D0738F7BE7343FA30577AFFEF1D1656
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 739052   (145936) от 28.12.2013
-
-Pink - The Truth About Love Tour (Live From Melbourne) (2013) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145936.jpg" />
-</div>
-
-
-###  Подробнее
-
-С 13 февраля Pink отправилась в новое мировое турне в поддержку своего альбома The Truth About Love. Турне называется The Truth About Love Tour.1. Raise Your Glass
-2. Walk Of Shame
-3. Just Like A Pill
-4. U + UR Hand(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4205CEA4EABD4888BB3289D904BC541D70C2DF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347593   (143520) от 28.12.2019
-
-Decrepit Birth - Epigenetic Triplicty (360° Visualizer) (2017) WEB-DL [H.264/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143520.jpg" />
-</div>
-
-
-###  Подробнее
-
-360° Visualizer Music VideoЖанр: Technical Death MetalПродолжительность: 00:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BF1FE95DBFD7983A1F5152D72B6AF3D7AA74E0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348271   (143253) от 28.12.2019
-
-Ice Nine Kills - Music Videos 9X (2015-2019) WEB-DL [H.264/VP9/720p/1080p/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143253.jpg" />
-</div>
-
-
-###  Подробнее
-
-2015 Ice Nine Kills - Communion of the Cursed (1080p)
-2017 Ice Nine Kills - The People Under the Stairs [720p]
-2019 Ice Nine Kills - A Grave Mistake (2160p)
-2019 Ice Nine Kills - IT Is The End (feat. Less Than Jake, Fenix TX, JR Wasilewski, Buddy Schaub & Will Salazar) (1080p)(   Читать дальше...   )Жанр: Metalcore, Post-hardcoreПродолжительность: 01:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79A65E2F3D0B3922C294693C9C45B47A3180C839
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348423   (142579) от 28.12.2019
-
-Сборник клипов - Music 80s от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142579.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли самые хитовые клипы 80х. Позитивная и добрая музыка. Все вспомят себя много лет назад, кто то вспомнит детство, кто то юность и первую любовь, те кто постарше, молодость. Кружитесь в красивом танце с памятью. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK00. Muslc 80s 1 — Intro
-01. C.C. Catch — Strangers By Night
-02. Kaoma — Lambada
-03. A-ha — Take On Me(   Читать дальше...   )Жанр: PopПродолжительность: 02:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B3975971DE0642889C06C3B8BBACF44726113A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590862   (140438) от 18.12.2012
-
-tyDi feat. Christina Novelli - Fire & Load (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TranceПродолжительность: 00:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04DBB92569A3FD955DD4547CE8139CDC60941D72
 ```
 
 https://mybot314.ru/tekegram_catalog/

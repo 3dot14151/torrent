@@ -1,3 +1,55 @@
+###  Публикация: 1699161   (117992) от 12.02.2024
+
+С.И. Надененко | Антенны (1959) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая вниманию читателей книга предназначается в качестве учебного пособия по курсу антенн для студентов факультетов радиосвязи и радиовещания электротехнических институтов связи и радиотехнических факультетов высших учебных заведений.Жанр: ЭлектроникаИздательство: Государственное издательство литературы по вопросам связи и радиоФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4D432D5847C016AD0A1569EC152821ABA8BAB1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 714458   (117753) от 14.02.2024
+
+Е. Ф. Макаров, В. В. Дрозд | Справочник по электрическим сетям 0,4-35 кВ и 110-1150 кВ. 16 томов (1999 - 2015) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник предназначен для работников предприятий энергосистем, обслуживающих электросети 0,4-35 кВ, энергетиков промышленных предприятий и предприятий коммунальной энергетики, энергетиков сельскохозяйственного производства, студентов университетов и колледжей электротехнических специальностей, учащихся производственно-технических училищ электротехнического профиля, (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: Энергия, АльвисФормат: DJVUКачество: Хороший скан, с ч/б илл.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84D5BAC0391F82A97C7E54C7B126F24256BC0664
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699963   (117500) от 15.02.2024
 
 А.В. Белов | Микроконтроллеры AVR: от азов программирования до создания практических устройств (2-е изд.) (2020) [PDF]
@@ -6,7 +58,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117500.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117431.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117422.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117296.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116780.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115596.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114872.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114387.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109068.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ PHILEDS. Мощные светодиоды [2011] [PDF]
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102403.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101391.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100587.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100566.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100565.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88490.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87409.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86168.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85614.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85576.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81651.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80216.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ LG Electronics | Сборник схем и сервис-мануалов по �
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79913.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ BBK | Сборник схем и сервис-мануалов по ремонт
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79457.jpg" />
 </div>
 
 
@@ -625,7 +677,7 @@ Sony-Eriсsson | Sony-Eriсsson. Схемы и сервис-мануалы мо�
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79242.jpg" />
 </div>
 
 
@@ -636,59 +688,6 @@ Sony-Eriсsson. Схемы и сервис-мануалы мобильных т�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C48B01E3C0C27783C6A2E41A7EB0C0227BB2B0D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459366   (79228) от 29.02.2012
-
-Nokia, Samsung | Сервис мануалы мобильных телефонов Nokia и Samsung [2009] [PDF, txt] [Eng]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция сервис мануалов по ремонту мобильных телефонов Nokia и Samsung.
-если Samsung SGH-X495 service manual.pdf   запросит кодировку - Adobe Reader X Font Packs - Korean, она тут http://www.adobe.com/support/downloads/detail.jsp?ftpID=48822009Формат: PDF, txt
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93FEEDD2DF127EA3EC75F47FC9EE838318261126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785663   (69175) от 17.03.2025
-
-Capital Press | Коломенский завод. 160 лет труда, таланта, опыта... (2023) [DJVU, PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга "Коломенский завод. 160 лет труда, таланта, опыта..." посвящена истории одного из крупнейших машиностроительных предприятий России - Коломенского завода, который внес значительный вклад в развитие стратегически важных для государства отраслей, поставляя продукцию для железнодорожного транспорта, судостроения, малой энергетики, металлургии, военно-промышленного (   Читать дальше...   )Жанр: история техникиИздательство: Capital PressФормат: DJVU, PDFКачество: Обработанный скан + OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82BE846822BEFCDD5EE4B8FF6A5BE7BA4FD703AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

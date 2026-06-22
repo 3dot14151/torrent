@@ -1,3 +1,108 @@
+###  Публикация: 1669543   (172866) от 16.10.2023
+
+AYVY 1.22.2 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172866.jpg" />
+</div>
+
+
+###  Подробнее
+
+С AYVY вы, наконец, можете прекратить поиски красивой, простой, быстрой и удобной программы просмотра мультимедиа. Мы сделали все, что вам нужно.Тип издания: macOS SoftwareРелиз состоялся: 16.11.2022Разработчик: © 2022-2023 Sergiy LavrykПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB8C1AFC9133922B4AD1EB2DB1902FD225697F18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669433   (172854) от 16.10.2023
+
+Native SQLite Manager 1.26.3 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Native SQLite Manager — это удобный менеджер баз данных SQLite.Тип издания: macOS SoftwareРелиз состоялся: 15.10.2023Разработчик: © 2023 Krystian KołodziejПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E370DC19E1396BA2C70A6F05AD16FCB3F02792E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669422   (172839) от 16.10.2023
+
+Micro Snitch 1.6.1 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы когда-нибудь задумывались о том, что приложение записывает аудио через встроенный микрофон вашего Mac без вашего ведома? Или камера захватывает видео без веских оснований?
+С Micro Snitch больше нет сомнений. Это ультралегкое приложение в строке меню работает незаметно в фоновом режиме. Оно отслеживает и сообщает о любой активности микрофона и камеры, чтобы помочь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.09.2023Разработчик: © 2015 - 2023 Objective DevelopmentПоддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AF4150A2953766D44DDB090C435E3ABA023B843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669752   (172668) от 17.10.2023
+
+TechSmith Camtasia 2023 Studio 2023.3.1 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Camtasia for Mac — эффективное приложение для создания различных видеороликов: от наглядных презентаций до видеоуроков и демонстрационных слайдов для выступлений. Camtasia for Mac делает процесс создания и редактирования видео еще быстрее и удобнее. С новыми удобными программными инструментами время на производство роликов сокращается на 40-60%, а само видео имеет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.10.2023Разработчик: © 1995 - 2021 TechSmith CorporationПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:720A20C346E2333B1978F1B46E65A22B17199DBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669581   (172666) от 17.10.2023
 
 Magic Battery 8.1.0 [En]
@@ -6,7 +111,7 @@ Magic Battery 8.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172666.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ Imagenomic Realgrain for PS (Mac) 2.1.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172659.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ Scrivener 3.3.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172618.jpg" />
 </div>
 
 
@@ -86,7 +191,7 @@ Imagenomic Portraiture for Photoshop for PC 4.1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172564.jpg" />
 </div>
 
 
@@ -112,7 +217,7 @@ Adobe Illustrator for Mac 2024 v.28
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172545.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ BatchOutput DOC for Mac 2.6.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172521.jpg" />
 </div>
 
 
@@ -164,7 +269,7 @@ ScreenFloat-Better Screenshots 1.5.22 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172515.jpg" />
 </div>
 
 
@@ -192,7 +297,7 @@ Piezo 1.8.1 fc3 Beta [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172514.jpg" />
 </div>
 
 
@@ -220,7 +325,7 @@ Repix Pro 2.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172506.jpg" />
 </div>
 
 
@@ -246,7 +351,7 @@ HoudahSpot 6 v.6.4.1 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172502.jpg" />
 </div>
 
 
@@ -274,7 +379,7 @@ Tembo 3.1.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172501.jpg" />
 </div>
 
 
@@ -301,7 +406,7 @@ Texifier 1.9.23 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172496.jpg" />
 </div>
 
 
@@ -327,7 +432,7 @@ TurboCollage 7 v.7.2.10 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172495.jpg" />
 </div>
 
 
@@ -353,7 +458,7 @@ Storyist 4 v.4.3.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172492.jpg" />
 </div>
 
 
@@ -379,7 +484,7 @@ Widgetter - Desktop Widgets for Mac 1.16.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172483.jpg" />
 </div>
 
 
@@ -407,7 +512,7 @@ System Dashboard 4.9.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172482.jpg" />
 </div>
 
 
@@ -433,7 +538,7 @@ Duplicate Photos Fixer Pro 4.10 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172460.jpg" />
 </div>
 
 
@@ -460,7 +565,7 @@ Native Instruments Kontakt 7 v.7.6.1 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172459.jpg" />
 </div>
 
 
@@ -486,7 +591,7 @@ AnyMP4 iOS Cleaner 1.0.28 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172340.jpg" />
 </div>
 
 
@@ -512,7 +617,7 @@ One Switch 1.32 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172336.jpg" />
 </div>
 
 
@@ -538,7 +643,7 @@ Living Weather & Wallpapers HD 5.3.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172331.jpg" />
 </div>
 
 
@@ -564,7 +669,7 @@ Loopback 2.3.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172287.jpg" />
 </div>
 
 
@@ -576,113 +681,6 @@ Loopback 2.3.2 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0872C3692E744A69B22ECD8E4DC98B214B73E6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669980   (172274) от 19.10.2023
-
-RAR Extractor Max-Unzip File 12.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172274.jpg" />
-</div>
-
-
-###  Подробнее
-
-RAR Extractor Max унаследовал преимущества RAR Extractor Pro, разработчики переработали интерфейс и добавили более мощные функции.
-Поддержка разархивирования RAR, winmail.dat, ZIP, 7z, tbz, sti, tar, xar, lha, lzh, hqx, bin, bz2, bzip2, bz, xz, iso, cid, nrg, mdf, taz, lzma, exe, msi, cpio, lzx, jar, swf, xip, ace, arj, pak, pkg, apk, lbr, lqr, cab, rpm, cpt, sea, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2023Разработчик: © 2022 by Elimisoft.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F2D0D7DCC6ED70F3B342A54DC528AD1EBCFBF83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670223   (172236) от 19.10.2023
-
-CleanShot X 4.6.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172236.jpg" />
-</div>
-
-
-###  Подробнее
-
-CleanShot X предоставляет более 50 функций , что делает его идеальным инструментом для захвата экрана.
-Наш оверлей упрощает обмен информацией. Мгновенно сохраняйте, копируйте или перетаскивайте снимки экрана или записи экрана в другие приложения. Каким бы ни был ваш рабочий процесс, он подойдет.
-За считанные секунды выделите важные части скриншота с помощью нашего (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.10.2023Разработчик: © 2023 MTWПоддерживаемая ОС: macOS 10.14.4 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4224D78CEAE4252B0CDC3DE1B2BB9ACF6E0D89E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670321   (172146) от 20.10.2023
-
-SnippetsLab 2.3.3 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172146.jpg" />
-</div>
-
-
-###  Подробнее
-
-SnippetsLab — это простой в использовании менеджер фрагментов кода. Он позволяет вам структурировано и организованно хранить сниппеты (фрагменты кода), легко находить нужные, а также синхронизировать их между устройствами через iCloud. Интерфейс SnippetsLab минималистичен и улучшена совместимость с macOS Monterey.Тип издания: macOS SoftwareРелиз состоялся: 19.10.2023Разработчик: © 2015-2023 Renfei SongПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:873AA464FFB6596A48F1C3B54F37E5F383B54186
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670343   (172135) от 20.10.2023
-
-DockView 1.4 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172135.jpg" />
-</div>
-
-
-###  Подробнее
-
-DockView - это приложение, которое добавляет предварительный просмотр окон выбранного приложения в macOS Dock. Вам просто нужно подвести мышь к его значку, и появятся эскизы всех его окон. Нажав на нужный, вы сразу перейдете к нему. С помощью эскизов окон вы можете быстро закрывать и уменьшать окна, а также управлять ими.Тип издания: macOS SoftwareРелиз состоялся: 05.07.02023Разработчик: © 2023 MacPlus SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE1A03F8A933F99922C05E829F27BDA564543CEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

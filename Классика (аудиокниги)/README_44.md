@@ -1,3 +1,56 @@
+###  Публикация: 351018   (172206) от 19.10.2023
+
+Александр Грин | Психологические новеллы. Часть 1 (2007) [MP3, Борис Хасанов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Степанович Грин (1880–1932) – русский писатель, прозаик и поэт, представитель неоромантизма, автор философско-психологических произведений с элементами символической фантастики. Создатель вымышленной страны, которая благодаря критику К.Л. Зелинскому получила название «Гринландия». Один из самых талантливых, загадочных русских писателей первой половины XX (   Читать дальше...   )Жанр: Русская литература, классика, новеллаИздательство: Вира-МПродолжительность: 05:15:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8D7DC36575D891E2B17E3E21441F81F6F386321
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459544   (172205) от 19.10.2023
+
+Джек Лондон | Майкл, брат Джерри (2011) [MP3, Евгений Карпов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джек Лондон (1876–1916) был и остается одним из самых популярных иностранных писателей. Читатели любят его книги за их жизнеутверждающий оптимизм, за мужество и целеустремленность героев, за прославление в них героического начала в человеке.
+«Майкл, брат Джерри» – тяга к путешествиям, любознательность и огромное желание отыскать своего брата заставили ирландского (   Читать дальше...   )Жанр: Классика, повестьИздательство: ИДДКПродолжительность: 11:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F46E617FCBFDB73D0AAAB94301AE670C37FBC69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 463045   (172202) от 19.10.2023
 
 Александр Грин | Рассказы (1923–1925) Том 8. Шесть спичек (2008) [MP3, Илья Бобылёв, Виктория Серебрянская]
@@ -6,7 +59,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172202.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172198.jpg" />
 </div>
 
 
@@ -63,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172193.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172183.jpg" />
 </div>
 
 
@@ -117,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172022.jpg" />
 </div>
 
 
@@ -145,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172017.jpg" />
 </div>
 
 
@@ -174,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172015.jpg" />
 </div>
 
 
@@ -203,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172012.jpg" />
 </div>
 
 
@@ -229,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172009.jpg" />
 </div>
 
 
@@ -255,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172008.jpg" />
 </div>
 
 
@@ -284,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172006.jpg" />
 </div>
 
 
@@ -312,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172005.jpg" />
 </div>
 
 
@@ -341,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172004.jpg" />
 </div>
 
 
@@ -368,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172000.jpg" />
 </div>
 
 
@@ -394,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171997.jpg" />
 </div>
 
 
@@ -420,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171990.jpg" />
 </div>
 
 
@@ -447,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171932.jpg" />
 </div>
 
 
@@ -474,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171836.jpg" />
 </div>
 
 
@@ -501,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171829.jpg" />
 </div>
 
 
@@ -527,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171828.jpg" />
 </div>
 
 
@@ -556,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171824.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171822.jpg" />
 </div>
 
 
@@ -612,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171821.jpg" />
 </div>
 
 
@@ -641,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171819.jpg" />
 </div>
 
 
@@ -652,66 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:701B57FA99C2F804EF454A79BDB2E33B4B53F5E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 184869   (171808) от 21.10.2023
-
-Александр Куприн | Синяя звезда. Аудиоспектакль (2006) [MP3, Вячеслав Шалевич и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Театральный фонограф.
-Александр Иванович Куприн (1870–1938) – русский писатель, яркий представитель демократических и гуманистических традиций русской литературы, автор блестящих произведений, отражающих разные стороны русской жизни конца XIX – начала XX века.
-
-Мораль этой доброй, милой и очень трогательной сказки «Синяя звезда» Александра Куприна проста (   Читать дальше...   )Жанр: Русская литература, классика, сказкаИздательство: 1С-Паблишинг, VOX recordsПродолжительность: 00:47:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75CC3C74FFB2DE97A5C586F1E5911209A20C8D8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 354018   (171804) от 21.10.2023
-
-Афанасий Фет, Фёдор Тютчев | Стихотворения (2006) [MP3, Юрий Григорьев, Василий Куприянов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фёдор Иванович Тютчев (1803–1873) – государственный муж, поэт, чье творческое наследие является жемчужиной русской литературы XIX века. Душевные переживания, драматичная любовь нашли отражение в его удивительно лиричных стихотворных произведениях.
-
-Поэзия Афанасия Афанасьевича Фета (1820–1892) – ярчайший образец классической русской лирики XIX века. Его поэзия гармонично (   Читать дальше...   )Жанр: Русская литература, классика, поэзияИздательство: БиблиофоникаПродолжительность: 04:33:15
-1.	Пуская в свет мои мечты…
-2.	Ласточка
-3.	Хандра(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5A8842A4F9BB64114F2434B3317AFD342DD2158
 ```
 
 https://mybot314.ru/tekegram_catalog/

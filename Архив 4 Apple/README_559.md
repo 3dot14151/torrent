@@ -1,3 +1,56 @@
+###  Публикация: 1652135   (219029) от 10.08.2023
+
+Mactracker 7.12.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mactracker предоставляет подробную информацию о каждом компьютере Apple Macintosh когда-либо сделанных, в том числе таких элементов, как скорость процессора, памяти, оптических приводов, графических карт, поддерживаемых версий ОС, и расширения возможностей.
+Также имеется информация о ранних системах Apple, мышей Apple, клавиатурах, дисплеях, принтерах, сканерах, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.08.2023Разработчик: © 2001 - 2022 Ian PageПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F66B5F62156DD12350DF37CA6A8F2F3C3E92E552
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425726   (219016) от 22.11.2020
+
+Big Sur Cache Cleaner 16.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Big Sur Cache Cleaner - это отмеченный наградами инструмент общего назначения для macOS. BSCC упрощает обслуживание системы с помощью простого интерфейса для многих функций macOS. Как новички, так и опытные пользователи оценят мощный набор инструментов, который предоставляет BSCC. Big Sur Cache Cleaner - один из ведущих в мире инструментов для обслуживания, который (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Northern SoftworksПоддерживаемая ОС: macOS 10.4+ - macOS 11.0Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FE1EA0FD76089517167D64BA26F36408D6CEB9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652187   (219006) от 10.08.2023
 
 MacCleanse 12 v.12.4 [En]
@@ -6,7 +59,7 @@ MacCleanse 12 v.12.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_219006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219006.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ DjVu Reader Pro 2.6.0 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218985.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ Rhinoceros 7 v.7.32 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_218901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218901.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ Adobe Prelude 2020 v9.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218895.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ Boinx FotoMagico 5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218889.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ CloudMounter 1.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218809.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ FontDoctor 10.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218803.jpg" />
 </div>
 
 
@@ -195,7 +248,7 @@ PowerPhotos 2.4.3b5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_218802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218802.jpg" />
 </div>
 
 
@@ -223,7 +276,7 @@ Beamer 4 v.4.1.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_218784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218784.jpg" />
 </div>
 
 
@@ -251,7 +304,7 @@ Wondershare Filmora Х v10.1.1.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218722.jpg" />
 </div>
 
 
@@ -277,7 +330,7 @@ Battery Health 2 v1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218686.jpg" />
 </div>
 
 
@@ -305,7 +358,7 @@ TechSmith Snagit 2023.2.1 for Mac [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_218666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218666.jpg" />
 </div>
 
 
@@ -331,7 +384,7 @@ JetBrains RubyMine for Mac 2023.2 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_218648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218648.jpg" />
 </div>
 
 
@@ -357,7 +410,7 @@ TotalFinder 1.13.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218593.jpg" />
 </div>
 
 
@@ -385,7 +438,7 @@ FontLab 8 v.8.2.0.8620.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_218542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218542.jpg" />
 </div>
 
 
@@ -412,7 +465,7 @@ Adguard 1.5.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218541.jpg" />
 </div>
 
 
@@ -438,7 +491,7 @@ Rhinoceros 7 v7.1.20322 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_218292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218292.jpg" />
 </div>
 
 
@@ -466,7 +519,7 @@ Codepoint for Mac 1.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_218196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218196.jpg" />
 </div>
 
 
@@ -493,7 +546,7 @@ Dato 5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_218185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218185.jpg" />
 </div>
 
 
@@ -520,7 +573,7 @@ Boxy SVG 4.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_218177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218177.jpg" />
 </div>
 
 
@@ -546,7 +599,7 @@ Magic Disk Cleaner 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_218168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218168.jpg" />
 </div>
 
 
@@ -572,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_218161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218161.jpg" />
 </div>
 
 
@@ -598,7 +651,7 @@ Sip Pro 2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_218152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218152.jpg" />
 </div>
 
 
@@ -625,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_218131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218131.jpg" />
 </div>
 
 
@@ -636,62 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:526DBD9D66DC876259902F74CEF0A0194EF6862A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966674   (218129) от 18.12.2015
-
-Folder Designer 1.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_218129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Folder Designer  -  красивые пользовательские папки на вашем Mac
-Folder Designer - это простой способ, чтобы настроить папки на вашем Mac. Мы сделали это приложение идеально простым в использовании, так что каждый может придать папкам совершенно уникальный внешний вид.
-
-Возможности:(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 декабря 2015Разработчик: FIPLAB LtdПоддерживаемая ОС: OS X 10.8.4 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56DDB11E616E9E5283028F3D28638B2711F5064B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652396   (218123) от 11.08.2023
-
-Baking Soda for Mac 1.1.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_218123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Baking Soda — это расширение Safari, которое заменяет пользовательские видеопроигрыватели (кроме проигрывателя YouTube) минимальным тегом видео HTML.
-Baking Soda более проста, чем Vinegar 2.3.9Тип издания: macOS SoftwareРелиз состоялся: 24.09.2022Разработчик: © 2021-2022 And a DinosaurПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:935D0C748EEFF663D24C46CF21002097AB2FD353
 ```
 
 https://mybot314.ru/tekegram_catalog/

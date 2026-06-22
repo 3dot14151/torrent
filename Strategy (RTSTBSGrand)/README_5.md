@@ -1,3 +1,29 @@
+###  Публикация: 1018093   (757076) от 19.05.2016
+
+The Mims Beginning (2016) [En] (1.0.0.280) License CODEX
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757076.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Mims Beginning – стратегия в реальном времени, смешанная с симулятором бога, где вам предстоит взять на себя управление колонией Мимов. Мимы – это добродушные и забавные высокоразвитые существа, путешествующие по галактике в поисках подходящих для колонизации планет. Однажды их межгалактический корабль потерпел крушение, и наши маленькие колонизаторы были вынуждены (   Читать дальше...   )Тип издания: LicenseРазработчик: Squatting PenguinsЖанр: Strategy (God Sim, Real-time), 3DЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:965B19E2C05083A98C28E76AA6E42AC2CE673AE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395558   (753181) от 11.07.2020
 
 Endless Legend (2014) [Ru/Multi] (1.8.2/dlc) Repack xatab
@@ -6,7 +32,7 @@ Endless Legend (2014) [Ru/Multi] (1.8.2/dlc) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753181.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Ostalgie: The Berlin Wall (2018) [Ru/En] (1.0.6.c) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745765.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Star Trek: Starfleet Command III (2002) [En] (1.01.534_rdna_fix) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742018.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Star Trek: Armada (2000) [En] (1.2_rdna_fix) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742007.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Star Trek: Armada II (2001) [En] (1.1_rdna_fix) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742006.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Dawn of Andromeda (2017) [Ru/En/Ge] (1.096/dlc) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740531.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ The Feud: Wild West Tactics (2020) [En] (1.0) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735503.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Meridian: New World (2014) [Ru/Multi] (1.04) License PROPHET
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732389.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ War for the Overworld (2015) [Ru/Multi] (1.4.0f4/dlc) Repack R.G. Механик
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731266.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Meridian: New World (2014) [Ru/Multi] (1.04) Repack R.G. Механики
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730268.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Total War: Rome Remastered (2021) [Ru/Multi] (2.0.5) Repack Decepticon
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728316.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Sudden Strike 4 (2017) [Ru/Multi] (1.15/dlc) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727175.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ The Settlers: History Collection (2018) [Ru/Multi] UplayRip R.G. Origins
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720381.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.2.1/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718970.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Galactic Civilizations III / Galactic Civilizations 3 (2015) [En] (3.5/dlc) Lice
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712491.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Total War: Rome Remastered (2021) [Ru/Multi] (2.0.5/dlc) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712235.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Europa Universalis IV / Europa Universalis 4 (2013) [Ru/Multi] (1.30.3/dlc) Repa
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706831.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Endless Legend (2014) [Ru/Multi] (1.7.4/dlc) License PLAZA [Classic Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702844.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Hearts of Iron IV (2016) [Ru/Multi] (1.5.3/dlc) License CODEX [Field Marshal Edi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702016.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Crusader Kings II (2016) [Multi] (3.0.1.1/dlc) License CODEX [Imperial Collectio
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689683.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Sorcerer king (2015) [En] (1.50) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687958.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683602.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Oriental Empires (2017) [Ru/Multi] (1.0/dlc) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679828.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Antihero (2017) [Multi] (1.0.24/dlc) License GOG [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677780.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Sins of a Solar Empire: Rebellion (2012) [Ru/Multi] (1.94/dlc) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675744.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Sins of a Solar Empire: Rebellion (2012) [Ru/Multi] (1.94/dlc) License PLAZA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A72A1C457AB265546E880D5F08EF2C45693843CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218563   (673713) от 22.03.2019
-
-В тылу врага. Диверсанты 1-2-3-4 (2005-2008) [Ru] (1.29/1.32А/1.29/1.02) Unofficial
-
->>След.
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673713.jpg" />
-</div>
-
-
-###  Подробнее
-
-В тылу врага 2: Лис пустыни  — игра в жанре RTS, независимое дополнение к игре В тылу врага 2, разработанное компанией Best Way и изданное компанией 1C 20 февраля 2009 года. 1941 год. Итальянская армия терпит череду неудач в войне за господство над Северной Африкой. Осознавая слабость своих сил перед англичанами, Муссолини смиряет самолюбие и обращается за помощью (   Читать дальше...   )Тип издания: UnofficialРазработчик: Best WayЖанр: Add-on (Standalone), Strategy (Real-time, Tactical), 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:403B7B576BF31C6EBACE337B5FA719C536B36301
 ```
 
 https://mybot314.ru/tekegram_catalog/

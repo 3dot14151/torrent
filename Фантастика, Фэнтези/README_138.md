@@ -1,3 +1,85 @@
+###  Публикация: 1051910   (530792) от 12.09.2016
+
+Вячеслав Куликовский | В дни торжества сатаны (2016) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Укрывшись со своими приверженцами на неведомом острове, американский миллиардер наблюдает апокалиптическую картину охватившего мир коммунистического безумия, кровавых революций, бунтов, голода и нищеты. Но безмятежную жизнь островитян вскоре нарушает появление русской красавицы и ее загадочного брата…
+
+Антиутопия В. Куликовского «В дни торжества сатаны» продолжает (   Читать дальше...   )Жанр: Научная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4CD70A4956ED070F33624BF337A83A2C5AAB77C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051928   (530784) от 12.09.2016
+
+Александр Янтер и др. | Червь смерти. Метаморфозы олгой-хорхоя [Сборник] (2014) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530784.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли тексты, посвященные загадочному и смертоносному червю пустыни Гоби — олгой-хорхою. Среди них есть и научно-фантастические рассказы, и отчеты путешественников и исследователей — а также криптозоологические статьи и одна смелая научная мистификация…
+
+Второе издание книги дополнено новыми материалами и заметкой о влиянии И. Ефремова на формирование современных (   Читать дальше...   )Жанр: Научная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45DDB737A6AFDA13B6B20B5F86AC71C685DAC026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051974   (530781) от 12.09.2016
+
+Клод Фаррер | Дом Людей Живых (2015) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герою фантастического романа французского писателя Клода Фаррера (1876–1957) предстоит пережить роковое приключение в затерянном доме, где обитают зловещие «Люди Живые», и… побывать на собственных похоронах.Жанр: Ужасы, Научная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B541B59A47C5315E8010501414600834A14752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 533800   (530762) от 11.08.2012
 
 Анна Чащина | Бог со звезды [2012] [FB2]
@@ -6,7 +88,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530762.jpg" />
 </div>
 
 
@@ -36,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530692.jpg" />
 </div>
 
 
@@ -62,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530628.jpg" />
 </div>
 
 
@@ -90,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530613.jpg" />
 </div>
 
 
@@ -118,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530610.jpg" />
 </div>
 
 
@@ -144,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530515.jpg" />
 </div>
 
 
@@ -172,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530408.jpg" />
 </div>
 
 
@@ -200,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530205.jpg" />
 </div>
 
 
@@ -228,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529818.jpg" />
 </div>
 
 
@@ -254,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529626.jpg" />
 </div>
 
 
@@ -281,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529457.jpg" />
 </div>
 
 
@@ -309,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529456.jpg" />
 </div>
 
 
@@ -337,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529418.jpg" />
 </div>
 
 
@@ -363,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529136.jpg" />
 </div>
 
 
@@ -391,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528952.jpg" />
 </div>
 
 
@@ -419,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528924.jpg" />
 </div>
 
 
@@ -448,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528919.jpg" />
 </div>
 
 
@@ -476,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528913.jpg" />
 </div>
 
 
@@ -503,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528624.jpg" />
 </div>
 
 
@@ -530,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528538.jpg" />
 </div>
 
 
@@ -558,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528524.jpg" />
 </div>
 
 
@@ -586,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528504.jpg" />
 </div>
 
 
@@ -612,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528010.jpg" />
 </div>
 
 
@@ -626,89 +708,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F35996B285EBAF1655FF3E02B044D3E09CD389E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052544   (528001) от 14.09.2016
-
-Олег Бондарев | Кремль 2222. Строгино (2016) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман подцикла «Игорь и Громобой» из межавторского цикла «Кремль 2222».
-
-Молодой дружинник Игорь всегда хотел быть похож на своего названого брата Захара, который старше его на пять лет. Еще в детстве Захар спас юнца от неминуемой смерти, и с тех пор Игорь безуспешно пытается вернуть побратиму Долг Жизни. И вот, во время первого же рейда юному дружиннику выпадает (   Читать дальше...   )Жанр: Боевая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A6B4B110083B5DE49F486D9DE8E9CCF290DFCB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313251   (527996) от 07.07.2019
-
-Александр Башибузук | Эмигрант. Господин поручик (2019) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман цикла «Эмигрант».
-
-Что делать, когда просыпаешься и понимаешь, что не помнишь, кто ты такой? Вдобавок ко всему парочка громил собирается тебя убить, а все вокруг очень похоже на антураж черно-белого кино и оказывается Марселем образца тысяча девятьсот двадцатого года.
-Нашему современнику, волей случая оказавшемуся в теле офицера Русского экспедиционного (   Читать дальше...   )Жанр: Боевая фантастика, Историческая фантастика, ПопаданцыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:393FE741A6E28CA984391B6229A434E01C896784
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052676   (527910) от 14.09.2016
-
-Дуглас Престон | Богохульство (2016) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крупнейший в мире ускоритель частиц «Изабелла», спрятанный глубоко в недрах аризонской горы, создан для того, чтобы смоделировать Большой Взрыв и узнать, как зародилась Вселенная. Это самая дорогая в мире машина. Поможет ли она познать тайны бытия? Или же, как предрекают некоторые, породит черную дыру, которая поглотит землю? Или, как надрывно кричат телепроповедники, (   Читать дальше...   )Жанр: Детективная фантастика, Зарубежная фантастика, Зарубежные детективы, Научная фантастика, ТриллерыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:571606830809F19EA6B94488D9E526E32CBE5171
 ```
 
 https://mybot314.ru/tekegram_catalog/

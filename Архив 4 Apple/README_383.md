@@ -1,3 +1,31 @@
+###  Публикация: 1323457   (433683) от 05.09.2019
+
+Ulysses 17 (51691) CR2 [En/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ulysses — это лучшее приложение для писателей и редакторов. Удобный и понятный интерфейс, мощные возможности организации документов, прозрачная синхронизация и экспорт во все форматы делают его незаменимым инструментом для всех, кто работает с текстом на Маке, Айфоне и Айпаде.
+
+Ulysses разработан преимущественно для писателей, творчески работающих с текстом, создающих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19 августа 2019Разработчик: The Soulmen GbRПоддерживаемая ОС: OS X 10.11.0Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29BE2BBFC3A3DE6F275B3E599A6BE27486717AED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249553   (433613) от 24.09.2018
 
 Receipts 1.8.3 [En]
@@ -6,7 +34,7 @@ Receipts 1.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433613.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ Twitterrific 5 for Twitter 5.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433610.jpg" />
 </div>
 
 
@@ -62,7 +90,7 @@ Espresso 5.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433607.jpg" />
 </div>
 
 
@@ -89,7 +117,7 @@ PDF Squeezer 3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433606.jpg" />
 </div>
 
 
@@ -116,7 +144,7 @@ EtreCheck Pro 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433604.jpg" />
 </div>
 
 
@@ -144,7 +172,7 @@ App Tamer 2.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433600.jpg" />
 </div>
 
 
@@ -173,7 +201,7 @@ Acorn 6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433599.jpg" />
 </div>
 
 
@@ -201,7 +229,7 @@ Things 3.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433458.jpg" />
 </div>
 
 
@@ -229,7 +257,7 @@ EdgeView 2 v2.40 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433456.jpg" />
 </div>
 
 
@@ -255,7 +283,7 @@ Cloud Outliner 2 Pro: Outline your Ideas & Plans 2.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433453.jpg" />
 </div>
 
 
@@ -281,7 +309,7 @@ AnyTrans 4.7.2 (20151010) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433440.jpg" />
 </div>
 
 
@@ -308,7 +336,7 @@ GPG Suite 2018.4 (1.4.5) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433318.jpg" />
 </div>
 
 
@@ -334,7 +362,7 @@ QuarkXPress 2015 v11.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433268.jpg" />
 </div>
 
 
@@ -361,7 +389,7 @@ JRiver Media Center 24.0.53 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432980.jpg" />
 </div>
 
 
@@ -387,7 +415,7 @@ A Better Finder Rename 10.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432943.jpg" />
 </div>
 
 
@@ -414,7 +442,7 @@ Bartender 3 Beta v.3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432937.jpg" />
 </div>
 
 
@@ -441,7 +469,7 @@ MediaInfo 0.7.991 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432927.jpg" />
 </div>
 
 
@@ -469,7 +497,7 @@ Clipboard Manager 1.9.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432926.jpg" />
 </div>
 
 
@@ -498,7 +526,7 @@ Parallels Desktop for Mac Business Edition 11.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432784.jpg" />
 </div>
 
 
@@ -525,7 +553,7 @@ Forecast Bar - Weather, Radar and Alerts 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432760.jpg" />
 </div>
 
 
@@ -555,7 +583,7 @@ AnyTrans 6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432759.jpg" />
 </div>
 
 
@@ -582,7 +610,7 @@ Cookie 5.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432685.jpg" />
 </div>
 
 
@@ -611,7 +639,7 @@ Butler 4.1.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432533.jpg" />
 </div>
 
 
@@ -638,7 +666,7 @@ iExplorer 4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432469.jpg" />
 </div>
 
 
@@ -666,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432383.jpg" />
 </div>
 
 
@@ -679,35 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FBF862371AA1DE12F476763549D6B1DDB579F7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063695   (432382) от 17.10.2016
-
-Postico 1.0.10 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой, но мощный менеджер PostgreSQL баз данных для Mac
-Цель - сделать работу с базами данных PostgreSQL немного проще с помощью  коллекции интуитивно понятных инструментов в удобном интерфейсе. PostgreSQL является одним из самых мощных и комплексных систем управления базами данных, поэтому работать с ним не так просто, как может показаться.
-
-Postico - рациональный (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 октября 2016Разработчик: Jakob EggerПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28710B2DE8D1E8CD84D4BD315565372D94DDCC55
 ```
 
 https://mybot314.ru/tekegram_catalog/

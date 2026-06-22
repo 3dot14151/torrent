@@ -6,7 +6,7 @@ Richard "Groove" Holmes - On Basie's Bandstand (1966) Remaster, 2003, Prestige [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005840.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Ebonys - Sing About Life (1976) Remaster, 2012,  Reel Music [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005835.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Louis Trudel - Les Temps Etranges (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005465.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Naoki Suzuki & Eddie Higgins - Melodious Time (2007) Onken [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005121.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Oscar Peterson - Exclusively For My Friends The Lost Tapes (1965 - 1968) 1995, M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005118.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Jimmy Smith - Blue Note Sessions: The Complete February (1957) 3CD, 1994, Mosaic
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004762.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Konstantin Klashtorni - Groove Jazz n Chill #8 (2021) Chillaxing Jazz Kollektion
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004582.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Thurman Green - Dance Of The Night Creatures (1999) Mapleshade [WavPack|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004521.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Charles Aznavour & The Clayton-Hamilton Jazz Orchestra (2009) EMI [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004274.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Edgar Hayes And His Orchestra - 1938 - 1948 (1999) Classics [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004112.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Splashgirl - Doors. Keys. (2007) [FLAC|Lossless|tracks + .cue] <Dark Jazz, Conte
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003853.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Johnny Griffin & Eddie "Lockjaw" Davis - Four Classic Albums 1960 - 1961 (2018) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003848.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Fire! - The Hands (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Dark Jazz, Jazz Ro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003845.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Joel Fausto & Illusion Orchestra - Inside The Throat Of a Giant Insect (2019) [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003802.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Fraktale - Dharma Bums (2019) Live [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003601.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Oscar Peterson Trio - Ljubljana 1964 (1996) 2CD, Giants Of Jazz [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003598.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Oscar Peterson Trio - 1945 - 1950 (1997) Giants Of Jazz [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003340.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ The Oscar Peterson Trio - In Tokyo: Live At The Palace Hotel 1972 (2005) Columbi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003019.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Roland Keijser Quartet - Saxophone Valley (2000) Sittel [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002790.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Incognito - Tomorrow's New Dream (2019) [FLAC|Lossless|tracks + .cue] <Acid Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002753.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ The Oscar Peterson Trio - Stratford, Ontario, Canada, 1956 (1996) Giants Of Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002546.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002318.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ John Gary - Sings Cole Porter (1994) Audiophile Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002225.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ John Gary - The Essential John Gary (2001) RCA [FLAC|Lossless|tracks + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002003.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Eddie ''Lockjaw'' Davis - Four Classic Albums Plus 1952 - 1959 (2013) 2CD, Avid 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001695.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Thought Gang (David Lynch and Angelo Badalamenti) - Thought Gang (2018) [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001686.jpg" />
 </div>
 
 

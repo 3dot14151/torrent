@@ -1,3 +1,55 @@
+###  Публикация: 1133519   (694767) от 12.05.2017
+
+Moccasin (2017) [Ru/En] (1.0) Repack R.G. Механики
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ты веселый горный житель, ты гордый и сильный как скала, а также модный и стильный как Гуччи. Уничтожай всех кто встречается на твоем пути. Собирай красивую красную обувь, покупай крутое оружие и мочи всех вокруг. Красочный платформер с интересным сюжетом и неповторимой графикой.Тип издания: RepackРазработчик: YarGriЖанр: Action, Adventure, IndieЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADF5C5F190DE17DA7000F1DA563AA29AF366BE26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221570   (692797) от 25.04.2018
+
+The Swords of Ditto (2018) [Ru/Multi] (1.0.4.01-108) License PLAZA
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Swords of Ditto — незамысловатая игра в жанре Action RPG. Играя за разных персонажей, вы станете героем удивительных событий, сражаясь против коварной колдуньи Мормо! В этом красочном мире опасности таятся на каждом шагу; вам предстоит храбро сражаться в подземельях, улучшать своего героя в зачарованных деревнях и найти источник зла, оскверняющий остров! Доставайте (   Читать дальше...   )Тип издания: LicenseРазработчик: onebitbeyondЖанр: Adventure, Action, RPGЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF11896F2F320CDD89A356455AD7F25A31CA7216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133896   (692740) от 13.05.2017
 
 World to the West (2017) [Multi] (1.0.1) License CODEX
@@ -6,7 +58,7 @@ World to the West (2017) [Multi] (1.0.1) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692740.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ She Wants Me Dead (2016) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692114.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Bunny Bricks [En] (RePack) 1993 | Pilotus (RG Games)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690122.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ Rayman Origins [Ru/En/Multi8] (RePack/1.0.32504) 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689382.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ DRAGON BALL FighterZ (2018) [Ru/Multi] (1.14) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688138.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ Mighty No. 9 (2016) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688091.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ Broforce (2015) [En] (5399) Repack R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686671.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ Lost Orbit (2015) [Ru/Multi] (1.0) License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684840.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ Basingstoke (2018) [En] (82.1.4252018.84250) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684687.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ Lemma (2015) [Multi] (1.0) License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682704.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ Reservoir Dogs: Bloody Days (2017) [Ru/Multi] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682266.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ EMPORIUM (2017) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680638.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ DRAGON BALL FighterZ (2018) [Ru/Multi] (1.14) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680115.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ Distrust (2017) [Ru/Multi] (1.1.5.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680024.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ LEGO Star Wars: The Force Awakens (2016) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675699.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ Dangerous Dave Антология [En] (RePack) 1988-1993 | RG games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_674011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_674011.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ Bio Menace (1993) [En] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673828.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ Rayman Origins (RePack/1.0.32504.1.02) [Ru] 2012 l Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673747.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ Guitar Hero 3: Legends Of Rock / Guitar Hero 3. Легенды рока (2008) [
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673535.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ Judgment: Apocalypse Survival Simulation (2018) [Ru/Multi] (1.0.3965) License SK
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672945.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ Impact Winter (2017) [Ru/Multi] (1.0.2) Repack VseTop
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670522.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ Robot Wars: Arena of Destruction [Ru] (P) 2002
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_669865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_669865.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ Diggers 1 и Diggers 2: Extractors [En] (RePack) 1993-1995
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_665923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_665923.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ Zombie Rollerz: Pinball Heroes (2022) [Ru/Multi] (1.0.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665137.jpg" />
 </div>
 
 
@@ -622,58 +674,6 @@ Zombie Rollerz: Pinball Heroes - это сумасшедшая смесь кла
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB120A4F24948EA09DAED78158F5B935D21BEE37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138365   (663941) от 29.05.2017
-
-LEGO City Undercover (2017) [Ru/En] (1.0/upd4) Repack xatab
-
->>След.
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663941.jpg" />
-</div>
-
-
-###  Подробнее
-
-Присоединяйтесь к Чейзу! В игре LEGO® CITY Undercover вы примерите на себя роль Чейза Маккейна — офицера полиции, которому поручена операция под прикрытием по поиску преступника Рекса Фьюри. В совместном режиме для двух игроков можно исследовать открытый мир мегаполиса LEGO® City, состоящего из более чем 20 кварталов, в котором вас ждут расследования, угонщики, вождение (   Читать дальше...   )Тип издания: LicenseРазработчик: Traveller's TalesЖанр: Action, Arcade, 3D, 3rd Person, Open WorldЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59879C8B331EF935C5C2DDB594B2B77EC08A3810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138706   (662947) от 30.05.2017
-
-Dustoff Heli Rescue 2 (2017) [Ru/Multi] (21) License PLAZA
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662947.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Dustoff Heli Rescue 2 вы сможете: спасать заложников, которых удерживают в лагерях военнопленных. Принять участие в военных действиях в пустыне, лесах, шахтах, на болотах и фьордах. Строить мосты и радиовышки. Защищать дружественные грузовики и VIP-конвои до того, как враги настигнут и уничтожат их! Находить и возвращать украденный груз и технику обратно в штаб! (   Читать дальше...   )Тип издания: LicenseРазработчик: Invictus Games Ltd.Жанр: Action, Arcade, StrategyЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCAEF5A0B7A30270113880BD5D905DF16C06B3AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

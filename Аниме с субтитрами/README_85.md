@@ -1,3 +1,29 @@
+###  Публикация: 1579227   (338737) от 26.09.2022
+
+Yuusha, Yamemasu | I'm Quitting Heroing | Перестану быть героем [2022, TV, 12 эп. + 2 SP] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338737.jpg" />
+</div>
+
+
+###  Подробнее
+
+После спасения человечества герой Лео стал никому не нужен, он слишком силён для нового мира без войны, да и люди начали его бояться. И Лео вступил в армию Королевы Демонов, которую сам же и победил. Армия в плачевном состоянии: переработки личного состава, недостаток финансирования и другие проблемы. Но при помощи сил Лео ситуация начала улучшаться. Тогда же он (   Читать дальше...   )Производство: студия EMT Squared / EMTスクエアードЖанр: комедия, фэнтезиРежиссер: Нобута ЮПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11602CF15436EC4BC015CADD96B2F992750139A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564325   (338405) от 26.09.2022
 
 Extreme Hearts | Экстремальные сердца [2022, TV, 12 эп. + 13 SP] WEBRip 720p raw
@@ -6,7 +32,7 @@ Extreme Hearts | Экстремальные сердца [2022, TV, 12 эп. + 1
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338405.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Uchuu no Kishi Tekkaman Blade / Teknoman / Star Knight Tekkaman Blade / Косм
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337449.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Yawara! A Fashionable Judo Girl | Явара! [1989, TV, 124 из 124] BDRip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336473.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Nekopara: Koneko no Hi no Yakusoku | Кошачий рай: Обещания к�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336317.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Owari no Seraph: Kyuuketsuki Shahar | Seraph of the End: Vampire Shahar | Пос
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335665.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Gekijouban KanColle | Kantai Collection Movie | Fleet Girls Collection: Movie Se
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335196.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Gekijouban KanColle | Kantai Collection Movie | Fleet Girls Collection: Movie Se
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335187.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Ikoku Meiro no Croisee The Animation | Croisee in a Foreign Labyrinth: The Anima
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334446.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Gekijouban Sidonia no Kishi | Knights of Sidonia | Рыцари Сидонии (
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334099.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Night Head 2041 | Сумеречный разум 2041 [2021, TV, 12 эп.] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333217.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Senki Zesshou Symphogear XV / Последняя Песня Боевых При�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333089.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Yawara! Sore Yuke Koshinuke Kids!! | Yawara!: Go Get 'Em, Wimpy Kids!! | Ява�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332272.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ Yawara! A Fashionable Judo Girl | Явара! [1989, TV, 124 из 124] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332263.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ Yawara! Special: Zutto Kimi no Koto ga... | Yawara! Atlanta Special | Явара
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332259.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Saiki Kusuo no Sainan S1+S2 | The Disastrous Life of Saiki K. | Ох уж это
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332021.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Moonlight Mile 2nd Season - Touch down / Лунная миля 2 [2007, TV, 14] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331570.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Karakai Jouzu no Takagi-san 3 | Teasing Master Takagi-san 3 | Озорная Т�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329838.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ Summer Time Render / Summer Time Rendering / Летний рендер / Лет�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329536.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ Aoki Hagane no Arpeggio: Ars Nova | Arpeggio of Blue Steel | Мелодия во
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328898.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ Kingdom 4 / Царство [TB-4] [2022, TV, 26] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328593.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ Kanokon / Канокон [2008, ТВ, 12 серий + 12 sp] DVDrip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326926.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ One Piece 3D2Y: Ace no shi wo Koete! Luffy Nakama Tono Chikai | 3D2Y: Переж
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324409.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ Tomie | Томиэ [2018, Special, 2 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323164.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ Panda Kopanda: Amefuri Circus no Maki | Panda! Go, Panda!: Rainy Day Circus | Б
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322802.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ Panda Kopanda | Panda! Go, Panda! | Большая панда и маленьк�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322800.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ Panda Kopanda | Panda! Go, Panda! | Большая панда и маленьк�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE09660DBAE08AF93ACADB9219BA8E69989931FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318431   (322506) от 16.10.2019
-
-Machikado Mazoku | The Demon Girl Next Door | Городская дьяволица [2019, TV, 12] WebRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юко Ёсида, обычная 15-летняя девочка, проснувшись однажды утром, обнаруживает, что обладает демонической силой. И теперь ей надо победить местную девочку-волшебницу, только так она сможет снять проклятие «40 000 иен за один месяц жизни». Да, теперь у неё есть рога и хвост, но по правде говоря, её сила даже меньше, чем у обычной девочки.Производство: Студия J.C. StaffЖанр: повседневность, комедияРежиссер: Сакурай ХироакиПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0643A62C3F2A111C2CCB00C574F91DB4C396EFA9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,83 @@
+###  Публикация: 1094681   (929033) от 18.01.2017
+
+Сказание о динозаврах / Dinotasia (2012) WEB-DL [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Время - это не просто река, это целый безбрежный океан, который отделяет нас от прошлого. С помощью этого фильма зрители могут пересечь его и заглянуть туда, где не ступала нога человека. Миллионы лет назад не было ни поэтов, ни художников - только искусство выживания, единственное мастерство, которому в те времена можно было научиться... Один из самых наших любимых (   Читать дальше...   )Телекомпания: Flatiron Film CompanyЖанр: Документальный, анимация, динозавры, палеонтологияПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 01:22:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB1F66B543670666DD9CEA0FD6AE6EA2EE46CC9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986865   (928792) от 15.02.2016
+
+Техногеника. Саяно-Шушенская ГЭС (2016) HDTVRip [720p-LQ]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_928792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Техногеника — это серия документальных фильмов, каждый из которых посвящен одному из наиболее значимых для России и уникальных в мировом контексте памятников (или объектов) технического инженерного искусства, объектов, значение которых для развития нашей страны переоценивать невозможно, объектов, создание которых обогатило опыт всей человеческой цивилизации.
+Наш (   Читать дальше...   )Телекомпания: Discovery ChannelЖанр: ДокументальныйПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA0AFF88C8928D5A66F64B72151DFDDE98767845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987050   (927631) от 16.02.2016
+
+Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (Сезон 16, эпизод 01) [IdeaFilm]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927631.jpg" />
+</div>
+
+
+###  Подробнее
+
+"The Explosion Special"
+Насколько реальны киношные мифы о взрывах? Секретный агент МакГайвер спасает людей от взрыва почтового фургона заполнив его жидким бетоном. СВП (судно на воздушной подушке) безопасно проходит по минному полю. Смотрите в последнем сезоне!«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Профессиональный многоголосый - IdeaFilmСубтитры: ОтсутствуютПродолжительность: ~ 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE738706D8D9505361A01E5DB95BC7D02A6F56CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987049   (927599) от 16.02.2016
 
 Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (Сезон 16, эпизод 00) [IdeaFilm]
@@ -6,7 +86,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927599.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927538.jpg" />
 </div>
 
 
@@ -60,7 +140,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927439.jpg" />
 </div>
 
 
@@ -87,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926037.jpg" />
 </div>
 
 
@@ -113,7 +193,7 @@ Discovery: Один день в Освенциме / One Day In Auschwitz  (2015
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925811.jpg" />
 </div>
 
 
@@ -139,7 +219,7 @@ BBC. В поисках бессмертия / The Immortalist (2016) HDTV [H.264
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925322.jpg" />
 </div>
 
 
@@ -165,7 +245,7 @@ Discovery: Поиск пришельцев. Урожай пришельцев / 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924691.jpg" />
 </div>
 
 
@@ -191,7 +271,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924248.jpg" />
 </div>
 
 
@@ -218,7 +298,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924242.jpg" />
 </div>
 
 
@@ -245,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924180.jpg" />
 </div>
 
 
@@ -271,7 +351,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924079.jpg" />
 </div>
 
 
@@ -298,7 +378,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924006.jpg" />
 </div>
 
 
@@ -325,7 +405,7 @@ Discovery: Недружелюбная Вселенная ( Плохая Всел
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923674.jpg" />
 </div>
 
 
@@ -351,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922648.jpg" />
 </div>
 
 
@@ -378,7 +458,7 @@ Discovery: Техногеника. Кругобайкальская железн
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922432.jpg" />
 </div>
 
 
@@ -404,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922316.jpg" />
 </div>
 
 
@@ -430,7 +510,7 @@ Discovery:Разрушители легенд. В погоне за ураган
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922293.jpg" />
 </div>
 
 
@@ -458,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922205.jpg" />
 </div>
 
 
@@ -484,7 +564,7 @@ DV: Занимательно обо всем. [выпуски 54-61] / C'est pas
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922181.jpg" />
 </div>
 
 
@@ -510,7 +590,7 @@ NG. Cуперпрайд (Львиные страсти) / Superpride (2007) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920928.jpg" />
 </div>
 
 
@@ -538,7 +618,7 @@ Animal Planet: Рууд и его жуки. Жуки-трюкачи / Buggin wit
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920229.jpg" />
 </div>
 
 
@@ -565,7 +645,7 @@ Discovery: Загадки всемирной истории: Внутри бун
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920192.jpg" />
 </div>
 
 
@@ -591,7 +671,7 @@ Discovery: Недружелюбная Вселенная. Нападение п�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920178.jpg" />
 </div>
 
 
@@ -602,84 +682,6 @@ Discovery: Недружелюбная Вселенная. Нападение п�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23D61A3ED79D70219D1732D194C6C6D8F62C7D1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288307   (919879) от 30.01.2011
-
-Discovery: Американский Чоппер / American Chopper [Season 6] (2009) SATRip
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм-шоу о семейном бизнесе семьи Тейтулов - строительство мотоциклов на заказ.Жанр: ТелепередачаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096198   (919022) от 24.01.2017
-
-Яд. Достижение эволюции / Poison, an evolutionary mystery (2015) SATRip (1-3 серии из 3)
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Существуют различные факторы, которые влияют на развитие жизни на Земле: изменение в окружающей среде, паразиты, пищевой, естественные враги, климат и многие другие бесчисленные факторы. Среди многих эволюционных черт, которые развились у животных и растений, есть очень необычная способность производить яд. В этом документальном сериале мы посетим пустыни, тропические (   Читать дальше...   )Телекомпания: Южная Корея. Educational Broadcasting SystemЖанр: Документальный, фауна, флораРежиссер: Пак Сон УнПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 3 х ~00:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25CC0E4BD2AF0F9CE9BE880AFC79F5BB4419412
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 178782   (918813) от 01.03.2010
-
-NG: Суперсооружения. Пальмовые острова в Дубае / Megastructures. Palm Islands (2006) HDTV [720p]
-
->>Зарубежные TV-бренды
->>Мега-Проекты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пальмовый остров Джумейра,такой большой,что его видно из космоса.Он построен только из песка и камня.Жанр: ТелепередачаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

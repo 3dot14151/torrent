@@ -1,3 +1,55 @@
+###  Публикация: 1513583   (223953) от 29.11.2021
+
+The Unarchiver - Unzip RAR ZIP 3.2.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unarchiver - Unzip RAR ZIP - простое в использовании приложение, которое позволяет распаковывать десятки форматов архивов, такие как: Rar, Zip, 7z, Tar, Xz, Iso, Lha, bz2, Lzh, cab, cpio, jar, exe, pkg, dms, tbz, swf, Gzip, Bzip2. Также может сжимать и шифровать любые типы файлов, чтобы сделать личные данные более безопасными.Тип издания: macOS SoftwareРелиз состоялся: 29.11.2021Разработчик: qing qing yuПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:906F9682B7B1E468221FB5B7F1DAFBA6DCE977F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425142   (223936) от 19.11.2020
+
+Apple Remote Desktop 3.9.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Apple Remote Desktop – лучший инструмент для управления компьютерами Mac в сети, распространения программного обеспечения, предоставления поддержки пользователям в режиме реального времени, создания подробных отчетов о программном и аппаратном обеспечении, а также автоматизации ИТ-процессов – прямо с Вашего рабочего места.Тип издания: macOS SoftwareРелиз состоялся: 17.11.2020Разработчик: Apple Inc.Поддерживаемая ОС: macOS 11.0Язык интерфейса: Английский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AECBC95B221BD794640EBD8A31223B4575AC77D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268873   (223934) от 12.12.2018
 
 MediaInfo 18.12 [Multi/Ru]
@@ -6,7 +58,7 @@ MediaInfo 18.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223934.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Alfred 4 Powerpack 4.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223886.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ JetBrains GoLand for Mac 2023.2 Intel/ARM  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223864.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ NoteBurner iTunes DRM Audio Converter 2.4.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223837.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ DjVu Reader Pro 2.5.9 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223821.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ System Toolkit 4.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223787.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Vinegar 1.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223749.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ MacPilot 8.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223727.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ Focusplan Pro - Mind Map 1.6.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223670.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ ABBYY Lingvo Dictionary для Mac 1.10.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223613.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ Data Guardian 7 v.7.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223610.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ GraphicConverter for Mac 12.0.4 Beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223601.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ Dato 5.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223591.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223566.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ Wondershare Recoverit 10.0.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223556.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ ACDSee Photo Studio 7 v7.0.1840 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223544.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ Movist Pro 2.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223541.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ Folder-Factory 7.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223519.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ CADintosh X 8.8.5 Beta [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223441.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ Wondershare UniConverter for Mac 15.0.1 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223356.jpg" />
 </div>
 
 
@@ -541,7 +593,7 @@ MAMP & MAMP PRO 3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223324.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ Swish 1.10.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223277.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ Proxifier for Mac 3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223234.jpg" />
 </div>
 
 
@@ -619,7 +671,7 @@ Tenorshare iCareFone for WhatsApp Transfer 2.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223208.jpg" />
 </div>
 
 
@@ -633,60 +685,6 @@ Tenorshare iCareFone for WhatsApp Transfer 2.2.0 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7B4A59FBB601516BE67870A07E1339A07FF885D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425070   (223131) от 19.11.2020
-
-Red Giant Magic Bullet Suite 14.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Magic Bullet Suite представляет собой набор из семи инструментов финальной редакторской обработки, используемые для профессиональной цветокоррекции, улучшения и производства фильмов в Adobe After Effects, Adobe Premiere Pro, Apple Final Cut Pro X, Apple Motion, Davinci Resolve и Avid Media Composer.Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Red Giant LLCПоддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A289BAE25BDCCF1E507ACAB783C3F815A3944D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342620   (222895) от 03.12.2019
-
-GrandTotal 6 v6.0.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222895.jpg" />
-</div>
-
-
-###  Подробнее
-
-GrandTotal представляет собой приложение для создания счетов-фактур и оценки, основанные на ваших собственных шаблонах.
-Встроенный редактор шаблонов позволяет настроить макет, чтобы соответствовать корпоративному дизайну Вашей компании.
-GrandTotal прекрасно работает в сочетании с TimeLog.Тип издания: macOS SoftwareРелиз состоялся: 02.12.2019Разработчик: Media AtelierПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DF0FDE4FFDDBF8ADB7E6E66E60FDE423A54617B
 ```
 
 https://mybot314.ru/tekegram_catalog/

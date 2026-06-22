@@ -1,3 +1,58 @@
+###  Публикация: 466836   (96509) от 13.03.2012
+
+Настоящие Афeристы Выпуск 2 (2012) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_96509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наши эксперты рассказывают, как избежать самых невероятных видов мошенничества. Ответственного за доставку обманом заставляют расстаться с развозным товаром.Жанр: ТелепередачаПродолжительность: 00:22:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48C16783D8C5C5E0542A07838333A2DA5F0BA084
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465625   (96235) от 10.03.2012
+
+Украина чудес / Україна чудес, Выпуск 7-9 (2012) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Съемки проекта "Украина чудес" - это 52 человека съемочной группы, 5 камер, один кран, более 420 часов съемок, более 5 километров электрического кабеля и целая тонна "волшебного" реквизита.
+Главный продюсер Нового канала Дмитрий Царенко:
+- Эти ребята перевернут наше с вами представление о законах природы, роздвинуть границы реального мира и мира магии. Они оставят зрителей в состоянии полного недоумения: "Как, разве такое возможно?" Этот проект уникален. К нам еще никто не делал ничего подобного. Это симбиоз программ о путешествиях и грандиозных магических шоу лучших иллюзионистов мира. Через призму своего магического дара брать Сафронова расскажут легенды девяти городов Украины.
+Съемки шоу "Украина чудес" пройдут в девяти городах страны: Черновцы, Каменец-Подольский, Львов, Одесса, Ялта, Севастополь, Харьков, Донецк и Киев. Гуляя по городам, иллюзионисты буквально на всех углах будут делать маленькие чудеса, поражая прохожих. Жители городов станут не только свидетелями, (   Читать дальше...   )Жанр: ТелепередачаПродолжительность: 02:08:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:835B0B611A49E6A84B9452B94F2DDFF049917DF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 488084   (90637) от 25.04.2012
 
 Среда обитания - То, что доктор прописал (2012) SATRip
@@ -6,7 +61,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90637.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90596.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90308.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89162.jpg" />
 </div>
 
 
@@ -110,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88553.jpg" />
 </div>
 
 
@@ -136,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86838.jpg" />
 </div>
 
 
@@ -162,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86592.jpg" />
 </div>
 
 
@@ -190,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86082.jpg" />
 </div>
 
 
@@ -220,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85259.jpg" />
 </div>
 
 
@@ -246,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84881.jpg" />
 </div>
 
 
@@ -272,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84750.jpg" />
 </div>
 
 
@@ -298,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84667.jpg" />
 </div>
 
 
@@ -324,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84451.jpg" />
 </div>
 
 
@@ -350,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84441.jpg" />
 </div>
 
 
@@ -376,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84022.jpg" />
 </div>
 
 
@@ -406,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83823.jpg" />
 </div>
 
 
@@ -432,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83632.jpg" />
 </div>
 
 
@@ -458,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83244.jpg" />
 </div>
 
 
@@ -484,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83206.jpg" />
 </div>
 
 
@@ -510,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83071.jpg" />
 </div>
 
 
@@ -536,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83009.jpg" />
 </div>
 
 
@@ -562,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82906.jpg" />
 </div>
 
 
@@ -588,7 +643,7 @@ Playboy: разденьте девушку / Undress a Woman (10.03.2012) SATRip
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81510.jpg" />
 </div>
 
 
@@ -614,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_81157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_81157.jpg" />
 </div>
 
 
@@ -625,58 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97BDE0770ECBBF9E57D957F7F35A774235D0495F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463089   (80253) от 05.03.2012
-
-Playboy: разденьте девушку / Undress a Woman (04.03.2012) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шоу скандального нью-йоркского фотографа Эндрю Эйнхорна. Он ищет новых моделей для своей эротической фото-книги  среди обычных прохожих на улицах. Эйнхорн просто предлагает красивым девушкам сняться обнаженными. И многие соглашаются.... Все это время за ним следует оператор, готовый заснять каждое движение мэтра. Результаты трудов знаменитого фотографа можно увидеть в новом откровенном эротическом шоу на МУЗе.Жанр: Телепередача, эротикаПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 00:25:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00695029AF3E56D24AC05BB3584179D3A2EB038C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462264   (80046) от 04.03.2012
-
-Playboy: разденьте девушку / Undress a Woman (03.03.2012) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шоу скандального нью-йоркского фотографа Эндрю Эйнхорна. Он ищет новых моделей для своей эротической фото-книги  среди обычных прохожих на улицах. Эйнхорн просто предлагает красивым девушкам сняться обнаженными. И многие соглашаются.... Все это время за ним следует оператор, готовый заснять каждое движение мэтра. Результаты трудов знаменитого фотографа можно увидеть в новом откровенном эротическом шоу на МУЗе.Жанр: Телепередача, эротикаПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 00:25:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D1647DBB0BCE1A3214316A31A3E5A1AB3F8C3A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ The New Topnotes - Where Do We Go From Here? (1978) LP [MP3|320 Kbps] <Disco, Fu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210996.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Italo Club Mixes 2023 (2022) CD, Compilation [MP3|320 Kbps] <Italo-Dance, E
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192861.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Keep It Disco Vol. 05 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funk
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192125.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Blue System - Here I Am (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191816.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Blue System - Body To Body (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191809.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Blue System - X - Ten (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191644.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Blue System - Forever Blue (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191643.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Blue System - Backstreet Dreams (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro H
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191410.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Blue System - Hello America (1992) [OGG Vorbis|480 Kbps] <Electronic, Euro House
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191409.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Blue System - 21st Century (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191394.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Blue System - Seeds Of Heaven (1991) [OGG Vorbis|480 Kbps] <Electronic, Euro Hou
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191392.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Blue System - When You Are Lonely (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191105.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Blue System - 40 Jahre ZDF Hitparade (2009) [OGG Vorbis|480 Kbps] <Electronic, E
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_190873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190873.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Blue System - Greatest Hits (2009) [OGG Vorbis|480 Kbps] <Electronic, Euro House
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190331.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Blue System - The History Of Blue System (2009) 2 CD [OGG Vorbis|480 Kbps] <Elec
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190306.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Laser Cowboys - Radioactivity (1986) Remastered, Unofficial Release, 2018, V
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190282.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Grand Prix 80's (2010) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190070.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Italo 2000 - Italo Dance Classics Vol. 3 (1998) 2 CD [OGG Vorbis|480 Kbps] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189261.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Italo 2000 - Italo Dance Classics Vol. 2 (1998) 2 CD [OGG Vorbis|480 Kbps] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189234.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Italo 2000 - Italo Dance Classics Vol. 1 (1998) 2CD [OGG Vorbis|480 Kbps] <
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189185.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ C.C. Catch - Strangers By Night (1988) [OGG Vorbis|480 Kbps] <Electronic, Disco,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189124.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Giampiero Boneschi - Unusual Beat Sounds Fantasy (1979) LP [MP3|320 Kbps] <Elect
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188251.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - 80's Revolution - Disco Pop Volume 02 (2012) 2 CD [OGG Vorbis|480 Kbps] <El
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188217.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Triangolo - Triangolo (1979) LP [MP3|320 Kbps] <Electronic, Space Rock, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188053.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ C.C. Catch - Hear What I Say (1989) [OGG Vorbis|480 Kbps] <Electronic, Disco, Sy
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187817.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ C.C. Catch - Super Disco Hits (1989) [OGG Vorbis|480 Kbps] <Electronic, Disco, S
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187814.jpg" />
 </div>
 
 

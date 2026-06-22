@@ -1,3 +1,57 @@
+###  Публикация: 1640016   (232516) от 15.06.2023
+
+Athentech Perfectly Clear Video for Mac 4.5.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя возможности использования улучшенного Perfectly Clear’s AI Automatic Video Enhancement в своем бизнесе. Эта технология автоматического улучшения видео на основе искусственного интеллекта произвела революцию в отрасли, используйте ИИ для повышения качества вашего видео кадр за кадром.
+Если вы собираетесь улучшать видео с помощью Perfectly Clear’s (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.06.2023Разработчик: © 2022 EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF37259951D9AE8C14290FE3453B63C920E3D98D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608808   (232512) от 01.02.2023
+
+Find Any File (FAF) 2.4b3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Find Any File - утилита для быстрого поиска любого файла на вашем Mac
+Find Any File не содержит никаких подменю с настройками, быстро справляется с задачей и удобна в использовании. Все что нужно - написать ключевое слово (или слова) в окне поиска без предварительных настроек меню. Но если вам необходимо усложнить поиск, то Find Any File имеет множество подменю делающих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.01.2023Разработчик: © 2005-2021 Thomas TempelmannПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:609B2188D718F622D4AB0D5201975FA12262A66A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643576   (232510) от 02.07.2023
 
 Athentech Perfectly Clear WorkBench for Mac 4.5.0 [Multi/Ru]
@@ -6,7 +60,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232510.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ iStat Menus 6 v.6.70 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232489.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ Artstudio Pro 5.1.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232477.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ Multitrack Editor: Beat Mixer 1.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232437.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ CloudMounter 4.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232407.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ djay - DJ App & AI Mixer 4.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232397.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ Marked 2 - Markdown Preview 2.6.25 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232386.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ Omni Toolbox 1.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232353.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ SyncBird Pro 4.0.1[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232346.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ CheckBook Pro 2.7.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232339.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ Omni Recover 3.5.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232332.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ Timer RH PRO  2.11.2 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232324.jpg" />
 </div>
 
 
@@ -323,7 +377,7 @@ Downie 4.6.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232310.jpg" />
 </div>
 
 
@@ -351,7 +405,7 @@ RightFont 8.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232309.jpg" />
 </div>
 
 
@@ -378,7 +432,7 @@ GraphicConverter for Mac 12.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232276.jpg" />
 </div>
 
 
@@ -404,7 +458,7 @@ ImageRanger Pro Edition 1.9.3.1857 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232234.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ Dropshare 5.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232219.jpg" />
 </div>
 
 
@@ -457,7 +511,7 @@ NCH MixPad Masters 10.34 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232197.jpg" />
 </div>
 
 
@@ -483,7 +537,7 @@ URL Manager Pro 6.2 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232195.jpg" />
 </div>
 
 
@@ -511,7 +565,7 @@ EdgeView 4.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232188.jpg" />
 </div>
 
 
@@ -537,7 +591,7 @@ Privatus 6.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232153.jpg" />
 </div>
 
 
@@ -563,7 +617,7 @@ Blocs 5.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232132.jpg" />
 </div>
 
 
@@ -590,7 +644,7 @@ YT Saver Video Downloader & Converter for Mac 6.9.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232125.jpg" />
 </div>
 
 
@@ -616,7 +670,7 @@ PullTube 1.8.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232106.jpg" />
 </div>
 
 
@@ -627,59 +681,6 @@ PullTube 1.8.5.4 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C66DA8F585FDEF2C0851123BAE50553B00C04551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642984   (232066) от 29.06.2023
-
-Texifier 1.9.21 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Texifier — это редактор LaTeX, предназначенный для простой навигации, редактирования и верстки проектов любого размера. Откройте корневой файл LaTeX, и Texifier просканирует его, откроет все файлы, на которые есть ссылки, извлечет структуру документа для отображения в представлении схемы и настроит наборщик в соответствии с пакетами и инструментами, используемыми (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.06.2023Разработчик: © 2011-2023 Valletta Ventures (UK) Ltd.Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48C8C670395184ED220CF68CF4316F8FEE16823B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623508   (232050) от 01.04.2023
-
-Athentech Perfectly Clear WorkBench for Mac 4.4.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Athentech Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.04.2023Разработчик: © 2022 EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1C23D41390884395667C9C0594496130A9A704E
 ```
 
 https://mybot314.ru/tekegram_catalog/

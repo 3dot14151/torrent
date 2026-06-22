@@ -1,3 +1,107 @@
+###  Публикация: 1603018   (1045784) от 08.01.2023
+
+X-Blades HD (2022) [Ru/Multi] (1.0) License GOG [Gold]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045784.jpg" />
+</div>
+
+
+###  Подробнее
+
+X-Blades подарит фанатам аниме оригинальное приключение, в котором вы будете играть за милую героиню Аюми. Она умеет захватывающе управлять двумя "ганблэйдами" - оружием, которое используется как в ближнем, так и дальнем бою. В мире видеоигры существуют две противоборствующие силы – Тёмные и Светлые. Но произошёл инцидент, благодаря которому обе стороны (   Читать дальше...   )Тип издания: LicenseРазработчик: Gaijin EntertainmentЖанр: Экшны, От третьего лица, ФэнтeзиЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C35C01FA1B475F082B50E0376386E7608AAF17DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277730   (1045617) от 10.01.2023
+
+Lara Croft Tomb Raider Trilogy (2006-2008) [Ru/Multi] Repack R.G Catalyst
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045617.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новой части сверхпопулярной игровой серии грациозная и смертоносная героиня вновь отправится в путешествие по всему миру, исследует заброшенные столетиями храмы и сразится с коварными и опасными врагами. Поклонников ожидают многочисленные новинки игрового процесса, который стал еще увлекательнее!Тип издания: RepackРазработчик: Crystal DynamicsЖанр: Action (Shooter), 3D, 3rd Person, AdventureЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A31C39E54ED379D90C6B0D4DA06B1350DAC4F785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609533   (1043196) от 03.02.2023
+
+CRISIS CORE –FINAL FANTASY VII– REUNION (2022) [Multi] (1.0) License FLT
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главным героем игры является юный воин Зак Фэйр. Им восхищается будущий спаситель мира, его уважают герои легенд и любит девушка, держащая в своих руках судьбу планеты. История о мечте и чести Зака во всех подробностях рассказана в этой великолепной саге, далеко выходящей за рамки простого переиздания.Тип издания: LicenseРазработчик: Square Enix, TOSE CO., LTD.Жанр: Action, RPGЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Французский, Немецкий, Итальянский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8E65FC0F9F2320E6D510434111E82E6DC4529D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438060   (1041245) от 07.01.2021
+
+Devil May Cry 5 (2019) [Ru/En] (1.0.0.1.05962864/dlc) Repack xatab [Deluxe Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучший охотник на демонов возвращается в новом стильном боевике. В пятой части легендарной серии Devil May Cry вы вновь сможете насладиться сверхскоростными сражениями с участием невероятных персонажей. Новейшие технологии компьютерной графики позволили Capcom создать этот непревзойденный шедевр жанра экшен.Тип издания: RepackРазработчик: CAPCOMЖанр: Action, Hack and slash, 3rd PersonЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF365A6F78472F0B2504F6BD9ED60B0DD1058B3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041504   (1040710) от 09.01.2021
 
 Rise of the Tomb Raide (2016) [Ru/Multi] (1.0.668.1/dlc) License CONSPIR4CY
@@ -6,7 +110,7 @@ Rise of the Tomb Raide (2016) [Ru/Multi] (1.0.668.1/dlc) License CONSPIR4CY
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040710.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Batman: Arkham Origins / Batman: Летопись Аркхема (2013) [Ru/En] 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040698.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ The Sinking City (2021) [Ru/Multi] (4.20.1.0/dlc) License DARKSiDERS [Deluxe Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040684.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Batman: Arkham City (2012) [Ru/En] (1.1) Repack xatab [Game of the Year Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040418.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Tomb Raider (2013) [Ru/Multi] (1.1.748.0/26DLC) Repack z10yded [Game of the Year
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040405.jpg" />
 </div>
 
 
@@ -129,6 +233,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175293   (1040006) от 16.02.2023
+
+Rogue Trooper Redux (2017) [Multi] (5592) License GOG [Collectors Edition]
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1040006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы — последний генетический пехотинец, созданный для войны и преданный командованием в бойне Кварцевой зоны. Вы выходите на поле боя в качестве отряда из одного человека и несете в своем снаряжении биочипы трех падших солдат — в винтовке, рюкзаке и шлеме.Тип издания: LicenseРазработчик: TickTock GamesЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48A70F24D313C502DBE3E5F040C14168E130DC29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1613003   (1039714) от 17.02.2023
 
 Returnal (2023) [Ru/Multi] (1.0 Build 10547147/dlc) Repack Other s
@@ -137,7 +267,7 @@ Returnal (2023) [Ru/Multi] (1.0 Build 10547147/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039714.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ Returnal (2023) [Ru/Multi] (1.0/dlc) Repack DjDI
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039212.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ Wanted: Dead (2023) [En] (9935321) Repack DjDI
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038699.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ HITMAN (2016) [Ru/Multi] (1.15.0/dlc) SteamRip =nemos= [Game of The Year Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038637.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ Horizon: Zero Dawn (2020) [Ru/Multi] (1.0.10/dlc) Repack =nemos= [Complete Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037618.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ Deus Ex: Human Revolution (2013) [Ru/Multi] (1.4.651.0/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036085.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ Gods Will Fall (2021) [Ru/Multi] (1.0/dlc) Repack xatab [Valiant Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035299.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ The Lord of the Rings The Fellowship of the Ring / Властелин Колец
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034274.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ The Last Stand: Aftermath (2021) [Ru/Multi] (1.2.0.19) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034024.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ Werewolf: The Apocalypse - Earthblood (2021) [Ru/Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033356.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ Werewolf The Apocalypse Earthblood (2021) [Ru/Multi] (49091/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031702.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ Potentia (2021) [Multi] (1.0.5.2) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031694.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ Planet Nomads (2019) [Ru/Multi] (1.0.7.2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031001.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ The Crown of Wu (2023) [Ru/Multi] (1.00) Repack DjDI
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030630.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ Arma 3: Apex Edition (2013) [Ru/Multi] (2.02.147284/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028758.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ Just Cause 4 (2018) [Ru/Multi] (4110618/dlc) SteamRip =nemos= [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028756.jpg" />
 </div>
 
 
@@ -538,136 +668,6 @@ Just Cause 4 (2018) [Ru/Multi] (4110618/dlc) SteamRip =nemos= [Complete Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80B80AE3D98430C8878C8EFA0528A4DC2765696A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450923   (1028581) от 28.02.2021
-
-Star Wars™: The Force Unleashed (2009) [Ru/Multi] (1.2) Repack xatab [Ultimate Sith Edition]
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальная версия фантастического боевика Star Wars: The Force Unleashed с тремя новыми эпизодами. Абсолютным воплощением зла во вселенной «Звездных войн» всегда был Дарт Вейдер, однако на сцену выходит новая персона. Тайный ученик темного лорда еще молод, но по силе вряд ли уступает опытным воинам. Империя поручает ему ответственное задание - уничтожить всех джедаев (   Читать дальше...   )Тип издания: RepackРазработчик: LucasArts Entertainment CompanyЖанр: Экшн, От третьего лица, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, ПольскийЯзык интерфейса: Русский, Английский, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56EA609A969D536991BF55C2B8AC4F04BC916A71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453990   (1026475) от 13.03.2021
-
-Pascal's Wager: Definitive Edition (2021) [Ru/Multi] (1.1.1.1000) Repack SpaceX
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pascal's Wager – это ролевой экшен в мире темного фэнтези, который заставит вас попотеть. Примерьте на себя роль курьеров и раскройте тайну, сокрытую за Мрачным туманом. Столетия назад солнце утонуло в море, из-за чего Мрачный туман в одночасье покрыл всю землю. В то же время стали появляться гиганты.Тип издания: RepackРазработчик: TipsWorksЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89F759AB108EDB932B245AC56DE0EBF6749D31F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454098   (1026462) от 13.03.2021
-
-Pascal's Wager: Definitive Edition (2021) [Ru/Multi] (1.1.1.1000) License CODEX
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pascal's Wager – это ролевой экшен в мире темного фэнтези, который заставит вас попотеть. Примерьте на себя роль курьеров и раскройте тайну, сокрытую за Мрачным туманом. Столетия назад солнце утонуло в море, из-за чего Мрачный туман в одночасье покрыл всю землю. В то же время стали появляться гиганты.Тип издания: LicenseРазработчик: TipsWorksЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B397255360BA58BD04E393ECFEEABA11B4328C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454344   (1026281) от 14.03.2021
-
-Prototype (2009) [Ru] (1.0.0.1) Repack Other s
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы — Прототип, Алекс Мерсер, человек без памяти с меняющимися способностями, ищущий путь к сердцу заговора, который создал вас; и заставляющий ответственных за это платить по счетам.Тип издания: RepackРазработчик: Radical EntertainmentЖанр: Action, 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5296371BDD2F929BCB8459C28A7179CB993C9A84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455191   (1025702) от 18.03.2021
-
-Stubbs the Zombie in Rebel Without a Pulse (2005) [Ru/Multi] (1.3.0.6351) Repack Other s
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Станьте зомби, творите беспредел и жрите мозги. 1959 год. Город Панчбоул — столица прогресса и образец прекрасной жизни. Однако вам предстоит доказать, что закон и порядок — ничто по сравнению с целеустремленным зомби. Парень Мэгги вернулся, а это значит только одно — Панчбоул больше никогда не будет прежним!Тип издания: RepackРазработчик: AspyrЖанр: Action, 3D, 3rd PersonЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F4BBA6FED9F459F199467020BB1EC76506FD73D
 ```
 
 https://mybot314.ru/tekegram_catalog/

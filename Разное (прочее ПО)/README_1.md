@@ -1,3 +1,55 @@
+###  Публикация: 1548468   (599566) от 02.05.2022
+
+Аура Леса 2.8.10i.216 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аура леса – программа, позволяющая окунуться в атмосферу дневного и ночного леса не выходя из дома и расслабиться после напряженного рабочего дня. В настройках программы вы можете самостоятельно выбирать звуки, которые хотите слышать, включить автоматическую смену звуковых схем через определенный интервал, установить время для автоматического старта воспроизведения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C12F5CBA4D357149CB25C38A0A2819EC2141D0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917801   (588983) от 12.07.2015
+
+Sim Aquarium 3.8 Build 63 Platinum [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sim Aquarium - реалистическая 3D экранная заставка, которая воссоздает красоту среды кораллового рифа. В составе экранной заставки 5 различных аквариумов с кораллами, с большими фонами и большим разнообразием среды и кораллов. Вы можете заполнить ваш аквариум до 100 особей из 30 высоко детализированных видов рыб со сложным поведением и искусственным интеллектом. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C9E53E4DDDE053CF56DBC7835960734EB68C688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 200041   (586512) от 21.05.2022
 
 Natura Sound Therapy 3.0 [En]
@@ -6,7 +58,7 @@ Natura Sound Therapy 3.0 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586512.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ WinLekar 4.0.0.62 (2011)
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_566670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_566670.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ RADIO AdsMan Pro 2.2.2.140 [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558868.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Maia Mechanics Imaging 2.8.9.0 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545282.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ Mirillis Action! v 3.9.6 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541618.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ Mkey 1.3.5 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530191.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ Dxtory 2.0.127 [Multi]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519140.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ Driver Signature Enforcement Overrider 1.3b [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505051.jpg" />
 </div>
 
 
@@ -218,13 +270,39 @@ Desktop Gadgets 1.1 [Мульти, Русский]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501887.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Desktop Gadgets – в Windows 8 корпорация Microsoft полностью отказалась от использования гаджетов рабочего стола удалив модуль из системы.  Но для многих пользователей они были важным дополнение к системе. Данный патч вернет поддержку гаджетов во все редакции системы Windows 8.Название программы: Desktop GadgetsЯзык интерфейса: Мульти, Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 382146   (494815) от 31.08.2011
+
+GameRanger 4.9.170610 [Eng]
+
+>>След.
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_494815.jpg" />
+</div>
+
+
+###  Подробнее
+
+GameRanger — программное обеспечение созданное Скоттом Кевиллом (Scott Kevill) для игры по интернету в некоторые игры. При этом на уровне игры, происходит имитация режима игры по локальной сети. Первоначально программа поддерживала 11 игр. Теперь их около 600, и их количество постоянно увеличивается.Язык интерфейса: Eng
 
 ## Скачать торент
 ```bash
@@ -244,7 +322,7 @@ Wall Street RоВоt - форекс советник для МТ4/МТ5 4.2 [Eng
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478129.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ PowerPlan v3.2e & Trackpad++ v3.5b [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477827.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ TransTrade 2.9 [Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440211.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ KinoScreen 1.1 + Portable [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425068.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384047.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378869.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ All Activators for M$ by Mr.MiD (02.11.2010) [ML/Rus]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_366065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_366065.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ FPS Monitor 5440 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363278.jpg" />
 </div>
 
 
@@ -454,7 +532,7 @@ Ripple Screensaver 3.2 RePack by вовава [Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344130.jpg" />
 </div>
 
 
@@ -480,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296498.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ Sotis 3.11 (07.12.2016) [Multi/Ru] (Обновляемая)
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279802.jpg" />
 </div>
 
 
@@ -532,7 +610,7 @@ Keyboard Leds 2.7.1 [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278276.jpg" />
 </div>
 
 
@@ -559,7 +637,7 @@ Clickermann 4.13.014 Portable [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277284.jpg" />
 </div>
 
 
@@ -585,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273177.jpg" />
 </div>
 
 
@@ -596,85 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A14F782E63796A4BEB0BE08659F41414F7BDF35D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190146   (267494) от 09.12.2017
-
-Windows Style Builder (aka Vista Win7 Style Builder) 1.5.6.3 Beta Portable by XpucT [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Style Builder — единственная в своём роде программа, которая умеет создавать и изменять темы Windows. В возможностях программы заложена замена изображений с помощью Drag & Drop, быстрая замена цвета по заданной маске, быстрое внутреннее и внешнее редактирование объектов, а также возможность конвертирования тем Windows XP в темы для Windows Vista / 7 / (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB0007E92380D86AF980D94543BA82F28BE67708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340957   (262515) от 27.11.2019
-
-Все официальные темы Windows с сайта Microsoft 25.11.2019 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полная коллекция тем с сайта Microsoft, включая недоступные на нём! Включает в себя 573 тем высшего качества + 20 MCT!
-Все эти темы были собраны по 25.11.2019.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43BD3C6747FC9852E89ECBBAF2C7BDA33FD2B008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629122   (254656) от 30.04.2023
-
-AIO Runtimes 2023 v.1.1 ( MS Visual C++ MS DirectX + DLL/OCX + Trusted Root CA PC ) by ivandubskoj [Ru]
-
->>След.
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторская сборка, включающая в себя набор необходимых компонентов и DLL/OCX-библиотек, которая избавит вас от ошибок при запуске игр и программ, связанных с их отсутствием. А также установит, проверит или обновит все существующие версии пакетов Microsoft Visual C++ Redistributable, DirectX, а также Корневые сертификаты (Trusted Root CA) для корректного отображения (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24B98ED0633730E458517322DA128848533C11C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

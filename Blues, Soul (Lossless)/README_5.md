@@ -6,7 +6,7 @@
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052101.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Big Bay Allen & The Extended Hand Band - Blues Music (2026) [FLAC|Lossless|WEB-D
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051216.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Jesse Mills Band - Jesse Mills Band (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051215.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Tony O Blues - Free Life (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050281.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Trowbled Ron - Snnr (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050278.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Uncle Watson's Widow - Fool's Song (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050277.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Nocturne Blues (Slowed + Reverb) (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050276.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Wagner the Band - XTC (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050271.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Maurizio Renda The Ocia Band - Rusty Soul Grooves (2025) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050057.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Mike Malone - Songs From The Other Side (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050056.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Robert Top Thomas - One Morning Soon (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050053.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Sheba Potts-Wright - Southern Soul Icon (2025) [FLAC|Lossless|WEB-DL|tracks] <Rh
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050052.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Strmecky Band - Someday I’m Gonna Fly (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050051.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Big Al Dorn & the Blues Howlers - She's the One for Me (2025) [FLAC|Lossless|WEB
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050035.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Charles Sangnoir - On Fire (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050034.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Dave Wakefield - Turnpike Crows (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050033.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Dr. Helander & Third Ward - Wishing Spoon (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050031.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Duwayne Burnside - Red Rooster (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050028.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ French Leftovers - French Leftovers Volume 2 (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050023.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Greasy Belly - Lookin' For A Roll (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050022.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ James Buddy Rogers - Covered in Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050021.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Frankie V and the Lonely Club - Play the Blues (2025) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050020.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Jill Newman - Little Bit of Luck (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050018.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Joe Galullo - Melody in the Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050016.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ JR Clark - J R Clark "Time TIcks Away" (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050015.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Mark Alonzo & The Nashville Rhythm Kings - Jaded Fool (2025) [FLAC|Lossless|WEB-
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050014.jpg" />
 </div>
 
 

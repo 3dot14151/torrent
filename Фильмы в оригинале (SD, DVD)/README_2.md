@@ -1,3 +1,29 @@
+###  Публикация: 1010440   (803958) от 24.04.2016
+
+Небо просто голубее / Il cielo e sempre piu blu (1996) TVRip [IT]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (SD, DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803958.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фильме представлены 24 часа некоторых людей: грабителей банка, стоматолога, журналиста, таксиста и других.Производство: Италия, Colorado Film Production, FandangoЖанр: ДрамаРежиссер: Антонио Луиджи ГримальдиАктеры: Азия Ардженто, Дарио Ардженто, Моника Беллуччи, Лука Барбарески, Маргерита Буй, Роберто Читран, Энрико Ло Версо, Ивано Марескотти, Джиджио Алберти, Чезаре Аполито, Давид БекиниПеревод: ОтсутствуетЯзык озвучки: ИтальянскийПродолжительность: 01:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E73145F7CF4E008FE795DE287956A586C864C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010443   (803606) от 24.04.2016
 
 Весенние каникулы / Spring Break (1983) DVDRip [EN]
@@ -6,7 +32,7 @@
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803606.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800056.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793446.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793394.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793308.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787878.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786672.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786071.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786053.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784892.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784819.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783722.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779357.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779350.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779332.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776387.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773083.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771311.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767591.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759200.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759196.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759084.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759018.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758964.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758963.jpg" />
 </div>
 
 
@@ -643,33 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB5EB0F53C32C1222CAE6D857FC63640E7907464
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522384   (758397) от 07.01.2022
-
-Вернись, шеф! (Возвращайся, шеф!) / Šéfové: Sefe, vrat se! (1984) DVDRip [H.264] [Cze / Ru Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (SD, DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй фильм bp цикла про «Шефа». Действие происходит в советской Чехословакии 80-х.
-Отец и братья Анежки увозят Пепана к себе в деревню — на юг страны, в регион Моравия. Там должна состоятся свадьба Пепана и Анежки, «сразу, как только мама из санатория вернётся». А пока Пепан привыкает к новой жизни: дисциплина и физический труд. Он тоскует по столичной жизни, но (   Читать дальше...   )Производство: Чехословакия / Ceskoslovenská televize PrahaЖанр: КомедияРежиссер: Гинек БочанАктеры: Петр Нарожны, Карел Гержманек, Надя Конвалинкова, Ярослава Кречмерова, Иржина Богдалова, Владимир Грубы, Милош Вавра, Pavel Spálený Jr., Зденек Срстка, Ладислава КоздерковаПеревод: только в виде русских субтитровЯзык озвучки: чешскийСубтитры: русские (перевод с чешского - krepelka)Продолжительность: 01:21:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11CF723F7F717EBDF835B31C7BCBEA393AB80FA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1202951   (789016) от 31.01.2018
+
+Hidden Expedition 14: The Pearl of Discord / Секретная экспедиция 14: Жемчужина раздора (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение увлекательной приключенческой серии игр Hidden Expedition. Агентство H.E.L.P. вызвало Вас на жемчужную ферму для расследования кражи бесценной жемчужины, которая когда-то принадлежала самому Марко Поло. К сожалению вор оказался еще тем акробатом, по-этому с ним определенно возникнут трудности.. Вооруженный новыми девайсами от Ваших коллег по H.E.L.P., (   Читать дальше...   )Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:325B10EC93EF94350A4FB75181327EC0D9C95B9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276021   (788960) от 14.01.2019
+
+Dark Parables 15: The Match Girls Lost Paradise / Темные Притчи 15: Потерянный рай девочки со спичками (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загадай желание... если посмеешь. Серия необъяснимых пожаров прокатилась по датскому городу Старс-Холлоу, не оставив после себя ни тел, ни следов огня. Единственный общий ключ к разгадке инцидентов-появление девушки на каждом месте преступления. Вы отправились разыскать девушку, но то, что вы обнаружите, темная тайна, которая бросает вызов воображению. Можете ли (   Читать дальше...   )Тип издания: UnofficialРазработчик: Blue Tea Games, Eipix EntertainmentЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A3E36B22FE0D74070608D1597C10E0BF9A53EC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511517   (788779) от 21.11.2021
+
+City Legends: The Curse of the Crimson Shadow / Городские легенды: Проклятие Красного человека (2021) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Писатель оказывается впутан в конфликт между Орденом ведьм и Красным человеком. Чтобы не стать их игрушкой, ему придется найти способ им противостоять. Старинный особняк будет испытывать гостя головоломками, мини-играми, локациями с поиском предметов. Но это лишь разминка для мозга, за пределами особняка ждут испытания посерьезнее.Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5530FF955AFF29F92BC7E526E44B1976B5A41234
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276223   (788573) от 15.01.2019
+
+Dawn of Hope 3: The Frozen Soul (2018) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте продолжение фэнтези-приключенческой игры Dawn of Hope. Элитное Общество, используя свою энергию и технологии Древних, насылает ледяной шторм на мирные земли. Ваша единственная надежда - Королева Эльфов. Но общество, заточило её в тюрьму в Маунт-Нуклеас, и намеревается лишить её магической силы. При поддержке вашего друга Леннарта и таинственного девайса, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Mad Head GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:840B7D7916A47F0CF5188F63659B61E30B6EA03E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276195   (788495) от 15.01.2019
 
 Detective escape1 (2019) [En] (1.0) Unofficial
@@ -6,7 +110,7 @@ Detective escape1 (2019) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788495.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Tales of Sorrow. Strawsbrough Town / Печальная история горо�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788352.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Solitaire Mystery: Four Seasons / Магия Пасьянса: Времена Г
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788281.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Donna Brave 2: And the Deathly Tree / Донна Браве 2: Древо Сме
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788087.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Redemption Cemetery 13: The Cursed Mark (2019) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787590.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Mystery Case Files 23: Incident at Pendle Tower (2021) [En] (1.0) Unofficial [Co
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787364.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Undungeon (2021) [Ru/En] (1.0.1) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787288.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Skyland: Heart Of The Mountain / Небесные Земли: Пробужден
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787186.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Criminal Archives: City on Fire (2021) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787054.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Ms. Holmes 2: Five Orange Pips / Мисс Холмс 2: Пять апельси�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786680.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Maze 2: The Broken Tower / Лабиринт 2: Сломанная башня (20
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786072.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Chimeras 7: New Rebellion / Химеры. Козни зла (2018) [Ru] (1.0) Un
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784954.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Beyond the Invisible 2: Darkness Came / За гранью невидимого 2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784872.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ The Unseen Fears 2: Outlive / Невидимые страхи 2: Суметь в
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784830.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Chimeras 10: The Price of Greed / Химеры 10: Расплата за алч�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784763.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Dark Romance 8: Winter Lily / Мрачная история 8: Зимняя ли
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784606.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Persian Nights 2: The Moonlight Veil / Персидские Ночи 2: Лунн
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783872.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ PuppetShow 13: The Curse of Ophelia / Шоу марионеток 13: Прокл
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783444.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Sable Maze 7: Nightmare Shadows / Темный лабиринт 7: Тени ко
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782888.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Amaranthine Voyage 8: The Burning Sky / Вечное путешествие 8: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782059.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Haunted Hotel 19: Lost Time (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781834.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Deja Vu (2020) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781373.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Deja Vu (2020) [En] (1.0) Unofficial
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43A86C194E4297C0B9871295153E217BBAED3D6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207298   (780698) от 17.02.2018
-
-Everlasting Summer / Бесконечное лето (2014) [Ru/Multi] (1.2/dlc) Repack Other s
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесконечное лето – это визуальная новелла от российских разработчиков, дарящая самые искренние и светлые переживания об ушедших днях и надеждах, которым ещё предстоит сбыться. Встретив на улице Семена, главного героя игры, вы бы никогда не обратили на него внимания - действительно, подобных людей в каждом городе тысячи и даже сотни тысяч. Но однажды с ним приключается (   Читать дальше...   )Тип издания: RepackРазработчик: Soviet GamesЖанр: Adventure (Visual novel), CasualЯзык субтитров: Русский, Английский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42E7AA7542E414A7296A81FD25A603CA03954AC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207499   (780526) от 18.02.2018
-
-Phantasmat 10: Curse of the Mist / Фантазмат 10: Проклятие тумана (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение мистической серии игр Phantasmat. Собираясь весело провести время в туристическом походе, Вы и не подозревали, что попадете в передрягу. Ваша подруга внезапно теряется в густом тумане! На землях, где властвуют призраки, отыскать её не так-то просто. Сможете ли вы спасти свою подругу - или сами станете очередным призраком здешних земель?Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C65878536056F0FD33B1584FC7618200831B6081
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207516   (780519) от 18.02.2018
-
-Mystery of the Ancients 7: Black Dagger / Тайны древних 7: Черный кинжал (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение захватывающей мистической серии игр Mystery of the Ancients. На полицейский участок было совершено нападение, и Вас просят заняться расследованием этого дела. Но ситуация быстро принимает опасный поворот, когда улики указывают на древний кинжал и призрака владеющего им! С таким опасным противником и бесчисленными семьями, оказавшимися в опасности, сможете (   Читать дальше...   )Тип издания: UnofficialРазработчик: MariaglorumЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D8F773C0D6DB46BBCC4928697DAB3116E755D99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208178   (780038) от 21.02.2018
-
-Facility 47 / Объект 47 (2015) [Ru] (1.0) Unofficial
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780038.jpg" />
-</div>
-
-
-###  Подробнее
-
-После пробуждения в одиночестве в ледяной камере, вы обнаружили, что вы остались только с письмом и бутылкой таблеток. Чтобы узнать, как вы сюда попали, вам придется бежать и начать путешествие через изолированный научно-исследовательский центр в глубине замороженной Антарктики. Решайте головоломки, разблокируйте новые места вокруг объекта.Тип издания: UnofficialРазработчик: Inertia Game StudioЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BBE89BB63A8501408DACDA48FD9059934EE218F
 ```
 
 https://mybot314.ru/tekegram_catalog/

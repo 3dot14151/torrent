@@ -1,3 +1,62 @@
+###  Публикация: 256639   (48832) от 26.07.2024
+
+Ray Charles Live: In Concert with the Edmonton Symphony (19.09.2004) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48832.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом благотворительном концерте в пользу  слепых в центре Джеймса Л. Найта в Майами, штат Флорида, Рэй Чарльз исполняет все свои классические произведения и радует публику соло на саксофоне и дуэтом со специальной гостьей, обладательницей премии «Грэмми» джазовой вокалисткой Дайаной Шур.
+Концерт состоялся 27 января 1981 в Канаде01. I Got A Woman
+02. A Song For You
+03. It Hurts To Be In Love
+04. Georgia On My Mind(   Читать дальше...   )Жанр: Jazz, Blues, SoulРежиссер: John BlanchardАктеры: Ray CharlesПеревод: ОригинальныйЯзык: АнглийскийПродолжительность: 01:22:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5F62803628E9B3BE0040AAB31B9C9B635E4F4ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 727485   (48819) от 26.07.2024
+
+Doro - 25 Years In Rock... And Still Going Strong (2010) 2хDVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48819.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот двойной DVD вошла полная запись (два с половиной часа) концерта в Дюссельдорфе, посвящённого 25-летию сценической деятельности Доро. Певица вышла на сцену вместе с такими "гостями", как Klaus Meine & Rudolf Schenker (The Scorpions), Tarja Turunen (ex-Nightwish), Bobby Blitz (Overkill), Warrel Dane (Nevermore), Axel Rudi Pell, Chris Boltendahl (   Читать дальше...   )The Documentary
+01. Intro
+02. From Concept To Creation
+03. Soundcheck(   Читать дальше...   )Жанр: Heavy MetalСубтитры: Немецкие, английскиеФормат: DVD videoКачество: DVD9Продолжительность: 02:36:45 + 02:21:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:713EB98420AC447E4CF0C4FC4E8DE1A5A9C98656
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 433   (48740) от 27.07.2024
 
 АлисА - LIVE! Мы вместе 20 лет (2003) DVD9
@@ -6,7 +65,7 @@
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48740.jpg" />
 </div>
 
 
@@ -35,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48727.jpg" />
 </div>
 
 
@@ -65,7 +124,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48713.jpg" />
 </div>
 
 
@@ -96,7 +155,7 @@ Whitesnake - Live In The Still Of The Night (2006) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47513.jpg" />
 </div>
 
 
@@ -126,7 +185,7 @@ VA / A Tribute To Stevie Ray Vaughan (1996) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47500.jpg" />
 </div>
 
 
@@ -155,7 +214,7 @@ Black Sabbath and Blue Oyster Cult - Black and Blue (2004) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47416.jpg" />
 </div>
 
 
@@ -184,7 +243,7 @@ Black Sabbath - Live... Gathered In Their Masses (2013) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47412.jpg" />
 </div>
 
 
@@ -213,7 +272,7 @@ AC/DC - No Bull (Live Plaza De Toros De Las Ventas, Madrid) 1996/2008 DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47409.jpg" />
 </div>
 
 
@@ -242,7 +301,7 @@ AC/DC (ACDC) - Family Jewels (2005) 2xDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47408.jpg" />
 </div>
 
 
@@ -271,7 +330,7 @@ Black Sabbath - The Last Supper '99  (2015) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47406.jpg" />
 </div>
 
 
@@ -300,7 +359,7 @@ Beth Hart / Live at Paradiso (2005) DVD9 <Blues rock, Jazz fusion, Soul>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47314.jpg" />
 </div>
 
 
@@ -329,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47306.jpg" />
 </div>
 
 
@@ -358,7 +417,7 @@ Jeff Lynne's ELO - Wembley Or Bust (2017) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47279.jpg" />
 </div>
 
 
@@ -388,7 +447,7 @@ Chickenfoot - Get Your Buzz On Live (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47188.jpg" />
 </div>
 
 
@@ -417,7 +476,7 @@ Def Leppard - Historia: In the Round In Your Face (2001) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47182.jpg" />
 </div>
 
 
@@ -443,7 +502,7 @@ Depeche Mode - Live In Berlin (2014) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47089.jpg" />
 </div>
 
 
@@ -469,7 +528,7 @@ Lady GaGa Presents: The Monster Ball Tour at Madison Square Garden (2011) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47068.jpg" />
 </div>
 
 
@@ -500,7 +559,7 @@ Paul McCartney - The McCartney Years (2007) 3xDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46996.jpg" />
 </div>
 
 
@@ -526,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46986.jpg" />
 </div>
 
 
@@ -552,7 +611,7 @@ Jimmy Page & Robert Plant - No Quarter [Unledded] DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46984.jpg" />
 </div>
 
 
@@ -581,7 +640,7 @@ Carlos Santana present Blues At Montreux  B.Gay, C.C.Brown,B Parker (2004) 3xDVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46978.jpg" />
 </div>
 
 
@@ -613,7 +672,7 @@ THe Who - The Kids Are Alright (2004) [DTS|1510 Kbps] <Rock>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46976.jpg" />
 </div>
 
 
@@ -646,7 +705,7 @@ Vaya Con Dios - the ultimate collection (2006) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46961.jpg" />
 </div>
 
 
@@ -676,7 +735,7 @@ Deep Purple - Perfect Strangers Live 1984 (2013) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46883.jpg" />
 </div>
 
 
@@ -690,62 +749,6 @@ Deep Purple - Perfect Strangers Live 1984 (2013) DVD9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DEB96D758998E9C62EE01F0835C1642089042C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 274721   (46880) от 14.08.2024
-
-Deep Purple: Live In California 1974 (2005) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deep Purple - Live In California 74 это пожалуй самый грандиозный концерт культовой группы Deep Purple ??!!!
-Видеокассета VHS "California Jam, April 6th 1974" увидела свет в Великобритании в 1981 г. , потом выпушена там же в 1984 и 1991 годах. В США она была издана в 1983 году под другим названием "Live At The California Jam". В Японии, были выпушены (   Читать дальше...   )1. Burn
-2. Might Just Take Your Life
-3. Lay Down Stay Down
-4. Mistreated(   Читать дальше...   )Жанр: Hard rockФормат: DVD VideoПродолжительность: 01:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62BA483B9D5F5611812CF47C830B9F316CA989E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583269   (46786) от 15.08.2024
-
-Metallica - Live Shit: Binge & Purge (San Diego 1992 & Seattle 1989) (2002) (2xDVD9)
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46786.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 ноября 1993 года вышел в продажу Live Shit: Binge & Purge бокс сет состоящий из 3-х дисков с аудиозаписью концерта в Sports Palace, Мехико, Мексика (25, 26, 27 февраля и 1, 2 марта 1993 года). И 3-х VHS кассет с видеозаписью концерта в Seattle Coliseum, Сиэтл, США (29 и 30 августа 1989 года) и концерта в San Diego Sports Arena, Сан Диего, США (13 и 14 января (   Читать дальше...   )Жанр: Музыка, КонцертАктеры: Kirk Hammett, Lars Ulrich, James Hetfield, Jason NewstedПеревод: ОтсутствуетЯзык субтитров: АнглийскиеПродолжительность: 03:19:21 + 02:20:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:047E94687EC9E03B97968B762BA2275D106A5963
 ```
 
 https://mybot314.ru/tekegram_catalog/

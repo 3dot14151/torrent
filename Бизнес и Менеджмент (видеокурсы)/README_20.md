@@ -6,7 +6,7 @@
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145286.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Skillbox, Дмитрий Сидорин и др. | Управление репу
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143005.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Search Engine Education | SEO-Коучинг Новый метод обучен�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142298.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Legal Academy, Вадим Усков | Практическое руководс
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141795.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Legal Academy, Юрий Брисов, Глеб Крохмалюк, Марина 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141495.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139805.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139534.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137677.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135760.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132866.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ LinkedIn Learning, Dr. Chaz Austin | Creating a Career Plan (2020) PCRec [EN]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132633.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ LinkedIn Learning, Dr. Chaz Austin | Succeeding in a New Job (2020) PCRec [EN / 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131402.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127841.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Udemy, Christ Raharja | The Future of Copywriting: Creating Ad Copy & Video with
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127672.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Udemy, Konstantin Fink | Нейросети: Chat GPT от Новичка до �
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127333.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ ProFinansy, Наталья Котовская | Финансовая подуш�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125873.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124917.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124104.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Udemy, Emma Grimberg | Искусство создания текстов с ч�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124094.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Domestika, Jessica Roux | Illustrated Stationery: A Guide to Sell and Market You
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123732.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Udemy, Dekker Fraser | SaaS Marketing: SaaS Startup Lead Generation with Dekker 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123699.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121942.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121921.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Cryptology School | Cryptology 9.0. Base. Advanced. Pro (2023) WEB-DL [AD] [RU]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116099.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Cryptology School | Cryptology 10 (2023) WEB-DL [AD] [RU]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115949.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115612.jpg" />
 </div>
 
 

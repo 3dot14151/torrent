@@ -1,3 +1,107 @@
+###  Публикация: 1211926   (776663) от 09.03.2018
+
+Pyre (2017) [Ru/Multi] (1.50257) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pyre - ролевая игра, в которой вы становитесь предводителем банды изгоев, путешествующим вместе со своими спутниками через бескрайнее мистическое чистилище. Кто вернет себе былую славу, а кто навеки останется в забвении? Окажитесь в самой большой и невероятной игровой вселенной, созданной студией Supergiant, и проделайте полный опасностей путь через богом забытое (   Читать дальше...   )Тип издания: LicenseРазработчик: Supergiant GamesЖанр: Экшн, Ролевая игра, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:195D43FED6AD976D35ABDCD51CA278ED445F5E05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212028   (776615) от 09.03.2018
+
+The Witcher 2: Assassins of Kings / Ведьмак 2: Убийцы королей (2011) [Ru/Multi] (3.4.4.1/dlc) Repack Other s [Enhanced Edition]
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам предстоит попробовать себя в роли ведьмака Геральта из Ривии, профессионального убийцы монстров. Очутившись в эпицентре политического хаоса, Геральту удается остановить Великого магистра Ордена Пылающей Розы. Вскоре после этого на короля Фольтеста покушается таинственный убийца, очень похожий на ведьмака. Геральту удается спасти короля и он становится его телохранителем. (   Читать дальше...   )Тип издания: RepackРазработчик: CD PROJEKT REDЖанр: Adventure, RPG, 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD816EA7CC650DCE38F120E4F1184B3216430855
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013915   (776603) от 06.05.2016
+
+Skyshine's BEDLAM Redux! (2015) [En] (3.10) License GOG [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skyshine's BEDLAM Redux!, захватывающая пошаговая стратегия о бодром путешествии крепости на колесах по просторам постапокалиптического мира. За стенами футуристической метрополии Византия простирается адская пустошь, в которой погибает всякая надежда и рассудок, а уровень радиации зашкаливает.Тип издания: LicenseРазработчик: Skyshine GamesЖанр: RPG (Rogue, Action)Язык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B6D25A77093B91D4BC05CD1BDA3153937BB9296
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212222   (776298) от 10.03.2018
+
+Avernum 3: Ruined World (2018) [En] (1.0.1) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Завершающая часть популярной фэнтезийной инди-трилогии! Avernum 3: Ruined World - это эпическое ролевое приключение, за которым время летит незаметно. Исследуйте грандиозный изменчивый мир. Города лежат в руинах. Беженцы не могут найти пристанище. Опасности подстерегают на каждом шагу. Ваш народ стремится выбраться из подземной тюрьмы, однако и верхнем мире не все (   Читать дальше...   )Тип издания: LicenseРазработчик: Spiderweb SoftwareЖанр: Ролевая игра, Пошаговая, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D47A6C2242C212B5512AFD04B0BE60065752555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212323   (775930) от 11.03.2018
 
 Transistor (2014) [Ru/Multi] (1.49815) Repack R.G. Механики
@@ -6,7 +110,7 @@ Transistor (2014) [Ru/Multi] (1.49815) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775930.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Middle-earth Shadow of Mordor / Средиземье Тени Мордора (20
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775919.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Diluvion: Resubmerged (2017) [Ru/Multi] (1.2.33/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775564.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Bombshell (2016) [En] (1.2) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775402.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Ember (2016) [En] (1.046) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774969.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Beast Quest (2018) [Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774889.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Ghost of a Tale (2018) [Ru/Multi] (7.91) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774789.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Planescape Torment (2017) [Multi] (3.0.3.0) License CODEX [Enhanced Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772738.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Dragon Age II / Эпоха Дракона 2 (2011) [Ru/En] (1.0.4.0/dlc) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772512.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Terrible Beast from the East (2019) [En/Ch] (1.0) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771317.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Bloom: Labyrinth (2019) [En] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771209.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Final Fantasy X/X-2 HD Remaster (2016) [En/Multi] (1.0) Repack R.G. Механи
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769422.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Final Fantasy X/X-2 HD Remaster (2016) [En/Multi] (1.0) Repack =nemos=
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769415.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ Cosmic Star Heroine (2017) [En] (1.0) License TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768443.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ Bastion (2011) [Ru/En] (0.12367) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768386.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ Bound by Flame (2014) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767162.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ ELEX (2017) [Ru/Multi] (1.0.2981.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766607.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ Shadowhand (2017) [En] (1.06) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766478.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ Moonfall (2017) [Ru/Multi] (1.00) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765929.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ Tower of Time (2018) [Ru/Multi] (1.4.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764999.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ Ghost of a Tale (2018) [Ru/Multi] (6.39) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763859.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ Enoch: Underground (2018) [Ru/En] (1.0) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762758.jpg" />
 </div>
 
 
@@ -566,110 +670,6 @@ Enoch: Underground (2018) [Ru/En] (1.0) Repack xatab
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB01E2AB7FF9F30727E03DB571A312DF69077203
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214877   (762749) от 23.03.2018
-
-Ash of Gods: Redemption (2018) [Ru/Multi] (1.0.7) Repack xatab
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ash of Gods — это история трех разных героев, столкнувшихся с древней напастью, считавшейся не более, чем мифом. Сюжет игры нелинеен и постоянно меняется в зависимости от выбора игрока, иногда приводя к смерти персонажей. Но даже смерть героя не станет концом игры.Тип издания: RepackРазработчик: AurumDustЖанр: Strategy, RPGЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FFF5C496F3D26B08FCD9E5328847C69C88077C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215095   (761021) от 24.03.2018
-
-Ni no Kuni II: Revenant Kingdom (2018) [Ru/Multi] (1.0/dlc) License CODEX [The Prince's Edition]
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в прекрасный мир Ni no Kuni! Свергнутый юный король Эван отправляется в путешествие, чтобы основать новое государство, объединить мир и побороть силы зла. В Ni no Kuni II от студии LEVEL-5 стирается грань между компьютерной игрой и мультфильмом. Незабываемый дизайн персонажей от Ёсиюки Момосэ и чарующая музыка от Дзё Хисаиси не оставят вас равнодушными.Тип издания: LicenseРазработчик: Level-5Жанр: RPG, Adventure, 3DЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B232E4E950D2B9C19BA2F5C58C6C8ADC8730885
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215318   (759457) от 25.03.2018
-
-Enoch: Underground (2018) [Ru/En] (1.0.0) License CODEX
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Энох: Подземелье - хардкорная экшен-RPG. Вы - Пробудившийся, один из немногих выживших жителей города. Спасайте только свою жизнь, прорубайте себе путь через вселяющие ужас и очень опасных противников. Здесь все против вас, и все подлежит уничтожению.Тип издания: LicenseРазработчик: Unwhale StudioЖанр: Action (Top-Down), RPG, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEA93225E35558B324FC5276F4D99057361DFCF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215418   (759368) от 25.03.2018
-
-Enoch: Underground (2018) [Ru/En] (1.0.0) Repack Other s
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Энох: Подземелье - хардкорная экшен-RPG. Вы - Пробудившийся, один из немногих выживших жителей города. Спасайте только свою жизнь, прорубайте себе путь через вселяющие ужас и очень опасных противников. Здесь все против вас, и все подлежит уничтожению.Тип издания: RepackРазработчик: Unwhale StudioЖанр: Action (Top-Down), RPG, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4570EDBD687E526BDBBE593CCE75E96075EDB570
 ```
 
 https://mybot314.ru/tekegram_catalog/

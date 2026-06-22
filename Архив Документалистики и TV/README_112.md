@@ -1,3 +1,32 @@
+###  Публикация: 1285011   (724607) от 24.02.2019
+
+Футбол. Лига Европы УЕФА 2018-2019. 1/16 Финала. 2-й матч. Валенсия (Испания) — Селтик (Шотландия) (21.02.2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724607.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 февраля 2019, четверг. 20:55 МСК
+Лига Европы УЕФА 2017 - 2018. Плей-офф.
+1/16 Финала. 2-й матч.
+Валенсия (Валенсия, Испания) — Селтик (Глазго, Шотландия)(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A2F1D979ACA907EFFC83D17B54AF0C57692C6D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284975   (724602) от 24.02.2019
 
 Футбол. Лига Европы УЕФА 2018-2019. 1/16 Финала. 2-й матч. Байер (Германия) — Краснодар (Россия) (21.02.2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
@@ -6,7 +35,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724602.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724552.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724470.jpg" />
 </div>
 
 
@@ -91,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724196.jpg" />
 </div>
 
 
@@ -120,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723897.jpg" />
 </div>
 
 
@@ -146,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723880.jpg" />
 </div>
 
 
@@ -172,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723160.jpg" />
 </div>
 
 
@@ -201,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722876.jpg" />
 </div>
 
 
@@ -230,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722875.jpg" />
 </div>
 
 
@@ -259,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722871.jpg" />
 </div>
 
 
@@ -288,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722870.jpg" />
 </div>
 
 
@@ -317,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722869.jpg" />
 </div>
 
 
@@ -346,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722868.jpg" />
 </div>
 
 
@@ -375,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722722.jpg" />
 </div>
 
 
@@ -404,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722721.jpg" />
 </div>
 
 
@@ -433,7 +462,7 @@ Virgin Australia Supercars Championship. Сезон 2017. Phillip Island 500. Э
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722711.jpg" />
 </div>
 
 
@@ -459,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722679.jpg" />
 </div>
 
 
@@ -485,7 +514,7 @@ Virgin Australia Supercars Championship. Сезон 2017. Phillip Island 500. Э
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722630.jpg" />
 </div>
 
 
@@ -511,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722625.jpg" />
 </div>
 
 
@@ -540,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722616.jpg" />
 </div>
 
 
@@ -569,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722472.jpg" />
 </div>
 
 
@@ -598,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722471.jpg" />
 </div>
 
 
@@ -627,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722469.jpg" />
 </div>
 
 
@@ -656,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722468.jpg" />
 </div>
 
 
@@ -685,7 +714,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722246.jpg" />
 </div>
 
 
@@ -696,32 +725,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7870B33DBACA045329D59E9E4495F896EF06E02A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023735   (722156) от 06.06.2016
-
-Воскресный вечер с Владимиром Соловьевым (05.06.2016) HDTVRip [H.264/1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Часть первая: В Сирии вновь обострилась обстановка. Группировки террористов перешли в наступление. Число убитых и раненых мирных жителей исчисляется сотнями. Российские беспилотники, зафиксировали колонну грузовиков движущихся из Турции к позициям "Исламского государства". Жители атакуемого Алеппо утверждают, что среди боевиков много турок. Эрдоган взбешен (   Читать дальше...   )Телекомпания: РоссияЖанр: ТелепередачаПродолжительность: ~ 01:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B912C5AD20B37BBAB781DCA20B0080D9A41C073
 ```
 
 https://mybot314.ru/tekegram_catalog/

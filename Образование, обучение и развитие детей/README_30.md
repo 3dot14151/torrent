@@ -1,3 +1,107 @@
+###  Публикация: 1522512   (758528) от 07.01.2022
+
+Софья Тимофеева | Забавные уроки. Мышление и речь (2020) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие, соответствующее требованиям ФГОС, написано специалистами детского клуба "Умничка", профессионально занимающимися развитием и подготовкой ребенка к школе. Их авторская методика нашла немало поклонников среди родителей и педагогов. Основная цель книги — развитие мышления и речи ребенка. Упражнения на мышление сгруппированы по основным лексическим (   Читать дальше...   )Жанр: Обучение и развитие детей/Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:577FDDB261250814EFE98DFD3D66AA85DBA2997F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280306   (758500) от 04.02.2019
+
+И. В. Вронская | Методика раннего обучения английскому языку (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758500.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии освещаются основные проблемы методики раннего обучения иностранным языкам, рассматриваются современные подходы к формированию иноязычных коммуникативных навыков и умений обучения на примере английского языка. В книге обобщаются результаты научных теоретических исследований и опыт их практического применения в обучении детей старшего дошкольного (   Читать дальше...   )Жанр: Английский язык, Дошкольная педагогикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A34E1B249BD3054F7E8FF3BF5CEF6E531FF552A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215580   (756102) от 27.03.2018
+
+Владимир Родионов, Александр Мануйлов | Основы химии для детей и взрослых (2014) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами долгожданная книга Александра Викторовича Мануйлова и Владимира Ивановича Родионова. Она уже получила широкую известность в России и за рубежом в виде интернет-учебника под названием «Основы химии». Среди ее читателей, число которых уже превысило миллион, неожиданно оказались не только школьники. Первоначально задуманная как учебник, книга после всех дополнений (   Читать дальше...   )Жанр: Химия, Познавательная литература для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D93147A0E14C6A6165153B7DFFBB5CFA3A3D28E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018603   (755523) от 20.05.2016
+
+Мартин Гарднер, Сэм Лойд | Самые знаменитые головоломки мира (1999) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник математических задач и увлекательных головоломок, принадлежащий перу одного из классиков этого жанра Сэма Лойда, несомненно доставит большое удовольствие всем любителям занимательной математики.Жанр: Головоломки, развлеченияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:508B5851A6EBE808AC84EAD94CDB90A14BF26DED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018816   (753788) от 21.05.2016
 
 И.Д. Агеева | Английский язык для детей (2001) [PDF]
@@ -6,7 +110,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753788.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753722.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753161.jpg" />
 </div>
 
 
@@ -88,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752182.jpg" />
 </div>
 
 
@@ -115,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752156.jpg" />
 </div>
 
 
@@ -141,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750459.jpg" />
 </div>
 
 
@@ -167,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749766.jpg" />
 </div>
 
 
@@ -195,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749425.jpg" />
 </div>
 
 
@@ -221,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748950.jpg" />
 </div>
 
 
@@ -250,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748465.jpg" />
 </div>
 
 
@@ -279,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748095.jpg" />
 </div>
 
 
@@ -305,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748079.jpg" />
 </div>
 
 
@@ -333,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748074.jpg" />
 </div>
 
 
@@ -361,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746549.jpg" />
 </div>
 
 
@@ -388,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746253.jpg" />
 </div>
 
 
@@ -414,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746169.jpg" />
 </div>
 
 
@@ -442,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745284.jpg" />
 </div>
 
 
@@ -469,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744995.jpg" />
 </div>
 
 
@@ -496,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744977.jpg" />
 </div>
 
 
@@ -522,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743362.jpg" />
 </div>
 
 
@@ -548,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743358.jpg" />
 </div>
 
 
@@ -577,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742314.jpg" />
 </div>
 
 
@@ -588,113 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDBECD28E7F851C0695D828E14407013FFE62E79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021211   (741950) от 28.05.2016
-
-С. Ватт, М. Мангада | Бейсик для детей [Бейсик для детей] (1990) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741950.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге в игровой и наглядной форме, доступной младшим школьникам, излагаются основы программирования и объясняется азбука одного из наиболее распространенных и удобных в использовании языков программирования – языка бейсик. Текст снабжен необходимыми комментариями для взрослых – родителей и учителей, которые даже не имея специальных знаний в области программирования, (   Читать дальше...   )Жанр: Программирование детямФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:613DCF6A4E46B93266C8978F38341CE8BA8ECC78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397828   (737510) от 22.07.2020
-
-Кэндзи Исикава | Занимательная физика. Квантовая механика. Манга (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие данной книги, как и выпуска манги "Занимательная астрономия. Вселенная", разворачивается в японской старшей школе "Кооки". Ее персонажи - члены театрального кружка Канна, Яманэ и Глория, Канта (брат Канны и студент Японского университета), профессор Сануки. На этот раз кружок решает поставить спектакль, в наглядной форме объясняющий квантовую (   Читать дальше...   )Жанр: Образование. ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47BDBD0BA01A8D4426998F3759CDEE132D06B50C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529439   (732669) от 06.02.2022
-
-Яков Перельман | Калейдоскоп занимательных наук [сборник] (2017) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732669.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник "Калейдоскоп занимательных наук" вошли избранные статьи Якова Исидоровича Перельмана, опубликованные им в 1901 - 1909 гг. в журнале "Природа и люди". Книга приобщает к миру научных знаний, помогает привить читателю вкус к изучению точных наук, вызывает интерес к самостоятельным творческим занятиям.
-Для школьников средних классов, студентов (   Читать дальше...   )Жанр: Детская познавательная и развивающая литература, Научно-популярная литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D849C9B6EC7FD6380B9EF13D133FE59BFA6C142
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529647   (732448) от 07.02.2022
-
-Юки Сато | Лучшие головоломки. Новый метод развития интеллекта и памяти (2020) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732448.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Встречают по одежке, а провожают по уму» – эта популярная когда-то пословица сегодня не актуальна. Ум стоит во главе угла. Быть интеллектуалом стало очень модно. Бицепсы, конечно, красиво, но ныне рулят вчерашние «ботаники», ставшие сегодня главами крупнейших корпораций.
-
-В этой книге вы познакомитесь с самыми сложными задачами в мире от известных математиков и (   Читать дальше...   )Жанр: Интеллектуальные игры, Практическая психология, Психологические тренингиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0620C191D8524B1E597E1D0490A022BC9E31F17A
 ```
 
 https://mybot314.ru/tekegram_catalog/

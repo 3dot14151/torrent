@@ -1,3 +1,31 @@
+###  Публикация: 341530   (661686) от 25.05.2011
+
+Авто плюс - Наши тесты – Great Wall Coolbear and Great Wall Florid (2009) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_661686.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Наши тесты" - это знакомство с новым, как правило еще не появившимся на рынке автомобилем.
+Только комплексный тест на полигоне и дорогах общего пользования способен выявить все преимущества и недостатки автомобиля.
+Ведущие сами испытывают новинку, моделируя всевозможные ситуации, от спортивных заездов до серьезного бездорожья.Жанр: АвтопередачаПродолжительность: ~00:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58B8397D782AA0295DD3FDF581682E8178024D48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 341533   (661684) от 25.05.2011
 
 Авто плюс - Наши тесты – Hummer H2_ch.2 (2009) SATRip
@@ -6,7 +34,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_661684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_661684.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661465.jpg" />
 </div>
 
 
@@ -63,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661464.jpg" />
 </div>
 
 
@@ -92,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661463.jpg" />
 </div>
 
 
@@ -121,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661435.jpg" />
 </div>
 
 
@@ -147,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661409.jpg" />
 </div>
 
 
@@ -176,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661407.jpg" />
 </div>
 
 
@@ -205,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661406.jpg" />
 </div>
 
 
@@ -234,7 +262,7 @@ Discovery: В погоне за классикой / Chasing Classic Cars (2009)
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661299.jpg" />
 </div>
 
 
@@ -260,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661258.jpg" />
 </div>
 
 
@@ -286,7 +314,7 @@ Discovery: В погоне за классикой / Chasing Classic Cars (2008)
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661199.jpg" />
 </div>
 
 
@@ -312,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661090.jpg" />
 </div>
 
 
@@ -338,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660812.jpg" />
 </div>
 
 
@@ -367,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660764.jpg" />
 </div>
 
 
@@ -396,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660650.jpg" />
 </div>
 
 
@@ -422,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_660628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_660628.jpg" />
 </div>
 
 
@@ -450,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_660615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_660615.jpg" />
 </div>
 
 
@@ -478,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660584.jpg" />
 </div>
 
 
@@ -504,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660569.jpg" />
 </div>
 
 
@@ -530,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660545.jpg" />
 </div>
 
 
@@ -559,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_660515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_660515.jpg" />
 </div>
 
 
@@ -587,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660281.jpg" />
 </div>
 
 
@@ -616,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660275.jpg" />
 </div>
 
 
@@ -645,7 +673,7 @@ M-1 Global. Ф. Емельяненко (Россия) - П. Хиззо (Браз
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660211.jpg" />
 </div>
 
 
@@ -671,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660086.jpg" />
 </div>
 
 
@@ -682,32 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77D41EF3A328658E4BCBDB14F84334D7680D1784
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 513801   (660063) от 22.06.2012
-
-M-1 Global. Ф. Емельяненко (Россия) - П. Хиззо (Бразилия) (2012) SatRip [H.264] (Главный бой, без боев поддержки)
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Соперником знаменитого российского мастера боев без правил Федора Емельяненко на турнире M-1 Global станет известный бразильский боец Педро Хиззо. Его рекорд в ринге составляет 19 побед при 9 поражениях. В своей карьере он побеждал таких звезд как Джош Барнетт, Джефф Монсон и Андрей Арловский. Впрочем, список побед "Последнего императора", как прозвали Емельяненко поклонники, не менее весом...Жанр: Спорт, смешанные единоборстваПродолжительность: 00:27:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FE86A8E887B9ABE6FB5991E9F1B2D11EE31DDDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

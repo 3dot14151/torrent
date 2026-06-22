@@ -1,3 +1,87 @@
+###  Публикация: 1420609   (332550) от 01.11.2020
+
+Владислав Крапивин | Прохождение Венеры по диску Солнца (2019) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332550.jpg" />
+</div>
+
+
+###  Подробнее
+
+В моменты, когда жизнь, стремительно набирая скорость, несется под откос, остается только надеяться на чудо. И чудо приходит — в лице ангела-хранителя по имени Вовка. Как и положено ангелу, он быстро решит все проблемы. Добудет из воздуха необходимые деньги, разбудит совесть в местном олигархе, вернет из небытия сгоряча уничтоженную фантастическую повесть о прохождении (   Читать дальше...   )Жанр: Детская литература, ПриключенияПродолжительность: 06:43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:263D763BEAE3AB26AF448C9E8648A8CCB562EB1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 847807   (332075) от 01.11.2020
+
+VA - Поп-рок-хиты в стиле колыбельных для малышей Vol.3 (2014) [MP3|256-320 кб/с]<Childrens, Lullaby>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лев Этин - Прогулки По Воде (Наутилус-Помпилиус) [03:19]
+02. Dennis Caplinger - Send Her My Love (Journey) [03:31]
+03. David Ari Leon - I Can't Get No Satisfaction (The Rolling Stones) [02:40]
+04. Michael Armstrong - Hotel California (The Eagles) [05:58](   Читать дальше...   )Жанр: Childrens, LullabyПродолжительность: 01:12:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64094396F4E44063D141E634E12BFBCBAB0509F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595573   (332067) от 01.11.2020
+
+VA - Livin'G presents: Happy Box, Happy Kids, Happy Time. Music Box, Baby Box, vol.1-3 (2012) [MP3|320 кб/с]<Instrumental>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332067.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:13) 01. Mak Mai (Bie Sukrit)
+(4:32) 02. Ruk Mai Tong-Kran We-La (Klear)
+(3:41) 03. Ja Dai Mai Luem Gun (Bird Thongchai)
+(4:44) 04. Karn Plien-Plang (Boy Peacemaker)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7D66EEED40622A24CD05B92D8F100E8205D3512
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 260903   (329895) от 21.11.2010
 
 Ярина Шуст - Для Вас співаю серцем (2007) [MP3|320 kbps]<Ethnic>
@@ -6,7 +90,7 @@
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329895.jpg" />
 </div>
 
 
@@ -36,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329373.jpg" />
 </div>
 
 
@@ -64,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328862.jpg" />
 </div>
 
 
@@ -93,7 +177,7 @@ VA - Детские песни. 200 песен (2011) [MP3|128-256 kbps]<Дет�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328474.jpg" />
 </div>
 
 
@@ -122,7 +206,7 @@ VA - Детская площадка №1 (2011) [MP3|320 kbps]<Детские �
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327629.jpg" />
 </div>
 
 
@@ -151,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327389.jpg" />
 </div>
 
 
@@ -177,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327311.jpg" />
 </div>
 
 
@@ -203,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327046.jpg" />
 </div>
 
 
@@ -232,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326858.jpg" />
 </div>
 
 
@@ -259,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326794.jpg" />
 </div>
 
 
@@ -287,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326678.jpg" />
 </div>
 
 
@@ -313,7 +397,7 @@ VA - Новогоднее рождество (2008) [MP3|320 kbps]<Детски�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324007.jpg" />
 </div>
 
 
@@ -342,7 +426,7 @@ VA - Новогоднее волшебство (2009) [MP3|320 kbps]<Детск�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323902.jpg" />
 </div>
 
 
@@ -371,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323887.jpg" />
 </div>
 
 
@@ -397,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322211.jpg" />
 </div>
 
 
@@ -424,7 +508,7 @@ VA - Новогодний хоровод (2008) [MP3|320 kbps]<Детские п
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321720.jpg" />
 </div>
 
 
@@ -453,7 +537,7 @@ VA - Новогодний карнавал (2008) [MP3|320 kbps]<Детские 
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321602.jpg" />
 </div>
 
 
@@ -482,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321402.jpg" />
 </div>
 
 
@@ -508,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319873.jpg" />
 </div>
 
 
@@ -537,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319760.jpg" />
 </div>
 
 
@@ -563,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319447.jpg" />
 </div>
 
 
@@ -592,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319399.jpg" />
 </div>
 
 
@@ -618,7 +702,7 @@ Baby Einstein - Baby Mozart (2000) [MP3|192 kbps]<Классическая му�
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319313.jpg" />
 </div>
 
 
@@ -632,87 +716,6 @@ Baby Einstein - Baby Mozart (2000) [MP3|192 kbps]<Классическая му�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3116CB88C6C060DDC6768B6BC81FE0FF65E1A4DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 417389   (319229) от 30.11.2011
-
-Андрей Усачёв - Что снится сказкам? (2011) [MP3|192 kbps]<Сказочные колыбельные>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319229.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Сказочные колыбельные
-Автор текстов: Андрей Усачёв
-1. Что снится сказкам?
-2. Колыбельная кузнечику(   Читать дальше...   )Жанр: Сказочные колыбельные и музыкаПродолжительность: 01:05:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 264274   (318153) от 30.11.2010
-
-Валентин Постников | Карандаш и Самоделкин на острове Гигантских насекомых (2008) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волшебный художник Карандаш и мастер Самоделкин снова пускаются в далекое путешествие - на этот раз на воздушном шаре. Им предстоит перелететь Индийский океан и очутиться на таинственном острове, населенном дикими племенами и гигантскими насекомыми. Узнав тайну острова, Карандаш и Самоделкин вместе со своими друзьями делают необыкновенные открытия. Даже козни их (   Читать дальше...   )Жанр: Сказочная повестьПродолжительность: 03:54:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6757C1443153EB56340173438645C0EA7125F35C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 264295   (318147) от 30.11.2010
-
-VA - Хор Венских мальчиков (2000) [MP3|320 kbps]<Классика для  детей>
-
->>Аудио для детей и родителей
->>Классика для мам и малышей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Классика для  детейПродолжительность: 03:09:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9589F5F2F3E272B041A1768B119EC758B74B88C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

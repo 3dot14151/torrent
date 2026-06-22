@@ -6,7 +6,7 @@ Armello (2015) [Ru/Multi] (1.4) License GOG [DRM Free Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547059.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Balrum (2016) [Ru/En] (1.12) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547047.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Titan Quest Anniversary Edition (2016) [Ru/Multi] (1.3) SteamRip Ученик_77
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546266.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Order of Battle: World War II (2015) [Ru/Multi] (2.6.7/dlc) License PLAZA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546210.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота [patch] (1.24
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546173.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ StarCrawlers (2016) [En] (Prolific Pocketmonster v8 08.27.2016) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545276.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Lost Planet 3 (2013) [Ru/Multi] (1.0/4DLC) Steam-Rip R.G. Origins
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544387.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Sins of a Solar Empire: Rebellion (2012) [Ru/En] (1.82.5006/2dlc) Repack R.G. М
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543961.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ FBI Hostage Rescue / ФБР:  Освобождение заложников (P) 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543051.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ HeXen II / HeXen 2 (1997) [En] (1.11) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542314.jpg" />
 </div>
 
 
@@ -264,6 +264,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 226419   (541366) от 13.08.2010
+
+[RePack] Psychonauts (Ru/En) (L) (2005) |  R.G. Механики
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_541366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в уникальный мир психоделических приключений сквозь разум монстров и безумцев…
+Долгие годы Психонавты рассылали своих психически вооруженных оперативников по всему миру, но на этот раз опасность назревает в их собственном учебном лагере. Ненормальный ученый похищает кадетов ради экспериментов над их мозгом. И только один студент, таинственный и могущественный новичок по имени Раз, встает на пути безумца!
+Раз должен открыть в себе и развить необычайные паранормальные способности, в частности, возможность вселяться в разум других существ. Он должен пробиться к душе безумного ученого и положить конец его темным планам!Жанр: Arcade (Platform) / 3D / 3rd Person
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925265   (540526) от 06.08.2015
 
 Top Gun: Hard Lock (2012) [PS3] [USA] 3.40 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
@@ -272,7 +300,7 @@ Top Gun: Hard Lock (2012) [PS3] [USA] 3.40 [Cobra ODE / E3 ODE PRO ISO] [Unoffic
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540526.jpg" />
 </div>
 
 
@@ -301,7 +329,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2015) [Ru/Multi] (
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540272.jpg" />
 </div>
 
 
@@ -327,7 +355,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.4.1.0/dlc) Repack GAMER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539893.jpg" />
 </div>
 
 
@@ -353,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539294.jpg" />
 </div>
 
 
@@ -379,7 +407,7 @@ Life is Strange - Episode 4: Dark Room (2015) [Ru] (1.0.0.344867) Steam-Rip
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538376.jpg" />
 </div>
 
 
@@ -405,7 +433,7 @@ Life Is Strange (2015) [Ru/En] (1.0.0.347790) Repack R.G. Механики [Epis
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538371.jpg" />
 </div>
 
 
@@ -431,7 +459,7 @@ Prototype 2: RedNet Edition [Ru/En] (RePack/1.0) 2012 l TERRAN
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538053.jpg" />
 </div>
 
 
@@ -458,7 +486,7 @@ Orcs Must Die Дилогия [Ru/En] (RePack) 2011-2012 | R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538052.jpg" />
 </div>
 
 
@@ -488,7 +516,7 @@ Spec Ops: The Line [Ru] (RePack/1.0/DLC) 2012 l RG Packers
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537949.jpg" />
 </div>
 
 
@@ -516,7 +544,7 @@ Afterfall: Insanity Extended Edition / Afterfall: Тень прошлого Ра
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537865.jpg" />
 </div>
 
 
@@ -542,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537857.jpg" />
 </div>
 
 
@@ -569,7 +597,7 @@ Quantum Conundrum [Ru/En] (RePack/1.0u2) 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537751.jpg" />
 </div>
 
 
@@ -587,6 +615,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 366603   (536903) от 23.07.2011
+
+Рейд / Recoil [Ru] (P) 1998
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_536903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представьте себе, что вы сидите за рычагами танка. Очень большого танка. Настоящей боевой машины. Вам так и хочется с ревом завести двигатель и выпустить по врагу одну из тех сверхмощных ракет, которые способен нести только ваш 100-тонный кибернетический монстр. А еще эта умница способна бесшумно скользить над землей, перемещаться по поверхности воды и даже плавать под водой!
+В игре прекрасный выбор вооружения. Вы можете оснастить штурмовой танк 20 видами оружия страшной силы, включая управляемые ракеты с ядерными боеголовками, высокоэнергетические лазеры, акустические пушки и даже супер секретную экспериментальную установку "меч-дуга".
+Сам игровой процесс довольно однообразен, однако начинаешь замечать это уже под конец игры.Тип издания: ПираткаЖанр: Arcade / Simulator (Futuristic veh.) / 3DЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE7DD89BBD7881D2F388D64C767602051B5B1509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150958   (536614) от 01.08.2017
 
 Mass Effect: Andromeda (2017) [Ru/Multi] (1.10) License CODEX [patch]
@@ -595,7 +651,7 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10) License CODEX [patch]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536614.jpg" />
 </div>
 
 
@@ -621,7 +677,7 @@ Deponia [Multi3\+] (Steam-Rip/1.2) 2012 [Без таблетки]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536552.jpg" />
 </div>
 
 
@@ -632,58 +688,6 @@ Deponia - point & click квест, главным героем которого
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60977757378496EA527530F4642F3107B50C2779
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532772   (536270) от 08.08.2012
-
-Deponia [Ru] (RePack/1.2) 2012 l SEYTER
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deponia - point & click квест, главным героем которого является неприятный, злой и страдающий манией величия парень по имени Руфус, живущий на окраине небольшого поселка, расположенного в отдаленном уголке загрязненной планеты Депония. Он мечтает о лучшей жизни в одном из богатых и красивых городов, парящих над поверхностью планеты. Очередная неудавшаяся попытка запустить себя на орбиту приводит к тому, что на землю с небесного города падает девушка. Увидев шанс попасть в такое желанное место, Руфус решает вернуть девушку домой.(   Читать дальше...   )Тип издания: RePackРазработчик: Daedalic EntertainmentЖанр: AdventureЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB95B5E743A6E200CE30E4A0D755CE9BD2888EF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532832   (536155) от 08.08.2012
-
-Death Rally [En] (RePack/1.00.20.023) 2012 l VANSIK
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Remedy Entertainment подошла к созданию PC-версии ремейка с полной ответственностью, пересадив ее на усовершенствованный графический движок, поработав над поведением внутриигровой камеры и оптимизировав управление. Помимо этого, финны добавили в PC-версию новый контент: трассу под названием Savo и Человека-тень из оригинальной игры 1996 года. Ну а суть останется прежней: выбираем машинку, обвешиваем её оружием и гоняем по трассам, уничтожая врагов.(   Читать дальше...   )Тип издания: RePackРазработчик: Cornfox & Brothers и Mountain SheepЖанр: Arcade / Racing (Cars) / 3D / Top-downЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B5C3FC71B657777DF7F51CFBE5C7AC41D6E1850
 ```
 
 https://mybot314.ru/tekegram_catalog/

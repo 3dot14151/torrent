@@ -1,3 +1,32 @@
+###  Публикация: 1501810   (830013) от 13.10.2021
+
+Eyes of Eli - Eyes of Eli (2012) [FLAC|Lossless|WEB-DL|tracks] <Metal, Metalcore, Hardcore-Punk, Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830013.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro (2:08)
+2. Fallout (6:12)
+3. Open Up (5:09)
+4. Chruch of the Harlot (5:54)(   Читать дальше...   )Жанр: Metal, Metalcore, Hardcore-Punk, Nu-MetalПродолжительность: 00:54:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:628AF923C332728F9DE4E38AF2BD35AEDE62461E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115059   (829954) от 16.03.2017
 
 Spoon - Hot Thoughts (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock>
@@ -6,7 +35,7 @@ Spoon - Hot Thoughts (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Ind
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829954.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Laura Marling - Short Movie (2015) [FLAC|Lossless]<Indie Folk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829915.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Lovedrug - Turning Into Something You Were Never Meant To Be (2020) [FLAC|Lossle
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829846.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The Fratellis - Half Drunk Under a Full Moon (2020) [FLAC|Lossless|tracks] <Indi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829749.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ loney dear - Dear John (2009) [FLAC|Lossless|image + .cue] <Indie Rock, Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827811.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Bossk - Audio Noir (2016) [FLAC|Lossless|tracks] <Post-Rock, Post-Metal, Sludge>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827243.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Primal Scream - Chaosmosis (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826992.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Knight Area - Heaven And Beyond (2017) [FLAC|Lossless|image + .cue] <Neo-Prog, P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826652.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Spoon - Hot Thoughts (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Ind
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826556.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Ice Nine Kills - Welcome To Horrorwood: The Silver Scream 2 (2021) [FLAC|Lossles
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826504.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Weezer - Weezer (White Album) (2016) [FLAC|Lossless|tracks + .cue] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825392.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Brazzaville - The Oceans Of Ganymede (2016) [FLAC|Lossless|WEB-DL|tracks] <Indie
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825197.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Royal Republic - Weekend Man (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825155.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825154.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ EOB - Earth (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822775.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Jazmin Bean - Worldwide Torture (2020), 2021, Aswang Birthday Cake [FLAC|Lossles
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819490.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ David Byrne - Grown Backwards (2004) [FLAC|Lossless|tracks + .cue] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819268.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ The Octopus Project - Memory Mirror (2017) [FLAC|Lossless|tracks + .cue] <Electr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819070.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Reamonn - Eleven (The Ultimate Best Of Reamonn) (2010) Compilation, 2CD [FLAC|Lo
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818786.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Coldplay - Music of the Spheres (2021) [FLAC|Lossless|tracks + .cue] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817635.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Bush - The Best Of 94 - 99 (1999) Compilation, 2CD [FLAC|Lossless|tracks + .cue]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816901.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ The Greenhornes - 4 Albums, 2 EP, 1 Compilation (1999-2010) [FLAC|Lossless]<Clas
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816616.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ flyingdeadman - The night (2020) [FLAC|Lossless|Web-DL|tracks] <Post Rock, Instr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816132.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Otherwise - Sleeping Lions (2017) [FLAC|Lossless|tracks] <Alternative Rock, Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813924.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Perfume Genius - Set My Heart On Fire Immediately (2020) [FLAC|Lossless|WEB-DL|t
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813751.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ Perfume Genius - Set My Heart On Fire Immediately (2020) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:226B4916AD29F0D27CC7D20E895D7AE5D0457BE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 883392   (812666) от 31.03.2015
-
-Linkin Park - Hybrid Theory (2002) 2CD Special Edition [FLAC|Lossless]<Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papercut (Live At Docklands Arena, London)
-02. Points Of Authority (Live At Docklands Arena, London)
-03. A Place For My Head (Live At Docklands Arena, London)
-04. My December(   Читать дальше...   )Жанр: Alternative |Продолжительность: 00:55:50 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECAA2039D0FA24E6EB0BFC0C5D7B69D6F0FC01DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

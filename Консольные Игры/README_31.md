@@ -1,3 +1,107 @@
+###  Публикация: 923765   (562282) от 01.08.2015
+
+Sorcery / Чародей (2012) [PS3] [EUR] 4.11 [Cobra ODE / E3 ODE PRO ISO] [License] [Ru/Multi] [MOVE]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сто лет назад между людьми и эльфами разразилась война. Оказавшись на грани поражения, королева эльфов заключила соглашение с Кошмаром. Она позволила ему жить в своем теле в обмен на невероятную силу. Так была одержана победа. Но у медали есть и обратная сторона. Кошмар изменил саму суть правительницы эльфов, превратив ее в жестокую Королеву Кошмара. Спасаясь от (   Читать дальше...   )Тип издания: LicenseРазработчик: In-HouseЖанр: RPGЯзык озвучки: Русский, Английский, Французский, Немецкий, Итальянский, Голландский, Португальский, Испанский, Шведский,  Датский, Финский, Норвежский, ПольскийЯзык субтитров: Русский, Английский, Французский, Немецкий, Итальянский, Голландский, Португальский, Испанский, Шведский,  Датский, Финский, Норвежский, ПольскийЯзык интерфейса: Русский, Английский, Французский, Немецкий, Итальянский, Голландский, Португальский, Испанский, Шведский,  Датский, Финский, Норвежский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE9768318CDA0A43076D10206844D33CB87203AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556088   (561127) от 08.06.2022
+
+FIFA 21 Mod (2020) [PS3] [EUR] 4.82 [HEN] [Cobra ODE / E3 ODE PRO ISO] [Repack] [Ru/Multi]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561127.jpg" />
+</div>
+
+
+###  Подробнее
+
+FIFA 21 - это очередная часть бесконечного футбольного симулятора от Electronic Arts. Неистовый рев трибун, живое описание происходящего на поле от лучших спортивных комментаторов, невероятно реалистичное поведение спортсменов, подробная детализация окружающей обстановки – в новом сезоне FIFA продумано и проработано все до мелочей. Футбол – игра чрезвычайно азартная, (   Читать дальше...   )Тип издания: RepackРазработчик: EA CanadaЖанр: Sports, SimulationЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26A40CF52F8D866192D0EB8971B3FCE6726DD8E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035996   (560762) от 22.08.2016
+
+DOOM 3 BFG Edition (2012) [PS3] [EUR] 4.21 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [Ru]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560762.jpg" />
+</div>
+
+
+###  Подробнее
+
+В издание Doom 3 BFG Edition войдет обновленная версия культового шутера Doom 3, а также дополнение к нему под названием Ressurection of Evil. Помимо знакомой игрокам истории войны на марсианской станции поклонников Doom ждут совершенно новые эпизоды - семь уровней под общим заголовком The Lost Mission. С Doom 3 BFG Edition игроки смогут еще глубже погрузиться в (   Читать дальше...   )Тип издания: UnofficialРазработчик: id SoftwareЖанр: Action, First Person ShooterЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB9CC40B05FE5D2A38C6C2684559BFC7D1567D55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924539   (558530) от 03.08.2015
+
+Star Wars: The Force Unleashed - Ultimate Sith Edition (2009) [PS3] [USA] 2.76 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558530.jpg" />
+</div>
+
+
+###  Подробнее
+
+За десятилетия «Звездные войны» из простого фильма превратились в культовую космическую сагу с легендарными героями. Это целый мир, полный удивительных загадок и тайн. Star Wars: The Force Unleashed приоткрывает завесу секретности и дает ответы на множество волнующих вопросов. Революционная для серии игра служит связующим звеном между двумя трилогиями Джорджа Лукаса, (   Читать дальше...   )Тип издания: LicenseРазработчик: LucasArtsЖанр: ActionЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4519D24796BB5CC113E013CDB381BC800BE4B1DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924679   (557230) от 04.08.2015
 
 Spec Ops: The Line (2012) [PS3] [USA] 4.11 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [Ru/En]
@@ -6,7 +110,7 @@ Spec Ops: The Line (2012) [PS3] [USA] 4.11 [Cobra ODE / E3 ODE PRO ISO] [Unoffic
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557230.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ Ghost Master: The Gravenville Chronicles (2004) [Xbox] [RegionFree] Freeboot [Li
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555978.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ Mario Kart Wii (2008) [Wii] [PAL] 4.2 [Repack] [Ru]
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555728.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ Fragile Dreams: Farewell Ruins of the Moon (2010) [Wii] [PAL] 4.2 [Repack] [Ru]
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555630.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ Cursed Mountain (2009) [Wii] [PAL] 4.2 [Repack] [Ru]
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555405.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ HELLDIVERS (2015) [PS3] [EUR] 3.30 [HEN] [Cobra ODE / E3 ODE PRO ISO / PKG] [Rep
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555278.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ Resident Evil Archives: Resident Evil (2009) [Wii] [NTSC] 4.2 [Repack] [Ru]
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555126.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ Resident Evil Archives: Resident Evil Zero (2009) [Wii] [NTSC] 4.2 [Repack] [Ru]
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554950.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ Command & Conquer 3: Kane's Wrath [rus] [PAL] (2008) [xbox 360]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551005.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ SteamWorld Heist (2016) [PSVita] [USA] 3.60 [NoNpDrm] [License / DLC] [Ru/Multi]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548304.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ Ziggurat (2016) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [En]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547183.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ Wii Fit U (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [En/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547145.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ Just Dance Wii U (2014) [WiiU] [JPN] 5.3.2 [Loadiine GX2] [License] [Jap]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547104.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ TerRover (2010) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545463.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ Oddworld: Stranger’s Wrath HD (2011) [PSVita] [EUR] 3.60 [HENkaku] [License] [
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545407.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ ELEX (2017) [PS4] [EUR] 5.05 [HEN] [License / 1.04] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542574.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ Dying Light: The Following (2016) [PS4] [EUR] 5.05 [HEN] [License / 1.35 / DLC] 
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542569.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ Bloodstained: Ritual of the Night (2019) [PS4] [USA] 5.05 [HEN] [License / 1.31]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542568.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ Just Dance 2: Best Buy Edition [Wii] [NTSC] [Eng] (2010)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542188.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ GTA: San Andreas (2005) [PS2] [USA] [Unofficial] [Ru]
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541440.jpg" />
 </div>
 
 
@@ -532,7 +636,7 @@ Under Night In-Birth Exe: Late (2014) [PS3] [EUR] 4.53 [Cobra ODE / E3 ODE PRO I
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540539.jpg" />
 </div>
 
 
@@ -560,7 +664,7 @@ THE KING OF FIGHTERS XIII (2011) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540533.jpg" />
 </div>
 
 
@@ -571,110 +675,6 @@ The King of Fighters XIII – очередная часть серии файт�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3CD7B2ABAD62894C76462AC68C5C3E6DE470251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925154   (540411) от 06.08.2015
-
-The Smurfs 2 (2013) [PS3] [EUR] 4.41 [Cobra ODE / E3 ODE PRO ISO] [License] [Multi]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Платформер The Smurfs 2 основан на одноименном мультфильме про маленьких смурфиков. Вместе с Папой Смурфом, Ворчуном, Красавчиком, Растяпой и другими героями вы побываете в захватывающем приключении от Парижа до Нью-Йорка, где сразитесь со злобным Гаргамелом. В игре представлен кооперативный режим до 4 человек.Тип издания: LicenseРазработчик: WayForward TechnologiesЖанр: Arcade, PlatformerЯзык озвучки: Английский, Немецкий, Итальянский, ФранцузскийЯзык интерфейса: Английский, Немецкий, Итальянский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71FADAC10AA7125B9DB9C7B0807F1415E481E277
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925140   (540274) от 06.08.2015
-
-Army of Two: The 40th Day (2010) [PS3] [EUR] 3.01 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [Ru/En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тщательно спланированная и подготовленная серия загадочных катастроф превращает Шанхай в руины. И, конечно же, неразлучная пара ветеранов-наемников — Салем и Риос — оказываются в самом центре событий. Не в то время, не в том месте, но в правильной компании! Теперь они должны проложить себе путь через разрушенные городские кварталы и не взирая на риск и опасности, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Electronic ArtsЖанр: 3rd-person shooterЯзык озвучки: АнглийскийЯзык субтитров: ОтсутствуетЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F59C9744F03D290A2F4A271F8DE29CB5EB7D16B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050225   (539781) от 07.09.2016
-
-Akiba's Trip: Undead & Undressed (2014) [PSVita] [USA] 3.60 [HENkaku] [License] [Multi]
-
->>Консольные Игры
->>PS Vita
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в районе Токио, Акихабаре. Район захватили демонические кровососы. Игрок должен победить демонов, сорвав с них одежду, чтобы подвергнуть их воздействию солнечных лучей. Сюжет игры – про заговор, скрываемый организацией Магаймоно. В игре есть 130 реальных магазинов из Акихабары, причем игрок может даже посещать их.Тип издания: LicenseРазработчик: ACQUIRE Corp.Жанр: Action, AdventureЯзык озвучки: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45D58D61EB1D35D8A4307D0F38C017822C0012B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925725   (538626) от 07.08.2015
-
-Where the Wild Things Are (2009) [PS3] [USA] 2.76 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экшен по мотивам фильма Спайка Джонзи «Where the Wild Things Are». Игра, как и фильм, основана на детской книжке Мориса Сендака "Там, где живут чудовища", рассказывающей о маленьком мальчике, который попадает на сказочный и довольно странный остров, населенный гигантскими существами со сверхспособностями. Аборигены провозглашают мальчугана своим королем (   Читать дальше...   )Тип издания: LicenseРазработчик: Griptonite GamesЖанр: Action-adventure / PlatformerЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57FF928AE4F17604C7C852AC0467FB23ADD6B0A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

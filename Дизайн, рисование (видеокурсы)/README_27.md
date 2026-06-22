@@ -6,7 +6,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800723.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Pixel, Таня Климань | Персонажи в Adobe Illustrator (2020) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800681.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Cloudlessons, Инна Гревцева | Основы коммерческой 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800680.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Polygon Runway, Roman Klco | 3D персонажи и иллюстрации в 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800668.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Skillbox, Pic-o-matic, Денис Бобкин и др. | Книжная илл�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799756.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Yanetskaya, Светлана Янецкая | Ми-ми-мишная иллюс�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798603.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Yanetskaya, Светлана Янецкая | Цифровая книжная и
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798540.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Udemy, Алексей Кириченко (Alexey Kirichenko) | Персонаж�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798528.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Skillshare, Gesa Pickbrenner | Learn Blender 2.90: Creative and 3D Printable Jew
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798077.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Skillshare, Gesa Pickbrenner | Foundations of Blender 2.90: Jewelry Design in 3D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798067.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ CG Cookie, Kent Trammell | Styling and Rendering Long Hair with Blender and Cycl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797333.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ FlippedNormals, Konrad Hetko | Creating Hair for Games in Blender (2021) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797275.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Highlights School | Основы веб-дизайна (2015) PCRec [H.264/720p]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797231.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795102.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Skillshare, Neil Bettison | Blender 2.9 Creating a Medieval Castle Kitbash Modul
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794657.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Lynda.com | SketchUp 2017 Essential Training (2016) PCRec [H.264/720p-LQ]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794508.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Skillshare, Neil Bettison | Blender to Unreal Engine 5 - Medieval Windmill (2021
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793678.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Udemy, Neil Bettison | Blender to Unreal Engine 5 - 3D Props - Medieval Gallows 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793672.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Blender Foundations | Blenderella, Моделирование Персонажа
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792065.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ CG Masters | Моделирование и Текстурирование Авт
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792059.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Udemy, Santiago Pereira Carrasco | Vector Displacement in Blender (2021) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791951.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ CG Masters | Полное создание автомобиля в Blender / Com
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790199.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Skillshare, Neil Bettison | Blender to Unreal Engine 5 - 3D Props - Medieval Mar
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789150.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788879.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Ctrl + Paint, Matt Kohr | 3D For Illustrators 02: What's Possible (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788844.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Ctrl + Paint, Matt Kohr | 3D For Illustrators 04: Texturing (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788836.jpg" />
 </div>
 
 

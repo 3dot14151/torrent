@@ -1,3 +1,107 @@
+###  Публикация: 1119920   (804893) от 29.03.2017
+
+Has-Been Heroes (2017) [Multi] (1.00.9762) License SKIDROW
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Has-Been Heroes — двухмерная стратегия с ролевыми элементами, действие которой разворачивается в магическом мире. Сюжет игры рассказывает об отважных героях, которым необходимо спасти королевство от сил зла. Отправьтесь в эпичное путешествие вместе с Has-Been Heroes, группой легендарных чемпионов, которые раньше были широко известны во всём королевстве за их героические (   Читать дальше...   )Тип издания: LicenseРазработчик: FrozenbyteЖанр: Экшены, Инди, Ролевые игры, СтратегииЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A9F15A68972D4B01BCC7775DC3269156631FCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198886   (804223) от 13.01.2018
+
+TheNightfall (2018) [Multi] (1.0) Repack MAXSEM
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виктория нашла работу в другом городе и перебирается туда со своей семьей. Но первая же ночь в новом доме оказывается совсем не такой, как можно ожидать. Ее муж и их двое детей приезжают днем позже, и первую ночь ей приходится провести в новом доме одной. Ночь начинается с бессонницы и легкого недомогания, но вскоре наступает настоящий кошмар. Доживете ли вы до рассвета?Тип издания: RePackРазработчик: VIS-GamesЖанр: Adventure, Horror, 1st Person, 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3967EC4E75640BFDAA6EDD90699A0A68D1FA0E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198852   (803990) от 13.01.2018
+
+TheNightfall (2018) [Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виктория нашла работу в другом городе и перебирается туда со своей семьей.Но первая же ночь в новом доме оказывается совсем не такой, как можно ожидать. Ее муж и их двое детей приезжают днем позже, и первую ночь ей приходится провести в новом доме одной. Ночь начинается с бессонницы и легкого недомогания, но вскоре наступает настоящий кошмар. Доживете ли вы до рассвета?Тип издания: LicenseРазработчик: VIS-GamesЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4870DB3DDF7D7396C648D69BE00EDAA0B1E714E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198802   (803975) от 13.01.2018
+
+The Talos Principle (2014) [Ru/Multi] (326589/dlc) Repack R.G. Механики [Gold Edition]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803975.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Talos Principle - это философская головоломка с видом от первого лица от студии Croteam, создателей легендарной серии Serious Sam, написанная в соавторстве с Томом Жубертом (FTL, The Swapper) и Йонасом Киратзесом (The Sea Will Claim Everything). Словно пробудившись от глубокого сна, вы оказываетесь в странном, диковинном мире, полном древних руин и сложных машин.Тип издания: RepackРазработчик: CroteamЖанр: Adventure (Puzzle), 3D, 1st PersonЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DDEC417028800CFD7316AAC2CB30BDB0E7C7770
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199177   (802378) от 14.01.2018
 
 The Wolf Among Us (2013-2014) [Multi] (1.0) License GOG [Episodes 1-5]
@@ -6,7 +110,7 @@ The Wolf Among Us (2013-2014) [Multi] (1.0) License GOG [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802378.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Life Is Strange Dilogy (2015-2017) [Ru/Multi] (1.0.0.397609/1.2.0.7.1712051016) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802370.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Dagon: by H. P. Lovecraft (2021) [Ru/Multi] (2021.10.23:028) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802304.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Observer: System Redux (2020) [Ru/Multi] (r24065) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802192.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Return to Mysterious Island / Возвращение на таинственны
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801418.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Gomo (2016) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801002.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Live Or Die (2021) [En] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800821.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ DYING: Reborn (2018) [Multi] (1.0) Repack MAXSEM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800818.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Observation (2019) [Ru/Multi] (1.16) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800780.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Indicted (2021) [Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800772.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Horror Story: Hallowseed (2021) [Ru/Multi] (1.0.0a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800721.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Observation (2019) [Ru/Multi] (1.16) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800691.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Dreamfall Chapters (2014) [Multi] (5.4.1.1) License PROPHET [Complete]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800160.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Nancy Drew: The Silent Spy / Нэнси Дрю: Безмолвный шпион 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800021.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Grotto (2021) [En] (1.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799871.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ The Radio Station (2021) [Multi] (1.01) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799825.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ I Am Fish (2021) [Ru/Multi] (1.1.1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799811.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Memoranda (2017) [En] (1.1.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798980.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Infernium (2018) [Ru/Multi] (1.0upd1) Repack SpaceX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798947.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Rugrats Go Wild (2003) [Ru/En] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798616.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Growbot (2021) [Ru/Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798599.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Conway: Disappearance at Dahlia View (2021) [Multi] (7639057) License FAiRLIGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798549.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Conway: Disappearance at Dahlia View - захватывающий триллер
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B00113CB89A0A6A070C0D20B0E926353E98D7F45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507250   (798513) от 03.11.2021
-
-FATAL FRAME / PROJECT ZERO: Maiden of Black Water (2021) [Multi] (1.0.0.1.7615915/dlc) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то гору Хиками считали священной. В свое время там процветала необычная религия, ключевое место в которой занимало поклонение воде - а еще, как говорят, в этих местах произошло множество страшных несчастных случаев и не раз наблюдали загадочные явления. Таинственный и запутанный сюжет расскажет историю трех персонажей - Юри Кодзукаты, Мю Хинасаки и Рэна Ходзё. (   Читать дальше...   )Тип издания: LicenseРазработчик: KOEI TECMO GAMES CO., LTD.Жанр: Приключенческие игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Французский, Немецкий, Японский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA9A98986E2E9D78839DA462CDD4A5217485B57D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506335   (798508) от 03.11.2021
-
-Happy Game (2021) [Ru/Multi] (1.0.3) License GOG [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мальчик играет в своей комнате и решает поспать, после чего через некоторое время попадает в ужасный кошмар. Ему придётся пережить три ужасных кошмара для того, чтобы снова стать счастливым. Символом счастья является мяч, с которым раньше играл мальчик на детской площадке, но вдруг приходит другой мальчик и забирает мячик у нашего главного героя, тот, в растерянности, (   Читать дальше...   )Тип издания: LicenseРазработчик: Amanita DesignЖанр: Приключение, Квест, ХоррорЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13DB10A77B55A9C661158FDEFB51C855FDEAEBC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507619   (798226) от 05.11.2021
-
-In Silence (2021) [Ru/Multi] (1.01) License DARKSiDERS [Winterland Update]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798226.jpg" />
-</div>
-
-
-###  Подробнее
-
-In Silence - игра ужасов. Один игрок берет на себя роль монстра, который обладает гиперчувствительными слуховыми способностями и почти полностью слеп. Другие игроки (2-6) играют как выжившие, пытаясь сбежать или охотиться на монстра. В Silence разработан для обеспечения другого онлайн-опыта ужасов. Вы можете охотиться на всех, используя свои превосходные чувственные (   Читать дальше...   )Тип издания: LicenseРазработчик: Ravenhood GamesЖанр: Хоррор, Приключения, ЭкшнЯзык интерфейса: Русский, Английский, Французский, Португальский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:293A463F20235E307E74372B4B0811534E308574
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507594   (798212) от 05.11.2021
-
-Gazmatera 2 America's Least Wanted (2021) [Ru/En] (1.0) License DARKSiDERS
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798212.jpg" />
-</div>
-
-
-###  Подробнее
-
-1984-1986 годы. Возьмите под свой контроль четверых "генералов", Джеффа, Кайлу, Хельгу и Эмину! Пробежитесь через 3 акта по 5 уровней каждый, чтобы узнать, как сложилась судьба главных героев! Вторая часть Gazmatera - приквел первой игры. Помните "генералов" из 1988 в первой игре? Узнайте, как "генералы" встретились и докатились до жизни (   Читать дальше...   )Тип издания: LicenseРазработчик: Kalifas (ex-Katapult)Жанр: Экшен, Приключения, ИндиЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDFC54ECE740CEB33E9CE9BBC2EA09B950BFF558
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1635177   (232817) от 24.05.2023
+
+Бунтарь без причины / Rebel Without a Cause (1955) UHD BDRip [H.265/2160p] [4K, HDR10, 10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джим Старк живёт, словно в западне: он не понимает, что его гложет, но в душе нет спокойствия. Он не находит общего языка с родителями, хотя и пытается вписаться в образ тихого юноши из приличной семьи. Бунтарская натура заставляет героя принять участие в опасном состязании, цель которого — доказать крутому Баззу и его банде, что он не трус. Приняв вызов Базза, Джим (   Читать дальше...   )Производство: США, Warner Bros. PicturesЖанр: драма, мелодрамаРежиссер: Николас РэйАктеры: Джеймс Дин, Натали Вуд, Сэл Минео, Джим Бакус, Энн Доран, Кори Аллен, Уильям Хоппер, Рошелль Хадсон, Деннис Хоппер, Эдвард ПлаттПеревод: Многоголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:50:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDCBAB18A142DB098301A69BAD427826238C44F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551494   (232801) от 27.05.2022
+
+Перевал Брейкхарт / Breakheart Pass (1975) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на одноимённом романе 1974 года шотландского писателя Алистера Маклина. В 1876 году на поезде с лекарствами для военного гарнизона последовательно погибают пассажиры. Разобраться, кто убивает попутчиков, вызывается Джон Дикин - находящийся под арестом преступник. А на перевале Брейкхарт этот поезд очень ждут индейцы...Производство: США, Gershwin-Kastner ProductionsЖанр: детектив, вестернРежиссер: Том ГризАктеры: Чарльз Бронсон, Бен Джонсон, Ричард Кренна, Джилл Айрленд, Чарльз Дёрнинг, Эд Лотер, Билл МакКинни, Дэвид Хаддлстон, Рой Дженсон, Рэйфорд БарнсПеревод: профессиональный многоголосый (5 канал), профессиональный двухголосый (НТВ+), авторский (Антон Алексеев)Субтитры: английские SDHПродолжительность: 01:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:104A717FA1709B4356992D6E8A03364AE19B83E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635181   (232649) от 24.05.2023
 
 Вооружены и опасны / Armed and Dangerous (1986) BDRip [H.265/1080p] [10-bit]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232649.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232367.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232120.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231732.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231134.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231110.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230938.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230789.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230696.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230537.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230530.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230499.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230219.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_229882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229882.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229550.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229510.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229135.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228616.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227514.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226868.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_225539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225539.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225086.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224874.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224101.jpg" />
 </div>
 
 
@@ -622,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A3E5F2AF632067646ADFA6767FE91B89CC4F174
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551354   (223846) от 19.10.2022
-
-Совершеннолетие / Age of Consent (1968) BDRip [H.264/720p] [Director's Cut] [VO]
-
->>След.
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брэдли Морахэн — знаменитый австралийский художник, выплачивающий большие алименты, готовится к отъезду на родину. Он направляется на Большой Барьерный риф, чтобы поселиться в полуразрушенной хижине на острове своей мечты недалеко от материка. Живут на этом острове ещё пропитанная джином старуха, похожая на ведьму, её внучка Кора и Избель Марли - изголодавшаяся по (   Читать дальше...   )Производство: Великобритания, Австралия / Nautilus ProductionsЖанр: драма, мелодрама, комедия, биографияРежиссер: Майкл ПауэллАктеры: Джеймс Мейсон, Хелен Миррен, Джек МакГоурэн, Нева Карр-Глинн, Андония Катсарос, Майкл Бодди, Харольд Хопкинс, Слим ДеГрей, Макс Мелдрам, Хадсон ФосеттПеревод: Одноголосый любительский (Гундос)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:46:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98476D427A7A606BA651961ECDBA0AFB027D7C8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 736385   (223664) от 20.12.2013
-
-Харакири / Harakiri / Seppuku (1962) BDRemux [H.264/1080p] [The Criterion Collection]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223664.jpg" />
-</div>
-
-
-###  Подробнее
-
-После распада своего клана безработный самурай Хансиро Цугумо прибыл в поместье лорда Ии с просьбой совершить харакири в его имении. Члены клана Ии, полагая, что отчаявшийся ронин просто уповает на милостыню, пытаются заставить его совершить харакири, однако они его сильно недооценивают.Производство: Япония, ShochikuЖанр: драма, боевик, историяРежиссер: Масаки КобаясиАктеры: Тацуя Накадаи, Акира Исихама, Сима Ивасита, Тэцуро Тамба, Масао Мисима, Итиро Накатани, Кэи Сато, Ёсио Инаба, Хисаси Игава, Тору ТакэутиПеревод: Многоголосый закадровыйСубтитры: Английские, РусскиеПродолжительность: 02:13:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F6E496D326A23A9242468D1E892FB56B2F769BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

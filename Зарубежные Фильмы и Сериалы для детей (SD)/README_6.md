@@ -1,3 +1,29 @@
+###  Публикация: 1524104   (746375) от 14.01.2022
+
+Приключения Паддингтона 2 / Paddington 2 (2017) DVD5 [Custom]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746375.jpg" />
+</div>
+
+
+###  Подробнее
+
+В антикварном магазине Лондона обаятельный и хорошо воспитанный медведь Паддингтон находит уникальную старинную книгу. Пока он изо всех своих медвежьих сил старается накопить на нее деньги, редчайшее издание внезапно похищают. Паддингтон оказывается вовлечен в аферу века, затеянную знаменитым, но вышедшим в тираж актером, который ныне рекламирует собачьи консервы, (   Читать дальше...   )Производство: Великобритания, Франция, США, Китай, Канада / Studio Canal, Heyday FilmsЖанр: Фэнтези, комедия, семейныйРежиссер: Пол КингАктеры: Бен Уишоу, Хью Бонневилль, Салли Хокинс, Хью Грант, Мадлен Харрис, Сэмюэл Джослин, Джули Уолтерс, Брендан Глисон, Джим Бродбент, Питер КапальдиПеревод: Дублированный (Лицензия)Субтитры: ОтсутствуютПродолжительность: 01:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B499E6D98C2DFFC8A21757A71B95918E6E6CFD01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524098   (746277) от 14.01.2022
 
 Приключения Паддингтона 2 / Paddington 2 (2017) DVD9
@@ -6,7 +32,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746277.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738983.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738256.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730856.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726239.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725895.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722865.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715992.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714361.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713806.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713648.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709861.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709411.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706997.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706912.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705043.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699357.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696749.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689474.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688834.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688412.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688022.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687338.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683897.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682190.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BA9A4A158AE44DEBCE1889A568A00F292978BEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223011   (680561) от 01.05.2018
-
-Кролик Питер / Peter Rabbit (2018) BDRip [H.264]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о приключениях маленького и непоседливого крольчонка по имени Питер, который хочет пробраться в огород к грозному фермеру и вдоволь полакомиться там фруктами и овощами.Производство: Австралия, США, 2.0 Entertainment, Animal Logic Entertainment, Animal LogicЖанр: Мультфильм, Комедия, Приключения, Фэнтези, СемейныйРежиссер: Уилл ГлакПеревод: Дублированный (iTunes)Субтитры: Русские (full), Украинские (full), Английские (full)Продолжительность: 01:34:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20A0B4463E5E48DC58EB8C8D6A1EB3F1AF5C431D
 ```
 
 https://mybot314.ru/tekegram_catalog/

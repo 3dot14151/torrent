@@ -6,7 +6,7 @@ Topaz Products Unlock Kit 2 for Mac [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024822.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Rsync Server Basic Edition 2018.08.12 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024633.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ TurboCAD Pro 12.0.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024586.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Allegorithmic Substance Painter 2021.1.1  [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024575.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NoteBurner Spotify Music Converter 2.1.3 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024552.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Artboard 2.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024451.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ EditReady 2.7.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024443.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ WidsMob Image Viewer 2.14 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024438.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ WidsMob Portrait Pro 4.10 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024394.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Sharks 3D 2.0.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024387.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Grid 1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024064.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Wondershare TidyMyMusic 3.0.2 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023837.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ FUSE for macOS 4.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023536.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Luminar 4  v4.3.3 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023465.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ EventScripts 1.32 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023341.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Templates for Pages – DesiGN 7.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023307.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ AYBO 1.18.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022640.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ AYVY 1.10.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022633.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ RAR Extractor  - unzi‪p‬ 5.8.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022621.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Contacts to QR Codes Pro 1.6.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022587.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Leech 3.1.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022469.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ FxFactory Pro 7.2.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022421.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ HDR Pro 3.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022313.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Splash n Recolor 4.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022310.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Blur n Bokeh 3.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022303.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ MACSpoof 1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022301.jpg" />
 </div>
 
 

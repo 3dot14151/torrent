@@ -1,3 +1,90 @@
+###  Публикация: 1611934   (1040878) от 13.02.2023
+
+Cleophuzz - 3 Releases (2018-2023) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2018 - Wizard of Phuzz (EP)
+2019 - Desperados (Single)
+2023 - MYSTIC VULTUREЖанр: Heavy Rock, Psych, StonerПродолжительность: 3 CD, 01:24:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99A26484B071F02BCE8C863753955BAAEC816E37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611538   (1040875) от 13.02.2023
+
+The Schizophonics - 3 Albums (2017-2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2017 - Land of the Living
+2019 - People in the Sky
+2022 - Hoof ItЖанр: RockПродолжительность: 3 CD, 01:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09BCD7770E5B9ABA7A25278473A15BE8023AFD3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611721   (1040840) от 13.02.2023
+
+Solstice - 3 Albums (2013-2022) [MP3|320 Kbps] <Neo-Progressive, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2013 - Prophecy
+2020 - Sia
+2022 - Light UpЖанр: Neo-Progressive, Folk RockПродолжительность: 3 CD, 02:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C4CF9D43ABAEFFE88F15DEFB311728F12CC2BC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612054   (1040636) от 14.02.2023
 
 Stoned Matter - 2 Albums (2020-2023) [MP3|320 Kbps] <Heavy Rock, Stoner, Sludge>
@@ -6,7 +93,7 @@ Stoned Matter - 2 Albums (2020-2023) [MP3|320 Kbps] <Heavy Rock, Stoner, Sludge>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040636.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ The Three-Body Problem - Light Gave Way (2023) [MP3|320 Kbps] <Progressive Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040561.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ VA - Intrigue - Steven Wilson presents Progressive Sounds in UK Alternative Musi
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040559.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Solence - Hope is a Cult (2023) [MP3|320 Kbps] <Alt.Rock, Modern Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040172.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Creye - III: Weightless (2023) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040170.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Trevor Bolder - Sail The Rivers (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040115.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Brad Wallace - Slow Worm (2020) [MP3|320 Kbps] <Progressive Rock, Progressive Me
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039954.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ ProAge - 4. Wymiar (2021) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039945.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ The Black Keys - Discography (2002 - 2010) [MP3|320 kbps]<Blues-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039676.jpg" />
 </div>
 
 
@@ -270,7 +357,7 @@ Osi - Free (2006) Deluxe Edition, Remastered, 2021 [MP3|320 Kbps] <Progressive R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039605.jpg" />
 </div>
 
 
@@ -299,7 +386,7 @@ Crack The Sky - Tribes (2021) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039596.jpg" />
 </div>
 
 
@@ -328,7 +415,7 @@ Shocking Blue - The Blue Box (2017) 13CD (2017) [MP3|320 Kbps] <Classic Rock, Po
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039579.jpg" />
 </div>
 
 
@@ -357,7 +444,7 @@ Silent Temple - Marvelers Of Creation (2020) [MP3|320 Kbps] <Progressive Rock, C
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039338.jpg" />
 </div>
 
 
@@ -386,7 +473,7 @@ Steve Hughes - 3 Albums (2022-2023) [MP3|320 Kbps] <Neo Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039099.jpg" />
 </div>
 
 
@@ -415,7 +502,7 @@ Chris Norman (ex-Smokie) - Close Up (2007) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038863.jpg" />
 </div>
 
 
@@ -444,7 +531,7 @@ VA - Romantic Collection '2000. Metal Ballads (2000) [OGG Vorbis|480 Kbps] <Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038784.jpg" />
 </div>
 
 
@@ -473,7 +560,7 @@ Rick Miller - Altered States (2023) [MP3|320 Kbps] <Progressive Rock, Crossover 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038595.jpg" />
 </div>
 
 
@@ -502,7 +589,7 @@ Fee Waybill - Fee Waybill Rides Again (2020) [MP3|320 Kbps] <Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038517.jpg" />
 </div>
 
 
@@ -531,7 +618,7 @@ Kungens Man - Trappmusik (2020) 2xCD [MP3|320 Kbps] <Krautrock, Psychedelic Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038066.jpg" />
 </div>
 
 
@@ -560,7 +647,7 @@ VA - Romantic Collection: Metal Ballads 2 (2000) [OGG Vorbis|480 Kbps] <Rock, Ha
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038046.jpg" />
 </div>
 
 
@@ -589,7 +676,7 @@ Gerry Rafferty & Stealers Wheel - 14 Albums, Box Set (1971 - 2021) 17CD [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037842.jpg" />
 </div>
 
 
@@ -618,7 +705,7 @@ Inverna - Inverna, Pt. 1 (2023) [MP3|320 Kbps] <Progressive Rock, Heavy Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037303.jpg" />
 </div>
 
 
@@ -647,7 +734,7 @@ Khan - Creatures (2023) [MP3|320 Kbps] <Heavy Rock, Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037294.jpg" />
 </div>
 
 
@@ -661,93 +748,6 @@ Khan - Creatures (2023) [MP3|320 Kbps] <Heavy Rock, Stoner Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63DD85483C7F5A9E344DF6744776D18D2AFAC47F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616195   (1036703) от 01.03.2023
-
-The Alan Parsons Project - The Turn Of A Friendly Card (1980) Limited Edition Boxset, 3CD, 2023, Esoteric Records [MP3|320 Kbps] <Simphonic Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-CD 1: Original Album
-CD 2: Eric's Songwriting Diaries
-CD 3: Recording Session Bonus TracksЖанр: Simphonic Progressive RockПродолжительность: 3 CD, 02:29:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FFF7E157283FBFC2169696704CA605FA4EF684A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442322   (1036630) от 25.01.2021
-
-Fatal Fusion - Land of the Sun (2021) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Land of the Sun [00:09:02]
-02 - Cry No More [00:03:53]
-03 - Promises [00:06:25]
-04 - Love in the Sky [00:06:48](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FDBB1AF564310FCDAC7FD86D2BEC070CE775AF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442676   (1036353) от 26.01.2021
-
-Roland Gassin - Born In The Seventies (2021) [MP3|320 Kbps] <Progressive Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine On (02:39)
- 02. Rocking With Ray Charles (05:42)
- 03. The Preacher (05:10)
- 04. Better Days Ahead (04:21)(   Читать дальше...   )Жанр: Progressive Rock, Classic RockПродолжительность: 00:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C1A62FBF259283D798F41FE2B653C0E6DD6CF05
 ```
 
 https://mybot314.ru/tekegram_catalog/

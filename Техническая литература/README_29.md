@@ -1,3 +1,56 @@
+###  Публикация: 1836114   (252275) от 09.11.2025
+
+Б.Ф. Асташкин, В.В. Мамлин и др. | Пассажирские троллейбусы ЗиУ-5, ЗиУ-7 (1966) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заводская инструкция по эксплуатации пассажирских троллейбусов ЗиУ-5 и ЗиУ-7.
+Может представлять интерес для любителей истории отечественного городского электротранспорта.Жанр: инструкция по эксплуатацииИздательство: Завод им. УрицкогоФормат: DJVU, PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80D0488F5FEB5FC5C4FBAF69047A52CADA85DF57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636428   (251936) от 30.05.2023
+
+В.Г. Дмитриев | Радиоэлектронная борьба: функциональное поражение радиоэлектронных средств (2021) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассматриваются принципиальные возможности, технические приемы проектирования и использования средств функционального поражения одноразового и многоразового применения, оснащенных сверхвысокочастотными и сверхширокополосными импульсными генераторами. Для специалистов в области радиоэлектронной и информационной борьбы. Издание может быть полезно студентам и аспирантам, (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C790ABE7B13B0EE7345A96D3296D3EB34496540
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1835627   (251231) от 07.11.2025
 
 Н.С. Спиридонов | Основы теории транзисторов (1975) [DJVU]
@@ -6,7 +59,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_251231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251231.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Farzin Asadi | Circuits Laboratory Manual [4 книги] (2023 - 2024) [PDF] [En
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250426.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Dogan Ibrahim | LTspice Essentials: An Introduction to Circuit Simulation (2024)
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250420.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248869.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248808.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248308.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245747.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242888.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241346.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239595.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238624.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235309.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234910.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232936.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232897.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232695.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232415.jpg" />
 </div>
 
 
@@ -451,7 +504,7 @@ Dohan Ibrahim | Circuit Simulation with TINA Design Suite and TINACloud (2022) [
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231281.jpg" />
 </div>
 
 
@@ -477,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231065.jpg" />
 </div>
 
 
@@ -504,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230932.jpg" />
 </div>
 
 
@@ -530,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230901.jpg" />
 </div>
 
 
@@ -556,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228490.jpg" />
 </div>
 
 
@@ -582,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227801.jpg" />
 </div>
 
 
@@ -609,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227508.jpg" />
 </div>
 
 
@@ -620,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4FAFFE3F530054469E60793FFEFC9E8083CB37B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268305   (226006) от 11.12.2018
-
-Эрл Д. Гейтс | Введение в электронику (1998) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга известного американского специалиста в простой и доступной форме знакомит с основами современной электроники. Основная ее цель - теоретически подготовить будущих специалистов - электриков и электронщиков - к практической работе, поэтому кроме детального изложения принципов работы измерительных и полупроводниковых приборов, интегральных микросхем рассмотрены (   Читать дальше...   )Жанр: ЭлектроникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5372888E8E55EA47456C905AB5A668F1A34196AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342244   (224983) от 01.12.2019
-
-Вольфганг Нуч (ред.) | Деревообработка (2007) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее издание - ценный справочник, в котором приведены основные сведения по деревообработке. В книге содержится подробная информация о древесине: ее строении, свойствах, химическом составе, способах защиты от вредных воздействий окружающей среды. Авторы предлагают обзор древесных материалов и технологий работы с ними, подробно рассматривают ручные и электрические (   Читать дальше...   )Жанр: ДеревообработкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F20C0472FEF1EFF9FC41901662D2459C97A9E0E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

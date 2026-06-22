@@ -1,3 +1,109 @@
+###  Публикация: 1653839   (206036) от 17.08.2023
+
+Airy 3.28 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Airy — YouTube загрузчик. Если вам очень понравилось видео на YouTube и вы хотели бы, чтобы доступ к нему не зависел от вашего подключения к Интернет - вам поможет Airy. Airy - это YouTube загрузчик для Mac номер один, который с легкостью сохранит любое YouTube видео прямо на ваш компьютер.
+Простой и аккуратный Mac YouTube загрузчик с возможностью одновременного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.08.2023Разработчик: © 2023 Eltima SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D64747DB13EFD1543AC9F19CB48952A4B195607
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653211   (205557) от 15.08.2023
+
+PCDJ DEX PRO 3.20.6 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205557.jpg" />
+</div>
+
+
+###  Подробнее
+
+PCDJ DEX 3 - профессиональное программное обеспечение для DJ на macOS, которое позволяет легко микшировать музыку, музыкальные клипы и устраивать караоке-шоу. DEX 3 дает вам полный контроль над вашими медиафайлами, предоставляя больше творческой свободы при микшировании, чем когда-либо прежде. Благодаря нашему автоматическому микшированию ударов на основе сетки ударов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.08.2023Разработчик: © 2006 - 2022 DIGITAL 1 AUDIO INCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78FA4FB5A5E8CD2346075E07FED7D88E05D141F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653307   (205555) от 15.08.2023
+
+ExactScan Pro / Enterprise 23.4 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205555.jpg" />
+</div>
+
+
+###  Подробнее
+
+ExactScan – современное решение для сканирования, в состав которого входит более 400 различных драйверов для сканеров документов от таких изготовителей как Avision, Canon, Fujitsu, HP, Kodak, Oki, Panasonic, Visioneer и Xerox. для которых изготовитель не предоставляет драйверы под операционную Mac OS, и, соответственно, без таких драйверов они не могут работать под (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.07.2023Разработчик: © 2022 ExactCODE GmbHПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F295DF095326DD980DB7940821C855A0F700FF47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653400   (205541) от 15.08.2023
+
+UninstallPKG 1.2.1  [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205541.jpg" />
+</div>
+
+
+###  Подробнее
+
+UninstallPKG - приложение, которое позволяет Вам полностью удалять так называемые «пакеты» (расширения файла *pkg) и все их установленное содержимое с Вашего Mac.
+UninstallPKG может использоваться для очистки свободного пространства на диске , например удалить неиспользуемые драйвера принтера или полностью удалить приложения, которые Вы больше не используете. UninstallPKG (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.08.2023Разработчик: © 2023 CoreCodeПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и д.р.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C869F12164769ED59292EC3BCA9056B75854DBD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653422   (205510) от 16.08.2023
 
 AirRadar 7 v.7.4 [En]
@@ -6,7 +112,7 @@ AirRadar 7 v.7.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205510.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ CaptureGRID 4 v.4.27 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205394.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ BarLinks: Menu Bar Bookmarks 1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205333.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ timeLAPSE for Mac 2.66 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205329.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ Aspect Ratio Calculator for Mac 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205327.jpg" />
 </div>
 
 
@@ -137,7 +243,7 @@ Auditory - Rec lecture & notes 1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205289.jpg" />
 </div>
 
 
@@ -163,7 +269,7 @@ AYBO 1.22.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205277.jpg" />
 </div>
 
 
@@ -189,7 +295,7 @@ The Clock - The Best World Clock 4.8 U2B [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205275.jpg" />
 </div>
 
 
@@ -216,7 +322,7 @@ future.dj pro - mix everything 1.11.3.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205171.jpg" />
 </div>
 
 
@@ -243,7 +349,7 @@ Duplicate File Doctor for Mac 1.2 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205124.jpg" />
 </div>
 
 
@@ -270,7 +376,7 @@ Overlay 4.26 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205113.jpg" />
 </div>
 
 
@@ -297,7 +403,7 @@ FigrCollage Pro 3.3.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205112.jpg" />
 </div>
 
 
@@ -323,7 +429,7 @@ Dropshare 5.35.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204614.jpg" />
 </div>
 
 
@@ -350,7 +456,7 @@ Wolfram Mathematica 13.3.1 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204580.jpg" />
 </div>
 
 
@@ -376,7 +482,7 @@ Movist Pro 2.8.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204547.jpg" />
 </div>
 
 
@@ -403,7 +509,7 @@ iThoughtsX 9.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204390.jpg" />
 </div>
 
 
@@ -429,7 +535,7 @@ iFastZip - Extract RAR & ZIP & 7Z for Mac 8.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204337.jpg" />
 </div>
 
 
@@ -455,7 +561,7 @@ Image Resizer – Resize Photos 2.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204270.jpg" />
 </div>
 
 
@@ -482,7 +588,7 @@ Lyn 2.3.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204241.jpg" />
 </div>
 
 
@@ -508,7 +614,7 @@ Batch Photo Resizer 3.2 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204215.jpg" />
 </div>
 
 
@@ -535,7 +641,7 @@ Ftp-Serv 8.3.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204202.jpg" />
 </div>
 
 
@@ -564,7 +670,7 @@ Nik Complete 5 Collection by DxO v.5.4.0 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204134.jpg" />
 </div>
 
 
@@ -576,110 +682,6 @@ Nik Complete 5 Collection by DxO v.5.4.0 U2B [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A55DC41E19810EDC4E70CAC40477CE28232C2938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655667   (204042) от 27.08.2023
-
-ExactScan Enterprise 23.5 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204042.jpg" />
-</div>
-
-
-###  Подробнее
-
-ExactScan – современное решение для сканирования, в состав которого входит более 400 различных драйверов для сканеров документов от таких изготовителей как Avision, Canon, Fujitsu, HP, Kodak, Oki, Panasonic, Visioneer и Xerox. для которых изготовитель не предоставляет драйверы под операционную Mac OS, и, соответственно, без таких драйверов они не могут работать под (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.08.2023Разработчик: © 2022 ExactCODE GmbHПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CECC2A4050991F812B508EC3A37A1291F5AF9270
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605026   (203978) от 16.01.2023
-
-Topaz Video Enhance AI for Mac 3.0.12 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Потрясающие возможности для работы с видео с помощью революционной технологии искусственного интеллекта. Обученный на тысячах видеороликов и объединяющий информацию из нескольких входных видеокадров, Topaz Video Enhance AI увеличит и улучшит ваши кадры до разрешения 8K с точными деталями и согласованностью движения. Video Enhance AI, использующее интеллектуальную (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.01.2023Разработчик: © 2022 Topaz Labs.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AEEFE3BD3EED88C053FBBD2A4314D5028C50ADB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656003   (203732) от 28.08.2023
-
-PlainPad 1.3.1 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203732.jpg" />
-</div>
-
-
-###  Подробнее
-
-PlainPad - это редактор для простых текстовых файлов с понятным интерфейсом. Благодаря обширным настройкам по умолчанию PlainPad предлагает множество вариантов настройки среды записи в соответствии с вашими потребностями и предпочтениями. Будь то быстрые заметки, идеи, задачи или обширные тексты, PlainPad предлагает среду для всех видов письма, чтобы выразить свои (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.07.2022Разработчик: © 2010 - 2023 Alexander SasseПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3CB5EFA2C7D20E689070D0F8F75B05311638064
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655968   (203701) от 28.08.2023
-
-Mix Up Studio 3.3.2 [Multi]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mix Up Studio — это портативная студия для создания музыки во всех популярных стилях, где бы к вам ни пришло вдохновение . Придумывайте сумасшедшие музыкальные идеи, а Mix Up Studio сделает все возможное, чтобы превратить ваши идеи в потрясающие музыкальные треки.Тип издания: macOS SoftwareРелиз состоялся: 23.09.2022Разработчик: © 2017-2022 Music Topia, LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B5CD8DB01E971A32A0EE7D9A16AF607CC49F542
 ```
 
 https://mybot314.ru/tekegram_catalog/

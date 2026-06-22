@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502404.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501975.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501163.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501153.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501075.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500119.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499057.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499002.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498434.jpg" />
 </div>
 
 
@@ -232,6 +232,62 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 235342   (496814) от 13.09.2010
+
+33 весёлых буквы (4.09.10) (2010) IPTVRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_496814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что нужно для отличного настроения? Конечно, хорошие шутки! Благодаря ведущим программы Владимиру Маурину и Владимиру Логинову все 33 буквы русского алфавита… веселые! В программе - розыгрыши, импровизации, объявления, отрывки из сочинений, анекдоты и многое другое.
+Зрителям в зале скучать не придется. Они смогут задать вопросы двум Владимирам и получить на них смешные ответы.
+В каждой программе также номера специально приглашенных звездЖанр: Юмор
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 235340   (496802) от 13.09.2010
+
+33 весёлых буквы (28.08.10) (2010) IPTVRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_496802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что нужно для отличного настроения? Конечно, хорошие шутки! Благодаря ведущим программы Владимиру Маурину и Владимиру Логинову все 33 буквы русского алфавита… веселые! В программе - розыгрыши, импровизации, объявления, отрывки из сочинений, анекдоты и многое другое.
+Зрителям в зале скучать не придется. Они смогут задать вопросы двум Владимирам и получить на них смешные ответы.
+В каждой программе также номера специально приглашенных звездЖанр: Юмор
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1053900   (496464) от 18.09.2016
 
 Однажды в России (2016.09.18) SATRip (сезон 4, выпуск 4)
@@ -240,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496464.jpg" />
 </div>
 
 
@@ -266,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496246.jpg" />
 </div>
 
 
@@ -292,7 +348,7 @@ Stand Up (2016.09.18) SATRip (сезон 5, выпуск 1)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496150.jpg" />
 </div>
 
 
@@ -318,7 +374,7 @@ Comedy Баттл. Последний сезон. Этап 2. Выпуск №24
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496065.jpg" />
 </div>
 
 
@@ -344,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495768.jpg" />
 </div>
 
 
@@ -370,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495586.jpg" />
 </div>
 
 
@@ -396,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495508.jpg" />
 </div>
 
 
@@ -422,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494482.jpg" />
 </div>
 
 
@@ -448,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494454.jpg" />
 </div>
 
 
@@ -474,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494449.jpg" />
 </div>
 
 
@@ -500,7 +556,7 @@ Comedy Баттл. Последний сезон. Выпуск №24  / Коме
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494260.jpg" />
 </div>
 
 
@@ -526,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494197.jpg" />
 </div>
 
 
@@ -552,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493982.jpg" />
 </div>
 
 
@@ -578,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493813.jpg" />
 </div>
 
 
@@ -604,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493728.jpg" />
 </div>
 
 
@@ -615,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DC0C0F780945A50077D930EBF1DFC8CA6ADBDF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937031   (491896) от 13.09.2015
-
-Однажды в России. Сезон 2. Выпуск 7 (2015.09.13) SATRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Производство: РоссияТелекомпания: ТНТЖанр: Юмористическое тв-шоуПродолжительность: 00:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2E0E0092B113DBAFDDFD44DACDC171400E689DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544527   (491836) от 07.09.2012
-
-Смотреть всем! (2012.09.07) SATRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эти видеоролики увлекли миллионы людей в Интернете! Снятые на мобильные телефоны, фотоаппараты и любительские камеры – они собрали больше просмотров, чем любой из кинохитов сезона. Программа «Смотреть всем!» разберется, как сложилась судьба создателей и участников этих видеороликов: для кого они стали сказкой, а для кого – кошмарным уроком.Жанр: ЮморПродолжительность: ~ 00:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0903D29DE79F9C45DC28FDFAB2C0610681EA11C
 ```
 
 https://mybot314.ru/tekegram_catalog/

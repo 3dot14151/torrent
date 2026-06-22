@@ -6,7 +6,7 @@ Armin Van Buuren - Live at Tomorrowland 2024 (Mainstage) [Highlights] (2024) Liv
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48168.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Army Of Lovers - Remixodus (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Da
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48163.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Armin Van Buuren - A State of Trance Radio Top 50 - 2024, Vol. 2 (2024) [FLAC 16
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48161.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Blues Pills - Birthday (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47440.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ James-Johnson - Midnight Blues (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47437.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Mushroomhead - Call The Devil (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Altern
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47435.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Jack White - No Name (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47434.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ George Harrison - The Concert for Bangladesh (1991) 2024 [FLAC 24/96|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47430.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Cults - To the Ghosts (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <IndiePop, Lofi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47122.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Mark Knopfler - One Deep River (2024) Deluxe [FLAC 24/192|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46828.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Marilyn Manson - Raise The Red Flag, As Sick As The Secrets Within (2024) [FLAC 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46696.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Falling In Reverse - Popular Monster (2024) [FLAC 24/44.1,96|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46520.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Meghan Trainor - Timeless (2024) Deluxe [FLAC 24/48|Lossless|WEB-DL|tracks] <Eur
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46493.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Written By Wolves - THE LIGHTHOUSE (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46288.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Richard Clapton - Goodbye Tiger (1977) Remaster, 2024, WM Australia [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46287.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Arielle - Reel To Real (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46286.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Brave Rival - Fight or Flight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Clas
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46284.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Imperia - Dark Paradise (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46283.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Meg Washington\\Melbourne Symphony Orchestra - Live At Hamer Hall (2024) [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46282.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Richard Clapton - Prussian Blue (1973) Remaster, 2024, WM Australia [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46280.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Good Fortune - Stories Untold (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46279.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Beasto Blanco - Kinetica (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46272.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Angela Mosley & the Blu Elements - Away From The Blues (2024) [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46098.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Errol Linton - Love Gone Cold (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46081.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Manatee Commune - Simultaneity (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Elect
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46080.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Pet Shop Boys - Feel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, Techno
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45763.jpg" />
 </div>
 
 

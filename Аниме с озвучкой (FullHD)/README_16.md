@@ -6,7 +6,7 @@ Cowboy Bebop | Ковбой Бибоп [1998, TV, 26 эп.] BDRip 1080p Hi10p ra
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587492.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Uchi no Maid ga Uzasugiru! | UzaMaid! | ЦубаКума! | Наша служа�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586889.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Tonari no Kaibutsu-kun | My Little Monster | Монстр за соседней 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585914.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ No Game No Life: Zero | Нет игры - нет жизни: Начало [2018,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579961.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Shinpi no Sekai El Hazard | El Hazard - The Magnificent World | Удивител
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575541.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Harmagedon | Genma Taisen | Ghenma Wars | Great War with Genma | Хармаге�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557217.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Killing Bites [TV-1] | Смертельный укус [2018, TV, 12 из 12] BD
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556161.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Ginga Eiyuu Densetsu: Waga Yuku wa Hoshi no Taikai | Legend of Galactic Heroes (
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554283.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Ginga Eiyuu Densetsu Gaiden: Ougon no Tsubasa | Legend of Galactic Heroes (Movie
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554282.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Ginga Eiyuu Densetsu: Aratanaru Tatakai no Overture | Legend of Galactic Heroes 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551699.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Sanzoku no Musume Ronja / Ronja the Robber's Daughter / Ронья, дочь р�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546643.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Omoide Poroporo / Only Yesterday / Ещё вчера [1991, MV] BDRip Hi10P 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539589.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533281.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ One Punch Man (2019) / Ванпанчмен [ТВ-2] [2019, TV, 12 ep] WEB-DL 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531946.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527626.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ RPG недвижимость | RPG Fudousan | RPG Real Estate [TV-1] [2022, TV, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526940.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526937.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524098.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524097.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523309.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Kaguya-sama wa Kokurasetai: Ultra Romantic | Kaguya-sama: Love is War Ultra Roma
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522559.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Kono Healer, Mendokusai | Don't Hurt Me, My Healer! | Этот хилер мен
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518556.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Boku no Hero Academia the Movie: Futari no Hero | My Hero Academia the Movie: Th
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515697.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513325.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Gekijouban Trigun: Badlands Rumble / Trigun the Movie / Триган: Переп
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509915.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Momo e no Tegami / A Letter to Momo / Письмо для Момо [2011, Movie]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501913.jpg" />
 </div>
 
 

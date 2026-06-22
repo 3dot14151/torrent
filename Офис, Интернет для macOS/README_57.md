@@ -1,3 +1,57 @@
+###  Публикация: 486962   (90300) от 23.04.2012
+
+Bento 4.0.6 [Eng/Rus]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владельцы домашних Mac’ов смогут использовать Bento для упорядоченного хранения информации о содержимом личного фотоархива или фонотеки, планирования семейного бюджета, расчета затрат и решения многих других повседневных задач. Поддержка шаблонов и тем позволяет быстро создать базу данных, «заточенную» под ту или иную задачу, и выбрать подходящий вариант оформления. Интерфейс продукта позволяет выполнять большинство типовых действий с помошью мыши и не предполагает наличия у пользователей навыков программирования.
+
+Из стартового окна Bento пользователи смогут получить быстрый доступ к основным функциональным возможностям продукта (запустить видео-руководство, выполнить синхронизацию данных с календарем iCal или адресной книгой, создать новую библиотеку или открыть любую из доступных библиотек).Название программы: BentoЯзык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482474   (88514) от 14.04.2012
+
+Microsoft Office for Mac 2011 Service Pack 2 [RU/EN/DE]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Корпорация Майкрософт выпустила обновление для Microsoft Office для Mac 2011. Это обновление предоставляет последние исправления для Office для Mac 2011. Кроме того это обновление содержит улучшения стабильности и надежности.Название программы: Microsoft Office for Mac 2011 Service Pack 2Язык интерфейса: RU/EN/DE
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704863   (63811) от 06.03.2024
 
 MacGPT 3.20 [En]
@@ -6,7 +60,7 @@ MacGPT 3.20 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63811.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ iA Writer 7.1.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63802.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ Remote Desktop Manager Enterprise Edition 2024.1.5.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63789.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ Bundle for MS Office Templates for Mac 7.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63726.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ Navicat Premium 16.3.7 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63592.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ Clearview X 3.5.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63287.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ PDF Expert 3.9.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63050.jpg" />
 </div>
 
 
@@ -189,7 +243,7 @@ PDF Reader Pro 3.3.1.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63003.jpg" />
 </div>
 
 
@@ -215,7 +269,7 @@ BoltAI 1.15.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62972.jpg" />
 </div>
 
 
@@ -242,7 +296,7 @@ Navicat Charts Viewer for Mac 1.2.17 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62549.jpg" />
 </div>
 
 
@@ -268,7 +322,7 @@ CheckBook Pro 2.7.29 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62548.jpg" />
 </div>
 
 
@@ -294,7 +348,7 @@ Things 3 v.3.20.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62430.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ Proxyman for Mac 5.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62320.jpg" />
 </div>
 
 
@@ -347,7 +401,7 @@ Notebooks – Write and Organize 3.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62236.jpg" />
 </div>
 
 
@@ -373,7 +427,7 @@ Fork 2.41.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62013.jpg" />
 </div>
 
 
@@ -399,7 +453,7 @@ XMind Pro 2024 24.01.14362 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61767.jpg" />
 </div>
 
 
@@ -425,7 +479,7 @@ Wondershare PDFelement Pro 10.3.1 (OCR) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61749.jpg" />
 </div>
 
 
@@ -451,7 +505,7 @@ Termius for Mac 8.10.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61743.jpg" />
 </div>
 
 
@@ -477,7 +531,7 @@ Money Pro - Personal Finance 2.10.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61710.jpg" />
 </div>
 
 
@@ -504,7 +558,7 @@ CloudMounter 4.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61692.jpg" />
 </div>
 
 
@@ -530,7 +584,7 @@ VueScan Pro for Mac 9.8.31 U2B ARM/iNTEL [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61663.jpg" />
 </div>
 
 
@@ -556,7 +610,7 @@ DEVONthink Pro 3 Office/Server 3.9.6 U2B [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61515.jpg" />
 </div>
 
 
@@ -582,7 +636,7 @@ InstaBro | Instagram Browser 5.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61491.jpg" />
 </div>
 
 
@@ -609,7 +663,7 @@ Royal TSX for Mac 6.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61486.jpg" />
 </div>
 
 
@@ -620,60 +674,6 @@ Royal TSX — мощный инструмент управления удале�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1C15F4CA824A0A5C8580703A5F99EF1851B4D66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710973   (61481) от 28.03.2024
-
-TablePlus 5.9.2 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Управление базой данных стало проще
-Современный, родной и удобный графический интерфейс для реляционных баз данных: MySQL, PostgreSQL, SQLite и др.Тип издания: macOS SoftwareРелиз состоялся: 23.03.2024Разработчик: © 2023 TablePlus Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2997AB63ED5EE21FFBA5307CF095984EC19C83A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711106   (61432) от 29.03.2024
-
-Charles Web Debugging Proxy 4.6.6 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Charles Web Debugging Proxy – это набирающий популярность зарубежный веб-прокси-сервер, работающий на вашем персональном компьютере, или ноутбуке, который зачастую относят к разделу программ HTTP Monitor. Свою популярность данная программа получила из-за высокой функциональности, быстроты работы и отличного, понятного и доступного дизайна.
-Множество работников IT-отделов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.03.2024Разработчик: © 2023 Matthew BuchananПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C983A5133CC3E0B0424F18377BD6EBE28168F056
 ```
 
 https://mybot314.ru/tekegram_catalog/

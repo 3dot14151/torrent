@@ -1,3 +1,92 @@
+###  Публикация: 1041497   (582134) от 09.08.2016
+
+Autodesk PowerMill Ultimate 2017 Version 21.0.30.64.1203007 (x64) [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_582134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Autodesk PowerMill это наследник Delcam PowerMILL .
+Это независимая CAM-система для подготовки высокоэффективных
+ управляющих программ для фрезерных станков с ЧПУ,
+которая позволяет быстро создавать траектории УП без зарезов по матмоделям,(   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1DC8EA4242407180209DD5671FD643731B97F19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360229   (579440) от 08.07.2011
+
+GPS Map Edit 1.0.67.2 [Multi&Russian]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта программа предназначена для визуального редактирования GPS-карт в различных картографических форматах:
+Навител Навигатор (навигационная программа для Windows Mobile, Android, Symbian, iPhone),
+Garmin MapSource,
+"Польский формат" (текстовый формат программы cGPSmapper.exe),
+Lowrance MapCreate,
+ALAN Map 500,
+Holux MapShow,
+ГИС Русса
+а также пользовательские точки (POI) и спидкамы для Навител Навигатор, Garmin POI Loader, TomTom OV2, Nav N Go iGO.Язык интерфейса: Russian и другие языки
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303027   (575534) от 19.05.2019
+
+Autodesk Inventor Professional 2020 [Ru]
+
+>>След.
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Autodesk Inventor – это всеобъемлющий комплект решений для машиностроительного 3D-проектирования и выпуска документации, разработки кабельных и трубопроводных систем, проектирования литьевых форм и тестирования эксплуатационных характеристик разрабатываемых изделий. Благодаря Autodesk Inventor инженеры могут интегрировать чертежи AutoCAD и другие 2D-данные в единую (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8448BFCB6FAFF2A6381448B3323C455CE3CCEC5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045104   (558901) от 23.08.2016
 
 Netfabb Private 5.2.1 [Multi/Ru]
@@ -6,7 +95,7 @@ Netfabb Private 5.2.1 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558901.jpg" />
 </div>
 
 
@@ -32,7 +121,7 @@ Autodesk СПДС модуль 3.2 для продуктов семейства 
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551912.jpg" />
 </div>
 
 
@@ -58,7 +147,7 @@ Autodesk СПДС модуль 4.1 AutoCAD 2015-2016 (x86/x64) [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530911.jpg" />
 </div>
 
 
@@ -84,7 +173,7 @@ Mentor Graphics ModelSim SE 10.4 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508817.jpg" />
 </div>
 
 
@@ -110,7 +199,7 @@ Mentor Graphics HDL Designer 2013.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507843.jpg" />
 </div>
 
 
@@ -136,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498121.jpg" />
 </div>
 
 
@@ -162,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483170.jpg" />
 </div>
 
 
@@ -188,7 +277,7 @@ Autodesk AutoCAD 2013 SP1.1 x64 + автономная справка [Русс�
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477798.jpg" />
 </div>
 
 
@@ -215,7 +304,7 @@ Autodesk AutoCAD 2013 LT SP1.1 x64 [Русский]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468537.jpg" />
 </div>
 
 
@@ -244,7 +333,7 @@ Multisim & Ultiboard (Circuit Design Suite) PowerPro 12.0.1 [Английски�
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459244.jpg" />
 </div>
 
 
@@ -274,7 +363,7 @@ solidThinking Inspire and Evolve Suite 2016.1 Build 5559 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441621.jpg" />
 </div>
 
 
@@ -301,7 +390,7 @@ Home Plan Pro 5.5.1.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434208.jpg" />
 </div>
 
 
@@ -327,7 +416,7 @@ CorelCAD 2016 Build 16.0.0.1079 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408975.jpg" />
 </div>
 
 
@@ -353,7 +442,7 @@ Global Mapper 14.0.2 [Русский]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_379699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379699.jpg" />
 </div>
 
 
@@ -379,7 +468,7 @@ CorelCAD 2017.0 Build 17.0.0.1310 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349232.jpg" />
 </div>
 
 
@@ -405,7 +494,7 @@ CSoft Project StudioCS R6.0.028 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290427.jpg" />
 </div>
 
 
@@ -431,7 +520,7 @@ COMSOL Multiphysics 6.4 Build 293 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261534.jpg" />
 </div>
 
 
@@ -457,7 +546,7 @@ Pythagoras CAD + GIS 12.26 [ENG + RUS]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256530.jpg" />
 </div>
 
 
@@ -483,7 +572,7 @@ Realtime Landscaping Architect 2023 v23.02 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255465.jpg" />
 </div>
 
 
@@ -510,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254459.jpg" />
 </div>
 
 
@@ -537,7 +626,7 @@ Trimble Tekla Structures 2023 SP3 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252229.jpg" />
 </div>
 
 
@@ -563,7 +652,7 @@ Wing Helper 1.50 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249660.jpg" />
 </div>
 
 
@@ -589,7 +678,7 @@ Altair Compose 2022.2.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244956.jpg" />
 </div>
 
 
@@ -600,87 +689,6 @@ Altair Compose высокоуровневый язык вычислений ос
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EF5D57CBFCE72350E61597725C801EFEF22A3A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621928   (244873) от 26.03.2023
-
-Altair SimSolid 2022.2.1 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244873.jpg" />
-</div>
-
-
-###  Подробнее
-
-SIMSOLID – разработка одноименной американской компании SIMSOLID Corporation, программный продукт, разработанный специально для инженеров-конструкторов, который позволяет проводить прочностной анализ деталей со сложной геометрией и крупных сборок.
-
-Главное преимущество SIMSOLID – автоматизированное упрощение сложной геометрии и автоматическая генерация КЭ-сетки. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA73910372AC8BB2C6BC91953916B5B1C960F28F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621913   (244817) от 26.03.2023
-
-Altair Flux & FluxMotor 2022.2.0 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Altair Flux- программный продукт для электромагнитного и термодинамического низкочастотного анализа.
-Altair FluxMotor — автономная программа ориентированная на предварительное проектирование электрических двигателей.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:704C365520BFF3E94C9B77F51C97FC0999577104
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621717   (244740) от 25.03.2023
-
-Altair Activate 2022.2.1 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Altair Activate позволяет конструкторам моделировать и оптимизировать мультидисциплинарные системы. Использование различных оптимизационных моделей обеспечивают выполнение всех поставленных конструкторских требований и выявление проблем на ранней стадии проектирования.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08EFB7D43D9299D9387057F694BD9B78B6EBEFE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

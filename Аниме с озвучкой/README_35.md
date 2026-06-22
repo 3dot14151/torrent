@@ -1,3 +1,84 @@
+###  Публикация: 1416790   (364515) от 17.10.2020
+
+Crusher Joe: Hyouketsu Kangoku no Wana | Крушила Джо OVA-1 [1989, OVA, 1 эп.] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чрезвычайное происшествие, команде крушителей предстоит выступить в роли спасателей. В результате сбоя в системе была почти полностью уничтожена космическая тюрьма, а также из-за отклонений в орбите теперь останки тюрьмы рискуют упасть на жилую планету. Теперь команда должны присоединиться в спасательной экспедиции. Все бы даже хорошо, но на носу возможность войны (   Читать дальше...   )Производство: Япония,Жанр: приключения, фантастикаРежиссер: Такидзава ТосифумиПеревод: русские субтитрыЯзык озвучки: Японский и русский
+Многоголосая, студияПродолжительность: 60 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9E2BB5FA308D5F274EB686B2B5AA357C3552453
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416795   (364514) от 17.10.2020
+
+Crusher Joe: Saishuu Heiki Ash | Крушила Джо OVA-2 [1989, OVA, 1 эп.] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая (заключительная) ОВА серии "Crusher Joe". На этот раз команде крушителей предстоит спасать майора Татьяну, которой было доверено сверхсекретное оружия массового уничтожения "Пепел". Отличная классическое аниме в лучших традициях космической фантастики 80х.Производство: Япония,Жанр: приключения, фантастикаРежиссер: Такидзава ТосифумиПеревод: русские субтитрыЯзык озвучки: Японский и русский
+Многоголосая, студияПродолжительность: 55 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:614048CAEC7869EF4899A8599AAA284E3079A4C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416740   (364513) от 17.10.2020
+
+Gochuumon wa Usagi Desu ka? | Is the Order a Rabbit? | Кролика заказывали? [2014, TV, 12 эп.] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среди пышной зелени раскинулся маленький идиллический город с опрятными домиками в европейском стиле, узкими улочками и уютными кафе. Воздух здесь пропитан ароматом кофе, а по улицам свободно гуляют кролики. В этот радушный пасторальный уголок и попадает наша главная героиня — энергичная, жизнерадостная и немного взбалмошная Кокоа.
+Идя по благоухающей цветами улице (   Читать дальше...   )Производство: White Fox, ЯпонияЖанр: Повседневность, комедияРежиссер: Хасимото ХироюкиОзвучка: Трёхголосая закадроваяЯзык озвучки: Японский и русскийСубтитры: Надписи, Полные (Продолжительность: 12 эпизодов по 24 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9193095F24B73D327F851A92DB3A74096CE07F8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 406749   (362369) от 06.11.2011
 
 Cowboy Bebop / Ковбой Бибоп [1998-1999, TV, 26] DVDrip raw rus
@@ -6,7 +87,7 @@ Cowboy Bebop / Ковбой Бибоп [1998-1999, TV, 26] DVDrip raw rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362369.jpg" />
 </div>
 
 
@@ -36,7 +117,7 @@ Shinseiki Evangelion / Neon Genesis Evangelion / Евангелион новог
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_362157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_362157.jpg" />
 </div>
 
 
@@ -63,7 +144,7 @@ Machikado Mazoku | Demon Girl Next Door | Городская демонесса 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362069.jpg" />
 </div>
 
 
@@ -89,7 +170,7 @@ Hanamonogatari / История цветов [2014, Special, 5 из 5] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360681.jpg" />
 </div>
 
 
@@ -117,7 +198,7 @@ Cop Craft | Мастерство копа | Детективные будни: �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360437.jpg" />
 </div>
 
 
@@ -143,7 +224,7 @@ One Piece Movie 14: Stampede | One Piece Movie 14: Stampede | Ван Пис Фи
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359711.jpg" />
 </div>
 
 
@@ -171,7 +252,7 @@ Pokemon Diamond and Pearl: Battle Dimension (11 Season) / Покемон Алм�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_354331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_354331.jpg" />
 </div>
 
 
@@ -197,7 +278,7 @@ Grand Blue / Grand Blue Dreaming / Бескрайняя синева [2018, TV, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353564.jpg" />
 </div>
 
 
@@ -223,7 +304,7 @@ Kizumonogatari | Истории ран [2016-2017, Movie, 3 из 3] BDrip 720p 1
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352708.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ Macross: Do You Remember Love? / Макросс: Помнишь ли ты люб
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351946.jpg" />
 </div>
 
 
@@ -275,7 +356,7 @@ Monogatari Series: Second Season / Истории, сезон второй [2013
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351329.jpg" />
 </div>
 
 
@@ -301,7 +382,7 @@ Owari no Seraph / Seraph of the End: Vampire Reign / Последний Сера
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348293.jpg" />
 </div>
 
 
@@ -327,7 +408,7 @@ Tokyo Ghoul A / Токийский гуль [ТВ-2] [2014, TV, 12 ep] BDRip Hi1
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348265.jpg" />
 </div>
 
 
@@ -354,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347219.jpg" />
 </div>
 
 
@@ -380,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345106.jpg" />
 </div>
 
 
@@ -407,7 +488,7 @@ Tokyo Mew Mew New | Токио Мяу Мяу [ТВ-2] [2022, TV, 12 из 12] WEB
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344924.jpg" />
 </div>
 
 
@@ -433,7 +514,7 @@ Blade and Soul / Blade & Soul / Клинок и Душа [2014, TV, 13 ep + 7 SP
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343689.jpg" />
 </div>
 
 
@@ -459,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342833.jpg" />
 </div>
 
 
@@ -486,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340252.jpg" />
 </div>
 
 
@@ -513,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338040.jpg" />
 </div>
 
 
@@ -539,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338038.jpg" />
 </div>
 
 
@@ -565,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338037.jpg" />
 </div>
 
 
@@ -591,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338034.jpg" />
 </div>
 
 
@@ -602,84 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FC820AE50791CEEB98F45AE13E8AA2DB221197D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579151   (338033) от 26.09.2022
-
-Повседневная жизнь бессмертного короля 2 | Xian Wang de Richang Shenghuo 2 | The Daily Life of the Immortal King 2 [2021, TV, 12 из 12] WEBRip 1080p Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключений Ван Лина в академии Культивирования принимает новый оборот. Избранник Бога продолжит пытаться вести ничем непримечательную жизнь, скрывать духовную силу, превосходящую любые пределы, и попадать во всякие комичные ситуации из-за этого. В этом сезоне он познакомится с расой бабочек, заведёт новую подругу и попытается не уничтожить всю расу демонов вместе (   Читать дальше...   )Производство: Китай / Студия Pb Animation Co. Ltd.Жанр: Комедия, школа, приключения, романтикаРежиссер: Чжу Бэнин, Ли ХаолинЯзык озвучки: Русский (SHIZA Project)Субтитры: Русские (софтсаб на надписи)Продолжительность: 12 серий по 20 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF71D6A9D10228B2D5F7D4F4702E0A5264AD56CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562844   (338028) от 26.09.2022
-
-Чёрный призыватель | Kuro no Shoukanshi | Black Summoner [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проснувшись в странном месте без памяти о своей прежней жизни, Кельвин узнаёт, что после недавнего перемещения в обмен на свои воспоминания он получил новые невероятные способности. И теперь он начинает своё путешествие как призыватель, в совершенно новом для себя мире, вместе со своей первой подчинённой, которая по совместительству является богиней, призвавшей его. (   Читать дальше...   )Производство: Производство: Япония / Студия SatelightЖанр: Приключения, фэнтезиРежиссер: Хирайкэ ЁсимасаЯзык озвучки: Русский многоголосый, закадровый (AniLibria.TV), ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:224B7466FBCB684133E7135779B76F02BF4D331D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180950   (336763) от 05.11.2017
-
-Great Teacher Onizuka | Крутой учитель Онидзука [1999, TV, 43] DVDRip 480p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Онидзука Эйкити ("22 года, холост", - как он сам любит представляться) - настоящий ужас на двух колесах, член нагоняющей ужас на горожан банды мотоциклистов, решает переквалифицироваться в… школьного учителя. Ведь в любом учебном заведении полным-полно аппетитных старшеклассниц в коротеньких юбочках! Но чем глубже примеривший необычную роль хулиган окунается (   Читать дальше...   )Производство: Япония, Studio PierrotЖанр: школа, драма, комедияРежиссер: Абэ НориюкиПеревод: NickliverpoolЯзык озвучки: РусскийСубтитры: Русские (srt)Продолжительность: 43 эп. по ~23 мин. (1-й эп. ~48 мин.)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E639FB8C2052A0D96617B51E20DE8D8C2A63813B
 ```
 
 https://mybot314.ru/tekegram_catalog/

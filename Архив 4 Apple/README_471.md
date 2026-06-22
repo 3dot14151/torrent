@@ -1,3 +1,56 @@
+###  Публикация: 1264092   (282879) от 22.11.2018
+
+Ethernet Status 1.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшая утилита, для проверки состояния вашего Ethernet/WiFi соединения, прямо из строки меню. Утилита добавляет аккуратную иконку в строку меню, с помощью которой вы можете получить наиболее полную информацию о состоянии вашего соединения: IPv4, IPv6, Mac-адрес, локальный и внешний IP и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 12.07.2018Разработчик: AppYogi SoftwareПоддерживаемая ОС: OS X 10.8 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB8B0F3F47B8C3107C189A2CF404D2E611C55838
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081574   (282813) от 10.12.2016
+
+Waltr 2 v2.0.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282813.jpg" />
+</div>
+
+
+###  Подробнее
+
+WALTR 2 — революционный способ передачи файлов в любых форматах на iPhone, iPad и iPod
+Одним из постоянных упреков в адрес iOS является «сложность» передачи на устройства медиаконтента. Сложность эта, конечно, изрядно преувеличена, не надо быть семи пядей во лбу для того, чтобы выполнить обычный drag-n-drop, а в случае покупки лицензионного контента в iTunes — все (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 09 декабря 2016Разработчик: Softorno Inc .Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D45B21F518BB679F6195CDACD2093C8A4F6349D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335996   (282580) от 05.11.2019
 
 Aimersoft Video Converter Ultimate for Mac 11.5.1 [En]
@@ -6,7 +59,7 @@ Aimersoft Video Converter Ultimate for Mac 11.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282580.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Downie 3.0.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282541.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ Cookie 5.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282537.jpg" />
 </div>
 
 
@@ -90,7 +143,7 @@ Jump Desktop (RDP, VNC, Fluid) 7.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282532.jpg" />
 </div>
 
 
@@ -117,7 +170,7 @@ DropDMG 3.2.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282424.jpg" />
 </div>
 
 
@@ -144,7 +197,7 @@ Affinity Photo 1.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282319.jpg" />
 </div>
 
 
@@ -173,7 +226,7 @@ Templates for Pages 4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282235.jpg" />
 </div>
 
 
@@ -202,7 +255,7 @@ Day One 1.10.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282228.jpg" />
 </div>
 
 
@@ -229,7 +282,7 @@ Darkwood v.1.1 hotfix 5 (2017) [Multi/Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282168.jpg" />
 </div>
 
 
@@ -255,7 +308,7 @@ Airy 3.11.245 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282052.jpg" />
 </div>
 
 
@@ -284,7 +337,7 @@ EdgeView 2 v2.476 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281237.jpg" />
 </div>
 
 
@@ -310,7 +363,7 @@ MovieMator Video Editor Pro 2.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281166.jpg" />
 </div>
 
 
@@ -336,7 +389,7 @@ iStat Menus 6 v6.30 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281164.jpg" />
 </div>
 
 
@@ -363,7 +416,7 @@ Squeezer 1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281119.jpg" />
 </div>
 
 
@@ -392,7 +445,7 @@ Find Any File (FAF) 2.0.1 b8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281071.jpg" />
 </div>
 
 
@@ -419,7 +472,7 @@ Scherlokk - Files finder 4 v4.1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281070.jpg" />
 </div>
 
 
@@ -445,7 +498,7 @@ PullTube 1.2.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281069.jpg" />
 </div>
 
 
@@ -471,7 +524,7 @@ A Better Finder Rename 11 v11.04 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281068.jpg" />
 </div>
 
 
@@ -498,7 +551,7 @@ Business Templates for Pages 3.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281031.jpg" />
 </div>
 
 
@@ -527,7 +580,7 @@ Corporate Templates - Business Stationery 3.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281023.jpg" />
 </div>
 
 
@@ -555,7 +608,7 @@ iStat Menus 6 v6.30 (1087) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280992.jpg" />
 </div>
 
 
@@ -582,7 +635,7 @@ ExactScan Pro 19.11.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280957.jpg" />
 </div>
 
 
@@ -608,7 +661,7 @@ Amadeus Pro 2.6.2 (2226) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280956.jpg" />
 </div>
 
 
@@ -634,7 +687,7 @@ goPanel 2 v2.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280954.jpg" />
 </div>
 
 
@@ -648,62 +701,6 @@ goPanel - наиболее интуитивное приложение для у
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38DBADE2821063E6BB04CA6F763B7995B5957F4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336274   (280953) от 06.11.2019
-
-BusyContacts 1.4.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280953.jpg" />
-</div>
-
-
-###  Подробнее
-
-BusyContacts является менеджером контактов для OS X, что позволяет создавать, находить и управлять контактами более быстрым и эффективным способом.
-
-BusyContacts приносит в управление контактами те же возможности, мощность, гибкость, а также обмен ими, что и для пользователей BusyCal в управлении своими календарями. Более того, BusyContacts интегрируется с BusyCal (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.09.2019Разработчик: BusyCal, LLCПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38765E5C6F81189A99EC5453016EFADBB496114F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336392   (280952) от 06.11.2019
-
-Script Debugger 7 v7.0.10 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Script Debugger предлагает пользователям всё, что необходимо для быстрого создания авторских скриптов AppleScript. Ни одна из утилит не сравнится с Script Debugger в быстроте и простоте создания, редактирования и отладки скриптов AppleScript. Встроенный браузер Dictionary предлагает пользователю больше информации, чем любая другая утилита.
-
-Редактор полностью поддерживает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Late Night Software Ltd.Поддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36AC90EDA6DF106BAEABA78CD5F6584FA0F85BCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

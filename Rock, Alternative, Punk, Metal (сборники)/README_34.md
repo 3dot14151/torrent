@@ -1,3 +1,93 @@
+###  Публикация: 1069855   (371010) от 05.11.2016
+
+VA - Rock Collection 1990 (2016) [MP3|320 Kbps] <Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 01:
+
+01. Demolition Hammer - .44 Caliber Brain Surgery
+02. Sodom - An Eye for an Eye(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 27:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45C82F07C25BE7470464D3FD9F17700FB781BB66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070062   (370875) от 05.11.2016
+
+VA - Hits of My Soul Vol. 17 (2016) [MP3|320 кб/с]<Rock, Metal, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
+Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
+Сборник состоит из пятидесяти треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
+Сборник вобрал в себя исключительно качественную музыку.01. Breaking Benjamin - The Diary Of Jane (03:21)
+02. Megadeth - Symphony Of Destruction (04:07)
+03. Staind - Fade (04:06)
+04. Deep Purple - Highway Star (06:09)(   Читать дальше...   )Жанр: Rock, Metal, AlternativeПродолжительность: 03:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45635E511A22BF479B702AE6A3674903D0B13283
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912429   (370191) от 26.10.2015
+
+VA - The Ultimate Prog & Power Experience 01-03 (2015) [MP3|320 кб/с]<Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Transcend - Moment Of Infinity [00:08:39]
+02. Appearance Of Nothing - Without A Reason [00:10:26]
+03. Flaming Row - Burning Sky [00:06:22]
+04. Echoes - Lullaby [00:04:21](   Читать дальше...   )Жанр: MetalПродолжительность: 07:33:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:502F68701A011F6CD6E1346923C6028EA0847871
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070035   (368685) от 06.11.2016
 
 Музыкальная Коллекция - Максим Леонидов (2016) [MP3|320 Kbps] <Поп, Рок, Рок-н-Ролл>
@@ -6,7 +96,7 @@
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368685.jpg" />
 </div>
 
 
@@ -35,7 +125,7 @@ Cosmos - In The Dark Of The Night (2016) (Compilation) 2CD  [MP3|320 Kbps] <Prog
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368585.jpg" />
 </div>
 
 
@@ -64,7 +154,7 @@ VA - Rock Drive 11 (2020) от DON Music [MP3|320 Kbps] <Hard Rock, Rock, Blues 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367183.jpg" />
 </div>
 
 
@@ -93,7 +183,7 @@ VA - Shy Of Shameless: October Blues Collection (2018) [MP3|320 Kbps] <Blues, Ro
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365888.jpg" />
 </div>
 
 
@@ -122,7 +212,7 @@ VA - Metal Attack (2012) [MP3|192-320 кб/с]<Alternative, Thrash, Industrial, 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365485.jpg" />
 </div>
 
 
@@ -151,7 +241,7 @@ The Beatles - White Album De-Noised From Demos & Takes 2CD (2019) Bootleg [MP3|3
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365372.jpg" />
 </div>
 
 
@@ -183,7 +273,7 @@ VA - Metal Compilation - Best (2011) [MP3|128-320 kbps]<Symphonic, Black, Gothic
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365335.jpg" />
 </div>
 
 
@@ -209,7 +299,7 @@ VA - Metal Compilation - Cover (2011) [MP3|128-320 kbps]<Symphonic, Black, Gothi
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365070.jpg" />
 </div>
 
 
@@ -237,7 +327,7 @@ VA - 1000 Original Hits Vol. 2 (Golden Metal Ballads) (2003) [MP3|256 кб/с]<R
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365068.jpg" />
 </div>
 
 
@@ -266,7 +356,7 @@ VA - Рок в Авто (Русский vol.2) (2012) [MP3|320 кб/с]<Pop Rock
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364946.jpg" />
 </div>
 
 
@@ -295,7 +385,7 @@ VA - Permanent Rock Blues (2018) [MP3|320 Kbps] <Rock, Rock Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363969.jpg" />
 </div>
 
 
@@ -324,7 +414,7 @@ VA - Defiled: Hardcore Collection (2020) [MP3|320 Kbps] <Hardcore, Metal, Hard R
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363163.jpg" />
 </div>
 
 
@@ -353,7 +443,7 @@ VA - Рок в Авто (Русский vol.5) (2012) [MP3|166-320 кб/с]<Rock
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362486.jpg" />
 </div>
 
 
@@ -382,7 +472,7 @@ VA - Рок в Авто (vol. 5) (2012) [MP3|320 кб/с]<Heavy Metal, Power Met
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360292.jpg" />
 </div>
 
 
@@ -411,7 +501,7 @@ VA - Русский рок - Новая генерация (2012) [MP3|256-320 �
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360286.jpg" />
 </div>
 
 
@@ -440,7 +530,7 @@ VA - Рок в Авто (vol. 4) (2012) [MP3|214-320 кб/с]<Heavy Metal, Glam 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360285.jpg" />
 </div>
 
 
@@ -469,7 +559,7 @@ VA - Русский рок - Rapcore (2013) [MP3|320 кб/с]<Rapcore>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360166.jpg" />
 </div>
 
 
@@ -498,7 +588,7 @@ VA - Рок в Авто (Rapcore) (2012) [MP3|320 кб/с]<Rapcore, Nu Metal, Al
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360161.jpg" />
 </div>
 
 
@@ -527,7 +617,7 @@ VA - Рок в Авто (vol. 7) (2013) [MP3|320 кб/с]<Hard Rock, Heavy Metal
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360156.jpg" />
 </div>
 
 
@@ -556,7 +646,7 @@ VA - Рок в Авто (vol. 2) (2012) [MP3|320 кб/с]< Metal , Hard Rock >
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360152.jpg" />
 </div>
 
 
@@ -585,7 +675,7 @@ VA - Amber Arcades: October Rock Compilation (2019) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359254.jpg" />
 </div>
 
 
@@ -614,7 +704,7 @@ VA - Age Of Rebelion: Rock Revue (2018) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359028.jpg" />
 </div>
 
 
@@ -643,7 +733,7 @@ The Beatles - Abbey Road De-Noised From Demos & Takes (2019) Bootleg [MP3|320 Kb
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358757.jpg" />
 </div>
 
 
@@ -657,93 +747,6 @@ The Beatles - Abbey Road De-Noised From Demos & Takes (2019) Bootleg [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21AC83F739A49715C4892E77308100EAC864A492
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071454   (358671) от 10.11.2016
-
-Ляпис Трубецкой - Лучшее за все годы (2016) [MP3|320 Kbps] <Rock, Ska, Punk>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Ау 3:53
-02.Ранетое сердце (Абы чо) 5:47
-03.Ты кинула 3:58
-04.В платье белом 5:00(   Читать дальше...   )Жанр: Rock, Ska, PunkПродолжительность: 03:08:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DF124DB5259462334A9B14D302E6C25042C0F96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178189   (357857) от 27.10.2017
-
-VA - Для Тех, Кто Помнит! Русский Рок Vol.6 от Ovvod7 (2017) [MP3|320 Kbps] <Рок>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  ДДТ - Что такое осень 4:57
-02.  Кузьмин Владимир - Когда я стану другим 4:09
-03.  Альфа - Воробей 4:19
-04.  Воскресение - Воскресение 6:50(   Читать дальше...   )Жанр: РокПродолжительность: 01:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B15447E7AEBBB905502208D9ED046CC94768DF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256503   (354136) от 22.10.2018
-
-VA - Postulates Of Babylon (2018) [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354136.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Black Country Communion - Collide
-002. Bonfire - Power Train
-003. Cleõphüzz - Sandstorm
-004. Furious Zoo - All For Rock N' Roll(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 11:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63B48A7E888984E2351AC2292D5F221B0FE7F7A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

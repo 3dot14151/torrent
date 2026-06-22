@@ -1,240 +1,3 @@
-###  Публикация: 1749183   (43732) от 13.09.2024
-
-O Launcher 12.4 Mod by Oflarm [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43732.jpg" />
-</div>
-
-
-###  Подробнее
-
-O Launcher - это альтернативный лаунчер для Android в стиле системы ColorOS 14 со смартфонов OPPO. Если встроенный лаунчер вашего телефона работает нестабильно и/или имеет меньший функционал, если вы хотите, чтобы ваш телефон выглядел современно, имел интересные и полезные функции тогда этот лаунчер для вас!Тип издания: ProРелиз состоялся: 02.08.2024Разработчик: O Launcher GroupПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:602AEA5494CD8C200AEBEC7AA5802F6F1C439B78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749185   (43728) от 13.09.2024
-
-Super S10 Launcher 5.3 Mod by Oflarm [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Super S10 Launcher - проект, что заслуживает внимание любого пользователя задумавшегося об смене внешнего вида рабочего стола мобильного гаджета с помощью замены лаунчера. Из названия понятно, какой стиль и откуда он взят в представленном варианте. Программа хоть и не официальная, но безусловно очень качественная и детально проработанная. Как по внешнему виду вкупе (   Читать дальше...   )Тип издания: ModРелиз состоялся: 30.07.2024Разработчик: Super Launcher SerieПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE1FC3316DB7EF5D12D39FD1EA92D2DE9782A852
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749194   (43722) от 13.09.2024
-
-Super 13 Launcher (Super13 Launcher for Android13) 1.9 Mod by Oflarm [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Super 13 Launcher - это лаунчер для Android, имитирующий полюбившуюся многим благодаря своему минималистичному дизайну, операционную систему "Android 13". Лаунчер имеет множество настроек, что позволяют максимально точно кастомизировать пользовательский интерфейс. Огромное количество тем, обоев, живых обоев, сторонних наборов иконок и многое другое!Тип издания: ModРелиз состоялся: 26.08.2024Разработчик: Super Launcher SerieПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45E789BB9C2F8E515543657696F5E7C845E09916
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749198   (43714) от 13.09.2024
-
-Memento Database Pro 5.5.1 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Memento Database - это мощный и в то же время легкий в использовании инструмент для работы с любыми данными, который позволяет хранить, организовывать, вычислять и визуализировать вашу информацию. Это удобнее, чем электронные таблицы, гибче, чем специализированные приложения, проще, чем создание собственных приложений с помощью конструкторов.Тип издания: ProРелиз состоялся: 24.08.2024Разработчик: MementoDB Inc.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F53C0A5001CAB5FDA5A9082EFA4AEA876C813A4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749196   (43650) от 13.09.2024
-
-Memento Database Pro 5.5.1 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Memento Database - это мощный и в то же время легкий в использовании инструмент для работы с любыми данными, который позволяет хранить, организовывать, вычислять и визуализировать вашу информацию. Это удобнее, чем электронные таблицы, гибче, чем специализированные приложения, проще, чем создание собственных приложений с помощью конструкторов.Тип издания: ProРелиз состоялся: 24.08.2024Разработчик: MementoDB Inc.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1EB045A44EFA75BBD2823E4169CB75DAE5533A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749340   (43633) от 14.09.2024
-
-HulaVPN - Fast Secure VPN 14.3.1 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда большая часть, разных программ VPN, просто в один прекрасный день перестают работать и ты остаешься "как у разбитого корыта" и начинаешь судорожно бить по клавишам клавиатуры, в попытках найти в интернете очередную программу, которую еще не успели заблочить "неравнодушные и думающие о ДРУГИХ - люди" Наверное один из многих VPN программ, (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 19.08.2024Разработчик: Hula LinkПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18E097C11726B5E7B393BF1C086C88239E50682A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749841   (43395) от 16.09.2024
-
-ReLens - Фокус и размытие DSLR 3.4.2 Mod by Mixroot [Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43395.jpg" />
-</div>
-
-
-###  Подробнее
-
-ReLens - отличная находка для любого поклонника создания фотографий. В особенности тех кто хочет использовать для этого мобильный гаджет, но при этом не быть ограниченным стандартными возможностями ПО идущими в базовой комплектации. С этой программой энтузиасты получают и полноценные ручные настройки параметров и встроенный редактор, что поможет в реальном времени (   Читать дальше...   )Тип издания: VIP (Unlocked)Релиз состоялся: 06.09.2024Разработчик: accordionПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский, Немецкий, Французский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B322E5DB98D9B2D531811D34BA50DEAF8B6C309A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750683   (42840) от 21.09.2024
-
-Справочник электрика v78.3 (248) Mod by vadj  [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для всех тех, чья деятельность связана с электричеством. Для профессионалов и любителей. Данное приложения является своеобразным трамплином для дальнейшего изучения электротехники.
-В приложении присутствуют 4 категории:
-1. Теория
-2. Схемы(   Читать дальше...   )Тип издания: AdFreeРелиз состоялся: 20.09.2024Разработчик: SergeiVПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF7947B5B945A5C353F3354027024CC36C0B64C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750686   (42817) от 21.09.2024
-
-Electrical Calculations Pro / Электрические расчеты v10.0.8 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Электрические расчеты являются лучшим приложением в секторе электроэнергии, он имеет много вычислений, которые могут помочь вам в вашей работе. Он не может пропустить в вашем смартфоне!Тип издания: ProРелиз состоялся: 15.09.2024Разработчик: Ettore GallinaПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:047453EE43ADE279F3EB5385B64B303961D66E0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750943   (42782) от 22.09.2024
 
 AI ChatBot AI Friend Generator v3.0.8.1 Mod by 0x7d [Ru/Multi]
@@ -243,7 +6,7 @@ AI ChatBot AI Friend Generator v3.0.8.1 Mod by 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42782.jpg" />
 </div>
 
 
@@ -269,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42754.jpg" />
 </div>
 
 
@@ -298,7 +61,7 @@ Picture Mushroom - Mushroom ID v2.9.24 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42745.jpg" />
 </div>
 
 
@@ -327,7 +90,7 @@ PictureThis - Plant Identification v4.4.1 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42738.jpg" />
 </div>
 
 
@@ -353,7 +116,7 @@ Photo Studio PRO v2.7.9.3240 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42722.jpg" />
 </div>
 
 
@@ -379,7 +142,7 @@ PhotoRoom v5.3.5 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42720.jpg" />
 </div>
 
 
@@ -405,7 +168,7 @@ Rock Identifier - Stone ID v2.3.40 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42714.jpg" />
 </div>
 
 
@@ -431,7 +194,7 @@ Picturize it v1.2.0 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42712.jpg" />
 </div>
 
 
@@ -457,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42590.jpg" />
 </div>
 
 
@@ -483,7 +246,7 @@ Photo Studio PRO v2.7.10.3356 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42531.jpg" />
 </div>
 
 
@@ -509,7 +272,7 @@ One Read / Все Документы Читатель - Офис v1.2.0 Mod by v
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42358.jpg" />
 </div>
 
 
@@ -535,7 +298,7 @@ Lighting calculations / Расчеты освещения v6.0.5 Mod by Balatan 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42352.jpg" />
 </div>
 
 
@@ -561,7 +324,7 @@ Photo Editor v10.7 Pro Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42344.jpg" />
 </div>
 
 
@@ -587,7 +350,7 @@ Dada: коллаж и стикеры на фото v1.2.8 Mod by Alex.Strannik [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42100.jpg" />
 </div>
 
 
@@ -613,7 +376,7 @@ Moon+ Reader Pro v9.6 (b906001) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42092.jpg" />
 </div>
 
 
@@ -639,7 +402,7 @@ Reface: Face Swap AI Generator v4.22.2 Mod by Mixroot [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42085.jpg" />
 </div>
 
 
@@ -665,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42081.jpg" />
 </div>
 
 
@@ -676,6 +439,245 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17824F33B2E7B109F1ABC4C9E7D58226B25162EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752512   (41928) от 30.09.2024
+
+Plus Messenger (Telegram+) v11.1.3.1 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Plus Messenger - неофициальное приложение для обмена сообщениями, на основе Telegram API. Весьма крутой альтернативный клиент для Telegram. Много настроек. Развивается. Вкладки. Категории. В наличии весьма немалое количество дополнительных настроек. Быстро обновляется. Plus без проблем синхронизируется со всеми вашими устройствами и может использоваться на планшетах (   Читать дальше...   )Тип издания: ModРелиз состоялся: 29.09.2024Разработчик: rafalenseПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D80C13699E201BA70343E61828636DCD71D8150F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752707   (41822) от 01.10.2024
+
+Monument Valley 3.4.109 Mod by youarefinished [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41822.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Monument Valley вы будете производить действия с невероятными архитектурными сооружениями и вести молчаливую принцессу по потрясающе красивому миру.
+
+Monument Valley - это сюрреалистическое исследование фантастической архитектуры и невероятной геометрии. Ведите молчаливую принцессу Иду по таинственным памятникам, открывая скрытые тропы и обнаруживая оптические (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 24 окт. 2023 гРазработчик: ustwo gamesПоддерживаемая ОС: Android 8.1+Жанр: ГоловоломкаЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6E6BC8B70D565C5647DA0AD0D997B152144681B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752714   (41809) от 01.10.2024
+
+Monument Valley 2 3.7.501 Mod by youarefinished [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ошеломительно красивое продолжение удостоенной наград игры Monument Valley
+
+Проведите мать и ее дитя через мир волшебной архитектуры, открывая иллюзорные пути, решая восхитительные головоломки и постигая секреты Священной Геометрии.
+(   Читать дальше...   )Тип издания: PaidРелиз состоялся: 4 сент. 2024 г.Разработчик: ustwo gamesПоддерживаемая ОС: Android 8.0+Жанр: ГоловоломкаЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5C222577FCA0C0DFC614E4097EABE519E030BA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752686   (41802) от 01.10.2024
+
+Colorize it v2.2.0 Mod by derrin [Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оживите свои старые черно-белые фотографии, раскрасив их с помощью искусственного интеллекта! "Colorize it" - это приложение, которое использует нейронные сети и методы искусственного интеллекта для автоматической раскраски изображений в оттенках серого. Он отлично работает со всеми типами фотографий: полностью полутоновыми, тонированными сепией, частично (   Читать дальше...   )Тип издания: Premium / ModРелиз состоялся: 29.09.2024Разработчик: reAImagineПоддерживаемая ОС: Android 6.0+Язык интерфейса: Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DEF5AC551B37ABFF0F511C8141A5962B353F6AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752683   (41798) от 01.10.2024
+
+Denoise it - ИИ фоторедактор v1.2.0 Mod by srajawwal09 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваша камера всегда создает на ваших фотографиях этот мешающий шум? "Denoise it" может исправить это за вас! "Denoise it" - это приложение, которое использует нейронные сети и методы искусственного интеллекта для автоматического удаления шума с фотографий. Он эффективен для всех видов шума и подходит для любого уровня шума.Тип издания: ProРелиз состоялся: 30.09.2024Разработчик: Battery Stats SaverПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C781A04E6A34A95FD359B57FE1D01F0FC711A8E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752941   (41709) от 02.10.2024
+
+Persona: Бьюти-камера v1.7.1 Mod by Alexey070315 (MustHave) [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Persona - твоя новая селфи-камера на каждый день. Снимай только идеальные видео с натуральными бьюти-фильтрами, использующими искусственный интеллект. После запуска приложения необходимо разрешить доступ к камере мобильного устройства. Затем следует расположить объектив таким образом, чтобы лицо человека полностью поместилось в рамку на экране. Далее нужно создать (   Читать дальше...   )Тип издания: ProРелиз состоялся: 01.10.2024Разработчик: TICKET TO THE MOON, INC.Поддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52933B868765DD06FE1518D7276F16A05E6B88D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753545   (41410) от 05.10.2024
+
+Logo Maker v43.05 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощное приложение для создания разнообразных логотипов. Доступен обширный каталог эмблем и шаблонов. В наличии множество заготовленных элементов и стилей оформления. Ищете лучшее приложение создание логотипа и создатель графический дизайн 2023 ? ИЛИ вы хотите быстрый производитель монограмм? Это для вас!Тип издания: ProРелиз состоялся: 05.10.2024Разработчик: CA PublishingПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A72C7D638752445BDD9FB2E17A238D380452931
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753485   (41360) от 05.10.2024
+
+Polarr v6.9.12 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя миллионы фильтров Polarr, созданных создателями Polarr по всему миру, или создавайте собственные фильтры и делитесь ими с друзьями. Фильтры Polarr — это гораздо больше, чем ваши обычные фильтры. В дополнение к редактированию цветов вы можете включать свои собственные наложения, корректировать лица или изменять определенные объекты с помощью ИИ в (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 04.10.2024Разработчик: PolarrПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE4E530F064B97B8EC5DC31EBB5FEC203FA77D60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753490   (41355) от 05.10.2024
+
+ToonApp: AI Cartoon Photo Editor, Cartoon Yourself v2.6.91 Mod by Mixroot [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41355.jpg" />
+</div>
+
+
+###  Подробнее
+
+ToonApp карикатура фоторедактор лучшее приложение для превращения вашей картинки в мультфильм. Создатель мультфильмов предлагает удивительные фильтры AI для изображений, чтобы превратить фотографию в мультфильм. Вы даже можете сделать из фотографий карикатуры, чтобы превратить их в персонажей аниме. Чтобы завершить редактирование фотографий, добавьте впечатляющий (   Читать дальше...   )Тип издания: ProРелиз состоялся: 04.10.2024Разработчик: Lyrebird StudiosПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B7C51A0BC36D5BBB72B05D19F27C6E62B8941FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

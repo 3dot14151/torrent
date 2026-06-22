@@ -6,7 +6,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380603.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hristo Velev | Thinking Particles. Часть 2 - Промежуточные к�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378589.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Skillshare, 3D Tudor | Unreal Engine 5 Beginners Guide to Building an Environmen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378586.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Joshua Kinney | Map Baking Techniques for Games in 3ds Max (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378414.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Emiel Sleegers | Mechanical Assets in 3ds Max Volume 3 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378412.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Emiel Sleegers | Mechanical Assets in 3ds Max Volume 2 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378408.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Emiel Sleegers | Mechanical Assets in 3ds Max Volume 1 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378246.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Hristo Velev | Thinking Particles. Часть 1 - Всестороннее вв�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378239.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Joshua Kinney | Automotive Modeling in 3ds Max (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378238.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Tim Bergholz | Mech Tutorial Complete Edition (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378016.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377987.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Hai Phan | 3d Character Art for Games Volume 1-6 (2013) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375892.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Side FX, Moeen Sayed | VEX isn't scary (2020) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375035.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ CGMA, Patrick Yeung | Character Creation for Games (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374681.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373981.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373911.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Blender Market, Josh Gambrell, Ponte Ryuurui | The Blender Bros Hard Surface Gam
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372315.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Udemy, Dmitrii Fokeev | Теория дизайна - для веб дизайн
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372313.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Skillbox | Motion-дизайн с нуля до PRO (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371159.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Udemy, Mrawan Hussain | Создание реалистичного автомо
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369125.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364528.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364524.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359968.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Skillshare | Сделай своего первого милого 3D персо
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358761.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ CG Cookie | Моделирование, Текстурирование и Шей
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356301.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ CG Cookie | Риггинг и Анимация Сундука с сокрови�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356299.jpg" />
 </div>
 
 

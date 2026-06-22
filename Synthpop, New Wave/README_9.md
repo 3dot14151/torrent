@@ -1,3 +1,58 @@
+###  Публикация: 1179239   (349217) от 31.10.2017
+
+DDR Space Program - 1 Single,2 EP (2016-2017) [MP3|320 Kbps] <New Wave, Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349217.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Stardate (4:49)Жанр: New Wave, SpacesynthПродолжительность: 00:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1EC2DBF1947395DBFCA1521D1D14AD481F02BD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180367   (342351) от 03.11.2017
+
+Scandroid - Monochrome (Instrumentals) (2017) [MP3|320 Kbps] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2518 (Instrumental)
+02. Afterglow (Instrumental)
+03. Rendezvous (Instrumental)
+04. Thriller (Instrumental)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E30C55B3529063CE5AC86988C8E3F14853D4B376
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578913   (341079) от 25.09.2022
 
 Galaxy Hunter - We Came From Space (2008) [OGG Vorbis|484 Kbps] <Electronic, Italo-Disco, Ambient>
@@ -6,7 +61,7 @@ Galaxy Hunter - We Came From Space (2008) [OGG Vorbis|484 Kbps] <Electronic, Ita
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341079.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ Oblivion - Light of a Distant Star (2015) [MP3|320 Kbps] <Synthpop, Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338969.jpg" />
 </div>
 
 
@@ -64,7 +119,7 @@ Macrocosm - Second Voyage (2005) [OGG Vorbis|484 Kbps] <Electronic, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329051.jpg" />
 </div>
 
 
@@ -93,7 +148,7 @@ Macrocosm - First Mission (2002) [OGG Vorbis|484 Kbps] <Electronic, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328984.jpg" />
 </div>
 
 
@@ -122,7 +177,7 @@ Abbsynth - Starlines (2009) [OGG Vorbis|484 Kbps] <Electronic, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327290.jpg" />
 </div>
 
 
@@ -149,7 +204,7 @@ A-Ha - Original Album Series (1985-1993) 5 CD Box Set, Reissue, 2011, Warner Bro
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326352.jpg" />
 </div>
 
 
@@ -178,7 +233,7 @@ A-Ha - Foot Of The Mountain (2009) [OGG Vorbis|484 Kbps] <Electronic, Synth-pop,
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326348.jpg" />
 </div>
 
 
@@ -207,7 +262,7 @@ Oingo Boingo - 9 Albums (1981-1994) Collection [MP3|320 Kbps] <New Wave, Synth-p
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322101.jpg" />
 </div>
 
 
@@ -236,7 +291,7 @@ VA - Magnatron (2015) [MP3|320 Kbps] <Synthwave, Darksynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321712.jpg" />
 </div>
 
 
@@ -265,7 +320,7 @@ VA - Magnatron 2.0 (2017) [MP3|320 Kbps] <Synthwave, Darksynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321575.jpg" />
 </div>
 
 
@@ -294,7 +349,7 @@ Eurythmics - Boxed (1981-1999) Box Set: 8 CD, Reissue, Remastered, 2005, Sony BM
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318627.jpg" />
 </div>
 
 
@@ -323,7 +378,7 @@ Laserdance - Greatest Hits & Remixes (2015) [MP3|320 кб/с]<Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318523.jpg" />
 </div>
 
 
@@ -352,7 +407,7 @@ Tone Band - 2 Albums (1981, 1982) LP [MP3|320 Kbps] <Electronic, Synth-pop, New 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312474.jpg" />
 </div>
 
 
@@ -381,7 +436,7 @@ Depeche Mode - Songs of Faith and Devotion - The 12" Singles (2020) [MP3|320 Kbp
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310443.jpg" />
 </div>
 
 
@@ -410,7 +465,7 @@ Erasure - Always - The Very Best of Erasure (Deluxe Version) (2015) (3CD) [MP3|3
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309621.jpg" />
 </div>
 
 
@@ -439,7 +494,7 @@ Those Attractive Magnets - ElectroMagnetic Pulse (2010) LP, Compilation, Limited
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305532.jpg" />
 </div>
 
 
@@ -468,7 +523,7 @@ Satellite & Atom Cristal - Satellite & Atom Cristal (1983) [MP3|320 Kbps] <Elect
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305397.jpg" />
 </div>
 
 
@@ -497,7 +552,7 @@ Synthesis - 3 Albums (2005-2017) [MP3|320 Kbps] <Electronic, Synth-pop, Spacesyn
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300355.jpg" />
 </div>
 
 
@@ -526,7 +581,7 @@ Laserdance - Trans Space Express (2018) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300353.jpg" />
 </div>
 
 
@@ -555,7 +610,7 @@ ADN' Ckrystall - Jazz' Mad (1982) LP [MP3|320 Kbps] <Electronic, New Wave, Synth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291532.jpg" />
 </div>
 
 
@@ -584,7 +639,7 @@ Ultravox - Extended (2018) [MP3|320 Kbps] <Synthpop, New Wave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289768.jpg" />
 </div>
 
 
@@ -613,7 +668,7 @@ New Musik - 3 Studio Albums (1980-1982) Reissue CD, 2011, Lemon Recordings [MP3|
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286377.jpg" />
 </div>
 
 
@@ -642,7 +697,7 @@ Reinhard Lakomy - Das Geheime Leben (1982) LP [MP3|320 Kbps] <Electronic, Downte
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284549.jpg" />
 </div>
 
 
@@ -671,7 +726,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284095.jpg" />
 </div>
 
 
@@ -685,64 +740,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:765713AF64DAB65EBEAF796DF77ACD4653D10030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188303   (274635) от 02.12.2017
-
-Eisfabrik - Null Kelvin (2017) [MP3|320 Kbps] <Synthpop, Futurepop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sein Erstes Lied (2:46)
-02. Shadows (4:12)
-03. Soon Enough (3:29)
-04. The Choice (4:18)(   Читать дальше...   )Жанр: Synthpop, FuturepopПродолжительность: 00:53:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37ACDB79111487A3377207D1A11E4B6002A95A4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189676   (270276) от 06.12.2017
-
-Nova - 2 Albums (1982, 1983) LP [MP3|320 Kbps] <Electronic, Synth-pop, Space>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270276.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Nova" - электронный музыкальный коллектив, получивший популярность в Европе благодаря предлагаемым альбомам в первой половине 80-х годов. Один их хитов - инструментальная композиция "Аврора" достигла  1-го места в Голландском Топ 40 в 1982 году.01. Aurora (3:44)
-02. Arrive (5:42)
-03. Xenos (5:14)
-04. Horizon (3:55)(   Читать дальше...   )Жанр: Electronic, Synth-pop, SpaceПродолжительность: 01:18:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB25C962BB721C2E96F37B17CF328A0B91086024
 ```
 
 https://mybot314.ru/tekegram_catalog/

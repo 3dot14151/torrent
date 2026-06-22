@@ -1,3 +1,55 @@
+###  Публикация: 1281655   (749911) от 09.02.2019
+
+Discovery. Рыбацкие легенды Якуба Вагнера / Rybi Legendy Iakuba Vagnera (2013) HDTVRip [H.264/720p-LQ] (сезон 2, серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Присоединяйтесь к профессиональному рыболову и исследователю Якубу Вагнеру, который путешествует по миру в поисках самых опасных обитателей водоемов. Перед началом каждого рыболовного приключения он тщательно изучает сказания и мифы местных жителей – Якуб надеется поймать рыб, о которых слагают легенды.Производство: Чехия, Česká televize, Discovery ChannelЖанр: Документальный, природа, рыбалкаПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 6 x ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6557068DBED73B063D99335183F7FD7654282765
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524201   (746254) от 14.01.2022
+
+Самый холодный марафон с Джеймсом Крэкнеллом / Coldest Race on Earth with James Cracknell (2011) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двукратный чемпион и золотой олимпийский медалист Джеймс Крэкнелл готовится проехать 700 км по холодной арктической пустыне, по одной из самых экстремальных трасс на Земле. Для Джеймса Yukon Arctic Ultra представляет собой экстраординарное испытание, потому что с момента катастрофического столкновения велосипеда с грузовиком, чуть не убившего его, прошло всего полгода. (   Читать дальше...   )Производство: США, Bullseye Television and Ambition ProductionsЖанр: документальный, спорт, биографияРежиссер: Дэвид ХаррисонПеревод: одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB819124A5A98C7E22DF83E5CC2A64A63DB5999D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388234   (745168) от 16.07.2020
 
 Discovery. Легендарные места / Legendary Locations (2018) HDTVRip (сезон 1, серии 1-14 из 14)
@@ -6,7 +58,7 @@ Discovery. Легендарные места / Legendary Locations (2018) HDTVRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745168.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743216.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742061.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Discovery: Разгневанная планета (Бушующая плане�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740647.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Discovery. Аляска: Семья из леса / Alaskan Bush People (2021) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738043.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730553.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Discovery. Техногеника. Петербургский метрополи
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730487.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Discovery: Почему? Вопросы мироздания. Природа н�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728711.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728547.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728540.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Discovery. Почему? Вопросы мироздания. Как дейст�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728458.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ Discovery: Почему? Вопросы мироздания. Можем ли м
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727531.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727072.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726176.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725358.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723972.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ Discovery. Недружелюбная вселенная / Bad Universe (2010) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721912.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Discovery. Экстремальные боевые искусства / XMA: Xtr
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721819.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Discovery: Почему? Вопросы мироздания. Наступит �
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717920.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ Discovery: Почему? Вопросы мироздания. Существуе
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717767.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ Discovery. Через червоточину с Морганом Фримено�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715866.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Discovery. Что скрывает Солнце / The Dark Side of the Sun (2017
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713937.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Discovery: Разрушители легенд / MythBusters (2016) SATRip (Се
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707722.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ Discovery: Почему? Вопросы мироздания. Существую
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705679.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ Discovery: Почему? Вопросы мироздания. Существую
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:542E56D5712984ADEB3AC9A19AF6FE42A6DD856B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381263   (704886) от 12.08.2020
-
-Discovery. Взрывая историю / Blowing up History (2019) HDTV [H.264/1080p-LQ] [50 fps] (сезон 4, серии 1-13 из 13)
-
->>След.
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как построили известнейшие здания древности? Последние археологические открытия, рентгеновские снимки и данные лидаров помогут разгадать секреты древних цивилизаций и их невероятных сооружений. Загадочные линии Наски были высечены в пустыне Атакама больше тысячи лет назад — как и с какой целью их создали? Почему было невозможно сбежать из Алькатраса? Какие тайны (   Читать дальше...   )Производство: США, Windfall Films, Discovery ChannelЖанр: Документальный, наука, история, археологияРежиссер: Мартин Горст, Джеймс ФранклинПеревод: Двуголосый закадровый, профессиональный (Мобильное Телевидение)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B84066DDBD26AC0C076C5C69757549C69C39CBD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397950   (703134) от 13.08.2020
-
-Discovery. Легендарные места / Legendary Locations (2019) HDTVRip (сезон 2, серии 1-4 из 13) (Обновляемая)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одолевает жажда приключений? Присоединяйтесь к Джошу Гейтсу, который исследует легенды и истории, связанные с самыми разными местами по всему миру. Он отправляется в проклятую крепость в индийских горах Аравали, обнаруживает каменные лабиринты (включая древний город в каньоне иорданской пустыни) и путешествует по опасной Дороге смерти в Боливии в компании других (   Читать дальше...   )Производство: США, Ping Pong Productions, Discovery Channel HDЖанр: Документальный, путешествии, историяПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AE8CB0BA2E31B7AE5C7D4F9EE6B310F92370F51
 ```
 
 https://mybot314.ru/tekegram_catalog/

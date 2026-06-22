@@ -1,3 +1,60 @@
+###  Публикация: 1243372   (494227) от 26.08.2018
+
+Cisdem PDFConverterOCR 6.0.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cisdem PDF Converter OCR- быстро и аккуратно конвертирует как нативные так и отсканированные PDF файлы в редактируемые документы.
+
+Скажите Стоп перепечатыванию PDF документов со сложными макетами и графикой. Используйте Cisdem PDF Converter OCR для конвертирования PDF файлов в Microsoft Word (.docx), PowerPoint (PPTX);, EPUB, RTFD, TEXT, HTML, Keynote, Pages, изображения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.08.2018Разработчик: © Cisdem IncПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65F980B91153FA680B4082605D3528A069529C47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242981   (494208) от 26.08.2018
+
+Weather Guru 2.3.3 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Weather Guru красивый и очень точный погодный информер для вашего Mac.
+
+Благодаря великолепному и простому в использовании интерфейсу, приложение предоставляет прогнозы погоды, полезные уведомления и всегда держит вас в курсе в течение 7-ми дней вперед.
+Самый красивый информер прогноза погоды для вашего Mac(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.08.2018Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECA3786532821F9E3EE09D217D46E3A139F2D33B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243323   (494115) от 26.08.2018
 
 Money (with sync) 6.6.15 [Multi/Ru]
@@ -6,7 +63,7 @@ Money (with sync) 6.6.15 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494115.jpg" />
 </div>
 
 
@@ -33,7 +90,7 @@ NoFlashTube - A player for YouTube 2.2.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493429.jpg" />
 </div>
 
 
@@ -62,7 +119,7 @@ Easy Audio Mixer 2.8.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492592.jpg" />
 </div>
 
 
@@ -88,7 +145,7 @@ xSearch for Safari 1.8.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492580.jpg" />
 </div>
 
 
@@ -115,7 +172,7 @@ Faronics Deep Freeze 7 v7.40.220.0004 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492433.jpg" />
 </div>
 
 
@@ -141,7 +198,7 @@ Downie 2.9.9 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491849.jpg" />
 </div>
 
 
@@ -170,7 +227,7 @@ Tagr 5 v5.5.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490507.jpg" />
 </div>
 
 
@@ -197,7 +254,7 @@ NCH Debut Professional 8.42 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490432.jpg" />
 </div>
 
 
@@ -223,7 +280,7 @@ Mission Control Plus 1.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490431.jpg" />
 </div>
 
 
@@ -251,7 +308,7 @@ Recordee 1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490360.jpg" />
 </div>
 
 
@@ -280,7 +337,7 @@ OmniOutliner Pro 5.3.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490121.jpg" />
 </div>
 
 
@@ -308,7 +365,7 @@ BusyContacts 2022.3.1 U2B  [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488457.jpg" />
 </div>
 
 
@@ -335,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488409.jpg" />
 </div>
 
 
@@ -362,7 +419,7 @@ NCH Express Animate 7.34 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488365.jpg" />
 </div>
 
 
@@ -388,7 +445,7 @@ OmniPlan Pro 3.5.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488160.jpg" />
 </div>
 
 
@@ -414,7 +471,7 @@ Sparkle 1.2.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487778.jpg" />
 </div>
 
 
@@ -442,7 +499,7 @@ Umbrella 1.1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487388.jpg" />
 </div>
 
 
@@ -470,7 +527,7 @@ Screenotate 3.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487387.jpg" />
 </div>
 
 
@@ -496,7 +553,7 @@ A Better Finder Rename 11 v11.51 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486514.jpg" />
 </div>
 
 
@@ -523,7 +580,7 @@ Artlantis 2021.2 v9.5.2.32351 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486279.jpg" />
 </div>
 
 
@@ -549,7 +606,7 @@ iSubtitle 3.1.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486169.jpg" />
 </div>
 
 
@@ -576,7 +633,7 @@ Wondershare TunesGo 9.7.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485948.jpg" />
 </div>
 
 
@@ -602,7 +659,7 @@ Audio Record Studio 2.1.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485597.jpg" />
 </div>
 
 
@@ -628,7 +685,7 @@ Monterey Cache Cleaner 17.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484517.jpg" />
 </div>
 
 
@@ -639,61 +696,6 @@ Monterey Cache Cleaner - это удостоенный наград инстру
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE2EAE29DD3905C9C551D7B3E5702A736B823624
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566418   (484418) от 28.07.2022
-
-SoundSource 5.5.4 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484418.jpg" />
-</div>
-
-
-###  Подробнее
-
-SounceSource позволяет настроить прямо из строки меню входные, выходные данные и звуковые эффекты устройства и настройки громкости в считанные минуты. С SoundSource, вы получаете быстрый доступ к наиболее важным настройкам звука вашего Mac.
-Мгновенное переключение аудио-устройств - c помощью всего двух щелчков мыши, вы можете переключить аудио устройство вашего Mac, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.07.2022Разработчик: © 2022 Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D7FDE6441CACBA5434421831C114FF5F88059AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159465   (484029) от 20.08.2017
-
-TotalFinder 1.9.3 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484029.jpg" />
-</div>
-
-
-###  Подробнее
-
-TotalFinder – это набор полезных утилит, расширяющих исходную функциональность файлового менеджера Mac OS X Finder. Главной особенностью предлагаемого продукта является поддержка вкладок, в которых могут открываться отдельные окна «проводника».
-
-Приложение TotalFinder обладает исключительной производительностью, удобным пользовательским интерфейсом, компактными размерами (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 26 апреля 2017Разработчик: BinaryageПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C04104C7A4F39B37C194E17A301E22B43098627
 ```
 
 https://mybot314.ru/tekegram_catalog/

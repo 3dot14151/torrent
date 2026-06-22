@@ -1,3 +1,111 @@
+###  Публикация: 475750   (85554) от 31.03.2012
+
+Книжная серия | Подводный спецназ [4 книги] (2009-2012) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подводный спецназ - серия боевиков о работе элитного спецподразделения ВМФ.
+Разминировать подводный газопровод, добраться до сомалийских пиратов и "замочить" их, помешать захвату биологического оружия с затонувшего корабля, найти общий язык с вражескими дельфинами-камикадзе...
+И таких заданий очень много!Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40E4510D869777EC7E215E31F48632478794E0A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474815   (85121) от 29.03.2012
+
+Книжная серия | "Неофициальная история России" [2006-2007] [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книги серии Неофициальная история России не похожи на обычные исторические хроники. Автор ввел в ткань повествования самые разнообразные материалы: документы, письма, легенды, проповеди, пословицы и поговорки, сообщения летописей и воспоминания участников событий, а также фрагменты из произведений выдающихся российских и зарубежных историков (их фамилии выделены в тексте курсивом). История страны предстает здесь не как перечень фактов, а как сложные взаимоотношения исторических лиц, чьи поступки, характеры, интриги оказывали прямое воздействие на развитие ситуации, на ход происходившего в стране. Серия состоит из 14 книг и охватывает события с древнейших времен до 1917 года.2006-2007Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21B31DD6B4CBC792F1112C3892AA52EE45ED5304
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473708   (84994) от 28.03.2012
+
+Книжная серия "Книга на все времена" (27 книг) [2008-2011] [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга на все времена - серия именно издательства "Эксмо". Одноименная серия АСТ (почти тысячекнижный монстр) здесь не рассматривается.
+Издательство отбирает книги высокого литературного мастерства, не определяясь пока со стержневым направлением серии. Зато и не валит всё в кучу.2008-2011Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D534A30E1559ACDACA5C586A9C097897F115ADE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474346   (84941) от 28.03.2012
+
+Книжная серия | "Опрокинутый мир" [2001-2002] [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84941.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Опрокинутый мир" - интересная серия, как по наполнению, так и по оформлению.
+ В серии издавались в основном циклы произведений как отечественных, так и зарубежных авторов.2001-2002Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:644223CA29F6C91B08C3B3BC8C952ABF170C2A0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 473618   (84593) от 26.03.2012
 
 Серия "Исторический роман" в 84 томах [2004 - 2012] [FB2]
@@ -6,7 +114,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84593.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84368.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84319.jpg" />
 </div>
 
 
@@ -86,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84230.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84180.jpg" />
 </div>
 
 
@@ -140,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84114.jpg" />
 </div>
 
 
@@ -166,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83957.jpg" />
 </div>
 
 
@@ -194,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83939.jpg" />
 </div>
 
 
@@ -223,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83285.jpg" />
 </div>
 
 
@@ -249,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83280.jpg" />
 </div>
 
 
@@ -277,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82897.jpg" />
 </div>
 
 
@@ -311,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82872.jpg" />
 </div>
 
 
@@ -338,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82847.jpg" />
 </div>
 
 
@@ -368,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82499.jpg" />
 </div>
 
 
@@ -395,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82094.jpg" />
 </div>
 
 
@@ -421,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81703.jpg" />
 </div>
 
 
@@ -450,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81695.jpg" />
 </div>
 
 
@@ -478,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81637.jpg" />
 </div>
 
 
@@ -508,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81467.jpg" />
 </div>
 
 
@@ -534,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81427.jpg" />
 </div>
 
 
@@ -562,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81150.jpg" />
 </div>
 
 
@@ -591,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81025.jpg" />
 </div>
 
 
@@ -602,118 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAF750D680EB2442CBD2A1D05042D80EB86C4085
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461492   (79782) от 03.03.2012
-
-Книжная серия "Русский апокалипсис" [2011-2012] [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рецензия, взятая из интернета: «Книга резко выделяется из общего вала низкосортного чтива о Зоне...
- Пусть действие не в Чернобыле, а в Москве и Нижнем, но при этом написано круче лучших первых образцов "сталкерской" литературы. Да и не только сталкерской, роман - хоть и боевик, но в первую очередь история о людях, а значит о любви и предательстве, о дружбе и верности.
- Некоторые сцены вообще потрясающие - красиво, но страшно!»2011-2012Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B5152D6196464C6E2D204DF390B46EDA3EB5FB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459284   (78982) от 28.02.2012
-
-Книжная серия "Fatum" [1992-1998] [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Fatum выпускалась в 1992-1998 годах издательством Эль-Фа.
- Серия подразделялась по жанрам: Мистика, Фантастика, Приключения, Детектив, Романтика.1992-1998Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9D666112677C39A5C55E40E738BFB42E7E77E9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457044   (78159) от 24.02.2012
-
-Книжная серия "Киберtime" [2002-2004] [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Киберtime - серия издательств Ультра. Культура и У-Фактория.
- Серия состояла из двух частей:
- Киберtime / fiction - художественная проза (в основном, фантастика)
- Киберtime / non-fiction - соответственно, не художественная литература.
- Здесь представлены обе части.2002-2004Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6924758606197C212EF08BF35A793DF6EBF992CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456921   (78065) от 23.02.2012
-
-Межавторский цикл | Конан-варвар [823 книги] (1936-2011) [FB2, DOC, PDF, JPEG]
-
->>След.
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конан — это придуманный воин-варвар из Киммерии. Персонаж романов, комиксов, фильмов и компьютерных игр, один из самых известных фантастических персонажей XX века. Вымышлен и описан Робертом Ирвином Говардом в цикле повестей о Хайборийской Эре, написанных в жанре фэнтези и издававшихся в журнале Weird Tales.
- После смерти Говарда серия романов про Конана по предложению (   Читать дальше...   )Формат: FB2, DOC, PDF, JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26D05B34B0B32450A051E20562868E8C6D115FFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

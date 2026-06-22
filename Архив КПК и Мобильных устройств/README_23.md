@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832629.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832216.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832043.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Immortal Fighters 1.2 - приготовьтесь к последней схв�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831692.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831537.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ FINAL FANTASY III 1.2.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831186.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ MOBILedit! Enterprise 9.0.0.21825 Portable by Maverick [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831136.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830595.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830383.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830151.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829710.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Sensors Multitool v1.3.0 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_829583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_829583.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ RuVideo v1.0.35 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829306.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Garmin: Дороги России ТОПО 6.33 (FID 3332 + FID 4594) [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828950.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828946.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827915.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ GPS АнтиРадар (радар-детектор) v27.1 Pro [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827743.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827082.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827078.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826582.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826417.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824309.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824307.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824221.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Screen Recorder Pro 5+ 8.8 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824213.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Instagram 10.13.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823813.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ BBC: Секреты устройства античных городов. Рим
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874933.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC: Невидимые миры. Вне поля зрения / Invisible World
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874263.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ BBC: Гений Марии Кюри: женщина, осветившая мир
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872328.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ BBC: Трагедия близнеца Титаника / Titanic's Tragic Twin:
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868533.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ BBC. Точность и погрешность измерений / Precision: 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866524.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ BBC. Наша Первая мировая / Our World War (2014) HDTVRip [H.264/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865954.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ BBC. Наша Первая мировая / Our World War (2014) HDTVRip (1-3 с
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864193.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864180.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ BBC: История Единицы с Терри Джонсом / The Story of 1
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856325.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ BBC: Серенгети / Serengeti II (2021) WEBRip [H.264/720p] (сезон 2,
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854073.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ BBC. Биологические часы: как они работают? / Body
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853261.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ BBC: Что такое свет / Light Fantastic (2004) [2 х DVD5]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852128.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 7
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851925.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ BBC: Захватывающая история криминалистики / Ca
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851869.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ BBC: Полет Земли / Earth Flight (6 серий из 6) (2011-2012) [720
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848648.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ BBC: Волк / The Wildlife Specials: Wolf (1997) DVD-5
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848643.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ BBC: Инстинкт человека (Человеческие инстинк�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848642.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ BBC: Как искусство сотворило мир / How Art Made the Worl
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848569.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ BBC. Смартфоны: темная сторона / Smartphones: The Dark Sid
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847938.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ BBC. Европа изнутри: десять лет смятения (деся
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845801.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845456.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ BBC: Замерзшая планета (Застывшая планета) / Fro
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845094.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844273.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ BBC: Исаак Ньютон: Последний чародей (Последн�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842013.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ BBC. Тайный командующий. Военный стратег Иран
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837382.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ BBC: Мир природы: Львы пустыни / Natural World: Desert Lion
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836690.jpg" />
 </div>
 
 

@@ -1,3 +1,38 @@
+###  Публикация: 781417   (755942) от 28.04.2014
+
+38BEETS [FRONTIER CREATE] - 16 альбомов (2009-2012) Touhou Vocal /Doujin/ [FLAC|Lossless] <J-Pop, J-Rock, Electronic>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2009.10.11 (38CD-0001) POISONING (Kouroumu 5)
+2009.10.11 (38CD-0002) PIECES (Kouroumu 5)
+2009.12.30 (38CD-0003) PLEASANT (C77)
+2009.12.30 (38CD-0004) LABOR PAINS (C77)
+…
+2012.03.18 FOREVER
+2012.04.30 (38CD-0018) God knows (M3-29)
+2012.05.27 (38CD-0019) Edge of life (Reitaisai 9)
+2012.08.11 (38CD-0020) Cause and effect (C82)Тип издания: DoujinЖанр: J-Pop, J-Rock, ElectronicФормат: Touhou VocalПродолжительность: 00:13:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CAD0F31EE9FB6B6C4BA67257F94456FBD7B7A07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 781412   (755848) от 28.04.2014
 
 Studio "Syrup Comfiture" - 16 альбомов (2009-2012) [FLAC|Lossless] <Touhou, Vocal, Doujin Ongaku, J-Rock, J-Pop>
@@ -6,7 +41,7 @@ Studio "Syrup Comfiture" - 16 альбомов (2009-2012) [FLAC|Lossless] <Touh
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755848.jpg" />
 </div>
 
 
@@ -40,7 +75,7 @@ Yuki Murata - Gift (2014) Ricco Label [FLAC|Lossless|tracks + .cue] <Modern Clas
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749824.jpg" />
 </div>
 
 
@@ -69,7 +104,7 @@ Yoshida Brothers - Hishou (2007) [FLAC|Lossless|tracks + .cue] <Folk, World, Ins
 >>Asian Traditional, Ethnic (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749758.jpg" />
 </div>
 
 
@@ -98,7 +133,7 @@ Yuki Murata - Films (2009) Ricco Label, RE. [FLAC|Lossless|tracks + .cue] <Moder
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748058.jpg" />
 </div>
 
 
@@ -127,7 +162,7 @@ Yoshida Brothers - Yoshida Brothers (2003) [FLAC|Lossless|tracks + .cue] <Folk, 
 >>Asian Traditional, Ethnic (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747870.jpg" />
 </div>
 
 
@@ -156,7 +191,7 @@ Kazumi Watanabe - Guitar is Beautiful KW45 (2016) [MP3|320 кб/с] <Jazz, Fusio
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741792.jpg" />
 </div>
 
 
@@ -185,7 +220,7 @@ Loudness - Sunburst~我武者羅 (2021) 2xCD, Japanese Edition [FLAC|Lossless|im
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737790.jpg" />
 </div>
 
 
@@ -216,7 +251,7 @@ Silent Elegy - Gone With The Wind (2016) [MP3|320 кб/с] <Gothic Metal, Sympho
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728347.jpg" />
 </div>
 
 
@@ -245,7 +280,7 @@ Boom Boom Satellites - To The Loveless (2010) [MP3|320 kbps]<JRock/Electronic, B
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_727264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_727264.jpg" />
 </div>
 
 
@@ -280,7 +315,7 @@ Tadaaki Otaka - Takemitsu: How Slow the Wind (2001) [FLAC|Lossless|image + .cue]
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727115.jpg" />
 </div>
 
 
@@ -309,7 +344,7 @@ Yamato - The Wadaiko Drummers Of Japan (2005) [MP3|320 kbps]<ethno / folk / japa
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_714975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_714975.jpg" />
 </div>
 
 
@@ -338,7 +373,7 @@ Akisai - Images (2015) [FLAC|Lossless|tracks] <Electronic, Instrumental, Ambient
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713675.jpg" />
 </div>
 
 
@@ -367,7 +402,7 @@ Takahiro Matsumoto - Enigma (2016) [MP3|320 кб/с] <Rock, Instrumental Rock>
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707613.jpg" />
 </div>
 
 
@@ -396,7 +431,7 @@ Kalafina - Discography (2008-2012) [MP3|320 кб/с]<JPop>
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704465.jpg" />
 </div>
 
 
@@ -431,7 +466,7 @@ Mari Hamada - 9 albums (1983-1993) [FLAC|Lossless]<Japanese, heavy metal,AOR, 80
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_686880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_686880.jpg" />
 </div>
 
 
@@ -460,7 +495,7 @@ Sandii & The Sunsetz - Immigrants (1982) Reissue, 2006, YEN Records, GT Music [F
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682577.jpg" />
 </div>
 
 
@@ -489,7 +524,7 @@ Sayuri - Mikazuki no Koukai (2017) [MP3|320 Kbps] <J-Pop Rock / Acoustic>
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682535.jpg" />
 </div>
 
 
@@ -518,7 +553,7 @@ Vocalohistory (2017) [FLAC|Lossless|image+.cue] <J-Pop, Vocaloid>
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682530.jpg" />
 </div>
 
 
@@ -547,7 +582,7 @@ Sunsetz (Sandii & The Sunsetz) - Heat Scale (1981) Reissue, Limited Edition, 200
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680660.jpg" />
 </div>
 
 
@@ -576,7 +611,7 @@ Keiichi Okabe, VA - NieR:Automata Original Soundtrack (2017) 4 CD [MP3|320 Kbps|
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676471.jpg" />
 </div>
 
 
@@ -606,7 +641,7 @@ Night Tempo - Showa Idol's Groove (2019) [FLAC|Lossless|WEB-DL|tracks] <Vaporwav
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676024.jpg" />
 </div>
 
 
@@ -635,7 +670,7 @@ MYTH & ROID - eYe's (2017) [MP3|320 Kbps] <Synth Pop / Electronic Rock / Alterna
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674610.jpg" />
 </div>
 
 
@@ -663,7 +698,7 @@ Touhou Gensoukyou UROBOROS ~fANTASIAsPIRALoVERdRIVE~(2013) [MP3|320kbps] <Touhou
 >>Doujin Music
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671083.jpg" />
 </div>
 
 
@@ -698,7 +733,7 @@ Night Tempo - Pure Present (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Cit
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670352.jpg" />
 </div>
 
 
@@ -727,7 +762,7 @@ HAPPY I SCREAM!! - 4 альбомов (2010-2012) [FLAC|Lossless] <Touhou, Instr
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669578.jpg" />
 </div>
 
 
@@ -745,39 +780,6 @@ HAPPY I SCREAM!! - 4 альбомов (2010-2012) [FLAC|Lossless] <Touhou, Instr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28DEBC49B7DC55AE438B6EEDC9D9ABD6C925A2F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 798226   (669501) от 22.06.2014
-
-As/Hi Soundworks | Ash Blind | As/Hi - 20 альбомов (2006-2013) Touhou Instrumental /Doujin/ [FLAC|Lossless] <J-Rock, Piano Arrange>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2006.05.21 (ASHI-0001) Kouka Shouran ~RAPID ENSEMBLE~ (Reitaisai 3)
-2006.09.24 (ASHI-1001) RABBIT ENSEMBLE (Fuhai Komachi 2)
-2007.03.21 (ASHI-1003) Sore wa Yamikumo ni Moteasobareru Ayatsuri Ningyou no Gotoku (Fuhai Komachi 3)
-…
-2012.12.30 (AHCJ-0001) TRAVEL MAP (C83)
-2012.12.30 (AHCR-0001) Touhou Small Compilation for Piano Op.4 “Sakura Transgression” (C83)
-2013.08.12 (ASHI-0010) Sange Jousetsu ~Rapid Ensemble 5~ (C84)Тип издания: DoujinЖанр: J-Rock, Piano ArrangeФормат: Touhou InstrumentalПродолжительность: 00:15:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74526E2785302CE4176EDDE96ACE1718E630E09C
 ```
 
 https://mybot314.ru/tekegram_catalog/

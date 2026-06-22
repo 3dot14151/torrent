@@ -1,3 +1,29 @@
+###  Публикация: 1773428   (30678) от 17.01.2025
+
+Линч / Lynch (2007) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Личности в истории
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм дает нам редкую возможность заглянуть в увлекательный внутренний мир человека, создавшего такие визионерские шедевры, как «Голова-ластик», «Малхолланд Драйв», «Синий бархат», «Твин Пикс», «Дикие сердцем», «Человек-слон». Это рассказ о жизни режиссера, о его творчестве и художественном взгляде, о том, как он работал на съемочной площадке фильма «Внутренняя империя».Производство: США / Absurda, Hideout Films, MK2 TVЖанр: документальныйРежиссер: Джейсон С.Участники: Джей Аасенг, Джереми Альтер, Дэвид Линч, Кшиштоф Майхжак, Филлип Патела, Вероника РозатиПеревод: Двуголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: Русские (AI)Продолжительность: 01:51:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F4C59E8CA39A9DAE6EC459FAEE0256C7FA1EEA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462760   (25238) от 09.03.2025
 
 Три дня Юрия Гагарина. И вся жизнь (2011) HDTV [H.264/1080i]
@@ -6,7 +32,7 @@
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25238.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25213.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16447.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9100.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2706.jpg" />
 </div>
 
 

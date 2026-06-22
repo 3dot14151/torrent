@@ -6,7 +6,7 @@ Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.11.3.1980 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015316.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Focus Magic 5.00 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014225.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Glyphs 3 v3.0.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013064.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Color Folder Master 1.1.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013060.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Clip Studio Paint EX 1.6.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008217.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Separation Studio 2.2.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008030.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Photo Batch Processor 3.1.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007917.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ ON1 NoNoise AI 2021 v16.0.0.10747 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007761.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ EdgeView 2 v2.922 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007628.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Artstudio Pro 3.24 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007466.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Luminar AI 1.3.0 Apple Silicon (M1) [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005457.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ ACD Systems Canvas Draw 6.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002427.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Hot Door CADtools v.12.1.1 and Control Plug-ins v1.7 ONLY for Adobe Illustrator 
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001540.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Paintstorm Studio 2.43 (build 120120) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001249.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Snapseed 1.2.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997678.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Nik Software Color Efex Pro 4.005 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995961.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Nik Software HDR Efex Pro 2.003 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995712.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Dynamic Photo HDR 5.2.0 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994635.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Ortelius 2 v2.2.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993323.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Adobe Photoshop Elements 2020 v18.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993109.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991445.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Paintbrush 2.1.1 [ENG]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989962.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Graphic 3.0.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987242.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Luminar 3  v3.2.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986992.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Image Crop 1.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986220.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ IconKit 4.7.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985945.jpg" />
 </div>
 
 

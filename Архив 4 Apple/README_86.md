@@ -6,7 +6,7 @@ Wondershare Filmora 7.8.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950316.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Serial box 2010-02 + Serial reader 2.0.7 + Serial seeker 1.3.3 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950198.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ RealDNS - Dynamic DNS update client 6.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949969.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ A Better Finder Rename 10.04 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949877.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ beaTunes 4.5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949809.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ OmniFocus Pro 2.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949757.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Disk Graph 2.1.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949710.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ FontLab 7 v7.1.0 (build 7355) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949701.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Athentech Perfectly Clear Complete (St and Plug-in for Lr) 3 v3.9.0.1749 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949699.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Kaleidoscope 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949694.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Alfred Powerpack 4.0.9 (build 1142) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949683.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Qbserve 1.86 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949615.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Banktivity 7 v7.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949614.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Capto – Screen Recording, Screen Captures, and Editing 1.2.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949602.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Aiseesoft Mac Video Enhancer 9.2.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949594.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Beyond Compare 4.3.3 (build 24545) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949545.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Ableton Live Suite 9.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949430.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ HyperDock 1.8.0.5-dev [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949410.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ goPanel 1.7.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949284.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Qbserve 1.57 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949176.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ IP Scanner Pro 3.53 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949077.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ iMazing 2.1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949064.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ BetterTouchTool 1.54 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948463.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Squidoo 1.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948445.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Reflect Studio 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948340.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Bevy 1.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948335.jpg" />
 </div>
 
 

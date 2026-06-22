@@ -1,3 +1,58 @@
+###  Публикация: 1785856   (69171) от 17.03.2025
+
+Иван Тургенев | Затишье (Инсценировка) (1997) [MP3, Тамара Абросимова, Николай Буров]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Звучащая библиотека.
+Иван Сергеевич Тургенев (1818–1883) – русский писатель, поэт, переводчик, член-корреспондент императорской Академии наук по разряду русского языка и словесности (1860).
+Повесть «Затишье» была написана Тургеневым в период с 25 января по 23 июня 1854 года. И, хотя сам писатель говорил, что писал её «с большими промежутками», можно сказать, (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 01:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F1AD9B4FBB0200CD9FBC21294B201C14421791D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785763   (69167) от 17.03.2025
+
+Александр Грин | Алые паруса (Радиоспектакль) (2024) [MP3, Владимир Захарьев, Сергей Мучеников, Татьяна Михалевкина и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Театр у вас дома.
+Александр Степанович Грин (1880–1932) – русский писатель, прозаик и поэт, представитель неоромантизма, автор философско-психологических произведений с элементами символической фантастики. Создатель вымышленной страны, которая благодаря критику К.Л. Зелинскому получила название «Гринландия». Один из самых талантливых, загадочных русских (   Читать дальше...   )Жанр: Русская литература, классика, повесть-феерияИздательство: Радио России – Санкт-ПетербургПродолжительность: 01:30:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03DBC9477847C434517EE1B80D9423340AF4D00C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785761   (69166) от 17.03.2025
 
 Александр Грин | Фанданго (1997) [MP3, Валерий Ивченко]
@@ -6,7 +61,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69166.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69164.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69153.jpg" />
 </div>
 
 
@@ -88,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69126.jpg" />
 </div>
 
 
@@ -117,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69120.jpg" />
 </div>
 
 
@@ -145,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69116.jpg" />
 </div>
 
 
@@ -174,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69099.jpg" />
 </div>
 
 
@@ -203,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69098.jpg" />
 </div>
 
 
@@ -231,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69009.jpg" />
 </div>
 
 
@@ -259,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69008.jpg" />
 </div>
 
 
@@ -287,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69007.jpg" />
 </div>
 
 
@@ -315,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69004.jpg" />
 </div>
 
 
@@ -344,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69003.jpg" />
 </div>
 
 
@@ -372,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68987.jpg" />
 </div>
 
 
@@ -401,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68986.jpg" />
 </div>
 
 
@@ -429,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68983.jpg" />
 </div>
 
 
@@ -458,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68956.jpg" />
 </div>
 
 
@@ -487,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68938.jpg" />
 </div>
 
 
@@ -515,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68935.jpg" />
 </div>
 
 
@@ -543,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68910.jpg" />
 </div>
 
 
@@ -571,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68907.jpg" />
 </div>
 
 
@@ -599,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68903.jpg" />
 </div>
 
 
@@ -627,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68874.jpg" />
 </div>
 
 
@@ -656,7 +711,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68853.jpg" />
 </div>
 
 
@@ -669,63 +724,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E356D28E28749755974A23E954E680FABB023263
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787039   (68847) от 23.03.2025
-
-Александр Пушкин | Маленькие трагедии (1962,1998) [MP3, Николай Черкасов и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Звучащая библиотека. Детская страничка,
-Александр Сергеевич Пушкин (1799–1837) – великий русский поэт, драматург, прозаик, историк, литературный критик и журналист, создатель современного русского литературного языка.
-«Маленькие трагедии» – цикл коротких драматических пьес А.С. Пушкина, написанный в 1830–1832 годах в Болдине. Он состоит из четырёх произведений: (   Читать дальше...   )Жанр: Русская литература, классика, пьесаИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 01:50:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8157465582DC33C364312A60D7395CA9227929EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787231   (68824) от 24.03.2025
-
-Лев Толстой | Хаджи-Мурат (Инсценировка) (2008) [MP3, Константин Вахтеров, Александр Лазарев ст. и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Мелодия - Литературный салон.
-Лев Николаевич Толстой (1828–1910) – великий русский писатель, просветитель и общественный деятель.
-Инсценировка по мотивам одноимённой повести Л.Н.Толстого.
-В основе сюжета подлинные события Кавказской войны 1817-1864 гг. – войны Российской империи с народами Северного Кавказа.(   Читать дальше...   )Жанр: Русская литература, классика, драма, повестьИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A314FB165EDEBDCC5ED1EFAAFFAAAA028E3B265
 ```
 
 https://mybot314.ru/tekegram_catalog/

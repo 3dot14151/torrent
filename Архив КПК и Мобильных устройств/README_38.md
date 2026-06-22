@@ -6,7 +6,7 @@ Duolingo Plus: изучение иностранных языков 5.47.3 Mod b
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667677.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ DIGI Clock Widget Plus 3.1.0 Mod by Katafrakt [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667665.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ CCleaner Pro: ПО для очистки 6.2.0 Lite-Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667656.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Easy Voice Recorder - Pro / Простой диктофон - Про v2.8.2 (Mod
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667653.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667621.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Cx Проводник 1.8.2 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667616.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ SeasonHit 1.7.3.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667577.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ TTL Master 3.0.1 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667506.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666725.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ AIDA64 (Mobile) 1.85 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666570.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Lightricks Motionleap (Enlight Pixaloop) 1.3.8 Mod by vedserega [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666555.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ AIDA64 (Mobile) 1.85 Lite-Mod by CMAPTOC [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666553.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Chronus: Home & Lock Widget 19.3.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666481.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665131.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664268.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Path Guide v1.0.0 [Ru/En] - создание маршрутов внутри п�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664144.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664042.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_663514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_663514.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Republique 3.5 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662901.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ BBC: Время / BBC: Time (Lifetime, Daytime, Cosmictime, Earthtime) 2006 [DVD
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_662619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_662619.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660848.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659828.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659651.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659642.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659564.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659551.jpg" />
 </div>
 
 

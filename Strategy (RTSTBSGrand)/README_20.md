@@ -1,107 +1,3 @@
-###  Публикация: 1752211   (35602) от 01.12.2024
-
-63 Days (2024) [Ru/Multi] (11237) Scene Rune
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я принадлежу к первому поколению, родившемуся в свободной Польше после 123 лет иностранной оккупации. Начало Второй мировой войны лишило меня семьи, дома и будущего. Мы злы, устали, но едины. Нам не терпится что-то сделать, вернуть себе хоть какой-то контроль над жизнью. Мои товарищи и я чувствуем, что у нас есть только один выбор: отомстить и вернуть независимость (   Читать дальше...   )Тип издания: SceneРазработчик: Destructive CreationsЖанр: Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13E623634764FDC0BE0B1837001D8BBD7B2D3FDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763623   (35474) от 02.12.2024
-
-Horizon (2014) [Ru/En] (1.0.2.156/dlc) Repack Let'sРlay [Deluxe Edition]
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Horizon — это пошаговая космическая стратегическая игра об исследовании и завоевании галактики, в которой вы управляете судьбой человечества. Вы будете исследовать глубокий космос, находить новые рубежи и находить инопланетные артефакты, спрятанные на давно заброшенных планетах. Вы также узнаете больше о галактике, вступая в контакт с десятью другими видами, каждый (   Читать дальше...   )Тип издания: RepackРазработчик: L3O InteractiveЖанр: Приключенческие игры, Инди, Симуляторы, Стратегии, БесплатныеЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C40606F9CE88C577F970CCB2C25F44AD5AF683A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763947   (35291) от 04.12.2024
-
-2089 - Space Divided (2024) [Ru/Multi] (1.0.0) Repack Let'sРlay
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35291.jpg" />
-</div>
-
-
-###  Подробнее
-
-2089 - Space Divided - классическая научно-фантастическая стратегия в реальном времени от немецкой команды разработчиков, в которой вы собираете ресурсы, строите свою базу, обучаете войска и уничтожаете противников с помощью тактического мастерства. Путешествуйте по чужим мирам за свою фракцию и сражайтесь за господство. Будьте умнее своих противников и обеспечьте (   Читать дальше...   )Тип издания: RepackРазработчик: CoastGames GmbHЖанр: Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:263AD522CD15CA9FB2128C700082A307D4B67AD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633326   (35182) от 05.12.2024
-
-HUMANKIND (2021) [Ru/Multi] (1.0.27.4539/dlc) Repack dixen18
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35182.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 4Х стратегии HUMANKIND игроку предстоит провести собственную цивилизацию через все эпохи человеческого развития. Предстоит развивать города, создавать армию и управлять юнитами, участвуя в сражениях на суше и море. Вымышленная планета создается процедурным образом и включает множество регионов. На старте прохождения они никем не заняты, но постепенно появляются (   Читать дальше...   )Тип издания: RepackРазработчик: AMPLITUDE StudiosЖанр: Strategy (Turn-based), 4X, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF6714A9D6ABAE17518063A13C088313BC6FEFAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765186   (34560) от 11.12.2024
 
 StarCraft: Brood War (1998) [Ru] (1.16.1/dlc) Repack Ranger
@@ -110,7 +6,7 @@ StarCraft: Brood War (1998) [Ru] (1.16.1/dlc) Repack Ranger
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34560.jpg" />
 </div>
 
 
@@ -136,7 +32,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.4.127/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34510.jpg" />
 </div>
 
 
@@ -162,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33615.jpg" />
 </div>
 
 
@@ -188,7 +84,7 @@ WARNO (2024) [Ru/Multi] (141373/dlc) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33412.jpg" />
 </div>
 
 
@@ -214,7 +110,7 @@ Stellaris (2016) [Ru/Multi] (3.14.15926/dlc) Repack Decepticon [Galaxy Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32686.jpg" />
 </div>
 
 
@@ -240,7 +136,7 @@ S.W.I.N.E. HD Remaster (2019) [Ru/Multi] (1.7.1846) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32356.jpg" />
 </div>
 
 
@@ -266,7 +162,7 @@ Touch Type Tale: Strategic Typing (2024) [Ru/Multi] (1.2.68) Repack FitGirl [Del
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31617.jpg" />
 </div>
 
 
@@ -292,7 +188,7 @@ Wingspan / Крылья (2020) [Ru/Multi] (1.6.1065/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30934.jpg" />
 </div>
 
 
@@ -318,7 +214,7 @@ Age of Darkness: Final Stand (2021) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30666.jpg" />
 </div>
 
 
@@ -344,7 +240,7 @@ Ultimate General: American Revolution (2024) [Ru/Multi] (1.0.3/dlc) Repack FitGi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30475.jpg" />
 </div>
 
 
@@ -370,7 +266,7 @@ Age of Darkness: Final Stand (2021) [Ru/Multi] (1.0) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30474.jpg" />
 </div>
 
 
@@ -396,7 +292,7 @@ Company of Heroes 2 (2014) [Ru/En] (4.0.0.23468/dlc) Repack dixen18 [Master Coll
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29964.jpg" />
 </div>
 
 
@@ -422,7 +318,7 @@ Empire of the Ants (2024) [Ru/Multi] (1.03.20053/dlc) License GOG [Digital Delux
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29239.jpg" />
 </div>
 
 
@@ -448,7 +344,7 @@ Battle Realms: Zen Edition (2019) [Ru/Multi] (1.59.1) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29232.jpg" />
 </div>
 
 
@@ -474,7 +370,7 @@ Battle Realms: Zen Edition (2001) [Ru/Multi] (1.59.1 HF5) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28939.jpg" />
 </div>
 
 
@@ -500,7 +396,7 @@ Dead Season (2024) [Ru/Multi] (1.0.0.9) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28836.jpg" />
 </div>
 
 
@@ -526,7 +422,7 @@ Dead Season (2024) [Ru/Multi] (1.0.0.9) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28747.jpg" />
 </div>
 
 
@@ -552,7 +448,7 @@ Dead Season (2024) [Ru/Multi] (build 15673615) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28573.jpg" />
 </div>
 
 
@@ -578,7 +474,7 @@ Warcraft: Remastered Trilogy (2024) [Ru/Multi] (1.0.0.2137/1.0.0.2157/2.0) Repac
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28331.jpg" />
 </div>
 
 
@@ -604,7 +500,7 @@ Men of War: Assault Squad 2  / В тылу врага: Штурм 2 (2014) [Ru/E
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28311.jpg" />
 </div>
 
 
@@ -630,7 +526,7 @@ Plague Inc: Evolved (2016) [Ru/Multi] (1.20.0.0/dlc) Repack Decepticon
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28195.jpg" />
 </div>
 
 
@@ -656,7 +552,7 @@ Fallen Enchantress (2012-2013) [En] (1.32/3.01) License GOG [Ultimate Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28114.jpg" />
 </div>
 
 
@@ -667,6 +563,110 @@ Fallen Enchantress (2012-2013) [En] (1.32/3.01) License GOG [Ultimate Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1543AD9C094AAA0B91E37B2D738FC13E318B677D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771467   (27783) от 13.02.2025
+
+Bulwark Evolution: Falconeer Chronicles (2024) [Ru/Multi] (Build 17334550/dlc) Repack Let'sРlay [Complete Bundle]
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bulwark - это создание своей крепости и расширение ее до империи. Я надеюсь, что вам понравятся мои попытки экспериментировать и развивать эту игру в нечто приятное и свежее. Bulwark также продолжает развиваться с каждым обновлением, основываясь на ваших отзывах. Так что положительные или отрицательные комментарии приветствуются. Если они направлены на помощь, то (   Читать дальше...   )Тип издания: RepackРазработчик: Tomas SalaЖанр: Казуальные игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFB01BDBA4AFFB52FBF44E9F504C9A5BD638F72B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779377   (27760) от 13.02.2025
+
+Renaissance Kingdom Wars (2024) [Ru/Multi] (1.0) Repack FitGirl [Deluxe Edition]
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год 1510. Пока войны бушуют по всей Европе, Африке и на Ближнем Востоке, наступает эпоха пороха и наёмников - эпоха, изменившая ход истории. Вы тоже можете повлиять на историю, пройдя путь от лидера людей до правителя империи в этой уникальной смеси RTS и глобальной стратегии. Renaissance Kingdom Wars - это путешествие в золотой век стратегий. Игра разработана по (   Читать дальше...   )Тип издания: RepackРазработчик: Reverie World StudiosЖанр: Экшены, Ролевые игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E274D6C1418E881BFAF09DB9196A3D720351351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746615   (27590) от 15.02.2025
+
+Age of Mythology: Retold (2024) [Ru/Multi] (100.18.419.0/dlc) Repack Wagner [Premium Edition]
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Age of Mythology: Retold - игра от создателей культовой серии Age of Empires. На этот раз вам предстоит выйти за рамки привычной истории и погрузиться в мифическую эпоху, где бок о бок сосуществуют боги, чудовища и люди. Retold - это эволюция всеми любимой стратегии в реальном времени Age of Mythology, ставшая возможной благодаря современной графике и свежему подходу (   Читать дальше...   )Тип издания: RepackРазработчик: World's Edge, Forgotten Empires, Tantalus Media, CaptureAge, Virtuos GamesЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8FA0764788AC6EE73DCD5163880043904C34A53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779776   (27509) от 15.02.2025
+
+Bulwark Evolution: Falconeer Chronicles (2024) [Ru/Multi] (0.2.0.5.202502121057/dlc) Repack FitGirl [Digital Deluxe Bundle]
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bulwark - это создание своей крепости и расширение ее до империи. Я надеюсь, что вам понравятся мои попытки экспериментировать и развивать эту игру в нечто приятное и свежее. Bulwark также продолжает развиваться с каждым обновлением, основываясь на ваших отзывах. Так что положительные или отрицательные комментарии приветствуются. Если они направлены на помощь, то (   Читать дальше...   )Тип издания: RepackРазработчик: Tomas SalaЖанр: Казуальные игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4376A831374E072A1F435CA3BB85EB3B29D3571
 ```
 
 https://mybot314.ru/tekegram_catalog/

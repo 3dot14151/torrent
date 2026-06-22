@@ -6,7 +6,7 @@ Shadowhand v0.94 (2017) [En] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659663.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Niffelheim v0.9.022(2018) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659625.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Dead Effect 2 (2016) [En/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659615.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ The Stanley Parable v. 1.0 (2013) [Multi/Ru] [OS X Native port]
 >>Casual Games, Other для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658411.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Civilization 4: Beyond the Sword v. 3.19 (2007) [Multi/Ru] [OS X Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658398.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Batman: Arkham Asylum - Game of the Year Edition v1.1 (2010) [Multi] [macOS Nati
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657648.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Spellforce 2: Faith in Destiny [WineSkin]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_657417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657417.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Kingdoms Of Amalur: Reckoning [WineSkin]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_657414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657414.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Omerta: City of Gangsters v. 1.0.7 (2013) [Multi/Ru] [OS X Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657397.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Racedriver: GRID 1.1 (2013) [Multi] [OS X Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657363.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ SimCity: Complete Edition v1.0.4 (2020) [Multi/Ru] [macOS Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656846.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Borderlands 2 v1.8.4 (2012) [Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656644.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Nikopol: Secrets of the Immortals [WineSkin]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_656401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_656401.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Anno 1404 [WineSkin]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_656244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_656244.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Back to Bed (x64) v. 1.0 (2014) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655380.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Badland - Game of the year  v. 1.0 (26.05.2015) [Multi/Ru] [App Store]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655166.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Anno 1701 [WineSkin]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_655157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_655157.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Massive Chalice v. 0.1 (2015) [Multi] [OS X Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655133.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Shadowrun: Dragonfall Director's Cut v. 1.0 (2014) [En] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655119.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ The Tiny Bang Story v. 2.0 (2015) [None] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655095.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ BioShock 2 v. 1.3 (2010) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654543.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Depth Hunter [WineSkin]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_654215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654215.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ WINGSPAN v.84(2020) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653814.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Neon Chrome v1.1.5 (2016) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653765.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Sky Break (2016) [Ru] [macOS Native port]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653661.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Hotel Collector's Edition [WineSkin]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_653353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_653353.jpg" />
 </div>
 
 

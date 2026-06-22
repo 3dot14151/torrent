@@ -1,3 +1,61 @@
+###  Публикация: 965619   (224269) от 15.12.2015
+
+VA - Romantic Piano Classics: Classical and Modern Masterpieces (2015) [MP3|320 кб/с] <Instrumental, Downtempo, Chillout>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giovanni Tornambene - A New Room
+02. Corrado Rossi - Distant Memories
+03. Raffaele Rinciari - Acqua
+04. Alessandro Martire - Sorgenti(   Читать дальше...   )Жанр: Instrumental, Downtempo, ChilloutПродолжительность: 01:11:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD882749BA1D6DEA61645FD1F0907801FE0CC9BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084412   (220915) от 18.12.2016
+
+VA - Royal Lounge: Relax Partitura (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220915.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Echo Of Koenigssee - Entirely Retrospective 6:05
+002. Ayowa - Sommer (Original Mix) 3:32
+003. Frank Tayla - Gypsy 3:50
+004. The Sura Quintet - Observing You 5:57(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 07:52:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA4F132972CD7A69D5651155D198F3AB279EE888
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1650559   (220752) от 07.08.2023
 
 Paul Mauriat - El Bimbo & Toccata (1973-1975) Remastered, 2019, Vocalion [OGG Vorbis|480 Kbps] <Jazz, Pop, Stage & Screen>
@@ -6,7 +64,7 @@ Paul Mauriat - El Bimbo & Toccata (1973-1975) Remastered, 2019, Vocalion [OGG Vo
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_220752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220752.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - The Heavenly Wanderers (2022) [MP3|320 Kbps] <Ambient, Downtempo, Relax, Me
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220314.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Magic Instrumental Music Vol. 3 (2016) [MP3|320 Kbps] <Instrumental, New Ag
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219949.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Pastel Lounge Christmas Time (2015) [MP3|320 кб/с] <Downtempo, Chillout,
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218948.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Fields Of Gold Music For Romance (2016) [MP3|320 Kbps] <Chillout, Downtempo
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216552.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Music For The Winter Interior (2022) [MP3|320 Kbps] <Lounge, Chillout, Rela
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210480.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ George Kopaliani - This Is George Kopaliani (2023) [MP3|320 Kbps] <Easy Listenin
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209934.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208285.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Karunesh - Heart To Heart (2023) [MP3|320 Kbps] <Electronic, Lounge, Relax, Medi
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205972.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Oliver Shanti - Beating Heart (2023) [MP3|320 Kbps] <Electronic, Lounge, Relax, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205963.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Yanni - Compilation (2023) [MP3|320 Kbps] <New Age>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202228.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Raymond Lefevre - Compilation (2023) [MP3|320 Kbps] <Instrumental, Easy Listenin
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201347.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Cool Sax On The Beach (2023) [MP3|320 Kbps] <Smooth Relaxation, Easy Listen
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200070.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Музыка царства. Сюита к ранним хроникам Li
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199009.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Music Therapy (2023) [MP3|320 Kbps] <Electronic, Lounge, Relax, Meditation>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194000.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - A Message to Myself (Relax) (2023) [MP3|320 Kbps] <Electronic, Lounge, Rela
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193950.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Magical Arabian Night (2022) [MP3|320 Kbps] <Arabic Lounge, Downtempo, Ethn
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189641.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Paul Mauriat - World Love Sounds (1998) Box Set: 5 CD [OGG Vorbis|480 Kbps] <Fun
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187039.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Agnes Obel - The voises of my soul (the best) (2011-2020) Compilation album [MP3
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178158.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Amethystium - Shadow to Light (Compilation) (2020) [MP3|320 Kbps] <Electronic, N
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177391.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Ambient Soundscapes (2023) [MP3|320 Kbps] <Ambient, Downtempo, Relax>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173781.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Musica Gregoriana Catolica (2023) [MP3|320 Kbps] <New Age, Symphonic, Grego
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171674.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - New Age Style - Enigmatic 30 (2019) [MP3|320 Kbps] <Electronic, New age, En
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165500.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Bliss (Denmark) - Compilation (2022) [MP3|320 Kbps] <Downtempo, Ambient>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161263.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Bliss (Denmark) - Compilation (2022) [MP3|320 Kbps] <Downtempo, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F9D77E3C5F7F5BB0942DE9D2A51DAFD12E16C9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967290   (158600) от 20.12.2015
-
-VA - 100 Super Enigmatic (2015) [MP3|320 кб/с] <New Age, Enigmatic, Electronic, Ambient>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Astropolis feat. Eirch von Däniken - World of Mysteries
-02. Cantara - Anima (Single Remix)
-03. David Thomas - Deep Blue Experience
-04. Indian '94 - Indian Groove (Convent-Mix)(   Читать дальше...   )Жанр: New Age, Enigmatic, Electronic, AmbientПродолжительность: 08:42:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B877C794406D20C43F0CB862006FED557A3A18F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086397   (152964) от 24.12.2016
-
-VA - The Best Lounge Vol.46(Compiled by Sergio) (2016) [MP3|320 Kbps] <Lounge, Chillout, Downtempo>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Richard Bonnee - Soundscapes (Lounge Atmosphere Mix)
-02. 2 Illusions - Lone Wanderer
-03. Dancing Fantasy - Midnight Blvd.
-04. Croone - Never Met a Dream(   Читать дальше...   )Жанр: Lounge, Chillout, DowntempoПродолжительность: 01:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2AD2610055B9328452D1DE9721F007997438100
 ```
 
 https://mybot314.ru/tekegram_catalog/

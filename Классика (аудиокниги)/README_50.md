@@ -1,3 +1,59 @@
+###  Публикация: 1675775   (159934) от 10.11.2023
+
+Альфонс Доде | Короли в изгнании (2020) [MP3, Илья Прудовский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альфонс Доде (1840–1897) – французский романист и драматург, автор ярких рассказов из жизни Прованса, создатель знакового образа романтика и хвастуна Тартарена из Тараскона.
+«Короли в изгнании» – роман о судьбах коронованных особ, потерпевших крушение у себя на родине и оказавшихся на чужбине.
+Начало событий, изображенных в романе, точно датировано 1872 годом. Не (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Нигде не купишьПродолжительность: 15:02:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EC5EBA7A0BBCCA665239B8119B31F4BF775E415
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675762   (159916) от 10.11.2023
+
+Альфонс Доде | Тартарен из Тараскона (2015) [MP3, Владимир Самойлов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Зарубежная классика XIX век.
+Альфонс Доде (1840–1897) – французский романист и драматург, автор ярких рассказов из жизни Прованса, создатель знакового образа романтика и хвастуна Тартарена из Тараскона.
+Предлагаем вашему вниманию аудиокнигу «Тартарен из Тараскона», записанную на студии «АРДИС». Знаменитый «истребитель львов», «бесстрашный, великий, несравненный» (   Читать дальше...   )Жанр: Зарубежная литература, классика, комедия, романИздательство: Студия «АРДИС»Продолжительность: 04:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6E3D807DF2850012E0E1F20F414B3596A31D355
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599741   (159649) от 24.12.2022
 
 Александр Куприн | Хорошее общество (2005) [MP3, Михаил Козаков и др.]
@@ -6,7 +62,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159649.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159579.jpg" />
 </div>
 
 
@@ -58,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159489.jpg" />
 </div>
 
 
@@ -84,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159424.jpg" />
 </div>
 
 
@@ -111,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159338.jpg" />
 </div>
 
 
@@ -139,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159135.jpg" />
 </div>
 
 
@@ -165,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159114.jpg" />
 </div>
 
 
@@ -192,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159110.jpg" />
 </div>
 
 
@@ -218,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159098.jpg" />
 </div>
 
 
@@ -245,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159089.jpg" />
 </div>
 
 
@@ -272,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159088.jpg" />
 </div>
 
 
@@ -299,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159026.jpg" />
 </div>
 
 
@@ -325,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159001.jpg" />
 </div>
 
 
@@ -352,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158991.jpg" />
 </div>
 
 
@@ -379,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158837.jpg" />
 </div>
 
 
@@ -407,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158833.jpg" />
 </div>
 
 
@@ -434,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158818.jpg" />
 </div>
 
 
@@ -461,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158807.jpg" />
 </div>
 
 
@@ -489,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158796.jpg" />
 </div>
 
 
@@ -518,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158252.jpg" />
 </div>
 
 
@@ -544,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157806.jpg" />
 </div>
 
 
@@ -570,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157646.jpg" />
 </div>
 
 
@@ -597,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157549.jpg" />
 </div>
 
 
@@ -625,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157319.jpg" />
 </div>
 
 
@@ -638,60 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5651D7B5E0F559EA92B717167A16933ECAF56A8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433289   (156802) от 21.12.2020
-
-Михаил Булгаков | Рассказы (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Богема — произведение автобиографическое, основанное на истории создания и постановки булгаковской пьесы «Сыновья муллы» весной 1921 г. во Владикавказе и последующей поездки драматурга на вырученные деньги в Тифлис (Тбилиси).Жанр: Классическая прозаПродолжительность: 01:27:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DB4E051161788307AF3D75CD419D498A978CD39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 446244   (156657) от 13.11.2023
-
-Уильям Сомерсет Моэм | Театр (Страницы романа) (2009) [MP3, Марина Неёлова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл: Словесность. Тексты.
-Один из лучших романов классика английской литературы Уильяма Сомерсета Моэма «Театр» читает блистательная актриса нашего времени Марина Неелова.
-«Подлинной школой литературного мастерства» называли достойные критики не только художественные произведения Сомерсета Моэма, но даже его автобиографию. Да, этот автор не был обижен ни критикой, (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Радио России «Культура»Продолжительность: 03:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96C8C0C468F5144A641564A5ECC58C3F413B4177
 ```
 
 https://mybot314.ru/tekegram_catalog/

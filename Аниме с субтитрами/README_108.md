@@ -1,3 +1,29 @@
+###  Публикация: 1582545   (158789) от 26.12.2022
+
+Futoku no Guild / Immoral Guild / Развращённая гильдия [2022, TV, 12] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кикуру Мадан — молодой охотник на монстров, который решает покинуть гильдию из-за страха, что радости юности проходят мимо. Особенно когда один из его близких друзей объявляет о женитьбе. Однако он меняет своё решение после предложения сотрудницы гильдии отправиться на квест вместе с новобранцем, молодой зверо-девушкой и мастером боевых искусств по имени Хитаму Кян.Жанр: приключения, комедия, этти.Режиссер: Асаока ТакуяЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:105A9318EA34657F5BA014D2B6460A870B0709F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1172750   (158119) от 23.12.2017
 
 Ou-sama Game The Animation / King's Game The Animation / Королевская игра [2017, TV, 12] HDTV 720p raw
@@ -6,7 +32,7 @@ Ou-sama Game The Animation / King's Game The Animation / Королевская 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158119.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Konohana Kitan / Сказания о Конохане [2017, TV, 12] HDTV 720p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158093.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Inuyashiki | Inuyashiki Last Hero | Инуяшики [2017, TV, 11 эп.] WEB-DL
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158016.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Taisou Zamurai | Самурай-гимнаст [2020, TV, 11] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157910.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Two Car: Racing Sidecar | Две машины [2017, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157129.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Shuumatsu no Izetta / Izetta: The Last Witch / Izetta, Die Letzte Hexe / Изе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157051.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Yakunara Mug Cup mo Niban Kama / Let's Make a Mug Too 2 / Давайте тож�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157045.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Jigoku Shoujo: Yoi no Togi | Hell Girl: Fourth Twilight | Адская дево�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157024.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Dynamic Chord | Динамический аккорд [2017, TV, 12] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156948.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Dies Irae | Судный день [2017, TV, 11 + SP] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156814.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Uchi no Shishou wa Shippo ga Nai | My Master Has No Tail | У моего мас�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156811.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Chuubyou Gekihatsu Boy | Outburst Dreamer Boys | Сумасшедшие ребя
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156629.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Juuni Taisen | 12 войн [2017, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156256.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Kami-tachi ni Hirowareta Otoko | By the Grace of the Gods | Избранный �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155529.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Haikyuu!! To the Top (2020) | Волейбол [ТВ-4, часть II] [2020, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155458.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Ani ni Tsukeru Kusuri wa Nai! 2 | В случае с братом медицин
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154883.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ Sankaku Mado no Sotogawa wa Yoru | The Night Beyond the Tricornered Window | Н�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154841.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ Isekai Shokudou 2 | Restaurant to Another World 2 | Кафе из другого
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154727.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ Houseki no Kuni | Land of the Lustrous | Страна самоцветов [2017
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154677.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ Blue Period | Голубой период [2021, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154589.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ One Room: Third Season | Из одной комнаты [ТВ-3] [2020, TV, 12] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153917.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ Arknights: Fuyukomori Kaerimichi / Arknights: Perish in Frost / Рыцари к�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153701.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ Kyuuketsuki Sugu Shinu | The Vampire Dies in No Time | Этот вампир п�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153484.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ Banana Fish | Рыбка-бананка [2018, TV, 24] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152969.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ Null Peta | Null & Peta | Нуль и Пета [2019, TV, 12 эп.] WEBRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152958.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ Null Peta | Null & Peta | Нуль и Пета [2019, TV, 12 эп.] WEBRip 720p 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BA8E84F666683DE60D9814124F6308CBDF39272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948953   (152607) от 24.12.2015
-
-Starmyu / High School Star Musical / Старшая школа музыкальных звёзд [2015, TV, 12] HDTVRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал рассказывает о пяти студентах, которые стремятся попасть в музыкальный факультет академии Аянаги, школы с упором на музыку. Они хотят попасть к класс звёзд, который обучает сам Као-кай, самый талантливый из музыкального факультета, который стоят на вершине иерархии порядка в академии. К счастью, они были замечены одним из друзей Као-Кай.Производство: C-StationЖанр: музыкальныйРежиссер: Тада СюнсукэЯзык субтитров: Русский (отключаемый)Продолжительность: 12 серий по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1C3164F0F29391AF7FD81E27277A7A8B96DAA24
 ```
 
 https://mybot314.ru/tekegram_catalog/

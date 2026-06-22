@@ -1,3 +1,108 @@
+###  Публикация: 1269295   (775501) от 21.01.2019
+
+Lucius III (2018) [Ru/Multi] (1.190118112744.a) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люциус (Lucius) вернулся. В этот раз он прибывает в окрестности Уинтер-Хилл. Проходя испытания и невзгоды, мы наконец увидим, куда ведет его дорога. Это будет непросто. Впервые его выбор поставится под сомнение. Настало ли время положить конец всему этому?Тип издания: LicenseРазработчик: Shiver GamesЖанр: Adventure (Horror), Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8BC7047648DF7DA1EA08C51F72C4B729FEA9804
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014957   (775417) от 09.05.2016
+
+Pathologic Classic HD / Mор Утопия HD (2015) [Ru/En] (1.03) Repack R.G. Механики
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775417.jpg" />
+</div>
+
+
+###  Подробнее
+
+В «Мор. Утопия» игрок попадает в захолустный городок, построенный у древних скотобоен. Город охвачен загадочной эпидемией. Симптомы болезни известны, но ее происхождение остаётся загадкой... Кажется, неумолимая чума поражает не только тела, но и души. Pathologic Classic HD - это финальное издание оригинальной «Мор. Утопии», культовой психологической игры про выживание (   Читать дальше...   )Тип издания: RepackРазработчик: Ice-Pick Lodge и General ArcadeЖанр: Action, Adventure, RPG, 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:650CC6E514F87D9085595C51C66D5753B6148EAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195408   (774893) от 13.03.2018
+
+Life is Strange: Before the Storm (2017) [Ru] (1.3.0.2/dlc) Repack xatab [Episode 1-3]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам уготована роль необычной мятежницы в мрачном приквеле к популярной игре Life is Strange, выпущенной студией Dontnod в 2016 году. Before the Storm, новая глава, действие которой происходит за три года до драматических событий оригинальной игрыТип издания: RepackРазработчик: Deck NineЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D9A32B79B91C570486402348F747F85B10C69A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015256   (774695) от 10.05.2016
+
+Pathologic Classic HD / Mор Утопия HD (2015) [Ru/Multi] (1.03) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pathologic Classic HD — это окончательное издание оригинальной survival adventure
+«Мор. Утопия», где вам предстоит отправиться в затерявшийся на задворках древней степи городок, бывший некогда скотоводческим поселением. Теперь же культура степняков сохраняется только под колоссальным куполом Боен — но, впрочем, отголоски её слышны по всему городу; во всех его равноудалённых (   Читать дальше...   )Тип издания: RepackРазработчик: Ice-pick Lodge, General ArcadeЖанр: Action, Adventure, RPG, 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Итальянский, ПольскийЯзык интерфейса: Русский, Английский, Итальянский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFBC970C7DEAAC09E0C919B03D012589CCE39D00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015418   (774692) от 10.05.2016
 
 Kathy Rain (2016) [En/Multi] (1.0.1) Repack Other s
@@ -6,7 +111,7 @@ Kathy Rain (2016) [En/Multi] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774692.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ CHAOS;CHILD (2019) [En/Jp] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774079.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ The Raven Remastered (2018) [Ru/Multi] (1.1.0.654) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774058.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ Q U B E  2 / Q.U.B.E.2 (2018) [Ru/Multi] (1.0.0.7) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774015.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ Octodad: Dadliest Catch (2014) [Ru/Multi] (1.2.17060) Repack R.G. Механик
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773943.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ The Moment of Silence / Момент истины (2005) [Ru/Multi] (1.0) Licens
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772900.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ Ad Exitum (2016) [En] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770045.jpg" />
 </div>
 
 
@@ -190,7 +295,7 @@ Désiré (2016) [Ru/Multi] (1.0.1) Repack MasterDarkness
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769435.jpg" />
 </div>
 
 
@@ -216,7 +321,7 @@ Lorelai (2019) [Ru/Multi] (1.1.0 S/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769013.jpg" />
 </div>
 
 
@@ -242,7 +347,7 @@ Westmark Manor (2020) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768874.jpg" />
 </div>
 
 
@@ -268,7 +373,7 @@ Beyond: Two Souls / За гранью: Две души (2019) [Ru/Multi] (511792
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768829.jpg" />
 </div>
 
 
@@ -294,7 +399,7 @@ SONG OF HORROR (2019) [Multi] (1.22/dlc) Repack Other s [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768828.jpg" />
 </div>
 
 
@@ -320,7 +425,7 @@ The Raven Remastered (2018) [Ru/Multi] (1.1.0.654) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768786.jpg" />
 </div>
 
 
@@ -346,7 +451,7 @@ Black Mirror (2017) [Ru/En] (1.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768237.jpg" />
 </div>
 
 
@@ -372,7 +477,7 @@ Someday You'll Return (2020) [Multi] (1.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768235.jpg" />
 </div>
 
 
@@ -398,7 +503,7 @@ Codename: Iceman (1990) [En] (1.033) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767716.jpg" />
 </div>
 
 
@@ -424,7 +529,7 @@ Where the Water Tastes Like Wine (2018) [Ru/Multi] (1.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766519.jpg" />
 </div>
 
 
@@ -450,7 +555,7 @@ The Coma: Recut (2017) [Ru/Multi] (2.53) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766480.jpg" />
 </div>
 
 
@@ -476,7 +581,7 @@ Thimbleweed Park (2017) [Ru/Multi] (1.0.958/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766474.jpg" />
 </div>
 
 
@@ -502,7 +607,7 @@ Beholder 2 (2018) [Ru/En/Ch] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765874.jpg" />
 </div>
 
 
@@ -528,7 +633,7 @@ The House of Da Vinci 2 (2020) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765839.jpg" />
 </div>
 
 
@@ -554,7 +659,7 @@ Lumo (2016) [Ru/Multi] (1.11.08) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764224.jpg" />
 </div>
 
 
@@ -565,112 +670,6 @@ Lumo, волшебный платформер повышенной степен�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CD69BD27FF346A685B40960C4E16A43D9BEC971
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324407   (763395) от 05.07.2020
-
-Blair Witch (2019) [Ru/Multi] (1.04) Repack xatab
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763395.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом лесу пробуждаются самые страшные кошмары. 1996 год. Маленький мальчик пропадает без вести в лесу Блэк Хиллз в городе Беркитсвиль, штат Мэриленд. Вы подключаетесь к поискам в роли Эллиса, бывшего полицейского с тяжелым прошлым. Обычное расследование быстро превращается в бесконечный кошмар, ведь вам приходится противостоять ведьме из Блэр – темной силе, поселившейся (   Читать дальше...   )Тип издания: RepackРазработчик: Bloober TeamЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDF625543880903BC818CF719C14D382FF49F973
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 203421   (762462) от 25.05.2010
-
-Crystal Key 2:The Far Realm / Evany: Key to a Distant Land / Кристальный ключ 2: Эвани [Ru] (L) 2004
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все, кто ожидал наступления хорошей жизни, кто думал о светлых временах, мечтая о мире и счастье - могут успокоиться: ничего такого не будет. Отправленный прямиком на Солнце и тщательно там прожарившийся Озгар оказался не последней бедой планеты Эвани.
-Жители этого и еще нескольких миров, избавившись от опасности быть порабощенными грозным властителем темных сил, встали перед еще более ужасной проблемой: появившаяся неведомо откуда неизвестная болезнь буквально высосала души тысяч людей, превратив их в бездушных органических роботов. Мало того: загадочный недуг приобрел еще более зловещий окрас, когда выяснилось, что поражает он не всех...Разработчик: Earthlight Productions, Kheops StudioЖанр: ПриключенияЯзык озвучки: Тип издания: ЛицензияЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017076   (762387) от 16.05.2016
-
-Adam's Venture: Origins (2016) [Ru/Multi] (1.0/dlc) Repack Other s [Special Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправляйтесь в рискованное путешествие в игре Adam’s Venture: Origins! Действие игры разворачивается в бурные 20-е годы. Вместе с помощницей Эвелин вам предстоит исследовать древние развалины, искать таинственные артефакты, а самое главное - обойти злодейскую компанию Clairvaux.
-Adam’s Venture: Origins – новое прочтение серии игр об Адаме Вентуре. Игра была модернизирована, (   Читать дальше...   )Тип издания: RepackРазработчик: Vertigo GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2373056C4024475BFCC67ED9EAD9FCDA800578AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280357   (761575) от 02.02.2019
-
-Riddlord: The Consequence (2019) [Ru/Multi] (1.0) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Риддлорд... Кто такой Риддлорд? Зачем он похитил Спарка, сына Джека Рида? Какие тайны хранит прошлое знаменитого ловца серийных убийц, Джека? Ответы на все эти вопросы вы найдете в этой замечательной трехмерной игре-головоломке...Тип издания: LicenseРазработчик: Amrita StudioЖанр: Adventure, Logical, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F219CF58DAE9A2F6E7DED6A1FCBC391EDBDA2EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

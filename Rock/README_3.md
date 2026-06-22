@@ -1,3 +1,90 @@
+###  Публикация: 1616195   (1036703) от 01.03.2023
+
+The Alan Parsons Project - The Turn Of A Friendly Card (1980) Limited Edition Boxset, 3CD, 2023, Esoteric Records [MP3|320 Kbps] <Simphonic Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+CD 1: Original Album
+CD 2: Eric's Songwriting Diaries
+CD 3: Recording Session Bonus TracksЖанр: Simphonic Progressive RockПродолжительность: 3 CD, 02:29:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FFF7E157283FBFC2169696704CA605FA4EF684A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442322   (1036630) от 25.01.2021
+
+Fatal Fusion - Land of the Sun (2021) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Land of the Sun [00:09:02]
+02 - Cry No More [00:03:53]
+03 - Promises [00:06:25]
+04 - Love in the Sky [00:06:48](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FDBB1AF564310FCDAC7FD86D2BEC070CE775AF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442676   (1036353) от 26.01.2021
+
+Roland Gassin - Born In The Seventies (2021) [MP3|320 Kbps] <Progressive Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine On (02:39)
+ 02. Rocking With Ray Charles (05:42)
+ 03. The Preacher (05:10)
+ 04. Better Days Ahead (04:21)(   Читать дальше...   )Жанр: Progressive Rock, Classic RockПродолжительность: 00:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C1A62FBF259283D798F41FE2B653C0E6DD6CF05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442928   (1036345) от 26.01.2021
 
 Schoenherz - What A Night (1978) LP [MP3|320 Kbps] <Electronic, Krautrock, Prog Rock>
@@ -6,7 +93,7 @@ Schoenherz - What A Night (1978) LP [MP3|320 Kbps] <Electronic, Krautrock, Prog 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036345.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Be Cause - New Knights (2021) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036338.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Canary - Cage Company (1981) LP [MP3|320 Kbps] <Krautrock, Prog Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036040.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Vierzig Grad - Vierzig Grad (1981) LP [MP3|320 Kbps] <Krautrock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035779.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Art Of Illusion - X Marks The Spot (2021) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035469.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ VA - 70's Rock Classics (2021) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034617.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Raven Sad - The Leaf And The Wing (2021) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034456.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ The Besnard Lakes - The Besnard Lakes Are The Last of the Great Thunderstorm (20
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034235.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Phantom Scimitar - Electric Nemeton (2021) [MP3|320 Kbps] <Psychedelic Rock, Pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034234.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Transatlantic - The Absolute Universe: Forevermore (2021) Extended Version, 2xCD
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033754.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Topas - Topas (1980) LP [MP3|320 Kbps] <Electronic, Krautrock, Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033683.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ The Michael Wynn Band - 2 Albums (1977, 1978) LP [MP3|320 Kbps] <Rock, Funk / So
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033205.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ RPWL - Crime Scene (2023) [MP3|320 Kbps] <Neo-Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033009.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ The Rolling Stones - Love (2021) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032988.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Fernando Perdomo - Trgtr: The Music of Todd Rundgren (2021) [MP3|320 Kbps] <Cros
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032752.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ WinaSchnitzel - In The Light (2020) [MP3|320 Kbps] <Prog Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032588.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Artnat - The Mirror Effect (2021) [MP3|320 Kbps] <Progressive Rock, Symphonic Pr
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032566.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ God Is an Astronaut - Ghost Tapes #10 (2021) [MP3|320 Kbps] <Post-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032256.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Orphan - Lonely at Night (1983) [MP3|320 Kbps] <AOR, Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032117.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Preview - Preview (1983) Reissue, 2006, Rock Candy [MP3|320 Kbps] <AOR, Melodic 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031675.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ David Knopfler - Songs Of Loss And Love (2020) [MP3|320 Kbps] <Pop Rock, Country
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031656.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ The Bryan Hughes Group - Break the Rules (1990) [MP3|320 Kbps] <AOR, Melodic Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031649.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ The Karaoke Crew - Drew's Famous #1 Karaoke Hits  Sing Like 70'-80's Hard Rock (
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030711.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ The Karaoke Crew - Drew's Famous #1 Karaoke Hits  Sing Like 70'-80's Hard Rock (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F3049F3F9DBD020EDE4C64A9E90E0139F6F22D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448748   (1030444) от 19.02.2021
-
-The New Madness - After Hours (2020) [MP3|320 Kbps] <Classic Rock, Garage Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lovesick
-02. Night Watch
-03. Better Than That
-04. You'll Know My Name(   Читать дальше...   )Жанр: Classic Rock, Garage Rock, Blues RockПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A3D18F149B8DCEEAF01DCD8E255F590EDE726CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449222   (1030244) от 20.02.2021
-
-Amrakus - A Space Rock Opera (1982) LP [MP3|320 Kbps] <Electronic, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Hole (3:39)
-02. Spatial Cocoon (6:22)
-03. Greetings Earthlings (2:18)
-04. We Need Water (Part 1 & 2) (3:25)(   Читать дальше...   )Жанр: Electronic, Space RockПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFFECFA9FC64920A0D1D4932A51975C66F0D8F60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448847   (1030144) от 20.02.2021
-
-Whitesnake & Chris Collier - The BLUES Album (2020 Remix) (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030144.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Steal Your Heart Away (2020 Remix)
-2. Good To Be Bad (2020 Remix)
-3. Give Me All Your Love (2020 Remix)
-4. Take Me Back Again (2020 Remix)(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A38D1F087A63DE5C735CD49B571E0D3481652AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

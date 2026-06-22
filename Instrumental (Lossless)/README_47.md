@@ -6,7 +6,7 @@ King of the World - Royal Ten (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722486.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Willie Dave Willis - Spirits (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722482.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Dave Steffen Band - Give Me A Thrill! (1993) [FLAC|Lossless|tracks] <Blues, Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722373.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Robert Cray & Hi Rhythm - Robert Cray & Hi Rhythm (2017) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720707.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Robby Z - I'm Your Man (2001) [FLAC|Lossless|tracks] <Blues, Blues Rock,>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720667.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Alan Greene Band - Heard A Rumor (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720526.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Born Healer - 'Til The Dawn (2016) [FLAC|Lossless|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720449.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Rhythm Zoo - Sold for Love (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720071.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Steepwater Band - Shake Your Faith (2016) Deluxe Edition [FLAC|Lossless|WEB-
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718988.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Chaka Khan - Hello Happiness (2019) [FLAC|Lossless|tracks + .cue] <R&B, Jazz, Fu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718951.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Watermelon Slim - Golden Boy (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718825.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Rob Tognoni Band - Headstrong (1997) [APE|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716801.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Gaslight Street - Two Years Gone (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716797.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Josh White - The Blues: Blues, Spirituals & Folk Songs (1932-1945) 2CD, 2000, Fr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716795.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Wille And The Bandits - Steal (2017) [FLAC|Lossless|image + .cue] <Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716789.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ W.C. Clark - 2 Альбома (1994, 1998) [FLAC|APE|Lossless|image + .cue] <Mod
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716786.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Ruthie Foster - Joy Comes Back (2017) [FLAC|Lossless|image + .cue] <Blues, Gospe
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716785.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Innes Sibun - Blues Transfusion (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716665.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Big George And The Business - The Alleged Album (1989) Reissue, 2005, SPM Record
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716543.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ V.A. - Greatest Soul Ballads (2022) [FLAC|Lossless|WEB-DL|tracks] <Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714642.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Boyz II Men - Throwback (2004) [APE|Lossless|image + .cue] <RnB, Swing, Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714252.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Deitra Farr - The Search Is Over (1997) [FLAC|Lossless|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714242.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Maria Daines - Treebone (2005) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712871.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Vanderlinde - Muy Rico (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Singer & Son
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712656.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Karl Stoll and the Danger Zone - The Workhouse (2022) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712654.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Regina Bonelli - Truth Hurts (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712653.jpg" />
 </div>
 
 

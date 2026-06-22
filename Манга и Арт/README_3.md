@@ -6,7 +6,7 @@ All You Need Is Kill | Тебе Лишь Нужно Убивать (2004) [1 т�
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633342.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ All You Need Is Kill | Всё, что тебе нужно - это убиват�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633237.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Tonari no Kaibutsu-kun / My Little Monster / Я и Чудовище (2008-2013) 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622448.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Kara no Kyoukai | The Garden of Sinners | Граница Пустоты (1998, 2
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617589.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ eden* Collection (2009-2015) [En] Repack x2
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584256.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме арт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583886.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ NEKOPARA vol.0 (2015) [Ru/Multi] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_582141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_582141.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Planetarian ~Маленький звёздный мечтатель~ (2004) [Ru]
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579243.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Mo Ling | Цикл «Side Character Transmigrations: The Final Boss is No Joke»
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_579209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_579209.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Zhttty | Цикл «Бесконечный ужас» [11 книг] (2018) [FB2]
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577858.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Yousuke Tokino | Цикл «Growth Cheat» [7 книг] (2017 и т.д.) [FB2]
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576160.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575734.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575731.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Shen Mo Xi Tong | God and Devil World | Система Богов и Демон�
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561548.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме арт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560409.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Mushoku Tensei: Isekai Ittara Honki Dasu | Reincarnation of the unemployed | Р�
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556015.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Jichoushinai Moto Yusha no Tsuyokute Tanoshii New Game | Классная и в�
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555898.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka | Может, я вст
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555892.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Nozomanu Fushi no Boukensha | The Unwanted Undead Adventurer | Нежеланн�
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555884.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Charging Magic with a Smile ~Infinite Magic Power After Being Reincarnated into 
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555771.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Gate of Revelation | Врата Апокалипсиса (2015 и т.д.) [266 �
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554998.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Isekai Shihai no Skill Taker ~Zero kara Hajimeru Dorei Harem~ | Мировое �
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554993.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Solo Leveling | Поднятие уровня в одиночку (2016 и т.д
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553650.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Vision of Aurora Borealis (2016) [En] Repack + Extra
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550752.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Re:Monster | Re:Монстр (2012 и т.д.) [364 из 420 дней] [Рано�
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541623.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Seisai no Resonance / Звёздный резонанс (2013) [Ru] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539784.jpg" />
 </div>
 
 

@@ -1,3 +1,38 @@
+###  Публикация: 475752   (85528) от 31.03.2012
+
+VA - Эх, Разгуляй! Весна (2012) [MP3|128 kbps]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85528.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Виктор Королев и Яна Павлова (Воровайки) - Достала
+002. Григорий Лепс и Александр Розенбаум - Гоп-стоп
+003. Александр Сотник - Будет моя весна
+004. Андрей Калинин - А мы гуляем
+005. Рада Рай - А любовь не меняю
+006. Сергей Трофимов - Миллионер
+007. Грин Гарик и группа На Троих - Загремит-заклацает
+008. Лесоповал - Мне улыбнись
+009. Татьяна Буланова и Афина - Женская дружба
+010. Валерий Курас - Песенка(   Читать дальше...   )2012Жанр: ШансонПродолжительность: 12:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D810A41A3A1E266780479D1E267E3DD9648824F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 475904   (85520) от 31.03.2012
 
 VA - Стас Михайлов поздравляет (2012) [MP3|128 kbps]<Шансон>
@@ -6,7 +41,7 @@ VA - Стас Михайлов поздравляет (2012) [MP3|128 kbps]<Ша
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85520.jpg" />
 </div>
 
 
@@ -41,7 +76,7 @@ VA - Лучший Русский Шансон (2012) [MP3|256 кб/с]<Шанс�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85494.jpg" />
 </div>
 
 
@@ -76,7 +111,7 @@ VA - XXXL Братва на воле (2012) [MP3|256 kbps]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84433.jpg" />
 </div>
 
 
@@ -111,7 +146,7 @@ VA - 100% Хиты Радио Шансон (2012) [MP3|256 kbps]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84249.jpg" />
 </div>
 
 
@@ -146,7 +181,7 @@ VA - Блатной Хит. Только лучшее (2012) [MP3|192 кб/с]<�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83827.jpg" />
 </div>
 
 
@@ -181,7 +216,7 @@ VA - Дорожный патруль. Музыка в дорогу (2012) [MP3|2
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83322.jpg" />
 </div>
 
 
@@ -216,7 +251,7 @@ VA - Душевная музыка (2012) [MP3|256 кб/с]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83035.jpg" />
 </div>
 
 
@@ -251,7 +286,7 @@ VA - Песни, Спетые Сердцем! (2012) [MP3|256 кб/с]<Шанс�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82995.jpg" />
 </div>
 
 
@@ -286,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65222.jpg" />
 </div>
 
 
@@ -315,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53791.jpg" />
 </div>
 
 
@@ -344,7 +379,7 @@ VA - Да здравствуют музы! (2009) [MP3|320 Kbps] <Авторск
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36968.jpg" />
 </div>
 
 
@@ -373,7 +408,7 @@ VA - Новогодний Шансон (2024) [MP3|320 Kbps] <Chanson, Pop>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32639.jpg" />
 </div>
 
 
@@ -402,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32473.jpg" />
 </div>
 
 
@@ -431,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31772.jpg" />
 </div>
 
 
@@ -460,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31531.jpg" />
 </div>
 
 
@@ -489,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18241.jpg" />
 </div>
 
 
@@ -518,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1174.jpg" />
 </div>
 
 

@@ -1,3 +1,31 @@
+###  Публикация: 1276606   (46052) от 22.08.2024
+
+Обновления текстовых баз каталога всех действующих в РФ нормативных документов 01.01.2021 [149518 (с учетом обновления)] (2021) [PDF, HTML, GIF]
+
+>>Научная и техническая литература
+>>Нормативная документация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная раздача содержит обновления каталога всех действующих в РФ нормативных документов на 01.01.2021
+
+Обновления устанавливаются поверх основной базы (с заменой файлов)Жанр: Нормативная документацияИздательство: СамиздатФормат: PDF, HTML, GIFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3E46937D47AD9C93157AF75576CAA18ED18573F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751551   (42421) от 25.09.2024
 
 Александр Мельчаев | Курс молодого адвоката. Практические рекомендации по уголовному процессу (2024) [FB2, RTF]
@@ -6,7 +34,7 @@
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42421.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40888.jpg" />
 </div>
 
 
@@ -62,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27749.jpg" />
 </div>
 
 
@@ -88,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13066.jpg" />
 </div>
 
 
@@ -117,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9781.jpg" />
 </div>
 
 

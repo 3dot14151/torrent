@@ -1,3 +1,145 @@
+###  Публикация: 361258   (576429) от 10.07.2011
+
+Кайли Миноуг (Концерт в Лондоне) /  Kylie Minogue - Aphrodite Les Folies, 2001  [1080i] (2011) HDTV
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый зрелищный и дорогой концерт австралийской певицы мирового уровня Кайли Миноуг. Выступление поп-дивы получилось сродни театральной постановки, а ряд песен было исполнено с участием цирковых акробатов и водного аттракциона. Концертный наряд был специально заказан в ателье от Дольче Габбана. Прекрасная певица, феерическое шоу и великолепная музыка.
+
+Треклист:Жанр: POPРежиссер: William BakerАктеры: Kylie MinogueПеревод: ОтсутствуетПродолжительность: 01:31:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921289   (575372) от 25.07.2015
+
+Bon Jovi - Live at Madison Square Garden (2008) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концертный релиз от Bon Jovi, снятый 23 камерами высокого разрешения. Это возвращение в Madison Square Garden, самое знаковое место в Нью-Йорке, где группа выступала 19 лет назад. Концерт прошел в рамках исторического Lost Highway Tour, официально крупнейшего тура на планете в 2008 году.01. Lost Highway
+02. Born To Be My Baby
+03. Blaze Of Glory
+04. It's My Life(   Читать дальше...   )Жанр: RockПродолжительность: 02:05:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F97B16A5DACAEFFE9B904130193939AAC39E3DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920730   (575276) от 25.07.2015
+
+Белый Орел - Как упоительны в России вечера Юбилейный концерт (2008) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подарочное издание (digipack). Официальная версия юбилейного концерта группы Белый орел01. Интро
+02. Без тебя не могу
+03. Потому, что нельзя быть красивой такой
+04. Ностальгия(   Читать дальше...   )Производство: РоссияЖанр: Музыкальный, концертПродолжительность: 01:12:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F65DA0F7CC5F4A44511DA1B63DDC1225A55B7C93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921569   (575216) от 25.07.2015
+
+Dio - Live In London - Hammersmith Apollo (1993/2014) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концертная запись Dio «Live In London: Hammersmith Apollo», сделанная 12 декабря 1993 года. Это было одно из первых выступлений группы после двухлетнего перерыва. Оно было приурочено к выходу альбома «Strange Highways».01. Stand Up and Shout
+02. Strange Highways
+03. Don't Talk to Strangers
+04. Evilution(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EFF3781854E272A7A3663507B28ED8A03DAE0C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 688283   (575202) от 12.08.2013
+
+Село Степанчиково и его обитатели (2 части) (1973) DVDRip [H.264] (МХАТ)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спектакль МХАТ им. Горького. По мотивам одноименной повести Ф. М. Достоевского.
+"Я только что соскочил со сковороды (вышел из университета) и некоторое время жил в Петербурге, когда получил от дяди, полковника Ростанева, письмо, в котором он звал меня к себе, в Степанчиково, чтобы жениться на гувернантке его детей (по слухам, прехорошенькой). Так я столкнулся (   Читать дальше...   )Жанр: Комедия, СпектакльРежиссер: Владимир БогомоловАктеры: Алексей Грибов, Михаил Зимин, Софья Гаррель, Иван Власов, Ольга Широкова, Татьяна Махова, Клементина Ростовцева, Галина Киндинова, Николай Шавыкин, Татьяна Ленникова, Вячеслав Невинный, Анастасия Георгиевская, Всеволод Шиловский, Дмитрий Шутов, Владимир Привальцев, Алексей Борзунов, Виталий Беляков, Анна Комолова, Галина Шостко, Тамара Михеева, Ирина ЕфремоваПродолжительность: 01:25:47 + 01:09:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA2640BCF8D710A08C4FDDFF46849E2479609615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 223621   (574516) от 03.08.2010
 
 Концерт в Государственном Кремлевском Дворце, посвященный 50-летию ансамбля "Лезгинка" / Государственный Академический заслуженный ансамбль Дагестана "Лезгинка" (2009) DVD5
@@ -6,7 +148,7 @@
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_574516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_574516.jpg" />
 </div>
 
 
@@ -32,7 +174,7 @@ U.D.O. - Live in Sofia (2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573647.jpg" />
 </div>
 
 
@@ -61,7 +203,7 @@ Status Quo - Back2SQ1 - The Frantic Four Reunion, Live at Wembley Arena (2013) B
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573583.jpg" />
 </div>
 
 
@@ -90,7 +232,7 @@ Alex Kunnari vs. Delerium feat. Sarah McLachlan - Lost Silence (2012) [H.264/720
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573316.jpg" />
 </div>
 
 
@@ -116,7 +258,7 @@ Liquid Tension Experiment: Live in L.A. (2008) BDRip 720p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_572886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_572886.jpg" />
 </div>
 
 
@@ -151,7 +293,7 @@ The Rolling Stones - Totally Stripped (1995) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571887.jpg" />
 </div>
 
 
@@ -177,7 +319,7 @@ Aerosmith - Rock For The Rising Sun (2013) BDRemux [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571607.jpg" />
 </div>
 
 
@@ -206,7 +348,7 @@ U.D.O. – Steelhammer - Live from Moscow (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571594.jpg" />
 </div>
 
 
@@ -235,7 +377,7 @@ Blackmore's Night - A Knight In York (2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571426.jpg" />
 </div>
 
 
@@ -264,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571050.jpg" />
 </div>
 
 
@@ -290,7 +432,7 @@ David Gilmour (Pink Floyd) - "Live at Later with Jools Holland" (2008) HDTV
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_571004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_571004.jpg" />
 </div>
 
 
@@ -316,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570927.jpg" />
 </div>
 
 
@@ -342,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570800.jpg" />
 </div>
 
 
@@ -368,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570750.jpg" />
 </div>
 
 
@@ -394,7 +536,7 @@ Ozzy Osbourne - Speak Of The Devil (17.07.2012) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_570559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_570559.jpg" />
 </div>
 
 
@@ -420,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570334.jpg" />
 </div>
 
 
@@ -451,7 +593,7 @@ Styx - The Grand Illusion / Pieces of Eight Live (2010/2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569821.jpg" />
 </div>
 
 
@@ -480,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569637.jpg" />
 </div>
 
 
@@ -509,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569224.jpg" />
 </div>
 
 
@@ -539,7 +681,7 @@ The BEATLES: Invade Paris! Conquer America! 1964 Vol.1 (2011) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568821.jpg" />
 </div>
 
 
@@ -565,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568491.jpg" />
 </div>
 
 
@@ -576,150 +718,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F2A74A500DCC8D74A632CFC1E34916F24E50FE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922355   (568060) от 29.07.2015
-
-Fare Thee Well - Weekend One / Grateful Dead Live Jun 27 & 28, 2015 at Levi's Stadium, Santa Clara, CA, USA (2015) HDTVRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два концерта Grateful Dead в г. Санта Клара (Калифорния, США), состоявшиеся 27 и 28 июня 2015 года в рамках мини-тура Fare Thee Well, посвящённого пятидесятилетию группы и двадцатой годовщине со дня смерти её лидера Джерри Гарсия.Производство: СШАЖанр: Psychedelic RockПеревод: ОтсутствуетПродолжительность: 04:29:33 + 03:32:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C5355095A896047964BD910C9465CDAEF6E7C90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 363517   (567083) от 15.07.2011
-
-Виктор Королёв - Московский озорной гуляка! (2007) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Эпизод 1
-02. Базар-Вокзал
-03. Укушу
-04. Зацелую твои рученьки(   Читать дальше...   )Жанр: Шансон, музыкальное видео, клипыПродолжительность: 01:03:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98A92FBBD6CB0C872C6AFD4F9D0DAC05E55A000B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 363399   (566851) от 15.07.2011
-
-Фестиваль "Нашествие 2011" Океан Ельзи (Океан Эльзы) (10.07.2011) WebRip <Rock>
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566851.jpg" />
-</div>
-
-
-###  Подробнее
-
-В минувшие выходные в Тверской области состоялся ежегодный музыкальный фестиваль «Нашествие».
-Проведению опен-эйра препятствовала эпидемия африканской чумы свиней (мнимая или настоящая?), из-за которой на территории Тверской области были отменены все массовые мероприятия.
-Но «Нашествие» непотопляемо: несмотря на проблемы с властями региона, оно все-таки состоялось, (   Читать дальше...   )1.  Майже весна
-2.  Там де нам нема
-3.  Позич мені сонце
-4.  Модель(   Читать дальше...   )Жанр: RockПродолжительность: 01:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C6F68250F8C7D93DF42452234A43826D727EE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 113837   (566445) от 05.06.2022
-
-Wizards And Demons - Официальная история Uriah Heep / Uriah Heep - Wizards And Demons - The Official History (2005) DVD5 [4 DVD Box Set]
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Released in November 2005
-UK: CRP 1968 (4-dvd box + book)
-THE OFFICIAL HISTORY OF URIAH HEEP
-LARGE FORMAT FOUR DVD & BOOK SET(   Читать дальше...   )Жанр: МузыкаРежиссер: Dave Ling, Jeff PerkinsПродолжительность: 05:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:043DC56276C3CA8FB7C0C764294F578FD363FBF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 690216   (565954) от 17.08.2013
-
-Shakira - Oral Fixation Tour (2007) BDRip [1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565954.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
- 2. Estoy Aqui
- 3. Te Dejo Madrid
- 4. Don't Bother(   Читать дальше...   )Жанр: PopРежиссер: Ник ВикманАктеры: Shakira bandПеревод: ОтсутствуетПродолжительность: 01:32:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10436D271678EEE762FE958EE2A01982BBEB6D73
 ```
 
 https://mybot314.ru/tekegram_catalog/

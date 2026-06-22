@@ -6,7 +6,7 @@ Falco - Meisterstucke (1995) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145231.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Abba Revival Band - Thank You For The Music (1992) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145070.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - 100 Greatest Workout Songs (2019) [MP3|320 Kbps] <Pop, Rock, EDM>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144863.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - 100 Greatest Ballads (2019) [MP3|320 Kbps] <Pop, Rock, Ballads>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144718.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144553.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Alizee - Remixes (2018) [MP3|320 Kbps] <Deep House, Pop, Electronic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144267.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Wincent Weiss - Irgendwas gegen die Stille (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144260.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Dalida - 50 De Succese Disco (1978) LP [MP3|320 Kbps] <Pop, Funk-Soul, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144045.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - 100 Greatest 00s The Best Songs from the Decade (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143349.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Helene Fischer - Best Of  (Shop24direct 2019 Edition) 4CD (2019) [MP3|320 Kbps] 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143330.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - 100 Greatest 10s: The Best Songs of Last Decade (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143110.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - Happy Pop Hits (2018) [MP3|320 Kbps] <Pop, RnB, Alternative, Indie>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143015.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Donna Summer - Crayons (2016) Reissue Deluxe Edition [MP3|320 Kbps] <Soul, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142737.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ NaviBand - NaviBand (2019) [MP3|320 Kbps] <Indie Pop, Indie Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141838.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - 100 Greatest Indie: The Best Guitar Pop Rock (2019) [MP3|320 Kbps] <Indie, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141438.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Bamboo Industry - Tortured By Pleasure (1989) [MP3|320 Kbps] <Alternative Pop, S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141119.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Avalanche - Westbound (1992) [MP3|320 Kbps] <Pop, Electronic Pop Rock, Synthpop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140745.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ MONATIK - Мріяти не шкідливо (2019) EP [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140023.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Robbie Williams - Different (Maxi-Single) (2012) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139931.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ VA - Hit News Vol. 4 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, I
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139924.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Exile - 3 Albums (1973-1979) LP [MP3|320 Kbps] <Pop Rock, Soft Rock, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139906.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - 100 Greatest Chillout (2019) [MP3|320 Kbps] <Pop, Relax, Easy Listening>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139816.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ VA - Hit News Vol. 5 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, I
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138132.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ VA - 55 Hits 2020 [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137944.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Army Of Lovers - Sexodus (2023) [MP3|320 Kbps] <Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137627.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ VA - Hit News Vol. 7 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135200.jpg" />
 </div>
 
 

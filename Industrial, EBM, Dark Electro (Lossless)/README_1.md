@@ -6,7 +6,7 @@ Absurd Minds - Tempus Fugit (2017) [FLAC|Lossless|WEB-DL|tracks] <EBM, Synth-pop
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885655.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Blutengel - Nemesis: Best of and Reworked (2016) 2CD, Deluxe Edition [FLAC|Lossl
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880840.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Robert Elster - Quarantine EP (2020) [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868980.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Art of Noise - The Best of The Art of Noise (Art Works 12") (1992) [FLAC|Los
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868226.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Die Sektor - Death My Darling (2019) [FLAC|Lossless|tracks] <Dark Electro>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843045.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Ex_Tension - Discography 12 Releases (2004-2015) [FLAC|Lossless|tracks+.cue, tra
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842896.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - SUB-07 To SUB-11 - The A-Sides (2009) Drone Records [FLAC|Lossless|tracks+.
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831579.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806038.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Comet Is Coming - Channel The Spirits (2016) [FLAC|Lossless|Web-DL|tracks] <
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796153.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Fraunhofer Diffraction - 21 Release (2012-2017) [FLAC|Lossless|WEB-DL|tracks] <C
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793084.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Roly Porter - Discography 6 Releases (2011-2020) Subtext [FLAC|Lossless|tracks+.
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792464.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Sal Solaris - Thresholds (2016) Zhelezobeton [FLAC|Lossless|tracks+.cue] <Indust
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790936.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ hyDrone - Discography 6 Releases (2010-2017) [FLAC|Lossless|tracks+.cue, tracks]
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790905.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - The Flatline Compilation 1 & 2 (1998-1999) Flatline Records [FLAC|Lossless|
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790123.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Zandoz Corp. - Personal Apocalypse (2013) Signifier [Lossless|WEB-DL|tracks]<Rhy
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790026.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Fogh Depot - Turmalinturm (Remixes) (2018) [FLAC|Lossless|Web-DL|tracks] <Experi
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787626.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VNV Nation - Noire (2018) [FLAC|Lossless|WEB-DL|tracks] <EBM, Electro, Ambient>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786566.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - CRL Studios Presents: Homeostasis (2020) [FLAC|Lossless|WEB-DL|tracks] <Ind
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783936.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Scrap.edx | Scrape[dx] - Discography 7 Releases (2001-2009) DTA Records, Hands P
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781690.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Lowering - Brooklyn (2018) [FLAC|Lossless|Web-DL|tracks] <Experimental, Dark Amb
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774241.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Lowering - Happiness (2016) EP [FLAC|Lossless|Web-DL|tracks] <Experimental, Ambi
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773181.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Alon Mor & Clockvice - The Fifth Collaje (Single) (2016) [FLAC|Lossless|WEB-DL|t
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772832.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Stars As Eyes - Loud New Shit (2003) [FLAC|Lossless|tracks + .cue] <Leftfield, A
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767840.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Tzolk'in - Discography 4 Releases (2004-2013) Divine Comedy Records, Ant-Zen [FL
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764454.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ OAKE - Discography 9 Releases (2013-2019) [FLAC|Lossless|WEB-DL|tracks] <Industr
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764307.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ P·A·L (P.A.L, PAL, P•A•L) - Discography 16 Releases (1993-2011) Ant-Zen [F
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764295.jpg" />
 </div>
 
 

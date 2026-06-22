@@ -1,3 +1,59 @@
+###  Публикация: 1402387   (701581) от 14.08.2020
+
+Vocal Range Vocaberry v0.8.0 [Ru] - Диапазон Голоса (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение покажет ваш диапазон голоса и также сделает предположение о вашем певческом голосе.
+Например:
+A2-A4 - Баритон
+Понимание диапазона помогает в обучении вокалом, караоке, а также чтобы понять какие песни вам подходят, а какие нет.Тип издания: Пиратка (Mod)Релиз состоялся: 09.09.2019Разработчик: adhocappПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3CC30E7826F8A168FBF1B652558B4765453371D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402391   (701412) от 14.08.2020
+
+Vocaberry Karaoke v0.22.1 [Ru] - Научиться петь популярные песни Vocaberry (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701412.jpg" />
+</div>
+
+
+###  Подробнее
+
+С этим приложением вы сможете научиться красиво петь любимые песни.
+Без занятий с преподавателем вы сможете попадать в ноты и не фальшивить, развить слух и музыкальную память. Караоке с 21480 песнями на разных языках (включая RU). Во всех песнях поддерживается «фирменная» технология. По окончании исполнения показывается оценка в баллах.Тип издания: Пиратка (Mod)Релиз состоялся: 12.07.2020Разработчик: adhocappПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCEC250B2FD15BD04E7CAF304AE365C09A0F669B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400349   (701168) от 14.08.2020
 
 Справочник электрика v1.0 [Ru] (обновляемая)
@@ -6,7 +62,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701168.jpg" />
 </div>
 
 
@@ -35,7 +91,7 @@ Magnus Trainer PREMIUM v1.4.17 [Ru/Мульти]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701076.jpg" />
 </div>
 
 
@@ -61,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701029.jpg" />
 </div>
 
 
@@ -87,7 +143,7 @@ Lumii v1.483.106 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700886.jpg" />
 </div>
 
 
@@ -114,7 +170,7 @@ BitVPN - Fast VPN Proxy Master v1.3.2 [En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699248.jpg" />
 </div>
 
 
@@ -140,7 +196,7 @@ LocalAPK 2.1.1 RePack by Alex Zaguzin [Ru]
 >>Вспомогательное ПО для др. мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698400.jpg" />
 </div>
 
 
@@ -166,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698398.jpg" />
 </div>
 
 
@@ -192,7 +248,7 @@ Rom Helper 18.0.1711.01 RePack by Alex Zaguzin [Ru/Cn]
 >>Вспомогательное ПО для др. мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698282.jpg" />
 </div>
 
 
@@ -218,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698273.jpg" />
 </div>
 
 
@@ -244,7 +300,7 @@ Stupid Zombies 3 2.2 Mod [Money] [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696196.jpg" />
 </div>
 
 
@@ -270,7 +326,7 @@ GTA: Chinatown Wars 1.01 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693156.jpg" />
 </div>
 
 
@@ -297,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691800.jpg" />
 </div>
 
 
@@ -324,7 +380,7 @@ VMP - ВК Музыка v4.5.0 AdFree [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691793.jpg" />
 </div>
 
 
@@ -350,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_691708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_691708.jpg" />
 </div>
 
 
@@ -376,7 +432,7 @@ Cut the Rope [Ru] Сборник всех игр этой серии 5
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691510.jpg" />
 </div>
 
 
@@ -406,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО и Игры на Java
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689218.jpg" />
 </div>
 
 
@@ -434,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687053.jpg" />
 </div>
 
 
@@ -460,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686388.jpg" />
 </div>
 
 
@@ -488,7 +544,7 @@ Knights of Pen & Paper 2 v2.5.30 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685964.jpg" />
 </div>
 
 
@@ -514,7 +570,7 @@ Any Balance v3.9.808 [Ru/En] - баланс телефона на экране
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678882.jpg" />
 </div>
 
 
@@ -540,7 +596,7 @@ Smart Compass Pro 2.6.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678579.jpg" />
 </div>
 
 
@@ -566,7 +622,7 @@ Microsoft Outlook 2.1.209 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678301.jpg" />
 </div>
 
 
@@ -593,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678216.jpg" />
 </div>
 
 
@@ -621,7 +677,7 @@ CalcKit v2.4.2 Premium [Ru/Multi] - Калькулятор Всё-в-одном
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677928.jpg" />
 </div>
 
 
@@ -633,58 +689,6 @@ CalcKit это калькулятор Все-в-одном, о котором в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:606441A2D6FA0BE790803C003AF514B66784D420
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530875   (676297) от 11.03.2022
-
-TIDAL Music v2.56.0 [En] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официальное Андроид-приложение сервиса потокового воспроизведения музыки с возможностью прослушивания в качестве Lossless и MQA.Тип издания: Пиратка (Mod)Релиз состоялся: 9 марта 2022 г.Разработчик: TIDAL (NY)Поддерживаемая ОС: Android 6.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC03C16E1FEF13E3CD70F07F3C83EC2A9E3A69A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441182   (676148) от 11.03.2022
-
-Deezer v6.2.48.37 [Ru] - музыка, плейлисты и подкасты (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы делитесь любовью. Мы делимся музыкой. Deezer — это ваш бесплатный музыкальный сервис с 56 миллионами треков, плейлистов и подкастов, а также персональными рекомендациями. Слушайте свои любимые песни и открывайте для себя новые треки с помощью музыкального плеера. Ваша жизнь достойна собственного саундтрека.Тип издания: Пиратка (Premium)Релиз состоялся: 7 марта 2022 г.Разработчик: Deezer MobileПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D44A68A7D1D1C5046735A49FE72D9D51047D7427
 ```
 
 https://mybot314.ru/tekegram_catalog/

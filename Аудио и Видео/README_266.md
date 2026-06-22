@@ -1,3 +1,429 @@
+###  Публикация: 1518361   (156345) от 19.12.2021
+
+VA - Ibiza Let's Chill, Vol. 2 (2021) [AAC|~309 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inventors Of The Sun - Agua of Life (5:41)
+02. Lo Tide - Live a Little (3:49)
+03. Claas Reimer - Starlight (6:24)
+04. 351 Lake Shore Drive, Genius Jane - Brighter Than the Sun (7:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:396A2DB8A80C8049E11DAB3424372BD485B5945B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518356   (156324) от 19.12.2021
+
+VA - Chillout & Lounge Music (2021) [AAC|~289 Kbps] <Lounge, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duenec - Innuendo (5:46)
+02. Prandtl - Dissolved Rage (6:08)
+03. Random Classes - Sancerre Mode (5:52)
+04. Kaxamalka - Course of Life (5:41)(   Читать дальше...   )Жанр: Lounge, Chill OutПродолжительность: 01:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70F3C4EE30B4881D7A99525B8FE9A90305884B72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518359   (156315) от 19.12.2021
+
+VA - Ibiza Chill Vibes, Vol. 2 (2021) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 351 Lake Shore Drive, Genius Jane - Forever (4:57)
+02. Lazy Hammock - Deep Sunday Bliss (4:42)
+03. Smooth Deluxe, Nizam Kharda - Multani (3:57)
+04. Inventors Of The Sun - Es vedrà (5:17)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:13:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C023072EEA2A829C68DA6A491F0A01C1D981CF0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433718   (156194) от 21.12.2020
+
+Гренландия / Greenland (2020) BDRip [720p] ATV [FRA Transfer]
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во всех СМИ твердят о приближающейся к Земле комете, а инженера-строителя Джона Гэррити больше волнует, как сохранить разваливающийся брак. Сегодня у них намечена вечеринка с соседями, и, отправившись в супермаркет за продуктами, Джон внезапно получает президентское сообщение, что он и его семья выбраны для спасения в секретном бункере. Поначалу он не придаёт этому (   Читать дальше...   )Производство: США, Великобритания / STX Films, Anton, Thunder Road PicturesЖанр: БоевикРежиссер: Рик Роман ВоАктеры: Джерард Батлер, Морена Баккарин, Роджер Дэйл Флойд, Скотт Гленн, Рендал Гонсалес, Рик Паскуалоне, Никола Ламбо, Алан Петрушевски, Скотт Пойтресс, Клер БронсонПеревод: Дублированный (iTunes)Субтитры: Русские (Forced), Английские (Full)Продолжительность: 01:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF0830BC232EA4EB60C52FA79E6B7A88760280F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518267   (156176) от 19.12.2021
+
+VA - Nu Urban Jazz 1 (2015) [AAC|~343 Kbps] <Jazz, Nu Jazz, Electronic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loop Therapy - Old Skool Joint (3:06)
+02. Clan Greco - Three Acid Free (5:05)
+03. Paolo Di Sabatino, Janek Gwizdala, Peter Erskine - Nature Boy (7:00)
+04. Afronauti - Toffee Blues (5:29)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, ElectronicПродолжительность: 02:28:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88EF8309C3FCB041F69010E6A2D241796C09FFF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518268   (156158) от 19.12.2021
+
+VA - Nu Urban Jazz 2 (2018) [AAC|~336 Kbps] <Jazz, Nu Jazz, Electronic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lo Greco Bros, Flow Bop - Groove for Valentine (5:14)
+02. Loop Therapy - prometheus’Theme (1:58)
+03. Soulstance - Waiting For the Sun (6:24)
+04. LTJ XPerience - Get On Freak (5:54)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, ElectronicПродолжительность: 02:18:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4AAB874A73058D6FF5CAAA1F966D059F217CEDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433529   (156149) от 21.12.2020
+
+Гренландия / Greenland (2020) BDRip [1080p] ATV3 [FRA Transfer]
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во всех СМИ твердят о приближающейся к Земле комете, а инженера-строителя Джона Гэррити больше волнует, как сохранить разваливающийся брак. Сегодня у них намечена вечеринка с соседями, и, отправившись в супермаркет за продуктами, Джон внезапно получает президентское сообщение, что он и его семья выбраны для спасения в секретном бункере. Поначалу он не придаёт этому (   Читать дальше...   )Производство: США, Великобритания / STX Films, Anton, Thunder Road PicturesЖанр: БоевикРежиссер: Рик Роман ВоАктеры: Джерард Батлер, Морена Баккарин, Роджер Дэйл Флойд, Скотт Гленн, Рендал Гонсалес, Рик Паскуалоне, Никола Ламбо, Алан Петрушевски, Скотт Пойтресс, Клер БронсонПеревод: Дублированный (iTunes)Субтитры: Русские (Forced), Английские (Full)Продолжительность: 01:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02284DA0A9FF512D5857469475FA4B657FBC6E35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518349   (156124) от 19.12.2021
+
+VA - Best Of Toolroom 2021 (2021) [AAC|~338 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KC Lights, Leo Stannard - Cold Light (Extended Mix) (5:23)
+02. Mark Knight, Beverley Knight, London Community Gospel Choir - Everything's Gonna Be Alright (Extended Mix) (6:10)
+03. Martin Ikin, Chenai - You (Extended Mix) (5:52)
+04. Leftwing : Kody - If You Wanna (Extended Mix) (5:26)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:56:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0043D5118B831BE791DF90D10B71EFB7DBE7A4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518273   (156107) от 19.12.2021
+
+VA - Fabulous Lounge (The Most Wanted Lounge Grooves), Vol. 1 (2021) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luis Hermandez - Don't Want Your Love (Original Mix) (3:06)
+02. Living Room - The Blunt Session (Original Mix) (2:35)
+03. Taco-Town - Sì Sì (Original Mix) (5:02)
+04. Greg Knight - Circle of Clowns (Original Mix) (5:21)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:27:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAE14E418A1A40BA1F9B05ABCB6EC8654F032DB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518277   (156089) от 19.12.2021
+
+VA - Ultimate Christmas Soulful House (2021) [AAC|~335 Kbps] <Soulful House, Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stalker Studio - The Christmas Song (5:25)
+02. M-Swift, Vanessa Haynes - This Christmas (5:50)
+03. Papik, Dario Daneluz - Last Christmas (Francesco Cofano Remix) (6:12)
+04. Papik, Ely Bruna - All I Want For Christmas Is You (Francesco Cofano Remix) (5:28)(   Читать дальше...   )Жанр: Soulful House, Deep HouseПродолжительность: 01:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1DA8425B36CB61B5080A9E8F9F497447E99AAB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518288   (156080) от 19.12.2021
+
+Purple Disco Machine - Glitterbox - Discotheque (2019) [AAC|~325 Kbps] <House, Nu-Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glitterbox (Discotheque/Purple Disco Day (Continuous Mix)) (1:10:26)
+02. Glitterbox (Discotheque/Purple Disco Night (Continuous Mix)) (1:11:45)
+03. Forrrce with No Commercial Interruptions - Keep On Dubbin' (5:04)
+04. Catz 'n Dogz, Egla Sirvydyta - Good Touch (Maurice Fulton Remix) (6:13)(   Читать дальше...   )Жанр: House, Nu-DiscoПродолжительность: 06:20:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F807B281F040E3DBF3317F884E7FA994E615E433
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518269   (156076) от 19.12.2021
+
+VA - Nu Urban Jazz 3 (2021) [AAC|~319 Kbps] <Jazz, Nu Jazz, Electronic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. P. A. Jeron, Peter De Girolamo - Blurred (2:22)
+02. DOUT.D - Miles So Sexy (2:12)
+03. Soulstance, Jazz 2 More - Winter Day (6:24)
+04. Soulstance, Maison Jaxx - A Man In New York (4:43)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, ElectronicПродолжительность: 02:17:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC70F8E2FED8C2BE0E9015A56BEDE4D187458704
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 853955   (156020) от 27.12.2014
+
+Теорема Зеро / The Zero Theorem (2013) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эксцентричный компьютерный гений Коэн Лет бьется над неразрешимой теоремой. Благодаря костюму для виртуальной реальности, изобретенному мальчиком Бобом, Лету удается совершить путешествие в скрытое пространство и узнать тайну своей души. Эту разгадку ищет не только он сам, но и таинственный Менеджмент, который правит всем миром посредством всевидящих устройств под названием ManCams.Жанр: Фантастика, триллер, драма, комедияРежиссер: Терри ГиллиамПродюсер: Николя Картье, Дин Занук, Марк БакунасАктеры: Кристоф Вальц, Гвендолин Кристи, Руперт Френд, Рэй Купер, Лили Коул, Дэвид Тьюлис, Санджив Бхаскар, Петер Стормаре, Бен Уишоу, Мелани ТьерриПеревод: Профессиональный (дублированный) (Лицензия)Язык субтитров: Русский, АнглийскийПродолжительность: 01:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D87304D90E9A5A9A1385FCC718E533A67AB6D7E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518275   (156018) от 19.12.2021
+
+VA - Planeta Mix Hits 2022: Winter Edition (2021) [AAC|~324 Kbps] <House, Dance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stephan F, Ya-Ya - U & Me (2:31)
+02. Geo Da Silva, Dani Corbalan - Amore Sincero (2:27)
+03. Deep Emotion - Ready To Let Go (2:21)
+04. Heaven & Alone - I Want To Be Alone (2:27)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:22:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5840BB998B392C3945CDCE11383CE867437ECB0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518278   (156004) от 19.12.2021
+
+VA - The Sound of Emotional Content Recordings 2021 (2021) [AAC|~339 Kbps] <Progressive House, Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stage Van H - Doxtoutheo (6:52)
+02. Glenn Molloy - Enemy (Nichols Remix) (5:44)
+03. The Loco - Fate 25 (Ricardo Piedra Remix) (8:10)
+04. Darren Bray - Discovering Truth (Aman Anand Remix) (7:54)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 02:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA3D4841D3D2E51727D15A778FD67DA7550537AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518221   (155926) от 19.12.2021
 
 Группа Сентябрь - А счастье где же ты (2021) [AAC|~319 Kbps] <Pop, Chanson>
@@ -6,7 +432,7 @@
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155926.jpg" />
 </div>
 
 
@@ -35,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155676.jpg" />
 </div>
 
 
@@ -61,7 +487,7 @@ Purple Disco Machine - Exotica (2021) [AAC|~335 Kbps] <Dance, Nu Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155657.jpg" />
 </div>
 
 
@@ -90,7 +516,7 @@ Purple Disco Machine - Club Exotica (2021) [AAC|~343 Kbps] <House, Dance, Disco,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155639.jpg" />
 </div>
 
 
@@ -119,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155549.jpg" />
 </div>
 
 
@@ -145,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155456.jpg" />
 </div>
 
 
@@ -171,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155427.jpg" />
 </div>
 
 
@@ -197,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155382.jpg" />
 </div>
 
 
@@ -223,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155289.jpg" />
 </div>
 
 
@@ -249,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155116.jpg" />
 </div>
 
 
@@ -275,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155084.jpg" />
 </div>
 
 
@@ -286,429 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85BA3B309B9CCF3393F90C674F6C1744107DA639
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194418   (155082) от 25.12.2017
-
-Сделано в Америке / American Made (2017) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он был самым юным пилотом Боинга 747 в США, а уже через несколько лет стал одним из богатейших людей в Америке. Его стиль жизни был столь же экстремальным, как и его бизнес. Закрытые приемы, роскошные блондинки, крутые тачки и рисковые сделки. Он обладал талантом делать деньги из воздуха.Производство: СШАЖанр: Боевик, триллер, драма, комедия, криминал, биография, историяРежиссер: Даг ЛайманАктеры: Том Круз, Донал Глисон, Сара Райт, Джесси Племонс, Калеб Лэндри Джонс, Лола Кёрк, Джейма Мейс, Алехандро Эдда, Бенито Мартинес, Э. Роджер МитчеллПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:54:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9ED45C84970BDBE7E60663A6F8E87A833E99E7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194660   (155041) от 25.12.2017
-
-Эспен в королевстве троллей / Askeladden - I Dovregubbens hall (2017) WEB-DL [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отважный Эспен отправляется в увлекательное и опасное приключение к пещере горного короля, чтобы спасти принцессу и все королевство.Производство: НорвегияЖанр: ПриключенияРежиссер: Миккель Бренне СандемусеАктеры: Вебьёрн Энгер, Элли Харбоа, Мэдс Сьёгард Петтерсен, Элиас Хольмен Сёренсен, Эллан Хайд, Гискен Арманд, Гард Б. Эйдсвольд, Синневе Макоди Лунд, Торбьорн Харр, Ида Урсин-ХольмПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13D75F1E473323114503E258BED6C3900EBAD8A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194535   (155003) от 25.12.2017
-
-Эспен в королевстве троллей / Askeladden - I Dovregubbens hall (2017) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отважный Эспен отправляется в увлекательное и опасное приключение к пещере горного короля, чтобы спасти принцессу и все королевство.Производство: НорвегияЖанр: ПриключенияРежиссер: Миккель Бренне СандемусеАктеры: Вебьёрн Энгер, Элли Харбоа, Мэдс Сьёгард Петтерсен, Элиас Хольмен Сёренсен, Эллан Хайд, Гискен Арманд, Гард Б. Эйдсвольд, Синневе Макоди Лунд, Торбьорн Харр, Ида Урсин-ХольмПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16941930DBFA5DAC89DC1243110C1168494AF387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518635   (154417) от 20.12.2021
-
-VA - Global Lounge Masters, Vol. 4 (2021) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Tom Club - Love to Love You Baby (4:28)
-02. Soulounge, Gabriel Gordon - Do You (3:30)
-03. Karen Gibson Roc - Coming Up from the Down (4:44)
-04. Michiko - Learning to Love (4:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:31:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:941D365FFDB5FB2762F8053703F283AEB8A754F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085927   (154401) от 23.12.2016
-
-Врач  (2016) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юрий Михайлович работает нейрохирургом в городской больнице. Его день состоит из операций, осмотров больных, попыток выбить квоты на размещение пациентов. Каждый день он оглашает людям страшные диагнозы и, словно мольбы о помиловании, выслушивает вопросы о том, есть ли хоть какая-нибудь надежда.Производство: РоссияЖанр: ДрамаРежиссер: Гоша КуценкоАктеры: Гоша Куценко, Мария Порошина, Александр Яцко, Юрий Кузнецов, Анна Михалкова, Виктория Корлякова, Алёна Хмельницкая, Любовь Руденко, Олеся Железняк, Инна ПиварсПеревод: Не требуетсяСубтитры: НетПродолжительность: 01:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54A4175BABC8AD69E8567C78333886BE8B018F39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518630   (154386) от 20.12.2021
-
-Varitda Bhirombhakdi - Mood 2: Jazz in the City (2021) [AAC|~320 Kbps] <Jazz, Vocal Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All the Things You Are (3:53)
-02. Lately (4:57)
-03. Part of Your World (4:30)
-04. Orange Colored Sky (2:58)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:33:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:834DC6D025A91C79ECE77690C93460052FD30D31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518535   (154371) от 20.12.2021
-
-SolarFlow - Collection of the Best Tracks From: Solarflow, Pt. 2 (2020) [AAC|~324 Kbps] <Electronic, Lounge, Chill Out, Enigmatic>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Furkan Senol, Natune - Angel (SolarFlow Chillout Remix) (3:54)
-02. SolarFlow, Veela - I Belive in Love (Original Mix) (5:46)
-03. Begining of Life (Intro Mix) (3:24)
-04. Flight over the Past (Original Mix) (4:24)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill Out, EnigmaticПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BEDD50E0C240A90B384CB71B064F3803659B778
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518557   (154363) от 20.12.2021
-
-VA - Winter Relaxation, Vol. 2 (2020) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David K. - Meet You (Acoustic Version) (2:19)
-02. Lazy Hammock - Set Me Free (Original Mix) (4:55)
-03. Marc Hartman - Tears Run for Love (Original Mix) (4:24)
-04. Weber & Weber - Fading to the Sky (Original Mix) (4:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:18:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8820CA9F82CCE4ED14263E7F4DF3D3B5F74BD40B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518560   (154355) от 20.12.2021
-
-VA - Winter Relaxation, Vol. 3 (2021) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nordiatic - Arctic Sunrise (1:16)
-02. Sebastian Bach - Jade (Original Version) (3:43)
-03. Nordiatic - Iceland Cozy Cottage (1:15)
-04. Heart of the Ocean - Barefoot Walking at the Sea (1:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39C8D827874A3BDB28D300243B04148C4FCC98AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518568   (154347) от 20.12.2021
-
-VA - Space Chillout (2021) [AAC|~305 Kbps] <Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hazeofra - The Dark (3:24)
-02. Karl Lark - The Park of Desires (1:53)
-03. Jazz Bar - Love at First Sight (2:05)
-04. Blue Blood - Computerized Poetry (2:22)(   Читать дальше...   )Жанр: Lounge, Chill OutПродолжительность: 00:51:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B29A3C12B82E6ED0E6693F30390BECEF501A6A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518627   (154338) от 20.12.2021
-
-Varitda Bhirombhakdi - Mood (2020) [AAC|~331 Kbps] <Jazz, Vocal Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My One and Only Love (4:19)
-02. A Love That Will Last (3:35)
-03. Varitda Bhirombhakdi, Koh Mr. Saxman - The Christmas Song (5:09)
-04. Varitda Bhirombhakdi, Piti Kayoonpan - I Wish You Love (3:51)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2AC8DC955171A561EDE8DC1EA59E3677543F41D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518529   (154304) от 20.12.2021
-
-H.1, Hevi - Indigo Night (2021) [AAC|~310 Kbps] <Lounge, Chill Hop, Ambient>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Way Home (3:10)
-02. Letters for You (2:19)
-03. Indigo Night (1:52)
-04. Moonlight (2:37)(   Читать дальше...   )Жанр: Lounge, Chill Hop, AmbientПродолжительность: 00:34:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9DB19198877D0DE975DAD3997C4118219100749
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518534   (154295) от 20.12.2021
-
-SolarFlow - Specter (2020) [AAC|~332 Kbps] <Electronic, Lounge, Chill Out, Enigmatic>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SolarFlow, Veela - I Belive in Love (Original Mix) (5:46)
-02. Take It All the Way (Original Mix) (6:00)
-03. Behind a Mirror (Original Mix) (4:16)
-04. Sadness of Rain (Original Mix) (6:08)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill Out, EnigmaticПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8023F0ADCAF144A7CC2DA45E073D6D3D278D4493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518565   (154290) от 20.12.2021
-
-VA - Fireplace Chill - Winter Edition (2021) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Menace & Lord - While the Record Plays (Original Mix) (2:50)
-02. Sebastian Bach - Wandering (Original Version) (5:01)
-03. Chambre 37 - A Warm Breeze (Original Mix) (5:49)
-04. Jens Buchert - Raumhafen (Original Mix) (4:00)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:16:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AAE3F446FA0B7C7CCB22F432CDB15DB271328AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518562   (154279) от 20.12.2021
-
-VA - Best Vocal Chill Out (Remixes for 2021) (2021) [AAC|~339 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angelo-K - Whatever You Need (Zetandel Chillout Mix) (4:24)
-02. Daminika, Bryan Milton, Natune - I Won't Sleep (Rayan Myers Remix) (5:22)
-03. DJ Artak, Angel Falls - Unity (Owl Stone Chill Mix) (4:17)
-04. Angelo-K - Whatever You Need (S.A.T Chillout Remix) (3:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66BB1CE4D98316B1AA08846278B82B761E8F5BFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1508922   (796117) от 10.11.2021
+
+Удивительные животные / Animal (2021) WEB-DL [H.264/1080p] (серии 1-4 из 4)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот сериал погрузит вас в мир самых поразительных существ планеты, осветит невиданные ранее грани их жизни — от нежности до жестокости и приглашает в волнующее, увлекательное и познавательное путешествие по самым отдаленным уголкам нашей планеты.Производство: США, Plimsoll Productions, NetflixЖанр: Документальный, природа, флора, фаунаРежиссер: Марта ХолмсПеревод: Многоголосый профессиональный (VSI Moscow)Субтитры: Русские (Forced, Full), немецкие, английские (SDH), испанские, французские, иврит, итальянские, португальские, румынские, украинскиеПродолжительность: серии x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D070C6CE131BBC09630EEE92933E44824E9857EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386264   (795185) от 28.05.2020
+
+Зоопарк. Знакомьтесь, пингвины / The Zoo. Meet the penguins (2015) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эдриан покинет спокойный пляж пингвинов в зоопарке и отправится в Перу. Он увидит редкий вид пингвинов в дикой природе, прибегнет к хитрой маскировке, чтобы обойти их соседей и стать свидетелем первых дней жизни этих птиц.Производство: Великобритания, Wild Pictures Limited for ITVЖанр: Документальный, природа, флора, фаунаРежиссер: Поль ГлиннПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40765B38B8DDB6CDEC0EE8ACEE0BF4684E290E14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386176   (795177) от 28.05.2020
+
+Тайны реки Меконг / Mysteries of the Mekong (2017) UHDTVRip [H.264/1080p] (серии 1-10 из 10)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путешествие по реке Меконг ведет нас через Китай, Лаос, Вьетнам, Камбоджу и Таиланд, через целый ряд разнообразных ландшафтов. У каждого есть свой особый вид: от курносых обезьян до высоко летающих птиц и жутких пещерных обитателей - включая тех, которые никогда не снимались раньше. Пусть могучие воды Меконга поведут вас в невероятное путешествие.Производство: США, Blue Ant Media Solutions INC., Antidote ProductionsЖанр: Документальный, природа, флора, фаунаРежиссер: Питер Ринггаард, Оливер ПейджПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 10 x ~00:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3D4E7B778756FA22D750CF06956E0DFB25A2F90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509455   (794886) от 12.11.2021
+
+Индонезия - жизнь в иле / Indonesia - life in silt (2021) WEB-DL [VP9/2160p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Познакомьтесь поближе с китовыми акулами, дельфинами, гигантскими скатами мантой и захватывающими рыбными стаями. GREAT BLUE WILD - это ваш проводник по подводному миру, в сочетании с увлекательными историями от профессионалов подводного плавания.Производство: Канада, Blue&Media Solution Inc.Жанр: Документальный, природа, флора, фаунаРежиссер: Рита МединскиПеревод: Одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:46:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D88BEC144A2537C1D48064D0A772928A8DB330E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274026   (794865) от 05.01.2019
 
 ТерраМатер: Дикая Канада / Terra Mater: Wild Canada (2014) UHD BDRemux [H.265/2160p] [4K, SDR] (серии 1-4 из 4)
@@ -6,7 +110,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794865.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794628.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793908.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792663.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792511.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791965.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790204.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790048.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789336.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789271.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789006.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788794.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787537.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786982.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786910.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786848.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786696.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785138.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785129.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784756.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783394.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782343.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390917   (781837) от 18.06.2020
-
-Волшебная Исландия / Magisches Island - Leben auf der groessten Vulkaninsel der Welt (Magical Iceland) (2019) BDRemux [H.264/1080p] (3 фильма)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исландию называют страной воды и огня. Термальные источники, вулканы и ледники – это сила первозданной природы во всем ее проявлении. Здесь самый капризный климат на Земле, и все же от хрупкой красоты Исландии захватывает дух, а природа этой страны уникальна.Производство: Германия, NautilusfilmЖанр: Документальный, природа, флора, фаунаРежиссер: Ян ХафтПеревод: Одноголосый закадровый, профессиональныйСубтитры: РусскиеПродолжительность: 00:50:21+00:30:48+00:07:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74FBFE0FD85868D94BF66B2EE248304EE1E0D917
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208449   (779917) от 22.02.2018
-
-Змеи. Тайны самых смертоносных созданий на Земле (Змея, которая проглотила свет) / Snake. That Swallowed Light (2017) HDTVRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Змеи - одни из самых своеобразных существ на Земле. Их необычный внешний вид, оригинальный способ движения, многие замечательные особенности поведения, наконец, ядовитость многих видов - все это издавна привлекает внимание и вызывает живой интерес у людей. У самых различных народов земного шара сложено множество легенд, сказок и мифов о змеях. Все эти фантазии, подкрепленные (   Читать дальше...   )Производство: Южная Корея, Educational Broadcasting System (EBS)Жанр: Документальный, познавательный, флора, фаунаРежиссер: Ли Ён Ки / Lyee Yeon KyuПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80815B61D04C4DD09B0AA675DDA39E5239724205
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209449   (779371) от 26.02.2018
-
-Маленькие но значительные: Насекомые / Little Matters: Insects (2014) HDTVRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_779371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир насекомых богат и разнообразен. Этот фильм рассказывает о самых любопытных фактах из жизни насекомых: как они размножаются, как они общаются друг с другом, как строят свое жилье и как добывают пищу. Мы увидим насекомых в их среде обитания, узнаем о том, как муравьиные львы расставляют ловушки, и о том, как термитам удается поддерживать низкие температуры в их (   Читать дальше...   )Производство: Испания, Amprods, Alvaro Mendoza ProductionsЖанр: Документальный, фаунаРежиссер: Альваро МендозаПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33A7389D3F66F1C474E2068DC54A6A00CAA240E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209443   (779367) от 26.02.2018
-
-Маленькие но значительные: Пауки / Little Matters: Spiders (2014) HDTVRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предположительно пауки появились в Палеозойскую эру в Каменноугольный период. Это было примерно 2-2,5 млрд. лет назад. Среди обитателей животного царства пауки относятся к группе беспозвоночных живых существ. Пауки входят в самый многочисленный тип группы беспозвоночных - тип членистоногих. Как и для других классов, относящихся к этому типу, таких как насекомые, (   Читать дальше...   )Производство: Испания, Amprods, Alvaro Mendoza ProductionsЖанр: Документальный, фаунаРежиссер: Альваро МендозаПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B477B7BA325FD39751D18A5B747489706BF23AE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

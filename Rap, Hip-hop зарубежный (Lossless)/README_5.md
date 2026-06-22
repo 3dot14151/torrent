@@ -6,7 +6,7 @@ Jim Jones - Pray IV Reign (2009) [FLAC|Lossless|tracks + .cue] <Hip Hop, Rap>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101510.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Apollo Brown & Stalley - Blacklight (2021) [FLAC|Lossless|tracks + .cue] <Hip-Ho
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101506.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Apollo Brown & Philmore Greene - Cost of Living (2022) [FLAC|Lossless|Web-DL|tra
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101505.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Apollo Brown & Planet Asia - Sardines (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101504.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Apollo Brown - This Must Be The Place (2022) [FLAC|Lossless|tracks + .cue] <Inst
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101503.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Apollo Brown & CRIMEAPPLE - This, Is Not That (2024) [FLAC|Lossless|Web-DL|track
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101492.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Snoop Dogg & Dr. Dre - Missionary (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101373.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Joell Ortiz & L'Orange - Signature (2023) [FLAC|Lossless|tracks + .cue] <Hip-Hop
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71822.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Apathy - Connecticut Casual: Chapter 2 (2024) [FLAC|Lossless|Web-DL|tracks] <Hip
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71820.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Coolio - Greatest Hits (2025) Compilation [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69368.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Red Snapper - Barb and Feather (2025) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, F
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67761.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Aesop Rock - Black Hole Superette (2025) [FLAC|Lossless|tracks + .cue] <Hip-Hop,
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66542.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - Chillhop Essentials Summer (2025) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66168.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Me'Shell NdegеOcello - Cookie: The Anthropological Mixtape (2002) [FLAC|Lossles
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65949.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ DJ Tron - Da Real Wid'it (1998) CD, Compilation [FLAC|Lossless|tracks + .cue] <R
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65809.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Ghostface Killah - Set The Tone (Guns & Roses) (2024) [FLAC|Lossless|WEB-DL|trac
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56778.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - Chillhop Essentials Summer (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53106.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Cypress Hill - 8 Albums + 3 Compilation + 14 Singles & EP's (1991-2010) [FLAC|Lo
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52539.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Hugo Kant - 9 Albums (2011-2024) [FLAC|Lossless|WEB-DL|tracks] <Trip Hop, Downte
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52259.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Das EFX - 5 Albums + 3 Singles (1992-2003) [FLAC|Lossless]<Hip-Hop / Rap / Hardc
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51756.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Control Machete - 5 Albums (1996-2006) [FLAC|Lossless]<Hip-Hop / Mexican Rap / L
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51752.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Souls of Mischief - 93 'Til Infinity (1993) [FLAC|Lossless]<Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51739.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Tha Mexakinz - Tha Mexakinz (1996) [FLAC|Lossless]<Hip-Hop, Latin Hip-Hop, Hardc
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51717.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Eminem - The Death of Slim Shady (Coup De Grace) (2024) [FLAC|Lossless|WEB-DL|tr
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50242.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47625.jpg" />
 </div>
 
 
@@ -738,7 +738,7 @@ Eminem - The Death of Slim Shady (Coup De Grace) (2024) Expanded Mourner’s Edi
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43693.jpg" />
 </div>
 
 

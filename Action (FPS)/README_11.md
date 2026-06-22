@@ -1,3 +1,29 @@
+###  Публикация: 1511322   (789139) от 20.11.2021
+
+Gunfire Reborn (2021) [Ru/Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gunfire Reborn - это приключенческая многоуровневая игра с элементами ролевой игры (RPG), Roguelite и шутера от первого лица (FPS). Игроки могут управлять героями, которые обладают различными способностями, чтобы исследовать разнообразный геймплей, и использовать случайным образом выпадающее оружие в приключениях на случайных уровнях. На каждом уровне игроки получают (   Читать дальше...   )Тип издания: LicenseРазработчик: Duoyi GamesЖанр: FP, Roguelite, RPGЯзык субтитров: Русский, Английский, Испанский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Испанский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1137FD343CFEB3335869E536D52F5BFD9BCEAF3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203106   (788889) от 31.01.2018
 
 UAYEB (2018) [En] (3.8.13) License CODEX
@@ -6,7 +32,7 @@ UAYEB (2018) [En] (3.8.13) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788889.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Dishonored: Death of the Outsider (2017) [Ru/Multi] (1.145) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788810.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Nerf Legends (2021) [Multi] (0.1) License FAIRLIGHT
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788717.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ The Apartment (2018) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788446.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Blue Estate The Game / Viktor Kalvachev's - Blue Estate: The Game (2015) [Ru/Mul
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787484.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Protocol (2018) [Ru/Multi] (1.0) License DARKSiDERS
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786624.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Roots of Insanity (2017) [Ru/Multi] (1.1.5) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786435.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Blackwood Crossing (2017) [Multi] (1.0) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786254.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Star Wars: Battlefront 2 / Star Wars: Battlefront II (2005) [Multi] (1.1) Licens
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785997.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Blackwood Crossing (2017) [Multi] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785710.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Chernobyl Terrorist Attack (2017) [En] (1.15) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785688.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Arma 2: Combined Operations (2010) [Multi] (1.62.95248.1/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785499.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Burden (2018) [Ru/En] (1.0/upd14) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785284.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Dishonored 2 (2016) [Ru/Multi] (1.77.9) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785240.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ Killing Floor 2 (2016) [Ru/Multi] (1094/dlc) SteamRip =nemos= [Digital Deluxe Ed
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784691.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ Call of Duty: Modern Warfare Remastered (2016) [Ru] (1.13) Rip Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784524.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ Silent Descent (2018) [En] (1.03) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784312.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Sniper: Ghost Warrior 3 / Снайпер: Воин-призрак 3 (2017) [Ru/E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784231.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ Conarium (2017) [Ru/Multi] (1.0.0.6) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783952.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ Kona / Kôna (2017) [Multi] (07-08-2017) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783713.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ Condemned Criminal Origins (2006) [Ru] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783708.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ SKYHILL: Black Mist (2020) [Ru/Multi] (1.0.002) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783279.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ Borderlands: Trilogy (2009-2014) [Ru/Multi] (1.5.0.0/1.8.4/1.0.7/dlc) Repack R.G
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783074.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ Observer / >observer_ (2017) [Ru/Multi] (1.0.0.3) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781546.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ Outlaws (1997) [En] (2.0/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781170.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ Outlaws (1997) [En] (2.0/dlc) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:473A8E9D82F1165102CB02B2BC8D7E20316D1FC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207540   (780445) от 18.02.2018
-
-Tropical Escape (2018) [Ru/Multi] (1.0) License CODEX
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Испытайте себя на затерянных островах, где только от ваших решений зависит, останетесь ли вы в живых. Попытайтесь найти остальных выживших. Если вы хотите дожить до рассвета, то вам необходимо позаботиться о еде, воде и остальных запасах, и держаться подальше от опасных животных и ядовитых растений.Тип издания: LicenseРазработчик: Stefan Stankovic, Nikola LackovicЖанр: Action, Survival, Simulator, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Немецкий, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4BC8ABAC65CFA6DDD691F2E7524B586C1AD520C
 ```
 
 https://mybot314.ru/tekegram_catalog/

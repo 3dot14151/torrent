@@ -1,3 +1,107 @@
+###  Публикация: 1705500   (113880) от 08.03.2024
+
+Священномученик Василий Кинешемский | Беседы на Евангелие от Марка (2010) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как трудно подчас нам оценить всю глубину Слова Божия без мудрого пастыря и наставника. Одним из таких мудрых наставников является священномученик-исповедник, истинный подвижник, епископ Василий Кинешемский (в миру Вениамин Сергеевич Преображенский). Главной своей архипастырской задачей он ставил православное просвещение. Всесторонне и глубоко исследовав Священное (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A134623092E973B3527B6CC8CABA5ED6B8669C3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705497   (113876) от 08.03.2024
+
+Сибирская Благозвонница | Молитвы и каноны, чтомые по усопшим (2010) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отдавая усопшему последний долг, мы чаще всего думаем о том, как достойно проводить его в последний путь, заботимся об организации похорон, устройстве поминальной трапезы, изготовлении памятника. Но усопшему ничего этого уже не нужно. В церковном понимании память об усопшем – это молитвенная память. Основой такой памяти церковной является молитва, обращенная к Бо́гу, (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BA7D7B5215424167C89815366B02C59A8F71047
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705491   (113872) от 08.03.2024
+
+Архимандрит Амвросий (Юрасов) | Исповедь. В помощь кающимся (2013) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113872.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом издании рассказывается, что такое покаяние и Таинство Покаяния, что следует нам знать по этой теме. Ведь лишь в Таинстве Покаяния можно очистить и исцелить душу. Покаяние вытаскивает нас из бездны греха, пороков и страстей и вводит во врата Рая. Сам Господь открывает нам Свои объятия и принимает, как блудных детей.Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84C95CC547566E2B66AD1BBE58AC6867F717AF39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705506   (113867) от 08.03.2024
+
+Архимандрит Наум (Байбородин) | Ходатаица земной и вечной радости. О Пресвятой Богородице (2019) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вниманию читателей предлагается сборник трудов архимандрита Наума (Байбородина; 1927–2017) о Пресвятой Богородице. Книга рассказывает о том, как стать любезными Божией Матери, как стяжать Ее всесильный Покров и заступление. Сборник содержит пересказ летописных сказаний и исторических фактов о Руси как уделе Божией Матери. В сборник включены также составленные о. (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B6D5837FBB6C52EE5C815A6878CAEC6792F8575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705493   (113853) от 08.03.2024
 
 Благовест | Святые Петр и Феврония Муромские (2011) [PDF, FB2, EPUB, MOBI, TXT]
@@ -6,7 +110,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113853.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113843.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113841.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113424.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113414.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113403.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113386.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113336.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113319.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113266.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113264.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112876.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112663.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112661.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112629.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112586.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112583.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112578.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112555.jpg" />
 </div>
 
 
@@ -504,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112263.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112012.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111833.jpg" />
 </div>
 
 
@@ -567,114 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57F50AC39ABFABF1C363814CC8FBE10F21EF50E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714016   (111813) от 07.04.2024
-
-Никея | О Вере, Христе и науке. Мысли и слова свт. Луки Войно-Ясенецкого (2014) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Святой Лука (Войно-Ясенецкий) – известный хирург, ученый, талантливый писатель и архиепископ Русской Православной Церкви. В годы гонений на Церковь не боялся открыто исповедовать свою веру – святой Лука лечил больных, читал лекции, не снимая облачения и наперсного креста. Вера и наука были для него неразрывны.
-
-В этой книге, созданной по трудам святителя Луки, собраны (   Читать дальше...   )Жанр: ПравославиеИздательство: НикеяФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96605F32607D96C8D07E1D9060B8EDC70BEB81C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714028   (111806) от 07.04.2024
-
-Лепта Книга | Святое Евангелие. Священная история в простых рассказах для семейного чтения (2014) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111806.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Евангелие» значит «Благая весть». Это самая важная книга для каждого христианина, потому что в ней Господь возвещает о Своей любви к нам, о том, что ради этой любви Бог жертвует Своего Сына Иисуса Христа для того, чтобы каждый верующий в Него не погиб, но имел Жизнь Вечную.
-
-Мы должны знать о том, как Господь Иисус Христос осуществлял наше Спасение, чтобы мы могли (   Читать дальше...   )Жанр: ПравославиеИздательство: Лепта КнигаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9845A6EE494EED5490A5C17F17F973A6F865805E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714003   (111793) от 07.04.2024
-
-Митрополит Владимир (Иким) | Врата покаяния: Слова, произнесенные в разные годы в период пения Триоди постной (2009) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благодатное время Великого поста – время сугубых молитв и духовного совершенствования. Как настроить свою душу на покаянный лад, как правильно понимать смысл великопостных церковных песнопений и чтений из Священного Писания, что важно для христианина во время поста? Ответы на эти вопросы содержатся в книге митрополита Ташкентского и Среднеазиатского Владимира «Врата (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:111F87DF2212C93DA4F820C8E754256D7AC91B14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714025   (111788) от 07.04.2024
-
-Святитель Феофан Затворник | Избранные проповеди в дни Великого поста (2017) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проповеди свт. Феофана Затворника – истинная сокровищница святоотеческого учения о спасении. Особенно если это проповеди, произнесенные в период приуготовительных недель и самого Великого поста, а также Страстной седмицы. В сборнике с возможной полнотой представлен опыт этого великого учителя Русской Церкви, глубочайшего церковного ученого, подлинного аскета и молитвенника, (   Читать дальше...   )Жанр: ПравославиеИздательство: Лепта КнигаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F38B7679133DD20E06CC2853EECF2B9F21C612A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1679068   (139631) от 24.11.2023
+
+Загадка Монти Холла (2023) WEBRip [H.264/1080p] (серии 1-2 из 2)
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ольга Барковская получает приглашение поучаствовать в семейной научно-популярной передаче, в ходе которой она должна разгадывать математические загадки от зрителей. В прямом эфире в студию звонит зритель, именующий себя Монти, и предлагает Ольге сыграть с ним в игру, основанную на парадоксе Монти Холла, а ставкой в этой игре будет человеческая жизнь. Полагая, что (   Читать дальше...   )Производство: Россия | «Энерджи Фильм»Жанр: Детектив, мелодрамаРежиссер: Карен ЗахаровАктеры: Алёна Коломина, Елена Валюшкина, Сергей Загребнев, Андрей Заводюк, Михаил Гудошников, Константин Третьяков, Максим Жаров, Александр Зарядин, Екатерина Каратаева, Александра БелоглазоваПродолжительность: ~00:44:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E5A1E92BCF74FC2E43ABB35DD4DA17862B3FFFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679072   (139506) от 24.11.2023
+
+Загадка Ферма (2023) WEBRip [H.264/1080p] (серии 1-2 из 2)
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Убит главный редактор математического журнала «Формулист» Филипп Дорофеев. Перед своей смертью Филипп успевает оставить послание в виде математической формулы, которая служит отсылкой к знаменитой теореме Ферма. А вскоре после убийства работники редакции находят новые послания, и каждое из них — вариант решения теоремы Ферма. Следователь Карташова привлекает к расследованию (   Читать дальше...   )Производство: Россия | «Энерджи Фильм»Жанр: Детектив, мелодрамаРежиссер: Карен ЗахаровАктеры: Алёна Коломина, Елена Валюшкина, Сергей Загребнев, Андрей Заводюк, Михаил Гудошников, Никита Лобанов, Евгений Сыркин, Максим Бойцов, Адриана Денкова, Татьяна ВолковаПродолжительность: ~00:44:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30357F87613F3B1BD10E0E07EEB67FC22ED5B676
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349090   (139490) от 30.12.2019
+
+День учителя (2012) WEBRip [H.264/1080p-LQ] [PR]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один день из жизни типичного персонажа российской истории, «маленького человека» — учителя русского языка и литературы в школе. Интеллигент и его проблемы в начале XXI века. Один день из жизни страны, которая когда-то любила Есенина. О том, что у неё еще есть надежда…Производство: Россия / Кинокомпания "Новые люди"Жанр: Комедия, драмаРежиссер: Сергей МокрицкийАктеры: Анатолий Кот, Светлана Немоляева, Ирина Рахманова, Марианна Шульц, Александр Горчилин, Андрей Бильжо, Людмила Титова, Лариса Дадиани, Артем Федотов, Владимир ТерещенкоСубтитры: ОтсутствуютПродолжительность: 01:18:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3C7AC81C8F6332F204BD012DB40021E27D69585
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679238   (139457) от 24.11.2023
+
+Папа (2019) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Азартный игрок и заядлый жулик Василий попадает в больницу после очередной заварушки в казино. Его сосед по палате Геннадий рассказывает ему о предстоящей встрече со своим взрослым сыном Артемом, которого он не видел много лет. Но до назначенной даты Гена не доживает. Тогда Вася идет на эту встречу вместо него и говорит Артему, будто он и есть его папа.Производство: Россия |  Школа кино «Индустрия»Жанр: Короткометражный, драмаРежиссер: Карина ЧувиковаАктеры: Константин Хабенский, Ян Цапник, Дарья Жовнер, Юра Борисов, Савелий КудряшовСубтитры: РусскиеПродолжительность: 00:20:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D663B074C8BA311C20186FFF87C6C1366E23813
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679276   (139447) от 24.11.2023
 
 Праздник (2023) WEBRip [VP9/2160p]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139447.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139297.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138918.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138696.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138380.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138350.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137868.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137726.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137518.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ SOS, Дед Мороз или Все сбудется! (2015) WEB-DL [H.264/720p
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137463.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137396.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ SOS, Дед Мороз или Все сбудется! (2015) WEB-DL [H.264/1080
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137379.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137293.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137229.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137176.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137087.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137078.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137037.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136997.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136995.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136810.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136572.jpg" />
 </div>
 
 
@@ -566,116 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05F89DA24AC44DF773910CA917F81BB680161021
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591709   (136062) от 20.12.2012
-
-Слуга государев (2007) [1080p] BDRip
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_136062.jpg" />
-</div>
-
-
-###  Подробнее
-
-1709 год. Европу раздирают междоусобные войны. Францией все еще правит стареющий Людовик XIV, а подвиги мушкетеров еще не забыты. В Версале два французских дворянина, поссорившись из-за карточной игры, нарушают существующий запрет на дуэли и оказываются между тюрьмой и плахой палача. Милостью короля казнь заменена ссылкой «на пользу государства».
-
-Один из них должен отправиться на службу ко двору российского царя Петра Первого, другой — ко двору шведского короля Карла XII, чтобы шпионить в пользу Франции. Россия и Швеция находятся в состоянии войны, и герои должны прибыть к местам назначения как раз накануне Полтавской битвы. Однако оказывается, что ссылка — всего лишь предлог и на самом деле им уготовано место в первых рядах сражающихся друг против друга армий. Чтобы спасти любимого, подруга одного из героев решается на отчаянный шаг…
-
-В России тем временем ползут слухи о мистическом черном всаднике, якобы причастном к исчезновению людей… Проведенное расследование подтверждает, что загадочные появления мистического (   Читать дальше...   )Жанр: Боевик, Приключения, ВоенныйРежиссер: Олег РясковАктеры: Ольга Арнтгольц, Александр Бухаров, Алексей Чадов, Николай Чиндяйкин, Владислав Демченко, Ксения Князева, Валерий Маликов, Дмитрий Миллер, Елена Плаксина, Андрей РыклинПродолжительность: 01:56:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680022   (134726) от 27.11.2023
-
-Вор (1997) HDTV [1080i]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134726.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1952 году шестилетний Саня и его мать Катерина едут в поезде. Их случайный попутчик, офицер Анатолий очаровывает и Катю и Саню. Катя и Анатолий решают жить вместе. Сильный и добродушный Толян почти заменяет безотцовщине Сане отца. Он учит мальчика стоять за себя, вести себя по-мужски - так, как сам понимает мужественность и в соответствии с теми правилами, по которым (   Читать дальше...   )Производство: Россия, Франция / "НТВ-ПРОФИТ", "Продюксьон Ле Пон", "Руассифильм"Жанр: драма, криминалРежиссер: Павел ЧухрайАктеры: Владимир Машков, Екатерина Редникова, Михаил Филипчук, Амалия Мордвинова, Лидия Савченко, Анна Штукатурова, Ольга Пашкова, Юрий Беляев, Анатолий Кощеев, Людмила СелянскаяСубтитры: русскиеПродолжительность: 01:29:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:325C54A2CE88819C2ACEE365C76067BEBD674C9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680018   (134711) от 27.11.2023
-
-Побег из Таркова. Рейд (2021) WEBRip [H.265/1440p] [2K, SDR, 10-bit]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русский бoевик по шутеру Escape from Tarkov в духе S.T.A.L.K.E.R.
-Рассказ о борьбе частных военных компаний на территории города Тарков. Одни представляют интересы международной корпорации TerraGroup, ведущей там незаконную деятельность. Российская ЧВК BEAR направляет в город группу во главе со Скифом, чтобы найти пропавших коллег, чьей миссией был перехват информации (   Читать дальше...   )Производство: Россия / BattlestateЖанр: боевик, криминалРежиссер: Антон РозенбергАктеры: Матвей Зубалевич, Виктор Мищенчук, Михаил Солодко, Олег Савцов, Владимир Лукьянчиков, Кристина Александрова, Олег Руденко-Травин, Антон Лаврентьев, Сергей Масленников, Сергей ЛобановПеревод: не требуется (русский)Субтитры: русские (18+)Продолжительность: 01:05:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDF0CD8350579B405731FF0A79ACC3554AEF0542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679950   (134703) от 27.11.2023
-
-Побег из Таркова. Рейд (2021) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русский бoевик по шутеру Escape from Tarkov в духе S.T.A.L.K.E.R.
-Рассказ о борьбе частных военных компаний на территории города Тарков. Одни представляют интересы международной корпорации TerraGroup, ведущей там незаконную деятельность. Российская ЧВК BEAR направляет в город группу во главе со Скифом, чтобы найти пропавших коллег, чьей миссией был перехват информации (   Читать дальше...   )Производство: Россия / BattlestateЖанр: боевик, криминалРежиссер: Антон РозенбергАктеры: Матвей Зубалевич, Виктор Мищенчук, Михаил Солодко, Олег Савцов, Владимир Лукьянчиков, Кристина Александрова, Олег Руденко-Травин, Антон Лаврентьев, Сергей Масленников, Сергей ЛобановПеревод: не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:05:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B78AD511E672DC3B4CECA466B4B9512A2A469E16
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1669408   (172804) от 16.10.2023
+
+JetBrains Clion 2023.2.2 for Mac Intel/ARM [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172804.jpg" />
+</div>
+
+
+###  Подробнее
+
+CLion — это IDE от JetBrains, предназначенная для разработки на С и С++ на платформах Linux, Windows и macOS. Включает в себя поддержку системы сборки кросс-платформенных проектов CMake, Gradle C++ и compilation database, возможности анализа кода на лету, разнообразные рефакторинги и унифицированный интерфейс для работы с самыми популярными системами контроля версий.Тип издания: macOS SoftwareРелиз состоялся: 13.09.2023Разработчик: © 2000-2023 JetBrains s.r.o.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7177B8D01887BDCF3517E5264490EF0563F8DE27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669580   (172688) от 17.10.2023
+
+SiteSucker 5.1.13 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172688.jpg" />
+</div>
+
+
+###  Подробнее
+
+SiteSucker- это альтернативный менеджер загрузки сайтов. SiteSucker это приложение для Macintosh, которое автоматически загружает веб-сайты из Интернета. Она делает это путем асинхронного копирования веб-страниц сайта, изображений, PDF-файлов, таблиц стилей и других файлов на локальном жестком диске, дублируя структуру каталогов сайта.
+SiteSucker умеет загружать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.10.2023Разработчик: © 2001-2022 Rick CraniskyПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A760E530B52E265432FE0352E196C985F883733
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669579   (172687) от 17.10.2023
 
 EdgeView 4.3.4 [En]
@@ -6,7 +59,7 @@ EdgeView 4.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172687.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Default Folder X 6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172675.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Imagenomic Noiseware for PS (Mac) 6.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172670.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ PhoneRescue for iOS 4.2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172664.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ TechSmith Snagit 2023.2.4 for Mac [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172662.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ SiteSucker Pro 5.1.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172660.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ TablePlus 5.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172654.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ Bartender 5 v.5.0.41 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172638.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ AnyTrans for iOS 8.9.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172609.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ Adobe Media Encoder 2024 v.24.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172598.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ Adobe InDesign 2024 v.19.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172551.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ Adobe Lightroom Classic for Mac 13.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172547.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ Adobe Premiere Pro 2024 for Mac v.24.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172539.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ BatchOutput PDF 3.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172527.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ Piezo 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172526.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ Native Instruments Komplete Kontrol 3.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172525.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ Alfred PowerPack 5.1.4 Pre-release  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172523.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ Loopback 2.3.1 fc3 Beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172520.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ Keep It 2.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172519.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ Alfred PowerPack 5.1.3  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172517.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ Coming soon 3 v.3.19 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172512.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ Rocket Typist Pro 3.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172511.jpg" />
 </div>
 
 
@@ -590,7 +643,7 @@ Cardhop 2.2.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172510.jpg" />
 </div>
 
 
@@ -617,7 +670,7 @@ TG Pro (Temperature Gauge Pro) 2.84 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172509.jpg" />
 </div>
 
 
@@ -629,59 +682,6 @@ TG Pro — контроль температуры и вентиляторов �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10A15B309C1E7EC9ED4B2FF1271366D99CDA8B54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669903   (172508) от 18.10.2023
-
-Acorn 7 v.7.4.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждому нужно редактировать изображения в определенный момент, но не у всех есть на это время. Именно поэтому Вам необходима программа Acorn которая сэкономит Ваше время для качественного редактирования фотографий. С помощью Acorn Вы сможете добавить текст или фигуру к фотографии, объединить изображения вместе с другой фотографией, работать со слоями и т.д.
-Acorn (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.09.2023Разработчик: © Flying Meat IncПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:486CEB4B3D0F9B3146E95CF70A73D44F4DEAACD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669847   (172505) от 18.10.2023
-
-4K Tokkit Pro 2.3.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один простой способ скачать все с TikTok. 4K Tokkit - это идеальное приложение для массовой загрузки контента TikTok. Сохраняйте задачи TikTok, подписи, целые аккаунты, хэштеги и отдельные видео в высоком качестве. Смотрите TikToks офлайн, просматривайте ленту TikTok без рекламы, делайте репосты клипов в другие социальные сети.Тип издания: macOS SoftwareРелиз состоялся: 22.09.2023Разработчик: © 2022 Open Media OOOПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BE966F507B3A888D6B617F9982850A3FF03B35B
 ```
 
 https://mybot314.ru/tekegram_catalog/

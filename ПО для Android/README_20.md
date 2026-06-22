@@ -1,3 +1,30 @@
+###  Публикация: 1441478   (1037621) от 21.01.2021
+
+OTT Navigator IPTV v1.6.3.8 Mod [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Просмотр IPTV вашего провайдера на любом устройстве (телефон, планшет, ТВ, ТВ-приставка). Поддерживает как Android TV / TV-приставок (DPAD-пульт), так и телефоны и планшеты.
+"Приложение не предоставляет никаких источников самостоятельно. Оно работает с плейлистом вашего провайдера или приложенным вами источником".Тип издания: Пиратка (Mod Premium)Релиз состоялся: 21.01.2021Разработчик: Scillarium StudioПоддерживаемая ОС: Android 4.2+, Android TVЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C5095EAE8DB4347A754B8061BBDF06DBA0B5944
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566712   (1037424) от 26.02.2023
 
 Carmin v4.1.6 [En]
@@ -6,7 +33,7 @@ Carmin v4.1.6 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037424.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ VPN Private v1.1.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037318.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ Ski Tracker v2.3.01 Premium [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037173.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ Adobe Master Collection For Android [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037030.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ RuStore 1.3.6 (159) [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036921.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ LocalCast v33.1.2.8 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036517.jpg" />
 </div>
 
 
@@ -162,7 +189,7 @@ DailyArt - Daily Dose of Art v2.9.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035834.jpg" />
 </div>
 
 
@@ -188,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035713.jpg" />
 </div>
 
 
@@ -215,7 +242,7 @@ Selena v0.2.18 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035704.jpg" />
 </div>
 
 
@@ -241,7 +268,7 @@ Voice Training / Голосовая тренировка ver.Autoscroll Fix (120
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035672.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ Solid Explorer File Manager v2.8.8 Full [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035654.jpg" />
 </div>
 
 
@@ -299,7 +326,7 @@ Cut Paste Photos v9.10.3 Pro [Ru/En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035604.jpg" />
 </div>
 
 
@@ -325,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035124.jpg" />
 </div>
 
 
@@ -351,7 +378,7 @@ Photo Grid - Collage Maker Premium v7.90 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035058.jpg" />
 </div>
 
 
@@ -377,7 +404,7 @@ Point Blur v7.1.7 [En/Ru] - Обработка размытия фотограф
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034912.jpg" />
 </div>
 
 
@@ -403,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034889.jpg" />
 </div>
 
 
@@ -432,7 +459,7 @@ LibriVox AudioBooks v2.7.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034854.jpg" />
 </div>
 
 
@@ -458,7 +485,7 @@ PortraitAI - Аватар эпохи Ренессанса v1.3.11 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034823.jpg" />
 </div>
 
 
@@ -484,7 +511,7 @@ Fake GPS Joystick & Routes Go v1.6.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034626.jpg" />
 </div>
 
 
@@ -510,7 +537,7 @@ WEATHER NOW v0.3.40 Premium [Ru] - прогноз погоды, метео-ра�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034546.jpg" />
 </div>
 
 
@@ -537,7 +564,7 @@ Drops Learning Languages v35.47 [Ru/Multi] - Изучение иностранн
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034513.jpg" />
 </div>
 
 
@@ -563,7 +590,7 @@ Fuelio: топливо и расходы v7.8.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034414.jpg" />
 </div>
 
 
@@ -589,7 +616,7 @@ Film Maker v2.9.1.5 Pro [En] – Видеоредактор, фото и Эфф�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034409.jpg" />
 </div>
 
 
@@ -617,7 +644,7 @@ Paranoia: Родительский контроль v1.0.7.1 Premium [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034371.jpg" />
 </div>
 
 
@@ -643,7 +670,7 @@ Engineering Tools : Mechanical v206 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034191.jpg" />
 </div>
 
 
@@ -656,35 +683,6 @@ Engineering Tools : Mechanical v206 [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84FE0419DA9D2AD0D913CC1DC961177BEFDD4128
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444937   (1034142) от 03.02.2021
-
-PC Remote v7.4.2 Vip [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Monect PC Remote - это бесплатное приложение, которое позволяет вам управлять ПК через Wi-Fi или Bluetooth локально или удаленно.
-
-Ключевая особенность:
-- Играйте во все виды компьютерных игр с встроенными датчиками и специально разработанными макетами кнопок, и вы можете редактировать их по своему желанию(   Читать дальше...   )Тип издания: Пиратка (Vip)Релиз состоялся: 3 февраля 2021 г.Разработчик: MonectПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA839F0A89E711A8EB047C5320310234FBCA4131
 ```
 
 https://mybot314.ru/tekegram_catalog/

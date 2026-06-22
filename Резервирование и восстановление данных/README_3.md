@@ -6,7 +6,7 @@
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952394.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Roadkil's Unstoppable Copier 5.2 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946755.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FreeFileSync 7.8 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944909.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Zero Assumption Recovery 10.0.595 Technician Edition RePack (& Portable) by Trov
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943990.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Starus File Recovery 3.8 Commercial Edition Portable by PortableAppC [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941551.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Active@ File Recovery Professional 14.5.0 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941352.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Starus Partition Recovery 2.5 Commercial Edition Portable by PortableAppC [Multi
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938020.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Wondershare Data Recovery 5.0.7.8 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927556.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Stellar Phoenix Photo Recovery 7.0.0.0 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920642.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Ontrack EasyRecovery Enterprise 11.5.0.2 Portable by PortableAppZ [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919992.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Stellar Phoenix Photo Recovery 7.0.0.0 RePack by tolyan76 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919027.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Starus Office Recovery 2.3 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915022.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Hetman Excel Recovery 2.3 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914896.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Starus FAT Recovery 2.5 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914883.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Starus Excel Recovery 2.3 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914881.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Hetman Office Recovery 2.3 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914877.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Starus Word Recovery 2.3 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914806.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Starus NTFS Recovery 2.5 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914805.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Starus File Recovery 3.8 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914791.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Starus Photo Recovery 4.4 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914733.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Hetman Uneraser 3.8 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914727.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Starus Partition Recovery 2.5 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914599.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Hetman Photo Recovery 4.8 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913682.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ ObjectRescue Pro 6.14 Build 1042 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900516.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Active@ UNDELETE Professional 11.0.11 RePack by WYLEK [Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895451.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885130.jpg" />
 </div>
 
 

@@ -1,3 +1,119 @@
+###  Публикация: 949384   (377416) от 23.10.2015
+
+VA - MOJO Presents. Let It Be. Revisited (tribute) (2010) [MP3|320 кб/с]<Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Grant - Two Of Us (Lennon/McCartney)
+02. Dennis Locorriere - Dig A Pony (Lennon/McCartney)
+03. Phosphorescent - Across The Universe (Lennon/McCartney)
+04. Beth Orton - I Me Mine (Harrison)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45A7E95683263B973AB7534130578D9765D1D25B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949553   (377338) от 23.10.2015
+
+VA - Mojo presents. Return To The Dark Side Of The Moon (2011) [MP3|320 кб/с]<Psychedelic Rock, Space Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gallops - Speak To Me
+02. Our Broken Garden - Breathe
+03. The Oscillation - On The Run
+04. Wolf People - Time(   Читать дальше...   )Жанр: Psychedelic Rock, Space RockПродолжительность: 01:07:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79F1AFE78412B9D9022E81A75692E7128CCAAD40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575169   (377201) от 09.09.2022
+
+Wired Ways - Wired Ways (2022) [MP3|320 Kbps] <Retro Prog, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ticket Tally Man (03:50)
+02. Peacock on the Highway (04:11)
+03. Lazy Daisy (05:46)
+04. HanoiTramway (04:51)(   Читать дальше...   )Жанр: Retro Prog, Classic RockПродолжительность: 00:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7B5CD7B9480E988D1D41CAA998BB937C4016897
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575338   (377200) от 09.09.2022
+
+Northern Revival - Modification (2022) [MP3|320 Kbps] <Heavy Rock, Stoner, Sludge, Southern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Broken [00:04:58]
+02 Psychosis [00:04:00]
+03 Bar Knight [00:04:06]
+04 Pobednik [00:06:31](   Читать дальше...   )Жанр: Heavy Rock, Stoner, Sludge, Southern MetalПродолжительность: 00:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83B0982F8E4885C7ECA07737C0B635F3A0B760EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575219   (377199) от 09.09.2022
 
 Stratovarius - Visions (1997) Remastered, 1997, T&T [OGG Vorbis|485 Kbps] <Rock>
@@ -6,7 +122,7 @@ Stratovarius - Visions (1997) Remastered, 1997, T&T [OGG Vorbis|485 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377199.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ High Tone Son of a Bitch - Live At The Hallowed Halls (2022) [MP3|320 Kbps] <Hea
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377198.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Skid Row - The Gang's All Here (2022) [MP3|320 Kbps] <Hard Rock, Glam Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377003.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ KMFDM - Hyena (2022) [MP3|320 Kbps] <Progressive Rock, Industrial Rock, Electro-
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377002.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Weddings - Book of Spells (2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Grunge>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376997.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Abrams - In The Dark (2022) [MP3|320 Kbps] <Stoner Rock, Heavy Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376992.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Scream Of The Butterfly - 2 Albums (2020-2022) [MP3|320 Kbps] <Heavy Stoner Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376916.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Jimmy Barnes - The Rhythm And The Blues (2009) [MP3|320 кб/с]<Rock | Soul | B
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376231.jpg" />
 </div>
 
 
@@ -244,7 +360,7 @@ Stratovarius - Destiny (1998) [OGG Vorbis|485 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375485.jpg" />
 </div>
 
 
@@ -273,7 +389,7 @@ Slade - The Hucknall Miners' Welfare Club (2022) Live [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375398.jpg" />
 </div>
 
 
@@ -302,7 +418,7 @@ Slade - Alive! At Reading (2022) Live [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375387.jpg" />
 </div>
 
 
@@ -331,7 +447,7 @@ Slade - The New Victoria (2022) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375224.jpg" />
 </div>
 
 
@@ -360,7 +476,7 @@ Weary Eyes - How To Leave Places (2015) [MP3|320 кб/с]<Post Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375119.jpg" />
 </div>
 
 
@@ -389,7 +505,7 @@ Suzi Quatro - Suzi Quatro (1973) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375088.jpg" />
 </div>
 
 
@@ -418,7 +534,7 @@ Flash the Readies - Kayos (2016) [MP3|320 Kbps] <Progressive Rock, Post-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373958.jpg" />
 </div>
 
 
@@ -447,7 +563,7 @@ Queen - On Air (2016) Live [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373544.jpg" />
 </div>
 
 
@@ -476,7 +592,7 @@ Stratovarius - Twilight Time (1992) Remastered, 1993, Victor [OGG Vorbis|485 Kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373364.jpg" />
 </div>
 
 
@@ -505,7 +621,7 @@ VA - Running with Rock!!! 2018 Session [MP3|320 Kbps] <Rock, Miscellaneous>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373185.jpg" />
 </div>
 
 
@@ -534,7 +650,7 @@ Cold Blood - The Best Of Cold Blood (1995) [MP3|320 кб/с]<Jazz-Rock, Funky Bl
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372576.jpg" />
 </div>
 
 
@@ -563,7 +679,7 @@ Trubetskoy - Magister Bibendi (2015) [MP3|~265 кб/с (V0)]<Rock, Ska>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372334.jpg" />
 </div>
 
 
@@ -592,7 +708,7 @@ Rikk Eccent - Black Halo (2020) [MP3|320 Kbps] <Progressive Rock, Crossover Prog
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371590.jpg" />
 </div>
 
 
@@ -621,7 +737,7 @@ Antimatter - Welcome to the Machine / Too Late (2016) [MP3|320 Kbps] <Psychedeli
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371311.jpg" />
 </div>
 
 
@@ -635,131 +751,6 @@ Antimatter - Welcome to the Machine / Too Late (2016) [MP3|320 Kbps] <Psychedeli
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E026C782EADB2BF2574DF9E3869D3B55D5AF2C23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575479   (371256) от 14.11.2012
-
-Outer Limits & Jeff Christie - Outer Limits/Floored Masters-Past Imperfect (2008) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371256.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Turn On Your Lovelight (3:40)
-2.  Both Ends Of The Rainbow (3:50)
-3.  You've Got The Love (3:14)
-4.  Midnight Express (3:53)
-5.  Troubadour (4:53)
-6.  Back On The Boards (3:31)
-7.  Another Point Of View (3:27)
-8.  You And Me (4:25)
-9.  On The Same Side (5:06)
-10.  Saints And Sinners (4:04)(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3FF94CA17F7E9C7DB5742F10D0929178F06FD02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069837   (371188) от 05.11.2016
-
-Sir Rod Stewart - And Some Of His Early Faces (2016) 2CD [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diamond Joe
-02. Engine 4444
-03. Maggie May
-04. Stay with Me(   Читать дальше...   )Жанр: RockПродолжительность: 01:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AF9A9AF4607AA9816425703BD42F3EE0BB9F599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 251962   (371078) от 01.11.2010
-
-The Band - Discography (1968..2005) [MP3|320 kbps]<Country / Roots / Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Country / Roots / Blues RockПродолжительность: 31:20:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575441   (370894) от 14.11.2012
-
-Kid Rock - Rebel Soul (2012) [MP3|320 кб/с]<Rock, Country, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Chickens In The Pen (4:49)
-02.  Let's Ride (4:50)
-03.  Catt Boogie (4:24)
-04.  Detroit, Michigan (3:56)
-05.  Rebel Soul (4:02)
-06.  God Save Rock N Roll (5:21)
-07.  Happy New Year (3:34)
-08.  Celebrate (4:01)
-09.  The Mirror (4:46)
-10.  Mr. Rock N Roll (6:37)(   Читать дальше...   )Жанр: Rock, Country, Southern RockПродолжительность: 01:05:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF9ED593D7D7C02EEFBE3B5D471602885B71CE8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

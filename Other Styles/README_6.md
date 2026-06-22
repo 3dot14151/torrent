@@ -1,3 +1,267 @@
+###  Публикация: 1453672   (1026734) от 12.03.2021
+
+Marc Canham - I Care A Lot (2021) Original Motion Picture Soundtrack [FLAC|Lossless|tracks] <Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Just Doing My Job (03:43)
+02 - Liquidated (01:08)
+03 - Pull The Trigger (01:18)
+04 - Welcome Home (03:01)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:58:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6715DF7D5DAF15E9D589B2A776580068B634151F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 850361   (1026713) от 12.03.2021
+
+Baulta - 4 Альбома + 1 EP (2011-2021) [MP3|320 кб/с] <Post-Rock, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026713.jpg" />
+</div>
+
+
+###  Подробнее
+
+2011 - Deeply Sorry To Interrupt Your Megalomania
+2012 - That's My House You're Living In
+2013 - The Greatest Solos Of Mr. Bellini Vol.1 (EP)
+2014 - Any Fool Can Regret Yesterday(   Читать дальше...   )Жанр: Post-Rock, InstrumentalПродолжительность: 03:18:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB933EF93D097821F7EB766904FEDD3E881C5AC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453725   (1026709) от 12.03.2021
+
+Blackmore's Night - Nature's Light (2021) [FLAC|24/48|Lossless|WEB-DL|tracks] <Folk Rock>
+
+>>Other Styles
+>>Folk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once Upon December
+02. Four Winds
+03. Feather in the Wind
+04. Darker Shade of Black(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC5976BD001EC0B363107C86EDD76CE9BC60C988
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453745   (1026576) от 13.03.2021
+
+Empyrium - 7 Studio Albums (1996-2021) 7xCD [FLAC|Lossless|image + .cue] <Neofolk, Doom Metal>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкая группа Empyrium образовалась в 1994 году. Первые два альбома группы представляли собой смесь фолка, дум и блэк-метала, за ними последовали два альбома акустического неофолка.
+После выхода альбома 2002 года "Weiland" группа решила прекратить запись: «Empyrium исследует природную мистику с 1994 года, и через 8 лет мы чувствуем, что движемся дальше (   Читать дальше...   )1996 - A Wintersunset
+1997 - Songs Of Moors And Misty Fields
+1999 - Where At Night The Wood Grouse Plays
+2002 - Weiland(   Читать дальше...   )Жанр: Neofolk, Doom MetalПродолжительность: 06:05:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEA967EA77FD027B18D668AECF9C0350DC40E345
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454438   (1026120) от 16.03.2021
+
+Beirut - 9 альбомов (2006-2019) [FLAC|Lossless]<Balkan Folk, World, Indie Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - When I Die
+02 - Gallipoli
+03 - Varieties of Exile
+04 - On Mainau Island(   Читать дальше...   )Жанр: Balkan Folk, World, Indie FolkПродолжительность: 04:15:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34580A29F2AE22A73343F8621266D5EE287BCAA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455946   (1025415) от 20.03.2021
+
+Tom Holkenborg (aka Junkie XL) - Zack Snyder's Justice League / Лига справедливости Зака Снайдера (Original Motion Picture Soundtrack) (2021) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025415.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:18] 01. Rose Betts - Song to the Siren
+[07:57] 02. Tom Holkenborg - A Hunter Gathers
+[00:57] 03. Tom Holkenborg - Migratory
+[01:04] 04. Tom Holkenborg - Things Fall Apart(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2CF088060F5CEFE509A9D402115C6F7C98F7268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455942   (1025411) от 20.03.2021
+
+Tom Holkenborg (aka Junkie XL) - Zack Snyder's Justice League / Лига справедливости Зака Снайдера (Original Motion Picture Soundtrack) (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025411.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:18] 01. Rose Betts - Song to the Siren
+[07:57] 02. Tom Holkenborg - A Hunter Gathers
+[00:57] 03. Tom Holkenborg - Migratory
+[01:04] 04. Tom Holkenborg - Things Fall Apart(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82E6AD641A9C918892A5672A82278DC447D02FA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455944   (1025266) от 21.03.2021
+
+Tom Holkenborg (aka Junkie XL) - Zack Snyder's Justice League / Лига справедливости Зака Снайдера (Original Motion Picture Soundtrack) (2021) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025266.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:18] 01. Rose Betts - Song to the Siren
+[07:57] 02. Tom Holkenborg - A Hunter Gathers
+[00:57] 03. Tom Holkenborg - Migratory
+[01:04] 04. Tom Holkenborg - Things Fall Apart(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FB23EC2836944D8F911C6F32664E09F483D5B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456905   (1024572) от 25.03.2021
+
+Blackmore's Night - Nature's Light (2021) 2xCD, Jараnese Еditiоn [FLAC|Lossless|image + .cue] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ренессанс-рок-группа BLACKMORE'S NIGHT, которую создали Ritchie Blackmore и его жена Candice Night, выпустила первый альбом за шесть лет 12 марта 2021 года. Диск под названием "Nature's Light", уже 11-й полноформатник в дискографии BLACKMORE’S NIGHT, издан лейблом earMUSIC.
+
+"История 'Nature's Light' – это история природы, которая является настоящей (   Читать дальше...   )CD - 1:
+01. Once Upon A December (3:10)
+02. Four Winds (3:03)
+03. Feather In The Wind (4:30)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:28:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47490688F2F4763C74BFA149873FD5C2BE7424BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457240   (1024563) от 25.03.2021
 
 VA - Romantic Melodies: Classic In Pop (2005) [MP3|320 Kbps] <Pop, Rock, Classical>
@@ -6,7 +270,7 @@ VA - Romantic Melodies: Classic In Pop (2005) [MP3|320 Kbps] <Pop, Rock, Classic
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024563.jpg" />
 </div>
 
 
@@ -35,7 +299,7 @@ Tom Holkenborg (aka Junkie XL) - Godzilla vs. Kong / Годзилла проти
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024209.jpg" />
 </div>
 
 
@@ -64,7 +328,7 @@ Tom Holkenborg (aka Junkie XL) - Godzilla vs. Kong / Годзилла проти
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024200.jpg" />
 </div>
 
 
@@ -93,7 +357,7 @@ Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Sketches from th
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024060.jpg" />
 </div>
 
 
@@ -122,7 +386,7 @@ Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Sketches from th
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024056.jpg" />
 </div>
 
 
@@ -151,7 +415,7 @@ Paul Cardall - The Broken Miracle (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023679.jpg" />
 </div>
 
 
@@ -180,7 +444,7 @@ VA - Romantic Melodies: Enigmatic (2008) [MP3|320 Kbps] <New Age, Folk, Celtic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023669.jpg" />
 </div>
 
 
@@ -209,7 +473,7 @@ VA - Pop Piano Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumenta
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023660.jpg" />
 </div>
 
 
@@ -238,7 +502,7 @@ VA - More Pop Piano Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instru
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023475.jpg" />
 </div>
 
 
@@ -267,7 +531,7 @@ Corrado Carosio & Pierangelo Fornaro - Rocco Schiavone 1-4 (Colonna Sonora Origi
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023468.jpg" />
 </div>
 
 
@@ -296,7 +560,7 @@ Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Sketches from th
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023466.jpg" />
 </div>
 
 
@@ -325,7 +589,7 @@ Tom Holkenborg (aka Junkie XL) - Godzilla vs. Kong / Годзилла проти
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023464.jpg" />
 </div>
 
 
@@ -354,7 +618,7 @@ Oscar Lopez - Guitar Masters (2002) Compilation [MP3|320 Kbps] <Flamenco, Guitar
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023463.jpg" />
 </div>
 
 
@@ -383,7 +647,7 @@ Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Original Motion 
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023462.jpg" />
 </div>
 
 
@@ -412,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023305.jpg" />
 </div>
 
 
@@ -441,7 +705,7 @@ Francis Goya - Europe Vol. 5: Latino (2006) [MP3|320 Kbps] <Flamenco, Easy Liste
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023284.jpg" />
 </div>
 
 
@@ -470,7 +734,7 @@ Yuval Ron - Four Divine States of Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Wor
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021789.jpg" />
 </div>
 
 
@@ -484,267 +748,6 @@ Yuval Ron - Four Divine States of Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Wor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C11C4317C0BB05C58FE57A331E2D1E59AADBE31E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461023   (1021783) от 10.04.2021
-
-Mariza - Mariza Canta Amalia (2020) [FLAC|Lossless|image + .cue] <Fado, Bossanova>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Com Que Voz
-02. Barco Negro
-03. Lagrima
-04. Formiga Bossa Nova(   Читать дальше...   )Жанр: Fado, BossanovaПродолжительность: 00:38:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:034118732F10F3C347899346F9CE0DB802FFDD2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461086   (1021759) от 10.04.2021
-
-VA - Best Of Green Hill Music: The Piano Collection (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stan Whitmire - Bella's Lullaby - Solo Piano Theme From Twilight (3:50)
-02. Jim Brickman - Valentine (3:33)
-03. David Hamilton - 'S Wonderful (4:04)
-04. Beegie Adair - I Get Along Without You Very Well (3:22)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 01:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E083FCBA33CF6D901F5960ED7A0AFA2591742F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461444   (1021609) от 11.04.2021
-
-Robbie Robertson - Collection (1994-1998) 2 альбома [MP3|320 Kbps] <Native American, New age, World music>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coyote Dance
-02. Mahk Jchi (Heartbeat Drum Song)
-03. Ghost Dance
-04. The Vanishing Breed(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74CA63657DC91890BB748F824EACF02B8AEE1123
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457216   (1020925) от 15.04.2021
-
-Erotic Sex Audio XXX - Hot and Sexy Ringtones (2010) 2CD [MP3|320 Kbps] <Ringtones, Pop, Sexy>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot & Sexy Ringtone #1
-02. Hot & Sexy Ringtone #2
-03. Hot & Sexy Ringtone #3
-04. Hot & Sexy Ringtone #4(   Читать дальше...   )Жанр: Ringtones, Pop, SexyПродолжительность: 00:09:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A71A29777F620914EF9836D7BCCBCC032DB134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463275   (1020612) от 17.04.2021
-
-Benjamin Wallfisch - Mortal Kombat (Original Motion Picture Soundtrack) (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack, Score>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020612.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:07] 01. Techno Syndrome 2021 (Mortal Kombat)
-[07:15] 02. Hanzo Hasashi
-[02:25] 03. Lord Raiden
-[02:43] 04. Bi-Han(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:791E872225D831DF5A60916000F34612AC79609B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463276   (1020456) от 18.04.2021
-
-Benjamin Wallfisch - Mortal Kombat / Мортал Комбат (Original Motion Picture Soundtrack) (2021) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020456.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:07] 01. Techno Syndrome 2021 (Mortal Kombat)
-[07:15] 02. Hanzo Hasashi
-[02:25] 03. Lord Raiden
-[02:43] 04. Bi-Han(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B5CE5812DE05A3B3385EACF32E8D250A0041403
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463278   (1020444) от 18.04.2021
-
-Benjamin Wallfisch - Mortal Kombat / Мортал Комбат (Original Motion Picture Soundtrack) (2021) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020444.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:07] 01. Techno Syndrome 2021 (Mortal Kombat)
-[07:15] 02. Hanzo Hasashi
-[02:25] 03. Lord Raiden
-[02:43] 04. Bi-Han(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:865EDDCAC71B4E34824CB4E4467D16D1517B24E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463534   (1020308) от 19.04.2021
-
-Bryan Lubeck, Johannes Linstead & Tomas Michaud - We Three Strings (2006) [FLAC|Lossless|tracks + .cue] <Flamenco, Latin, Folk>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johannes Linstead - What Child Is This? (3:26)
-02. Bryan Lubeck - The First Noel (4:15)
-03. Tomas Michaud - Christmas Journey (5:16)
-04. Johannes Linstead - God Rest Ye Merry, Gentlemen (2:41)(   Читать дальше...   )Жанр: Flamenco, Latin, FolkПродолжительность: 00:50:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3726B62918410254B2322118AF9EE1BF5EB3F7C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463530   (1020295) от 19.04.2021
-
-Behzad (Behzad Aghabeigi) - 5 альбомов (1997-2017) [MP3|320 Kbps] <Flamenco, Acoustic Guitar>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rapture of Massy (5:20)
-02. Your Tranquillity Matilda (4:51)
-03. Simmering Souls (6:01)
-04. Gypsy Renaissance (4:42)(   Читать дальше...   )Жанр: Flamenco, Acoustic GuitarПродолжительность: 04:25:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C97D8AEB95819004DD1C683171C349B9AC1137C
 ```
 
 https://mybot314.ru/tekegram_catalog/

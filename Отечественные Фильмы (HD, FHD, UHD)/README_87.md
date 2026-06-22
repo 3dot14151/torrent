@@ -1,3 +1,107 @@
+###  Публикация: 1257531   (269062) от 03.12.2018
+
+Владыка времени (2015) WEB-DLRip [H.265/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269062.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименному роману Екатерины Неволиной. В секретной школе проходит обучение группа обычных подростков. Их готовят к сложному и опасному заданию. Героям предстоит стать первыми путешественниками во времени. Они не похожи на обычных людей. Их жизнь засекречена, ведь они – охотники за артефактами – предметами, обладающими особой мистической силой. Любовь и прочие (   Читать дальше...   )Производство: Россия, Медиа Группа ВыходЖанр: Приключения, Фантастика, ДрамаРежиссер: Александр БаршакАктеры: Андрей Смоляков, Кирилл Ермичёв, Станислав Тикунов, Виктория Заболотная, Сергей Сосновский, Рина Гришина, Виталий Вашедский, Максим Юдин, Александр ЧисловПродолжительность: 01:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3807E06BAC997C74C70B57D154E6826DEA61567
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266924   (268301) от 04.12.2018
+
+Русалка. Озеро мертвых (2018) BDRemux [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встреча со странной девушкой на затерянном лесном озере и её поцелуй резко меняют жизнь Ромы. Об этой встрече он очень скоро пожалеет: неизвестный недуг высасывает из него все жизненные силы. Марина готова на всё, чтобы освободить жениха от мистического морока. Что окажется сильнее: проклятье прошлого или настоящая любовь?Производство: Россия / Central Partnership, QS Films,STGCinemaЖанр: Фэнтези, УжасыРежиссер: Святослав ПодгаевскийАктеры: Виктория Агалакова, Ефим Петрунин, Никита Еленев, Сесиль Плеже, Игорь Хрипунов, Софья Шидловская, Дарья Ярцева, Дмитрий Ярцев, Алла Артамонова, Эмиль СалесПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:26:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFFC50AA8AF3CDCC67E46F7CC83F4E96E739077C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267039   (268297) от 04.12.2018
+
+Русалка. Озеро мертвых (2018) BDRip [H.264/720p] [GER Transfer]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встреча со странной девушкой на затерянном лесном озере и её поцелуй резко меняют жизнь Ромы. Об этой встрече он очень скоро пожалеет: неизвестный недуг высасывает из него все жизненные силы. Марина готова на всё, чтобы освободить жениха от мистического морока. Что окажется сильнее: проклятье прошлого или настоящая любовь?Производство: Россия , СТГ Синема, QS FILMS, Централ Партнершип, Киностудия КИТЖанр: Фэнтези, ужасыРежиссер: Святослав ПодгаевскийАктеры: Виктория Агалакова, Ефим Петрунин, Никита Еленев, Сесиль Плеже, Игорь Хрипунов, Софья Шидловская, Дарья Ярцева, Дмитрий Ярцев, Алла Артамонова, Эмиль СалесПеревод: Не требуется (Русский, Лицензия BD GER)Субтитры: отсутствуют.Продолжительность: 01:26:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60FB4D650EED2D02EDCDA5B59B3DA9F4940FEECA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190232   (268028) от 09.12.2017
+
+Любимая (2017) WEB-DL [H.264/1080p-LQ] (серии 1-2 из 2)
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семен и Лена любили друг друга, но жизнь развела их в разные стороны. И к лучшему - так казалось Семену, пока он не увидел ее снова. Лена оказалась все такой же прекрасной, родной, но беременной от другого. Казалось бы, к прошлым отношениям нет возврата, особенно теперь, однако Семена тянет к бывшей возлюбленной как никогда. Жизнь Лены - сплошные тайны: она скрывает, (   Читать дальше...   )Производство: Россия / ТвинЖанр: МелодрамаРежиссер: Валерия ИвановскаяАктеры: Илья Ермолов, Юлия Кокрятская, Юлия Назаренко-Благая, Яна Крайнова, Александр Арсентьев, Серафима Низовская, Олег Филипчик, Владимир ЧуприковСубтитры: ОтсутствуютПродолжительность: ~00:46:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F979441A08276F9C8D65F1F8169A03833D531F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267191   (267619) от 05.12.2018
 
 Хвалебная речь Денису Кораблеву (2018) WEBRip [H.264/1080p-LQ]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267619.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266906.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266783.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266596.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265681.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265447.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265142.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264950.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264772.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264758.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264477.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264416.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264058.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263766.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263754.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263740.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263684.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263655.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263648.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263421.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263330.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263109.jpg" />
 </div>
 
 
@@ -566,112 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BE108D255653E2BB7F3976D35660915CF9A821D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192585   (263047) от 17.12.2017
-
-Артистка (2007) HDTVRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анна не очень удачлива в жизни, она работает в театре актрисой, но ей достаются всего лишь второстепенные незначительные роли, да к тому же и на личном фронте у неё не всё в порядке. Не сдаваться и пережить все неприятности доведённой до отчаяния женщине помогает её лучшая подруга, которая живёт с ней по соседству…Производство: Россия. ВертикальЖанр: Комедия, МелодрамаРежиссер: Станислав ГоворухинАктеры: Евгения Добровольская, Мария Аронова, Юрий Степанов, Александр Абдулов, Дмитрий Певцов, Михаил Ефремов, Фёдор Бондарчук, Ирина Скобцева, Светлана Немоляева, Кира Головко, Анжелика ВолчковаПродолжительность: 01:36:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C83DE7F7050E20D0793BC6E01389A88477C81D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192622   (262972) от 17.12.2017
-
-Время первых (2017) BDRip [H.264/1080p-LQ]
-
->>След.
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262972.jpg" />
-</div>
-
-
-###  Подробнее
-
-60-е. Разгар холодной войны. Две супердержавы, СССР и США бьются за первенство в космической гонке. Пока СССР впереди, на очереди — выход человека в открытый космос.
-За две недели до старта взрывается тестовый корабль. Времени на выявление причин нет. И пусть риски огромны, мы не можем уступить лидерство.
-Опытный военный летчик Павел Беляев и его напарник Алексей (   Читать дальше...   )Производство: Россия / Базелевс ПродакшнЖанр: приключения, триллерРежиссер: Дмитрий КиселёвАктеры: Евгений Миронов, Константин Хабенский, Владимир Ильин, Анатолий Котенёв, Александра Урсуляк, Елена Панова, Александр Новин, Марта Тимофеева, Геннадий Смирнов, Юрий НифонтовПеревод: Не требуется (Русский, Лицензия BD GER)Субтитры: ОтсутствуютПродолжительность: 02:16:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27564927C4AE21D8DB27C8C3B4AC4F8976FDF13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341284   (262544) от 27.11.2019
-
-Исходник (2019) WEB-DLRip [H.264/720p-LQ] [PR]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой фильма набивает на спор жуткую татуировку, и теперь загадочный человек с рисунка преследует его во снах и в реальности. В попытках избавиться от наваждения, герой, сам того не подозревая, отправляется туда, где самые страшные кошмары могут обернуться реальностью.Производство: Россия / CineFOGЖанр: Короткометражный, ужасыРежиссер: Иван Качалин, Маргарита КуклинаАктеры: Алексей Коряков, Михаил Тихонов, Анна Троянская, Мария Астрецова, Константин Анфилогов, Евгений ЮшинПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 00:17:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B129EDB4EE26C8DD31E0DE7C6FC5892F215B583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192984   (262441) от 19.12.2017
-
-Выше на этаж (2016) WEB-DLRip [H.264/720p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люди постоянно куда-то торопятся, не замечая друг друга. У каждого — свои проблемы, свои неотложные дела, своя жизнь. И вот, однажды, совершенно случайно, судьба сталкивает мужчину и женщину, которые вряд ли бы встретились, если бы не поломка лифта.Производство: РоссияЖанр: КороткометражныйРежиссер: Игорь ТрифАктеры: Юлия Пересильд, Владимир КошевойСубтитры: ОтсутствуютПродолжительность: 00:19:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F23D6CBF6BB1CEAC46D544FBADBB07E04301DF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1316558   (56180) от 18.05.2024
+
+BBC: Луи Теру. Разговоры с анорексией / Talking to Anorexia (2019) HDTVRip [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документалист Луи Теру пытается разобраться в сути анорексии, психического расстройства с самым высоким уровнем смертности. Луи посещает два крупнейших лондонских стационара для взрослых пациентов с расстройствами пищевого поведения, где он встречается с женщинами всех возрастов с разной степенью тяжести заболевания. Открывая для себя то, какую ужасающую власть имеет (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: Документальный, познавательный, исследованиеРежиссер: Эллена ВудУчастники: Луи Теру, Фрэнсис Коннан, Джеймс КеллиПеревод: Многоголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ECA597D10659403C796076086128EDF214129C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730562   (53048) от 17.06.2024
 
 BBC: Планета Земля 3 / Planet Earth III (2023) BDRip [H.264/1080p] (сезон 1, серии 1-8 из 8) Pazl Voice
@@ -6,7 +32,7 @@ BBC: Планета Земля 3 / Planet Earth III (2023) BDRip [H.264/1080p] (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53048.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ BBC. Истоки жизни (Первая жизнь с Дэвидом Атте
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49033.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ BBC: Конкорд. Гонка на сверхзвуковой скорости
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44906.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38760.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ BBC. История математики / The Story of Maths (2008) SATRip (4 �
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35467.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ BBC. Земля / Earth (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34859.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ BBC: В какой Вселенной мы находимся? / Which Universe 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33724.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ BBC: Солнечная система / Solar System (2024) BDRip [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32061.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ BBC: Секреты Рейха. Тайны нацизма / Secrets of World War
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32042.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31848.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ BBC. Древние державы / Ancient Powers (2023) WEB-DL [H.264/1080p] 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31125.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ BBC. Horizon: Сколько людей может жить на Земле? / H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30399.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ BBC. 1929: Великий крах / 1929: The Great Crash (2009) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30396.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ BBC: Нацизм - Предостережение истории / The Nazis: A
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30090.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30085.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ BBC: Апокалипсис динозавров / Dinosaur Apocalypse (2022) WE
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30070.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ BBC: Калигула. Что это было / Caligula with Mary Beard (2013) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29980.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ BBC: Грязные города / Filthy Cities (2011) HDTV [H.264/1080i] (се
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29951.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ BBC. Большой Барьерный риф с Дэвидом Аттенбор
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29876.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ BBC: Планета людей / BBC: Human planet (2011) BDRemux [H.264/1080p] 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29763.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ BBC. Космическая одиссея. Путешествие по гала
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29664.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29663.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ BBC. Отвага и предательство: Столетняя война /
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29642.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) BDRemux [H.26
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29639.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ BBC. Теории заговора. Вакцинные войны / Conspiracy F
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29566.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ BBC. Теории заговора. Вакцинные войны / Conspiracy F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0130C4CBC92FBE654D857DECE5654C0F2541AEE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243836   (29537) от 28.01.2025
-
-BBC: Аляска. Земли замёрзшего королевства / Alaska. Earth's Frozen Kingdom (2015) HDTVRip [H.264/720p-LQ] (Сезон 1, серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Её называют последней границей Америки. 500 тысяч квадратных миль пустыни. Это Аляска. Дом для самых выносливых животных планеты. Времена года на Аляске сменяются быстро и резко, а потому возможностей гораздо меньше, как для людей, так и для животных. “Выживание” здесь звучит так же серьёзно, как “золотая лихорадка”. Играйте по правилам – и сорвёте джек-пот. Ошибётесь (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: Документальный, природа, флора, фаунаРежиссер: Джейн Эткинс, Алекс ЛанчестерУчастники: Дугрей СкоттПеревод: Одноголосый закадровый, профессиональный (Viruse Project)Субтитры: отсутствуютПродолжительность: 3 x ~ 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30DC81333B1CE2289F2D4BE1C349A875C5E6DB5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

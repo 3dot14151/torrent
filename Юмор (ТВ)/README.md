@@ -1,4 +1,114 @@
 https://t.me/izofen
+###  Публикация: 1876489   (1073307) от 
+
+КВН-2026. Высшая лига. 1/4 финала. Игра третья (2026) WEBRip [H.264/1080p]
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третья игра игра одной четвертой финала сезона 2026 года Высшей лиги КВН.
+Играют команды: «Каракуз», Альметьевск; «Евразия», Челябинск; «Дэдди Мёрфи», Москва; «Леон Киллер», Камышлов.
+Конкурсы: Приветствие (Визитка), Разминка с жюри, СТЭМ, Музыкальный номер.Телекомпания: "Первый канал"Жанр: ЮморЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2493B241311E85D00DE9508B709C0DABC7DF8DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876432   (1073232) от 
+
+КВН-2026. Высшая лига. 1/4 финала. Игра четвертая (2026) WEBRip [H.264/720p]
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвертая игра игра одной четвертой финала сезона 2026 года Высшей лиги КВН.
+Играют команды: «Титаны», Санкт-Петербург; «СПИКЛ», Мытищи; «Сделано на Сахалине», Сахалинская область; «Агрофак», Ставропольский край.
+Конкурсы: Приветствие (Визитка), Разминка с жюри, СТЭМ, Музыкальный номер.Телекомпания: "Первый канал"Жанр: ЮморЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F41E0A651F08ABC86BC14EBB811A7397B7295C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876434   (1073231) от 
+
+КВН-2026. Высшая лига. 1/4 финала. Игра четвертая (2026) WEBRip [H.264/1080p]
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвертая игра игра одной четвертой финала сезона 2026 года Высшей лиги КВН.
+Играют команды: «Титаны», Санкт-Петербург; «СПИКЛ», Мытищи; «Сделано на Сахалине», Сахалинская область; «Агрофак», Ставропольский край.
+Конкурсы: Приветствие (Визитка), Разминка с жюри, СТЭМ, Музыкальный номер.Телекомпания: "Первый канал"Жанр: ЮморЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:632C4651B19F96ABE78AB766DA53F3CA07DC1EEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876320   (1073168) от 
+
+КВН-2026. Высшая лига. 1/4 финала, игра 4 (2026.06.13) SATRip
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН - это популярные юмористические игры, в которых команды различных коллективов (учебных заведений, вузов, предприятий и т. д.) соревнуются в импровизациях на заданные темы, разыгрывании заранее заготовленных сцен, остроумных ответах на вопросы и т. дТелекомпания: "Первый канал"Жанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28342DFEC59A09F9FB850EB43D4EED4C80E21B18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875307   (1072468) от 
 
 КВН-2026. Высшая лига. 1/4 финала. Игра третья (2026) WEBRip [H.264/720p]
@@ -7,7 +117,7 @@ https://t.me/izofen
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072468.jpg" />
 </div>
 
 
@@ -35,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072333.jpg" />
 </div>
 
 
@@ -61,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072320.jpg" />
 </div>
 
 
@@ -87,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071481.jpg" />
 </div>
 
 
@@ -113,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070918.jpg" />
 </div>
 
 
@@ -139,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070892.jpg" />
 </div>
 
 
@@ -165,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070886.jpg" />
 </div>
 
 
@@ -192,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069777.jpg" />
 </div>
 
 
@@ -218,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069740.jpg" />
 </div>
 
 
@@ -246,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069675.jpg" />
 </div>
 
 
@@ -274,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069585.jpg" />
 </div>
 
 
@@ -300,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068680.jpg" />
 </div>
 
 
@@ -326,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068524.jpg" />
 </div>
 
 
@@ -354,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068434.jpg" />
 </div>
 
 
@@ -380,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068165.jpg" />
 </div>
 
 
@@ -406,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068116.jpg" />
 </div>
 
 
@@ -434,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067766.jpg" />
 </div>
 
 
@@ -462,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067728.jpg" />
 </div>
 
 
@@ -488,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067524.jpg" />
 </div>
 
 
@@ -514,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067523.jpg" />
 </div>
 
 
@@ -540,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067261.jpg" />
 </div>
 
 
@@ -566,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066911.jpg" />
 </div>
 
 
@@ -577,110 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4780A3CC34223645191BE89D063C6F39CA107D8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867290   (1066682) от 24.04.2026
-
-Камеди Клаб / Комеди Клаб / Comedy Club (2026.04.24) SATRip
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066682.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Павел Воля, Гарик Харламов, Тимур Батрутдинов, Александр Ревва, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Марина Кравец и др.Субтитры: ОтсутствуютПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F746615E3050A4572E293781997AD7ECDA00117
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866000   (1065993) от 
-
-Кстати (2026) WEBRip [H.264/1080p] (сезон 1, выпуск 103)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сто третий выпуск шоу «Кстати» с Азаматом Харламовым. Дорох, возможно, скоро займёт место основного ведущего, пока придержим его. Гостями сто третьего выпуска стали: легендар – Ефим Шифрин; снова объединившиеся – Виталий Гогунский, Мария Кожевникова и Настасья Самбурская; первый ковбой из Самары – Игнатий Винтуров.Производство: Россия | VK ВидеоЖанр: Ток-шоу, комедия, музыкаРежиссер: Станислав ИльченкоУчастники: Ефим Шифрин, Виталий Гогунский, Мария Кожевникова и Настасья Самбурская, Игнатий ВинтуровЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:16:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:739180BF5B86E70483A2E14DEFAAAA1908684B40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865802   (1065479) от 17.04.2026
-
-Камеди Клаб / Комеди Клаб / Comedy Club (2026.04.17) SATRip
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065479.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Павел Воля, Гарик Харламов, Тимур Батрутдинов, Александр Ревва, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Марина Кравец и др.Субтитры: ОтсутствуютПродолжительность: 00:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49F4159CEAA48B521FB6D9E724E9896855A0F484
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864740   (1065109) от 
-
-Кстати (2026) WEBRip [H.264/1080p] (сезон 1, выпуск 102)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сто второй выпуск шоу «Кстати» с Азаматом Харламовым. Дорох и нейросетевое кино с собой получил и в настоящее кино его позвали сниматься, пока оставляем его. Гостями сто второго выпуска стали: редкий гость на интервью, а у нас как раз не интервью – Любовь Аксёнова; возможно он придёт еще раз, а может и нет – Раф; попытавшиеся не проспойлерить развязку своего триллера-детектива (   Читать дальше...   )Производство: Россия | VK ВидеоЖанр: Ток-шоу, комедия, музыкаРежиссер: Станислав ИльченкоУчастники: Любовь Аксёнова, SQWOZ BAB, Екатерина Волкова, Илья Куликов и Денис Васильев, РафЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:24:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE9260CD13B98E1FBDBF785190D80C39887F97E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

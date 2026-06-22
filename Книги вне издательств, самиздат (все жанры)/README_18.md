@@ -1,3 +1,81 @@
+###  Публикация: 1479754   (1009383) от 25.06.2021
+
+Павел Швецов | Оружейник (2020) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009383.jpg" />
+</div>
+
+
+###  Подробнее
+
+История попаданца в мир, где людей поработили волшебные существа. Герой оказывается заперт в теле человека, всю жизнь работающего на рудниках для гномов. Да ещё и попадание происходит в самый разгар жестокого допроса. Казалось бы, ситуация безнадёжная, но тут неожиданно активируется Система…Жанр: ЛитРПГ, Попаданцы, ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BE53E342B1B9ED523D51FA0F79164AD5B7F9E78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422327   (1009382) от 25.06.2021
+
+Олег Рыбаченко | Алиса Селезнева против Лукашенко (2020) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009382.jpg" />
+</div>
+
+
+###  Подробнее
+
+После фантастических приключений в далеком будущем Алиса Селезнева попадает в начало двадцать первого века. Она помогает свергнуть диктатуру Лукашенко и восстанавливает СССР. После возрождения советской империи Человечество ждет по-настоящему великое будущее. В котором сбываются все мечты. И масса красивых девчонок.Жанр: Юмористическая фантастика, ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AA58BF32D53A2CB6B287ABD72099763CAD335BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479841   (1009258) от 26.06.2021
+
+Владимир Абрамов | Жизнь сурка [2 книги] (2018 - 2021) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой, обычный автослесарь, житель славного города Волгограда, самый обычный рядовой человек, обнаруживает невероятную способность. Каждый раз, когда он умирает, его душа и разум возвращаются обратно во времени в третье июня двухтысячного года, как раз на следующий день после того, как герою исполнилось двадцать лет. Он раз за разом проживает жизнь заново.Жанр: Фантастика, Мистика, УжасыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B9C5FE97BA0A0385DC7A4CD1EB8BCC05CF452E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479963   (1009257) от 26.06.2021
 
 Егор Аянский | Манипулятор (2021) [FB2]
@@ -6,7 +84,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009257.jpg" />
 </div>
 
 
@@ -35,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009166.jpg" />
 </div>
 
 
@@ -61,7 +139,7 @@ nightmare_flying | Новая жизнь антигероем (2021) [FB2]
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009148.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009127.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009120.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009080.jpg" />
 </div>
 
 
@@ -168,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009029.jpg" />
 </div>
 
 
@@ -196,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008991.jpg" />
 </div>
 
 
@@ -222,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008958.jpg" />
 </div>
 
 
@@ -251,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008690.jpg" />
 </div>
 
 
@@ -277,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008285.jpg" />
 </div>
 
 
@@ -303,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008281.jpg" />
 </div>
 
 
@@ -332,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008276.jpg" />
 </div>
 
 
@@ -358,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008250.jpg" />
 </div>
 
 
@@ -385,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008138.jpg" />
 </div>
 
 
@@ -412,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008128.jpg" />
 </div>
 
 
@@ -439,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008119.jpg" />
 </div>
 
 
@@ -466,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008113.jpg" />
 </div>
 
 
@@ -493,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008096.jpg" />
 </div>
 
 
@@ -519,7 +597,7 @@ Shin Stark | «Подземелье и Уровни» [книги V-VIII] (2020 
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007973.jpg" />
 </div>
 
 
@@ -546,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007831.jpg" />
 </div>
 
 
@@ -574,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007822.jpg" />
 </div>
 
 
@@ -600,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007257.jpg" />
 </div>
 
 
@@ -611,91 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6C74B6F9F0FB21251496DDE5E85D45DAE110EF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410512   (1006554) от 15.07.2021
-
-Джон Голд | «Ключи от Пангеи» [8 книг] (2020-2021) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл: «Ключи от Пангеи». книги 1-8.
-
-История пробуждения Силы, что всегда была в крови людей. Рода, кланы, дворцы и могущественные Императоры. Ключи от Пангеи - это книга-история о РеалРПГ, в которой есть монстры живущие среди людей. Изнанка мира, Бездна, пришлые твари и иномиряне, действующие в своих интересах. Вы читаете первые строки эпопеи о Системе, которая (   Читать дальше...   )Жанр: Боевая фантастика, Социальная фантастика, ЛитРПГ, Альтернативная историяФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4096D0923DCCC6090520E66BA3A5CB5DEA64CFAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410057   (1005982) от 20.07.2021
-
-Артем Кочеровский | «Приёмный» [2 книги] (2020-2021) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл: «Приёмный». книги 1-2.
-
-Судьба была неблагосклонна к нему с самого детства. Отказ родителей, жизнь в интернате, жестокость детей и быстрое взросление. Ему исполнилось двенадцать. Ритуал Высвобождения энергии подарил детям энергию и способности, а ему - болезнь и клеймо в виде унизительного прозвища.
-(   Читать дальше...   )Жанр: Боевое фэнтези, Городское фэнтези, Эпическое фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9182732EB3E810DBC9F9EB612E5F6150DE03E0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486550   (1004707) от 31.07.2021
-
-Илья Романов | Шаг в Неизвестность (2021) [FB2, EPUB]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая книга нового цикла "Шаг в неизвестность"
-
-Эта история о юноше который потерял всё. Родителей, жизнь и судьбу. Но что если Алекс Росс получит второй шанс, как он им воспользуется? Вновь станет оружием в которое его превратили или же выберет другой путь? Одно известно точно, для того чтобы ответить на этот вопрос, ему нужно сделать Шаг в Неизвестность...Жанр: Боевое фэнтезиФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D259E665A46C4645867E644D76819ECCF3F5E6AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

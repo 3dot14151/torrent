@@ -1,3 +1,107 @@
+###  Публикация: 983415   (944043) от 06.02.2016
+
+В центре событий с Анной Прохоровой (05.02.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944043.jpg" />
+</div>
+
+
+###  Подробнее
+
+"В центре событий" о том, что действительно важно: 1. Мятежная земля. Маленькая Бавария против большой Европы. 2. Не первый. Стал ли Дональд Трамп жертвой избирательных технологий? 3. "Могучая кучка" как угроза национальной безопасности. До чего доходит антирусская истерия на Украине?Телекомпания: ТВ-ЦентрЖанр: ТелепередачаПродолжительность: 00:53:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4609DED845A7C59E8C7A57EAE00E1F4DBC6F7DAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983365   (943950) от 06.02.2016
+
+Геоэкономика (04.02.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цены на нефть в конце этого года могут вырасти на 50 процентов по сравнению с текущими котировками из-за сокращения предложения и роста спроса. Так полагают аналитики, опрошенные агентством Bloomberg.Телекомпания: Россия 24Жанр: ТелепередачаПродолжительность: 00:11:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E195904E50B8A53351B3EAF77702EB2A096061F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983398   (943943) от 06.02.2016
+
+В теме. Теория большого слива (04.02.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джулиана Ассанжа лишили свободы незаконно и должны немедленно освободить. К такому выводу пришла Организация объединенных нацийТелекомпания: Москва 24Жанр: ДокументальныйПродолжительность: 00:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC5020D250BAE452E90CC36B07843C31FE309410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983601   (943942) от 06.02.2016
+
+Формула власти. премьер-министр Индии Нарендра Моди (06.02.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наш рассказ о традиционно добрых отношениях Индии и России, которые охватывают все области, включая оборонную промышленность, о дружеских отношениях президента Путина и Нарендра Моди, о пути Моди к вершинам власти, его экономических и социальных реформах Индии.Телекомпания: Россия 24Жанр: ТелепередачаПродолжительность: 00:23:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46D355269E07C47CBBA1E41A3B7727EAF97F5FB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983400   (943875) от 06.02.2016
 
 В теме. Нефть без ОПЕКи (05.02.2016) SATRip
@@ -6,7 +110,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943875.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943770.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943683.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943338.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942381.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942374.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942372.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942356.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942195.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940916.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940838.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940634.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940627.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940613.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940325.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940305.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940281.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940162.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939629.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939403.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939381.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939024.jpg" />
 </div>
 
 
@@ -567,110 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E9123A7873DDB5CEFD51403B0B05AC2AA507F7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984558   (939023) от 09.02.2016
-
-Геоэкономика (08.02.2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эпидемии различных заболеваний в мире становятся глобальным фактором, который имеет значительный экономический эффект. В целом для экономики, конечно, отрицательный, однако некоторые на этом неплохо зарабатывают, подогревая естественные страхи людей. В последние два года информация об эпидемиях напоминает PR-кампанию, главными бенефициарами которой являются фармацевтические (   Читать дальше...   )Телекомпания: Россия 24Жанр: ТелепередачаПродолжительность: 00:19:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:599421AF2F4682AA698B1603CAAF073791934704
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984593   (939008) от 09.02.2016
-
-Познавательный фильм. Восстание машин (2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как рождаются роботы, и где можно научиться их строить? Где уже в мегаполисе есть роботы, и как быстро они войдут в нашу повседневную жизнь? Смогут ли роботы полностью заменить нас, и как быстро это произойдет? Если всю работу будут выполнять роботы, то чем будет заниматься человек? Как измениться наша функция в обществе? Кто гарантирует, что роботы не займут доминирующую (   Читать дальше...   )Телекомпания: Россия, ТК "МОСКВА 24"Жанр: Документальный, ТелепередачаПродолжительность: 00:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AB4AFE64B5A968DC90060FA36896BDFD93B7E3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984475   (938578) от 09.02.2016
-
-Времена Донбасса / Le Stagioni Del Donbass (2016) WEB-DLRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм итальянского режиссера Сары Реджинелли. Фильм содержит комментарии итальянских журналистов, работавших на Донбассе а также видео событий на майдане и конфликта на Донбассе. В нём содержатся интервью с Николаем Лилиным, Элизео Бертолази и Вауро Сенези, с видео репортажами из фильмов репортеров Элизео Бертолази и Сергея Рулева. Режиссер Сара Реджинелла (   Читать дальше...   )Производство: Италия, Art Pope, Sara Reginella Video ProjectsЖанр: ДокументальныйРежиссер: Сара РеджинеллаПеревод: Одноголосый закадровый, любительский (Patsan.TV)Продолжительность: 00:59:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B56FA24B4664262CF2A1921B60AE23F78C26A191
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984783   (938484) от 09.02.2016
-
-Вести.Doc с Ольгой Скабеевой. Донецк глазами американца (09.02.2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый информационно-документальный проект - это не просто политическое ток-шоу. "Вести.doc" - это возможность увидеть самые громкие документальные премьеры - в первую очередь качественный продукт. В программе сенсационные расследования и вдумчивый анализ событий.Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 02:17:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1A416DA30F2C061354B502C5698B6302E007FC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

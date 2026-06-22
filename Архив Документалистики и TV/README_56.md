@@ -1,3 +1,32 @@
+###  Публикация: 1107392   (868327) от 22.02.2017
+
+Футбол. Лига Чемпионов УЕФА 2016-2017. 1/8 финала. 1-й матч. Манчестер Сити (Англия) – Монако (Монако) (21.02.2017) HDTVRip [H.264/720p-LQ][hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868327.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 февраля 2017, вторник. 22:45 МСК
+Лига Чемпионов УЕФА 2016-2017. Плей-офф
+1/8 финала. 1-й матч
+(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C45FACF749C5F5F3DC78BC2C5129C7D00802390C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998836   (868077) от 20.03.2016
 
 Смешанные единоборства. UFC Fight Night 85: Hunt vs. Mir. (19.03.2016) WEB-DL [H.264/720p-LQ] [EN]
@@ -6,7 +35,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868077.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867978.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867128.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866767.jpg" />
 </div>
 
 
@@ -113,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866744.jpg" />
 </div>
 
 
@@ -142,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866741.jpg" />
 </div>
 
 
@@ -171,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866738.jpg" />
 </div>
 
 
@@ -200,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866737.jpg" />
 </div>
 
 
@@ -229,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866735.jpg" />
 </div>
 
 
@@ -258,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866734.jpg" />
 </div>
 
 
@@ -287,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866733.jpg" />
 </div>
 
 
@@ -316,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866732.jpg" />
 </div>
 
 
@@ -345,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866731.jpg" />
 </div>
 
 
@@ -374,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866730.jpg" />
 </div>
 
 
@@ -403,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866729.jpg" />
 </div>
 
 
@@ -432,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866699.jpg" />
 </div>
 
 
@@ -458,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866588.jpg" />
 </div>
 
 
@@ -487,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866586.jpg" />
 </div>
 
 
@@ -516,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866584.jpg" />
 </div>
 
 
@@ -545,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866571.jpg" />
 </div>
 
 
@@ -574,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866506.jpg" />
 </div>
 
 
@@ -600,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866490.jpg" />
 </div>
 
 
@@ -629,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866481.jpg" />
 </div>
 
 
@@ -658,7 +687,7 @@ Monster Energy NASCAR Cup Series 2017 / The Clash / Daytona / Гонка /  (201
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866360.jpg" />
 </div>
 
 
@@ -684,7 +713,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866358.jpg" />
 </div>
 
 
@@ -697,33 +726,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A8D4DEAEF5054B0599F1A237192C090AD731CC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 841456   (865820) от 21.03.2016
-
-HDScape: Серенити. Южные моря / HDScape: Serenity. Southern Seas (2005) BDRip [H.264/720p]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волны, лениво набегающие на берег... Морская вода и пена, то накатывающая, то уходящая обратно в море... Шум прибоя и крики чаек... Огромная луна над ночным морем, лунная дорожка в отблеске находящихся в постоянном движении волн...
-Смотрите это морское великолепие под прекрасную музыку композитора Терри Олдфилда.Жанр: Документальный, релаксПеревод: Не требуется (музыкальное сопровождение)Продолжительность: 00:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F04123BD710D4176370CB9EA53839F85048BD4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

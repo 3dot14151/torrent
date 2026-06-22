@@ -1,3 +1,55 @@
+###  Публикация: 1710089   (61738) от 26.03.2024
+
+Tchia (2024) [Ru/Multi] (1.0/dlc) Repack dixen18
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tchia сама по себе воспринимается как легкая прогулка. Здесь, пользователи оказываются на тропическом архипелаге, где им предстоит перейти в образ маленькой девочки. Она ничем не отличается от других местных жителей, но в действительности у неё есть одна уникальная способность. Навык заключается в том, чтобы перенестись внутрь любого животного или неодушевленного (   Читать дальше...   )Тип издания: RepackРазработчик: AwacebЖанр: Экшены, Приключенческие игрыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC56CA515BE5AAC4F54C92C161F88E917500BA61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710700   (61649) от 27.03.2024
+
+South Park: Snow Day! (2024) [Multi] (13796757/dlc) Scene Fairlight
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61649.jpg" />
+</div>
+
+
+###  Подробнее
+
+South Park: Snow Day! перенесет вас в хаотичный, заснеженный мир Южного парка в роли Нового ребенка. Это снежный день, самый волшебный день для любого ребенка, но снежная буря стала причиной не только закрытия школы. Объединитесь со знакомыми лицами Картмана, Стэна, Кайла и Кенни в совершенно новом, полностью 3D-приключении.Тип издания: SceneРазработчик: QuestionЖанр: Экшены, ПриключенияЯзык озвучки: Английский, Французский, Немецкий, ПортугальскийЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11E92F78032E77306AC5BB8ECFB39985822C3571
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1710665   (61629) от 27.03.2024
 
 South Park: Snow Day! (2024) [Multi] (13796757/dlc) Repack dixen18
@@ -6,7 +58,7 @@ South Park: Snow Day! (2024) [Multi] (13796757/dlc) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61629.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Raw Metal (2024) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61538.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ ONE PIECE: PIRATE WARRIORS 4 (2020) [Ru/Multi] (1.0.8.0/dlc) Scene Rune [Deluxe 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61440.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ STAR WARS: Battlefront Classic Collection (2024) [Ru/Multi] (20240319/dlc) Repac
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61367.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Llamasoft: The Jeff Minter Story (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61304.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ PJ Masks Power Heroes: Mighty Alliance (2024) [Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61273.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ War Tortoise (2024) [Ru/Multi] (10000) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60530.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Llamasoft: The Jeff Minter Story (2024) [Multi] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60472.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Shadow Strikers (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60160.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ South Park: Snow Day! (2024) [Multi] (70374/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60061.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Death Noodle Delivery (2024) [Ru/Multi] (3.2.8) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59537.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Fights in Tight Spaces (2021) [Ru/Multi] (1.2.9501/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59158.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Goons: Legends & Mayhem (2024) [Multi] (1.0.0.7) Repack FitGirl [Digital Deluxe]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59098.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Battle Planet - Judgement Day (2019) [Multi] (1.7.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58891.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Omega Mouse Zero (2024) [En] (1.0) Scene TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58880.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ UFO Robot Grendizer - The Feast of the Wolves (2023) [Ru/Multi] (27.0.12191/dlc)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58851.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Buccaneers! (2022) [Ru/Multi] (1.1.01) License GOG [VR]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58732.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Teenage Mutant Ninja Turtles Arcade: Wrath of the Mutants (2024) [Multi] (1.0) S
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58713.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Jazz Jackrabbit (1994) [En] (2.0_csv2_patch_2/dlc) License GOG [Collection]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58580.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Strayed Lights (2023) [Ru/Multi] (1.4.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58399.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Teenage Mutant Ninja Turtles Arcade: Wrath of the Mutants (2024) [Multi] (1.0) R
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58383.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Trailmakers (2019) [Ru/Multi] (1.8/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58288.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Project MIKHAIL: A Muv-Luv War Story (2024) [Multi] (1.0000.5178) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58091.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Wild Card Football (2023) [Multi] (20240423/dlc) Scene Tenoke [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57980.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Wild Card Football - это веселый и простой аркадный с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B24B2E263925199FE96BD63E5E777F69672CD698
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722404   (56943) от 11.05.2024
-
-MEGATON MUSASHI W: WIRED (2024) [Multi] (3.0.2/dlc) Repack FitGirl [Deluxe Edition]
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56943.jpg" />
-</div>
-
-
-###  Подробнее
-
-MEGATON MUSASHI W: WIRED бросает вас в кабину гигантского робота в борьбе за выживание человечества. Земля находится под оккупацией инопланетян, и вам предстоит управлять настраиваемым мехом под названием Rogue, чтобы вернуть ее обратно. Игра предлагает глубокую однопользовательскую кампанию. Вы будете играть за молодого пилота, которому доверили мощный Rogue. Сюжет (   Читать дальше...   )Тип издания: RepackРазработчик: LEVEL5 Inc.Жанр: Экшены, Ролевые игрыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E06025633F0BAA990FF849EDEFF7AF9EDC04BB73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722394   (56921) от 11.05.2024
-
-Ira (2023) [Multi] (1.0.10) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56921.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Ira игроки берут на себя роль Ён, бесстрашной молодой девушки, которая отправляется в героический поиск, чтобы противостоять безжалостным силам Хаоса. Игрокам, вооруженным мощными способностями древнего бога и ее верных апостолов, поручена важнейшая миссия: вернуть разбросанные фрагменты грозного кристалла Ира. Восстановление этого кристалла - единственный способ (   Читать дальше...   )Тип издания: LicenseРазработчик: ABShotЖанр: Шутеры, ЭкшныЯзык субтитров: Английский, Корейский, ЯпонскийЯзык интерфейса: Английский, Корейский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA0EE169B8EB5C72B799D0A6D1F2AE3D5F9F3E86
 ```
 
 https://mybot314.ru/tekegram_catalog/

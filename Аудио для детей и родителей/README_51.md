@@ -1,3 +1,59 @@
+###  Публикация: 1404499   (493223) от 25.08.2020
+
+Андрей Усачёв, Алёша Дмитриев | О чем шумели шумеры. Древняя история (2017) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493223.jpg" />
+</div>
+
+
+###  Подробнее
+
+ЧЁМ ШУМЕЛИ ШУМЕРЫ. Древняя история
+Это вторая книга из серии «Уроки Истории», которую я написал в соавторстве со своим другом Алешей Дмитриевым. Для чего мы ее написали? Возможно, подсознательно, хотели снять исторических персонажей с котурнов, на которых они никогда и не ходили. Если поставить памятник на высокий постамент, от этого памятник станет выше, а человек (   Читать дальше...   )Жанр: Детская познавательная и развивающая литератураРежиссер: Дмитрий КреминскийПродолжительность: 03:25:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43281EE94F2E38D64D1A842AAC63C2F83327921F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 382673   (493061) от 01.09.2011
+
+VA - Песни для детей из кинофильмов (2007) [MP3|320 kbps]<Детские песенки>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493061.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Песенка о шпаге (E. Крылатов - Ю. Энтин) из к/ф "Достояние республики"
+2.	Вместе весело шагать (В. Шаинский - М. Матусовский) из к/ф "И снова Анискин"
+3.	Мария-Мирабелла (Е. Дога - Г. Виеру) из к/ф "Мария-Мирабелло"
+4.	Лесной олень (Е. Крылатов - Ю. Энтин) из к/ф "Ох, уж эта Настя"(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 01:00:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:814EEFAE5BE52ECEA50295090C6DD59B7E9D956C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318659   (492719) от 07.08.2019
 
 Владислав Крапивин | Прыгалка (2019) [MP3]
@@ -6,7 +62,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492719.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492453.jpg" />
 </div>
 
 
@@ -60,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492449.jpg" />
 </div>
 
 
@@ -86,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491013.jpg" />
 </div>
 
 
@@ -113,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_490952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_490952.jpg" />
 </div>
 
 
@@ -139,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490946.jpg" />
 </div>
 
 
@@ -165,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490894.jpg" />
 </div>
 
 
@@ -194,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490892.jpg" />
 </div>
 
 
@@ -221,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490758.jpg" />
 </div>
 
 
@@ -250,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490430.jpg" />
 </div>
 
 
@@ -276,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489753.jpg" />
 </div>
 
 
@@ -303,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489077.jpg" />
 </div>
 
 
@@ -335,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489049.jpg" />
 </div>
 
 
@@ -362,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488722.jpg" />
 </div>
 
 
@@ -388,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488369.jpg" />
 </div>
 
 
@@ -414,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487519.jpg" />
 </div>
 
 
@@ -440,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487386.jpg" />
 </div>
 
 
@@ -466,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487273.jpg" />
 </div>
 
 
@@ -492,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486857.jpg" />
 </div>
 
 
@@ -520,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486852.jpg" />
 </div>
 
 
@@ -546,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486804.jpg" />
 </div>
 
 
@@ -572,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486788.jpg" />
 </div>
 
 
@@ -598,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485708.jpg" />
 </div>
 
 
@@ -625,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485692.jpg" />
 </div>
 
 
@@ -636,64 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41B2A652B334A140AE9855F3B7C2F49EFDD2BCF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 384411   (485425) от 05.09.2011
-
-Fatcat & Fishface - Meanie (2007) [MP3|192 kbps]<Детские песенки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485425.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Fret Not
-2. Fat-a-Cat
-3. We All Are Animals
-4. Una Momento(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 00:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A230D695CA9CC72A368FBA84E025C62CD2F116DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 384393   (485122) от 05.09.2011
-
-VA - Hey! Hey! Big songs for little people (2007) [MP3|128 kbps]<Детские песенки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bob The Builder - Can We Fix It
-02. Thomas The Tank Engine & Friends - Theme
-03. LazyTown - Welcome To LazyTown (Theme)
-04. Balimory - Theme(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 00:58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB32A0E17F88D66256AE1797AA582B285ADF5964
 ```
 
 https://mybot314.ru/tekegram_catalog/

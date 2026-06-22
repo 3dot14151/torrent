@@ -6,7 +6,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066107.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066044.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065852.jpg" />
 </div>
 
 
@@ -80,6 +80,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865240   (1065656) от 16.04.2026
+
+Л.В. Авдеев, П.Б. Иванов | Математическая модель восприятия звукорядов [2] (1990, 1993) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1065656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Математическая модель формирования шкал в процессе восприятия - препринт и основная публикация. Для тех, кто интересуется нетривиальными приложениями математики, с привлечением квантовомеханических и психологических идей. Звукоряд не просто набор нот - это иерархия, которая может в каждом конкретном обращении выявлять очень разные структуры. Не всякий звук может (   Читать дальше...   )Жанр: наукаЯзык: русский, английскийИздательство: ОИЯИФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D025C53949A61DAA71503937A401103E71E8C81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865226   (1065349) от 14.04.2026
 
 Б.В. Шабат | Введение в комплексный анализ (1976) [DJVU]
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065349.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065348.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065347.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065346.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065322.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063902.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063901.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063880.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063077.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063076.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062993.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062771.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062182.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062178.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062172.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062170.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061775.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061767.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061765.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061350.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061245.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061056.jpg" />
 </div>
 
 
@@ -653,34 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:249DDB8B920DE238EE8A1292C5870B0FCADEA77B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859055   (1060906) от 14.03.2026
-
-В.Ю. Арьков | Анализ рядов динамики в электронных таблицах. Учебное пособие (2020) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060906.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данной работе мы рассмотрим раздел «Динамика». Здесь изучают данные, привязанные ко времени. Мы будем опираться на две предыдущие работы: «Анализ распределения (Сводка и группировка)» и «Анализ взаимосвязи (Корреляция и регрессия)».
-Работа выполняется в пакете типа электронных таблиц.
-Как и в предыдущих работах, вначале мы сгенерируем случайные числа и поиграем (   Читать дальше...   )Жанр: Математика, Excel, Google ТаблицыИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:033C9C22C6D93843939525A583ECAF41CE40360D
 ```
 
 https://mybot314.ru/tekegram_catalog/

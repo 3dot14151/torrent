@@ -1,3 +1,89 @@
+###  Публикация: 977738   (965539) от 21.01.2016
+
+Henry Jackman - The 5th Wave / 5-я Волна  (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (02:00)
+02. Tsunami (02:37)
+03. Aftermath (02:41)
+04. Wright Patterson (01:16)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:53:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E1B2DD5BC0045A0CF3EA849B6516CF96FF663E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359772   (963273) от 13.02.2020
+
+Crispin Merrell - Машина смерти / Death Machine (1994) 2015 [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hardman Diner
+02. Death Machine Title Sequence
+03. Dante's Lair
+04. Shark Attack?(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:18:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8071A60B30F11B6E29AE8E977117DF159C51CF57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978366   (962293) от 24.01.2016
+
+Huey Lewis & The News - The Power of Love / Back to the future (1985) [MP3|320 кб/с] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Power Of Love (Jellybean Remix)
+02. The Power Of Love (Instrumental)
+03. The Power Of Love (Album Version)Жанр: SoundtrackПродолжительность: 00:15:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7D874007D18CCA92BD5A450ABAAAFE42681A91D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360043   (961889) от 14.02.2020
 
 Daniel Pemberton - Birds of Prey / Хищные птицы: Потрясающая история Харли Квинн (Original Motion Picture Score) (2020) [MP3|320 кб/с]<Soundtrack, Score>
@@ -6,7 +92,7 @@ Daniel Pemberton - Birds of Prey / Хищные птицы: Потрясающа
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961889.jpg" />
 </div>
 
 
@@ -35,7 +121,7 @@ Steve Jablonsky - Bloodshot / Бладшот (Original Motion Picture Score) (20
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961887.jpg" />
 </div>
 
 
@@ -64,7 +150,7 @@ Bear McCreary - Остров фантазий  / Blumhouse's Fantasy Island (Ori
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961885.jpg" />
 </div>
 
 
@@ -93,7 +179,7 @@ Tom Holkenborg - Sonic the Hedgehog / Соник в кино (Music from the Mot
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961792.jpg" />
 </div>
 
 
@@ -122,7 +208,7 @@ Hacknet - Soundtrack (2015) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959460.jpg" />
 </div>
 
 
@@ -151,7 +237,7 @@ Portal - Soundtrack (2014) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959446.jpg" />
 </div>
 
 
@@ -180,7 +266,7 @@ Portal 2 - Soundtrack (2011) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959330.jpg" />
 </div>
 
 
@@ -209,7 +295,7 @@ Chris Benstead - The Gentlemen / Джентльмены (Original Motion Picture
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959290.jpg" />
 </div>
 
 
@@ -238,7 +324,7 @@ Frost Orb - Dead Bits Soundtrack (2013) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958133.jpg" />
 </div>
 
 
@@ -267,7 +353,7 @@ Nathan Johnson - Knives Out / Достать ножи (Original Motion Picture S
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956605.jpg" />
 </div>
 
 
@@ -296,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956549.jpg" />
 </div>
 
 
@@ -331,7 +417,7 @@ Andrew Lockington - The Kindness of Strangers / Реальная любовь в
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955810.jpg" />
 </div>
 
 
@@ -360,7 +446,7 @@ Abel Korzeniowski - Nocturnal Animals / Под покровом ночи (Origin
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953612.jpg" />
 </div>
 
 
@@ -389,7 +475,7 @@ Danny Elfman - The Girl on the Train / Девушка в поезде (Original 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951904.jpg" />
 </div>
 
 
@@ -418,7 +504,7 @@ VA - Ла-Ла Ленд / La La Land (Original Motion Picture Score) (2016) [MP3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951712.jpg" />
 </div>
 
 
@@ -447,7 +533,7 @@ VA - Ла-Ла Ленд / La La Land (Original Motion Picture Soundtrack) (2016)
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951610.jpg" />
 </div>
 
 
@@ -476,7 +562,7 @@ VA - Лёд 2 (саундтрек к фильму) (2020) [MP3|320 Kbps] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950715.jpg" />
 </div>
 
 
@@ -505,7 +591,7 @@ Alan Silvestri - Allied / Союзники (Music from the Motion Picture) (2016
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950492.jpg" />
 </div>
 
 
@@ -534,7 +620,7 @@ VA, Joby Talbot - Sing / Зверопой: Original Score + Original Soundtrack 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950141.jpg" />
 </div>
 
 
@@ -563,7 +649,7 @@ Chad Rehmann - Camp Cold Brook (Original Motion Picture Soundtrack) (2020) [MP3|
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949677.jpg" />
 </div>
 
 
@@ -592,7 +678,7 @@ Gabriel Garrido Garcia - Etherborn (Original Game Soundtrack) (2020) [MP3|320 к
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949667.jpg" />
 </div>
 
 
@@ -621,7 +707,7 @@ Navid Hejazi - Mah (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949611.jpg" />
 </div>
 
 
@@ -650,7 +736,7 @@ Volker Bertelmann - Downhill / Под откос (Original Motion Picture Soundt
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949607.jpg" />
 </div>
 
 
@@ -664,93 +750,6 @@ Volker Bertelmann - Downhill / Под откос (Original Motion Picture Soundt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:518A2784B6F9997ABCE67ADE2C4AE1C0C745C134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362469   (949562) от 23.02.2020
-
-Nathan Whitehead - Days Gone (Original Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949562.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:41| 01. Days Gone
-|03:36| 02. The Freakshow
-|03:36| 03. We've All Done Things
-|03:07| 04. Rest in Peace(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F04830CAE3EDC15EA4A6D0F2107A86AAE34E456E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362271   (949552) от 23.02.2020
-
-John Powell - The Call of the Wild / Зов предков (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949552.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:37| 01. Wake the Girls
-|04:02| 02. Train North
-|02:31| 03. Skagway, Alaska
-|01:25| 04. Snowy Climb(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32C901D57BEC474EA9C5CB8BD649F47C7DAF2E5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088737   (948836) от 05.01.2017
-
-NBA 2K17 - Soundtrack (2016) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Party Next Door feat. Drake - Come and See Me (3:56)
-02.Drake - Hype (3:30)
-03.Drake - Pop Style (3:30)
-04.Majid Jordan - Every Step Every Way (3:35)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:33:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B5F112D82B21A6C0A861C92D2AF9E2508299C38
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,113 @@
+###  Публикация: 1418471   (348969) от 24.10.2020
+
+Ample Sound Ample Guitar Stratocaster v3.2.0 [En]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ample Sound Ample Guitar Stratocaster  - цель - принести звук акустической гитары Fender Stratocaster 50th Anniversary в вашу студию.Тип издания: macOS SoftwareРелиз состоялся: 30.09.2020Разработчик: Ample Sound Co., LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1442360AF478697883E0FBB018CB91E9C9827B67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179297   (348484) от 31.10.2017
+
+Adobe Bridge CC 2018 v8 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bridge CC. Централизованная работа с материалами
+Adobe Bridge — программа для всех, кто сталкивается в своей деятельности с необходимостью работать с графическими файлами в больших количествах.
+
+Bridge CC предоставляет централизованный доступ ко всем файлам и ресурсам, которые необходимы для работы над творческими проектами. Систематизация индивидуальных и общих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18 октября 2017Разработчик: AdobeПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Украинский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:349BF67D2C778D3E576F0E7B8A8BEBF49532C14B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257099   (347619) от 25.10.2018
+
+Mirror for Samsung TV 3.2.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отображение экрана для телевизоров Samsung
+Приложения для зеркального отображения экрана вашего Мака на любом Смарт-ТВ Samsung. Никаких проводов и дополнительных аппаратных средств не требуется!
+
+Приложение работает на любой модели Смарт-ТВ Samsung с 2012 и позже.Тип издания: macOS SoftwareРелиз состоялся: 23.10.2018Разработчик: AirBeamTV BVПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B32AAE781B131EA35085D64779B363B1368442A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257068   (347202) от 25.10.2018
+
+Movavi Video Editor Plus 15.0.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вам нужно больше инструментов для создания фильмов, скачайте Movavi Видеоредактор Плюс. В этой программе есть все функции обычного Видеоредактора, а также новые дополнительные возможности – например, анимация объектов. Попробуйте программу прямо сейчас!Тип издания: macOS SoftwareРелиз состоялся: 19.10.2018Разработчик: Movavi Software, Ltd.Поддерживаемая ОС: macOS 10.7 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E399A5E37E8F3438F73DE8194C1E423D4E4DED0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418664   (346545) от 25.10.2020
 
 Wondershare PDFelement Pro 7.6.5 [Multi/Ru]
@@ -6,7 +116,7 @@ Wondershare PDFelement Pro 7.6.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346545.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ Hot Door CADtools 11 for Adobe Illustrator 11.1.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346328.jpg" />
 </div>
 
 
@@ -58,7 +168,7 @@ Tenorshare iCareFone 7.1.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346136.jpg" />
 </div>
 
 
@@ -86,7 +196,7 @@ SkyLab Studio 2.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345658.jpg" />
 </div>
 
 
@@ -115,7 +225,7 @@ Mac VideoRipper Pro 1.0.8 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345652.jpg" />
 </div>
 
 
@@ -143,7 +253,7 @@ Direct Message for Instagram Pro 4.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345482.jpg" />
 </div>
 
 
@@ -169,7 +279,7 @@ Drama 2.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344705.jpg" />
 </div>
 
 
@@ -195,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344595.jpg" />
 </div>
 
 
@@ -221,7 +331,7 @@ Commander One PRO Pack 2 v2.5.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344418.jpg" />
 </div>
 
 
@@ -250,7 +360,7 @@ Hider 2 v2.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344331.jpg" />
 </div>
 
 
@@ -278,7 +388,7 @@ CorelDRAW Graphics Suite 2020 v22.1.0.517 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343711.jpg" />
 </div>
 
 
@@ -304,7 +414,7 @@ Motion 5.4.4 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343277.jpg" />
 </div>
 
 
@@ -330,7 +440,7 @@ Delineato Pro 1.2.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342839.jpg" />
 </div>
 
 
@@ -359,7 +469,7 @@ Chrono Plus – Time Tracker & Timesheet with Billing 1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342824.jpg" />
 </div>
 
 
@@ -385,7 +495,7 @@ Timing 1.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342670.jpg" />
 </div>
 
 
@@ -412,7 +522,7 @@ Pro Paint 3.5.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342656.jpg" />
 </div>
 
 
@@ -438,7 +548,7 @@ ShottyBlur 1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342303.jpg" />
 </div>
 
 
@@ -466,7 +576,7 @@ JixiPix Spektrel Art 1.1.9 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342198.jpg" />
 </div>
 
 
@@ -492,7 +602,7 @@ JixiPix Hand Tint Pro 1.0.16 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342197.jpg" />
 </div>
 
 
@@ -518,7 +628,7 @@ JixiPix PuzziPix Pro 1.0.13 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342196.jpg" />
 </div>
 
 
@@ -544,7 +654,7 @@ Malwarebytes for Mac Premium 3.1.1.505 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342078.jpg" />
 </div>
 
 
@@ -572,7 +682,7 @@ Topaz Plugins Bundle (17.11.2016) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341992.jpg" />
 </div>
 
 
@@ -583,114 +693,6 @@ Topaz Bundle — это набор плагинов от известной ко
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9D10F7FDEAB3469612E7BEDEA7D6ED7EFDA64B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419158   (341919) от 27.10.2020
-
-Amphetamine 5.0.3 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Amphetamine, самое потрясающее приложение для «бодрствования», когда-либо созданное для macOS. Амфетамин может удерживать ваш Mac и, при необходимости, его дисплей (ы), активными с помощью простого переключателя включения / выключения или автоматически с помощью не сложных настроек триггеров. Амфетамин чрезвычайно эффективен и включает расширенные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.08.2020Разработчик: William GustafsonПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E391BFEF371C6C299D37CAF0A224367DE3858340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419203   (341863) от 27.10.2020
-
-Ample Sound Ample Guitar Twelve v3.3.0 [En]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ample Guitar Twelve - цель - принести звук 12-струнной гитары Taylor 956 CE в вашу студию.Тип издания: macOS SoftwareРелиз состоялся: 26.10.2020Разработчик: Ample Sound Co., LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E588F6DF184CB2E02B0407C1988ACF20298CD32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180319   (341845) от 03.11.2017
-
-Capture One Pro 10 v10.2.1.39 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341845.jpg" />
-</div>
-
-
-###  Подробнее
-
-Capture One Pro один из самых мощных профессиональных конверторов цифровых фотографий в формате RAW с поддержкой широкого модельного ряда современных фотокамер. Программа позволяет в одиночном и пакетном режимах конвертировать "на лету" файлы в полноразмерный TIFF (RGB / CMYK) и JPG форматы, корректировать баланс белого, эффективно обрабатывать "пересвеченные" (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03 ноября 2017Разработчик: Phase OneПоддерживаемая ОС: macOS 10.11.6 +Язык интерфейса: Русский, Английский, Немецкий и др.
-* язык интерфейса программы зависит от дефолтного языка операционной системы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B6C4C62CA3182F19AD5E84DD32B660828C6F839
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180224   (341841) от 03.11.2017
-
-Affinity Designer 1.6 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Affinity Designer - векторный редактор
-Affinity Designer является самым быстрым, плавным, самым точным векторным графическим редактором. Работаете ли вы над графикой для маркетинговых материалов, веб-сайтов, иконками, дизайном пользовательского интерфейса или просто, как создание концепт-арт, Affinity Designer внесет революцию в Вашу работу.
-
-Affinity Designer  в (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02 ноября 2017Разработчик: Serif (Europe) LtdПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Русский, Английский, Испанский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A248C30708955AE0F69459F962C6B03FA00BA3CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1641849   (247388) от 24.06.2023
+
+Trepang2 (2023) [Ru/Multi] (Build 2168) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Trepang2, сумасшедший кровавый шутер от первого лица в мире далекого будущего, сделает вас крепким орешком. Враги пожалеют, что они родились на свет, увидев, как вы уклоняетесь от пуль и оставляете за собой одни разрушения в этой лихорадочной стрелялке не для слабонервных. Вы играете за сбежавшего солдата, который ничего не помнит о своей жизни, но обладает сверхъестественными (   Читать дальше...   )Тип издания: RepackРазработчик: Trepang StudiosЖанр: Action (Shooter), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C64DE07AB6E53EAA2106FE3423A6629B15B5A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1647043   (246927) от 17.07.2023
 
 Dead Island 2 (2023) [Ru/Multi] (1.1062983.0.1/dlc) Repack DjDI [Gold Edition]
@@ -6,7 +32,7 @@ Dead Island 2 (2023) [Ru/Multi] (1.1062983.0.1/dlc) Repack DjDI [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246927.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Dead Island 2 (2023) [Ru/Multi] (1.1062983.0.1/dlc) Scene EMPRESS [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246906.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ The Wheel of Time (1999) [En] (333b) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242378.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Slime Rancher 2 (2025) [Ru/Multi] (1.0.3) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230531.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Ghostrunner (2020) [Ru/Multi] (0.30714.410/dlc) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_229954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229954.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ CULTIC (2022) [En] (9714547) License DARKSiDERS
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229328.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ OVERKILL's The Walking Dead (2018) [Ru/En] (1.1.1/dlc) Repack R.G. Механи�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228444.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Bloodhound (2023) [Ru/Multi] (1.0) Scene Skidrow
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228228.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Dying Light: The Following (2016) [Ru/Multi] (1.16.0 CD/dlc) Repack R.G. Catalys
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226757.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Dispatcher (2015) [Ru/En] (1.00/upd2) SteamRip Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226651.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Delta Force: Black Hawk Down / Delta Force: Операция "Черный Яс�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226502.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Delta Force: Land Warrior / Отряд Дельта: Операция "Спец�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224502.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Sniper Ghost Warrior Contracts (2019) [Ru/En] (1.02u1/dlc) Repack R.G. Меха�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224409.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ XIII (2003) [Ru] (1.01) Repack anton210896
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223144.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ NecrovisioN Lost Company / NecrovisioN Проклятая Рота (2010) [Ru] (
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222178.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ The Chronicles of Riddick: Escape from Butcher Bay [Ru/En] (RePack) 2004 | R.G. 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221893.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Dishonored 2 (2016) [Ru/Multi] (1.77.9.0/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220475.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ Dishonored: Death of the Outsider (2017) [Ru/Multi] (1.145) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220182.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ ARAYA (2016) [En/Th] (1.1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217319.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ Sanctum 2 (2013) [Ru/Multi] (1.4.35442) SteamRip Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217119.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ Project Pulsation (2015) [Ru/En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217046.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ Madness Beverage (2021) [En] (7802120) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216248.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ Aim Hero (2016) [Ru/En] (0.158) Portable Devint
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215532.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ Behind the Memory (2016) [En/Es] (1.1.4.1) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215247.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ Call of Duty 4: Modern Warfare (2007) [Ru] (1.7/MP) Rip =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214983.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ Call of Duty 4: Modern Warfare (2007) [Ru] (1.7/MP) Rip =nemos=
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC96E21F61111676307C8B7398431D2322B789CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966996   (214617) от 19.12.2015
-
-Dispatcher (2015) [Ru/En] (1.0/upd2) Repack R.G. Механики
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человечество нашло дорогу в глубины космоса. Первые смельчаки отправились на поиски неизведанного. Оно нашло их раньше. Романтизм первопроходцев разбился о холодную плоть космоса. И теперь важно только одно: на что ты готов ради спасения? «Dispatcher» – это игра в жанре РПГ-хоррора от первого лица.Тип издания: RepackРазработчик: CivilSavagesЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: -/-Язык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA401A69AAA6C0DBC95A613283913116ACCC75A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,171 @@
+###  Публикация: 983786   (941708) от 07.02.2016
+
+Концерт Елены Ваенги (2016.02.06) HDTVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ее песни знакомы каждому в нашей стране. В эту субботу Первый канал покажет сольный концерт Елены Ваенги, в котором прозвучат композиции: "Сердце напополам", "Курю", "Нева", "Шопен", "Остановка", "Мишина песня", "Аэропорт", "Невеста" и другие.Телекомпания: Первый канал HDЖанр: КонцертПродолжительность: 01:26:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD962C21754797CC464FF9EDC957096D5DD27C26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 626809   (941213) от 07.03.2013
+
+Beth Hart - Live at Paradiso (2004) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941213.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 мая 2004 года, Бет Харт выступила в Paradiso театре, который считается одним из самых красивых концертных залов Амстердама. Этот концерт Вас не разочарует, можно даже сказать, что это маленький спектакль! В первую очередь он для тех кто любит рок и блюз. Концерт не для слабонервных, Бет Харт выступает очень раскованно и провокационно сексуально, а это не на шутку (   Читать дальше...   )01. Hiding Under Water
+02. Delicious Surprise
+03. Guilty
+04. Leave The Light On(   Читать дальше...   )Жанр: Концерт, Rock, BluesПродолжительность: 01:23:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:215E997E057E1C23C33CD95EB0378861AF265958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091575   (941129) от 10.01.2017
+
+Легенды Ретро FM (полная версия) (2016) HDTVRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наступление 2017 года в эфире Первого ознаменует новогоднее супершоу лучшей музыки 70-х, 80-х и 90-х с участием ВИА «Верасы», Татьяны Булановой, Михаила Муромова, Игоря Николаева, Дмитрия Маликова, Игоря Корнелюка и других исполнителей.Грандиозный ностальгический концерт уже в двенадцатый раз соберет под одной крышей Олимпийского звезд семидесятых, восьмидесятых (   Читать дальше...   )01. Божья Коровка - Друзья-товарищи
+02. Божья Коровка - Гранитный камешек
+03. Afric Simone - Todo Pasara Maria
+04. Afric Simone - Hafanana(   Читать дальше...   )Производство: РоссияЖанр: PopПродолжительность: 03:27:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45B930416B3C19CD8E22D5156D694B83E587E31F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 625827   (940955) от 07.03.2013
+
+Сборник клипов - VA - Various Music part. 40 (2013) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940955.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 2Elements - Tell Me Boy 1080p (3:24)
+2. Akcent feat. Anushka Manchanda - I'm Sorry 1080p (4:04)
+3. Alina Grosu - Let Go (Eurovision 2013) 1080p (3:10)
+4. Arty, Nadia Ali & BT - Must Be The Love 1080p (4:57)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D36F0EF9148FA4B3BD96D5FD9F402BC3FAC8D7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363758   (940915) от 29.02.2020
+
+Квартирник НТВ у Маргулиса. Мот (28.02.2020) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940915.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гости к Евгению Маргулису пришел один из самых лиричных рэп-исполнителей современности — Мот. Учеба в МГУ, «Битва за респект» и треки в стиле релакс — с этого начинал будущий «аспирант в дипломате» Матвей Мельников. А после был контракт с Black Star, хиты «Мама, я в Дубае», «День и ночь», «Капкан», «Абсолютно все», «Сопрано», и дуэты с Ани Лорак, Егором Кридом, (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:00:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E008FC13146455B62BA2432203EFFD67E2809418
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 277814   (940706) от 02.02.2014
+
+Chris Norman: One Acoustic Evening - Live at the Private Music Club (2005) 2xDVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двойной концертный альбом Криса Нормана. Первый диск - акустический концерт Криса и его группы в клубе Private Music Club в Дортмунде (Германия), который состоялся 14 декабря, 2004 года. В программе песни Smokie, Beatles, классика рок-н-ролла и немного собственных песен. Второй - электрический концерт в Вене 27 июня, 2004. Все лучшее из репертуара Smokie, сольного (   Читать дальше...   )Disk 1 - LIVE AT THE PRIVATE MUSIC CLUB:
+
+01. Sweet Surrender
+02. Breathless(   Читать дальше...   )Производство: Locomotive SpainЖанр: Pop-RockПеревод: ОтсутствуетЯзык субтитров: ОтсутствуетФормат: DVD9Продолжительность: 01:31:23 + 01:08:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363767   (940689) от 29.02.2020
 
 Владимир Ждамиров. Любовь и Судьба (2020) WEBRip [H.264/1080p-LQ]
@@ -6,7 +174,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940689.jpg" />
 </div>
 
 
@@ -32,7 +200,7 @@ Queen + Paul Rodgers: Super Live in Japan (2006) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940296.jpg" />
 </div>
 
 
@@ -58,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940219.jpg" />
 </div>
 
 
@@ -85,7 +253,7 @@ Siouxsie - Dreamshow: Live At The Royal Albert Hall With The Millennia Ensemble 
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940159.jpg" />
 </div>
 
 
@@ -114,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940090.jpg" />
 </div>
 
 
@@ -143,7 +311,7 @@ Madness - At Madstock (1998) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940075.jpg" />
 </div>
 
 
@@ -172,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939972.jpg" />
 </div>
 
 
@@ -201,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939794.jpg" />
 </div>
 
 
@@ -229,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939718.jpg" />
 </div>
 
 
@@ -259,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939489.jpg" />
 </div>
 
 
@@ -285,7 +453,7 @@ Eagles - Farewell I Tour - Live From Melbourne (2004/2013) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939421.jpg" />
 </div>
 
 
@@ -314,7 +482,7 @@ Ringo Starr & His All Starr Band Live 2006 (2008) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939392.jpg" />
 </div>
 
 
@@ -343,7 +511,7 @@ Steve Miller Band - Live from Chicago (2008) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938794.jpg" />
 </div>
 
 
@@ -372,7 +540,7 @@ VA - Best of pop 2003 (2003) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938727.jpg" />
 </div>
 
 
@@ -401,7 +569,7 @@ Axel Rudi Pell - Live Over Europe (2008) 2*DVD-9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938550.jpg" />
 </div>
 
 
@@ -428,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938507.jpg" />
 </div>
 
 
@@ -457,7 +625,7 @@ VA - Танцевальный рай - The Best (2007) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938388.jpg" />
 </div>
 
 
@@ -486,7 +654,7 @@ Def Leppard - Mirror Ball - Live & More (2011) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938374.jpg" />
 </div>
 
 
@@ -515,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938372.jpg" />
 </div>
 
 
@@ -544,7 +712,7 @@ Modern Talking - Music & Video Stars (2013) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938140.jpg" />
 </div>
 
 
@@ -558,168 +726,6 @@ Modern Talking - Music & Video Stars (2013) DVD5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47591FB65E85880261ABC7B4B9EF17C2CAD06447
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 627641   (938073) от 09.03.2013
-
-Helene Fischer – Best of Live/So wie ich bin (2010) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938073.jpg" />
-</div>
-
-
-###  Подробнее
-
-В рамках Live Tour 23 октября 2010 года Хлене Фишер дала концерт в Берлине в концертном зале "02 World", где были исполнены все лучшие хиты в живую.Производство: Werner Kimmig GmbH / EMI Music Germany GmbHЖанр: PopПеревод: ОтсутствуетПродолжительность: 02:27:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 859875   (937526) от 18.01.2015
-
-Настя Любимова ft. St1m - Мода На Любовь (2014) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BBE450A4E98870ED1CB42657CE39EB33CBFBB50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985078   (936671) от 10.02.2016
-
-Анна Нетребко. Женщина-голос / Anna Netrebko. The Woman The Voice. (2004) DVD9
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основным материалом этого DVD являются 5 клипов: —
-- Faust (Marguerite`s Jewel Song)
-- La Boheme (Musetta`s Waltz)
-- Don Giovanni (Crudele? — Non mi dir, bell`idol mio)(   Читать дальше...   )Производство: Bernhard Fleischer Moving Images, Deutsche Grammophon.Жанр: Опера, ДокументальныйРежиссер: Винсент ПэтерсонАктеры: Анна Нетребко, Эрик Ассандри, Софи Бейне, Арарат Чинарьян, Тина Хэверс, Лорета Иодкайте и т.д.Язык субтитров: Deutsch, Francais, Espanol, ChineseПродолжительность: 02:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:527E01DFDDB837CBCD63D130F516A1BA0E1834B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 284699   (936636) от 19.01.2011
-
-[EN] Крис Ри. Дорога в ад и обратно - Прощальный тур / Chris Rea.The Road to Hell and Back The - Farewell Tour (2006) HDTV
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Блюз , РокРежиссер: George ScottПеревод: ОригинальныйПродолжительность: 01:18:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 626989   (936559) от 10.03.2013
-
-Def Leppard - Mirror Ball - Live & More (Bonus DVD) (2011) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936559.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Behind The Scenes On The Sparkle Lounge Tour 2008-2009
-2. Rock! Rock! (Till You Drop) (Live)
-3. Armageddon' It (Live)
-4. Pour Some Sugar On Me (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984606   (936530) от 10.02.2016
-
-Eric Clapton - Slowhand at 70: Live at The Royal Albert Hall (2015) BDRemux [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936530.jpg" />
-</div>
-
-
-###  Подробнее
-
-В кинотеатрах по всему миру будет показан концерт легенды рок-музыки, Эрика Клэптона, чья карьера длится более 50 лет. Запись выступления сделана в мае 2015 года в легендарном лондонском концертом зале Альберт-Холл. Зрители в кинотеатрах смогут с головой окунуться в атмосферу этого незабываемого вечера. На повестке дня — как бессмертная классика рок-музыки, так и (   Читать дальше...   )Производство: ВеликобританияЖанр: Blues Rock, Rock & Roll, Hard Rock, British BluesРежиссер: Blue LeachПродолжительность: 01:46:04 + 00:16:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AD53D363DCAA6DACDC431B3C1FBCBFFE8443EFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

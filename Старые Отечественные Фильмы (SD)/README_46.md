@@ -1,3 +1,110 @@
+###  Публикация: 551810   (451110) от 25.09.2012
+
+Простая смерть (1985) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир и жизнь, увиденные глазами героя, оказываются бесконечно равнодушны к его боли и страданиям. Но неожиданно для себя в момент смерти он испытывает облегчение и успокоение. «Нельзя так жить!» — голос Толстого со старой пластинки обрамляет все повествование.Жанр: ДрамаРежиссер: Александр КайдановскийАктеры: Валерий Приемыхов, Алиса Фрейндлих, Витаутас Паукште, Михаил Данилов, Карина Моритц, Э.Смирнов, Тамара Тимофеева, Станислав Чуркин, Анатолий Худолеев, А.Бухвалов, Владимир Старостин, Юрий СеровПродолжительность: 01:04:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5319FCA9F95F2C2E6BE54EF5DAD55D4BDBAE946D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184991   (450972) от 14.09.2020
+
+Танк «Клим Ворошилов-2» (1990) TVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первые дни войны. Курсант обнаруживает брошенный танк "КВ-2". и набирает экипаж. Приведя танк в полную боевую готовность, команда вступает в свой первый и последний бой.
+На самом деле, по этому описанию очень трудно составить правильное представление о фильме. Фильм вовсе не геройский, даже наоборот. В нем нет никакого боя, о нем мы узнаем только со слов (   Читать дальше...   )Производство: СССР / Студия Горького, Госкино, Practic-CenterЖанр: Драма, ВоенныйРежиссер: Игорь ШешуковАктеры: Михаил Никитин, Вадим Гордон, Сергей Дрейден, Артём Тынкасов, Вадим Синицын, Виктор Смирнов (I), Лев Борисов, Ольга Николаева, Иван Агафонов, Валентин БукинПродолжительность: 01:34:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBBD3F2B16A108A63DCC1FB9276A068B300E00FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247086   (450601) от 16.09.2018
+
+Лето на память (1987) SATRip (серии 1-2 из 2)
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая семья, папа и мама с дочкой Светланой, сняли на лето дачу — старенький сарайчик, в котором им сразу после переезда пришлось крышу поправлять, забор прибивать, всё время что-то убирать и ремонтировать. Отношения у них подпортились, потому что все хотели отдыхать, собирать грибы, удить рыбу и валяться на траве. А тут еще к маме приехал в гости какой-то посторонний (   Читать дальше...   )Производство: СССР / Одесская киностудияЖанр: ДрамаРежиссер: Юрий КузьменкоАктеры: Зоя Александриди, Анастасия Белова, Наталья Хорохорина, Ульяна Лаптева, Федор Одиноков, Мария Виноградова, Андрей Ростоцкий, Геннадий Богданов, Максим Кузьменко, Александр КузнецовСубтитры: ОтсутствуютПродолжительность: 01:04:05 + 01:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7283226B6EB42A73BE11464863AAE0432BC573BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551777   (450158) от 25.09.2012
+
+Новые приключения янки при дворе короля Артура (2 серии) (1988) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450158.jpg" />
+</div>
+
+
+###  Подробнее
+
+То ли это приснилось американскому летчику, то ли его самолет заблудился во времени, но попал современный янки в эпоху славного короля Артура.
+
+Здесь суждено ему встретить легендарных рыцарей Круглого стола и коварную Моргану — сестру короля, прекрасную Сэнди и мудрого Волшебника. Ему предстоит оказаться в лохмотьях раба и в рыцарских латах, стать свидетелем величия (   Читать дальше...   )Жанр: ПриключенияРежиссер: Виктор ГресьАктеры: Сергей Колтаков, Альберт Филозов, Елена Финогеева, Александр Кайдановский, Анастасия Вертинская, Евгений Евстигнеев, Евдокия Германова, Владимир Сошальский, Владимир Кашпур, Марк Гресь, Мария Капнист, Валерий Грибов, Алексей ГорбуновПродолжительность: 01:14:00 + 01:19:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE7B017C1074D7A109BCD9505F8AB7A0AD114710
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 706046   (449363) от 30.09.2013
 
 Солдатское сердце (1959) SATRip
@@ -6,7 +113,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449363.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449281.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449056.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448930.jpg" />
 </div>
 
 
@@ -113,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_448262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_448262.jpg" />
 </div>
 
 
@@ -139,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_448254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_448254.jpg" />
 </div>
 
 
@@ -167,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446996.jpg" />
 </div>
 
 
@@ -193,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446630.jpg" />
 </div>
 
 
@@ -219,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446425.jpg" />
 </div>
 
 
@@ -245,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446233.jpg" />
 </div>
 
 
@@ -271,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_445854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_445854.jpg" />
 </div>
 
 
@@ -297,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445035.jpg" />
 </div>
 
 
@@ -324,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444863.jpg" />
 </div>
 
 
@@ -350,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444649.jpg" />
 </div>
 
 
@@ -376,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443726.jpg" />
 </div>
 
 
@@ -402,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_443597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_443597.jpg" />
 </div>
 
 
@@ -428,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442663.jpg" />
 </div>
 
 
@@ -454,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442654.jpg" />
 </div>
 
 
@@ -480,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442010.jpg" />
 </div>
 
 
@@ -506,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441642.jpg" />
 </div>
 
 
@@ -534,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_441252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_441252.jpg" />
 </div>
 
 
@@ -561,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441251.jpg" />
 </div>
 
 
@@ -574,112 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F2C30AC975B065523884079E8C557AFB9175027
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553412   (441246) от 29.09.2012
-
-Четвертая высота (1978) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_441246.jpg" />
-</div>
-
-
-###  Подробнее
-
-О легендарной юной актрисе советского кино Гуле Королевой, начавшей сниматься в кино с четырех лет. В мае 1942
-года, едва окончив школу, Гуля добровольно ушла на фронт и вскоре героически погибла в бою под Сталинградом.
-Фильм снят по одноименной повести Елены Ильиной.Жанр: Киноповесть, военныйРежиссер: Игорь ВознесенскийАктеры: Рита Сергеечева, Ольга Агеева, Лариса Лужина, Владимир Пучков, Павлик Руденский, Владимир Котов, Миша  Щербаков, Сергей Образов, Лена Берман, Марина Горлова, Геннадий Фролов, Юрий Шерстнев, Елена Валаева, Мария  Виноградова, Сергей ДворецкийПродолжительность: 01:15:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553815   (441167) от 29.09.2012
-
-Приказ (1987) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_441167.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одном из районов Заполярья идут крупные войсковые учения. Командующий округом приказывает установитьвременный радиомаяк в бухте "Крестовой". Но самолёт с десантом в назначенное место долететь не может из-за непогоды, и тогда командир связистов, майор Лесников, посылает туда трёх морских пехотинцев на вездеходеЖанр: Драма, ВоенныйРежиссер: Юрий ОксанченкоАктеры: Андрей Гусев, Вадим Уколов, Геннадий Фролов, Валерий Кравченко, Марина Карманова, Игорь Ленёв, Юрий  Казючиц, Афанасий Тришкин, Маргарита Борисова, Максим МунзукПродолжительность: 02:08:06
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409565   (440461) от 19.09.2020
-
-Счастливая, Женька! (1984) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женя одна растит пятилетнего сына, работает в клинике, подрабатывает на "скорой помощи". Она оптимистка и на жизнь не жалуется. Коллеги ее называют счастливой. Нежданная встреча Жени с новым доктором, возможно многое изменит в ее жизни.Производство: СССР / МосфильмЖанр: МелодрамаРежиссер: Александр ПанкратовАктеры: Елена Цыплакова, Андрей Молотков, Елена Скороходова, Александр Фатюшин, Вячеслав Езепов, Владимир Виноградов, Михаил Брылкин, Олег Голубицкий, Григорий Мануков, Николай СморчковСубтитры: отсутствуютПродолжительность: 01:16:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6F8E9CEAABC0E1D845D656DD884F00ECC4BFEDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 705982   (440405) от 04.10.2013
-
-Морской ястреб (1941) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канун Великой Отечественной войны. В Чёрном море немецкая подводная лодка-"оборотень", замаскированная под парусник торгового флота, нападает на иностранные торговые суда и топит их. На перехват отправляется советское торговое судно «Чайка», переоборудованное в военное. Артиллерийские орудия на корабле замаскированы, команда из лучших военных моряков переодета (   Читать дальше...   )Производство: Одесская киностудия художественных фильмов, Ташкентская киностудияЖанр: Военный, ПриключенияРежиссер: Владимир БраунАктеры: Иван Переверзев, Андрей Файт, Осип Абдулов, Андрей Сова, Леонид Кмит, Ганс Клеринг, Чеслав Сушкевич, Иван Бобров, Леонид Рахленко, Николай Комиссаров, Эммануил Геллер и другиеПродолжительность: 01:11:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCE5AA484A084D3346F46C1A23F671EBCE22DC5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

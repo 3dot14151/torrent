@@ -1,3 +1,159 @@
+###  Публикация: 1693448   (121980) от 20.01.2024
+
+The Cub (2024) [Multi] (1.0) Scene Rune
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект The Cub погружает пользователей в атмосферные приключения в сеттинге постапокалипсиса, где нужно пробираться через разные опасные локации. Игра является платформером, напоминающим олдскульные аркады времен SEGA. Пользователи будут передвигаться через разрушенные постройки и леса, чтобы разобраться в тайнах вселенной. Выйдет посетить множество разнообразных (   Читать дальше...   )Тип издания: SceneРазработчик: Demagog StudioЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: Английский, китайский (упрощенный, традиционный)Язык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69CFBBAB653CFEF9D02AAF8F8C311ACB7894D084
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693980   (121349) от 23.01.2024
+
+Around the World 2: Travel to Canada / Вокруг света 2: Путешествие в Канаду (2024) [Ru/En] (1.0) Unofficial [Collector’s Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в уникальное путешествие по 30 самым захватывающим достопримечательностям Канады. Вы посетите величественные горы, покорите арктические просторы, погрузитесь в красоту канадских озер, исследуете шумные города и насладитесь природой национальных парков с помощью серии сложных головоломок, сцен поиска предметов и мини-игр.Тип издания: UnofficialРазработчик: Avi GamesЖанр: Я ищу, КазуальнаяЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E9A617B45AB2C8B3BD2F1E5D4B0FDA93C905B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694633   (120865) от 26.01.2024
+
+RIN: The Last Child (2024) [Ru/Multi] (1.0) Scene SKIDROW
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120865.jpg" />
+</div>
+
+
+###  Подробнее
+
+В приключении RIN: The Last Child игроку предстоит взять управление над последним ребенком Создателя по имени Рин. Главный герой был призван, чтобы навести порядок в тёмном и волшебном измерении. В игровом процессе потребуется исследовать разнообразные территории, собирать аспекты и руны, чтобы создавать смертоносные и вспомогательные заклинания. По мере прогресса (   Читать дальше...   )Тип издания: SceneРазработчик: Space Fox GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBB52455935EDB1F8007ACE7A4BB6EA093E1AB32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694649   (120843) от 26.01.2024
+
+Magic City Detective 4: Wrath of the Ocean (2024) [Multi] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение детективной серии игр Magic City Detective. Могущественные сверхъестественные существа живут среди людей! Океанская сирена Рибейра Лима - любимица публики в Рио. Однако зрители даже не предполагают, насколько велика её роль в их жизни. Ведь Рибейра единственная, кто может успокоить океан своим волшебным пением! Но вот на город надвигается всепоглощающее (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B05B5C54E097A30D16492ADD78BFB9893886630
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695189   (120538) от 28.01.2024
+
+Noxia Somnia (2024) [En] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120538.jpg" />
+</div>
+
+
+###  Подробнее
+
+После пробуждения в таинственном мире за Тристаном начинают охотиться тени, питающиеся тревогой и страхом. В поисках выхода из этого кошмара ужасов на выживание ему предстоит преодолеть свои самые глубокие страхи. Посмотрите в лицо своим страхам в этой леденящей душу двухмерной игре в жанре survival horror, посвященной пониманию и преодолению проблем психического (   Читать дальше...   )Тип издания: SceneРазработчик: Reframe GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF8598FF84D7BFF4E0EE884EA1446D78EE54220C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695227   (120534) от 28.01.2024
+
+The Cub (2024) [Multi] (1.0.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект The Cub погружает пользователей в атмосферные приключения в сеттинге постапокалипсиса, где нужно пробираться через разные опасные локации. Игра является платформером, напоминающим олдскульные аркады времен SEGA. Пользователи будут передвигаться через разрушенные постройки и леса, чтобы разобраться в тайнах вселенной. Выйдет посетить множество разнообразных (   Читать дальше...   )Тип издания: LicenseРазработчик: Demagog StudioЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: Английский, китайский (упрощенный, традиционный)Язык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECB426D7BAECB80DAB028CFD77B081E3C01C2ED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695402   (120303) от 29.01.2024
 
 Ms. Holmes 5: The Milverton Plot / Мисс Холмс 5: Заговор Милвертона (2023) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -6,7 +162,7 @@ Ms. Holmes 5: The Milverton Plot / Мисс Холмс 5: Заговор Мил�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120303.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Reflections of Life 12: The Shattered Timeline (2024) [En] (1.0) Unofficial [Col
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119632.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ RIN: The Last Child (2024) [Ru/Multi] (221) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119415.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Cursed Fables 4: Before the Clock Strikes / Проклятые предания 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118497.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Legendary Tales 3: Stories (2024) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118442.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Maze of Realities 4: Symphony of Invension (2024) [Multi] (1.0) Unofficial [Coll
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118296.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Edge of Reality 10: Island of Shadows (2025) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117619.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Spectra: Beneath the Stain (2025) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117531.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Magic City Detective 4: Wrath of the Ocean / Волшебный город 4: Г
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117254.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ True Fear: Forsaken Souls (2018) [Ru/Multi] (1.9.7.2369) Repack Other s [Part 2]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116949.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ True Fear: Forsaken Souls (2016) [Ru/Multi] (2.0.12:608/dlc) Repack Other s [Par
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116944.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ The Unseen Fears 6: Fortune's Consequence (2024) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116039.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ Maze of Realities 4: Symphony of Invension / Лабиринт реальност
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115721.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ Book Travelers 2: A Royal Story / Книжные странники 2: Коро�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115565.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ The Lost Legends of Redwall: The Scout Anthology (2024) [Multi] (1.0) Repack Fit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115271.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ qomp2 (2024) [Ru/Multi] (1.1.2257) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114734.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ Crossroads 4: Fatal Truths (2024) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114699.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ Big Adventure: Trip to Europe 7 (2024) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114541.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ Criminal Archives 3: Murder in the Pages (2024) [Multi] (1.0) Unofficial [Collec
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113604.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ Knight Cats 3: Whisper of the Universe (2024) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112974.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ Knight Cats 3: Whisper of the Universe (2024) [En] (1.0) Unofficial [Collector's
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7974A562B4D86A0E19069569C9A42C3FDB21B484
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711754   (112420) от 31.03.2024
-
-The Unseen Fears 6: Fortunes Consequence / Невидимые страхи 6: Последствия Фортуны (2024) [Ru] (1.0) Unofficial [Collector’s Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение мистической серии игр The Unseen Fears. Это леденящее душу мистическое приключение в Норвегии, очередное дело сверхъестественного детектива Натаниэля. В этой части игры вы прикоснетесь к смертельно морозному дыханию ледяного монстра, который забрал души ваших друзей. Кошмары Натаниэля воплощаются в реальность и мешают сосредоточиться после пробуждения (   Читать дальше...   )Тип издания: UnofficialРазработчик: GrandMA StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1142ABCBFAA27FCDE04B5CDE18EE4DFFBC676D3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711684   (112381) от 31.03.2024
-
-Criminal Archives 3: Murder in the Pages / Криминальные архивы 3: Книжное убийство (2024) [Ru/Multi] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение захватывающих историй из криминального архива Criminal Archives. Идеальных преступлений не бывает! Ты - криминальный репортер, стремящийся запечатлеть в своей книге самые неординарные истории, с которыми тебе довелось столкнуться. Тебе предстоит раскрыть серию загадочных убийств в Сан-Франциско. Оказывается, у этого светлого города есть своя темная сторона... (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63CEE49B4E6BFF9C375A8B72EE78F26907F91DFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711741   (112379) от 31.03.2024
-
-Edge of Reality 9: The Legend of Greenbush (2024) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение захватывающей серии игр Edge of Reality. Когда ваш старый друг обнаружил странный амулет, вы с радостью поделились своими познаниями в археологии, чтобы определить его происхождение. Но радость от возвращения домой была недолгой - вашего друга похищает разгневанный призрак, а затем со дна озера поднимается некогда легендарный город. Хватит ли у вас сил, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Friendly Fox GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2FD850C7195C2A6DF6AD9E0AA5AB996B7904DDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713155   (111934) от 05.04.2024
-
-Wilde Investigations 2: Animal Sanctuary Shuffle (2024) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение увлекательной серии игр Wilde Investigations. Богатый филантроп занимается строительством роскошного приюта для животных, и ему просто необходима ваша помощь! Прибыв на место, благодаря своему дару общения с животными вы узнаёте, насколько они несчастны. А затем прямо во время последних приготовлений из приюта сбегает красная панда! Сможете ли вы с помощью (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Я ищу, КазуальнаяЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1683A34356C2101CD123F2864AA6B472D7226C61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713831   (111848) от 07.04.2024
-
-Lucky Season: King of Fools / Сезон удачи: Король глупцов (2024) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте новую сказочную игру. День Святого Патрика уже совсем скоро! Вместе с другими лепреконами вы собираетесь нести людям удачу и пополнить магию своего мира. Но всё меняется, когда злые клуриконы похищают вашего брата вместе с волшебными монетами - источником силы лепреконов. Без них человечество ждут сплошные несчастья, а магия вашего мира скоро угаснет навсегда. (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC41B8DF93A97FEA8321B5880337EE515C33BBEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713826   (111828) от 07.04.2024
-
-Reflections of Life 12: The Shattered Timeline / Отражения жизни 12: Песок времени (2024) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Увлекательное продолжение сказочной серии игр Reflections of Life. Небесные Сёстры управляют потоком времени уже сотни лет. После того как злой колдун похитил Рассвет, День, Сумерки и Ночь, судьбы всех королевств оказываются в опасности. Только воин Ордена Стражей может восстановить артефакт времени и вернуть сестрам их законное место в космосе. Сможете ли вы побывать (   Читать дальше...   )Тип издания: UnofficialРазработчик: GrandMA StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A5D5F7341B0AF3F78B7ACE72B3AA479EADC8BE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

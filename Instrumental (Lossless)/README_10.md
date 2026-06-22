@@ -6,7 +6,7 @@ John L. Savage - Ain't Got No Money (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043256.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Kevin & JD - Blues Truckin (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043253.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Jackie Venson - Evolution of Joy (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, So
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043235.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Edgar Blues Trio - The Next Step (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043029.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Proven Ones - You Ain't Done (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues, El
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042767.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Fried Okra Band - Doing It Right (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042765.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ John Fusco & X-Road Riders - John the Revelator (2020) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042757.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Geoff Carne & The Raw Rox Band - Big Town (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042754.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Brandon Miller - Virtue And Vice (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042720.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ GeminiiDragon - Equinox - Equinox (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042618.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Doggy Blue - First Sessions (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042616.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Brother Kerry & the Hoptones - Into the Pocket (2023) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042611.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Graywolf Blues Band - Best of Graywolf Blues Band (2023) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042608.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Lex Grey and The Urban Pioneers - How Many Roads (2023) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042600.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ David Clayton-Thomas - Say Somethin' (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042506.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Jorma Kaukonen - 2020-12-13 the Vogel, Red Bank, NJ (2020) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042255.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - Ain't Nothing but the Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042251.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Denis Agenet - No Mo' Lapsters (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042116.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Eddie 9V - Capricorn (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042112.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042111.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Flav'r Country Blues Band - Road to Osilinka (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042109.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Alastair Greene - Alive in the New World (2023) Live [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042107.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Delayne - Karu (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042101.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Blues Cousins - Ain't No Easy (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042099.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Andy Seagrave - The Jungle (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041700.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Mick Clarke - Relentless Boogie Pt. 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041693.jpg" />
 </div>
 
 

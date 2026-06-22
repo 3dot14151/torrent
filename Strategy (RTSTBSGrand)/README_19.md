@@ -1,107 +1,3 @@
-###  Публикация: 1751449   (42460) от 25.09.2024
-
-Ara: History Untold (2024) [Ru/Multi] (1.0) Scene FairLight
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создайте страну и проведите свой народ сквозь века к вершинам прогресса. Расширяйте территории, развивайте культуру и доказывайте свое величие на полях сражений или в дипломатических спорах. Этот мир в ваших руках. Ara: History Untold - новая ступень в жанре исторической стратегии. Классические механики компьютерных стратегий сочетаются с такими инновациями, как (   Читать дальше...   )Тип издания: SceneРазработчик: Oxide GamesЖанр: СтратегииЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B72222769C67FD78E7EC2593ECB8671A156EF848
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751623   (42357) от 26.09.2024
-
-Ara: History Untold (2024) [Ru/Multi] (1.0.0.316/dlc) Repack FitGirl [Deluxe Edition]
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создайте страну и проведите свой народ сквозь века к вершинам прогресса. Расширяйте территории, развивайте культуру и доказывайте свое величие на полях сражений или в дипломатических спорах. Этот мир в ваших руках. Ara: History Untold - новая ступень в жанре исторической стратегии. Классические механики компьютерных стратегий сочетаются с такими инновациями, как (   Читать дальше...   )Тип издания: RepackРазработчик: Oxide GamesЖанр: СтратегииЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C10DC4EFEA46A7154AA9A1C90CE6FE58E195AE2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751600   (42313) от 26.09.2024
-
-Ara: History Untold (2024) [Ru/Multi] (1.0.0.316/dlc) Repack Wanterlude
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создайте страну и проведите свой народ сквозь века к вершинам прогресса. Расширяйте территории, развивайте культуру и доказывайте свое величие на полях сражений или в дипломатических спорах. Этот мир в ваших руках. Ara: History Untold - новая ступень в жанре исторической стратегии. Классические механики компьютерных стратегий сочетаются с такими инновациями, как (   Читать дальше...   )Тип издания: RepackРазработчик: Oxide GamesЖанр: СтратегииЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:485219350486B5EE464507CFBAEE850FEC80FABC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751972   (42159) от 28.09.2024
-
-Mechabellum (2023) [Ru/Multi] (1.0.0.4.1366) Scene Rune
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mechabellum - это эпический автобаттлер в научно-фантастическом сеттинге, в котором вам предстоит стать на место командира, возглавляющего армию мехов на недавно колонизированной планете Far-Away. Ваши противники будут дрожать от страха, пока вы настраиваете и повышаете уровень своих боевых единиц, стратегически расставляете их на поле боя и наблюдаете, как они безжалостно (   Читать дальше...   )Тип издания: SceneРазработчик: Game RiverЖанр: Экшены, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Китайский, Французский и другиеЯзык интерфейса: Русский, Английский, Китайский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B253D6EA96DC586CE852F3921A0C5A8534F28E2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751967   (42088) от 28.09.2024
 
 Mechabellum (2023) [Ru/Multi] (1.0.0.4.1366) Repack FitGirl
@@ -110,7 +6,7 @@ Mechabellum (2023) [Ru/Multi] (1.0.0.4.1366) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42088.jpg" />
 </div>
 
 
@@ -136,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42021.jpg" />
 </div>
 
 
@@ -162,7 +58,7 @@ Ara: History Untold (2024) [Ru/Multi] (1.0.2.105/dlc) Repack Pioneer [Deluxe Edi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41756.jpg" />
 </div>
 
 
@@ -188,7 +84,7 @@ Dead Season (2024) [Ru/Multi] (0.9.5.0) Scene FAiRLiGHT
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40603.jpg" />
 </div>
 
 
@@ -214,7 +110,7 @@ Strategic Command: American Civil War (2022) [Multi] (1.10.00/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39445.jpg" />
 </div>
 
 
@@ -240,7 +136,7 @@ Europa Universalis IV (4) (2013) [Multi] (1.37.5.0/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39436.jpg" />
 </div>
 
 
@@ -266,7 +162,7 @@ Unity of Command II (2019) [Ru/Multi] (Update 29/dlc) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38724.jpg" />
 </div>
 
 
@@ -292,7 +188,7 @@ Call to Arms - Gates of Hell: Ostfront (2021) [Ru/Multi] (1.046.0/dlc) Scene Run
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38552.jpg" />
 </div>
 
 
@@ -318,7 +214,7 @@ Call to Arms - Gates of Hell: Ostfront (2021) [Ru/Multi] (1.046.0/dlc) Repack Fi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38332.jpg" />
 </div>
 
 
@@ -344,7 +240,7 @@ Empire of the Ants (2024) [Ru/Multi] (1.02.19732/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38247.jpg" />
 </div>
 
 
@@ -370,7 +266,7 @@ Cold Zero: No Mercy / Cold Zero: Финальный отчет (2003) [Ru/En] (1
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38142.jpg" />
 </div>
 
 
@@ -396,7 +292,7 @@ Empire of the Ants (2024) [Ru/Multi] (1.02.19732) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38137.jpg" />
 </div>
 
 
@@ -422,7 +318,7 @@ Strategic Command WWII: War in Europe (2016) [Multi] (1.30.00.01) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37630.jpg" />
 </div>
 
 
@@ -448,7 +344,7 @@ Dead Season (2024) [Ru/Multi] (1.0.0.7) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37433.jpg" />
 </div>
 
 
@@ -474,7 +370,7 @@ Warcraft II (2): Remastered (2024) [Ru/Multi] (1.0.0.2157) Scene Razor1911
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37152.jpg" />
 </div>
 
 
@@ -500,7 +396,7 @@ Ara: History Untold (2024) [Ru/Multi] (1.1.0/dlc) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37132.jpg" />
 </div>
 
 
@@ -526,7 +422,7 @@ Warcraft I: Remastered (2024) [Ru/Multi] (1.0.0.2137) Scene Razor1911
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37126.jpg" />
 </div>
 
 
@@ -552,7 +448,7 @@ Sid Meier's Alpha Centauri™ (1999) [En] (1.1/dlc) License GOG [Planetary Pack]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37051.jpg" />
 </div>
 
 
@@ -578,7 +474,7 @@ Stargate: Timekeepers (2024) [Ru/Multi] (1.02.59) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36437.jpg" />
 </div>
 
 
@@ -604,7 +500,7 @@ Strategic Command: World War I (2019) [Multi] (1.15.00/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36328.jpg" />
 </div>
 
 
@@ -630,7 +526,7 @@ Strategic Command WWII: World at War (2018) [Multi] (1.20.00) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36327.jpg" />
 </div>
 
 
@@ -656,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35655.jpg" />
 </div>
 
 
@@ -667,6 +563,110 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED2AB3B67DB79B37DA1DC0244D951FF386FE6B4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752211   (35602) от 01.12.2024
+
+63 Days (2024) [Ru/Multi] (11237) Scene Rune
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35602.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я принадлежу к первому поколению, родившемуся в свободной Польше после 123 лет иностранной оккупации. Начало Второй мировой войны лишило меня семьи, дома и будущего. Мы злы, устали, но едины. Нам не терпится что-то сделать, вернуть себе хоть какой-то контроль над жизнью. Мои товарищи и я чувствуем, что у нас есть только один выбор: отомстить и вернуть независимость (   Читать дальше...   )Тип издания: SceneРазработчик: Destructive CreationsЖанр: Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13E623634764FDC0BE0B1837001D8BBD7B2D3FDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763623   (35474) от 02.12.2024
+
+Horizon (2014) [Ru/En] (1.0.2.156/dlc) Repack Let'sРlay [Deluxe Edition]
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Horizon — это пошаговая космическая стратегическая игра об исследовании и завоевании галактики, в которой вы управляете судьбой человечества. Вы будете исследовать глубокий космос, находить новые рубежи и находить инопланетные артефакты, спрятанные на давно заброшенных планетах. Вы также узнаете больше о галактике, вступая в контакт с десятью другими видами, каждый (   Читать дальше...   )Тип издания: RepackРазработчик: L3O InteractiveЖанр: Приключенческие игры, Инди, Симуляторы, Стратегии, БесплатныеЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C40606F9CE88C577F970CCB2C25F44AD5AF683A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763947   (35291) от 04.12.2024
+
+2089 - Space Divided (2024) [Ru/Multi] (1.0.0) Repack Let'sРlay
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35291.jpg" />
+</div>
+
+
+###  Подробнее
+
+2089 - Space Divided - классическая научно-фантастическая стратегия в реальном времени от немецкой команды разработчиков, в которой вы собираете ресурсы, строите свою базу, обучаете войска и уничтожаете противников с помощью тактического мастерства. Путешествуйте по чужим мирам за свою фракцию и сражайтесь за господство. Будьте умнее своих противников и обеспечьте (   Читать дальше...   )Тип издания: RepackРазработчик: CoastGames GmbHЖанр: Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:263AD522CD15CA9FB2128C700082A307D4B67AD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633326   (35182) от 05.12.2024
+
+HUMANKIND (2021) [Ru/Multi] (1.0.27.4539/dlc) Repack dixen18
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35182.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 4Х стратегии HUMANKIND игроку предстоит провести собственную цивилизацию через все эпохи человеческого развития. Предстоит развивать города, создавать армию и управлять юнитами, участвуя в сражениях на суше и море. Вымышленная планета создается процедурным образом и включает множество регионов. На старте прохождения они никем не заняты, но постепенно появляются (   Читать дальше...   )Тип издания: RepackРазработчик: AMPLITUDE StudiosЖанр: Strategy (Turn-based), 4X, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF6714A9D6ABAE17518063A13C088313BC6FEFAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

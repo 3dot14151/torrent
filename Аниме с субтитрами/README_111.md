@@ -1,3 +1,29 @@
+###  Публикация: 1061385   (143558) от 28.12.2016
+
+Keijo!!!!!!!! / Кейджо !!!!!!!! [2016, TV, 12] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в альтернативной Японии, где существует спорт под названием кейдзо. Два противника стоят на платформе, плавающей в воде, и пытаются столкнуть друг друга, используя только груди и задницы. Гениально! Главная героиня Нодзоми Каминащи — старшеклассница, которая после окончания школы планирует профессионально заняться этим, хм, спортом. Девушка (   Читать дальше...   )Жанр: комедия, этти, траваРежиссер: Такахаси ХидэяПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86C4A4606A3FCED0DFDA746B15662D84D8C579EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252368   (143484) от 27.12.2018
 
 Zombieland Saga | Zombie Land Saga | Зомбиленд. Сага [2018, TV, 12 эп.] WEB-DL 720p raw
@@ -6,7 +32,7 @@ Zombieland Saga | Zombie Land Saga | Зомбиленд. Сага [2018, TV, 12 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143484.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Kino no Tabi: The Beautiful World - The Animated Series | Kino`s Journey: The Be
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143267.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Code:Realize Sousei no Himegimi | Код понимания: Страж пере
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143249.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Youkai Apartment no Yuuga na Nichijou | Elegant Yokai Apartment Life | Элег�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143238.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Assault Lily: Bouquet | Штурмовая Лилия: Букет [2020, TV, 12 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143153.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Golden Kamuy (2020) | Золотое божество [ТВ-3][2020, TV, 12 эп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143133.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Visual Prison | Визуальная тюрьма [2021, TV, 12 эп.] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142979.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Iwa Kakeru! Sport Climbing Girls | Скалолазки [2020, TV, 12 эп.] WEB
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142929.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Mama wa Shougaku Yonensei / Mama is a 4th Grader / Мама-четверокла
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142900.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Sidonia no Kishi: Daikyuu Wakusei Seneki | Knights of Sidonia: Battle for Planet
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142472.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Anitore! EX / Anime de Training! EX / Тренировки с аниме! [2015,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142461.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Magic-Kyun! Renaissance / Магия-кюн: Ренессанс [2016, TV, 13 и
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142274.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Ushio to Tora / Усио и Тора [ТВ-1] [2015, TV, 26 из 26] HDTV 720p R
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142151.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Sono Toki, Kanojo wa. | И тогда она... [2018, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142048.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Hataraku Saibou | Cells at Work! | Клетки за работой [2018, TV, 1
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141921.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Seishun Buta Yarou wa Bunny Girl Senpai no Yume o Minai / Rascal Does Not Dream 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141801.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Vivy: Fluorite Eye's Song | Виви: Песнь флюоритового гла
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141783.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ Tenchi Muyou! Ryououki Dai Yon-ki / Тэнти - лишний! Рё-о-ки 4 [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141766.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Sengoku Night Blood | Ночная кровь эпохи Сенгоку [2017, T
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141593.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ Kujira no Kora wa Sajou ni Utau | Children of the Whales | В песках по�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141548.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ Shoujo Shuumatsu Ryokou | Поход девочек после конца све
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141298.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ Beastars | Выдающиеся звери [2019, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140524.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ Watashi, Nouryoku wa Heikinchi dette Itta yo ne! | Разве я не проси
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140445.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ Rail Romanesque | Романтика рельсов [ТВ-1][2020, TV, 12 эп.]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140444.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ Assassins Pride | Гордость убийцы [2019, TV, 12 эп.] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140417.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ Assassins Pride | Гордость убийцы [2019, TV, 12 эп.] WEBRip 720p
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AB3AE813554D839089EECFA7C92E010C6EAC018
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945666   (140144) от 30.12.2015
-
-Taimadou Gakuen 35 Shiken Shoutai / 35-й учебный взвод Антимагической Академии [2015, TV, 12] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие этого «школьного боевого фэнтези» разворачивается в мире, где магия, в принципе, существует, но вот люди, обладающие соответствующими силами, практически вымерли. Собственно, развитие местной военной мысли шло по пути «Мечи – магия – огнестрельное оружие». Такеру Кусанаги учится в Антимагической Академии – специальном заведении, где тренируют Инквизиторов, (   Читать дальше...   )Жанр: боевик, фэнтези, школаРежиссер: Кавамура ТомоюкиПеревод: nnm-club^animeЯзык субтитров: Русский (отключаемый)Продолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B4B4DE172D6D370F974DFF70F927B01AA10DB91
 ```
 
 https://mybot314.ru/tekegram_catalog/

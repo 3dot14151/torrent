@@ -6,7 +6,7 @@ Blood Bowl III (3) (2023) [Ru/Multi] (Season 7/dlc) Scene TinyISO
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34297.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dungeons 4 (2023) [Ru/Multi] (1.8/dlc) Repack seleZen [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34011.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Between the Stars (2019) [Ru/Multi] (1.0.0.8) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33522.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Trade Conquest (2024) [En] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32658.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Trade Conquest (2024) [En] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32447.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ The Sims 3 (2009-2013) [Ru/Multi] (1.67.2.024037/dlc) Repack dixen18 [Complete E
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32349.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Airship: Kingdoms Adrift (2023) [Multi] (1.6.1.2) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32167.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ From the Depths (2014) [Ru/Multi] (4.2.1.1/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31831.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Slipways (2021) [Multi] (1.3-1143) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31762.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Millennia (2024) [Ru/Multi] (1.0.23641.F/dlc) Repack Let'sРlay [Premium Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31343.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Builders of Egypt (2025) [Ru/Multi] (1.036) Repack R.G. Freedom
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31316.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Builders of Egypt (2025) [Ru/Multi] (1.036) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31303.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Builders of Egypt (2025) [Ru/Multi] (1.036) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31251.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Reus 2 (2024) [Ru/Multi] (1.5.0/dlc) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30653.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Catizens (2022) [Ru/Multi] (1.0.r153) Repack FitGirl [Game & Soundtrack Bundle]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30447.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Frostpunk 2 (2024) [Ru/Multi] (1.2.2-433870) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29976.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ None Shall Intrude (2025) [Ru/Multi] (1.0.01) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29809.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Learning Factory (2021) [Ru/Multi] (1.0.0.546) Repack FitGirl [Curious Mind Edit
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29190.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Foundation (2019) [Ru/Multi] (1.0) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28989.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Foundation (2019) [Ru/Multi] (1.10.2.0/dlc) Repack FitGirl [Supporter Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28916.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ The Sims 2 (2025) [Ru/Multi] (Build 17175009/dlc) Scene Tenoke [Legacy Collectio
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28630.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ The Sims 2 (2025) [Ru/Multi] (1.0.0.72/dlc) Repack FitGirl [Legacy Collection]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28598.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Eyes of War (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28491.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ The Sims Legacy Collection (2025) [Multi] (17149764/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28265.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Kardboard Kings: Card Shop Simulator (2022) [Ru/Multi] (1.3.25) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27696.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Flooded (2023) [Multi] (1.0.8.3.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27695.jpg" />
 </div>
 
 

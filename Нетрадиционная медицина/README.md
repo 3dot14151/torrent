@@ -1,4 +1,58 @@
 https://t.me/izofen
+###  Публикация: 1870221   (1068641) от 14.05.2026
+
+Дао Шен | 27 древних практик восстановления организма. Метод мастера Дао Шена (2026) [PDF]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1068641.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сорок лет я принимал людей, которые приходили с болью — и уходили с пониманием. Эта книга о том, как тело говорит с нами задолго до болезни — и как слышать этот разговор. Древние законы природы, которые я собирал в монастырях и деревнях, у постели тысяч людей. Не список таблеток — а система, которая работает изнутри».
+
+Метод мастера Дао Шена, направлен на борьбу (   Читать дальше...   )Жанр: Здоровье и народная медицина. Авторские системы оздоровленияИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFFF4463237E0E1BFC3CA520DE5AF827E71B970E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868580   (1067535) от 01.05.2026
+
+Юлия Сергиенко | 40 трав, необходимых в каждом доме (2006) [PDF]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1067535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Природа позаботилась о нас и подарила людям эти лекарственные растения, оказывающие помощь практически при любом недуге. Каждое из них хорошо известно и народной, и традиционной медицине и способно заменить целую аптеку далеко не безвредных химических препаратов. Все рецепты, представленные в этом сборнике, предельно просты и предназначены специально для применения (   Читать дальше...   )Жанр: Здоровье. ФитотерапияИздательство: Рипол КлассикФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA90741734EE6AFDB08C74A257DEBC4E8D3BBFF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861049   (1062181) от 24.03.2026
 
 Книжная серия | Здоровье. Умные методики [13 книг] (2013-2015) [FB2]
@@ -7,7 +61,7 @@ https://t.me/izofen
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062181.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059548.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056892.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053789.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052805.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052802.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050992.jpg" />
 </div>
 
 
@@ -195,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043021.jpg" />
 </div>
 
 
@@ -221,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042511.jpg" />
 </div>
 
 
@@ -247,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041971.jpg" />
 </div>
 
 
@@ -274,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041956.jpg" />
 </div>
 
 
@@ -301,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041672.jpg" />
 </div>
 
 
@@ -329,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041664.jpg" />
 </div>
 
 
@@ -356,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041373.jpg" />
 </div>
 
 
@@ -382,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039822.jpg" />
 </div>
 
 
@@ -408,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039751.jpg" />
 </div>
 
 
@@ -434,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039272.jpg" />
 </div>
 
 
@@ -462,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037670.jpg" />
 </div>
 
 
@@ -489,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037647.jpg" />
 </div>
 
 
@@ -515,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037644.jpg" />
 </div>
 
 
@@ -541,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036255.jpg" />
 </div>
 
 
@@ -567,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035697.jpg" />
 </div>
 
 
@@ -593,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035635.jpg" />
 </div>
 
 
@@ -619,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034345.jpg" />
 </div>
 
 
@@ -630,58 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:928F7D0BA115ADA42C05DDBCF52BE46B57600661
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446778   (1032452) от 10.02.2021
-
-Николай Пейчев | Полная система восстановления здоровья. Причины заболеваний и пути их устранения (2021) [EPUB]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга полезна как пособие по оздоровлению организма. Вы узнаете о причинах заболеваний, в основе которых лежит закисление организма. Автор дает много полезной информации о том, как с помощью обычной соды убрать лишнюю кислотность: уход за телом, щелочные ванны, щелочное питье.Жанр: Здоровье, Народная и нетрадиционная медицинаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B33CAD2CB50E24E925B33F6AE9797B37B191F56A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446871   (1032191) от 11.02.2021
-
-Андрей Беловешкин | Воля к жизни. Как использовать ресурсы здоровья по максимуму (2021) [FB2]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Замечали ли вы, как легко и весело работается после долгого и насыщенного отпуска? И наоборот, как тяжело становится вставать по утрам, если давно не получалось как следует отдохнуть? Все этого говорит лишь об одном - о том, что наши ресурсы, хоть и исчерпываются, всегда могут быть восполнены. К сожалению, выспаться или наесться один раз и на всю жизнь не получится, (   Читать дальше...   )Жанр: Медицина и здоровьеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE6B2485D6388BC2E173575544029C5BDD969032
 ```
 
 https://mybot314.ru/tekegram_catalog/

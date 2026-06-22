@@ -1,3 +1,29 @@
+###  Публикация: 637645   (896829) от 02.04.2013
+
+Москва и окрестности. Измайловский парк (2013) IPTVRip
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Измайловский парк (природно-исторический парк «Измайлово») – один из крупнейших парков Москвы. Ранее он назывался Московским парком культуры и отдыха им. Сталина, и был в числе лучших парков страны и, к тому же, одной из баз ДОСААФ. В настоящее время это огромная территория для прогулок по лесопарковой территории. Данный выпуск «Москвы и окрестностей» посвящён зимнему Измайловскому ПКиО.Жанр: Документальный, география, краеведение, путешествие, исследованиеТелекомпания: Москва медиа / Моя планета / ВГТРКПеревод: ОтсутствуетПродолжительность: 00:20:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F4E1969DFEEF4769F8D45ECCC38AE9569D68BF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993010   (895679) от 05.03.2016
 
 Золотой Глобус: Доминиканская Республика - жемчужина Карибского моря (2009) DVD9 (выпуск 32)
@@ -6,7 +32,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895679.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894103.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893867.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893826.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893302.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893213.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890688.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889407.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889026.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888885.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888576.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885980.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885779.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885571.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884606.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883212.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883210.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882408.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882392.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881055.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880550.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879291.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878694.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878585.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ K2: Сирена Гималаев / K2: Siren of the Himalayas (2012) WEB-DL [H.
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874200.jpg" />
 </div>
 
 
@@ -647,33 +673,6 @@ K2: Сирена Гималаев / K2: Siren of the Himalayas (2012) WEB-DL [H.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE4DDC38042A70CEE0134A5C46CB44726C2395E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106260   (873531) от 19.02.2017
-
-Открытие Китая (2017.02.19) SATRip (серия 30)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873531.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Открытие Китая" - это цикл авторских документальных фильмов о Поднебесной. Автор Евгений Колесов – не профессиональный журналист, а бизнесмен.
-Двадцать лет назад, еще студентом, он поехал в Китай учиться, да так там и остался. Основал заграницей успешную консалтинговую фирму, женился на русской девушке, родил четверых детей. А потом как человек творческий (   Читать дальше...   )Телекомпания: Первый каналЖанр: Документальный, познавательный, путешествиеСубтитры: ОтсутствуютПродолжительность: 00:25:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1480C20B4E441DA2FEB665DB794777D3163D25C
 ```
 
 https://mybot314.ru/tekegram_catalog/

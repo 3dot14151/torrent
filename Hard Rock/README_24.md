@@ -1,3 +1,90 @@
+###  Публикация: 1329129   (356508) от 03.10.2019
+
+Eclipse - Paradigm (2019) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356508.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Viva La Victoria[3:12]
+ 2 - Mary Leigh[3:06]
+ 3 - Blood Wants Blood[3:35]
+ 4 - Shelter Me[3:13](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE121B5921B64036E743091EA1295C6D2C9DE6F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417690   (355736) от 21.10.2020
+
+Tragik - Faith Healer (2020) [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back on the Road (03:12)
+ 02. Faith (03:35)
+ 03. Robot Love (02:29)
+ 04. Hanging by a String (04:45)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47FE13B39A022D95D742C4B69E70B845B0F8B456
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072105   (354776) от 12.11.2016
+
+Overdrivers - Rockin' Hell (2016) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockin' Hell
+02. Bertha Rottenfold
+03. She Hides A Big Packet
+04. Hard Rock Hard Life Hard Night(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:391D3D15BDF6024360216B47877AFB65C0EDE325
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256649   (354023) от 22.10.2018
 
 Whitesnake - Unzipped (2018) 5CD, Super Deluxe Edition [MP3|320 Kbps] <Hard Rock, Classic Rock>
@@ -6,7 +93,7 @@ Whitesnake - Unzipped (2018) 5CD, Super Deluxe Edition [MP3|320 Kbps] <Hard Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354023.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Dog 'N' Style - Pub's Calling (2016) [MP3|320 Kbps] <Hard Rock, Stoner Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352385.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Juicy Lucy - Juicy Lucy (1969) / 2006, Air Mail Archive / [MP3|320 кб/с]<Blue
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351548.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Karla - Karla (1990) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350846.jpg" />
 </div>
 
 
@@ -128,7 +215,7 @@ Morly Grey - The Only Truth (1972) / 2000, Akarma / [MP3|320 кб/с]<Psychedeli
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349564.jpg" />
 </div>
 
 
@@ -157,7 +244,7 @@ Nova Rex - Rock Star Roadshow (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349208.jpg" />
 </div>
 
 
@@ -186,7 +273,7 @@ Irish Coffee - Heaven (2020) [MP3|320 Kbps] <Hard Rock, Classic Rock, Blues Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346799.jpg" />
 </div>
 
 
@@ -215,7 +302,7 @@ The Great Whitecross & Guardian - Revival (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344566.jpg" />
 </div>
 
 
@@ -244,7 +331,7 @@ Scorpions - Animal Magnetism (1980) 50th Anniversary Deluxe Edition /2015, BMG/ 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344395.jpg" />
 </div>
 
 
@@ -273,7 +360,7 @@ Scorpions - Blackout (1982) 50th Anniversary Deluxe Edition /2015, BMG/  [MP3|32
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344257.jpg" />
 </div>
 
 
@@ -302,7 +389,7 @@ Scorpions - Lovedrive (1979) 50th Anniversary Deluxe Edition /2015, BMG/ [MP3|32
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344171.jpg" />
 </div>
 
 
@@ -331,7 +418,7 @@ Scorpions - Love At First Sting (1984) 50th Anniversary Deluxe Edition /2015, BM
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344170.jpg" />
 </div>
 
 
@@ -360,7 +447,7 @@ Billy Gibbons And The BFG's - Perfectamundo (2015) [MP3|320 кб/с]<Hard Rock, 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344168.jpg" />
 </div>
 
 
@@ -389,7 +476,7 @@ The Darkness - Easter is Cancelled (2019) Deluxe Edition [MP3|320 kbps] <Hard Ro
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343543.jpg" />
 </div>
 
 
@@ -418,7 +505,7 @@ Suzi Quatro - In The Spotlight (Deluxe Edition) (2CD) (2012) [MP3|320 кб/с]<P
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342590.jpg" />
 </div>
 
 
@@ -451,7 +538,7 @@ The Frost - Rock And Roll Music (1969) [MP3|320 кб/с]<Psychedelic, Blues, Har
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342296.jpg" />
 </div>
 
 
@@ -480,7 +567,7 @@ Deep Purple - Golden Ballads (2013) 2CD [MP3|320 Kbps] <Rock, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341748.jpg" />
 </div>
 
 
@@ -509,7 +596,7 @@ Deep Purple - A Fire in the Sky (2017) 3CD [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341736.jpg" />
 </div>
 
 
@@ -538,7 +625,7 @@ Highly Suspect - 3 Albums (2015-2022) [MP3|320 Kbps] <Hard Rock, Blues Rock, Pro
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341078.jpg" />
 </div>
 
 
@@ -567,7 +654,7 @@ Sixx: A.M. - Prayers For The Blessed Vol. 2 (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340437.jpg" />
 </div>
 
 
@@ -596,7 +683,7 @@ Sexy - Shout For Sexy! (2015) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339867.jpg" />
 </div>
 
 
@@ -625,7 +712,7 @@ Rainbow - Long Live Rock 'n' Roll [Deluxe Remastered Edition] (2012) [MP3|320 к
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337824.jpg" />
 </div>
 
 
@@ -660,7 +747,7 @@ Scorpions - Taken By Force (1977) 50th Anniversary Deluxe Edition /2015, BMG/ [M
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337195.jpg" />
 </div>
 
 
@@ -674,93 +761,6 @@ Scorpions - Taken By Force (1977) 50th Anniversary Deluxe Edition /2015, BMG/ [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4021B39450B90EE442C15AB46461E3FDB690020F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955116   (336914) от 09.11.2015
-
-Scorpions - World Wide Live (1985) 50th Anniversary Deluxe Edition /2015, BMG/ [MP3|320 кб/с]<Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Countdown
-02. Coming Home
-03. Blackout
-04. Bad Boys Running Wild(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:19:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE3CA2F1E291E1E4C3E72A7EB67C268388816DCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579480   (336411) от 27.09.2022
-
-Talas - 1985 (2022) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inner Mounting Flame
-02. I'll Take The Night
-03. Crystal Clear
-04. Don't Try To Stop Me Tonight(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FFA6B7CC974DBCECBC05F6AD09783E2BDA73EE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074857   (336032) от 20.11.2016
-
-Mountain - Super Hits (1998) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mississippi Queen (02:31)
-02. Theme From An Imaginary Western (05:07)
-03. Never In My Life (03:52)
-04. Flowers Of Evil (04:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A876CB5F4F7629E436BD1662384B0105B829AF34
 ```
 
 https://mybot314.ru/tekegram_catalog/

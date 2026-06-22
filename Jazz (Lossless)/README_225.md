@@ -1,119 +1,3 @@
-###  Публикация: 962426   (295351) от 04.12.2015
-
-VA - Divas Exotica (1999) Capitol Records[FLAC|tracks+.cue]<Vocal Jazz, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_295351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Me Entertain You - Ann Margret [02:26]
-02. Don't Touch My Tomatoes - Josephine Baker/Jo Bouillon [02:17]
-03. Near You - Marlene Dietrich [02:18]
-04. Teach Me Tiger - April Stevens [02:23](   Читать дальше...   )Жанр: Vocal Jazz, Easy ListeningПродолжительность: 00:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:134994C6355ECDF137A86AC5A76ED9609119A828
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185240   (295208) от 20.11.2017
-
-Ruby Braff - For The Last Time (2002) 2CD, 2009, Arbors Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295208.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Sometimes I'm Happy [12:16]
-02. Why Shouldn't I? [04:58]
-03. Just You, Just Me [12:25](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:55:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39B6FC7BCBC62E327F16BDCFCCA1E51521CE7D87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262448   (295174) от 15.11.2018
-
-Tal Farlow - Tal (1956) 2016, Universal [FLAC|Lossless|tracks + .cue] <Cool, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Isn't It Romantic [10:15]
-02. There Is No Greater Love [4:00]
-03. How About You [6:06]
-04. Anything Goes [5:13](   Читать дальше...   )Жанр: Cool, Guitar JazzПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DB89FCE3EBC655D84CF77EC9AC8B7B0B084284D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262443   (295029) от 15.11.2018
-
-Dick Hyman & Ray Kennedy - What Is There To Say? (2003) Victoria Company [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yes Sir, That's My Baby [4:57]
-02. What Is There To Say? [3:59]
-03. Idaho [4:39]
-04. These Foolish Things [6:22](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:03:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDCA95C4541AFD3A83A9D1DD2C2471F54A5BC832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334488   (294976) от 29.10.2019
 
 Billy Eckstine - Cocktail Hour 1940-e (2001) 2CD, Allegro [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -122,7 +6,7 @@ Billy Eckstine - Cocktail Hour 1940-e (2001) 2CD, Allegro [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294976.jpg" />
 </div>
 
 
@@ -151,7 +35,7 @@ Music for Quiet Moments - Rainy Autumn Night Jazz (2019) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294872.jpg" />
 </div>
 
 
@@ -180,7 +64,7 @@ Paris Jazz Big Band - Source(s) (2012) Cristal Records[FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294541.jpg" />
 </div>
 
 
@@ -209,7 +93,7 @@ Milt Jackson and the Monty Alexander Trio - Soul Fusion (1978) 1992, OJC[FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294370.jpg" />
 </div>
 
 
@@ -238,7 +122,7 @@ SaraLee - Queen Of Your Heart (2016) Scene [FLAC|Lossless|tracks] <Rockabilly, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294360.jpg" />
 </div>
 
 
@@ -267,7 +151,7 @@ Swing Republic - Midnight Calling (2012) [FLAC|Lossless|image + .cue] <Electro S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294187.jpg" />
 </div>
 
 
@@ -296,7 +180,7 @@ Stanley Cowell - New World (1978) 2014, Universal[FLAC|tracks+.cue]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293676.jpg" />
 </div>
 
 
@@ -325,7 +209,7 @@ Reuben Wilson - On Broadway (1968) 2014, Universal[FLAC|tracks+.cue]<Jazz-Funk, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293669.jpg" />
 </div>
 
 
@@ -354,7 +238,7 @@ Arsenal (Арсенал) - Live At The "Forte" Club (2000) Muzprom[FLAC|tracks+.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293664.jpg" />
 </div>
 
 
@@ -383,7 +267,7 @@ Stanley Cowell Trio - Games (1991) SteepleChase [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293611.jpg" />
 </div>
 
 
@@ -412,7 +296,7 @@ Gene Ammons - The Gene Ammons Story: The 78 Era (1950 - 1955) 1992, Prestige [AP
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293610.jpg" />
 </div>
 
 
@@ -441,7 +325,7 @@ Paquito D'Rivera - Brazilian Dreams (2002) MCG Jazz[APE|tracks+.cue]<Afro-Cuban 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293534.jpg" />
 </div>
 
 
@@ -470,7 +354,7 @@ Chaise Lounge - Gin Fizz Fandango (2015) [FLAC|Image+cue]<Retro Swing, Vocal Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293528.jpg" />
 </div>
 
 
@@ -499,7 +383,7 @@ Eddie Daniels - Memos From Paradise (1988) GRP Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293374.jpg" />
 </div>
 
 
@@ -528,7 +412,7 @@ Silent Way - Standby - (B&P Production) (1996) [FLAC|Lossless|tracks + .cue] <Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293373.jpg" />
 </div>
 
 
@@ -557,7 +441,7 @@ ZAZ - Effet Miroir (2018) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Chanson, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292985.jpg" />
 </div>
 
 
@@ -586,7 +470,7 @@ Buck Clayton & Buddy Tate - Buck & Buddy (1960) 1992, Original Jazz Classics[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292215.jpg" />
 </div>
 
 
@@ -615,7 +499,7 @@ Budd Johnson And The Four Brass Giants (1960) 1999, Original Jazz Classics [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291813.jpg" />
 </div>
 
 
@@ -644,7 +528,7 @@ Kat Green - Until You (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocals>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291740.jpg" />
 </div>
 
 
@@ -673,7 +557,7 @@ Duke Ellington - Moonlight Fiesta (1936 - 1953) 3CD, 2011, Le Chant du Monde [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291730.jpg" />
 </div>
 
 
@@ -702,7 +586,7 @@ Waso - Live In Laren (1980) 1992, Polydor [FLAC|Lossless|tracks + .cue] <Gypsy, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291676.jpg" />
 </div>
 
 
@@ -731,7 +615,7 @@ Max Roach & Abdullah Ibrahim - Streams Of Consciousness 1977 (2003) Piadrum Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291675.jpg" />
 </div>
 
 
@@ -745,6 +629,122 @@ Max Roach & Abdullah Ibrahim - Streams Of Consciousness 1977 (2003) Piadrum Reco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FE19D7DE69C87970F464A95D2DF088FB4B2823E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262869   (291591) от 17.11.2018
+
+Gene Ammons - Up Tight! (1961) 1994, Prestige [APE|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Breeze and I [6:27]
+02. Carbow [6:10]
+03. Moonglow [5:05]
+04. I'm Afraid the Masquerade Is Over [6:03](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:15:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B106D90351AD5AD65703598F2EB2D298E7E071F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262971   (291585) от 17.11.2018
+
+Ralph Sharon Trio - The Magic Of George Gershwin (2000) Avid Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fascinating Rhythm [3:02]
+02. They All Laughed [2:27]
+03. Medley: Somebody Loves Me/'S Wonderful/But Not for Me/Soon [2:51]
+04. I Loves You, Porgy [3:08](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:55:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F4DFB4DE21D28ADE49B3B55B9201F57522268CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262865   (291582) от 17.11.2018
+
+Casiopea - Platinum (1987) 2017, Universal [FLAC|Lossless|image + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Access [3:49]
+02. Akasha [4:05]
+03. Magnetic Vibration [4:24]
+04. Me Espere [3:19](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06C3263A85CC737C4A6FB3069D247875F89CDABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262867   (291576) от 17.11.2018
+
+Casiopea - Euphony (1988) 2017, Universal [FLAC|Lossless|image + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taiyo-Fu (The Wind from the Sun) [4:13]
+02. Shadow Man [4:07]
+03. Super Sonic Movement [3:54]
+04. Inishie (Old Times) [3:44](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89C496F8A213CAA2F531E120F8196FE0CE79BCE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

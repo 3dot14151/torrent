@@ -6,7 +6,7 @@ lectoroom, Елена Базанова | Веточки яблони аквар�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_227271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227271.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_227256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227256.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Ctrl + Paint, Matt Kohr | Custom Brush Design (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226965.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Ctrl + Paint, Matt Kohr | Vehicle Design Start To Finish (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226938.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Ctrl + Paint, Matt Kohr | Let's Paint (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226924.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Ctrl + Paint, Matt Kohr | Weapon Design (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226886.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Udemy, Neil Bettison | Создание научно-фантастическо�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226862.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Ctrl + Paint, Matt Kohr | Costume Design (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226831.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Ctrl + Paint, Matt Kohr | Digital Sketching 2: Refined Lines (2016) PCRec [En, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226798.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Ctrl + Paint, Matt Kohr | Creating Realistic Surfaces (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226760.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Ctrl + Paint, Matt Kohr | Digital Sketching 4: Technical Drawing (2016) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226739.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Ctrl + Paint, Matt Kohr | Digital Sketching 1: Gesture (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226708.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Kantemir Bitokov | Курс по моделингу автомобиля кла�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226673.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ CGEvent | Подборка мастерклассов по трехмерке К
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225385.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ CGEvent | Подборка мастерклассов по трехмерке М
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225377.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ CGEvent | Подборка мастерклассов по трехмерке П
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225185.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ CGEvent | Подборка мастерклассов по трехмерке М
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225168.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Udemy, Charlie Grubel | 3D Animation Basics To Full Body and Creature Mechanics 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224786.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Digital Tutors, Floyd Bishop | Creating Animal Animations in Maya 2016 (2015) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224764.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224754.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ CG Cookie, Kent Trammell | HUMAN: Realistic Portrait Creation with Blender (2021
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224382.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Creative Shrimp, Jeannot Landry | Hard Surface Rigging In Blender (2020) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224349.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Skillshare, David Jaasma | Мастер-класс по системе част�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223803.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Creative Shrimp, Luca Rood | Procedural Texturing: Blender Master Class (2021) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223080.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ MachDigital, Тимур Магомедов | MachDigital - Моделирова�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222081.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221811.jpg" />
 </div>
 
 

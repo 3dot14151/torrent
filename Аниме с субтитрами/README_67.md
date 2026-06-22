@@ -1,3 +1,29 @@
+###  Публикация: 1295676   (539488) от 30.06.2019
+
+Chou Kadou Girl 1/6 | Amazing Stranger | Ускоренная девушка [2019, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Боуида Харуто - заядлый отаку, который не интересуется 3D (реальными) девушками. Однажды он купил фигуру своей любимой аниме-героини Ноны, но внезапно Нона начала двигаться! Бешеная семейная жизнь между одним отаку и одним роботом вот-вот начнется!Производство: Студия Studio A-CATЖанр: комедияРежиссер: Мотонага КэйтароПеревод: официальный (Cranchroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 15 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5201816A1DB03AD6FE308926C1566EB06A841A18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1154756   (538693) от 31.07.2017
 
 Kono Subarashii Sekai ni Shukufuku wo! 2 OVA / Konosuba OVA 2 / Этот замечательный мир! 2 OVA [2017, OVA] BDrip 720p Hi10P raw
@@ -6,7 +32,7 @@ Kono Subarashii Sekai ni Shukufuku wo! 2 OVA / Konosuba OVA 2 / Этот зам�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538693.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Reikenzan: Eichi e no Shikaku / Гора Священного меча: Банк
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538481.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ Kimi no Na wa. / Your Name / Твоё имя [2016, MV] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538461.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ Kimi no Na wa. / Your Name / Твоё имя [2016, MV] BDrip 720p Hi10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538350.jpg" />
 </div>
 
 
@@ -118,7 +144,7 @@ Sin: Nanatsu no Taizai / Прегрешение: Семь смертных гр�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538325.jpg" />
 </div>
 
 
@@ -145,7 +171,7 @@ Grimms Notes The Animation | Заметки Гримм [2019, TV, 12 эп.] BDri
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538113.jpg" />
 </div>
 
 
@@ -171,7 +197,7 @@ Dog Days | Жаркие деньки | Собачья жизнь [ТВ-1] [2011,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538024.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ Genmu Senki Leda | Fantastic Adventure Of Yohko: Leda | Леда: Фантаст
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538019.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537680.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ Rikei ga Koi ni Ochita no de Shoumei Shite Mita. Heart | Наука влюбле
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537056.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ Natsufuku no Shoujo-tachi / Girls in Summer Clothes / Девочки в летн
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536561.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ Kill Me Baby | Убей меня, детка [ТВ] [2012, TV, 13 эп.] BDrip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536320.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ Dog Days' | Жаркие деньки | Собачья Жизнь [ТВ-2] [2012
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536309.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ Dance Dance Danseur | Танцуй, танцуй, танцор [2022, TV, 11 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535352.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ Honoo Tripper / Fire Tripper / Сквозь огонь [1985, OAV] DVDRip raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535058.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ Kakumeiki Valvrave | Valvrave the Liberator | Валврейв Освободи�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534955.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ Junketsu no Maria | Непорочная Мария [2015, TV, 12 эп.] BDrip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534443.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534442.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ Kubikiri Cycle: Aoiro Savant to Zaregotozukai | Обезглавливающий
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534283.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533967.jpg" />
 </div>
 
 
@@ -540,7 +566,7 @@ Akatsuki no Yona | Рассвет Ёны [2015, OVA, 3 эп.] DVDrip 576p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533961.jpg" />
 </div>
 
 
@@ -568,7 +594,7 @@ Ryuugajou Nanana no Maizoukin | Nanana's Buried Treasure | Сокровища Н
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532571.jpg" />
 </div>
 
 
@@ -594,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532562.jpg" />
 </div>
 
 
@@ -621,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532550.jpg" />
 </div>
 
 
@@ -647,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532544.jpg" />
 </div>
 
 
@@ -658,32 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1C0FF638D9B1B5C714442D809D568F50EA71D47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051230   (532441) от 11.09.2016
-
-Остров Джованни | Giovanni's Island | Giovanni no Shima [2014, MV] BDrip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дзюмпэй и Канта - братья, живущие со своим отцом Тацуо на острове Шикотан. Когда 15 августа 1945 года Япония капитулирует, на один из её островов высаживаются советские солдаты. Остров становится территорией СССР - частью Сахалинской области. Для Тацуо и его детей начинается новая жизнь. Им предстоит пережить и культурный шок от чужого образа жизни, и очарование, (   Читать дальше...   )Производство: студия Production I.GЖанр: драма, историяРежиссер: Нисикубо МидзухоПеревод: TimecraftЯзык субтитров: РусскийПродолжительность: 100 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED9A2822EE9D31126953385BCC7768CD28CDFF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

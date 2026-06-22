@@ -1,3 +1,29 @@
+###  Публикация: 1151851   (570103) от 20.07.2017
+
+Роман Глушков | Сборник произведений [35 книг] (2003-2017) [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор книг – один из немногих современных хороших писателей фантастов, который пишет в стиле смеси социальной (типа Стругацких) и боевой фантастики. Наиболее известен своими сериалами «Меч в рукаве» в котором рассказывается о борьбе тайной организации обладающих сверхъестественными способностями людей, против проникших на Землю космических агрессоров и «Эпоха стального (   Читать дальше...   )Жанр: Фантастика, фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAF532915F6EF987EBF3CBF48D16BEF9518E12A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922473   (567976) от 29.07.2015
 
 Андрей Анисимов | Собрание сочинений [35 книг] (2001-2015) [FB2]
@@ -6,7 +32,7 @@
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567976.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566754.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566027.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565214.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565116.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565041.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565022.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564403.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555286.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547744.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546212.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546179.jpg" />
 </div>
 
 
@@ -331,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545515.jpg" />
 </div>
 
 
@@ -357,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542413.jpg" />
 </div>
 
 
@@ -383,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541751.jpg" />
 </div>
 
 
@@ -409,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539428.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529614.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529503.jpg" />
 </div>
 
 
@@ -489,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529463.jpg" />
 </div>
 
 
@@ -516,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529389.jpg" />
 </div>
 
 
@@ -543,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529333.jpg" />
 </div>
 
 
@@ -570,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527691.jpg" />
 </div>
 
 
@@ -596,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525817.jpg" />
 </div>
 
 
@@ -623,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524706.jpg" />
 </div>
 
 
@@ -651,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519967.jpg" />
 </div>
 
 
@@ -663,34 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:381672F3C15A44DE3E166ED04DBE5A587776C3DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929216   (519358) от 19.08.2015
-
-Евгений Филенко | Собрание сочинений [28 книг] (1964-2015) [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Евгений Иванович Филенко родился в Перми в 1954 году. Окончил Пермский университет. Работает программистом.
-Дебютировал рассказом "Космический десант" (1964). Первые рассказы построены на реалиях мира Полдня Стругацких. Активно сотрудничал в пермском КЛФ "Рифей" со дня основания, член правления.
-Наиболее известен цикл Галактический консул/ Северин (   Читать дальше...   )Жанр: ФантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A73A64708CD21D59CCDA06BACA2370D6F8DB48E
 ```
 
 https://mybot314.ru/tekegram_catalog/

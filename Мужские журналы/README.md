@@ -1,4 +1,60 @@
 https://t.me/izofen
+###  Публикация: 1876654   (1073424) от 16.06.2026
+
+Журнал | BOUDOIR Inspiration (LINGERIE) (июнь 2026) [PDF] [EN]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073424.jpg" />
+</div>
+
+
+###  Подробнее
+
+BOUDOIR Inspiration — это платформа и журнал, посвященные тщательно подобранному вдохновению для будуарной фотографии. Откройте для себя самый красивый Будуар...
+
+Номер: LINGERIE InspirationЖанр: Мужской журналЯзык: АнглийскийИздательство: BOUDOIR InspirationФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C91158274E3D62938DC84360975819EEA96EF78B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876730   (1073379) от 16.06.2026
+
+Журнал | BOUDOIR Inspiration (ARTISTIC NUDE) (июнь 2026) [PDF] [EN]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073379.jpg" />
+</div>
+
+
+###  Подробнее
+
+BOUDOIR Inspiration — это платформа и журнал, посвященные тщательно подобранному вдохновению для будуарной фотографии. Откройте для себя самый красивый Будуар...
+
+Номер: ARTISTIC NUDE IssueЖанр: Мужской журналЯзык: АнглийскийИздательство: BOUDOIR InspirationФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A73289548FBB69386FBD97650046B6A85DE0A1EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870344   (1069208) от 11.05.2026
 
 Журнал | BOUDOIR Inspiration (BOUDOIR) (апрель 2026) [PDF] [EN]
@@ -7,7 +63,7 @@ https://t.me/izofen
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069208.jpg" />
 </div>
 
 
@@ -35,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068662.jpg" />
 </div>
 
 
@@ -63,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068660.jpg" />
 </div>
 
 
@@ -91,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068569.jpg" />
 </div>
 
 
@@ -119,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068568.jpg" />
 </div>
 
 
@@ -147,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068561.jpg" />
 </div>
 
 
@@ -175,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060077.jpg" />
 </div>
 
 
@@ -203,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060075.jpg" />
 </div>
 
 
@@ -231,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060042.jpg" />
 </div>
 
 
@@ -259,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053816.jpg" />
 </div>
 
 
@@ -287,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053815.jpg" />
 </div>
 
 
@@ -315,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053814.jpg" />
 </div>
 
 
@@ -343,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051475.jpg" />
 </div>
 
 
@@ -371,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051473.jpg" />
 </div>
 
 
@@ -399,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051472.jpg" />
 </div>
 
 
@@ -427,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051471.jpg" />
 </div>
 
 
@@ -455,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049675.jpg" />
 </div>
 
 
@@ -483,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048567.jpg" />
 </div>
 
 
@@ -509,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048542.jpg" />
 </div>
 
 
@@ -535,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048532.jpg" />
 </div>
 
 
@@ -561,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048531.jpg" />
 </div>
 
 
@@ -587,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048530.jpg" />
 </div>
 
 
@@ -613,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048354.jpg" />
 </div>
 
 
@@ -639,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048353.jpg" />
 </div>
 
 
@@ -650,58 +706,6 @@ Lingerie Plus – настоящий мужской журнал. В нем ва
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67BBA22A4CCA482B360C4922ECCB56A9AB6DAB2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842033   (1048352) от 14.12.2025
-
-Журнал | Lingerie Plus (сентябрь 2025) [PDF] [EN]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lingerie Plus – настоящий мужской журнал. В нем вас встретят сексуальные девушки в откровенном белье и ничего больше. Наслаждайтесь горячими красотками, листая страницы Lingerie Plus!Жанр: Мужской журналИздательство: Universe 137 Studios Productions CorpФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:684D8E812A7C6906445DB52E695C8ECC871059D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280087   (1037036) от 23.01.2021
-
-Подшивка журналов | Playboy. Full Year Issues Collection [Slovenia] (2018) [PDF] [SL]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037036.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Плейбо́й» (англ. Playboy) — эротический журнал для мужчин, издающийся с 1953 года Хью Хефнером и его коллегами, выросший в издательский дом Playboy Enterprises, деятельность которого простирается на многие области медиа-бизнеса для взрослых. Кроме журнала в США выпускаются журналы на различных языках во всём мире.Жанр: Мужской журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19D03DAB55D76760448EED8BDA255649EF336D55
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,167 @@
+###  Публикация: 478762   (86869) от 06.04.2012
+
+Manhunt Дилогия (P) [Ru] 2004-2009
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86869.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ходе секретных лабораторных испытаний произошла роковая ошибка, приведшая к катастрофическим последствиям. Из всех участников неудачного эксперимента уцелели двое пациентов — Даниель Лэм и Лео Каспер. Теперь «Проект Пикмана» не остановится ни перед чем, чтобы уничтожить свидетелей и скрыть правду о случившемся.
+Последние шесть лет ты находился в психиатрической клинике. Открыв глаза, ты видишь человека в белом халате. Его тело медленно оседает на пол. Из твоих дрожащих рук падает окровавленный шприц. Что происходит ? Как ты здесь очутился ? Кто ты такой ?
+Двери открыты. Это твой единственный шанс на спасение. Когда-то тебя лишили права на жизнь. Пришло время его вернуть.Тип издания: ПираткаЖанр: Stealth action, Survival horrorЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD576220CFD04FED20F30B817683EB99D6AFFC13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478756   (86616) от 05.04.2012
+
+Tomb Raider 4: The Last Revelation [En] (L) 1999
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86616.jpg" />
+</div>
+
+
+###  Подробнее
+
+В детстве многие мечтали стать археологами, но не все ими стали. Чтобы осуществить свою мечту юная Лара Крофт помогла известному знатоку древностей профессору фон Крою организовать экспедицию в Египет, с условием, что он возьмет ее с собой. Начинающая расхитительница гробниц отправилась на поиски древнего амулета, с помощью которого можно одолеть могущественное египетское божество.
+По сравнению с третьей частью значительно улучшился движок игры, добавились новые спецэффекты, полностью изменился дизайн всех меню и настроек, отважная Лара научилась новым движения, а арсенал ее оружия заметно расширился.Тип издания: ЛицензияЖанр: трехмерный экшен от третьего лицаЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2239B751F10048814017A3684477A00CBCDBE37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478173   (86398) от 04.04.2012
+
+Darkened Skye [Ru] (RePack) 2002 | Pilotus
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Злобный чародей Некрос правит миром с помощью украденной магии. Наша героиня — потерявшая родителей девушка Скайя — должна пройти пять миров, разыскать в них призмы и с помощью маминого амулета и магических конфет Skittles вернуть миру волшебство радуги фруктовых ароматов.Тип издания: RePackЖанр: Экшен от третьего лицаЯзык озвучки: РусскийЯзык интерфейса: Русский (8bit)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2039B7AE69F5BE193B3EBD73E256C6A3EF4F295E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477520   (86265) от 03.04.2012
+
+Front Mission Evolved + 6 DLC [Ru] (RePack/1.0.0.1u2) 2010 | Fenixx
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86265.jpg" />
+</div>
+
+
+###  Подробнее
+
+История учит, что без войны невозможно достичь мира. Что без совершенного оружия нельзя одержать победу. Но историки никогда не были на поле боя. Оставьте мысли на потом. А сейчас – есть приказ, есть цель, есть враг, которого надо уничтожить. И есть огромный, современный боевой робот. Проведите свой Wanzer навстречу огненному шквалу и разрывам снарядов. Докажите, что в ваших силах изменить ход истории!
+
+Грандиозный экшен от третьего лица выглядит, как настоящий голливудский блокбастер. Вам предстоит действовать в фантастическом мире будущего. Идет 2171 год, человечество устремилось в космос. Но на Земле продолжаются жестокие сражения. Вы не только сможете принять в них участие – от ваших действий зависит практически все. При этом улучшить вашего робота не только можно, но и нужно! Выберите подходящий для вас стиль. Снимите тяжелую броню и поразите противника небывалой скоростью движения. Прикрепите дополнительные орудия и станьте настоящим дредноутом – смертельной угрозой для любого, кто посмеет открыть огонь. (   Читать дальше...   )Тип издания: RePackРазработчик: Double Helix GamesЖанр: Action (Shooter) / 3D / 3rd PersonЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3EA4E4F188BBAC35D9D22A5529FE81414FBAB4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470826   (83395) от 20.03.2012
+
+Mafia II Digital Deluxe HD Edition / Mafia 2: Город грехов + 8 DLC + Best Mods [Ru] (Repack/1.0.0.1/u5) 2010 | Naitro
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83395.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Мафия» бессмертна: долгожданное продолжение знаменитой гангстерской саги от создателей оригинальной игры — новое погружение в беспощадный и интригующий мир, сулящий множество острых ощущений.
+Mafia II создана на специально разработанном графическом движке, что позволило авторам проекта воплотить все самые смелые замыслы и сказать новое слово в жанре, каноны которого определила первая «Мафия». Классические элементы — перестрелки, драки, перемещение по городу на различных видах транспорта — приобрели небывалый размах, а игровой мир стал поистине безграничным.Главный герой новой истории — Вито, сын итальянского иммигранта, выросший в нищете и бесправии. С детских лет он усвоил, что мафия — единственный путь к богатству и уважению для человека его положения, и, не желая влачить жалкое, полное лишений, как у отца, существование, решил стать гангстером.Преступная карьера Вито и его закадычного друга Джо начинается с мелких краж и угона автомобилей, однако же довольно быстро они поднимутся на более высокие ступени криминальной (   Читать дальше...   )Тип издания: RepackЖанр: Action (Shooter) / Racing (Cars) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:453210FEB045FFC71BDD0A56366F046DCF1FB2F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462252   (82965) от 18.03.2012
+
+Deep Black Reloaded [Multi6/+] (RePack/1.5) 2012 | R.G. Catalyst
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грандиозный фантастический экшен от третьего лица Deep Black: Reloaded предоставит вам уникальную возможность проникнуть в мистические глубины черной бездны, вооружившись мощнейшим sci-fi снаряжением, джет-паком, уникальным подводным оружием и другими высокотехнологичными изобретениями будущего. В игре Deep Black впервые проработана невероятная динамика сражений – как в мрачных пучинах океанских вод, так и на суше. Это стало возможным благодаря использованию современных реалистичных физических эффектов в подводном окружении. Игра покажет вам всю глубину страха перед океанской бездной и непредсказуемостью битвы за правое дело. Умопомрачительный интригующий сюжет перенесет вас в недалекое будущее – в мир нестабильности, хаоса, шпионажа, терроризма, ожесточенной борьбы за мировое господство и обладание новейшим биологическим оружием.
+
+(   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, английский, французкий, итальянский, немецкий, испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01895B5B496BB4C126A2281FF2D713A8C3622F69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 469127   (82764) от 17.03.2012
 
 Enclave + Addition mod [Ru] (RePack/1.0.0.1/1.1) 2003 | x-7
@@ -6,7 +170,7 @@ Enclave + Addition mod [Ru] (RePack/1.0.0.1/1.1) 2003 | x-7
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82764.jpg" />
 </div>
 
 
@@ -32,7 +196,7 @@ The Shield: The Game / The Shield: На страже порядка [Ru] (RePack
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81893.jpg" />
 </div>
 
 
@@ -60,7 +224,7 @@ Deep Black Reloaded [Ru] (L) 2012 | SKIDROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80114.jpg" />
 </div>
 
 
@@ -88,7 +252,7 @@ Global Ops: Commando Libya / Приказано уничтожить: Опера
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78868.jpg" />
 </div>
 
 
@@ -114,7 +278,7 @@ Global Ops: Commando Libya / Приказано уничтожить: Опера
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78455.jpg" />
 </div>
 
 
@@ -140,7 +304,7 @@ Mafia II: Digital Deluxe / Mafia 2: Город грехов + 8 DLC [Ru] (RePack
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77236.jpg" />
 </div>
 
 
@@ -167,7 +331,7 @@ The Divine Invasion (2020) [Ru/Multi] (Build 20224638) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63849.jpg" />
 </div>
 
 
@@ -193,7 +357,7 @@ Saints Row (2022) [Ru/Multi] (1.1.2.4374033/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63679.jpg" />
 </div>
 
 
@@ -219,7 +383,7 @@ Tomb Raider (2013) [Ru] (1.1.838.0/dlc) Repack Decepticon [Game of The Year Edit
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62837.jpg" />
 </div>
 
 
@@ -245,7 +409,7 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.1027.0/dlc) Repack Decepticon [20
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62832.jpg" />
 </div>
 
 
@@ -271,7 +435,7 @@ Shadow of the Tomb Raider (2018) [Ru/En] (1.0.492.0/dlc) Repack Decepticon [Defi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62632.jpg" />
 </div>
 
 
@@ -297,7 +461,7 @@ Alpha Protocol (2010) [Ru/Multi] (1.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61768.jpg" />
 </div>
 
 
@@ -323,7 +487,7 @@ Alpha Protocol (2010) [Ru/Multi] (1.1) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61633.jpg" />
 </div>
 
 
@@ -349,7 +513,7 @@ Alpha Protocol (2010) [Ru/Multi] (1.1) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61591.jpg" />
 </div>
 
 
@@ -375,7 +539,7 @@ The Callisto Protocol (2022) [Ru/Multi] (1.0/dlc) Scene Rune [Digital Deluxe Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61568.jpg" />
 </div>
 
 
@@ -401,7 +565,7 @@ The Callisto Protocol (2022) [Ru/Multi] (13179062/dlc) Repack Other s [Digital D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61470.jpg" />
 </div>
 
 
@@ -427,7 +591,7 @@ Resident Evil 2 / Biohazard RE:2 (2019) [Ru/Multi] (11636119/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61370.jpg" />
 </div>
 
 
@@ -453,7 +617,7 @@ Resident Evil 2 / Biohazard RE:2 (2019) [Ru/Multi] (11636119/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61340.jpg" />
 </div>
 
 
@@ -479,7 +643,7 @@ The Callisto Protocol (2022) [Ru/Multi] (13179062/dlc) Repack FitGirl [Digital D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61242.jpg" />
 </div>
 
 
@@ -505,7 +669,7 @@ The Callisto Protocol (2022) [Ru/Multi] (13179062/dlc) Repack DODI [Digital Delu
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61031.jpg" />
 </div>
 
 
@@ -516,162 +680,6 @@ The Callisto Protocol (2022) [Ru/Multi] (13179062/dlc) Repack DODI [Digital Delu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C848B6C207AC71F186934DE9AAB798CD522BAAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717854   (58916) от 22.04.2024
-
-Aron's Adventure (2021) [Multi] (1.05) License GOG
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aron's Adventure – ролевое приключение, разворачивающееся в вымышленном мире Элоре. На магических землях вновь возродилось зло. Судьба фантастической планеты находится в руках главного героя Арона. Ему предстоит объединить все фракции в сражении с противниками. Постепенно он учится пользоваться собственными способностями.Тип издания: LicenseРазработчик: Tim van Kan, Tom RaudysЖанр: Action, Adventure, RPGЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DE30E1932D64B6E7323B9AF444CD64EC0168A11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717852   (58873) от 22.04.2024
-
-Aron's Adventure (2021) [En] (1.05) Scene CODEX
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aron's Adventure – ролевое приключение, разворачивающееся в вымышленном мире Элоре. На магических землях вновь возродилось зло. Судьба фантастической планеты находится в руках главного героя Арона. Ему предстоит объединить все фракции в сражении с противниками. Постепенно он учится пользоваться собственными способностями.Тип издания: SceneРазработчик: Tim van Kan, Tom RaudysЖанр: Action, Adventure, RPGЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E43EACD63A7D2A0E6340FEC69504E9B4A0958F5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648468   (58509) от 26.04.2024
-
-Remnant II (2023) [Ru/Multi] (417.127/dlc) Scene FairLight
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Remnant 2 - это атмосферная и брутальная комбинация динамичного экшена и мрачных ужасов выживания. Сиквел развивает и дополняет традиции и игровые механики оригинала. Вы отправитесь в совершенно новое приключение, которое охватит множество захватывающих миров, каждый из которых кишит уникальными врагами, грозными боссами и сложными задачами. Независимо от того, решите (   Читать дальше...   )Тип издания: SceneРазработчик: Gunfire GamesЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CDBEE4D0213209DC4B5F97AB39C1F89230FB80A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719700   (58113) от 30.04.2024
-
-Remnant: From the Ashes (2019) [Ru/Multi] (275.957/dlc) Scene CODEX [Complete Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Remnant: From the Ashes - шутер на выживание от третьего лица, действие которого происходит в постапокалиптическом мире, захваченном монстрами. В роли одного из последних представителей человечества, в одиночку или в компании одного-двух товарищей, вам предстоит сразиться с ордами монстров и эпическими боссами, пытаясь закрепиться на чужой земле, отстроиться и вернуть (   Читать дальше...   )Тип издания: SceneРазработчик: Gunfire GamesЖанр: Action (Shooter, Survival), 3D, 3rd PersonЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4597ADE67270947AEA3D9E90AEC9EF98578F115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719635   (58087) от 30.04.2024
-
-Deadpool (2013) [Ru/En] (1.0/dlc) Repack dixen18
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот герой вселенной Marvel не похож на других персонажей. Он вообще ни на кого не похож! Он слышит голоса, он говорит с игроками, он любит мексиканскую кухню и заводных девчонок в бикини. Он умеет спасти мир, как никто другой, превратив это пафосное занятие в сплошной прикол. Кто-то говорит, что он псих, но армия его поклонников рассуждает иначе.Тип издания: RepackРазработчик: High Moon StudiosЖанр: Action (Shooter, Slasher), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2F752D29CA8BE6B48E47D5FC91645B8DF78D265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532585   (57575) от 05.05.2024
-
-Aliens: Fireteam Elite (2021) [Ru/Multi] (1.0.5.114949/dlc) Repack Decepticon
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aliens: Fireteam - это совместная игра на выживание в жанре шутера от третьего лица, действие которой происходит в знаменитой вселенной Alien. Ваш отряд закаленных морских пехотинцев будет заброшен в самую гущу отчаянного боя, и вам предстоит сдержать натиск инопланетной угрозы.Тип издания: RepackРазработчик: Cold Iron StudiosЖанр: Экшены, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11AAC65EC7862487518160FB488C20AB98D3FF09
 ```
 
 https://mybot314.ru/tekegram_catalog/

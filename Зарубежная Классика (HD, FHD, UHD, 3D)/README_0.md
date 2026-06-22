@@ -1,3 +1,55 @@
+###  Публикация: 1861440   (1062482) от 02.04.2026
+
+Индиана Джонс и Храм судьбы / Indiana Jones and the Temple of Doom (1984) BDRip [AV1/2160p] [4K, HDR10, 10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесстрашный доктор Джонс отправляется в сердце Гималаев вместе с ресторанной певичкой Уилли Скотт и своим верным маленьким помощником Коротышкой. Среди величественных гор археологу и его спутникам предстоит столкнуться с кровавым культом поклонения древней Богине Смерти — Кали. Станет ли Индиана следующим несчастным, погибшим на жутком алтаре человеческих жертвоприношений, (   Читать дальше...   )Производство: США, Великобритания / Lucasfilm Ltd., Paramount PicturesЖанр: приключения, боевик, комедияРежиссер: Стивен СпилбергАктеры: Харрисон Форд, Кейт Кэпшоу, Амриш Пури, Рошан Сет, Филип Стоун, Ке Хюи Куан, Рой Чяо, Дэвид Ип, Рик Янг, Chua Kah JooПеревод: Многоголосый профессиональный (НТВ+)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:58:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:017A13E16F0E2F065F5BB0036720AB0B695DC402
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861443   (1062481) от 03.04.2026
+
+Индиана Джонс и последний крестовый поход / Indiana Jones and the Last Crusade (1989) BDRip [AV1/2160p] [4K, HDR10, 10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062481.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот раз бесстрашный Индиана разыскивает самую таинственную реликвию в истории человечества — Святой Грааль. В этом археологу помогает его отец, профессор Джонс старший. Теперь под бдительным оком своего отца Индиане предстоит совершить много благородных подвигов и потрясающих открытий. В новых странствиях храброму археологу доведется добыть чашу, которую держал (   Читать дальше...   )Производство: США / Lucasfilm Ltd., Paramount PicturesЖанр: приключения, боевик, комедияРежиссер: Стивен СпилбергАктеры: Харрисон Форд, Шон Коннери, Денхолм Эллиотт, Элисон Дуди, Джон Рис-Дэвис, Джулиан Гловер, Ривер Феникс, Майкл Бирн, Кеворк Маликян, Роберт ЭддисонПеревод: Многоголосый профессиональный (НТВ+)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06F682F3015B17C52D791FBFCDA3F3F2BBF8B60E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861599   (1062361) от 03.04.2026
 
 Назад в будущее 2 / Back to the Future Part II (1989) BDRip [AV1/2160p] [4K, HDR10, 10-bit]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062361.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062360.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062118.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061858.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061817.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061635.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061225.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060934.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060932.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060653.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060356.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060236.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060064.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059441.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059015.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058505.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057255.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056983.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056902.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054547.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052628.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052360.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052140.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052139.jpg" />
 </div>
 
 
@@ -622,59 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D1DF34EEE0AD968F5CD0E08C2B55C8338BEA208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847048   (1051726) от 21.01.2026
-
-Пожнёшь бурю / Inherit the Wind (1960) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сценарий основан на одноимённой пьесе 1955 года, написанной Джеромом Лоуренсом и Робертом Эдвином Ли... Летом 1925 года в штате Теннесси состоялся один из самых зрелищных и смехотворных судебных процессов в истории американской юриспруденции. Учитель Джон Т.Скоупс был арестован за преподавание учения Дарвина. Обвинителем Скоупса был столп фундаментализма Уильям Дженнингс (   Читать дальше...   )Производство: США / Stanley Kramer ProductionsЖанр: драма, биография, историяРежиссер: Стэнли КрамерАктеры: Спенсер Трэйси, Фредрик Марч, Джин Келли, Дик Йорк, Донна Андерсон, Гарри Морган, Клод Экинс, Эллиот Рид, Пол Хартман, Филип Кулидж, Джимми Бойд, Ноа Бири мл., Норман Фелл, Гордон Полк, Хоуп СаммерсПеревод: профессиональный многоголосый (5 канал), профессиональный двухголосый (НТВ+)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 02:07:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B6641E84C1CB4A7D5D8E0A34A31E9ADB428A7E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846493   (1051466) от 16.01.2026
-
-Джеймс Бонд 007: Доктро Ноу / Dr. No (1962) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бонду дано задание выяснить что является источником электронных помех в компьютерах американских пусковых шахт на мысе Канаверал. По агентурным данным мозговой центр вражеских сил находится на Ямайке. Бонд незамедлительно выдвигается туда.
-В процессе расследования ему придется столкнуться с могущественной структурой СПЕКТР и ее представителем Доктором Ноу, готовым (   Читать дальше...   )Производство: Великобритания, США, Ямайка / Eon Productions Ltd.Жанр: боевик, триллер, приключенияРежиссер: Теренс ЯнгАктеры: Шон Коннери, Урсула Андресс, Джозеф Уайзмен, Джек Лорд, Бернард Ли, Энтони Доусон, Зена Маршалл, Джон Кицмиллер, Юнис Гейсон, Лоис Максуэлл и др.Перевод: ДублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:283F3B24E31A4D7033D690BE66E52D2C3F03DCFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

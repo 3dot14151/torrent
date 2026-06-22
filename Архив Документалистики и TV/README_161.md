@@ -1,3 +1,31 @@
+###  Публикация: 1145261   (623661) от 24.06.2017
+
+Футбол. Кубок Конфедераций 2017. Группа A. Мексика - Россия (24.06.2017) HDTV [H.264/1080i-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубок конфедераций 2017 - восьмой по счёту футбольный турнир среди национальных сборных, проводимый под эгидой ФИФА, который должен пройти с 17 июня по 2 июля 2017 года в России. Рассматривается как «репетиционный» турнир перед чемпионатом мира, который пройдёт в 2018 году. Турнир будет играться на стадионах, которые позднее примут и матчи чемпионата мира.
+
+24 июня (   Читать дальше...   )Производство: Первый HDЖанр: СпортЯзык озвучки: Русский (Кирилл Дементьев и Константин Выборнов)Субтитры: ОтсутствуютПродолжительность: 00:52:38 + 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81CE7705842952B3F7C7D02C50023DC1F4BA5717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145246   (623651) от 24.06.2017
 
 Формула 1. Гран-при Азербайджана 2017. 8-й Этап. Квалификация (24.06.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
@@ -6,7 +34,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623651.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623491.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623218.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623212.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623204.jpg" />
 </div>
 
 
@@ -140,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623198.jpg" />
 </div>
 
 
@@ -166,7 +194,7 @@ Nat Geo Wild: Созданные убивать: Лев / Built for the Kill: Li
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622932.jpg" />
 </div>
 
 
@@ -192,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622786.jpg" />
 </div>
 
 
@@ -221,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622785.jpg" />
 </div>
 
 
@@ -250,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622783.jpg" />
 </div>
 
 
@@ -279,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622722.jpg" />
 </div>
 
 
@@ -308,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622721.jpg" />
 </div>
 
 
@@ -337,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622710.jpg" />
 </div>
 
 
@@ -366,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622708.jpg" />
 </div>
 
 
@@ -395,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622707.jpg" />
 </div>
 
 
@@ -424,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622703.jpg" />
 </div>
 
 
@@ -453,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622653.jpg" />
 </div>
 
 
@@ -479,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622629.jpg" />
 </div>
 
 
@@ -508,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622623.jpg" />
 </div>
 
 
@@ -537,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622618.jpg" />
 </div>
 
 
@@ -566,7 +594,7 @@ NG: Секретные материалы древности: Подземное
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622524.jpg" />
 </div>
 
 
@@ -592,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622387.jpg" />
 </div>
 
 
@@ -618,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622232.jpg" />
 </div>
 
 
@@ -644,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622010.jpg" />
 </div>
 
 
@@ -672,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621818.jpg" />
 </div>
 
 
@@ -683,32 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F21BCAA730FCB75F45DE9E856301DD64B2CA5370
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910297   (621771) от 20.06.2015
-
-С микроджигом по дачным прудикам. (2015) WEBRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621771.jpg" />
-</div>
-
-
-###  Подробнее
-
-С микроджигом по дачным прудикам.Жанр: Документальный, рыбалка
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6284087B218E3B794D74928AE8B170E6F038A5C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

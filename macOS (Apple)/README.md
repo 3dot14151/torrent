@@ -7,7 +7,7 @@ macOS Big Sur 11.2 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033638.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ macOS Big Sur 11.2.3 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026993.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ macOS Big Sur 11.3 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018892.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ macOS Big Sur 11.3.1 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017188.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ macOS Big Sur 11.4 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014270.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ macOS Big Sur 11.5 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005571.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ macOS Sierra 10.12.3 (16D32) [Multi/Ru] (Installer)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916740.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ macOS Catalina 10.15.4 (19E266) [Multi/Ru] (Installer)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886269.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ OS X El Capitan 10.11.4 (15E65) [Multi/Ru] (Installer)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863707.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ macOS Big Sur 11.6 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857407.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ macOS Sierra 10.12.4 (16E195) [Multi/Ru] (Installer)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806559.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ GuestOS - macOS 12.0.1 Monterey VM [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805876.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ macOS High Sierra 10.13.3 (17D47) [Multi/Ru] (Installer)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791354.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ macOS Mojave 10.14.3 (18D42) [Multi/Ru] (Installer)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773967.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ OS X Yosemite 10.10.3 (14D131) [Multi/Ru] (Installer)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752862.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ NextStep (3.3.4.17) [En] (Bootable)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704799.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ macOS Sierra 10.12.5 (16F73) [Multi/Ru] (Installer)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686502.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ macOS High Sierra 10.13.4 (17E199) [Multi/Ru] (Installer)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676751.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ macOS Mojave 10.14.4 (18E226) [Multi/Ru] (Installer)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627334.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ macOS 10.13 (17A291j) High Sierra [Developer Preview 2] [Multi/Ru] (Installer)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623052.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ OS X Mountain Lion 10.8 [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_622088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_622088.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ A/UX 3.0.1 [En] (Bootable)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583950.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ macOS Mojave 10.14.6 (18G84) [Multi/Ru] (Installer)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497345.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ OS X Mountain Lion 10.8.5 (12F37) [Multi/Ru] (Installer)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486533.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ macOS Catalina 10.15.7 (19H2) [Multi/Ru] (Installer)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422277.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ macOS Sierra 10.12.1 (16В2657) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388434.jpg" />
 </div>
 
 

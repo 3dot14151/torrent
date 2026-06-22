@@ -1,3 +1,55 @@
+###  Публикация: 1404493   (493042) от 25.08.2020
+
+Продавец четырех времен года / The Merchant of Four Seasons / Handler der vier Jahreszeiten (1971) BDRip [H.264/720p] [Criterion Collection]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трагедия одиночки, оказавшегося лишним в обществе «всеобщего благоденствия» Эпохи Экономического чуда. Ханс Эпп несколько лет провел вдали от родины в иностранном легионе, и вот вернулся назад. «Уж лучше бы тебе не возвращаться!» — злобно шипит мать, встречая сына на пороге дома. И Ханс уходит, устраивается на работу в полицию, обзаводится семьей, потом становится (   Читать дальше...   )Производство: Германия (ФРГ) / Janus Films, Tango FilmЖанр: ДрамаРежиссер: Райнер Вернер ФассбиндерАктеры: Ганс Хиршмюллер, Ирм Херманн, Ханна Шигулла, Клаус Лёвич, Карл Шейдт, Андреа Шобер, Густи Крайссль, Ингрид Кавен, Курт Рааб, Хайде СимонПеревод: Профессиональный (двухголосый, закадровый), любительский (одноголосый, закадровый)Субтитры: Русские, английскиеПродолжительность: 01:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B96940B5AD1D67F84A2500A1C9006B819200E054
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 382532   (490994) от 02.09.2011
+
+Грязная дюжина / The Dirty Dozen (1967) [720p] BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майор Райзман (Ли Марвин), числящийся у начальства на не очень хорошем счету из-за строптивости характера, получает возможность реабилитировать себя благодаря исключительно опасной миссии. Ему в подчинение выделяют двенадцать солдат, приговорённых трибуналом к смертной казни или отбыванию длительного срока на каторге. Флегматичный сын шахтёра Джозеф Владислав , бывший (   Читать дальше...   )Жанр: Военный, Боевик, ДрамаРежиссер: Роберт ОлдричАктеры: Ли Марвин, Эрнест Боргнайн, Чарльз Бронсон, Джим Браун, Джон Кассаветис, Ричард Джэкел, Джордж Кеннеди, Трини Лопес, Ральф Микер, Роберт Райан, Телли Савалас, Дональд Сазерленд, Клинт Уокер, Роберт Уэббер, Том Басби, Бен Кэрразерс, Стюарт Купер, Роберт Филлипс, Колин Мейтленд, Аль Манчини, Джордж Рубисек, Зик Уилсон, Дора Рейсье, Герард Хайнц, Джон Холлис, Хильдегард (   Читать дальше...   )Перевод: Многоголосый профессиональный закадровыйЯзык субтитров: Русские / АнглийскиеПродолжительность: 02:29:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 382761   (490790) от 02.09.2011
 
 Лицо со шрамом / Scarface (1983) BDRip [720p]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490790.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489639.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489565.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489367.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489167.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489064.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488445.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487750.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487565.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486899.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486786.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485855.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485005.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484701.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484573.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484298.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483642.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483586.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481458.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479836.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479427.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477981.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477282.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476789.jpg" />
 </div>
 
 
@@ -617,59 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F072654001E2B0CC28FFD16AA47CBA06647A9DA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157580   (475734) от 24.08.2017
-
-Прощай, друг / Adieu l'ami (1968) BDRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авантюрная история о двух сослуживцах — военном враче Иностранного легиона Дино Барране и наемнике Франце Проппе, по окончании Алжирской войны и демобилизации ввязавшихся в сомнительное дело со вскрытием сейфа в хранилище крупной компании во время Рождественских праздников…
-Участники иностранного легиона американец Франц Пропп и француз Дино Барран вновь встречаются (   Читать дальше...   )Производство: Франция, Италия. Greenwich Film Productions, Medusa filmЖанр: Боевик, Драма, КриминалРежиссер: Жан ЭрманАктеры: Ален Делон, Чарльз Бронсон, Ольга Жорж-Пико, Бернар Фрессон, Брижит Фоссе, Эллен Баль, Жан-Клод Баллард, Мишель Барсе, Стефан Буи, Андре ДюмаПеревод: Многоголосый закадровый, авторский x2Субтитры: РусскиеПродолжительность: 01:55:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEDF9CEA97829E06D01702AC1DAE6784C924F1FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546273   (475647) от 14.09.2012
-
-На несколько долларов больше / Per Qualche Dollaro In Piu / For A Few Dollars More (1965) [H.264/720p-LQ] HDTVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заработать несколько лишних долларов честным путем на диком Западе не проблема, если у тебя есть проверенный кольт и разрешение властей на отстрел бандитов. Этим путем и идут бок о бок профессиональные охотники за головами негодяев «Человек без имени» и полковник Мортимер, общая цель которых — преступная банда мексиканца ИндиоЖанр: Боевик, Драма, Криминал, ВестернРежиссер: Серджио ЛеонеАктеры: :  Клинт Иствуд, Ли Ван Клиф, Джан Мария Волонте, Мара Крупп, Луиджи Пистилли, Клаус Кински, Йозеф Эггер, Панос Пападопулос, Бенито Стефанелли, Роберто КамардьельПеревод: Профессиональный (многоголосый, закадровый)Язык субтитров: РусскийПродолжительность: 02:11:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8885360346C4A897FD151046F89322251AE4A3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

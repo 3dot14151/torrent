@@ -6,7 +6,7 @@ Yes, Your Grace 2 Snowfall (2025) [Ru/Multi] (1.0.10962) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101.jpg" />
 </div>
 
 

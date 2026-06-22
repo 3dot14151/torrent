@@ -1,3 +1,81 @@
+###  Публикация: 1304600   (562981) от 26.05.2019
+
+Yume de Aetara | If I See You in My Dreams | Увидеть тебя в моих мечтах OVA [1998, OVA, 3 эп.] DVDrip 480p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ему 24 года, он работает в крупной компании и... у него никогда не было девушки. Удивительно? Странно? Нет. Очень даже типичная ситуация, причем не только для Японии. Казалось бы - учеба в колледже или университете закончена, есть крыша над головой, и впереди ждет необъятное море возможностей и свободы, присущее взрослой жизни. Но трудовая будничная рутина быстро (   Читать дальше...   )Производство: студия J.C. StaffЖанр: комедия, романтика, драмаРежиссер: Ватанабэ ХиросиПеревод: NIMRODЯзык озвучки: #1: Русский; #2: ЯпонскийСубтитры: РусскиеПродолжительность: 3 эп. по 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBA96AA69BDA6510F2672EB1CD624C233EFD4C23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 530073   (562171) от 02.08.2012
+
+Tonari no Totoro / My Neighbor Totoro / Мой сосед Тоторо [1988] BDRip 384 raw + rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переехав в деревню, две маленькие сестры Сацуки (старшая) и Мэй (младшая) глубоко внутри дерева обнаружили необыкновенный, чудесный мир, населённый Тоторо, очаровательными пушистыми созданиями, с которыми у девочек сразу же завязалась дружба. Одни из них большие, другие совсем крохотные, но у всех у них огромное, доброе сердце и магические способности совершать необыкновенные вещи, наподобие полётов над горами или взращивания огромного дерева за одну ночь! Но увидеть этих существ могут лишь дети, которые им приглянутся... Подружившись с сёстрами, Тоторо не только устраивают им воздушную экскурсию по своим владениям, но и помогают Мэй повидаться с лежащей в больнице мамой.Жанр: Приключения, комедия, сказка, драмаРежиссер: Хаяо МиядзакиПеревод: Многоголосый закадровый, Двухголосый закадровыйПродолжительность: 01:26:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3488C00CB2703BBD950FB0D719BD15D798853118
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304684   (561159) от 27.05.2019
+
+Tetsuwan Birdy Decode: The Cipher | Birdy the Mighty Decode: The Cipher | Могучая Берди OVA-2 [2009, OVA] DVDrip 480p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дополнение к первому сезону Tetsuwan Birdy DecodeПроизводство: студия A-1 Pictures Inc.Жанр: приключения, фантастикаРежиссер: Аканэ КадзукиПеревод: Loki & DarkElfЯзык озвучки: #1: Русский; #2: Японский;Субтитры: РусскиеПродолжительность: 1 эп. по 27 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A02B9FA977F373BC37233379CB0797229CD5703
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304683   (561158) от 27.05.2019
 
 Tetsuwan Birdy Decode:02 | Birdy the Mighty: Decode | Могучая Берди [ТВ-2] [2009, TV, 12 эп.] DVDrip 480p raw+rus
@@ -6,7 +84,7 @@ Tetsuwan Birdy Decode:02 | Birdy the Mighty: Decode | Могучая Берди 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561158.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Shin Kimagure Orange Road: Soshite, Ano Natsu no Hajimari | Новые капр�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561157.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Kidou Senshi Gundam 0080: Pocket no Naka no Sensou | Mobile Suit Gundam 0080: Wa
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561156.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ Megazone 23 | Мегазона 23 [1985-1989, OVA, 4 эп.] DVDrip 480p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561155.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Tetsuwan Birdy Decode | Birdy the Mighty Decode | Могучая Берди [Т�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561153.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ Lost Universe / Затерянная Вселенная [1998, TV, 26 из 26] D
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561149.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Madan no Ou to Vanadis / Lord Marksman and Vanadis / Повелитель вол
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560711.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ Harmagedon | Genma Taisen | Ghenma Wars | Great War with Genma | Хармаге�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557217.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ Killing Bites [TV-1] | Смертельный укус [2018, TV, 12 из 12] BD
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556161.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ Ginga Eiyuu Densetsu: Waga Yuku wa Hoshi no Taikai | Legend of Galactic Heroes (
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554283.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ Ginga Eiyuu Densetsu Gaiden: Ougon no Tsubasa | Legend of Galactic Heroes (Movie
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554282.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ Ginga Eiyuu Densetsu | Legend of the Galactic Heroes | Легенда о гер�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554279.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ Ginga Eiyuu Densetsu: Aratanaru Tatakai no Overture | Legend of Galactic Heroes 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551699.jpg" />
 </div>
 
 
@@ -351,7 +429,7 @@ Noragami / Бездомный бог [2014, TV, 12 ep] BDRip Hi10p 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551151.jpg" />
 </div>
 
 
@@ -377,7 +455,7 @@ Maken-ki! Two / Макен-Ки! 2 [2014, TV, 10 ep] BDRip 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549217.jpg" />
 </div>
 
 
@@ -403,7 +481,7 @@ Fairy Tail / Сказка о Хвосте феи [2009, TV, 175 из 175] DTV 72
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547159.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ Sanzoku no Musume Ronja / Ronja the Robber's Daughter / Ронья, дочь р�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546643.jpg" />
 </div>
 
 
@@ -455,7 +533,7 @@ Isekai no Seikishi Monogatari / Saint Knight Story in an Alternate World / Ин�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545353.jpg" />
 </div>
 
 
@@ -483,7 +561,7 @@ Mikakunin de Shinkoukei / Engaged to the Unidentified / Помолвлена с 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543965.jpg" />
 </div>
 
 
@@ -509,7 +587,7 @@ Omoide Poroporo / Only Yesterday / Ещё вчера [1991, MV] BDRip Hi10P 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539589.jpg" />
 </div>
 
 
@@ -535,7 +613,7 @@ Shingeki no Kyojin Season 3 / Attack on Titan / Атака титанов [ТВ-
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535644.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533281.jpg" />
 </div>
 
 
@@ -587,7 +665,7 @@ One Punch Man 2nd Season / Ванпанчмен [ТВ-2] [2019, TV, 12 из 12] 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531950.jpg" />
 </div>
 
 
@@ -598,84 +676,6 @@ One Punch Man 2nd Season / Ванпанчмен [ТВ-2] [2019, TV, 12 из 12] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05273713DAF8A6A0962E46814F11F16965E153B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 819981   (529572) от 09.09.2014
-
-Kill la Kill / Крошить-кромсать [2013, TV, 24 ep] BDRip Hi10p 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Огромная Академия Истины похожа на гибрид шикарного дворца и детской колонии. Ею и прилегающим городом правит семья Кирюин, владеющая секретом «боевых волокон». Будучи добавлены в обычную школьную форму (такую называют однозвездной), волокна делают обладателя сильнее и быстрее, превращая в серьезного бойца. Однозвездную форму носят рядовые дружинники, более мощную двухзвездную – лидеры спортивных клубов, а трехзвездную, годную для супермена – четверо элитных членов Совета, которые напрямую подчиняются «богине» (   Читать дальше...   )Жанр: приключения, комедия, фэнтези, эттиРежиссер: Имайси ХироюкиФормат: MKV |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E5B127174EB6341A5AC3D97D765D36E09DD4210
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201248   (528456) от 11.08.2018
-
-Darling in the Franxx / Возлюбленный во «ФранКс» [2018, TV, 24 ep] WEB-DL 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что случится с нами в далёком будущем? Будем ли мы жить, как сейчас, или наш мир изменится до неузнаваемости? Один из вариантов развития событий покажет нам это аниме. Под стеклянным куполом, ограждающим небо, дрейфует город-крепость под названием "Плантация”. Там воспитываются юные пилоты роботов Франкс. Причём воспитываются таким образом, что им внушается, (   Читать дальше...   )Жанр: приключения, фантастика, мехаРежиссер: Нисигори АцусиЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 24 эпизода по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E83DD6EFC1A760345BEDD05C62E56359E609C707
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542952   (527626) от 23.06.2022
-
-Девушка-целитель | Целительница | Healer Girl [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история про девочек, которые учатся лечить от болезней с помощью песен. И пока мы тут у себя мажем разбитые коленки йодом, а при проблемах посерьёзнее едим таблеточки, в очередной альтернативной Японии научились использовать силу голоса.Производство: Япония / Студия Studio 3HzЖанр: Музыкальный, повседневность, приключенияРежиссер: Ириэ ЯсухироЯзык озвучки: Русский многоголосый, закадровый (AniLibria.TV)Субтитры: Русские (Софтсаб на надписи), Русские (Софтсаб полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AF57D457EF87F3B2418A64C7BC381D39D03293A
 ```
 
 https://mybot314.ru/tekegram_catalog/

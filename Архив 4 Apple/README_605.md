@@ -1,3 +1,56 @@
+###  Публикация: 1672472   (169068) от 28.10.2023
+
+Charles Web Debugging Proxy 4.6.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Charles Web Debugging Proxy – это набирающий популярность зарубежный веб-прокси-сервер, работающий на вашем персональном компьютере, или ноутбуке, который зачастую относят к разделу программ HTTP Monitor. Свою популярность данная программа получила из-за высокой функциональности, быстроты работы и отличного, понятного и доступного дизайна.
+Множество работников IT-отделов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2023Разработчик: © 2023 Matthew BuchananПоддерживаемая ОС: OS X 10.7 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ED68C4B9A9B9868ACD84D43522505AA9C0ABEB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431227   (169066) от 12.12.2020
+
+1Click - Screen Recorder 4 v4.1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169066.jpg" />
+</div>
+
+
+###  Подробнее
+
+1Click - Screen Recorder - это простой в использовании, эффективный инструмент для записи экрана. С его помощью вы можете записать весь экран, можно записать отдельную область. Если вам требуется высококачественное видео, вам нужно просто выбрать качество записи. Включите записывающее оборудование, если хотите записать повествование.Тип издания: macOS SoftwareРелиз состоялся: 11.12.2020Разработчик: OpenCart SeasoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:089285702E2506F4C5FADAE3DE144E55D891FC72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1431241   (169062) от 12.12.2020
 
 MWeb: Markdown writing, note taking, static blog generator 3.4.3 [Multi]
@@ -6,7 +59,7 @@ MWeb: Markdown writing, note taking, static blog generator 3.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169062.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ Artlantis 2019 v8.0.2.21219 RedSDK [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169060.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ calibre 5 v5.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169052.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ WidsMob Panorama 3.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169049.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169031.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ BetterTouchTool 3 v3.213 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169024.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ DxO PhotoLab 3 ELITE Edition 3.1.0 (build 26) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169020.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ Live Home 3D Pro Edition 4.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168988.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ DxO PureRAW 2 for Mac v.2.3.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168908.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ Adobe Audition 2020 13.0.1.35 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168823.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ Adobe Bridge 2020 10.0.1.126 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168816.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ Adobe Animate 2020 20.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168785.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ Caato Time Tracker Pro 1.1.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168748.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ Keep It 1.11.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168744.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ uDock 2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168707.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ A Better Finder Rename 11 v11.40 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168702.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ Stats 2.6.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168698.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ Boxy SVG 3  v3.72.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168697.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ SideNotes 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168690.jpg" />
 </div>
 
 
@@ -507,7 +560,7 @@ Yate 6.7.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168681.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ MWeb Pro 4.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168664.jpg" />
 </div>
 
 
@@ -562,7 +615,7 @@ Motion 5.4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168663.jpg" />
 </div>
 
 
@@ -590,7 +643,7 @@ djay - DJ App & AI Mixer 3.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168651.jpg" />
 </div>
 
 
@@ -616,7 +669,7 @@ Compressor 4.4.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168636.jpg" />
 </div>
 
 
@@ -628,61 +681,6 @@ Compressor – замечательный и мощный инструмент �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:078BF4EA4C80133870A8B49905E365D1AB9CC5DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515801   (168604) от 08.12.2021
-
-DxO PhotoLab 5 ELITE Edition 5.1.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обрабатывайте RAW и JPEG изображения в наилучшем качестве без труда: DxO PhotoLab обеспечивает полный набор умных коррекций, которые Вы можете настроить в ручную в любой момент. Возьмите контроль над Вашими фото: эффективно убирайте шум, исправляйте освещение, восстанавливайте детали цветов, корректируйте оптические искажения и улучшайте детализацию.
-Придайте Вашим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.12.2021Разработчик: © 2021 DxO LabsПоддерживаемая ОС: macOS 10.15.0 +Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F520C78D8FED5C98F09581048C3E333E1875FEBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344714   (168587) от 12.12.2019
-
-Adobe After Effects 2020 17.0.1.52 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe After Effects — одно из ведущих в отрасли приложений для разработки анимации и творческих композиций, позволяющих создавать профессиональную графику и визуальные эффекты для киноэкранов, телевидения и веб-сайтов, которое можно скачать на macx.ws.
-
-Название происходит от эффекта, известного как «стойкость (инертность) зрительного ощущения», этот механизм использует (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.13 и новееЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CED15583B2F0F44349906942D19D64EC51395A53
 ```
 
 https://mybot314.ru/tekegram_catalog/

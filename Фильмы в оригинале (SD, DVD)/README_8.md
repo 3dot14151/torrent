@@ -1,3 +1,29 @@
+###  Публикация: 1180716   (337012) от 05.11.2017
+
+Наши души по ночам / Our Souls at Night (2017) WEBRip [EN / AR, CHI, EN, FR, POL Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (SD, DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337012.jpg" />
+</div>
+
+
+###  Подробнее
+
+История двух престарелых вдовцов-соседей. Они оба очень одиноки и пытаются спасти друг друга, поддерживая платонические отношения. Но к чему может это привести и что произойдет с первым, если умрет второй?Производство: СШАЖанр: Драма, МелодрамаРежиссер: Ритеш БатраАктеры: Роберт Редфорд, Джейн Фонда, Маттиас Шонартс, Джуди Грир, Иэн Армитедж, Маттиас Шонартс, Брюс Дерн, Филлис Соммервиль, Майкл Лав Толивер, Leana Lewis, Одри УолтерсПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Арабские, Китайские, Английские, Французские, Польские (отдельными файлами)Продолжительность: 01:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:014A1AAEAAFF38FE1CF962036D9AE952D61BB8C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181129   (335190) от 06.11.2017
 
 Бомбила / Ryde (2016) BDRip [EN]
@@ -6,7 +32,7 @@
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335190.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332307.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331937.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329857.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323042.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318872.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315790.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305276.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301977.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301968.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299422.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298644.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294938.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292847.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289216.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284234.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282000.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281548.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274540.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267967.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267219.jpg" />
 </div>
 
 
@@ -566,7 +592,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) HDRip
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264352.jpg" />
 </div>
 
 
@@ -592,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258274.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255847.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252765.jpg" />
 </div>
 
 
@@ -655,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDA187312BBE9F747BC428AF87938F093A41F12E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835920   (251820) от 08.11.2025
-
-Ледяная башня / La tour de glace / The Ice Tower (2025) WEB-DLRip [H.264] [FRA / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (SD, DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251820.jpg" />
-</div>
-
-
-###  Подробнее
-
-1970-е годы. Сирота Жанна сбегает из детского дома в город. Девушка находит пристанище в местной киностудии. Там она попадает под чары Кристины, загадочной звезды фильма «Снежная королева», который снят по её любимой сказке. Между актрисой и девушкой завязываются сложные отношения.Производство: Франция, Германия, Италия / Bayerischer Rundfunk (BR), Arte France Cinéma, Albolina Film, 3B Productions, Sutor KolonkoЖанр: фэнтези, драмаРежиссер: Люсиль АдзиалиловичАктеры: Марион Котийяр, Клара Пачини, Аугуст Диль, Марине Гесберт, Лила-Роз Жильберти, Гаспар Ноэ, Дуня Сычева, Валентина Веццали, Кассадра Луис Урбен, Вильгельм Бонелл, Рафаэль РебульПеревод: Субтитры (Dark Alice)Язык озвучки: французскийСубтитры: русские, английскиеПродолжительность: 01:57:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EFD88D4ACDEBAD82ECAF1E82E3AD7E84924448E
 ```
 
 https://mybot314.ru/tekegram_catalog/

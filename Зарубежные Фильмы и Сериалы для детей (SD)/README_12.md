@@ -1,3 +1,55 @@
+###  Публикация: 709638   (424849) от 11.10.2013
+
+Юный лорд Фаунтлерой / Little Lord Fauntleroy (1936) BDRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта история началась в районе Бруклина города Нью-Йорка в 1880 году. Девятилетний мальчик по имени Седрик — сын скромной учительницы музыки узнает в день своего рождения о том, что его английский дедушка вызывает к себе, чтобы сделать наследником своего огромного состояния, обширных поместий и титула Лорда. Строгий дед, известный Британский аристократ отрекся от (   Читать дальше...   )Производство: США, Selznick International PicturesЖанр: драма, семейныйРежиссер: Джон КромуэллАктеры: Фредди Бартоломью, Долорес Костелло, С. Обри Смит, Гай Кибби, Генри Стивенсон, Микки Руни, Констанс Колльер, Уна О’Коннор, Джеки Сирл, Джесси РальфПеревод: Многоголосый закадровый профессиональныйПродолжительность: 01:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B07551047F009E03F6A5914FF725EB1E6CA92DA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 709056   (424197) от 11.10.2013
+
+Долговязый Джон Сильвер / Long John Silver (1954) DVDRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение фильма "Остров Сокровищ" 1950г. созданного студией Уолта Диснея. Поскольку разница в выходе фильмов составила 4 года, Джима играет уже другой актёр - Кит Тейлор. Но в роли Сильвера, всё тот же, неподражаемый Роберт Ньютон. Действие фильма происходит, примерно, год спустя после событий изложенных в фильме "Остров Сокровищ" 1950г., который (   Читать дальше...   )Жанр: ПриключенияРежиссер: Байрон Хэскин / Byron HaskinАктеры: Роберт Ньютон, Конни Гилкрайст, Ллойд Беррелл, Кит Тейлор, Грант Тейлор, Род Тейлор, Харви Эдамс, Мюриэль Штейнбек, Генри Гилберт, Джон Брунскил, Эрик РейманПеревод: Одноголосый закадровыйПродолжительность: 01:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04491088A2AE346414130EED34097DEBA8E739F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946956   (422473) от 15.10.2015
 
 Призрак замка Кентервиль / Das Gespenst von Canterville (2005) DVDRip [H.264]
@@ -6,7 +58,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422473.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422184.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421926.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419404.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418521.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418300.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416932.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412194.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412190.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409807.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408500.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408277.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407391.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407130.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407009.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403350.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403279.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401666.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401664.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401568.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400561.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398645.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397241.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392072.jpg" />
 </div>
 
 
@@ -622,59 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E6B0E8454D2C5058515BB54F3984749F7D4993C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 718169   (389498) от 03.11.2013
-
-Синбад-мореход / Sinbad the Sailo (1947) DVD5
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Картина рассказывает о поиске Синбадом загадочного острова Дерюбар, где спрятан клад великого Александра Македонского. В поисках сокровищ ему помогает красавица Ширин, которую отважный герой похитил из гарема эмира Даибула. Эмир, узнав об этом, бросился в погоню за влюбленными с целью вернуть беглянку, но его планам не суждено осуществится. Храбрый Синбад выйдет (   Читать дальше...   )Жанр: Приключения, МелодрамаРежиссер: Ричард УоллесАктеры: Даглас Фэрбэнкс мл., Морин О'Хара, Уолтер Слезак, Энтони Куинн, Джордж Тобиас, Джейн Грир, Майк Мазурки, Шелдон Леонард, Алан Напье, Джон Мильян, Брэд Декстер.Перевод: Двуголосый закадровыйПродолжительность: 01:56:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B31769BD442F67177D43A0B4D5AE2E0E8F7B44C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 717640   (388077) от 04.11.2013
-
-Синбад и Глаз Тигра / Sinbad and the Eye of the Tiger (1977) DVDRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Синбад держит путь в землю Чарок для того, чтобы просить руки принцессы Фары у её брата принца Кассима. Однако, приплыв туда, он узнаёт, что волшебница Зенобия наложила на Кассима проклятие, превратив его в бабуина.
-Королева Зенобия сделала это, для того, чтобы калифом смог стать её сын принц Рафи. Синбад решает восстановить справедливость и вступает в схватку с (   Читать дальше...   )Жанр: Семейный, Фэнтези, ПриключенияРежиссер: Сэм УонамейкерАктеры: Патрик Вейн, Джейн Сеймур, Тэрин Пауэр, Маргарет Уайтинг, Патрик Тротон, Курт Кристиан, Дэмиен Томас, Бернард Кэй.Перевод: Многоголосый закадровыйПродолжительность: 01:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FEF9BFEABF38B1CEEBB6EDAF7869881D2355339
 ```
 
 https://mybot314.ru/tekegram_catalog/

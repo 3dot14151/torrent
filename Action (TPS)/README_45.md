@@ -1,3 +1,159 @@
+###  Публикация: 1740683   (48012) от 03.08.2024
+
+STAR WARS: Bounty Hunter (2024) [Ru/Multi] (Build 15125379) Repack Other s
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старая история в новом обличии, являясь ремастером игры 2002 года. Вам предстоит сыграть за Джанго Фетта, когда он был охотником за головами ещё до создания армии клонов. Игровой процесс остался прежним, со всеми его достоинствами и недостатками, изменения были внесены в графическую составляющую, теперь вы сможете играть на современных ОС и на мониторах с высоким (   Читать дальше...   )Тип издания: RepackРазработчик: AspyrЖанр: Экшны, ПриключениеЯзык озвучки: Английский, Немецкий, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE6769677AC417C15E255285850D42427FEF5463
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740681   (47970) от 03.08.2024
+
+STAR WARS: Bounty Hunter (2024) [Ru/Multi] (Build 15125379) Scene SKIDROW
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старая история в новом обличии, являясь ремастером игры 2002 года. Вам предстоит сыграть за Джанго Фетта, когда он был охотником за головами ещё до создания армии клонов. Игровой процесс остался прежним, со всеми его достоинствами и недостатками, изменения были внесены в графическую составляющую, теперь вы сможете играть на современных ОС и на мониторах с высоким (   Читать дальше...   )Тип издания: SceneРазработчик: AspyrЖанр: Экшны, ПриключениеЯзык озвучки: Английский, Немецкий, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78A7F89042912ACA0BCF9274EE3F8FA7C5C12AEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740885   (47940) от 04.08.2024
+
+Batman: Arkham Knight (2015) [Ru/Multi] (1.999/dlc) Repack Decepticon [Premium Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Batman: Arkham Knight торжественно завершает знаменитую Аркхемскую трилогию игр от Rocksteady Studios. Игра создана специально для платформ нового поколения, и в ней будет представлена уникальная версия Бэтмобиля. Появления этой удивительной машины ждали очень давно. Она призвана органично дополнить игровую механику и дать игроку по-настоящему почувствовать себя (   Читать дальше...   )Тип издания: RepackРазработчик: Rocksteady StudiosЖанр: Экшн, От третьего лица, Open WorldЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81FBAB8B98BD9E3829B27DE48A02D5F61D0E72BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741262   (47806) от 05.08.2024
+
+Антология Darksiders (2016-2019) [Ru/Multi] (2.1.0.4/1.0.2679/1.4a/1.04/dlc) Repack dixen18
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прорубайтесь сквозь орды ангелов, демонов и множества других созданий, чтобы дойти до Ада и обратно. В экшен-приключении Darksiders Genesis вы узнаете о том, что такое война нечеловеческих существ, распростертая на огромные масштабы.Тип издания: RepackРазработчик: Airship SyndicateЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:413E8CBF368B8123556816F95C28FFB72B0A9BEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741145   (47786) от 05.08.2024
+
+Mecha Knights: Nightmare (2021) [En] (1.620/dlc) Scene Tenoke
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47786.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2049 году, на пике Второй холодной войны, вот-вот разразится тотальный конфликт между НАТО и российско-китайским альянсом. В разгар напряженности загадочный инцидент втягивает мир в апокалиптическую войну. Внезапно начинают появляться кошмарные существа неизвестного происхождения, погружающие мир в ужас и хаос. Молодой пилот Итан оказывается в центре всего этого, (   Читать дальше...   )Тип издания: SceneРазработчик: Damian KubiakЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04730358D1232819340C85E7B73925096339CC90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739661   (47588) от 07.08.2024
+
+Night of the Dead (2020) [Ru/Multi] (1.1.1.13/dlc) Repack Other s
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Night of the Dead - выживастик от третьего лица в открытом мире, где главной героиней выступает девушка по имени Люси. Она просыпается после одного эксперимента и обнаруживает, что улицы родного города опустели. По ним бродят лишь толпы живых мертвецов. Общаясь с немногочисленными выжившими, ей удается узнать, что наиболее активны зомби в ночное время суток. Теперь (   Читать дальше...   )Тип издания: RepackРазработчик: Jackto StudiosЖанр: Экшены, Приключенческие игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4E7128A31A909293793F824BF84B55B99F18051
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741647   (47563) от 07.08.2024
 
 Deer Avenger 4: The Redneck Strikes Back / Месть Оленя 4 (2001) [Ru/En] (1.0) Unofficial
@@ -6,7 +162,7 @@ Deer Avenger 4: The Redneck Strikes Back / Месть Оленя 4 (2001) [Ru/En
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47563.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ The Callisto Protocol (2022) [Ru/Multi] (14745831/dlc) Repack Decepticon [Digita
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47511.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ STAR WARS: Bounty Hunter (2024) [Ru/Multi] (Build 15125379) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47414.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ World War Z: Aftermath (2021) [Ru/Multi] (20240805/dlc) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46983.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Binary Domain (2012) [Ru] (1.0.0.1upd2/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46631.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Dark Sector (2009) [Ru] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46626.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Inversion (2012) [Ru] (5.48) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46522.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Batman: Arkham Asylum (2010) [Ru/En] (1.1) Repack Decepticon [Game of the Year E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46265.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Batman: Arkham Origins (2013) [Ru/Multi] (1.0/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46227.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ Outlast (2013) [Ru/En] (1.0.12046.0/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45403.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ Tomb Raider (2013) [Ru/Multi] (1.01.0.0/dlc) Scene Rune [Definitive Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44908.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ ENDLESS DAYS Z (2024) [En] (3.0.5) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44904.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ ENDLESS DAYS Z (2024) [En] (3.0.5) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44800.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ Dimensions (2023) [Ru/Multi] (4.0) Repack FitGirl [Gold Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44794.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ Resident Evil 3 (2020) [Ru/Multi] (1.07/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44471.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ Ghost of Tsushima (2024) [Ru/Multi] (1053.7.0809.1937/dlc) Repack dixen18 [Direc
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44155.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ Bully (2008) [Ru/En] (1.2) Repack R.G. Catalyst [Scholarship Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43590.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ Star Wars Jedi: Survivor (2023) [Ru/Multi] (1.0.0.11/dlc) Repack FitGirl [Deluxe
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43529.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ LOLLIPOP CHAINSAW RePOP (2024) [Multi] (1.0) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43485.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ LOLLIPOP CHAINSAW RePOP (2024) [Multi] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43469.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ Lollipop Chainsaw RePOP - это стремительный hack-and-slash, по
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:881CF0608BB72C2A06E9CD2997A5D21413A551E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749862   (43428) от 16.09.2024
-
-Dead Space: Trilogy (2008-2013) [Ru/En] (1.0.0.222/1.0/1.0.1) Repack dixen18
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43428.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Dead Space 3 Айзек Кларк и не знающий жалости солдат Джон Карвер отправятся далеко в космос, чтобы найти источник нашествия некроморфов. Совершив аварийную посадку на заснеженной планете, Айзек вынужден преодолевать суровые условия окружающей среды в поисках ресурсов и деталей для оружия. Чтобы выжить, придется задействовать все свои инженерные навыки. На холодной (   Читать дальше...   )Тип издания: RepackРазработчик: Visceral GamesЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAAA22ADF8228175A75FB918A6406F24E8F46398
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749892   (43402) от 16.09.2024
-
-Assassin's Creed (2008) [Ru/En] (1.0.2) Repack dixen18 [Director's Cut Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Assassin's Creed - игра нового поколения, разработанная Ubisoft Montreal, которая изменила представление об экшн-жанре. Пока другие игры претендуют называться новым поколением, пытаясь впечатлить нас графикой и физикой, Assassin's Creed сливает технологии, игровой дизайн, мотивы и чувства в мир, где вы вызываете хаос и становитесь могущественным, но уязвимым агентом (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft MontrealЖанр: Action, 3D, 3rd Person, StealthЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D18580ADA34EFBA86FA4D5B87847A010DCD45CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749914   (43299) от 17.09.2024
-
-Overlord: Raising Hell (2007) [Ru] (1.4/dlc) Repack ArchangeL
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Overlord - это приключенческий action, события которого разворачиваются в сказочном мире. Управлять нам придется таинственным персонажем, который унаследовал все худшее от злобного Повелителя (Overlord), жившего многие века назад. Игрок начинает свои странствия около руин Темной Башни старого Повелителя.Тип издания: RepackРазработчик: Triumph StudiosЖанр: Action, 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3F4369C427B1F270A9150143DAEC08359B22B32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750470   (42987) от 20.09.2024
-
-Transformers: Fall of Cybertron (2012) [Ru/Multi] (1.0/dlc) Repack FitGirl
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра «Transformers™: Fall of Cybertron»™ перенесет вас в последние дни планеты Кибертрон, самые страшные часы апокалиптической войны между Автоботами и Десептиконами. Погрузитесь в наполненное адреналином приключение с разнообразным спектром миссий и обширными полями боя, спроектированными с учетом уникальных способностей каждого персонажа. Вам предстоит сыграть (   Читать дальше...   )Тип издания: RepackРазработчик: High Moon Studios, Mercenary TechnologyЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B77F53787FB23F75BCF67EF475608F0125149470
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750867   (42807) от 22.09.2024
-
-Assassin's Creed II (2010) [Ru/Multi] (1.01/dlc) Repack dixen18
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение популярного исторического стелс-экшена от компании «Ubisoft». Во второй части действие переносится с Ближнего Востока времен Крестовых походов в Италию эпохи Ренессанса. Новым главным героем выступает молодой флорентийский аристократ Эцио Аудиторе да Фиренце. Игроку предстоит встретиться с такими выдающимися людьми того времени, как Леонардо да Винчи, (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft MontrealЖанр: Action, 3D, 3rd Person, StealthЯзык озвучки: Русский, Английский, ИтальянскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36787944EE23A5A08DAC0782F8D552C730BA68B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750873   (42781) от 22.09.2024
-
-Warhammer 40,000: Space Marine (2011) [Ru/En] (1.0.165/dlc) Repack FitGirl
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Орда кровожадных Орков вторглась на планету-кузницу, где производятся боевые машины для Империума Человечества. Космодесантник, закаленный в боях ветеран Ордена Ультрамаринов, капитан Тит должен со своим отрядом удерживать оборону до прихода ударных сил Имперского флота. На стороне врага – огромный перевес в численности, на стороне людей – лучшие бойцы и мощнейшее (   Читать дальше...   )Тип издания: RepackРазработчик: Relic EntertainmentЖанр: Action (Shooter, Slasher), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0952B5123882A836A6FC6F32140A06A6AFFCFBB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

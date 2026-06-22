@@ -6,7 +6,7 @@ Irvue 2.7.14 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234659.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TG Pro (Temperature Gauge Pro) 2.81 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234613.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Cisdem Duplicate Finder 6.4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234598.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ BetterSnapTool 1.9.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234505.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Gas Mask 0.8.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234365.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Seasonality Core 2.7.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234364.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ JustStream PRO 2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234335.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ ForkLift 3.5.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234126.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ RAR Extractor - Unzip ZIP 7Z 7.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233938.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Tidy Up 6.0.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233894.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Trickster 3.8.1 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233573.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Backgrounds 10.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233556.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Service Station Pro 2020.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233460.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Eassiy Android Data Recovery for Mac 5.1.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233290.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Superkey 0.17 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233285.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ AnyDroid 7 v.7.5.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233271.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ HitPaw Screen Recorder for Mac 1.0.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232789.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ iCollections 8.0.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232508.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ FastScripts 3.2.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232379.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Wallpaper Wizard 2 v.2.2.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231902.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Path Finder 2158 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231501.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ DuplicateViewer Pro 4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231153.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ DiskSlim - Disk Cleanup Pro 9.8.12 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231015.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ PopClip 2023.7 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230985.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Sloth 3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230860.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ LaunchControl 2.4 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230732.jpg" />
 </div>
 
 

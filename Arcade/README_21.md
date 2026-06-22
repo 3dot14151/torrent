@@ -1,3 +1,55 @@
+###  Публикация: 1038511   (604764) от 29.07.2016
+
+Anarcute (2016) [En] (1.0) Repack Elektra
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настали темные времена. Группа злых корпораций захватила крупные мегаполисы. Они взяли под свой контроль СМИ, промывают мозги полиции и бесстыдно диктуют гражданам условия жизни с высоты своих небоскребов. Пришло время действовать! Возьмите под свой контроль революцию, чтобы столкнуться с ужасным Brainwash Patrol, который господствует в мире.Тип издания: RepackРазработчик: AnarteamЖанр: Action, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:801E80E01351AEEEB9404A85F9AA0D0F503A577D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038728   (604573) от 29.07.2016
+
+SEUM: Speedrunners from Hell (2016) [En] (1.0) License PLAZA
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604573.jpg" />
+</div>
+
+
+###  Подробнее
+
+SEUM: Speedrunners from Hell - это экшен-платформер, смешивающий в себе Quake и Super Meat Boy, в котором игрокам предстоит сбежать из Ада, путешествуя по уровням со смертельными ловушками.Тип издания: LicenseРазработчик: Pine StudioЖанр: Arcade (Platform), Action, IndieЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:667BE3859FC612607ECE3353ED2C1AD28DFD2A04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148191   (604176) от 05.07.2017
 
 Unravel (2016) [Multi] (1.0.0) License STEAMPUNKS
@@ -6,7 +58,7 @@ Unravel (2016) [Multi] (1.0.0) License STEAMPUNKS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604176.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Westboro (2017) [Ru/Multi] (1.00) SteamRip Let'sPlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604171.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Unravel (2016) [Multi] (1.0.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604158.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Dragon Ball: Xenoverse 2 (2016) [Ru/En] (1.07.00/dlc) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603790.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Haimrik (2018) [Ru/Multi] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603637.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Neighbours From Hell Compilation (2004) [Ru/Multi] (1.00.13233/1.01a.13237) Lice
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603258.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Mitsurugi Kamui Hikae (2014) [En/Jap] (1.1.4.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602810.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Goat Simulator (2014) [Ru/Multi] (1.5.58533/dlc) License PROPHET
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602356.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Outland (2014) [Ru/En] (1.13) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599466.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Fly and Destroy (2016) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597086.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Black The Fall (2017) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596126.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Cast of the Seven Godsends - Redux (2016) [Ru/Multi] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594143.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Omensight (2018) [Ru/Multi] (1.03) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593193.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Oddworld: Munch’s Oddysee HD (2010) [En] (1.0/upd 14) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588095.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ The Swords of Ditto (2018) [Ru/Multi] (1.15.04-202) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587829.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587746.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ Oceanhorn: Monster of Uncharted Seas (2015) [Ru/Multi] (3.0.41.212) RePack xGhos
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587608.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Alien Shooter 2: Золотое издание [Ru] (L) (2007)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586721.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Inked (2018) [Ru/Multi] (20180528-1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583027.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ Bubsy: Paws on Fire! (2019) [Multi] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578958.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ Lock's Quest (2017) [Multi] (20170716) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577520.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Mortal Kombat Anthology (1997-2015) [Ru/En] Repack R.G. Catalyst [Fatality Editi
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577389.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Under Night In-Birth Exe: Late (2016) [En/Ja] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574255.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ Dark Future: Blood Red States (2019) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573894.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ Dark Future: Blood Red States - это безумная аркадная гон�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:719017AD3B8570123E5C6CECD2B5F1D0ECE69812
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303524   (572181) от 21.05.2019
-
-Risky Wings (2018) [Ru/Multi] (502) Repack Other s
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Risky Wings — это интенсивная летающая игра, в которой вы зарабатываете очки, летая рискованно между различных препятствий. Чем ближе (и дольше) вы летите к препятствиям, тем больше очков получаете. Уровни игры генерируются процедурно, поэтому они никогда не будут одинаковыми. Запоминание не поможет (сильно), вам нужно научиться реагировать на сложившуюся ситуацию (   Читать дальше...   )Тип издания: RepackРазработчик: FireVectorЖанр: Action, Racing, Arcade, 3DЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87C23C43951F1FD88324C5555FD67E8546F59DCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303518   (572159) от 21.05.2019
-
-Risky Wings (2018) [Ru/Multi] (502/dlc) License PLAZA
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Risky Wings — это интенсивная летающая игра, в которой вы зарабатываете очки, летая рискованно между различных препятствий. Чем ближе (и дольше) вы летите к препятствиям, тем больше очков получаете. Уровни игры генерируются процедурно, поэтому они никогда не будут одинаковыми. Запоминание не поможет (сильно), вам нужно научиться реагировать на сложившуюся ситуацию (   Читать дальше...   )Тип издания: LicenseРазработчик: FireVectorЖанр: Action, Racing, Arcade, 3DЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09D227ABF318A698A245F90B62C86BA5F424D76F
 ```
 
 https://mybot314.ru/tekegram_catalog/

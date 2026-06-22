@@ -1,61 +1,3 @@
-###  Публикация: 1594318   (176580) от 03.12.2022
-
-VA - The Best 50 of Piano Classical Music (2022) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
-02. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
-03. Vyacheslav Gryaznov, Katya Kramer-Lapin - Peer Gynt Suite No. 1, Op. 46 I. Morning Mood (Arr. for 2 Pianos) (3:39)
-04. Maria Nemtsova - The Nutcracker Suite, Op. 71a I. March (Arr. for Piano) (2:04)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:18:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F746852BF458B6AEDDBF6799DBA95160B52F464A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666300   (175804) от 09.10.2023
-
-Consuelo - Золотое сердце России (2023) [FLAC|Lossless|WEB-DL|tracks] <neoclassical/crossover/art-rock/ethno/progressive>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Конквистадор [00:02:51]
-02. Беатриче [00:02:54]
-03. В моих садах цветы [00:03:18]
-04. Она [00:04:33](   Читать дальше...   )Жанр: neoclassical, crossover, art-rock, ethno, progressiveПродолжительность: 00:53:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11EC3FF8201809C9F5768C52F6297A600822742E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595899   (174467) от 07.12.2022
 
 Igor Ruhadze, Alexandra Nepomnyashchaya - Geminiani: Violin Sonatas, op.1 (2022) 2xCD [FLAC|Lossless|image + .cue] <Classical>
@@ -64,7 +6,7 @@ Igor Ruhadze, Alexandra Nepomnyashchaya - Geminiani: Violin Sonatas, op.1 (2022)
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174467.jpg" />
 </div>
 
 
@@ -85,35 +27,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671851   (171008) от 26.10.2023
-
-Sofiane Pamart - Noche (2023) [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noche
-02. Corazon
-03. Vera
-04. Miedo(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06DD651DE0FEAF4F20CC2D1478EFE380DF0DEF6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595301   (169826) от 10.12.2022
 
 Ensemble Labyrinthus - Carmina de morte (2014) [MP3|320 Kbps] <classical, chamber>
@@ -122,7 +35,7 @@ Ensemble Labyrinthus - Carmina de morte (2014) [MP3|320 Kbps] <classical, chambe
 >>Камерная
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169826.jpg" />
 </div>
 
 
@@ -151,7 +64,7 @@ Maria Callas - DIVINA : Maria Callas (Live) (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169011.jpg" />
 </div>
 
 
@@ -180,7 +93,7 @@ PALLADIUM Electric Band - Love Planet (2014) [MP3|320 Kbps] <Instrumental, Class
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167357.jpg" />
 </div>
 
 
@@ -209,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166061.jpg" />
 </div>
 
 
@@ -238,7 +151,7 @@ Andrea Bocelli - A Family Christmas (2022) [FLAC|96/24|Lossless|WEB-DL|tracks] <
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165838.jpg" />
 </div>
 
 
@@ -267,7 +180,7 @@ Orchestre National De France - Georges Bizet: Carmen (1984) 3CD [FLAC|Lossless|i
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160587.jpg" />
 </div>
 
 
@@ -296,7 +209,7 @@ Bela Bartok - Bartok Complete Edition (2000) 29CD [APE|Lossless|image + .cue]<Cl
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160493.jpg" />
 </div>
 
 
@@ -325,7 +238,7 @@ Johannes Brahms Complete Edition (1996) 46CD Box Set [APE|Lossless|image + .cue]
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160490.jpg" />
 </div>
 
 
@@ -354,7 +267,7 @@ Handel - The Masterworks (2004) 40CD Box [FLAC|Lossless|image + .cue] <Classic>
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160489.jpg" />
 </div>
 
 
@@ -383,7 +296,7 @@ Peter Jablonski - Chopin: Complete Mazurkas, Vol.1 (2022) [FLAC|Lossless|image +
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159618.jpg" />
 </div>
 
 
@@ -412,7 +325,7 @@ Serj Tankian - Invocations (2023) Live [FLAC|Lossless|WEB-DL|tracks] <Classical,
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158915.jpg" />
 </div>
 
 
@@ -441,7 +354,7 @@ Andre Rieu And His Johann Strauss Orchestra - The Christmas I Love (2011) [FLAC|
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155097.jpg" />
 </div>
 
 
@@ -470,7 +383,7 @@ Corelli - The Complete Works
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154844.jpg" />
 </div>
 
 
@@ -497,7 +410,7 @@ Divna Ljubojeviс / Дивна Любоевич & Melodi - In Search Of Divine L
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154315.jpg" />
 </div>
 
 
@@ -526,7 +439,7 @@ Nino Gurevich - Piano (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154136.jpg" />
 </div>
 
 
@@ -555,7 +468,7 @@ Violina Petrychenko - Winter Whispers: Ukrainian Piano Tales (2023) [FLAC|Lossle
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152890.jpg" />
 </div>
 
 
@@ -584,7 +497,7 @@ The Piano Guys - Live! (2015) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152508.jpg" />
 </div>
 
 
@@ -613,7 +526,7 @@ Katherine Jenkins - This Is Christmas (2012) [FLAC|Lossless|tracks + .cue] <Clas
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152443.jpg" />
 </div>
 
 
@@ -642,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151422.jpg" />
 </div>
 
 
@@ -668,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151396.jpg" />
 </div>
 
 
@@ -696,7 +609,7 @@ VA - Christmas With The Stars And The Royal Philharmonic Orchestra (2019) Jewelb
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150817.jpg" />
 </div>
 
 
@@ -725,7 +638,7 @@ Galina Vishnevskaya, Mstislav Rostropovich/Галина Вишневская, М
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147865.jpg" />
 </div>
 
 
@@ -739,6 +652,92 @@ Galina Vishnevskaya, Mstislav Rostropovich/Галина Вишневская, М
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0D682CB6716ADEF6604A405AEF3B8F254683E9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519178   (146960) от 25.12.2021
+
+VA - Winter Classical (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Loveday Academy Of St Martin In The Fields Sir Neville Marriner - Concerto for Violin and Strings in F minor, Op.8, No.4, R.297 L'inverno 1. Allegro non molto (3:21)
+02. Alan Loveday Academy Of St Martin In The Fields Sir Neville Marriner - Concerto for Violin and Strings in F minor, Op.8, No.4, R.297 L'inverno 2. Largo (2:19)
+03. Alan Loveday Academy Of (   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E7458F4F8C871F04C4F9F40296ECEF02243B67C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271184   (146896) от 25.12.2018
+
+Nikolai Baskov - Christmas Songs (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, New Age>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adeste Fideles
+02. Ave Maria
+03. Away In A Manger
+04. The First Noel(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EC91F61D47127A3060545C0625D1D210DF820BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 739745   (143847) от 29.12.2013
+
+Maria Pia De Vito, Francois Couturier, Anja Lechner, Michele Rabbia - Il Pergolese (2013) [FLAC 2.0|24/88.2|WEB-DL]<Avant-Garde Jazz, Classical Crossover>
+
+>>Классика
+>>Классика (HD Audio)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ogne pena cchiù spietata (5:58)
+02. Amen / Fac Ut Portem (11:20)
+03. Sinfonia for violoncello (10:03)
+04. Chi disse ca la femmena (4:43)(   Читать дальше...   )Жанр: Avant-Garde Jazz, Classical CrossoverПродолжительность: 00:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4928259673135ED39DCBCBEDAF0A4D04118A775
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1359358   (963873) от 12.02.2020
+
+Generation Streets (2020) [Ru/En] (1.0) Repack Other s
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что будет, если взять карту реального мира, превратить все здания в трёхмерные, натянуть на них текстуры и расставить вокруг деревья, линии электропередач и прочий визуальный мусор? А вот что: Попробуйте загрузить свой город и найти свой дом - казуальная игра сразу заиграет совсем другими красками. Хоть многие населенные пункты прорисованы достаточно детально, геоданных (   Читать дальше...   )Тип издания: RepackРазработчик: Roman ShuvalovЖанр: Arcade, Real Open World, Casual, 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20022564E827AA256765BB53AEDB06A200896D8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978657   (961825) от 24.01.2016
+
+Assassin’s Creed Chronicles: India / Assassin's Creed Chronicles: Индия (2016) [Ru/Multi] (1.0) Repack R.G. Механики
+
+>>След.
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы окажетесь в Амритсаре 1841 года, когда отношения между Сикхской империей и Ост-Индской компанией были накалены до предела. В город прибывает магистр тамплиеров, исполненный решимости завладеть легендарным алмазом ""Кохинур"", и романтические отношения между Арбаазом Миром и племянницей махараджи Пьярой Каур оказываются под угрозой.Тип издания: RepackРазработчик: Climax Group и Ubisoft MontréalЖанр: Arcade (Platform), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D236EDCD5E3ECCB14ACA8B5A1988B6E57A2FC293
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360319   (959069) от 16.02.2020
 
 Florence (2020) [Ru/Multi] (1.0.1) License GOG
@@ -6,7 +58,7 @@ Florence (2020) [Ru/Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959069.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Zombie Driver HD [En/Multi6] (Steam-Rip/1.4.23-20983/DLC) 2012 | R.G. Игром
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958422.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ Crystal Caves (1991) [En] (1.0.0.28043) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956612.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Deadlight [En/Ru] (RePack/1.0.9249.0) 2012 | R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954691.jpg" />
 </div>
 
 
@@ -118,7 +170,7 @@ Highly Likely (2020) [Ru/En] (1.0/upd1) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953684.jpg" />
 </div>
 
 
@@ -144,7 +196,7 @@ Space Robinson: Hardcore Roguelike Action (2019) [Ru/Multi] (2.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952020.jpg" />
 </div>
 
 
@@ -170,7 +222,7 @@ Deathtrap (2015) [Ru/Multi] (1.0.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951981.jpg" />
 </div>
 
 
@@ -196,7 +248,7 @@ Hypersensitive Bob (2016) [En] (1291928) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951704.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ Dragon Ball: Xenoverse (2015) [Ru/Multi] (1.08.00/dlc) SteamRip Let'sPlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951661.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ The Binding of Isaac: Afterbirth+ (2017) [En] (1.0/dlc) License TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949918.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ Sayaka (2017) [En] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948395.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ The Binding of Isaac: Rebirth (2014) [En] (1.0/dlc) SteamRip Let'sPlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947020.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ Doctor Who: The Eternity Clock (2012) [En/Multi] SteamRip Fairlight
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946518.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ The Binding of Isaac: Rebirth (2017) [En/Jp] (1.0/upd3/dlc) Repack Other s [Comp
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943959.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ Infinitesimal Point  (2016) [Ru/En] (1.0) Repack R.G. Жук в Муравейн
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943132.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ Cat and Ghostly Road (2020) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941963.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ Iris and the Giant (2020) [Ru/Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940463.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ Ignition (1997) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939638.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ Dollar Dash [En/Multi5] (L) 2013 | FANiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939413.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ Worms Revolution / Worms: Революция + 4 DLC [Ru/En/Multi7] (Steam-Rip/0
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939349.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ Heaven Dust (2020) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939081.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ Win3xO - The Win 3.x Collection v1.0 (2015) [En] (1.0) Repack Firstrun70
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936704.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ The Binding of Isaac: Rebirth (2014) [En] (1.0/12.01.17/dlc) SteamRip R.G. Иг�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936574.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ Heroes Over Europe [Ru/En] (RePack/1.02) 2010 l Adil
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936228.jpg" />
 </div>
 
 
@@ -627,60 +679,6 @@ Heroes Over Europe [Ru/En] (RePack/1.02) 2010 l Adil
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD7F35D346BAA283F0EF6AB4214F3D8FFE73E0BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560643   (934230) от 11.03.2013
-
-Worms Revolution + 4 DLC [Ru/En/Multi8] (Repack/0124) 2012 | R.G. Origami
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вихри враждебные веют над ними — в новой игре из легендарной серии юморных походовых стратегий. Передовая 3D-графика делает любимых червячков еще очаровательнее, чем прежде. А еще смертоноснее их делает классический 2D-геймплей, обогащенный на сей раз поистине революционными возможностями. Безжалостные червячки-убийцы отныне способны перемещать предметы, обладающие всеми физическими свойствами, и даже высвобождать природную стихию, буквально смывая противника с уровня бурным потоком. Но самое главное — их индивидуальность . Бесшабашные кольчатые вояки наконец выучились по специальностям и теперь объединяются в отряды с оглядкой на личные качества. И — конечно, несомненно, разумеется — они раздобыли новое оружие!
-
-Червяки всех стран, вооружайтесь! Присоединяйтесь к великой кольчатой армии! Весь мир в труху! Во имя веселья! (   Читать дальше...   )Тип издания: RepackЖанр: Strategy (Turn-based) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Испанский, Итальянский, Немецкий, Польский, Португальский, Русский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E73ABC4A85DB144FEDB199DAF7A9041D0AA8348
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093737   (933122) от 15.01.2017
-
-Toricky (2017) [Ru/Multi] (1.0) License PLAZA
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933122.jpg" />
-</div>
-
-
-###  Подробнее
-
-ТОРИКИ И МОМО ДВЕ ПТИЦЫ-ИССЛЕДОВАТЕЛЯ, КОТОРЫЕ ВСЕГДА ИЩУТ НОВЫЕ ПРИКЛЮЧЕНИЯ. Они отправляются на новое задание в легендарный дворец, называемый «Кристар», где спрятаны таинственные драгоценности.Тип издания: LicenseРазработчик: Atelier Melon-KissaЖанр: Action, Adventure, Casual, IndieЯзык озвучки: ЯпонскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:349075E39C9355618B7D474C8F68B4EABDAC34FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

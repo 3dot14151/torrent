@@ -1,3 +1,58 @@
+###  Публикация: 1087158   (148659) от 26.12.2016
+
+TunesKit iBook Copy 1.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный конвертер iBook DRM. Удаление защиты без потери качества в IBOOK EPUB DRM Free. TunesKit IBook Copy является уникальным инструментом для удаления IBook DRM на рынке, TunesKit IBook Copy может легко снять защиту DRM от компании Apple …
+
+Обход защиты DRM iBook EPUB файлов.
+Не можете читать ваши EPUB файлы на других устройствах для чтения, как Amazon Kindle, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22 декабря 2016Разработчик: TunesKitПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB837727B929A8F2571FA1DB6AF92CBCA58FFCBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271650   (148653) от 24.12.2018
+
+WiFi Scanner 2.8.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Используя WiFi Scanner, вы увидите близлежащие точки беспроводного доступа и их детали, включая каналы, уровни сигнала (RSSI), шум, ширину канала и MAC-адрес, качество сигнала, максимальную скорость передачи данных, шифрование и многое другое. WiFi Scanner включает в себя тестирование скорости загрузки и скачивания, чтобы быстро измерять и анализировать проблемы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2018Разработчик: AccessAgility LLCПоддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4BC80CD1F6F26AADE6B06849D3E6D445B08DA3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271651   (148641) от 24.12.2018
 
 Movist 2.0.4 [En]
@@ -6,7 +61,7 @@ Movist 2.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148641.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ ImageRanger Pro Edition 1.7.8.1690 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148622.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ MetaImage 1.9.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148617.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ Feeder 4 v4.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148604.jpg" />
 </div>
 
 
@@ -114,7 +169,7 @@ iToolab SIMUnlocker 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148587.jpg" />
 </div>
 
 
@@ -141,7 +196,7 @@ IP Scanner Pro 3.52 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148578.jpg" />
 </div>
 
 
@@ -169,7 +224,7 @@ Lungo 2.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148565.jpg" />
 </div>
 
 
@@ -195,7 +250,7 @@ Movavi Screen Recorder 11.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148534.jpg" />
 </div>
 
 
@@ -221,7 +276,7 @@ Wolfram Mathematica 11.3.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148530.jpg" />
 </div>
 
 
@@ -247,7 +302,7 @@ Geekbench 3.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148525.jpg" />
 </div>
 
 
@@ -274,7 +329,7 @@ Macsome iTunes Converter 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148507.jpg" />
 </div>
 
 
@@ -303,7 +358,7 @@ Aiseesoft Mac Video Converter Ultimate 10.2.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148506.jpg" />
 </div>
 
 
@@ -329,7 +384,7 @@ Network Kit 9.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148475.jpg" />
 </div>
 
 
@@ -355,7 +410,7 @@ Duplicate Photos Fixer Pro 4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148458.jpg" />
 </div>
 
 
@@ -382,7 +437,7 @@ Movavi Screen Recorder 22.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148452.jpg" />
 </div>
 
 
@@ -408,7 +463,7 @@ AnyTrans 5.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148402.jpg" />
 </div>
 
 
@@ -435,7 +490,7 @@ Loopback 1.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148350.jpg" />
 </div>
 
 
@@ -464,7 +519,7 @@ Perfectly Clear Plugin for Photoshop 2.0.2.1 and Lightroom 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148322.jpg" />
 </div>
 
 
@@ -492,7 +547,7 @@ iMazing 2.1.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148317.jpg" />
 </div>
 
 
@@ -519,7 +574,7 @@ MiniTube 3.6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148309.jpg" />
 </div>
 
 
@@ -545,7 +600,7 @@ FCPX Full Access - Ultimate Bundle 2021 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148238.jpg" />
 </div>
 
 
@@ -573,7 +628,7 @@ Mirror for LG TV 3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148188.jpg" />
 </div>
 
 
@@ -599,7 +654,7 @@ MacX Video Converter Pro 6.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148185.jpg" />
 </div>
 
 
@@ -626,7 +681,7 @@ Arturia Analog Lab V v5.0.0.1212 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148107.jpg" />
 </div>
 
 
@@ -637,58 +692,6 @@ Analog Lab V - это плагин, который объединяет в од�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:835C84DD6E99E1F46A4713D289FBC53D6E3169DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678087   (148041) от 20.11.2023
-
-PullTube 1.8.5.19 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузка видео размещённым на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРелиз состоялся: 19.11.2023Разработчик: © 2020 MyMixAppsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB0E9D11F9ABCBA729F814FA377D78DE06BDC91D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678058   (148016) от 20.11.2023
-
-Amadeus Pro 2.8.13 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Amadeus Pro - многотрековый музыкальный редактор, который будет интересен как любителям, так и профессионалам. Приложение поддерживает работу с несколькими звуковыми дорожками, каждую из которых можно редактировать абсолютно независимо от других - изменять ее уровень громкости, накладывать различные фильтры, вставлять дополнительные фрагменты и т.д. Помимо этого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.11.2023Разработчик: © 2022 HairerSoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B53186E60BD1583298927A973BD274F2ADC7C314
 ```
 
 https://mybot314.ru/tekegram_catalog/

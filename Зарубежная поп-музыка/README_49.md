@@ -6,7 +6,7 @@ Jasmine Thompson - Another Bundle of Tantrums (2014) [MP3|320 кб/с]<Indie Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475703.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Festivalbar '78  (1978) 2LP [MP3|320 Kbps] <Electronic, Disco, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474141.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Craig David - Following My Intuition (2016) Deluxe Edition [MP3|320 Kbps] <Pop, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470947.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Kish Mauve - Black Heart (2009) [MP3|320 Kbps] <Alternative Pop, Electropop, Ele
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469378.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Here Come The Mummies - Cryptic (2013) [MP3|320 Kbps] <Funk, Rhythm & Blues, Sou
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469194.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - NRJ 300% Hits 2018 Vol. 2 (2018) 3CD [MP3|320 Kbps] <Pop, Dance, Rap>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467661.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Mika - The Origin Of Love (2012) [MP3|320 кб/с]<Pop, rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467344.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Beyonce - I Was Here (2012) Single, Promo CD [MP3|~245 кб/с (V0)]<R&B, pop, s
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467334.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Tanita Tikaram - Can't Go Back (2012) [MP3|320 кб/с]<Pop, Folk>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467071.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Boney M - Ultimate Long Versions & Rarities 1976-1987 (2009) [MP3|320 кб/с]<P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467060.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Nelly Furtado - The Spirit Indestructible (Deluxe Version) 2CD (2012) [MP3|320 �
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466752.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Hits Rewind 90s (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465660.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Adriano Celentano - il rock di (2006) [MP3|320 кб/с]<Pop, Rock'n'Roll>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465012.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Don Henley (Eagles) - Cass County (2015) Deluxe Edition [MP3|320 кб/с]<Countr
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464765.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Julio Iglesias - Mexico (2015) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464609.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ VA - Bonfire: 00s Club & Dance (2018) [MP3|320 Kbps] <Club, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463629.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ VA - Clubfete 80er - 63 Club & Party Hits of the 80'S (2018) [MP3|320 Kbps] <Dan
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463435.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ VA - 90s Disco Hits - The Club Anthems (2018) 3CD [MP3|320 Kbps] <Dance, Club>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463431.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ VA - Abbamania (1999) Compilation [MP3|320 Kbps] <Europop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461559.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ VA - 100 Greatest 80s (2017) 5CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461323.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - I Just Called - Pop Sensations (2022) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459926.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Maroon 5 - Singles (2015) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459739.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Boney M - Boney M - Original Version • Long Version • Rarities [4CD BOX] (20
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459427.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ VA - The Best Of TVI Records - Dance The Night Away (1995) CD [MP3|320 Kbps] <Fu
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459219.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ Liz Mitchell (ex. Boney M) - No One Will Force You (1988) Reissue, ESonCD, 2008 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459152.jpg" />
 </div>
 
 
@@ -772,7 +772,7 @@ Taylor Swift - Lover (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458937.jpg" />
 </div>
 
 

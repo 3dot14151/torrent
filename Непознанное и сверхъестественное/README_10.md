@@ -1,3 +1,55 @@
+###  Публикация: 1021979   (730957) от 31.05.2016
+
+Тайны Чапман. Последнее предсказание Нострадамуса (31.05.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный цикл - это эксклюзивные интервью, сенсационные факты, громкие разоблачения и истории очевидцев. Авторы цикла дадут ответ на простые, и в то же время сложные вопросы: почему количество природных катастроф за последние годы выросло в несколько раз? Может ли питьевая вода стать причиной глобальной войны? Какие опасности таит в себе здоровый образ жизни? (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0153CE809A8E11EA03DF46E7566221C8FC44E42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021992   (730823) от 31.05.2016
+
+Самые шокирующие гипотезы. Если мы такие богатые, почему мы такие бедные?  (31.05.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730823.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Самые шокирующие гипотезы" - документальный проект телеканала "Рен ТВ"! Мы дадим новые ответы на старые вопросы и зададим свои. Факты, о которых долго молчали наши коллеги-журналисты, и независимая оценка событий, изменивших мир. Расследования самых сенсационных историй и свежий взгляд на, казалось бы, общеизвестные исторические факты. Поиск (   Читать дальше...   )В этом выпуске: Сегодняшний выпуск "Самых шокирующих гипотез" будет посвящён мировой экономике - кто устраивает грязные игры, от которых нищает весь мир? И что будет, когда нефть закончится, а золото обесценится?Телекомпания: РЕН-TVЖанр: ДокументальныйРежиссер: Артемий ГринчевскийПродолжительность: 00:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:255533E56CB23DD1063E285BB60E00697F7E6ECB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127814   (730707) от 22.04.2017
 
 Экстрасенсы ведут расследование (2017.04.22) SATRip (сезон 8, выпуск 7)
@@ -6,7 +58,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730707.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729966.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728825.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728781.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728700.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727780.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727112.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726679.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726620.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726278.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725856.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725031.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724537.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724107.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722503.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720708.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720682.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720337.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719827.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718706.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716413.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716407.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716033.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714498.jpg" />
 </div>
 
 
@@ -622,64 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:344C6B2B97DC3588093A7F23F00C3E0FB1F00ADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 791652   (714098) от 31.05.2014
-
-Тайны мира с Анной Чапман. Гибель Нептуна (2014) DVBRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вас интересуют самые таинственные явления современности? Вы хотите докопаться до истины самых загадочных событий, происходящих в наше время? Вас манят мистический и пугающие истории? Тогда передача “Тайны мира с Анной Чапман” - это именно то, что вы так долго искали!
-Присоединяйтесь к многомиллионной армии поклонников этой не менее загадочной, чем все самые таинственные истории, ею рассказанные, ведущей! Кажется, что Анна Чапман может раскрыть самые запутанные и непонятные мистификации!В этом выпуске: Как одна маленькая компания из Гон-Конга захватила мировой рыбный рынок;
-Кто стоит за Самолийскими пиратами, и почему вымогая миллионы они живут в нищете;
-Бизнес по-корейски и по-вьетнамски. Как выращивают рыбу на азиатских фермах;
-Как подделывают рыбные деликатесы;
-В каких сортах рыбы полно химии;
-И 5-ть правил безопасности, которые должен знать каждый.Жанр: ДокументальныйПродолжительность: 00:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8769E091B31FDCF10629228AC1EBDCFDB75EFF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130983   (712533) от 03.05.2017
-
-Раскрывая мистические тайны. Астральные причины бедности (2017) WEBRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Психологи утверждают, что преуспевание начинается в сознании. Оно невозможно, если мысленно человек не может представить себя богатым, успешным, счастливым. Эзотерики считают, что человек не сможет привлечь к себе изобилие, думая о бережливости и экономя каждую копейку. Роковая ошибка – трудиться ради одного, ожидая при этом другого. И неважно, как сильно человек (   Читать дальше...   )Производство: Москва МедиаЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D146E5B6D62B549EE2931AD385736DC0AA8F85E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1141377   (646503) от 12.06.2017
+
+Хоккей. НХЛ 2017. Кубок Стэнли. Финал. Питтсбург Пингвинз – Нэшвилл Предаторз (2017) HDTVRip [H.264/720p-LQ] [hand made 50fps] (6 матчей из 6)
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646503.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 июня 2017 года, понедельник. 03:00 МСК
+НХЛ - 2017. Кубок Стэнли. Финал:
+6-й матч
+Нэшвилл Предаторз – Питтсбург Пингвинз(   Читать дальше...   )Телекомпания: Eurosport HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:21:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03D84D575F538CC7A1C93FCA29032B2822E59181
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141997   (646413) от 12.06.2017
 
 Лучший в мире дайвинг / Top dive sites (2014-2016) HDTVRip [H.264/720p-LQ] (сезон 2, серии 13 из 13)
@@ -6,7 +35,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646413.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_646114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_646114.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646089.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_645942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_645942.jpg" />
 </div>
 
 
@@ -110,7 +139,7 @@ NG: Борт №1 / On Board Air Force One (2009) HDTVRip 720p
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_645940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_645940.jpg" />
 </div>
 
 
@@ -136,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645883.jpg" />
 </div>
 
 
@@ -162,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645849.jpg" />
 </div>
 
 
@@ -191,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645841.jpg" />
 </div>
 
 
@@ -220,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645733.jpg" />
 </div>
 
 
@@ -246,7 +275,7 @@ NG: Освещённая пучина / Light the Ocean (2011) SATRip
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645355.jpg" />
 </div>
 
 
@@ -272,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645231.jpg" />
 </div>
 
 
@@ -301,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645077.jpg" />
 </div>
 
 
@@ -330,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645076.jpg" />
 </div>
 
 
@@ -359,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644993.jpg" />
 </div>
 
 
@@ -388,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644974.jpg" />
 </div>
 
 
@@ -417,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644973.jpg" />
 </div>
 
 
@@ -446,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644972.jpg" />
 </div>
 
 
@@ -475,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644971.jpg" />
 </div>
 
 
@@ -504,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644970.jpg" />
 </div>
 
 
@@ -533,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644969.jpg" />
 </div>
 
 
@@ -562,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644968.jpg" />
 </div>
 
 
@@ -591,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644967.jpg" />
 </div>
 
 
@@ -620,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644966.jpg" />
 </div>
 
 
@@ -649,7 +678,7 @@ Discovery: Выжить любой ценой [сезон 3] / Ultimate Survival
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644926.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644884.jpg" />
 </div>
 
 
@@ -690,35 +719,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C98FADCE20F631C91E9D59BBAA69E995D3DB3C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227614   (644742) от 27.05.2018
-
-Формула 1. Сезон 2018. 6-й Этап. Гран-при Монако. Квалификация (26.05.2018) IPTV [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644742.jpg" />
-</div>
-
-
-###  Подробнее
-
-26 мая 2018 года, суббота. 16:00 МСК
-6-й Этап сезона 2018 года. Гран-при Монако. Монте-Карло (Монако).
-Квалификация
-Арена: Городская трасса Монте-Карло (Монте-Карло, Монако)Телекомпания: Setanta Sports+Жанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11D4557FE59ABBEC8F77C1F74863A7CF67A0D73B
 ```
 
 https://mybot314.ru/tekegram_catalog/

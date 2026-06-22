@@ -1,3 +1,107 @@
+###  Публикация: 1277577   (774945) от 22.01.2019
+
+Александр Прохоров | Русская модель управления (2016) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Александра Прохорова «Русская модель управления», аудиоверсию которой представляет студия АРДИС, вторгается в область отечественной управленческой мифологии. Что представляет собой русская модель управления? Как на практике использовать ее особенности? Какие черты нашей национальной модели менеджмента являются мифом, а какие – реальностью? В каких случаях и (   Читать дальше...   )Жанр: Книги по экономике, ПолитологияПродолжительность: 16:12:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5715338FE8418382D0215B097504195BC526606A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212902   (774216) от 14.03.2018
+
+Платон | Собрание сочинений в четырех томах [Том 1] (2013) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774216.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первый том Собрания сочинений Платона входят ранние диалоги философа, относящиеся к периоду формирования его учения. Идея тома в целом - прослеживание пути становления платонизма.Жанр: ФилософияПродолжительность: 44:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCC5B22251980246A5BC7E8A4197CF9740233463
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213103   (773094) от 15.03.2018
+
+Платон | Собрание сочинений в четырех томах [Том 2] (2013) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во второй том Собрания сочинений Платона входят шесть диалогов зрелого периода творчества философа (80-60-е годы IV в. до н.э.) ; их центральная проблематика - учение об идеях.Жанр: ФилософияПродолжительность: 27:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4227E60136F816E0AC89F8C8608E7F8E6200043A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213316   (771845) от 16.03.2018
+
+Платон | Собрание сочинений в четырех томах [Том 3] (2013) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771845.jpg" />
+</div>
+
+
+###  Подробнее
+
+В третий том Собрания сочинений Платона входят диалоги зрелого периода его творчества (в их числе - наиболее знаменитый диалог «Государство»), в которых диалектическое учение об идеях наполняется психологическим, эстетическим и социально-политическим содержанием.Жанр: ФилософияПродолжительность: 33:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC90FB6970C18625DAC513264B47461CB9B364B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124343   (767925) от 15.04.2017
 
 Лариса Секлитова, Людмила Стрельникова | Становление души или парадоксальная философия. Том 1 (2015) [MP3]
@@ -6,7 +110,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767925.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767324.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765762.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765428.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761100.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756468.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754476.jpg" />
 </div>
 
 
@@ -192,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752257.jpg" />
 </div>
 
 
@@ -218,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751871.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746608.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746501.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743805.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742456.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742309.jpg" />
 </div>
 
 
@@ -376,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742185.jpg" />
 </div>
 
 
@@ -403,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740175.jpg" />
 </div>
 
 
@@ -430,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739952.jpg" />
 </div>
 
 
@@ -458,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733435.jpg" />
 </div>
 
 
@@ -484,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732949.jpg" />
 </div>
 
 
@@ -510,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732535.jpg" />
 </div>
 
 
@@ -536,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732056.jpg" />
 </div>
 
 
@@ -562,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731825.jpg" />
 </div>
 
 
@@ -575,110 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:732C6109315F5D20D8AED73136832168C18EAD72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022379   (728707) от 02.06.2016
-
-Шри Ауробиндо | Мать (2016) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728707.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Та, кому мы поклоняемся как Матери, есть божественная Сознательная Сила, которая господствует над всем существующим, единая и в то же время настолько многообразная, что даже самый живой ум и самый свободный и широкий интеллект не в состоянии уследить за ее движением. Мать — это сознание и сила Наивысшего — и пребывает высоко над всем, что она создает. Но некоторые (   Читать дальше...   )Жанр: Джнана-йога, Йога знанияПродолжительность: 01:55:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D605864035F5E3B501A784A229F3F7E0C554363
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022376   (728595) от 02.06.2016
-
-Елена Ласкари | От 0 до 80. Симон Шноль (2011) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аудиодорожка документального фильма-рассказа о Симоне Эльевиче Шноле - профессоре, докторе биологических наук, одном из организаторов первой в мире кафедры биофизики на физическом факультете МГУ. Удивительная память и талант рассказчика легко объединяют во времени и пространстве разнообразные эпизоды личной и общественной жизни.Жанр: документалистика, мемуарыПродолжительность: 03:24:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCFF70E9AEEC929F8991A96DC3BA57935F04DAFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022241   (728474) от 02.06.2016
-
-Михаил Марченко | Теория государства и права в вопросах и ответах (2010) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728474.jpg" />
-</div>
-
-
-###  Подробнее
-
-В предлагаемом курсе лекций по теории государства и права освещены следующие темы: 1. Предмет, метод и методология государства и права. 2. Место и роль государства и права в системе других наук. 3. Понятие и основные признаки государства. 4. Понятие и основные признаки права. 5. Происхождение государства и права. 6. Типология государства и правовых систем. 7. Государство (   Читать дальше...   )Жанр: ЮриспруденцияПродолжительность: 12:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3168AF1C953D3BC46EDB708C5BA32EA2F7D3495B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022553   (728466) от 02.06.2016
-
-Ричард Докинз | Самое грандиозное шоу на Земле. Доказательства эволюции (2014) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728466.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Самое грандиозное шоу на Земле. Доказательства эволюции." – книга, посвященная развитию жизни на земле с помощью эволюции и естественного отбора. Автор активно поддерживает в читателе научное и критическое мышление, а также помогает преодолеть устоявшиеся пережитки религиозного фундаментализма и суеверий, увлекательно рассказывая в своей книге о фактах (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 14:32:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38B31145FE195C0F32DB88BA3ADF9BFADC2C0B60
 ```
 
 https://mybot314.ru/tekegram_catalog/

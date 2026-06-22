@@ -6,7 +6,7 @@ Jackdawg - Jackdawg (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260823.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Kim Wilson - Slow Burn (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260687.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Los Skeletone Blues - Its a Great Album!!! (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260685.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Luke - The Truth Remains The Same (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260677.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Matthew Patrick - Authentico (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260676.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Rich Wendel's Fat Fish Logic - The Last Comeback (2025) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260675.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Southbound Snake Charmers - 1000 Cuts (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260674.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Steve Hooker - Smokin' Guitar (remastered) (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260673.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Lucky Losers, Cathy Lemons, Phil Berkowitz - Arrival (2025) [FLAC|Lossless|W
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260662.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ The Tasty Kings - The Kindness of Numbers (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260654.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - The Chess Records Christmas Album (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260650.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Will Russell - Ghost (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260646.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Barry Levenson & Jake Sampson Band - Closer To The Blues (2000) [FLAC|Lossless]<
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257439.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Erskine Hawkins - Erskine Hawkins and His Orchestra (1938-1939) (1992) [FLAC|Los
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256946.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Danny Cowan Group - Drivin' Back To Texas (2005) [FLAC|Lossless]<Blues, Texas St
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256296.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Berget Lewis - Finally (2007) [FLAC|Lossless]<Funk, Soul, Pop>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256283.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ The Bluesbones - Unchained (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255341.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Trainyard Blues Band - Last Call To Memphis (Special Edition) (2023) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255332.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Deuce 'n a Quarter - Keep Moving On (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255308.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Katie Kern - Twilight (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rockabilly>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255295.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Billylee Janey - Just Got Lucky! (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255273.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Lorenzo Valente & Francesco Campisi - Blue Wave (2023) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255269.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Byther Smith - Working Man's Blues-Electric Chicago Blues 1962-1990 (2023) [FLAC
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255268.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Big Harp George - Cut My Spirit Loose (2023) [FLAC|Lossless|WEB-DL|tracks] <Elec
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255265.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ Brad "Guitar" Wilson  - Lovers Before Sunrise (2023) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255263.jpg" />
 </div>
 
 
@@ -755,7 +755,7 @@ Dustin Douglas & the Electric Gentlemen - Black Leather Blues (2023) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255124.jpg" />
 </div>
 
 

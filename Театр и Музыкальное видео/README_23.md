@@ -1,3 +1,165 @@
+###  Публикация: 627641   (938073) от 09.03.2013
+
+Helene Fischer – Best of Live/So wie ich bin (2010) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938073.jpg" />
+</div>
+
+
+###  Подробнее
+
+В рамках Live Tour 23 октября 2010 года Хлене Фишер дала концерт в Берлине в концертном зале "02 World", где были исполнены все лучшие хиты в живую.Производство: Werner Kimmig GmbH / EMI Music Germany GmbHЖанр: PopПеревод: ОтсутствуетПродолжительность: 02:27:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 859875   (937526) от 18.01.2015
+
+Настя Любимова ft. St1m - Мода На Любовь (2014) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BBE450A4E98870ED1CB42657CE39EB33CBFBB50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985078   (936671) от 10.02.2016
+
+Анна Нетребко. Женщина-голос / Anna Netrebko. The Woman The Voice. (2004) DVD9
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основным материалом этого DVD являются 5 клипов: —
+- Faust (Marguerite`s Jewel Song)
+- La Boheme (Musetta`s Waltz)
+- Don Giovanni (Crudele? — Non mi dir, bell`idol mio)(   Читать дальше...   )Производство: Bernhard Fleischer Moving Images, Deutsche Grammophon.Жанр: Опера, ДокументальныйРежиссер: Винсент ПэтерсонАктеры: Анна Нетребко, Эрик Ассандри, Софи Бейне, Арарат Чинарьян, Тина Хэверс, Лорета Иодкайте и т.д.Язык субтитров: Deutsch, Francais, Espanol, ChineseПродолжительность: 02:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:527E01DFDDB837CBCD63D130F516A1BA0E1834B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 284699   (936636) от 19.01.2011
+
+[EN] Крис Ри. Дорога в ад и обратно - Прощальный тур / Chris Rea.The Road to Hell and Back The - Farewell Tour (2006) HDTV
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Блюз , РокРежиссер: George ScottПеревод: ОригинальныйПродолжительность: 01:18:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 626989   (936559) от 10.03.2013
+
+Def Leppard - Mirror Ball - Live & More (Bonus DVD) (2011) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936559.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Behind The Scenes On The Sparkle Lounge Tour 2008-2009
+2. Rock! Rock! (Till You Drop) (Live)
+3. Armageddon' It (Live)
+4. Pour Some Sugar On Me (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984606   (936530) от 10.02.2016
+
+Eric Clapton - Slowhand at 70: Live at The Royal Albert Hall (2015) BDRemux [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936530.jpg" />
+</div>
+
+
+###  Подробнее
+
+В кинотеатрах по всему миру будет показан концерт легенды рок-музыки, Эрика Клэптона, чья карьера длится более 50 лет. Запись выступления сделана в мае 2015 года в легендарном лондонском концертом зале Альберт-Холл. Зрители в кинотеатрах смогут с головой окунуться в атмосферу этого незабываемого вечера. На повестке дня — как бессмертная классика рок-музыки, так и (   Читать дальше...   )Производство: ВеликобританияЖанр: Blues Rock, Rock & Roll, Hard Rock, British BluesРежиссер: Blue LeachПродолжительность: 01:46:04 + 00:16:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AD53D363DCAA6DACDC431B3C1FBCBFFE8443EFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 628538   (936480) от 10.03.2013
 
 Юбилейный концерт группы А-Студио (2013.03.09) SATRip
@@ -6,7 +168,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936480.jpg" />
 </div>
 
 
@@ -36,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936398.jpg" />
 </div>
 
 
@@ -65,7 +227,7 @@ The Police - Certifiable: Live in Buenos Aires (2008) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936346.jpg" />
 </div>
 
 
@@ -91,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936240.jpg" />
 </div>
 
 
@@ -120,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936181.jpg" />
 </div>
 
 
@@ -147,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936157.jpg" />
 </div>
 
 
@@ -176,7 +338,7 @@ Danielle - Pat It Up (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935316.jpg" />
 </div>
 
 
@@ -202,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934618.jpg" />
 </div>
 
 
@@ -231,7 +393,7 @@ Nine Inch Nails - Another Version Of The Truth, part 1: The Gift (2008) Blu-ray 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933973.jpg" />
 </div>
 
 
@@ -261,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933535.jpg" />
 </div>
 
 
@@ -287,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932834.jpg" />
 </div>
 
 
@@ -316,7 +478,7 @@ Eric Clapton's Crossroads Guitar Festival (2010) Blu-Ray [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932806.jpg" />
 </div>
 
 
@@ -345,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931651.jpg" />
 </div>
 
 
@@ -374,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930596.jpg" />
 </div>
 
 
@@ -400,7 +562,7 @@ Burning Witches - Six Feet Underground (2020) WEB-DLRip [Н.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930557.jpg" />
 </div>
 
 
@@ -426,7 +588,7 @@ Incubus - Концертный тур Honda Civic Tour (2012) [1080i] HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930513.jpg" />
 </div>
 
 
@@ -452,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930453.jpg" />
 </div>
 
 
@@ -481,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930427.jpg" />
 </div>
 
 
@@ -507,7 +669,7 @@ Enigma - 4 клипа (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928018.jpg" />
 </div>
 
 
@@ -536,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927638.jpg" />
 </div>
 
 
@@ -547,177 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E981F5A42DFF42AC88B703016B1847A5145B1DD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986353   (927634) от 16.02.2016
-
-Dead Can Dance / Toward The Within (1994), remastered 2001 4AD, DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: New Age, Folk, World, & CountryПродолжительность: 01:10:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C162C5A13A17DB9A13B329D556C1D5BA5EBB071
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094820   (927621) от 19.01.2017
-
-Пётр Чайковский - Пиковая дама (1960) DVDRip [H.264]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм-опера на музыку Петра Ильича Чайковского из серии "Шедевры оперного искусства".
-Фильм получил диплом на конкурсе УНИАТЕК (1960). Премьера оперы "Пиковая дама" состоялась в Мариинском театре 7 (19) декабря 1890 года и имела огромный успех. При этом опера была создана Чайковским за предельно короткий срок - в сорок четыре дня. И, по словам (   Читать дальше...   )Производство: СССР, ЛенфильмЖанр: Фильм-опера, драма, экранизацияРежиссер: Роман ТихомировАктеры: Олег Стриженов, Ольга Красина, Елена Полевицкая, Ирина Губанова-Гурзо, Вадим Медведев (I), Валентин КуликПродолжительность: 01:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49E4117A354903B75D58DD65F3FF422A556A2F41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986819   (927590) от 16.02.2016
-
-Big Love Show 2016. Грандиозный концерт ко Дню всех Влюбленных (2015.02.14) SATRip  (Телеверсия)
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда миллионы сердец бьются в одном ритме. Когда эмоции зашкаливают. Когда ВСЕ звезды сходятся…Это BIG LOVE SHOW 2016! Мы подарим тебе невероятные ощущения и абсолютно новый формат праздника на самой большой площадке Москвы! Ты окажешься в самой гуще событий, ведь никогда еще сцена в Олимпийском не была так близко к тебе, независимо от того, находишься ты на трибунах (   Читать дальше...   )IOWA - Бьет бит
-Банд'Эрос - Ч/Б
-5sta Family - Megamix Big Love Show
-Лена Темникова feat Natan - Наверно(   Читать дальше...   )Телекомпания: СТСЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D62E08EB4183360504AE23BA8EA346F15511502A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986955   (927318) от 16.02.2016
-
-VA- Коллекция клипов в авто (ZAP_part2) (2DIN) (1970-2008)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция клипов в авто.Часть 2.0001_2 Brothers On The 4Th Floor - Heaven Is Here.avi
-0002_2 Brothers On The 4Th Floor - Making Of The Sun.avi
-0003_2 Brothers On The 4Th Floor - Never Alone.avi
-0004_2 Brothers On The 4th Floor - The Sun Will Be Shining.avi(   Читать дальше...   )Жанр: Музыкальные клипыПродолжительность: 60:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78BC5B4D91FE1C8CFB5C28654ED39D39C5B52834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365591   (927119) от 09.03.2020
-
-U-ka saegusa IN db [one 1 Live] (2005) DVDRip [H.264/480p]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись концерта группы U-ka saegusa IN db, прошедшего 26.09.2004 в Namba Hatch (Osaka) и 30.09.2004 в Shibuya-AX (Tokyo).
-
-Источник: лицензионный DVD9Shocking Blue
-I'm in love
-I can't see, I can't feel
-Kokoro ga Tomaranai(   Читать дальше...   )Производство: Япония, B-VisionЖанр: J-PopСубтитры: отсутствуютПродолжительность: 01:27:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ED937A78A19EBB019B62E7E50A68544B682FF23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365846   (927012) от 09.03.2020
-
-Дискотека 80-х (полная версия) (2019) HDTVRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная дискотека страны состоялась уже в 18-й раз и, как и прежде, подарила зрителям невероятные визуальные эффекты, качественный звук и, конечно же, выступления самых любимых российских и зарубежных звезд диско на одной сцене.01. Альянс - На Заре
-02. Bad Boys Blue - Come Back And Stay
-03. Bad Boys Blue - Pretty Young Girl
-04. Bad Boys Blue - You’re a Woman(   Читать дальше...   )Производство: РоссияЖанр: DiscoРежиссер: 1 каналПеревод: не требуетсяСубтитры: отсутствуютПродолжительность: 03:33:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36694F06EF8DC079E43DACAC8BAB19EAC7DE728A
 ```
 
 https://mybot314.ru/tekegram_catalog/

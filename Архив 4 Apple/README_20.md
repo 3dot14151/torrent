@@ -6,7 +6,7 @@ LuLu 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032703.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Commander One PRO - FTP client [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032701.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Commander One PRO Pack 3 v3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032699.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ IINA 1.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032694.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.11.2.1915 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032598.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Find Any File (FAF) 2.3.b4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032597.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Feeder 4 v4.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032596.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Filmage Converter-ConvertVideo 1.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032591.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Cocktail Big Sur Edition 14.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032589.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ SQLPro Studio 2021.07 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032586.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Kingpin Private Browser 1.3.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032582.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ iBarcoder 3.12.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032580.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Blocs 4.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032576.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ NCH PhotoPad Image Editor Pro 7.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032574.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ NCH WavePad Masters Edition 12.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032572.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Get Backup Pro 3 v3.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032562.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Sync Folders Pro 4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032557.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Rhinoceros 7 v7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032551.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Keka 1.2.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032501.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Adguard 2.5.2.942 nightly [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032477.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ NeoOffice 2017.25 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032393.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ PatterNodes 2 v2.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032349.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ IconJar 2.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032348.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Find Any File (FAF) 2.3.b5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032347.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.11.2.1919 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032346.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Dato 2.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032340.jpg" />
 </div>
 
 

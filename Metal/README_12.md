@@ -1,3 +1,131 @@
+###  Публикация: 977517   (965742) от 21.01.2016
+
+Agonal - Death Defeated (2016) [MP3|320 кб/с] <Doom, Death, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Scars Of Memory
+02. Death Defeated
+03. Parting Heavens
+04. Prayer(   Читать дальше...   )Жанр: Doom, Death, Gothic MetalПродолжительность: 00:59:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A700369269924A707686809784DECE97699214AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 618632   (965166) от 18.02.2013
+
+Jason Becker -8 albums + 2 Tributes (1987 - 2012) Discography [MP3|192 - 320 кб/с] <Heavy/Thrash/Speed/Instrumental/Neoclassical metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965166.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Desert Island (4:37)
+2. Colors (3:14)
+3. Feathers (5:09)
+4. Temple of Absurd (6:00)
+5. The Brightest Star Of All (4:09)
+6. Temple In The Cellar (4:22)
+7. Poem (3:49)
+8. Utopia (4:02)
+9. Dialogues at the Moon (5:09)
+10. When You Wish Upon a Star (5:38)(   Читать дальше...   )Жанр: heavy/thrash/speed/instrumental neoclassical metalПродолжительность: 06:21:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:423F56A5CC4ADFE33B5E3596B3DAE5B280B807AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 620487   (965095) от 18.02.2013
+
+Michael Angelo Batio - 9 albums (1995 - 2009) Discography [MP3|192 кб/с]<Heavy/Instrumental/Neoclassical metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965095.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dial In That Frequency (0:24)
+2. Tribute To Dimebag (7:36)
+3. Clapton Is God (6:04)
+4. Metallica Rules (8:40)
+5. Evh (7:59)
+6. Symphony Of Destruction (6:43)
+7. For Jimi: All Along The Watchtower (5:40)
+8. Tribute To Randy 2: You Can't Kill Rock And Roll (3:53)
+9. On The Double (3:31)
+10. MAB Forum Shreddathon (9:46)Жанр: Heavy/Instrumental/Neoclassical metalПродолжительность: 05:04:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977855   (964817) от 22.01.2016
+
+Dethrone - Incinerate All (2016) [MP3|320 кб/с] <Death Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reborn in Fire
+02. The Plague Carrier
+03. Rat King
+04. Morbid Existence(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB595EFBB62E9A8845CA9DE66E323583EF4640F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978064   (964801) от 22.01.2016
 
 Legions of Raum - Fruition (2016) [MP3|320 кб/с] <MDM>
@@ -6,7 +134,7 @@ Legions of Raum - Fruition (2016) [MP3|320 кб/с] <MDM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964801.jpg" />
 </div>
 
 
@@ -35,7 +163,7 @@ Evil Drive - The Land Of The Dead (2016) [MP3|320 кб/с] <MDM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964722.jpg" />
 </div>
 
 
@@ -64,7 +192,7 @@ Skeletoon - The Curse Of The Avenger (2016) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964708.jpg" />
 </div>
 
 
@@ -93,7 +221,7 @@ Hell In The Club - Shadow of the Monster (2016) [MP3|320 кб/с] <Heavy Metal, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964644.jpg" />
 </div>
 
 
@@ -122,7 +250,7 @@ Erdling - Aus Den Tiefen (2016) [MP3|320 кб/с] <Industrial, Neue Deutsche Hä
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964555.jpg" />
 </div>
 
 
@@ -151,7 +279,7 @@ Primal Fear - Rulebreaker (2016) Deluxe Edition  [MP3|320 кб/с] <Heavy Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964548.jpg" />
 </div>
 
 
@@ -180,7 +308,7 @@ Critical Solution - Sleepwalker (2015) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963725.jpg" />
 </div>
 
 
@@ -209,7 +337,7 @@ Resurrection Kings - Resurrection Kings (2016) Japanese Edition [MP3|320 кб/с
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963708.jpg" />
 </div>
 
 
@@ -238,7 +366,7 @@ Kroda - Навiй Схрон (2015) [MP3|320 кб/с] <Ambient, Black Metal, Dar
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963642.jpg" />
 </div>
 
 
@@ -267,7 +395,7 @@ Magni Animi Viri - Heroes Temporis (2006) World Edition, 2016, Association Heroe
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963638.jpg" />
 </div>
 
 
@@ -296,7 +424,7 @@ Borknagar - Winter Thrice (2016) [MP3|320 кб/с] <Viking Metal, Progressive Bl
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963627.jpg" />
 </div>
 
 
@@ -325,7 +453,7 @@ Unheilig - Schwarzes Gold 2000-2014 (2015) Remastered, Vinyl-Rip [MP3|320 кб/�
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963573.jpg" />
 </div>
 
 
@@ -354,7 +482,7 @@ Nordic Union - Nordic Union (2016) Japanese Edition [MP3|320 кб/с] <Heavy Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963505.jpg" />
 </div>
 
 
@@ -383,7 +511,7 @@ Ost+Front - Ultra (2016) [MP3|320 кб/с] <Industrial Metal, NDH>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963440.jpg" />
 </div>
 
 
@@ -412,7 +540,7 @@ Megadeth - Dystopia (2016) Best Buy Edition [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963234.jpg" />
 </div>
 
 
@@ -441,7 +569,7 @@ Ozzy Osbourne - Ordinary Man (2020) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962924.jpg" />
 </div>
 
 
@@ -470,7 +598,7 @@ Suicide Silence - 6 Albums, 2 EP, 1 Live (2005-2020) [MP3|320 кб/с] <Deathcor
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962923.jpg" />
 </div>
 
 
@@ -499,7 +627,7 @@ Antti Martikainen - Set Sail For The Golden Age (2016) [MP3|320 кб/с] <Epic M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962407.jpg" />
 </div>
 
 
@@ -528,7 +656,7 @@ Dream Theater - The Astonishing (2016) 2CD [MP3|320 кб/с] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959499.jpg" />
 </div>
 
 
@@ -557,7 +685,7 @@ Serenity - Codex Atlanticus (2016) Japanese Edition [MP3|320 кб/с] <Symphonic
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958426.jpg" />
 </div>
 
 
@@ -586,7 +714,7 @@ VA - 100 Greatest Heavy Metal Hits (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956845.jpg" />
 </div>
 
 
@@ -615,7 +743,7 @@ Memorain - Duality of Man (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956392.jpg" />
 </div>
 
 
@@ -629,122 +757,6 @@ Memorain - Duality of Man (2016) [MP3|320 кб/с] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42741555EA74AA497626F3797C8B9BACE97EDECC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980152   (956391) от 29.01.2016
-
-Disquiet - The Condemnation (2016) [MP3|320 кб/с] <MDM, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ascending
-02. The Condemnation
-03. Fist Of Persistence
-04. Born To Dissent(   Читать дальше...   )Жанр: MDM, Thrash MetalПродолжительность: 00:54:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2359C57F923DC400028254B828E8D9BC6C4000F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980145   (956162) от 29.01.2016
-
-Exumer - The Raging Tides (2016) [MP3|320 кб/с] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Raging Tides
-02. Brand of Evil
-03. Catatonic
-04. Sacred Defense(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EAF7A2FB24D59747E3ED665A426C8CD479EEC44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534695   (955844) от 24.01.2014
-
-Ost+Front - 3 альбома (2012 - 2014)  Discography [MP3|320 кб/с]<NDH, Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mensch
-02. Ost+Front 2014
-03. Sonne, Mond und Sterne
-04. Liebeslied(   Читать дальше...   )Жанр: NDH, Industrial Metal |Продолжительность: 01:11:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DBD5D4E7B379C5A7C11DEA7222F16B0FF774E8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088863   (955073) от 01.01.2017
-
-Mechina - As Embers Turn to Dust (2017) [MP3|320 Kbps] <Epic, Symphonic, Industrial Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Godspeed, Vanguards (9:07)
-02. Creation Level Event (6:47)
-03. Impact Proxy (8:22)
-04. Aetherion Rain (3:56)(   Читать дальше...   )Жанр: Epic, Symphonic, Industrial Death MetalПродолжительность: 01:05:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3AA1A4A1EE9B8BA2BD14BCD80C26478104C484C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 288307   (919879) от 30.01.2011
+
+Discovery: Американский Чоппер / American Chopper [Season 6] (2009) SATRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм-шоу о семейном бизнесе семьи Тейтулов - строительство мотоциклов на заказ.Жанр: ТелепередачаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096198   (919022) от 24.01.2017
+
+Яд. Достижение эволюции / Poison, an evolutionary mystery (2015) SATRip (1-3 серии из 3)
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Существуют различные факторы, которые влияют на развитие жизни на Земле: изменение в окружающей среде, паразиты, пищевой, естественные враги, климат и многие другие бесчисленные факторы. Среди многих эволюционных черт, которые развились у животных и растений, есть очень необычная способность производить яд. В этом документальном сериале мы посетим пустыни, тропические (   Читать дальше...   )Телекомпания: Южная Корея. Educational Broadcasting SystemЖанр: Документальный, фауна, флораРежиссер: Пак Сон УнПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 3 х ~00:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B25CC0E4BD2AF0F9CE9BE880AFC79F5BB4419412
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 178782   (918813) от 01.03.2010
+
+NG: Суперсооружения. Пальмовые острова в Дубае / Megastructures. Palm Islands (2006) HDTV [720p]
+
+>>Зарубежные TV-бренды
+>>Мега-Проекты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пальмовый остров Джумейра,такой большой,что его видно из космоса.Он построен только из песка и камня.Жанр: ТелепередачаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 289505   (918745) от 31.01.2011
 
 Discovery: Как выжить среди акул / Surviving Sharks (2007) SATRip
@@ -6,7 +84,7 @@ Discovery: Как выжить среди акул / Surviving Sharks (2007) SAT
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918745.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Animal Planet (BBC): Приключение осьминога / The Octopus Cha
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918440.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918403.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ DV: Форма жизни. История царства животных [се�
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918062.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ BBC. Виртуальная революция / The Virtual Revolution (2010) H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917859.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917465.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ NG: Тайные жизни Иисуса / Secret Lives of Jesus (2006) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917052.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ BBC: Апокалипсис древних цивилизаций - 2 - Зага
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916872.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ BBC: Апокалипсис древних цивилизаций - 1 - Смер
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916865.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916847.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916801.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ Discovery. Техногеника. Родина-мать и Останкинск
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916771.jpg" />
 </div>
 
 
@@ -323,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916742.jpg" />
 </div>
 
 
@@ -349,7 +427,7 @@ BBC: Апокалипсис древних цивилизаций - 3 - Гибе
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916735.jpg" />
 </div>
 
 
@@ -378,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916061.jpg" />
 </div>
 
 
@@ -404,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915106.jpg" />
 </div>
 
 
@@ -430,7 +508,7 @@ BBC: Апокалипсис древних цивилизаций - 4 - Содо
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915064.jpg" />
 </div>
 
 
@@ -458,7 +536,7 @@ Discovery: Железная дорога Аляски / Railroad Alaska (2015) (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915047.jpg" />
 </div>
 
 
@@ -484,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914054.jpg" />
 </div>
 
 
@@ -510,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913814.jpg" />
 </div>
 
 
@@ -538,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913681.jpg" />
 </div>
 
 
@@ -564,7 +642,7 @@ Discovery: Железная дорога Аляски / Railroad Alaska (2016) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913559.jpg" />
 </div>
 
 
@@ -590,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912991.jpg" />
 </div>
 
 
@@ -601,84 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6E9DCC52233551A5637CED865715EFCE8998CF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 306588   (912988) от 24.02.2016
-
-Супер инструменты. Небоскребы / Super Tools. Skyscrapers (2006) SATRip
-
->>Зарубежные TV-бренды
->>Мега-Проекты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мастерство механиков, строителей, водопроводчиков ничего не значит без чрезвычайно важных инструментов, которые буквально оживают в их руках. Для специалистов-подрывников или сотрудников чрезвычайных служб подобные орудия труда имеют первостепенное значение. Идет ли борьба за миллиард долларов или за бесценную человеческую жизнь - именно уникальные инструменты в (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A37F90BBD65143087EE8FDF799115E4E3689C0D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 858615   (912985) от 24.02.2016
-
-Лондонский Музей естествознания вживую с Дэвидом Аттенборо / David Attenborough's Natural History Museum Alive (2014) BDRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>Доисторический мир
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэвид Аттенборо приглашает зрителей в путешествие по Лондонскому музею естествознания. Когда двери музея заперты и наступает ночь, Аттенборо рассказывает о некоторых из самых увлекательных вымерших животных, которые оживают на его глазах: динозавры, фауна ледникового периода и гигантские рептилии.Жанр: Документальный, научно-познавательный, палеонтологияПеревод: Одноголосый закадровый (любительский)Язык субтитров: русский, английскийПродолжительность: 01:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31619E60BC6FC5718F8A2C56CB8F54A23C22DDD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 859471   (912908) от 24.02.2016
-
-Дэвид Блейн. Реальность или магия / David Blaine. Real or Magic (2013) HDTVRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый известный в мире маг, автор десятков уникальных трюков и ниспровергатель множества рекордов в своем новейшем телевизионном проекте превосходит самого себя. В полнометражном фильме "Дэвид Блейн. Реальность или магия" Блейн демонстрирует свое феноменальное искусство знаменитостям: Стивену Хокингу, Гаррисону Форду, Уиллу Смиту, Роберту Де Ниро, Вуди (   Читать дальше...   )Жанр: Документальный, научно-популярный, искусствоПеревод: Многолосый закадровый (профессиональный)Продолжительность: 01:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:518527D3D60F23600E3B0BE917AD59CBADE532EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

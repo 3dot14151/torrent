@@ -6,7 +6,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198698.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198688.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Bangbangeducation, Анна Матвеева | Дизайн мобильных �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198629.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198621.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198563.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Kalacheva School, Вероника Калачева | Композиция си�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198559.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Enterclass, Мария Хаэт | Рисование карандашом (2023)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198545.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198526.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198520.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Udemy, Alex Cordebard | The Ultimate Blender 3D Geometry Nodes Course (2023) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198444.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198442.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ FXPHD, Charles Chorein | HOU115 – Height Fields in Houdini, Part 1 (2022) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198430.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Kalacheva School, Вероника Калачева | Акварель Про 2.
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198393.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ FXPHD, Charles Chorein | HOU116 – Height Fields in Houdini, Part 2 (2022) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198380.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Watermedia, Татьяна Ширбидова | Базы акварели Сту
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198347.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ LavandaSchool, Анастасия Чиркова | Цифровой портре
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198340.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Bengala.art, Ирина Глушкова | Мини-курс NFT (2023) WEB-DL [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198295.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198271.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Enterclass, Павел Шевелев | Вид из окна (2023) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198249.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Enterclass, Сергей Курбатов | Марафон. Тропинками
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198241.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198235.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Lumos, Олег Грознов | Как правильно читать карт
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198231.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198221.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198209.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198207.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ The Gnomon Workshop, Alessandro Cangelosi | Natural Environment Creation Techniq
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198164.jpg" />
 </div>
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1286582   (711350) от 03.03.2019
+
+Banda Bassotti - Amore e odio (2004) [FLAC|Lossless|tracks + .cue] <Rock, Punk, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711350.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Juri Gagarin (03:43)
+2. Amore E Odio (03:33)
+3. Partiro' Per Bologna (03:58)
+4. Scelgo (03:50)(   Читать дальше...   )Жанр: Rock, Punk, SkaПродолжительность: 00:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60853D46FA5FFF99BF11554AABF58B6A09AABDF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286606   (711315) от 03.03.2019
 
 Backyard Babies - Sliver & Gold (2019) Limited Edition [FLAC|Lossless|tracks + .cue] <Rock & Roll, Punk>
@@ -6,7 +35,7 @@ Backyard Babies - Sliver & Gold (2019) Limited Edition [FLAC|Lossless|tracks + .
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711315.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ The Temper Trap - Thick As Thieves (2016) Deluxe Edition [FLAC|Lossless|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710038.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Saliva - Love, Lies & Therapy (2016) [FLAC|Lossless|tracks] <Alternative Rock, A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710021.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Guano Apes - Offline (2014) [FLAC|Lossless]<Rock, Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710004.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Attila - Chaos (2016) SharpTone Records [FLAC|Lossless|tracks + .cue] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707431.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Guignol - Ash Land (2019) [FLAC|Lossless|tracks + .cue] <Gothic Rock, Post-Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707430.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Methyl Ethel - Triage (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707332.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Attila - Villain (2019) Attila Music LLC [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707309.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Punk Collection (unknown year) Unofficial Release [FLAC|Lossless|image + .c
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707131.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Say Sue Me - Say Sue Me (2017) [FLAC|Lossless|tracks] <Indie Pop, Surf>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706953.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Balthazar - Fever (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706895.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Everlast - Songs Of The Ungrateful Living (2011) [FLAC|Lossless|tracks + .cue] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705954.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Paolo Nutini - Sunny Side Up (2009) [FLAC|Lossless|tracks] <Soft Rock, Pop Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705872.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Mark Lanegan - Straight Songs of Sorrow (2020) [FLAC|Lossless|WEB-DL|tracks] <In
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705188.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Biffy Clyro - A Celebration of Endings (2020) [FLAC|Lossless|WEB-DL|tracks] <Ind
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703806.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Sleaford Mods - Eton Alive (2019) [FLAC|Lossless|tracks + .cue] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703696.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Taking Back Sunday ‎ - Twenty (2019) Compilation [FLAC|Lossless|tracks + .cue]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703462.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ The Franklin Electric - Blue Ceilings (2017) [FLAC|Lossless|tracks + .cue] <Indi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702931.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702304.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Pinegrove - Marigold (2020) Japan / Bonus Tracks [FLAC|Lossless|tracks + .cue] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701956.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Alex Napping - Mise En Place (2017) [FLAC|Lossless|tracks] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701273.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Pond - The Weather (2017) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Psychedelic
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700980.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Grayscale - Adornment (2017) [FLAC|Lossless|tracks|WEB] <Alternative, Pop-Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700844.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ The 1975 - I Like It When You Sleep, for You Are So Beautiful Yet So Unaware of 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700196.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Radiohead - A Moon Shaped Pool (2016) [FLAC|Lossless|tracks + .cue] <Art Rock, I
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699961.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Radiohead - A Moon Shaped Pool (2016) [FLAC|Lossless|tracks + .cue] <Art Rock, I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8D3B6BF5F1FFF5D1E4A10356DAFF9061972D201
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026932   (699598) от 17.06.2016
-
-Red Hot Chili Peppers - The Getaway (2016) [FLAC|Lossless|tracks + .cue] <Alternative rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Getaway
-02. Dark Necessities
-03. We Turn Red
-04. The Longest Wave(   Читать дальше...   )Жанр: Alternative rockПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50B245C1E1447BC4D0F8C6A8B01CDBCF80B487DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 1252508   (409432) от 05.10.2018
+
+TaskPaper 3.8.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409432.jpg" />
+</div>
+
+
+###  Подробнее
+
+TaskPaper - простое приложение для создания и ведения списков дел, которое на первый взгляд напоминает обычный редактор текста, но в умелых руках превращается в серьезный инструмент продуктивности.
+
+Сразу после запуска открывается главное окно утилиты, в котором изложены практически все основные моменты работы с ней. Список задач и проектов — на самом деле является (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.10.2018Разработчик: Hog Bay SoftwareПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DA04A7CBCB5BA9245FE779D1383FD7C5DCD311C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252563   (409424) от 05.10.2018
+
+PowerTunes 1.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409424.jpg" />
+</div>
+
+
+###  Подробнее
+
+PowerTunes – программа, позволяющая пользователям создавать несколько медиатек iTunes, организовывать музыку в нескольких папках и обмениваться музыкой и медиатеками между несколькими пользователями на одном компьютере. Помимо простого создания и отслеживания вашей библиотеки, PowerTunes также предлагает множество дополнительных функций, которые помогут организовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.10.2018Разработчик: Fat Cat SoftwareПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05A93F4C1288432DAF25608740EA8F1C340BBBD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252213   (409316) от 05.10.2018
 
 VirtualHostX 8 v8.1.1 [En]
@@ -6,7 +60,7 @@ VirtualHostX 8 v8.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409316.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ Omni Recover 2.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409310.jpg" />
 </div>
 
 
@@ -62,7 +116,7 @@ Movavi PDF Editor 1.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409308.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ Leech 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409213.jpg" />
 </div>
 
 
@@ -115,7 +169,7 @@ Eon Timer 2.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409201.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ Softorino YouTube Converter 2 v2.0.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409199.jpg" />
 </div>
 
 
@@ -170,7 +224,7 @@ Duplicate File Finder Pro 5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409091.jpg" />
 </div>
 
 
@@ -199,7 +253,7 @@ Camtasia v2018.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409081.jpg" />
 </div>
 
 
@@ -225,7 +279,7 @@ Sketch 52.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408999.jpg" />
 </div>
 
 
@@ -252,7 +306,7 @@ Tri-BACKUP Pro 8.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408893.jpg" />
 </div>
 
 
@@ -278,7 +332,7 @@ Bartender 3 Beta v.3.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408892.jpg" />
 </div>
 
 
@@ -305,7 +359,7 @@ Default Folder X 5.1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408888.jpg" />
 </div>
 
 
@@ -331,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408812.jpg" />
 </div>
 
 
@@ -357,7 +411,7 @@ DropDMG 3.5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408772.jpg" />
 </div>
 
 
@@ -384,7 +438,7 @@ BusyContacts 1.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408768.jpg" />
 </div>
 
 
@@ -412,7 +466,7 @@ BusyCal 3 v3.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408763.jpg" />
 </div>
 
 
@@ -439,7 +493,7 @@ Devonthink Pro Office 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408759.jpg" />
 </div>
 
 
@@ -465,7 +519,7 @@ Paste 2.4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408709.jpg" />
 </div>
 
 
@@ -491,7 +545,7 @@ DMG Canvas 3 v3.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408705.jpg" />
 </div>
 
 
@@ -517,7 +571,7 @@ Audirvana 3.5.20 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408696.jpg" />
 </div>
 
 
@@ -543,7 +597,7 @@ Disk Doctor: System Cleaner 4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408693.jpg" />
 </div>
 
 
@@ -572,7 +626,7 @@ Audiobook Builder 2.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408631.jpg" />
 </div>
 
 
@@ -600,7 +654,7 @@ Bartender 3 v3.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408627.jpg" />
 </div>
 
 
@@ -627,7 +681,7 @@ TechSmith Camtasia Studio 2019.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408624.jpg" />
 </div>
 
 
@@ -638,60 +692,6 @@ Camtasia for Mac — эффективное приложение для созд
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FEFFE3C60234645241C70EAD11B5BEF28E2E1C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325798   (408620) от 17.09.2019
-
-Bootstrap Studio 4.1.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bootstrap Studio - это мощное настольное приложение для проектирования и создания прототипов сайтов.
-Он поставляется с большим количеством встроенных компонентов, которые можно перетаскивать для создания адаптивных веб-страниц. Приложение построено на основе чрезвычайно популярной платформы Bootstrap и экспортирует чистый и семантический HTML.
-Bootstrap Studio обладает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.04.2018Разработчик: BootstrapstudioПоддерживаемая ОС: OS X 10.8 и вышеЯзык интерфейса: En
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53313B78831A136A1D241F17A9972AD74C82A3B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573786   (408585) от 02.09.2022
-
-4K Video Downloader Pro 4.21.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.09.2022Разработчик: © 2022 OpenMedia OOOПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCF8A0EDB02C99991FE21E618C3FE2C0468FA003
 ```
 
 https://mybot314.ru/tekegram_catalog/

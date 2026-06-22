@@ -1,3 +1,29 @@
+###  Публикация: 1244556   (479466) от 02.09.2018
+
+Singularity (2010) [Ru] (1.1) Repack xatab
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каторга-12 — советский научный центр, расположенный на небольшом острове у побережья Камчатки. В результате неудачного эксперимента остров попал во временную ловушку и теперь постоянно перемещается между 1950 и 2010 годами.Тип издания: RepackРазработчик: Raven SoftwareЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44442F3CF8B17DD5594B3B4E315F58D0736DE2BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160158   (477849) от 23.08.2017
 
 White Day: A Labyrinth Named School (2017) [Ru/Multi] (1.0) Repack Covfefe
@@ -6,7 +32,7 @@ White Day: A Labyrinth Named School (2017) [Ru/Multi] (1.0) Repack Covfefe
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477849.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Singularity [Ru/En] (RePack/1.1.0.507821) 2010 | R.G. Revenants
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477814.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ TimeShift (2007) [Ru] (1.02) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477630.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Desolate (2018) [Ru/En] (1.3) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476400.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ TRON 2.0 [Ru/En] (Repack/1.042) 2003 | R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475553.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Witch Blood (2018) [Ru/Multi] (1.0) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475542.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Witch Hunt (2018) [Ru/Multi] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475532.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Witch Blood (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475442.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Clive Barker's Jericho [Ru/En] (RePack/1.0) 2007 | R.G. Element Arts
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475425.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Soldier of Fortune (2001) [En] (1.07fHF) License GOG [Platinum Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473883.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl - Конец Света (2014) [Ru] (1.0/upd
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472590.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Zero Tolerance (1994) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471829.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ Overhead (2018) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471578.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ Ocean Nomad: Survival on Raft (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471412.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ Clive Barker's Undying [Ru/En] (Repack) 2001 | R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471093.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ Kingpin: Life of Crime (1999) [Ru/En] (1.21) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469746.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ The Solus Project (2016) [Ru/Multi] (1.13) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467013.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ Elea (2018) [Ru/Multi] (1.0) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467009.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ Dying Light 2: Stay Human (2022) [Ru/Multi] (1.4.2/dlc) License EMPRESS [Ultimat
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465745.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ Prey - Mooncrash (2018) [Ru/En] (1.10) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463040.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ Project Remedium (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462906.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ Dark Deception (2018) [Ru/Multi] (1.6.0/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462676.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ Dying Light 2: Stay Human (2022) [Ru/En] (1.4.2/dlc) Repack West4it
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461531.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ Stairs (2015) [En] (1.0) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457079.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ Rise of the Triad: Dark War (1994) [En] (1.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456874.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ Rise of the Triad: Dark War (1994) [En] (1.3) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A994385B8EC35B7DF8BEB90ABB150F2B4E122F08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247000   (456394) от 13.09.2018
-
-Turok 2: Seeds of Evil - Remastered (2017) [Multi] (1.5.9/upd6) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всеми любимый охотник на динозавров возвращается! Необходимо будет бороться за свой путь через 35 различных типов врагов с надувными животами, моргающими глазами, страшными щупальцами и смыкающимися челюстями. Пройдите путь от доисторических ящеров, пожирателей человеческой плоти - вы точно хотите победить их всех! В Turok 2: Seeds of Evil очень умные враги! Они (   Читать дальше...   )Тип издания: RepackРазработчик: Iguana Entertainment, Nightdive StudiosЖанр: Action (Shooter), 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E42D07EFB9C7046C9339036EB3E739F88DAC4140
 ```
 
 https://mybot314.ru/tekegram_catalog/

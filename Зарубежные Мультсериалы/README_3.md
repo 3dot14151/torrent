@@ -1,3 +1,107 @@
+###  Публикация: 1441904   (1037061) от 23.01.2021
+
+Мир Юрского периода: Лагерь Мелового периода / Jurassic World: Camp Cretaceous (2021) WEB-DL [H.264/1080p-LQ] (сезон 2, серии 1-8 из 8) Невафильм
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шестеро подростков весело проводят время на острове Нублар, рассматривая диплодоков и бегая по веревочным лестницам. Однако, в парке все клетки оказываются открыты, так что подросткам придётся научиться выживать.Производство: США / Amblin Entertainment, DreamWorks Animation, Legendary Television, The Kennedy/Marshall Company, Universal PicturesЖанр: Мультфильм, боевик, драма, комедия, приключенияРежиссер: Shih Ming Tay, Зесун Кан, Майкл МалленПеревод: Дублированный (Невафильм)Субтитры: Русские (Forced), английские (SDH), немецкие, испанские, финские, французские, итальянские, польские, португальские, шведскиеПродолжительность: ~00:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A54C57CBEFC5A6EA6E8743EF6094F5BE012B4FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293514   (1036470) от 25.01.2021
+
+Звёздные войны: Сопротивление / Star Wars: Resistance (2018) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-20 из 20) Невафильм
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кадзуда Сионо — молодой пилот, недавно вступивший в ряды Сопротивления под командованием генерала Леи. Несмотря на юный возраст, Кадзуде поручают важное задание — разведать, чем занимается Первый орден.Производство: США, Lucasfilm Ltd, DisneyXDЖанр: Фантастика, Анимация, ПриключенияРежиссер: Стюарт Ли, Боско ЭнДжи, Sergio PaezПеревод: Дублированный, профессиональный - НевафильмСубтитры: отсутствуютПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3522AC53AC1A445400E33E045E367AEBD3D3B6F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442797   (1036267) от 26.01.2021
+
+Звездные войны: Сопротивление / Star Wars: Resistance (2019-2020) WEB-DL [H.264/1080p-LQ] (сезон 2, серии 1-18 из 18) Невафильм
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кадзуда Сионо — молодой пилот, недавно вступивший в ряды Сопротивления под командованием генерала Леи. Несмотря на юный возраст, Кадзуде поручают важное задание — разведать, чем занимается Первый орден.Производство: США / Disney XD, Lucasfilm Animation, LucasfilmЖанр: Мультфильм, фантастика, боевик, приключенияРежиссер: Стюарт Ли, Боско ЭнДжи, Брэд РауПеревод: Дублированный (Невафильм)Субтитры: АнглийскиеПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DABC683A37E9C5B4DA02658F9FED78F95EEAC4FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 154996   (1035523) от 05.03.2023
+
+Чертёнок / The Imp (2006) DVDRip (сезон 1, серий 65 из 65)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035523.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Добро пожаловать, последователи Тьмы, в мой мегаужасный мир Зла-а-а-а! Теперь вы мои ученики...!" Вам страшно? На самом деле это - забавный сериал о чертенке, который пытается всем делать пакости. Он считает себя хитрым, находчивым и крутым. Но что бы он не замышлял, все получается лишь весело и забавно. И он такой милый...Производство: Великобритания, BRB Internacional S.A., Red Kite Animations, Screen 21, TV3Жанр: Комедия, семейный, мультсериалРежиссер: Вейн Томас, Энди ДжейнсАктеры: Стефен Мэнгэн, Хелен МакАлпайн, Гэвин Митчелл, Джулиан Райнд-ТаттПеревод: Многоголосый закадровый (профессиональный)Продолжительность: 01:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8490882848DA00B66D5D10FE330DB01E3CA6CC65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426542   (1035402) от 29.01.2021
 
 Равноденствие оникса / Onyx Equinox (2020) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-12 из 12) NewStation
@@ -6,7 +110,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035402.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035394.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035305.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035101.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035081.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034762.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033694.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032207.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031739.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030831.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030206.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030095.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029956.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029663.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028463.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028431.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028412.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026457.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026300.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026074.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ DOTA: Кровь дракона / Dota: Dragon's Blood (2021) WEB-DL [H.264/1080
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023711.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023127.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4B33FFBF4646837D8F4C5D730231E50653E5685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453774   (1023111) от 02.04.2021
-
-Кармен Сандиего / Carmen Sandiego (2021) WEB-DL [H.264/1080p-LQ] (сезон 4, серии 1-8 из 8) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет расскажет о неуловимой и гениальной преступнице экстра-класса, которая путешествует по всему миру, пытаясь с помощью хитроумных планов похищать разные драгоценности. На пути ее вечно оказываются агенты из В.А.Л.З., членом которого раньше была сама Сандиего.Производство: США / Netflix Studios, Houghton Mifflin Harcourt PublishingЖанр: Мультфильм, боевик, детектив, приключения, семейныйРежиссер: Кевин Дарт, Йос Хамфей, Кенни ПакПеревод: Профессиональный многоголосый(NewStation)Субтитры: русские, английские, испанские, норвежские, индонезийские, греческие, румынские, немецкие, тайские, японские, итальянские, португальские, китайские, финские, шведские, ивритские, арабские, голландские, датские, польские, турецкие, корейские, французскиеПродолжительность: ~00:23:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD6FBE6FD8616FC3C8E109086552D927032F45DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453776   (1023098) от 02.04.2021
-
-Кармен Сандиего / Carmen Sandiego (2021) WEBRip (сезон 4, серии 1-8 из 8) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет расскажет о неуловимой и гениальной преступнице экстра-класса, которая путешествует по всему миру, пытаясь с помощью хитроумных планов похищать разные драгоценности. На пути ее вечно оказываются агенты из В.А.Л.З., членом которого раньше была сама Сандиего.Производство: США / Netflix Studios, Houghton Mifflin Harcourt PublishingЖанр: мультфильм, боевик, детектив, приключения, семейныйРежиссер: Кевин Дарт, Йос Хамфей, Кенни ПакПеревод: Профессиональный многоголосый(NewStation)Субтитры: нетПродолжительность: ~00:23:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E224368D80225516015E4C4797FC5BCB438D22AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460299   (1022563) от 05.04.2021
-
-DOTA: Кровь дракона / Dota: Dragon's Blood (2021) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1-8 из 8)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прославленный драконий рыцарь Дэвион посвятил жизнь борьбе с бедами мира. После встречи с могущественным древним эльдвурмом и с благородной принцессой Мираной, у которой есть своя тайная миссия, Дэвион оказывается в эпицентре событий куда более масштабных, чем он мог себе представить.Производство: США / Netflix Animation, ValveЖанр: Мультсериал, фэнтези, боевикРежиссер: Эшли МиллерПеревод: Дублированный (Невафильм)Субтитры: Русские (forced, full), английские (forced, SDH)Продолжительность: ~00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EF67092094BA1AC91D57888D0DE2FFE3593094A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461215   (1022044) от 08.04.2021
-
-Тихоокеанский рубеж: Тёмная зона / Pacific Rim: The Black (2021) WEB-DL [H.264/720p] (Сезон 1, Серии 1-7 из 7) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давным-давно из морских пучин восстали гигантские чудовища, но встретили сопротивление егерей — специально разработанных роботов. Время прошло. Теперь монстры наводнили Австралию, и жителям всего континента приходится эвакуироваться. Два подростка — брат с сестрой Тейлор и Хейли — остались, чтобы найти пропавших родителей. Они обнаруживают старого егеря и учатся (   Читать дальше...   )Производство: США, Австралия / Legendary PicturesЖанр: мультфильм, фантастика, боевикРежиссер: Хироки Хаяси, Джэ Хонг КимАктеры: Гидеон Адлон, Кэлам Уорси, Эрика Линдбек, Виктория Грэйс, Энди МакФи, Александра МакДональд, Джейсон Спайсэк, Леонардо Нам, Камрин ДжонсПеревод: Многоголосый профессиональный (NewStation)Субтитры: русские, английские, испанские, норвежские, индонезийские, греческие, румынские, немецкие, тайские, японские, итальянские, португальские, китайские, финские, шведские, ивритские, арабские, голландские, датские, польские, турецкие, корейские, французскиеПродолжительность: ~00:28:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8108773527F75E989CC0244C786AB6DFBFC890B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

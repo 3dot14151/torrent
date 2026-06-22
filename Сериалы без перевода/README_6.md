@@ -1,3 +1,81 @@
+###  Публикация: 1567204   (244372) от 01.08.2022
+
+Уверенным шагом / Best Foot Forward (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-10 из 10)
+
+>>Зарубежные сериалы
+>>Сериалы без перевода
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джош Дьюбин рад пойти в школу после домашнего обучения. Быть в ней единственным ребенком с протезом ноги — это испытание, которое он готов преодолеть. Пока он устраивает свою жизнь со сверстниками, родные и друзья поддерживают его на каждом шагу.Производство: США / Muse Entertainment Enterprises, Muse Entertainment LLCЖанр: драма, комедия, семейныйРежиссер: Виктор Нелли мл., Эшли Икин, Энн РентонАктеры: Логан Мармино, Стивен Шнайдер, Джой Супрано, Пейтон Джексон, Тринити Блисс, Роджер Дэйл Флойд, Роми Фэй, Лайам Кайл, Изабелла Менесес, Миа ДавилаПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, итальянские, английские и др.Продолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CDB19F66CC7710B99B1D77E75A7240A522CB55B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512467   (229955) от 25.11.2021
+
+Бойтесь ходячих мертвецов: Записи Алтеи / Fear the Walking Dead: The Althea Tapes (2019) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) [EN / RU, PL Sub] [PR]
+
+>>Зарубежные сериалы
+>>Сериалы без перевода
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229955.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Бойтесь ходячих мертвецов: Записи Алтеи" - это третий мини-сериал, основанный на сериале "Бойтесь ходячих мертвецов", в котором основное внимание уделяется записям, сделанным персонажем Алтеей.Производство: США / American Movie Classics (AMC)Жанр: ужасы, фантастика, триллер, драмаРежиссер: Ереми Маттерн, Дэвид БарретАктеры: Мэгги Грэйс, Adam Cope, Кристал Мартинес, Колби Минифи, Тейлор Мерфи, Брайан Торнтон, Ленни Джеймс, Джо Массинджилл, Эрик Мэтью, Майк ДэвисПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: русские (отдельным файлом), польские (отдельным файлом)Продолжительность: ~00:06:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:339C1B0A512BB1EE6B68257DF6EF07D864DA7FBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642877   (229591) от 27.07.2023
+
+Ведьмак / The Witcher (2023) WEB-DL [H.264/1080p] (сезон 3, серии 1-8 из 8) [EN / RU, EN, Multi Sub]
+
+>>След.
+>>Сериалы без перевода
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229591.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведьмак Геральт, мутант и убийца чудовищ, на своей верной лошади по кличке Плотва путешествует по Континенту. За тугой мешочек чеканных монет этот мужчина избавит вас от всякой настырной нечисти — хоть от чудищ болотных, оборотней и даже заколдованных принцесс. В сельской глуши местную девушку Йеннифэр, которой сильно не повезло с внешностью, зато посчастливилось (   Читать дальше...   )Производство: США, Польша / Netflix, Pioneer Stilking Films, Platige ImageЖанр: фэнтези, приключения, драма, ужасыРежиссер: Алик Сахаров, Стивен Серджик, Шарлотта БрандстромАктеры: Генри Кавилл, Фрейя Аллан, Аня Чалотра, Мими Дивени, Имон Фэррен, МайАнна Бёринг, Уилсон Раджу-Пухальте, Анна Шаффер, Джои Бэти, Ройс ПирресонПеревод: отсутствуетЯзык озвучки: английскийСубтитры: Русские, украинские, английские (SDH), и др.Продолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CADEA69FB5580E0DE48878D8385D2AFE49CB9A9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573900   (229284) от 14.10.2022
 
 Властелин колец: Кольца власти / The Lord of the Rings: The Rings of Power (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) [EN / RU, EN, Multi Sub]
@@ -6,7 +84,7 @@
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229284.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_227346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_227346.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223371.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_220152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220152.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219993.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216569.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206666.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206347.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204581.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203129.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_194847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194847.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193441.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192290.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191977.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185244.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182322.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182302.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182280.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182276.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182194.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182186.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181350.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181286.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2332F30374918E0E556B4E234AB00F906E23B2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667211   (176823) от 08.10.2023
-
-Счастливые дни / Happy Days (1976-1977) DVDRemux (сезон 4, серии 1-25 из 25) [EN / EN Sub]
-
->>Зарубежные сериалы
->>Сериалы без перевода
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176823.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре событий находится американская семья среднего класса, Канингхемы. Отец семейства, Ховард, владеет магазином электротоваров. Его жена, Мэрион, домохозяйка. У этой пары имеется трое детей: Ричи (наивный и оптимистичный), его младшая сестра Джони и старший брат Чак (помешан на баскетболе). Ричи зависает в забегаловке "У Арнольда" со своими приятелями (   Читать дальше...   )Производство: США / Paramount TelevisionЖанр: комедия, семейный, музыкаРежиссер: Джерри Пэрис, Фрэнк Бакстон, Херб УоллерштейнАктеры: Генри Уинклер, Мэрион Росс, Том Босли, Эрин Моран, Энсон Уильямс, Рон Ховард, Дон Мост, Аль Молинаро, Скотт Байо, Линда ГудфрендПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английскиеПродолжительность: серии по ~00:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B603C31632246BE8DA820B33B413BEDF888A3A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667212   (176810) от 08.10.2023
-
-Счастливые дни / Happy Days (1977-1978) DVDRemux (сезон 5, серии 1-27 из 27) [EN / EN Sub]
-
->>Зарубежные сериалы
->>Сериалы без перевода
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176810.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре событий находится американская семья среднего класса, Канингхемы. Отец семейства, Ховард, владеет магазином электротоваров. Его жена, Мэрион, домохозяйка. У этой пары имеется трое детей: Ричи (наивный и оптимистичный), его младшая сестра Джони и старший брат Чак (помешан на баскетболе). Ричи зависает в забегаловке "У Арнольда" со своими приятелями (   Читать дальше...   )Производство: США / Paramount TelevisionЖанр: комедия, семейный, музыкаРежиссер: Джерри Пэрис, Фрэнк Бакстон, Херб УоллерштейнАктеры: Генри Уинклер, Мэрион Росс, Том Босли, Эрин Моран, Энсон Уильямс, Рон Ховард, Дон Мост, Аль Молинаро, Скотт Байо, Линда ГудфрендПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (SDH)Продолжительность: серии по ~00:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:082FCE9D0DF84C07F59217F30CF8607C46667BBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667209   (176806) от 08.10.2023
-
-Счастливые дни / Happy Days (1974-1975) DVDRemux (сезон 2, серии 1-23 из 23) [EN / EN Sub]
-
->>Зарубежные сериалы
->>Сериалы без перевода
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176806.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре событий находится американская семья среднего класса, Канингхемы. Отец семейства, Ховард, владеет магазином электротоваров. Его жена, Мэрион, домохозяйка. У этой пары имеется трое детей: Ричи (наивный и оптимистичный), его младшая сестра Джони и старший брат Чак (помешан на баскетболе). Ричи зависает в забегаловке "У Арнольда" со своими приятелями (   Читать дальше...   )Производство: США / Paramount TelevisionЖанр: комедия, семейный, музыкаРежиссер: Джерри Пэрис, Фрэнк Бакстон, Херб УоллерштейнАктеры: Генри Уинклер, Мэрион Росс, Том Босли, Эрин Моран, Энсон Уильямс, Рон Ховард, Дон Мост, Аль Молинаро, Скотт Байо, Линда ГудфрендПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (SDH)Продолжительность: серии по ~00:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB8C223CF1F957A60AE4438864303370B2595810
 ```
 
 https://mybot314.ru/tekegram_catalog/

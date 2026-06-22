@@ -1,3 +1,107 @@
+###  Публикация: 1348767   (141714) от 29.12.2019
+
+Первая передача на НТВ. Автомобильная передача (29.12.2019) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141714.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Первая передача» — это познавательный проект про автомобилистов и для автомобилистов — для тех, что хочет из простого автолюбителя стать автопрофессионалом!Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:26:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:109B7F1ACD5D7D4131F1C0C9C980D45D8F26D35E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195714   (140453) от 30.12.2017
+
+Главная дорога (2017.12.30) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140453.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Главная дорога» — первая на российском телевидении информационная программа обо всем, что происходит на дорогах страны. Это полчаса полезной информации не только для автолюбителей, но и для пешеходов. В постоянной рубрике «Испытано на себе» зрителей ждут наглядные советы, как вести себя в сложных ситуациях на дорогах. Сложнейший курс контраварийной подготовки, адаптированный (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39FEA2C2BB924413BDFC1472C6DBC92110F7434E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970489   (140253) от 30.12.2015
+
+Топ Гир: от A до Z / Top Gear: From A to Z (2015) HDTV [H.264/1080i-LQ] (часть 1 из 2) (AlexFilm)
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140253.jpg" />
+</div>
+
+
+###  Подробнее
+
+В подарок всем фанатам шоу Top Gear компания BBC выпустила рождественский выпуск. Этот выпуск будет поделён на две части, обе из которых покажут лучшие моменты Top Gear, а так же не показанные ранее вырезанные сцены. Эти самые сцены были отсняты за многие годы работы съёмочной команды Top Gear. Так же мы услышим мнения различных звёзд о тех или иных эпизодах Top (   Читать дальше...   )Телекомпания: BBCЖанр: Авто-шоуРежиссер: Джеймс Брюс и др.Перевод: Профессиональный многоголосый закадровый - AlexFilmОзвучка: Андрей Стакионис, Александр Дасевич, Константин Погодаев, Наталья Ланц, Владимир Курдов, Михаил СусловФормат: MKVПродолжительность: 00:58:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3C7270D7AB76356C5152474B861AAC002B7C582
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273031   (139167) от 30.12.2018
+
+Главная дорога (30.12.2018) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139167.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новом выпуске ведущие Андрей Федорцов и Денис Юченков расскажут, как правильно выбрать новогоднее дерево, какое простоит дольше - ёлка или сосна, а также как бережно перевезти хвойное растение, не растеряв пушистые иголки. Кроме того, зрители увидят, чем запомнился российским автомобилистам уходящий год, что ждать в следующем и как отпраздновать, не потеряв права.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:29:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E86FF6E200197D3C3D69309B517D6AC8084029D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195954   (138577) от 31.12.2017
 
 Первая передача на НТВ. Автомобильная передача (2017.12.31) SATRip (выпуск 316)
@@ -6,7 +110,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138577.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138451.jpg" />
 </div>
 
 
@@ -61,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138149.jpg" />
 </div>
 
 
@@ -89,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136587.jpg" />
 </div>
 
 
@@ -115,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136580.jpg" />
 </div>
 
 
@@ -141,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135302.jpg" />
 </div>
 
 
@@ -169,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133158.jpg" />
 </div>
 
 
@@ -198,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133087.jpg" />
 </div>
 
 
@@ -226,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132745.jpg" />
 </div>
 
 
@@ -253,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131225.jpg" />
 </div>
 
 
@@ -282,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129840.jpg" />
 </div>
 
 
@@ -309,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128693.jpg" />
 </div>
 
 
@@ -336,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128542.jpg" />
 </div>
 
 
@@ -365,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127587.jpg" />
 </div>
 
 
@@ -393,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127563.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126483.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126252.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126247.jpg" />
 </div>
 
 
@@ -507,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125902.jpg" />
 </div>
 
 
@@ -535,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125806.jpg" />
 </div>
 
 
@@ -564,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124854.jpg" />
 </div>
 
 
@@ -593,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124436.jpg" />
 </div>
 
 
@@ -607,121 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18ACBD690F7BD43BF8237D284E7B3250BDE5726C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691711   (123110) от 13.01.2024
-
-Главная дорога (13.01.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Посиделки с алкоголем в салоне авто: чем чреваты возлияния в припаркованном ТС?
-Принудительная остановка: как и чем помочь, если водитель уснул или потерял сознание прямо за рулем?
-Автопутешествие в праздничный и нарядный Татарстан.
-Забыть вещи в такси проще простого, но как их потом вернуть?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C3DC842A825D79C9028980717E573730BB7D0A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693338   (121894) от 20.01.2024
-
-Главная дорога (20.01.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121894.jpg" />
-</div>
-
-
-###  Подробнее
-
-2,5 млн с пострадавшего в ДТП: за что виновник аварии через суд требует баснословную сумму и каковы его шансы получить деньги?
- Как доехать без одной фары зимой, чтобы снизить шансы попасть впросак?
- Легендарные машины Высоцкого.
- Кто и как возместит ущерб, если первый участник в аварии не виноват, а второй не вписан в ОСАГО? А также — можно ли сразу после покупки подарить (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:25:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37F9322A8C21308AFEADF940BD2E29AD7899B7CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693344   (121848) от 20.01.2024
-
-Минтранс (20.01.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121848.jpg" />
-</div>
-
-
-###  Подробнее
-
-🔸 Юридические нюансы. Как продать автомобиль после вступления в наследство?
-🔸 Тест-драйв БМВ-5. Почему этого «немца» считали технологическим прорывом? Есть ли у модели просчеты?
-🔸 Генеральная уборка. Что будет, если редко мыть автомобиль?
-🔸 Особенности расположения. Почему лючок бензобака находится то справа, то слева?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B8AA2751794EB85884E092188BE3B8285DB08B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695005   (120658) от 27.01.2024
-
-Главная дорога (27.01.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неуправляемый питерский автобус, уголовное наказание за тюбинг на дорогах, дальневосточные метели и капризы непогоды по всей России.
- Виновник ДТП, пострадавший водитель и пострадавшая пешеход: как из этого списка выпал участник аварии, который натворил бед, и на кого могут «повесить» ущерб?
- Поднимать или не поднимать? Андрей Федорцов и Денис Юченков разрешили вечный (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:046E7CDCFA0E5CACEC9FD24C4CF74C5CF20C87DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

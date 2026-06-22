@@ -1,3 +1,159 @@
+###  Публикация: 1739520   (48613) от 28.07.2024
+
+Resurrection of mind (2024) [Ru/En] (Build 15055615) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действия игры разворачиваются на Земле в далеком будущем. Привычному миру грозит угроза из прошлого. Как оказалось, древняя раса высокоинтеллектуальных существ, владело этим миром задолго до людей. Они именовали себя “Первородные”. Но несколько миллионов лет назад по Земле ударил метеорит, уничтожив 90% жизни на планете и сделав её практически непригодной для проживания. (   Читать дальше...   )Тип издания: RepackРазработчик: Gamenergy studioЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ACF01DFEDBC0083ECC40964DE3EEDA10043C6D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739740   (48475) от 29.07.2024
+
+Mystical Riddles 5: Haunted Portraits (2024) [Multi] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение мистической детективной серии игр Mystical Riddles. Секреты, ложь и опасности поджидают вас в совершенно новом расследовании исчезновения молодой женщины из художественной галереи известного фотографа. Поначалу галерея кажется успешным, но заурядным заведением, но вскоре становится ясно, что на свободе разгуливает нечто темное и зловещее! Вам нужно собрать (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69ECCE065AAB6F5BD3DC5C81B4C72649F5E45E1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740260   (48207) от 01.08.2024
+
+Ogu and the Secret Forest / Огу и Таинственный Лес (2024) [Ru/Multi] (1.0/dlc) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ogu and the Secret Forest - это двухмерная приключенческая экшен-адвенчура, которая может похвастаться очаровательными персонажами, нарисованными от руки, и различными типами интригующих головоломок, которые бросят вам вызов и поразят вас. Подружитесь с множеством непоседливых персонажей и сразитесь со странными существами, чтобы раскрыть секреты чарующего мира. (   Читать дальше...   )Тип издания: SceneРазработчик: Moonlab Studio, Sinkhole StudioЖанр: Приключенческие игрыЯзык субтитров: Русский, Английский, Немецкий, Корейский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Корейский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3E92E7B60B33B8350004B69653DF109176CA20E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740276   (48156) от 01.08.2024
+
+Cursed Fables 5: A Gilded Rose (2024) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение мистической сказочной серии игр Cursed Fables. Сегодня вечером состоится волшебный бал-маскарад, полный загадок и тайн. Съедутся гости из соседних королевств в надежде, что принц выберет именно их принцессу своей невестой. Вы - придворная волшебница, и должны будете с помощью своего дара предвидения заглянуть в будущее. Но праздник принимает мрачный оборот (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ADA5DA3002552594B28F1F8AE435742F6A14EA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740463   (48079) от 02.08.2024
+
+Ogu and the Secret Forest / Огу и Таинственный Лес (2024) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ogu and the Secret Forest - это двухмерная приключенческая экшен-адвенчура, которая может похвастаться очаровательными персонажами, нарисованными от руки, и различными типами интригующих головоломок, которые бросят вам вызов и поразят вас. Подружитесь с множеством непоседливых персонажей и сразитесь со странными существами, чтобы раскрыть секреты чарующего мира. (   Читать дальше...   )Тип издания: RepackРазработчик: Moonlab Studio, Sinkhole StudioЖанр: Приключенческие игрыЯзык субтитров: Русский, Английский, Немецкий, Корейский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Корейский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8860A84DB8E0784E78BC12A0313B2B6345F7E9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740979   (47867) от 04.08.2024
+
+Ms. Holmes 6: Letter M / Мисс Холмс 6: Буква М (2024) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение детективных историй Ms. Holmes. Знаменитый детектив Шарлотта Холмс раскрывает самые сложные дела. Но новая тайна даже ее заставляет задуматься. В доме ее друга Оскара появляется испуганный раненый инженер. Помогите Шарлотте собрать воедино события, которые привели к этой невероятной встрече. Старые враги, возможно, снова оказались рядом. Сможете ли вы (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92A2E00F0A63BB312E79AC9C0D5D4C4515716F68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741960   (47370) от 09.08.2024
 
 Mystical Riddles 5: Haunted Portraits / Мистические загадки 5: Портреты с призраками (2024) [Ru/Multi] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -6,7 +162,7 @@ Mystical Riddles 5: Haunted Portraits / Мистические загадки 5:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47370.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Cursed Fables 5: A Gilded Rose / Проклятые предания 5: Позо
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47058.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ City of Stories 2: The Professor's Secret / Город историй 2: Сек�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47034.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Strange Investigations 4: Truth Will Out (2024) [En] (1.0) Unofficial [Collector
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46695.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Hidden Through Time 2: Discovery (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46424.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Twin Mind 5: The Deathly Trick (2024) [Multi] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45874.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Grim Tales 25: Light in the Darkness (2024) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44936.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Myths Of Orion: Light From The North (2014) [Ru/Multi] (1.11.7.7) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42843.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ The Emptiness (2015) [En] (1.0) Scene PROPHET [Deluxe Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42548.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ Strange Investigations 4: Truth Will Out / Удивительные рассле
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34680.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ Twin Mind 5: The Deathly Trick / Двуединое сознание 5: Смер
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34677.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ Aurora Hills: Chapter 1 / Аврора-Хиллз: Глава 1 (2024) [Ru/Multi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34648.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ Bridge to Another World 12: The Christmas Curse / Мост в другой ми�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34632.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ Grim Tales 25: Light in the Darkness / Страшные сказки 25: Све�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34621.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ Maze of Realities 5: Synergy of Worlds / Лабиринт Реальностей
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34599.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ Detectives United 7: Mission Possible / Лига детективов 7: Мис�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34595.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ Halloween Stories 8: Inspirations Spark / Хеллоуинские истори�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34496.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ The Harmony Chronicles 2: Demon of the Void / Хроники Гармонии 2:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34490.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ Gloomy Tales 3: Hotel Frightsylvania / Мрачные истории 3: Отел
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34291.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ Mystery Trackers 20: Reflections of the Past / Охотники за тайна�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33999.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ Mystery Trackers 20: Reflections of the Past / Охотники за тайна�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1D8A08A5F3A1C366AC694F17285B88D7ABF7A38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766695   (33545) от 20.12.2024
-
-Connected Hearts 5: Hour of the Witch / Связанные сердца 5: Час Ведьмы (2024) [Ru/Multi] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение сказочной серии игр Connected Hearts. Вот уже много лет королевство Арадон страдает из-за тёмного колдовства. Спасти его сможет лишь брак принцессы Авроры и принца, известного своей жестокостью. Но сердце Авроры принадлежит другому - некогда гордому рыцарю по имени Адриан. Проклятие обратило его в чудовище, но под устрашающей внешностью скрывается золотое (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E226AA5220F4F4D9646C0407CF74B4032A73E65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766704   (33544) от 20.12.2024
-
-Unsolved Case 6: Ash and Secrets / Нераскрытое дело 6: Пепел и тайны (2024) [Ru/Multi] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение захватывающей детективной серии игр Unsolved Case. Вам предстоит расследовать убийство водителя грузовика по имени Гарри Райт в опасном заповеднике Грейт-Грин. Таинственный амулет, оставленный на месте преступления, раскрывает коррупционную сеть, связанную с проектом строительства шоссе, традиционным кладбищем и общиной на окраине. Вы должны допросить (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D01EE947F615FFB380DFEDA20A683CCD2D82A573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766725   (33542) от 20.12.2024
-
-Jixo: The Season of Joy / Jixo: Сезон веселья (2024) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте красочную новогоднюю игру. Приготовьтесь погрузиться в мир, где вас ждут праздничное веселье и зимняя магия. Исследуйте множество игр на праздничную тематику, от изысканных головоломок с поиском предметов в очаровательных рождественских сценах до увлекательных пазлов, в которых собраны чудеса зимы. Украсьте свою праздничную комнату коллекционными украшениями, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Mixo GamesЖанр: Я ищу, КазуальнаяЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C46697B8CE00CA7C12C41B24716520774C3F8B4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767004   (33436) от 21.12.2024
-
-Mystery Case Files 27: The Riddle of Mrs. Bishop / За семью печатями 27: Загадка миссис Бишоп (2024) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение мистическо-детективной серии игр Mystery Case Files. В королевское агентство "За семью печатями" приходит растерянная пожилая женщина и просит встречи с Мастером-Детективом, попутно прошептав слово "Далимар". К сожалению, прежде чем агенты успели что-либо выяснить, её забрали родственники. Мастеру-Детективу приходится лично отправиться (   Читать дальше...   )Тип издания: UnofficialРазработчик: GrandMA StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B935F3A1D36233F123E9FF3BD400FE914E913AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767917   (33229) от 23.12.2024
-
-Christmas Stories 13: Clara and the Guiding Star (2024) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение рождественских историй Christmas Stories. Юная Клара - искусная мастерица, но в глубине души еще и искательница приключений. И ей предстоит раскрыть мрачную тайну. Отец Клары становится жертвой нападения злого существа из темного измерения и превращается в безжизненную игрушку. С верным помощником Щелкунчиком Клара должна раскрыть тайны прошлого, настоящего (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D659374A59E1D5F795B09A166328B242B4979622
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768553   (33018) от 25.12.2024
-
-Christmas Wonderland 15 / Рождество. Страна Чудес 15 (2024) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рождеством не было бы Рождеством без новой части Christmas Wonderland! Наслаждайтесь праздниками в Спрингфилде! Игрушки подготовлены, и наступил канун Рождества - Сочельник! Рудольф и другие олени запряжены в сани. Санта готов облететь весь мир, пока дети спят... или они не спят? Рождественская страна чудес полна подарков и скрытых сюрпризов, которые вам предстоит (   Читать дальше...   )Тип издания: UnofficialРазработчик: Casual ArtsЖанр: Я ищу, КазуальнаяЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:372E1A14F47E403490435F2B897C6D08D3BE1A34
 ```
 
 https://mybot314.ru/tekegram_catalog/

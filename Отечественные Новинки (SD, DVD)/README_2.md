@@ -1,3 +1,55 @@
+###  Публикация: 1841617   (1048108) от 12.12.2025
+
+Паромщик (2025) WEBRip [H.264]
+
+>>Горячие новинки
+>>Отечественные Новинки (SD, DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048108.jpg" />
+</div>
+
+
+###  Подробнее
+
+2022 год. Русский паромщик Константиныч — житель одного из запорожских сёл. После распада СССР старый мост через приазовский лиман был разрушен и разобран на металлолом, и Константиныч стал перевозить людей на пароме. Он соединяет берега и берёт на себя ответственность за всё, что происходит на его родной земле.Производство: Россия / АНО, ИннопрактикаЖанр: драма, комедияРежиссер: Федор ПоповАктеры: Анна Уколова, Артем Алексеев, Наталья Бергер, Эдуард Радзюкевич, Наталия Медведева, Светлана Пермякова, Диана Деева, Юлия Сулес, Александр Марин, Александр ПашутинСубтитры: отсутствуютПродолжительность: 01:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A246305D56A60129112A7CB4A6FC3D80F5FAC66D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841611   (1048107) от 12.12.2025
+
+Папины дочки. Мама вернулась (2025) WEBRip
+
+>>Горячие новинки
+>>Отечественные Новинки (SD, DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мама наконец-то возвращается домой после долгого отсутствия. Для дочек — это долгожданное чудо, для Веника — неожиданность, а для всей семьи — шанс начать все сначала. Им предстоит вновь найти общий язык, справиться с трудностями и снова стать одной дружной семьёй.Производство: Россия / Yellow, Black & WhiteЖанр: комедия, семейныйРежиссер: Анатолий КолиевАктеры: Филипп Бледный, Анастасия Сиваева, Виталия Корниенко, Ева Смирнова, Полина Айнутдинова, Полина Денисова, Андрей Леонов, Нонна Гришаева, Татьяна Орлова, Ольга ВолковаСубтитры: Русские (отдельно)Продолжительность: 01:31:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99F08E79918DBB301BF3A98931A8493A631DA568
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841614   (1048106) от 12.12.2025
 
 Семейное счастье (2025) WEBRip [H.264]
@@ -6,7 +58,7 @@
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048106.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048093.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047387.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046883.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046879.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046876.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257757.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257755.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250863.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250464.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248620.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246154.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246138.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212648.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205620.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_199779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199779.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193555.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193323.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193314.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150653.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136800.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136688.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136687.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128897.jpg" />
 </div>
 
 
@@ -616,59 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:638B8F75B78486111CB4DCCB611603B66B1FD369
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823894   (126111) от 13.10.2025
-
-Про людей и про войну (2025) WEBRip
-
->>Горячие новинки
->>Отечественные Новинки (SD, DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великая отечественная война. Миллионы советских солдат встали на защиту Родины. У молодых людей впереди были мечты, планы, любовь, счастье и созидание, но вмешалась война. Ушли на фронт парень Иван Вдовин и его отец Фёдор. В это суровое время отец с сыном и сослуживцами стояли насмерть с оружием в руках, и каждый был готов на всё ради победы.Производство: Россия / Киностудия "Артель", ИРИ, Фонд "Истоия Отечества"Жанр: военный, драма, историяРежиссер: Дмитрий Пасичнюк, Андрей Красавин, Александр Кананович,...Актеры: Егор Бероев, Антон Богданов, Фёдор Федотов, Тимофей Елецкий, Андрей Кислицин, Сергей Сафронов, Анна Попова, Евгения Глотова, Александр Бобровский, Андрей ПынзаруЯзык озвучки: РусскийСубтитры: Русские (отдельно)Продолжительность: 01:31:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCC65FEBCD64DB6C38434DB1863712D43D1DD11D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821471   (64020) от 02.10.2025
-
-Дети-шпионы (2025) WEBRip
-
->>Горячие новинки
->>Отечественные Новинки (SD, DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семья спецагентов воспитывает сына и двух дочерей, каждый из них обладает уникальными способностями. Михаил — компьютерный гений, Вита владеет гипнозом, Дана — мастер спорта по единоборствам. Они открыли шпионское агентство «ДаМиНик». Их цель — стать суперагентами и найти свою маму, которую не смог отыскать суперагент Голос, их отец.
-В это время в соседнем королевстве (   Читать дальше...   )Производство: Россия / ПЦ Ивана Архипова «Инферно», Марс Медиа ЭнтертейнментЖанр: комедия, семейный, приключенияРежиссер: Иван АрхиповАктеры: Дмитрий Нагиев, Людмила Артемьева, София Каштанова, Игорь Жижикин, Кирилл Нагиев, Виталия Корниенко, Даяна Гудз, Михаил Архипов, Надежда Сысоева, Сергей АстаховЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:27:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73A97D7AB7EE32CA073B7962577FE8C3AA2805CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

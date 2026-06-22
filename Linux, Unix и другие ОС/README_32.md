@@ -1,3 +1,58 @@
+###  Публикация: 1741566   (47599) от 07.08.2024
+
+Master PDF Editor for Linux 5.9.50 [x86_64, arm64] (deb, rpm, tar.gz)
+
+>>Linux, Unix и другие ОС
+>>*Nix. Программы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Master PDF Editor - это простая в использовании, но максимально эффективная программа для работы с PDF документами. С ее помощью Вы легко сможете просматривать, создавать и редактировать, объединять несколько файлов в один и разделять исходный файл на несколько документов, комментировать, шифровать, подписывать и печатать интерактивные PDF документы. Программа оснащена (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25976DD5F351D6571D3E0D6986CB807899CDD62A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742178   (47303) от 10.08.2024
+
+Zapret v.60 for Linux [x86, x86_64] (elf)
+
+>>Linux, Unix и другие ОС
+>>*Nix. Программы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автономное, без задействования сторонних серверов, средство противодействия DPI.
+Может помочь обойти блокировки или замедление сайтов http(s), сигнатурный анализ tcp и udp протоколов,
+например с целью блокировки VPN.
+(   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8EF70EA103933DEA7216BCB1B52BC94A82FEFA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748718   (43963) от 11.09.2024
 
 Manjaro 24.0.8 Wynsdey (Xfce, KDE Plasma, Gnome) (Official images Manjaro Team) [x86_64] 12xDVD
@@ -6,7 +61,7 @@ Manjaro 24.0.8 Wynsdey (Xfce, KDE Plasma, Gnome) (Official images Manjaro Team) 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43963.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Ubuntu*Pack 22.04 Unity (сентябрь 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43406.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ Ubuntu*Pack 22.04 Budgie (сентябрь 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43397.jpg" />
 </div>
 
 
@@ -86,7 +141,7 @@ MX-23.4 (MX Linux 23.4) [x86_64, i686] 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42363.jpg" />
 </div>
 
 
@@ -114,7 +169,7 @@ Devuan 5 (Daedalus) [x86_64, i586] 4DVD+14xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42264.jpg" />
 </div>
 
 
@@ -140,7 +195,7 @@ R-Studio for Linux Network 3.5.1347 [x86, x64] (rpm, deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41099.jpg" />
 </div>
 
 
@@ -166,7 +221,7 @@ HCL Lotus 14 [x86_64] (.tgz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39815.jpg" />
 </div>
 
 
@@ -194,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39696.jpg" />
 </div>
 
 
@@ -220,7 +275,7 @@ GFI Kerio Control 9.4.4 build 8434 [x86_64] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38540.jpg" />
 </div>
 
 
@@ -246,7 +301,7 @@ Ubuntu 24.10 Oracular Oriole [x86_64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38250.jpg" />
 </div>
 
 
@@ -272,7 +327,7 @@ Deepin 23 [x86_64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38226.jpg" />
 </div>
 
 
@@ -300,7 +355,7 @@ MiniOS (все редакции) v3.3.4 [amd64, i386] 10xCD [RU]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37423.jpg" />
 </div>
 
 
@@ -326,7 +381,7 @@ Elementary OS 8 Circe [x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35676.jpg" />
 </div>
 
 
@@ -352,7 +407,7 @@ Red Hat Enterprise Linux 9.5 [x86_64, aarch64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34756.jpg" />
 </div>
 
 
@@ -380,7 +435,7 @@ AlmaLinux 9.5 (Gnome, Xfce, KDE, Mate) [x86_64] 8xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34457.jpg" />
 </div>
 
 
@@ -406,7 +461,7 @@ DR14 T.meter 2.0.0 [x32, x64] (py)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34312.jpg" />
 </div>
 
 
@@ -434,7 +489,7 @@ GreenLinux 22.1.0 Novosibirsk [x86_64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27809.jpg" />
 </div>
 
 
@@ -462,7 +517,7 @@ ALT Linux 8 СП C10F2 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24634.jpg" />
 </div>
 
 
@@ -488,7 +543,7 @@ Astra Linux Special Edition 1.6.15 [amd64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24602.jpg" />
 </div>
 
 
@@ -516,7 +571,7 @@ MiniOS (все редакции) v4.1.2 [amd64, i386] 4xDVD [RU]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24106.jpg" />
 </div>
 
 
@@ -542,7 +597,7 @@ Astra Linux Special Edition 1.8.1.UU2 [amd64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24100.jpg" />
 </div>
 
 
@@ -570,7 +625,7 @@ CentOS 10 Stream [x86_64 / aarch64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21803.jpg" />
 </div>
 
 
@@ -597,7 +652,7 @@ UALinux CyberPack FaP 22.04 [Multi]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20745.jpg" />
 </div>
 
 
@@ -623,7 +678,7 @@ Astra Linux Special Edition 1.7.7 UU1 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20312.jpg" />
 </div>
 
 
@@ -636,62 +691,6 @@ Astra Linux Special Edition 1.7.7 UU1 [amd64] 3xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:303C759DB0AA27A5484C9F29BBC134C0A6A390D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793536   (20311) от 25.04.2025
-
-Astra Linux Special Edition 1.7.7 [amd64] 5xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инновационная операционная система класса Linux, обеспечивающая защиту информации, содержащей сведения, составляющие государственную тайну с грифом не выше «совершенно секретно». Разработаны и включены в состав операционной системы программные компоненты, расширяющие ее функциональность и повышающие уровень защищенности и удобства ее использования.
-
-Разработаный (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAA72E2FA7C0360786850F270C4EA5F8C2E52557
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797181   (18248) от 15.05.2025
-
-Astra Linux Special Edition 1.7.7 UU2 [amd64] 3xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инновационная операционная система класса Linux, обеспечивающая защиту информации, содержащей сведения, составляющие государственную тайну с грифом не выше «совершенно секретно». Разработаны и включены в состав операционной системы программные компоненты, расширяющие ее функциональность и повышающие уровень защищенности и удобства ее использования.
-
-Разработаный (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79A3206423433CF8D2507F008A9B897EF9E006CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

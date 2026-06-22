@@ -6,7 +6,7 @@ Guano Apes - Bel Air (2011) Gold Edition [FLAC|Lossless|track + .cue] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019780.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Dinosaur Jr. - Sweep It Into Space (2021) [FLAC|Lossless|tracks + .cue] <Indie R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019655.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Lilith Czar (ex- Juliet Simms) - Created From Filth And Dust (2021) [FLAC|Lossle
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019479.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Kaleo - Surface Sounds (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Blues R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019047.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Offspring - Let The Bad Times Roll (2021) Japanese Edition [FLAC|Lossless|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018920.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Luka State - Fall In Fall Out (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018806.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Royal Blood - Typhoons (2021) Deluxe Edition [FLAC|Lossless|Web-DL|tracks] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018257.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Diamante - American Dream (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Fem
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016436.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ August Burns Red - Leveler: 10th Anniversary Edition (2021) [FLAC|Lossless|WEB-D
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014519.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Dawn Of Dusk - Flight Trajectory (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014506.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Rise Against - Nowhere Generation (2021) [FLAC|Lossless|WEB-DL|tracks] <Punk Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012736.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Anchors & Hearts - Guns Against Liberty (2021) [FLAC|Lossless|WEB-DL|tracks] <Me
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012453.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Wolf Alice - Blush (2013) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012400.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Sleater-Kinney - Path of Wellness (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011676.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ King Gizzard & The Lizard Wizard - Butterfly 3000 (2021) [FLAC|Lossless|WEB-DL|t
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011661.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Tom Morello & The Bloody Beetroots - The Catastrophists (2021) EP [FLAC|Lossless
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010503.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Muse - Origin of Symmetry (XX Anniversary RemiXX) (2021) [FLAC|Lossless|WEB-DL|t
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010465.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Skarlett Riot - Invicta (2021) [FLAC|Lossless|image + .cue] <Alternative Metal>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010018.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Mogwai - As The Love Continues (2021) 2CD, Deluxe Edition [FLAC|Lossless|tracks 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009174.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Lost in the Moment - Cut All Ties (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007166.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Attila - Closure (2021) Attila Music LLC [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005613.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Bring Me the Horizon - Music to listen to~/.../~GO TO (2019) EP [FLAC|Lossless|W
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004269.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Insolence - Revolution (2001) [FLAC|Lossless|image + .cue] <Hardcore, Nu Metal>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003351.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Thurston Moore - Spirit Counsel (2019) 3CD BoxSet [FLAC|Lossless|tracks + .cue] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003009.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ VA - Triple J'S Hottest 100 Vol.19 (2012) [FLAC|Lossless]<Alternative, Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002524.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Circa Waves - Happy (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001995.jpg" />
 </div>
 
 

@@ -1,3 +1,119 @@
+###  Публикация: 1278727   (767679) от 27.01.2019
+
+Backstreet Boys - DNA (2019) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Go Breaking My Heart (03:37)
+02. Nobody Else (03:39)
+03. Breathe (03:06)
+04. New Love (03:00)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FCE4DF0BADAFB6E5827D2953BE8F494F9A3CD2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278968   (767666) от 27.01.2019
+
+Matthieu Chedid - Lettre infinie (2019) [FLAC 2.0|96/24|tracks|WEB-DL]<Pop-Rock, French>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lettre Infinie (03:09)
+02. Superchérie (03:43)
+03. Massaï (03:46)
+04. Logique Est Ton Echo (03:01)(   Читать дальше...   )Жанр: Pop-Rock, FrenchПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA21816B9A5147244C0CBBDA73CE95C77C466B05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278746   (766922) от 28.01.2019
+
+Demis Roussos - Schones Madchen aus Arcadia (2010) 3CD [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Schon Wie Mona Lisa
+02. Manuela
+03. My Friend The Wind(   Читать дальше...   )Жанр: PopПродолжительность: 02:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12C15E86CF199176CE5663A2C6207257E31EBA56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213986   (766568) от 19.03.2018
+
+Kim Wilde - Here Come The Aliens (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1969
+02. Pop Don't Stop (ft. Ricky Wilde)
+03. Kandy Krush
+04. Stereo Shot(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B913435BB2EE3904CA4463690454B04C6BA170C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393785   (766212) от 02.07.2020
 
 VA - NRJ Summer Hits Only (2020) 3 CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
@@ -6,7 +122,7 @@ VA - NRJ Summer Hits Only (2020) 3 CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766212.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - 100 Hits 80s Pop (2017) 5CD, Box Set[FLAC|Lossless|tracks + .cue] <80s, Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766004.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Club Latino (2000) приложение к журналу Stereo & Video 03
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765477.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ TOPAZ - High Society (2019) [FLAC 2.0|96/24|tracks|WEB-DL] <Dream Pop, Alternati
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765334.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Bosson - One In A Million (2001) Exclusive [FLAC|Lossless|tracks + .cue] <Pop, E
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764921.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Hooked On Number Ones-100 Non Stop Hits (1988) [FLAC|Lossless|tracks + .cue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764349.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ The Lagoons - Midnight Afternoon (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763750.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Clean Bandit - What Is Love (2018) Japanese Edition [FLAC|Lossless|tracks + .cue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763524.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ The Beloved - Sweet Harmony: The Very Best of The Beloved (2011) 2CD, RM. [FLAC|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763522.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Bananarama - The Greatest Hits Collection (Collector Edition) (2017) [FLAC|Lossl
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763520.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Bosson - RockStar (2004) [FLAC|Lossless|tracks + .cue] <Pop, Europop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763295.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Prince - 5 Albums (1978 - 2004) [APE|Lossless|image + .cue] <Pop, Soul, Funk, Di
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762943.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Dusty Springfield - 7 альбомов (1963-2000) [FLAC|Lossless]<Pop, Soul>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762544.jpg" />
 </div>
 
 
@@ -380,7 +496,7 @@ Jamala - Подих (2015) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760778.jpg" />
 </div>
 
 
@@ -409,7 +525,7 @@ VA - Best Of The 70's (2002) [FLAC|Lossless|tracks + .cue] <Rock, Reggae, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759618.jpg" />
 </div>
 
 
@@ -438,7 +554,7 @@ VA - Pure... 80s (2012) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Electronic, Sof
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759475.jpg" />
 </div>
 
 
@@ -467,7 +583,7 @@ INNA - Champagne Problems #DQH1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_758252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_758252.jpg" />
 </div>
 
 
@@ -496,7 +612,7 @@ VA - The 80s (2003) [FLAC|Lossless]<Pop, Disco>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757757.jpg" />
 </div>
 
 
@@ -525,7 +641,7 @@ George Baker - Diamond Star Collection (1996) Unofficial Release [APE|Lossless|i
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757631.jpg" />
 </div>
 
 
@@ -554,7 +670,7 @@ Ke - I Am [...] (1996) [FLAC|Lossless|image + .cue] <Rock, Funk, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756986.jpg" />
 </div>
 
 
@@ -583,7 +699,7 @@ Lara Fabian & Igor Krutoi - Mademoiselle Zhivago (2010) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754840.jpg" />
 </div>
 
 
@@ -612,7 +728,7 @@ The Beloved - Where It Is (1988) Compilation [FLAC|Lossless|tracks + .cue] <Pop 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753482.jpg" />
 </div>
 
 
@@ -626,122 +742,6 @@ The Beloved - Where It Is (1988) Compilation [FLAC|Lossless|tracks + .cue] <Pop 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3081A86161D24E0B7E325CC9B930992373D77AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018911   (752171) от 22.05.2016
-
-Shania Twain - Still The One: Live From Vegas (2015) [FLAC|Lossless|image + .cue] <Pop, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Gonna Getcha Good! (4:13)
-02. You Win My Love (4:33)
-03. Don't Be Stupid (You Know I Love You) (3:45)
-04. Up! (2:56)(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 01:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E95FC3E985DA1898A065B9DD1B33C1B0A56CA0B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281476   (751617) от 08.02.2019
-
-Lara Fabian - Papillon (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papillon
-02. Je Suis à Toi
-03. Changer Le Jeu
-04. Par Amour(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:629C6DFB84A0F72E1AE15D0451C558A4D7BD77CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281504   (751608) от 08.02.2019
-
-Ariana Grande - thank u, next (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Hip-Hop, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. imagine
-02. needy
-03. NASA
-04. bloodline(   Читать дальше...   )Жанр: Pop, Hip-Hop, R&BПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A8448677C845CFE762D759FDF4C14AADD754218
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523356   (751544) от 11.01.2022
-
-Minacelentano - The complete recordings (2021) 2xCD, Compilation, Remastered, Sony Music [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Релиз, приуроченный к двадцатипятилетию первого совместного альбома Мины и Челентано - "Mina Celentano" 1998 года, достигнувшего вершины итальянского хит-парада и получившего две платиновых сертификации. В 2016 году вышел ещё один студийный альбом дуэта - "Le migliori", который превзошёл успех предшественника, получив семь платин. На этом сборнике (   Читать дальше...   )CD - 1:
-01. Niente E' Andato Perso
-02. Eva
-03. A Un Passo Da Te(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15648CA7CE5657A0D173CDD0A0D0D9C929BD2224
 ```
 
 https://mybot314.ru/tekegram_catalog/

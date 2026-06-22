@@ -1,3 +1,133 @@
+###  Публикация: 1796347   (5772) от 27.08.2025
+
+Spirit of the North 2 (2025) [Ru/Multi] (12765-13132) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте тайны прекрасного древнего мира в этом захватывающем приключении от третьего лица, продолжении признанной игроками приключенческой игры Spirit of the North. Присоединитесь к одинокой лисе и её спутнику-ворону, которые пытаются найти утерянных стражей и вернуться домой.Тип издания: RepackРазработчик: Infuse StudioЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3CBC428F06E009717C0295EC2F24591996EFE65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814847   (5738) от 27.08.2025
+
+Vlad Circus: Curse of Asmodeus (2025) [Ru/Multi] (1.6.1) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в глубины безумия и ужаса в этом тревожном пиксельном графическом приключении - одновременно приквел и сиквел Vlad Circus: Descend into Madness. Vlad Circus: Curse of Asmodeus влечет вас в мир зеркал и теней, где зло таится в каждом уголке. Исследуйте пугающую вселенную глазами Йозефа Петреску, человека, изуродованного трагедией, который просыпается ужасно (   Читать дальше...   )Тип издания: LicenseРазработчик: IndiesruptionЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B099136617A556E1A305A29E8DF106534E0ED95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814939   (5685) от 27.08.2025
+
+The Drifter (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5685.jpg" />
+</div>
+
+
+###  Подробнее
+
+После долгого отсутствия Мик возвращается домой, но привычная жизнь рушится в одно мгновение. Став свидетелем загадочного убийства, он сам оказывается втянут в водоворот событий, где правда скрыта за мраком прошлого. Каждый шаг приближает его к разгадке тайны, но одновременно угрожает его собственной жизни. Атмосфера неизвестности и постоянного напряжения сопровождает (   Читать дальше...   )Тип издания: RepackРазработчик: Powerhoof, Dave LloydЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский,  Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:088B7099A9F13B4BF4721A48838B33B48FDAAB48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573177   (5632) от 28.08.2025
+
+BROK The InvestiGator (2022) [Ru/Multi] (1.5.3.7/dlc) License GOG [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжетная приключенческая игра, сочетающая в себе экшен и расследования так, как никогда ранее. Используешь ли ты свой острый ум или кулаки? В футуристичном мире, где животные заняли место людей, привилегированные горожане живут под Куполом, защищающим их от загрязненной окружающей среды, в то время как остальные изо всех сил борются за выживание.Тип издания: LicenseРазработчик: COWCATЖанр: Приключение, Квест, ФайтингЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A1657B53A0FB31E7FF41F72E55338D0278ABC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815070   (5624) от 28.08.2025
+
+Aurelia (2024) [Ru/Multi] (1.0.1) Repack Let'sРlay [18+]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Аурелию! Аурелия - эротическая игра в сеттинге магического средневековья. Примерьте на себя роль молодого искателя приключений, который вернулся в свой только что унаследованный особняк в герцогстве Аурелия, в этой приключенческой игре, полной страсти. По невероятному стечению обстоятельств, вы находите мистический амулет, как только проходите (   Читать дальше...   )Тип издания: RepackРазработчик: MirthalGamesЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Японский, Китайский (традиционный)Язык интерфейса: Русский, Английский, Японский, Китайский (традиционный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC92A84224079114DF118A7DD9E24B99EE72E253
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813892   (5611) от 28.08.2025
 
 Herdling (2025) [Ru/Multi] (1.2.3.p) Repack Let'sРlay [Complete Edition]
@@ -6,7 +136,7 @@ Herdling (2025) [Ru/Multi] (1.2.3.p) Repack Let'sРlay [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5611.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ BROK the InvestiGator - The Brawl Bar (2025) [Ru/Multi] (1.5.3.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5598.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Ithya: Magic Studies / Итийя: Волшебные занятия (2025) [Ru/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5554.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Ithya: Magic Studies / Итийя: Волшебные занятия (2025) [Ru/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5518.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.3) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5451.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Caput Mortum (2025) [Ru/Multi] (1.1.0.0) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5264.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ SkullX: Aibohphobia (2025) [En] (1.0.4) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5033.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ NODE: The Last Favor of the Antarii / NODE: последняя услуга Ан
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5029.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Veil of the Skies (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4974.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Dave the Diver (2023) [Ru/Multi] (1.0.5.1702/dlc) Repack Let'sРlay [Deluxe Edit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4708.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ REPOSE (2025) [Multi] (1.1.0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4689.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ A Shelter Full of Cats (2024) [Ru/Multi] (1.0.5c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4685.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.15.1.0/dlc) Repack Let'sРlay [Backstage
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4624.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Gems of War - Puzzle RPG (2014) [Ru/Multi] (8.8.0r75951/dlc) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4620.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Deliver At All Costs (2025) [Ru/Multi] (250331-132937) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4602.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ BROK The InvestiGator (2022) [Ru/Multi] (1.5.3/dlc) Repack FitGirl [Deluxe Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4537.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Summer Pockets: Reflection Blue (2025) [Multi] (1.2.0.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4532.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ The Drifter (2025) [Multi] (1.0.9) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4515.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ The Hundred Line: Last Defense Academy (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4480.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ Down in Bermuda (2021) [Ru/Multi] (1.6.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4455.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ Whisker Wanderlust: The Wondrous Journey (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4404.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ Whisker Wanderlust: The Wondrous Journey (2025) [Ru/Multi] (1.0) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A533357BED678B0DF74A6526AF5117BFD2A7B257
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816446   (4347) от 05.09.2025
-
-Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack seleZen
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскройте одну из величайших тайн истории в однопользовательской приключенческой игре от первого лица Indiana Jones and the Great Circle, действие которой происходит между событиями фильмов «В поисках утраченного ковчега» и «Последний крестовый поход». В 1937 году зловещие личности начинают искать ключ к древней силе, связанной с большим кругом, и остановить их может (   Читать дальше...   )Тип издания: RepackРазработчик: MachineGamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BFEAF8213C5D5413DB33670688972B2C9931B05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816847   (3958) от 07.09.2025
-
-Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack FitGirl [Premium Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскройте одну из величайших тайн истории в однопользовательской приключенческой игре от первого лица Indiana Jones and the Great Circle, действие которой происходит между событиями фильмов «В поисках утраченного ковчега» и «Последний крестовый поход». В 1937 году зловещие личности начинают искать ключ к древней силе, связанной с большим кругом, и остановить их может (   Читать дальше...   )Тип издания: RepackРазработчик: MachineGamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A4CDCA0577A413E87476DA22AB0A9196249DE29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816859   (3955) от 07.09.2025
-
-STAY (2018) [Ru/Multi] (1.0.3.9) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Квинн очнулся в закрытой комнате, где есть только компьютер, подключенный к чату, в котором находитесь вы. Вы стали его единственной надеждой. Ваши быстро принятые решения помогут ему сбежать... или поведут его по дороге, где всё закончится раз и навсегда. STAY - игра в режиме реального времени, а значит, проводя время вне ее, вы оставляете Квинна в одиночестве. (   Читать дальше...   )Тип издания: RepackРазработчик: Appnormals TeamЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:649006425821C4E9BFC2C71F77B793FD741B332E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816858   (3954) от 07.09.2025
-
-Dead Take (2025) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dead Take начинается с поисков пропавшего друга. Когда Винни перестает отвечать на звонки, игрок направляется к его последнему известному местоположению - особняку, где накануне прошла вечеринка. Резиденция теперь погружена в тишину. Необходимо войти внутрь, чтобы отыскать товарища, ведь в индустрии развлечений актеры поддерживают друг друга в трудные моменты. Так (   Читать дальше...   )Тип издания: SceneРазработчик: Surgent StudiosЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий, Итальянский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27EE798543B37EFEA80C5020B395809A186C2EB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816855   (3925) от 07.09.2025
-
-The Last Ski Trip (2025) [Ru/Multi] (3.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой отправляется в отдаленную заснеженную долину вместе со своим братом, чтобы покататься на лыжах. Но вскоре после их прибытия начинают происходить странные события. И отдых на лыжах, быстро превращается в кошмар. Со временем он понимает, что в долине живет что-то ужасное...Тип издания: RepackРазработчик: Fireplay StudioЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B01CEB15C6F399E1E7D055109778291D964E94D
 ```
 
 https://mybot314.ru/tekegram_catalog/

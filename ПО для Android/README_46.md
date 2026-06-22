@@ -1,3 +1,55 @@
+###  Публикация: 1282064   (747948) от 10.02.2019
+
+Все правила по русскому языку v2.3 AdFree [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение включает в себя все правила по разделам: правописание и пунктуация! С удобным поиском нужного правила.Тип издания: Пиратка (удалена реклама и всякий мусор)Релиз состоялся: 10.07.2016Разработчик: Vad0k & CabjectПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DBA433623B140C2225252351B28ED2D47E23F2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523915   (747629) от 13.01.2022
+
+VPN Россия: Русский IP proxy v1.84 [Ru/Multi]
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрый и бесплатный VPN Russia позволяет в один клик получить российский IP или разблокировать доступ к закрытым сайтам и приложениям. Безопасное и анонимное подключение к открытым Wi-Fi сетям обеспечивает технология подключения VPN с ключом 1024 бит.Тип издания: ProРелиз состоялся: 11.01.2022Разработчик: AltAppsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3245197AC46EEA9C569BC98C30EDE6E45E3C6430
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524136   (746512) от 14.01.2022
 
 VirusTotal Mobile v2.3.9 Mod by papasha55 [Ru]
@@ -6,7 +58,7 @@ VirusTotal Mobile v2.3.9 Mod by papasha55 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746512.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746248.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ Greenify v4.7.5 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744994.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744985.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ IELTS Practice Pro v4.9.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_744962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744962.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744924.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744674.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744444.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ eReader Prestigio Premium 6.4.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743676.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ Video Converter Android 2 v3.2.5 Premium [En/Rus] - видео и аудио к�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743019.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ Track24.ru 1.95 (Lite Mod) [Ru/Eng]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742630.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ RepliGo PDF Reader v4.2.9 - многофункциональный вьювер 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742284.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ NumoTrend (NUM + KinoTrend) v2.1.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741176.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ KidsControl / Cемейный GPS трекер v5.2.14 [Ru/Multi] (обновл�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740310.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ Easy Poser v1.3.20 Mod [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739437.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ USSDDualWidgetPro v1.0.31 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739040.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ nzb360 - Sonarr / Radarr / SAB / Torrents and more v15.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739032.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ GuitarTab - Tabs and chords v3.8.7 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738748.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737761.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ MotoScan для BMW мотоциклов v1.83 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737343.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ AlfaOBD v2.2.5.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737292.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ bimmer-tool expert v3.2.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736885.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ TorrServe v1.1.83_4/ v1.1.76_9 (клиент+сервер) [Ru] (обновля�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736491.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ KitchenTimer v4.5.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735832.jpg" />
 </div>
 
 
@@ -626,58 +678,6 @@ KitchenTimer v4.5.2 [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39ECB7190BF988FE1043D015350BB922400CA8DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398503   (735618) от 26.07.2020
-
-Фентези – бесплатные книги v3.30 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Читайте книги фэнтези легально и бесплатно. Обширная коллекция ярких и удивительных фэнтезийных книг! Благодаря этому приложению библиотека вашей читалки или телефона на андроид совершенно бесплатно пополнится лучшими новинками Генри Лайона Олди в жанре боевого фэнтези и свежими книгами о приключениях волшебников от Ника Перумова и Алексея Пехова. Поклонникам юмористической (   Читать дальше...   )Тип издания: Пиратка (AdFree - удалена реклама)Релиз состоялся: 17.07.2020Разработчик: КучаКниг.РуПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F97F2B5AE33A91524A91F15F8F8D6866496858BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398744   (735122) от 27.07.2020
-
-Саморазвитие - бесплатные книги v3.30 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обучитесь практической психологии по серии «Менталист» или нетрадиционной медицине с «Другим Норбековым», развейте в себе сверхспособности по методам Валентина Штерны и Юлии Свияш. Читайте онлайн такие новые бестселлеры, как «НЛП-допинг», «Сам себе психолог» и «Популярная психология», а также скачивайте их для своего ридера или телефона на платформе Android! Модные (   Читать дальше...   )Тип издания: Пиратка (AdFree - удалена реклама)Релиз состоялся: 17.07.2020Разработчик: КучаКниг.РуПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0CD73B44AAB64CB4EFECE1CB4BC7CEA8E4CB1FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

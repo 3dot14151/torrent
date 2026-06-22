@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071678.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070734.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069515.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068761.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067954.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067557.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066895.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066199.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065077.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064377.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063434.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061910.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060885.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059764.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058781.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045553.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036226.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034597.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030220.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023675.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018399.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016232.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997945.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994803.jpg" />
 </div>
 
 
@@ -632,25 +632,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 973187   (980714) от 07.01.2016
+###  Публикация: 431890   (991591) от 05.01.2012
 
-День шокирующих гипотез. Вредный ветер перемен  (2016.01.07) SATRip
+Неопознанные живые объекты. Загадки мира животных. Суперспособности животных / Animal X. Natural Mystery Unit. Animal Super Powers (2005) SATRip
 
 >>Документалистика и Телепередачи
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_991591.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждый день мы получаем информацию, которая способна перевернуть наше представление о мире. Как в глобальном потоке новостей разобраться, какие из фактов являются истиной, и что стоит за самыми важными событиями мировой истории? День шокирующих гипотез - это фестиваль самых актуальных документальных премьер сезона. Свежая и непредвзятая аналитика и прогнозы относительно (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйРежиссер: Глеб Михин, Артемий Гринчевский, Алексей Чистов, Елена Гришина, Михаил ЧернякПродолжительность: 00:47:24
+Создатели этой уникальной программы исследуют странные, необъяснимые и зачастую неподтвержденные свидетельства существования животных, неизвестных науке. Ужасающий дух черной собаки, обитающий в Британии, волки-убийцы из северной Индии и таинственное существо, скрывающееся в глубоких водах турецкого озера Ван. В попытке разгадать тайны криптозоологии команда исследователей использует мифы и показания очевидцев, репортажи с места событий и исторические реконструкции. Много еще загадок предстоит разгадать ученым, изучающим мир фауны.
+Суперспособности животных / Animal Super Powers
+Наше видение мира и своего места в нем основано на представлении, что мы высшие существа на планете. Но что это значит? Разве мы самые сильные, самые быстрые? На первый взгляд человечество не слишком приспособлено к выживанию, если против нас выставить самых серьезных хищников царства животных, и мы будем без всякого оружия, мы были бы в самом начале пищевой цепи, не более чем закуской. Но различие между нами ещё глубже. С вершины древа (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:27:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2615CFF34056D3109800D9AB019B6E11D52D411E
+magnet:?xt=urn:btih:843CE9749F94A34AD0930A3D06E42243B41F50D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -658,25 +660,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 973186   (980711) от 07.01.2016
+###  Публикация: 433395   (989009) от 08.01.2012
 
-День шокирующих гипотез. Пища от ума  (2016.01.07) SATRip
+Неопознанные живые объекты. Загадки мира животных. Большие кошки-пришельцы / Animal X. Natural Mystery Unit. Alien Big Cats (2005) SATRip
 
 >>Документалистика и Телепередачи
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_989009.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждый день мы получаем информацию, которая способна перевернуть наше представление о мире. Как в глобальном потоке новостей разобраться, какие из фактов являются истиной, и что стоит за самыми важными событиями мировой истории? День шокирующих гипотез - это фестиваль самых актуальных документальных премьер сезона. Свежая и непредвзятая аналитика и прогнозы относительно (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйРежиссер: Глеб Михин, Артемий Гринчевский, Алексей Чистов, Елена Гришина, Михаил ЧернякПродолжительность: 00:45:58
+Создатели этой уникальной программы исследуют странные, необъяснимые и зачастую неподтвержденные свидетельства существования животных, неизвестных науке. Ужасающий дух черной собаки, обитающий в Британии, волки-убийцы из северной Индии и таинственное существо, скрывающееся в глубоких водах турецкого озера Ван. В попытке разгадать тайны криптозоологии команда исследователей использует мифы и показания очевидцев, репортажи с места событий и исторические реконструкции. Много еще загадок предстоит разгадать ученым, изучающим мир фауны.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:25:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7015DE8935213AE8F815A59ACB3EAA00F4127E0
+magnet:?xt=urn:btih:8EAA79727860B81A3537FF7905A3B7F11B12ED96
 ```
 
 https://mybot314.ru/tekegram_catalog/

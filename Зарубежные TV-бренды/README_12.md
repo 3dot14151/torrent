@@ -1,3 +1,81 @@
+###  Публикация: 306588   (912988) от 24.02.2016
+
+Супер инструменты. Небоскребы / Super Tools. Skyscrapers (2006) SATRip
+
+>>Зарубежные TV-бренды
+>>Мега-Проекты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мастерство механиков, строителей, водопроводчиков ничего не значит без чрезвычайно важных инструментов, которые буквально оживают в их руках. Для специалистов-подрывников или сотрудников чрезвычайных служб подобные орудия труда имеют первостепенное значение. Идет ли борьба за миллиард долларов или за бесценную человеческую жизнь - именно уникальные инструменты в (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A37F90BBD65143087EE8FDF799115E4E3689C0D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 858615   (912985) от 24.02.2016
+
+Лондонский Музей естествознания вживую с Дэвидом Аттенборо / David Attenborough's Natural History Museum Alive (2014) BDRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>Доисторический мир
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэвид Аттенборо приглашает зрителей в путешествие по Лондонскому музею естествознания. Когда двери музея заперты и наступает ночь, Аттенборо рассказывает о некоторых из самых увлекательных вымерших животных, которые оживают на его глазах: динозавры, фауна ледникового периода и гигантские рептилии.Жанр: Документальный, научно-познавательный, палеонтологияПеревод: Одноголосый закадровый (любительский)Язык субтитров: русский, английскийПродолжительность: 01:06:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31619E60BC6FC5718F8A2C56CB8F54A23C22DDD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 859471   (912908) от 24.02.2016
+
+Дэвид Блейн. Реальность или магия / David Blaine. Real or Magic (2013) HDTVRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый известный в мире маг, автор десятков уникальных трюков и ниспровергатель множества рекордов в своем новейшем телевизионном проекте превосходит самого себя. В полнометражном фильме "Дэвид Блейн. Реальность или магия" Блейн демонстрирует свое феноменальное искусство знаменитостям: Стивену Хокингу, Гаррисону Форду, Уиллу Смиту, Роберту Де Ниро, Вуди (   Читать дальше...   )Жанр: Документальный, научно-популярный, искусствоПеревод: Многолосый закадровый (профессиональный)Продолжительность: 01:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:518527D3D60F23600E3B0BE917AD59CBADE532EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097814   (912046) от 28.01.2017
 
 Охотники за речными алмазами / Diamond River Hunters (2015) HDTVRip [H.264/720p] (сезон 1, серии 1-6)
@@ -6,7 +84,7 @@
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912046.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ NG: Подъём Коста Конкордия / The Raising Of The Costa Conkor
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911629.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Discovery: Почему? Вопросы мироздания. Как зарож�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911492.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Discovery: Пятёрка лучших / World's TOP 5 (2012) HDTVRip [выпу�
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911353.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ NG. Расследование на месте катастрофы / Crash Scen
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911350.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910430.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910420.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ BBC. Семейка гепардов и Я (Семья гепардов и Я) /
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910330.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910296.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ BBC. Аттенборо и Гигантский Слон / Attenborough and the 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910206.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ History Channel: Как создавались империи. Мир Да Ви�
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910152.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909960.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ Discovery: Понимание: Лёд / Understanding: Ice (1998) TVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909583.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ Discovery: Понимание: Тоннели / Understanding: Tunnels (2004) TV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909580.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ Discovery: Понимание: Астероиды / Understanding: Asteroids (20
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909579.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ Discovery: Понимание: Дорожное движение / Understanding
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909576.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ Discovery: Понимание: Шансы в жизни / Understanding: The Odd
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909522.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ Discovery. Техногеника. Ледоколы (2016) HDTVRip [720p-LQ]
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909424.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ Discovery: Каннибализм. Последний запрет / Cannibalism
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909414.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ Discovery: Понимание: Авиа-диспетчерская служба 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909409.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909380.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ Discovery: Тело человека. Грани Возможного (4 Сер�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909307.jpg" />
 </div>
 
 
@@ -582,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909267.jpg" />
 </div>
 
 
@@ -594,86 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9724286E145BC681CC4EC3D2CFD160A85E61D471
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098647   (908138) от 30.01.2017
-
-Взрывая историю. Пирамиды майя / Secrets of The Maya Pyramid (2016) HDTVRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исчезнувший город Чичен-Ица в Мексике хранит древние тайны загадочной цивилизации. Как его построили и как человеческие жертвоприношения повлияли на его облик?
-
-Глядя на дошедшие до нас памятники древних цивилизаций, трудно поверить, что задолго до появления современных технологий и мощной строительной техники удавалось возводить столь величественные сооружения. (   Читать дальше...   )Телекомпания: Windfall Films Ltd. (США)Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBE2231316CD550D53D27528C4CF95663AADE172
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 186157   (907767) от 27.02.2016
-
-Discovery: Понимание: Убийства / Understanding: Murder (2004) TVRip
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современная наука пытается ответить на вопросы: что заставляет человека совершать самое тяжкое преступление и можно ли его предотвратить?Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 186441   (907748) от 27.02.2016
-
-Discovery: Понимание: Сила генов / Understanding: The Power ofgenes (1999) TVRip
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее и будущее генной инженерии на примерах мировых достижений в этой области.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

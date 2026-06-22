@@ -1,3 +1,56 @@
+###  Публикация: 913586   (605006) от 29.06.2015
+
+Алиса в Зазеркалье 1.3 [Ru]
+
+>>Программы, Игры и прочее
+>>Всё для детей и родителей для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605006.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой сказке Алиса понарошку входит в зеркало, и оказывается в Зазеркалье, где мир представляет собой огромную шахматную доску. Выйдя из зазеркальной комнаты девочка попадает в сад живых цветов, и там встречает Красную Королеву, которая присваивает ей звание Белой Пешки. Теперь ее задача пересечь этот удивительный сказочный мир из края в край.Тип издания: FreeРелиз состоялся: 28 апреля 2015 г.Разработчик: AlterEgo TeamПоддерживаемая ОС: Android: 2.3+Жанр: Аудио книгаЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C60E2D515B032CBA744E93E70D01C71473DFD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913418   (604940) от 29.06.2015
+
+Аудио сказки для малышей 1.3 [Ru]
+
+>>Программы, Игры и прочее
+>>Всё для детей и родителей для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великолепный сборник лучших детских сказок, рассказанных талантливыми актерами откроет вам необычайный и многообразный мир чудес и волшебства, познакомит с добрыми и отзывчивыми героями и их антиподами, а также ненавязчиво научит жизненной мудрости. Эти сказки, несомненно, займут одно из первых мест в вашей домашней коллекции.
+В приложении предусмотрен таймер времени (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 15 июня 2015 г.Разработчик: AlterEgo TeamПоддерживаемая ОС: Android: 2.3+Жанр: ДетскиеЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:537C496B8938E1026ED534FBE7C663A2C0311761
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913577   (604714) от 29.06.2015
 
 GuardHouse 1.2 [Ru]
@@ -6,7 +59,7 @@ GuardHouse 1.2 [Ru]
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604714.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604698.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ AlReader 1.65 150531 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604585.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604030.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ Infinite Painter v6.3.21  [Ru/Multi] - редактор растровой гр�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603994.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ Garmin: Topo Spain V7 PRO [Es]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602944.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ Garmin: City Navigator Thailand NT 2021.20 + 2021.40 (Dual) [En/Th]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602936.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601540.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601130.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601084.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601080.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601078.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601076.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601069.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600997.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600938.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600934.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600073.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599981.jpg" />
 </div>
 
 
@@ -514,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599835.jpg" />
 </div>
 
 
@@ -542,7 +595,7 @@ Garmin: TOPO Andes v.4 (2016.10) [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599079.jpg" />
 </div>
 
 
@@ -568,7 +621,7 @@ Hydro Coach - пейте воду 2.9.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598330.jpg" />
 </div>
 
 
@@ -594,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598163.jpg" />
 </div>
 
 
@@ -622,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598001.jpg" />
 </div>
 
 
@@ -633,62 +686,6 @@ C лёгкостью успокойте и уложите вашего малы�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE04263C931D13AE150A8984C8F9B39522A15BB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914428   (597727) от 02.07.2015
-
-Я Сам!Очень детское приложение 3.4.9 [Ru]
-
->>Программы, Игры и прочее
->>Всё для детей и родителей для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение адаптирует любое Андроид-устройство для использования ребенком..
-Child Lock "Я сам!" создает безопасную песочницу для ребенка в любом вашем устройстве. Это позволит вам не беспокоиться, передавая планшет в детские руки, так как "Я сам!" блокирует любые нежелательные действия. Активность ребенка ограничена пределами детского рабочего (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 17 октября 2014 гРазработчик: Andrey BulachevПоддерживаемая ОС: Android 3.1+Жанр: ДетскиеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9F6464C9955A9A54AB58E513ED226F03897B9E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914479   (597540) от 02.07.2015
-
-Где ты? (Смс локатор) 1.0.8 [Ru]
-
->>Программы, Игры и прочее
->>Навигация для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597540.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Где ты?" позволяет отслеживать ваше местоположение, достаточно отправить Вам СМС: "где ты?"
-Не забудьте добавить ваших друзей, родственников и тех, кому вы доверяете в список разрешенных контактов.
-Для определения местоположения не нужен интернет.
-Создавайте свои места и привязывайте их к GPS, базовым станциям и WIFI сетям.(   Читать дальше...   )Тип издания: FreeРелиз состоялся: 29 июня 2015 г.Разработчик: Alexander ShtankoПоддерживаемая ОС: Android: 2.3+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6A6904742BCEE40DA10ED62B5B05FD6C8FF1115
 ```
 
 https://mybot314.ru/tekegram_catalog/

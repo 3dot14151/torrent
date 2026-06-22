@@ -1,3 +1,148 @@
+###  Публикация: 1063244   (432528) от 17.10.2016
+
+Austin Wintory - ABZÛ (Original Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_432528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Know, Water (01:58)
+02. Heaven Was Not Named (01:28)
+03. Seriola Lalandi (03:17)
+04. And the Earth Did Not Year Bear a Name (02:51)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9CB6C34E485F20809A2A8FF34484FB9C6E308B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063662   (432517) от 17.10.2016
+
+Anamanaguchi - Scott Pilgrim vs. the World: The Game (Original Videogame Soundtrack) (2010) [MP3|320 кб/с]<Soundtrack, 8-bit>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scott Pilgrim Anthem (01:38)
+02. Another Winter (02:33)
+03. Skate or Live (01:37)
+04. Sushi Box (01656)(   Читать дальше...   )Жанр: Soundtrack, 8-bit , Electronica, Electronica: ChiptuneПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF6E67DE4F79EAFDB637FFD252C42BB9D60AF819
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063559   (432516) от 17.10.2016
+
+Johnny Jewel - Lost River / Как поймать монстра (Original Motion Picture Soundtrack) (2015) Deluxe Edition [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johnny Jewel feat. Saoirse Ronan - Tell Me (02:42)
+02. Chromatics - Yes (Love Theme from Lost River) (03:24)
+03. Glass Candy - Shell Game (03:07)
+04. Johnny Jewel - Echoes (02:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:33:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:917FB72FF8C7320AA3D3BD081BEBBB1FC26B64FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063651   (432155) от 17.10.2016
+
+VA - Overwatch (Original Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Cardon - Overture (01:54)
+02. Derek Duke - Rally The Heroes (02:13)
+03. Derek Duke - Temple Of Anubis (02:00)
+04. Neal Acree, Sam Cardon, Derek Duke & Cris Velasco - The World Could Always Use More Heroes (Cinematic Intro) (05:51)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:48:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A72CF5E974B6CF60E30035D3DB92D18C5FFC8DBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946288   (429316) от 12.10.2015
+
+VA - Клинч (2015) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сергей Пускепалис - Intro
+02. Би-2 feat. Диана Арбенина - Тише и тише
+03. D. Brown feat. Elizaveta feat. Би-2 - Я ищу
+04. Би-2 feat. Варя Демидова - Книга(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C57777787B48C8DD31B7B994834679215180B3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1323509   (427335) от 08.09.2019
 
 VA - Scream Collection 1-4 / Крик 1-4 (1996-2011) [MP3|320 Kbps] <Soundtrack>
@@ -6,7 +151,7 @@ VA - Scream Collection 1-4 / Крик 1-4 (1996-2011) [MP3|320 Kbps] <Soundtrack
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427335.jpg" />
 </div>
 
 
@@ -32,7 +177,7 @@ VA - Gears of War (Collection Original Soundtrack) (2007-2016) [MP3|320 кб/с]
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426080.jpg" />
 </div>
 
 
@@ -61,7 +206,7 @@ Henry Jackman - Хищник / The Predator (2018) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424608.jpg" />
 </div>
 
 
@@ -90,7 +235,7 @@ Trevor Rabin & Harry Gregson-Williams - Enemy of the State (1998) [MP3|320 Kbps]
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419723.jpg" />
 </div>
 
 
@@ -119,7 +264,7 @@ VA - About Time (2013) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419719.jpg" />
 </div>
 
 
@@ -148,7 +293,7 @@ VA - Snatch (Expanded) (2000) [MP3|320 Kbps] <Soundtrack, Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419558.jpg" />
 </div>
 
 
@@ -177,7 +322,7 @@ VA - The Thomas Crown Affair (1999) [MP3|320 Kbps] <Soundtrack, Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419254.jpg" />
 </div>
 
 
@@ -206,7 +351,7 @@ Michael Giacchino - Doctor Strange / Доктор Стрэндж (Original Motio
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418742.jpg" />
 </div>
 
 
@@ -235,7 +380,7 @@ VA - Wasabi (2001) [MP3|320 Kbps] <Soundtrack, Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417338.jpg" />
 </div>
 
 
@@ -264,7 +409,7 @@ Dario Marianelli - Pride & Prejudice (2005) [MP3|320 Kbps] <Soundtrack, Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415180.jpg" />
 </div>
 
 
@@ -293,7 +438,7 @@ James Newton Howard - Waterworld (1995) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415092.jpg" />
 </div>
 
 
@@ -322,7 +467,7 @@ Trevor Jones - Around the World in 80 Days (2004) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415032.jpg" />
 </div>
 
 
@@ -351,7 +496,7 @@ Andrea Guerra - The Pursuit Of Happyness (2006) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414516.jpg" />
 </div>
 
 
@@ -380,7 +525,7 @@ VA - Eurotrip (2004) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412848.jpg" />
 </div>
 
 
@@ -409,7 +554,7 @@ VA - Knockin' on Heaven's Door (1997) [MP3|320 Kbps] <Soundtrack, Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412722.jpg" />
 </div>
 
 
@@ -438,7 +583,7 @@ Alan Menken - Enchanted (2007) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410611.jpg" />
 </div>
 
 
@@ -467,7 +612,7 @@ Nathaniel Mechaly - Taken (2008) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410610.jpg" />
 </div>
 
 
@@ -496,7 +641,7 @@ James Horner - A Beautiful Mind (2001) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410596.jpg" />
 </div>
 
 
@@ -525,7 +670,7 @@ Mike Higham & Matthew Margeson - Miss Peregrine’s Home For Peculiar Children /
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409527.jpg" />
 </div>
 
 
@@ -554,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408794.jpg" />
 </div>
 
 
@@ -583,7 +728,7 @@ Motoi Sakuraba, Yuka Kitamura - Dark Souls II SotFS (Original Soundtrack) (2015)
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408202.jpg" />
 </div>
 
 
@@ -598,163 +743,6 @@ Dark Souls II (рус. Тёмные души II) — видеоигра в жа�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97F68FFF4E55E3CBDBF1B086EA2CCB815E218365
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067156   (408025) от 28.10.2016
-
-Johan Soderqvist & Patrik Andren - Battlefield 1 (Original Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Battlefield One (03:21)
-02. The War to End All Wars (03:23)
-03. Mud and Blood (03:05)
-04. Hunted (01:58)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D51C0E074BE2C870DF03CAE905405E40FD69BEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 558844   (407769) от 13.10.2012
-
-Reservoir Dogs / Бешеные псы - OST (1992) [MP3|320 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407769.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. And Now Little Green Bag
-2. Little Green Bag - The George Baker Selection
-3. Rock Flock Of Five
-4. Hooked On A Feeling - Blue Swede
-5. Bohemiath
-6. I Gotcha - Joe Tex
-7. Magic Carpet Ride - Bedlam
-8. Madonna Speech
-9. Fool for Love - Sandy Rogers
-10. Super Sounds(   Читать дальше...   )Жанр: OSTПродолжительность: 00:30:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:845783EDBD4A0F79CD595893064A438E17790658
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559860   (407116) от 14.10.2012
-
-VA - Сборник Cаундтреков (1966-2012) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jan A.P. Kaczmarek - Goodbye (OST Хатико. Самый верный друг 2009)
- 02. John Williams (violin Itzhak Perlman) – Theme from Schindlers List (Список Шиндлера 1993 OST)
- 03. Michael Nyman - The Heart Asks Pleasure FirstThe Promise (Edit) (Пианино 1993 OST)
- 04. Celine Dion - My Heart Will Go On (c бэк вокалом) (Титаник 1997 OST)
- 05. Angelo Badalamenti - The Theme from Twin Peaks Fire Walk with Me (Твин Пикс 1990 OST)
- 06. Andre Rieu - Love Theme From Romeo & Juliet (Nino Rota 1968)
- 07. Hans Zimmer - Tennessee (Перл Харбор 2001OST)
- 08. London Symphony Orchestra - Requiem for a dream (Orchestral version) (Реквием по мечте 2000 OST)
- 09. Hans Zimmer - Leaving Wallbrook-On The Road Человек Дождя 1988 OST)
- 10. Hans Zimmer & Lisa Gerrard Now We Are Free (Gladiator 2000 OST)Жанр: SoundtrackПродолжительность: 02:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1D24FC1B3E2B5362FFCF225B6AA31D03F3D2A8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169085   (403152) от 27.09.2017
-
-Brian Tyler - Law Abiding Citizen (2009) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Designs
-02 - Predestined
-03 - Mechanical Mind
-04 - Origins(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F674F5F0FDFA77B611E01F749A597675C96B14A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169689   (402405) от 28.09.2017
-
-Various Artists - Pretty Woman (1990) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Natalie Cole - Wild Women Do
-02 - David Bowie - Fame 90
-03 - Go West - King Of Wishful Thinking
-04 - Jane Wiedlin - Tangled(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C210D2B00847842A8999B9F28F9A38AFCCDEA02
 ```
 
 https://mybot314.ru/tekegram_catalog/

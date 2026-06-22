@@ -1,3 +1,56 @@
+###  Публикация: 969891   (145052) от 28.12.2015
+
+Николай Семёнович Лесков | Собрание сочинений в 11-ти томах [11 книг] (1956-1958) [DJVU]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Собрание сочинений одного из признанных классиков русской литературы XIX века.
+Его называли самым национальным из писателей России. В его духовном формировании немалую роль сыграла украинская культура, которая стала ему близка за восемь лет киевской жизни в юные годы, и английская, которую он освоил благодаря многолетнему тесному общению со старшим родственником (   Читать дальше...   )Жанр: Классическая литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C30CF8E090EE298823BBB7A74769E96F79A8BC8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969963   (144973) от 28.12.2015
+
+Иван Сергеевич Тургенев | Собрание сочинений в 12-ти томах [12 книг] (1953-1958) [DJVU]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Собрание сочинений Ивана Сергеевича Тургенева. Иван Сергеевич (1818 - 1883), русский писатель, член-корреспондент Петербургской АН (1860). В цикле рассказов «Записки охотника» (1847-52) показал высокие духовные качества и одаренность русского крестьянина, поэзию природы. В социально-психологических романах «Рудин» (1856), «Дворянское гнездо» (1859), «Накануне» (1860), (   Читать дальше...   )Жанр: Классическая литератураИздательство: Государственное издательство художественной литературыФормат: DJVUКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C65C0C0826F162B6545E713129FB00BCCDDA7400
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 589782   (144868) от 16.12.2012
 
 Дмитрий Самохин | Сборник произведений [2004-2010] [FB2]
@@ -6,7 +59,7 @@
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144868.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144610.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141219.jpg" />
 </div>
 
 
@@ -88,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140793.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139614.jpg" />
 </div>
 
 
@@ -149,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138466.jpg" />
 </div>
 
 
@@ -177,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137853.jpg" />
 </div>
 
 
@@ -203,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136372.jpg" />
 </div>
 
 
@@ -229,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134530.jpg" />
 </div>
 
 
@@ -256,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134426.jpg" />
 </div>
 
 
@@ -283,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134424.jpg" />
 </div>
 
 
@@ -313,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134319.jpg" />
 </div>
 
 
@@ -339,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133486.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130527.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127745.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126039.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125872.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118688.jpg" />
 </div>
 
 
@@ -507,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118063.jpg" />
 </div>
 
 
@@ -533,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114528.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102477.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101910.jpg" />
 </div>
 
 
@@ -613,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100987.jpg" />
 </div>
 
 
@@ -639,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100973.jpg" />
 </div>
 
 
@@ -650,58 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDFDCF3CC973F3B99CAB5A996C05C5758D1DC2B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822517   (100971) от 07.10.2025
-
-Лев Брусилов | Губернский детективъ [4 книги] (2024-2025) [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100971.jpg" />
-</div>
-
-
-###  Подробнее
-
-В губернском городе Татаяре есть множество всяких развлечений, и клубы, и даже свой салон восковых фигур. Его устроил купец первой гильдии Иван Пядников, что многие сочли чудачеством. Но однажды утром в салоне находят тело самого владельца. Казалось бы, ничего необычного в смерти от сердечного приступа нет, но доктор все же обнаружил некоторые странности. Полковник (   Читать дальше...   )Жанр: ДетективИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7023EFFE4B9CDE7ACBD135AAE03652367EA2BF1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822506   (100948) от 07.10.2025
-
-Алла Холод | Психология преступления. Детективы Аллы Холод [11 книг] (2017-2024) [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алла Холод – профессиональный журналист. Драматические истории, положенные в основу сюжетов ее книг, придуманы, но далеко не фантастичны. Они о людях, живущих в современной России, не хороших и не плохих – сложных, раздираемых страстями, порой беспомощных перед обстоятельствами и поворотами судьбы, но неизменно ярких и сильных личностях. Это остросюжетные психологические (   Читать дальше...   )Жанр: ДетективИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67A2C18D0613896AD62768A96BE8DFF8D3CAB78D
 ```
 
 https://mybot314.ru/tekegram_catalog/

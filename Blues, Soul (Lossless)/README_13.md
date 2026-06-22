@@ -6,7 +6,7 @@ Laura Cox - Head Above Water (2023) [FLAC|Lossless|image + .cue] <Blues Rock, El
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035538.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Among Lynx - Once In A Blue Moon (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035292.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Beiztegui - Back to Groove Town (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034890.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Cotton Belly's - Kingfisher's Session (2021) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034880.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Black Ink River - Through the Unknown (2021) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034879.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Christopher Shayne - Ten High (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034876.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Southern Locomotive Band - Somewhere In Time (2020) [FLAC|Lossless|image + .
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034800.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034467.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ E Van Olst - Songs for Hal (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034466.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Hot Nasho - A Stitch in Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034464.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Ingrid Savbrant - Never Looking Back (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034457.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Eamon Dilworth & Crawfish Po'Boys - Crawfish Fiesta (2021) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034455.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Eric Starczan - Bluesorama (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034453.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Dr Goodvibe - Life Love Everything (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034452.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Acoustic Soul (2021) [FLAC|Lossless|WEB-DL|tracks] <Soul, Pop, RnB>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034228.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Charles Pasi - Collection 4 Releases (2011-2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033697.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Cozmic Jet - Whatcha Gonna Do (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033256.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ A.J. Croce - By Request (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033253.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Don and the Mobsters - Fear of the Dark (2021) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033249.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Gustavo Andrade - Andrade Brothers & Friends Vol. 3 (2021) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033244.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Grandaddy Short Leg - Firewater Sessions VOL II (2021) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033239.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Zoe Schwarz Blue Commotion - Good Times (2023) Remixed, Remastered 2023 + Bonus 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033167.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Kenny James Miller Band - Tear in My Eye (2021) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033062.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Kevin Galway - Canadiana Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033052.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Luspen - Under en tall (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032983.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Selwyn Birchwood - Living In A Burning House (2021) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032981.jpg" />
 </div>
 
 

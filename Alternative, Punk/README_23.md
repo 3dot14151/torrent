@@ -1,3 +1,32 @@
+###  Публикация: 1320626   (469274) от 19.08.2019
+
+Tash Sultana - Notion (2016) EP [MP3|320 Kbps] <Psychedelic rock, alternative rock, reggae rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Synergy
+02. Gemini
+03. Notion
+04. Jungle(   Читать дальше...   )Жанр: Psychedelic rock, alternative rock, reggae rockПродолжительность: 00:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6835EB6BA9AEC93D8C44A7626BC2FDA1A9A064BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1407155   (468612) от 06.09.2020
 
 Bet On Black - Коллекция:1-CD, 1-ЕР (2020) [MP3|320 Kbps] <Post-Hardcore>
@@ -6,7 +35,7 @@ Bet On Black - Коллекция:1-CD, 1-ЕР (2020) [MP3|320 Kbps] <Post-Hardc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468612.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Sleaford Mods - Key Markets (2015) [mp3|320 кб/с]<Post-Punk, Hip Hop, Punk-Ho
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464891.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Reptoid - Worship False God (2020) [MP3|320 Kbps] <Noise Rock, Industrial>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464445.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Fit for a King - The Path (2020) [MP3|320 Kbps] <Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462428.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460578.jpg" />
 </div>
 
 
@@ -157,7 +186,7 @@ The Flaming Lips - American Head (2020) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458165.jpg" />
 </div>
 
 
@@ -186,7 +215,7 @@ OneRepublic - Oh my my (2016) Deluxe Edition [MP3|320 Kbps] <Pop-Rock, Alternati
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457153.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ Rated X - 2 Albums (Promo '19 / United Front) (2019-2020) LP [MP3|320 Kbps] <Har
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456008.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ Doves - The Universal Want (2020) [MP3|320 Kbps] <Indie Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456000.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Hollywood Undead - Hotel Kalifornia (2022) [MP3|320 Kbps] <Rap Rock, Alt.Rock, E
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455568.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ Kaiser Chiefs - Stay Together (2016) [MP3|320 Kbps] <Indie Rock, Electronic>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455040.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ No Doubt - 9Albums+10Singles (1992-2012)<Alternative Rock/Pop Rock/Ska>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454669.jpg" />
 </div>
 
 
@@ -367,7 +396,7 @@ Les Friction - Les Friction (2012) [MP3|320 кб/с]<Alternative Rock, Symphonic
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453973.jpg" />
 </div>
 
 
@@ -396,7 +425,7 @@ Kasabian - The Alchemist's Euphoria (2022) [MP3|320 Kbps] <Indie Rock, Neo-Psych
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453665.jpg" />
 </div>
 
 
@@ -425,7 +454,7 @@ Blue Stahli - The Devil (2015) 2CD Deluxe Edition [MP3|320 кб/с]<Industrial R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453404.jpg" />
 </div>
 
 
@@ -454,7 +483,7 @@ Three Days Grace - 10 релизов (2003-2011) [MP3|128-320 кб/с]<Rock/Alte
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452238.jpg" />
 </div>
 
 
@@ -480,7 +509,7 @@ DREGG - The DREGGmusic Mixtape (2022) [MP3|320 Kbps] <Hardcore, Rap-Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451807.jpg" />
 </div>
 
 
@@ -509,7 +538,7 @@ Seth Bogart - Men on the Verge of Nothing (2020) [MP3|~245 Kbps (V0)] <Indie Roc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451456.jpg" />
 </div>
 
 
@@ -538,7 +567,7 @@ Sevendust - Kill The Flaw (2015) [MP3|320 кб/с]<Alt.Metal, Nu-Metal, Post-Gru
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451368.jpg" />
 </div>
 
 
@@ -567,7 +596,7 @@ Alter Bridge - The Last Hero (2016) Best Buy Edition [MP3|320 Kbps] <Alternative
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450787.jpg" />
 </div>
 
 
@@ -596,7 +625,7 @@ Audiotopsy - Natural Causes (2015) [MP3|320 кб/с]<Alt.Metal, Nu-Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449586.jpg" />
 </div>
 
 
@@ -625,7 +654,7 @@ Hounds - The Dead Town Nothing Tapes (2020) [MP3|~245 Kbps (V0)] <Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449453.jpg" />
 </div>
 
 
@@ -654,7 +683,7 @@ Downer Inc. (Kellin Quinn ft. Sleeping With Sirens) - Whatever This Is (2020) EP
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449337.jpg" />
 </div>
 
 
@@ -683,7 +712,7 @@ Militarie Gun - My Life Is Over (2020) EP [MP3|320 Kbps] <Post-Hardcore, Garage�
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447496.jpg" />
 </div>
 
 
@@ -712,7 +741,7 @@ Dogz Of War - Judgment (2022) [MP3|320 Kbps] <Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447305.jpg" />
 </div>
 
 
@@ -726,35 +755,6 @@ Dogz Of War - Judgment (2022) [MP3|320 Kbps] <Hardcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1AA4DF3C46BA6E06E695319C17ACB197E1EBD20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570032   (447290) от 15.08.2022
-
-Space Of Variations - Imago (2022) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Someone Else [00:03:28]
-02. Vein mp3 [00:03:56]
-03. Non-Human Club 2.0 [00:03:14]
-04. DNA Molecule In A Million Of Dimensions [00:03:28](   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55C9C60593EAA26B48400B95E4051703D60FE554
 ```
 
 https://mybot314.ru/tekegram_catalog/

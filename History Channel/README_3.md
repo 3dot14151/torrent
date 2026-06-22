@@ -1,3 +1,29 @@
+###  Публикация: 1244092   (485860) от 30.08.2018
+
+History Channel: Человек-калькулятор / The Human Calculator (2015) HDTVRip (4 серии из 4)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вас ждет встреча со Скоттом Флансбергом, которого называют человеком-калькулятором. Он обладает уникальной способностью за считанные секунды производить в уме сложнейшие математические вычисления. Благодаря этой способности Флансберг видит числа и закономерности буквально во всем, что его окружает. Мир состоит из скрытых, взаимосвязанных чисел: от размеров зданий (   Читать дальше...   )Производство: США, A&E Television Networks, History ChannelЖанр: Документальный, познавательное шоуПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 4 x ~ 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F2A156FE5CBB6D889D4D4CF26119B1A6AFAA68C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1055755   (483434) от 24.09.2016
 
 History Channel: Полководцы / Война вождей / Warlords (2005) SATRip (4 серии из 4)
@@ -6,7 +32,7 @@ History Channel: Полководцы / Война вождей / Warlords (2005
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483434.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ History Channel: Великая Марсианская война 1913-1917 / Th
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477730.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465477.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ History Channel: В поисках исчезнувших великанов / S
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464265.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458751.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ History Channel. Династия Трампов / Biography: The Trump Dynasty 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456441.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454675.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ History Channel. Погода, изменившая ход истории / Weat
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452422.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ History Channel: Древние пришельцы / Ancient Aliens (2020) WEB-D
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450763.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ History Channel. Между молотом и наковальней / Forged in
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446073.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ History Channel. Титаник: Тайна раскрыта / Titanic at 100: M
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435139.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ History Channel: Большая история / Big History (2013) HDTVRip [H.2
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430190.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429280.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426275.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ History Channel. Супербомбы / Rise of the Superbombs (2017) HDTVRip
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417758.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ History Channel. Супербомбы / Rise of the Superbombs (2017) HDTVRip
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417606.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ History Channel. Супербомбы / Rise of the Superbombs (2017) HDTVRip [H
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417366.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ History Channel. Северная Корея: Темные тайны / North Ko
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415060.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ History Channel. Военное противостояние / Clash of Warriors
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413913.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ History Channel. Кровь и слава. Гражданская война в 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409000.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ History Channel. Кровь и слава. Гражданская война в 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408996.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ History Channel. Кровь и слава. Гражданская война в 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408994.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ History Channel: История далекого прошлого / Deep Time Hi
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399226.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ History Channel: Библия - Секретные материалы / Bible Se
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382526.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ History Channel: Проклятие острова Оук / The Curse of Oak Isl
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375112.jpg" />
 </div>
 
 
@@ -648,33 +674,6 @@ History Channel: Проклятие острова Оук / The Curse of Oak Isl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1037CE14EF5014819CB5CABB0D2BCA0CD2FFBB49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217857   (365550) от 17.10.2018
-
-History Channel: Хит-парад древности. Первая десятка / Ancient Top 10 (2016) HDTVRip [H.264/720p-LQ] (10 серий из 10)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подробный рассказ о том, как работали древние технологии. В программе принимают участие Беттани Хьюз и Эндри Торбет, которые познакомят зрителей с десятью выдающимися изобретениями древности.
-Каждая серия будет посвящена определенной теме: «Самое смертоносное оружие», «Тайны Египта», «Древний Рим». Удивительно, каким «продвинутым» был древний мир.Производство: США, History, A&E Television NetworksЖанр: Документальный, научно-популярный, историяПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 10 x ~ 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D9EDB0D3F96D677334B8FBBD2904DB1002E310D
 ```
 
 https://mybot314.ru/tekegram_catalog/

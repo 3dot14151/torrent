@@ -6,7 +6,7 @@ Way of the Hunter (2022) [Ru/Multi] (1.28/dlc) Repack FitGirl [Ultimate Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6794.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ JDM: Japanese Drift Master (2025) [Ru/Multi] (1.1.42.1-114) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6579.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Session: Skate Sim (2022) [Ru/Multi] (1.0.6.31/dlc) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6201.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ PGA Tour 2K23 (2022) [Multi] (1.0) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4983.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Monster Energy Supercross 25 - The Official Video Game (2025) [Multi] (1585442/d
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2418.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Way of the Hunter (2022) [Ru/Multi] (1.28a/dlc) License GOG [Elite Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1392.jpg" />
 </div>
 
 

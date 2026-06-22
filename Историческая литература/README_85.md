@@ -1,3 +1,109 @@
+###  Публикация: 1191699   (263887) от 15.12.2017
+
+Ф.Олещук (ред.) | Как работают и живут в безбожном колхозе (1933) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263887.jpg" />
+</div>
+
+
+###  Подробнее
+
+В брошюре рассказано об опыте работы колхоза имени Маторина в Ленинградской области, сочетающем коллективный сельскохозяйственный труд и антирелигиозную работу.Жанр: История, политология, экономика, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD84AE9BC51A9605523B2915446D8AA0185EFE43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340571   (263583) от 24.11.2019
+
+Г. Д. Тягай | Крестьянское восстание в Корее 1893-1895 г.г. (1953) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Героический корейский народ обладает богатыми революционными традициями и славным историческим прошлым. На протяжении многовековой истории Кореи основное место принадлежит мужественной борьбе корейского народа против феодального гнета и иноземных поработителей.
+
+Корейский народ неоднократно с оружием в руках героически отстаивал свою свободу и национальную независимость. (   Читать дальше...   )Жанр: История, политология, экономика, публицистикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C273AC5F8D1E84CE19854A92609D12C25632F80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192183   (263483) от 16.12.2017
+
+Б. П. Кандидов | Церковь и гражданская война на Юге [материалы к истории религиозной контрреволюции в годы гражданской войны] (1931) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263483.jpg" />
+</div>
+
+
+###  Подробнее
+
+В статье „О значении воинствующего атеизма, напечатанной в журнале „Под знаменем марксизма" в 1922 г., т. Ленин говорил о необходимости издания литературы, которая будет содержать „много конкретных фактов и сопоставлений, показывающих связь классовых интересов и классовых организаций современной буржуазии с организацией религиозных учреждений и религиозной пропаганды". (   Читать дальше...   )Жанр: История, политология, экономика, религиоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B270F5DD36370A51137A9065DC1F85BC10222AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192524   (263051) от 17.12.2017
+
+М. Н. Покровский | Русская история в самом сжатом очерке. Часть I и II. От древнейших времен до конца ХIХ-го столетия [4-е изд.] (1933) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Покровский Михаил Николаевич (1868 - 1932), историк, академик АН СССР (1929). После революции Покровский стал непререкаемым авторитетом в области исторической науки. В основу своего учения положил теорию об общественно-экономических формациях, рассматривая историю России как их последовательную смену. В 1920 выпустил популярную "Русскую историю в самом сжатом (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE96CE424A7C2B134DD2E06464BEF730D0881DC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340940   (262902) от 26.11.2019
 
 Соломон Волков | Москва / Modern Moscow. История культуры в рассказах и диалогах (2019) [FB2]
@@ -6,7 +112,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262902.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262886.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262880.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262837.jpg" />
 </div>
 
 
@@ -113,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262806.jpg" />
 </div>
 
 
@@ -141,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262571.jpg" />
 </div>
 
 
@@ -169,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262299.jpg" />
 </div>
 
 
@@ -195,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262268.jpg" />
 </div>
 
 
@@ -223,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262105.jpg" />
 </div>
 
 
@@ -252,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261806.jpg" />
 </div>
 
 
@@ -278,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_261337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261337.jpg" />
 </div>
 
 
@@ -304,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257255.jpg" />
 </div>
 
 
@@ -331,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253759.jpg" />
 </div>
 
 
@@ -362,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252423.jpg" />
 </div>
 
 
@@ -388,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250944.jpg" />
 </div>
 
 
@@ -414,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250838.jpg" />
 </div>
 
 
@@ -440,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250125.jpg" />
 </div>
 
 
@@ -468,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250113.jpg" />
 </div>
 
 
@@ -495,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249868.jpg" />
 </div>
 
 
@@ -523,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249611.jpg" />
 </div>
 
 
@@ -549,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249479.jpg" />
 </div>
 
 
@@ -575,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246085.jpg" />
 </div>
 
 
@@ -586,112 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A9722C9CBF27207548AB1DADB7C7A1784574C5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620328   (245864) от 19.03.2023
-
-Каролина Крайнова | Чехия. Полная история страны (2023) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что приходит на ум, когда говоришь про Чехию? Готические шпили Праги и изящные пражские улочки, древний Карлов мост через Влтаву, сотни замков в уютных старинных городках и тысячи сортов вкуснейшего пива. Однако Чехия – это нечто большее. Чехия – это атмосфера спокойствия и тишины, радушие и неспешность местных жителей, размеренность жизни, красивые пейзажи: неторопливые (   Читать дальше...   )Жанр: Популярно об историиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956D20634C8273BA57A0AF954B7319F3062B6F76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065958   (245025) от 25.10.2016
-
-Г. И. Бройдо | Национальный и колониальный вопрос (1924) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245025.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярный очерк, разъясняющий основы национального вопроса в целом и национальной политики большевиков. Григорий Исаакович Бройдо (первоначально Герш Ицкович; 1883—1956) — советский государственный деятель.Жанр: История, политология, этнография, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD0C6C0EE0474DCA05FB1DD68513BCA3A77FEC4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458290   (242336) от 28.03.2021
-
-П.В. Мультатули | Господь да благословит решение моё... Император Николай II во главе действующей армии и заговор генералов (2002) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пётр Валентинович Мультатули — историк по образованию и по специальности. Закончил Государственный педагогический университет им. А.И. Герцена. Основная тема научных исследований — история России начала XX века и последнее Царствование. Особое внимание П.В. Мультатули уделяет изучению личности Государя Императора Николая II, которую считает ключевой в исторической (   Читать дальше...   )Жанр: ИсторияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:240C12121CE924D0576E529CDE889907AC0BA464
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964671   (230056) от 12.12.2015
-
-Эдвард Радзинский | Похищенное дело. Распутин (2016) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230056.jpg" />
-</div>
-
-
-###  Подробнее
-
-И опять мерещится все та же ночь – финал истории трехсотлетней империи в грязном подвале. И опять падает навзничь царь, и две девочки стоят на коленях у стены, закрывшись руками от пуль, и комендант Юровский вбегает в пороховой дым дострелить ползающего по полу мальчика…
-
-Только теперь в этом дыму я вижу еще и бородатого мужика, который столько сделал для того, чтобы (   Читать дальше...   )Жанр: Историческая проза, Биографии и МемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:745F29919519A1FD63F495664C706795C9214C17
 ```
 
 https://mybot314.ru/tekegram_catalog/

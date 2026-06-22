@@ -1,3 +1,133 @@
+###  Публикация: 1026348   (1036081) от 03.03.2023
+
+Добро пожаловать в Зомбилэнд / Zombieland (2009) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036081.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того, как США были разорены в результате нашествия зомби, от населения остаётся небольшая группа выживших, которая скитается по стране от побережья к побережью, сражаясь с живыми мертвецами. Однажды они останавливаются в парке развлечений, надеясь на то, что там они будут в безопасности.Производство: США, Pariah FilmsЖанр: Ужасы, Комедия, Приключения, ФантастикаРежиссер: Рубен Фляйшер / Ruben FleischerАктеры: Вуди Харрельсон, Джесси Айзенберг, Эмма Стоун, Эбигейл Бреслин, Эмбер Хёрд, Билл Мюррэй, Дерек Граф, Ann Margaret Swindall, Джейкоб Дж. Экинс, Хантер ЭлдриджПеревод: Дублированный, авторский (Ю. Сербин), одноголосый (М. Чадов по переводу Д. Пучкова aka Goblin)Формат: MKVПродолжительность: 01:27:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0940288C121DD007B58726A870E3B8A4C38A3C7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616606   (1036077) от 03.03.2023
+
+Супер Майк: Последний танец / Magic Mike's Last Dance (2023) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майк Лейн остается без денег после того, как у него срывается важная сделка. Теперь он вынужден подрабатывать барменом во Флориде. Но однажды у него снова появляется шанс оказаться на сцене.Производство: США / Warner Bros.Жанр: драма, комедияРежиссер: Стивен СодербергАктеры: Ченнинг Татум, Сальма Хайек, Аюб Кхан-Дин, Джемелия Джордж, Джульетт Мотамед, Вики Пеппердин, Гэвин Спокс, Алан Кокс, Кейтлин Джерард, Кристофер БенкомоПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, английскийСубтитры: английские (SDH, full)Продолжительность: 01:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2197428DA687B83B15FBA93040309BAC5B7D6D02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616499   (1036076) от 03.03.2023
+
+Девушка в бездне / Io sono l'abisso (2022) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036076.jpg" />
+</div>
+
+
+###  Подробнее
+
+В окрестностях озера Комо за десять лет пропало девять женщин схожей внешности. На его берегу находят руку неизвестной, а в этот же день мусорщик спасает тонущую девочку с фиолетовой челкой. Каким образом связаны все эти события? Женщина, называющая себя Охотницей на мух, отправляется на поиски серийного убийцы.Производство: Италия / Palomar, Sky, Vision DistributionЖанр: триллерРежиссер: Донато КарризиАктеры: Микела Ческон, Габриэль Монтези, Сара Чокка, Джордана Фаджано, Серджио Альбелли, Лидия Либерман, Андреа Герпелли, Катя Феллин, Adalgisa Manfrida, Saul NanniПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:05:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:063CC4D247B6F5F5A58AE315AA0863AA41D82627
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616527   (1036075) от 03.03.2023
+
+Маскарад / Mascarade (2022) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лазурное побережье юга Франции становится новым домом для танцовщика Адриена и роковой красавицы Марго. Девушка изменяет жизнь юноши, который на минуту забывает, что любимая живет за счет мошенничества и манипуляций с богатыми мужчинами. Гламур, деньги и роковая страсть — этот коктейль становится слишком крепким даже для опытных игроков «в чувства».Производство: Франция / Centre National de la Cinématographie (CNC), Cinémage 16, Cofimage 33Жанр: драма, мелодрама, комедия, криминалРежиссер: Николя БедосАктеры: Пьер Нинэ, Изабель Аджани, Франсуа Клюзе, Марина Вакт, Эммануэль Дево, Лаура Моранте, Шарль Берлен, Джеймс Уилби, Николя Бриансон, Мари ФабрПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:15:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBCDB29123B9037294A280A62AD63A2B22009051
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439217   (1035958) от 27.01.2021
+
+Рестлер / The Wrestler (2008) WEB-DLRip [H.264] [Open Matte]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой фильма - Рэнди «Баран» Робинсон - был звездой 80-х, но стал бледной копией самого себя. Получив инфаркт во время одного из матчей, борец услышал от врачей неприятную весть: если он продолжит выступления, то может умереть. После неудачной попытки начать другую жизнь и еще более провальной попытки наладить отношения со своей дочерью «Баран» решил участвовать (   Читать дальше...   )Производство: США, Франция / Wild Bunch, Protozoa Pictures, Saturn Films, Top RopeЖанр: Драма, СпортРежиссер: Даррен АронофскиАктеры: Микки Рурк, Мариса Томей, Ивэн Рэйчел Вуд, Марк Марголис, Тодд Бэрри, Уасс М. Стивенс, Джуда Фридлендер, Эрнест Миллер, Дилан Кит Саммерс, Томми ФарраПеревод: Дублированный (Пифагор)Субтитры: Русские (full), Английские (SDH)Продолжительность: 01:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7452D6E786062DEAB4F2A6D6136D7CFD9035C16E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442952   (1035944) от 27.01.2021
 
 Алоха / Aloha (2015) BDRip
@@ -6,7 +136,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035944.jpg" />
 </div>
 
 
@@ -33,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035913.jpg" />
 </div>
 
 
@@ -59,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035807.jpg" />
 </div>
 
 
@@ -85,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035609.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035535.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035514.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035509.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035389.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035379.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035376.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035309.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035297.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035296.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035271.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035250.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035135.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035126.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035117.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035094.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035070.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035063.jpg" />
 </div>
 
 
@@ -538,136 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:027F48652ACC7301ECB32318F43DADA1AA104D16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443769   (1035017) от 30.01.2021
-
-Дичь / Freaky (2020) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035017.jpg" />
-</div>
-
-
-###  Подробнее
-
-В среду 11-го опасный психопат по кличке Мясник, сбежавший из психбольницы для преступников, убил четырёх подростков. В руках у маньяка также оказался антикварный кинжал, с которым он следующим вечером нападает на затюканную старшеклассницу Милли, но девушке удаётся спастись. На следующий день, в пятницу 13-го, Милли просыпается на заброшенном складе в теле маньяка, (   Читать дальше...   )Производство: США / Blumhouse Productions, Divide/ConquerЖанр: Ужасы, комедия, фэнтезиРежиссер: Кристофер ЛэндонАктеры: Винс Вон, Кэтрин Ньютон, Селеста О’Коннор, Миша Ошерович, Эмили Холдер, Николас Старгел, Келли Ламор Уилсон, Митчелл Хуг, Дэна Дрори, Кэти ФиннеранПеревод: Дублированный (iTunes)Субтитры: Русские, английские (отдельно)Продолжительность: 01:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9493C935E649DC9EBBFB22E357F466EFB46B62AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617488   (1034984) от 07.03.2023
-
-Засада / Ambush (2023) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034984.jpg" />
-</div>
-
-
-###  Подробнее
-
-Капитану Драммонду, возглавляющему группу элитных коммандос, поручено собирать секретную информацию, которая может изменить судьбу войны. На краю джунглей команду атакует подавляющая невидимая сила вражеской армии, и она должна следовать за ней в сложный лабиринт тоннелей Кути, с врагом и ловушками на каждом шагу.Производство: США / ADME, BondIt, Buffalo 8 Productions, BurningBull SPFX, Dark Mark Productions, Jaguar BiteЖанр: боевик, триллерРежиссер: Марк БурманАктеры: Джонатан Риз Майерс, Аарон Экхарт, Коннор Паоло, Джейсон Дженао, Мак Брандт, Мара Лейн, Джордан Джонсон-Хиндс, Патрик Уокер, Грегори Симс, Francis ManchoПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2664F60E62DF9A28EA8B332CE7CB227B0DC92A5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444133   (1034849) от 31.01.2021
-
-Искусство ограбления / The Burnt Orange Heresy (2019) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Италия, 1970-е. Харизматичный арт-критик Джеймс Фигерас и привлекательная американка Беренис Холлис приезжают в роскошное поместье у озера Комо на севере Италии. Его владелец, адвокат и коллекционер искусства Кэссиди, делает паре необычное предложение — похитить из мастерской его знакомого художника последний шедевр этого гения-затворника. Но тщательно продуманный (   Читать дальше...   )Производство: Великобритания, Италия / Indiana Production, MJZ, Rumble Films (II)Жанр: Боевик, триллер, драмаРежиссер: Джузеппе КапотондиАктеры: Элизабет Дебики, Дональд Сазерленд, Клас Банг, Мик Джаггер, Розалинд Халстэд, Кэти МакГоверн, Обада Аднан, Алессандро Фабрици, Раснит Каур, Алексия Джастин МюррэйПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Английские (Full)Продолжительность: 01:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D155534D38A685B009D6FCDA99B201AC547340F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444135   (1034813) от 31.01.2021
-
-Искусство ограбления / The Burnt Orange Heresy (2019) BDRip [H.265] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Италия, 1970-е. Харизматичный арт-критик Джеймс Фигерас и привлекательная американка Беренис Холлис приезжают в роскошное поместье у озера Комо на севере Италии. Его владелец, адвокат и коллекционер искусства Кэссиди, делает паре необычное предложение — похитить из мастерской его знакомого художника последний шедевр этого гения-затворника. Но тщательно продуманный (   Читать дальше...   )Производство: Великобритания, Италия / Indiana Production, MJZ, Rumble Films (II)Жанр: Боевик, триллер, драмаРежиссер: Джузеппе КапотондиАктеры: Элизабет Дебики, Дональд Сазерленд, Клас Банг, Мик Джаггер, Розалинд Халстэд, Кэти МакГоверн, Обада Аднан, Алессандро Фабрици, Раснит Каур, Алексия Джастин МюррэйПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Английские  (Full)Продолжительность: 01:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9919D47F220E641311FB6672F0B1D8E79F91A629
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444168   (1034780) от 31.01.2021
-
-Контроль / Distorted (2018) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034780.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета - художница с биполярным расстройством, недавно потерявшая ребёнка. Из-за тяжёлых воспоминаний она переезжает вместе с мужем из собственного дома в квартиру в многоэтажном здании, оснащённом супертехнологичной системой безопасности. Вскоре героиня замечает, что с другими жителями многоэтажки творится что-то неладное, и нанимает журналиста из отдела (   Читать дальше...   )Производство: Канада / Bridgegate Pictures, Minds Eye Entertainment, Movie Trailer HouseЖанр: Триллер, криминал, детективРежиссер: Роб В. КингАктеры: Кристина Риччи, Брендан Флетчер, Виселос Реон Шеннон, Джон Кьюсак, Николь Энтони, Оливер Райс, Гиги Джекман, Бенжамин ДеУолт, Майя Милькович, Скотт ОлинекПеревод: Многоголосый профессиональный (iTunes)Язык озвучки: Русский, украинский, английскийСубтитры: Английские (PGS)Продолжительность: 01:26:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1897BAEAA77C79BAC34786FC47B4F6907506E868
 ```
 
 https://mybot314.ru/tekegram_catalog/

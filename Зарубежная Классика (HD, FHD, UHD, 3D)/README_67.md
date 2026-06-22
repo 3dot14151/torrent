@@ -1,3 +1,56 @@
+###  Публикация: 265517   (279374) от 16.12.2013
+
+Как украсть миллион / How to Steal a Million (1966) HDTV [H.264/1080i-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_279374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отец Николь, парижский антиквар Шарль Бонне купается в деньгах и славе. Картина Сезанна из его коллекции только что ушла с аукциона по неслыханной цене, музей "Клебер Лафайет" выставляет принадлежащую ему статуэтку Венеры работы Челлини как главный экспонат открывающейся выставки. Венера бесценна, но музейные правила требуют застраховать ее, приглашены (   Читать дальше...   )Производство: США / World Wide ProductionsЖанр: Мелодрама, Комедия, КриминалРежиссер: Уильям УайлерАктеры: Одри Хепберн, Питер О’Тул, Илай Уоллак, Хью Гриффит, Шарль Буайе, Фернан Гравей, Марсель Далио, Жак Марен, Мусташ, Роже ТревильПеревод: Советский дубляж; двухголосый закадровыйСубтитры: нетПродолжительность: 01:58:18
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336396   (278458) от 07.11.2019
+
+Синьор Робинзон / Il signor Robinson, mostruosa storia d'amore e d'avventure / Mr. Robinson (1976) BDRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Робинзон Крузо проходит через множество комичных ситуаций, пока ему не удается хоть как-то освоиться на острове. У него появляется даже Пятница — только на этот раз это темнокожая красавица, с которой Робинзон поначалу тщетно пытается найти общий язык.
+Современный Робинзон не хочет отказываться от благ цивилизации и придумывает, как заменить телевизор, радио и все (   Читать дальше...   )Производство: Италия / Vides CinematograficaЖанр: мелодрама, комедия, приключенияРежиссер: Серджио КорбуччиАктеры: Паоло Вилладжо, Зеуди Арая Кристальди, Перси Хоган, Анна НогараПеревод: Дублированный, Многоголосый, ДвухголосыйСубтитры: РусскиеПродолжительность: 01:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB260DC9E51675D6C85E836C70D9346E3D09EEF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336635   (277193) от 08.11.2019
 
 Неукротимая Анжелика / Indomptable Angelique (1967) BDRip [H.265/1080p] [10-bit]
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277193.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276708.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276648.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276639.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275759.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275654.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275105.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274405.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273983.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273384.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272860.jpg" />
 </div>
 
 
@@ -293,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272728.jpg" />
 </div>
 
 
@@ -319,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272724.jpg" />
 </div>
 
 
@@ -345,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272364.jpg" />
 </div>
 
 
@@ -371,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272362.jpg" />
 </div>
 
 
@@ -397,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272350.jpg" />
 </div>
 
 
@@ -423,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272087.jpg" />
 </div>
 
 
@@ -450,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271877.jpg" />
 </div>
 
 
@@ -476,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271180.jpg" />
 </div>
 
 
@@ -502,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_270307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_270307.jpg" />
 </div>
 
 
@@ -528,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269565.jpg" />
 </div>
 
 
@@ -554,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269517.jpg" />
 </div>
 
 
@@ -580,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269057.jpg" />
 </div>
 
 
@@ -606,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268576.jpg" />
 </div>
 
 
@@ -618,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:811BFAED4FBC9559F1378B2F7F614329E6FBC326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186285   (268516) от 08.12.2017
-
-Пираты кровавой реки / The Pirates of Blood River (1969) Blu-ray [H.264/1080p] [Custom]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268516.jpg" />
-</div>
-
-
-###  Подробнее
-
-XIX век, поселение гугенотов на Карибских островах. Джонатан Стендиш, несправедливо обвиненный в связи с замужней женщиной, изгнан из родной деревни и отправлен в поселение для преступников, откуда он по воле случая попадает в руки пиратов. Капитан морских разбойников Ла Рош уверен, что в деревне Джонатана находятся некие сокровища, и хочет, чтобы юноша привел его (   Читать дальше...   )Производство: Великобритания, Hammer Film Productions LimitedЖанр: Приключения, драмаРежиссер: Джон ДжиллингАктеры: Кервин Метьюс, Кристофер Ли, Эндрю Кир, Оливер Рид, Марла ЛандриПеревод: Многоголосый (5-й канал СПб)Субтитры: АнглийскиеПродолжительность: 01:54:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA2FB1D690A984D61F4559BF9969F1D13326BAC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266063   (265573) от 07.12.2018
-
-Воздушные приключения / Those Magnificent Men in Their Flying Machines or How I Flew from London to Paris in 25 hours 11 minutes (1965) BDRip [H.265/1080p] [10-bit]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265573.jpg" />
-</div>
-
-
-###  Подробнее
-
-1910. Газетный магнат лорд Ронслей, желая доказать, что Великобритания N 1 не только на море, но и в воздухе, назначает приз в 10 тысяч фунтов тому, кто выиграет авиагонку через Ла-Манш, организованную газетой «Daily Post». В борьбу за приз вступают американский ковбой Орвил Ньютон вместе с дочерью лорда Патрисией, бравый лейтенант британских военно-воздушных сил (   Читать дальше...   )Производство: Великобритания / 20th Century FoxЖанр: Комедия, Приключения, СемейныйРежиссер: Кен ЭннакинАктеры: Стюарт Уитман, Сара Майлз, Джеймс Фокс, Альберто Сорди, Роберт Морли, Герт ФрёбеПеревод: Дублированный, профессиональный многоголосый, авторскийСубтитры: НетПродолжительность: 02:18:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF8C1EC202FDD4DA279CD364423BC2879175ED4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1648335   (207986) от 26.07.2023
+
+Фриско Кид / The Frisco Kid (1979) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207986.jpg" />
+</div>
+
+
+###  Подробнее
+
+1850 год. Новоиспечённый ортодоксальный раввин Авраам Белински решил добраться из Филадельфии до Сан-Франциско верхом. Единственное, что он знает о Калифорнии — что она «где-то неподалеку от Нью-Йорка». К счастью, Авраам знакомится с бывалым ковбоем Томом Лиллардом, который готов протянуть руку помощи. Путь в Сан-Франциско - весьма рискованное мероприятие - принесёт (   Читать дальше...   )Производство: США, Warner Bros. PicturesЖанр: комедия, приключения, вестернРежиссер: Роберт ОлдричАктеры: Джин Уайлдер, Харрисон Форд, Рамон Биери, Вал Бизольо, Джордж ДиЧенцо, Лео Фухс, Пенни Пейсер, Уильям Смит, Джек Сомак, Бидж Баркетт, Шэй Даффин, Уолтер Яновитц, Джо Кэпп, Клайд Кусацу, Клиффорд А. ПеллоуПеревод: профессиональный многоголосый, авторский, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские (leonid55), английскиеКачество: BDRipПродолжительность: 01:58:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E75BDC3C678B7F86794C09039C3AA4D53FF06B50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606771   (207861) от 08.02.2023
+
+...иначе мы рассердимся / ...altrimenti ci arrabbiamo! (1974) BDRip [H.264/720p] [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жил да был один мафиози местного значения. И задумал он, по совету своего психолога, возвыситься, разорив беззащитный парк аттракционов и построив на его месте огромный небоскрёб. И всё бы у него получилось, если бы под горячую руку распоясавшихся рэкетиров не попалась дюна-багги, любимый автомобиль двух приятелей, голубоглазого красавца и медведеподобного толстяка. (   Читать дальше...   )Производство: Италия, Испания, Capital Films, Filmayer S.A., Rizzoli Film S.p.a.Жанр: комедия, боевикРежиссер: Марчелло ФондатоАктеры: Теренс Хилл, Бад Спенсер, Пэтти Шепард, Деогратиас Уэрта, Джон Шарп, Мануэль де Блас, Луис Барберо, Дональд Плезенс, Эмилио Лагуна, Рафаэль АльбачинПеревод: профессиональный двухголосый, авторский (Николай Живаго)Язык озвучки: русский, английский, итальянскийСубтитры: английскиеПродолжительность: 01:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE164DBB9BC0F1C359ACCF38433837A53DF50BCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607165   (207458) от 13.02.2023
 
 Неприятности с Гарри / The Trouble with Harry (1955) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207458.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207454.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207250.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206824.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206644.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206592.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206097.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205353.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205237.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204812.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204810.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204573.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204234.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204112.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203959.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203880.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203809.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203761.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203679.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203645.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203640.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203572.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203307.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203120.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7540D3E88E86C7DA0D137C436B792B47BF0FD392
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608605   (202629) от 17.02.2023
-
-Фриско Кид / Парень из Сан-Франциско / The Frisco Kid (1979) BDRemux [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202629.jpg" />
-</div>
-
-
-###  Подробнее
-
-На дворе 1850-ый год – новоиспеченный ортодоксальный раввин Авраам Белински решил добраться из Филадельфии до Сан-Франциско… верхом на лошади. Единственное, что знает о Калифорнии незадачливый ездок – это то, что она «где-то неподалеку от Нью-Йорка». К счастью, Авраам знакомится с бывалым ковбоем Томом Лиллардом, который готов протянуть руку помощи. Путь в Сан-Франциско (   Читать дальше...   )Производство: США / Warner BrosЖанр: комедия, приключения, вестернРежиссер: Роберт ОлдричАктеры: Джин Уайлдер, Харрисон Форд, Рамон Биери, Вал Бизольо, Джордж ДиЧенцо, Лео Фукс, Пенни Пейсер, Уильям Смит, Джек Сомак, Биджи БаркеттПеревод: Многоголосый профессиональный (ТВ3), Авторский (П.Карцев)Язык озвучки: Русский, АнглийскийСубтитры: Английские (PGS)Продолжительность: 01:58:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:252D10C4726D064D5678BE51EF5210A36429CC07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615314   (202281) от 25.02.2023
-
-Индиана Джонс и последний крестовый поход / Indiana Jones and the Last Crusade (1989) UHD BDRip [H.265/2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третья часть невероятных похождений прославленного археолога и искателя приключений Индианы Джонса. На этот раз бесстрашный Индиана разыскивает самую таинственную реликвию в истории человечества - Святой Грааль. В этом археологу помогает его отец – профессор Джонс старший. Теперь под бдительным оком своего отца и при помощи своих верных талисманов, неизменной шляпы (   Читать дальше...   )Производство: США / Lucasfilm Ltd., Paramount PicturesЖанр: приключения, боевик, комедияРежиссер: Стивен СпилбергАктеры: Харрисон Форд, Шон Коннери, Денхолм Эллиотт, Элисон Дуди, Джон Рис-Дэвис, Джулиан Гловер, Ривер Феникс, Майкл Бирн, Кеворк Маликян, Роберт ЭддисонПеревод: Профессиональный многоголосыйЯзык озвучки: русский, украинский, английскийСубтитры: русские, английские (full, SDH)Продолжительность: 02:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEFF70C0725B216B73441BA44682A56F2EABD3DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ VA - Drum & Bass Party Hits, Mini Mix Vol. 2 - Extended Versions (2024) [MP3|320
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38582.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - This Is Bass 2024 (2024) [MP3|320 Kbps] <Breaks, Breakbeat>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32084.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Pola & Bryson - Fabriclive presents Pola & Bryson (2025) [MP3|320 Kbps] <Drum & 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4414.jpg" />
 </div>
 
 

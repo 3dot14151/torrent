@@ -1,3 +1,55 @@
+###  Публикация: 1806756   (11509) от 14.07.2025
+
+Сокровища затонувших кораблей (1973) DVDRip  [H.264]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трое детей из пионерского лагеря искали в Чёрном море затонувший корабль. Они отправились в море на надувном матрасе. Матрас начал сдуваться и дети оказались в открытом море. Детей спасли дельфины и помогли добраться до научного подводного аппарата «Нептун-25». Освоив управление подводным аппаратом, дети исследовали морское дно и обнаружили затонувший корабль, оказавшийся (   Читать дальше...   )Производство: СССР / СоюзмультфильмЖанр: рисованная анимация, мультфильм, детский, короткометражкаРежиссер: Владимир Попов, Владимир ПекарьАктеры: Люсьена Овчинникова, Людмила Гнилова, Нина Гуляева, Светлана Немоляева, Василий ЛивановСубтитры: отсутствуютПродолжительность: 00:16:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE7E656FFBA991C463623E0AB511829CE42219C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808259   (10581) от 23.07.2025
+
+Лошарик (1971) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Про цирковую лошадку из деревянных шариков, которая лучше всех выступала в цирке.Производство: СССР / СоюзмультфильмЖанр: мультфильм, короткометражкаРежиссер: Иван УфимцевАктеры: Рина Зелёная, Анатолий Папанов, Георгий Вицин, Всеволод Ларионов, Борис РунгеСубтитры: отсутствуютПродолжительность: 00:09:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FB2B19A18DC78DB92B4B7209FF5E821E4DA8FF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808361   (10468) от 24.07.2025
 
 Большой Ух (1989) DVDRip
@@ -6,7 +58,7 @@
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10468.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ SOS (1973) DVDRip
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10466.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9730.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9236.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8540.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5802.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4548.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4542.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63.jpg" />
 </div>
 
 

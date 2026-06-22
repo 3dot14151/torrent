@@ -1,3 +1,55 @@
+###  Публикация: 915735   (557377) от 04.08.2015
+
+Discovery. Катастрофа на колесах / Wheels That Fail (2014) HDTVRip [Серии 1-10]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герои этой программы съехали с катушек – когда они за рулем, это просто катастрофа! Такой подборки видео о происшествиях на колесах вы еще не видели: Discovery Channel выбрал самые смешные, самые опасные и самые захватывающие ролики, где автомобили и мотоциклы сталкиваются, переворачиваются, взрываются, падают в воду, летят под откос – и этот список можно продолжать (   Читать дальше...   )Телекомпания: США, Discovery ChannelЖанр: Документальный, ТелепередачаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: Серия по ~00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EE753E04ED803DFBDF2F600A1CDA6029F28B1E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307197   (555169) от 08.06.2019
+
+Discovery: Коварная Земля / Rogue Earth (2018) HDTVRip [H.264/1080p-LQ] (серии 1-2)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Недавние изменения климата Земли привели к возникновению экстремальных погодных явлений. Ураганы, торнадо, жара и наводнения стали более частыми и непредсказуемыми.Производство: Канада, Discovery CanadaЖанр: Документальный, природа, катаклизмыРежиссер: Джо УичаПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~ 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41EEDBAFEB0AB550A71180507001CE65DC543074
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916792   (553075) от 22.07.2018
 
 Discovery: История изобретений. С чего всё начиналось / Origins [серии 1-15,17-26 из 26] (2013) SATRip [обновляемая]
@@ -6,7 +58,7 @@ Discovery: История изобретений. С чего всё начин�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553075.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551783.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551736.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551733.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551692.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551678.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551649.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Discovery. Короли столярного дела  / Redwood KINGS (2013) HD
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549345.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Discovery: Эд Стаффорд: Выживание без купюр (Голо
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548910.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547624.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Discovery. Титаник. Ответы из Бездны / Titanic. Answers fro
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546464.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545982.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Discovery: Мегаперевозки / Mega Shippers (2016) HDTVRip [H.264/720p
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544619.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Discovery. Пешком вдоль Нила / Walking the Nile (2015) HDTV [H.26
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544501.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542219.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ Discovery:  Жизнь отвратительных животных / Nasty by 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542139.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ Discovery: Искусство выживания Рэя Мирса / Ray Mears B
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541825.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540330.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ Discovery. Новые захоронения Египта / Egypt's New Tomb Rev
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538460.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ Discovery. Инженерия невозможного / Impossible Engineering 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536826.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ Discovery: Неделя акул / Shark Week (2017) HDTVRip [H.264/720p-LQ] (С
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536755.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ Discovery: Люди: Кто мы? Нашествие людей / People: Who ar
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536152.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ Discovery: Войны за моллюсков / Dive Wars Australia (2014) HDTVR
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534448.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ Discovery. GameStop: вызов Уолл-стрит / GameStop: The Wallstreet H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528587.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ Discovery. GameStop: вызов Уолл-стрит / GameStop: The Wallstreet H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F0E9395725368CB63A384D4D6AA593F66CF1A81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052906   (527305) от 15.09.2016
-
-Discovery: Кто подставил Иисуса? / Who Framed Jesus? (2010) SATRip
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из величайших загадок всех времен: кто в действительности несет ответственность за смерть Иисуса? Для выявления виновных мы изучаем движущие мотивы основных подозреваемых.Телекомпания: США, Discovery WorldЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 01:28:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3FBE9E3AC16592CD025FA6C11BC82EA077932B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053490   (526032) от 17.09.2016
-
-Discovery: Неизвестная история Египта / The Hidden History of Egypt (2001) SATRip
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Египет - земля фараонов, пирамид, колоссальных монументов и огромных древних храмов. Но известный телеведущий Терри Джонс увлекает зрителей в удивительное путешествие в повседневную жизнь простых людей, которые жили три тысячи лет назад. Как они одевались, что ели и пили, как работали, каковы были взаимоотношения мужчин и женщин, для чего накладывали грим? Все это (   Читать дальше...   )Телекомпания: США, Discovery ChannelЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89A90B188C8AF65B5DB5017B1BC2BA314DF63078
 ```
 
 https://mybot314.ru/tekegram_catalog/

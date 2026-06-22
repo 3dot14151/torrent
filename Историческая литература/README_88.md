@@ -1,3 +1,108 @@
+###  Публикация: 1637938   (197484) от 06.06.2023
+
+Андрей Антипов | Лев Рохлин: Жизнь и смерть генерала (1998) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эхо выстрела, оборвавшего жизнь генерала Льва Рохлина, будет звучать еще очень долго. На небосклоне общественной жизни России последних лет фигура Рохлина выделялась своей неординарностью и авторитетом, чтобы вот так сразу подвести черту под его жизнью и загадочными обстоятельствами смерти. Боевой «окопный» генерал, он и в политике действовал как солдат — прямо и (   Читать дальше...   )Жанр: историко-биографический, политологияЯзык: РусскийФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D93768FC30910141132EE00BA167AFB18D061535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641098   (196850) от 20.06.2023
+
+Энн Эпплбаум | ГУЛАГ (2003) [PDF, FB2, EPUB, MOBI]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Энн Эпплбаум – это не только полная, основанная на архивных документах и воспоминаниях очевидцев, история советской лагерной системы в развитии, от момента создания в 1918-м до середины восьмидесятых. Не менее тщательно, чем хронологию и географию ГУЛАГа, автор пытается восстановить логику палачей и жертв, понять, что заставляло убивать и что помогало выжить. (   Читать дальше...   )Жанр: История РоссииФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED733AFB7B09C4973C293D59D5B11BDEDDECA55C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650314   (194400) от 13.08.2023
+
+Джозеф Пистоне | Донни Браско: моя тайная жизнь в мафии. Правдивая история агента ФБР Джозефа Пистоне (2023) [FB2, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агент ФБР Джозеф Д. Пистоне, изображающий из себя преступника по имени Донни Браско, провел самую дерзкую операцию в истории ФБР, работая под прикрытием шесть лет, чтобы проникнуть в самые закрытые круги мафии.
+Теперь его незабываемый рассказ оживляет весь мафиозный мир — их кодекс чести и предательство, их жен, подруг и любовниц, их расточительные траты и грязные (   Читать дальше...   )Жанр: Автобиографическая, криминальнаяИздательство: Питер КлассФормат: FB2, PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F533669AE8D40B3E6D156675B872F4776D73604C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827627   (193390) от 22.10.2025
+
+Юрий Сушко | Владимир Высоцкий. По-над пропастью (2011) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кем же был Владимир Высоцкий? Гениальный поэт, хулиган, бабник, экзальтированный циник, нежный романтик, великий исполнитель, алкоголик и наркоман, блестящий артист - кто он? Творческие взлеты и падения, невероятная популярность, безумная любовь, агрессия - все этапы его жизни до сих пор вызывают множество споров. Каковы на самом деле были отношения с Мариной Влади? (   Читать дальше...   )Жанр: Биографии и МемуарыИздательство: Астрель, Русь-Олимп, ХарвестФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BFD1ADF860B075166AAF8C034E7363219AE0D03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587004   (192859) от 30.10.2022
 
 В.Литвинов | Поезд из ночи (1989) [PDF]
@@ -6,7 +111,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192859.jpg" />
 </div>
 
 
@@ -34,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192563.jpg" />
 </div>
 
 
@@ -60,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192007.jpg" />
 </div>
 
 
@@ -86,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191758.jpg" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190786.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189939.jpg" />
 </div>
 
 
@@ -164,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189938.jpg" />
 </div>
 
 
@@ -190,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187059.jpg" />
 </div>
 
 
@@ -216,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186799.jpg" />
 </div>
 
 
@@ -242,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186757.jpg" />
 </div>
 
 
@@ -270,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_186030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186030.jpg" />
 </div>
 
 
@@ -296,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_185946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_185946.jpg" />
 </div>
 
 
@@ -325,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185715.jpg" />
 </div>
 
 
@@ -351,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185114.jpg" />
 </div>
 
 
@@ -378,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183900.jpg" />
 </div>
 
 
@@ -404,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183326.jpg" />
 </div>
 
 
@@ -430,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183142.jpg" />
 </div>
 
 
@@ -457,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182226.jpg" />
 </div>
 
 
@@ -483,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181463.jpg" />
 </div>
 
 
@@ -510,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180299.jpg" />
 </div>
 
 
@@ -537,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179890.jpg" />
 </div>
 
 
@@ -564,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179646.jpg" />
 </div>
 
 
@@ -576,110 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EC9B5474540CCFF1E5205E01D013CE244D07493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428972   (178160) от 04.12.2020
-
-Светлана Ульянова, Илья Сидорчук | Пагубные страсти населения Петрограда–Ленинграда в 1920-е годы. Обаяние порока (2020) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поведение, не принимаемое обществом или законом, существует в любом социуме. Проблемы наркомании, алкоголизма, проституции и прочие пагубные страсти являются частью массовой культуры и предметом научного изучения. Книга посвящена асоциальным и нетрадиционным формам свободного времяпрепровождения жителей Петрограда—Ленинграда в 1920-е годы. Этот период выбран не случайно. (   Читать дальше...   )Жанр: Культурология, Популярно об историиФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ED5AD639E018E018E4CEEA744E921F1D9E8FDF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429298   (177579) от 05.12.2020
-
-Зигфрид Штейнберг | История книгоиздания в Европе. Пять веков от первого печатного станка до современных технологий (2020) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследование З.Г. Штейнберга прослеживает историю наборной печати от ее возникновения в XV веке в мастерской Гутенберга до радикальных инноваций, технических новшеств XX века, от зарождения и формирования всех характерных качеств книгопечатания до новых методов производства, распространения книг и постоянно меняющихся привычек читателей. Автор в своих наблюдениях (   Читать дальше...   )Жанр: Издательское дело, Популярно об историиПеревод: Татьяна ШуликоваФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AE61EEAE63CCCDFD97E291DA8D37505F523D0C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429545   (176618) от 06.12.2020
-
-Сесил Рот | Иудеи в Венецианской республике. Жизнь в условиях изоляции (2021) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сесил Рот – известный британский исследователь и крупнейший специалист по истории евреев, автор многих трудов по названной теме, представляет венецианскую жизнь еврейской общины XV—XVII вв. Основываясь на исторических исследованиях и документальных материалах, Рот создал яркую, интересную и драматичную картину повседневной жизни евреев в Венецианской республике на (   Читать дальше...   )Жанр: Культурология, Популярно об историиПеревод: Л.А. ИгоревскийФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B020E4CC2F2351E6FF96537E52583262315700F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429543   (176553) от 06.12.2020
-
-Де Лейси О`Лири | Доисламская история арабов. Древние царства сынов Востока (2020) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель настоящей книги британского востоковеда, специалиста по истории ислама и древних языков Де Лейси О’Лири – показать читателю, что доисламская Аравия, являясь центром арабского сообщества, не была страной, изолированной от культурного влияния Западной Азии и от политической и социальной жизни своих соседей на Ближнем Востоке. В книге подробно рассматриваются древние (   Читать дальше...   )Жанр: История Древнего мира, Востоковедение, Популярно об историиПеревод: Л.А. ИгоревскийФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D172F6D851C681CCBE5A15FA9372B1EA2C3CBBF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

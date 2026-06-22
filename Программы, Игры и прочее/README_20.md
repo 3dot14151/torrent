@@ -1,3 +1,29 @@
+###  Публикация: 1436598   (1043045) от 01.01.2021
+
+War of Kings: Эпическая Стратегия PvP v69 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043045.jpg" />
+</div>
+
+
+###  Подробнее
+
+War of Kings: Эпическая Стратегия PvP - многопользовательская стратегия в сеттинге средневековья с эпичным геймплеем, качественной графикой и крутым саундтреком.Тип издания: Пиратка (Мод)Релиз состоялся: 27 декабря 2020 г.Разработчик: Falcon Studios.Поддерживаемая ОС: Android 4.4 и вышеЖанр: СтратегияЯзык интерфейса: Русский есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D33448E2348880EB5F23FA57527ADD794955D098
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436608   (1043041) от 01.01.2021
 
 FarmVille 2 v16.6.6412 [Ru]
@@ -6,7 +32,7 @@ FarmVille 2 v16.6.6412 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043041.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ IRPlus - IR-Remote (Пульт) v1.9.13 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043026.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043020.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ StrikeBox: Sandbox & Shooter v1.4.6 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043017.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043006.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Eternium v1.5.32 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043005.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042860.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Stickman Dragon Fight v1.1.3 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042785.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Solar System Scope v3.2.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042730.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042423.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Free Guitar Tuner v4.0.0 Premium [En] - Fender Tune
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042261.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ MobiDic Guitar Chords v2.6 Pro [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042250.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042236.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ FINAL FANTASY III v2.0.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042212.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ Garmin: TOPO Great Britain v2 PRO [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042098.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ Garmin: Adria TOPO v5 PRO [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042089.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Folio v3.6.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042006.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ GnaCAD v2.8.48 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041995.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041987.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ Best Fiends Stars v2.5.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041941.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041704.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ DAILY NOTE v4.2.2 Premium [Ru/Multi] - Ежедневные заметки, дн
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041697.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ Grand War European Conqueror v3.3.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041686.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ CHUCHEL v2.0.14 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041597.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041553.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28EF3EA1A8D8F341C023B1D71519A99C850C5243
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437939   (1041458) от 07.01.2021
-
-Don't Push The Wrong Button 2 v1.0 [En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Don't Push The Wrong Button 2 - Самый реалистичный и сложный на данный момент симулятор обезвреживания бомбы для Android стал еще лучше. Игра была кардинально переработана и дополнена новыми функциями и улучшенной графикой. Вас ждет 60 уровней с множеством различных модулей и типов бомб. Решайте разные загадки и головоломки за отведенное время, чтобы обезвредить (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 3 января 2021 г.Разработчик: Rene WahlПоддерживаемая ОС: Android 5.0+Жанр: Симуляторы, ГоловоломкиЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E3174F56934C1FAA4A1E98F84DD3DD84A9C7ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

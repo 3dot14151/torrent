@@ -1,3 +1,59 @@
+###  Публикация: 1707125   (62870) от 15.03.2024
+
+Qubes OS 4.2.0 [x64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Qubes OS — ориентированная на безопасность настольная операционная система, которая призвана обеспечить безопасность через изоляцию. Виртуализация осуществляется на базе Xen. Пользовательская среда может быть основана на Fedora, Debian, Whonix, Windows и других операционных системах.
+
+16 февраля 2014 года Qubes стал финалистом в премии Access Innovation Prize 2014 (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C125502E34EAE434EDEDF0D148A6104B20DB39F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707176   (62819) от 16.03.2024
+
+Kodachi Linux 8.27 [x64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Linux Kodachi - дистрибутив операционной системы Linux, который разработан с акцентом на приватность, анонимность и безопасность пользователей. Он основан на более популярном дистрибутиве Xubuntu и предлагает ряд уникальных функций и инструментов для обеспечения конфиденциальности и защиты данных.
+
+Главной особенностью работы Linux Kodachi является принудительное (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:439B1A185D120E786197A816B477A4E5D2D06FD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707920   (62583) от 18.03.2024
 
 SystemRescue 11.00 [amd64] 1xCD
@@ -6,7 +62,7 @@ SystemRescue 11.00 [amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62583.jpg" />
 </div>
 
 
@@ -34,7 +90,7 @@ Clonezilla Live (stable) 3.1.2-9 [i686, i686-pae, amd64] 3xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62577.jpg" />
 </div>
 
 
@@ -62,7 +118,7 @@ Debian 12.5 [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62498.jpg" />
 </div>
 
 
@@ -91,7 +147,7 @@ CentOS 9 Stream [x86_64 / aarch64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62486.jpg" />
 </div>
 
 
@@ -118,7 +174,7 @@ Fedora 39 Workstation / Server / Spins / Atomic [x86_64] 19xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62485.jpg" />
 </div>
 
 
@@ -145,7 +201,7 @@ MX Linux 23.2 [i386 / AMD64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62477.jpg" />
 </div>
 
 
@@ -173,7 +229,7 @@ openmediavault 7.0-32 [x86_64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62473.jpg" />
 </div>
 
 
@@ -200,7 +256,7 @@ Ubuntu 23.10.1 (Mantic Minotaur) [amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62469.jpg" />
 </div>
 
 
@@ -227,7 +283,7 @@ Red Hat Enterprise Linux 9.3 [x86_64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62455.jpg" />
 </div>
 
 
@@ -255,7 +311,7 @@ SparkyLinux 7.3 / 2024.02 Rolling Edition [x86_64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62452.jpg" />
 </div>
 
 
@@ -282,7 +338,7 @@ Rocky Linux 9.3 [x86_64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62449.jpg" />
 </div>
 
 
@@ -308,7 +364,7 @@ KDE neon 6.0.2 [x86_64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61945.jpg" />
 </div>
 
 
@@ -335,7 +391,7 @@ GParted LiveCD 1.6.0-3 [i686, i686-pae, amd64] 3xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60323.jpg" />
 </div>
 
 
@@ -361,7 +417,7 @@ Ubuntu EducationPack 18.04 (апрель 2024) [amd64]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59105.jpg" />
 </div>
 
 
@@ -390,7 +446,7 @@ Fedora 40 Workstation / Server / Spins / Atomic [x86_64] 19xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58590.jpg" />
 </div>
 
 
@@ -417,7 +473,7 @@ Ubuntu 24.04 Noble Numbat LTS [amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58481.jpg" />
 </div>
 
 
@@ -444,7 +500,7 @@ Red Hat Enterprise Linux 9.4 [x86_64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57221.jpg" />
 </div>
 
 
@@ -472,7 +528,7 @@ Ubuntu EducationPack 20.04 (май 2024) [amd64][Multi]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56891.jpg" />
 </div>
 
 
@@ -501,7 +557,7 @@ Oracle Linux 9.4 [x86_64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56313.jpg" />
 </div>
 
 
@@ -527,7 +583,7 @@ Ubuntu EducationPack 22.04 (май 2024) [amd64] [Multi]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55437.jpg" />
 </div>
 
 
@@ -556,7 +612,7 @@ FreeBSD 13.3 [i386, amd64] 2xDVD
 >>ОС *BSD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54414.jpg" />
 </div>
 
 
@@ -582,7 +638,7 @@ UALinux CyberPack FaP 20.04 [Multi]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53046.jpg" />
 </div>
 
 
@@ -608,7 +664,7 @@ Tails 6.4 [amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52733.jpg" />
 </div>
 
 
@@ -634,7 +690,7 @@ Transmission for Linux 4.0.6 (38c164933e) [x32, x64] (tar.xz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48049.jpg" />
 </div>
 
 
@@ -646,61 +702,6 @@ Transmission, в отличие от многих других BitTorrent кли
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EECB44D091D0CBF8AF81C8C185CCFEAC6BFCDB48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741566   (47599) от 07.08.2024
-
-Master PDF Editor for Linux 5.9.50 [x86_64, arm64] (deb, rpm, tar.gz)
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Master PDF Editor - это простая в использовании, но максимально эффективная программа для работы с PDF документами. С ее помощью Вы легко сможете просматривать, создавать и редактировать, объединять несколько файлов в один и разделять исходный файл на несколько документов, комментировать, шифровать, подписывать и печатать интерактивные PDF документы. Программа оснащена (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25976DD5F351D6571D3E0D6986CB807899CDD62A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742178   (47303) от 10.08.2024
-
-Zapret v.60 for Linux [x86, x86_64] (elf)
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автономное, без задействования сторонних серверов, средство противодействия DPI.
-Может помочь обойти блокировки или замедление сайтов http(s), сигнатурный анализ tcp и udp протоколов,
-например с целью блокировки VPN.
-(   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8EF70EA103933DEA7216BCB1B52BC94A82FEFA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

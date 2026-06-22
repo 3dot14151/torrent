@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823269.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822957.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Skedio v2.0.3 [Ru/Multi] - векторное рисование
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822522.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Adguard для Android Premium 2.9.37 beta [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821940.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Muse Insight - умный плеер для ВКонтакте 0.13.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821406.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821319.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821054.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820945.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_820847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_820847.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820397.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819652.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819189.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_819181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_819181.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818776.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ eBay 4.2.1.1 (AdFree Mod) [Rus]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818713.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818702.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818646.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817897.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816670.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ The Jungle Book / Книга Джунглей / Маугли 1.1.1  (SEGA Genesi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816621.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816533.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Teenage Mutant Ninja Turtles - The Hyperstone Heist / TMNT / Черепашки 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816438.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ RAM Manager Pro 8.7.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816370.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815802.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815434.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Mortal Skies 1.03 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815150.jpg" />
 </div>
 
 

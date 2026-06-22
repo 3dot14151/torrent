@@ -1,3 +1,107 @@
+###  Публикация: 1797230   (8161) от 13.08.2025
+
+CyberCorp (2024) [Ru/Multi] (1.03) Repack Let'sРlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8161.jpg" />
+</div>
+
+
+###  Подробнее
+
+2084 год. Банды. Перенаселение. Кровь. Преступные группировки захватили бедные районы Омни-сити - мегаполиса на краю западной Европы, в котором выживают разные слои населения. От бессилия мэр заключает договор с могущественной частной военной компанией CyberCorp в надежде победить преступность. Вы - боец КиберКорпа. В ваших руках уникальная и опасная технология - (   Читать дальше...   )Тип издания: RepackРазработчик: Megame LLCЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11151AD1197EFC78523B25DF93F21678CB083C7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801487   (7960) от 14.08.2025
+
+Warhammer 40,000: Space Marine (2025) [Multi] (4326/dlc) License GOG [Master Crafted Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7960.jpg" />
+</div>
+
+
+###  Подробнее
+
+40,000: Space Marine возвращается. Улучшено для нового поколения! Наслаждайтесь качеством жизни и графическими улучшениями, которые выводят опыт Warhammer 40,000: Space Marine на новый уровень. Шагните в доспехи беспощадного космического десантника и используйте комбинацию смертоносного оружия, чтобы сокрушить подавляющие силы орков. Погрузитесь в напряженный и жестоко (   Читать дальше...   )Тип издания: LicenseРазработчик: SneakyBox, Relic EntertainmentЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, Итальянский, Немецкий, Французский и другиеЯзык субтитров: Английский, Итальянский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Итальянский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:310685DF455985E1265C0103C6789C244EB7DEFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812411   (7916) от 14.08.2025
+
+Lost in Random: The Eternal Die (2025) [Ru/Multi] (29915/dlc) Repack Let'sРlay [Complete]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lost in Random: The Eternal Die объединила динамичный экшен в реальном времени, тактические бои и механику игры в кости. Станьте главной фигурой истории королевы Александры, некогда великой правительницы Случая, которая отправляется на поиски мести и искупления. Вооружитесь арсеналом из четырех видов оружия, откройте мощные способности, основанные на картах, используйте (   Читать дальше...   )Тип издания: RepackРазработчик: Stormteller GamesЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AA6C220C8DA0289C2ECAEDBD5CB9B44E449E9C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654311   (7828) от 15.08.2025
+
+The Slormancer (2021) [Multi] (1.0.2c) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7828.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Slormancer - эпическая двухмерная экшен-RPG с исследованием подземелий, в которой вам предстоит стать частью отряда изгоев, сражающегося с полчищами врагов во главе со Слормантом. Играйте за "Могучего" Рыцаря, "Свирепую" Охотницу или "Озорного" Мага, осваивайте сотни способностей и врожденных умений, обзаводитесь снаряжением, защищайте (   Читать дальше...   )Тип издания: LicenseРазработчик: Slormite StudiosЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Английский, Французский, Китайский (упрощенный) и другиеЯзык интерфейса: Английский, Французский, Китайский (упрощенный) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C3CE3379BB2E51FCBB9442B7A657206484D9CE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779652   (7820) от 15.08.2025
 
 Avowed (2025) [Ru/Multi] (1.5.1.0/dlc) Repack Wanterlude
@@ -6,7 +110,7 @@ Avowed (2025) [Ru/Multi] (1.5.1.0/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7820.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Chained Echoes (2022) [Multi] (1.344/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7819.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Darkest Dungeon (2016) [Ru/Multi] (26186a/dlc) License GOG [Soundtrack Editon]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7817.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Vagrus: The Riven Realms (2021) [En] (1.2100730/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7816.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ The Last Spell (2023) [Ru/Multi] (1.2.20.2/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7814.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Ys: The Oath in Felghana (2012) [En] (2020.03.11) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7801.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Ys X (10): Nordics (2024) [Multi] (1.0.9/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7776.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Scrapnaut (2021) [Ru/Multi] (1.6.17) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7736.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Barony (2015) [En] (4.3.2-150625-hf2/dlc) License GOG [Blessed Addition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7604.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ The Edge of Allegoria (2024) [Multi] (1.0.1.22) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7589.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Dragon Ruins II (2) (2025) [En] (250701) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7586.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ False Skies (2022) [En] (1.12aa) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7583.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Everafter Falls (2024) [Multi] (2.1.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7579.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Tales and Tactics / Tales & Tactics (2023) [Multi] (1.2 Build 19453510) Scene Te
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7352.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Survive the Fall (2025) [Ru/Multi] (1.1.4.2506/dlc) License GOG [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7166.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Starfield (2023) [Ru/Multi] (1.15.222.0/dlc) Repack Wanterlude [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7165.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Slayer: The Demon Haunted World (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6988.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Warsim: The Realm of Aslona (2022) [En] (1.3.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6718.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Soulstone Survivors (2022) [Ru/Multi] (1.2.3.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6699.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ System Shock 2: 25th Anniversary Remaster (2025) [Multi] (1.2.4546) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6574.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ System Shock 2 (2025) [Ru/Multi] (1.2.4244.0) Repack Let'sРlay [25th Anniversar
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6546.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Last Epoch (2024) [Ru/Multi] (1.3) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6380.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Last Epoch – приключенческая экшен-игра с глубо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A38426C620E8C6E7EAF41E125E4325ADB6986B5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788007   (6379) от 23.08.2025
-
-AI Limit (2025) [Ru/Multi] (1.1.001/dlc) Repack Let'sРlay [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6379.jpg" />
-</div>
-
-
-###  Подробнее
-
-В далеком будущем, когда цивилизация находится на грани вымирания, люди следуют легенде об Элизиуме в последнем городе, Хэвенсуэлле. В этой постапокалиптической пустоши в жанре научно-фантастической ARPG вы будете играть за Аррису, Блейдера. После внезапного, но загадочного краха искусственной экосистемы последовали стихийные бедствия и войны, цивилизация была уничтожена.Тип издания: RepackРазработчик: Sense GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0688F52752FCD408B75D054DB0CF350831D8E299
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814270   (6215) от 24.08.2025
-
-Grand Emprise 2: Portals Apart (2025) [Ru/Multi] (1.0) Repack seleZen
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Атмосферное приключение на выживание с крафтом и строительством, где вы путешествуете через магические порталы в фантастические миры. Каждый портал ведёт в уникальную локацию с собственными ресурсами, боссами и биомами. Игрок собирает материалы, создаёт инструменты, строит базу с энергетическими станциями и сражается с мощными врагами в динамичных сражениях.Тип издания: RepackРазработчик: Tbjbu2Жанр: Экшены, Приключенческие игры, Инди, Ролевые игры, СимуляторыЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2143F6C6E9F2C0BEA06A44081BBE2C64A345CF84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814470   (6197) от 24.08.2025
-
-Tale of Immortal (2021) [Ru/Multi] (1.2.111.259/dlc) Repack seleZen
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tale of Immortal, песочница с открытым миром, глубоко укоренившаяся в китайской мифологии и культивации, приглашает игроков в захватывающий опыт, где путь к бессмертию проложен через стратегический выбор и покорение мифических чудовищ из "Классики гор и сезонов". Ваше путешествие, как начинающего культиватора на стадии очищения ци, начинается в деревне (   Читать дальше...   )Тип издания: RepackРазработчик: Lightning GamesЖанр: Экшены, Приключенческие игры, Ролевые игры, СимуляторыЯзык субтитров: Русский, Английский, Китайский (упрощенный), Китайский (традиционный)Язык интерфейса: Русский, Английский, Китайский (упрощенный), Китайский (традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30A9EA5F6BD3501727954666B324AD442DD3AB8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772494   (6195) от 24.08.2025
-
-The Last Flame (2024) [Ru/Multi] (1.0.3) Repack seleZen
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра The Last Flame представляет собой бесконечную игру-"рогалик" с функцией автоматического ведения боя, которая строится на принципах создания уникальных билдов, реализации неповторимой стратегии и принятии верных решений. В ходе каждого игрового раунда вам предстоит создавать неповторимые билды, чтобы покорить новые высоты и перейти на новые уровни, (   Читать дальше...   )Тип издания: RepackРазработчик: HotloopЖанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык субтитров: Русский, Английский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Китайский (упрощенный) и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED13E7E211BA9902B24B2114F9BE296C913819E
 ```
 
 https://mybot314.ru/tekegram_catalog/

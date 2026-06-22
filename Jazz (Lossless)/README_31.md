@@ -6,7 +6,7 @@ Duke Jordan - Trio & Quintet (1955) 2010, Columbia[FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945075.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Dave Douglas & Frank Woeste - Dada People (2016) Greenleaf Music[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945071.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Duke Jordan - Blue Duke (1983) 2007, BMG[FLAC|Lossless|image + .cue] <Hard Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945052.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Bobby Hutcherson - Oblique (1967) Remaster, 2014, Universal[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945049.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ New Generation (Новое поколение) - Two-Face Janus (Двулики�
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945047.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Billie & De De Pierce and Jim Robinson's New Orleans Band - Jazz At Preservation
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945038.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Duke Jordan - Flight to Denmark (1973) 2008, SteepleChase[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944979.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Enrico Pieranunzi Trio - New Lands (1984) Remaster, 2015, Solid Records[FLAC|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944041.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Lola Haag - Romantico (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Latin>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943946.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Gene Krupa & Buddy Rich - Krupa And Rich (1955) 1994, Verve[FLAC|tracks+.cue] <M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943876.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Andrea Superstein - What Goes On (2015) [FLAC|Lossless|WEB-DL|tracks] <Vocal-Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943861.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ The Cinematic Orchestra - To Believe (2020) Remixes [FLAC|Lossless|WEB-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943813.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Chantal Chamberland - Soiree (2014) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943807.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Duke Jordan - Double Jordan (1979) 2CD, 1997, SteepleChase[APE|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943237.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Perico Sambeat Ensemble - Plays Zappa (2016) Nuba Records[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943224.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Charles Mingus Group - Debuts Rarities Vol. 4 (1952, 1953) Remaster, 1994, U
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943139.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Euge Groove - Still Euge (2016) [FLAC|Lossless|tracks] <Jazz, Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943022.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Brian Simpson - Persuasion (2016) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942919.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Nathan East (Fourplay) - Reverence (2017) [FLAC|Lossless|tracks + .cue] <Smooth 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942916.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Ted Curson & Company - Jubilant Power (2008) Inner City Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942681.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Nat Adderley - The Scavenger (1968) Remaster, 2013, Universal[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942367.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Tom Scott - Rural Still Life (1968) Remaster, 2015, Universal[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942355.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941769.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Art Pepper with Duke Jordan - In Copenhagen 1981 (1996) 2CD, Galaxy[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941766.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Gregory Porter - Live In Berlin (2016) 2CD, Universal[FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941685.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Sergey Mikhaylenko (Сергей Михайленко) & XYZ Quartet - Trump Car
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941669.jpg" />
 </div>
 
 

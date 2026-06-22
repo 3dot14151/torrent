@@ -1,3 +1,133 @@
+###  Публикация: 1609295   (203228) от 02.02.2023
+
+The Legend of Kyrandia: Hand of Fate - Book Two (1993) [Multi] (1.0) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Земли Кирандии исчезают пядь за пядью, и вам, неординарной юной чародейке, предстоит проникнуть в центр мира, чтобы разрушить проклятье. Это сюрреалистическое приключение заставит пораскинуть мозгами самых проницательных. Путешествуя по огромному странному и прекрасному миру, вы будете варить зелья, творить заклинания и привлекать на помощь очень странных жителей, (   Читать дальше...   )Тип издания: LicenseРазработчик: Westwood StudiosЖанр: Приключeние, Квест, ФэнтeзиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF2391A085175863DDC654EFFF5FDB613EEBBE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610028   (203090) от 05.02.2023
+
+The House of Da Vinci 3 (2022) [Ru/Multi] (1.0.1) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великое завершение трилогии «Дома Да Винчи» грядет! Вас ожидает множество новых загадок, захватывающая история и высокое качество исполнения, за которое все и полюбили эту серию игр. Время финала пришло: в последний раз станьте Джакомо, другом и учеником великого мастера наук и искусств Леонардо да Винчи. Исследуйте наполненный загадками мир эпохи Возрождения, находите (   Читать дальше...   )Тип издания: LicenseРазработчик: Blue Brain GamesЖанр: Adventure, Strategy, PuzzleЯзык озвучки: Английский, ЧешскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:512E602A2B97915391CA0C820D7A1A58F3061422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613221   (202595) от 18.02.2023
+
+Loretta (2023) [Ru/Multi] (1.1.7) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Loretta - визуальная новелла, в которой предстоит выступить в неожиданной перспективе, став соучастником преступления. Главной героиней выступает девушка по имени Лора. Вместе с ней потребуется пройти настоящий кошмар. Игра выполнена в жанре психологического триллера. Игровой процесс Loretta строится на основе выборов. Любое принятое решение влияет на дальнейшее (   Читать дальше...   )Тип издания: LicenseРазработчик: Yakov ButuzoffЖанр: Приключение, Point & ClickЯзык субтитров: Русский, Английский, Японский, Корейский и другиеЯзык интерфейса: Русский, Английский, Японский, Корейский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC0DB93218C2FEA282E3A83FAE7F8BDE5F4BDE44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613706   (202582) от 19.02.2023
+
+Hike Isle (2023) [En] (1.0.2) Scene DARKSiDERS
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hike Isle предлагает игрокам отправиться в путешествие по таинственному острову. По сюжету туда главный герой приплыл на лодке. Протагонист довольно быстро перемещается. Он может пользоваться лестницами и заходить в некоторые постройки. Также присутствует возможность осматриваться. Большая карта вмещает в себя десятки локаций и большое количество разных сооружений.Тип издания: SceneРазработчик: Morning Shift StudiosЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5EDE0FD4E677979426E5C636753BD637CB76FE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830051   (202442) от 26.10.2025
+
+Labyrinthine (2023) [Ru/Multi] (Build 19882271/dlc) Repack Pioneer [Supporter Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Labyrinthine - кооперативная хоррор игра, которая научит Вас не останавливаться внутри лабиринта. Вы и три ваших друга могут почувствовать совместный опыт в истории от Джона, работника лабиринта, а также почувствовать мистическую составляющую этого места. Здесь все зависит от Вашего выбора, и помните, Вы не одни! Игровой процесс в Labyrinthine нацелен на совместное (   Читать дальше...   )Тип издания: RepackРазработчик: Valko Game StudiosЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC684EECD2CF30F242858785E3E5BE92290B0CBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325284   (202441) от 26.10.2025
 
 Truberbrook / Trüberbrook: A Nerd Saves the World (2019) [Ru/Multi] (1.6-fix) License GOG
@@ -6,7 +136,7 @@ Truberbrook / Trüberbrook: A Nerd Saves the World (2019) [Ru/Multi] (1.6-fix) L
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202441.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Jenny LeClue - Detectivu (2019) [Ru/Multi] (2.2.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202440.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Midnight Scenes: The Highway (2020) [Ru/Multi] (1.27a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202384.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Remorse: The List (2022) [Multi] (1.1.1/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202295.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Undead Wilderness: Survival (2023) [Ru/Multi] (0.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202282.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Through the Darkest of Times (2020) [Ru/Multi] (1.04.03.1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202246.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Fort Solis (2023) [Ru/Multi] (Build 11938463) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202244.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Unto The End (2020) [Ru/Multi] (1.61) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202243.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Fort Solis (2023) [Ru/Multi] (Build 11938463) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202219.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ The Wreck (2023) [Multi] (1.0.0) License GOG [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202177.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ FAR: Lone Sails (2018) [Ru/Multi] (1.31) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202176.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ Subnautica (2018) [Ru/Multi] (83031) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201765.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ A Building Full of Cats (2022) [Ru/Multi] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200943.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Failure Drill (2023) [En] (0.9.4.0) Scene Tenoke [16+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200933.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Outcast 1.1 (1999) [Multi] (18970) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200730.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ Spelljammer: Pirates of Realmspace (1992) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200513.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Oxide Room 104 (2022) [Ru/Multi] (1.0.5) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200193.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Neighbours Back From Hell (2020) [Ru/Multi] (1.2.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_200003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_200003.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Before I Forget (2020) [Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198871.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ Everlight: Of Magic & Power / Хроники Мелвина. Проклятье 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198799.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ Backfirewall_ (2023) [Ru/Multi] (10567133) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198540.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ Backfirewall_ – приключение, которое понравится л
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:344F38D7A4E92C061640525DE26B92CDDFF71BB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634381   (198170) от 20.05.2023
-
-Infliction: Extended Cut (2018) [Ru/Multi] (3.0.1) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Infliction – психологический хоррор с главным героем убийцей. Мужчина убил свою жену, и теперь его преследует неупокоенный дух. Сможет ли грешник выбраться из замкнутого круга вины и отчаяния – временной петли, где он умирает снова и снова? Чтобы узнать реальную картину произошедшего, нужно искать дневники и читать записки, спрятанные на локациях. Окружение постоянно (   Читать дальше...   )Тип издания: LicenseРазработчик: Caustic RealityЖанр: Приключение, От первого лица, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:829B243370BA3A537A02E45C91572058BC093A7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637453   (197562) от 04.06.2023
-
-Hello Goodboy (2023) [Multi] (1.0.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hello Goodboy - это добрая и интересная история про приключения мальчика Ико, который совсем недавно в загробном мире. Он совершенно не помнит, как здесь оказался. Остается полагаться на Коко - удивительно знакомого пса, который поможет разгадать тайны его нового существования. Путешествуйте, по неизвестным, но таким знакомым местам, знакомьтесь с другими душами, (   Читать дальше...   )Тип издания: LicenseРазработчик: Rolling Glory JamЖанр: Adventure, Puzzle, ExplorationЯзык субтитров: Английский, КитайскийЯзык интерфейса: Английский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F72149902D08D8BDAE4DFC5D938DD552441D6BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637477   (197467) от 04.06.2023
-
-Killer Frequency (2023) [Ru/Multi] (1.0) Scene Rune [VR]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключенческий симулятор с потрясающими саундтреками в жанре ретровейв и потрясающей атмосферой, будто вы находитесь в хоррор фильмах 80-х. Вам предстоит управлять харизматичным ведущим ночной радиопрограммы. Форест Нэш всей душой обожает свою работу, а в преддверии Хэллоуина он с радостью задает настроение подходящей музыкой и пугающими историями, но в один день (   Читать дальше...   )Тип издания: SceneРазработчик: Team17 DigitalЖанр: Adventure, SimulationЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Китайский, Португальский Бразильский и другиеЯзык интерфейса: Русский, Английский, Китайский, Португальский Бразильский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32C087BA5E4A9D65B42646FAB37F9211F7A1E567
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638139   (197357) от 07.06.2023
-
-Amnesia: The Bunker (2023) [Ru/Multi] (1.2) Repack dixen18
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Amnesia: The Bunker - хоррор от первого лица от создателей игр SOMA и Amnesia. Вы остались в одиночестве с единственной пулей в барабане револьвера в опустевшем бункере времен Первой мировой войны, где вам предстоит столкнуться с ужасом, таящимся во тьме. Любой ценой не дайте погаснуть свету и выберитесь живым. Погрузитесь в неподдельно гнетущую атмосферу ужаса.Тип издания: RepackРазработчик: Frictional GamesЖанр: Adventure, FPP, HorrorЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10BEBFED201B7CCB420FD7925E6806D0EBD0ADCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638820   (197309) от 10.06.2023
-
-Voodoo Detective (2022) [En] (0.0.31) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы ищете приключений, вы найдёте их в Voodoo Detective – сенсации в жанре квест! Новый Гинен – маленький островной городок с богатой культурой Вуду, переполненный сетевыми магазинами и кишащий привилегированными туристами. Здесь местный колорит и колониальная коррупция сталкиваются в отчаянной борьбе за выживание.Тип издания: LicenseРазработчик: Short Sleeve Studio, LLCЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3A2DCF9D659D819031C2FD27C96971B26C9BFE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

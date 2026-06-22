@@ -1,3 +1,55 @@
+###  Публикация: 600635   (998559) от 09.01.2013
+
+Kasino feat Elicia Solis - All For You (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hip-hopПродолжительность: 00:04:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A1018CC895AE8DFD80A348D2779E1B80D6F147
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600638   (998531) от 09.01.2013
+
+Gotay El Autentiko - Sexo Toda La Noche (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C29AAC356EF5AF60371C98D64036970C11E5F919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600636   (998523) от 09.01.2013
 
 EarAbuse - Phonography (Uncensored) (2012) [H.264/720p] WEBRip
@@ -6,7 +58,7 @@ EarAbuse - Phonography (Uncensored) (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998523.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ DJ Shog - Another World (10 Years) (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998364.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Kim Sori - Dual Life (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998332.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998260.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998019.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Eloy - The Legacy Box DVD 1 (русские субтитры) (2011) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997817.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ Black Veil Brides - Legion Of The Black (2012) [H.264/1080p-LQ] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997663.jpg" />
 </div>
 
 
@@ -197,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996877.jpg" />
 </div>
 
 
@@ -226,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996648.jpg" />
 </div>
 
 
@@ -261,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995990.jpg" />
 </div>
 
 
@@ -290,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995809.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995794.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995789.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995702.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ ABBA - ABBA (Deluxe Edition) (2012) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995498.jpg" />
 </div>
 
 
@@ -437,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995443.jpg" />
 </div>
 
 
@@ -466,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995439.jpg" />
 </div>
 
 
@@ -495,7 +547,7 @@ Dance Hits 90's - Retro Dance Party (2011) [H.264] DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995366.jpg" />
 </div>
 
 
@@ -521,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994639.jpg" />
 </div>
 
 
@@ -550,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994637.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Armin van Buuren feat. Fiora - Waiting For The Night (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994136.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ Lindsey Stirling and the Piano Guys - Mission Impossible (2013) [H.264/1080p] WE
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993983.jpg" />
 </div>
 
 
@@ -631,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993278.jpg" />
 </div>
 
 
@@ -657,7 +709,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993219.jpg" />
 </div>
 
 
@@ -669,61 +721,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D91D305D346CF2244699F404FD6F9D43E61C474F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352456   (993218) от 16.01.2020
-
-Александр Константинов и проект Babooshka (Старуха Изергиль) Music Videos 5X (2019) WEB-DL [H.264/720p/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993218.jpg" />
-</div>
-
-
-###  Подробнее
-
-2019 Babooshka - Детей надо пороть! [1080p]
-2019 Babooshka - Надо больше церквей! [1080]
-2019 Babooshka - Отмороженные во Христе [720]
-2019 Babooshka - Стань скином! [1080](   Читать дальше...   )Жанр: Chanson, Post-PunkПродолжительность: 00:15:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04FE6744D0EB8153E1A8D37D726E9E2EB570585F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608797   (992790) от 26.01.2013
-
-Becky G feat Will.I.Am - Problem [The Monster Remix] (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: pop, r.n.bПродолжительность: 00:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69CF207DBC789D7B76F98070D3BBE5402269B045
 ```
 
 https://mybot314.ru/tekegram_catalog/

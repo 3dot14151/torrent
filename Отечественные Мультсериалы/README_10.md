@@ -1,29 +1,3 @@
-###  Публикация: 1630545   (198974) от 02.05.2023
-
-Незнайка на Луне (1997-1999) DVD5 (сезон 1, серии 1-12 из 12)
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Незнайка находит на улице камень и считает, что этот камень упал с Луны. Он отдаёт его Знайке. На следующий день Знайка заметил, что при действии на камень магнитного поля камень создаёт невесомость. Знайка принял решение сделать ракету и полететь вместе с остальными коротышками на Луну, предварительно устроив спор с астрономом Стекляшкиным, о том, есть ли на Луне (   Читать дальше...   )Производство: Россия, FAF EntertainmentЖанр: мультфильм, фантастика, фэнтези, комедия, приключенияРежиссер: Юрий Бутырин, Александр Люткевич, Андрей ИгнатенкоАктеры: Венера Рахимова, Кристина Орбакайте, Светлана Степченко, Алексей Борзунов, Клара Румянова, Александр Леньков, Ирина Бякова, Артем Карапетян, Михаил Кононов, Светлана ХарлапСубтитры: ОтсутствуютПродолжительность: 02:31:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF3A79961846E91C3A9F0939ED12F7FFDAF30898
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997672   (197631) от 31.05.2023
 
 Смех и грех (Мультфильмы для взрослых) (2002) WEBRip [H.264] (серии 1-9 из 9)
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197631.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197386.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197368.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197308.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195408.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194229.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192002.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190351.jpg" />
 </div>
 
 
@@ -232,58 +206,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662550   (187728) от 18.09.2023
-
-Детектив Финник (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-26 из 26)
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Думаете, Берг тихий и спокойный городок? Как бы не так — он полон тайн и загадок. То вдруг остановятся все часы, то по рельсам проедет трамвай-призрак, то внезапно все улицы заполонят странные собаки. Но жители могут спать спокойно, ведь на страже порядка — Финник, первый в мире детектив-домовой. Этот сыщик обладает уникальным методом проб и ошибок и всегда готов (   Читать дальше...   )Производство: Россия | Группа Компаний «Рики»Жанр: Vультфильм, приключения, комедия, детектив, детскийРежиссер: Илья Максимов, Рафаэль Тер-Саргсян, Константин БирюковАктеры: Михаил Хрусталёв, Вероника Голубева, Иван Чабан, Борис Хасанов, Светлана Кузнецова, Михаил Черняк, Андрей Лёвин, Владимир Маслаков, Сергей Мардарь, Ксения БржезовскаяСубтитры: ОтсутствуютПродолжительность: ~00:07:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE4149266E66C0BC8A500DDC29F18E203A781C38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662552   (187700) от 18.09.2023
-
-Детектив Финник (2022) WEBRip [H.264/720p] (сезон 1, серии 1-26 из 26)
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Думаете, Берг тихий и спокойный городок? Как бы не так — он полон тайн и загадок. То вдруг остановятся все часы, то по рельсам проедет трамвай-призрак, то внезапно все улицы заполонят странные собаки. Но жители могут спать спокойно, ведь на страже порядка — Финник, первый в мире детектив-домовой. Этот сыщик обладает уникальным методом проб и ошибок и всегда готов (   Читать дальше...   )Производство: Россия | Группа Компаний «Рики»Жанр: мультфильм, приключения, комедия, детектив, детскийРежиссер: Илья Максимов, Рафаэль Тер-Саргсян, Константин БирюковАктеры: Михаил Хрусталёв, Вероника Голубева, Иван Чабан, Борис Хасанов, Светлана Кузнецова, Михаил Черняк, Андрей Лёвин, Владимир Маслаков, Сергей Мардарь, Ксения БржезовскаяСубтитры: ОтсутствуютПродолжительность: ~00:07:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8DE3C738B1F3B466CB383439E5DAF7BD6311211
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593537   (180339) от 27.11.2022
 
 Доктор Айболит (1984-1985) BDRemux (серии 1-7 из 7) [H.264/1080p]
@@ -292,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180339.jpg" />
 </div>
 
 
@@ -318,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179276.jpg" />
 </div>
 
 
@@ -344,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176642.jpg" />
 </div>
 
 
@@ -370,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176432.jpg" />
 </div>
 
 
@@ -396,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173357.jpg" />
 </div>
 
 
@@ -422,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163343.jpg" />
 </div>
 
 
@@ -449,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162007.jpg" />
 </div>
 
 
@@ -476,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158666.jpg" />
 </div>
 
 
@@ -502,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158635.jpg" />
 </div>
 
 
@@ -528,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156770.jpg" />
 </div>
 
 
@@ -554,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149049.jpg" />
 </div>
 
 
@@ -580,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147615.jpg" />
 </div>
 
 
@@ -606,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144783.jpg" />
 </div>
 
 
@@ -632,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144681.jpg" />
 </div>
 
 
@@ -659,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143505.jpg" />
 </div>
 
 
@@ -670,6 +592,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7F0EE6AA7DB68596DF73C7B08D65CCB3A499C80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220930   (143409) от 27.12.2018
+
+Осторожно, Земляне! (2017-2018) WEBRip [H.264/720p-LQ] (Сезон 1-4, Серии 1-60 из 60)
+
+>>След.
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое межгалактическое шоу производства Студии анимации 2х2!
+Инопланетное вторжение уже началось. Разумные гуманоиды потерпели крушение на территории России и вышли на контакт… Но удастся ли им найти общий язык с представителями местной фауны и их двустволками? Внимание! При встрече с инопланетянами не кормите их сахаром (и не мочите после полуночи, но это не точно).Производство: РоссияЖанр: Приключения, Комедия, СиткомРежиссер: Евгений Кузнецов, Кирилл Данильченко, Анна МалинаСубтитры: ОтсутствуютПродолжительность: 60x ~00:15:10Реклама: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0506431C15798E33ABA38E5B5DCACCFC8C6E3A67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658903   (143085) от 22.11.2023
+
+Простоквашино (2018-2023) WEBRip [H.264/1080p] (сезон 1-4, серии 1-106 из 106 + бонусы)
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Казалось, никакие бури внешнего мира не смогут поколебать привычный и размеренный ход деревенской жизни Простоквашино. Время как будто застыло. Все так же каждое утро Матроскин дегустирует свежее молоко, полученное от своей любимицы - коровы Мурки. Все так же Шарик проводит время в окрестных лесах, «фотоохотясь» на редкую дичь. Правда, теперь он научился выкладывать (   Читать дальше...   )Производство: Россия | «Союзмультфильм»Жанр: Мультфильм, детскийРежиссер: Михаил Солошенко, Евгения Жиркова, Анна КузинаАктеры: Антон Табаков, Гарик Сукачев, Павел Деревянко, Алексей Онежен, Мигель Родригез, Иван Охлобыстин, Юлия Меньшова, Андрей Тенетко, Ольга Голованова, Беата СуховаСубтитры: ОтсутствуютПродолжительность: ~00:06:30 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A75131FA19DCB67AFA9E3F1E51C4ED68980BAE1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 694979   (142886) от 28.12.2017
+
+Барбоскины (2012-2017) SATRip/WEBRip (Серии 101-180) [Обновляемая]
+
+>>След.
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мама, папа и… пятеро щенят. У Барбоскиных все, как у людей. Папа свободное время проводит за компьютером, дочери увлекаются модой и слушают Жанну Киску, а сыновья играют в футбол и мечтают о Нобелевской премии.Телекомпания: РоссияЖанр: Мультсериал, Анимация, ДетскийРежиссер: Дмитрий ЯковенкоСубтитры: ОтсутствуютПродолжительность: Каждая серия ~ 00:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFE32F0BF8FFAACD0D6D0B13EBD5CE62D4C763EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

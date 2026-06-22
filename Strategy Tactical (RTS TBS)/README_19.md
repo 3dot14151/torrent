@@ -1,3 +1,29 @@
+###  Публикация: 1762461   (36178) от 25.11.2024
+
+Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (1.02.001) Repack Let'sРlay
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя пятьсот лет мира над Анталой нависла новая опасность. Ее судьба зависит от вас, Име. Вы — Лисфанга Нового Королевства и его защитница. Древние города, ранее запертые во времени, теперь снова свободны и старое зло вырвалось наружу, угрожая мирной жизни. Но вы будете не одна. Сама Богиня времени одарила вас силой повелевать временем — такой силой не обладал (   Читать дальше...   )Тип издания: RepackРазработчик: Sand Door StudioЖанр: Экшены, Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:032FD1565C320C9653252EF736D0F4E6E3AA7699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729146   (36116) от 26.11.2024
 
 Dune: Spice Wars (2023) [Ru/Multi] (2.2.2.32791/dlc) Repack Wagner
@@ -6,7 +32,7 @@ Dune: Spice Wars (2023) [Ru/Multi] (2.2.2.32791/dlc) Repack Wagner
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36116.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ The Troop (2023) [Ru/Multi] (Build 20241125/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35378.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ This War of Mine (2014) [Ru/Multi] (6.0.0/dlc) Repack Let'sРlay [Final Cut]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34651.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.15.0/dlc) Scene R
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34480.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ This War of Mine (2014) [Ru/Multi] (6.0.0/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34332.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Warcraft III (3): Reforged (2020) [Ru/En] (2.0.1.22498) Repack Decepticon
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33102.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Mount & Blade II: Bannerlord (2020) [Ru/Multi] (1.2.12.54620) Repack Wanterlude
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32905.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ The Legend of Heroes: Trails from Zero (2022) [Multi] (1.4.13) License GOG [Extr
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32898.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Warhammer 40,000: Mechanicus (2018) [Ru/Multi] (1.4.11/dlc) Repack Let'sРlay [C
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32527.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Men of War II (2024) [Ru/Multi] (1.041/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32485.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ This War of Mine (2014) [Ru/Multi] (6.0.0/dlc) Repack FitGirl [Complete Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31820.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Toy Tactics (2023) [Ru/Multi] (1.1E) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31638.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Red Solstice 2: Survivors (2021) [Ru/Multi] (3.16/dlc) Repack Wagner
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31554.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Galactic Civilizations IV (4) (2023) [Ru/Multi] (2.92/dlc) Repack FitGirl [Super
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31297.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Dynasty Warriors: Origins (2025) [Multi] (1.0.0.2/dlc) Repack FitGirl [Digital D
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30925.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Root (2020) [Ru/Multi] (1.32/dlc) Repack Let'sРlay [Collector's Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30871.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Dynasty Warriors: Origins (2025) [Multi] (1.0.0.2/dlc) Repack DjDI [Digital Delu
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30812.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Terra Exodus (2025) [En] (43.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30692.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ The Great War: Western Front (2023) [Ru/Multi] (Build 822194/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28596.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Status One (2025) [Ru/Multi] (1.1.0) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28541.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Exogate Initiative (2023) [Multi] (1.0.0.97bd92b) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28190.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Sumerian Six (2024) [Ru/Multi] (1.0.3) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28118.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Thronefall (2024) [Ru/Multi] (2.12) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28096.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Door Kickers (2014) [Ru/Multi] (1.1.6) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27945.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Door Kickers 2: Task Force North (2020) [Ru/Multi] (1.00) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27751.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Door Kickers 2 Task Force North – великолепное сочетание 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CCA36A80CACB8A06755A75B808D3FA2197EE75C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779958   (27451) от 16.02.2025
-
-Fantasy General II (2019) [Ru/Multi] (01.02.12913/dlc) Repack Let'sРlay [Complete]
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Триста лет прошло со времён Войн Теней, прогремевших по Кельдонии и всему Аэру. Тяготы минувших дней давно стали лишь преданиями старины. В Нагорьях Фареха воинствующие кланы варваров боролись за выживание в суровых северных условиях, постоянно враждуя друг с другом и совершая набеги на зажиточные города Приграничья.Тип издания: RepackРазработчик: Owned by GravityЖанр: СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78AF4702CB96DC14D71337A16E95C935B9867FD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

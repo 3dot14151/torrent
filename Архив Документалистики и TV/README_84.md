@@ -1,3 +1,32 @@
+###  Публикация: 1203352   (788659) от 01.02.2018
+
+Биатлон. Чемпионат Европы 2018. Риднау-валь-Риданна (Италия). Супермикст (28.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788659.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 января 2018 года, воскресенье. 15:00 МСК
+Открытый чемпионат Европы по биатлону 2018 года. Риднау-валь-Риданна (Италия)
+Супермикст
+Арена: Риднау (Риднау-валь-Риданна, Италия)Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 00:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC370BC2166A3BDD1C608827739580F8E3AD9FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203360   (788656) от 01.02.2018
 
 Биатлон. Чемпионат Европы 2018. Риднау-валь-Риданна (Италия). Смешанная эстафета (28.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
@@ -6,7 +35,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788656.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Cкелетон. Кубок мира 2017-2018. Санкт-Мориц (Швей�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787708.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787706.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787702.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787698.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786386.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786369.jpg" />
 </div>
 
 
@@ -203,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786292.jpg" />
 </div>
 
 
@@ -232,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786286.jpg" />
 </div>
 
 
@@ -258,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785841.jpg" />
 </div>
 
 
@@ -287,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785838.jpg" />
 </div>
 
 
@@ -316,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785826.jpg" />
 </div>
 
 
@@ -345,7 +374,7 @@ Monster Energy NASCAR Cup Series 2017. Этап 7 - Texas. Гонка (2017) WEB
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785819.jpg" />
 </div>
 
 
@@ -372,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785678.jpg" />
 </div>
 
 
@@ -400,7 +429,7 @@ Virgin Australia Supercars Championship. Сезон 2017. Tasmania. Этап 2. 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785657.jpg" />
 </div>
 
 
@@ -426,7 +455,7 @@ Virgin Australia Supercars Championship. Сезон 2017. Tasmania. Этап 2. 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785656.jpg" />
 </div>
 
 
@@ -452,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785598.jpg" />
 </div>
 
 
@@ -481,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785399.jpg" />
 </div>
 
 
@@ -510,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785398.jpg" />
 </div>
 
 
@@ -539,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785357.jpg" />
 </div>
 
 
@@ -568,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785145.jpg" />
 </div>
 
 
@@ -594,7 +623,7 @@ AMA Supercross Championship: Salt Lake City (08.06.2020) WEB-DL [H.264/1080p-LQ]
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785140.jpg" />
 </div>
 
 
@@ -620,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784958.jpg" />
 </div>
 
 
@@ -649,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784950.jpg" />
 </div>
 
 
@@ -678,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784948.jpg" />
 </div>
 
 
@@ -692,35 +721,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F09C31C420A07D5A7BA7704A61A3ECEF775F7CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204271   (784938) от 05.02.2018
-
-Лыжные гонки. Кубок мира 17-18. 7-й Этап. Планица (Словения). Женщины. Индивидуальная гонка 10 км. Классический стиль (21.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784938.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 января 2018 года, воскресенье. 11:30 МСК
-7-й Этап Кубока Мира по лыжным гонкам 2017-2018.
-Планица (Словения).
-Женщины. Индивидуальная гонка 10 км. Классический стильТелекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:01:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B2F19B544B0B2678C82F2FE4737E99C933573B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

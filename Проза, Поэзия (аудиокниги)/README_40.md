@@ -1,3 +1,83 @@
+###  Публикация: 1130249   (716656) от 01.05.2017
+
+Григорий Ходжер | Непроглядные сумерки (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный дальневосточный писатель рассказывает о событиях на Амуре в годы жестоких репрессий 1937-1938 годов.
+Григорий Гибивич Хо́джер (1929—2006) — советский нанайский писатель. Член КПСС с 1954 года.Жанр: Проза, романПродолжительность: 22:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2717035B26723F120181DDFA79EA1A6972BAF9FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129623   (716541) от 01.05.2017
+
+Григорий Ходжер | Колан (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716541.jpg" />
+</div>
+
+
+###  Подробнее
+
+В повести "Колан" писатель описывает своё детство. Это повесть о мальчишках, участниках водолазной команды. В библиотеке писателя есть книга, которую он долго искал – «Отряд особого назначения» об ЭПРОНе (Экспедиция подводных работ особого назначения). Повесть он тоже хотел гордо назвать «Эпроновцы», но рецензенты порекомендовали отказаться от этого названия, (   Читать дальше...   )Жанр: KраеведениеПродолжительность: 07:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA8A1B1FA2EB9A03D1779E86C87080C251EC094B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129636   (716512) от 01.05.2017
+
+Сергей Каледин | Поп и работник. Стройбат (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть "Поп и работник" рассказывает о нынешней российской глубинке. Неустроенность жизни и быта, неуверенность в завтрашнем дне разъедают души в сущности неплохих людей, доводят их до страшных поступков.
+Повесть Сергея  Каледина  " Стройбат " была написана в 1987 году. "Новый мир" тут же поставил повесть в номер, но напечатал только (   Читать дальше...   )Жанр: Проза, повестиПродолжительность: 05:07:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B216773DFA15EC1C4E09C043A47EEABFA150041F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130090   (716510) от 01.05.2017
 
 Аркадий Бабченко | Маленькая победоносная война (2017) [MP3]
@@ -6,7 +86,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716510.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715188.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714420.jpg" />
 </div>
 
 
@@ -86,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714135.jpg" />
 </div>
 
 
@@ -112,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714021.jpg" />
 </div>
 
 
@@ -139,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713327.jpg" />
 </div>
 
 
@@ -166,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712710.jpg" />
 </div>
 
 
@@ -193,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712559.jpg" />
 </div>
 
 
@@ -219,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712434.jpg" />
 </div>
 
 
@@ -245,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712364.jpg" />
 </div>
 
 
@@ -271,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712197.jpg" />
 </div>
 
 
@@ -297,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711910.jpg" />
 </div>
 
 
@@ -323,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711462.jpg" />
 </div>
 
 
@@ -350,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710942.jpg" />
 </div>
 
 
@@ -376,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710789.jpg" />
 </div>
 
 
@@ -402,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710782.jpg" />
 </div>
 
 
@@ -428,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709962.jpg" />
 </div>
 
 
@@ -454,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709831.jpg" />
 </div>
 
 
@@ -480,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709289.jpg" />
 </div>
 
 
@@ -506,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708991.jpg" />
 </div>
 
 
@@ -534,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708874.jpg" />
 </div>
 
 
@@ -560,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707524.jpg" />
 </div>
 
 
@@ -587,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707162.jpg" />
 </div>
 
 
@@ -598,86 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7EB0D205AD32C5CDE2ECB50B933BD122809DFC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131686   (707118) от 06.05.2017
-
-Герольд Бельгер | Дом скитальца (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дом, в котором жил юный переселенец Герольд Бельгер вместе со своими обездоленными родственниками, к сожалению, не сохранился. Аульчане не догадались сделать в этом доме музей творчества знаменитого земляка, произведения которого понятны и казахам, и русским, и немцам, или открыть здесь музей депортации, безмолвный укор истории. Своеобразным музеем депортации стал (   Читать дальше...   )Жанр: ПрозаПродолжительность: 13:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6BDA99BCCDBBAEB1D7D77648415542B09718057
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131492   (707100) от 06.05.2017
-
-Иван Шмелёв | Волчий перекат (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707100.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Волчий перекат" создает впечатление мельком подсмотренной картинки жизни.
-В "Забавном приключении" писатель отобразил не только силу рвущихся к власти новых дельцов, но и недолговечность, шаткость их царствования.
-В "Пугливой тишине" автор рассказывает о разложении дворянской усадьбы. Повесть строится на контрасте между завороженной (   Читать дальше...   )Жанр: ПрозаПродолжительность: 05:52:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83E5A6B7A19F11156DC6B672AD8A816678D1FE08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131422   (706952) от 06.05.2017
-
-Леонид Белоглазов | Танец Осы. Записки артиллериста (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706952.jpg" />
-</div>
-
-
-###  Подробнее
-
-В «библиотеке» Великой Отечественной войны, состоящей из сотен и тысяч невероятно искренних, талантливых и честных автобиографических книг, «Записки артиллериста» занимают особое место. Может быть, потому, что это – в большей степени, чем художественная книга, документальное, репортажное жизнеописание длиною в три военных года. Репортаж, где боли, крови, страха и (   Читать дальше...   )Жанр: Воспоминания о войнеПродолжительность: 02:57:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F093DFD0944E1241799F71A8845C2C85DD8237AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

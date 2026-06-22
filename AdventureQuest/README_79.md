@@ -1,3 +1,133 @@
+###  Публикация: 1723836   (56293) от 17.05.2024
+
+The Cursed Tape (2024) [Ru/Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56293.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Cursed Tape - инди-хоррор от первого лица с эффектом полного погружения. Однажды главный герой находит на пороге своего дома загадочную кассету без каких-либо записок. Кажется, что это чей-то глупый розыгрыш, но осмелитесь ли вы взглянуть на ее содержание? Разработчик под ником JustTomcuk отличается в среде инди-игр за счет своего осмысленного подхода к созданию (   Читать дальше...   )Тип издания: SceneРазработчик: JustTomcukЖанр: Приключенческие игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66863D9E8BF8C355DEAAD256F599CDC25801D378
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723965   (56170) от 18.05.2024
+
+The Desolate Hope (2014) [Ru/En] (1.35) Repack 1nomok
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56170.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Desolate Hope - это приключенческий квест, который рассказывает историю шести роботов - единственных обитателей исследовательского комплекса на луне неизвестной планеты. Их миссия заключалась в определении оптимального курса колонизации луны и планеты людьми, но что-то случилось, и связь с землёй в какой-то момент оборвалась. Машинам ничего не оставалось, кроме (   Читать дальше...   )Тип издания: RepackРазработчик: Scott CawthonЖанр: Квест, ПриключенияЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E0016C00C4A77217B074A577702F462F5906B97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723999   (56163) от 18.05.2024
+
+The Cursed Tape (2024) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56163.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Cursed Tape - инди-хоррор от первого лица с эффектом полного погружения. Однажды главный герой находит на пороге своего дома загадочную кассету без каких-либо записок. Кажется, что это чей-то глупый розыгрыш, но осмелитесь ли вы взглянуть на ее содержание? Разработчик под ником JustTomcuk отличается в среде инди-игр за счет своего осмысленного подхода к созданию (   Читать дальше...   )Тип издания: RepackРазработчик: JustTomcukЖанр: Приключенческие игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9590DC1EFE05B45C54C8C87A9A4072D9BAF5082
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724002   (56160) от 18.05.2024
+
+Crow Country (2024) [Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дрожь пробегает по позвоночнику, когда вы стоите перед заброшенным парком развлечений. Два года назад Эдвард Кроу исчез, а вместе с ним и радостные крики, которые когда-то наполняли воздух. Теперь здесь висит лишь тревожная тишина. Это не обычный визит в парк развлечений. Crow Country - это игра в жанре survival horror, которая подкидывает вам головоломки и загадки, (   Читать дальше...   )Тип издания: RepackРазработчик: SFB GamesЖанр: Экшены, ИндиЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0146B3CC8E97E76EBF3051238DB1AC7C6FB86FA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724380   (56081) от 19.05.2024
+
+Lorelei and the Laser Eyes (2024) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lorelei and the Laser Eyes – посетите невероятное старинное поместье, выполненное в стиле барокко! Что же здесь на самом деле было? Гостиница или музей? Для того чтобы найти эти ответы, молодая женщина будет блуждать по его коридорам. Что нужно всемирно известному писателю? Кто на самом деле стоит за убийством аристократки? Что скрывается за маской странствующего (   Читать дальше...   )Тип издания: SceneРазработчик: SimogoЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Японский, Испанский, Корейский и другиеЯзык интерфейса: Английский, Японский, Испанский, Корейский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68884573ACBED3DE959C2A30C14F0B19B5B0592B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724674   (55862) от 21.05.2024
 
 AMANATSU ~Perfect Edition~ (2024) [Multi] (1.0.2/dlc) License GOG
@@ -6,7 +136,7 @@ AMANATSU ~Perfect Edition~ (2024) [Multi] (1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55862.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Scene Investigators (2023) [Ru/Multi] (20250503/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55856.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (1.0.0.0.158523) Scene FairLi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55636.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ The Vanishing of Ethan Carter (2015) [Ru/Multi] (1.05) Repack dixen18 [Redux]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55555.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ The Vanishing of Ethan Carter (2014) [Ru/Multi] (1.0) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55518.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ The Journey of AutUmn (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55439.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (1.0.0.0.158523) Repack FitGi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55381.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (1.0.0.0.158523) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55354.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Hauntii (2024) [Multi] (1.0) Scene Razor 1911
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55323.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Imaginary Friend Asylum (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55210.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Pre Dusk (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55135.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ Starstruck Vagabond (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54798.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.07/dlc) Repack FitGirl [Jac
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54509.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Harvest Hunt (2024) [Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54506.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54504.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ Echoes (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54463.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Lesson Learned (2024) [Ru/Multi] (1.023) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54462.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Venatrix (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54448.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Violet (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54412.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ Duck Detective: The Secret Salami (2024) [En] (1.0.11) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54366.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ Sisters: Last Day of Summer (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54208.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ Sisters: The Last Day of Summer рассказывает историю моло
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E17618169AC52E242E958666F0282AD14E24914F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728397   (54076) от 07.06.2024
-
-Isles of Sea and Sky (2024) [Ru/Multi] (1.0.14493222) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Isles of Sea and Sky – стратегическое приключение с громадным числом головоломок на логику, внимательность и смекалку. Проект, разработанный двумя программистами, использует пиксельную графику и камеру, расположенную сверху, что отсылает на некоторые классические игры с похожей тематикой и визуальным рядом. Присутствует поддержка геймпадов без дополнительной настройки.Тип издания: RepackРазработчик: Cicada GamesЖанр: Приключенческие игрыЯзык субтитров: Русский, Английский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Китайский (упрощенный) и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B2CF8C617AFF0B66E5CFCFE9293DD0ADCB007F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728455   (54067) от 07.06.2024
-
-Tamarindos Freaking Dinner (2024) [En] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tamarindos Freaking Dinner – это невероятно яркое, местами странное и пугающее приключение, в котором игроку предстоит посетить около 50 уникальных комнат и познакомиться с их обитателями. В некоторых диалогах не стоит искать смысла, они просто настолько абсурдны, что от этого кажутся более веселыми и смешными. В зависимости от сказанных фраз и действий, мнения героев (   Читать дальше...   )Тип издания: RepackРазработчик: Celery Emblem™Жанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B046486B7C03D3987E7C68D4ED3F7E99BB5BFC2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728771   (53994) от 08.06.2024
-
-DETECTIVE - Minerva case (2024) [Multi] (1.0) Scene Tinyiso
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53994.jpg" />
-</div>
-
-
-###  Подробнее
-
-DETECTIVE - Minerva case – постарайтесь раскрыть весьма непростое преступление в нашей предельно взрослой и захватывающей игре. А для этого посетите место преступления, отыщите все доказательства и наконец-то раскройте дело! Такая задача вам под силу? Недалекое будущее. Идет 2068 год. Компания, разрабатывающая домашний ИИ вот-вот выпустит свой революционный продукт.Тип издания: SceneРазработчик: k148 Game StudioЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Испанский, Испанский (Латинская Америка)Язык интерфейса: Английский, Испанский, Испанский (Латинская Америка)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A89B32FC96EDA3681313A423508A184A4A39972D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729031   (53870) от 09.06.2024
-
-The Invincible (2023) [Ru/Multi] (12808193) Repack dixen18
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53870.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Invincible представляет собой приключенческую игру с видом от первого лица. Проект использует антураж ретрофутуризма и отсылает к космической гонке между США и СССР в 20 веке. Тайтл выполнен в сеттинге атомпанка. Он может понравиться тем, кто любит атмосферу научно-фантастических триллеров. В основу нелинейного сюжета The Invincible лег роман "Непобедимый" (   Читать дальше...   )Тип издания: RepackРазработчик: Starward IndustriesЖанр: Экшны, Приключение, ФантаcтикаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий,  Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий,  Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBA9D8DA454A93DA4F6492B9316764AB3104EE79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728913   (53863) от 09.06.2024
-
-INDIKA (2024) [Ru/Multi] (14207837) Repack dixen18
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53863.jpg" />
-</div>
-
-
-###  Подробнее
-
-INDIKA - игра от третьего лица с историей о странном мире, в котором религия вступает в противоборство с жестокой реальностью. Игра повествует о молодой монахине, которая отправляется на поиски самой себя бок о бок с рогатым другом. Внешне Индика - обычная, ничем не выдающаяся монахиня. Она всеми силами пытается нести бремя монастырской жизни. Однако скромность и (   Читать дальше...   )Тип издания: RepackРазработчик: Odd MeterЖанр: Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31773611A6EAEF61E65EA75FA8A6633926CB1412
 ```
 
 https://mybot314.ru/tekegram_catalog/

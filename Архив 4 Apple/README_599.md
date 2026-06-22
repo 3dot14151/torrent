@@ -1,3 +1,55 @@
+###  Публикация: 1671513   (171273) от 25.10.2023
+
+Boxy SVG 4.14.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель проекта Boxy SVG - создать редактор SVG для рядовых пользователей, а также для профессиональных дизайнеров и разработчиков.Тип издания: macOS SoftwareРелиз состоялся: 24.10.2023Разработчик: © 2012-2023 Jaroslaw FoksaПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2539134313CFA1D98363ABB7C21B10B5E30A8AAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671654   (171255) от 25.10.2023
+
+CADintosh X 8.8.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171255.jpg" />
+</div>
+
+
+###  Подробнее
+
+CADintosh позволяет ускорить проектные работы и имеет тысячи надстроек, которые позволяют удовлетворить потребности самого широкого круга клиентов. CADintosh X - приложение из категории "Графика и дизайн", созданное компанией Lemke Software GmbH в январе 2012 года, которое прекрасно вписывается в идеологию Mac. Интерфейс приложения доступен на восьми языках. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.09.2023Разработчик: © 2002-2022 Lemke Software GmbHПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE6CDB11F28F1850F8E3F98A92203AE9CF008847
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671595   (171254) от 25.10.2023
 
 OmniReader Pro for Mac 2.5.3 [En]
@@ -6,7 +58,7 @@ OmniReader Pro for Mac 2.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171254.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ GM CHM Reader Pro for Mac 2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171246.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Fig Player - play mp4 mkv mp3 for Mac 1.3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171242.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ AirMail Pro 5 v.5.6.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171234.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ JetBrains GoLand for Mac 2023.2.2 Intel/ARM  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171228.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ iA Writer 6.0.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171226.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Nova 11.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171218.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ VueScan Pro 9.8.19 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171216.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ Money Pro - Personal Finance 2.9.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171215.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ JetBrains DataSpell for Mac 2023.2.2 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171214.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ Capture One 23 Enterprise 16.3.0.76 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171199.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ Alfred PowerPack 5.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171194.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ DxO PureRAW 3 for Mac v.3.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171187.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ Capture One 23 Pro 16.3.0.76 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171159.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ Cookie 7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171097.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ Integrity Pro 12.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171096.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ Author 9.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171093.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ Airtool 2 v.2.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171087.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ MetaRename for Mac 1.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171082.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ CheckBook Pro 2.7.26 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171079.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ myTracks 4.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171077.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ OmniGraffle Pro 7.22.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171062.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ Dynamic Wallpaper Engine 16.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171053.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ Keyboard Maestro 11.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171047.jpg" />
 </div>
 
 
@@ -628,61 +680,6 @@ Keyboard Maestro - мультифункциональная утилита, ко
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FD444D2A85AF5320FBAAAB70ABA2DC5994EC937
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671767   (171046) от 26.10.2023
-
-Transmit 5.10.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Золотой стандарт приложений для передачи файлов
-Загружайте, загружайте и управляйте файлами на серверах с простым, знакомым и мощным интерфейсом.
-Теперь Transmit подключается к 10 новым облачным сервисам, таким как Backblaze B2, Box, Google Диск, DreamObjects, Dropbox, Microsoft Azure и Rackspace Cloud Files. И да, Transmit по-прежнему обрабатывает классику - FTP, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.09.2023Разработчик: Panic IncПоддерживаемая ОС: macOS X 10.15 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD6B61DD5D6F621892E93D992F12ADC4AC8193D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671737   (171037) от 26.10.2023
-
-Disk Space Analyzer Pro 4.1.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk Space Analyzer Pro ранее как Disk Expert - приложение позволяет находить файлы и папки большого размера на вашем Маc. Приложение сканирует жесткий диск, визуально отображает использование дискового пространства и составляет отчет, содержащий список самых огромных файлов и папок.
-Поддерживаются все типы устройств хранения: HDD, CD/DVD диски, съемные USB-диски, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.09.2023Разработчик: © 2023 NektonyПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF53751C5B9B63149BBF348478DE4B54F9DD731C
 ```
 
 https://mybot314.ru/tekegram_catalog/

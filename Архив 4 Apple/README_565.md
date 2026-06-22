@@ -1,3 +1,55 @@
+###  Публикация: 1426717   (213716) от 25.11.2020
+
+Dark Mode for Safari 2.9.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Темный режим делает ваш браузер более комфортным, приятным и крутым, изменяя цветовую схему, чтобы облегчить чтение веб-страниц. Особенно хорошо работает для людей, работающих ночью или в условиях низкой освещенности, или когда вы хотите, чтобы ваш браузер соответствовал новому внешнему виду в темном режиме macOS.Тип издания: macOS SoftwareРелиз состоялся: 20.11.2020Разработчик: Denk AlexandruПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A1123B6D1779F7D932CEB8A0711B7266CE7ED28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426617   (213715) от 25.11.2020
+
+PaintCode 3 v3.4.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как связующий мост между разработчиками и дизайнерами, PaintCode является приложением для векторной графики, которое мгновенно генерирует Objective-C или C # код для изображений. Преимущество приложения PaintCode заключается в том, что оно не только превращает векторный рисунок в код, но и само является полнофункциональным приложением для создания векторных изображений. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.11.2020Разработчик: PixelCut s.r.oПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A3477F735AB3A00827476201489CC40A1413F3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654001   (213712) от 18.08.2023
 
 Dynamic Wallpaper Engine 15.5 [En]
@@ -6,7 +58,7 @@ Dynamic Wallpaper Engine 15.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213712.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ DEVONthink Pro Office/Server 3 v3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213689.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Kiwi for Gmail 2.0.39 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213686.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ iThoughtsX 5.24 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213682.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ WiFi Explorer 3.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213670.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ Wondershare PDFelement Pro 7.5.4.2797 (OCR) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213656.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ Viscosity 1.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213650.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ Artlantis 2020 v9.0.2.21201 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213628.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ Moom 3.2.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213610.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ PDF Expert 2.5.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213608.jpg" />
 </div>
 
 
@@ -277,7 +329,7 @@ ProPresenter 6 v6.5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213577.jpg" />
 </div>
 
 
@@ -306,7 +358,7 @@ Adobe Premiere Pro 2022 22.4.0 (build 57) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213243.jpg" />
 </div>
 
 
@@ -332,7 +384,7 @@ Topaz Gigapixel AI 6.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213232.jpg" />
 </div>
 
 
@@ -358,7 +410,7 @@ Adobe Animate 2022 v22.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213035.jpg" />
 </div>
 
 
@@ -384,7 +436,7 @@ Capture One 22 Pro v15.3.1.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212967.jpg" />
 </div>
 
 
@@ -411,7 +463,7 @@ Maxon Cinema 4D Studio R26.107 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212952.jpg" />
 </div>
 
 
@@ -437,7 +489,7 @@ Adobe After Effects 2022 22.5.0 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212695.jpg" />
 </div>
 
 
@@ -464,7 +516,7 @@ macOS 12 Monterey 12.5 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212321.jpg" />
 </div>
 
 
@@ -490,7 +542,7 @@ ABBYY FineReader PDF for Mac 15.2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212317.jpg" />
 </div>
 
 
@@ -517,7 +569,7 @@ Planner 5D Premium 4.9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212274.jpg" />
 </div>
 
 
@@ -543,7 +595,7 @@ Vidmore Player 1.0.56 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_212050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_212050.jpg" />
 </div>
 
 
@@ -570,7 +622,7 @@ WiFi Explorer 3 Pro 3.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_212024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_212024.jpg" />
 </div>
 
 
@@ -597,7 +649,7 @@ DxO PhotoLab 6 ELITE Edition 6.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_212022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_212022.jpg" />
 </div>
 
 
@@ -623,7 +675,7 @@ DxO FilmPack 6 ELITE Edition 6.12.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_212013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_212013.jpg" />
 </div>
 
 
@@ -634,60 +686,6 @@ DxO FilmPack — это подключаемый модуль для Adobe Photo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8714B759361B86020D7FA77024F42F10255F680
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638407   (211992) от 08.06.2023
-
-DxO PureRAW 3.3.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_211992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте более качественные файлы RAW, прежде чем ретушировать их в Adobe Photoshop, Lightroom или других программах, благодаря эксклюзивным технологиям демозаики, шумоподавления и коррекции дефектов линз DxO.Тип издания: macOS SoftwareРелиз состоялся: 06.06.2023Разработчик: © 2022 DxO LabsПоддерживаемая ОС: macOS 11.6 +Язык интерфейса: Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16BD00493E6EA242CE64306011C7B1FC84B3CBE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638767   (211983) от 09.06.2023
-
-App Cleaner & Uninstaller Pro 8.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211983.jpg" />
-</div>
-
-
-###  Подробнее
-
-App Cleaner - это приложение для просмотра установленных приложений и деинсталлирования пакета файлов для полного удаления.
-App Cleaner - лучшее приложение для удаления файлов приложения службы на macOS X и деинсталляции приложений.
-Удалить служебные файлы приложения. Убедитесь, что они не съедают драгоценное пространство на вашем Mac с этим полезным приложением, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.06.2023Разработчик: © 2023 NektonyПоддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85DC2570437A761BF5C006A97B8505C7EA6CE9A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

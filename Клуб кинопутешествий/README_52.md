@@ -1,3 +1,29 @@
+###  Публикация: 1639816   (234514) от 14.06.2023
+
+RTG. Малые музеи Петербурга. Микроминиатюра (2014) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение цикла передач о малых музеях Санкт-Петербурга. В этой серии - музей микроминиатюры "Русский Левша", в котором представлены работы российских мастеров этого направления искусства. Первый в России интерактивный музей микроминиатюры "Русский Левша" открыт в 2006 году Международной Гильдией Мастеров в Санкт-Петербурге. Коллекция уникальна (   Читать дальше...   )Производство: Россия, RTG Production StudiosЖанр: документальный, познавательный, историяРежиссер: Олег ПечерскийУчастники: Игорь МаксименкоЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F544D9E50FEDC617A8BC1322DA28BB7A01E5E670
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1639780   (234481) от 14.06.2023
 
 RTG. Мансарды Петербурга (2013) HDTV [H.264/1080i]
@@ -6,7 +32,7 @@ RTG. Мансарды Петербурга (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234481.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234269.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ RTG. Путешествие на Соловецкие острова (2012) HDTV
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234100.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233589.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ RTG. Город Юрьевец (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233507.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233489.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233481.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ RTG. Прогулка по Ленинградскому зоопарку (2013) 
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233462.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ RTG. Саблинские пещеры (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233435.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_233281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233281.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233213.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_233088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233088.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ RTG. Каменные загадки долины реки Малая Лаба (
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232876.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ RTG. Краснодар - город цветов (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232612.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ RTG. Курская магнитная аномалия (2014) HDTV [H.264/1080i
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232557.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231444.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ RTG. Природный парк «Вепсский лес» (2013) HDTV [H.264/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230843.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230695.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ RTG. Прогулка по Краснодару (2014) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230683.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ RTG. Прогулка по Выборгу (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230677.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ RTG. Прогулка по Геленджику (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230672.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229159.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228823.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227759.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_227673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227673.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:141351E97CF13B38B63E0DC524E7B9AC81FBAE7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424554   (227594) от 17.11.2020
-
-Крымские дачи (2015-2016) DVBRip (21 эпизод)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дачи бывают разные - скромные садовые домики на шести сотках, или настоящие дворцы и произведения искусства, у самого синего моря.... Дорогостоящие, как Воронцовский дворец, узнаваемые, как Ласточкино гнездо, исключительные, как Ливадийский дворец - в былые годы все это крымские дачи для великих и знаменитых, теперь же для нас - настоящие дворцы и дома-музеи, чудом (   Читать дальше...   )Производство: Россия, Телеканал: УсадьбаЖанр: Документальный, архитектура, история, туризмРежиссер: Юлия РябининаЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: серии x ~00:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A364F80B00E010E598980F299C35A4440C6C743F
 ```
 
 https://mybot314.ru/tekegram_catalog/

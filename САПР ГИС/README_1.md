@@ -1,3 +1,83 @@
+###  Публикация: 1373712   (878066) от 07.04.2020
+
+Autodesk AutoCAD Map 3D 2021 [Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картографический программный продукт AutoCAD Map 3D предназначен для планирования инфраструктуры и управления ею. Он позволяет работать с данными САПР и ГИС, поступающими из различных источников. Используя комплексные модели систем газо- и электроснабжения, водопровода и канализации, вы сможете упорядочить информацию об объектах, подчинив ее нормам отраслевых стандартов (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCAFD6C6C2026FCC2D4C7D11AD3DE1E1B7F5744D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373710   (878061) от 07.04.2020
+
+Autodesk AutoCAD MEP 2021 [Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878061.jpg" />
+</div>
+
+
+###  Подробнее
+
+AutoCAD MEP – это AutoCAD для проектирования отопительных, вентиляционных, электрических и санитарно-технических систем зданий. Привычная среда AutoCAD обеспечивает более высокую точность документации по инженерным системам. Автоматизация чертежных операций и функция выявления коллизий помогают повысить производительность и уменьшить количество ошибок. Сопровождение (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94C4F3C7037A325FAA3BB0FA33F28A7A2B405426
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373716   (877969) от 07.04.2020
+
+Autodesk AutoCAD Plant 3D 2021 [Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877969.jpg" />
+</div>
+
+
+###  Подробнее
+
+AutoCAD Plant 3D применяется для проектирования технологического оборудования, трубопроводов и КИП промышленных предприятий, а также для выпуска документации. В распоряжении технических дизайнеров и конструкторов – возможность создания самых современных 3D-проектов в привычной среде AutoCAD.
+
+Возможности проектирования на основе технических требований и библиотеки (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF787FA4FC673EC728EADF5D6FFA5B29F72FCD66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373694   (877942) от 07.04.2020
 
 Autodesk AutoCAD Electrical 2021 [Ru]
@@ -6,7 +86,7 @@ Autodesk AutoCAD Electrical 2021 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877942.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ Sprint-Layout 6.0 Portable [Русский]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868774.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ Autodesk Inventor Professional 2017 Build 142 (x64) [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848108.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ MapInfo Pro 15.2.1 Build 224 (x64) [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844461.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ MapInfo Pro 15.0 Build 18 (x86) [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844344.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ MapInfo Professional 9.0 Portable [RUS]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840499.jpg" />
 </div>
 
 
@@ -163,7 +243,7 @@ Delcam PowerMILL Pro 2016 SP10 Version 20.0.10.64.1187259 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824512.jpg" />
 </div>
 
 
@@ -189,7 +269,7 @@ StairDesigner 7.05a [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818638.jpg" />
 </div>
 
 
@@ -215,7 +295,7 @@ Autodesk AutoCAD 2018 О.49.0.0 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816376.jpg" />
 </div>
 
 
@@ -241,7 +321,7 @@ Autodesk Robot Structural Analysis Pro 2017 30.0.0.5913 (x64) [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812952.jpg" />
 </div>
 
 
@@ -268,7 +348,7 @@ Autodesk Advance Steel 2017 Build 722 (x64) [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812802.jpg" />
 </div>
 
 
@@ -294,7 +374,7 @@ Autodesk AutoCAD Civil 3D 2017 11.0.659.0 (x64) [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812798.jpg" />
 </div>
 
 
@@ -320,7 +400,7 @@ Nemetschek Allplan 2015 (30 Years Edition) Build 28.501.4211.1019 (x64) [Multi/R
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807175.jpg" />
 </div>
 
 
@@ -346,7 +426,7 @@ Autodesk EAGLE Premium 8.0.1 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786251.jpg" />
 </div>
 
 
@@ -372,7 +452,7 @@ T-FLEX CAD 15.0.30.0 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786004.jpg" />
 </div>
 
 
@@ -398,7 +478,7 @@ BricsCad Platinum 18.1.09.51732 [RU]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784535.jpg" />
 </div>
 
 
@@ -424,7 +504,7 @@ Autodesk AutoCAD Raster Design 2017 build 4.0.19.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758711.jpg" />
 </div>
 
 
@@ -452,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741110.jpg" />
 </div>
 
 
@@ -480,7 +560,7 @@ Bentley MicroStation CONNECT Edition 10.00.00.25 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728066.jpg" />
 </div>
 
 
@@ -506,7 +586,7 @@ IMSI TurboCAD 2016 Pro Platinum 23.1 Build 31.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705471.jpg" />
 </div>
 
 
@@ -532,7 +612,7 @@ Autodesk СПДС модуль 5.0 для продуктов семейства 
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705285.jpg" />
 </div>
 
 
@@ -558,7 +638,7 @@ AspenTech AspenONE 8.8 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696014.jpg" />
 </div>
 
 
@@ -584,7 +664,7 @@ Autodesk Inventor Professional 2019 Build 136 [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686601.jpg" />
 </div>
 
 
@@ -595,84 +675,6 @@ Autodesk Inventor – содержит полный набор гибких ин
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB25DFEB43B7489D6777A873131930F3576F773D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222488   (684556) от 29.04.2018
-
-Autodesk AutoCAD Plant 3D 2019 (M046.04)  [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684556.jpg" />
-</div>
-
-
-###  Подробнее
-
-САПР AutoCAD Plant 3D, предназначенная для проектирования технологических объектов, трубопроводов и КИП, помогает специалистам поддерживать производительность, добиваться высокого качества и выпускать скоординированные проекты. В основе продукта лежит хорошо известная платформа AutoCAD, к которой добавлены специализированные инструменты для инженеров, занимающихся (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:804CDDDE0EE711637D4BBE071125C7C50B1E0BA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222607   (684444) от 29.04.2018
-
-Autodesk AutoCAD Mechanical 2019 (23.0.46.0) [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684444.jpg" />
-</div>
-
-
-###  Подробнее
-
-AutoCAD Mechanical – это AutoCAD для машиностроительного проектирования. AutoCAD Mechanical является частью технологии цифровых прототипов Autodesk. Продукт объединяет в себе функциональность AutoCAD – мирового лидера среди 2D САПР – с преимуществами обширных библиотек стандартизированных компонентов и средств автоматизации, ускоряющих выполнение задач проектирования. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D5BA43A88737A779CC22F8541F9225F3C7685CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222561   (684442) от 29.04.2018
-
-Autodesk AutoCAD Electrical 2019 (16.0.49.0) [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684442.jpg" />
-</div>
-
-
-###  Подробнее
-
-AutoCAD Electrical — это AutoCAD для проектирования электрических систем управления, являющийся важной частью технологии цифровых прототипов Autodesk и позволяющий работать быстро, качественно и со значительно меньшими затратами в знакомой среде проектирования. Специализированные функции и обширные библиотеки условных обозначений позволяют повысить производительность, (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0568A3ED71F7437BABFA2DD26FD98CF26C0DC755
 ```
 
 https://mybot314.ru/tekegram_catalog/

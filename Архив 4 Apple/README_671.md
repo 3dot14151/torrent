@@ -1,3 +1,56 @@
+###  Публикация: 1695883   (119941) от 31.01.2024
+
+Dropshare 5 v.5.46 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119941.jpg" />
+</div>
+
+
+###  Подробнее
+
+DropShare позволяет быстро передавать файлы больших объемов через интернет. Отправитель просто перетягивает его на значок программы, и файл выгружается на сервер. Остается сообщить ссылку получателю, чтобы он мог открыть ее в своем браузере.
+Dropshare - приложение строки меню для Drag & Drop загрузки файлов, снимков экрана и даже каталогов на собственный сервер, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.01.2024Разработчик: © 2022 DropshareПоддерживаемая ОС: OS X 12.3 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75606B7FE0CD2A0935DD15AC928FB51390299D58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696017   (119940) от 31.01.2024
+
+SponsorBlock for YouTube 5.5.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119940.jpg" />
+</div>
+
+
+###  Подробнее
+
+SponsorBlock — это краудсорсинговое расширение для браузера, которое позволяет любому указать время начала и окончания спонсируемых сегментов и других сегментов видео на YouTube. SponsorBlock позволяет пропускать рекламу спонсоров, вступления, концовки, напоминания о подписке и другие раздражающие части видео на YouTube.  Как только один человек отправит эту информацию, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.01.2024Разработчик: © SponsorBlock Contributors Under LGPL-3.0Поддерживаемая ОС: macOS 10.14.6 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDE07D50C3837BEEE2A7DAA2ACC5CF6C309C1454
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696011   (119928) от 31.01.2024
 
 Wondershare UniConverter for Mac 15.5.0 Intel/ARM [Multi/Ru]
@@ -6,7 +59,7 @@ Wondershare UniConverter for Mac 15.5.0 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119928.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ EdgeView 4.4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119921.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ Sound Siphon 3.6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119920.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ Dato 5.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119919.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ JetBrains PyCharm Professional for Mac 2023.3.3 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119850.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ XMind Pro 2024 24.01 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119821.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ Topaz Gigapixel AI for Mac 7.0.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119794.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119785.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ MediaInfo for Mac 24.01 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119771.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ Serial Box & SerialSeeker 02-2024 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119767.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ Room Arranger 9 fo Mac 9.8.2 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119765.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ Texifier 1.9.25 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119754.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ PDF Reader Pro 3.3.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119655.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ Wondershare UniConverter for Mac 15.5.1 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119648.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ Downie 4 v.4.7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119621.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ Ableton Live Suite 12 Beta 12.0b26 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119613.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ Topaz Photo AI 2 for Mac 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119611.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ Keep It 2.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119607.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ djay - DJ App & AI Mixer 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119602.jpg" />
 </div>
 
 
@@ -507,7 +560,7 @@ Aiseesoft Mac Screen Recorder 2.2.22 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119601.jpg" />
 </div>
 
 
@@ -533,7 +586,7 @@ OmniReader Pro for Mac 2.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119600.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ Wondershare Recoverit for Mac 12.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119598.jpg" />
 </div>
 
 
@@ -586,7 +639,7 @@ PullTube 1.8.5.25 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119452.jpg" />
 </div>
 
 
@@ -612,7 +665,7 @@ Video Cut&Crop&Join for Mac 3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119435.jpg" />
 </div>
 
 
@@ -623,59 +676,6 @@ Video Cut&Crop&Join for Mac 3.7 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60A446299CE26488937D86AA8B0D93274BCD2C95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697117   (119128) от 05.02.2024
-
-JetBrains DataSpell for Mac 2023.3.3 Intel/ARM [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119128.jpg" />
-</div>
-
-
-###  Подробнее
-
-DataSpell — IDE для Data Science. DataSpell создан специально для тех, кто занимается разведочным анализом данных, и прототипированием моделей машинного обучения. Это эргономичная среда разработки, объединяющая в себе интерактивные возможности Jupyter-ноутбуков и умный редактор PyCharm для работы с Python и R.Тип издания: macOS SoftwareРелиз состоялся: 25.01.2024Разработчик: © 2000-2023 JetBrains s.r.o.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B83C728E46BF30FF389953163A6A821F5D0E92DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697080   (119088) от 05.02.2024
-
-n-Track Studio Suite 10.0.0 ARM/Intel [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для обеспечения студийного качества записи, редактирования и микширования.
-Программа n-Track Studio привносит профессиональное качество аудио файлов и облегчает рабочий процесс.Тип издания: macOS SoftwareРелиз состоялся: 04.02.2024Разработчик: n-Track S.r.lПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11B3411A48C1EE2BF2C3CA27738EB4385DA4A505
 ```
 
 https://mybot314.ru/tekegram_catalog/

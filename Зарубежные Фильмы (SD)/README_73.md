@@ -1,3 +1,133 @@
+###  Публикация: 1356584   (977456) от 31.01.2020
+
+Терминатор: Тёмные судьбы / Terminator: Dark Fate (2019) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мексика. Милая девушка Даниэла Рамос, а для друзей просто Дани, вместе с братом приходит с утра работать на завод, но там выясняется, что их вскоре заменят автоматикой. И это не единственная угроза, которую представляют для девушки машины: тут же на неё нападает присланная из будущего и практически неубиваемая модель терминатора REV-9. Но на защиту Дани встает Грэйс (   Читать дальше...   )Производство: США, Китай, Paramount Pictures, Twentieth Century Fox, Skydance MediaЖанр: Фантастика, боевик, приключенияРежиссер: Тим МиллерАктеры: Линда Хэмилтон, Арнольд Шварценеггер, Маккензи Дэвис, Наталия Рейес, Гэбриел Луна, Диего Бонета, Алисия Боррачеро, Энрике Арсе, Стивен Кри, Ферран ФернандесПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full),  английские (Full, SDH)Продолжительность: 02:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF990A3624EC448E810967686C836532090500CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356453   (977449) от 31.01.2020
+
+Хорошие мальчики / Good Boys (2019) BDRip [H.265] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977449.jpg" />
+</div>
+
+
+###  Подробнее
+
+История троих друзей-шестиклассников, планирующих посетить крутую вечеринку. Но прежде они должны хорошенько подготовиться, чтобы не ударить в грязь лицом. Так начинается безумное путешествие по долине Сан-Фернандо, в котором надо вернуть наркотики, украсть пиво и починить сломанного дрона — все это нужно сделать, пока родители не вернулись домой.Производство: США / Good Universe, Point Grey Pictures, Universal PicturesЖанр: Комедия, приключенияРежиссер: Джин СтупницкиАктеры: Джейкоб Тремблей, Кит Л. Уильямс, Брэйди Нун, Молли Гордон, Мидори Френсис, Исаак Ванг, Милли Дэвис, Джош Барклай Карас, Уилл Форте, Mariessa PortelanceПеревод: ДублированноеСубтитры: Русские (полные, форсированные), английскиеПродолжительность: 01:29:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B239D008EEDD8C203920CA1B18142CD883BF3922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356713   (977396) от 31.01.2020
+
+Хороший лжец / The Good Liar (2019) BDRip [H.265] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональный мошенник Рой Кортни едва верит своей удаче, когда знакомится в сети с богатой вдовой Бетти Маклиш. Очаровав вдову и получив доступ ко всем ее ресурсам, Рой ловит себя на том, что она ему небезразлична.Производство: Великобритания, США, Германия | Bron Studios, New Line CinemaЖанр: драма, детективРежиссер: Билл КондонАктеры: Хелен Миррен, Иэн МакКеллен, Рассел Тови, Джим Картер, Марк Льюис Джонс, Лори Дэвидсон, Фил Данстер, Лусиан Мсамати, Йоуханнес Хёйкьюр Йоуханнессон, Тунджи КасимПеревод: Дублированный (iTunes)Субтитры: РусскиеПродолжительность: 01:49:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F673B8177DF6C35F6085245B310F106EB27CBB55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 437872   (977362) от 17.01.2012
+
+Город потерянных детей / La cite des enfants perdus / The City of Lost Children (1995) HDTVRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Недалеко от гавани пропитанного сыростью и окутанного туманом мрачного Города потерянных детей, в замке на берегу моря живет страшный ученый по имени Кранк, преждевременно постаревший из-за полной неспособности спать. По приказу Кранка его подручные-циклопы похищают детей и затаскивают в мрачную лабораторию, где злодей-ученый превращает их сны в свои собственные. (   Читать дальше...   )Производство: Германия, Франция, ИспанияЖанр: Фантастика, Фэнтези, ПриключенияРежиссер: Марк Каро, Жан-Пьер ЖёнеАктеры: Рон Перлман, Жюдит Витте, Доминик Пинон, Даниэль Эмильфорк, Жан-Клод Дрейфюс, Женевьев Бруне, Одиль Мале, Мирей Моссе, Серж Мерлен, Рюфюс, Тикки Ольгадо, Джозеф Люсьен, Мапи Галан, Брик Бартелеми, Пьер-Квентин Фаэш, Алексис ПивоПеревод: Многоголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:45:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356381   (977339) от 31.01.2020
+
+На краю света / Les confins du monde / To the ends of the earth (2018) WEB-DLRip [H.264] [VO]
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977339.jpg" />
+</div>
+
+
+###  Подробнее
+
+1945 год, вьетнамские джунгли. Робер Тассен — молодой солдат, единственный оставшийся в живых после столкновения с партизанами Хо Ши Мина. Очнувшись среди трупов в глубокой яме, он чудом выбирается наружу, а вот его брат остаётся в могиле. Робер желает отомстить повстанцам, но, близко познакомившись с юной вьетнамской проституткой, Робер влюбляется, и месть её соплеменникам (   Читать дальше...   )Производство: Франция / Les Films du Worso, Les Armateurs, Orange StudioЖанр: драма, военныйРежиссер: Гийом НиклуАктеры: Гаспар Ульель, Гийом Гуи, Lang Khê Tran, Жерар Депардье, Джонатан Кузини, Кевин Янссенс, Антони Палиотти, Франсуа Негре, Vi Minh Paul, Vianney DuburqueПеревод: Одноголосый любительский (datynet)Язык озвучки: Русский, ФранцузскийСубтитры: Русские, Французкие, Английские, НемецкиеПродолжительность: 01:38:45Реклама: Без рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1B110CDCDAF96FBD7B5AFA49BFCC816F1EC0F64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356543   (977337) от 31.01.2020
 
 Капкан / Crawl (2019) BDRip [H.265] [10-bit]
@@ -6,7 +136,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977337.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977330.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977328.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977257.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977219.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977125.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976743.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976704.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976645.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976611.jpg" />
 </div>
 
 
@@ -269,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976527.jpg" />
 </div>
 
 
@@ -295,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976525.jpg" />
 </div>
 
 
@@ -321,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976524.jpg" />
 </div>
 
 
@@ -347,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976521.jpg" />
 </div>
 
 
@@ -373,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976516.jpg" />
 </div>
 
 
@@ -400,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976441.jpg" />
 </div>
 
 
@@ -426,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976423.jpg" />
 </div>
 
 
@@ -452,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976417.jpg" />
 </div>
 
 
@@ -479,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976376.jpg" />
 </div>
 
 
@@ -505,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976304.jpg" />
 </div>
 
 
@@ -531,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976300.jpg" />
 </div>
 
 
@@ -542,136 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB1110AD9B2C8D5FFB651673BFB1C851BDF3C580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356761   (976292) от 01.02.2020
-
-Два Папы / The Two Popes (2019) WEB-DLRip [H.265] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976292.jpg" />
-</div>
-
-
-###  Подробнее
-
-История духовного пути и избрания Папы Римского Франциска, который в 2013 году неохотно сменил в Ватикане отрекшегося Папу Бенедикта XVI. Два самых влиятельных лидера католической церкви пытаются каждый по-своему укрепить в вере современный мир и самих себя.Производство: Великобритания, Италия, Аргентина, США / NetFlixЖанр: Драма, комедия, биографияРежиссер: Фернанду МейреллишАктеры: Джонатан Прайс, Энтони Хопкинс, Хуан Минухин, Сидни Коул, Thomas D Williams, Федерико Торре, Пабло Тримарчи, Walter Andrade, Juan Miguel Arias, Лисандро ФиксПеревод: Дублированный (Netflix)Субтитры: Русские, английские, французские, немецкиеПродолжительность: 02:05:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFCF6403EEA3C99918AC9DAD1189197B66767A09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356790   (976247) от 01.02.2020
-
-Химера / Braid (2018) WEB-DLRip [H.265] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы провернуть ограбление, художницы-авантюристки Петула и Тильда затевают игру в «дочки-матери» с безумной хозяйкой таинственного особняка. Но скоро преступницы оказываются в зловещем лабиринте кошмаров, извращений и галлюцинаций, полном болезненных фантазий и садистских пыток...Производство: США / Wandering Bard, Somnia ProductionsЖанр: Ужасы, триллер, детективРежиссер: Митци ПейронеАктеры: Мадлен Брюэр, Сара Хэй, Скотт Коэн, Имоджен Уотерхаус, Мэри Лурман, Дхони Миддлтон, Джилл Далтон, Таи Лин Сандху, Маурицио Овейлл, Брэд КалькатерраПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:21:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:947AF32658A18497304FFDB7BAB4E13BD3AA0988
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356808   (976245) от 01.02.2020
-
-Малыш Джо / Little Joe (2019) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мать-одиночка Элис, сотрудница отдела по выведению новых видов растений, создаёт необычный цветок — если за ним правильно ухаживать, он делает своего владельца счастливым. Но всё не так просто, и оказывается, что за счастье, даже сиюминутное, придётся заплатить, а цена может оказаться слишком высокой.Производство: Великобритания, Австрия, Германия, Coop99 Filmproduktion, The Bureau, Essential Filmproduktion GmbHЖанр: Фантастика, драмаРежиссер: Джессика ХауснерАктеры: Эмили Бичем, Бен Уишоу, Керри Фокс, Кит Коннор, Феникс Броссар, Лиэнн Бест, Эндрю Раджан, Дэвид Уилмот, Горан Костич, Яна ЯнежичПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:339365C9C6784164F9F37D5D8DBE9E9868077CAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356794   (976239) от 01.02.2020
-
-Код 8 / Code 8 (2019) BDRip [H.265] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ещё в 1950-е были обнаружены люди, обладающие сверхспособностями. Сначала их использовали при строительстве, но после повсеместного внедрения спецмашин такие рабочие стали не нужны. Теперь власти пытаются контролировать особенных людей, а остальные боятся их и презирают. Парень Коннор, обладающий способностью генерировать в себе электроэнергию, отчаянно пытается (   Читать дальше...   )Производство: Канада / Colony Pictures Inc.Жанр: Фантастика, боевикРежиссер: Джефф ЧанАктеры: Стивен Амелл, Робби Амелл, Кари Матчетт, Лайсла Де Оливейра, Грег Брайк, Сон Ган, Питер Аутербридж, Шон Бенсон, Аарон Абрамс, Алекс Маллари мл.Перевод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 01:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D89A64B09442814A21A9FA88FD21054DB3D0CC2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356887   (976228) от 01.02.2020
-
-Песня имен / The Song of Names (2019) WEB-DLRip [H.265] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лондон. Вторая мировая. Когда семья маленького скрипача Довидла погибает, Симмондсы принимают талантливого мальчика, как родного, а для их сына Мартина он становится больше, чем брат. В день, когда Довидл должен был дать первый концерт, никто так и не смог его отыскать... Лишь сорок лет спустя Мартину удается раскрыть тайну исчезновения юного музыканта.Производство: Канада, Венгрия / Serendipity Point Films, Lyla Films, Feel FilmsЖанр: Драма, историяРежиссер: Франсуа ЖирарАктеры: Клайв Оуэн, Тим Рот, Джона Хауэр-Кинг, Кэтрин МакКормак, Эдди Иззард, Сол Рубинек, Герран Хауэлл, Ричард Бреммер, Эми Слоун, Макс Макмиллан, Джулиан УэдэмПеревод: Дублированный (iTunes)Субтитры: отсутствуютПродолжительность: 01:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:377B1F7369C09A209D08D42A6921C9D8A93CE120
 ```
 
 https://mybot314.ru/tekegram_catalog/

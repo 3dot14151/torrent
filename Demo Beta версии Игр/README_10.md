@@ -6,7 +6,7 @@ Palworld (2024) [Ru/Multi] (0.4.15.66880) Repack Wanterlude [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26155.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ULTRAKILL (2020) [En] (Patch 16c) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25447.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Trans-Siberian Railway Simulator (2024) [Ru/Multi] (Build 17516909) Repack Wante
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24939.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Liar's Bar (2024) [Ru/Multi] (0.93) Repack Pioneer [Early Access Online Only]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24641.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ SpaceBourne II (2) (2023) [Multi] (5.2.4) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23818.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Starground (2024) [Ru/Multi] (0.11.1.2) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23725.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Total Conflict: Resistance (2023) [Ru/Multi] (0.95.0) Repack seleZen [Early Acce
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23343.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Endzone 2 (2024) [Ru/Multi] (0.8.9203.21231/dlc) Repack Wanterlude [Early Access
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23079.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Eden Crafters (2024) [Ru/Multi] (0.60d) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22009.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Into the Dead: Our Darkest Days (2025) [Ru/Multi] (0.3.1.10846) Repack seleZen [
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21778.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Hollywood Animal (2025) [Ru/Multi] (0.8.7ea) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21650.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Sacred Fire: A Role Playing Game (2021) [En] (2.6.4.f6) License GOG [Early Acces
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21616.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Lost Skies (2025) [Ru/Multi] (0.1.83/dlc) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20864.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Derail Valley Simulator (2019) [Ru/Multi] (Build 99.4) Repack Other s [Early Acc
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20758.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Arms Trade Tycoon: Tanks (2024) [En] (1.1.8.4) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20667.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ The Forever Winter (2024) [Ru/Multi] (0.1.45959.0) Repack Pioneer [Early Access 
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20555.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Hyperviolent (2023) [En] (0.9.0.6) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20468.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Total Conflict: Resistance (2023) [Ru/Multi] (0.96.0/dlc) Repack Let'sРlay [Ear
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20116.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Necesse (2019) [Ru/Multi] (0.32.0) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20063.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Drive Beyond Horizons (2025) [Ru/Multi] (911) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19933.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ inZOI (2025) [Ru/Multi] (20250428.2678.W) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19929.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Scarlet Hollow (2021) [En] (1.2l) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19636.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Volcanoids (2019) [Ru/Multi] (1.33.502.0) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18804.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Phasmophobia (2020) [Ru/En] (0.12.1.2) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18772.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ SpaceEngine / Space Engine (2019) [Ru/Multi] (0.990.48.2065/dlc) License GOG [Ea
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17216.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ The Killing Antidote (2023) [Ru/Multi] (0.5.3.2a) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16927.jpg" />
 </div>
 
 

@@ -1,3 +1,213 @@
+###  Публикация: 1593983   (179091) от 29.11.2022
+
+Иконки - Christmas hands and objects by icons8 [PNG, C4D, FBX, OBJ, MAX]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Используется для любых веб-сайтов, приложений, поздравительных открыток, баннеров, открыток, брошюр и любых других проектов.Формат: PNG, C4D, FBX, OBJ, MAXРазрешение файлов: 3000x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82870C3BEA87EE15CBAB8D572BDC2CD9652B0997
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593982   (179069) от 29.11.2022
+
+Иконки - 3D Character Male Doctor Illustration [PNG, PSD]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Используется для любых веб-сайтов, приложений, поздравительных открыток, баннеров, открыток, брошюр и любых других проектов.Формат: PNG, PSDРазрешение файлов: 3000x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A564D7D35EB9F2C2EDB030C64E5DC0E083427E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593984   (179018) от 29.11.2022
+
+Иконки - UI8 - 3D Winter [PNG, BLEND]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор 3D зимние иконок предоставит вам простые, знаковые иконки для вашего потрясающего дизайна, а цвет легко изменить в соответствии с вашим стилем.Формат: PNG, BLENDРазрешение файлов: 2000x2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:678C830152E1830F1B69AAE908FA066F2502BE91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428701   (177961) от 04.12.2020
+
+Фотография - ArtStation - Grafit Studio - 700+ Warrior & Fairy Character Reference Pictures [JPG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177961.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Все дело в контрасте" - подумали мы, когда выпустили этот комплект фотографий в костюмах. Этот пакет включает в себя более 700 фотографий с высоким разрешением с совершенно разными, но одинаково эпическими персонажами.Формат: JPGРазрешение файлов: 4000x6000, 6000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3716B3BC4A3377FA4967104ED42EC84A108FF867
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428867   (177946) от 04.12.2020
+
+Фотография - ArtStation - Grafit Studio - 500+ Clothing Textures Reference Pictures [JPG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рисовать одежду может быть очень трудным, особенно если вы хотите добиться подлинного внешнего вида. Мы начинаем новую серию, ориентируясь на различную одежду, фактуры и материалы. Если вы хотите изучить как драпировка, складки или волосы движутся вместе с персонажем - изучите эти фотографии! Мы также включили различные варианты освещения.
+Этот пакет фото референсов (   Читать дальше...   )Формат: JPGРазрешение файлов: 4000x6000, 6000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EA3BF2796FB5699A36E486B70B5932C2703D9CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594598   (177631) от 01.12.2022
+
+Картинки - Американские Индейцы [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картинки в жанре американские индейцы.Формат: JPGРазрешение файлов: 1440х1920-1920х1440
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6701DE35822B7369D998A518A9A678D42885DAA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429185   (177187) от 05.12.2020
+
+Фотография - ArtStation - Grafit Studio - 560+ Folds & Clothing Reference Pictures [JPG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_177187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рисовать одежду может быть очень трудным, особенно если вы хотите добиться подлинного внешнего вида. Мы начинаем новую серию, ориентируясь на различную одежду, фактуры и материалы. Если вы хотите изучить как драпировка, складки или волосы движутся вместе с персонажем - изучите эти фотографии!
+Это вторая часть серии. Первая часть: 500+ Clothing Textures Reference (   Читать дальше...   )Формат: JPGРазрешение файлов: 4000x6000, 6000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F18D91BEC490659DE301740A4BBFA2A7F4EC53C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429524   (176285) от 06.12.2020
+
+Фотография - ArtStation - Grafit Studio - 350+ Knight Reference Pictures for Artists [JPG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Здравствуйте, друзья! Мы выпускаем очень захватывающий пакет референсов, включающий более 350 фотографий в высоком разрешении с различными видами доспехов, условиями освещения, боевыми позами и многим другим!Формат: JPGРазрешение файлов: 3840x5760
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05A83DF992FAD456291166BA16F5A31C3321BCD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429544   (176232) от 06.12.2020
 
 Фотография - ArtStation - Grafit Studio - 200+ Knight and Princess Reference Pictures for Artists [JPG]
@@ -6,7 +216,7 @@
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176232.jpg" />
 </div>
 
 
@@ -32,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175657.jpg" />
 </div>
 
 
@@ -58,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175625.jpg" />
 </div>
 
 
@@ -84,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175508.jpg" />
 </div>
 
 
@@ -110,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175471.jpg" />
 </div>
 
 
@@ -136,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175407.jpg" />
 </div>
 
 
@@ -162,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174961.jpg" />
 </div>
 
 
@@ -188,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174938.jpg" />
 </div>
 
 
@@ -214,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174889.jpg" />
 </div>
 
 
@@ -240,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174881.jpg" />
 </div>
 
 
@@ -266,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174766.jpg" />
 </div>
 
 
@@ -292,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174747.jpg" />
 </div>
 
 
@@ -318,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174719.jpg" />
 </div>
 
 
@@ -344,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174111.jpg" />
 </div>
 
 
@@ -370,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174064.jpg" />
 </div>
 
 
@@ -396,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174052.jpg" />
 </div>
 
 
@@ -422,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174034.jpg" />
 </div>
 
 
@@ -448,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173752.jpg" />
 </div>
 
 
@@ -459,225 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D51C756E8804098C54C8D65B68F37304AD6B57CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669247   (172952) от 15.10.2023
-
-Фотография - Comedy Wildlife Photography Awards 2023 [PNG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кенгуру-гитарист и танго лошадей. Самые смешные фото диких животных
-Опубликованы фото финалистов конкурса Comedy Wildlife Photography Awards.
-
-Организаторы ежегодного конкурса самых смешных фотографий дикой природы Comedy Wildlife Photography Awards 2023 опубликовали снимки, которые вошли в шорт-лист премии. Свои работы прислали тысячи профессиональных фотографов (   Читать дальше...   )Формат: PNGРазрешение файлов: 800x1200 - 1600x1200
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD73F47534544B440B279DA71FA10E16D52C1430
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669510   (172760) от 16.10.2023
-
-Фотография - Фотограф года дикой природы 2022 [PNG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский фотограф Дмитрий Кох стал лауреатом премии Wildlife Photographer Of The Year в номинации «Дикая природа в городе». Он необычным способом запечатлел белых медведей на Чукотке.
-
-Жюри конкурса по достоинству оценило работу россиянина — фотографию «Медвежий дом» (смотрите 1 скриншот). На снимке изображены белые медведи, бродящие в заброшенном поселке на острове (   Читать дальше...   )Формат: PNGРазрешение файлов: 1536x1920 - 2560x2560
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:292450FC613EEBAF130E86A3B35F0676F56B21EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669427   (172756) от 16.10.2023
-
-Фотография - Фотограф года дикой природы 2023 [PNG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жюри конкурса Wildlife Photographer Of The Year объявило победителей 2023 года. Лучшим фотографом в области дикой природы стал француз Лоран Баллеста, запечатлевший под водой мечехвоста — это настоящее живое ископаемое, известное своей голубой кровью, находится под угрозой исчезновения из-за использования ее для изготовления лекарств.
-
-В номинации «Под водой» победил (   Читать дальше...   )Формат: PNGРазрешение файлов: 1536x1543 - 2560x2209
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7AAE0BC2235CB9954B1ABCE62D718E7EECE4AA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669631   (172585) от 17.10.2023
-
-Фотография - Фотограф года дикой природы 2021 [PNG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежегодный международный конкурс фотографий дикой природы, проводимый Музеем естествознания в Лондоне, подвел итоги 2021 года, выбрав из более 50 тыс. работ в 19 категориях лучшие снимки. В конкурсе приняли участие фотографы из 95 стран.
-
-Абсолютным победителем конкурса, завоевавшим титул  «Лучший фотограф дикой природы», стал Лоран Бальеста из Франции. Его снимок (   Читать дальше...   )Формат: PNGРазрешение файлов: 1536x1800 - 2560x1982
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E14EEA38DD8717E25356725C9A4F47C4AAE2BF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669836   (172434) от 18.10.2023
-
-Фотография - Фотограф года дикой природы 2020 [PNG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Британский музей естествознания подвел итоги самого престижного в мире фотоконкурса Wildlife Photographer of the Year 2020 («Фотограф дикой природы-2020»). И в этом году мы наблюдаем настоящий триумф России. Прежде всего впервые за полувековую историю конкурса Гран-при взял наш соотечественник. Всемирно известный фотограф Сергей Горшков (кстати, он еще и многолетний (   Читать дальше...   )Формат: PNGРазрешение файлов: 1536x2048 - 2560x2302
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54B50C6FE57BA1747ADE1205349203BB9BF2D5E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669900   (172433) от 18.10.2023
-
-Фотография - Фотограф года дикой природы 2019 [PNG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лондонский музей естествознания объявил результаты одного из самых престижных конкурсов среди фотографов дикой природы Wildlife Photographer of the Year 2019, который проводится ежегодно с 1964 года.
-
-В этом году главный приз завоевал фотограф  Yongqing Bao из Китая за снимок «Момент» (смотрите 1 скриншот), на котором запечатлено мгновение, когда тибетская лиса-самка (   Читать дальше...   )Формат: PNGРазрешение файлов: 1536x2304 - 2560x1920
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5FB345914EBD8CC50363C1FD2E350EB4C16E1A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669888   (172411) от 18.10.2023
-
-Фотография - ArtStation - Howard Lyon - Kaylee Classical [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это моя вторая съемка с Кейли. Первый сет "Kaylee Contemporary" был одним из моих самых популярных, и я думаю, этот вам тоже понравится. Кейли прекрасно себя чувствует и приносит огромную радость на фотосессию. Я думаю, вы увидите это по фотографиям и выражениям лиц. Мне очень нравится с ней работать!Формат: JPGРазрешение файлов: 2351x3272 - 5221x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD7CD1E71D334B2B738319857448087C238E8899
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669887   (172407) от 18.10.2023
-
-Фотография - ArtStation - Howard Lyon - Chelsea Classical [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я рад выпустить этот набор с новой моделью, с которой я работаю. Челси привносит несколько уникальных и новых поз в мои наборы фото-референсов. Она очень сильная и гибкая благодаря своему опыту занятий йогой, и вы увидите это по позам. Я направлял её в более традиционные позы, но она продолжала продвигать их дальше и еще больше проецировать конечности и суставы, (   Читать дальше...   )Формат: JPGРазрешение файлов: 4268x6662 - 5987x4191
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:961253B4A11F4D61D53A6FB9084C36F85A79A5FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

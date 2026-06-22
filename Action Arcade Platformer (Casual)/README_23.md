@@ -1,3 +1,55 @@
+###  Публикация: 1740690   (48024) от 03.08.2024
+
+BioGun (2024) [Ru/Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48024.jpg" />
+</div>
+
+
+###  Подробнее
+
+BioGun погружает пользователей в микроскопический мир, с которым они еще не сталкивались. Миссия ясна: спасти лучшего друга человека от злобной вирусной угрозы. Это не просто взрывной бой с врагами, это стратегический танец выживания в сложном человеческом теле. Это не простая прогулка. Повествование заставляет геймеров думать на ходу, требуя от них быстрых рефлексов (   Читать дальше...   )Тип издания: SceneРазработчик: Dapper Dog DigitalЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9C6CCFBDC1EFAB4DBF17473463E2C74B92DD2EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740674   (47974) от 03.08.2024
+
+First Cut: Samurai Duel (2024) [En] (1.3) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47974.jpg" />
+</div>
+
+
+###  Подробнее
+
+First Cut: Samurai Duel - это хардкорный пиксельный слэшер для любителей суровых рукопашных сражений. У самурая нет цели, только путь, который ему предстоит пройти. Управляйте безбашенным воином, который готов поразить каждого, кто встанет на вашем пути. Оттачивайте свое мастерство с бесконечных схватках с самыми разными противниками, формируйте уникальный боевой (   Читать дальше...   )Тип издания: LicenseРазработчик: Night Eyes InteractiveЖанр: Экшены, ИндиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:786091EAAEBC1FA7D31564DB7F21129B93E8486A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740894   (47879) от 04.08.2024
 
 Fallen Leaf (2024) [En] (1.0.0.14) Repack FitGirl
@@ -6,7 +58,7 @@ Fallen Leaf (2024) [En] (1.0.0.14) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47879.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ PIGROMANCE (2022) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47773.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Kingdom Shell (2023) [Ru/Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47750.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Abathor (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47578.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ MeteoHeroes (2022) [Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47428.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ PIGROMANCE (2022) [Multi] (1.0.1) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47360.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ SteamWorld Heist II (2) (2024) [Ru/Multi] (1.3) Scene Tenoke [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47260.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Smack Studio (2021) [En] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47137.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Bo: Path of the Teal Lotus (2024) [Multi] (1.1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47071.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ SteamWorld Heist II (2) (2024) [Ru/Multi] (1.3) Repack FitGirl [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47051.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Bzzzt (2023) [Multi] (1.325f-240802) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46994.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Ingression (2024) [Ru/Multi] (1.1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46949.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Bo: Path of the Teal Lotus (2024) [Multi] (1.1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46874.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ MT Force Aliens Uprising (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46643.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Diari (2024) [En] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46614.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Berserk Boy (2024) [Ru/Multi] (1.06) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46386.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Abathor (2024) [Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46345.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ X Invader (2023) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46315.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Unrooted (2024) [En] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45987.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Eden Genesis (2024) [Multi] (1.0.012) Repack FitGirl [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45621.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Eden Genesis (2024) [Multi] (1.0.012) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44965.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Frogun (2022) [Multi] (1.9.3) License GOG [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44963.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Frogun Encore (2024) [Multi] (0.915) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44926.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Sentinel Girls2: Snezhinka (2024) [Multi] (1.1.1) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44560.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Sentinel Girls2: Snezhinka - это пиксель-арт игра, где юз�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DBE5C87D2AC99BED77A2549247C9567784604AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747402   (44516) от 05.09.2024
-
-Lone Fungus (2022) [En] (1.1.14) Scene Tenoke
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lone Fungus переносит пользователей в фэнтезийный мир, где предстоит взять под управление последнего выжившего гриба-гуманоида. Игра представляет собой классическую метроидванию, где необходимо изучать открытый мир, прокачивать персонажа, сталкиваться с опасностями и монстрами, а также открывать секреты вселенной, созданной грибами. У юзеров выйдет посетить 8 уникальных (   Читать дальше...   )Тип издания: SceneРазработчик: Basti GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D3900CEA4D36D033A8BEA0082C80EC0B947F641
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747849   (44332) от 07.09.2024
-
-WARCANA (2024) [Multi] (15354714) Scene Tenoke
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра сочетает в себе магию и стратегию в битве за выживание с высокими ставками. Вы играете за могущественного мага, который сталкивается с неумолимыми волнами монстров. Уникальное преимущество игры - создание колод. Ваша миссия двояка: выжить под натиском монстров и перехитрить других магов. Вы строите свою колоду, укрепляете базу и призываете армии. Это гонка со (   Читать дальше...   )Тип издания: SceneРазработчик: 1000 OrksЖанр: Защита башни, Карточные игрыЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1902B35E36F5B0D47B57C836AA62DD84FE7BA31
 ```
 
 https://mybot314.ru/tekegram_catalog/

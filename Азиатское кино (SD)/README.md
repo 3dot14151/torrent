@@ -1,4 +1,82 @@
 https://t.me/izofen
+###  Публикация: 1877213   (1073816) от 
+
+Одержимость / Inganjungdok (2014) BDRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073816.jpg" />
+</div>
+
+
+###  Подробнее
+
+1969 год. Война во Вьетнаме подходит к концу. Офицер и герой войны полковник Ким Джин-пхён готовится получить звание генерала. Успехи на службе, счастливый брак, красивая жена — всё это не может оставить равнодушным завистников. Но на самом деле его привязанность к жене ослабла, а из-за войны он страдает от посттравматического синдрома. Однажды Джин-пхён сталкивается (   Читать дальше...   )Производство: Южная Корея / Iron Package, Next Entertainment WorldЖанр: драма, мелодрамаРежиссер: Дэ У КимАктеры: Сын Хон Сон, Чжи Ён Им (I), Ё Чжон Чо, Чжу Ван Он, Хэ Чжин Ю, Сон У Пэ, Хёк Квон Пак, Хе Чжин Чон (I), Тхэ Гу ОмПеревод: любительский многоголосый (STEPonee), любительский двухголосый (GREEN TEA)Язык озвучки: русский, корейскийСубтитры: русские (ФСГ 'Палата 666'), английскиеПродолжительность: 02:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9CCCF94DB1636DC5D9A5FEE2405F240A93E1E76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876825   (1073602) от 17.06.2026
+
+Воронка на двоих / Kakou No Futari / It Feels So Good (2019) BDRip [H.264] [JP / RU Sub]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073602.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Кэндзи Нагахары тяжёлый период в жизни. Из-за банкротства компании он потерял работу и развёлся. Кэндзи приезжает в родной город Акита на свадьбу своей бывшей девушки Наоко Сато. Увидев парня впервые за долгое время, Наоко предлагает ему секс на одну ночь, однако и после этого их отношения не заканчиваются...Производство: Япония / Phantom Film, Studio3, VAPЖанр: мелодрамаРежиссер: Харухико АраиАктеры: Тасуку Эмото, Куми Такиути, Акира ЭмотоПеревод: субтитрамиЯзык озвучки: японскийСубтитры: русские, английскиеПродолжительность: 01:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7934DC3965E45C13AE90E6BF40D407302F04161F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876460   (1073286) от 
+
+Брак - сумасшедшая вещь / Gyeolhoneun, michin jisida (2002) BDRip [H.264] [KOR / RU Sub]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чон Ён - молодой профессор английской литературы и закоренелый холостяк. Но когда он знакомится с Ён Хи на свидании вслепую, его холостяцкая жизнь, похоже, подходит к концу. Однако из-за их взглядов на брак она выходит замуж за другого, а профессор встречается с ней только по выходным. Но даже в этих ограниченных отношениях возникают конфликты, которые приводят к (   Читать дальше...   )Производство: Южная Корея / CJ Entertainment, SidusЖанр: драма, мелодрамаРежиссер: Ю ХаАктеры: Кам У-сон, Ом Джон-хва, Пак Вон-сан, Кан Со-джон, Стивен Лосон, Лим Джон-ын, Рю Хён-гён, Юн Со-джон, Юн Е-ри, Пак Сон-гынПеревод: субтитрамиЯзык озвучки: корейскийСубтитры: русскиеПродолжительность: 01:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28D878539DBE3919F03E5EED132ADE4BFDB872C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875296   (1072461) от 
 
 Повесть о Затойчи 2. Возвращение слепого массажиста / Zoku Zatoichi monogatari (1962) BDRip [H.264] [MVO]
@@ -7,7 +85,7 @@ https://t.me/izofen
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072461.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068369.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068365.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067813.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067597.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065447.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065385.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065203.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064816.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064780.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064174.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063688.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063652.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063090.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062544.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059393.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058513.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058469.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058294.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058293.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057955.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057811.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057620.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:934CB9EEF10B7CAAC2D8EE9FBDC8247512B90CAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854552   (1057550) от 18.02.2026
-
-Эликсир молодости / Abadi Nan Jaya / The Elixir (2025) WEBRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057550.jpg" />
-</div>
-
-
-###  Подробнее
-
-В тихой деревне Ваниреджо на острове Ява семейный бизнес по производству традиционных травяных лекарств (джаму) переживает тяжёлые времена. Стареющий владелец компании Садимин (Пак), устав от семейных дрязг и финансовых проблем, решает продать дело и уйти на покой. Но в последний момент он создаёт революционный новый эликсир — Abadi Nan Jaya («Вечный и Славный»), (   Читать дальше...   )Производство: Индонезия / Mowin PicturesЖанр: ужасы, боевикРежиссер: Кимо СтамболАктеры: Миха Тамбайон, Эва Челиа Латджуба, Члареста Тауфан Кусумарина, Димас Ангара, Мартхино Лио, Ардит Эрвандха, Варрен Арианда Чалиеф, Донни Дамара, Кики Нарендра, Вонни Анграини и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CF19E64CA9E562671A5E1811FFE01E7F394121C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854392   (1057468) от 17.02.2026
-
-Служанка / Горничная / Hanyo / The Housemaid / (1960) BDRip [H.264] [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мелкобуржуазная семья, состоящая из учителя музыки, белошвейки и пары нагловатых детей младшего школьного возраста, в связи с переездом из барака в двухэтажный дом и скорым прибавлением потомства, нанимает помогать по хозяйству девушку из фабричного общежития — пугливое, неразговорчивое, много курящее существо, чей главный и единственный талант пробуждать в окружающих (   Читать дальше...   )Производство: Южная Корея, Hanguk Munye Yeonghwa, Kim Ki-Young ProductionЖанр: драма, мелодрама, криминал,  триллерРежиссер: Ким Ки-ЁнАктеры: Ли Ын-щим, Чу Джын-нё, Ким Джин-гю, Ан Сон-ги, Ом Эн-ран, Кан Сок-чэ, Ко Сон-э, На Джон-окПеревод: любительский одноголосый (liosaa)Язык озвучки: русский, корейскийСубтитры: русские (liosaa), английскиеПродолжительность: 01:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F19A12620BE827F6450E5FAD3F32E7A1ECE6B9FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853125   (1056443) от 11.02.2026
-
-Мой пропавший Валентин / Xiao shi de qing ren jie / My Missing Valentine (2020) BDRip [H.264] [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сяо-чи делает всё так быстро, что на шаг опережает других. На работе дела идут отлично, а вот личная жизнь не складывается. Перед днём Святого Валентина Сяо-Чи наконец встречает симпатичного парня и собирается провести день всех влюблённых с ним. Однако, проснувшись на следующее утро, она с ужасом обнаруживает, что наступило 15 февраля...Производство: Тайвань, 1 Production Film, Ambassandor Theatres, Mandarin VisionЖанр: фэнтези, мелодрама, комедияРежиссер: Чэнь ЮйсюньАктеры: Лю Куаньтин, Патти Ли, Дункан Лай, Бамбу Чэнь, Крес Чуан, Хэвен Хай, Керр Сю, Гу Баомин, Берри Вен-и Куо, Цу-Цзюнь ЛангПеревод: любительский одноголосый (porcellus)Язык озвучки: русский, китайскийСубтитры: английскиеПродолжительность: 01:59:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78D7DB6A35D12C360125F896C22DE93EF040AF11
 ```
 
 https://mybot314.ru/tekegram_catalog/

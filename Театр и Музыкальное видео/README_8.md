@@ -1,3 +1,94 @@
+###  Публикация: 597680   (1000357) от 02.01.2013
+
+Песня года. Части №1-2  (2013) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000357.jpg" />
+</div>
+
+
+###  Подробнее
+
+На телеканале "Россия" главный концерт страны! Участвуют все звезды!
+Каждый раз в первые дни нового года мы с радостью слышим позывные любимой программы: "Через годы, через расстояния, На любой дороге, в стороне любой Песне ты не скажешь "до свидания", Песня не прощается с тобой…"01 часть:
+01. Тимати и Г. Лепс - Лондон
+02. Буранвские бабушки - Party for everybady
+03. Кристина Орбакайте - Ультрафиолет(   Читать дальше...   )Жанр: КонцертПродолжительность: 2 х ~ 02:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73924D3A52DA3A846DE4533EBA0F779E4F187347
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597390   (1000331) от 02.01.2013
+
+David Garrett: Music Live In Concert (2012) Blu-Ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000331.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новом альбоме скрипач Дэвид Гарретт виртуоз различных музыкальных стилей и эпох вместе устанавливает новые стандарты в универсальности своей скрипки . От Бетховена  до Майкла Джексона, скрипач играет увлекательно с различными элементами из мира классической музыки и поп-музыки. Музыка - слово, которое понятно всем мире. Неудивительно, что Дэвид Гарретт, который превышает в своем искусстве в течение многих лет успешно все границы и разных стилей, жанров и поколений вместе, для своего нового альбома выбрал название,  направленное на универсальность .  Он воспользовался возможностью, чтобы представить своей аудитории игру  на скрипке с совершенно ином свете. Концерт в концерте , он в очередной раз показывает, что он не только чувствует себя комфортно в студии, но и на сцене. С классиков, таких как "We Will Rock You", он открыл концерт, а затем выполняет разнообразные программы полны энергии и истории музыки. Между Бетховеном и работой Пола Маккартни, вы окажетесь в Нирване, Coldplay и Джастин Тимберлейк снова. (   Читать дальше...   )Жанр: : Instrumental CrossoverРежиссер: David GarrettАктеры: David Garrett&BandПродолжительность: 02:04:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597666   (1000317) от 02.01.2013
+
+20 Лучших песен 2012 года (2011) [1080i] HDTV
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000317.jpg" />
+</div>
+
+
+###  Подробнее
+
+"20 лучших песен 2012 года"- ежегодная музыкальная премия по итогам Сводного национального чарта. Из тысяч музыкальных композиций выбрать всего двадцать — дело непростое. При составлении национального сводного чарта "Красная звезда" учитывается количество скачиваний песен в Интернете, частота появлений исполнителя на телевидении, ротация на радио и, конечно, народное голосование...01. DJ Smash и Винтаж - «Москва»
+02. Лоя - «Розы темно-алые»
+03. Потап и Настя - «Если вдруг»
+04. Градусы - «Голая»
+05. Юлия Савичева - «Юлия»
+06. Джиган - «Нас больше нет»
+07. Кристина Орбакайте и Дискотека Авария - «Прогноз погоды»
+08. Серебро - «Мама Люба»
+09. Дан Балан - «Лишь до утра»
+10. Эльвира Т - «Все решено»(   Читать дальше...   )Жанр: РорПродолжительность: 01:58:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 597711   (1000314) от 02.01.2013
 
 Авторадио: Дискотека 80-х (2012) [1080i] HDTV
@@ -6,7 +97,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000314.jpg" />
 </div>
 
 
@@ -35,7 +126,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000307.jpg" />
 </div>
 
 
@@ -65,7 +156,7 @@ Uriah Heep - The Ultimate Anthology (2004) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000178.jpg" />
 </div>
 
 
@@ -100,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000159.jpg" />
 </div>
 
 
@@ -134,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000099.jpg" />
 </div>
 
 
@@ -161,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999825.jpg" />
 </div>
 
 
@@ -188,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999815.jpg" />
 </div>
 
 
@@ -223,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999635.jpg" />
 </div>
 
 
@@ -258,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999576.jpg" />
 </div>
 
 
@@ -284,7 +375,7 @@ BAZUKA - Christmaz Bitchez (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999323.jpg" />
 </div>
 
 
@@ -310,7 +401,7 @@ Ibiza vs. VDJ Rossonero - Happy New Year (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999314.jpg" />
 </div>
 
 
@@ -336,7 +427,7 @@ Young Swift Feat. Young Jeezy - I Like (Uncensored)(2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999303.jpg" />
 </div>
 
 
@@ -362,7 +453,7 @@ Slade At The BBC (1969-1991) (2012) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999109.jpg" />
 </div>
 
 
@@ -397,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999055.jpg" />
 </div>
 
 
@@ -426,7 +517,7 @@ Uriah Heep - Classic Heep Live From The Byron Era (2004) 2хDVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999028.jpg" />
 </div>
 
 
@@ -461,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998999.jpg" />
 </div>
 
 
@@ -488,7 +579,7 @@ Osibisa - Live At The Marquee 1983 (2004) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998896.jpg" />
 </div>
 
 
@@ -518,7 +609,7 @@ VA - Tribute to Led Zeppelin (35th Kennedy Center Honors) (2012) HDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998826.jpg" />
 </div>
 
 
@@ -547,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998798.jpg" />
 </div>
 
 
@@ -573,7 +664,7 @@ Adele - Live At The Royal Albert Hall (2011) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998790.jpg" />
 </div>
 
 
@@ -608,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998768.jpg" />
 </div>
 
 
@@ -636,7 +727,7 @@ Adele - Live at the Royal Albert Hall (2011) [H.264] BDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998759.jpg" />
 </div>
 
 
@@ -665,7 +756,7 @@ Kasino feat Elicia Solis - All For You (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998559.jpg" />
 </div>
 
 
@@ -676,95 +767,6 @@ Kasino feat Elicia Solis - All For You (2012) [H.264/720p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36A1018CC895AE8DFD80A348D2779E1B80D6F147
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600638   (998531) от 09.01.2013
-
-Gotay El Autentiko - Sexo Toda La Noche (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C29AAC356EF5AF60371C98D64036970C11E5F919
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600636   (998523) от 09.01.2013
-
-EarAbuse - Phonography (Uncensored) (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DubstepПродолжительность: 00:04:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB1E6DE4071AC9AEFDD14683D39FC5FF1DF46E5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599448   (998520) от 09.01.2013
-
-U.D.O. - Live in Sofia (2012) Blu-Ray [custom]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rev-Raptor
-02. Dominator
-03. Thunderball
-04. Leatherhead
-05. Independence Day
-06. Screaming For A Love-Bite
-07. Heart Of Gold
-08. Vendetta
-09. Princess Of The Dawn
-10. I Give As Good As I Get(   Читать дальше...   )Жанр: Heavy MetalРежиссер: Geffen RecordsАктеры: Udo Dirkschneider, Igor Gianola, Fitty Wienhold, Francesco Jovino, U.D.O.
-
-Пересобранный  BluRay. За исходный Blu-Ray cпасибо -Перевод: ОтсутствуетПродолжительность: 2:25:12
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

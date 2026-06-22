@@ -1,3 +1,81 @@
+###  Публикация: 907107   (641627) от 10.06.2015
+
+Браво, Артист! - Александр Абдулов (2008) TVRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обыкновенное чудо" случилось с Александром Абдуловым в 1978 году, когда, сыграв Медведя в одноименном фильме Марка Захарова, молодой артист из "Ленкома" проснулся поутру секс-символом Страны Советов. Александр Абдулов сам не помнил, во скольких фильмах снялся за три десятка лет, говорил, что картин было около сотни. На самом же деле - более 140 ролей (   Читать дальше...   )Телекомпания: Россия, ТВ-ЦентрЖанр: ДокументальныйРежиссер: Александр КоняшовАктеры: Александр Абдулов, Александр Ширвиндт, Михаил Ширвиндт, Александр Збруев, Игорь КвашаПродолжительность: 01:29:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4F24E656A2438C700A333835A8E6BFC21F37B25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246340   (640629) от 01.04.2019
+
+Леонид Гайдай. Человек, который не смеялся (2018) IPTVRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Леонид Гайдай создавал фильмы, за просмотром которых хохотала вся страна. При этом сам режиссёр слыл человеком серьёзным, неулыбчивым, а то и просто скучным. Так ли это было на самом деле? И в чём секрет невероятной популярности картин мэтра?Производство: Россия, ООО "Панч ТВ"Жанр: Документальный, хроника, кинематограф, биографияРежиссер: Елена ЛапенковаЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6391EC1232B3B664CDF39C68568D2CD5A868CAE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907120   (639725) от 11.06.2015
+
+Браво, Артист! - Савелий Крамаров (2008) TVRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герой этой программы "Браво, артист!" Савелий Крамаров любил повторять: "Я обычно играю дураков, поэтому меня везде принимают как своего". Этому актеру с его необычным талантом и своеобразной внешностью удалось родиться вовремя. Прижизненная слава "джентельмена удачи" была огромной: вся страна повторяла репризы из "Неуловимых мстителей","Джентльменов (   Читать дальше...   )Телекомпания: Россия, ТВ-ЦентрЖанр: ДокументальныйРежиссер: Александр Коняшов, Максим СимаковАктеры: Савелий Крамаров, Александр Ширвиндт, Михаил ШирвиндтПродолжительность: 01:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE95DD7B55C658A612A11964458DE06F81989E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142987   (639335) от 16.06.2017
 
 The Rolling Stones - Ole Ole Ole - A Trip Across Latin America (2017) Blu-ray [H.264/1080i] [EN]
@@ -6,7 +84,7 @@ The Rolling Stones - Ole Ole Ole - A Trip Across Latin America (2017) Blu-ray [H
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639335.jpg" />
 </div>
 
 
@@ -35,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638745.jpg" />
 </div>
 
 
@@ -61,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637823.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637110.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635377.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635321.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634857.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632906.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631700.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631689.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630216.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629636.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628625.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628191.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628064.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ Solo (2021) WEBRip [H.264/1080p]
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627348.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622612.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622360.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621885.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620885.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620496.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619817.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619701.jpg" />
 </div>
 
 
@@ -592,85 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2C833D9C7403EF5BC74EAF1E031A6CADA83EE8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145686   (619683) от 26.06.2017
-
-Наталья Варлей. Свадьбы не будет! (2017) HDTV [H.264/1080i-LQ]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наталья Варлей стала всенародной любимицей в 19 лет. «Кавказская пленница» сделала ее «спортсменкой, комсомолкой и просто красавицей» на все времена! Гайдай увидел Наталью в цирке, под самым куполом — та работала воздушной гимнасткой — и понял: вот его героиня! Юная Нина в исполнении Натальи Варлей была наделена редким обаянием, живостью ума и отличным чувством юмора. (   Читать дальше...   )Телекомпания: Россия / ООО «КОНТРАСТ»Жанр: Документальный, История, БиографияЯзык субтитров: РусскийПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0117BA6B6EBD4AE545A70B02ADAD9D0C2F43D047
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911027   (619402) от 21.06.2015
-
-Настоящая кровь. Прощальное шоу / True Blood. A Farewell To Bon Temps (2015) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм о создании одного из самых успешных сериалов HBOТелекомпания: Home Box Office (HBO)Жанр: ДокументальныйПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 00:26:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12C4AF0A8AB798574A27F3F445D6FBAC31DB5AF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145596   (617968) от 27.06.2017
-
-Солдаты 9 1/2 «Наизнанку» (2006) SATRip (Серии 1-5 из 5)
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторы многосерийного фильма «Солдаты. Наизнанку» включили в свое повествование интересные переплетения судеб реальных и вымышленных, лучшие эпизоды сериала и ситуации, не вошедшие в кадр, настоящую любовь и битву самолюбий, фанов и поклонников – в общем все то, что так или иначе произвела на свет эта сложная махина под названием «Солдаты».
-В фильме «Солдаты. Наизнанку» (   Читать дальше...   )Телекомпания: Рен ТВЖанр: Документальный, сериал о сериалеПродолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61B4D65EAA2D0D02EE19F29DFD88A121CE9067DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 467227   (82245) от 15.03.2012
+
+Поймать вора / To Catch a Thief (1955) [1080p] Blu-ray
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джон Роби, был некогда непревзойдённым профессиональным вором, известным под кличкой «Кот». «Коту» повезло: он сумел вовремя «завязать» и красиво уйти. Скопив капиталец, Роби отправился «на пенсию» и элегантно прожигал жизнь на французской Ривьере.Но изысканной и спокойной жизни экс-преступника приходит конец после того, как кто-то начинает грабить богатеев, точь-в-точь в его стиле Роби. Так как подозрения резонным образом падают на Джона, то он решает во что бы то ни стало найти своего имитатора!Жанр: триллер, мелодрама, криминал, детективРежиссер: Альфред ХичкокАктеры: Кэри Грант, Грэйс Келли, Джесси Ройс Лэндис, Джон Уильямс, Шарль Ванель, Брижитт Обер, Жан Мартинелли, Жоржетт Анис, Джордж Адриан, Джон АлдерсонПеревод: Многоголосый закадровый, Двухголосый закадровый, Одноголосый закадровыйПродолжительность: 01:46:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D30D625FA57BF4DA13FDFAAAD9BE8D41A752CCD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466695   (81721) от 12.03.2012
+
+Красотка / Pretty Woman (1990) [H.264/720p-LQ] BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: мелодрама, комедияАктеры: Джулия Робертс, Ричард Гир, Ральф Беллами, Джейсон Александр, Лора Сан Джакомо, Эктор ЭлисондоПеревод: Дублированный + одноголосый, закадровый (Субтитры: Русские, АнглийскиеПродолжительность: 01:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A463944B058E4E7814A2024ACFE3FCC362AA4328
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 460795   (79988) от 04.03.2012
 
 Пустоши / Опустошённые земли / Badlands (1973) HDTVRip [720p]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79988.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77729.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77557.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71891.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70409.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66624.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63881.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63841.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63742.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63714.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63639.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63265.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63228.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63095.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62968.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62848.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62584.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62446.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61865.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61614.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61611.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61505.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61390.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61003.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:339B04AEB6AFAB8F846C58DEF4885375F46B515B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712248   (60899) от 03.04.2024
-
-Будучи там / Being There (1979) BDRip [H.264/720p] [Criterion collection]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60899.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на одноимённом романе Ежи Косиньски (1971)... Садовник, вся жизнь которого прошла в уходе за садом и телевизором, оказывается без работы, поскольку его прежний хозяин умер, а новые хозяева выставляют его на улицу. Зная внешний мир только по программам телевидения и общению с чернокожей кухаркой, он, делая первые неуверенные шаги в незнакомом для него (   Читать дальше...   )Производство: США / BSB, CIP, Lorimar Film Entertainment...Жанр: драма, комедияРежиссер: Хэл ЭшбиАктеры: Питер Селлерс, Ширли МакЛейн, Мелвин Дуглас, Джек Уорден, Ричард А. Дайсарт, Ричард Бейсхарт, Рут Аттавэй, Дэвид Кленнон, Фрэн Брилл, Дениз ДюБарриПеревод: дублированный, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:950B7FC4EBAB9B9CA3608285BE64D9FFCBFB0B20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 706436   (60792) от 04.04.2024
-
-В порту / On the Waterfront (1954) BDRemux [1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60792.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета судьба простого докера — Терри Мэллоу, терзающегося сомнениями и решающего встать на путь восстановления справедливости, после того как выясняется, что он работает на настоящего гангстера — коррумпированного босса портовых докеров Джонни Фрэндли.Жанр: Драма, КриминалРежиссер: Элиа Казан / Elia KazanАктеры: Марлон Брандо, Карл Молден, Ли Дж. Кобб, Род Стайгер, Пэт Хеннинг, Лейф Эриксон, Джеймс Уэстерфилд, Тони Галенто, Тами Морьелло, Джон Ф. Хэмилтон, Джон Хелдабрэнд, Руди Бонд, Дон Блэкман, Артур Кигэн, Абе Саймон, Ева Мари Сэйнт, Мартин Болсам, Дэн Бергин, Захари Чарльз, Джир Делани, Майкл В. Гаццо, Фред ГуиннПеревод: Двухголосый закадровыйЯзык субтитров: Русские, английскиеПродолжительность: 01:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E442F25A375D1EA9EAA21FAF27419D515B92967
 ```
 
 https://mybot314.ru/tekegram_catalog/

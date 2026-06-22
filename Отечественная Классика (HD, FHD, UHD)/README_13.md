@@ -1,3 +1,30 @@
+###  Публикация: 414000   (328373) от 23.11.2011
+
+Москва слезам не верит (1979) [720p] BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Москва пятидесятых годов. Три молодые провинциалки приезжают в Москву в поисках того, что ищут люди во всех столицах мира — любви, счастья и достатка. Их судьбы складываются именно так, как предполагает характер каждой из девушек.
+ Антонина выходит замуж, растит детей, любит мужа. Людмиле Москва представляется лотереей, в которой она должна выиграть свое особенное (   Читать дальше...   )Производство: СССРЖанр: Драма, Мелодрама, КомедияРежиссер: Владимир МеньшовАктеры: Вера Алентова, Ирина Муравьёва, Алексей Баталов, Раиса Рязанова, Александр Фатюшин, Борис Сморчков, Виктор Уральский, Валентина Ушакова, Юрий Васильев, Евгения ХанаеваПродолжительность: 02:28:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A54CC01E33F25748AAEC7E8AB32E3DCC9D379CDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259170   (318108) от 04.11.2018
 
 Женитьба Бальзаминова (1964) WEB-DL [H.264/1080p-LQ] [Реставрация МФ]
@@ -6,7 +33,7 @@
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318108.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314097.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313112.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311756.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306853.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305136.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304843.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304662.jpg" />
 </div>
 
 
@@ -216,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300577.jpg" />
 </div>
 
 
@@ -242,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_299324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_299324.jpg" />
 </div>
 
 
@@ -269,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297469.jpg" />
 </div>
 
 
@@ -295,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296835.jpg" />
 </div>
 
 
@@ -321,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296376.jpg" />
 </div>
 
 
@@ -348,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293109.jpg" />
 </div>
 
 
@@ -375,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290577.jpg" />
 </div>
 
 
@@ -401,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290459.jpg" />
 </div>
 
 
@@ -427,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288774.jpg" />
 </div>
 
 
@@ -453,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287118.jpg" />
 </div>
 
 
@@ -479,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286928.jpg" />
 </div>
 
 
@@ -507,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285593.jpg" />
 </div>
 
 
@@ -533,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283373.jpg" />
 </div>
 
 
@@ -559,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283225.jpg" />
 </div>
 
 
@@ -585,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279902.jpg" />
 </div>
 
 
@@ -611,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277582.jpg" />
 </div>
 
 
@@ -637,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275561.jpg" />
 </div>
 
 
@@ -648,33 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39D4E6E2CDF19302FE7A33AC63A6631288453218
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339220   (266024) от 19.11.2019
-
-Проверка на дорогах (1971) WEBRip [H.264/720p] [PR]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зима 1942 года. В одной из северо-западных областей России, оккупированной фашистами, действует партизанский отряд лейтенанта Ивана Локоткова, в прошлом — сельского милиционера. Отряд кормить нечем: в округе — одни сожженные деревни и каратели.
-Командир принимает решение захватить фашистский эшелон с продовольствием на узловой станции, где охраняется каждый метр. (   Читать дальше...   )Производство: СССР / ЛенфильмЖанр: Драма, военныйРежиссер: Алексей ГерманАктеры: Ролан Быков, Анатолий Солоницын, Владимир Заманский, Олег Борисов, Федор Одиноков, Геннадий Дюдяев, Майя Булгакова, Николай Бурляев, Виктор Павлов, Юрий ДубровинПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:32:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C42C60893CA091470F043372025295F9AC479B0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

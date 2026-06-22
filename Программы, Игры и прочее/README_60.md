@@ -1,3 +1,63 @@
+###  Публикация: 517216   (648919) от 30.06.2012
+
+Akimbo Audiobook Player v1.6.1 (30.06.2014) <Ru>
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_648919.jpg" />
+</div>
+
+
+###  Подробнее
+
+•поддерживает все основные форматы аудио книг: M4A, M4B (распознает главы), MP4, MP3, ogg vorbis, WMA and FLAC.
+•запоминает последнюю позицию и последний уровень громкости для каждой книги.
+•настраиваемые кнопки для быстрой перемотки вперед или назад.
+•простое в использовании меню, которое позволит мгновенно перейти на любую позицию в книге.
+•Home Screen Widget.
+•поддержка управления с гарнитуры (beta).
+•считывает обложки и главы аудиокниг.
+•позволяет одним щелчком автоматически загрузить обложки для любой книги, (   Читать дальше...   )Разработчик: Akimbo AppЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292051   (648270) от 28.03.2019
+
+Life Is Strange Anthology [Ru/En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня игры – 16-летняя бунтарка Хлоя Прайс, которая подружилась с самой популярной девушкой школы – Рейчел Эмбер.
+Тайна семьи Рейчел перевернула её жизнь с ног на голову и эта дружба – единственный оплот, который помогает справиться девушкам с их внутренними демонами.Тип издания: Авторская сборкаРелиз состоялся: 2019Разработчик: SQUARE ENIX LtdПоддерживаемая ОС: Android 4.3 +Жанр: ПриключенияЯзык интерфейса: RU, ENG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA9B96760E44E355BF7BB9EF608870C036627850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905409   (647308) от 07.06.2015
 
 Обучайся, играй, развивайся! 1.0 [Ru]
@@ -6,7 +66,7 @@
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647308.jpg" />
 </div>
 
 
@@ -33,7 +93,7 @@ MyPhoneExplorer 1.0.35 - Explorer для Android  [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647005.jpg" />
 </div>
 
 
@@ -59,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641367.jpg" />
 </div>
 
 
@@ -86,7 +146,7 @@ Angry Birds Seasons 5.2.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641108.jpg" />
 </div>
 
 
@@ -114,7 +174,7 @@ CM (Cleanmaster) Security 2.6.2 - Антивирус [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639048.jpg" />
 </div>
 
 
@@ -140,7 +200,7 @@ Muscle Premium v4.1.13 Unlocked [En] - анатомия мышц человек�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639045.jpg" />
 </div>
 
 
@@ -166,7 +226,7 @@ Maths Formulas 9.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634972.jpg" />
 </div>
 
 
@@ -192,7 +252,7 @@ Garmin: CarteBlanche Ukraine NT 2016.06 (КартБланш Украина) [Ru/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633805.jpg" />
 </div>
 
 
@@ -218,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633325.jpg" />
 </div>
 
 
@@ -247,7 +307,7 @@ Garmin: CarteBlanche Ukraine NT 2015.03 [Ru/Multi]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633215.jpg" />
 </div>
 
 
@@ -274,7 +334,7 @@ Runtastic GPS Бег 5.11 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631710.jpg" />
 </div>
 
 
@@ -300,7 +360,7 @@ Power Media Player Pro v6.1.1 Unlocked [Ru/Multi] - Android версия PowerDV
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631500.jpg" />
 </div>
 
 
@@ -326,7 +386,7 @@ Fotoo v2.3.7 Premium [En] - цифровая фоторамка и скринс�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629639.jpg" />
 </div>
 
 
@@ -352,7 +412,7 @@ Angry Birds 5.1.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629462.jpg" />
 </div>
 
 
@@ -379,7 +439,7 @@ World of Goo 1.2.3 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629212.jpg" />
 </div>
 
 
@@ -405,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629140.jpg" />
 </div>
 
 
@@ -432,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628906.jpg" />
 </div>
 
 
@@ -458,7 +518,7 @@ Tasker 4.7u1m [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627382.jpg" />
 </div>
 
 
@@ -484,7 +544,7 @@ Major GUN v 3.5.6 Mod [Infinite Coins] [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626232.jpg" />
 </div>
 
 
@@ -510,7 +570,7 @@ Call Of ModernWar: Warfare Duty 1.1.1 Mod [Money] [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626084.jpg" />
 </div>
 
 
@@ -536,7 +596,7 @@ Swamp Attack 2.1.2 Mod [Money] [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626074.jpg" />
 </div>
 
 
@@ -562,7 +622,7 @@ Garmin: City Navigator Thailand 2015.10 (Dual + Thai) [En/Th]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625671.jpg" />
 </div>
 
 
@@ -588,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625461.jpg" />
 </div>
 
 
@@ -614,7 +674,7 @@ Garmin: TOPO Norway Experience PRO v3 [No]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625427.jpg" />
 </div>
 
 
@@ -625,58 +685,6 @@ Garmin: TOPO Norway Experience PRO v3 [No]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7A3EE9026438E1004C8A5BA8B5A7ED46EEDF602
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910211   (623731) от 19.06.2015
-
-Garmin: City Navigator East & West Africa NT 2016.10 [En]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Карты Западной и Восточной Африки для навигаторов Гармин.Тип издания: карты заблокированы (таблетки есть в комплекте)Релиз состоялся: май 2015Разработчик: Garmin / HereПоддерживаемая ОС: GarminЯзык интерфейса: АнглийскийФормат: .IMG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0628814619EC0B78DF1FEF91B97119A6426A773D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 789452   (623061) от 24.06.2017
-
-ЭкоГид: Деревья летом v3.0.2 - атлас-энциклопедия деревьев, кустарников и лиан средней полосы России (17.05.2016) <Ru>
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый в России ПОЛЕВОЙ определитель и атлас-энциклопедия деревьев, кустарников, кустарничков и лиан средней полосы, с помощью которого можно ОПРЕДЕЛИТЬ видовое название неизвестного растения по внешнему виду, побегам, листьям, цветкам и плодам прямо в природе.Разработчик: ЭкосистемаЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29BBC895EA05ABCDCB681110C012B94528403B8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

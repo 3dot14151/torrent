@@ -1,3 +1,83 @@
+###  Публикация: 1625515   (247135) от 07.07.2023
+
+Мобильный воин Гандам: Ведьма с Меркурия [ТВ-2] | Kidou Senshi Gundam: Suisei no Majo (2023) | Mobile Suit Gundam: The Witch from Mercury (2023) [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Космос будущего — тёмное, холодное и опасное место. Мегакорпорации плетут интриги в борьбе за власть и прибыль, а напряжение между землянами и жителями космоса уже выросло настолько, что угрожает перерасти в настоящую войну. Сулетта и Миоринэ со своими друзьями и новоявленной корпорацией Ганд-Арм невольно оказываются в водовороте из подковёрных интриг, предательств (   Читать дальше...   )Производство: Япония / Студия Sunrise, GraphinicaЖанр: приключения, фантастика, мехаРежиссер: Кобаяси ХиросиЯзык озвучки: Русский многоголосый закадровый, Японский
+- Frederica Izzard, Hekomi, Lobanow (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1DF602DB8920128F036ED43541CC927E85EAA16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627181   (247050) от 11.07.2023
+
+Великая небесная стена | Иллюзия рaя | Tengoku Daimakyou | Heavenly Delusion [2023, TV, 13 из 13] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247050.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом аниме нас ожидает мистическое переплетение двух историй из, казалось бы, абсолютно разных миров. Одна из них расскажет нам о событиях в так называемом ""раю"", где туда-сюда снуют взрослые, а дети играют среди зелёных садов и учатся под присмотром заботливых роботов. Этот рай окружён гигантскими стенами, и никто даже не задумывается, что (   Читать дальше...   )Производство: Япония / Студия Production I.GЖанр: ПриключенияРежиссер: Мори ХиротакаЯзык озвучки: Русский многоголосый, закадровый; Японский
+- Hekomi, JazzJack, Kroxxa, WhiteCroW (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 13 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DAA7FE3417C8EE46C9E29537D617903A3D209AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604777   (247000) от 13.07.2023
+
+Vinland Saga Season 2 | Сага о Винланде 2 [2023, TV, 24 из 24] WEBRip 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одиннадцатый век. Далёкая и холодная Исландия, окутанная морской гладью. Страна, для которой характерно не только обилие снега и северное сияние, завораживающее своей красой, но и место проживания великих воинов — викингов. Эти отважные люди, верующие в своих могущественных богов, были очень сильны, не боялись смерти, всегда стремились к познанию неизведанных земель (   Читать дальше...   )Производство: Жанр: Приключения, Драма, историяРежиссер: Ябута СюхэйЯзык озвучки: Русский любительский двухголосый (Субтитры: Русские (Надписи (по умолчанию); SovetRomantica; Katsura; Crunchyroll)Продолжительность: 24 серии по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EF5832D4F7DC0FD65C09959B7CDF4B33F2496BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581832   (246784) от 24.07.2023
 
 Золотое божество [ТВ-4] | Золотой Камуй | Golden Kamuy (2022) [2022, TV, 13 из 13] WEBRip 1080p Raw+Rus
@@ -6,7 +86,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246784.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ Gekijouban Jujutsu Kaisen 0 | Магическая битва (фильм) [2021
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246744.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ Perfect blue / Истинная грусть [1998] BDRip 1080p raw + rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246706.jpg" />
 </div>
 
 
@@ -85,7 +165,7 @@ Angel Cop | Ангел-полицейский [1989, OVA, 6 из 6] BDRip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245201.jpg" />
 </div>
 
 
@@ -111,7 +191,7 @@ Zhen Hun Jie: Bei Luo Shi Men Pian 2021 | Rakshasa Street 2 | Ракшаса: у
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245058.jpg" />
 </div>
 
 
@@ -137,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244887.jpg" />
 </div>
 
 
@@ -163,7 +243,7 @@ Nurarihyon no Mago: Sennen Makyou | Nura: Rise Of The Yokai Clan Demon Capital |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244866.jpg" />
 </div>
 
 
@@ -189,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242285.jpg" />
 </div>
 
 
@@ -215,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241821.jpg" />
 </div>
 
 
@@ -241,7 +321,7 @@ Yakitori | Yakitori: Soldiers of Misfortune | Якитори [2023, Web, 6] WEBR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_241403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241403.jpg" />
 </div>
 
 
@@ -267,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241372.jpg" />
 </div>
 
 
@@ -293,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240888.jpg" />
 </div>
 
 
@@ -319,7 +399,7 @@ Masamune-kun no Revenge (2018) | Месть Масамунэ OVA [2018, OVA] BDR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240623.jpg" />
 </div>
 
 
@@ -345,7 +425,7 @@ Masamune-kun no Revenge | Masamune-kun's Revenge | Месть Масамунэ [
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240599.jpg" />
 </div>
 
 
@@ -371,7 +451,7 @@ Shikizakura | Вечноцветущая сакура [2021, TV, 12] WEBRip 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240554.jpg" />
 </div>
 
 
@@ -397,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240035.jpg" />
 </div>
 
 
@@ -423,7 +503,7 @@ Fuufu Ijou, Koibito Miman | More Than a Married Couple, But Not Lovers | Бол�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239934.jpg" />
 </div>
 
 
@@ -450,7 +530,7 @@ Tsuki to Laika to Nosferatu | Irina: The Vampire Cosmonaut | Луна, Лайк�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238952.jpg" />
 </div>
 
 
@@ -476,7 +556,7 @@ Soratobu Yuureisen | The Flying Ghost Ship | Летающий корабль-п�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238789.jpg" />
 </div>
 
 
@@ -502,7 +582,7 @@ Majuu Sensen | The Demonic Beast Front | Битва с демонами [1990, O
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237663.jpg" />
 </div>
 
 
@@ -528,7 +608,7 @@ Hula Fulla Dance | Танец хула-хула [2021, Movie] WEBRip 1080p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237615.jpg" />
 </div>
 
 
@@ -554,7 +634,7 @@ Neko no Ongaeshi | The Cat Returns | Возвращение кота (2002) BDRi
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237411.jpg" />
 </div>
 
 
@@ -583,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235763.jpg" />
 </div>
 
 
@@ -594,85 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:904D3ABD346613783B19EA9368B35AEBB6F3341E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632748   (234976) от 12.05.2023
-
-Saikin Yatotta Maid ga Ayashii | The Maid I Hired Recently Is Mysterious | Моя новая горничная ну очень подозрительна [2022, TV, 11 из 11] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_234976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Родители маленького Юри погибают в автомобильной аварии, мальчик остается круглым сиротой и хозяином огромного особняка. Слуги покидают его, и тогда он решает начать вести самостоятельную жизнь, но вскоре становиться ясно, что ребенку такая задача не под силу. И тогда на пороге особняка появляется странная, но прекрасная горничная Лилит. Кто она такая? Ведьма? Чего (   Читать дальше...   )Производство: Япония, студия Silver LinkЖанр: комедия, повседневностьРежиссер: Минато МирайЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (AniLibria, Crunchyroll)Продолжительность: 11 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F3E9D730C1E65FC0F3BE7B3D7E502174B2E20D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577201   (234671) от 17.09.2022
-
-Saihate no Paladin | The Faraway Paladin | Паладин издалека [ТВ-1] [2021, TV, 12 из 12] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уилла, человеческое дитя, воспитывают три великих героя прошлого, обращенных ныне в нежить. Он чувствует, что они что-то скрывают, но и у самого него есть небольшой секрет. Ведь он помнит свою прошлую жизнь.
-© crunchyrollПроизводство: студия Childrens Playground EntertainmentЖанр: приключения, фэнтезиРежиссер: Нобута ЮЯзык озвучки: Японский, русскийСубтитры: #1: Русские, ASS, Надписи+Полные |Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBC342E3980B61CCBAAF4464FFB22135FF2BE120
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553074   (233265) от 24.05.2022
-
-Otaku ni Koi wa Muzukashii | Wotakoi: Love is Hard for Otaku | Любовь - проблема для отаку [2018, TV, 11 из 11] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычно отаку отношения даются с трудом, особенно, если вторая ваша половина - совершенно обычный человек, не склонный к сильному увлечению чем-либо. Поэтому от безысходности некоторые отаку мечтают найти пару себе под стать. Однако, немалые сложности поджидают и в этом варианте. О таких специфических отношениях и пойдёт речь в этом аниме.Наруми Момосэ - заядлая яойщица, (   Читать дальше...   )Производство: Студия A-1 Pictures Inc.Жанр: комедия, романтика, повседневностьРежиссер: Хирайкэ ЁсимасаПеревод: SovetRomanticaЯзык озвучки: Японский и русскийСубтитры: РусскиеПродолжительность: 11 серии по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFB67AB99A8858AA202380E76900CC9AFAF6774D
 ```
 
 https://mybot314.ru/tekegram_catalog/

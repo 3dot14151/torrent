@@ -6,7 +6,7 @@ Autodesk AutoCAD 2011 for Mac [Eng]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_421212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_421212.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Deflection Pro 6.5.0 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417104.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ JetBrains AppCode 2020.2.3 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415571.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ iZotope - RX 8 Audio Editor Advanced STANDALONE, VST, VST3, AAX 8.1.0.544 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415390.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ JetBrains PhpStorm 2020.2.2 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413149.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ OmniPlan Pro 3.7.3 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401423.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ ArchiCAD 21 Build 4022 [Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391637.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ LightWave 3D v2019.1.3 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378641.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ JetBrains PhpStorm 2018.2.5 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376904.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Mixed In Key 8 v8.5.3 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374088.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Ample Sound Ample Guitar T III v3.3.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365100.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Set A Light 3D v2.0.11 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365088.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ iStopMotion 3.8.2 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365029.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Ample Sound Ample PF v3.2.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355733.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Ample Sound Ample Guitar Stratocaster v3.2.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348969.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Ample Sound Ample Guitar Twelve v3.3.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341863.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Metasequoia 4.7.1 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305389.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ SimLab Composer 9 v9.2.17 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294676.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Native Instruments Kontakt 6 STANDALONE, VST, AU v6.0.3 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292788.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Complete Anatomy 2018 + Courses 3.2.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273155.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ SketchUp Pro 2019 v19.3.252 [Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271178.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ JetBrains IntelliJ IDEA Ultimate 2017.3 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271024.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Autodesk AutoCAD 2019 (23.0.45.377) [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268248.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ PhpStorm 2017.3.1 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_262385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_262385.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Complete Anatomy 2018 + Courses 3.3.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262045.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Autodesk AutoCAD 2026 for Mac W.119.M.325 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256691.jpg" />
 </div>
 
 

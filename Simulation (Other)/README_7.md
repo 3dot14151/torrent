@@ -1,3 +1,55 @@
+###  Публикация: 1218003   (739937) от 07.04.2018
+
+Farm Manager 2018 (2018) [Ru/Multi] (1.0) License CODEX
+
+>>Win Старые Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Управляй собственной фермой в игре Farm Manager 2018! Чтобы развивать свой бизнес- производи дешево, продавай дорого. Контролируй процессы земледелия, выбирай подходящий персонал и технику, выращивай животных и перерабатывай собранный урожай.Тип издания: LicenseРазработчик: Cleversan SoftwareЖанр: Strategy, 3DЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:312F2D7731F1D2A4F3951E3F74321DB916870AF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524337   (738048) от 25.01.2022
+
+Birthdays the Beginning (2017) [Multi] (1.0.7) License SKIDROW
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Birthdays the Beginning - это "песочница", в которой объединены черты LEGO, Minecraft и Spore, признаки стратегии и симулятора бога. Игрокам предстоит создать собственный мир из кирпичиков и, управляя климатическими условиями, добиться зарождения и развития форм жизни. В мире игры три сотни разновидности животных и растений, но открыть их все будет чрезвычайно (   Читать дальше...   )Тип издания: LicenseРазработчик: TOYBOX Inc., Arc System WorksЖанр: СимуляторыЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F0A3F26F775EC035826E7A16B17EA62D59D195C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526677   (737952) от 25.01.2022
 
 Internet Cafe Simulator 2 (2022) [Ru/Multi] (1.0.9) Repack Other s
@@ -6,7 +58,7 @@ Internet Cafe Simulator 2 (2022) [Ru/Multi] (1.0.9) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737952.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Hydroneer (2020) [Ru/Multi] (1.3.6) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736484.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Transport Fever 2 (2019) [Ru/Multi] (29596) Repack xatab (обновляемая
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736480.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Tank Mechanic Simulator (2020) [Ru/Multi] (1.3.0/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732356.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ VA-11 HALL-A: Cyberpunk Bartender Action (2016) [En] (1.2.1.3) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725748.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Demolish & Build 2018 (2018) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722937.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Starfighter Origins (2017) [En] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719982.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Poly Bridge 2 (2020) [Ru/Multi] (1.20) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718538.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ SCRUTINIZED (2020) [En] (1.0.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716611.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ PC Building Simulator - Esports Expansion (2020) [Ru/Multi] (1.8.5) License PLAZ
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714552.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Spintires (2014) [Ru/Multi] (1.6.1/dlc) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714549.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ WWII Battle Tanks: T-34 vs. Tiger / Танки Второй мировой: Т-3
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_712782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_712782.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Pure Farming 2018 (2018) [Ru/Multi] (1.4.0/dlc) Repack Other s [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712734.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712413.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Synergia (2020) [Multi] (1.01) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710583.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Frostpunk (2018) [Ru/Multi] (1.3.3 HF) Repack R.G. Механики
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710352.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710155.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ XScreamKaraoke / Вы орете великолепно (2021) [Ru/En] (2.10) Li
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708636.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Farm Manager 2018 (2018) [Ru/Multi] (1.0.20180416.01) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707672.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Farm Manager 2018 (2018) [Ru/Multi] (1.0.20180416.1) Repack Covfefe
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703973.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ City Bus Simulator 2018 (2018) [En] (1.0) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702104.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Ice Lakes (2016) [En/Fi] (1.2) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701596.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Biker Garage: Mechanic Simulator (2019) [Ru/Multi] (20200813/dlc) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699120.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ Everything (2017) [En] (1.06.01) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698247.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ Everything - это интерактив, наполненный всевозм�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C4F4AB2CD4ED52F1514E03DB11E2213235251CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288786   (693414) от 12.03.2019
-
-Tavern Tycoon - Dragon's Hangover (2019) [En] (1.0) License PLAZA
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tavern Tycoon – это отличный симулятор создания собственной таверны. Причем таверну вы сможете создать высшего класса, где любой путник не только сможет выпить лучшей настойки, но также вкусно поесть, переночевать и получить другие услуги.Тип издания: LicenseРазработчик: TerapolyЖанр: Indie, StrategyЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:957CF8D192583A447725587DC1D2F6898BC44367
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403584   (690320) от 20.08.2020
-
-Frostpunk (2018) [Ru/Multi] (1.6/dlc) License HOODLUM
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Frostpunk – игра от создателей This War of Mine. Это игра на выживание общества, где без тепла нет жизни, а каждое решение имеет свою цену. В полностью вымерзшем мире люди разрабатывают паровые машины, чтобы противостоять невыносимому холоду. Вам предстоит построить последний город на земле и обеспечить своему народу средства выживания. Часто на одной чаше весов (   Читать дальше...   )Тип издания: LicenseРазработчик: 11 bit studiosЖанр: Strategy, Simulation, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2722CAB6C90F48ADF96A92914F6E1ED3882CCDE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

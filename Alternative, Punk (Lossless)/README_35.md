@@ -1,3 +1,32 @@
+###  Публикация: 1563779   (502704) от 16.07.2022
+
+Deaf Havana - The Present is a Foreign Land (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502704.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pocari Sweat
+2. 19dreams
+3. I Put You Through Hell
+4. Nevermind(   Читать дальше...   )Жанр: Alt. Rock, Post-HardcoreПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD32BE0F751C9853359AA7EBA08E576FBF465E94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564197   (500653) от 18.07.2022
 
 black midi - Hellfire (2022) [FLAC|Lossless|tracks + .cue] <Avant-Garde, Progressive Rock, Experimental>
@@ -6,7 +35,7 @@ black midi - Hellfire (2022) [FLAC|Lossless|tracks + .cue] <Avant-Garde, Progres
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500653.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Skillet - Victorious (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500281.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ British India - Nothing Touches Me (2015) [FLAC|Lossless]<Rock, Alternative Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499456.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Hail The Ghost - Forsaken (2015) [FLAC|Lossless|WEB-DL]<alternative rock, indie>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499404.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Circa Waves - Young Chasers (2015) [FLAC|Lossless|WEB-DL]<Alternetive Rock, Indi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498415.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Glass Tides - Wake Me Up (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497734.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ The Breeders - All Nerve (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496099.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Stereophonics - Decade in the Sun: The Best of Stereophonics (2008) 2CD, Deluxe 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496028.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Archive - With Us Until You're Dead (2012) Special Edition [FLAC|Lossless]<Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493157.jpg" />
 </div>
 
 
@@ -275,7 +304,7 @@ Gene Loves Jezebel - Voodoo Dollies: The Best Of Gene Loves Jezebel (1999) [FLAC
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492841.jpg" />
 </div>
 
 
@@ -304,7 +333,7 @@ Elliott Smith - Figure 8 (2000) 50th Birthday Deluxe Edition, 2019, UMG Recordin
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492836.jpg" />
 </div>
 
 
@@ -333,7 +362,7 @@ The Birthday Massacre - Imagica (2016) Remastered [FLAC|Lossless|tracks + .cue] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492237.jpg" />
 </div>
 
 
@@ -362,7 +391,7 @@ The Amity Affliction - Misery (2018) [FLAC|Lossless|tracks + .cue] <Post-Hardcor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492114.jpg" />
 </div>
 
 
@@ -383,6 +412,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242996   (492018) от 27.08.2018
+
+Alice in Chains - Rainier Fog (2018) [FLAC|Lossless|tracks + .cue] <Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_492018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The One You Know (04:49)
+02. Rainier Fog (05:01)
+03. Red Giant (05:25)
+04. Fly (05:18)(   Читать дальше...   )Жанр: GrungeПродолжительность: 00:53:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D68A010217A590A94DBD9DB4670A2C102CA619B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936619   (491531) от 13.09.2015
 
 Bring Me The Horizon - That’s the Spirit (2015) [FLAC|tracks+.cue]<Metalcore>
@@ -391,7 +449,7 @@ Bring Me The Horizon - That’s the Spirit (2015) [FLAC|tracks+.cue]<Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491531.jpg" />
 </div>
 
 
@@ -420,7 +478,7 @@ Spun Out - Touch the Sound (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491477.jpg" />
 </div>
 
 
@@ -449,7 +507,7 @@ Glasswork - Metabole (2020) [FLAC|Lossless|image + .cue] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491475.jpg" />
 </div>
 
 
@@ -478,7 +536,7 @@ The All-American Rejects - Rejects Faves (2020) [FLAC|Lossless|WEB-DL|tracks] <I
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491312.jpg" />
 </div>
 
 
@@ -507,7 +565,7 @@ Guided by Voices - Mirrored Aztec (2020) [FLAC|Lossless|tracks + .cue] <Indie Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491179.jpg" />
 </div>
 
 
@@ -536,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490868.jpg" />
 </div>
 
 
@@ -571,7 +629,7 @@ Palisades - Reaching Hypercritical (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Ha
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490440.jpg" />
 </div>
 
 
@@ -600,7 +658,7 @@ Baxter Dury - It's a Pleasure (2014) [FLAC|Lossless|tracks + .cue] <Indie Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490336.jpg" />
 </div>
 
 
@@ -629,7 +687,7 @@ Snow Patrol - Reworked (EP1) (2019) EP [FLAC|Lossless|tracks] <Indie Pop, Indie 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488733.jpg" />
 </div>
 
 
@@ -658,7 +716,7 @@ Callejon - Metropolis (2020) [FLAC|Lossless|tracks] <Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487285.jpg" />
 </div>
 
 
@@ -687,7 +745,7 @@ From Ashes To New - Panic (2020) [FLAC|Lossless|tracks] <Post Hardcore, Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487131.jpg" />
 </div>
 
 
@@ -701,64 +759,6 @@ From Ashes To New - Panic (2020) [FLAC|Lossless|tracks] <Post Hardcore, Alternat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A354D44179FAD9FD691387B85846D84202F6D37D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319423   (484798) от 11.08.2019
-
-Hawksley Workman - Median Age Wasteland (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birds in Train Stations (04:58)
-02. Lazy (04:35)
-03. Battlefords (05:16)
-04. Italy (03:58)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00: 51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:594FA6F5FF4F95E84DCBD0E3C776729383C1AB9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319395   (484793) от 11.08.2019
-
-Blisses B - Tell Your Friends You Love Them And Why (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twin Geeks (03:31)
-02. Pedals & Bam Bam (03:29)
-03. Cubic Zirconium (03:03)
-04. Six Plus One (02:36)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE6C9883B9AD28D7522D130C796F4C4F8C7ABB99
 ```
 
 https://mybot314.ru/tekegram_catalog/

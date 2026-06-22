@@ -1,3 +1,29 @@
+###  Публикация: 1805849   (1364) от 23.09.2025
+
+Kakkou no Iinazuke Season 2 | A Couple of Cuckoos Season 2 | Обручённые кукушками [ТВ-2] [2025, TV, 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умино Наги и Амано Эрика родились в один день и их перепутали в роддоме. Наги воспитывался как сын владельца закусочной, а Эрика — как дочь гостиничного магната. Родители поощряют их помолвку и они начинают совместную жизнь. Однако вскоре между ними возникают проблемы, поскольку Наги застревает в любовном четырехугольнике. Жизнь и любовь запутываются в эпическую (   Читать дальше...   )Производство: Студия Okuruto Noboru / オクルトノボルЖанр: комедия, романтика, повседневностьРежиссер: Хисида МасакадзуПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC0F96DD39369180C7D99B60F1AE522B68138CDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805937   (1240) от 24.09.2025
 
 Turkey! / Turkey! Time to Strike / Tёpки! [2025, TV, 12] WEBRip 720p raw
@@ -6,7 +32,7 @@ Turkey! / Turkey! Time to Strike / Tёpки! [2025, TV, 12] WEBRip 720p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1240.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Osomatsu-san (2025) | Осомацу-сан [ТВ-4] [2025, TV, 12 из 13 эп.
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1218.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Dr. Stone: Science Future | Доктор Стоун [ТВ-4] [2025, TV, 24 эп.
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1066.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ CITY the Animation | Город [2025, TV, 12 из 13] WebRip 1080p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1048.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Mizu Zokusei no Mahou Tsukai / The Water Magician / Маг воды [2025, TV, 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_923.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Bad Girl / Плохая девочка [2025, TV, 12] WEBRip 720p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_896.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Mushoku no Eiyuu: Betsu ni Skill Nanka Iranakattanda ga / Hero Without a Class: 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_821.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Silent Witch: Chinmoku no Majo no Kakushigoto / Secrets of the Silent Witch / М
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_694.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Anne Shirley | Энн Ширли [2025, TV, 24 эп.] WEBRip 720p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_693.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Yofukashi no Uta Season 2 | Песнь ночных сов [ТВ-2] [2025, TV, 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_669.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Watari-kun no xx ga Houkaisunzen / Watari-kun's ***** is About to Collapse / XX 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_664.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Isekai Mokushiroku Mynoghra / Apocalypse Bringer Mynoghra / Апокалипси
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_434.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Ruri no Houseki / Ruri Rocks / Рури любит камни [2025, TV, 13] WEB
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_414.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Game Center Shoujo to Ibunka Kouryuu / Cultural Exchange with Game Center Girl /
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_385.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ Seishun Buta Yarou wa Santa Claus no Yume o Minai / Этот глупый сви
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_378.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Towa no Yuugure | Dusk Beyond the End of the World | Вечность Югурэ
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_311.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Yasei no Last Boss ga Arawareta! | A Wild Last Boss Appeared! | Шальной �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_286.jpg" />
 </div>
 
 

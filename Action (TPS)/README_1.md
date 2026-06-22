@@ -1,3 +1,107 @@
+###  Публикация: 1858254   (1060084) от 09.03.2026
+
+Resident Evil 4 Remake (2023) [Ru/Multi] (Build 22154679/dlc) Repack Decepticon
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060084.jpg" />
+</div>
+
+
+###  Подробнее
+
+После биологической катастрофы в Раккун-Сити прошло шесть лет. Агента Леона С. Кеннеди, пережившего те события, отправили на задание по спасению похищенной дочери президента. В попытках отыскать ее он оказывается в укромной европейской деревеньке, где с местными жителями творится что-то не то.Тип издания: RepackРазработчик: CAPCOMЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8753D73BA8F14670165607EA79CD38D6FB7B3308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858027   (1059991) от 08.03.2026
+
+Assassin's Creed Mirage (2023) [Ru/Multi] (1.1.1/dlc) Repack Other s [Master Assassin Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнайте историю Басима, хитрого вора, который устремляется на оживленные улицы Багдада IX века в поисках ответов и справедливости. Вступив в загадочную и древнюю организацию Незримых, Басим станет смертоносным мастером-ассасином и изменит свою судьбу куда сильнее, чем ожидал.Тип издания: RepackРазработчик: Ubisoft BordeauxЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Итальянский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:637D4BD7B2788C2BA6D7017FBE9C2527248588FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858029   (1059975) от 08.03.2026
+
+Wicked Seed (2026) [En] (Build 21603000) Repack Other s
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wicked Seed сочетает элементы survival horror с пошаговой боевой системой в стиле экшена. Путешествуйте по тёмным лесам центрального Мэна, исследуйте забытые подземные туннели, прочёсывайте эвакуированный город и многое другое, чтобы раскрыть тайну внезапного появления монстров. Выживайте со стилем! Более 30 костюмов, которые можно полностью разблокировать через (   Читать дальше...   )Тип издания: RepackРазработчик: Dead Right GamesЖанр: Экшены, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:786F69F48F0D23A16791FCD56B25065A089107D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858042   (1059959) от 08.03.2026
+
+Star Wars Jedi: Survivor (2023) [Ru/Multi] (Build 15643690/dlc) Repack HardwareMining [Deluxe Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059959.jpg" />
+</div>
+
+
+###  Подробнее
+
+STAR WARS Jedi: Survivor продолжит повествование о жизни Кэла через пять лет после прошлых событий. В этом галактическом экшен-адвенчуре с видом от третьего лица тебя ждет захватывающий сюжет, который погрузит тебя в мир, погружающийся во мрак. Стоит ожидать сражений с новыми и старыми врагами, а также важных решений, которые придется принимать Кэлу, чтобы спасти (   Читать дальше...   )Тип издания: RepackРазработчик: Respawn EntertainmentЖанр: Экшены, ПриключениеЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD48FBE7336D2C5598367A39B63CEC7158507D13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858044   (1059957) от 08.03.2026
 
 The Punisher (2005) [En] (1.0) License
@@ -6,7 +110,7 @@ The Punisher (2005) [En] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1059957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059957.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Max Payne (2001) [En] (1.05) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1059944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059944.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Alan Wake Remastered (2021) [Ru/En] (1.33/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1059943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059943.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Echoes of the End (2025) [Ru/Multi] (2.04) Repack HardwareMining [Enhanced Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1059942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059942.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ World War Z: Aftermath (2021) [Ru/Multi] (2.44/dlc) Repack Other s [Deluxe Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059881.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Fear The Timeloop (2026) [Ru/Multi] (1.0.3) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059879.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Yakuza Kiwami (2019) [Ru/Multi] (2.13) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059356.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Catwoman (2004) [En] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059332.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Resident Evil 2 / Biohazard RE:2 (2019) [Ru/Multi] (11636119/dlc) Repack Wanterl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059224.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.1.1/dlc) Repack Let'sРlay [Master 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059184.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.1.1/dlc) Scene voices38 [Master Ass
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059168.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.1.1/dlc) Repack FitGirl [Master Ass
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059151.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Grand Theft Auto IV (2008-2010) [Ru/En] (1.0.7.0/1.1.2.0) Repack R.G. Games [Com
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059124.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Hitman: Contracts (2004) [En] (1.74) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059063.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Alan Wake Remastered (2021) [Ru/Multi] (34885/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059011.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (20251021 1503-330668/dlc) Repack Hardwar
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058932.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Alan Wake Remastered (2021) [Ru/Multi] (1.33/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058864.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ LOLLIPOP CHAINSAW RePOP (2024) [Multi] (1.16.004) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058862.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Hitman: Blood Money (2006) [En] (1.2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058819.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ L.A.Noire (2011) [Ru/Multi] (1.3.2675.1/dlc) Repack dixen18 [The Complete Editio
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058642.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Mafia: The City of Lost Heaven / Мафия (2002) [En] (1.2) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057871.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Total Overdose (2005) [Ru] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057869.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ Total Overdose (2005) [Ru] (1.0) License
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB7206C7B3AD588B8CFAA8AA2EFB7EFB9B0913EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855079   (1057863) от 21.02.2026
-
-Prince of Persia / Принц Персии (2008) [Ru/En] (1.0v2) Repack dixen18
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарный Принц Персии вернулся! В новом обличии, с невероятными возможностями и историей. Теперь ему придется выступить посредником, палачом и судьей в споре двух великих Богов: Ормадза, бога Света и Аримана, бога Тьмы. Но Принц не один в этом глобальном противостоянии - вместе с ним Элика - хитрая, ловкая и очень красивая воительница со своей судьбой и историей.Тип издания: RepackРазработчик: Ubisoft MontrealЖанр: ЭкшеныЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2244565621E824422DCAAA476AFCB5B979893AEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855156   (1057817) от 21.02.2026
-
-Grand Theft Auto III (3) (2002) [Ru/Multi] (1.1) License
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие игры разворачивается в начале 2000-х годов в мегаполисе Либерти-Сити. Этот город давно поделен на сферы влияния несколькими мафиозными группировками, между которыми то и дело происходят кровопролитные стычки. Случилось так, что во время налета на банк главного героя игры, наемника одной из банд, предали, лишь чудом ему удалось остаться в живых. Теперь у (   Читать дальше...   )Тип издания: LicenseРазработчик: Rockstar NorthЖанр: Экшены от третьего лицаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1DAE7B5B190FC80E28B52D44F9DB3A9D0C0E1E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854947   (1057612) от 20.02.2026
-
-Grand Theft Auto IV (2008) [Ru/Multi] (1.0.0.0-1.0.8.0) License
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нико Беллик, выходец из Восточной Европы с криминальным прошлым, приезжает в Либерти-Сити в поисках американской мечты. Однако вместо спокойных будней парень обретает массу проблем. Чтобы выжить, Нико приходится взяться за старое, и игроку предстоит пройти с ним этот путь до конца! The Lost and Damned - Байкер Джонни Клебитц, матерый волк городских джунглей, втянут (   Читать дальше...   )Тип издания: LicenseРазработчик: Rockstar NorthЖанр: Экшены от третьего лицаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E28CFC1113DE2B8C70B187518F8AFE5D66752DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854452   (1057513) от 19.02.2026
-
-The Punisher / Каратель (2005) [Ru] (1.0) License
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь Фрэнка Кастла круто изменилась именно в этот день - день убийства его семьи. Вместе с родными людьми умерла и часть души Фрэнка, уступив место холодной, безжалостной и всепоглощающей ненависти. Именно в этот день исчез примерный семьянин Кастл и родился тот, кто вгонит последний гвоздь в крышку гроба покойника по имени "преступность". Не стесняясь (   Читать дальше...   )Тип издания: LicenseРазработчик: VolitionЖанр: Экшены от третьего лицаЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:722FF01DEB06A7986C901FD392381A3B275CAEF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

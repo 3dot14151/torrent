@@ -1,3 +1,154 @@
+###  Публикация: 490996   (248289) от 06.05.2012
+
+Разделитель / The Divide - Jean Pierre Taieb (2011) [MP3|320 кб/с] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Divide - Jean Pierre Taieb (02:57)
+02 - Theme 2 (The Divide) - Jean Pierre Taieb (02:10)
+03 - Eva's Fear - Jean Pierre Taieb (00:30)
+04 - The Hidden Gun - Jean Pierre Taieb (01:25)
+05 - Sam & Bobby's Dance - Jean Pierre Taieb (02:28)
+06 - What's Left - Jean Pierre Taieb (00:47)
+07 - Some Love - Jean Pierre Taieb (02:11)
+08 - Eva Is In Danger - Jean Pierre Taieb (00:59)
+09 - Haircut - Jean Pierre Taieb (02:10)
+10 - Butcher's Party - Jean Pierre Taieb (02:37)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96316092AE5F4D9F2840E8F6CEBB7E4EF9FBDDC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362591   (242474) от 24.02.2020
+
+Rob (Robin Coudert) - Seuls / Одни (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242474.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:07| 01. Bad News
+|02:02| 02. Revelation
+|01:03| 03. SOS
+|00:37| 04. Diner(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDB4666B1A660480C134C899FB351B0A0914EA10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457768   (242186) от 28.03.2021
+
+Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242186.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:52] 01. Themyscira
+[05:18] 02. Games
+[07:05] 03. 1984
+[04:56] 04. Black Gold(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:30:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D641B65ED503D43F073D2773567ED30E66B54FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647667   (231073) от 21.07.2023
+
+Alexey Nechaev - Inmost (2020) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Inmost - Unleash the Pain.mp3
+02 Hide and seek.mp3
+03 Spark.mp3
+04 Escape.mp3(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E94C3809D03D9263D11190D38A4AC32EC773597
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268005   (229768) от 09.12.2018
+
+OST - Hunt For The Wilderpeople | Охота на дикарей (2016) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moniker - Makutekahu [2:09]
+ 02. Moniker - Ricky Runs [1:46]
+ 03. Moniker - Cloak of the Sky [2:58]
+ 04. Rima Te Wiata & Julian Dennison - Ricky Baker Birthday Song [0:51](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29A38B1A2DC7F0128D5A707E14F7601B59756ED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424682   (227805) от 17.11.2020
 
 Simon "Hasen" Burgess - Best Friends (2002) [MP3|320 Kbps] <Soundtrack>
@@ -6,7 +157,7 @@ Simon "Hasen" Burgess - Best Friends (2002) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227805.jpg" />
 </div>
 
 
@@ -35,7 +186,7 @@ Serial Cleaner - Soundtrack (2017) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221561.jpg" />
 </div>
 
 
@@ -64,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221520.jpg" />
 </div>
 
 
@@ -93,7 +244,7 @@ Abel Korzeniowski - Penny Dreadful / Страшные сказки: Seasons 2 & 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220505.jpg" />
 </div>
 
 
@@ -122,7 +273,7 @@ Steve Jablonsky - Skyscraper / Небоскреб (Original Motion Picture Sound
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219897.jpg" />
 </div>
 
 
@@ -151,7 +302,7 @@ Tom Holkenborg aka Junkie XL - Mortal Engines / Хроники хищных го
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219716.jpg" />
 </div>
 
 
@@ -180,7 +331,7 @@ Rupert Gregson-Williams - Aquaman / Аквамен (Original Motion Picture Soun
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219693.jpg" />
 </div>
 
 
@@ -209,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218716.jpg" />
 </div>
 
 
@@ -238,7 +389,7 @@ VA - Великие и неповторимые. Звезды советског
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218426.jpg" />
 </div>
 
 
@@ -267,7 +418,7 @@ VA & Christophe Beck - Trolls / Тролли (Original Score + Original Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218418.jpg" />
 </div>
 
 
@@ -296,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217956.jpg" />
 </div>
 
 
@@ -325,7 +476,7 @@ John Williams - Звёздные войны: Пробуждение силы / S
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217736.jpg" />
 </div>
 
 
@@ -354,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215684.jpg" />
 </div>
 
 
@@ -383,7 +534,7 @@ VA - Бременские Музыканты. По следам Бременск
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215217.jpg" />
 </div>
 
 
@@ -412,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207980.jpg" />
 </div>
 
 
@@ -441,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206918.jpg" />
 </div>
 
 
@@ -470,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206888.jpg" />
 </div>
 
 
@@ -499,7 +650,7 @@ Jed Kurzel  - Alien: Covenant  / Чужой: Завет (2017) [MP3|320 Kbps] <S
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200614.jpg" />
 </div>
 
 
@@ -528,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200302.jpg" />
 </div>
 
 
@@ -557,7 +708,7 @@ VA - Atomic Heart, Vol.2 (2023) [MP3|320 Kbps] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197641.jpg" />
 </div>
 
 
@@ -586,7 +737,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197027.jpg" />
 </div>
 
 
@@ -600,151 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F29DBDDD2BC9603B7BF6E6409B93C7C52D952043
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650832   (194852) от 03.08.2023
-
-VA - Atomic Heart, Vol.3 (2023) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194852.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Particles/кошечка/Atomic Heart - Prekrasnoe Dalyoko
-2. ScaryON/BassnPanda/Atomic Heart - BEA-D Theme
-3. Geoffplaysguitar/Atomic Heart - Colossus BEA-D
-4. ScaryON/BassnPanda/Atomic Heart - Electronica IM02(   Читать дальше...   )Жанр: OSTПродолжительность: 01:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4B6CE5E18A6C31939FBC2FB8653F4B04189D900
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659767   (189242) от 13.09.2023
-
-Stephen Parsons & Francis Haines - Считанные секунды / Split Second (1992) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Split Second Theme
-02. Chasing Stone
-03. Shes's Really Something (performed by Playground)
-04. "I'm Back"(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB12A986E4123935F1BBC153447518555762324E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202959   (187895) от 17.09.2023
-
-Christopher Willis - Смерть Сталина / The Death Of Stalin (2017) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_187895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moscow, 1953
-02. Beria's Plan
-03. First On The Scene
-04. We Cry For You(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:29:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F26CC3837CA36368041BF955CEA565D79404567E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591262   (187518) от 17.11.2022
-
-VA - Хочу замуж (к\ф «Хочу замуж» официальный саундтрек) (2022) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187518.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. POLINA - Что-то пошло не так
-2. Люся Чеботина - Главная причина
-3. Николай Ростов - Где ты была вчера?
-4. Апрелия - Белая птица(   Читать дальше...   )Жанр: OSTПродолжительность: 00:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7211B53D3667D85CCB7901567C997BC6BE28C99E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665949   (177874) от 06.10.2023
-
-Charlie Clouser - Saw X (Original Motion Picture Soundtrack) (2023) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prognosis
-02. Henry Hope
-03. Meet Gabriela
-04. Tequila(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:24:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1941CDDCCDD0D3F2D04499A11544EDA51E27268
 ```
 
 https://mybot314.ru/tekegram_catalog/

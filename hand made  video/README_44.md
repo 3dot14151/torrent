@@ -1,3 +1,31 @@
+###  Публикация: 1521219   (765917) от 01.01.2022
+
+Зигзаг удачи (1968) DVDRip [H.264] [handmade AI colored]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотоателье «Современник» в провинциальном городе живёт своими житейскими проблемами.
+Сотрудник ателье, фотограф Володя Орешников мечтает купить себе фотоаппарат.
+И вот счастливый случай, он выигрывает 10000 рублей. Товарищи по работе, не долго думая, организуют общественный суд. Дело в том, что 20 рублей на покупку облигации Орешников тайком взял из кассы взаимопомощи, (   Читать дальше...   )Производство: СССР, киностудия «Мосфильм». Творческое объединение «Луч»Жанр: КомедияРежиссер: Эльдар РязановАктеры: Евгений Леонов, Валентина Талызина, Евгений Евстигнеев, Ирина Скобцева, Алексей Грибов, Готлиб Ронинсон, Георгий Бурков, Валентина Теличкина, Светлана Старикова, Борис СусловПродолжительность: 01:22:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EAF91C875B61E336F339A24C85834F7183FC38A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521308   (765090) от 02.01.2022
 
 Лимонадный Джо, Или Конская Опера / Limonadovy Joe aneb Konska opera / Lemonade Joe or Horse Opera (1964) BDRip [H.264/720p] [handmade AI colored] RSS
@@ -6,7 +34,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765090.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764959.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764952.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764319.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763213.jpg" />
 </div>
 
 
@@ -136,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763210.jpg" />
 </div>
 
 
@@ -162,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762838.jpg" />
 </div>
 
 
@@ -188,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762335.jpg" />
 </div>
 
 
@@ -214,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761524.jpg" />
 </div>
 
 
@@ -240,7 +268,7 @@ Modern Talking - Видеоколлекция от ALEXnROCK (2018) DVDRip [H.26
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761125.jpg" />
 </div>
 
 
@@ -270,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760941.jpg" />
 </div>
 
 
@@ -296,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760111.jpg" />
 </div>
 
 
@@ -322,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759864.jpg" />
 </div>
 
 
@@ -348,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759766.jpg" />
 </div>
 
 
@@ -375,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759750.jpg" />
 </div>
 
 
@@ -401,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759530.jpg" />
 </div>
 
 
@@ -430,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758776.jpg" />
 </div>
 
 
@@ -456,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758248.jpg" />
 </div>
 
 
@@ -482,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_758019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_758019.jpg" />
 </div>
 
 
@@ -508,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758004.jpg" />
 </div>
 
 
@@ -534,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757794.jpg" />
 </div>
 
 
@@ -563,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757400.jpg" />
 </div>
 
 
@@ -591,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756691.jpg" />
 </div>
 
 
@@ -620,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755612.jpg" />
 </div>
 
 
@@ -646,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754662.jpg" />
 </div>
 
 
@@ -658,32 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:794A1C38ED5096513EFCA1ADA607329B799AB6D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466780   (754513) от 09.01.2022
-
-Боги, наверное, сошли с ума / The Gods Must Be Crazy (1980) WEB-DLRip [H.264/720p] [handmade AI remastered]
-
->>След.
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754513.jpg" />
-</div>
-
-
-###  Подробнее
-
-В дикие, девственные леса Африки с небес падает бутылка «Кока-колы». Здесь же обитает по-детски невинное племя бушменов. Вокруг столкновения двух цивилизаций происходит масса комедийных моментов.Производство: Ботсвана, ЮАР / CAT Films, Mimosa FilmsЖанр: комедия, приключенияРежиссер: Джейми ЮйсАктеры: Н!ксау, Сандра Принслу, Мариус Вейерс, Лоу Вервей, Майкл Тис, Ник Де Ягер, Фаньяна Х. Сидумао, Джо Сикэтси, Брайан О’Шонесси, Кен ГампуПеревод: Многоголосый профессиональный, авторскийСубтитры: английскиеПродолжительность: 01:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74E3423E7EFF885B5539E3A3D762E73F93693118
 ```
 
 https://mybot314.ru/tekegram_catalog/

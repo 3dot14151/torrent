@@ -1,32 +1,3 @@
-###  Публикация: 929609   (518524) от 20.08.2015
-
-Bob Wilber & Kenny Davern - Summit Reunion (1990) /Chiaroscuro Records/ [FLAC|image+.cue]<Jazz, Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. As Long As I Live [05:39]
-02. Love Come Back To Me [06:11]
-03. St. Louis Blues [11:25]
-04. Black And Blue [04:57](   Читать дальше...   )Жанр: Jazz, Swing, Mainstream JazzПродолжительность: 01:09:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED44BF41CE43A2BAE625F2CA2074AB0969BB799
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929613   (518523) от 20.08.2015
 
 Benny Bailey Quintet - While My Lady Sleeps (1990) /Gemini/ [FLAC|image+.cue]<Jazz, Mainstream Jazz>
@@ -35,7 +6,7 @@ Benny Bailey Quintet - While My Lady Sleeps (1990) /Gemini/ [FLAC|image+.cue]<Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518523.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Chuck Mangione Quintet - Recuerdo (1962) /1990, Jazzland/ [FLAC|tracks+.cue]<Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518519.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Heather Powell - A Haze of Grays and Blue (2015) [FLAC|image+.cue]<Vocal Jazz, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518512.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Stanley Turrentine - Up At Minton's (1961) 2CD, 1994, Blue Note [APE|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518470.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Nakia - Blues Grifter (2018) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518423.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Little Milton - Back To Back (1988) 2015, MALACO RECORDS [FLAC|Lossless|image + 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518411.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Steve Laury - The Hi-Fi World of Electric Guitar (Denon Test Disc) (1994) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518408.jpg" />
 </div>
 
 
@@ -239,7 +210,7 @@ Grant Lyle - So There (2012) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517943.jpg" />
 </div>
 
 
@@ -274,7 +245,7 @@ Sonny Clark & Buddy DeFranco (De Franco) Quartet - Complete Sessions (1954) 2CD,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517808.jpg" />
 </div>
 
 
@@ -303,7 +274,7 @@ Bochinche - Caracas (1990) /Oxymoron/ [FLAC|image+.cue]<Jazz, World Fusion, Lati
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517413.jpg" />
 </div>
 
 
@@ -332,7 +303,7 @@ Cathy Jean - In the Remains (2011) [MP3|320 кб/с]<Blues, Modern Electric Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517381.jpg" />
 </div>
 
 
@@ -361,7 +332,7 @@ Marlene Rosenberg - MLK Convergence (2019) Origin Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517272.jpg" />
 </div>
 
 
@@ -390,7 +361,7 @@ Lucky Millinder - 1951 - 1960 (2008) Classics [FLAC|Lossless|tracks + .cue] <Swi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517190.jpg" />
 </div>
 
 
@@ -419,7 +390,7 @@ Abe Rabade - A Modo (2012) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516975.jpg" />
 </div>
 
 
@@ -451,7 +422,7 @@ VA - Mega Soul (2004) 4CD BoxSet [APE|Lossless]<Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516968.jpg" />
 </div>
 
 
@@ -486,7 +457,7 @@ Shirley Bassey -  Goldfinger ( 1993 ) & Best Of ( 2012 )[FLAC|Lossless]<Jazz, Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516572.jpg" />
 </div>
 
 
@@ -521,7 +492,7 @@ Louis Hayes And The Cannonball Legacy Band - Maximum Firepower (2006) Savant [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516293.jpg" />
 </div>
 
 
@@ -550,7 +521,7 @@ Shakatak - Street Level (1993) [APE|Lossless]<Jazz, Soul-Jazz, Jazz-Funk, Soul-F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515660.jpg" />
 </div>
 
 
@@ -585,7 +556,7 @@ The Frank Flight Band - Impossibly Obscure (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515648.jpg" />
 </div>
 
 
@@ -614,7 +585,7 @@ Michael Feinstein - Gershwin Country (2022) Craft Recordings [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515645.jpg" />
 </div>
 
 
@@ -643,7 +614,7 @@ Flora Purim - If You Will (2022) Strut [FLAC|Lossless|tracks + .cue] <Latin Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515589.jpg" />
 </div>
 
 
@@ -672,7 +643,7 @@ Jamie Lynn Fletcher - My Desire Of You (2015) [FLAC|image+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515351.jpg" />
 </div>
 
 
@@ -701,7 +672,7 @@ VA - Smooth Jazz Cafe (2015) [MP3|320 кб/с]<Jazzy, Lounge>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515213.jpg" />
 </div>
 
 
@@ -730,7 +701,7 @@ Gene Sedric - 1938 - 1947 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515180.jpg" />
 </div>
 
 
@@ -759,7 +730,7 @@ Vijay Iyer Sextet - Far From Over (2017) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515138.jpg" />
 </div>
 
 
@@ -773,6 +744,35 @@ Vijay Iyer Sextet - Far From Over (2017) [FLAC|Lossless|tracks + .cue] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D128EBCAC48E907D740124816E96AA2D4EBDE9C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242416   (515131) от 22.08.2018
+
+The Gary Burton Quartet With Eberhard Weber - Passengers (1977) 1988, ECM [FLAC|Lossless|tracks + .cue] <Post Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sea Journey [9:19]
+02. Nacada [4:15]
+03. The Whopper [5:33]
+04. B & G (Midwestern Nights Dream) [8:27](   Читать дальше...   )Жанр: Post Bop, Contemporary JazzПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61BF5906C6E708FFF852AC9ABEA649CFB61F4BBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1460826   (1022143) от 07.04.2021
+
+Slam Dunk: Shouhoku Saidai no Kiki! Moero Sakuragi Hanamichi | Слэм-данк (фильм третий) [1995, Movie] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот короткометражный фильм является дополнением к сериалу. Тренер Анзай, после первого поражения в отборочных играх национального чемпионата Японии, для восстановления духа команды Сехоку, принимает предложение от только что сформированной команды Рекуфу о тренировочном матче.Производство: Toei Animation / 東映アニメーションЖанр: комедия, спортРежиссер: Какудо ХироюкиПеревод: tetsuЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 40 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C235251F5BFE1C8FFD83D3EE5DED4703E1C654
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460823   (1022142) от 07.04.2021
 
 Slam Dunk | Слэм-данк (фильм первый) [1994, Movie] BDRip 1080p 10-bit raw
@@ -6,7 +32,7 @@ Slam Dunk | Слэм-данк (фильм первый) [1994, Movie] BDRip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022142.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Slam Dunk: Hoero Basketman-damashii! Hanamichi to Rukawa no Atsuki Natsu | Сл�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022141.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Slam Dunk | Слэм-данк [1993, TV, 101 из 101] BDRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022140.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Love Rice 2 | Love Kome: We Love Rice Nikisaku | Мы любим рис 2 [2017,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021587.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Musekinin Galaxy Tylor | Безответственная галактика Т�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021574.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Gokushufudou | The Way of the Househusband | Путь домохозяина [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021543.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Kaitou Saint Tail | Mysterious Thief Saint Tail | Таинственная гр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021471.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Romeo no Aoi Sora | Romeo's Blue Skies | Голубые небеса Ромео 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021235.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Cutie Honey Universe | Cutey Honey Universe | Вселенная Милашки 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021188.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Date a Bullet | Рандеву с пулей [2020, Movie, 2 эп.] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020804.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Gekijouban Fate/Stay Night: Heaven's Feel - Spring Song | Судьба: Ночь
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020779.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Rokudenashi Blues | Racaille Blues | Рокудэнси блюз [1992, Movie] D
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020772.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ Himouto! Umaru-chan R | Beautiful Little Sister! Umaru-chan R | Двулична
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020480.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ Boku no Kanojo ga Majime Sugiru Shobitch na Ken | My Girlfriend is Shobitch | М
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020457.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Kyoushirou to Towa no Sora | Shattered Angels | Кёсиро под вечным
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020443.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Shadowverse | Шадоуверс | Поэзия теней [2020, TV, 48 эп. +
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020366.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ Sanzoku no Musume Ronja | Ronja, the Robber's Daughter | Рони, дочь ра
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020349.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020347.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ Dai 501 Tougou Sentou Koukuu Dan Strike Witches: Road to Berlin | Strike Witches
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020292.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ Mahouka Koukou no Rettousei: Raihousha Hen | The Irregular at Magic High School:
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019898.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ Baby Steps 2 / Первые шаги [ТВ-2] [2015, TV, 25 из 25] HDTV 720p R
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019778.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ Baby Steps / Первые шаги [2014, TV, 25 из 25] HDTV 720p Raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019775.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ Absolute Duo | Абсолютный дуэт [2015, TV, 12 из 12] BDRip 720p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019759.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019756.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ Taisou Zamurai | The Gymnastics Samurai | Самурай гимнастики [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019309.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ Taisou Zamurai | The Gymnastics Samurai | Самурай гимнастики [2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DFD8B832FFE7A5D9DEE53AA173F08FE8788AFB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309012   (1019087) от 26.04.2021
-
-Dia no Ace OVA / Ace of Diamond OVA / Путь аса OVA [2014, OVA, 5 эп.] BDRip 720p Raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главного героя этой истории зовут Савамура Эйдзюн и он является питчером в школьной команде. Он честный, простодушный, но при этом наделен обостренным чувством справедливости. Он живет в небольшом городке и друзья его частенько зовут Эй-тян. Именно благодаря ему в школе была создана бейсбольная команда. И после некоторого времени он вместе со своими друзьями решают (   Читать дальше...   )Производство: Madhouse Studios и Production I.GЖанр: Спорт, сёнэнРежиссер: Хамана ТакаюкиСубтитры: РусскиеПродолжительность: 5 серий по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DE74A79403178DB4CE76B596CBF5281114D47EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

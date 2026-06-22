@@ -1,3 +1,56 @@
+###  Публикация: 815895   (550046) от 25.08.2014
+
+Хищник / Predator [Remastered] (1987) BDRip [H.264/720p-LQ] [Hi10P]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американский вертолет был сбит партизанами в Южной Америке. Оставшийся в живых экипаж находится в плену. Центральное разведывательное управление США бросает свои лучшие силы для освобождения американских подданных.
+Элитная группа спецназа во главе с Датчем была заброшена в южноамериканские джунгли. Операция шла по плану до тех пор, пока они не наткнулись на поляну (   Читать дальше...   )Жанр: Фантастика, Боевик, ТриллерРежиссер: Джон МакТирнанАктеры: Арнольд Шварценеггер, Карл Уэверз, Элпидия Каррильо, Билл Дьюк, Джесси Вентура, Сонни Лендхэм, Ричард Чавес, Р.Г. Армстронг, Шэйн Блэк, Кевин Питер ХоллПеревод: Дублированны, Многоголосый, Двухголосый, Авторский, ЛюбительскийЯзык субтитров: Русский x4, АнглийскийПродолжительность: 01:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93A799C4655B32EB9B6A1E7EB601A416B784711F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 817614   (544948) от 31.08.2014
+
+Фауст / Faust - Eine deutsche Volkssage (1926) BDRemux [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Архангел Михаил и Сатана заключают пари — Сатана утверждает, что может совратить любого человека, живущего на Земле. Предметом пари становится Фауст (Гёста Экман) — знаменитый ученый алхимик. На его город Сатана насылает чуму. Фауст пытается найти лекарство, но терпит неудачу. В ярости он швыряет свои книги в огонь, но на страницах одной из них проступает заклинание (   Читать дальше...   )Производство: Германия, Universum Film (UFA)Жанр: Драма, фэнтезиРежиссер: Фридрих Вильгельм МурнауАктеры: Геста Экман, Эмиль Яннингс, Камилла Хорн, Фрида Ричард, Уильям Дитерле, Иветт Гильбер, Эрик Барклай, Ханна Ральф, Werner Fuetterer, Ганс БраузеветтерПеревод: Немое кино (немецкие интертитры)Субтитры: Русские, английскиеПродолжительность: 01:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D38CE3E587D7CBAD2F522362A65198A6DB85F54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048937   (544550) от 04.09.2016
 
 Школа воров / Scuola di ladri (1986) HDTVRip [H.265/720p-LQ]
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544550.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543705.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542552.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541849.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540984.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540983.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540792.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540681.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539723.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539379.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539126.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539068.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539030.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538736.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538686.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538451.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538300.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537875.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537475.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536813.jpg" />
 </div>
 
 
@@ -531,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536300.jpg" />
 </div>
 
 
@@ -557,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535332.jpg" />
 </div>
 
 
@@ -584,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535080.jpg" />
 </div>
 
 
@@ -610,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534867.jpg" />
 </div>
 
 
@@ -621,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBAFF66EF224451E01851E2866718CAC1EF53916
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266488   (533960) от 03.07.2019
-
-Призрачное счастье (У зеркала два лица) / Le miroir a deux faces (1958) BDRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преподаватель арифметики пострадал в автомобильной аварии, виной которой стал знаменитый пластический хирург. Для того чтобы компенсировать моральный ущерб, врач предлагает бесплатно превратить жену учителя в настоящую красавицу. Но, к сожалению, это не приносит им счастья…Производство: Франция, Италия. CEI Incom, Franco London Films, Gaumont, Paris Union FilmsЖанр: ДрамаРежиссер: Андре КайаттАктеры: Мишель Морган, Бурвиль, Иван Десни, Жоржетт Анис, Жюльен Каретт, Жорж Шамара, Элизабет Мане, Жана Маркен, Марсель Перес, СильвиПеревод: ДублированныйСубтитры: Русские (forced, на отсутствующие в Советском прокате эпизоды)Продолжительность: 01:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88733A443BDCD3062C74B431903111E41820F738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538267   (533456) от 19.06.2022
-
-За шкуру полицейского / Pour la peau d'un flic / For a Cop's Hide (1981) Blu-ray [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быть хорошим частным детективом – значит иметь кучу врагов. И когда частный детектив случайно копнет там, где это кому-то сильно не выгодно, надо быть начеку... В поисках пропавшей слепой девушки герой фильма Шукас и не думал, что столкнется с серьезным сопротивлением своих бывших коллег… Так сколько же стоит шкура бывшего полицейского и куда подевалась девушка?Производство: Франция, Adel ProductionsЖанр: Боевик, триллер, мелодрама, криминалРежиссер: Ален ДелонАктеры: Ален Делон, Анн Парийо, Даниэль Секкальди, Жан-Пьер Даррас, Ксавье Депраз, Жак Риспаль, Жерар Эрольд, Пьер Бело, Анник Алан, Паскаль РоберПеревод: Многоголосый профессиональный (5-й канал, НТВ)Субтитры: РусскиеПродолжительность: 01:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C2C6C4112694F55CADE5A39758224A3C18369C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

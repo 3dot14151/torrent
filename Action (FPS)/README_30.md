@@ -1,3 +1,29 @@
+###  Публикация: 1578068   (347205) от 22.09.2022
+
+EBOLA 3 (2022) [Ru/Multi] (1.2.0) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347205.jpg" />
+</div>
+
+
+###  Подробнее
+
+EBOLA 3 - переносит вас в великую классику ужасов выживания, управляя главным героем с видом камеры от первого лица, которая усиливает ощущение того, что вы находитесь в настоящем фильме ужасов.Тип издания: RepackРазработчик: indie_games_studioЖанр: Action (Survival horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11342F23062DE5BE29B665A82507D4C587900EA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241659   (347033) от 25.10.2018
 
 ShadowSide (2018) [Ru/En] (1.1/dlc) License PLAZA
@@ -6,7 +32,7 @@ ShadowSide (2018) [Ru/En] (1.1/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347033.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Homefront: The Revolution (2016) [Ru/En] (1.0781467/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346179.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Perception Remastered (2017) [Ru/Multi] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344012.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Wolfenstein II: The New Colossus / Wolfenstein 2: The New Colossus (2017) [Ru/Mu
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343999.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ ShadowSide (2018) [Ru/En] (1.1/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340177.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Infliction (2018) [Ru/Multi] (3.0) Repack Other s [Extended Cut]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339200.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Sniper Ghost Warrior Contracts (2019) [Ru/En] (5730292/upd16/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339192.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Call of Duty: WWII (2017) [Ru/En] (1.3) SteamRip R.G. Origins [Singleplayer Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339160.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Viktor Kalvachev's - Blue Estate: The Game (2015) [En/Multi] (1.0) Lossless Repa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338834.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Redemption: Saints And Sinners (2016) [Ru/En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337328.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Far Cry 2 (2008) [Ru/En] (1.03/dlc) License GOG [Fortune's Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336915.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Metal: Hellsinger (2022) [Ru/Multi] (1.0) License Razor1911
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335942.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Void Bastards (2019) [Ru/Multi] (2.0.24/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332980.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Prodeus (2022) [Ru/Multi] (1.0.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330463.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Monstrum (2015) [En] (1.3) SteamRip Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328143.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Outlast 2 (2017) [Ru/Multi] (1.0.17518.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322713.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Battlestrike: Shadow of Stalingrad / Battlestrike: Тень Сталинград
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322191.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Void Bastards (2019) [Ru/Multi] (2.0.24/dlc) Repack Mizantrop1337
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320144.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Project R.I.P. (2019) [Ru/Multi] (1.05) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320036.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Serious Sam HD: The First Encounter / Крутой Сэм HD: Первая кр�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319932.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Dark Shadows - Army of Evil [En] (L) 2012 | SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319303.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Gun [Ru/En] (RePack) 2005 | R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319301.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ Call of Duty: WWII (2017) [Ru/En] (1.3) License RELOADED [Digital Deluxe Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318432.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ Prodeus (2022) [Ru/Multi] (1.0.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318163.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ Kingpin: Life of Crime [Ru] (RePack) 1999 | R.G. ReCoding
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317695.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ Kingpin: Life of Crime [Ru] (RePack) 1999 | R.G. ReCoding
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421040   (317011) от 05.11.2020
-
-PositronX (2020) [En] (1.0.1) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317011.jpg" />
-</div>
-
-
-###  Подробнее
-
-PositronX — это футуристичный роуглайт-шутер со случайной генерацией уровней, предметов и врагов. Динамичный экшн, изобретательная система передвижения, управление временем и потрясающая графика сделают каждое прохождение незабываемым. Сражайтесь с полчищами машин в динамичном классическом шутере со случайной генерацией уровней.Тип издания: LicenseРазработчик: Scorpius GamesЖанр: Шутер, От первого лицаЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D6527E2F2602069934508D30F0D085C0BD28901
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,111 @@
+###  Публикация: 1278563   (768531) от 26.01.2019
+
+Н. Е. Застенкер | Революция 1848 года во Франции (1948) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Революция 1848 года была одним из важнейших событий в истории XIX в., одной из самых поучительных страниц в летописях борьбы за демократию и освобождение рабочего класса.
+
+Уроки этой революции тогда же, по свежим следам событий, были изучены и объяснены великими вождями пролетариата, творцами научного коммунизма Карлом Марксом и Фридрихом Энгельсом. Их гениальный (   Читать дальше...   )Жанр: История, политология, документалистика, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8EA45CDF230BC79F8EC56883842C17821A4AB85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213523   (768202) от 17.03.2018
+
+Н.С. Ангарский | Московский совет в двух революциях (1928) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вся история Московсого Совета с момента крушения монархии до Октября включительно представляет собой историю борьбы внутри Совета двух течений, двух направлений мысли - коалиции меньшевиков и эсеров с одной стороны и большевиков с другой.
+История Московского Совета с февраля по октябрь 1917 года весьма поучительна. На опыте, на живом революционном деле рабочий класс (   Читать дальше...   )Жанр: История Отечества, история революционного движенияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6648C89F5C1BA2AAFBBC597B6EF65900490C974
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213509   (768196) от 17.03.2018
+
+Алфавитный список адресов местных групп Конституционно-демократической партии (1906) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конституционно-демократическая партия («Партия Народной Свободы», «к.-д. партия», «конституционалисты-демократы», «конституционные демократы», «партия ка-детов», позже «кадеты») — крупная центристская (по другим источникам - представляла левое крыло российского либерализма) политическая партия в России в начале XX века.
+Брошюра содержит алфавитный список адресов (   Читать дальше...   )Жанр: История Отечества, история революционного движенияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A95453B24C2A5B237CEE61822AC5FF5D90396CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213510   (768195) от 17.03.2018
+
+С.А. Алфеевский (сост.) | Кустарная и мелкая промышленность и промысловая кооперация (1926) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Собрание декретов, инструкций, циркуляров, разъяснений и прочего по кустарной и мелкой промышленности и промысловой кооперации.Жанр: История Отечества, история права, экономическая историяФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82C6A86DE02824FE688947596388F4AA5D450B3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213695   (768190) от 17.03.2018
 
 В.Н. Бочкарев | Очерк истории революционного движения в России (XVII-XX вв.) (1918) [DJVU]
@@ -6,7 +114,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768190.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768187.jpg" />
 </div>
 
 
@@ -59,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768180.jpg" />
 </div>
 
 
@@ -85,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768179.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768174.jpg" />
 </div>
 
 
@@ -142,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768170.jpg" />
 </div>
 
 
@@ -169,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768160.jpg" />
 </div>
 
 
@@ -195,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768144.jpg" />
 </div>
 
 
@@ -222,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768119.jpg" />
 </div>
 
 
@@ -249,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767786.jpg" />
 </div>
 
 
@@ -275,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767411.jpg" />
 </div>
 
 
@@ -302,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767405.jpg" />
 </div>
 
 
@@ -328,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767400.jpg" />
 </div>
 
 
@@ -355,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767371.jpg" />
 </div>
 
 
@@ -381,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767369.jpg" />
 </div>
 
 
@@ -407,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767307.jpg" />
 </div>
 
 
@@ -434,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767078.jpg" />
 </div>
 
 
@@ -462,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766596.jpg" />
 </div>
 
 
@@ -490,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766595.jpg" />
 </div>
 
 
@@ -517,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766590.jpg" />
 </div>
 
 
@@ -543,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766588.jpg" />
 </div>
 
 
@@ -569,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766587.jpg" />
 </div>
 
 
@@ -580,113 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FEA19BA4CA210821E2DD447C331031A91CE35C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213967   (766586) от 19.03.2018
-
-И.И. Генкин | Лейтенант Шмидт и восстание на "Очакове" (1925) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766586.jpg" />
-</div>
-
-
-###  Подробнее
-
-К двадцатилетию восстания.
-Рабочие и крестьяне, прочтя эту книжку, навсегда запечатлеют в сердцах своих героическую борьбу черноморцев, а красные Военморы и их смена, молодая гвардия, в их великих деяниях будут черпать силы для предстоящих боев за идеи рабочего класса, — за коммунизм. Стихийно возникшее восстание потемкинцев, вначале посеявшее страх и ужас в стане (   Читать дальше...   )Жанр: История Отечества, история революционного движенияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BD41A9AE5F28480AADFDA76CBB0CB1ADB38E9CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213966   (766584) от 19.03.2018
-
-И.И. Генкин | Восстание на броненосце "Потемкин Таврический" (1925) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766584.jpg" />
-</div>
-
-
-###  Подробнее
-
-К двадцатилетию восстания.
-Рабочие и крестьяне, прочтя эту книжку, навсегда запечатлеют в сердцах своих героическую борьбу черноморцев, а красные Военморы и их смена, молодая гвардия, в их великих деяниях будут черпать силы для предстоящих боев за идеи рабочего класса, — за коммунизм.Стихийно возникшее восстание потемкинцев, вначале посеявшее страх и ужас в стане (   Читать дальше...   )Жанр: История Отечества, история революционного движенияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3206112C11F4547D3569E6EAD08F1DBFF4BA5D46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213968   (766582) от 19.03.2018
-
-Г.А. Гиппиус | Современники, собрание литографических портретов государственных чиновников, писателей и художников, ныне в России живущих (1822) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Густав Адольф (Фомич) Гиппиус (нем. Gustav Adolf Hippius; 1792—1856) — художник-портретист балтийско-немецкого происхождения, литограф и педагог.
-Работы художника стали случайным образом известны графу Каподистрия и директору Императорского Царскосельского лицея Егору Антоновичу Энгельгардту; они поддержали его материально и дали возможность предпринять издание «Современники. (   Читать дальше...   )Жанр: История Отечества, альбом портретовФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB075F65E46CF7A42A8B103D6367902E719D5974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213975   (766572) от 19.03.2018
-
-К. Дунин-Борковский (сост.) | Альбом флагов и вымпелов Российской Социалистической Федеративной Советской Республики, союзных советских республик и иностранных государств (1923) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий альбом флагов издан по распоряжению Коллегии Народного Комиссариата по иностранным делам РСФСР в ознаменование пятой годовщины Октябрьской Революции. Пять лет тому назад пролетариат России мошной рукой поднял над необъятной страной красный флаг, который в настоящее время вместе с Советскими посольствами, миссиями и морскими судами проник в самые отдаленные (   Читать дальше...   )Жанр: История, ВексиллологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:563F0E515CC63F1D1E09DAF7CE6758CCDD90DA84
 ```
 
 https://mybot314.ru/tekegram_catalog/

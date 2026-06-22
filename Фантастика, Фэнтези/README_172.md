@@ -1,3 +1,114 @@
+###  Публикация: 1253253   (385348) от 08.10.2018
+
+Кэт Фоллз | Нелюдь (2018) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Нелюдь».
+
+Вирус природной дикости убил почти половину населения Америки. Болезнь делает тебя парией. Но заразившийся не умирает. Он – мутирует.
+Дилэйни Парк МакЭвой должна отправиться к Востоку от стены «Титан». Проникнуть за линию карантина, чтобы спасти отца от ареста за пребывание в запретной Дикой Зоне. Ставки высоки, и она идет на сделку (   Читать дальше...   )Жанр: Зарубежная фантастика, Научная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13001D55C002853B3810AFA56BB76A90DDAF9901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253216   (385346) от 08.10.2018
+
+Дженнифер Броуди | Возвращение ковчегов (2017) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй роман трилогии «Ковчег»
+
+«Солнце поднималось все выше, близился полдень, а Майра глядела на бледное небо. Элианна в это время рассказывала, что некогда в нем парили птицы, ныряли в океан за рыбой, бранились, создавали пары, вили гнезда, выводили птенцов. Птицы, подумала Майра, они казались ей чем-то волшебным и непостижимым, как существа из маминых сказок». (   Читать дальше...   )Жанр: Боевая фантастика, Научная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:178B6A3FD95C90DBD68B0E08255D953738F08F81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253231   (385340) от 08.10.2018
+
+Франциска Вудворт | Роза для Палача (2018) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвертый роман цикла «Мода на волшебство».
+
+Каждый из нас носит маску. Любимый жених может оказаться подлым изменником, случайный знакомый – палачом тайного Ордена, и даже родная мать хранит тайны, которые навсегда разрушат привычные представления о мире. Могла ли обычная женщина, врач-нейрохирург, подумать, что спасение тяжелораненого больного навсегда изменит (   Читать дальше...   )Жанр: Городское фэнтези, Любовное фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF5380B08ED644E988CAF4FA7F4EF7863E6942E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326463   (385081) от 20.09.2019
+
+Марина Эльденберт | Скрытые чувства (2019) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я по собственному желанию отказалась от сильнейшего дара эмпата, но сейчас единственная возможность остаться рядом с братом и ему помочь — принять предложение Ладислава Берговица. Исключительно деловое, потому что самый влиятельный ящер страны хочет знать, что чувствует его избалованная дочь. Правда, сам тщательно скрывает собственные чувства, которые, несмотря на (   Читать дальше...   )Жанр: Любовное фэнтези, Космическая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC5D4337CB977CFB1ADBB62BA002F8B471168210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326453   (385067) от 20.09.2019
 
 Семён Лопато | Облако (2019) [FB2]
@@ -6,7 +117,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385067.jpg" />
 </div>
 
 
@@ -35,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384991.jpg" />
 </div>
 
 
@@ -63,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384825.jpg" />
 </div>
 
 
@@ -91,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384822.jpg" />
 </div>
 
 
@@ -117,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384811.jpg" />
 </div>
 
 
@@ -145,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384806.jpg" />
 </div>
 
 
@@ -171,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384662.jpg" />
 </div>
 
 
@@ -199,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384640.jpg" />
 </div>
 
 
@@ -227,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384639.jpg" />
 </div>
 
 
@@ -255,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384624.jpg" />
 </div>
 
 
@@ -281,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384516.jpg" />
 </div>
 
 
@@ -309,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383373.jpg" />
 </div>
 
 
@@ -335,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383177.jpg" />
 </div>
 
 
@@ -361,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382925.jpg" />
 </div>
 
 
@@ -387,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382841.jpg" />
 </div>
 
 
@@ -415,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382829.jpg" />
 </div>
 
 
@@ -441,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382541.jpg" />
 </div>
 
 
@@ -470,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382497.jpg" />
 </div>
 
 
@@ -499,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382493.jpg" />
 </div>
 
 
@@ -526,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382351.jpg" />
 </div>
 
 
@@ -554,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382343.jpg" />
 </div>
 
 
@@ -583,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382223.jpg" />
 </div>
 
 
@@ -595,118 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54E4502932D946E3C7F5047A30E4F4F337F7532F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 572621   (382184) от 09.11.2012
-
-Стивен Кинг | Противостояние [2012] [FB2, EPUB, RTF, PDF]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Америка превратилась в ад. Из секретной лаборатории вырвался на свободу опаснейший вирус. Умерли сотни тысяч, миллионы ни в чем не повинных людей... Однако и это еще не все. Вступили в игру беспощадные и могучие силы. Рвется к власти таинственный темный человек, способный подчинять себе слабые, сомневающиеся души. Кто он? Откуда явился? Что сулит человечеству его (   Читать дальше...   )Жанр: Мистика и ужасыПеревод: Виктор ВеберФормат: FB2, EPUB, RTF, PDF (PDF сконвертирован из FB2)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E3D37399122869BAB0C06389CFCF26A5B4A8AFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068333   (381962) от 31.10.2016
-
-Евгений Щепетнов | Рай беспощадный. Корпорация (2016) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман цикла «Корпорация».
-
-Приключения Слая Донгара продолжаются. Казалось бы, после успешного выполнения задания можно расслабиться и прокутить честно заработанные деньги. Но от агентов Империи так просто не отвяжешься, и команде космического «Бродяги» снова предстоит рисковать жизнью, разрешая конфликты планетарного масштаба, мастерски справляясь со смертельными (   Читать дальше...   )Жанр: Космическая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:904B960A89CFA9A592CFFC79A9FC6267127121E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978967   (381948) от 31.10.2016
-
-Милослав Князев | Другая сторона (2016) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одиннадцатая книга цикла «Полный набор».
-
-Добро пожаловать в «Полный набор»!
-Откровенно говоря, попаданец из нашего мира, а ныне князь ВаДим, и сам уже запутался, сколько у него жен. Одних эльфийских принцесс целых три штуки.… А может, уже и четыре… Да какая разница! Эльфийских принцесс много не бывает. Иное дело, что от жен случаются дети, а дети эти имеют дурную (   Читать дальше...   )Жанр: Попаданцы, Боевое фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:823980146FCBEA47014103F0F651F467BC110BBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253552   (381609) от 10.10.2018
-
-Ольга Готина | Кукловод (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «Кукловод».
-
-Легко ли быть кукловодом? Дергать за ниточки, просчитывая не только свои шаги, но и шаги своих марионеток? Лорду Берту, королевскому советнику, хорошо известно, как управлять людьми и добиваться поставленных целей.
-Легко ли быть куклой? Всего лишь послушной куклой в руках того, кто решает все за тебя? Принцесса Алис начинает понимать, (   Читать дальше...   )Жанр: Любовное фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B17D3EFFA39000F424D36F376553EDC7E3A9C46
 ```
 
 https://mybot314.ru/tekegram_catalog/

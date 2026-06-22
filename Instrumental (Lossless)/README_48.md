@@ -6,7 +6,7 @@ Dean Owens - Sinner's Shrine (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Singer
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712582.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Brandon Reeves - There's No Going Back (2022) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712578.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Big Mike Griffin - Sittin' Here With Nothing (1995) [FLAC|Lossless|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712215.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Kees Dusink - Forever Blue (2015) [FLAC|Lossless|tracks + .cue] <Modern Electric
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712211.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Adrian Galysh - Into The Blue (2016) [FLAC|Lossless|image + .cue] <Blues-rock, I
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712201.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Johnny Winter with Dr. John - Live in Sweden 1987 (2016) [FLAC|Lossless|tracks +
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712141.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Rosie Flores - Simple Case Of The Blues (2019) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711182.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Maria Daines - Wisdom's Tooth (2007) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710981.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Maria Daines - The River (2020) [FLAC|Lossless|WEB-DL|tracks] <Country, Rock, Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710875.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Kay Kay And The Rays - Big Bad Girl (2003) [FLAC|Lossless|image + .cue] <Blues, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710788.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Ian Parker - Inside (2003) [FLAC|Lossless|tracks + .cue] <Blues Rock, Southern R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710787.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Big Mike Griffin - Harley In The Rain (1998) [FLAC|Lossless|tracks + .cue] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710666.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Highway Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709283.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Caught A Ghost - Human Nature (2014) [FLAC|Lossless|tracks + .cue] <Soul, Altern
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708790.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ The Bluesbones - Double Live (2016) 2 CD, Live [FLAC|Lossless|tracks + .cue] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708160.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Bluesbones - Chasing Shadows (2018) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708097.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ The Love Light Orchestra - Leave the Light On (2022) [FLAC|Lossless|image + .cue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706925.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - The Best of American Folk & Blues (3CD) (2016) [FLAC|Lossless|tracks + .cue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705964.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Blues Beatles - Let It Blues (2020) [FLAC|Lossless|image + .cue] <Modern Electri
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705510.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Blues Company - Ain't Givin' Up (2019) [FLAC|Lossless|image + .cue] <Electric Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705357.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Big Boy Bloater & The Limits - 2 Альбома (2011, 2012) [FLAC|Lossless|imag
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705227.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Brent Cobb - And Now, Let's Turn to Page… (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705005.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Eddy Badleg - Eddy Goes Piano (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705003.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Christer Lyssarides - Christer Lyssarides (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705002.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Christian Brooks - Lucky Me (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704999.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Dr. J. B. Blues - Bluesy Sky over Paris (2022) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704997.jpg" />
 </div>
 
 

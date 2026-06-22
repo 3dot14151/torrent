@@ -1,3 +1,61 @@
+###  Публикация: 232220   (508990) от 31.08.2010
+
+VA - Песни Про Маму (2010) [MP3|256 kbps]<Детские песни>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка песен про самого дорогого и любимого человека в жизни - про Маму. Песни исполнены юными дарованиями, что делает их ещё более трогательными и искренними. Надеюсь, что песни вам понравятся.01. А я игрушек не замечаю
+02. Бабушка
+03. Мама, папа,
+04. Мама(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:40:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 377585   (508463) от 19.08.2011
+
+VA - Monster Mash & Other Songs of Horror (2000) [MP3|320 kbps]<Детские песенки и музыка>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monster Mash
+02. Ghostbusters
+03. Twilight Zone (Movie Theme)
+04. Love Potion No. 9(   Читать дальше...   )Жанр: Детские песенки и музыкаПродолжительность: 00:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF6A187FFED87C847C7E0E6535C71FF3D91E483D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 377598   (508416) от 19.08.2011
 
 VA - Birthday Party Singalong (2001) [MP3|128 kbps]<Детские песенки>
@@ -6,7 +64,7 @@ VA - Birthday Party Singalong (2001) [MP3|128 kbps]<Детские песенк�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508416.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Евгений Крылатов. Умка и другие (2002) [MP3|320 k
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508350.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508289.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Halloween Songs and Sounds (2006) [MP3|320 kbps]<Детские песен�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508263.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Шкільні Роки (2008) [MP3|320 kbps]<Музыка для дете�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508204.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508091.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508084.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507581.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ VA - С Добрым Утром (2004) [MP3|320 kbps]<Песенки для де
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507433.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ VA - Simply Kids (4 CD) (2006) [MP3|128 kbps]<Детские песенки>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507420.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ VA - Sleepy Baby (2003) [MP3|192 kbps]<Колыбельные для детей>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507417.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ VA - Детские песни Михаила Ваняна (1972) [MP3|128 kbps]
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507414.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ VA - Небылицы - 100 детских песен (2011) [MP3|256-320 kbps]<
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507298.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507226.jpg" />
 </div>
 
 
@@ -407,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507025.jpg" />
 </div>
 
 
@@ -433,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507010.jpg" />
 </div>
 
 
@@ -459,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506375.jpg" />
 </div>
 
 
@@ -488,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506227.jpg" />
 </div>
 
 
@@ -517,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505518.jpg" />
 </div>
 
 
@@ -543,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505387.jpg" />
 </div>
 
 
@@ -570,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505184.jpg" />
 </div>
 
 
@@ -599,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503719.jpg" />
 </div>
 
 
@@ -625,7 +683,7 @@ VA - Io Canto (2010) [MP3|204-238 kbps]<Детские песенки>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503643.jpg" />
 </div>
 
 
@@ -654,7 +712,7 @@ VA - Io Canto - 2a Edizione (2010) [MP3|320 kbps]<Детские песенки>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503543.jpg" />
 </div>
 
 
@@ -668,64 +726,6 @@ VA - Io Canto - 2a Edizione (2010) [MP3|320 kbps]<Детские песенки>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB5AFDB5BF132C8CA0C245070C338B18CC068B02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 379635   (503379) от 24.08.2011
-
-VA - Cristian Imparato e i Finalisti Di Io Canto (2010) [MP3|224 kbps]<Детские песенки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cristian Imparato - Che Bellamore
-02. Cristian Imparato - New York New York
-03. Sara Musella - Adesso
-04. Cristian Imparato - Adagio(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 01:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79D9264BD1F6F551560897EABBC51929B7C0B30E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 233973   (502751) от 07.09.2010
-
-VA - Радионяня. Мамины Помощники (1995) [MP3|256 kbps]<Песенки и интермедия для детей>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мытье посуды - интермедия
-02. Подметание пола - интермедия
-03. Сереженька - Песня
-04. Интермедия - Мытье пола(   Читать дальше...   )Жанр: Песенки и интермедия для детейПродолжительность: 00:58:21
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

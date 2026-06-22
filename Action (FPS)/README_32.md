@@ -1,3 +1,29 @@
+###  Публикация: 158673   (297964) от 17.12.2009
+
+Killing Floor & Defence Alliance 2 [Ru/En] (L) 2009
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_297964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мутанты и прочие зомби сбежали из секретной подземной лаборатории, и теперь группе отважных смельчаков (кооператив рассчитан на шестерых) предстоит перестрелять несколько сотен гниющих тел на улицах Лондона. Для зачистки местности можно использовать шестнадцать видов оружия, а также экспериментировать с системой перков.Тип издания: LЖанр: Action (Shooter) / 3D / 1st PersonЯзык интерфейса: Русский (текст)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078899   (297426) от 02.12.2016
 
 Judge Dredd: Dredd vs Death (2003) [En] (1.0) License GOG
@@ -6,7 +32,7 @@ Judge Dredd: Dredd vs Death (2003) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_297426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_297426.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Maize (2016) [En] (1300) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297278.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Homefront (2011) [Ru] (1.5.500001.0) Repack xatab [Ultimate Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296375.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Betrayer (2014) [Multi] (1.8.5816) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295247.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Generation Zero (2019) [Ru/Multi] (Build 20191028/dlc) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294331.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Borderlands (2009) [Ru] (1.5.0/dlc) Repack Other s [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292597.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Underworld Ascendant (2018) [Ru/Multi] (0.3.30263/dlc) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292538.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Killing Floor (2009) [Ru/En] (1065/dlc) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291220.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ TARTARUS (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290756.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Underworld Ascendant (2018) [Ru/Multi] (0.3.30263/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290706.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ TARTARUS (2017) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290627.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Beastiarium (2016) [Ru/Multi] (1.0.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289639.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Beastiarium (2016) [Ru/Multi] (1.0.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289284.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Awe of Despair (2017) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288868.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ PayDay: The Heist (2011) [Ru/En] (1.22.0/dlc) Repack Mizantrop1337
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288862.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ Call of Duty: Advanced Warfare (2014) [Ru/En] (1.22.0.1/upd12/dlc) Rip R.G. Ме
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285388.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ Agony Unrated (2018) [Ru/Multi] (1.0upd5) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285240.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Borderlands Game of the Year Enhanced (2019) [Ru] (1.5.0/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285224.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ Root Of Evil: The Tailor (2016) [Ru/Multi] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283632.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ Battlefield: Bad Company 2 (2010) [Ru/En] (795745) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283356.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ Signal Ops (2013) [En] (1.0.5361) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282132.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ Killing Room (2016) [Ru/Multi] (1.37.7) Repack Seraph1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276687.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ Maize (2016) [En] (1.0.1310) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276627.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ Outlaws (1997) [En] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276180.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ Drift Into Eternity (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275408.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ Drift Into Eternity (2016) [En] (1.0) License PLAZA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6808D7943EF2A2ABAE47B9AED2C2F27D40EF0FFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082986   (275360) от 14.12.2016
-
-Space Rift NON VR (2016) [En] (1.0) License CODEX [Episode 1]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275360.jpg" />
-</div>
-
-
-###  Подробнее
-
-SPACE RIFT — захватывающее космическое приключение с увлекательным сюжетом. Игра изначально создавалась для виртуальной реальности, но эта версия оптимизирована для игры без технологии VR. После губительного метеоритного дождя Земля превратилась в бесплодную пустыню. Человечество было вынуждено перебраться на Марс, где и живет под жестоким гнетом мегакорпораций WEYSS (   Читать дальше...   )Тип издания: LicenseРазработчик: Vibrant CoreЖанр: Adventure (Space), 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:089A85BB3D27E1FACC8E9429167673DAED8726D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

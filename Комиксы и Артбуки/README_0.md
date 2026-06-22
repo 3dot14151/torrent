@@ -6,7 +6,7 @@ Cass Browne, Gorillaz | Артбук группы Gorillaz: Становлени
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032321.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029934.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Lucasfilm, Respawn Entertainment | Артбук по игре Звёздные �
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029888.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029881.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Lucasfilm | Артбук по сериалу Мандалорец / The Art of S
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029875.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027500.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Dynamite | Артбук художника Lucio Parrillo / The Dynamite Art of 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026855.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Eric Powell | Артбук художника Eric Powell / The Art (and Many Ot
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026719.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026717.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Marvel | Артбук по комиксам Конан / The Marvel Art of Conan
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026362.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Aspen Comics | Артбук по комиксам Aspen / Michael Turner Art Edi
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025599.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ High Moon Studios | Артбук по игре Transformers: Fall of Cybertron /
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025569.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015904.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012368.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012223.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003668.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003656.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Stan Sakai | Артбук по комиксу Usagi Yojimbo / Usagi Yojimbo: 35 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992573.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Walt Disney Animation Studios | Артбук по мультфильму Моа�
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992499.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Benoit Sokal | Артбук по игре Syberia 3 / The Art of Syberia 3 (2016
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980904.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966970.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ John Layman, Rob Guillory | Chew/Хавка [2009] [Обновляемая] [CBR
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961839.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ id Software | Артбук по игре DOOM Eternal / The Art of DOOM Eternal 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960520.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941977.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Nintendo | Артбук по игре Splatoon 2 / The Art of Splatoon 2 (2019) 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940741.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Nintendo | Артбук по игре Super Mario Odyssey / The Art of Super Mar
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940576.jpg" />
 </div>
 
 

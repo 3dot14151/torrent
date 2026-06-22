@@ -1,3 +1,133 @@
+###  Публикация: 1264833   (277503) от 25.11.2018
+
+Поиск / Searching  (2018) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277503.jpg" />
+</div>
+
+
+###  Подробнее
+
+16-летняя дочь Дэвида Кима пропадает без следа, полиция разводит руками. Отчаявшийся отец взламывает компьютер девочки, чтобы понять, что он ничего не знает про дочь...Производство: США, Россия / Screen Gems, Stage 6 Films, Bazelevs ProductionЖанр: триллер, драма, детективРежиссер: Аниш ЧагантиАктеры: Джон Чо, Сара Сон, Алекс Джейн Гоу, Меган Лью, Кайя Доун Лау, Мишель Ла, Джозеф Ли, Доминик Хоффман, Сильвия Минасян, Мелисса Дисней, Коннор Макрэйт, Колин ВуделлПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, испанскиеПродолжительность: 01:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B026B9D3E2BF6B4873D5E557A648E659F11369C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082588   (277242) от 13.12.2016
+
+Ласточки и амазонки / Swallows and Amazons  (2016) BDRip [H.264/720p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277242.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о детях-мечтателях, бегущих на парусной шлюпке от скучной домашней жизни. Они разбивают лагерь на диком острове, играют в робинзонов и пиратов, соперничают с экипажем сестер-«амазонок», но главное – узнают ценность дружбы, мужества и ответственности, готовясь к проблемам и угрозам взрослого мира.Производство: ВеликобританияЖанр: семейныйРежиссер: Филиппа ЛоуторпАктеры: Келли Макдоналд, Рейф Сполл, Эндрю Скотт, Джессика Хайнс, Гарри Энфилд, Ричард Бреммер, Джон Хеншоу, Орла Хилл, Тедди-Роуз Маллсон-Аллен, Серен Хоукс, Дэйн Хьюз, Ханна Джейн ТорпПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B178FBD98EAFF84929EE4BA6E2AC2D859348EC3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082591   (277126) от 13.12.2016
+
+Ласточки и амазонки / Swallows and Amazons  (2016) BDRip [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277126.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о детях-мечтателях, бегущих на парусной шлюпке от скучной домашней жизни. Они разбивают лагерь на диком острове, играют в робинзонов и пиратов, соперничают с экипажем сестер-«амазонок», но главное – узнают ценность дружбы, мужества и ответственности, готовясь к проблемам и угрозам взрослого мира.Производство: ВеликобританияЖанр: семейныйРежиссер: Филиппа ЛоуторпАктеры: Келли Макдоналд, Рейф Сполл, Эндрю Скотт, Джессика Хайнс, Гарри Энфилд, Ричард Бреммер, Джон Хеншоу, Орла Хилл, Тедди-Роуз Маллсон-Аллен, Серен Хоукс, Дэйн Хьюз, Ханна Джейн ТорпПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF99D02F2683259F541195900B4DE286E170DB08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336876   (277048) от 08.11.2019
+
+Она убивала в экстазе / Sie totete in Ekstase / She killed in Ecstasy (1971) BDRemux [H.264/1080p] [GER / EN Sub] [PR]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой доктор Джонсон проводил эксперименты с человеческими эмбрионами, за что был осужден и лишен практики комиссией, состоящей из четырех авторитетных коллег — трех мужчин и женщины. Не в силах перенести этот удар судьбы, Джонсон наложил на себя руки. Его безутешная вдова задумала страшную месть: она соблазнила и убила членов той злополучной комиссии одного за (   Читать дальше...   )Производство: Германия (ФРГ), Испания / Tele-Cine Film- und FernsehproduktionЖанр: ужасыРежиссер: Хесус ФранкоАктеры: Соледад Миранда, Фред Уильямс, Пауль Мюллер, Говард Вернон, Ева Стрёмберг, Хорст Тапперт, Бени Кардосо, Хесус Франко, Рудольф Херцог, Карл Хайнц МаннхенПеревод: ОтсутствуетЯзык озвучки: НемецкийСубтитры: Английские (.pgs)Продолжительность: 01:20:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:776F5C3547C9A262C1C356F4B8CB716F7B5E7CA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187914   (276761) от 30.11.2017
+
+Вечеринка / The Party (2017) BDRip [H.264/1080p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дома у Билла и Джэнет собираются старые друзья — посидеть, выпить вина, поделиться новостями, тем более, что в жизни всех участников встречи происходит что-то интересное. Вечер удался бы на славу, но тут Билл сделал такое заявление, что настроение у всех резко испортилось. Теперь старые друзья уже готовы вцепиться друг другу в глотку, как в переносном, так и во вполне (   Читать дальше...   )Производство: Великобритания, Adventure Pictures, Oxwich MediaЖанр: Комедия, ДрамаРежиссер: Салли ПоттерАктеры: Патришия Кларксон, Бруно Ганц, Черри Джонс, Эмили Мортимер, Киллиан Мёрфи, Кристин Скотт Томас, Тимоти СполлПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:10:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F016098BA4B6C7F68574266CAB7C3979D0DA0934
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1187662   (276751) от 30.11.2017
 
 Иностранец / The Foreigner (2017) WEBRip [H.264/1080p-LQ] [EN / EN, CH Sub]
@@ -6,7 +136,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276751.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276704.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276281.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275750.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275412.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273485.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273483.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273361.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273095.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle  (2017) BDRe
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273012.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273011.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272795.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272041.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271748.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271442.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271021.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270826.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_270059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270059.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269974.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268761.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268561.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEC5946E319C37720ABB48403C5F684165F9825D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266894   (268345) от 04.12.2018
-
-Проклятие монахини / The Nun  (2018) BDRemux [H.264/1080p] [EN / EN, Fr, Po Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда в уединенном монастыре в Румынии совершает самоубийство молодая монахиня, расследовать происшествие Ватикан отправляет священника с туманным прошлым и послушницу на пороге невозвратных обетов. Рискуя не только жизнями, но и верой, и даже своими душами, они сталкиваются со злобной силой, принявшей облик демонической монахини, а монастырь становится полем ужасающей (   Читать дальше...   )Производство: США / Atomic Monster, New Line Cinema, The Safran CompanyЖанр: ужасы, триллер, детективРежиссер: Корин ХардиАктеры: Демиан Бишир, Таисса Фармига, Йонас Блоке, Бонни Ааронс, Ингрид Бису, Патрик Уилсон, Вера Фармига, Лили Тейлор, Шарлотта Хоуп, Сандра Телес, Аугуст МатуроПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, португальскиеПродолжительность: 01:36:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEFF72509CB745A7148D6D5298B9D35C497CE52F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267095   (267538) от 05.12.2018
-
-Операция «Финал» / Operation Finale (2018) BDRemux [EN / EN, Fr, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Через 15 лет после окончания Второй мировой войны создаётся команда спецагентов, чтобы выследить Адольфа Эйхмана — печально известного сотрудника гестапо, отвечавшего за «окончательное решение еврейского вопроса».Производство: США, Automatik (as Automatik Entertainment), Metro-Goldwyn-Mayer (MGM)Жанр: Триллер, ДрамаРежиссер: Крис ВайцАктеры: Оскар Айзек, Бен Кингсли, Мелани Лоран, Лайор Раз, Ник Кролл, Майкл Аронов, Охад Кноллер, Грег Хилл, Торбен Либрехт, Майкл Бенжамин ЭрнандесПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, испанскиеПродолжительность: 02:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:085E47AD242FF5870E5C35B081E6CAA7CF1B080C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267260   (267335) от 05.12.2018
-
-Веном / Venom (2018) BDRip [H.264/1080p]  [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что если в один прекрасный день в тебя вселяется существо-симбиот, которое наделяет тебя сверхчеловеческими способностями? Вот только Веном — симбиот совсем недобрый, и договориться с ним невозможно. Хотя нужно ли договариваться?.. Ведь в какой-то момент ты понимаешь, что быть плохим вовсе не так уж и плохо. Так даже веселее. В мире и так слишком много супергероев! (   Читать дальше...   )Производство: США, Columbia Pictures Corporation, 	Marvel Entertainment, Sony Pictures EntertainmentЖанр: Боевик, Фантастика, Триллер, УжасыРежиссер: Рубен ФляйшерАктеры: Том Харди, Мишель Уильямс, Марчелла Браджио, Вуди Харрельсон, Дженни Слейт, Риз Ахмед, Мак Брандт, Рон Сепас Джонс, Мишель Ли, Мелора УолтерсПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5279BC429BF1C88B23E253F49BC10C403965C569
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190433   (266595) от 10.12.2017
-
-Цепной пёс / Bullet Head (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даже у самого верного дела возможны разные варианты завершения. Матерые преступники, пытаясь по наводке обчистить полицейский склад, оказываются в ловушке с разъяренным сторожевым псом по кличке ДеНиро. Счастливый финал кажется все более призрачным…Производство: Болгария, США / Millennium Media, Nu Boyana Film Studios, Principato-Young EntertainmentЖанр: Криминал, Драма, ТриллерРежиссер: Пол СолетАктеры: Эдриан Броуди, Рори Калкин, Антонио Бандерас, Джон Малкович, Александра Дину, Кристина Сеговиа, Ори Феффер, Оуэн Дэвис, Велизар Бинев, Кит Д. ЭвансПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом)Продолжительность: 01:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2F74B41310D4A5F5C02EAE6B8CAE758516099E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267496   (266301) от 06.12.2018
-
-Веном / Venom (2018) BDRip [H.264/720p] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что если в один прекрасный день в тебя вселяется существо-симбиот, которое наделяет тебя сверхчеловеческими способностями? Вот только Веном — симбиот совсем недобрый, и договориться с ним невозможно. Хотя нужно ли договариваться?.. Ведь в какой-то момент ты понимаешь, что быть плохим вовсе не так уж и плохо. Так даже веселее. В мире и так слишком много супергероев! (   Читать дальше...   )Производство: США, Columbia Pictures Corporation, 	Marvel Entertainment, Sony Pictures EntertainmentЖанр: Боевик, Фантастика, Триллер, УжасыРежиссер: Рубен ФляйшерАктеры: Том Харди, Мишель Уильямс, Марчелла Браджио, Вуди Харрельсон, Дженни Слейт, Риз Ахмед, Мак Брандт, Рон Сепас Джонс, Мишель Ли, Мелора УолтерсПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русский (полные от Focs), АнглийскийПродолжительность: 01:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:511F4245656F77418A5B9630CDAC575B5EC5CA96
 ```
 
 https://mybot314.ru/tekegram_catalog/

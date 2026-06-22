@@ -1,3 +1,29 @@
+###  Публикация: 1389602   (784192) от 11.06.2020
+
+Discovery. Законы акульего мира / The laws of Jaws (2018) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отмечая 30-летие "Недели акул", мы погрузимся в океанские глубины и познакомимся ближе с одними из самых опасных хищников на планете.Производство: США, Lycky 8 TVЖанр: Документальный, природа, фаунаРежиссер: Грегори ГенриПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F772E47C2A98E67885570E609214E5C220E6A385
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1389530   (784181) от 11.06.2020
 
 Discovery. Астронавты SpaceX: первый полёт / Space Launch: America Returns To Space (2020) WEB-DLRip
@@ -6,7 +32,7 @@ Discovery. Астронавты SpaceX: первый полёт / Space Launch: 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784181.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Discovery. Астронавты SpaceX: первый полёт / Space Launch: 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784180.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Discovery. Ледяное золото / Ice Cold Gold (2014) HDTVRip [H.264/108
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777433.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Discovery: Курс выживания с Беаром Гриллсом / Bear G
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777088.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Discovery: Золотая лихорадка / Gold Rush (2016) HDTVRip (сез�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777009.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Discovery. Секреты подземелья / Secrets of the Underground (201
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776989.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Discovery: Тесла. Рассекреченные архивы / Tesla's Death
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774890.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Discovery: Тесла. Рассекреченные архивы / Tesla's Death
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774874.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Discovery: Мир стволовых клеток со Стивеном Хоки
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774075.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772721.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Discovery. Шахты на Луне / Mining the Moon (2008) HDTVRip [H.264/720p
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771166.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Discovery. Эд Стаффорд: Игра на вылет / Ed Stafford: First 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769317.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767537.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ Discovery: Экватор / Equator (2005) BDRemux [H.264/1080i] (серии 1-6
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766747.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766082.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Discovery. Техногеника. Гиперболоидные конструк
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765372.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765359.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ Discovery: Остров с Беаром Гриллсом / The Island with Bear 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765274.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Discovery. Как устроена Вселенная / How the Universe Works (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763116.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ Discovery: Новый Мир. Метро будущего / Discovery: Next Worl
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760973.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Discovery: Через червоточину с Морганом Фримено�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759745.jpg" />
 </div>
 
 
@@ -550,6 +576,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 742187   (758900) от 18.05.2016
+
+Discovery. Беар Гриллс: Выбраться живым / Get Out Alive with Bear Grylls (2013) WEB-DLRip [H.264/720p-LQ] (серии 1-8 из 8)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_758900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скриншоты:Жанр: Документальный, реалити-шоу, экстримПеревод: Двухголосый закадровый (профессиональный)Продолжительность: 8x ~00:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C524963DF824556E9101F7DF4CA94432AE9863B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 715508   (757329) от 19.05.2016
 
 Discovery. Американские гангстеры / American Gangsters (2000) DVDRip [3 серии из 3]
@@ -558,7 +610,7 @@ Discovery. Американские гангстеры / American Gangsters (200
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757329.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ Discovery. Чужая планета  / Alien Planet (2005) HDTVRip [H.264/720p-
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751641.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ Discovery. Техногеника. Ту-144. Первый пассажирски
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749957.jpg" />
 </div>
 
 
@@ -624,58 +676,6 @@ Discovery. Техногеника. Ту-144. Первый пассажирски
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70C3AD6F5A8145D3B40A404C1D314C6B44FEFF66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281655   (749911) от 09.02.2019
-
-Discovery. Рыбацкие легенды Якуба Вагнера / Rybi Legendy Iakuba Vagnera (2013) HDTVRip [H.264/720p-LQ] (сезон 2, серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Присоединяйтесь к профессиональному рыболову и исследователю Якубу Вагнеру, который путешествует по миру в поисках самых опасных обитателей водоемов. Перед началом каждого рыболовного приключения он тщательно изучает сказания и мифы местных жителей – Якуб надеется поймать рыб, о которых слагают легенды.Производство: Чехия, Česká televize, Discovery ChannelЖанр: Документальный, природа, рыбалкаПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 6 x ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6557068DBED73B063D99335183F7FD7654282765
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524201   (746254) от 14.01.2022
-
-Самый холодный марафон с Джеймсом Крэкнеллом / Coldest Race on Earth with James Cracknell (2011) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двукратный чемпион и золотой олимпийский медалист Джеймс Крэкнелл готовится проехать 700 км по холодной арктической пустыне, по одной из самых экстремальных трасс на Земле. Для Джеймса Yukon Arctic Ultra представляет собой экстраординарное испытание, потому что с момента катастрофического столкновения велосипеда с грузовиком, чуть не убившего его, прошло всего полгода. (   Читать дальше...   )Производство: США, Bullseye Television and Ambition ProductionsЖанр: документальный, спорт, биографияРежиссер: Дэвид ХаррисонПеревод: одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB819124A5A98C7E22DF83E5CC2A64A63DB5999D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ CG Forge, Tyler Bay | Destruction I - RBD simulation (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449401.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Entagma, Moritz Schwind | Mograph Liquids: Controlling FLIP Fluids Via Curve For
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449285.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Entagma, Moritz Schwind | Axiom Solver: Dissolving Logo (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449252.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Udemy, Hardy Fowler | Line Art Master (2018) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449101.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Masterclass, Will Wright | Will Wright Teaches Game Design and Theory (2018) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449098.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ David Luong | Intro to Digital Matte Painting (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448885.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ The Gnomon Workshop, Aaron Sims | Real-Time Filmmaking in Unreal Engine 5 — TH
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448606.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Will Wallace | Разрушение дома / Destruction Training with Thinkin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447226.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447026.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ SideFX, Paul Esteves | Vellum Nodes (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446987.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446839.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444832.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Gumroad, Daniel Thiger | Melting Snow (2017) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444814.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444806.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444656.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444492.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Gumroad, FlyCat | Blender - Game Ready Character Modeling - Full process video &
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444336.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442692.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Gumroad, Tom Newbury | Creating a Realistic Human Eye in CG (2015) PCRec [EN, RU
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442586.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442567.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ SideFX, Krishna Bala | Staggered Fracture (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440500.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ SideFX, Robert Magee | Smashing Wine Glass (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440488.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_440471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_440471.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ SideFX, Simon Verstraete | Realtime FX with Niagara (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440348.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ CGcircuit, Chad Vernon | Applied 3d Math (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440344.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ CGcircuit, Florian Bard | Disintegration Effect II - The Skull (2020) PCRec [EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440220.jpg" />
 </div>
 
 

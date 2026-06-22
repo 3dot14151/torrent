@@ -6,7 +6,7 @@ Gurf Morlix - Caveman (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190379.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Memphis Jackson - Playa in Love (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, R&B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190376.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Honey B. & T-Bones - Buzzing! Vol.2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190372.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Stan Webb With Chicken Shack - Plucking Good and Changes (2022) 2CD [FLAC|Lossle
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190354.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Mick Kolassa - Essentially Not Serious (2023) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189392.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Garnetta Cromwell - Time To Shine (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189388.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Will McCarty - Belonging (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188887.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Victor Lawson Blues Band - Mainstreet Blues (2022) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188878.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Jorgensens - Americana Soul (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Sou
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188877.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ The Muddy York Blues Machine - The Muddy York Blues Machine (2022) [FLAC|Lossles
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188874.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Rebecca Downes - The Space Between Us (2022) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188854.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Grandaddy Short Leg - The Ballad of Cain (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188853.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Tom Portman - Train to Nowhere (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Coun
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188849.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Layla Zoe - The World Could Change (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188847.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Steve Hill - Dear Illusion (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188845.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Sister Mercy - Honey (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188843.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Henrik Freischlader - Recorded by Martin Meinschäfer II (2022) [FLAC|Lossless|W
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188842.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Aynsley Lister - Along for the Ride (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188832.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - The good awakening blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188824.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Luke Winslow-King - If These Walls Could Talk - If These Walls Could Talk (2022)
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188805.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Steven Charles Cecil - Teens Know Best (Story and Clark, Vol 2) (2022) [FLAC|Los
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188743.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Mattias Malm - Electric Avenue (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187585.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Frances Tease - Paradise Lost (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187583.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Daryl Coutts - Just in time (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187578.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ The Duchess Jureesa McBride - My Time to Shine (2022) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187576.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Wielderfight - Black Coal/Black Smoke (2022) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187568.jpg" />
 </div>
 
 

@@ -7,7 +7,7 @@ Apollo Brown - Elevator Music (2025) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Und
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072614.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ VA - Chillhop Essentials Summer (2026) [FLAC|Lossless|Web-DL|tracks] <Chillhop, 
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1071991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1071991.jpg" />
 </div>
 
 
@@ -57,6 +57,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1874367   (1071703) от 01.06.2026
+
+Диана Арбенина - rap for mama (2026) [MP3|320 Kbps] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1071703.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. #strangerdanger@
+2. THE PUNISHER
+3. а4bb
+4. csnow#5748(   Читать дальше...   )Жанр: RapПродолжительность: 00:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:667B3866CB0402CF239E1E813DE152DDE7810161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1872695   (1070840) от 24.05.2026
 
 Alicia Keys - Girl On Fire (2012) [FLAC|Lossless|image + .cue] <Hip Hop, Funk/Soul, Contemporary R&B>
@@ -65,7 +94,7 @@ Alicia Keys - Girl On Fire (2012) [FLAC|Lossless|image + .cue] <Hip Hop, Funk/So
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070840.jpg" />
 </div>
 
 
@@ -94,7 +123,7 @@ Shaggy - Lottery (2026) [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <Reggae, Rag
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070192.jpg" />
 </div>
 
 
@@ -115,6 +144,64 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866972   (1066381) от 22.04.2026
+
+Баста/Гуф - Баста/Гуф 2026 (2026) [MP3|320 Kbps] <Rap, Hip-Hop, Pop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1066381.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Из песни слов не выкинешь
+2. XV Лет спустя
+3. Дедули
+4. Улицам нужен твой огонь(   Читать дальше...   )Жанр: Rap, Hip-Hop, PopПродолжительность: 01:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E00788722E70FE6CA9A4D7AF87FF2BA674D8581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866974   (1066380) от 22.04.2026
+
+Баста/Гуф - Баста/Гуф 2026 (2026) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop, Pop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1066380.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Из песни слов не выкинешь
+2. XV Лет спустя
+3. Дедули
+4. Улицам нужен твой огонь(   Читать дальше...   )Жанр: Rap, Hip-Hop, PopПродолжительность: 01:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A771F8FAA4063A04237073047B30883636B604F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865980   (1065912) от 
 
 Ка тет - Заточка цепей бензопил (2026) [MP3|320 Kbps] <Рэп>
@@ -123,7 +210,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065912.jpg" />
 </div>
 
 
@@ -152,7 +239,7 @@ Conway The Machine - G.O.A.T. (2026) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065910.jpg" />
 </div>
 
 
@@ -181,7 +268,7 @@ Rihanna - Unapologetic (2012) [FLAC|Lossless|tracks + .cue] <Electronic, Hip Hop
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065787.jpg" />
 </div>
 
 
@@ -210,7 +297,7 @@ Diana King - Think Like A Girl (1997) CD Album, Enhanced [FLAC|Lossless|tracks +
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065779.jpg" />
 </div>
 
 
@@ -239,7 +326,7 @@ VA - Chillhop Essentials Spring (2026) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060469.jpg" />
 </div>
 
 
@@ -268,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060339.jpg" />
 </div>
 
 
@@ -297,7 +384,7 @@ Gnarls Barkley - Atlanta (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soul, Alter
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060251.jpg" />
 </div>
 
 
@@ -326,7 +413,7 @@ Bruno Mars - The Romantic (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Funk , Sou
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059080.jpg" />
 </div>
 
 
@@ -355,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059070.jpg" />
 </div>
 
 
@@ -384,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058794.jpg" />
 </div>
 
 
@@ -413,7 +500,7 @@ Mozzy - Not A Chance In Hell (2026) [MP3|320 Kbps] <Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058109.jpg" />
 </div>
 
 
@@ -442,7 +529,7 @@ Johnyboy - Холод 2 (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, R
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057451.jpg" />
 </div>
 
 
@@ -471,7 +558,7 @@ TLC - Ooooooohhh…On the TLC T (1992) [FLAC|Lossless|tracks + .cue] <R&B, Funk 
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057295.jpg" />
 </div>
 
 
@@ -500,7 +587,7 @@ The English Beat - Special Beat Service (1986) [FLAC|Lossless|tracks + .cue] <Re
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057294.jpg" />
 </div>
 
 
@@ -529,7 +616,7 @@ Icegergert - Глаз Бога (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057152.jpg" />
 </div>
 
 
@@ -558,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056977.jpg" />
 </div>
 
 
@@ -587,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052972.jpg" />
 </div>
 
 
@@ -608,28 +695,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841358   (1048156) от 11.12.2025
+###  Публикация: 1842979   (1049026) от 17.12.2025
 
-Околорэп - Страшные Русские Cказки (2025) [MP3|320 Kbps] <Рэп>
+Oxxxymiron - Национальность: нет (2025) [MP3|320 Kbps] <Rap, Hip-Hop>
 
 >>Rap, Hip-hop, RnB, Reggae
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1049026.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Страшные Русские Cказки [00:02:21]
-02. Звезда [00:02:26]
-03. Завод [00:03:57]
-04. Талант [00:02:33](   Читать дальше...   )Жанр: РэпПродолжительность: 00:28:32
+1. Как Мои Дела
+2. Vintage
+3. Приключения
+4. Lost & Found(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:27:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:14F82B6846A770FF8E6DC4625C24FE91E61E18E6
+magnet:?xt=urn:btih:6C8E4A6C7E8A819A9C04DC8C339F5A2CA26A658E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -637,115 +724,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840506   (1047421) от 05.12.2025
+###  Публикация: 1842980   (1049025) от 17.12.2025
 
-VA - Chillhop Essentials Winter (2025) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. dennisivnvc – Always White, ft. Dani Catalá (1:57)
-02. anbuu, Blue Wednesday – Cold Start (3:06)
-03. goosetaf, Idan Morim – At First There Was Rain (2:26)
-04. Saib – Color Flow (3:00)(   Читать дальше...   )Жанр: Hip-Hop, Chillhop, Trip Hop, Jazz FusionПродолжительность: 01:09:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0021BBC6257EC999D102625661FE7AE88A73D0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839772   (1046976) от 01.12.2025
-
-Хаски - Партизан (2025) [FLAC 24/48kHz|Lossless|WEB-DL|tracks] <Alternative Hip-Hop>
+Oxxxymiron - Национальность: нет (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 
 >>Rap, Hip-hop, RnB, Reggae
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1049025.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Я боюсь [00:03:33]
-02. Интро [00:00:38]
-03. Музыка рай [00:02:36]
-04. Контроль [00:03:20](   Читать дальше...   )Жанр: Alternative Hip-HopПродолжительность: 00:48:03
+1. Как Мои Дела
+2. Vintage
+3. Приключения
+4. Lost & Found(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:27:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B73DD268C295A32BCDC6D475E2590B06A91E4103
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839781   (1046975) от 01.12.2025
-
-Зараза - Пламя (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop, RnB, Reggae (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Абонент занят [00:02:14]
-02. Постоянный [00:02:46]
-03. Мечта [00:02:35]
-04. Великан [00:01:47](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:16:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AC77E86C70C47D9FEF62FC0D4016A51920ED150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601527   (1046425) от 01.01.2023
-
-Слава КПСС - Бутер Бродский 2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Конец зла [00:02:19]
-02. ИП "Райский Сад" [00:02:43]
-03. Даже шепотом не скажешь [00:01:50]
-04. Бедный Русский [00:02:50](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:20:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86BFDAEA0142955B874855F904FD93743AD4440C
+magnet:?xt=urn:btih:4EE2BBF4342DEFAD4000319596EA7BA9596861CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

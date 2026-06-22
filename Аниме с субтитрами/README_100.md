@@ -1,3 +1,29 @@
+###  Публикация: 1603566   (200691) от 27.03.2023
+
+Mononogatari | Malevolent Spirits | История о мононокэ [2023, TV, 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цукумогами — артефакты или вещи, которые в силу своего возраста (от ста лет и более) стали живыми и обрели сознание. Хотя Хёма Кутано является частью клана Саэномэ, который занимается мирной отправкой цукумогами обратно в потусторонний мир, он ненавидит их из-за одного происшествия в прошлом. Чтобы помочь преодолеть эту ненависть, дедушка Хёмы решает отправляет его (   Читать дальше...   )Производство: Студия BN Pictures / バンダイナムコピクチャーズЖанр: приключенияРежиссер: Кимура РюйтиПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8429D6FC515AB0BA967E7F2273051D21603E86C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587656   (200681) от 27.03.2023
 
 Cool Doji Danshi | Play It Cool, Guys | Сыграйте круто, ребята [2022, TV, 24 эп.] WEB-DL 720p raw
@@ -6,7 +32,7 @@ Cool Doji Danshi | Play It Cool, Guys | Сыграйте круто, ребят�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200681.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ High Card | Старшая карта [2023, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200678.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Ars no Kyojuu | Giant Beasts of Ars | Гигaнтскиe звeри Арсa [2023
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200675.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Technoroid: Overmind | Технороид: Сверхразум [2023, TV, 12 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200606.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Kyuuketsuki Sugu Shinu 2 | The Vampire Dies in No Time 2 | Этот вампир
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200500.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ Buddy Daddies | Папаши-подельники [2023, TV, 12 эп.] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200479.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ Spy Kyoushitsu / Spy Classroom / Шпионский класс [2023, TV, 12] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200449.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ Shin Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei | The Fruit of Evolution 2:
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200444.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ Saikyou Onmyouji no Isekai Tenseiki | Реинкарнация сильнейш�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200429.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ Tsurune: Tsunagari no Issha | Tsurune: The Linking Shot | Песнь тетив�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200414.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ Wan Sheng Jie | All Saints Street | Улица всех святых [2020, Web,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200388.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ Nokemono-tachi no Yoru | The Tale of Outcasts | Сказание об отвер
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200376.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ Majutsushi Orphen Hagure Tabi: Urbanrama Hen | Sorcerous Stabber Orphen: Chaos i
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200262.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ Tokyo Revengers: Seiya Kessen Hen | Tokyo Revengers: Christmas Showdown Arc | Т
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200160.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ Brave Witches | Храбрые ведьмы [2016, TV, 12 эп. + 1 OVA] BD-rip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200155.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ Nomad: Megalo Box 2 | Мегалобокс [ТВ-2] [2021, TV, 13 из 13] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200041.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ Owari no Seraph: Nagoya Kessen Hen | Seraph of the End: Battle in Nagoya | По�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199883.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ UniteUp! | Объединяйтесь! [2023, TV, 12 +3R] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199688.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ Isekai Ojisan | Uncle from Another World | Перерождение Дяди [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199561.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ Uma Musume: Pretty Derby - Road to the Top / Девушки-лошадки: Ми
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198371.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ Koisuru Tenshi Angelique: Kagayaki no Ashita | Анжелика [ТВ-2] [2007, 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197783.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ Muv-Luv Alternative The Animation | Мав-Лав: Альтернатива [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197623.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka IV | DanMachi IV | Мо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197619.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ Natsu e no Tunnel, Sayonara no Deguchi | The Tunnel to Summer, the Exit of Goodb
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197566.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ Gekijouban Sword Art Online: Progressive - Kuraki Yuuyami no Scherzo | Маст�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197529.jpg" />
 </div>
 
 
@@ -656,35 +682,6 @@ Gekijouban Sword Art Online: Progressive - Kuraki Yuuyami no Scherzo | Маст�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A06E8C55F63DBB5DAAAEFBB00AADA1EB044C837D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623941   (196871) от 19.06.2023
-
-Kuma Kuma Kuma Bear Punch / Ми-ми-ми-мишка 2 [2023, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй сезон Kuma Kuma Kuma Bear
-Описание на первый сезон:
-
-Юна — 15-летняя девушка, заработавшая миллиарды иен на бирже и теперь ведущая жизнь хикикомори. Особенно ей нравится первая в мире VRMMORPG — World Fantasy Online. После глобального обновления игры она как пользователь, проведший в игре особенно много часов, получает очень редкий костюм медведя. Однако надев (   Читать дальше...   )Жанр: приключения, комедия, фэнтезиРежиссер: Нобута ЮЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F964C58036C344BEB82BCF1EE9AF13C941156B6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

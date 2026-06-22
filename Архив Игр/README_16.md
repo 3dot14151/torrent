@@ -6,7 +6,7 @@ CHAOS CODE -NEW SIGN OF CATASTROPHE (2017) [Multi] (1.0) License PLAZA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826051.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_824404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_824404.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ In Sound Mind (2021) [Ru/Multi] (1.02.1001) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824322.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Legends of Eisenwald / Легенды Эйзенвальда (2015) [Ru/Multi] (
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822461.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.1.1.1196466/dlc) Repack =nemos
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822449.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Prodeus (2020) [Ru/Multi] (0.2.4) License GOG [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820693.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Warp Frontier (2021) [En] (1.1.4) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820683.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ LEGO Worlds (2015) [Ru/En] (Update 13) Repack Игруха
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820650.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Everybody's Gone to the Rapture / Хроники последних дней (20
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820643.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Thea: The Awakening (2015) [Ru/Multi] (1.15.1614/dlc) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820637.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Pillars of Eternity (2015) [Ru/Multi] (1.0.2.0508/dlc) SteamRip R.G. Игром�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820168.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Mothergunship (2018) [Ru/Multi] (1.0.980.195/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818911.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Talisman  (2014) [Ru/Multi] (7.51/dlc) Repack LinXP [Digital Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818838.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Mushroom Wars (2016) [Ru/En] (1.0.1) Repack VseTop
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818718.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Shadow Tactics: Blades of the Shogun (2016) [Ru/Multi] (1.3.4.f) SteamRip Let'sP
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818388.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Behind the Frame: The Finest Scenery (2021) [Ru/Multi] (1.4.0_01) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817215.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ UnMetal (2021) [Ru/Multi] (1.0.6/dlc) License GOG [UnDeluxe Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817200.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Wasteland Remastered (2020) [Ru/Multi] (1.18) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816592.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Blacksad: Under the Skin (2019) [Ru/Multi] (1.0.5) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816582.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Pillars of Eternity (2015) [Ru/Multi] (1.0.2.0508/dlc) Repack R.G. Revenants [Ro
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816507.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Eador: Masters of the Broken World / Эадор. Владыки миров (2013
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816445.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Dreamfall Chapters (2014) [En] (1.0) Repack R.G. Механики [Book One: Reb
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816430.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Toukiden 2 (2017) [En/Ja] (1.0.0.0) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816389.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Meridian: New World (2014) [Ru/Multi] (1.03) License PROPHET
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816353.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Pillars of Eternity (2015) [Ru/Multi] (1.0.2/dlc) Repack R.G. Games [Royal Editi
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816276.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Astrox Imperium (2019) [En] (b 0.0125) License GOG [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815411.jpg" />
 </div>
 
 

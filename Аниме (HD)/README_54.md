@@ -6,7 +6,7 @@ Ao no Exorcist: Yuki no Hate Hen | Blue Exorcist: Beyond the Snow Saga | Син�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33378.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ranma 1/2 (2024) | Ранма 1/2 (2024) [2024, TV, 12 эп.] WebRip 720p 10-bit
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33376.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Hoshi Furu Oukoku no Nina | Nina the Starry Bride | Нина в королевс
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33309.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Kabushikigaisha Magilumiere | Magilumiere Co. Ltd. | Компания Маги-�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33308.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Raise wa Tanin ga Ii | Yakuza Fiance | Незнакомцы в другой жи
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33302.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Seirei Gensouki 2 / Seirei Gensouki: Spirit Chronicles 2 / Хроника миф
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33295.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ MF Ghost (2024) | MF Призрак 2 [2024, TV, 12 эп.] WEBRip 720 raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33293.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Rekishi ni Nokoru Akujo ni Naru zo | I'll Become a Villainess Who Goes Down in H
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33191.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Love Live! Superstar!! 3 / Живая любовь! Суперзвёзды!! 3 [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33173.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Natsume Yuujinchou Shichi | Natsume's Book of Friends Season 7 | Тетрадь 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33169.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Sengoku Youko / Ёко из Сэнгоку [2024, TV, 35] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33109.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Yarinaoshi Reijou wa Ryuutei Heika o Kouryakuchuu | На этот раз оде�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33097.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Tasuketsu: Fate of the Majority | Tasuuketsu | Правило большинст
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33084.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Shin Tennis no Ouji-sama: U-17 World Cup Semifinal | Новый принц те�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33075.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Yeosin Gangnim | True Beauty | Истинная красота [2024, Web, 13 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32886.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Blue Lock vs. U-20 Japan | Синяя тюрьма: Блю Лок [ТВ-2] [2024
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32646.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Kami no Tou: Koubou-sen | Tower of God: Workshop Battle | Башня Бога: �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32550.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Kamonohashi Ron no Kindan Suiri 2nd Season  | Безумные расследо�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32521.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Ishura | Исура [ТВ-1] [2024, TV, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31669.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Astarotte no Omocha! | Игрушка Астаротты [ТВ] [2011, TV, 12 + 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29711.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Shiguan Daliren: Yingdu Pian | Time Agent: Bridon Arc | Агент времен�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29225.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Arifureta Shokugyou de Sekai Saikyou Season 3 | Arifureta: From Commonplace to W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27279.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Dragon Ball Daima | Драгонболл Дайма [2024, TV, 20 эп.] WebRip 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26106.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ S Rank Monster no "Behemoth" Dakedo, Neko to Machigawarete Elf Musume no Pet to 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24518.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Botsuraku Yotei no Kizoku Dakedo, Hima Datta kara Mahou o Kiwamete / Перер�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24427.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Salaryman ga Isekai ni Ittara Shitennou ni Natta Hanashi / История о с�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24420.jpg" />
 </div>
 
 

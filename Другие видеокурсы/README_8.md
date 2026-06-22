@@ -1,3 +1,32 @@
+###  Публикация: 536248   (514258) от 18.08.2012
+
+Games Workshop | Как красить миниатюры Citadel [2012] DVDRip [En]
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видео руководство от Games Workshop по покраске миниатюр. Показаны основные моменты и техники покраски — сборка, грунтовка, базовые цвета, смывки (washes/shades), фильтры (glazes), сухая кисть (драйбраш), оформление баз, нанесение деколей.
+Ничего сверхъестественного, но хватит для того, чтобы покрасить армию, которая будет прилично смотреться на столе.
+
+Хотя видео на английском языке, все понятно и по видео.Жанр: Обучающее видеоПродолжительность: 01:31:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E75FBCB6C23516FDAF07D4D2A3406601753D3BAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242566   (513927) от 23.08.2018
 
 Джейми Оливер | Итальянское рождество Джейми Оливера (2017) HDTV [H.264/1080p-LQ]
@@ -6,7 +35,7 @@
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513927.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ Caden Painter | SWA COMPLETE FL STUDIO 12 (2015) PCRec [H.264/1080p] [EN]
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512578.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510044.jpg" />
 </div>
 
 
@@ -85,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497153.jpg" />
 </div>
 
 
@@ -114,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496038.jpg" />
 </div>
 
 
@@ -143,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491442.jpg" />
 </div>
 
 
@@ -171,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488188.jpg" />
 </div>
 
 
@@ -197,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487854.jpg" />
 </div>
 
 
@@ -225,7 +254,7 @@ CHESS.COM | Видеолекции по шахматам сайта chess.com / 
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470010.jpg" />
 </div>
 
 
@@ -254,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467846.jpg" />
 </div>
 
 
@@ -280,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456964.jpg" />
 </div>
 
 
@@ -308,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452685.jpg" />
 </div>
 
 
@@ -334,7 +363,7 @@ Michael Hauge, Christopher Vogler | Два пути героя. Секреты �
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444812.jpg" />
 </div>
 
 
@@ -362,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432230.jpg" />
 </div>
 
 
@@ -388,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424566.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423757.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422403.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422247.jpg" />
 </div>
 
 
@@ -495,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419774.jpg" />
 </div>
 
 
@@ -521,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410129.jpg" />
 </div>
 
 
@@ -548,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387930.jpg" />
 </div>
 
 
@@ -574,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385154.jpg" />
 </div>
 
 
@@ -600,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382180.jpg" />
 </div>
 
 
@@ -626,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380801.jpg" />
 </div>
 
 
@@ -653,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380788.jpg" />
 </div>
 
 
@@ -666,34 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D785200122F13E46337C9D12109CF297E04733CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173674   (380521) от 17.10.2017
-
-Лев Вожеватов | Мужская сексуальность - с чего начать (2012) HDRip [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Парни стараются вовсю! Кто-то считает, что мужская сексуальность выражается в накачанных бицепсах, которыми они эффектно поигрывают. Другие уверены, что брутальность мужчины измеряется в крутых гаджетах, которые он не выпускает из рук, где бы ни находился. Третьи ежедневно посещают солярий, подчёркивая загар белыми майками «в облипочку».
-
-Тем временем, девушки выбирают (   Читать дальше...   )Жанр: Пикап, СоблазнениеПродолжительность: 01:34:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90B61117D7E57E96B74302851AB6FA7AB795BB6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

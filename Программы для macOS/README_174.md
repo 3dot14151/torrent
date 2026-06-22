@@ -1,3 +1,107 @@
+###  Публикация: 1693903   (121598) от 22.01.2024
+
+Sketch 99.5 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sketch - это инструмент для векторного дизайна для Mac с акцентом на дизайн экрана. Он используется главным образом дизайнерами экрана, которые создают веб-сайты, значки и пользовательские интерфейсы для настольных и мобильных устройств. Мощные и простые в использовании инструменты Sketch для начинающих и профессионалов отрасли позволяют дизайнерам сосредоточиться (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.01.2024Разработчик: © 2023 Sketch B.V.Поддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DF051E04187E4E94642CF697A884CEE8A609FD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693886   (121481) от 22.01.2024
+
+2Do for Mac 2.8.5 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121481.jpg" />
+</div>
+
+
+###  Подробнее
+
+2Do делает реальным совершенно иной подход к управлению задачами. Благодаря чрезвычайно простому интерфейсу, и универсальному и гибкому набору мощных функций, программа позволяет сосредоточиться на том, что наиболее важно для вас: вашей жизни. 2Do невозможно использовать неправильным образом и, в отличие от других программ, он не заставляет вас придерживаться определенной (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.01.2024Разработчик: © 2009 - 2024 Beehive InnovationsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8ACC5ED081F9CAFE3A533729DDB151A91C070C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693804   (121437) от 22.01.2024
+
+TrashMe 3.5.6 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121437.jpg" />
+</div>
+
+
+###  Подробнее
+
+TrashMe — мощный деинсталлятор с другими замечательными полезными инструментами для очистки вашего Mac. Вы, наверное, когда-нибудь думали, что для удаления приложения достаточно переместить его в корзину? Это не совсем так, так как останется много файлов, созданных приложением (временные файлы, кеши, настройки…).Тип издания: macOS SoftwareРелиз состоялся: 05.01.2024Разработчик: © 2009-2024 JibappsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Француский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:794ECF041FF71789BF664C3396ABACDFBCD7C87E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694011   (121353) от 23.01.2024
+
+Lunar Pro for Mac 6.5.0 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lunar управляет той же яркостью, которую вы можете изменить с помощью физических кнопок монитора, даже на M1. В отличие от другого программного обеспечения, которое только имитирует изменение яркости путем добавления черного наложения на ваш экран, Lunar использует DDC (канал данных дисплея) для отправки команд, таких как set brightness to 30% или switch input to (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.01.2024Разработчик: © 2024 LunarПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B188CD3D19D0664204B1A28C6406E653FC6DE72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694025   (121341) от 23.01.2024
 
 SteerMouse 5.7 [En]
@@ -6,7 +110,7 @@ SteerMouse 5.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121341.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ ForkLift 4 v.4.0.6 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121317.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Smart Disk Image Utilities 3.1.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121310.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ DevUtils 1.17.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121307.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Dash 7.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121286.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Slidepad 1.4.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121269.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ AppKiller 3.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121258.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ Audkit Apple Music Converter for Mac  1.2.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121132.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ Aiseesoft HEIC Converter 1.0.36 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121037.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ AnyMP4 iPhone Unlocker 1.3.56 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120998.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ AnyMP4 iPhone Password Manager for Mac 1.0.20 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120981.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ Steinberg WaveLab Pro for Mac12.0 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120975.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ ApolloOne - Photo Video Viewer Pro 3.3.8 (patch only) [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120972.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ Duplicate Manager Pro 1.4.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120971.jpg" />
 </div>
 
 
@@ -376,7 +480,7 @@ FoneLab HEIC Converter 1.0.18 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120967.jpg" />
 </div>
 
 
@@ -403,7 +507,7 @@ AnyMP4 iPhone GPS Spoofer for Mac 1.0.18 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120955.jpg" />
 </div>
 
 
@@ -430,7 +534,7 @@ Be Focused Pro - Focus Timer 2.4.1 [En/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120948.jpg" />
 </div>
 
 
@@ -458,7 +562,7 @@ Author 9.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120939.jpg" />
 </div>
 
 
@@ -485,7 +589,7 @@ OmniFocus Pro 3.15.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120934.jpg" />
 </div>
 
 
@@ -512,7 +616,7 @@ Tipard FixMP4 for Mac 1.0.8 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120933.jpg" />
 </div>
 
 
@@ -538,7 +642,7 @@ MacLoggerDX 6.49 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120930.jpg" />
 </div>
 
 
@@ -565,7 +669,7 @@ SQLPro for SQLite 2024.10 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120929.jpg" />
 </div>
 
 
@@ -576,110 +680,6 @@ SQLPro for SQLit‪e - профессиональный менеджер баз 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB8F59C23FFDBFCA53161CD3F68A3940D8551BF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694622   (120805) от 26.01.2024
-
-Topaz Gigapixel AI for Mac 7.0.0 U2B [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Gigapixel AI. — это первое и единственное приложение, использующее силу искусственного интеллекта для увеличения ваших изображений, добавляя естественные детали для удивительного результата. Используя технологию глубокого обучения, Topaz Gigapixel AI ™ может увеличить изображение и заполнить детали, которые другие продукты для изменения размеров не учитываются. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2024Разработчик: © 2024 Topaz LabsПоддерживаемая ОС: macOS 10.14 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A5351D0A4E8601783FFEEE5858C1AF1C3295DFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694804   (120791) от 26.01.2024
-
-Cheetah3D for Mac 8.0 [En]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cheetah3D — это мощное и простое в освоении приложение для 3D-моделирования, рендеринга и анимации, которое было разработано с нуля для Mac. Так что погрузитесь прямо в мир компьютерных изображений. Создайте 3D-иллюстрацию для своей следующей игры для iPhone или создайте своего первого анимированного персонажа.Тип издания: macOS SoftwareРелиз состоялся: 23.01.2024Разработчик: © 2001-2024 MW3D-SolutionsПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9007FFE1384DFE5452972E1009132FDC6A85885
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694806   (120773) от 26.01.2024
-
-Tipard Screen Capture 1.1.26 [Multi/Rus]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Screen Capture — это популярное и простое в использовании программное обеспечение, которое может помочь вам записывать видео и аудио, а также делать снимки экрана для пользователей Mac.Тип издания: macOS SoftwareРелиз состоялся: 15.01.2024Разработчик: © 2022 Tipard StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7BD9892162E13A2F51A0B321A7252DD7647ECB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695051   (120640) от 27.01.2024
-
-AnyGo 7.0.0 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120640.jpg" />
-</div>
-
-
-###  Подробнее
-
-С приложением AnyGo легко имитируйте местоположение координат GPS на вашем iPhone / iPadТип издания: macOS SoftwareРелиз состоялся: 13.01.2024Разработчик: © 2023 iToolabПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA5294093777A6A16BFF03BCAA40F709EB369071
 ```
 
 https://mybot314.ru/tekegram_catalog/

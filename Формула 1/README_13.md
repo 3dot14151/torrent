@@ -1,3 +1,112 @@
+###  Публикация: 1251255   (420094) от 30.09.2018
+
+Формула 1. Сезон 2018. 16-й Этап. Гран-при России. Гонка (30.09.2018) HDTVRip [H.264]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гран-при России. Гонка (53 круга, 309.745 км)
+Арена: Сочи Автодром (Сочи, Россия)
+30 сентября 2018 года, воскресенье. 14:10 МСКТелекомпания: Матч ТВЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0F736E4598322A3BD6880D15FEF40389E905D41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572712   (419472) от 28.08.2022
+
+Формула 1. Сезон 2022. Этап 14. Гран-при Бельгии. Квалификация (27.08.2022) WEB-DL [H.264/720p] [50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419472.jpg" />
+</div>
+
+
+###  Подробнее
+
+27 августа 2022, суббота. 17:25 МСК. Этап 14, Спа, Гран-при Бельгии. КвалификацияТелекомпания: F1TV HDЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 01:17:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A1CD766349E07DFCB36E8EB6F1868549EE69CE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572658   (419330) от 28.08.2022
+
+Формула 1. Сезон 2022. Этап 14. Гран-при Бельгии. Квалификация. (27.08.2022) WEB-DL [H.264/1080p] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этап 14. Арена:  Circuit de Spa-Francorchamps (Ставло, Бельгия).
+Квалификация. 27 августа 2022, суббота.
+
+Из-за ремонта барьеров безопасности трассы старт квалификации был отложен. Русская дорожка начинается с ~25 минуты.(   Читать дальше...   )Телекомпания: F1 TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова), Украинский (Максим Подзигун), Английский, Немецкий, Французский, Испанский, Голландский, Португальский (Бразильский).Субтитры: отсутствуютПродолжительность: 01:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7034BE8DECB1DECDC3BAC87BA941503E4F30475
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 557374   (418522) от 08.10.2012
+
+Формула 1. Гран-При Японии. Гонка (2012) SATRip
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Даже в таком неординарном мире, как Формула 1, японский Гран При занимает особое место. Появившись в календаре относительно недавно, эта гонка всегда занимала в календаре одну из последних строчек, и потому именно в стране восходящего солнца в последние десятилетия чаще всего выяснялось, кому же достанется чемпионская корона. Не считая двух краткосрочных визитов на автодром Фудзи, ареной японской гонки традиционно является Сузука – харизматичная «восьмёрка», от которой без ума и пилоты, и – что очень важно – болельщики. В быстрых поворотах на первый план выходят качества шасси, потому победа здесь почти всегда достается пилоту, выступающему на объективно лучшей машине. Начиная с 2000 года, всего дважды победителю квалификации не удавалось одержать на Сузуке победу – в 2005-м субботние заезды проходили под дождем, потому лидеры стартовали с задних рядов и Кими Райкконен пробился к победе с невероятного 17-го места. В следующем сезоне Михаэля Шумахера лишил возможности подняться на вершину подиума досадный отказ (   Читать дальше...   )Жанр: Спорт, автоПродолжительность: 02:22:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09C30CE69B65533748A58F24AF3C565F7CD3E506
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1572972   (416894) от 29.08.2022
 
 Формула 1. Сезон 2022. Этап 14. Гран-при Бельгии. Гонка (28.08.2022) WEB-DL [H.264/720p] [50fps]
@@ -6,7 +115,7 @@
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416894.jpg" />
 </div>
 
 
@@ -32,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416883.jpg" />
 </div>
 
 
@@ -61,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414749.jpg" />
 </div>
 
 
@@ -90,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407905.jpg" />
 </div>
 
 
@@ -119,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399420.jpg" />
 </div>
 
 
@@ -146,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392958.jpg" />
 </div>
 
 
@@ -172,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392957.jpg" />
 </div>
 
 
@@ -198,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387710.jpg" />
 </div>
 
 
@@ -224,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387701.jpg" />
 </div>
 
 
@@ -253,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387617.jpg" />
 </div>
 
 
@@ -281,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387609.jpg" />
 </div>
 
 
@@ -310,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385710.jpg" />
 </div>
 
 
@@ -336,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385696.jpg" />
 </div>
 
 
@@ -362,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385695.jpg" />
 </div>
 
 
@@ -391,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385615.jpg" />
 </div>
 
 
@@ -420,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383234.jpg" />
 </div>
 
 
@@ -448,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381281.jpg" />
 </div>
 
 
@@ -476,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381275.jpg" />
 </div>
 
 
@@ -505,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381266.jpg" />
 </div>
 
 
@@ -534,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381191.jpg" />
 </div>
 
 
@@ -562,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380784.jpg" />
 </div>
 
 
@@ -590,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380780.jpg" />
 </div>
 
 
@@ -603,117 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1186C5C73FB25015A15FB81EF7D2782363E2C32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415349   (378704) от 11.10.2020
-
-Формула 1. Сезон 2020. Этап 11. Гран-при Айфеля. Гонка (11.10.2020) HDTV [H.264/1080i-LQ]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гран-при Айфеля. Гонка
-Арена: Автодром Нюрбургринг (Нюрбург, Германия)
-11 октября 2020, воскресенье. 15:10 МСКТелекомпания: Матч ТВЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова), ИнтершумСубтитры: отсутствуютПродолжительность: 01:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5968471D9BDF966A3A299E216BDD4FCE2163F873
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415348   (378672) от 11.10.2020
-
-Формула 1. Сезон 2020. Этап 11. Гран-при Айфеля. Гонка (11.10.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гран-при Айфеля. Гонка
-Арена: Автодром Нюрбургринг (Нюрбург, Германия)
-11 октября 2020, воскресенье. 15:10 МСКТелекомпания: Матч ТВЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова), ИнтершумСубтитры: отсутствуютПродолжительность: 01:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A776C6B1BB93593B4914D4F4C2801205F6DEA73D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575891   (373251) от 11.09.2022
-
-Формула 1. Сезон 2022. Этап 16. Гран-при Италии. Квалификация (10.09.2022) WEB-DL [H.264/720p] [50fps]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373251.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 сентября 2022, суббота. 17:00 МСК. Этап 16, Монца, Италия. КвалификацияТелекомпания: F1TV HDЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 01:18:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4849AB1FB5D41C48AAB224DE2314A631AB2F30A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575928   (370701) от 12.09.2022
-
-Формула 1. Сезон 2022. Этап 16. Гран-при Италии. Квалификация, гонка. (10-11.09.2022) WEB-DL [H.264/1080p] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этап 16, Арена: Автодром Монца (Монца, Италия).
-Квалификация. 10 сентября 2022, суббота.
-Гонка. 11 сентября 2022, воскресенье.
-(   Читать дальше...   )Телекомпания: F1 TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова), Украинский (Максим Подзигун), Английский, Немецкий, Французский, Испанский, Голландский, Португальский (Бразильский).Субтитры: отсутствуютПродолжительность: Квалификация 01:18:35, гонка 01:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0224B9AEB29C03D4FBA46F85C61C5CDD14BF73D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

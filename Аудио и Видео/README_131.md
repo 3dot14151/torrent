@@ -1,3 +1,421 @@
+###  Публикация: 900821   (666437) от 23.05.2015
+
+Kingsman: Секретная служба / Kingsman: The Secret Service (2014) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эггси — молодой парень, который прошел службу в морской пехоте и имеет очень высокий уровень интеллекта. Он мог бы добиться многого, но выбрал другой путь и стал мелким преступником. Однажды он знакомится с Гарри Хартом, которому его отец когда-то спас жизнь. (   Читать дальше...   )Производство: ВеликобританияЖанр: Боевик, комедия, криминал, приключенияРежиссер: Мэттью ВонАктеры: Тэрон Эджертон, Колин Фёрт, Сэмюэл Л. Джексон, Марк Стронг, Софи Куксон, Майкл Кейн, София Бутелла, Саманта Янус, Джофф Белл, Марк ХэмиллПеревод: Дублированный (iTunes)Язык субтитров: Русский, Английский, УкраинскийПродолжительность: 02:08:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DD0C2C3CFAA5577BAA66AFA7ADEA1107740676C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 900825   (666436) от 23.05.2015
+
+Kingsman: Секретная служба / Kingsman: The Secret Service (2014) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эггси — молодой парень, который прошел службу в морской пехоте и имеет очень высокий уровень интеллекта. Он мог бы добиться многого, но выбрал другой путь и стал мелким преступником. Однажды он знакомится с Гарри Хартом, которому его отец когда-то спас жизнь. (   Читать дальше...   )Производство: ВеликобританияЖанр: Боевик, комедия, криминал, приключенияРежиссер: Мэттью ВонАктеры: Тэрон Эджертон, Колин Фёрт, Сэмюэл Л. Джексон, Марк Стронг, Софи Куксон, Майкл Кейн, София Бутелла, Саманта Янус, Джофф Белл, Марк ХэмиллПеревод: Дублированный (iTunes)Язык субтитров: Русский, Английский, УкраинскийПродолжительность: 02:08:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D83CED42CC99F8CAF77C25C38E2EFD6052350C1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 900828   (666347) от 23.05.2015
+
+Ип Ман / Yip Man (2008) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ип Ман — признанный мастер кунг фу, живущий в Фуошане, городе, славном своими школами боевых искусств. Ип Ман практикует Вин Чун и хотя является сильнейшим бойцом города, своей школы у него нет, и он не берет учеников. Дома он проводит лишь легкие спарринги (   Читать дальше...   )Производство: Гонконг, Китай /  Beijing ShengShi HuaRei Film Investment & Management Co., China Film Co-Production Corporation, Mandarin Films Distribution Co.Жанр: боевик, драма, биография, спортРежиссер: Уилсон ИпАктеры: Донни Ен, Саймон Ям, Ка Танг Лам, Фан Сю-Вонг, Линн Хунг, Хироюки Икеучи, Ю Хин, Чен Зи Хуи, Ю-Нам Вонг, Чжан БоПеревод: Одноголосый закадровыйОзвучка / Автор перевода: (Ю.Сербин)Язык субтитров: Русский, АнглийскийПродолжительность: 01:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:316326941436E86C4727BE2A8D41E5E58FCE05D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224566   (665814) от 10.05.2018
+
+Титан / The Titan (2018) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американский военный Рик принимает участие в грандиозной космической программе. Лучшие умы планеты пытаются создать сверхлюдей, которые после гибели Земли обеспечат продолжение существования человечества на планете Титан. Однако эксперимент по скрещиванию генов Homo sapiens с инопланетным существом приводит к совершенно непредсказуемым последствиям.Производство: СШАЖанр: Фантастика, триллерРежиссер: Леннарт РаффАктеры: Сэм Уортингтон, Тейлор Шиллинг, Том Уилкинсон, Агнесс Дейн, Натали Эммануэль, Ноа Джуп, Кори Джонсон, Александр Йованович, Диего Бонета, Аарон ХеффернанПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Русские,  АнглийскиеПродолжительность: 01:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A505BB5C0FD8476FFBF51FA2D46F99226BF97B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537694   (665595) от 18.03.2022
+
+VA - Chillax (20 Chill-Out Tunes), Vol. 1 (2017) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - It's Time To Dream (5:45)
+02. Roberto Bronco - Moonshine (5:48)
+03. CaPa - Birdfly (3:32)
+04. Living Room - The Essence (4:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E11B64EE15C4CF0523543E0D3CA8914941CC05A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537713   (665594) от 18.03.2022
+
+VA - Daydreamin' (Electronic Lounge Bubbles), Vol. 4 (2019) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo, Chill Hop, Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flip Segers - Tumbao (Original Mix) (2:00)
+02. Ficture - The Knee (Original Mix) (3:14)
+03. Alexander Diamond - I Like It (Extended Version) (5:29)
+04. Lovely Sound - A Saturday Afternoon (Original Mix) (4:00)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, Chill Hop, JazzПродолжительность: 02:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E737735E9E1371C20EDC78BDDDDF7D8D700E3B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537911   (665585) от 18.03.2022
+
+VA - Deep Skin Vibes (Perfect Time To Relax), Vol. 1 (2022) [AAC|~307 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Svendaq - World Contact (5:11)
+02. Jeevan - Venus (3:11)
+03. Sami Sivananda - Reflections (4:27)
+04. David Garcia - Camino (7:53)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:15:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA9B1DB4D8412670990F4315634D5ADBAADD9A65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537915   (665582) от 18.03.2022
+
+VA - Mykonos Orange: Urban Chillout Music (2022) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. G.Pantelidis - A Photograph of You (5:17)
+02. Beamy - Safe Harbour (Original Mix) (4:16)
+03. Five Seasons - Le Soleil (Original Mix) (4:57)
+04. Leo de la Rosa, Maneela - Playa Azul (4:04)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:20:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76B0E351EAFC99461477608DA27C44D6E3B102A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537963   (665520) от 18.03.2022
+
+VA - Toolroom Vaults Vol. 4 (2022) [AAC|~332 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_665520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erik Hagleton - This Is (Extended Mix) (6:44)
+02. René Amesz - Dextro (Extended Mix) (6:19)
+03. Muzzaik - Invent (Extended Mix) (6:17)
+04. DEL-30 - Judgemental (Extended Mix) (7:40)(   Читать дальше...   )Жанр: HouseПродолжительность: 05:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EA22B26FC0C971B03C86CBDE59A827FBF24E130
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537906   (665516) от 18.03.2022
+
+VA - Chillout Your Mind, Vol. 6 (Ultimate Chillout Collection) (2022) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_665516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Drifting Closer (Original Mix) (5:23)
+02. Michael e - Be Kind (Original Mix) (6:30)
+03. Beamy - Safe Harbour (Original Mix) (4:16)
+04. Elmara - A Last Dance (Original Mix) (3:36)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:32:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F17BBC4375BB368F6CCC38747CA4FD559E7260B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537887   (665513) от 18.03.2022
+
+Lemongrass - Flow (2022) [AAC|~344 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_665513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moments (3:16)
+02. Flaneur (3:52)
+03. Musa (4:09)
+04. Premier Amour (4:19)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16811FA8902B74E7641328583976734DC3DA7734
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537905   (665505) от 18.03.2022
+
+VA - Female Vocal Trance 2022 (2022) [AAC|~331 Kbps] <Trance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_665505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4 Strings, Sarah Russell - Change The World (3:09)
+02. Myde, Hanna Finsen - My Heart Stood Still (3:19)
+03. Ronski Speed, Elara - I'll Be There (3:35)
+04. Temple One, Katty Heath - In Everything I See (3:15)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:19:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:462CC4BE00C05B6222710A4C866FFBD20CDCCB6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137962   (665361) от 28.05.2017
+
+Лего Фильм: Бэтмен / The LEGO Batman Movie (2017) WEB-DLRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готэму вновь грозит опасность. И на его стражу становится единственный герой, которого заслуживает этот город — Бэтмен, альтер-эго миллиардера Брюса Уэйна, живущего в своем огромном родовом поместье вместе с дворецким Альфредом. Но в этот раз супергерой вынужден взять в напарники парня по имени Дик Грейсон, которого он, сам того не помня, усыновил на одном из светских (   Читать дальше...   )Производство: США, ДанияЖанр: Мультфильм, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Крис МакКейАктеры: Уилл Арнетт, Майкл Сера, Розарио Доусон, Рэйф Файнс, Сири, Зак Галифианакис, Дженни Слейт, Джейсон Манцукас, Конан О’Брайен, Даг БенсонПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Украинские форсированные, Русские, АнглийскиеПродолжительность: 01:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A997ADE1DE871E0B24F346D3FC3B581F6A44BB58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 901209   (665354) от 24.05.2015
+
+Поклонник / The Boy Next Door (2015) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает об учительнице литературы Клэр Петерсон. Клэр знает о том, что муж изменяет ей, но тянет с разводом.
+
+Однажды, в дом по соседству въезжает харизматичный 19-летний красавчик Ной, который начинает оказывать Клэр повышенное внимание. Поддавшись слабости, Клэр проводит с ним ночь. Но она и не подозревала, что в скором времени влечение Ноя к ней перерастет (   Читать дальше...   )Производство: США / Universal Pictures, Blumhouse ProductionsЖанр: триллерРежиссер: Роб КоэнАктеры: Дженнифер Лопес, Райан Гузман, Иэн Нельсон, Джон Корбетт, Кристин Ченоуэт, Лекси Аткинс, Хилл Харпер, Джек Уоллес, Адам Хикс, Франсуа Чау, Бэйли Чейз, Кент АвенидоПеревод: ДублированныйОзвучка / Автор перевода: (BD CEE)Язык субтитров: Русский, Украинский, АнглийскийПродолжительность: 01:30:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9B9D3BF5464708F447D9BDECE7B81205184014C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 901151   (665292) от 24.05.2015
+
+Поклонник / The Boy Next Door (2015) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает об учительнице литературы Клэр Петерсон. Клэр знает о том, что муж изменяет ей, но тянет с разводом.
+
+Однажды, в дом по соседству въезжает харизматичный 19-летний красавчик Ной, который начинает оказывать Клэр повышенное внимание. Поддавшись слабости, Клэр проводит с ним ночь. Но она и не подозревала, что в скором времени влечение Ноя к ней перерастет (   Читать дальше...   )Производство: США / Universal Pictures, Blumhouse ProductionsЖанр: триллерРежиссер: Роб КоэнАктеры: Дженнифер Лопес, Райан Гузман, Иэн Нельсон, Джон Корбетт, Кристин Ченоуэт, Лекси Аткинс, Хилл Харпер, Джек Уоллес, Адам Хикс, Франсуа Чау, Бэйли Чейз, Кент АвенидоПеревод: ДублированныйОзвучка / Автор перевода: (BD CEE)Язык субтитров: Русский, АнглийскийПродолжительность: 01:30:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D9B8073961074B3BAD85B3A10DC7ACF6AD3AD15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138158   (665243) от 28.05.2017
 
 Логан / Logan (2017) BDRip [720p] ATV
@@ -6,7 +424,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665243.jpg" />
 </div>
 
 
@@ -32,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665202.jpg" />
 </div>
 
 
@@ -58,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665174.jpg" />
 </div>
 
 
@@ -84,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665086.jpg" />
 </div>
 
 
@@ -110,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664784.jpg" />
 </div>
 
 
@@ -136,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664405.jpg" />
 </div>
 
 
@@ -165,7 +583,7 @@ Modestep - London Road (2015) Bonus Version [AAC|WEB-DL|256 кб/с]<Dubstep, Tr
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664357.jpg" />
 </div>
 
 
@@ -194,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664351.jpg" />
 </div>
 
 
@@ -223,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664345.jpg" />
 </div>
 
 
@@ -252,7 +670,7 @@ VA - Naked Weekend (The Deep-House Affair), Vol. 3 (2019) [AAC|~320 Kbps] <House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664338.jpg" />
 </div>
 
 
@@ -281,7 +699,7 @@ VA - Naked Weekend (The Deep-House Affair), Vol. 2 (2019) [AAC|~325 Kbps] <House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664336.jpg" />
 </div>
 
 
@@ -295,428 +713,6 @@ VA - Naked Weekend (The Deep-House Affair), Vol. 2 (2019) [AAC|~325 Kbps] <House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B02FE4621A6EE6AC04A9E0A729584FC4E24F78F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537891   (664335) от 19.03.2022
-
-VA - Naked Weekend (The Deep-House Affair), Vol. 1 (2019) [AAC|~328 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marcus Gamblee - The Great Question (Original Mix) (5:15)
-02. Frank Baston - He Is (Original Mix) (3:34)
-03. Jack Groove - Beach & Relax (Original Mix) (3:40)
-04. Ministry Of Deep - Pleasant Lightness (Original Mix) (3:33)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:22:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F59B39A653A294D64D0F748FBD1B46439A699E92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537895   (664333) от 19.03.2022
-
-VA - Naked Weekend (The Deep-House Affair), Vol. 4 (2019) [AAC|~316 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wicked Sounds - The World (Original Mix) (6:27)
-02. Zone Zero - Rise of A New World (Original Mix) (3:33)
-03. Deepmagic, Marha - Misty Water (Original Mix) (5:20)
-04. Deep Friends - Pure Sound (Original Mix) (3:33)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C37F904DF851FA1B83206E1BFC4A2E49A09CF87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 901291   (664243) от 25.05.2015
-
-Поклонник / The Boy Next Door (2015) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает об учительнице литературы Клэр Петерсон. Клэр знает о том, что муж изменяет ей, но тянет с разводом.
-
-Однажды, в дом по соседству въезжает харизматичный 19-летний красавчик Ной, который начинает оказывать Клэр повышенное внимание. Поддавшись слабости, Клэр проводит с ним ночь. Но она и не подозревала, что в скором времени влечение Ноя к ней перерастет (   Читать дальше...   )Производство: США / Universal Pictures, Blumhouse ProductionsЖанр: триллерРежиссер: Роб КоэнАктеры: Дженнифер Лопес, Райан Гузман, Иэн Нельсон, Джон Корбетт, Кристин Ченоуэт, Лекси Аткинс, Хилл Харпер, Джек Уоллес, Адам Хикс, Франсуа Чау, Бэйли Чейз, Кент АвенидоПеревод: ДублированныйОзвучка / Автор перевода: (BD CEE)Язык субтитров: Русский, Украинский, АнглийскийПродолжительность: 01:30:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98C85F6A52BC855A33ACBF6F397870B8EFB5BE63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538369   (663441) от 20.03.2022
-
-VA - Vintage Landscape Chill Out, Vol. 1 (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 351 Lake Shore Drive, Genius Jane - Time (5:09)
-02. Inventors Of The Sun - Agua of Life (5:41)
-03. Eriq Johnson - Someone Like You (2:18)
-04. Smooth Deluxe, Nizam Kharda - Samarkand (3:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:51:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A40D22488E4A7F9E988B23537FAF5F2EF4F4010A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538381   (663438) от 20.03.2022
-
-VA - Vintage Landscape Chill Out, Vol. 3 (2022) [AAC|~320 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 351 Lake Shore Drive, Genius Jane - Day of Light (2:21)
-02. Lazy Hammock - Surround Me (5:18)
-03. Smooth Deluxe, Nizam Kharda - Dried Hot Peppers (3:22)
-04. MBmusic - If You Think (4:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C14A10478DB7B0E2F07AB1D2393B57B0BE635313
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538360   (663436) от 20.03.2022
-
-VA - Eternal Beauties (Lounge Sweethearts), Vol. 3 (2021) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexandra Hampton, Ahbee - Love (3:32)
-02. Five Seasons - Colours (4:33)
-03. Weber& Weber - Reach The Top (4:02)
-04. Matthew Daniel, Eleana - Gypsy Day (Lemongrass Remix) (3:43)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:440EA119679A24FEBFEFFDAE14A97D096DD2B291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538362   (663430) от 20.03.2022
-
-VA - Eternal Beauties (Lounge Sweethearts), Vol. 4 (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miss Kay Dee - For A Whole Night (3:50)
-02. Lounge Groove Avenue - Juicy Licks (2:53)
-03. Chillson, Marc Hartman - Breaking Waves (3:45)
-04. Velvet Dreamer - Summer Breeze (4:39)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13287B893A493A5D72CEBBD1E8E0D1B62B4A1C84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538466   (663367) от 20.03.2022
-
-Олег Хромов - На белом покрывале января (2002) [AAC|~349 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. На белом покрывале января (4:48)
-02. Общий вагон (4:18)
-03. Луна-девчоночка (4:30)
-04. Малина-малина (4:53)(   Читать дальше...   )Жанр: PopПродолжительность: 01:23:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DBD04DC289C90CBDBB619EF2A46E951D731FC2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538386   (663364) от 20.03.2022
-
-VA - The Best of Maretimo Lounge Radio, Vol. 2 (2022) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vladi Strecker - Smooth Chillin´ (Short Endless Waves Mix) (7:54)
-02. Cinematic - Beach Waves (Pure Relax Mix) (4:42)
-03. DJ Maretimo - Cafe Internacional (Jumairah Skyscrapers Remastered Mix) (6:56)
-04. Emotional - I Found It Again (Tom's Remastered V-Mix) (5:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9D704BD51A4474605D2316044EA3BE5BBC240CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538348   (663362) от 20.03.2022
-
-VA - Eternal Beauties (Lounge Sweethearts), Vol. 1 (2021) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lounge Groove Avenue - Slow Soul (2:59)
-02. Jane Maximova - A Straw (5:01)
-03. Roberto Bronco - On The Moon (5:29)
-04. Music Of The Earth - Summerlove (Worldtraveller Remix) (4:04)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DFC18A809EAA63F40B61D7E6B154963969D2E6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538355   (663205) от 20.03.2022
-
-Андрей Макаревич - Запись у Коли Васина 1978 год (1978) [AAC|~314 Kbps] <Rock, Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Коля Васин, Андрей Макаревич - Вступительное слово Андрея Макаревичa (0:36)
-02. Лица (3:28)
-03. Это новый день (2:21)
-04. Кошмарный сон (2:02)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:31:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF061342D211105490FD8FA758695150FB15F9DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138784   (663046) от 30.05.2017
-
-Кухня. Последняя битва  (2017) WEB-DL [720p] ATV
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раньше Ивана интересовали только шифровальные коды и хакерские программы, но всё меняется, когда он встречает красотку-француженку Анну со взрывным характером и русскими корнями. Оба летят в Сочи, чтобы принять участие в Чемпионате мира среди поваров: она выступает за Францию, а он — за Россию. Но Ивану ещё нужно разобраться в отношениях с недавно возникшим в его (   Читать дальше...   )Производство: РоссияЖанр: КомедияРежиссер: Антон ФедотовАктеры: Дмитрий Назаров, Дмитрий Нагиев, Сергей Лавыгин, Олег Табаков, Анфиса Черных, Кирилл Ковбас, Сергей Епишев, Михаил Тарабукин, Никита Тарасов, Михаил БашкатовПеревод: Не требуетсяСубтитры: НетПродолжительность: 01:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23761124F8B688B13BA250A38A026B08DB53896E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138680   (663032) от 30.05.2017
-
-Кухня. Последняя битва /  (2017) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раньше Ивана интересовали только шифровальные коды и хакерские программы, но всё меняется, когда он встречает красотку-француженку Анну со взрывным характером и русскими корнями. Оба летят в Сочи, чтобы принять участие в Чемпионате мира среди поваров: она выступает за Францию, а он — за Россию. Но Ивану ещё нужно разобраться в отношениях с недавно возникшим в его (   Читать дальше...   )Производство: РоссияЖанр: КомедияРежиссер: Антон ФедотовАктеры: Дмитрий Назаров, Дмитрий Нагиев, Сергей Лавыгин, Олег Табаков, Анфиса Черных, Кирилл Ковбас, Сергей Епишев, Михаил Тарабукин, Никита Тарасов, Михаил БашкатовПеревод: Не требуетсяСубтитры: НетПродолжительность: 01:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA39D6A8FF94EC2CA763F1609DB5422F10667674
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138537   (662116) от 31.05.2017
-
-Лего Фильм: Бэтмен / The LEGO Batman Movie (2017) WEB-DLRip [480p] iPod
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готэму вновь грозит опасность. И на его стражу становится единственный герой, которого заслуживает этот город — Бэтмен, альтер-эго миллиардера Брюса Уэйна, живущего в своем огромном родовом поместье вместе с дворецким Альфредом. Но в этот раз супергерой вынужден взять в напарники парня по имени Дик Грейсон, которого он, сам того не помня, усыновил на одном из светских (   Читать дальше...   )Производство: США, ДанияЖанр: Мультфильм, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Крис МакКейАктеры: Уилл Арнетт, Майкл Сера, Розарио Доусон, Рэйф Файнс, Сири, Зак Галифианакис, Дженни Слейт, Джейсон Манцукас, Конан О’Брайен, Даг БенсонПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Украинские форсированные, Русские, АнглийскиеПродолжительность: 01:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0F2EA53F1A014D3D3466C5371E7B25431FE7660
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138939   (662108) от 31.05.2017
-
-Кухня. Последняя битва  (2017) WEB-DLRip [480p] iPod
-
->>Аудио и Видео
->>Отечественное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раньше Ивана интересовали только шифровальные коды и хакерские программы, но всё меняется, когда он встречает красотку-француженку Анну со взрывным характером и русскими корнями. Оба летят в Сочи, чтобы принять участие в Чемпионате мира среди поваров: она выступает за Францию, а он — за Россию. Но Ивану ещё нужно разобраться в отношениях с недавно возникшим в его (   Читать дальше...   )Производство: РоссияЖанр: КомедияРежиссер: Антон ФедотовАктеры: Дмитрий Назаров, Дмитрий Нагиев, Сергей Лавыгин, Олег Табаков, Анфиса Черных, Кирилл Ковбас, Сергей Епишев, Михаил Тарабукин, Никита Тарасов, Михаил БашкатовПеревод: Не требуетсяСубтитры: НетПродолжительность: 01:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99A2A631C440B942B874B8462E4BA1A487B00E7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

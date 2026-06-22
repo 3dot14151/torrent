@@ -1,3 +1,81 @@
+###  Публикация: 1853492   (1056847) от 13.02.2026
+
+Shuumatsu no Harem | World's End Harem | Гарем конца света [2021, TV, 11 эп.] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рэйто Мидзухара учился на кафедре передовых технологий вместе с Эрисой, с которой они знакомы ещё с начальных классов. Он уже давно влюблён в неё, но решился рассказать об этом накануне судьбоносного дня. Из-за страшной болезни юноша должен лечь в капсулу гибернации и уснуть на пять лет. Так он дождётся создания лекарства. На прощание Эриса обещает дождаться Рэйто. (   Читать дальше...   )Производство: Studio GokumiЖанр: приключения, эротикаРежиссер: Нобута ЮПеревод: Crunchyroll + Dniwe (на новые сцены)Язык озвучки: Японский и русский закадровый:Субтитры: Русские полные/надписиПродолжительность: 11 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B22ECDAE442CBDFE26434424078BE6EF4B06DAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852542   (1055922) от 08.02.2026
+
+Dead Leaves | Мёртвые листья: Звёздная тюряга [2004, Movie] WEB-DL 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Славная парочка отморозков — длинноногая секс-бомба Панди с красным пятном вокруг правого глаза, с которым она смахивает на панду, и её дружок Ретро со старинным телевизором вместо головы - просыпаются в открытом поле в чём мать родила и без малейшего понятия, как туда попали. Не долго думая, они отправляются в ближайший город в поисках еды и одежды, где устраивают (   Читать дальше...   )Производство: Япония, Production I.GЖанр: приключения, комедияРежиссер: Имаиси ХироюкиПеревод: WolframЯзык озвучки: Японский и РусскийСубтитры: Русские, АнглийскиеПродолжительность: 52 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9676D480D3830EDC28602A7651D03248EB1924CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851811   (1055391) от 04.02.2026
+
+Slayers Premium | Первосортные Рубаки [2001, Movie] BDRip 1064p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055391.jpg" />
+</div>
+
+
+###  Подробнее
+
+На берегу моря с давних пор стоит город прославившейся своими деликатесами из осьминогов. Данный факт просто не мог не заинтересовать столь прожорливых друзей как Лина и Гаури. Оказавшись в городе наши герои приступают к дегустации местных кулинарных шедевров. Но они ещё не знают, что над городом нависла тьма и её тёмные путы уже тянуться к ним. Что их ждёт? Как (   Читать дальше...   )Производство: Япония, HAL Film MakerЖанр: приключения, комедия, фэнтезиРежиссер: Сато ДзюнъитиЯзык озвучки: Русский закадровый (Get Smart Group - Persona99)Субтитры: ASS (Русский, Полные)Продолжительность: 32 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA78062FF6C6E630FF7395DF3C9AEACB0EC75E20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851812   (1055390) от 04.02.2026
 
 Slayers Excellent | Превосходные Рубаки [1998, OVA, 3 эп.] BDRip 720p raw+rus
@@ -6,7 +84,7 @@ Slayers Excellent | Превосходные Рубаки [1998, OVA, 3 эп.] B
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055390.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Slayers Gorgeous | Великолепные Рубаки [1998, Movie] BDRip 720
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055389.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Slayers | Рубаки [1995, TV, 26 эп.] DVDRip 576p 10-bit raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055388.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Slayers Next | Рубаки Next [1996, TV, 26 эп.] DVDRip 576p 10-bit raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055387.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Slayers Try | Рубаки Try [1997, TV, 26 эп.] DVDRip 576p 10-bit raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055386.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055362.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055233.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Isekai Meikyuu de Harem o | Harem in the Labyrinth of Another World | Гарем
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054898.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Astarotte no Omocha! | Astarotte's Toy! | Игрушка Астаротты [201
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054897.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Seikai no Senki Tokubetsu Hen | Banner of the Stars Movie | Звёздный ф�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054563.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Seikai no Monshou Tokubetsu Hen | Crest of the Stars Movie | Звёздный г
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054562.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Seikai no Senki II | Banner of the Stars II | Звёздный флаг 2 [2001,
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054560.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Seikai no Senki III | Banner of the Stars III | Звёздный флаг 3 [200
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054559.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Nanatsu no Taizai OVA | The Seven Deadly Sins OVA | Семь смертных г
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054118.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ Nanatsu no Taizai | The Seven Deadly Sins | Семь смертных грехо
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054116.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ Nanatsu no Taizai: Seisen no Shirushi | The Seven Deadly Sins: Signs of Holy War
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054115.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ Nanatsu no Taizai: Imashime no Fukkatsu | The Seven Deadly Sins: Revival of the 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054114.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ Gekijouban Nanatsu no Taizai: Tenkuu no Torawarebito | The Seven Deadly Sins the
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054113.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ Nanatsu no Taizai: Kamigami no Gekirin | The Seven Deadly Sins: Wrath of the God
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054112.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ Nanatsu no Taizai: Fundo no Shinpan | The Seven Deadly Sins: Dragon's Judgement 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054111.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ Gekijouban Nanatsu no Taizai: Hikari ni Norowareshi Mono-tachi | The Seven Deadl
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054110.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ Nanatsu no Taizai: Ensa no Edinburgh | The Seven Deadly Sins: Grudge of Edinburg
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054109.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ Sousou no Frieren TV-2 | Фрирен, провожающая в последн�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053854.jpg" />
 </div>
 
 
@@ -593,86 +671,6 @@ Sousou no Frieren TV-2 | Фрирен, провожающая в последн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04E50518496B407C03FC80A8B1202BD5008B6170
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849067   (1053425) от 21.01.2026
-
-Haite Kudasai, Takamine-san | Please Put Them On, Takamine-san | Пожалуйста, оденьтесь, Такаминэ [2025, TV, 12 из 12 эп. BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Таканэ Такаминэ — звезда школы, она получает хорошие оценки, занимается спортом и даже становится президентом студенческого совета в первый год обучения в старшей школе. Но у Такаминэ есть секрет — она обладает способностью «Вечная дорога девственницы». Способность позволяет ей переделывать совершённые действия и добиваться иного результата. Чтобы активировать способность, (   Читать дальше...   )Производство: Liden FilmsЖанр: комeдия, ромaнтика, этҭиРежиссер: Макино ТомоэЯзык озвучки: Японский и РусскийСубтитры: Английские и Русские ASS(int) by CrunchyRoll (Полные и Надписи)Продолжительность: 12 эп. по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74E65916BB22EE67EC3036436629F4C572BDB757
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848978   (1053178) от 20.01.2026
-
-Звёздное дитя [ТВ-3] | Ребёнок идола [ТВ-3] | Oshi no Ko 3 [2026, TV, 1 из 11] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Онгоинги с озвучкой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053178.jpg" />
-</div>
-
-
-###  Подробнее
-
-После роковой поездки в Миядзаки, открывшей правду об убийстве шестнадцатилетней давности, прошло полгода.
-Группа B-Komachi благодаря усилиям Руби, Каны и Мем-Чо активно набирает популярность: вместе наши айдолы успели выпустить уже несколько новых песен. Аканэ всё так же блистает на театральной сцене, а Аква стал ведущим ТВ-шоу.
-Но несмотря на успех группы, Руби (   Читать дальше...   )Производство: Япония / Студия Doga KoboЖанр: драма, повседневностьРежиссер: Хирамаки ДайсукэЯзык озвучки: Русский (AniLiberty); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 11 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4B5F500C6CDBBBB9AD47F4B6012FE829F51014E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848866   (1053032) от 20.01.2026
-
-Sasaki to Miyano | Sasaki and Miyano | Сасаки и Мияно [2022, TV, 12 из 12 эп.] BDRip 1080p 10-bit raw+eng+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ничто не нарушало мирных будней Ёсикадзу Мияно: он учился, помогал с работой в ученическом комитете, украдкой от одноклассников наслаждался чтением манги, посвященной любви между мужчинами, временами беспокоился из-за того, что у него девичье лицо, — в общем вёл обычную жизнь обычного старшеклассника, пока судьба не свела его с учащимся на год старше Сюмэем Сасаки. (   Читать дальше...   )Производство: Studio DeenЖанр: сёнэн-aй, повседневнoсть, ромaнтикаРежиссер: Исихира СиндзиЯзык озвучки: Японский, Английский и РусскийСубтитры: Английские и Русские ASS(int) by CrunchyRoll (Полные и Надписи)Продолжительность: 12 эп. по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24B7FF514693DC86596763E9D0D2D3CBF5495FE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

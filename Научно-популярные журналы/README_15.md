@@ -1,3 +1,110 @@
+###  Публикация: 1214678   (763976) от 22.03.2018
+
+Журнал | GEO №4 (238) (апрель 2018) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведущий европейский научно-популярный журнал о познании окружающего мира. GEO сочетает в себе увлекательные репортажи и эксклюзивные фотографии лучших российских и мировых фотографов и журналистов, современный дизайн и премиальную полиграфию, позволяя читателю проникнуться духом удивительных открытий и дальних странствий.Жанр: Популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3080EB44739ED8D31D55013FC7E2EB6EAFE7DBD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017122   (762955) от 16.05.2016
+
+Журнал | Калашников №5 (Май 2016) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал является официальным печатным изданием Федерации практической стрельбы России и Союза российских оружейников. Журнал предоставляет достоверную информацию о боевом, специальном, служебном, охотничьем, пневматическом, газовом и холодном оружии, исторические материалы, тренинги. Новости с оружейных выставок, байки охотников, холодное оружие и многое другое.Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F48F879D1E04B937769AF0273B425A18B9CA1A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 662068   (760563) от 28.05.2013
+
+Журнал | National Geographic [Россия] №6 (июнь 2013) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760563.jpg" />
+</div>
+
+
+###  Подробнее
+
+National Geographic - уникальный научно-популярный географический журнал, официальное издание американского Национального географического общества - публикует беспрецедентные и эксклюзивные материалы об истории, археологии, науке и культуре. Ядро журнала одинаково для всех стран, что делает National Geographic по-настоящему общемировым изданием.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2D0995686711AFB93989081B09E4BA5C07006C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 332623   (756319) от 08.01.2022
+
+Подшивка журналов | «Наука и техника» (1927, 1929, 1930) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756319.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче представлено 3 номера:
+—"Наука и техника" № 10 (207), 4 марта 1927 г.
+—"Наука и техника" № 3 (304), 19 января 1929 г.
+—"Наука и техника" № 8 (309), 23 февраля 1929 г.(   Читать дальше...   )Жанр: Периодика, научно-популярныйФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9011B62CF18845B6ABDE98B90D8D3A03BE85F92A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215926   (754601) от 28.03.2018
 
 Журнал | National Geographic [Россия] №4 (175) (апрель 2018) [PDF]
@@ -6,7 +113,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754601.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753914.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753579.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752501.jpg" />
 </div>
 
 
@@ -111,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751856.jpg" />
 </div>
 
 
@@ -137,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750090.jpg" />
 </div>
 
 
@@ -163,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749958.jpg" />
 </div>
 
 
@@ -189,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749910.jpg" />
 </div>
 
 
@@ -215,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749221.jpg" />
 </div>
 
 
@@ -241,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748468.jpg" />
 </div>
 
 
@@ -267,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748201.jpg" />
 </div>
 
 
@@ -293,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743353.jpg" />
 </div>
 
 
@@ -319,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743229.jpg" />
 </div>
 
 
@@ -347,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742134.jpg" />
 </div>
 
 
@@ -373,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742119.jpg" />
 </div>
 
 
@@ -399,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740815.jpg" />
 </div>
 
 
@@ -425,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740814.jpg" />
 </div>
 
 
@@ -451,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740812.jpg" />
 </div>
 
 
@@ -477,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740808.jpg" />
 </div>
 
 
@@ -503,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740712.jpg" />
 </div>
 
 
@@ -529,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740184.jpg" />
 </div>
 
 
@@ -555,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740171.jpg" />
 </div>
 
 
@@ -566,113 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:643384F54AB587EC180E4F08B6AC2EE4890E1284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567511   (733185) от 24.05.2014
-
-Подшивка журналов| Flugzeug Classic и спецвыпусков [2000-2014] [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Flugzeug Classic - это немецкий журнал, специализирующийся на истории авиации. Издается с 2000 года, в настоящий момент тираж превышает 26000 экземпляров.
-Журнал содержит  информацию, об истории авиации и обзоры этапных воздушных судов. Наряду с новостями  о поиске самолетов, содержит информация  о  реставрации самолетов, пионерах авиации, авариях и авиашоу. Также имеетя информация о симуляторах, новинках видео и  прессы.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AED4283860EF7E569CC0D913E3E767BDE03885F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564966   (732752) от 25.05.2014
-
-Подшивка журналов | “Вертолет” [1998-2009] [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский информационный технический журнал «Вертолет». Издается с июня 1998 года.
-
- «Вертолет» – первое специализированное издание по вертолетной тематике в Российской Федерации. Со времени выхода первого номера журнал успел завоевать прочную репутацию, свой круг подписчиков и читателей. На его страницах публикуются материалы, охватывающие весь жизненный цикл винтокрылой машины – от проектирования до эксплуатации, прошлое, настоящее и будущее вертолетостроения.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D565E67E00A78B4BE7129062585A2E68EBBB423
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127393   (731968) от 21.04.2017
-
-Журнал | Авиация и космонавтика: вчера, сегодня, завтра №2 (февраль 2017) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научно-популярный журнал - учрежден Военно-воздушными силами России, выходит при поддержке ЦАГИ. Публикует материалы о достижениях и перспективах авиационной и космической техники, опыте освоения и боевого применения отечественной и зарубежной авиационной техники, о предприятиях и авиакомпаниях, репортажи с авиасалонов, обзоры военной и гражданской авиации, статьи (   Читать дальше...   )Жанр: Авиация, космонавтикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1263A486CE63173476E5C3B0B4C7C37FD3FC6915
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127390   (731964) от 21.04.2017
-
-Журнал | Авиация и космонавтика: вчера, сегодня, завтра №1 (январь 2017) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научно-популярный журнал - учрежден Военно-воздушными силами России, выходит при поддержке ЦАГИ. Публикует материалы о достижениях и перспективах авиационной и космической техники, опыте освоения и боевого применения отечественной и зарубежной авиационной техники, о предприятиях и авиакомпаниях, репортажи с авиасалонов, обзоры военной и гражданской авиации, статьи (   Читать дальше...   )Жанр: Авиация, космонавтикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2160E29AFB3F32809E973AF0CA3C4BE8CC5B96E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

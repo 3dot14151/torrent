@@ -1,3 +1,56 @@
+###  Публикация: 1251882   (413366) от 03.10.2018
+
+Wondershare AllMyMusic 2.4.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите слушать любимые песни, радио программы и аудио из видео в любое время и без подключения к интернету? Запишите все это легко с профессиональным Mac Audio Recorder : Wondershare AllMyMusic для Mac. Audio Recorder для Mac , что позволяет записывать программы онлайн музыку и радио с качеством 1:1 в один клик. AllMyMusic для Mac соответствует всем законам об авторском (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.10.2018Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:285C157D225330D68EEBEDE09BA128281FE32E60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251864   (413362) от 03.10.2018
+
+Wondershare Recoverit 7.3.3.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплексный набор для восстановления данных (был Wondershare Data Recovery).
+Wondershare Recoverit - профессиональное приложение, которое поможет вам восстановить удаленные, отформатированные и потерянные данные с любого внешнего диска установлена на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 01.10.2018Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:722AC8B3C6507FA724084ADE2C1B597FCABBEFA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252004   (413361) от 03.10.2018
 
 Time Sink 2.0.1 [En]
@@ -6,7 +59,7 @@ Time Sink 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413361.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ Airmail 2.5.3 (2.5.5) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413344.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ iSkysoft PDF Editor 6 Pro 6.7.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413195.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ Comic Life 3 v3.5.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413193.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ QR Factory 2.9.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413192.jpg" />
 </div>
 
 
@@ -143,7 +196,7 @@ Winclone Pro 7 v7.2.1 (40728) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413182.jpg" />
 </div>
 
 
@@ -170,7 +223,7 @@ Pixelmator 3.7.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413181.jpg" />
 </div>
 
 
@@ -196,7 +249,7 @@ OmniPlan Pro 3.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413158.jpg" />
 </div>
 
 
@@ -222,7 +275,7 @@ JetBrains WebStorm 2020.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413141.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ Sketch 52 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413067.jpg" />
 </div>
 
 
@@ -275,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413063.jpg" />
 </div>
 
 
@@ -303,7 +356,7 @@ Navicat Premium 12.1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413017.jpg" />
 </div>
 
 
@@ -329,7 +382,7 @@ DiskWarrior 5.2 (Standalone) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413006.jpg" />
 </div>
 
 
@@ -357,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412954.jpg" />
 </div>
 
 
@@ -385,7 +438,7 @@ PhoneRescue 3.4.3 (20170920) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412838.jpg" />
 </div>
 
 
@@ -411,7 +464,7 @@ Softorino YouTube Converter PRO for Mac 5.0.86 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412763.jpg" />
 </div>
 
 
@@ -439,7 +492,7 @@ Bootstrap Studio 6.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412671.jpg" />
 </div>
 
 
@@ -467,7 +520,7 @@ DVD-Cloner 2022 v.9.40.732 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412653.jpg" />
 </div>
 
 
@@ -493,7 +546,7 @@ Softorino YouTube Converter PRO for Mac 5.0.87 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412536.jpg" />
 </div>
 
 
@@ -521,7 +574,7 @@ System Toolkit 5.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412533.jpg" />
 </div>
 
 
@@ -547,7 +600,7 @@ QLab 5 v.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412524.jpg" />
 </div>
 
 
@@ -573,7 +626,7 @@ Adguard 1.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412467.jpg" />
 </div>
 
 
@@ -600,7 +653,7 @@ Claquette - Animated Screenshots 1.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412396.jpg" />
 </div>
 
 
@@ -627,7 +680,7 @@ Rumpus PRO 8.0.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412390.jpg" />
 </div>
 
 
@@ -639,62 +692,6 @@ Rumpus - простой в использовании, высокопроизв�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:815FE6415411EE769DD0E99EC86A5D235DD92DA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066556   (412378) от 26.10.2016
-
-iTrash 3.5.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412378.jpg" />
-</div>
-
-
-###  Подробнее
-
-iTrash (известная ранее как AppTrasher) утилита для деинсталляции софта.
-Приложения распределяют несколько файлов всюду по Вашим системным устройствам хранения. Удаление самого приложения - главным образом недостаточно и оставляет несколько файлов нетронутыми. iTrash использует специальный алгоритм поиска, чтобы найти все связанные файлы и при необходимости удаляет (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04 сентября 2016Разработчик: osxbytesПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский, Немецкий, Итальянский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B2AF2D3E513EDD2BFB34E8E14989F377247E9C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066664   (412246) от 26.10.2016
-
-Calendar 366 Plus 1.4 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Calendar 366 Plus - календарь событий и напоминаний для меню бара
-Посмотреть, добавлять, редактировать и удалять свои мероприятия легко. Создать и выполнить ваши напоминания с помощью всего одного клика. Calendar 366 Plus предоставит вам легкий доступ ко всем календарям, а также сделает более легким управление  событиями и напоминаниями.
-
-Нажмите на иконку и получите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26 октября 2016Разработчик: n.spektorПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Немецкий и Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC0F269F3B5ECB2A6B7482A349F0C851307074D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

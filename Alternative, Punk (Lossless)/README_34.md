@@ -1,3 +1,31 @@
+###  Публикация: 1413369   (514510) от 05.07.2022
+
+Greg Puciato - 3 Albums / 3 Singles (2020-2022)  Federal Prisoner Record [FLAC|Lossless|WEB-DL|tracks] <Mathcore, Grunge, Sludge, Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire For Water [00:02:58]
+02. Fire For Water(instrumental) [00:02:58]
+03. Fire For Water(vocal only) [00:02:58]Жанр: Mathcore, Grunge, Sludge, IndustrialПродолжительность: 6 CD, 03:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBC68CDCFDCA955A3ABC64F8427231D64A7DBFB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315342   (513893) от 19.07.2019
 
 The Flaming Lips - King's Mouth (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
@@ -6,7 +34,7 @@ The Flaming Lips - King's Mouth (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513893.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ Scott Stapp - The Space Between the Shadows (2019) Napalm Records [FLAC|Lossless
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513823.jpg" />
 </div>
 
 
@@ -64,7 +92,7 @@ HER - Chain Reaction (2017) [FLAC|Lossless|tracks] <Alternative Rock, Hard Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513104.jpg" />
 </div>
 
 
@@ -93,7 +121,7 @@ Bad/Love - Life Imitates Art (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512515.jpg" />
 </div>
 
 
@@ -122,7 +150,7 @@ Greylotus - Dawnfall (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Deathcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511557.jpg" />
 </div>
 
 
@@ -151,7 +179,7 @@ The Machinist - All is Not Well (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511549.jpg" />
 </div>
 
 
@@ -180,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511543.jpg" />
 </div>
 
 
@@ -209,7 +237,7 @@ Travis - Singles (2004) Compilation [FLAC|Lossless|tracks + .cue] <Indie Rock, P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511076.jpg" />
 </div>
 
 
@@ -238,7 +266,7 @@ Biffy Clyro - Only Revolutions (2009) Japan [FLAC|Lossless|tracks + .cue] <Indie
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510987.jpg" />
 </div>
 
 
@@ -267,7 +295,7 @@ Oxford Collapse - Some Wilderness (2004) [FLAC|Lossless|tracks + .cue] <Indie Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508903.jpg" />
 </div>
 
 
@@ -296,7 +324,7 @@ Craig Finn - Faith in the Future (2015) [FLAC|Lossless|tracks + .cue] <Indie Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508897.jpg" />
 </div>
 
 
@@ -325,7 +353,7 @@ Craig Finn - We All Want The Same Things (2017) [FLAC|Lossless|tracks + .cue] <I
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508838.jpg" />
 </div>
 
 
@@ -354,7 +382,7 @@ Craig Finn - I Need a New War (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508837.jpg" />
 </div>
 
 
@@ -383,7 +411,7 @@ Biffy Clyro - MTV Unplugged (2018) Live at Roundhouse London [FLAC|Lossless|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508830.jpg" />
 </div>
 
 
@@ -412,7 +440,7 @@ Biffy Clyro - Ellipsis (2016) Japan [FLAC|Lossless|tracks + .cue] <Indie Rock, A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508828.jpg" />
 </div>
 
 
@@ -441,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508075.jpg" />
 </div>
 
 
@@ -470,7 +498,7 @@ Crazy Town - 3 Альбома, 5 Синглов (1999-2015) [FLAC|Lossless]<Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507964.jpg" />
 </div>
 
 
@@ -499,7 +527,7 @@ Nick Cave - Seven Psalms (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Alternative, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507129.jpg" />
 </div>
 
 
@@ -525,7 +553,7 @@ Raz Ohara And The Odd Orchestra - Raz Ohara And The Odd Orchestra (2007) [FLAC|L
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506923.jpg" />
 </div>
 
 
@@ -554,7 +582,7 @@ Hurula - Klass (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505971.jpg" />
 </div>
 
 
@@ -583,7 +611,7 @@ Amongst Liars - Amongst Liars (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505476.jpg" />
 </div>
 
 
@@ -612,7 +640,7 @@ Molotov - Con Todo Respeto (2004) [FLAC|Lossless|image + .cue] <Alternative Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505385.jpg" />
 </div>
 
 
@@ -642,7 +670,7 @@ Senses Fail - Hell Is In Your Head (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Ha
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503821.jpg" />
 </div>
 
 
@@ -671,7 +699,7 @@ True North - Out Loud (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502760.jpg" />
 </div>
 
 
@@ -700,7 +728,7 @@ Rain City Drive - Rain City Drive (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502756.jpg" />
 </div>
 
 
@@ -714,35 +742,6 @@ Rain City Drive - Rain City Drive (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1AAADD045B3A8E171F3AFEB372BE2E59C22E114
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563779   (502704) от 16.07.2022
-
-Deaf Havana - The Present is a Foreign Land (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502704.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Pocari Sweat
-2. 19dreams
-3. I Put You Through Hell
-4. Nevermind(   Читать дальше...   )Жанр: Alt. Rock, Post-HardcoreПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD32BE0F751C9853359AA7EBA08E576FBF465E94
 ```
 
 https://mybot314.ru/tekegram_catalog/

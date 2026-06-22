@@ -1,3 +1,133 @@
+###  Публикация: 1674510   (160914) от 05.11.2023
+
+Song of Nunu: A League of Legends Story (2023) [Ru/Multi] (0.0.31/dlc) Scene FAiRLIGHT
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Присоединяйтесь к Нуну и Виллумпу - закадычным друзьям, путешествующим по морозным просторам Фрельйорда. В странствии по прекрасным, но коварным землям мальчик и йети все теснее привязываются друг к другу. Вместе они обретают новых союзников и противников, и ведут их семья, дружба и волшебство. Song of Nunu: A League of Legends Story - это однопользовательская сюжетная (   Читать дальше...   )Тип издания: SceneРазработчик: Tequila WorksЖанр: Приключение, Экшны, ГоловоломкаЯзык озвучки: Русский, Английский, Немецкий, Турецкий и другиеЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A59C8E33DCB8F37F674EC45F5AA58E661CFD2BF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674435   (160882) от 05.11.2023
+
+The Talos Principle 2 (2023) [Ru/Multi] (673723) Scene FairLight
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160882.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Talos Principle 2 предлагает увлекательный и заставляющий задуматься опыт для поклонников первой части. Переносясь в мир, лишенный остатков человечества, но наполненный остатками их культуры, игроки оказываются в роботизированном городе внутри таинственной мегаструктуры, хранящей секреты вселенной и судьбу цивилизации. В отличие от типичной головоломки, The Talos (   Читать дальше...   )Тип издания: SceneРазработчик: CroteamЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14F0D648136B823BAE23535CB3EAA8CB4631F008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674601   (160784) от 06.11.2023
+
+Enypnion Redreamed (2023) [Multi] (1.06a1) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Enypnion Redreamed представляет собой удивительное путешествие в мир снов, где границы реальности смутны, а возможности безграничны. Игроки погружаются в атмосферу мистики и открытий, ведь каждый уровень несет в себе уникальные загадки и тайны. Этот виртуальный мир сновидений манит своей непредсказуемостью и открывает перед игроками безбрежные просторы воображения.Тип издания: LicenseРазработчик: Sinking Sheep, Dionous GamesЖанр: Приключение, Головоломка, ExplorationЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D8D0AE71D6B40D9A47BAD41A3942FC2C82D3057
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674612   (160748) от 06.11.2023
+
+The Expanse: A Telltale Series (2023) [Multi] (1.0.902523.2310241203) Scene Rune [Episodes 1-6]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследуйте поразительную вселенную The Expanse в уникальном приключении от Telltale под названием The Expanse: A Telltale Series. Вы можете обшаривать обломки кораблекрушения в невесомости, сражаться с пиратами или заниматься чем-то ещё, но придётся постоянно делать выбор, который повлияет на последующий ход игры. Кара Джи (Cara Gee) в роли Камины Драммер поможет (   Читать дальше...   )Тип издания: SceneРазработчик: Deck NineЖанр: Экшены, ПриключениеЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий, Итальянский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82490826DDD17BCD5176CF40E319DD03179202F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674632   (160738) от 06.11.2023
+
+The Beast Inside (2019) [Ru/Multi] (1.05) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160738.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1979 году Адам, криптоаналитик, работающий на ЦРУ, переезжает из Бостона в загородный домик вместе со своей женой Эммой. Кураторы сомневаются, что там он будет в безопасности, тем не мене Адам считает, что расшифровать военный код ему удастся лишь находясь в тишине на природе. От его работы может зависеть исход Холодной войны. К сожалению, отыскать спокойствие (   Читать дальше...   )Тип издания: LicenseРазработчик: Illusion Ray StudioЖанр: Adventure, Action (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:755EC97D09D62E6D3978C750E058E1E5A6F2F91B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674657   (160737) от 06.11.2023
 
 One Eleven (2023) [Ru/En] (1.3/dlc) Repack Other s
@@ -6,7 +136,7 @@ One Eleven (2023) [Ru/En] (1.3/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160737.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Alexey's Winter: Night Adventure (2021) [Ru/Multi] (Build 10121369) Repack Other
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159709.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Attentat 1942 (2017) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159530.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Svoboda 1945: Liberation (2021) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159515.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Road 96 (2021) [Ru/Multi] (1.04/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156531.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Dragon Lore: The Legend Begins (1994) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156455.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ The House of Da Vinci 3 (2022) [Multi] (Build 10193115) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156341.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ The Watchmaker (2018) [Ru/Multi] (1.1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156313.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Crime O'Clock (2023) [Multi] (1.3.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155178.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Ceiba (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154920.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Life Is Strange (2015) [Ru/En] (1.0.0.397609) Repack xatab [Episode 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154588.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ Sally Face (2016) [Ru/Multi] (1.5.05/dlc) Repack Other s [Episode 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154485.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ Riddle of the Sphinx - The Awakening (2021) [En] (1.4.5/dlc) License GOG [Enhanc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153670.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Titan Station (2022) [Ru/Multi] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153259.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Oxenfree (2016) [En] (2.6.0cs HotFix) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153010.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ Outlast (2013) [Ru/Multi] (1.0.12046.0/dlc) SteamRip Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153001.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Life Is Strange: Complete Season (2015) [Ru/Multi] (1.0.0.397609) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152690.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Bad Cheese (2025) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151870.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ American Arcadia (2023) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151737.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) Repack R.G. Механи�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151256.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ Disney Infinity 1.0 (2016) [Multi] (1.0.1/upd1) License PLAZA [Gold Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151091.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ Disney Infinity — приключенческий боевик и песочн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46CE63753E04AD3090F68EEF8195209E2CD8B30D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081971   (151005) от 24.12.2016
-
-Disney Infinity 2.0 (2016) [Ru/Multi] (1.0.2/upd1) License PLAZA [Gold Edition]
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disney Infinity 2.0 — видеоигра нового поколения, в которой вас ждут головокружительные приключения с супергероями MARVEL! Выбирайте любимого героя из 20 доступных и отправляйтесь в их родные миры, чтобы узнать новые истории MARVEL. Зовите друзей и проходите уровни в кооперативном режиме. Или же создайте свой собственный, ни на что не похожий мир, и поделитесь им (   Читать дальше...   )Тип издания: LicenseРазработчик: Avalanche Software, Heavy Iron StudiosЖанр: Adventure, Action, 3D, 3rd PersonЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF9DA7082A113DF47F976AC0DD0185B6BF68A590
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081975   (150968) от 24.12.2016
-
-Disney Infinity 3.0 (2016) [Multi] (1.0.3/upd1) License PLAZA [Gold Edition]
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Соскучились по «Звездным войнам»? Хотите протестировать и оценить созвучную с популярной киношной сагой компьютерную игру? В таком случае добро пожаловать в новую Disney Infinity 3.0!Тип издания: LicenseРазработчик: Avalanche Software, Heavy Iron StudiosЖанр: Adventure, Action, 3D, 3rd PersonЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DC36BE8A0B0AEFA9F890D4D445144ED03FC4D58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825876   (150884) от 18.10.2025
-
-Vasilisa and Baba Yaga / Василиса и Баба Яга (2024) [Ru/Multi] (1.5.7/dlc) Repack Other s [Digital Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это страшное приключение, в котором путешествие Василисы и её служба у Бабы Яги состоят из набора разнообразных по геймплею мини-игр. C Василисой и её куклой вы пройдете путь сказочного героя, преодолеете препятствия, отделяющие мир живых от мира мёртвых, выполните задания жуткой Бабы Яги, чтобы доказать ей, что вы достойны её благосклонности и за это получите в (   Читать дальше...   )Тип издания: RepackРазработчик: Baba Yaga GamesЖанр: Приключенческие игры, Казуальные игрыЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Китайский (упрощенный) и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A55C3552722CF433BC78C13BAECA564B1DF1F145
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519076   (150229) от 22.12.2021
-
-Cleo a pirate's tale (2021) [Multi] (1.1.5) License GOG [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клео - пиратская сказка - это индивидуально разработанное пиратское приключение в стиле ретро в стиле пиксель-арт, наполненное ностальгическим чутьем, юмором и линейным сюжетом, вдохновленным старыми играми Zelda и классическими приключенческими играми LucasArts. Клео - 14-летняя циничная девушка, которая живет однообразной жизнью со своим отцом в баре. Она знает (   Читать дальше...   )Тип издания: LicenseРазработчик: Christoph SchultzЖанр: Приключение, Квест, ДрамаЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FF97FD297DB38981A34383235C5A90909FA6EAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968863   (149739) от 25.12.2015
-
-Leviathan: The Last Day of the Decade / Левиафан: Последний день Декады (2014-2015) [Ru/En] (1.0) License SKIDROW [Episode 1-5]
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149739.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Левиафан: последний день Декады» - это детективная история. Её рассказчик вырос во мрачном, охваченном эпидемией мире. Власть здесь держат 5 кланов, а настоящим королем является вечно спящий, живой мертвец.  Потратив несколько лет жизни, молодой аристократ находит улику, которая позволит наказать убийцу его матери. Но что делать, если за спиной преступника стоит (   Читать дальше...   )Тип издания: LicenseРазработчик: LostwoodЖанр: Приключенческие игры, ИндиЯзык озвучки: -/-Язык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:901BE513F31FD28DE41B3FF5E6BE89DBB3F5BB70
 ```
 
 https://mybot314.ru/tekegram_catalog/

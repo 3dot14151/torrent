@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071010.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063414.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051738.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045312.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036777.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036244.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035071.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033261.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030612.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030428.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030426.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029123.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Ford против Ferrari / Ford v Ferrari (2019) DVD9 [Custom]
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027636.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024520.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024320.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023613.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023595.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023094.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023085.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022161.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013328.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003652.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003541.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002394.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002374.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000616.jpg" />
 </div>
 
 

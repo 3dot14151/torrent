@@ -6,7 +6,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966024.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966021.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965370.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964582.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961779.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960870.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960599.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959689.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959646.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959588.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959532.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956070.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954500.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953660.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953601.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952022.jpg" />
 </div>
 
 
@@ -417,6 +417,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 280595   (951555) от 09.01.2011
+
+А.П.Кашкаров | Ветрогенераторы, солнечные батареи и другие полезные конструкции [2011] [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_951555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альтернативные источники энергии - ветер и солнце являются постоянно возобновляемыми, практически вечными видами энергии.
+В данной книге автор раскрывает особенности современных преобразователей энергии солнца и ветра, их выбора, строения и установки. Целая глава книги посвящена нетрадиционным радиоэлектронным конструкциям.
+Издание предназначено для широкого круга читателей, стремящихся к самостоятельному техническому творчеству, интересующихся радиотехникой, нетрадиционными источниками питания, солнечными батареями и ветрогенераторами в эпоху всеобщей экономии и оптимизации издержек.
+В приложениях даны справочные данные и другая полезная информация.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F02D634AA5776EAC7EEC2A9B93704ECBE406216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981453   (950976) от 01.02.2016
 
 Подборка книг | Справочная литература по радиоэлектронным компонентам [140 книг] (1993-2014) [DJVU, PDF, FB2]
@@ -425,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950976.jpg" />
 </div>
 
 
@@ -451,7 +480,7 @@ Baxi | Газовые котлы BAXI, инструкции. [2010] [PDF]
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950055.jpg" />
 </div>
 
 
@@ -482,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948830.jpg" />
 </div>
 
 
@@ -508,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948736.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941696.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936586.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933615.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932601.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928884.jpg" />
 </div>
 
 
@@ -651,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:138C8975B62FC1F5883F8299A0D5EA3F41141970
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 631684   (922641) от 18.03.2013
-
-Чарльз Платт | Электроника для начинающих (2012) [PDF]
-
->>След.
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922641.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ходе практических экспериментов рассмотрены основы электроники и показано, как проектировать, отлаживать и изготавливать электронные устройства в домашних условиях. Материал излагается последовательно от простого к сложному, начиная с простых опытов с электрическим током и заканчивая созданием сложных устройств с использованием транзисторов и микроконтроллеров. (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE50DCB9B68A6ECB6DE07717F9A8AE6D8B5E8196
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 936944   (492231) от 13.09.2015
-
-The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рекорд-компания Eagle Rock выпустила серии живых концертных записей из архива The Rolling Stones, получившей название «From The Vault». Первым релизом в ней стала запись выступления «роллингов» 1981 года в Хэмптоне, штат Вирджиния, «Hampton Coliseum — Live In 1981».  Релиз The Rolling Stones «From The Vault – Hampton Coliseum – Live in 1981» (Eagle Rock) состоялся (   Читать дальше...   )01. Under My Thumb
-02. When The Whip Comes Down
-03. Let s Spend The Night Together
-04. Shattered(   Читать дальше...   )Производство: США | Eagle Rock EntertainmentЖанр: RockРежиссер: Hal Ashby & Tom TrbovichАктеры: Mick Jagger (vocals, guitar), Keith Richards (guitars, vocals), Ronnie Wood (guitars, backing vocals), Bill Wyman (bass guitar), Charlie Watts (drums), Ian Stewart (piano), Ian McLagan (keyboards, backing vocals), Ernie Watts, Boby Keys (saxophone)Продолжительность: 02:29:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07D8C88305F7B049FB5F8F53F98134D8C55A5E3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 937213   (489551) от 14.09.2015
 
 James Last - Live at the Royal Albert Hall (2007/2013) BDRip [H.264/1080p]
@@ -35,7 +6,7 @@ James Last - Live at the Royal Albert Hall (2007/2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489551.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Madonna - MDNA World Tour (2013) HDTV [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489127.jpg" />
 </div>
 
 
@@ -85,6 +56,42 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 383747   (486626) от 04.09.2011
+
+Mylene Farmer - Stade De France (2009) BDRip [1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_486626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Киноверсия концерта Милен Фармер, прошедшего 12 сентября 2009 года в Париже на стадионе Stade de France в рамках её пятого концертного тура.
+ К этому имени добавлять почти ничего не приходится. Одна из немногих звезд, добившаяся успеха, не исполняя песен на английском языке. Автор текстов своих песен, композитор и постановщик хореографии. Устроительница самых зрелищных шоу из своих концертов. Певица, которая после нескольких лет молчания возвращается к еще более полным залам. Очень непродуктивная артистка - за 25 лет выпущено только 7 студийных альбомов и устроено 5 концертных турне. В 2009 году добилась своеобразного рекорда: 160 000 билетов на концерты 11 и 12 сентября были раскуплены всего за 3 часа. Человек, который с полным правом может сказать: "На мой день рождения собралось 80 000 человек гостей!". И вот день настал. 12 сентября 2009 г. Париж. Самый большой стадион Франции - Stadе de France. 80 тысяч зрителей как один смеются, поют и плачут вместе с именинницей, устроившей очередное незабываемое (   Читать дальше...   )1. Avant la lumière
+ 2. D`entre les morts
+ 3. Paradis inanimé
+ 4. L`âme-stram-gram
+ 5. Je m`ennuie
+ 6. Outro Haka "Je m`ennuie"
+ 7. Appelle mon numéro
+ 8. XXL
+ 9. California
+ 10. Pourvu qu`elles soient douces(   Читать дальше...   )Жанр: POPПеревод: ОтсутствуетПродолжительность: 02:19:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 544671   (486411) от 09.09.2012
 
 Tarja Turunen - Act 1 (2012) BDRip [720p]
@@ -93,7 +100,7 @@ Tarja Turunen - Act 1 (2012) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486411.jpg" />
 </div>
 
 
@@ -128,7 +135,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486075.jpg" />
 </div>
 
 
@@ -154,7 +161,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485854.jpg" />
 </div>
 
 
@@ -181,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485749.jpg" />
 </div>
 
 
@@ -208,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484718.jpg" />
 </div>
 
 
@@ -234,7 +241,7 @@ Metallica & San Francisco Symphony - S&M2 (2020) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482854.jpg" />
 </div>
 
 
@@ -260,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482690.jpg" />
 </div>
 
 
@@ -286,7 +293,7 @@ Pharrell Williams - iTunes Festival London (2014) WEB-DL [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481851.jpg" />
 </div>
 
 
@@ -315,7 +322,7 @@ Shar Airag Rock Band - Tribute to Pink Floyd (2013) WEBRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481626.jpg" />
 </div>
 
 
@@ -344,7 +351,7 @@ Europe: The Final Countdown – Live At The Roundhouse (2017) [30th Anniversary 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481617.jpg" />
 </div>
 
 
@@ -373,7 +380,7 @@ Queen - Live At The Rainbow '74 (2014) SD Blu-ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481543.jpg" />
 </div>
 
 
@@ -402,7 +409,7 @@ Europe: The Final Countdown – Live At The Roundhouse (2017) [30th Anniversary 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479750.jpg" />
 </div>
 
 
@@ -431,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479729.jpg" />
 </div>
 
 
@@ -457,7 +464,7 @@ Slayer - Repentless (Live At Wacken) (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479453.jpg" />
 </div>
 
 
@@ -486,7 +493,7 @@ Deep Purple - From the Setting Sun... in Wacken (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479364.jpg" />
 </div>
 
 
@@ -515,7 +522,7 @@ David Gilmour - Europejska Stolica Kultury Wroclaw Part.1 (2016) HDTV [H.264/108
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478922.jpg" />
 </div>
 
 
@@ -544,7 +551,7 @@ Madonna: The MDNA Tour (2013) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478384.jpg" />
 </div>
 
 
@@ -573,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478306.jpg" />
 </div>
 
 
@@ -604,7 +611,7 @@ Linkin Park - Honda Civic Tour (2012) [1080i] HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478211.jpg" />
 </div>
 
 
@@ -630,7 +637,7 @@ The Prodigy / Live World's On Fire (2011) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478124.jpg" />
 </div>
 
 
@@ -656,7 +663,7 @@ Dream Theater - Breaking the Fourth Wall (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477535.jpg" />
 </div>
 
 
@@ -685,7 +692,7 @@ Ayreon - Electric Castle Live and Other Tales (2020) Blu-ray [H.264/1080p] [Cust
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476660.jpg" />
 </div>
 
 
@@ -715,7 +722,7 @@ Madonna - The MDNA Tour (2013) BDRemux [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476335.jpg" />
 </div>
 
 

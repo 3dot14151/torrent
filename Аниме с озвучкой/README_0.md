@@ -1,3 +1,82 @@
+###  Публикация: 1864398   (1064701) от 17.04.2026
+
+Isekai Nonbiri Nouka 2 | Фермерская жизнь в ином мире [ТВ-2] | Farming Life in Another World 2 [2026, TV, 01 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Онгоинги с озвучкой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение истории.
+Бывший работник компании Мачио Хираку с 30-и лет валялся в больнице, не в силах справиться с болезнью. Но в 39 лет над ним смилостливился Бог из другого мира: вылечил, омолодил, дал кучу перков (Мачио решил не болеть, жить в спокойном месте, знать местные языки и быть фермером). Ну а в довершение Бог выдал Мачио «Универсальный фермерский инструмент», (   Читать дальше...   )Производство: Япония, студия Zero-GЖанр: повседневность, фэнтезиРежиссер: Курая РёитиЯзык озвучки: Русский закадровый (Red Head Sound), (Flowers Media)Субтитры: Русские надписи, русские (софтсаб)Продолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B3B7768D333B00A089EF6D4B8598BACEA453FAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864312   (1064596) от 23.04.2026
+
+Я подружился со второй самой симпатичной девушкой в классе | Class de 2 Banme ni Kawaii Onnanoko to Tomodachi ni Natta | I Made Friends with the Second Prettiest Girl in My Class [2026, TV, 1 из 12 ...
+
+>>Аниме с озвучкой
+>>Онгоинги с озвучкой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маэхара — парень вовсе не нелюдимый, скорее даже наоборот, да вот только друзей завести у него никак не получалось. К счастью, после перевода в новую школу ситуация изменилась: у него наконец появился человек, разделяющий его интересы! Правда, этим единомышленником оказалась мало того что девушка, да ещё и какая-то странная: она внезапно отменила планы с лучшей подругой, (   Читать дальше...   )Производство: Япония / Студия ConnectЖанр: Комедия, романтикаРежиссер: Татибана ХидэкиЯзык озвучки: Русский (AniLiberty); ЯпонскийСубтитры: Русские (хардсаб на надписи), (софтсаб полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDABD8F7034627D9CD2108AC598D3BE01ED4BFC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864212   (1064475) от 08.04.2026
+
+Добро пожаловать в ад, Ирума [ТВ-4] | Mairimashita! Iruma-kun (2026) | Welcome to Demon School! Iruma-kun (2026) [2026, TV, 1 из 24] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Онгоинги с озвучкой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ирума — самый обыкновенный мальчишка: он любит веселиться и легко заводит новых друзей. Он бы и рад наслаждаться привычными школьными буднями, да только учебное заведение ему досталось специфическое — исключительно для демонов! Несмотря на то, что Ирума человек, он всё равно стал главной звездой и любимцем класса. Впрочем, оно и неудивительно, когда самый могущественный (   Читать дальше...   )Производство: Япония / Студия BN PicturesЖанр: комедия, фэнтезиРежиссер: Мориваки МакотоЯзык озвучки: Русский (AniLiberty); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 24 серии по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D6BBB57DB5B2701BD2B0505DA369A5DF0BFFC45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862180   (1064083) от 31.03.2026
 
 Не называй это любовью! | Koi to Yobu ni wa Kimochi Warui | Koikimo [2021, TV, 12 из 12] BDRip 1080p HEVC 10-bit Raw+Rus
@@ -6,7 +85,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064083.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064082.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064081.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ Hitoribocchi no Isekai Kouryaku | Нападение одиночки на ин�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064080.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063488.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ Yofukashi no Uta Season 2 | Call of the Night Season 2 | Песнь ночных
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063392.jpg" />
 </div>
 
 
@@ -165,7 +244,7 @@ Mamonogurai no Boukensha | Авантюрист, пожирающий демон
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063388.jpg" />
 </div>
 
 
@@ -191,7 +270,7 @@ Reincarnation no Kaben | Лепестки реинкарнации | Petals of R
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063296.jpg" />
 </div>
 
 
@@ -218,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063292.jpg" />
 </div>
 
 
@@ -244,7 +323,7 @@ Kanan-sama wa Akumade Choroi | Канан до чёртиков проста | M
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063270.jpg" />
 </div>
 
 
@@ -270,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063264.jpg" />
 </div>
 
 
@@ -297,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063188.jpg" />
 </div>
 
 
@@ -324,7 +403,7 @@ Virgin Punk | Невинный панк [2025, Movie] BDRip HEVC 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063178.jpg" />
 </div>
 
 
@@ -351,7 +430,7 @@ Needy Girl Overdose | Зависимая девушка: Передозиров�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063146.jpg" />
 </div>
 
 
@@ -378,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063051.jpg" />
 </div>
 
 
@@ -405,7 +484,7 @@ Watashi ga Koibito ni Nareru Wake Nai jan, Muri Muri! (*Muri ja Nakatta!?) | У 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062560.jpg" />
 </div>
 
 
@@ -431,7 +510,7 @@ Seihou Bukyou Outlaw Star | Outlaw Star | Звёздные рыцари с Во�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061525.jpg" />
 </div>
 
 
@@ -457,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061107.jpg" />
 </div>
 
 
@@ -483,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059742.jpg" />
 </div>
 
 
@@ -509,7 +588,7 @@ Sidonia no Kishi | Knights of Sidonia | Рыцари Сидонии [2014, TV, 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058504.jpg" />
 </div>
 
 
@@ -535,7 +614,7 @@ Sidonia no Kishi: Daikyuu Wakusei Seneki | Knights of Sidonia: Battle for Planet
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058503.jpg" />
 </div>
 
 
@@ -562,7 +641,7 @@ Kamui no Ken | The Dagger of Kamui | Кинжал Камуи [1985, Movie] BDRip
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058339.jpg" />
 </div>
 
 
@@ -589,7 +668,7 @@ Guilty Crown / Корона греха [2011, TV, 22 ep] BDRip Hi10p 720p Raw + 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057149.jpg" />
 </div>
 
 
@@ -600,84 +679,6 @@ Guilty Crown / Корона греха [2011, TV, 22 ep] BDRip Hi10p 720p Raw + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C707465ED48C77886D4A85C67CAC9C7CBBBEB530
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853492   (1056847) от 13.02.2026
-
-Shuumatsu no Harem | World's End Harem | Гарем конца света [2021, TV, 11 эп.] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рэйто Мидзухара учился на кафедре передовых технологий вместе с Эрисой, с которой они знакомы ещё с начальных классов. Он уже давно влюблён в неё, но решился рассказать об этом накануне судьбоносного дня. Из-за страшной болезни юноша должен лечь в капсулу гибернации и уснуть на пять лет. Так он дождётся создания лекарства. На прощание Эриса обещает дождаться Рэйто. (   Читать дальше...   )Производство: Studio GokumiЖанр: приключения, эротикаРежиссер: Нобута ЮПеревод: Crunchyroll + Dniwe (на новые сцены)Язык озвучки: Японский и русский закадровый:Субтитры: Русские полные/надписиПродолжительность: 11 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B22ECDAE442CBDFE26434424078BE6EF4B06DAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852542   (1055922) от 08.02.2026
-
-Dead Leaves | Мёртвые листья: Звёздная тюряга [2004, Movie] WEB-DL 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Славная парочка отморозков — длинноногая секс-бомба Панди с красным пятном вокруг правого глаза, с которым она смахивает на панду, и её дружок Ретро со старинным телевизором вместо головы - просыпаются в открытом поле в чём мать родила и без малейшего понятия, как туда попали. Не долго думая, они отправляются в ближайший город в поисках еды и одежды, где устраивают (   Читать дальше...   )Производство: Япония, Production I.GЖанр: приключения, комедияРежиссер: Имаиси ХироюкиПеревод: WolframЯзык озвучки: Японский и РусскийСубтитры: Русские, АнглийскиеПродолжительность: 52 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9676D480D3830EDC28602A7651D03248EB1924CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851811   (1055391) от 04.02.2026
-
-Slayers Premium | Первосортные Рубаки [2001, Movie] BDRip 1064p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055391.jpg" />
-</div>
-
-
-###  Подробнее
-
-На берегу моря с давних пор стоит город прославившейся своими деликатесами из осьминогов. Данный факт просто не мог не заинтересовать столь прожорливых друзей как Лина и Гаури. Оказавшись в городе наши герои приступают к дегустации местных кулинарных шедевров. Но они ещё не знают, что над городом нависла тьма и её тёмные путы уже тянуться к ним. Что их ждёт? Как (   Читать дальше...   )Производство: Япония, HAL Film MakerЖанр: приключения, комедия, фэнтезиРежиссер: Сато ДзюнъитиЯзык озвучки: Русский закадровый (Get Smart Group - Persona99)Субтитры: ASS (Русский, Полные)Продолжительность: 32 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA78062FF6C6E630FF7395DF3C9AEACB0EC75E20
 ```
 
 https://mybot314.ru/tekegram_catalog/

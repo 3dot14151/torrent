@@ -1,3 +1,81 @@
+###  Публикация: 1560512   (519785) от 30.06.2022
+
+Мэри Лоусон | Воронье озеро (2022) [MP3, Мария Орлова]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519785.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Воронье озеро» — из тех редких литературных находок, что берут в плен сразу и бесповоротно, тихо, незаметно, но уверенно. Книга настолько эмоционально насыщенная и в то же время спокойная, что с первых же страниц становится ясно, что написать такое может только очень талантливый автор. Неторопливая, но полная огромного напряжения история разворачивается в «бесплодных (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 08:11:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E33BAF7EE09411CF260FBB221A4D0B8113608FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929740   (518457) от 20.08.2015
+
+Алексей Николаевич Толстой | Избранное. Повести и рассказы (1917-1944) (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518457.jpg" />
+</div>
+
+
+###  Подробнее
+
+После Октябрьской революции Толстой заинтересовался исторической тематикой. На материале 17-18 вв. написаны рассказы и повести «Наваждение» (1918), «День Петра» (1918), «Граф Калиостро» (1921), «Повесть смутного времени» (1922) и др. Кроме рассказа о Петре Первом, который строит Петербург, проявляя чудовищную жестокость к людям и оставаясь в трагическом одиночестве, (   Читать дальше...   )Жанр: Повести и рассказыПродолжительность: 27:28:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A3BADBB46F8BCDBA62500DCC0FE642531F90912
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929855   (518451) от 20.08.2015
+
+Борис Воробьев | Весьёгонская волчица (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Потомственный охотник-волчатник Егор жил среди природы, как жили его дед и прадеды: растил дочь, любил лес, охотился. Но однажды его жизнь пересеклась с жизнью необыкновенной волчицы. Человеку и зверю пришлось пройти через множество испытаний, которые навсегда изменили их. История, которая произошла между Егором и вожаком стаи – умной, опытной, а потому крайне опасной (   Читать дальше...   )Жанр: ПриключенияПродолжительность: 07:18:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19AB3D91D169D4C41FDD259B8FE33EAC5ED546BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314641   (518265) от 15.07.2019
 
 Даниэль Кельман | Ф (2019) [MP3]
@@ -6,7 +84,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518265.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517718.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517713.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517710.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517651.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517184.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516715.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516662.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515146.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515002.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514671.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513327.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512883.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512812.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512519.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511531.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511494.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510985.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510932.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510782.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510767.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509288.jpg" />
 </div>
 
 
@@ -584,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509118.jpg" />
 </div>
 
 
@@ -595,86 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B34100ECF77C57EC52349EEB74EB556877917587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316032   (508792) от 23.07.2019
-
-Фэйюй Би | Китайский массаж (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие романа разворачивается в массажном салоне Нанкина, где работают слепые мастера. Описывая каждого из пятнадцати своих героев, рассказывая о том, что для каждого из них означает быть слепым, что им пришлось пережить на своём веку и как им живётся сейчас, Би Фэйюй заставляет читателя сопереживать своим героям от начала до конца повествования.
-За роман "Китайский (   Читать дальше...   )Жанр: РоманПродолжительность: 12:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B78EBF3568453428519B0096040E65E37964828
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562725   (507906) от 10.07.2022
-
-Дана Делон | Шестое чувство (2022) [MP3, Анна Старкова]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эмма знает Адама с первого класса и влюблена в него всю жизнь. Они лучшие друзья и всё время проводят вместе, их даже в шутку называют M&M’s. Возможно, чувства Эммы взаимны?
-Лили очень страдает из-за развода родителей. Чтобы заглушить боль потери, она отправляется в Италию, где знакомится с очаровательным художником по имени Адам. Может ли мимолётное знакомство (   Читать дальше...   )Жанр: современные любовные романыПродолжительность: 09:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C29BAC312077B8275FB071EA3A6D18CA718C8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316199   (507759) от 24.07.2019
-
-Аньес Мартен-Люган | Однажды я станцую для тебя (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тонкая и лиричная история о попытке изменить свою жизнь и побороться за собственное счастье. Ортанс живет в Париже и преподает в балетной школе. Размеренную и довольно скучную жизнь несколько скрашивает Эмерик. Правда, Эмерик женат, и их встречи наполнены страстью ровно настолько, насколько наполнены они тоской скорого расставания и ощущением безнадёжности положения: (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 11:00:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB03E511D62B96E2E5AD631EAD95B077353FC7BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

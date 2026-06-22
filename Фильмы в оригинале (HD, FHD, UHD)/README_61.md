@@ -1,3 +1,133 @@
+###  Публикация: 1694723   (120804) от 26.01.2024
+
+Багажник: Запертая / Trunk: Locked In (2023) WEB-DL [H.264/1080p] [DE / RU, UKR, DE, EN and other Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Малина просыпается дезориентированной в багажнике мчащейся машины и к своему ужасу обнаруживает, что она ничего не помнит. Имея мобильный телефон в качестве единственной связи с внешним миром, она ведет отчаянную борьбу за выживание.Производство: Германия / Outside the ClubЖанр: драма, триллерРежиссер: Марк ШиссерАктеры: Зина Мартенс, Артём Гильц, Поал Каиро,  Луиза Хельм,  Чарльз Реттингхаус, Янина Захау, Кристоф КноблохПеревод: ОтсутствуетЯзык озвучки: НемецкийСубтитры: русские, украинские, немецкие (forced, SDH), английские и др.Продолжительность: 01:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81744B289AB1971273FBB7B0BCDB184F472970C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694997   (120685) от 27.01.2024
+
+Пустоши / Hwangya / Badland Hunters (2024) WEB-DL [H.264/1080p] [KOR / RU, UKR, KOR, EN and other Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три года назад мощное землетрясение превратило Сеул в развалины. Засуха и отсутствие чистой воды делают и без того непростое существование практически невыносимым — правда, ходят слухи, что где-то посреди руин стоит целехонький дом, где люди живут в достатке и даже принимают душ. Здоровяка Нам-сана не особо интересовали эти россказни, пока 18-летнюю Су-на, в которую (   Читать дальше...   )Производство: Корея Южная / Climax Studio, Lotte EntertainmentЖанр: боевик, фантастикаРежиссер: Хо Мён-хэнАктеры: Ма Дон-сок, Ли Хи-джун, Ли Джун-ён, Но Джон-и, Ан Джи-хе, Ким Ён-сонПеревод: ОтсутствуетЯзык озвучки: КорейскийСубтитры: русские, украинские, корейские (forced, SDH), английские (full, SDH) и др.Продолжительность: 01:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60CCA889698E1CE107F1A91662D82A5316A7F5EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695663   (120184) от 30.01.2024
+
+Пчеловод / The Beekeeper (2024) WEB-DL [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Адам Клэй живет в тихом пригороде, занимается разведением пчел и не распространяется о своей прошлой жизни. Пожилая соседка рада, что в их край приехал заинтересованный человек, улучшающий природу и экологию. Пасечник часто общается с милой миссис Паркер, которая однажды становится жертвой финансовых мошенников. Аферисты похищают деньги со всех счетов женщины, и (   Читать дальше...   )Производство: США, Великобритания / Cedar Park Entertainment, Miramax FilmsЖанр: боевик, триллерРежиссер: Дэвид ЭйрАктеры: Джейсон Стэйтем, Эмми Рэвер-Лэмпман, Бобби Надери, Джош Хатчерсон, Джереми Айронс, Дэвид Уиттс, Михаэль Эпп, Тейлор Джеймс, Филисия Рашад, Джемма РедгрейвПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (full, SDH)Продолжительность: 01:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:393D6529BBA1FB73464E203EADACD8C2A5058DEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695739   (120154) от 30.01.2024
+
+Опавшие листья / Kuolleet lehdet / Fallen Leaves (2023) BDRip [H.265/1080p] [10-bit] [FIN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120154.jpg" />
+</div>
+
+
+###  Подробнее
+
+История двух одиноких людей, которые случайно встречаются в ночном Хельсинки. Они пытаются найти первую и последнюю любовь в своей жизни.Производство: Финляндия, Германия / Arte G.E.I.E., BufoЖанр: драма, комедияРежиссер: Аки КаурисмякиАктеры: Альма Пёвсти, Юсси Ватанен, Алина Томникова, Мартти Суосало, Янне Хюютияйнен, Сакари Куосманен, Мария Хайсканен, Нуппу Койву, Шерван Хаджи, Паула ОйноненПеревод: ОтсутствуетЯзык озвучки: ФинскийСубтитры: русские, английскиеПродолжительность: 01:21:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E60A974093F087ED4D25F8654EE23ECAE20A6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696580   (119498) от 03.02.2024
+
+Радикальный / Radical (2023) WEB-DL [H.264/1080p] [SPA / RU, EN, SPA Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119498.jpg" />
+</div>
+
+
+###  Подробнее
+
+В приграничном мексиканском городе, посреди коррупции и разрухи, учитель применяет радикально новый метод раскрытия потенциала своих учеников.Производство: Мексика / 3Pas Studios, EPIC Magazine, Pantelion FilmsЖанр: драмаРежиссер: Кристофер ЗаллаАктеры: Эухенио Дербес, Дэниэл Хаддад, Jennifer Trejo, Mia Fernanda Solis, Danilo Guardiola, Хильберто Барраса, Victor Estrada, Manuel Márquez, Christian González, Xochiquetzal MartínezПеревод: ОтсутствуетЯзык озвучки: ИспанскийСубтитры: русские, английские, испанскиеПродолжительность: 02:05:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76274F3D52BFDA59BE51014045252CF3B035B3B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697553   (118873) от 07.02.2024
 
 Международная космическая станция / I.S.S. (2023) WEB-DL [H.264/1080p] [EN / EN Sub]
@@ -6,7 +136,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118873.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118847.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118703.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118534.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118325.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117719.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117432.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117098.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116926.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116752.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116594.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116591.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116401.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116071.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116061.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115423.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115252.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115201.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114923.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114256.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105143.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F31E03ECDFEDC8B10614F05AD3B5CADAF5E1B7DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785773   (69174) от 17.03.2025
-
-Ауто о сострадании / O Auto da Compadecida (2000) BDRip [H.264/720p] [POR / RU Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на одноимённой пьесе Ариано Суассуны с элементами других пьес Суассуны: «Призрак и свинья» и «Пытка сердца»... Жоао Сверчок – бедняк и бродяга. Его жизнь – сплошные приключения и череда нелепых ситуаций, в которые он попадает сам и втягивает всех окружающих, главным образом, богатых и сильных мира сего. Его друг Шико – верный спутник Жоао во всех его (   Читать дальше...   )Производство: Бразилия / Globo Filmes, Lereby ProductionsЖанр: фэнтези, комедияРежиссер: Гел АрраэсАктеры: Матеус Наштергейл, Селтон Меллу, Рожериу Кардозу, Денизе Фрага, Диогу Вилела, Луиш Мелу, Виржиния Кавендиш, Бруну ГарсияПеревод: субтитрамиЯзык озвучки: русский, португальскийСубтитры: русские (Scirocco 2011), английскиеПродолжительность: 01:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0859770E92889D9A645F39C7ABB88D91776F88A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821681   (63897) от 03.10.2025
-
-Стив / Steve (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63897.jpg" />
-</div>
-
-
-###  Подробнее
-
-1996 год, Великобритания. Однажды в исправительную школу для мальчиков приезжает съёмочная группа, чтобы снять о ней документальный фильм. Стив, директор школы, пытается спасти учреждение от закрытия на фоне правительственных реформ в сфере образования, но его собственное психологическое здоровье начинает вызывать тревогу. Пока документалисты пытаются узнать как (   Читать дальше...   )Производство: Ирландия, Великобритания / Big Things FilmsЖанр: драма, комедияРежиссер: Тим МилантсАктеры: Роджер Аллам, Luke Ayres, Joshua Barry, Чарльз Бивен, Лиэнн Эверитт, Archie Fisher, Маркус Гарви, Lois Haidar, Ahmed Ismail, Юссеф КеркурПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1EBE6E3960DB92A0B947F2A9A73015D33305ACB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705604   (63578) от 09.03.2024
-
-Рики Стэники / Ricky Stanicky (2024) WEB-DL [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двое друзей в детстве придумали приятеля по имени Рики Стэники, чтобы сваливать на него все проблемы. Со временем Рики помогает друзьям обманывать жен. Супруги едва не ловят своих благоверных на лжи, но те вовремя успевают нанять актера на роль Рики.Производство: СШA / Farrelly Films, Footloose Productions, Gerber PicturesЖанр: комедияРежиссер: Питер ФарреллиАктеры: Зак Эфрон, Джон Сина, Riley Stiles, Oscar Wilson, Gaius Nolan, Брайан Джарвис, Джеки Флинн, Кевин Дж. Флинн, Jasmine Anders, Лекс Скотт ДэвисПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (SDH)Продолжительность: 01:54:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40FD1E8BB8EDABBFC2E4C320285D3F9DC73A4CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705596   (63555) от 09.03.2024
-
-Дева и дракон / Damsel (2024) WEB-DL [H.264/1080p] [EN / RU, UKR, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63555.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новом фэнтези-фильме молодая женщина, думающая, что ее выдадут замуж за идеального принца, оказывается брошенной в яму, где обнаруживает, что она вовсе не принцесса, а жертва для умиротворения кровожадного дракона. Пытаясь выжить до тех пор, пока кто-нибудь не спасет ее, девушка вскоре понимает, что никто не придет, и спасаться придется самой.Производство: США / PCMA Productions, Roth/Kirschenbaum FilmsЖанр: фэнтези, боевик, приключенияРежиссер: Хуан Карлос ФреснадильоАктеры: Милли Бобби Браун, Рэй Уинстон, Анджела Бассетт, Брук Картер, Ник Робинсон, Робин Райт, Мило Твоми, Николь Джозеф, Патрис Найамбана, Улли ЭкерманнПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, украинские, английские (full, SDH)Продолжительность: 01:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECE7F4064F06A367A73EFC036BFD9D88DB2ECC6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705659   (63480) от 09.03.2024
-
-Мечта с подвохом / Американский мечтатель / American Dreamer (2022) WEB-DL [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фил - мечтатель. Большинство мечтаний не сбываются. Фил ненавидит это. Но это не мешает ему мечтать.Производство: США / Dektor Film, Estuary Films, Goldenlight FilmsЖанр: комедияРежиссер: Пол ДекторАктеры: Питер Динклэйдж, Ширли Маклейн, Мэтт Диллон, Дэнни Гловер, Мишель Майлетт, Дэнни Пуди, Гэрри Чак, Кимберли Куинн, Ребекка Олсон, С. Эрнст ХартПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (full, SDH)Продолжительность: 01:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18BD35B3F9D6F3DEE70BC1A208D29318A2B33D1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

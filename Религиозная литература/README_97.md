@@ -1,3 +1,107 @@
+###  Публикация: 1615203   (235774) от 25.02.2023
+
+Людмила Чуткова | Плакида: Житие и страдания святого великомученика Евстафия Плакиды, его супруги и чад (2011) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судьба святого великомученика Евстафия удивительным образом повторяет судьбу другого праведника – ветхозаветного Иова. Потерявший все, что так дорого каждому человеку: дом, имущество, любимую семью, святой Евстафий сохранил свою веру, и его упование на Бога не было посрамлено. Его житие лишний раз свидетельствует нам об истинности слов Христа, сказанных Им Своим (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57DC9F7E4893A61C2ECC582B12AF707CDBA54A5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615199   (235761) от 25.02.2023
+
+Монах Лазарь (Афанасьев) | Торжествующий дух (2011) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альманах посвящен жизни и духовным подвигам святых мучеников за Христа – членов царствовавшего в Российской Империи Дома Романовых. Это Государь-страстотерпец Император Николай II и его Семья – Царица Александра Феодоровна, дочери Ольга, Мария, Татиана и Анастасия и Цесаревич Алексий Николаевич (которому посвящен обширный документальный материал). Затем – Великий (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C452DD2723C3F14DFBF85FDFF7B3A63CDA045576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615197   (235740) от 25.02.2023
+
+Людмила Чуткова | Объяснение всенощного бдения и Божественной литургии (2014) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235740.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Мы настолько погружаемся в земную суету и попечения, что для обретения подлинной духовной свободы нам требуется очень продолжительное богослужение. Таковым и является всенощное бдение – оно совершается по вечерам накануне воскресных и праздничных дней и способно освободить нашу душу от мрака земных впечатлений, расположить к постижению духовного смысла праздника, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2950331974EC10F1CE252976F692A1A907725934
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458351   (235730) от 28.03.2021
+
+Сатисъ (изд.) | Акафисты, чтомые в семейных нуждах (2007) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235730.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге собраны акафисты Пресвятой Богородице и святым угодникам Божиим, которые согласно традициям Православной Церкви имеют от Бога особую благодать помогать верующим в различных семейных нуждах.Жанр: ПравославиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A121B1D4323C0CFE9E8D6BC2A0B814D5636B4D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641065   (235716) от 20.06.2023
 
 Архимандрит Андрей (Конанос) | Как стать счастливым. Беседы о радости (2020) [PDF]
@@ -6,7 +110,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235716.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235702.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235602.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235531.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235456.jpg" />
 </div>
 
 
@@ -142,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235420.jpg" />
 </div>
 
 
@@ -168,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235380.jpg" />
 </div>
 
 
@@ -194,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235339.jpg" />
 </div>
 
 
@@ -222,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235316.jpg" />
 </div>
 
 
@@ -250,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235267.jpg" />
 </div>
 
 
@@ -276,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234961.jpg" />
 </div>
 
 
@@ -302,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234934.jpg" />
 </div>
 
 
@@ -328,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234923.jpg" />
 </div>
 
 
@@ -354,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234919.jpg" />
 </div>
 
 
@@ -380,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234796.jpg" />
 </div>
 
 
@@ -406,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234719.jpg" />
 </div>
 
 
@@ -432,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234661.jpg" />
 </div>
 
 
@@ -458,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234658.jpg" />
 </div>
 
 
@@ -484,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234609.jpg" />
 </div>
 
 
@@ -510,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234501.jpg" />
 </div>
 
 
@@ -536,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234462.jpg" />
 </div>
 
 
@@ -562,7 +666,7 @@ Cтарец Иосиф Ватопедский | От смерти к жизни 
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234375.jpg" />
 </div>
 
 
@@ -573,110 +677,6 @@ Cтарец Иосиф Ватопедский | От смерти к жизни 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EED074CFE5F803B1E0E9B67DA2428832F48AC1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633585   (234256) от 16.05.2023
-
-Благовест | Святые апостолы Петр и Павел (2017) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234256.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге, посвященной святым первоверховным апостолам Петру и Павлу, представлены их жизнеописания и труды в деле созидания Церкви Христовой. Сборник также содержит отрывки из бесед святителя Иоанна Златоуста, посвященные личностям апостолов Петра и Павла, высказывания церковных деятелей разных эпох об апостолах, а также описание некоторых храмов и монастырей, названных (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EB612030B92FF69D7FB09D4AFD9B13D6BAB071E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633588   (234218) от 16.05.2023
-
-Фонд «Традиция» | Псалтирь с указанием чтения псалмов преподобного Арсения Каппадокийского и поучениями преподобного Паисия Святогорца (2020) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное издание, помимо древнего текста, содержит неоценимое наследие – опыт употребления Псалтири великими современными подвижниками – преподобными Арсением Каппадокийским и Паисием Святогорцем. Святые, читая псалмы во многих жизненных обстоятельствах: проблемах, болезнях, испытаниях, – совершали силою Божией истинные чудеса. В книге читатель сможет найти поучения (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:916F7EC17E2EFFE167F2F4C6678A3A1D1A1D7798
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633593   (234201) от 16.05.2023
-
-Фонд «Традиция» | Православный молитвослов с поучениями архимандрита Иоанна (Крестьянкина) (2020) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое издание молитвослова в удобном карманном формате содержит все необходимые молитвы: утреннее и вечернее правила, правило ко Святому Причащению, избранные акафисты, тропари и кондаки воскресные и на двунадесятые праздники, Часы Святой Пасхи. Также в настоящую книгу вошли разные молитвы, читаемые православным христианином в течение дня и в разных обстоятельствах (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43EF941F7AADE94EC9ABFF207284FA25A2E7C8A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644032   (234015) от 05.07.2023
-
-Никея | Святые отцы о церковных праздниках. В 11 томах (2018-2021) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Антология «Святые отцы о церковных праздниках» включает произведения разных традиций и эпох, византийских, латинских и русских авторов – от преподобного Ефрема Сирина до святителя Луки Крымского. Издание предваряет вводная статья П. Ю. Малкова, призванная в ясной и доступной форме познакомить читателя с важнейшими богословскими и нравственными особенностями святоотеческого (   Читать дальше...   )Издательство: НикеяЖанр: ПравославиеФормат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C56EBADD098C50FECD7A0BDF1C0B311BCE30863D
 ```
 
 https://mybot314.ru/tekegram_catalog/

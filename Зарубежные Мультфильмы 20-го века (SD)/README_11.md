@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583583.jpg" />
 </div>
 
 
@@ -38,7 +38,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576411.jpg" />
 </div>
 
 
@@ -69,7 +69,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_572597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_572597.jpg" />
 </div>
 
 
@@ -97,7 +97,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562823.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561459.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549055.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548062.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544480.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534370.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522797.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516502.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516498.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516491.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515418.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506877.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495289.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495286.jpg" />
 </div>
 
 
@@ -455,6 +455,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404284   (495283) от 24.08.2020
+
+Дорожные неприятности / Traffic Troubles (1931) DVDRip [H.264] [hand made colored] [EN sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_495283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Микки вышел на трассу в качестве таксиста. Его первый клиент - очень крупный джентльмен. Микки останавливает движение, и офицер полиции ругает его. Такси выезжает на плохую дорогу, почти полностью сбрасывает стоимость проезда, а затем выкидывает клиента прямо из кабины. Микки подъезжает к обочине и забирает своего второго пассажира, Минни. Она играет на аккордеоне, (   Читать дальше...   )Производство: США, The Walt Disney CompanyЖанр: Рисованная анимация, Музыкальный, Комедия, КороткометражныйРежиссер: Берт ДжиллеттПеревод: ОтсутствуетСубтитры: вшитые отключаемые, английскийПродолжительность: 00:07:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96FFB9F122940314F23167ACC0E282CF2B36DD94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 544050   (493733) от 06.09.2012
 
 Запад и содовая / West and soda (1965) DVDRip
@@ -463,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493733.jpg" />
 </div>
 
 
@@ -490,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493340.jpg" />
 </div>
 
 
@@ -516,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493334.jpg" />
 </div>
 
 
@@ -542,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491306.jpg" />
 </div>
 
 
@@ -568,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489746.jpg" />
 </div>
 
 
@@ -594,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489552.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489549.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487283.jpg" />
 </div>
 
 
@@ -657,32 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88DD7DD7F82991DB8329AAB71521ABBAFABE2D25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405031   (487121) от 28.08.2020
-
-Каперсы каннибала / Cannibal Capers (1930) DVDRip [H.264] [hand made colored] [EN sub]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один день из жизни каннибалов...Производство: США, The Walt Disney CompanyЖанр: Рисованная анимация, Музыкальный, Комедия, КороткометражныйРежиссер: Берт ДжиллеттПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: вшитые отключаемые, английскийПродолжительность: 00:05:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BC8EB184899FB51D354B48E7BA1BC38A153B482
 ```
 
 https://mybot314.ru/tekegram_catalog/

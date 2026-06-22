@@ -1,3 +1,31 @@
+###  Публикация: 997182   (875239) от 16.03.2016
+
+Future War 198X Nen | Future War Year 198X | Будущая война 198x-го года [1982, МV] LDrip 480p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для предотвращения ядерной войны, американские учёные создали спутник, оснащённый лазерным оружием. Однако из-за фатальной ошибки со стороны советского и американского правительств разразилась война, и человечество оказалось на грани исчезновения.
+
+©  ANNЖанр: драмаРежиссер: Масуда ТосиоПеревод: тюленьЯзык субтитров: русскийПродолжительность: 124 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8318BA2B7E6BA29F390CD660A8F946C8C83FC190
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 765443   (874235) от 12.03.2014
 
 Jigoku Sensei Nube / Hell Teacher Nube / Адский учитель Нубэ [1996-1998, TV+OVA+Movie] DVDRip raw
@@ -6,7 +34,7 @@ Jigoku Sensei Nube / Hell Teacher Nube / Адский учитель Нубэ [1
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874235.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ Munou na Nana | Talentless Nana | Бездарная Нана [2020, TV, 13 эп
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872858.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ Kuragehime / Princess Jellyfish / Принцесса-медуза [2010, 11 эп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872647.jpg" />
 </div>
 
 
@@ -85,7 +113,7 @@ Sousei Kishi Gaiarth / Genesis Survivor Gaiarth / Гайярт происхож�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870879.jpg" />
 </div>
 
 
@@ -111,7 +139,7 @@ Kanojo mo Kanojo | Girlfriend, Girlfriend | Мои девушки [2021, TV, 12 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870827.jpg" />
 </div>
 
 
@@ -137,7 +165,7 @@ Kanojo mo Kanojo | Girlfriend, Girlfriend | Мои девушки [2021, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870818.jpg" />
 </div>
 
 
@@ -163,7 +191,7 @@ D4DJ First Mix | Первый микс [2020, TV, 13 из 13] BDRip 1080p 10-bit
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869790.jpg" />
 </div>
 
 
@@ -189,7 +217,7 @@ Tantei wa Mou, Shindeiru. / The Detective Is Already Dead / Детектив у�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869224.jpg" />
 </div>
 
 
@@ -215,7 +243,7 @@ Ore, Tsushima | Я — Цусима [2021, TV, 12 эп.] WebRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869218.jpg" />
 </div>
 
 
@@ -241,7 +269,7 @@ Tokyo Revengers | Токийские мстители [2021, TV, 24 + SP] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869213.jpg" />
 </div>
 
 
@@ -267,7 +295,7 @@ Bakuman. 3 / Бакуман [ТВ-3] [2012, TV, 25] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868881.jpg" />
 </div>
 
 
@@ -293,7 +321,7 @@ Tsuujou Kougeki ga Zentai Kougeki de Nikai Kougeki no Okaasan wa Suki Desuka? | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868614.jpg" />
 </div>
 
 
@@ -319,7 +347,7 @@ Moetan / Моэтан [2007, TV, 11 + 3SP] BDRip 1080p x265 raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868225.jpg" />
 </div>
 
 
@@ -346,7 +374,7 @@ Kuma Kuma Kuma Bear | The Bears Bear a Bare Kuma | Ми-ми-ми-мишка [Т
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867883.jpg" />
 </div>
 
 
@@ -372,7 +400,7 @@ Girls Bravo / Браво, девушки! [2004, TV, 11 + 13 + SP] DVDRip 480p r
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867806.jpg" />
 </div>
 
 
@@ -401,7 +429,7 @@ Okusama wa Joshikosei / Wife is a High School Girl / Жена-школьница
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867801.jpg" />
 </div>
 
 
@@ -428,7 +456,7 @@ Hachimitsu to Clover | Honey and Clover | Мед и клевер (первый �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867288.jpg" />
 </div>
 
 
@@ -456,7 +484,7 @@ Shisha no Teikoku | The Empire of Corpses | Империя мертвых [2015,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865958.jpg" />
 </div>
 
 
@@ -482,7 +510,7 @@ Bakemono no Ko | The Boy and The Beast | Мальчик и Зверь [2015, MV]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865728.jpg" />
 </div>
 
 
@@ -510,7 +538,7 @@ Uchuu Patrol Luluco | Space Patrol Luluco | Космопатрульная Лу�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865600.jpg" />
 </div>
 
 
@@ -536,7 +564,7 @@ Stella no Mahou | Magic of Stella | Магия Стеллы [2016, TV, 12 эп.]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864131.jpg" />
 </div>
 
 
@@ -562,7 +590,7 @@ Www.Working!! | Www.Wagnaria!! [2016, TV, 12 эп.] HDTV 720p Hi10p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864037.jpg" />
 </div>
 
 
@@ -588,7 +616,7 @@ ViVid Strike! | Решающий Удар [2016, TV, 12 эп.] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864028.jpg" />
 </div>
 
 
@@ -614,7 +642,7 @@ Udon no Kuni no Kiniro Kemari | Udon no Kuni no Kin`iro Kemari | Poco's Udon Wor
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863913.jpg" />
 </div>
 
 
@@ -640,7 +668,7 @@ Yuuri!!! on Ice | Yuri!!! on Ice | Юрий на льду [2016, TV, 12 эп.] W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863799.jpg" />
 </div>
 
 
@@ -651,32 +679,6 @@ Yuuri!!! on Ice | Yuri!!! on Ice | Юрий на льду [2016, TV, 12 эп.] W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14CC761E4366607FEB2377D24E90F809046B2E0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031735   (863796) от 24.02.2017
-
-Hatsukoi Monster / First Love Monster / Монстр первой любви [2016, TV, 12 из 12] HDTVRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пятнадцатилетняя Кахо Никаидоу съезжает от родителей, чтобы поступить в старшую школу в Токио, самостоятельно заселиться в общежитие и вообще начать новую жизнь. И первым делом она чуть было не попадает под грузовик. В последний миг девушку спасает прекрасный незнакомец, в которого она немедленно влюбляется. Кахо выслеживает парня, загоняет в угол и признаётся в (   Читать дальше...   )Производство: Студия Studio DEEN / スタジオディーンЖанр: комедия, романтика, сёдзёРежиссер: Инагаки ТакаюкиПеревод: YakuSub (1-9), Abiga (10-12)Язык субтитров: Русский (отключаемый)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C68E40446895B01261ECCF6D6510F36E293465DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

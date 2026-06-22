@@ -1,3 +1,57 @@
+###  Публикация: 1265127   (276422) от 26.11.2018
+
+Мотылек / Papillon (2017) BDRip [720p] ATV
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Взломщик сейфов по прозвищу Мотылёк получает пожизненный срок и отправляется на каторгу за убийство, которого он не совершал. Когда вокруг враги, а надежда угасает с каждым днём заключения, лишь сила духа может помочь Мотыльку обрести свободу.Производство: Чехия, Испания, США /  Czech Anglo Productions, FishCorb Films, Red Granite PicturesЖанр: Триллер, Драма, Криминал, ДетективРежиссер: Михаэль НоерАктеры: Чарли Ханнэмm, Рами Малек, Роланд Мюллер, Йоэль Басман, Йорик ван Вагенинген, Майкл Сока, Кристофер Фэйрбэнк, Ив Хьюсон, Томми Флэнаган, Николас АсбариПеревод: Дублированный (iTunes)Субтитры: Английские (Full, SDH)Продолжительность: 02:13:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C904EA84D5D98AC340DB89695E38752AC87E196A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265046   (276414) от 26.11.2018
+
+WiFi Explorer Pro 2.1.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276414.jpg" />
+</div>
+
+
+###  Подробнее
+
+WiFi Explorer быстро определяет конфликты в каналах связи, overlapping сигнала или просто проблемы в конфигурации, которые мешают стабильной работе сигнала в беспроводной сети вашего офиса или дома.
+
+WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавляет набор функций, которые делают его подходящим инструментом для WLAN и ИТ-специалистов. Вы можете использовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.11.2018Разработчик: Adrian Granados-MurilloПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F056C8146E688E8E87E2701D847DDBB95FA1F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337253   (276382) от 09.11.2019
 
 Find Any File (FAF) 2.1 [En]
@@ -6,7 +60,7 @@ Find Any File (FAF) 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276382.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ PatterNodes 2 v2.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276379.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ EazyDraw 9 v9.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276378.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ Folder-Factory 5.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276377.jpg" />
 </div>
 
 
@@ -115,7 +169,7 @@ Disk Graph 2.1.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276375.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ Exposure Software Blow Up 3 v3.1.3.272 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276372.jpg" />
 </div>
 
 
@@ -168,7 +222,7 @@ Adobe Zii 2020 - Universal Patcher v5.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276369.jpg" />
 </div>
 
 
@@ -194,7 +248,7 @@ AirRadar 5 v5.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276336.jpg" />
 </div>
 
 
@@ -222,7 +276,7 @@ Tweak Photos 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276335.jpg" />
 </div>
 
 
@@ -250,7 +304,7 @@ Exposure Software Snap Art 4 v4.1.3.268 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276325.jpg" />
 </div>
 
 
@@ -276,7 +330,7 @@ IP Scanner Pro 3.91 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276315.jpg" />
 </div>
 
 
@@ -303,7 +357,7 @@ Tipard Mac Video Enhancer 9.1.22 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276312.jpg" />
 </div>
 
 
@@ -331,7 +385,7 @@ Exposure Software Eye Candy 7 v7.2.3.85 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276309.jpg" />
 </div>
 
 
@@ -357,7 +411,7 @@ Wifi Signal Strength 1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276242.jpg" />
 </div>
 
 
@@ -384,7 +438,7 @@ Feeder 3.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276113.jpg" />
 </div>
 
 
@@ -412,7 +466,7 @@ PaintCode 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276110.jpg" />
 </div>
 
 
@@ -440,7 +494,7 @@ Short Menu 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276089.jpg" />
 </div>
 
 
@@ -469,7 +523,7 @@ BBEdit 11.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276086.jpg" />
 </div>
 
 
@@ -495,7 +549,7 @@ AnyTrans 5.3.0 (20161212) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276025.jpg" />
 </div>
 
 
@@ -522,7 +576,7 @@ Adobe Audition 2020 13.0.0.519 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275989.jpg" />
 </div>
 
 
@@ -548,7 +602,7 @@ Exif Editor 1.1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275981.jpg" />
 </div>
 
 
@@ -576,7 +630,7 @@ iFinance 4.1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275922.jpg" />
 </div>
 
 
@@ -602,7 +656,7 @@ Lyn 1.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275908.jpg" />
 </div>
 
 
@@ -631,7 +685,7 @@ Pixelmator Pro 1.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275849.jpg" />
 </div>
 
 
@@ -644,60 +698,6 @@ Pixelmator Pro предлагает широкий спектр професси
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A6D39C716759E916EA7E7C86683F002F6134F5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082935   (275793) от 14.12.2016
-
-iMazing 2.1.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275793.jpg" />
-</div>
-
-
-###  Подробнее
-
-iMazing: отличная альтернатива iTunes
-Согласитесь, iTunes – отличный инструмент для работы с iДевайсами и медиафайлами, однако в нем чего-то не хватает. Разобраться, чего именно, решили разработчики софтины iMazing, которая не только может стать шикарной заменой «яблочному» сервису, но и неотъемлемым инструментом для полноценного функционирования вашего iPhone или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13 декабря 2016Разработчик: DigiDNAПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF68E3F9A5F783A50AA15AFA28B76BF74BE3DD23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233476   (275760) от 09.11.2019
-
-Dead Cells v.1.5 (2018) [Multi/Ru] [macOS Native game]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275760.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Roguelite»? «Метроидвания»? Все сразу!
-Вы выросли на играх в жанре «roguelike»? Стали свидетелем расцвета более простых «roguelite» и их еще более упрощенных версий? Что ж, тогда мы рады представить игру в новом жанре RogueVania, который сочетает в себе черты игры «roguelite» (Rogue Legacy, Binding of Isaac, Enter the Gugneon, Spelunky…) и старых добрых «Метроидваний» (   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 2018Разработчик: Motion TwinПоддерживаемая ОС: 10.9 +Жанр: ЭкшенЯзык интерфейса: русский, английский, французский +
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5858F230FF3E62192B6DC70C72FA137896BFE28B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,59 @@
+###  Публикация: 1248248   (444672) от 19.09.2018
+
+BitMedic® Pro Antivirus 2.7 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444672.jpg" />
+</div>
+
+
+###  Подробнее
+
+macOS считается одной из самых безопасных доступных операционных систем. Но, как популярность увеличивается, они начинают получать атаки хакеров и вредоносных программ. Защитите свой Mac и защитите вашу конфиденциальную информацию. Новые угрозы нацелены не только на вашу безопасность Mac, но и на вашу личную информацию и личность.
+
+BitMedic Pro Antivirus был разработан (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.09.2018Разработчик: Pocket Bits LLCПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CE8C09A9F7BD47603FD47C02ADBC773F4A4C8B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164105   (444278) от 08.09.2017
+
+Command-Tab Plus 1.2 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Command-Tab Plus - это удобный и быстрый переключатель приложений для Мак. Максимально ориентирован на работу "с клавиатуры" и благодаря использованию цифровых ярлыков а так же скрытию неактивных приложений, переключении между приложениями занимает существенно меньше времени.
+
+Так же обратите внимание на возможность "изолировать" приложения в (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.09.2017Разработчик: Sergii GerasimenkoПоддерживаемая ОС: OS X 10.6.0 или более новаяЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA8BF1CFF46F21E71DC8FC08511A95EBA62981F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1062120   (444264) от 12.10.2016
 
 Goldfish Professional 4.2 [En]
@@ -6,7 +62,7 @@ Goldfish Professional 4.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444264.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ DayLite 6.0.7 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444251.jpg" />
 </div>
 
 
@@ -60,7 +116,7 @@ Video Editor Enhancer 1.0.29 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444245.jpg" />
 </div>
 
 
@@ -86,7 +142,7 @@ Amarra Luxe 4.0.295 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443477.jpg" />
 </div>
 
 
@@ -112,7 +168,7 @@ TouchCopy 16.40 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443275.jpg" />
 </div>
 
 
@@ -141,7 +197,7 @@ HardwareGrowler 2.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443272.jpg" />
 </div>
 
 
@@ -168,7 +224,7 @@ Video Plus 1.2.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442393.jpg" />
 </div>
 
 
@@ -194,7 +250,7 @@ Fantastical 2 - Calendar and Reminders 2.2.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441961.jpg" />
 </div>
 
 
@@ -221,7 +277,7 @@ Mountain Duck 1.5.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441957.jpg" />
 </div>
 
 
@@ -249,7 +305,7 @@ Kardnote - Daily Note-Taking with Markdown 1.0.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441843.jpg" />
 </div>
 
 
@@ -278,7 +334,7 @@ Business Card Shop 7.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441762.jpg" />
 </div>
 
 
@@ -306,7 +362,7 @@ Mountain Duck 2.0.0 (7169) [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441514.jpg" />
 </div>
 
 
@@ -334,7 +390,7 @@ CrossOver 15.3.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441405.jpg" />
 </div>
 
 
@@ -363,7 +419,7 @@ qBittorrent 3.3.16 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441317.jpg" />
 </div>
 
 
@@ -389,7 +445,7 @@ Deliveries 3.2.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440959.jpg" />
 </div>
 
 
@@ -415,7 +471,7 @@ Glyphs 3 v 3.1.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440480.jpg" />
 </div>
 
 
@@ -442,7 +498,7 @@ Publisher Plus 1.7.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439813.jpg" />
 </div>
 
 
@@ -470,7 +526,7 @@ Micromat ATOMIC 1.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439801.jpg" />
 </div>
 
 
@@ -499,7 +555,7 @@ BitMedic AntiVirus - Malware & Adware Security 2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439419.jpg" />
 </div>
 
 
@@ -527,7 +583,7 @@ SopoTube for YouTube + AdBlock 1.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439316.jpg" />
 </div>
 
 
@@ -553,7 +609,7 @@ Data Rescue Pro 4.3.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438786.jpg" />
 </div>
 
 
@@ -581,7 +637,7 @@ MaCleaner X 14.5.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438502.jpg" />
 </div>
 
 
@@ -608,7 +664,7 @@ TeoreX PhotoStitcher 3.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438472.jpg" />
 </div>
 
 
@@ -635,7 +691,7 @@ DMG Master 2.9.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438375.jpg" />
 </div>
 
 
@@ -647,61 +703,6 @@ DMG Master представляет собой простое и оптимиз�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDC9200E50E61F1EAB2D8EF5E00AE0E7669D335E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570810   (438292) от 19.08.2022
-
-Teorex Inpaint 9.2.2 U2B [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Teorex Inpaint – удалить человека или объект с фото.
-Inpaint - приложение, которое позволяет умно удалять нежелательные элементы на цифровой фотографии, такие как ненужные объекты, текст, случайно попавшие элементы, а также пыль, рекламу, мусор, царапины и грязь. Весь процесс в программе максимально автоматизирован, вам всего-то нужно пометить нежелательный объект, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.08.2022Разработчик: © 20011-2021 Maxim GapchenkoПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:439BF149DDFA4850D996A274AFF48EB9C0E51FC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248933   (437679) от 22.09.2018
-
-Aiseesoft Mac Video Downloader 3.3.6 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загружайте видео (даже 4K видео) с популярных сайтов обмена видео на Mac и конвертируйте загруженные видеофайлы в любой широко используемый видеоформат.
-
-Этот всеобъемлющий загрузчик видео для Mac - это профессиональное программное обеспечение, позволяющее загружать онлайн-видео с крупных потоковых видеосайтов, таких как YouTube, Vimeo, Facebook, Metacafe, Dailymotion, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: AiseesoftПоддерживаемая ОС: macOS X 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E553D087C38F4DD09635408C91B1DA53FF18CA9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

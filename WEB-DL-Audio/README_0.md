@@ -6,7 +6,7 @@ Sundayman - Melodyssey (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <New Age>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187149.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Henry Hall - I Feel Amazing (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186836.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Soft Riot - No. (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Punk, Minimal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186828.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Kim Petras - Problématique (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186748.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Queen - The Miracle (Collectors Edition) (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186714.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Dayshell - Pegasus (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Hardcore, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186597.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Turn Me On Dead Man - Cassiopeia (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186591.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ SDH (Semiotics Department of Heteronyms) - Fake Is Real (2023) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186588.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ CHI - I've Seen The Lizard People (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Al
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_186584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186584.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Vengeance - Sewer Surge (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Spe
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186485.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Eva Under Fire - Love, Drugs & Misery (2022) Deluxe Edition, 2023, Better Noise 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186457.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ yeule - softscars (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Synthpop, cyber go
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186437.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Taylor Acorn - Certified Depressant (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_186238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186238.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Ronin - Valak the Defiler (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186055.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Thibaut García - El Bohemio (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186044.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Royal Academy of Music Soloists Ensemble, Trevor Pinnock, The Glenn Gould School
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186025.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185948.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ The First Gentlemen - Vertices (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184934.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Fantasy - Das Beste (2023) Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_184910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_184910.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Joel Corry - Another Friday Night (2023) [FLAC 16-24/44.1-48] Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184829.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Autograf - Affirmations (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, Pro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184770.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ LP Giobbi - Light Places (2023) Deluxe Edition [FLAC 24/44.1/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184759.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Cee Muller - Spectrum of Emotions (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184006.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Night In Gales - The Black Stream (2023) [FLAC 24/44.1|WEB-DL|tracks] <Death Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183341.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Vera Bloom - It's Me (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <garage rock, gr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183300.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Jethro Tull - RökFlöte (RokFlote) (Alternative Mixes) (2023) [FLAC 24/48|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183257.jpg" />
 </div>
 
 

@@ -1,3 +1,110 @@
+###  Публикация: 1448832   (245644) от 19.02.2021
+
+Finer Focus 1.4 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Finer Focus - это идеальное средство улучшения рабочего стола, которое может значительно уменьшить или даже устранить все визуальные отвлекающие факторы рабочего стола. И вам, без помех легче будет проявлять творческий подход, легче сосредотачиваться, легче добиваться результатов. Кроме того, кинематографическая атмосфера, которую создает Finer Focus, просто делает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.02.2021Разработчик: SpriTec Software.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B82B8A4C00C22785AA1C37D42CCF8042E14B94CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540083   (245643) от 28.03.2022
+
+Carbon Copy Cloner 6 v6.1.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Carbon Copy Cloner - утилита для клонирования дисков и резервирования данных, пользующаяся заслуженной популярностью у пользователей Mac OS X, благодаря высокой скорости работы и простому интерфейсу.
+Новая версия может похвастаться абсолютно новым пользовательским интерфейсом, а также рядом добавленных функций и возможностью редактирования запланированных задач и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.03.2022Разработчик: © 2022 Bombich Software, IncПоддерживаемая ОС: OS X 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDF47350B77EEC5F6180CBB5FFD552EFDCA48692
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512433   (245635) от 24.11.2021
+
+Hostbuddy 2.2.5 fix [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hostbuddy это самый простой способ для управления и обновления файлов /etc/hosts на вашем Mac. Добавьте новые записи или редактируйте старые одним щелчком мыши . Это идеально подходит для переключения между промежуточными и производственными серверами или просто для тестирования своего нового веб-сайта, прежде чем он будет опубликован в прямом эфире.Тип издания: macOS SoftwareРелиз состоялся: 21.11.2020Разработчик: © 2021 Click On TylerПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E454F0AD229B9B807A8F241334FD40CDAF72F298
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058370   (245552) от 01.10.2016
+
+NotesTab Pro 5.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245552.jpg" />
+</div>
+
+
+###  Подробнее
+
+NotesTab - очень простое и удобное приложение (замечательная замена нативным заметкам), которое находится в строке меню и по горячей клавише всегда под рукой. Симпатичный интерфейс, темы которого можно менять (только в версии Pro), а простой поиск быстро найдет любой текст, даже, если заметок очень много, а так же синхронизирует данные в облачное хранилище.
+
+В версии (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.06.2016Разработчик: FIPLAB LtdПоддерживаемая ОС: OS X 10.8 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3A1AB4A6E2297D5923E3B6B56E8C24282DF7E4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512448   (245519) от 24.11.2021
 
 Optimage 3.5.0 [En]
@@ -6,7 +113,7 @@ Optimage 3.5.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245519.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Type Fu 4.8.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245455.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ TextBar 3 v3.5.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245428.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ Sketch n Cartoonize 3.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245384.jpg" />
 </div>
 
 
@@ -110,7 +217,7 @@ Sketch 95.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245367.jpg" />
 </div>
 
 
@@ -136,7 +243,7 @@ FoneLab Video Converter Ultimate 9.2.30 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245314.jpg" />
 </div>
 
 
@@ -162,7 +269,7 @@ Task Office 8.9 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245308.jpg" />
 </div>
 
 
@@ -188,7 +295,7 @@ MarsEdit 5.0.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245242.jpg" />
 </div>
 
 
@@ -214,7 +321,7 @@ Creative Convert 1.4.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245173.jpg" />
 </div>
 
 
@@ -240,7 +347,7 @@ Apeaksoft Blu-ray Player for Mac 1.1.70 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245166.jpg" />
 </div>
 
 
@@ -267,7 +374,7 @@ SQLPro for SQLite 2022.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245144.jpg" />
 </div>
 
 
@@ -293,7 +400,7 @@ Batch Rename & Convert Photos for Mac 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245137.jpg" />
 </div>
 
 
@@ -321,7 +428,7 @@ Record It - Screen Recorder 1.5.4 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245099.jpg" />
 </div>
 
 
@@ -347,7 +454,7 @@ Aiseesoft Mac Blu-ray Player 6.6.28 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245055.jpg" />
 </div>
 
 
@@ -373,7 +480,7 @@ BetterZip 5 v5.0.3 CR2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244989.jpg" />
 </div>
 
 
@@ -400,7 +507,7 @@ Mirror for Grundig TV 3.5.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244972.jpg" />
 </div>
 
 
@@ -426,7 +533,7 @@ DSLR Assistant 3.9.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244964.jpg" />
 </div>
 
 
@@ -454,7 +561,7 @@ Gemini 2: The Duplicate Finder 2.9.8 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244642.jpg" />
 </div>
 
 
@@ -481,7 +588,7 @@ Home Business Card 1.7.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244562.jpg" />
 </div>
 
 
@@ -508,7 +615,7 @@ CD DVD Label Maker 2.6.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244536.jpg" />
 </div>
 
 
@@ -534,7 +641,7 @@ Paw (HTTP & REST Client) 3.3.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244505.jpg" />
 </div>
 
 
@@ -561,7 +668,7 @@ AnyRec Video Converter for Mac 1.0.28 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244450.jpg" />
 </div>
 
 
@@ -572,111 +679,6 @@ AnyRec Video Converter — это универсальное решение, к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:165C738A4160C54A92210F2ADDDE160FFBCEE5F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452617   (244440) от 07.03.2021
-
-Magic Media Marker 3.3 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Magic Media Marker - это инструмент для автоматизации обработки видеофайлов, чтобы сделать их удобными для просмотра в iTunes или TV.app и на ваших устройствах Apple. Загрузите в  Magic Media Marker видеофайл, и он автоматически определит, является ли файл телешоу или фильмом, по имени файла и загрузит для вас соответствующие метаданные и иллюстрации. Magic Media (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.03.2021Разработчик: Funk-iSoft LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C389F05AE79EEDF33B5896DEF361516F0B24C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567139   (244325) от 01.08.2022
-
-NeoFinder Business 8.1.2 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для каталогизации мультимедийного контента, хранящегося на локальных и внешних дисках, CD/DVD-дисках и других носителях. NeoFinder каталогизирует все данные, что позволяет полностью контролировать коллекцию файлов.Тип издания: macOS SoftwareРелиз состоялся: 01.08.2022Разработчик: © 2022 West-Forest-SystemsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C5C82AE420743D45B4F8D1EB9B5EB6DB90B0697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622044   (244193) от 27.03.2023
-
-WALTR PRO 4.0.115 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Waltr Pro разработан, чтобы упростить преобразование и передачу любых музыкальных или видеофайлов в формат iPad или iPhone для собственного воспроизведения. Он поддерживает огромное количество типов медиафайлов, включая MP3, MP4, AVI, CUE, WMA, M4R, AAC, M4V, M4A, FLAC, ALAC, MKV и другие. Он даже поддерживает типы файлов, которые обычно не совместимы с iOS, включая (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.03.2023Разработчик: © 2022 Softorino Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FE4C9ED6D30E5721E4F5ABA944104992EF7684D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536594   (244107) от 12.03.2022
-
-FontLab 7 v7.2.0.7649 Beta [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244107.jpg" />
-</div>
-
-
-###  Подробнее
-
-FontLab - профессиональный редактор шрифтов. Программа ориентирована на печатников, профессиональных дизайнеров, художников-шрифтовиков и студии, занимающиеся графическим дизайном. FontLab Studio обеспечивает широкий выбор функциональных средств для создания, обработки и модификации шрифтов категорий Type 1, TrueType, Multiple Master и OpenType.
-По словам специалистов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.03.2022Разработчик: © 2015–2021 by Fontlab Ltd, Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CDB36368640C95EAD3C5FABB94FCC92FE60A023
 ```
 
 https://mybot314.ru/tekegram_catalog/

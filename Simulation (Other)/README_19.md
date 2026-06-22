@@ -1,55 +1,3 @@
-###  Публикация: 1689453   (124704) от 02.01.2024
-
-Islanders (2019) [Ru/Multi] (1.04) License GOG
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Затягивающая и очень атмосферная стратегия, созданная в стиле 3D платформера с элементами многочисленных головоломок. Весь игровой процесс представлен в виде градостроительного симулятора в очень минималистическом стиле. Нам предстоит развивать своё уникальное государство на совершенно вымышленных и очень красочных островах. Каждая такая локация генерируется случайным (   Читать дальше...   )Тип издания: LicenseРазработчик: Coatsink, GrizzlyGames, Stage Clear StudiosЖанр: Казуальные игры, Инди, СтратегииЯзык субтитров: Русский, Английский, Немецкий , Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий , Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ACAB0E0C015408F0B1BCB71A472AE03FD1CAEC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690714   (123858) от 08.01.2024
-
-Booze Masters: Freezing Moonshine (2023) [Ru/Multi] (5150) License GOG
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возьмите на себя роль Квеллы, начинающей влиятельной особы, которая хочет стать независимой от своего презренного босса. Booze Masters: Freezing Moonshine - это исследовательское приключение, смешанное с экономической игрой, большой дозой абстрактного юмора и большим количеством выпивки. Под руководством гениального самогонщика вы научитесь создавать такие алкогольные (   Читать дальше...   )Тип издания: LicenseРазработчик: AsmodevЖанр: Simulation, Building, ExplorationЯзык озвучки: Английский, ПольскийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C79B27E7DB927003C1CF9E0E550BD0206E81ECE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690615   (123856) от 08.01.2024
 
 The Faraway Land (2024) [Ru/Multi] (1.0) Scene Tenoke
@@ -58,7 +6,7 @@ The Faraway Land (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123856.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Arma Reforger (2023) [Ru/Multi] (1.0.0.80) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123497.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Beer Factory (2024) [Ru/Multi] (build 69) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123200.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Computer Repair Shop (2024) [Ru/Multi] (1.01) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123009.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Grand Emprise: Time Travel Survival (2023) [Ru/Multi] (20230809) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122101.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Animal Shelter (2022) [Ru/Multi] (1.3.17/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121780.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ Farming Simulator 22 (2021) [Ru/Multi] (1.13.1.1/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121379.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Victory At Sea Pacific (2018) [Ru/Multi] (1.14.2) License GOG (обновляе�
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120910.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ Fishing: North Atlantic (2020) [Ru/Multi] (1.8.1151.18467/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119581.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ Spells and Secrets / Spells & Secrets (2023) [Multi] (1.0.3) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119010.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ BeachHead (2024) [En] (1.3.25) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118895.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ Don't Pee (2024) [En] (1.0.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118668.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ Slot Shots Pinball (2024) [En] (1.0) Scene Skidrow [Ultimate Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118364.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ My Recycling Center (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118203.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ Exotica: Petshop Simulator (2024) [Multi] (1.0.6) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118191.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ Slot Shots Pinball (2024) [En] (1.0) Repack FitGirl [Ultimate Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117858.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ Siberian Village (2024) [Ru/Multi] (0.97) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116955.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ Plane Mechanic Simulator (2019) [Ru/Multi] (15.02.2024) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116110.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ Firefrost (2024) [En] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115928.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ Bus World (2022) [Ru/Multi] (2.3.2) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115094.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (1.0.0.0/dlc) Repack DjDI [Supre
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114967.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ Bridge Constructor Portal (2017) [Ru/Multi] (001.04/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114908.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ Homeseek (2023) [Ru/Multi] (1.0.9) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114773.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ The Brew Barons (2024) [En] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114585.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ The Brew Barons приглашает в мир, охваченный беспо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D346663C6F804A071E4602A3920F25E87498D344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704476   (114426) от 04.03.2024
+
+Run Pizza Run (2024) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как долго вы ждали доставщика сочной и вкусной пиццы? Добро пожаловать в мир скорости, адреналина и вкуснейшей пиццы! В "Run Pizza Run" вы окажетесь в роли отважного доставщика, который отправляется в опасное приключение, чтобы доставить свежую пиццу по указанным точкам. Однако, на вашем пути стоят не только голодные клиенты, но и беспощадные дорожные монстры (   Читать дальше...   )Тип издания: LicenseРазработчик: IZI GamesЖанр: Экшены, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7799F70B75A87031543E1BF1B161802FE01F6FD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711641   (112424) от 31.03.2024
+
+MUSYNX (2018) [Multi] (1.0/dlc) Scene PLAZA
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112424.jpg" />
+</div>
+
+
+###  Подробнее
+
+MUSYNX пришла на компьютеры с мобильных устройств. Продукт является ритм-игрой, выполненной в стилистике аниме. В тайтле есть 2 режима графики: трехмерная и двухмерная. Между ними можно постоянно переключаться. В первом случае камера будет расположена сзади под углом, а во втором – чётко сверху. Геймплей в MUSYNX выглядит следующим образом. В сторону юзера сверху (   Читать дальше...   )Тип издания: SceneРазработчик: I-InfernoЖанр: Инди, СимуляторыЯзык субтитров: Английский, Японский, Китайский, КорейскийЯзык интерфейса: Английский, Японский, Китайский, Корейский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A7C7828A09338AB7B84D98170361FDF077C65B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

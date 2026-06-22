@@ -1,3 +1,30 @@
+###  Публикация: 944047   (444430) от 05.10.2015
+
+Winclone Pro 5.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утилита Winclone. Или как проще всего клонировать Windows на Mac..
+По непонятным  причинам стандартная Дисковая утилита не работает с Windows разделами на Mac OS X: ошибки во время создания или восстановления образа не дают завершить процесс, из-за чего утилита становится бесполезной при работе с Boot Camp разделами. Такая всемирно известная утилита для клонирования (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 сентября 2015Разработчик: Twocanoes Software, Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4FCD7E19312B5C5D4196D9F30A87C68C8736270
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1248262   (444307) от 19.09.2018
 
 Keka 1.1.4 [Multi/Ru]
@@ -6,7 +33,7 @@ Keka 1.1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444307.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ Watermark Sense - Flexible batch watermarking 1.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444260.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ FxFactory Pro 5.0.6 (4702) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444241.jpg" />
 </div>
 
 
@@ -88,7 +115,7 @@ OmniGraffle Pro 7.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444076.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ MindNode 2.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444074.jpg" />
 </div>
 
 
@@ -143,7 +170,7 @@ InternetSpeedTest (Internet Speed Test Meter Net) 2.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443924.jpg" />
 </div>
 
 
@@ -172,7 +199,7 @@ Glyphs 2.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443650.jpg" />
 </div>
 
 
@@ -199,7 +226,7 @@ Path Finder 7.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443627.jpg" />
 </div>
 
 
@@ -225,7 +252,7 @@ Wondershare Filmora 8.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443497.jpg" />
 </div>
 
 
@@ -251,7 +278,7 @@ AirServer 4.5 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_443416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_443416.jpg" />
 </div>
 
 
@@ -278,7 +305,7 @@ Permute 3 v3.5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443340.jpg" />
 </div>
 
 
@@ -304,7 +331,7 @@ OmniGraffle Pro 7 v7.17.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443136.jpg" />
 </div>
 
 
@@ -330,7 +357,7 @@ Adobe Zii 2020 - Universal Patcher 5.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443020.jpg" />
 </div>
 
 
@@ -356,7 +383,7 @@ Things 3 v3.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442848.jpg" />
 </div>
 
 
@@ -384,7 +411,7 @@ Dejal Simon 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442678.jpg" />
 </div>
 
 
@@ -410,7 +437,7 @@ File Cabinet Pro 6.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442674.jpg" />
 </div>
 
 
@@ -436,7 +463,7 @@ Calendar 366 II 2.3.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442673.jpg" />
 </div>
 
 
@@ -464,7 +491,7 @@ Mail Designer Pro 2 (2.5.1) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442658.jpg" />
 </div>
 
 
@@ -492,7 +519,7 @@ PopChar X 8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442561.jpg" />
 </div>
 
 
@@ -518,7 +545,7 @@ DaVinci Resolve Studio 16 v16.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442543.jpg" />
 </div>
 
 
@@ -547,7 +574,7 @@ Macsome iTunes Converter 2.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442536.jpg" />
 </div>
 
 
@@ -574,7 +601,7 @@ Camtasia v2018.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442531.jpg" />
 </div>
 
 
@@ -600,7 +627,7 @@ SiteSucker 2.11.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442414.jpg" />
 </div>
 
 
@@ -629,7 +656,7 @@ Adobe Illustrator 2020 24.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442362.jpg" />
 </div>
 
 
@@ -655,7 +682,7 @@ Adobe Photoshop Lightroom Classic 2020 9.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442227.jpg" />
 </div>
 
 
@@ -666,34 +693,6 @@ Adobe Photoshop Lightroom - незаменимая программа при р�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D52D7CFCA81306D6FC78D2F4D33400D598187A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062360   (442159) от 13.10.2016
-
-Lyn 1.8.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легкий, быстрй и удобный просмотрщик изображений, созданный в первую очередь для фотографов, иллюстраторов и графических дизайнеров.
-
-Lyn поддерживает все популярные графические форматы такие как JPEG, TIFF, JPEG 2000, PNG, TGA, RAW, HDR, OpenEXR, PPM, анимированный GIF и любой другой формат изображения, поддерживаемый Mac OS X.Тип издания: OS X SoftwareРелиз состоялся: 10 октября 2016Разработчик: Mirko VivianiПоддерживаемая ОС: OS X 10.7.4 +Язык интерфейса: Русский, Английский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:202869727A3334BC582AAC4247A7CE2646D21DE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,102 +1,3 @@
-###  Публикация: 385291   (476263) от 09.09.2011
-
-VA - Les Inoubliables Chansons (1996) [FLAC|Lossless]<French Shanson>
-
->>Шансон, Авторская и Военная песня
->>Зарубежный Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_476263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Edith Piaf – Non, je ne Regrette Rien
-02. Gilbert Becaud – Je Reviens te Chercher
-03. Jean Ferrat – Aimer a Perdre le Raison
-04. Juliette Greco – Les Feuilles Mortes
-05. Michel Delpech – Pour un Flirt
-06. Salvatore Adamo – La Nuit
-07. Christophe – Je Vous Salue, Madame
-08. Joe Dassin – Siffler Sur la Colline
-09. Enrico Macias – Oh, Guitarre, Guitarre!
-10. Mireille Mathieu – La Derniere Valse(   Читать дальше...   )1996Жанр: French ShansonПродолжительность: 02:25:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246272   (465461) от 09.09.2018
-
-Lio - Je Suis Comme Ca (2000) [FLAC|Lossless|image + .cue] <French, Pop, Chanson, Jazz>
-
->>Шансон, Авторская и Военная песня
->>Зарубежный Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465461.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 C'était L'été 2:13
-2 Dieu Et Diable (En Duo Avec Guy Marchand) 2:30
-3 Je Suis Comme Je Suis 3:59
-4 Il Y A La Nuit 3:21(   Читать дальше...   )Жанр: French, Pop, Chanson, JazzПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FB01588CD7C07C342D14E4844725D5088528F2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552900   (445523) от 27.09.2012
-
-Patricia Kaas - 6 Студийных альбомов (1988 - 2002) /Japan/ [FLAC|Lossless]<Shanson, Pop>
-
->>Шансон, Авторская и Военная песня
->>Зарубежный Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_445523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Man (Mon Homme)
-02. If You Go Away (Ne Me Quitte Pas)
-03. What Now My Love (Et Maintenant)
-04. Un Homme Et Une Femme
-05. The Summer Knows (Un Ete 42)
-06. I Wish You Love (Que Reste-t-il De Nos Amours)
-07. Yesterday When I Was Young (Hier Encore)
-08. Les Moulins De Mon Coeur (The Windmills Of Your Mind)
-09. Autumn Leaves (Les Feuilles Mortes)
-10. Where Do I Begin (Love Story)(   Читать дальше...   )Жанр: Shanson, PopПродолжительность: 00:56:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252548   (408987) от 05.10.2018
 
 Charles Aznavour - Duos (2008)(2CD) [FLAC|Lossless|image + .cue] <Chanson>
@@ -105,7 +6,7 @@ Charles Aznavour - Duos (2008)(2CD) [FLAC|Lossless|image + .cue] <Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408987.jpg" />
 </div>
 
 
@@ -126,41 +27,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 563174   (404442) от 21.10.2012
-
-Mireille Mathieu - Platinum Collection (2005) [FLAC|Lossless]<Pop, Chanson>
-
->>Шансон, Авторская и Военная песня
->>Зарубежный Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bravo, Tu As Gagne [04:41]
-02. Tu Chanteras Demain [03:10]
-03. Nos Souvenirs [03:50]
-04. New-york, New-york [03:02]
-05. Trois Milliards De Gens Sur Terre [03:26]
-06. On Est Bien [03:20]
-07. Les Avions, Les Oiseaux [03:09]
-08. Made In France [03:32]
-09. Apres Toi [04:04]
-10. Rencontres De Femmes [03:57](   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:09:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254972   (367945) от 16.10.2018
 
 Salvatore Adamo - Het Beste Van Adamo (2003) [FLAC|Lossless|tracks + .cue] <Chanson>
@@ -169,7 +35,7 @@ Salvatore Adamo - Het Beste Van Adamo (2003) [FLAC|Lossless|tracks + .cue] <Chan
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367945.jpg" />
 </div>
 
 
@@ -198,7 +64,7 @@ Marc Lavoine - Je descends du singe (2012) [FLAC|image+.cue]<Pop, Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357951.jpg" />
 </div>
 
 
@@ -227,7 +93,7 @@ Mireille Mathieu - Noel (2015) [FLAC|Lossless|tracks] <Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356606.jpg" />
 </div>
 
 
@@ -256,7 +122,7 @@ Marc Lavoine - Volume 10 (2010) [FLAC|image+.cue]<Pop, Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353144.jpg" />
 </div>
 
 
@@ -285,7 +151,7 @@ Serge Gainsbourg - De Gainsbourg A Gainsbarre (1990) 2CD, 1994 [FLAC|Lossless|tr
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338226.jpg" />
 </div>
 
 
@@ -314,7 +180,7 @@ Helene (Hélène) Rolles - Ce train qui s'en va (1989) [FLAC|Lossless|WEB-DL|tra
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303152.jpg" />
 </div>
 
 
@@ -343,7 +209,7 @@ Helene (Hélène) Rolles - Pour l’amour d’un garçon (1992) [FLAC|Lossless|W
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303135.jpg" />
 </div>
 
 
@@ -372,7 +238,7 @@ Helene (Hélène) Rolles - Toi... émois (1995) [FLAC|Lossless|WEB-DL|tracks] <C
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301252.jpg" />
 </div>
 
 
@@ -401,7 +267,7 @@ Helene (Hélène) Rolles - Je m’appelle Hélène (1993) [FLAC|Lossless|WEB-DL|
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301242.jpg" />
 </div>
 
 
@@ -430,7 +296,7 @@ Helene (Hélène) Rolles - Le miracle de l'amour (1994) [FLAC|Lossless|WEB-DL|tr
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301160.jpg" />
 </div>
 
 
@@ -459,7 +325,7 @@ VA - Afisha Hold Music (2004) [FLAC|tracks+.cue]<Chanson, Ballad, Schlager>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300801.jpg" />
 </div>
 
 
@@ -488,7 +354,7 @@ Helene (Hélène) Rolles - A force de solitude (1997) [FLAC|Lossless|WEB-DL|trac
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298581.jpg" />
 </div>
 
 
@@ -517,7 +383,7 @@ Helene (Hélène) Rolles - Hélène (2016) [FLAC|Lossless|WEB-DL|tracks] <Chanso
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298477.jpg" />
 </div>
 
 
@@ -546,7 +412,7 @@ Dalida - Les Geants De La Chanson (2016) [FLAC|Lossless|tracks + .cue] <Chanson,
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287965.jpg" />
 </div>
 
 
@@ -575,7 +441,7 @@ Joe Dassin - Oh, Champs-Elysees - Seine Grossen (1992) [FLAC|tracks+.cue]<Chanso
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286882.jpg" />
 </div>
 
 
@@ -604,7 +470,7 @@ VA - The Great French Singers Collection (12CD)(2011) [MP3|320 кб/с]<French C
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276179.jpg" />
 </div>
 
 
@@ -630,7 +496,7 @@ Dalida - 40 Succes En Or (1956 - 1997) 2CD [FLAC|Lossless]<Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251290.jpg" />
 </div>
 
 
@@ -665,7 +531,7 @@ Souchon - C'Est Deja Ca (1993) [FLAC|Lossless|tracks + .cue] <Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223634.jpg" />
 </div>
 
 
@@ -694,7 +560,7 @@ Celine Dion - D'Eux (1995) [FLAC|Lossless|tracks + .cue] <Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223400.jpg" />
 </div>
 
 
@@ -723,7 +589,7 @@ Marie Laforet - Marie Laforet (2001) [FLAC|Lossless|image + .cue] <Chanson, Pop>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183964.jpg" />
 </div>
 
 
@@ -752,7 +618,7 @@ SHEILA - Live à Bruxelles, 2022 (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Ch
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171882.jpg" />
 </div>
 
 
@@ -766,6 +632,134 @@ SHEILA - Live à Bruxelles, 2022 (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Ch
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09D268A623616E051CFE18EF58E0D00960A563C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270389   (157004) от 19.12.2018
+
+Salvatore Adamo - Si j’osais (2018) [FLAC|Lossless|tracks + .cue] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Si j’osais
+02. Rosina
+03. Poor Fool
+04. Perche(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D5F735458587AFC7D71F4B955FC67F82E960360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087532   (144088) от 28.12.2016
+
+Patricia Kaas - Je Te Dis Vous (1993) [FLAC|Lossless|image + .cue] <Pop, Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Y'avait tant d'etoiles (1:54)
+02. Hotel Normandy (5:35)
+03. Je retien mon souffle (4:37)
+04. Ceux qui n'ont rien (5:16)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0233A91494613A1D544A69B2BE005C890E511E8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489992   (102468) от 01.05.2012
+
+Charles Aznavour - 40 Chansons d'Or (1996) 2CD [FLAC|Lossless]<Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sur Ma Vie
+02. J'en Deduis Que Je T'aime
+03. Parce Que
+04. Je M'voyais Deja
+05. Que C'est Triste Venise
+06. Il Faut Savoir
+07. L'amour C'est Comme Un Jour
+08. Et Pourtant
+09. Hier Encore
+10. Paris Au Mois D'aout(   Читать дальше...   )1996Жанр: ChansonПродолжительность: 01:01:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489182   (101857) от 28.04.2012
+
+VA - Vive La Chanson BoxSet 10CD (2006) [FLAC|Lossless]<Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_101857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Paris Sera Toujours Paris   0:03:15
+02 La Marche De Menilmontant   0:02:45
+03 Ma Pomme   0:02:55
+04 Ah! Si Vous Connaissiez Ma Poule   0:03:12
+05 Valentine  T    0:02:28
+06 Y A D'la Joie   0:02:50
+07 Prospoer Yop La Boum   0:03:04
+08 Mimi   0:02:24
+09 Quand Un Vimcomte...   0:02:44
+10 Ca Sent Si Bon La France   0:02:55(   Читать дальше...   )2006 ( 03 Apr )Жанр: ChansonПродолжительность: 00:58:37
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1640936   (236913) от 20.06.2023
+
+AnyMP4 Android Data Recovery for Mac 2.1.12 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236913.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyMP4 Android Data Recovery – это отличное приложение для восстановления данных на Android телефонах и планшетах, которая может восстанавливать удаленные текстовые сообщения, фотографии, контакты, журналы вызовов, видео, фотографии и многое другое из Ваших Android телефонов/планшетов/ карты SD. Она поддерживает различные популярные Android устройства, такие как, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.06.2023Разработчик: © 2023 AnyMP4 StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C065E5C138E8C4B21624B28A071A74694353764A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455679   (236905) от 20.03.2021
+
+Find Any File (FAF) 2.3 b10 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Find Any File - утилита для быстрого поиска любого файла на вашем Mac
+Find Any File не содержит никаких подменю с настройками, быстро справляется с задачей и удобна в использовании. Все что нужно - написать ключевое слово (или слова) в окне поиска без предварительных настроек меню. Но если вам необходимо усложнить поиск, то Find Any File имеет множество подменю делающих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.03.2021Разработчик: Thomas TempelmannПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBAD8DBABD535A36B039814666CC727873900F2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455762   (236891) от 20.03.2021
 
 Cisdem Duplicate Finder 5.8.0 [En]
@@ -6,7 +59,7 @@ Cisdem Duplicate Finder 5.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236891.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ Dynamic Wallpaper 14.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236890.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ Aiseesoft Mac FoneLab for Android 5.0.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236887.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ Mac FoneLab Android Data Recovery 3.2.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236869.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ Data Guardian 6 v.6.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236866.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ MacMagic 1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236858.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ Live Wallpaper & Themes 4K Pro 16.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236857.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ File Juicer 4.93 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236849.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ Affinity Designer 2 v.2.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236848.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ BetterTouchTool 3.9993 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236846.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ Network & Battery 12.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236836.jpg" />
 </div>
 
 
@@ -299,7 +352,7 @@ Affinity Photo 2 v.2.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236825.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ GraphicConverter 11 v.11.7.1 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236823.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v.4.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236813.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ Tempomate 4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236806.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ AnyMP4 iPhone Unlocker 1.0.32 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236800.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ myTracks 3.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236769.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ iCompta 6 v.6.0.62 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236763.jpg" />
 </div>
 
 
@@ -484,7 +537,7 @@ Sketch 96.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236762.jpg" />
 </div>
 
 
@@ -510,7 +563,7 @@ Viper FTP 6.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236755.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ Vellum 3.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236753.jpg" />
 </div>
 
 
@@ -564,7 +617,7 @@ Network Radar 3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236751.jpg" />
 </div>
 
 
@@ -590,7 +643,7 @@ The Clock - The Best World Clock 4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236745.jpg" />
 </div>
 
 
@@ -617,7 +670,7 @@ Rhinoceros 7 v.7.31 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236741.jpg" />
 </div>
 
 
@@ -629,58 +682,6 @@ Rhinoceros 7 v.7.31 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B2A33E8486180E05EDAABC917659C8CBA319FE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505254   (236737) от 26.10.2021
-
-MacCleanse 10 v10.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита для комплексной очистки кэша, удаления лог-файлов и очистки системы от мусора. MacCleanse в считанные минуты проделает все операции, на которые бы потребовалось несколько часов ручной работы. Она умеет удалять приложения и неиспользуемые языковые пакеты, очищать кэш, удалять лог файлы и cookies, стирать историю посещенных веб-страниц, находить и удалять старые (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.10.2021Разработчик: © Koingo Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC2694334816007056596FDAD43911CDCFD4D05F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455983   (236729) от 21.03.2021
-
-aText 2.37 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236729.jpg" />
-</div>
-
-
-###  Подробнее
-
-AText ускоряет вашу запись, заменяя сокращения на часто используемые фразы, которые вы определяете: например, сделайте аббревиатуру «myname», чтобы вставить свое имя «First Middle Last» в любом приложении.Тип издания: macOS SoftwareРелиз состоялся: 20.03.2021Разработчик: Tran Ky NamПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3851E024339CECC785206F3EEF3D8272B0267E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

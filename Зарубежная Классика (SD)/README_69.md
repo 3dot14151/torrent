@@ -1,3 +1,29 @@
+###  Публикация: 924247   (521458) от 17.08.2015
+
+Бархатные ручки / Mani di velluto (1979) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инженер Гвидо Квиллер разбогател на продаже бронированных стёкол для ювелирных магазинов, но тем самым разозлил страховые компании и грабителей. Во время погони за возлюбленной, которой он хотел вернуть забытую сумочку, у мопеда отказывают тормоза и он падает в фонтан. В это время едущая за ним на машине семья воров принимает Квиллера с сумкой в руках за дилетанта, (   Читать дальше...   )Производство: Италия / Capital FilmsЖанр: Комедия, МелодрамаРежиссер: Франко Кастеллано, Джузеппе МоччиаАктеры: Адриано Челентано, Элеонора Джорджи, Джон Шарп, Ольга Карлатос, Джино Сантерколе, Момо Диттоньо, Аниа Пиерони, Джанкарло ТондинеллиПеревод: Многоголосый закадровыйСубтитры: нетПродолжительность: 01:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FB4A2189515886AC2E357D4C5EC0B67536CC030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1313339   (521019) от 12.07.2019
 
 Злоключения китайца в Китае / Les tribulations d'un Chinois en Chine (1965) BDRip [H.264]
@@ -6,7 +32,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521019.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_520913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_520913.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520661.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520414.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519929.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_519902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_519902.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519706.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519662.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519244.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518395.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518337.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517308.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516412.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516271.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516196.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516084.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_515895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_515895.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515879.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515587.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515209.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_515107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_515107.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514932.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514894.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514659.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514576.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FAAB3A582488C5BEF814C396C42528E233E5F11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 230366   (513841) от 26.08.2010
-
-Нечто / The Thing (1982) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513841.jpg" />
-</div>
-
-
-###  Подробнее
-
-На американскую антарктическую станцию прибегает собака. Но это она только с виду - собака! На самом деле вовсе она и не собака, а жуткий монстр, который пожирает зверей / людей, а потом искусно притворяется ими, норовя подмять под себя всю Землю. Но на пути распоясавшегося монстра встает отважный вертолетчик МакРиди (Курт Рассел). "Нечто" считается не только лучшим фильмом известного специалиста по ужасам, режиссера Джона Карпентера, но и пожалуй одиним из лучших фантастических фильмов ушедшего двадцатого века. Картина исключительно напряженная. Отличная, страшная музыка. Спецэффекты начала восьмидесятых сделаны настолько тщательно, что даже сегодня смотрятся более чем достойно.Жанр: Ужасы, Фантастика, Триллер, ДетктивРежиссер: Джон КарпентерАктеры: Курт Расселл, Дэвид Кленнон, Кейт Дэвид, Ричард Мазур, Т. К. Картер, Уилфорд Бримли, Джоэл Полис, Дональд Моффат, Питер Мэлоуни, Ричард Дайсарт, Чарльз ХэллаханПеревод: Многоголосый закадровый + Многоголосый закадровый (Украинский) + Авторский закадровый (Гоблин)
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,62 @@
+###  Публикация: 498787   (254372) от 19.05.2012
+
+Андрей Лазарчук | Жестяной бор [2001] [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Может ли «осколок будущего» превратиться в реальность настоящего?
+Может. Даже если мы этого не хотим.
+Потому что будущему не интересно - хотим мы его или нет. Потому что прогрессу плевать на людей. Особенно - на тех, кто этот прогресс творит.
+
+Потому что будущее, вырвавшееся из-под контроля настоящего, может стать кромешным адом. Возможно, когда-нибудь у людей достанет сил построить иное будущее. А пока...
+
+Добро пожаловать в мир Андрея Лазарчука!
+Если, конечно, небоитесь...2001Жанр: ФантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0003E5DCA550A4CCD8F7097BB7E06DA87DDDF6DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497948   (253871) от 17.05.2012
+
+Кирилл Бенедиктов | Проект Этногенез | Эльдорадо. Золото и кокаин [2012] [TXT, FB2, EPUB, RTF, PDF]
+
+>>След.
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253871.jpg" />
+</div>
+
+
+###  Подробнее
+
+XVI век. Конкистадоры прокладывают дорогу через дебри Южной Америки в поисках сказочной золотой страны – Эльдорадо. Молодой идальго Диего Гарсия де Алькорон вовсе не хотел становиться одним из них. Но все меняется с появлением в его жизни таинственного серебряного амулета. На Диего начинают охоту инквизиция и неизвестные убийцы, и он вынужден бежать в заморские земли. Конец ХХ века. Наш современник Денис Каронин устраивается на работу в фирму по перевозке гуманитарных грузов в Южной Америке. Постепенно он понимает, что оказался причастен к бизнесу кокаиновых баронов. Но Денис не знает главного: его судьба тесно переплетена с историей конкистадора Диего...2012Формат: TXT/FB2/EPUB/RTF/PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:313D5676B764255F472C9218BEA0FAB16C51C914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 498042   (253686) от 17.05.2012
 
 Дэвид Эддингс | Тамули (Трилогия) [1992-1994] [FB2]
@@ -6,7 +65,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253686.jpg" />
 </div>
 
 
@@ -34,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253505.jpg" />
 </div>
 
 
@@ -60,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253197.jpg" />
 </div>
 
 
@@ -88,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252980.jpg" />
 </div>
 
 
@@ -115,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251263.jpg" />
 </div>
 
 
@@ -141,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_251213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251213.jpg" />
 </div>
 
 
@@ -167,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250015.jpg" />
 </div>
 
 
@@ -193,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249969.jpg" />
 </div>
 
 
@@ -220,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249693.jpg" />
 </div>
 
 
@@ -247,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249646.jpg" />
 </div>
 
 
@@ -273,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248864.jpg" />
 </div>
 
 
@@ -301,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248848.jpg" />
 </div>
 
 
@@ -329,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248301.jpg" />
 </div>
 
 
@@ -358,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248207.jpg" />
 </div>
 
 
@@ -385,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_247925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_247925.jpg" />
 </div>
 
 
@@ -414,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247642.jpg" />
 </div>
 
 
@@ -443,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246552.jpg" />
 </div>
 
 
@@ -470,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246542.jpg" />
 </div>
 
 
@@ -497,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245565.jpg" />
 </div>
 
 
@@ -523,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245526.jpg" />
 </div>
 
 
@@ -549,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244954.jpg" />
 </div>
 
 
@@ -575,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244857.jpg" />
 </div>
 
 
@@ -603,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244839.jpg" />
 </div>
 
 
@@ -629,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244469.jpg" />
 </div>
 
 
@@ -640,61 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:870A355C33175EE883A372F0F0340CEA0EEAFFD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621714   (244364) от 26.03.2023
-
-Натан Арчер, Рей Меррил | Марсианские войны (1997) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мирную жизнь Земли нарушает вторжение армии марсиан, сеющих повсюду смерть и разрушения. Удары инопланетян, оснащенных суперсовременным оружием, сильны и безжалостны. Судьба человечества, казалось бы, предрешена, но на планете все еще остаются островки сопротивления захватчикам.
-
-В первом романе — это практически безоружные люди, оказавшиеся в старинном особняке, (   Читать дальше...   )Жанр: ФантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AC913106F234EED02AE6E6EA2B0AAD052C90A14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622672   (244217) от 29.03.2023
-
-Гурам Панджикидзе | Спираль (1989) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грузинский прозаик Гурам Панджикидзе известен читателю по романам «Седьмое небо», «Камень чистой воды», «Год активного солнца».
-Дерзкой идеей пересадки человеческого мозга одержим талантливый хирург Зураб Торадзе — один из главных героев романа-фантасмагории «Спираль». Уникальный мозг одного пациента и совершенное тело другого после периода адаптации должны образовать (   Читать дальше...   )Жанр: Социально-психологическая фантастикаПеревод: Вахтанг Федоров-ЦиклауриФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FF173EF15FAD89189C3EEAFA9F9880641AF422A
 ```
 
 https://mybot314.ru/tekegram_catalog/

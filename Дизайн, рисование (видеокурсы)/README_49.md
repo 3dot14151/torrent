@@ -6,7 +6,7 @@ Udemy, Joakim Tornhill | Become a Material Guru in Blender 2.8 (2019) PCRec [EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335954.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335085.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334907.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334720.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334674.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334667.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Broadcast Design School | Remastered Records (2015-2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333396.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333265.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Udemy | Создание ретро футуристичного автомоб�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333243.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332765.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Elementza, Mario Brajdich | Mastering 3D Modeling in Maya (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332764.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Jan Urschel | Реалистичный сэт-дизайн в Blender 2.82 / Rea
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332417.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Jan Urschel | Кинематографичный сэт-дизайн в Blender 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332357.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Jan Urschel | Дизайн 3D окружения для производства
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332279.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Jan Urschel | Создание скетча 3D окружения в Blender 2.9
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332278.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331805.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Jan Urschel | Процедурные ландшафты в Blender 2.80 / Proced
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331127.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Jan Urschel | Скалистые ландшафты в Blender 2.82 / Rocky Land
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331045.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330823.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Flipped Normals | Creating a Full Character in Zbrush (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326032.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ VideoSmile, Михаил Бычков | Супер Cinema 4D Pro (2022) WEB-DL [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326025.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325401.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Jan Urschel | Процедурные городские пейзажи в Blende
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321887.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Jan Urschel | Погодные эффекты в Blender 2.81 / Weather Effects 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321780.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Jan Urschel | Дизайн Sci-Fi окружения в Blender 2.82 / Sci-Fi En
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321665.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Gumroad, Pierrick Picaut| Фэнтезийная башня на скале - П
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320303.jpg" />
 </div>
 
 

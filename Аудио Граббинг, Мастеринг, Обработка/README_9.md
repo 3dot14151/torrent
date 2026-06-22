@@ -1,3 +1,216 @@
+###  Публикация: 1523241   (753377) от 10.01.2022
+
+NoiseAsh Need Preamp And EQ Collection 1.0.0 VST, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Консольные предусилители и эквалайзеры в британском стиле были самым востребованным оборудованием с первых дней их появления. Queen, Nirvana, Red Hot Chilli Peppers, Дэвид Боуи, Foo Fighters, Slipknot, Metallica, Adele, Drake и т. д. — это всего лишь несколько примеров. Они использовались на бесчисленном количестве классических платиновых альбомов, а также до сих (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90E999F37641905DC8F89ED923D3C6A3882A3535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281200   (753358) от 07.02.2019
+
+Nektar Technology - Bolt 1.0.1  VSTi, VSTi3 (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производитель MIDI контроллеров Nektar Technology разработал свой первый виртуальный инструмент – BOLT.
+Синтезатор поддерживает 16 голосную полифонию и предлагает 2 осциллятора на голос. Каждый из основных осцилляторов имеет дополнительный субосциллятор, генератор шума и огибающую ADSR. Механизм звукового синтеза программы основан на концепции MSO и формирует звук (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB692691B8A5F60520E5358DC40B6B3071AFCAAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281577   (751738) от 08.02.2019
+
+Sonic Anomaly - Transpire (Build 170907) VST (x86/x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sonic Anomaly - Transpire - это бесплатный транзиент шейпер, он может усилить или ослабить начальную атаку и сустейн (тело) звука. Transpire был разработан, чтобы хорошо работать с ударными и ударными инструментами.
+
+Он не работает линейно, что означает, что небольшие транзиенты испытывают относительно более сильные, чем большие транзиенты. Это полезно для создания (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F53C3B6A058F5189173738E3C7B6F1A6EC8B51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523289   (751559) от 11.01.2022
+
+Klevgrand Pana 1.0.0 VST, VST3, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pana — это сложный стереоинструмент, разработанный для того, чтобы вы могли выполнять более элегантное и естественное позиционирование звука, чем то, что можно было бы достичь с помощью обычного панорамирования баланса.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99FB4D5360D8251C37E9A2F808D7F2F4EBD34A13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523280   (751555) от 11.01.2022
+
+D16 Group - Repeater 1.2.0 VST, VST3, AAX [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Repeater это эффект задержки с винтажным звуком от D16 Group, разработанный в сотрудничестве с Slate Digital. Плагин предлагает двойную задержку с 23 уникальными, правдоподобно смоделированными модулями задержки, которые варьируются от классических Oil Can задержек и пластин до самых известных винтажных моделей. На первый взгляд, Repeater представляет собой, типичный (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B9D9DA687040E31DA53311C8562545BB412A5C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523379   (751432) от 11.01.2022
+
+Rare Signals - Transatlantic Plate Reverb 1.3.2 VST, VST3 AAX (x64) RePack by R2R [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_751432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rare Signals представляет новый стандарт в имитации листовых ревербераторов, смоделированных из лучших аналоговых моделей Европы и США с 24 независимыми настройками затухания и хвостами реверберации, которые остаются неизменными, сохраняя естественный сустейн и стерео распространение настоящих аналоговых гигантов.
+Наша цель состояла в том, чтобы сделать абсолютно (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F42100954728025385E6F674F5AD84F896F5B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523377   (751431) от 11.01.2022
+
+Plugin Alliance Lindell Audio 902 De-Esser 1.0.0 VST, VST3, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_751431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Plugin Alliance представил новый плагин Lindell 902 De-Esser, который берет настоящую студийную классику и обновляет ее дополнительными функциями для 21-го века.
+Оригинальный де-эссер dBx 902 мгновенно стал классикой, когда он был выпущен в 1980-х годах. Благодаря гениальному дизайну и чрезвычайно простому рабочему процессу он быстро стал опорой в крупных студиях (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29CD92101279B33BBCD220F61522E481A4D830F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396000   (749945) от 13.07.2020
+
+AudioShell v 2.3.6 [Ru/En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749945.jpg" />
+</div>
+
+
+###  Подробнее
+
+AudioShell – небольшое расширение, созданное для редактирования тегов. Способно переименовывать файлы благодаря интеграции в контекстное меню «Проводник» Windows. Позволяет изменять метаданные и название ряда медиа файлов в один миг. AudioShell предлагает поддержку типов аудио: M4A, OGG, MP3, APE, WMA, FLAC, а также ряда видеоданных (например, MP4, WMV, ASF, 3GP). (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C2D474C4DBF6FC861467822B26CEDEE0E4C3B2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216473   (748988) от 31.03.2018
 
 Xfer Records - Serum 1.214b4 + Audio DSP Pack (VSTi, VST, AAX) (x86/x64) [En] (No install)
@@ -6,7 +219,7 @@ Xfer Records - Serum 1.214b4 + Audio DSP Pack (VSTi, VST, AAX) (x86/x64) [En] (N
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748988.jpg" />
 </div>
 
 
@@ -32,7 +245,7 @@ Native Instruments - Kontakt 6.3.1 (Full) STANDALONE, VSTi, AAX (x86/x64) RePack
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746421.jpg" />
 </div>
 
 
@@ -58,7 +271,7 @@ UVI - World Suite 2 v1.0.6 (UVI Falcon) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746264.jpg" />
 </div>
 
 
@@ -87,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744304.jpg" />
 </div>
 
 
@@ -113,7 +326,7 @@ UVI - Shade 1.2.2 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743757.jpg" />
 </div>
 
 
@@ -140,7 +353,7 @@ W.A.Production - CHORDS 1.0.0 VSTi, VSTi3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743566.jpg" />
 </div>
 
 
@@ -167,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738309.jpg" />
 </div>
 
 
@@ -193,7 +406,7 @@ mp3DirectCut 2.36 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736369.jpg" />
 </div>
 
 
@@ -219,7 +432,7 @@ accusonus - ERA Bundle Pro 6.1.0 + Voice Changer 1.3.0 VST, VST3, AAX (x64) RePa
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735356.jpg" />
 </div>
 
 
@@ -245,7 +458,7 @@ Antares - Auto-Tune Unlimited 2021.12 VST, VST3, AAX (x64) RePack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735310.jpg" />
 </div>
 
 
@@ -272,7 +485,7 @@ Sinevibes Collection 2022.1 VST, AAX (x64) RePack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734945.jpg" />
 </div>
 
 
@@ -298,7 +511,7 @@ Rob Papen - Vecto 1.0.0 VSTi, AAX (x86/x64) Repack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729946.jpg" />
 </div>
 
 
@@ -324,7 +537,7 @@ Sidify Music Converter 2.5.0 RePack (& portable) by elchupacabra (для Spotify
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727159.jpg" />
 </div>
 
 
@@ -350,7 +563,7 @@ MP3 Karaoke 6.1.9 RePack by вовава [Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722131.jpg" />
 </div>
 
 
@@ -376,7 +589,7 @@ Avid Sibelius Ultimate 2018.4 Build 1696 (x64) [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716901.jpg" />
 </div>
 
 
@@ -403,7 +616,7 @@ Boom Library - Enforcer 1.2.0 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710809.jpg" />
 </div>
 
 
@@ -431,7 +644,7 @@ MAGIX Sequoia 15.5.0.681 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708735.jpg" />
 </div>
 
 
@@ -457,7 +670,7 @@ ADPTR Audio Sculpt 1.0.5 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705178.jpg" />
 </div>
 
 
@@ -468,218 +681,6 @@ SCULPT от ADPTR AUDIO представляет собой будущее ди�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F7C96A6F6E608F73540A3C96EA47CF9C7E979E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220571   (702194) от 20.04.2018
-
-Tone2 - Gladiator 2 2.6 VSTi (x64) [En] (No install)
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tone2 - Gladiator 2 - мощный виртуальный синтезатор заслуживающий особого внимания от компании Tone2. Этот инструмент, пожалуй, самый лучший среди инструментов подобного размера. Синт Tone2 имеет новый тип синтеза, позволяющий получить плотный широкий звук. Доступны HCM, FM, и AM искажения. Имеется огромное количество пресетов распределенных по категориям, содержащие (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D118938D744C351A5C046524DCD6BDE08F5E794
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288022   (699756) от 09.03.2019
-
-Roland - VS SYSTEM-1 1.1.0 VSTi, VSTi3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получите всю мощь звука и универсальность популярного синтезатора SYSTEM-1 в виртуальном инструменте.
-Подобно аппаратной части SYSTEM-1, эта версия программного обеспечения ломает новую почву замечательной гибкостью и обширной палитрой потрясающих звуков. Он имеет смелый, очевидный характер, связанный с синтезаторами Roland уже более четырех десятилетий.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5926CB1C72D1B81D121ABCEA4E1E2BBC57924ED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288014   (699638) от 09.03.2019
-
-Roland - VS PROMARS 1.0.9 VSTi, VSTi3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анонсирован виртуальный инструмент Promars Plug-Out, впервые представленный на зимней выставке NAMM 2015 и имитирующий раритетный одноголосный аналоговый синтезатор Promars Compuphonic (1997). Разработанный сначала как «младший брат» JUPITER-4, Roland PROMARS Compuphonic Synthesizer обладает стабильностью и гибкостью микропроцессорного управления с потрясающим аналоговым (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34EE3570A1DACCA9AA6600A30C96468CC666FC05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288012   (699627) от 09.03.2019
-
-Roland - VS SH-2 1.1.1 VSTi, VSTi3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анонсирован второй виртуальный инструмент, SH2 Plug-Out, имитирующий одноголосный аналоговый синтезатор SH2. Новый SH-2 использует технологию аналоговой схемы, достоверно воссоздает теплое, богатое звучание оригинала, что может исходить только от Roland.
-В конце 1970-х годов синтезаторы переживалипереходный период с развитием полифонии и памяти. Поскольку мировые (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:729C14182B6E452D94327089974CB9840ECAF194
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288023   (699623) от 09.03.2019
-
-Roland - VS SYSTEM-8 1.3.1 VSTi, VSTi3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вдохновленный прошлым, построенный в настоящем, предназначенный для будущего, синтезатор Roland SYSTEM-8 представляет собой виртуальную аналоговую звуковую электростанцию. Передовой программный синтезатор, работающий по моделированию аналоговой схемы (ACB). Три осциллятора на голос, невероятная многомодовая фильтрация, множество возможностей модуляции и качественные (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A46A47DE7D0D891181E11FB6E9DECBD534D6158A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288033   (699511) от 09.03.2019
-
-Roland - VS SYSTEM-100 1.0.8 VSTi, VSTi3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Реплика культового полумодульного синтезатора System-100, импортированы все возможности в виртуальную модель.
-Программный синтезатор SYSTEM-100 PLUG-OUT представляет собой современное воспроизведение ныне легендарной полумодульной моносинтезы 1975 года. Он объединяет функции оригинального синтезатора Model 101 Synthesizer и Model 102 Expansion, в результате чего (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC4A60EDC14D8E726CA267CDB9303A12A8B29230
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288013   (699507) от 09.03.2019
-
-Roland - VS JUPITER-8 1.0.6 VSTi, VSTi3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Созданный в честь короля синтезаторов Roland JUPITER-8. Представленный в 1980 году в качестве окончательного полифонического и программируемого синтезатора для живых выступлений, Roland JUPITER-8 способен создавать одни из самых богатых, самых мощных тонов и текстур, которые можно себе представить. Благодаря симулятору Roland, управляющему игрой ACB (Analog Circuit (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A48059A227982B9D1C7694E3698DCCF2AB37FC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288091   (699502) от 09.03.2019
-
-NUGEN Audio - Monofilter 4.1.15 VST, VST3, RTAS, AAX (x86/x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используемый и пользующийся доверием производителей во всем мире, MONOFILTER захватывает ваш бас и надежно закрепляет его в вашем миксе. Интуитивно понятное управление позволяет вам быстро закрепить силу, сохраняя при этом существенный характер и воспринимаемые пространственные характеристики.
-MONOFILTER возвращает центр вашего баса, поэтому его легко потерять из-за (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47CF24DEF3584F1A6FC716ACAB00F7A9E35B0899
 ```
 
 https://mybot314.ru/tekegram_catalog/

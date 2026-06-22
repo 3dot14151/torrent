@@ -6,7 +6,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192199.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ousama Ranking | Ranking of Kings | Рейтинг королей [2021, TV, 23 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192113.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Grisaia no Rakuen | The Eden of Grisaia | Рай в серых тонах [2015,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189847.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Grisaia no Meikyuu: Caprice no Mayu 0 | The Labyrinth of Grisaia: The Cocoon of 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189845.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Grisaia no Kajitsu | The Fruit of Grisaia | Натюрморт в серых т�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189842.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Momokuri | Момокури [2015, TV, 26 из 26] BDRip 1080p HEVC 10-bit raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189569.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её завет�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188933.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Otonari ni Ginga | A Galaxy Next Door | Галактика по соседств
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188216.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187411.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187084.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Deemo Movie: Sakura no Oto - Anata no Kanadeta Oto ga, Ima mo Hibiku | Димо 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187061.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ C Danchi | Жилой комплекс „Си“ | Housing Complex C [2022, TV,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_186962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186962.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186922.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Jidouhanbaiki ni Umarekawatta Ore wa Meikyuu o Samayou | Orejihanki | Перер
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186613.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Jahy-sama wa Kujikenai! | The Great Jahy Will Not Be Defeated! | Великая 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186556.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186497.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Lv1 Maou to One Room Yuusha | Level 1 Demon Lord and One Room Hero | Влады�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186306.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ No Guns Life [TV-2] | Жизнь без оружия [TV-2] [2020, TV, 12 из 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185654.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185626.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182676.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182634.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182148.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181753.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181693.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181274.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181232.jpg" />
 </div>
 
 

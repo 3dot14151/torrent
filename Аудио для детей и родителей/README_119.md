@@ -1,3 +1,85 @@
+###  Публикация: 405022   (44769) от 03.09.2024
+
+Оскар Уайльд | Сказки (2001) [MP3, Марина Гаврилова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оскар Уайльд (1854–1900) – ирландский писатель и поэт. Сказки известного английского писателя XIX века Оскара Уайльда любимы читателями во всем мире, интересны людям разного возраста: и взрослым, и детям. Эти трогательные, грустные, смешные истории заставляют задуматься о таких вечных понятиях, как добро и зло, любовь и дружба, преданность и сострадание.
+В аудиосборник (   Читать дальше...   )Жанр: Зарубежная литература, классика, сказкаИздательство: Нигде не купишьПродолжительность: 03:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8F302F8F35EAA7605910E3916BB655B36886231
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 415939   (44269) от 08.09.2024
+
+Роберт Льюис Стивенсон | Остров сокровищ (Аудиоспектакль) (2006) [MP3, Егор Бероев и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Волшебный мир приключений.
+Роберт Льюис Стивенсон (1850—1894) — шотландский писатель и поэт, автор всемирно известных приключенческих романов и повестей, крупнейший представитель английского неоромантизма.
+Этот диск для самых смелых и отважных! Вы отправитесь в захватывающее путешествие на таинственный и опасный остров, затерянный в океане. На пути к (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключения, романВ ролях: Егор Бероев, Ваня Витер, Лев Дуров, Андрей Васильев и др.Издательство: ВимбоПродолжительность: 02:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A58F8037446321466FDAEF801C1412189BB5BB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 420180   (43956) от 11.09.2024
+
+Жюль Верн | Капитан Немо (Радиоспектакль) [2008] [MP3, Виктор Раков и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французский писатель Жюль Верн (1828–1905) известен всем нам как автор захватывающих фантастических и приключенческих романов.
+Вторая половина XIX века. Мир потрясён чередой чудовищных нападений на торговые и пассажирские судна. Поползли слухи о необычном подводном светящемся чудовище, способном сожрать любой корабль. Правительство решает отправить экспедицию на (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключенческий роман, фантастикаВ ролях: Виктор Раков, Сергей Сазонтьев, Вячеслав Шалевич и др.Продолжительность: 01:07:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60C703C38C441B36ED1F4EEAFACD8EF82388FB30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748117   (43354) от 16.09.2024
 
 Евгения Гармс | Паучок Пок. Секрет серебряной паутины (2024) [MP3, Татьяна Манетина]
@@ -6,7 +88,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43354.jpg" />
 </div>
 
 
@@ -35,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43243.jpg" />
 </div>
 
 
@@ -61,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42596.jpg" />
 </div>
 
 
@@ -88,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42567.jpg" />
 </div>
 
 
@@ -117,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42561.jpg" />
 </div>
 
 
@@ -145,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42410.jpg" />
 </div>
 
 
@@ -172,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42136.jpg" />
 </div>
 
 
@@ -200,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42133.jpg" />
 </div>
 
 
@@ -227,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42109.jpg" />
 </div>
 
 
@@ -253,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42106.jpg" />
 </div>
 
 
@@ -279,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41342.jpg" />
 </div>
 
 
@@ -305,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41318.jpg" />
 </div>
 
 
@@ -333,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41298.jpg" />
 </div>
 
 
@@ -359,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41288.jpg" />
 </div>
 
 
@@ -387,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41179.jpg" />
 </div>
 
 
@@ -413,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40388.jpg" />
 </div>
 
 
@@ -439,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40386.jpg" />
 </div>
 
 
@@ -465,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40313.jpg" />
 </div>
 
 
@@ -492,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39286.jpg" />
 </div>
 
 
@@ -518,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39098.jpg" />
 </div>
 
 
@@ -544,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39075.jpg" />
 </div>
 
 
@@ -572,7 +654,7 @@ Peter James - Baby Dreams (Сладких снов) (2008) [WavPack|Lossless|ima
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39068.jpg" />
 </div>
 
 
@@ -599,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38783.jpg" />
 </div>
 
 
@@ -611,86 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF5C03CD866E9D9A368EF8EB299C598E8A2DFD4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760410   (37288) от 14.11.2024
-
-Мария Гербутова | Мама, я пошел! (2024) [MP3, Мила Манышева]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы устали от бесконечного потока противоречивой информации вокруг развития вашего ребенка? Вас мучает тревога и постоянные сомнения: “Как научить малыша переворачиваться?”, “Почему он еще не сидит”, “Не слишком ли рано он пошел?”. Найти ответы эксперта на эти и многие другие вопросы поможет аудиокнига «Мама, я пошел!» – настольная энциклопедия для родителей детей (   Читать дальше...   )Жанр: Советы родителямИздательство: Альпина ДиджиталПродолжительность: 03:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:375461C221170F98A832CE20B424079EC0029944
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 342372   (36625) от 21.11.2024
-
-Анни Шмидт | Лучшие сказки народов мира. Мурли (2005) [MP3, Вера Васильева и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Лучшие сказки народов мира.
-Удивительная сказка самой известной детской писательницы Нидерландов Анни Шмидт (1911–1991), которую называли «истинной королевой Голландии».  Героиня превратилась из кошки в девушку, сохранив при этом кошачьи повадки, а также всех своих друзей кошек…Жанр: Зарубежная литература для детей, сказкаВ ролях: Вера Васильева, Лариса Гребенщикова, Александр Леньков и Авангард ЛеонтьевПеревод: Екатерина ЛюбароваИздательство: Два жирафа, Мост-ВПродолжительность: 00:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:673C58768CF3710CD148B6D0300FC1950C3686A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761653   (36571) от 21.11.2024
-
-Анни Шмидт | Мурли (2011) [MP3, Ирина Воробьева]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Новые сказочные повести.
-Действие книги происходит в небольшом голландском городке. Кошка по имени Мурли по воле случая превращается в девушку. Она ничем не отличается от других людей, но при этом по-прежнему понимает язык кошек и удивляет сограждан своими необычными поступками, потому что в душе остаётся кошкой. Мурли постоянно попадает в курьёзные и (   Читать дальше...   )Жанр: Зарубежная литература для детей, повесть-сказкаПеревод: Екатерина ЛюбароваИздательство: Нигде не купишьПродолжительность: 04:09:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCB9D679A215BC9979E72232F7A6FBCD880533EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

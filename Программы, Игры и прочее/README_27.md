@@ -1,3 +1,32 @@
+###  Публикация: 1415725   (1027141) от 09.03.2021
+
+Мой ежедневник v1.5.2.8 [Ru/Multi] - список дел, календарь, органайзер (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение состоит из следующих инструментов:
+- Ежедневник
+- Календарь
+- Планировщик дел(   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 01.03.2021Разработчик: Time Management StudioПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCD6C9F4039EA17D1AD3CAA96868B90F2F5688B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453246   (1027058) от 10.03.2021
 
 WOW Volume Manager v1.6 [En]
@@ -6,7 +35,7 @@ WOW Volume Manager v1.6 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027058.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027011.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026908.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ Starman v1.1 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026706.jpg" />
 </div>
 
 
@@ -110,7 +139,7 @@ Scythe: Digital Edition v1.9.40 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026691.jpg" />
 </div>
 
 
@@ -136,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026565.jpg" />
 </div>
 
 
@@ -163,7 +192,7 @@ Easy Text Scanner - Распознавание текста (OCR) v1.1.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026563.jpg" />
 </div>
 
 
@@ -189,7 +218,7 @@ ToonApp v1.0.29 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026538.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ First Strike: Classic v3.0.0 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026530.jpg" />
 </div>
 
 
@@ -241,7 +270,7 @@ AVG Cleaner v5.5.0 Pro [Ru/Multi] - Ускорение телефона, Очи�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026495.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Avast Cleanup v5.5.0 Premium [Ru] - очистка, ускорение и опт
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026476.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Into The Badlands Champions v1.5.123 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026349.jpg" />
 </div>
 
 
@@ -319,7 +348,7 @@ Legend of Solgard v2.17.4 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026336.jpg" />
 </div>
 
 
@@ -345,7 +374,7 @@ Vanced YouTube Music v4.18.50 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026302.jpg" />
 </div>
 
 
@@ -371,7 +400,7 @@ Perfect Player IPTV v1.5.9.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025887.jpg" />
 </div>
 
 
@@ -400,7 +429,7 @@ WiFi Analyzer Pro v3.2.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025721.jpg" />
 </div>
 
 
@@ -426,7 +455,7 @@ Piano Ear Training Pro ver.Improved UI (118) [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025612.jpg" />
 </div>
 
 
@@ -455,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025537.jpg" />
 </div>
 
 
@@ -483,7 +512,7 @@ Map Marker v2.19.1 [Ru/Multi] - создание собственных мето
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025444.jpg" />
 </div>
 
 
@@ -509,7 +538,7 @@ First Coloring book \ Первая книжка-раскраска v3.0.2 [Ru/Mu
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025398.jpg" />
 </div>
 
 
@@ -535,7 +564,7 @@ Radardroid Pro v3.73 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025204.jpg" />
 </div>
 
 
@@ -561,7 +590,7 @@ Cinema HD TV v2.3.6.1 Mod [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025156.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ BackCountry Navigator TOPO GPS v7.1.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025150.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ VOA Learning English v4.9.1 [En] - Practice listening everyday
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025065.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Atlas Напоминания v1.8.1 Pro [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024982.jpg" />
 </div>
 
 
@@ -652,32 +681,6 @@ Atlas Напоминания v1.8.1 Pro [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6758E5D7186ACFD8D67B98FA4F1069A75966B9DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456577   (1024903) от 23.03.2021
-
-Rock Identifier v1.2 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идентификация горных пород стала проще с приложением Rock Identifier. Просто сделайте или загрузите изображение своего камня, и Rock Identifier поможет вам идентифицировать его за секунды. Начните исследовать, изучать и записывать свое геологическое окружение с помощью Rock Identifier!Тип издания: Пиратка (Premium)Релиз состоялся: 15 марта 2021 г.Разработчик: Next Vision LimitedПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06F9C44844E6A304008BD60EEB5EB9EE8D0C45EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

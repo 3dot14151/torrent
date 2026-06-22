@@ -1,3 +1,29 @@
+###  Публикация: 1858436   (1060433) от 11.03.2026
+
+Thief (2014) [Ru/Multi] (1.7/dlc) Repack Wanterlude [Definitive Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Thief является четвёртой игрой в легендарной стэлс-экшен серии Thief. Вам вновь предстоит выступить в роли знаменитого вора Гарретта, от рук которого не скрыть ни одно сокровище. В Городе, где происходят события, назревает конфликт между его жителями и тираном-правителем Бароном.Тип издания: RepackРазработчик: Eidos-MontrealЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58C0EA68FA6E8D7261D4918AE662286A2BA9ED83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858448   (1060431) от 11.03.2026
 
 Metro 2033 Redux (2014) [Ru/Multi] (1.03) Repack Wanterlude
@@ -6,7 +32,7 @@ Metro 2033 Redux (2014) [Ru/Multi] (1.03) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060431.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Metro: Last Light Redux (2014) [Ru/Multi] (1.03) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060429.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Half-Life: Alyx (2020) [Ru/Multi] (1.5.4/dlc) Repack FitGirl [VR, NoVR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059297.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ BioShock Infinite (2013) [Ru] (1.0.1643565/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059265.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ BioShock 2 Remastered (2016) [Ru] (Build 8552776) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059231.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Far Cry (2004) [Ru] (1.4) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058683.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Voidtrain (2023) [Ru/Multi] (1.05/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057952.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Serious Sam 2 (2005) [Ru] (2.0.7.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057674.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (build 11026049/dlc) Repack Wanterl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057473.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ RoboCop: Rogue City - Unfinished Business (2025) [Ru/Multi] (1.0.3.0.01.020.001/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056598.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Resident Evil Village (2021) [Ru/Multi] (21519280/dlc) Repack HardwareMining [Go
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055969.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Resident Evil Village (2021) [Ru/Multi] (21519280/dlc) Repack Other s [Gold Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055832.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Gunfire Reborn (2021) [Ru/Multi] (21791900/dlc) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055672.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Resident Evil Village (2021) [Ru/Multi] (Build 21519280/dlc) Repack Wanterlude [
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055563.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Resident Evil Village (2021) [Ru/Multi] (21519280/dlc) Repack seleZen [Gold Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055491.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Resident Evil Village (2021) [Ru/Multi] (1.1.0.6/dlc) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055424.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ DOOM Eternal (2020) [Ru/Multi] (Build 19435158/dlc) Repack HardwareMining [Delux
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055013.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Nosferatu: The Wrath of Malachi / Вампиры (2003) [Multi] (1.0v3) License 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054984.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Immortals of Aveum (2023) [Ru/Multi] (1.0.6.6) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054953.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Call of Duty: Black Ops Cold War (2020) [Ru/Multi] (1.34.0.15931218) Repack FitG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053284.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Far Cry Primal (2016) [Ru/Multi] (1.3.3/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052749.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Abyssus (2025) [Ru/Multi] (1.2.55683/dlc) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052314.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ DOOM (2016) [Ru/Multi] (20240321-110145) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052267.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Dead Space (2023) [Multi] (1.1.14.17871/dlc) Scene voices38 [Deluxe]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052036.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ BLOODKILL: Goreblast Overkill (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051960.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ BLOODKILL: Goreblast Overkill погружает в скоростные бои 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:559068B1174CCE075DF9BB333546A95F8A63860B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846196   (1051116) от 
-
-Moros Protocol (2025) [Ru/Multi] (1.0.12.6) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы просыпаетесь на борту «Орфея», заброшенного военного корабля, затерянного в глубоком космосе и кишащего ужасами. Никаких воспоминаний. Никаких союзников. Только инстинкт борьбы и голос, подталкивающий вас вперед. Корабль колеблется вокруг вас, враги не дают передышки, и выживание означает сражение в залитых кровью коридорах, чтобы узнать, что ждет вас впереди.Тип издания: LicenseРазработчик: Pixel ReignЖанр: Экшены, Инди, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5193D8EA4859A913B5B816E09BC0A6C2902ED97
 ```
 
 https://mybot314.ru/tekegram_catalog/

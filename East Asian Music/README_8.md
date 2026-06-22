@@ -1,3 +1,30 @@
+###  Публикация: 1308059   (554396) от 12.06.2019
+
+Melonbooks Records — Touhou Compilation CD-BOOK (2019) Touhou Vocal /Doujin/ [FLAC|Lossless|tracks] <J-Pop, J-Rock>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2019.12.30 東方 Compilation CD-BOOK 萃星霜 弐 -限定版- (C95)Тип издания: DoujinЖанр: J-Pop, J-RockФормат: Touhou VocalПродолжительность: 01:53:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E17E76BDCCCCCD4D63776982D7136B620D4754E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1308591   (553703) от 15.06.2019
 
 Fuling Cat Mark — 8 альбомов (2013-2019) Touhou Vocal /Doujin/ [FLAC|Lossless|tracks] <J-Pop, Shibuya-kei>
@@ -6,7 +33,7 @@ Fuling Cat Mark — 8 альбомов (2013-2019) Touhou Vocal /Doujin/ [FLAC|L
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553703.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ Anokthus — 3 альбома (2013-2017) [FLAC|Lossless|tracks] <Industrial, Te
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553485.jpg" />
 </div>
 
 
@@ -64,7 +91,7 @@ Hellion Sounds — 10 альбомов (2010-2020) Anime Games, Touhou Instrumen
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550976.jpg" />
 </div>
 
 
@@ -93,7 +120,7 @@ Eternal Melody — 5 альбомов (2016-2019) Touhou Vocal /Doujin/ [FLAC|Lo
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550974.jpg" />
 </div>
 
 
@@ -122,7 +149,7 @@ k-waves LAB — 16 альбомов (2008-2014) Anime, Touhou Instrumental /Douj
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550912.jpg" />
 </div>
 
 
@@ -151,7 +178,7 @@ Jerico's Law — 16 альбомов (2010-2019) Touhou Instrumental /Doujin/ [F
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550846.jpg" />
 </div>
 
 
@@ -180,7 +207,7 @@ Infinity of Sound - Girls on the Moon (2016) [MP3|320 Kbps] <K-Pop, Traditional,
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549881.jpg" />
 </div>
 
 
@@ -209,7 +236,7 @@ MISTY RAIN — 10 альбомов (2010-2017) Touhou Vocal /Doujin/ [FLAC|Lossl
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546830.jpg" />
 </div>
 
 
@@ -238,7 +265,7 @@ TUMENECO — 33 альбома (2008-2019) Touhou Vocal, Instrumental /Doujin/ [
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546769.jpg" />
 </div>
 
 
@@ -267,7 +294,7 @@ NoisyCell - Your Hands (2014) [MP3|320kbps]<J-Rock>
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545868.jpg" />
 </div>
 
 
@@ -300,7 +327,7 @@ NEUTRAL | =NeutraL= [FRONTIER CREATE] - 29 альбомов (2008-2010) [FLAC|Lo
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545043.jpg" />
 </div>
 
 
@@ -329,7 +356,7 @@ Akatsuki Records - 7 альбомов (2012-2014) [MP3|320 kbps] <Touhou, Vocal,
 >>Doujin Music
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542844.jpg" />
 </div>
 
 
@@ -362,7 +389,7 @@ Crossfaith - EX_MACHINA (2018) [MP3|320 Kbps] <Metalcore, Alternative Metal, Ele
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540347.jpg" />
 </div>
 
 
@@ -391,7 +418,7 @@ Konpeki Studio — 11 альбомов (2016-2019) Touhou Vocal /Doujin/ [FLAC|L
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539746.jpg" />
 </div>
 
 
@@ -420,7 +447,7 @@ IZMIZM — 14 альбомов (2007-2018) Touhou Instrumental /Doujin/ [FLAC|Lo
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539631.jpg" />
 </div>
 
 
@@ -449,7 +476,7 @@ kairo — 11 альбомов (2010-2013) Touhou Vocal /Doujin/ [FLAC|Lossless|t
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539626.jpg" />
 </div>
 
 
@@ -478,7 +505,7 @@ Unknown-Dimension — 15 альбомов (2009-2019) /Doujin/ [FLAC|Lossless|tr
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539618.jpg" />
 </div>
 
 
@@ -507,7 +534,7 @@ R-note — 37 альбомов (2012-2019) Touhou Vocal /Doujin/ [FLAC|Lossless|
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539494.jpg" />
 </div>
 
 
@@ -536,7 +563,7 @@ ShibayanRecords — 23 альбома (2008-2019) Touhou Vocal, Instrumental /Do
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539485.jpg" />
 </div>
 
 
@@ -565,7 +592,7 @@ Dir En Grey - Phalaris (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539183.jpg" />
 </div>
 
 
@@ -594,7 +621,7 @@ Godzilla Snacks - There Be Monsters (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539178.jpg" />
 </div>
 
 
@@ -615,6 +642,40 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365272   (537169) от 23.07.2011
+
+Zhou Qi (Xun) - Snowy Night Drinking Alone (2009) [MP3|320 kbps]<Meditative, Flute, Relax>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_537169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drinking Alone In a Snowy Night
+02. Walker
+03. Echoes of the Wind
+04. Road
+05. Beautiful Night
+06. Songs in the Hunan Province
+07. Lonely-A Monologue of a Bass Bamboo Flute
+08. Banpo Full Moon Night
+09. The Music Come From Zhangxu s Calligrafic WorksЖанр: Meditative, Flute, RelaxПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE2D96A4C5A043F4FECE5E27081F11A400E43D32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 819124   (536062) от 06.09.2014
 
 fromadistance - 4 альбома (2009-2013) [FLAC|Lossless] <Touhou, Instrumental, Doujin Ongaku, Electronic, Experimental>
@@ -623,7 +684,7 @@ fromadistance - 4 альбома (2009-2013) [FLAC|Lossless] <Touhou, Instrument
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536062.jpg" />
 </div>
 
 
@@ -645,6 +706,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365252   (534958) от 24.07.2011
+
+VA - Mystic Drums & Flute (2007) [MP3|320 kbps]<Ambient, Ethno, Flute, Drums>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_534958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. F. Miyamoto - Etenraku (Classical)
+02. Kazauaki Miyazaki - Shimabara No Komoriuta
+03. F. Miyamoto - Kodama (Echoes)
+04. Kodo - Ao-ki Kaze (Wind from the steppes)
+05. Kodo - Koro Koro (Round and Round)
+06. F. Miyamoto - Hakujitsumu - Shio no ne (Daydreams - the voice of the tide)
+07. Kodo - Tamamusubi (The Talisman)
+08. F. Miyamoto - Hakujitsumu - Semishigure (Daydreams - the Cicada Chorus)
+09. Kodo - Biei (Etheral Flow)
+10. Kodo - Niji no Naguri (Rainbow Traces)(   Читать дальше...)Жанр: Ambient, Ethno, Flute, DrumsПродолжительность: 01:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:124D9CF29071A9E534599FABBC22D23A5E746191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 368690   (527458) от 29.07.2011
 
 Takahiro Kido - Fairy Tale (2011) [MP3|320 kbps]<New Age, Modern Classical>
@@ -653,7 +749,7 @@ Takahiro Kido - Fairy Tale (2011) [MP3|320 kbps]<New Age, Modern Classical>
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_527458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_527458.jpg" />
 </div>
 
 
@@ -673,103 +769,6 @@ Takahiro Kido - Fairy Tale (2011) [MP3|320 kbps]<New Age, Modern Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25C3B55920E0A3981A56789FAC675A635F4FDACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 368721   (527424) от 29.07.2011
-
-Ronnie Nyogetsu Seldin - Ichi On Buttsu: One Sound Enlightenment (1997) [MP3|320 kbps]<Zen, Ethnic, Shakuhachi>
-
->>East Asian Music
->>Asian Traditional, Ethnic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_527424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ifu-Sashi
-02. Banji
-03. Omae
-04. Darami
-05. Banshiki
-06. Koku
-07. Mukaiji
-08. Kyorei1997Жанр: Zen, Ethnic, ShakuhachiПродолжительность: 01:07:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E608A272AE04B6D9CCB6E7372A8664B866958E17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 266334   (526722) от 30.07.2011
-
-CLON - Discography[5 albums] (1996-2005) [FLAC|Lossless]<Korean,dance>
-
->>East Asian Music
->>Other Asian (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 세상 밖으로
- 02. Ok! Alright! (feat. 채연)
- 03. 우하
- 04. Ready To Go (feat. 이지연)
- 05. 내사랑 송이 (feat. 원우)
- 06. Let's Go (feat. 이지영)
- 07. 더이상 침묵할 수 없다
- 08. 소외된 외침
- 09. 대면... (Interlude)
- 10. 무언의 발걸음 (feat. 이정)(   Читать дальше...   )1996-2005Жанр: Korean, danceПродолжительность: 00:57:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559355   (524324) от 25.06.2022
-
-Hate Beyond - Perpetual Pain (2003) [FLAC|Lossless|image + .cue] <Thrash, Death Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perpetual Pain
-02. Dark Signs
-03. Gun Philosophy
-04. My Fate By Hate(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C03910A0C15FA09D82EF7D4A84343836BE21C57E
 ```
 
 https://mybot314.ru/tekegram_catalog/

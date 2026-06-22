@@ -1,3 +1,107 @@
+###  Публикация: 1001031   (855128) от 27.03.2016
+
+The Count Lucanor (2016) [En/Multi] (1.0.16) Repack ARMENIAC
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855128.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Count Lucanor - приключенческий RPG-рогалик с элементами хоррора, где вместе с мальчиком по имени Ганс, вам предстоит отправиться в удивительный волшебный мир и пережить уникальное приключение, наполненное сюрпризами и испытаниями! Погрузитесь в захватывающую историю, которая будет меняться от каждого вашего решения и постарайтесь собраться воедино все кусочки (   Читать дальше...   )Тип издания: RepackРазработчик: Baroque DecayЖанр: Horror Adventure, RPG, PuzzleЯзык субтитров: Английский, Французский, ИспанскийЯзык интерфейса: Английский, Французский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52C5417997C5F7685253DF13F7887E6126F3B5F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109963   (854834) от 01.03.2017
+
+Sherlock Holmes: The Devil's Daughter (2016) [Ru/En] (1.0.8767.0) Repack =nemos=
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте самым знаменитым детективом всех времён - Шерлоком Холмсом! Используйте свои впечатляющие детективные способности для раскрытия пяти захватывающих и чрезвычайно разнообразных дел: убийства, исчезновения людей, впечатляющие кражи, а также расследования, которые способны привести в область невероятного.Тип издания: RepackРазработчик: FrogwaresЖанр: Adventure, Detective, Thriller, Action, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA454CEBCF69FB12B068ABC82776022777BA2F0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001385   (853618) от 28.03.2016
+
+The Inquisitor Book II: The Village (2015) [Ru/Multi] (1.0) Repack АRMENIAC [Nicolas Eymerich]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853618.jpg" />
+</div>
+
+
+###  Подробнее
+
+1345 год. Тень Сатаны витает над югом Франции. Злые тени появились в небе во время летнего солнцестояния, после чего убийственная чума стала распространяться по всем городам. Главный инквизитор Николя Эймерих считает, чтобы сдержать распространение заразы, зло нужно искоренить в самом его источнике. Но действительно ли он борется со злыми духами? Или это только его (   Читать дальше...   )Тип издания: RepackРазработчик: Ticonblu , MicroïdsЖанр: Квест, приключения (Point-and-Click)Язык озвучки: Английский, Итальянский, ЛатыньЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:945A545176AEE10CBB574F0F4BFEC85D8BB61E0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001386   (853520) от 28.03.2016
+
+The Inquisitor Book I: The Plague (2014) [Ru/Multi] (1.0) Repack АRMENIAC [Nicolas Eymerich]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой квеста The Inquisitor: The Plague – это реальный персонаж, всем известный инквизитор Николас Эймерик, призвание которого – бороться с еретиками и жестоко наказывать их. Он не понимает, как можно предать свою веру, и поэтому жалости к таким людям у него нет.Действие игры происходит в середине 13 века, в Каркасоне, зараженном смертельной чумой. Из-за (   Читать дальше...   )Тип издания: RepackРазработчик: Ticonblu , MicroïdsЖанр: Квест, приключения (Point-and-Click)Язык озвучки: Английский, Итальянский, ЛатыньЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B694594187430249793296551BEF0CEA2E962E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110516   (853348) от 02.03.2017
 
 Sherlock Holmes: The Devil's Daughter (2016) [Ru/En/Ua] (1.0.8767.0) Repack R.G. Revenants
@@ -6,7 +110,7 @@ Sherlock Holmes: The Devil's Daughter (2016) [Ru/En/Ua] (1.0.8767.0) Repack R.G.
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853348.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Hero of the Kingdom: The Lost Tales 1 (2020) [Ru/Multi] (1.00) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852776.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Murder Mystery Machine (2021) [Ru/Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852537.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ I Saw Black Clouds (2021) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852321.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Terrarium Land (2016) [Ru/Multi] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851715.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ The Flower Collectors (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851256.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Ancestors: The Humankind Odyssey (2019) [Ru/Multi] (1.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851006.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ NightCry (2016) [En/Jap] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849944.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ The Shattering (2020) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849480.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ The Flower Collectors (2020) [Ru/Multi] (1.0.4.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849462.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Impostor Factory (2021) [Ru/Multi] (7455447) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849267.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Those Who Remain (2020) [Ru/Multi] (1.0191) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849044.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Amigdala (2016) [En] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848227.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Layers of Fear (2016) [Ru/Multi] (5.1.3.48304/upd 2) Repack SpaceX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846429.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Adam's Venture: Origins (2016) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846202.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Dap (2021) [En] (1.0.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845817.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Meridian 157 (2019-2021) [Ru/Multi] (1.0.6/1.0.6/1.0.6.0/1.0.3.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845815.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Heaven's Hope (2016) [En/De] (1.0) License CODEX [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844734.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Adam's Venture: Origins (2016) [Ru/Multi] (1.0) Repack Choice
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844577.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ Adam's Venture: Origins (2016) [Ru/Multi] (1.0/dlc) Repack =nemos=
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844363.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ Inspector Waffles (2021) [Multi] (1.0.2.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844151.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ LUNA The Shadow Dust (2020) [Graphic] (1.0.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844114.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ LUNA The Shadow Dust — это вдохновленная квестами ст
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D42080884A74AEA5BE29BD21FF875A2381C07526
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 878123   (843477) от 14.03.2015
-
-Hektor (2015) [En] (1.1.0b) Repack xGhost
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hektor - это психологический хоррор с видом от первого лица, одной из основных особенностей которого является динамический игровой мир. Локации могут изменяться прямо на глазах в зависимости от действий, которые совершают игроки во время прохождения. Местом действия игры станет заброшенный научно-исследовательский комплекс, расположенный на территории Северной Гренландии. Игрокам в роли главного героя нужно будет постараться выбраться из этого мрачного и опасного места, преодолевая различные препятствия на своем (   Читать дальше...   )Тип издания: RepackРазработчик: RubyconeЖанр: Action (Survival horror) / 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FFCE45BC6614A4EFBB019F312FF82AEB2B2F130
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003673   (842622) от 03.04.2016
-
-Swordbreaker: The Game / Мечелом (2015) [Ru/En] (1.0 u1) Repack DARKSiDERS
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Swordbreaker - визуальная новелла, рассказывающая о герое со сложной судьбой, отправившегося на поиски заброшенного замка, который он увидел на карте. Там ему предстоит отыскать сокровища, преодолевая на своем пути различные препятствия и сражаясь с необычными противниками. Также вам необходимо будет принимать важные решения, которые повлияют на развитие сюжета и (   Читать дальше...   )Тип издания: RepackРазработчик: DuCats Games StudioЖанр: Adventure, Roguelike, Visual novelsЯзык озвучки: -/-Язык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D81A288528A68E794B3A352C6CE53D9C5BBA205E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500078   (842334) от 05.10.2021
-
-A Juggler's Tale (2021) [Ru/Multi] (1.13) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эбби — артистка, пленённая в цирке. Днём она развлекает публику, а ночи проводит в клетке, жаждая свободы. Однажды она сбегает из цирка и попадает в мистический мир. Но за свободу приходится платить, и Эбби вскоре оказывается втянутой в опасности, которые возможны в этом мире. В разрушенной войной средневековой сказке Эбби, окружённая разорёнными и голодными жителями (   Читать дальше...   )Тип издания: RepackРазработчик: kaleidoscubeЖанр: Adventure, Action, Puzzle, 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB99787ECFF8838E97D1572D7043A72A515B5E50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003713   (841283) от 04.04.2016
-
-Monumental (2016) [En] (1.0) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Monumental - приключенческая видеоигра, в которой игрокам предстоит выяснить все тайны загадочного Монументa найденного на планете, где некогда жили представители высокоразвитой инопланетной расы стоявшие на пороге великого открытия.Тип издания: LicenseРазработчик: Whipstitch GamesЖанр: Adventure, Puzzle solvingЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD772FA77CD9C9B25F6BF2EBBBF689ECD1FD325F
 ```
 
 https://mybot314.ru/tekegram_catalog/

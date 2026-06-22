@@ -1,3 +1,29 @@
+###  Публикация: 1671081   (171510) от 23.10.2023
+
+Радислав Гандапас | К выступлению готов! Презентационный конструктор (2007) [ISO, MP3, Радислав Гандапас] [AD]
+
+>>Мультимедийные материалы
+>>Образование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга написана российским автором и лучше всего соответствует российским корпоративным традициям. Радислав Гандапас много лет работает с отечественными бизнесменами и чиновниками и знает, какие неписаные законы работают в этой среде. Кроме того, он опытный преподаватель, известнейший бизнес-тренер, и может научить читателя готовить презентации легко и непринужденно. (   Читать дальше...   )Жанр: Обучающие аудиоматериалыЯзык озвучки: РусскийФормат: Образ ISO, имеется встроенное ПО для воспроизведения под windowsПродолжительность: 04:52:30Реклама: присутствует рекламный ролик 20 сек перед началом занятий.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48D70F427B0B2300228BE32217480B05BCD30BE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671095   (171464) от 23.10.2023
 
 Stepik, Sergey Romanenko | JavaScript Базовый уровень (2023) [unpacked]
@@ -6,7 +32,7 @@ Stepik, Sergey Romanenko | JavaScript Базовый уровень (2023) [unpa
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171464.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Stepik | Делаем бота с Aiogram, SQLAlchemy(PostgreSQL) и Docker (202
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166268.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Stepik | WEB Парсинг на Python (2022) [unpacked]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166183.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165724.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165673.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165578.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ HTML Academy | Онлайн-курс «Вёрстка email-рассылок» (
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163402.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ WebforMyself, Андрей Кудлай | Создание интернет-ма
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162814.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ HTML Academy | Проект на JavaScript «Сайт объявлений»  (
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156573.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ HTML Academy | Git и GitHub (2022) [unpacked]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156464.jpg" />
 </div>
 
 
@@ -278,7 +304,7 @@ HTML Academy | Основы наставничества (2022) [unpacked]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154861.jpg" />
 </div>
 
 
@@ -304,7 +330,7 @@ American English Pronunciation Chart | Программа для овладен�
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154798.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ CHIP | DVD приложение к журналу CHIP №1 (Январь 2018) 
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154788.jpg" />
 </div>
 
 
@@ -358,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154667.jpg" />
 </div>
 
 
@@ -387,7 +413,7 @@ HTML Academy | CSS-in-JS (2022) [unpacked]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154639.jpg" />
 </div>
 
 
@@ -415,7 +441,7 @@ HTML Academy | Дизайн для фронтендеров (2022) [unpacked]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154630.jpg" />
 </div>
 
 
@@ -443,7 +469,7 @@ CHIP - DVD приложение к журналу CHIP №1 (Январь 2016) 
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152189.jpg" />
 </div>
 
 
@@ -469,7 +495,7 @@ CHIP | CHIP - DVD приложение к журналу CHIP №1 (январь
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145670.jpg" />
 </div>
 
 
@@ -495,7 +521,7 @@ Liveclasses, Дмитрий Щербаков | 3D моделирование в 
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138958.jpg" />
 </div>
 
 
@@ -521,7 +547,7 @@ English with Lucy | The PDF Vault (2020) [unpacked] [AD] [EN]
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137241.jpg" />
 </div>
 
 
@@ -549,7 +575,7 @@ English with Lucy | Аудирование. Восприятие речи на �
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137131.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135514.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135176.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ English with Lucy | The Phrasal Verbs Challenge (2022) [unpacked] [AD] [EN]
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135095.jpg" />
 </div>
 
 
@@ -661,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133405.jpg" />
 </div>
 
 
@@ -681,33 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE35A4602E7D69F4207AB9185C3B6E50E3EBD2CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595088   (132476) от 28.12.2012
-
-DVD приложение к журналу "Хакер" №01 (168), 2013 [unpacked]
-
->>Мультимедийные материалы
->>Приложения к журналам
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132476.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Хакер" – это журнал помогающий читателю освоить современные компьютерные технологии, программирование, скрытые возможности программ и оборудования, знакомит с компьютерной историей, людьми, повлиявшими на развитие компьютерной индустрии. Причем делает это с юмором, простым языком. Наша задача – помочь молодежи освоиться в мире IT-технологий, поддержать и развить их увлечение компьютерами.
-Журнал Хакер - один из самых популярных журналов, посвященный искусству хакерства, интересным статьям для самообразования, информации о том, что необходимо знать каждому пользователю компьютера. Главное отличие от других изданий - манера подачи материалов. Журналисты Хакера объясняют сложные вещи простым языком, с юмором и молодежным сленгом. Единственным исключением является рубрика ВЗЛОМ, которая рассчитана на более серьезных специалистов, материалы в этой рубрике подаются более углубленно с множеством технических подробностей и терминов.Жанр: DVD приложение к журналу (раздача каталогами)Формат: unpacked
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:174481250E8E488E32B7FFCD47BA721D49E3EE4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1246571   (461477) от 11.09.2018
+
+VA - Prelude To Decadence (2018) [MP3|320 Kbps] <Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461477.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fates Warning - Damnation
+002. The Lurking Fear - Out Of The Voiceless Grave
+003. Hate - Asuric Being
+004. Spoil Engine - Disconnect(   Читать дальше...   )Жанр: MetalПродолжительность: 08:15:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E58F01C65CAFAFCBC39202B690751D2A0DC6EE1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059450   (461473) от 04.10.2016
+
+Trans-Siberian Orchestra - Best Of Classics (2016) [MP3|320 Kbps] <Symphonic Rock, Progressive Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toccata - Carpimus Noctem
+02. A Last Illusion
+03. Mozart - Figaro
+04. Dreams Of Fireflies (On A Christmas Night)(   Читать дальше...   )Жанр: Symphonic Rock, Progressive RockПродолжительность: 00:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D149075939F65B72EB875924770A9664691C9E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246546   (460906) от 11.09.2018
 
 VA - Дети Последних Дней (2018) [MP3|256-320 Kbps] <Rock>
@@ -6,7 +64,7 @@ VA - Дети Последних Дней (2018) [MP3|256-320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460906.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Rock And Flowers (2019) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458939.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Seventh Seal (2020) [MP3|320 Kbps] <Hard Rock, Ballad, Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458156.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Elvis Presley - Good Songs (2015) [MP3|192 кб/с]<Rock'n'roll>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457636.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ The Pretty Reckless - Compilation (2022) [MP3|320 Kbps] <Rock, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453510.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Rock Хит. Высокое Напряжение (2015) [MP3|256 кб/с]<R
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453250.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Back End Roads: Indie Rock Collection (2019) [MP3|320 Kbps] <Indie, Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452490.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Impressive Sound 2022.1: Volume VI (2022) Compilation [MP3|320 Kbps] <Metal
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451657.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Another 100 Melodic Rock Anthems (2015) [MP3|320 кб/с]<Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451498.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Music For You vol. 23 (2022) [MP3|320 Kbps] <Metal, Rock, Other>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446993.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Maschinen Metall Music (2017) [MP3|320 Kbps] <Metall, Heavy Metall, Hard Ro
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445960.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445817.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Chris Norman - Good Songs (2015) [MP3|320 кб/с]<Rock, Pop>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444756.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Metallica - Live in Moscow at Olimpiyskiy Arena (2015) [MP3|320 кб/с]<Heavy M
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444754.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Panopticum: Punk Rock Compilation (2020) [MP3|320 Kbps] <Punk, Rock Punk>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443266.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Top 1000 Classic Rock Songs of All Time (2011) [MP3|104-320 кб/с]<Classi
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441808.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Ascension: Selection Of Melodic Hard Rock (2018) [MP3|320 Kbps] <Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439815.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Asylum Of Soul: Hard Rock Collection (2017) [MP3|320 Kbps] <Rock, Hard Rock
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438935.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Для Тех, Кто Помнит! Русский Рок Vol.3 от Ovvod7
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438840.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Horror Sky: Dub Hardcore Set (2017) [MP3|320 Kbps] <Dub Hardcore, Hard Elec
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437070.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Для Тех, Кто Помнит! Русский Рок Vol.4 (от Ovvod
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434318.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Burn This Town (2019) [MP3|320 Kbps] <Indie Rock, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433785.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Sting - Good Songs (2015) [MP3|320 кб/с]<Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433100.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Scorpions - Good Songs (2015) [MP3|320 кб/с]<Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432963.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Scorpions - Good Songs (2015) [MP3|320 кб/с]<Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F1B6EBC5963146AD8A71D5D88BEEB8ED42725DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165506   (432219) от 13.09.2017
-
-VA - Для Тех, Кто Помнит! Русский Рок Vol.5 (от Ovvod7) (2017) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ария - Встань, Страх Преодолей  4:13
-02.  Ночные Снайперы - Катастрофически  3:30
-03.  Ва-Банкъ - Хулиган  2:52
-04.  Калинов Мост - Имя Назвать  5:18(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6122071CCCC42A992DBAD7CF7EACAE1500592F0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410758   (431722) от 23.09.2020
-
-VA - Invasion Wendigo: Metal Alliance (2020) [MP3|320 Kbps] <Hard Rock, Metal, Core>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431722.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Evade - As You Beg
-002. Roadsaw - Fat Rats
-003. Child Bite - Persistance Award
-004. Visitantes - Ahora(   Читать дальше...   )Жанр: Hard Rock, Metal, CoreПродолжительность: 09:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0E97FDFB8F5A32E14A97A6AFEB19902611618FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

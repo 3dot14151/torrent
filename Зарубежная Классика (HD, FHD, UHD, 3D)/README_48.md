@@ -1,3 +1,56 @@
+###  Публикация: 1126722   (519887) от 17.08.2018
+
+Барон Мюнхгаузен / Baron Prasil (1962) BDRip [H.264/1080p] [PR]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Барон Мюнхгаузен, Сирано де Бержерак и жюль-верновский герой Бирбикен встретились на Луне с молодым ученым-астрономом, нашим современником. Приняв его за обитателя Луны, Барон Мюнхгаузен решает отправиться вместе с ним на Землю, дабы показать ему, на что способна настоящая фантазия....
+Фантасмагория по книге Бюргера, стилизованная под гравюры Доре. 3еман вводит в (   Читать дальше...   )Производство: Чехословакия, Filmov Studio Gottwaldov, Krtk Film PrahaЖанр: Фантастика, Фэнтези, Мелодрама, КомедияРежиссер: Карел ЗеманАктеры: Милош Копецки, Рудольф Елинек, Яна Брейхова, Карел Хёгер, Nadesda Blazickova, Карел Эффа, Йозеф Глиномаз, Зденек Годр, Мирослав Голуб, Мирослав ГомолаПеревод: Дублированный, одноголосый закадровыйСубтитры: английские, чешскиеПродолжительность: 01:19:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2319A47F285270164DF2D6AD9BEBC13A08B9FA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924987   (519423) от 19.08.2015
+
+Из породы беглецов / The Fugitive Kind (1960) HDTV [H.264/1080i-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Валентайн Ксавьер — бродячий музыкант, решивший сменить образ жизни и покончить со злачными местами и ночными клубами. Волею судьбы он попадает в провинциальный городок, где устраивается на работу продавцом в магазин Джейба Торренса. Между ним и Леди Торренс — женой хозяина магазина возникает симпатия. Но на сердце парня также претендует молодая и взбалмошная Кэрол (   Читать дальше...   )Производство: США, Pennebaker ProductionsЖанр: Драма, МелодрамаРежиссер: Сидни ЛюметАктеры: Марлон Брандо, Анна Маньяни, Джоэнн Вудворд, Морин Стейплтон, Виктор Джори, Р.Г. Армстронг, Эмори Ричардсон, Мадам Спиви, Сэлли Грейси, Люсиль БенсонПеревод: Двуголосый закадровый (НТВ+)Продолжительность: 01:55:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70E03B49C617054B4DADC6FBEF349E6D1463CD3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924710   (519346) от 19.08.2015
 
 Как украсть миллион / How to Steal a Million (1966) BDRemux [H.264/1080p]
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519346.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518692.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518663.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518662.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517628.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517598.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517264.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516707.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515572.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514827.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514753.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514507.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514453.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513486.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513398.jpg" />
 </div>
 
 
@@ -405,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512821.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512737.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512705.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512585.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512502.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511455.jpg" />
 </div>
 
 
@@ -562,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510406.jpg" />
 </div>
 
 
@@ -588,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509016.jpg" />
 </div>
 
 
@@ -614,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508947.jpg" />
 </div>
 
 
@@ -625,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE846C6DDB6AA89D6D9BE5FB9EB0E004397FAAF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929092   (508929) от 29.08.2015
-
-Можешь не стучать / Don't Bother to Knock (1952) HDTV [H.264/1080i]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нью-Йоркский отель. Родители приглашают молодую особу Нэлл Форбс (Мэрилин Монро) посидеть с их дочерью, пока они будут на банкете. Им невдомек, что у миловидной девушки серьезные проблемы с психикой. Встретив в этом же отеле летчика Джеда Тауэрса, напомнившего ей погибшего жениха, Нелл приглашает его в номер. Ребенок начинает ей мешать…Производство: США, Twentieth Century Fox Film CorporationЖанр: Триллер, ДрамаРежиссер: Рой Уорд БейкерАктеры: Мэрилин Монро, Ричард Уидмарк, Энн Бэнкрофт, Донна Коркоран, Джинн Кэгни, Лурин Татл, Элиша Кук мл., Джим Бэкус, Верна Фелтон, Уиллис Бучей, Дон БеддоПеревод: Многоголосый закадровый (Первый канал)Продолжительность: 01:12:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BE1C80217D5F01D8F6CBBA5229590DAAE54F9EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929177   (507963) от 30.08.2015
-
-Давай сделаем это легально / Let's Make It Legal (1951) HDTV [H.264/1080i]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_507963.jpg" />
-</div>
-
-
-###  Подробнее
-
-После 20 лет супружеской жизни Мириам (Клодетт Колбер) и Хью Халсоуорт (МакДоналд Кэри) решают поставить жирную точку на их браке. Окончательно развод должен вступить в силу в полночь. Но как раз днем, накануне этого знаменательного события, в городе появляется Виктор МакФэрланд (Зэкэри Скотт), бывший ухажер Мириам, готовый вновь вступить в бой за сердце давней возлюбленной…Производство: США, 20th Century FoxЖанр: КомедияРежиссер: Ричард СейлАктеры: Клодетт Колбер, МакДоналд Кэри, Зэкэри Скотт, Барбара Бэйтс, Роберт Вагнер, Мэрилин МонроПеревод: Многоголосый закадровый (Первый канал)Продолжительность: 01:13:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D15E92B2EA6CEAD718CBCFAEC4D4E58F567E2D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

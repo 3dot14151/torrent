@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064669.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064552.jpg" />
 </div>
 
 
@@ -53,6 +53,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859813   (1064551) от 17.03.2026
+
+K-Lite Codec Pack Update 19.5.8 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1064551.jpg" />
+</div>
+
+
+###  Подробнее
+
+K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов отсутствием конфликтов между кодеками, легкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98EF8D8D0D86EDE49636963AE79E22A3A15ECD60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 234439   (1064550) от 17.03.2026
 
 Тегеран 43 (1980) DVD9
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064550.jpg" />
 </div>
 
 
@@ -91,7 +117,7 @@ Fan Control V263 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064543.jpg" />
 </div>
 
 
@@ -117,7 +143,7 @@ Perfectly Clear WorkBench 5.0.4.3151 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064542.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ Opera One 129.0.5823.22 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064541.jpg" />
 </div>
 
 
@@ -162,6 +188,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862037   (1064539) от 28.03.2026
+
+K-Lite Codec Pack Update 19.6.2 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1064539.jpg" />
+</div>
+
+
+###  Подробнее
+
+K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов отсутствием конфликтов между кодеками, легкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2082B67BBB72D3E42A351054533A758C2FD139DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862100   (1064538) от 28.03.2026
 
 Perfectly Clear WorkBench 5.0.4.3157 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -170,7 +222,7 @@ Perfectly Clear WorkBench 5.0.4.3157 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064538.jpg" />
 </div>
 
 
@@ -197,7 +249,7 @@ PrivaZer Pro 4.0.120 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064537.jpg" />
 </div>
 
 
@@ -223,7 +275,7 @@ YT Downloader 10.3.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064536.jpg" />
 </div>
 
 
@@ -249,7 +301,7 @@ Zen Browser 1.19.4 beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064535.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ Adobe Acrobat Pro 2026.001.21346 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064534.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ Photo Supreme 2026.2.0.8901 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064533.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ PrivaZer Pro 4.0.120 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064532.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ reaConverter Pro 8.0.209 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064531.jpg" />
 </div>
 
 
@@ -372,6 +424,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862311   (1064530) от 29.03.2026
+
+K-Lite Codec Pack Update 19.6.3 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1064530.jpg" />
+</div>
+
+
+###  Подробнее
+
+K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов отсутствием конфликтов между кодеками, легкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DAFC4BFDD1190A5B885E140F44398B6FAF873CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862269   (1064529) от 29.03.2026
 
 Icecream PDF Editor Pro 3.29 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -380,7 +458,7 @@ Icecream PDF Editor Pro 3.29 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064529.jpg" />
 </div>
 
 
@@ -406,7 +484,7 @@ PrivaZer Pro 4.0.120.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064528.jpg" />
 </div>
 
 
@@ -432,7 +510,7 @@ YT Downloader 10.3.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064527.jpg" />
 </div>
 
 
@@ -458,7 +536,7 @@ Sumatra PDF 3.7.17933 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064526.jpg" />
 </div>
 
 
@@ -485,7 +563,7 @@ Zen Browser 1.19.5 beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064525.jpg" />
 </div>
 
 
@@ -511,7 +589,7 @@ Topaz Photo 1.4.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064524.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064523.jpg" />
 </div>
 
 
@@ -566,7 +644,7 @@ PrivaZer Pro 4.0.120.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064522.jpg" />
 </div>
 
 
@@ -584,103 +662,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862669   (1064520) от 31.03.2026
+###  Публикация: 1862597   (1064521) от 31.03.2026
 
-OCCT 16.1.3 Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для проведения синтетических тестов на стабильность работы компьютера. OCCT Perestroika позволяет проводить парное тестирование: процессор - память и отдельную проверку стабильной работы центрального процессора и оперативной памяти. Результаты проверки выводятся в виде информативных графиков. Программа поддерживает работу с современными многоядерными процессорами (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83C1D11DE9FA2FEEBB0679181611F79F44A5DE74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862683   (1064519) от 31.03.2026
-
-Dopamine 3.0.3 [Multi/Ru]
+K-Lite Codec Pack Update 19.6.4 [En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1064521.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Dopamine — элегантный аудиоплеер, который стремится сделать организацию и прослушивание музыки максимально простыми и привлекательными. Эта версия написана на Electron, Angular и TypeScript.Язык интерфейса: Русский, Английский и другие
+K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов отсутствием конфликтов между кодеками, легкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:97E00FAA27213BF53DB74BCB2AC7802AAD99C80C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862637   (1064518) от 31.03.2026
-
-Topaz Photo 1.4.0 RePack by KpoJIuK [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Photo - это интеллектуальное программное обеспечение для улучшения изображения, которое позволяет вам заострить детали, восстановить фокус и регулировать уровни на каждом снимке. Выбирайте из 11 инструментов на основе ИИ для совершенствования своих изображений, или начните Вашу работу при установках по умолчанию (Автопилот).Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6451B53C0B4F87BDEDF231EFF18D7CC6B73667EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862564   (1064517) от 31.03.2026
-
-PotPlayer 260114 (1.7.22777) RePack (& Portable) by elchupacabra (31.03.2026) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064517.jpg" />
-</div>
-
-
-###  Подробнее
-
-PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A80E2A7F80D15C3A16082C8947C195A3D9FA6BE
+magnet:?xt=urn:btih:1D77DE986045F7C2C4B00770453247AF70FF81BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 619273   (968602) от 15.02.2013
+
+Mythbuntu 12.04.2 LTS [i386, x86-64] (2xCD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968602.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обновлен Mythbuntu, основанный на Ubuntu дистрибутив, целью которого является создание самостоятельной системы основанной на программе MythTV (аналоги Knoppmyth и Mythdora). Представляет собой самодостаточную мультимедийную станцую, как для просмотра, так и для вещания. В качестве рабочего окружения используется XFCE4. По умолчанию нет никаких дополнительных приложений, типа OpenOffice или Evolution, но в любой момент Mythbuntu может быть легко превращен в Ubuntu, Kubuntu, Xubuntu или любую другую *buntu систему. Для управления используется Mythbuntu Control Center, которое позволяет настроить все необходимые параметры для нормально работы MythTV, “превратить” в другие *buntu системы (доустановив необходимые пакеты), установить проприетарные драйвера или кодеки, настроить ПДУ и многое другое.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976858   (967525) от 19.01.2016
+
+KaOS Linux 2016.01 (Arch + Plasma KDE 5) [x86-64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект KaOS представил январский релиз новой стабильной версии своего Linux-дистрибутива с поддержкой UEFI и разметки GPT. К наиболее существенным изменениям разработчики относят: модифицированный Plasma Desktop, который включает Frameworks 5.18.0, Plasma 5.5.3 and KDE Applications 15.12.1.. Plasma Wayland доступен через пункт меню менеджера входа в систему. Также (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A51925CD9CC30F97A75C0151E14B7405B97DAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358992   (966007) от 10.02.2020
+
+Debian GNU/Linux 10.3.0 + nonfree Buster [i386] 4xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как сообщает OpenNET, опубликовано третье корректирующее обновление дистрибутива Debian 10, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 94 обновления с устранением проблем со стабильностью и 52 обновления с устранением уязвимостей. Одновременно сформирован выпуск Debian 9.12, в котором предложено 70 обновлений (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C9E90724DCC580AD95753F4157CBAF24E8668C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358991   (965949) от 10.02.2020
 
 Debian GNU/Linux 10.3.0 + nonfree Buster [amd64] 4xDVD
@@ -6,7 +84,7 @@ Debian GNU/Linux 10.3.0 + nonfree Buster [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965949.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Microsoft Office 2003 Professional SP3 (обновления 02.01.2016) Repack 
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965243.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963943.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ BackBox Linux 3.13 (Анализ безопасности, хакинг) [i386, 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963603.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ ArchLinux 2013.02.01 [i686 + x86_64] (1xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962599.jpg" />
 </div>
 
 
@@ -142,7 +220,7 @@ Mageia 4 RC [i586, x86-64] 7xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962432.jpg" />
 </div>
 
 
@@ -176,7 +254,7 @@ Q4OS 1.4.6 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [i
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961958.jpg" />
 </div>
 
 
@@ -204,7 +282,7 @@ Debian GNU/Linux 8.3.0 Jessie [i386] 3xDVD, 2x updateDVD, 1x netinstCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960879.jpg" />
 </div>
 
 
@@ -232,7 +310,7 @@ KNOPPIX 7.6.1 [x32, x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960763.jpg" />
 </div>
 
 
@@ -258,7 +336,7 @@ Debian GNU/Linux 8.3.0 Jessie [amd64] 3xDVD, 2x update DVD, 1x netinstCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959529.jpg" />
 </div>
 
 
@@ -286,7 +364,7 @@ ROSA Desktop Fresh (KDE + Plasma) R7 [i586] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959496.jpg" />
 </div>
 
 
@@ -314,7 +392,7 @@ SolusOS 1.3 (Debian + Gnome) [x86, amd64] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958520.jpg" />
 </div>
 
 
@@ -342,7 +420,7 @@ BackBox Linux 4.5 [Анализ безопасности, хакинг] [i386, a
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958189.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ Tor Browser 2.3.25-4 [анонимный доступ в сети] [i686, x86-64
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957534.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ Debian GNU/Linux 8.3.0 Jessie Live [amd64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957104.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ Window Maker Live  0.95.7-2 (Легкий дистрибутив) [i386, amd64] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957090.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ Debian GNU/Linux 6.0.7 [amd64, x86-64] (10xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956510.jpg" />
 </div>
 
 
@@ -479,7 +557,7 @@ Debian GNU/Linux 8.3.0 Jessie Live [i386] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955689.jpg" />
 </div>
 
 
@@ -507,7 +585,7 @@ Tor Browser 5.5 [анонимный доступ в сети] [х86, x64] (bundl
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955673.jpg" />
 </div>
 
 
@@ -533,7 +611,7 @@ Debian GNU/kFreeBSD 6.0.7 [amd64] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955286.jpg" />
 </div>
 
 
@@ -563,7 +641,7 @@ Debian GNU/Linux 6.0.7 [i386] (10xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954954.jpg" />
 </div>
 
 
@@ -591,7 +669,7 @@ Edubuntu 14.04 Alpha II (Ubuntu для школ и вузов) [i386, amd64] 2xD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954300.jpg" />
 </div>
 
 
@@ -619,7 +697,7 @@ Linux Mint 17.1 Rebecca KDE [32bit, 64bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952821.jpg" />
 </div>
 
 
@@ -632,88 +710,6 @@ Linux Mint — дистрибутив операционной системы Li
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3752EF428A4EFC327D11BE2F36988FDD87090AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362539   (947646) от 24.02.2020
-
-Parted Magic 2020.02.23 [i686/amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Parted Magic — готовое решение для работы с разделами жесткого диска на базе загрузочного LiveCD. Дистрибутив включает полноценную операционную систему. Последняя, в свою очередь, кроме управления разделами, может также производить настройку установленной системы, работать с сетью интернет, а также производить любые операции с данными (удаление, восстановление, перенос (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3987D9343DEC57615C1F0462D28081EC07396605
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 625833   (946976) от 03.03.2013
-
-Red Hat Enterprise Linux 6.4 [i386] (DVD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Red Hat Enterprise Linux (RHEL) 6.4, корректирующий релиз корпоративного дистрибутива Linux от Red Hat, Inc., теперь содержит драйверы и userland-приложения, улучшающие производительность при работе в качестве гостевой системы на решениях для виртуализации Microsoft Hyper-V. Обновлённые драйверы также улучшили производительность при работе с VMware ESX. Red Hat улучшила KVM, интегрированную в RHEL систему виртуализации; гипервизор теперь поддерживает некоторую функциональность следующего поколения процессоров Intel, в том числе Advanced Vector Extensions 2 (AVX2), Hardware Lock Elision (HLE) и Restricted Transactional Memory (RTM).
-
-Полностью поддерживается драйвер virtio-scsi, обеспечивающий гостевой системе RHEL, среди прочего, исключительное использование отдельных устройств SCSI. Улучшена производительность файловой системы pNFS (parallel Network File System). Усовершенствования System Security Services Daemon (SSSD) имеют позитивное влияние на функциональную совместимость с Microsoft Active Directory. За (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 625792   (946883) от 03.03.2013
-
-Red Hat Enterprise Linux 6.4 [x86-64] (DVD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Red Hat Enterprise Linux (RHEL) 6.4, корректирующий релиз корпоративного дистрибутива Linux от Red Hat, Inc., теперь содержит драйверы и userland-приложения, улучшающие производительность при работе в качестве гостевой системы на решениях для виртуализации Microsoft Hyper-V. Обновлённые драйверы также улучшили производительность при работе с VMware ESX. Red Hat улучшила KVM, интегрированную в RHEL систему виртуализации; гипервизор теперь поддерживает некоторую функциональность следующего поколения процессоров Intel, в том числе Advanced Vector Extensions 2 (AVX2), Hardware Lock Elision (HLE) и Restricted Transactional Memory (RTM).
-
-Полностью поддерживается драйвер virtio-scsi, обеспечивающий гостевой системе RHEL, среди прочего, исключительное использование отдельных устройств SCSI. Улучшена производительность файловой системы pNFS (parallel Network File System). Усовершенствования System Security Services Daemon (SSSD) имеют позитивное влияние на функциональную совместимость с Microsoft Active Directory. За (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

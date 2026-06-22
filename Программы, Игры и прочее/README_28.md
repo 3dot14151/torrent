@@ -1,3 +1,29 @@
+###  Публикация: 1456577   (1024903) от 23.03.2021
+
+Rock Identifier v1.2 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идентификация горных пород стала проще с приложением Rock Identifier. Просто сделайте или загрузите изображение своего камня, и Rock Identifier поможет вам идентифицировать его за секунды. Начните исследовать, изучать и записывать свое геологическое окружение с помощью Rock Identifier!Тип издания: Пиратка (Premium)Релиз состоялся: 15 марта 2021 г.Разработчик: Next Vision LimitedПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06F9C44844E6A304008BD60EEB5EB9EE8D0C45EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456567   (1024893) от 23.03.2021
 
 Picture Bird v2.1 [Ru/Multi] - Bird Identifier
@@ -6,7 +32,7 @@ Picture Bird v2.1 [Ru/Multi] - Bird Identifier
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024893.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Picture Mushroom v2.0 [Ru/Multi] - Mushroom ID
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024871.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Tingles ASMR v3.4.1 [Ru/En] - звуки для сна и расслаблени
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024835.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Car Radio v1.1.3 [En] - for Android Stereo Head Units
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024550.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024529.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ YAATA SMS 1.44.10.21936 Mod by papasha55, unz1p, solokot, Uksus17, Mare12 [Ru/En
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024393.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024061.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ AutoResponder for WA / Автоответчик для WhatsApp v1.9.9 [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024049.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Shadow of Death: Dark Knight - Stickman Fighting v1.100.0.0 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023997.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Robot Warfare v0.4.0 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023979.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023973.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023951.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ Machinarium v2.5.6 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023917.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ ClockWork Tomato v3.7.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023799.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ AirDroid v4.2.6.6 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023716.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ Jeejen 3.1.20 Mod by Martin H3 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023656.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Jasi Patcher 4.11 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023441.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ Tiny Scan: PDF Document Scanner 4.2.10 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023439.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ SwiftScan (Ранее Scanbot) 7.9.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023421.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ Hi-Q MP3 Voice Recorder 2.9.0 Mod by Balatan, Rainontheradio, vars0ug [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023412.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ Spotify Music 8.6.12.986 Mod by Balatan, Sentex, jwwwg [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023192.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023117.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023025.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ Family Coloring book v3.2.1 [En] (обновляемая)
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022879.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ Modern Combat 3: Fallen Nation 1.1.7g [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022346.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ odern Combat 3: Fallen Nation - один из лучших и реалистич
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:582B768F0163A059F5F622880ACF95F9F13E7B61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353028   (1022341) от 06.04.2021
-
-Modern Combat 4: Zero Hour 1.2.3e [Ru/En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Modern Combat 4: Zero Hour - новая сюжетная линия популярного экшена на Андроид от компании Gameloft. В этой игре используется новый движок Havok, разработанный специально для мобильных устройств. Отличительной особенностью его является возможность реализовать очень качественную и реалистичную графику, в чем вы сами сможете убедится скачав игру.Тип издания: Graphic Mode + Mod (Unlimited Money)Релиз состоялся: 25.06.2019Разработчик: Gameloft SEПоддерживаемая ОС: Android 4.4+Жанр: Экшены, шутерыЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25227F10940619A9E96CAA3D1986AA9557B21B44
 ```
 
 https://mybot314.ru/tekegram_catalog/

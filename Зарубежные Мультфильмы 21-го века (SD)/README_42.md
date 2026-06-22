@@ -1,3 +1,30 @@
+###  Публикация: 838028   (351340) от 05.11.2014
+
+Тролли: Лучшие друзья на всю жизнь / Trollz: Best Friends for Life (2005) DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знакомьтесь: Аметист, Рубин, Топаз, Оникс и Сапфир - пять неразлучных подружек, настоящих волшебниц. И хотя все они тролли, это не мешает им жить обычной жизнью: общаться, ходить в школу, встречаться с друзьями, посещать парикмахерскую и кафе. А свои магические силы они используют, чтобы сделать эту жизнь более захватывающей. Но однажды Аметисту приснился сон, в (   Читать дальше...   )Жанр: Мультфильм, семейныйРежиссер: Карен Хайден / Karen Hyden.Персонажи: Тролли
+--------------------------------------------------------------------------------------------------------------------------------------------------------------------Перевод: Профессиональный (многоголосый закадровый)- со вставками ГранкинаСубтитры: АнглийскиеФормат: AVIПродолжительность: 01:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34DC397D8756767C167066111AF367D66FB6D604
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952860   (350546) от 03.11.2015
 
 Головоломка / Inside Out (2015) BDRip [H.264]
@@ -6,7 +33,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350546.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350539.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350229.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350099.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349916.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349667.jpg" />
 </div>
 
 
@@ -162,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348392.jpg" />
 </div>
 
 
@@ -188,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347166.jpg" />
 </div>
 
 
@@ -214,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346532.jpg" />
 </div>
 
 
@@ -240,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345510.jpg" />
 </div>
 
 
@@ -266,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345476.jpg" />
 </div>
 
 
@@ -292,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341815.jpg" />
 </div>
 
 
@@ -318,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341733.jpg" />
 </div>
 
 
@@ -344,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339939.jpg" />
 </div>
 
 
@@ -370,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339893.jpg" />
 </div>
 
 
@@ -396,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339800.jpg" />
 </div>
 
 
@@ -422,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339118.jpg" />
 </div>
 
 
@@ -448,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338343.jpg" />
 </div>
 
 
@@ -474,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337753.jpg" />
 </div>
 
 
@@ -500,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337309.jpg" />
 </div>
 
 
@@ -526,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335560.jpg" />
 </div>
 
 
@@ -552,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334510.jpg" />
 </div>
 
 
@@ -578,7 +605,7 @@ Winx Club: Волшебное приключение / Winx Club: Magic Adventur
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331558.jpg" />
 </div>
 
 
@@ -605,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329935.jpg" />
 </div>
 
 
@@ -633,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329688.jpg" />
 </div>
 
 
@@ -644,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64705D2C823588043FD99A6FC42B300D6DD8A25C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956742   (328963) от 15.11.2015
-
-Миньоны / Minions (2015) BDRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миньоны живут на планете гораздо дольше нас. У них одна навязчивая идея - служить самой Гадкой личности из имеющихся в наличии. Динозавры, фараоны, Дракула, Наполеон - все они оказались недолговечны. И тогда миньоны рванули в Нью-Йорк. Их ждут деньги, власть, роковая суперзлодейка Скарлет Оверкилл и, конечно же, вкуснейшая «банана»! Во всяком случае, так им кажется.Производство: США / Illumination EntertainmentЖанр: Мультфильм, Комедия, СемейныйРежиссер: Кайл Балда, Пьер КоффанАктеры: Сандра Буллок, Джон Хэмм, Майкл Китон, Эллисон Дженни, Джеффри Раш, Дженнифер Сондерс, Стив Куган, Дэйв Розенбаум, Пьер Коффан, Кэти Миксон, Майкл Битти, Хироюки Санада, Стив Карелл, Алекс Доудинг, Пол Тонли, Ава Акрес, Карлос Аласраки, Лори Алан, Кайл Балда, Дэниэл Баркер, Боб Берген, Мелани БондПеревод: Дублированный (Blu-ray CEE)Язык субтитров: Русский (Forced)Продолжительность: 01:30:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C1C7D59F5E806F91924DEDC620C70F2CA8AD1CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

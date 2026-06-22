@@ -6,7 +6,7 @@ Keep It 1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954348.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Downcast 2.9.44 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954345.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ HistoryHound 2.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954335.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Multitouch 1.16.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954327.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ URL Manager Pro 5.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954320.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Antivirus Zap Pro 3.9.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954310.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954308.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ iSkysoft Video Converter Ultimate 11.6.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954302.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ SILKYPIX Developer Studio Pro 10 v10.0.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954290.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ MediaHuman Youtube Downloader 3.9.9.33 (2002) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954284.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ iA Writer 5.4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954215.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Swinsian 1.11.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953094.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Tweetbot for Twitter 2.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953091.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Curio 10.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953072.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Papers 3.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953033.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Gestimer 1.0.1 (472) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952951.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Alfred Powerpack 4.0.9 (build 1141) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952483.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ ImageRanger Pro Edition 1.6.5.1478 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952482.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Caffeinated 1.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952453.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Exposure Software Blow Up 3 v3.1.4.284 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952451.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Debookee 7 v7.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952438.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Exposure X5 v5.2.1.211 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952420.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Exposure Software Eye Candy 7 v7.2.3.96 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952338.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Exposure Software Snap Art 4 v4.1.3.280 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952318.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Alien Skin Exposure X5 Bundle 5.2.1.197 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952153.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Curio 10.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951949.jpg" />
 </div>
 
 

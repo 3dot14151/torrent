@@ -1,3 +1,133 @@
+###  Публикация: 1802164   (14576) от 15.06.2025
+
+The Alters (2025) [Ru/Multi] (1.0.1.46) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ознакомьтесь с игрой, сочетающей выживание, приключения и строительство базы. Помогите Яну Дольски - единственному выжившему в ходе неудачной космической экспедиции - создать альтернативные версии себя, чтобы покинуть враждебную планету и справиться с личными проблемами. The Alters - амбициозная научно-фантастическая игра с элементами выживания. Чтобы выжить, вы (   Читать дальше...   )Тип издания: RepackРазработчик: 11 bit studiosЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DBB492FC235DB7F96F82FBE6A60605DFBA74DDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802224   (14575) от 15.06.2025
+
+Smuta / Смута (2024) [Ru] (2.1.0/dlc) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Россия, 1612 год, Смутное время. Страна разорена голодом и войнами. На трон рвутся самозванцы. В Кремле засел польский гарнизон. Казалось, надежды нет. Но в это тяжелейшее время всем Московским царством ценой огромных усилий собирались народные Ополчения. Войско Второго Ополчения, под предводительством Дмитрия Пожарского и Кузьмы Минина, выдвинулось из Нижнего Новгорода (   Читать дальше...   )Тип издания: RepackРазработчик: Cyberia NovaЖанр: Приключение, Экшены, КвестЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04475076F58152BFEBE4F7D1CBA79F0DC4DA98B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802126   (14558) от 15.06.2025
+
+Five Nights at Freddy's: Secret of the Mimic (2025) [Multi] (1.0.20250606) Scene Rune
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Five Nights at Freddy's: Secret of the Mimic погружает игроков в структуру Поместья Мюррея Костюмс, заброшенной мастерской, содержащей нерешенные вопросы. Персонажам предстоит исследовать его глубины, чтобы раскрыть тайну, оставленную Эдвином Мюрреем, уединенным создателем этого места. Данная локация предлагает пространство, где всякий темный участок способен скрывать (   Читать дальше...   )Тип издания: SceneРазработчик: Steel Wool StudiosЖанр: ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33935076178044F6CBE40964436048ADD261C27E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521316   (14484) от 16.06.2025
+
+Suzerain (2020) [En] (3.1.0.1.137/dlc) License GOG [Expanded Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Итак, Вы - президент. В роли президента Антона Рейна, только что избранного на первый срок, вам предстоит возвысить родной многострадальный Сордленд или, наоборот, довести его до полного упадка. Сюжет игры (политическая драма) раскручивается посредством диалогов с членами кабинета министров и другими значимыми личностями. Вам предстоит бороться с коррупцией или поощрять (   Читать дальше...   )Тип издания: LicenseРазработчик: Torpor GamesЖанр: Indie, Roleplay, AdventureЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0015FC3DAE9089EA98E2824CEF35AE8D88F19508
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802356   (14466) от 16.06.2025
+
+The Alters (2025) [Ru/Multi] (1.0.1.46/dlc) Repack Other s [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ознакомьтесь с игрой, сочетающей выживание, приключения и строительство базы. Помогите Яну Дольски - единственному выжившему в ходе неудачной космической экспедиции - создать альтернативные версии себя, чтобы покинуть враждебную планету и справиться с личными проблемами. The Alters - амбициозная научно-фантастическая игра с элементами выживания. Чтобы выжить, вы (   Читать дальше...   )Тип издания: RepackРазработчик: 11 bit studiosЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A592098B91E51F1EAEA0FCE702C601225AE275C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796782   (14437) от 16.06.2025
 
 Crow Country (2024) [Multi] (1.0.7) License GOG
@@ -6,7 +136,7 @@ Crow Country (2024) [Multi] (1.0.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14437.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ The Long Dark (2017) [Ru/Multi] (Build 2.44 157357 S/dlc) Repack Let'sРlay [Qui
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14382.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ South of Midnight (2025) [Ru/Multi] (1.3.0 186489) Repack Let'sРlay [Premium Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14376.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Lamplight City (2018) [Multi] (1.13.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14354.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Near-Mage (2025) [Ru/Multi] (1.1.1/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14335.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.5/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14213.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Five Nights at Freddy's: Into the Pit (2024) [Ru/Multi] (1.0.11.7) Repack EXROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14187.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.5/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14179.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.5-34484/dlc) Repack FitGirl [The Compl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14176.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ At Dead Of Night (2020) [Ru/Multi] (Build 14844637) Repack EXROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14130.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Labyrinth of the Demon King (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14108.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ Gloom: System Breach (2025) [Multi] (1.0.7) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14101.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ Kulebra and the Souls of Limbo (2025) [Multi] (1.0.13) Repack FitGirl [Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14091.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.5/dlc) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14084.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Dreams in the Witch House (2023) [En] (1.08) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13967.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ Riven (2024) [Ru/Multi] (1.7.4) License GOG [The Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13964.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Monster Prom 3: Monster Roadtrip (2022) [En] (2.17.a/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13961.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Firmament (2023) [Ru/Multi] (2.0.9) License GOG [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13958.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Cultist Simulator (2018) [Ru/Multi] (2025.4.e.6/dlc) License GOG [Anthology Edit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13955.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ Nine Sols (2024) [Ru/Multi] (202503101827.5035232c.0) Repack EXROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13907.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ Voyage: Journey to the Moon (2005) [Multi] (1.04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13874.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ Voyage: Journey to the Moon (2005) [Multi] (1.04) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8013ECEEB0A740CC90371D15FEC2A0C1E507342C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763295   (13844) от 22.06.2025
-
-Pools (2024) [Ru/Multi] (17.06.2025) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pools (Бассейны) – игра, разработанная в жанре психологического хоррора, с упором на внимательность, где важно прислушиваться к каждому звуку. Мы становимся частью пугающей, жуткой, держащей в напряжении среды, где важно не потерять рассудок, если мы хотим дойти до конца. Игра разделена на шесть уникальных частей, каждую из которых мы будем проходить не более тридцати (   Читать дальше...   )Тип издания: LicenseРазработчик: TensoriЖанр: Приключенческие игрыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10057239DD0FD115FB4CE5390014B30F48607E4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728872   (13818) от 22.06.2025
-
-Brownie's Adventure (2024) [En] (8.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уморительная приключенческая игра в жанре point-and-click, разработанная компанией Beardy Ramblin Games. В фэнтезийном мире, напоминающем эпоху Возрождения, вы играете за Брауни, управляющего местной рыболовной фабрикой, который отправляется в причудливое и абсурдное путешествие. В игре более 70 локаций, тысячи остроумных диалогов и оригинальный саундтрек, интригующий (   Читать дальше...   )Тип издания: LicenseРазработчик: Beardy Ramblin GamesЖанр: Приключенческие игры, Ролевые игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F7B69F20531923D36290AF69DC98B6DC59951F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803348   (13783) от 22.06.2025
-
-Castle of Secrets (2025) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Castle of Secrets - это мрачное психологическое приключение с элементами хоррора. Раскрой тайну убийства своей семьи, путешествуя сквозь мир мёртвых, встречая странных существ, решая головоломки и принимая решения, которые меняют сюжет. Проклятие древнего рода Трантонов заставляет отправиться молодую мисс Сьюзан в смертельное путешествие, где ей предстоит встретиться (   Читать дальше...   )Тип издания: RepackРазработчик: SQ StudiosЖанр: Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5DC456B96F20DC1E3AF354BA4B9BC6E051E61F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803521   (13704) от 23.06.2025
-
-Post Trauma (2025) [Multi] (1.04) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перемещайтесь по миру, ликвидируйте угрозы и ищите других персонажей, потерявшихся в глубинах Мрака. Post Trauma – это головоломка в стиле хоррор в духе классических игр для PS2. от небольшой студии Red Soul Games, настоящих фанатов олдскульных ужастиков. Создавая нашу игру, мы вдохновлялись признанной классикой жанра и надеемся, что нам удалось передать культовую, (   Читать дальше...   )Тип издания: RepackРазработчик: RED SOUL GAMESЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, Японский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F718F74EF79594F27777BE005CF23ABF5B0503D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802375   (13654) от 24.06.2025
-
-Five Nights at Freddy's: Secret of the Mimic (2025) [Ru/Multi] (1.0.20250616_2104_354_198185) Repack EXROW
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мимик - эндоскелет-прототип, он может адаптироваться к любому костюму и стать любым персонажем, включая то, что Вы боитесь больше всего. Вооружившись только своей смекалкой, несколькими гаджетами и пользуясь сильно отредактированными корпоративными брифингами, вы попытаетесь заполучить ценную технологию прототипа Fazbear, решая загадочные подсказки и скрываясь от (   Читать дальше...   )Тип издания: RepackРазработчик: Steel Wool StudiosЖанр: Инди-игры, Приключенческие игры, ХоррорыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:995D436E5886B536A62510E8960E257CDA9F2773
 ```
 
 https://mybot314.ru/tekegram_catalog/

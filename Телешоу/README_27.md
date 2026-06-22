@@ -1,3 +1,29 @@
+###  Публикация: 1154054   (542652) от 29.07.2017
+
+Деньги или позор (2017.07.27) WEB-DL [H.264/720p-LQ] (выпуск 2)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самое острое комедийное шоу с участием звёзд! Только на телеканале ТНТ4! В июле! Они пойдут ради денег на всё!Каждую неделю одна знаменитость будет опозорена на всю страну и заработает 1 миллион рублей. По условиям шоу каждый звездный гость получает на руки солидную сумму денег, после чего ведущий озвучивает самые откровенные, нелепые, а главное — правдивые факты (   Читать дальше...   )Телекомпания: ТНТ 4Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:27:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0094933574BB9EDB96DA6BD7C891E3F272D234C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1154053   (542416) от 29.07.2017
 
 Деньги или позор (2017.07.20) WEB-DL [H.264/720p-LQ] (выпуск 1)
@@ -6,7 +32,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542416.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540667.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538423.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538282.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538276.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536739.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536733.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536055.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535883.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535130.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534925.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533940.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533561.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533337.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532697.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531454.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531064.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531059.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530995.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529515.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529289.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528181.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527374.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527368.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526691.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26D8969A6F30BFFE3F49A5C799672A8E43D90075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052979   (526115) от 17.09.2016
-
-Вечерний Ургант (2016.09.15) SATRip (cезон 10, выпуск 10)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:30:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6970EDC2F3B9F4D426D6EFD8903648FCC9C33528
 ```
 
 https://mybot314.ru/tekegram_catalog/

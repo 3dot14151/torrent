@@ -1,3 +1,29 @@
+###  Публикация: 1414304   (382675) от 09.10.2020
+
+Томирис / Tomiris / The Legend of Tomiris (2019) BDRip [H.264/1080p]
+
+>>След.
+>>Фильмы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среди древних народов, населявших просторы Евразии, особо выделялись племена, называющие себя саками. Это были кочевники и великие воины степи. Начинается история с краткого жизнеописания отца Томирис — царя Спаргапа. Спаргап, имея право на царский трон, вовлечён в войну между родами саков — массагетов. Влиятельные вожди, среди которых выделяются алчные и хитроумные (   Читать дальше...   )Производство: Казахстан / Студия Казахфильм, SataifilmЖанр: Драма, историяРежиссер: Акан СатаевАктеры: Альмира Турсын, Адиль Ахметов, Еркебулан Дайыров, Берик Айтжанов, Азамат Сатыбалды, Гассан Массуд, Илез Бадургов, Мурат Бисенбин, Аян Утепберген, Асылхан ТолеповПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6BF5A464486E9B8D528DAEACEA3AAC0364E721C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414926   (380884) от 10.10.2020
 
 Томирис / Tomiris / The Legend of Tomiris (2019) BDRemux [H.264/1080p]
@@ -6,7 +32,7 @@
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380884.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380758.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378405.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375903.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375888.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359727.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349756.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347758.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347302.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345917.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342916.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334438.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334404.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332201.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330961.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328801.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328794.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327069.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325361.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325354.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316156.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311407.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_310886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_310886.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304752.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300660.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08DA278EAF42165598D09028CF23FAD064FAB6B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184430   (298621) от 18.11.2017
-
-Гламур для дур (2016) WEB-DLRip
-
->>Зарубежное кино
->>Фильмы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Улжан Балжановой 19 лет. Всю жизнь она прожила в ауле. Чтобы родители не выдали её замуж, она прямо с выпускного бала уезжает в Алматы, где живет её сестра, которую она никогда не видела. Улжан мечтает стать известной с помощью социальных сетей и покорить большой город, но сестра категорически против этого.Производство: Казахстан / Tarlan Development, 576 CinemaЖанр: КомедияРежиссер: Аскар Узабаев, Ринат СафаровАктеры: Акбота-Нур Сейтмагамбет, Даурен Айдаркулов, Асель Акбарова, Фима ИвановПеревод: Не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:18:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30F4340FA5877A8C63F3CE67B82E143F5FA86B49
 ```
 
 https://mybot314.ru/tekegram_catalog/

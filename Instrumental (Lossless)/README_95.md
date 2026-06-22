@@ -6,7 +6,7 @@ Laurence Jones - Destination Unknown (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192721.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Lee O'Nell Blues Gang - This Is Us (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192714.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Patrik Jansson - Game Changer (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192688.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Eric Clapton - Clapton Chronicles: The Best of Eric Clapton (1999) [FLAC|Lossles
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192614.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Gary Moore - The Best of the Blues (2002) 2CD [FLAC|Lossless|image + .cue] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192578.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Joanne Shaw Taylor - Nobody's Fool (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192568.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Grant Dermody - Behind The Sun (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192159.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Carlos Segarra - Segarra Inn Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192150.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Jed Potts & the Hillman Hunters - Swashbucklin' (2022) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192143.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Kunio Kishida - 10 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192138.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Annika Andersson & the Boiling Blues - Playing in a Rock'n Roll Band (2022) [FLA
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192133.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Shakura S'Aida - Hold on to Love (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, So
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192123.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Steve Lucas and the Rising Tide - How Can I Sing the Blues (2022) [FLAC|Lossless
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192112.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Yates McKendree - Buchanan Lane (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192082.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Big B and the Actual Proof - The Noir Album (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192079.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ B.B. King - Forever Gold (1999) 2CD [FLAC|Lossless|image + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191829.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Joe Cocker - Stingray (1976) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock, Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191284.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Sam Cooke - Forever (2008) 2CD [FLAC|Lossless|tracks + .cue] <Soul, Funk, R&B>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_190881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190881.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ John Mayall - The Sun Is Shining Down (2022) [FLAC|Lossless|image + .cue] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_190876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190876.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Ned Ashton & Chas Rigby - Electric Dust (2022) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190427.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ LaBronn Conner Jr - The Early Singles (2022) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190415.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Blues Fighters - Pretty Baby (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190395.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Kris Lager - Presence (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190393.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Matt O'Ree Band - Hand in Glove (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190391.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Mudslide Charley - Clearwater Junction (2022) [FLAC|Lossless|WEB-DL|tracks] <Ele
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190388.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Southbound Snake Charmers - Bad Ass Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190380.jpg" />
 </div>
 
 

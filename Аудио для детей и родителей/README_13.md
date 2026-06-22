@@ -1,3 +1,29 @@
+###  Публикация: 1358128   (970735) от 06.02.2020
+
+Сергей Михалков | Три поросёнка (1968) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказка про трех веселых поросят- это сказка о том, что к любому делу нужно выполнять добросовестно. Это сказка о дружбы и помощи друг другу в трудный момент.Жанр: Детская литература. СказкаПродолжительность: 00:18:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD38DE2C5BCA5EE9BAE62D1ACCF068714893E87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976797   (968802) от 18.01.2016
 
 Олег Верещагин | Завещание рыцаря (2014) [MP3]
@@ -6,7 +32,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968802.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968756.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966200.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964476.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961936.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961931.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ VA - Планета хитов. Детям. Природа. (2006) [MP3|320 kbps
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960330.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ Julio Kladniew - Babies Go Bach (2003) [MP3|192 kbps]<Классика для д
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960324.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960199.jpg" />
 </div>
 
 
@@ -252,7 +278,7 @@ VA - 50 классических произведений для детей (200
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960109.jpg" />
 </div>
 
 
@@ -278,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959168.jpg" />
 </div>
 
 
@@ -305,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958415.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ VA - Колыбельные природы (2009) [FLAC|tracks]<Детская �
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956689.jpg" />
 </div>
 
 
@@ -361,7 +387,7 @@ VA - Детские песенки. Из мультфильмов и детск�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955254.jpg" />
 </div>
 
 
@@ -390,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955106.jpg" />
 </div>
 
 
@@ -416,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953618.jpg" />
 </div>
 
 
@@ -442,7 +468,7 @@ Laura Omloop - Wereld Vol Kleuren (2011) [MP3|192 кб/с]<POP (для дете�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952547.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Laura Omloop - KLAAR VOOR (2012) [MP3|~225 кб/с (V1)]<POP (для детей)
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952493.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ Laura Omloop - Verliefd (2010) [MP3|320 кб/с]<POP (для детей)>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952327.jpg" />
 </div>
 
 
@@ -547,7 +573,7 @@ VA - Детская супер дискотека (2011) [MP3|256 kbps]<Детс
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951762.jpg" />
 </div>
 
 
@@ -576,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951646.jpg" />
 </div>
 
 
@@ -602,7 +628,7 @@ VA - Поет Радионяня (2007) [FLAC|Lossless|tracks + .cue]<Детск
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950985.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ VA Детские песенки - Мои любимые песни (2007) [MP3|
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949436.jpg" />
 </div>
 
 
@@ -657,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949319.jpg" />
 </div>
 
 
@@ -686,7 +712,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949094.jpg" />
 </div>
 
 
@@ -697,33 +723,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A75D65AF143E8B5E9BC2439FF5FFAE5925BD7EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362751   (948308) от 24.02.2020
-
-Геннадий Мамлин | О белом шахматном короле (1970) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948308.jpg" />
-</div>
-
-
-###  Подробнее
-
-О белом шахматном короле, его первом министре и трёх зверях, которые так и остались неизвестными.
-Пьеса-сказка.Жанр: Детская литература. ИнсценировкаВ ролях: Анатолий Щукин, Наталья(?) Глебова-Мерейнес, Ирина Потоцкая, Зинаида Нарышкина, Зинаида БокареваПродолжительность: 00:23:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79E58840415DAC66FB116BE4D3EB77E5BFD3E397
 ```
 
 https://mybot314.ru/tekegram_catalog/

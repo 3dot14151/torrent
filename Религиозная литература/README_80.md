@@ -1,3 +1,108 @@
+###  Публикация: 1328565   (363712) от 30.09.2019
+
+К. Лученко | Россия: взгляд с колокольни [От Калининграда до Якутии] (2016) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга относится к востребованному сегодня жанру документальной прозы. Журналист Ксения Лученко и фотограф Анна Гальперина проехали по восьми регионам, от Калининградской области до Якутии, чтобы рассказать о том, как судьбы городов переплетаются с человеческими судьбами, как живут священники и церковные общины в современной России.
+В книге собраны авторские эссе (   Читать дальше...   )Жанр: Православие. Документальная прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBACA0A8962A0F6AA87684B33ADAC47D7CEFED00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071386   (361876) от 09.11.2016
+
+Пол Верт | Православие, инославие, иноверие [Очерки по истории религиозного разнообразия Российской империи] (2012) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361876.jpg" />
+</div>
+
+
+###  Подробнее
+
+В исследовании американского историка Пола Верта феномен поликонфессиональности Российской империи изучается сквозь призму проблем имперского строя и управления в XIX — начале XX вв. Автор рассматривает в едином контексте православие и так называемое «иностранные исповедания», освещает значение и последствия этнического разнообразия внутри православного сообщества. (   Читать дальше...   )Жанр: История межконфессиональных отношенийФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3051912DA750F5D3A13CFD1744A8FCD176F19240
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951674   (361276) от 30.10.2015
+
+М. Муллаев | Происхождение и реакционная сущность шариата (1967) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361276.jpg" />
+</div>
+
+
+###  Подробнее
+
+В предлагаемой работе, на основе марксистско-ленинского учения о религии, а также используя изданную в различные периоды политическую, специальную, художественную советскую и иностранную литературу и первоисточники мусульманского права (шариата), делается попытка осветить происхождение, социальные корни и реакционную, антинародную сущность правовых норм шариата, (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB89C1FC827B79DF7F57A2D74973C80744D463C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951619   (361135) от 30.10.2015
+
+В. А. Руднев | Обряды народные и обряды церковные (1982) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361135.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассказывается о том, как складывались и развивались народные обряды и праздники, в которых последовательно отражались демократические и социалистические идеи, принципы и идеалы народных масс. Показан также процесс формирования церковных обрядов и таинств в прошлом.Жанр: История, религиоведение, искусствоФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23797DAFE4A79C4BB9114C6F0BEF36D7A80F0861
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1177769   (361108) от 26.10.2017
 
 ИИМК РАН (изд.) | Церковная археология [В 3-х частях] (1995) [PDF]
@@ -6,7 +111,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361108.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361095.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360966.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ molitvoslov (изд.) | Полный православный молитвосл
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360763.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359346.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359227.jpg" />
 </div>
 
 
@@ -164,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359226.jpg" />
 </div>
 
 
@@ -191,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358841.jpg" />
 </div>
 
 
@@ -217,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358713.jpg" />
 </div>
 
 
@@ -245,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358260.jpg" />
 </div>
 
 
@@ -271,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357939.jpg" />
 </div>
 
 
@@ -300,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356730.jpg" />
 </div>
 
 
@@ -326,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356646.jpg" />
 </div>
 
 
@@ -353,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356644.jpg" />
 </div>
 
 
@@ -381,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356618.jpg" />
 </div>
 
 
@@ -407,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356268.jpg" />
 </div>
 
 
@@ -433,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356176.jpg" />
 </div>
 
 
@@ -459,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356033.jpg" />
 </div>
 
 
@@ -485,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355016.jpg" />
 </div>
 
 
@@ -511,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354641.jpg" />
 </div>
 
 
@@ -537,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353969.jpg" />
 </div>
 
 
@@ -565,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353706.jpg" />
 </div>
 
 
@@ -576,113 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B2262EC08C58897559B3D6D63B41075EBCC417E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952875   (353667) от 02.11.2015
-
-М.Ю. Реутин | Мистическое богословие Майстера Экхарта (2011) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга является первым русскоязычным исследованием творчества великого средневекового мистика и мыслителя Иоанна Экхарта из Хоххайма. Экхартовское богословие рассматривается на широком культурно-историческом фоне. При этом особое внимание уделено сопоставлению доктрины Экхарта с доктриной его современника идеолога византийского исихазма Григория Паламы. В приложении (   Читать дальше...   )Жанр: Философия, богословиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD4C50C46558B6537CB1D797C241BDE0A583164B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 724328   (352968) от 19.11.2013
-
-И.А. Дворецкая, Н.В. Симонова (сост.) | Христианская Церковь в Высокое Средневековье (2011) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие, подготовленное ведущими преподавателями МПГУ И. А. Дворецкой и Н. В. Симоновой, включает фрагменты источников по истории Христианской Церкви в эпоху Высокого Средневековья. Тексты подобраны по тематическому принципу и сопровождаются вступительными очерками об авторах и эпохе, а также научными комментариями.
-
-Пособие может быть использовано при организации (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9722AD91F32644C07C4133617583900E510A585
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952891   (351672) от 03.11.2015
-
-Майстер Экхарт | Об отрешенности (2001) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351672.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге собраны основные средневерхненемецкие и латинские трактаты великого мистика Средневековья Майстера Экхарта. В дополнительную часть включены все известные на сегодняшний день материалы к инквизиционному процессу против Экхарта, включая буллу папы Иоанна XXII `In agro Dominico`, а также посмертную апологию Экхарта, написанную его учеником, констанцским (   Читать дальше...   )Жанр: Богословие, философияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E14DC586BBCCC2887324CE09D67B96C22C2B0906
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952885   (351663) от 03.11.2015
-
-Майстер Экхарт | Духовные проповеди и рассуждения (2013) [FB2, DOC]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мейстер Экхарт - знаменитый средневековый немецкий теолог и философ, один из крупнейших христианских мистиков, проповедующий учение о присутствии Бога во всем существующем. Титул "Meister", означающий по-немецки "мастер учитель", указывает на академическое звание магистра теологии.
-По концепции Экхарта, человек способен познать Бога, поскольку (   Читать дальше...   )Жанр: БогословиеФормат: FB2, DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61897116B8E471D0DF9BACF102F6BBDCF78654CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

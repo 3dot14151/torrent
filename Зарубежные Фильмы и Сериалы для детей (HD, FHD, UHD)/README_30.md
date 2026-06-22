@@ -1,3 +1,81 @@
+###  Публикация: 1686074   (126784) от 21.12.2023
+
+Лука и волшебный театр / Kristiania Magiske Tivolitheater (2021) WEB-DL [H.264/1080p] (сезон 1, серии 1-24 из24)
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добродушный паренек Лука родился в трущобах. Мама подростка умерла, не вынеся тягот нищенского существования, и теперь его отцу приходится тяжело работать, чтобы хоть как-то прокормиться. Однако несмотря на сложную жизнь и сильную хромоту, парень остается фантазером и обожает разыгрывать различные сценки. Время от времени Лука наведывается в район, где проживают (   Читать дальше...   )Производство: Норвегия / Monster ed ASЖанр: семейныйРежиссер: Tonje Voreland, Атле КнудсенАктеры: Lukas Langmyr Mabin, Mehetabel Natnael Hailu, Peter Andreas Hjellnes Moseng, Adam Mamadou Bizokunda, Elma Kolbeinsen, Вегард Странд Эйде, Andréa Othilie Helén Wilhelmsen-Grøtnes, Лена Эллингсен, Gard Skagestad, Сигрид Кандаль Гусьорд и др.Перевод: Дублированный  (Марафон)Язык озвучки: Русский, норвежскийСубтитры: отсутствуютПродолжительность: ~ 00:20:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97AB1C1CC60A086B26ABCFF8B21B04E67F50857C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686586   (126274) от 24.12.2023
+
+Молодость без старости / Tinerete fara batrinete (1969) BDRip [AV1/1080p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126274.jpg" />
+</div>
+
+
+###  Подробнее
+
+По повести «Молодость без старости и жизнь без смерти» Петре Испиреску. Сказка о бедном крестьянском юноше, который отправился на поиски царства вечной молодости и бессмертия.Производство: Румыния, Filmstudio Bucuresti, Romania FilmЖанр: фэнтезиРежиссер: Элизабет Бостан, Николае КодрескуАктеры: Мирчя Брязу, Анна Селеш, Эманоил Петруц, Кармен Стэнеску, Николае Секэряну, Михай Пэлэдеску, Маргарета Погонат, Джордже Мотой, Николае Бранкомир, Корина Константинеску, Евгения Босэнчяну, Зое Ангел СтанкаПеревод: Дублированный (к/с имени А. Довженко)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAE23D410A907A82501852652FA1113F28BDFCAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686961   (125754) от 25.12.2023
+
+Бронтозавр / Brontosaurus (1980) HDTV [H.264/1080p] [DVO]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой фильма — мальчик Томаш, чье хобби — разыскивать редких птиц и также заботиться о природе и животных. В свободное время он со своими друзьями из школы и, особенно, с живущим по соседству дошколенком, очищает лес от мусора. Иногда им удается вернуть мусор «домой» к великому неудовольствию тех, кто пытался избавиться от него. Его главный «враг» — пацан (   Читать дальше...   )Производство: Чехословакия / Filmové studio BarrandovЖанр: семейныйРежиссер: Вера Пливова-ШимковаАктеры: Томаш Шимек, Дана Ваврова, Михал Хофбауэр, Лукаш Бех, Петра Фишерова, Шарка Фишерова, Зденек Сверак, Йозеф Шомр, Даниэла Коларова, Павла МаршалковаПеревод: двуголосый любительский (Семён Ващенко, Екатерина Кабашова)Язык озвучки: русский, чешскийСубтитры: русские (forced, full)Продолжительность: 01:15:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC76311C1D3399FD775E87D03127025E49E79BAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1687855   (125445) от 27.12.2023
 
 Вински и порошок-невидимка / Vinski ja nakymattomyyspulveri / Vinski and the Invisibility Powder (2021) WEB-DLRip [H.264/1080p-LQ]
@@ -6,7 +84,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125445.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125316.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125137.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125062.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125060.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125034.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124277.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124227.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124215.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124120.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124052.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123598.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123521.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123039.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122780.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122208.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121786.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121785.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121236.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121235.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121146.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121079.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120911.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:226E3C1FB043EA04ED2187C02C52885A49C64888
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662828   (120710) от 27.01.2024
-
-Русалочка / Mala Morska Vila (1976) HDTVRip [H.264/1080p] [Hand made upscale AI]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русалочка, одна из дочерей морского царя, увидев принца на палубе роскошного корабля, влюбляется в него. Но во время бури корабль разбивается о скалу, и все его пассажиры оказываются в воде. Русалочка, ни раздумывая ни минуты, бросается на помощь и спасает своего возлюбленного от гибели. На берегу лежащего без сознания принца находит другая девушка. Придя в себя, (   Читать дальше...   )Производство: Чехословакия, Filmove Studio Barrandov, Kinostudiya ''Mosfilm''Жанр: фэнтези, драма, мелодрама, семейныйРежиссер: Карел КахиняАктеры: Мирослава Шафранкова, Радован Лукавски, Пётр Свойтка, Либуше Шафранкова, Мария Росулкова, Милена Дворска, Индржих Нарента, Иржи Орнест, Дагмар ПатрасовПеревод: Многоголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 01:26:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97A01BE3A64A6ABE022EA4638B91E410872182D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710660   (112677) от 27.03.2024
-
-Санта украл нашего пса: Веселое Собачье Рождество! / Santa Stole Our Dog: A Merry Doggone Christmas! (2017) WEBRip [H.264/1080p] [MVO]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Где-то в солнечной Калифорнии в Рождественский сочельник, пёс нечаянно забирается в мешок с подарками, которые разносит Санта Клаус. Так начинается приключение длиной в двенадцать дней, в котором семья отправляется на Северный полюс, чтобы вернуть всеобщего любимца.Производство: Канада / First American CinemaЖанр: семейныйРежиссер: Брайан Майкл СтоллерАктеры: Эдвард Эснер, Ивет Рейчел, Кэрри Шредер, Чейз Поллок, Ив Брайт, Samuel Portugal, Литтл Беар, Хулиана Сада, Элейн Партнау, Брайан Майкл СтоллерПеревод: Многоголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:33:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C82843B72984902BF62736D962A59B3F7511BA41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722289   (109840) от 10.05.2024
-
-Библиотекари: Тайна короля Олафа / Trio - Jakten pa Olavsskrinet / TRIO - The Hunt for the Holy Shrine (2017) WEBRip [H.264/1080p] [MVO]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четверо подростков должны разгадать тайну, связанную со священными останками короля викингов Олафа Святого. Найдут ли они сундук раньше немецкого похитителя произведений искусства по прозвищу Тень? Кому они могут доверять?Производство: Норвегия, Швеция, Германия / Film Fond Nord, Norddeutscher Rundfunk (NDR), NordicStoriesЖанр: семейныйРежиссер: Ева ДарАктеры: Наоми Хассельберг Торсруд, Бьорнар Люсфосс Хагесвен, Хенрик Хинес Грапе, Франциска Тёрнквист, Рейдар Сёренсен, Мин-Хай Фэн-Тхи, Пер Кьерштад Андерсен, Бернт Бьорн, Regine Stokkevåg Eide, Саманта ЛосонПеревод: Многоголосый профессиональный (Кипарис)Язык озвучки: Русский, норвежскийСубтитры: ОтсутствуютПродолжительность: 01:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AF70E933DF47139EAAD2C9852EC05A934FBEDEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

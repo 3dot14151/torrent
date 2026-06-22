@@ -1,3 +1,56 @@
+###  Публикация: 1433889   (153723) от 22.12.2020
+
+WiFi Explorer 3.0.3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153723.jpg" />
+</div>
+
+
+###  Подробнее
+
+WiFi Explorer быстро определяет конфликты в каналах связи, overlapping сигнала или просто проблемы в конфигурации, которые мешают стабильной работе сигнала в беспроводной сети вашего офиса или дома.
+WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавляет набор функций, которые делают его подходящим инструментом для WLAN и ИТ-специалистов. Вы можете использовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2020Разработчик: Adrian Granados-MurilloПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:536F275B099DE4D8DCD6E6594F251ED75084D3F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601047   (153702) от 29.12.2022
+
+Luminar Neo 1.6.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы когда-нибудь хотели добиться большего с помощью своих изображений? Luminar Neo - это инновационный редактор изображений, основанный на технологиях AI будущего, который упрощает сложные процедуры редактирования и позволяет создателям воплощать в жизнь свои самые смелые идеи. И наслаждайся этим.Тип издания: macOS SoftwareРелиз состоялся: 29.12.2022Разработчик: © 2010 - 2022 Skylum ®Поддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BA70D856F937C75EA7C3699D22EAEA01EF91E7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434149   (153694) от 23.12.2020
 
 MetaImage 1.9.5 [Multi]
@@ -6,7 +59,7 @@ MetaImage 1.9.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153694.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ InfoClick 1.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153688.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ Currency Assistant 3.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153683.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ Nisus Writer Pro 3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153674.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ DropDMG 3.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153668.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ SpeakMe 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153664.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ Chaos Control 1.11 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153659.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ ExifEditor 1.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153649.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ AppKiller 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153646.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ World Clock Deluxe 4.17.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153618.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ Wattagio 1.12.3 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153615.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ AweCleaner Professional 4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153613.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ Grid 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153600.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ Movist 2.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153595.jpg" />
 </div>
 
 
@@ -379,7 +432,7 @@ NCH WavePad Masters Edition 11.49 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153592.jpg" />
 </div>
 
 
@@ -405,7 +458,7 @@ Yummy 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153581.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ RAR Extractor – The Unarchiver Pro 6.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153544.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ Scrutiny 6.8.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153481.jpg" />
 </div>
 
 
@@ -484,7 +537,7 @@ Forecast Bar 2.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153448.jpg" />
 </div>
 
 
@@ -514,7 +567,7 @@ iMazing 2.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153387.jpg" />
 </div>
 
 
@@ -541,7 +594,7 @@ NoteBurner iTunes DRM Audio Converter 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153340.jpg" />
 </div>
 
 
@@ -567,7 +620,7 @@ Folx Pro 5.1.13647 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153327.jpg" />
 </div>
 
 
@@ -595,7 +648,7 @@ Pathfinder: Kingmaker – Imperial Edition v2.0.7b (2018) [Multi/Ru] [macOS Nati
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153266.jpg" />
 </div>
 
 
@@ -621,7 +674,7 @@ Artstudio Pro 3.2.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153262.jpg" />
 </div>
 
 
@@ -632,61 +685,6 @@ Artstudio Pro 3.2.19 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3604E668E022C9E7431A603CF7E76977E0035737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518787   (153252) от 21.12.2021
-
-URL Manager Pro 5.8.8 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153252.jpg" />
-</div>
-
-
-###  Подробнее
-
-URL Manager Pro  - менеджер закладок для браузеров
-URL Manager Pro X - менеджер закладок для Safari, OmniWeb, Mozilla, Netscape, iCab и Camino браузеров, с мгновенным доступом как из меню браузера, так и из любого приложении через системное меню.
-Приложение полностью контролирует и управляет закладками: копирование между браузерами, редактирование, удаление, поиск (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2021Разработчик: © 2021 Alco BlomПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Голландский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:935E7FBA690AE9AFE9B0CF2B515B4B9F19F7D563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518816   (153244) от 21.12.2021
-
-Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Athentech Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2021Разработчик: © 2021 EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F79A136C97CB2F98C70F7CB69EB6B901B29858F
 ```
 
 https://mybot314.ru/tekegram_catalog/

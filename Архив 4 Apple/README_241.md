@@ -6,7 +6,7 @@ Things 3 v3.15.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738498.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ AYVY 1.19.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738497.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Paw (HTTP & REST Client) 3.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738496.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Amadeus Pro 2.8.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738492.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Vinegar 2.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738488.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Fix My iPhone 2.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738471.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Wondershare PDFelement Pro 8.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738463.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ BatchOutput PDF 2.3.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738183.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Mic Drop 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738182.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Posterino 3 v3.11.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738181.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ GoodNotes 5 v5.7.58 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738180.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Author 8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738179.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Dropzone 4 Pro v4.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738178.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ WonderPen 2.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738176.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ RAW Power 3.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738173.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Downie 4 v4.4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738172.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Permute 3 v3.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738167.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Bartender 4 v4.31b U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738166.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Alfred 4 Powerpack 4.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738165.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Yate 6.8.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738163.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Project Office Pro 9.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738161.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Things 3 v3.15.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738159.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Permute 3 v3.8.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738154.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Infuse PRO 7 v7.3.3 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738150.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Adobe Substance 3D Designer 11.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738142.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Adobe Substance 3D Sampler 3.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738141.jpg" />
 </div>
 
 

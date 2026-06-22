@@ -6,7 +6,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190137.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188031.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188005.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185219.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184140.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183682.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182919.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179568.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179291.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176735.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176372.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172409.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172406.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172399.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172396.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172024.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171306.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170852.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170552.jpg" />
 </div>
 
 
@@ -501,33 +501,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515567   (169265) от 07.12.2021
-
-Валентин Пикуль | На задворках Великой империи (Книга 1). Плевелы (2021) [MP3, Сергей Дадыко]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169265.jpg" />
-</div>
-
-
-###  Подробнее
-
-«На задворках Великой империи» – один из ранних романов В.С. Пикуля.
-Это панорамное повествование о жизни провинциального российского города в вымышленной, но вполне узнаваемой Уренской губернии в начале XX века. Произведение написано в духе сатиры М.Е. Салтыкова-Щедрина, одного из любимых авторов Валентина Саввича. Замысел романа и образ главного героя – князя Сергея (   Читать дальше...   )Жанр: Историческая литератураИздательство: Нигде не KупишьПродолжительность: 17:25:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EC68E39E5AC8C133CAA156008516184DAAE8C4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515811   (168493) от 08.12.2021
 
 Валентин и Юлия Гнатюк | «Святослав» Книга 3. Болгария (2021) [MP3, Семен Янишевский]
@@ -536,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168493.jpg" />
 </div>
 
 
@@ -563,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168409.jpg" />
 </div>
 
 
@@ -589,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167571.jpg" />
 </div>
 
 
@@ -615,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167458.jpg" />
 </div>
 
 
@@ -641,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166974.jpg" />
 </div>
 
 
@@ -667,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166807.jpg" />
 </div>
 
 
@@ -679,6 +652,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2952F5DE86C55C7F45EC1AE9AC9F82581315982B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597394   (166699) от 14.12.2022
+
+Леонид Юзефович | Журавли и карлики (2022) [MP3, Алексей Багдасаров]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еще со времен Гомера существует миф о вечной войне журавлей и пигмеев, народа карликов. Именно этот миф лег в основу книги «Журавли и карлики» Леонида Юзефовича, за который он получил премию «Большая книга». Что объединяет авантюриста времен Османской империи, цесаревича Алексея, еле спасшегося и прибывшего в Забайкалье в Гражданскую войну, 40-летнего геолога из (   Читать дальше...   )Жанр: Историческая литератураПродолжительность: 15:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD61F37F108B22244F09027C0742E5951D4C92EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

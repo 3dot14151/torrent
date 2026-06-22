@@ -1,3 +1,29 @@
+###  Публикация: 1256763   (351574) от 23.10.2018
+
+Syrian Warfare (2017) [En] (1.3.0.19/dlc) License CODEX [Delux Edition]
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Планета полна войн - это больная тема для всех. Ведь так устроен мир, что каждый день мы видим последствия даже далеких конфликтов. Мы видим их по телевизору в качестве новостей, мы видим их рядом в качестве беженцев. Эта война идёт уже давно, и не до конца понятно, когда она кончится. К ней привыкли, новости оттуда стали обыденностью. И даже уже забылось, как всё (   Читать дальше...   )Тип издания: LicenseРазработчик: Cats Who PlayЖанр: StrategyЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD4F0C57061BD11F37B40275240D947CEC0A73AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179526   (348359) от 31.10.2017
 
 Syrian Warfare (2017) [En] (1.1.0.7/dlc) License SKIDROW
@@ -6,7 +32,7 @@ Syrian Warfare (2017) [En] (1.1.0.7/dlc) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348359.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Syrian Warfare (2017) [Ru/En/De] (1.3.0.19/dlc) License PLAZA [Delux Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344725.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Assault Squad 2: Men of War Origins (2016) [En] (3.260.1/dlc) License SKIDROW Go
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344724.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Battle Worlds: Kronos (2013) [Ru/Multi] (1.4.3/dlc) SteamRip Let'sРlay [Digital
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338831.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ John Wick Hex (2019) [Ru/Multi] (0.92) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334290.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Battlefleet Gothic: Armada 2 (2019) [Ru/Multi] (1.0.14/dlc) License GOG [Complet
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333248.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Absolute Tactics: Daughters of Mercy (2022) [Ru/Multi] (1.1.1.8-rc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332762.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Invisible, Inc. - Contingency Plan (2015) [En] (1.0/dlc) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321098.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318521.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ The Banner Saga 3 (2018) [Ru/Multi] (2.58.02/dlc) Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318126.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Frontline Zed (2019) [Ru/Multi] (1.00) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317935.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ The Banner Saga 2 (2016) [Ru/Multi] (2.58.02) License GOG [Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315780.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Blitzkrieg: Mission Kursk [Ru] (L) 2006
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_311767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_311767.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Templar Battleforce (2015) [En] (2.6.65) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311193.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Rebel Cops (2019) [Ru/Multi] (1.1.1.0) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308811.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Age of Empires III: Complete Collection (Age of Empires III/The WarChiefs/The As
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306574.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Abandon Ship (2019) [Ru/Milti] (1.0.13298) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304589.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Breach & Clear: Deadline Rebirth (2015) [Ru/Multi] (1.23) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301758.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Order of Battle: World War II  (2016) [Ru/Multi] (13112018/dlc) License PLAZA
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298322.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Battlefleet Gothic: Armada (2016) [Ru/Multi] (2.0.26100/dlc) License GOG [Comple
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295000.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Warhammer 40,000: Mechanicus (2018) [Ru/Multi] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294461.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Wargame: Red Dragon - Double Nation Pack REDS (2014) [Ru/Multi] (510057270/dlc) 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291171.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ Strategic Mind: The Pacific (2019) [Ru/Multi] (2.02) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286914.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ The Banner Saga (2014) [Ru/Multi] (2.36.03/dlc) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279888.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ UFO: Afterlight / UFO: Прозрение (2007) [Ru/En] (1.7) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278164.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ UFO: Afterlight / UFO: Прозрение (2007) [Ru/En] (1.7) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BC271DEC07DCB6494F335B7E32E8616F35243E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082587   (276623) от 13.12.2016
-
-Warhammer 40,000: Dawn of War II: Retribution (2011) [Ru/Multi] (3.19.1.10320/dlc) SteamRip R.G. Игроманы
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Warhammer 40,000: Dawn of War II - Retribution - второе отдельное дополнение к Warhammer® 40,000: Dawn of War II, действия которого разворачиваются несколько лет спустя событий Dawn of War II: Chaos Rising. Впервые игрокам будут предложены разные одиночные кампании за разные расы, что позволит игроку увидеть события вселенной Dawn of War с разных ракурсов.Тип издания: SteamRipРазработчик: Relic EntertainmentЖанр: Add-on (Standalone), Strategy (Real-time, Tactical), 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F66A64272B0971D8928E46644758A9C1BC4DE3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

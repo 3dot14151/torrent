@@ -1,3 +1,264 @@
+###  Публикация: 255905   (1030342) от 19.02.2021
+
+Le Valedon - Sensuous Sax (1995, 1996) 2СD  [FLAC|Lossless|tracks + .cue] <Instrumental, Saxophone>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goin' In Circles 	      (04:16)
+ 02. I Can't Make You Love Me (04:56)
+ 03. Colour My World 	      (02:57)
+ 04. Everytime You Go Away    (04:29)(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 01:33:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BF0CEBE30296C0841BD1FF79E5ED87054B7CC57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 162997   (1030334) от 19.02.2021
+
+Carlos Gardel - 40 Famous Tangos (2005) 2CD Remaster [FLAC|Lossless|tracks] <Tango>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Cuesta Abajo (03:13)
+02.Silencio (02:42)
+03.Caminito (02:29)
+04.Tomo Y Obligo (02:18)(   Читать дальше...   )Жанр: TangoПродолжительность: 01:46:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BDCC909F3D16A485D0B6BC69B2374DC61299551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 305074   (1030332) от 19.02.2021
+
+The Gino Marinello Orchestra - Romantic Instrumental. Collection (1987-1998) [FLAC|Lossless|image + .cue, tracks] <Easy Listening, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+
+1987 - Latenight Melodies
+1989 - Romantique De La France(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 06:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:908E500D0EB0F7ADC5960DE865B2456C9A93B591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622255   (1030276) от 28.03.2023
+
+Teufelstanz - In Omne Tempus (2015) [FLAC|Lossless|image + .cue] <Medieval Folk, Bagpipe>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. XIMUUS
+03. Стареющий Вагант
+04. A-Kenavo(   Читать дальше...   )Жанр: Medieval Folk, BagpipeПродолжительность: 01:00:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6BC302CC2AB8C280CF0FF94C09516CA259319FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622381   (1030267) от 28.03.2023
+
+Dark Diva - 3 Albums (2021-2023) [MP3|320 Kbps] <Trip Hop, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2021 - Отчуждение
+2022 - Плач покинутых детей
+2023 - ЙойкЖанр: Trip Hop, FolkПродолжительность: 3 CD, 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6E2616D33623B4E6163F871D20DE7C08E77069
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447866   (1030211) от 20.02.2021
+
+Go_A - #Ідиназвук (2016) [FLAC|Lossless|WEB-DL|tracks] <Folk, IDM>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Веснянка (04:13)
+02. Вогнi (04:39)
+03. Сонце (05:39)
+04. Намалюй (03:38)(   Читать дальше...   )Жанр: Folk, IDMПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03105757EF06A5966184B0EE85A0C8F6F1E2ACC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 314199   (1030129) от 20.02.2021
+
+VA - Midnight Sax (1996) [FLAC|Lossless|tracks + .cue] <Instrumental, Saxophone>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John, Osbourne - Blue Eyes 		(03:28)
+02. Leiber, Stoller, King - Stand by Me (02:55)
+03. Masser, Creed - The Greatest Love of All (04:43)
+04. Bahler - She's Out of My Life 	(03:26)(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 01:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EE8DA498F3DB3871377FE1FE50411870A4BEDC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 252875   (1030118) от 20.02.2021
+
+Albert Assayag - Accordion Dances: Tango Waltz Paso (2009) [FLAC|Lossless|tracks + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tango Des Fleurs	    (03:46)
+ 02.  Tango Star		    (02:25)
+ 03.  Tango Magique	    (02:26)
+ 04.  Valse Blonde	    (02:06)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:22:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1D67D23DE380ACEA81ABD742580C493D4A16AD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 209363   (1030107) от 20.02.2021
+
+Royal Philharmonic Orchestra - Legends (2004) 3CD Compilation [APE|Lossless|image + .cue] <Classical, Symphonic Rock>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Королевский филармонический оркестр (Royal Philharmonic Orchestra) — Британский симфонический оркестр с площадкой в Лондоне. Он широко гастролирует, иногда его называют «Национальным оркестром Великобритании» (англ. Britain's national orchestra).Royal Philharmonic Orchestra - Legends CD-I
+01. Angels (4:39)
+02. Babylon (4:08)
+03. With or Without You (5:14)(   Читать дальше...   )Жанр: Classical, Symphonic RockПродолжительность: 03:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61A89A2DAB43FC6C3C8CB9AA511E9D742C564548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 191215   (1030105) от 20.02.2021
 
 VA - Вдохновение - Оттенки настроения 5 альбомов (2004) [APE|Lossless|tracks] <Instrumental>
@@ -6,7 +267,7 @@ VA - Вдохновение - Оттенки настроения 5 альбом
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030105.jpg" />
 </div>
 
 
@@ -35,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030103.jpg" />
 </div>
 
 
@@ -61,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030102.jpg" />
 </div>
 
 
@@ -90,7 +351,7 @@ Vanessa Mae - Greatest Hits (2008) 2CD, Compilation, Unofficial Release, Digipak
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030098.jpg" />
 </div>
 
 
@@ -119,7 +380,7 @@ VA - 100 Hits Accordeon (2008) 5CD, Box-Set [FLAC|Lossless|image + .cue] <Instru
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030093.jpg" />
 </div>
 
 
@@ -148,7 +409,7 @@ VA - Золотой саксофон (2003) [FLAC|Lossless|tracks] <Instrumental
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030091.jpg" />
 </div>
 
 
@@ -177,7 +438,7 @@ Evgeny Grinko - Ice for Aureliano Buendia (2014) [FLAC|Lossless|WEB-DL|tracks] <
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030010.jpg" />
 </div>
 
 
@@ -206,7 +467,7 @@ The Percy Faith Orchestra - Theme From A Summer Place (2002) [FLAC|Lossless|imag
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029932.jpg" />
 </div>
 
 
@@ -235,7 +496,7 @@ VA - Mystera II (1998) [OGG Vorbis|480 Kbps] <NewAge, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029595.jpg" />
 </div>
 
 
@@ -264,7 +525,7 @@ VA - Country Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029523.jpg" />
 </div>
 
 
@@ -293,7 +554,7 @@ Darren Korb - Pyre OST (2017) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029347.jpg" />
 </div>
 
 
@@ -322,7 +583,7 @@ Devesh Sodha - Past & Present (2018) + Singles (2013-2020) [FLAC|Lossless|WEB-DL
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029343.jpg" />
 </div>
 
 
@@ -351,7 +612,7 @@ Darren Korb - Hades OST (2020) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029337.jpg" />
 </div>
 
 
@@ -380,7 +641,7 @@ Simon Chylinski - Subnautica (Original Game Soundtrack) (2018) [FLAC|Lossless|WE
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029003.jpg" />
 </div>
 
 
@@ -409,7 +670,7 @@ The Best of Paul Mauriat 10 CD
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027979.jpg" />
 </div>
 
 
@@ -438,7 +699,7 @@ Wardruna - Kvitravn (2021) [FLAC|Lossless|tracks + .cue] <Dark Folk, Ambient, No
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027705.jpg" />
 </div>
 
 
@@ -467,7 +728,7 @@ Romantic Piano Music Masters - Спокойное фортепиано: Инст
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027363.jpg" />
 </div>
 
 
@@ -481,270 +742,6 @@ Romantic Piano Music Masters - Спокойное фортепиано: Инст
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAC142A5A72D415E89DC576727346FE65C417003
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453672   (1026734) от 12.03.2021
-
-Marc Canham - I Care A Lot (2021) Original Motion Picture Soundtrack [FLAC|Lossless|tracks] <Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Just Doing My Job (03:43)
-02 - Liquidated (01:08)
-03 - Pull The Trigger (01:18)
-04 - Welcome Home (03:01)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6715DF7D5DAF15E9D589B2A776580068B634151F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 850361   (1026713) от 12.03.2021
-
-Baulta - 4 Альбома + 1 EP (2011-2021) [MP3|320 кб/с] <Post-Rock, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026713.jpg" />
-</div>
-
-
-###  Подробнее
-
-2011 - Deeply Sorry To Interrupt Your Megalomania
-2012 - That's My House You're Living In
-2013 - The Greatest Solos Of Mr. Bellini Vol.1 (EP)
-2014 - Any Fool Can Regret Yesterday(   Читать дальше...   )Жанр: Post-Rock, InstrumentalПродолжительность: 03:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB933EF93D097821F7EB766904FEDD3E881C5AC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453725   (1026709) от 12.03.2021
-
-Blackmore's Night - Nature's Light (2021) [FLAC|24/48|Lossless|WEB-DL|tracks] <Folk Rock>
-
->>Other Styles
->>Folk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once Upon December
-02. Four Winds
-03. Feather in the Wind
-04. Darker Shade of Black(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC5976BD001EC0B363107C86EDD76CE9BC60C988
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453745   (1026576) от 13.03.2021
-
-Empyrium - 7 Studio Albums (1996-2021) 7xCD [FLAC|Lossless|image + .cue] <Neofolk, Doom Metal>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкая группа Empyrium образовалась в 1994 году. Первые два альбома группы представляли собой смесь фолка, дум и блэк-метала, за ними последовали два альбома акустического неофолка.
-После выхода альбома 2002 года "Weiland" группа решила прекратить запись: «Empyrium исследует природную мистику с 1994 года, и через 8 лет мы чувствуем, что движемся дальше (   Читать дальше...   )1996 - A Wintersunset
-1997 - Songs Of Moors And Misty Fields
-1999 - Where At Night The Wood Grouse Plays
-2002 - Weiland(   Читать дальше...   )Жанр: Neofolk, Doom MetalПродолжительность: 06:05:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEA967EA77FD027B18D668AECF9C0350DC40E345
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454438   (1026120) от 16.03.2021
-
-Beirut - 9 альбомов (2006-2019) [FLAC|Lossless]<Balkan Folk, World, Indie Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - When I Die
-02 - Gallipoli
-03 - Varieties of Exile
-04 - On Mainau Island(   Читать дальше...   )Жанр: Balkan Folk, World, Indie FolkПродолжительность: 04:15:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34580A29F2AE22A73343F8621266D5EE287BCAA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455946   (1025415) от 20.03.2021
-
-Tom Holkenborg (aka Junkie XL) - Zack Snyder's Justice League / Лига справедливости Зака Снайдера (Original Motion Picture Soundtrack) (2021) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025415.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:18] 01. Rose Betts - Song to the Siren
-[07:57] 02. Tom Holkenborg - A Hunter Gathers
-[00:57] 03. Tom Holkenborg - Migratory
-[01:04] 04. Tom Holkenborg - Things Fall Apart(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2CF088060F5CEFE509A9D402115C6F7C98F7268
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455942   (1025411) от 20.03.2021
-
-Tom Holkenborg (aka Junkie XL) - Zack Snyder's Justice League / Лига справедливости Зака Снайдера (Original Motion Picture Soundtrack) (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack, Score>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025411.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:18] 01. Rose Betts - Song to the Siren
-[07:57] 02. Tom Holkenborg - A Hunter Gathers
-[00:57] 03. Tom Holkenborg - Migratory
-[01:04] 04. Tom Holkenborg - Things Fall Apart(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82E6AD641A9C918892A5672A82278DC447D02FA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455944   (1025266) от 21.03.2021
-
-Tom Holkenborg (aka Junkie XL) - Zack Snyder's Justice League / Лига справедливости Зака Снайдера (Original Motion Picture Soundtrack) (2021) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025266.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:18] 01. Rose Betts - Song to the Siren
-[07:57] 02. Tom Holkenborg - A Hunter Gathers
-[00:57] 03. Tom Holkenborg - Migratory
-[01:04] 04. Tom Holkenborg - Things Fall Apart(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FB23EC2836944D8F911C6F32664E09F483D5B8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456905   (1024572) от 25.03.2021
-
-Blackmore's Night - Nature's Light (2021) 2xCD, Jараnese Еditiоn [FLAC|Lossless|image + .cue] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ренессанс-рок-группа BLACKMORE'S NIGHT, которую создали Ritchie Blackmore и его жена Candice Night, выпустила первый альбом за шесть лет 12 марта 2021 года. Диск под названием "Nature's Light", уже 11-й полноформатник в дискографии BLACKMORE’S NIGHT, издан лейблом earMUSIC.
-
-"История 'Nature's Light' – это история природы, которая является настоящей (   Читать дальше...   )CD - 1:
-01. Once Upon A December (3:10)
-02. Four Winds (3:03)
-03. Feather In The Wind (4:30)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:28:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47490688F2F4763C74BFA149873FD5C2BE7424BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

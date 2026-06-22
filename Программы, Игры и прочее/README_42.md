@@ -1,3 +1,29 @@
+###  Публикация: 1367365   (915404) от 16.03.2020
+
+Маруся - голосовой помощник! v1.0.1 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маруся - новый голосовой ассистент от студии Mail.Ru который умеет не только отвечать на вопросы, но и выполнять различные поручения, так для этого вам необходимо либо набрать вопрос в текстовом режиме или же озвучить его голосом. Кроме этого разработчики добавили целый ряд уже заготовленных форматов и моделей вопросов и действий, так что наиболее популярные фразы (   Читать дальше...   )Тип издания: Mod (Отвязан от сервисов Google Play)Релиз состоялся: 17.06.2019Разработчик: Mail.Ru GroupПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7DB710244F65504B7FF24DACD6B750952B989DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367379   (915380) от 16.03.2020
 
 Apex Launcher Pro v4.7.2 [Ru/En]
@@ -6,7 +32,7 @@ Apex Launcher Pro v4.7.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915380.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Screen Stream Mirroring v2.5.4e [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915374.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ LOCKED - Секретный Альбом v1.3.3 [Ru/Multi] - Спрятать Ф
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915283.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Diaro - личный дневник v3.20.0 Pro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915270.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Sci-Fi Launcher Pro v2.8.8 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915229.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ SHAREit - Connect & Transfer v5.3.52_ww [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915226.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ LIMBO v1.18 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915212.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ ipTView v1.9.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915018.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ iGO Primo NextGen 9.18.27.682862 pongo skin [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914991.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Hola Premium VPN Proxy v1.165.475 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914975.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914965.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Piano Companion PRO: аккорды v1.8.3.2 + v6.29.315 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913827.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913330.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ YoWindow Weather 2.16.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910518.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Very Little Nightmares 1.1.4 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910134.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909428.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ Kitchen Book / Кухонная книга v26.0.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908856.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ Garmin TOPO U.S. 100K 5.0 [Карта] (Garmin)
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908754.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ SD Card Test Pro 1.8.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906809.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905740.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ Deezer 6.1.22.49 MOD [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904664.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904314.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ VivaCut v2.5.4 [Ru/Multi] - видеоредактор (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903640.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ Edge Screen S10 1.6.4.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903581.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ Group Ringtone 1.0.9 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903429.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ Group Ringtone – удобное приложение для андроид о�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C38B887E4FFD7C49496FE1ABE7BCC502794B811B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 885067   (902939) от 23.03.2020
-
-Easy Currency Converter Pro 3.5.9 [Rus/Multi] - Курс и конвертер валют
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс мировых валют (180+), свежие данные, возможность просматривать избранное в автономном режиме, графики и т.д. Не нужно прокручивать бесконечные списки - просто настройте свой персональный список валют, которые Вам необходимо отслеживать.Тип издания: ПираткаРелиз состоялся: 23.03.2020Разработчик: ExtraAndroaryПоддерживаемая ОС: Android. 4.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:164FB099BAD989C6FCF88313154091FD05465C11
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 402635   (392238) от 21.10.2011
+
+Медвежонок Винни и его друзья / Winnie the Pooh (2011) [H.264] DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Ослик Ушастик теряет свой хвост, Филин отправляет друзей (Винни, Тигрулю, Кролика, Хрюню, Кенгу и Крошку Ру) помочь бедолаге найти пропажу, а заодно — спасти Кристофера Робина от таинственного Яскорра. А ведь медвежонок Винни, собирался всего лишь отыскать где-нибудь немного мёда, чтобы слегка подкрепиться, и даже не предполагал, что его ждёт такой суматошный (   Читать дальше...   )Производство: США, Walt Disney PicturesЖанр: Мультфильм, Мюзикл, СемейныйРежиссер: Стивен Дж. Андерсон, Дон ХоллПеревод: ДублированныйСубтитры: OтсутствуютФормат: MKVПродолжительность: 01:00:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8152196C40DAD1B599A3BE911DBC15033C611317
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 717173   (391474) от 31.10.2013
 
 Турбо / Turbo (2013) BDRip [H.264]
@@ -6,7 +32,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391474.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391414.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Barbie и ее сестры в Сказке о пони / Barbie & Her Sisters i
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390831.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390004.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389939.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389927.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389919.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389900.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389833.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389731.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389345.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388433.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387753.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387430.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387129.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387121.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384560.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384558.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384177.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_384117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_384117.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_383995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_383995.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383585.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382193.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382189.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381113.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CE767F1EA304C5A805BBAB6F6C90AE42B790EBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574868   (380949) от 07.09.2022
-
-Миньоны: Грювитация / Minions: The Rise of Gru (2022) BDRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миллион лет миньоны искали самого великого и ужасного предводителя, пока не встретили ЕГО. Знакомьтесь — Грю. Пусть он еще очень молод, но у него в планах по-настоящему гадкие дела, которые заставят планету содрогнуться.Производство: США, Universal Pictures, Illumination EntertainmentЖанр: мультфильм, фантастика, комедия, криминал, приключения, семейныйРежиссер: Кайл Балда, Брэд Эблесон, Джонатан дель ВальАктеры: Стив Карелл, Пьер Коффан, Алан Аркин, Тараджи П. Хенсон, Мишель Йео, Джули Эндрюс, Расселл Брэнд, Жан-Клод Ван Дамм, Дольф Лундгрен, Дэнни ТрехоПеревод: дублированный (iTunes), многоголосый профессиональный (Jaskier, TVShows)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (full, SDH)Продолжительность: 01:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:160221CF7E77C28F8FB75711906919A3431AF1D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1751077   (42558) от 24.09.2024
+
+VA - Шансон премьера 2024 сентябрь (Новые песни. Новые хиты) (2024) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Иван Кучин - Отцвела черёмуха за оградкой чёрной (4:46)
+02. Ярослав Сумишевский - А в деревне (3:19)
+03. Инна Вальтер - Девочка-скандал (2:56)
+04. Ирина Круг - Любовники (3:46)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 01:10:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AEE346D539D02586E3A484B022DA70A6F1B7987
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751232   (42530) от 24.09.2024
+
+Вадим Кузема - 50 лучших песен (2024) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чартер на Ганновер (4:57)
+02. Kurfurstendamm (3:27)
+03. Русские свадьбы в Германии (4:02)
+04. Младшая сестра (2:22)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 02:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA87756704A6A4B8626D04C5B32A3F2E5C0AAD29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751076   (42524) от 24.09.2024
 
 VA - Самые новые песни о любви 6 (2024) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
@@ -6,7 +64,7 @@ VA - Самые новые песни о любви 6 (2024) [FLAC|Lossless|WEB-
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42524.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Хитопад шансона (2024) [FLAC|Lossless|WEB-DL|tracks] <Шан�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41911.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Лучшие хиты шансона (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41907.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Шансон для пацанов (2024) [FLAC|Lossless|WEB-DL|tracks] <Ш
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41869.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Самые душевные песни русского шансона 3 (2
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41162.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Новые хитовые песни 2024, Часть 10 (2024) [FLAC|Lossl
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41064.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40276.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Лучшие дуэты года 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38923.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Золотая песня года 2024 (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38323.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Новые хитовые песни 2024, Часть 11 (2024) [FLAC|Lossl
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37393.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37373.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37046.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36989.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Самые яркие хиты года 2024 (2024) [FLAC|Lossless|WEB-DL|t
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36988.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Шансон премьера 2024 ноябрь (Новые песни. Н�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36670.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36154.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Самые новые песни о любви 7 (2024) [FLAC|Lossless|WEB-
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36038.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - 50 лучших хитов, Часть 2 (2024) [FLAC|Lossless|WEB-DL|track
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35534.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Новые хитовые песни 2024, Часть 12 (2024) [FLAC|Lossl
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35297.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Лучшая дискотека шансона -18 (2024) [FLAC|Lossless|WE
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35098.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33977.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33970.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Шансон премьера 2024 декабрь (Новые песни. �
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33960.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Любимые песни года (2024-2025) (2024) [FLAC|Lossless|WEB-DL
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33959.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Любимые песни года (2024-2025) (2024) [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D855307C1BDDAC0D02ECDDC70F047054CAE44F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767570   (33342) от 22.12.2024
-
-VA - Новогодняя тридцатка 2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Аркадиас - Новый год (3:45)
-02.  Алексей Петрухин - Ёлки-палки, Новый год! (3:10)
-03.  Надежда Мельянцева - Русская любовь (3:06)
-04.  Татьяна Буланова - Вместе в Новый год (2:48)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 01:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C66C741FC84A1F5F83C5DE7A2D4FDC2A286B1D0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768018   (33250) от 23.12.2024
-
-VA - 50 лучших хитов, Часть 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ирина Круг - Любовники (3:46)
-02.  Слава - В сердце бьёт молния (3:18)
-03.  Ислам Итляшев - Ненавидишь (3:35)
-04.  Алексей Петрухин - Чубчик кучерявый (3:11)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 02:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE718E78F630824590245DB077AF7131097858B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1552685   (586684) от 21.05.2022
+
+Василий Авченко | Дальний Восток: иероглиф пространства (2021) [MP3, Игорь Князев]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы до сих пор не знаем, что такое Дальний Восток. Можем ли мы использовать это странное обозначение, соединившее чукотскую тундру и приморские субтропики, якутский полюс холода и курильский бамбук? Понимаем ли, что земля эта появилась у России в ходе соперничества не с Востоком, а с Западом? В чём уникальность этой территории особого назначения, подлинной границы (   Читать дальше...   )Жанр: публицистика, современная русская литератураПродолжительность: 15:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4B3B52521A823A03E624DA275CD13DD1D6403F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918145   (583910) от 18.07.2015
+
+Николай Старостин | Футбол сквозь годы (2015 г) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583910.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге Н.П. Старостин, один из создателей общества «Спартак» и на протяжении многих лет руководитель московской футбольной команды, рассказывает о своей жизни в спорте. Повествование об истории становления и развития отечественного футбола идет на фоне общих событий, происходящих в стране. Автор останавливается на драматическом периоде жизни братьев Старостиных, (   Читать дальше...   )Жанр: ВоспоминанияПродолжительность: 09:33:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAED66CCC5385705A9689130B4E16AC61AD94728
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 919319   (583847) от 18.07.2015
 
 Норман Мейлер | Крутые парни не танцуют (2015) [MP3]
@@ -6,7 +58,7 @@
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583847.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580967.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578843.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575564.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571935.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566997.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565367.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563362.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563104.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560771.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557121.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556229.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553905.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550391.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541015.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540886.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535360.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527152.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524203.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516651.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514512.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502386.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498524.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496477.jpg" />
 </div>
 
 
@@ -627,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CD3EC8CF226B117F3E0D5232D58B6B2747020A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936230   (495505) от 11.09.2015
-
-Карл Саган | Мир, полный демонов. Наука — как свеча во тьме (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495505.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Мир, полный демонов» — последняя книга Карла Сагана, астронома, астрофизика и выдающегося популяризатора науки, вышедшая уже после его смерти. Эта книга, посвященная одной из его любимых тем — человеческому разуму и борьбе с псевдонаучной глупостью, — своего рода итог всей его работы. Мифы об Атлантиде и Лемурии, лица на Марсе и встречи с инопланетянами, магия и (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураПродолжительность: 03:21:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC6738B67BE3EBCA36046C21C489CFC08A201E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565274   (494673) от 23.07.2022
-
-Эрик Ларсон | В саду чудовищ. Любовь и террор в гитлеровском Берлине (2022) [MP3, Олег Томилин]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494673.jpg" />
-</div>
-
-
-###  Подробнее
-
-В романе «В саду чудовищ. Любовь и террор в гитлеровском Берлине» автор сосредоточился на событиях, происходивших в Германии в 1930-е годы. Приход к власти Гитлера и нарастающее безумие нацизма, в которое погрузилась вся страна. При написании этой книги Ларсон обращался к многочисленным документам, архивам, личным перепискам, чтобы изучить вопрос изнутри. Почему (   Читать дальше...   )Жанр: Биография, МемуарыПродолжительность: 13:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AB1C486D31C7BEDFA58E4AD4002E629C0DC0FFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

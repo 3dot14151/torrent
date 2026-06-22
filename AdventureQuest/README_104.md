@@ -1,3 +1,133 @@
+###  Публикация: 1789107   (22728) от 02.04.2025
+
+Rosewater (2025) [Multi] (1.00.1) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошло несколько лет с тех пор, как Харли Лежер покинула Нью-Бретань и отправилась на запад, надеясь оставить прошлое позади и добиться успеха в качестве писателя-фрилансера. После прибытия в сонный приграничный городок Роузвотер, казалось бы, пустяковое задание для местной газеты приводит к поиску пропавшего человека и истории века. Харли и её отряд отправляются (   Читать дальше...   )Тип издания: RepackРазработчик: Grundislav GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FE3CB5AB78F6D72F27C13D45FADB542234F91A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789258   (22617) от 03.04.2025
+
+Virballs (2024) [En] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет этой игры посвящён некоему доктору Корвиду - тому ещё чудаку из разряда безумных учёных. Этот человек умудрился создать и выпустить на волю вирболлов - странных существ, которые как-то научились управлять стихийными силами. В итоге эти озорные создания расползлись по разным планетам и теперь творят там форменный хаос, играючи управляя огнём, воздухом и электричеством.Тип издания: RepackРазработчик: Bolder Games, Chimera StudiosЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB805172D04C0020C6518E0A08987325DD789DD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789459   (22536) от 04.04.2025
+
+Mars Vice (2025) [Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mars Vice - это приключенческая игра, действие которой разворачивается на далеком и футуристическом Марсе. Следуйте за двумя гражданскими следователями, Даксом и Анайей, пока они не разберутся с глубоко укоренившейся коррупцией в марсианском городе Павонис в этой истории, наполненной биопанкам. 2184 год, марсианский город Павонис: место, где стоит побывать на частично (   Читать дальше...   )Тип издания: RepackРазработчик: Rho Labyrinths GmbHЖанр: Приключенческие игры, ИндиЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C88B863D0FE0D3E2F6677347DB13C91F6DBBECFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789412   (22509) от 04.04.2025
+
+South of Midnight (2025) [Ru/Multi] (1.1.0 184977) Repack seleZen
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создатели игр Contrast и We Happy Few представляют South of Midnight - захватывающее приключение от третьего лица, разворачивающееся среди пейзажей Глубокого Юга США. Играя за Хейзел, вы погрузитесь в мифы и легенды и познакомитесь с таинственными созданиями южного фольклора в этом мрачном и причудливом мире. Когда на ее родной город обрушивается катастрофа, Хейзел (   Читать дальше...   )Тип издания: RepackРазработчик: Compulsion GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:813AFBFC49DCC3FD6AA076B9D3AB5761154E9903
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789413   (22502) от 04.04.2025
+
+South of Midnight (2025) [Ru/Multi] (1.1.0 184977) Scene Rune
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создатели игр Contrast и We Happy Few представляют South of Midnight - захватывающее приключение от третьего лица, разворачивающееся среди пейзажей Глубокого Юга США. Играя за Хейзел, вы погрузитесь в мифы и легенды и познакомитесь с таинственными созданиями южного фольклора в этом мрачном и причудливом мире. Когда на ее родной город обрушивается катастрофа, Хейзел (   Читать дальше...   )Тип издания: SceneРазработчик: Compulsion GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15AF6F85989579535D2AD63C14F002C3EEFA627E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789600   (22453) от 05.04.2025
 
 The Last of Us Part II (2) (2025) [Ru/Multi] (1.0.10402.1014/dlc) Repack FitGirl [Remastered]
@@ -6,7 +136,7 @@ The Last of Us Part II (2) (2025) [Ru/Multi] (1.0.10402.1014/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22453.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ IZON. (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22436.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ South of Midnight (2025) [Ru/Multi] (1.1.0 184977) Repack FitGirl [Premium Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22433.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Fluffy Sailors (2025) [Multi] (1.1308) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22406.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Wild Explorer (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22403.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Kun'tewiktuk: A Mi'kmaw Adventure (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22386.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ The Darkest Files (2025) [Multi] (1.0.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22293.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Trials of Innocence (2025) [Multi] (1.2.0.506) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22204.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22109.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ LEILA (2025) [Ru/Multi] (Build 18011991) Repack Other s [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22065.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ PEPPERED (2025) [Ru/Multi] (Build 18001699) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22063.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ The Last of Us Part II (2) (2025) [Ru/Multi] (1.0.10407.714/dlc) Repack seleZen 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22025.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ LEILA (2025) [Ru/Multi] (Build 18011991) Repack FitGirl [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21980.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ The Stalked 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21906.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ South of Midnight (2025) [Ru/Multi] (1.1.2 185185) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21883.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (build 18057167) Repack seleZe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21787.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (729654) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21772.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Dave the Diver (2023) [Ru/Multi] (1.0.4.1637/dlc) Repack FitGirl [Deluxe Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21681.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Venus Vacation PRISM: DEAD OR ALIVE Xtreme (2025) [Multi] (1.02/dlc) Repack FitG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21595.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ Alan Wake II (2) (2023) [Ru/Multi] (1.2.8/dlc) Repack seleZen [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21094.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ CAPTURED (2024) [Ru/Multi] (1.2.1.0.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21028.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ CAPTURED (2024) [Ru/Multi] (1.2.1.0.2) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7023B73345BF76FC4C8E6B500ECCFF2FA9F2DCF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792328   (21019) от 18.04.2025
-
-Myst (2021) [Ru/Multi] (3.0.4) Repack Let'sРlay [VR]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на остров Мист — невероятно красивый, загадочный и окутанный интригами. Совершите путешествие на остров Мист и в другие потрясающие воображение укромные места, которые здесь называются «эпохами», и попытайтесь разгадать тайну, частью которой стали.Тип издания: RepackРазработчик: Cyan WorldsЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4AB033738553BFEE67FD220E835D9B2123DE004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760852   (20871) от 20.04.2025
-
-Alan Wake 2 (2023) [Ru/Multi] (1.2.8/dlc) Repack Wanterlude [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Городок Брайт-Фоллс, укрывшийся среди гор и лесов на северо-западе тихоокеанского побережья, потрясла серия ритуальных убийств. Для расследования этих жутких преступлений в город прибывает Сага Андерсон - опытный агент ФБР, за плечами которой немало дел, считавшихся нераскрываемыми. Однако, когда Андерсон находит страницы из романа ужасов, который начинает оживать (   Читать дальше...   )Тип издания: RepackРазработчик: Remedy EntertainmentЖанр: Экшены, Приключение, ШутерыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Итальянский, Корейский и другиеЯзык интерфейса: Русский, Английский, Итальянский, Корейский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F3B2AADF6DB2D0AF968EFA719F1610AF9A44287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774793   (20861) от 20.04.2025
-
-Biped (2020) [Ru/Multi] (2.6) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Biped - это динамичная приключенческая 3D-игра с реалистичной физикой для совместного прохождения. В ее основе - взаимодействие двух игроков, которые должны помогать друг другу в точно выбранные моменты. Два маленьких двуногих робота Аку и Сайла вместе отправляются в захватывающее приключение, чтобы выполнить свое задание на планете Земля. Вы управляете двумя ногами (   Читать дальше...   )Тип издания: LicenseРазработчик: NEXT StudiosЖанр: Экшены, Приключенческие игры, Казуальные игры, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05F9727EAD126FB694E8519F4677899A7F5C7ECD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793034   (20613) от 22.04.2025
-
-Trine 4: The Nightmare Prince (2019) [Ru/Multi] (1.0.0 Build 8682/dlc) Repack Other s [Definitive Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Trine 4: The Nightmare Prince – очередная часть в серии логических платформеров Trine. Присоединяйтесь к тройке ключевых героев из предыдущих частей игры (рыцарю Понтию, воровке Зои и магу Амадею) и отправляйтесь в новое сказочное приключение, чтобы спасти мир от теней Принца Кошмаров. Trine 4 предложит вам как одиночное, так и кооперативное прохождение с множеством (   Читать дальше...   )Тип издания: RepackРазработчик: FrozenbyteЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:864E0E39FE2C34EA4DB61ED250CEEE7B7D74BA4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777691   (20543) от 23.04.2025
-
-Poppy Playtime (2021) [Ru/Multi] (Build 17717270/dlc) Repack dixen18
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20543.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом хоррор-приключении целей две - решить все головоломки и выжить. За вами будут охотиться кровожадные игрушки, обитающие на заброшенной фабрике. Используйте хвататель, чтобы манипулировать проводами и доставать до удаленных предметов. Исследуйте территорию и избегайте лап монстров.Тип издания: RepackРазработчик: Mob EntertainmentЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, Французский и другиеЯзык интерфейса: Русский, Английский, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D0EA743BEEC26F6199BD35BB98841601110547F
 ```
 
 https://mybot314.ru/tekegram_catalog/

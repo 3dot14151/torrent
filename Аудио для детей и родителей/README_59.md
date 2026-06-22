@@ -1,3 +1,83 @@
+###  Публикация: 406567   (368210) от 04.11.2011
+
+Татьяна Груша | Отважный Капоша [аудиоспектакль] [2010] [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальная сказка и 5 фонограмм для пения под музыку.
+Герой сказки - маленький и трудолюбивый червячок по прозвищу Капоша. Он живёт в своём подземном домике тихо и спокойно и не знает, что над землёй сияет солнце, поют птицы, благоухает зелень. Он не знает, что земля полна ласки, тепла и света. Капоша привык к темноте... Но однажды в его сердечке засияет свет веры, надежды и любви.Жанр: СказкаПродолжительность: 01:20:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB7EFA07091F1E2CD50053A069728E89E305D70C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 406572   (368055) от 04.11.2011
+
+Татьяна Груша | Рождественская свечечка [2009] [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленькая восковая свечечка хотела ярче всех сиять на рождественской елочке.
+А что приключилось с ней, вы узнаете из музыкальной сказки.Жанр: СказкаПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F48EAF74D6104B11761BFD6FE3801C7B707C6DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 406746   (365683) от 05.11.2011
+
+Татьяна Груша | Большие друзья [аудиоспектакль] [2010] [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой музыкальной сказки «Большие друзья» – маленький и забавный слоненок Душка. В самые счастливые минуты своей жизни он познает горе и разлуку, но по молитве матери, Господь не оставляет слоненка в одиночестве...Жанр: СказкаПродолжительность: 01:09:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EFFB38C25221B3F7D3F00E12078834E03A743C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416771   (365381) от 17.10.2020
 
 Валентин Постников | Удивительные похождения Нечистой Силы (2017) [MP3]
@@ -6,7 +86,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365381.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365117.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ Sweet Little Band - Babies Go Red Hot Chili Peppers (2011) [MP3|320 кб/с]<Д�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364750.jpg" />
 </div>
 
 
@@ -87,7 +167,7 @@ VA - Поп-рок-хиты в стиле колыбельных для малы
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364593.jpg" />
 </div>
 
 
@@ -116,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364479.jpg" />
 </div>
 
 
@@ -143,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364470.jpg" />
 </div>
 
 
@@ -169,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362411.jpg" />
 </div>
 
 
@@ -195,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362190.jpg" />
 </div>
 
 
@@ -224,7 +304,7 @@ VA - Волшебные голоса природы: Малыш и мама (200
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362188.jpg" />
 </div>
 
 
@@ -253,7 +333,7 @@ VA - Волшебные голоса природы: Малыш и сладки�
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362182.jpg" />
 </div>
 
 
@@ -282,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361944.jpg" />
 </div>
 
 
@@ -308,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360610.jpg" />
 </div>
 
 
@@ -334,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359866.jpg" />
 </div>
 
 
@@ -363,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359715.jpg" />
 </div>
 
 
@@ -392,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359361.jpg" />
 </div>
 
 
@@ -418,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359255.jpg" />
 </div>
 
 
@@ -444,7 +524,7 @@ VA - Музыка для будущих мам и малышей (2007) [MP3|192
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357542.jpg" />
 </div>
 
 
@@ -473,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357217.jpg" />
 </div>
 
 
@@ -499,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357173.jpg" />
 </div>
 
 
@@ -525,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356678.jpg" />
 </div>
 
 
@@ -551,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356320.jpg" />
 </div>
 
 
@@ -580,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355343.jpg" />
 </div>
 
 
@@ -606,7 +686,7 @@ VA - Песни на музыку Бориса Чайковского (2016) [MP
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355327.jpg" />
 </div>
 
 
@@ -619,87 +699,6 @@ VA - Песни на музыку Бориса Чайковского (2016) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC6CDF0E4D546F3CEE8E1C7411F1E72F2247500E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962781   (355058) от 21.10.2020
-
-VA - Детскотека – Танцевальные хиты (2015) [MP3|192 кб/с]<Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355058.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Детский Хор "Великан" - Бим-бом
-2. Джинсовые мальчики - Самый! Самый!
-3. Детский ансамбль "Гномы" - Танцуй со мной
-4. Фиксики - Помогатор(   Читать дальше...   )Жанр: Детские песниПродолжительность: 01:17:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BC4C811AADDC5AB60A2552E51E7088155383FF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417951   (353680) от 22.10.2020
-
-Анастасия Попандопуло | Космические коты. Планета сияющего неба (2020) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экипаж корабля «Летучая мышь» отправляется на скучнейшее задание и оказывается в центре невероятных событий: следы страшной катастрофы и затерянная планета, боги и таинственные пещеры, извержение вулкана и дары древних могущественных рас – вот что ожидает отважных путешественников. Капитан ВасьВась, механик Хвост, юнга Котенька и кок Мямлик столкнутся с обманом и (   Читать дальше...   )Жанр: Детская литература, ФантастикаПродолжительность: 02:21:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E54D2D84A15AC1BBCD1FB19997E86F65418FB93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 408910   (353379) от 10.11.2011
-
-Графиня де Сегюр | Волшебные сказки [2011] [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Графиня де Сегюр (урождённая Софья Ростопчина) (1799-1874 гг.) - одна из известных и читаемых детских писательниц Франции. Книги графини вышли общим тиражом свыше 20 миллионов экземпляров и остаются популярными в наши дни. Часть произведений экранизирована. В России её сказки и романы были широко известны и регулярно издавались вплоть до 1917 года. Как пишет о ней (   Читать дальше...   )Жанр: Детская литература, сказкиИздательство: МедиаКнигаПродолжительность: 03:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7C16C3AD511F79D375085332ED9CAB03A19A3D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

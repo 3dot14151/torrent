@@ -1,3 +1,57 @@
+###  Публикация: 1184894   (297433) от 19.11.2017
+
+Debit & Credit - Учет финансов 2.5.3 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы ищете программу для учета личных финансов, которая является максимально удобной, но в тоже время обладает достаточным количеством функций, то Debit & Credit - это лучший выбор для вас. Обычно учет финансов требует времени и усилий. Но теперь с Debit & Credit этот процесс наконец-то стал намного удобней.Тип издания: macOS SoftwareРелиз состоялся: 16.11.2017Разработчик: Ivan Pavlov Pty LtdПоддерживаемая ОС: OS X 10.11 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9D8C01DF29A2F92953BFA9FE47F36C4744D52A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262303   (297018) от 14.11.2018
+
+MiniNote Pro 5.2 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297018.jpg" />
+</div>
+
+
+###  Подробнее
+
+MiniNote Pro — очень простое и удобное приложение (замечательная замена нативным заметкам), которое находиться в строке меню и по горячей клавише всегда под рукой. Симпатичный интерфейс, темы которого можно менять (только в версии Pro), а простой поиск быстро найдет любой текст, даже, если заметок очень много.
+
+В версии Pro можно воспользоваться возможностью форматированного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.09.2018Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E489F1299294346E303616D159C651FDD1EB0B9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1262220   (297016) от 14.11.2018
 
 Touch Forms Pro 7 v7.27.3 [En]
@@ -6,7 +60,7 @@ Touch Forms Pro 7 v7.27.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297016.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Curio 10.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296991.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ PDFPen 11.1.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296927.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ Things 2.8.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294728.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ Drop - Beautiful color picker for macOS 1.01 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294198.jpg" />
 </div>
 
 
@@ -142,7 +196,7 @@ Nice Todo 2 v2.0.5d [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293329.jpg" />
 </div>
 
 
@@ -168,7 +222,7 @@ Fantastical 2.1.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293159.jpg" />
 </div>
 
 
@@ -195,7 +249,7 @@ Vellum 2.6.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291666.jpg" />
 </div>
 
 
@@ -223,7 +277,7 @@ Final Draft 11 v11.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291541.jpg" />
 </div>
 
 
@@ -251,7 +305,7 @@ Remotix VNC, RDP & NEAR 5.1.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290959.jpg" />
 </div>
 
 
@@ -280,7 +334,7 @@ Tweetbot for Twitter 2.5.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290884.jpg" />
 </div>
 
 
@@ -308,7 +362,7 @@ Graphics for iWork 3.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290340.jpg" />
 </div>
 
 
@@ -336,7 +390,7 @@ Paperless 3.0.71 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289878.jpg" />
 </div>
 
 
@@ -362,7 +416,7 @@ PDF Plus - Merge & Split PDFs 1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289737.jpg" />
 </div>
 
 
@@ -388,7 +442,7 @@ iNet Network Scanner 2.3.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288478.jpg" />
 </div>
 
 
@@ -415,7 +469,7 @@ Templates for MS Word by GN 4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287798.jpg" />
 </div>
 
 
@@ -443,7 +497,7 @@ MailTab Pro for Gmail 7.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287325.jpg" />
 </div>
 
 
@@ -470,7 +524,7 @@ MenuTab Pro for Facebook 6.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287144.jpg" />
 </div>
 
 
@@ -499,7 +553,7 @@ Shimo 5 v5.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286919.jpg" />
 </div>
 
 
@@ -528,7 +582,7 @@ MacFamilyTree 9 v9.0.10 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286171.jpg" />
 </div>
 
 
@@ -556,7 +610,7 @@ Readiris Pro 17.1.3 (build 7ca) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284245.jpg" />
 </div>
 
 
@@ -582,7 +636,7 @@ Canary Mail - Encrypted Email 2.15 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281159.jpg" />
 </div>
 
 
@@ -608,7 +662,7 @@ Keep It 1.7.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280950.jpg" />
 </div>
 
 
@@ -634,7 +688,7 @@ Cisdem PDFManagerUltimate 3.2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280948.jpg" />
 </div>
 
 
@@ -645,59 +699,6 @@ PDFManagerUltimate - решение "Все в одном" по работе с 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39BE36A49F8212E0FCB2A14C43BE5AABF2B2E4C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336316   (280940) от 06.11.2019
-
-MailRaider 3.69 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280940.jpg" />
-</div>
-
-
-###  Подробнее
-
-MailRaider Pro - небольшая  утилита, которая поможет вам просмотреть почтовые файлы формата Outlook MSG и при необходимости извлечь вложения и преобразовать электронные письма в RTF или EML формат.Тип издания: macOS SoftwareРелиз состоялся: 01.11.2019Разработчик: 45RPM SoftwareПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D25FA94CB322D65E9D85C40986CBC14C6F76640E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336367   (280806) от 06.11.2019
-
-RealDNS - Dynamic DNS update client 7.4.3 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280806.jpg" />
-</div>
-
-
-###  Подробнее
-
-RealDNS - клиент обновления динамических DNS
-RealDNS -  один из лучших клиентов для обновления динамических DNS, с iCloud синхронизацией. Приложение работает с 16 популярными провайдерами динамических DNS: Dyn, NoIP, FreeDNS, ChangeIP, DuckDNS, XpertDNS, Strato, DynDNS.it, DtDNS, EasyDNS, DNS Made Easy, CloudFlare, Google Domains, Namecheap, Hurricane Electric и Loopia. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.11.2019Разработчик: MingleBit SRLПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:056325E8F030CE646328628BB096F968041132ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

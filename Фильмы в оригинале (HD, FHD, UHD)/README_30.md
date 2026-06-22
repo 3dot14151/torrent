@@ -1,3 +1,133 @@
+###  Публикация: 1037070   (615283) от 23.07.2016
+
+Киану / Keanu  (2016) BDRip [H.264/720p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615283.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре сюжета окажутся двое друзей, которые вынуждены прикинуться гангстерами ради спасения украденного домашнего питомца - кота по кличке Киану.Производство: США, New Line Cinema, Principato Young ManagementЖанр: боевик, комедияРежиссер: Питер АтенсиоАктеры: Джордан Пил, Кигэн-Майкл Ки, Тиффани Хэддиш, Метод Мэн, Даррел Бритт-Гибсон, Джейсон Митчелл, Джамар Малачи Нейборс, Луис Гусман, Уилл Форте, Ниа Лонг, Роб Хюбель, Мэдисон ВульфПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E837468E909B7C67A8DC232E9D565F82DFE296B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037074   (615167) от 23.07.2016
+
+Нервы на пределе / High Strung (2016) WEB-DL [H.264/1080p-LQ] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Руби — танцовщица, которая поступает в Манхэттенскую Школу Искусств. Она встречает скрипача по имени Джонни, который выступает в метро. Когда он отвлекся, его скрипку украли. Она пытается ему помочь, и узнает, что он нелегальный иммигрант. Она узнала, что существует конкурс, в котором танцор выступает с скрипачом, а победитель получает стипендию, которая дает возможность (   Читать дальше...   )Производство: США, Румыния, Castel Film Studio, Riviera Films, Sforzando ProductionsЖанр: Драма, Мелодрама,МузыкаРежиссер: Майкл ДамианАктеры: Кинан Кампa, Николас Голицин, Джейн Сеймур, Соноя Мидзуно, Ричард Саутгейт, Пол Фримен, Майя Моргенштерн, Иэн Иствуд, Анабель Кутай, Маркус Эмануэл МитчеллПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:36:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BB73547A5D07C0C0EBD15A6A8A25FE8754CE5AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036574   (615077) от 23.07.2016
+
+Бэтмен против Супермена: На заре справедливости / Batman v Superman: Dawn of Justice (2016) Blu-ray [H.264/1080p] [Расширенная версия] [EUR] [IT, JA, ES, EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Опасаясь, что действия богоподобного супергероя так и останутся бесконтрольными, грозный и могущественный страж Готэм Сити бросает вызов самому почитаемому в наши дни спасителю Метрополиса, в то время как весь остальной мир решает, какой герой ему по-настоящему нужен. И пока Бэтмен и Супермен пребывают в состоянии войны друг с другом, возникает новая угроза, которая (   Читать дальше...   )Производство: США, DC Entertainment, Dune Entertainment, SyncopyЖанр: Фантастика, БоевикРежиссер: Зак СнайдерАктеры: Генри Кавилл, Бен Аффлек, Галь Гадот, Джейсон Момоа, Эми Адамс, Джесси Айзенберг, Джена Мэлоун, Эзра Миллер, Дайан Лэйн, Джереми АйронсПеревод: ОтсутствуетЯзык озвучки: Английский, Итальянский, Испанский, ЯпонскийЯзык субтитров: Русский, Японский, Английский, Итальянский, Испанский, Корейский, Арабский, Болгарский, Хорватский, Чешский, Датский, Эстонский, Финский, Греческий, Иврит, Венгерский, Исландский, Латвийский, Литовский, Норвежский, Польский, Португальский, Румынский, Словенский, Шведский, ТурецкийПродолжительность: 03:02:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F38A477CA81B8B39B1631D76B15657F72345B2DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230692   (613553) от 13.06.2018
+
+Павел, апостол Христа / Paul, Apostle of Christ  (2018) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613553.jpg" />
+</div>
+
+
+###  Подробнее
+
+История жизни и смерти апостола Павла, который прошёл путь от беспощадного гонителя христиан до одного из основателей христианской церкви. Его последнее миссионерское путешествие заканчивается в тюрьме, куда он был заточён по приказу римского императора Нерона. Пока плененный Павел ждёт казни и размышляет о своей посмертной участи, его последователь Лука пишет новое (   Читать дальше...   )Производство: США / Affirm Films, ODB Films, Outside Da BoxЖанр: драма, историяРежиссер: Эндрю ХайаттАктеры: Джеймс Кэвизел, Джеймс Фолкнер, Оливье Мартинес, Джоэнн Уэлли, Джон Линч, Гиоргос Карамихос, Антония Кэмпбелл-Хьюджес, Алессандро Спердути, Александра Вино, Мануэль Коши, Ной Хантли, Кеннет СпитериПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, испанскиеПродолжительность: 01:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12213D4DC6FE6F70E45E491C93BD9236070FB6E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037402   (613338) от 24.07.2016
+
+Манхэттенская ночь / Manhattan Night / Manhattan Nocturne  (2016) BDRip [H.264/720p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613338.jpg" />
+</div>
+
+
+###  Подробнее
+
+С просьбы соблазнительной незнакомки разобраться в нераскрытом убийстве ее мужа начинается неприятная история сексуальной одержимости и шантажа, которая может стоить журналисту Портеру Рену его работы, семьи и даже жизни.Производство: США, DeCubellis Films, Untravelled Worlds, Fable House, Nocturne Pictures, Big Indie PicturesЖанр: триллер, драма, криминал, детективРежиссер: Брайан ДеКьюбелисАктеры: Ивонн Страховски, Эдриан Броуди, Дженнифер Билз, Линда Лавин, Кэмпбелл Скотт, Стивен Беркофф, Кевин Брезнахан, Амели МакКендри, Томас Баир, Мария-Кристина Оливерас, Уилл Бейнбринк, Чинаса ОгбуагуПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:53:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65906AFBA91FB88E59D9177006C8B3062DF0D930
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1146564   (612535) от 30.06.2017
 
 Окча / Okja (2017) WEBRip [H.264/1080p-LQ] [EN / RU, EN Sub]
@@ -6,7 +136,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612535.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612258.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612064.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611002.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610905.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608308.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606368.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606199.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604534.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604168.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604077.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603646.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603620.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602445.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601812.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599629.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598156.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597739.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596241.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596141.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595718.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B818CDFD531ED9B887BB1D168FA44AB0F9131338
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039034   (595539) от 01.08.2016
-
-Терминатор 2: Судный День / Terminator 2: Judgment Day (1991) Blu-ray [H.264/1080p] [EN / KOR, SP, CH, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действия художественного фильма «Терминатор 2: Судный день» происходят спустя более десяти лет после первой встречи Сары Коннор с терминатором, который пытался уничтожить ее и не допустить рождение сына Джона. Сара выжила и родила сына, но вскоре попала в психиатрическую лечебницу, а Джон живет с приемными родителями. Но будущее неумолимо приближается и судный день (   Читать дальше...   )Производство: США, Pacific Western, Canal+, Carolco Pictures Inc., Lightstorm EntertainmentЖанр: Боевик, Фантастика, ТриллерРежиссер: Джеймс КэмеронАктеры: Арнольд Шварценеггер, Линда Хэмилтон, Эдвард Ферлонг, Роберт ПатрикПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: Корейский, Английский, Испанский, Китайский 1, Китайский 2Продолжительность: 02:17:00Реклама: Нет
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87A3B9BE26A4B0ED3A75164B0C594858388A835A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 688064   (594907) от 10.08.2013
-
-Великий Гэтсби / The Great Gatsby (2013) BDRip [1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весной 1922 года, в эпоху разлагающейся морали, блистательного джаза и «королей контрабандного алкоголя», Ник Каррауэй приезжает из Среднего Запада в Нью-Йорк. Преследуя собственную американскую мечту, он селится по соседству с таинственным, известным своими вечеринками миллионером Джеем Гэтсби, а на противоположном берегу бухты проживают его кузина Дэйзи и её муж, (   Читать дальше...   )Жанр: Драма, МелодрамаРежиссер: Баз ЛурманАктеры: Леонардо ДиКаприо, Тоби Магуайр, Кэри Маллиган, Джоэл Эдгертон, Айла Фишер, Амитабх Баччан, Стив Бисли, Ричард Картер, Джейсон Кларк, Эделейд КлеменсПеревод: ОтсутствуетЯзык субтитров: АнглийскийПродолжительность: 02:22:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B22FA8E907C27E8824D23EAE7572D95BA7E7B4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233014   (594886) от 27.06.2018
-
-Познакомься с новыми обстоятельствами / Finding Your Feet  (2017) BDRemux [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благовоспитанная английская леди Сандра прожила с мужем сорок лет, пока не уличила его в измене. Собрав вещи, она переезжает из огромного особняка в старую квартиру своей сестры-бунтарки Биф. Сандра попадает в общество свободолюбивых и энергичных стариков, которые учат жеманную леди полноте жизни, любви и танцам.Производство: Великобритания / Eclipse Films, Catalyst Global Media, Powderkeg Pictures, Fabula Pictures, Fred FilmsЖанр: драма, мелодрама, комедияРежиссер: Ричард ЛонкрэйнАктеры: Джоанна Ламли, Тимоти Сполл, Селия Имри, Имелда Стонтон, Дэвид Хейман, Фиби Николлс, Джон Сешнс, Джози Лоуренс, Ричард Хоуп, Виктория Уикс, Индра Ове, Фран ТаргПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2357A4E030608EEAB88C52206147EB9069332625
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300157   (594523) от 04.05.2019
-
-Клятва / Pledge (2018) BDRemux [H.264/1080p] [EN, Ger]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первокурсники Этан, Джастин и Дэвид всеми силами стараются улучшить свою репутацию, мечтая стать членами престижного студенческого братства. Когда все популярные ученические сообщества отказывают главным героям, им неожиданно улыбается удача: маленькое и закрытое братство предлагает им членство в клубе, которое дает эксклюзивный доступ к миру ярких вечеринок, проходящих (   Читать дальше...   )Производство: США, BoulderLight Pictures, Stag PicturesЖанр: Ужасы, ТриллерРежиссер: Дэниэл РоббинсАктеры: Джеймс Уотсон, Джо Галлахер, Филлип Андре Ботелло, Джеки Тейлор, Мерритт Мэттью Чейз, Джессика Пиментел, Камерон Копертуэйт , Зак Уэйнер, Тим Винчис, Эмеральд Толлер, Джин Калелло, Макс Шустер, Бренда Монкс, Элла Джордан, Мелани Ротман, Эрика Бузер, Аарон Далла Вилла, Закари БёрдПеревод: ОтсутствуетЯзык озвучки: английский, немецкийСубтитры: отсутствуютПродолжительность: 01:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:857828663883AA992D393B7EBCFA4802D2E38AE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150660   (593911) от 15.07.2017
-
-Одарённая / Gifted  (2017) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фрэнк Адлер живет в прибрежном городке во Флориде и воспитывает в одиночку свою необычайно одаренную племянницу Мэри. Но планы парня о спокойной школьной жизни для девочки рушатся, когда о математических способностях ребенка узнает грозная мать Фрэнка Эвелин. У бабушки свои представления о будущем внучки, и ради этого она готова даже разлучить Мэри с Фрэнком.Производство: СШАЖанр: драмаРежиссер: Марк УэббАктеры: Крис Эванс, МакКенна Грейс, Линдси Дункан, Дженни Слейт, Октавия Спенсер, Майкл Кендалл Каплан, Джон М. Джексон, Гленн Пламмер, Джон Финн, Элизабет Марвел, Кендес Б. Харрис, Джон СклароффПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанские, французскиеПродолжительность: 01:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F60CCDD207182289B88FF39015712E601C3E9AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

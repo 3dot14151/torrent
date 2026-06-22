@@ -1,3 +1,32 @@
+###  Публикация: 1546035   (604429) от 25.04.2022
+
+Dexcore - Metempsychosis (2020) 2CD, Extra [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Deathcore, J-Rock>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604429.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Dead Sea
+2. Mistake
+3. above the Clouds
+4. A.S.H(   Читать дальше...   )Жанр: Metalcore, Post-Hardcore, Deathcore, Progressive, J-CoreПродолжительность: 2CD, 02:13:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2A27A70E2610BBBE0F654772A889EA41CD86CBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546336   (604288) от 25.04.2022
 
 Saber Tiger - Paragraph V (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy, Power, Progressive Metal>
@@ -6,7 +35,7 @@ Saber Tiger - Paragraph V (2021) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604288.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ One Ok Rock - Ambitions (2017) English Version [FLAC|Lossless|tracks] <Alternati
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604213.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Nocturnal Bloodlust - Argos (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Dea
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596271.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Tears Of Tragedy - & (Acoustic) (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic,
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581885.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Undead Corporation - J.O.I.N.T. (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Nu Meta
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559591.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Dir En Grey - Phalaris (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539183.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Godzilla Snacks - There Be Monsters (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539178.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Hate Beyond - Perpetual Pain (2003) [FLAC|Lossless|image + .cue] <Thrash, Death 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524324.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Hate Beyond - Ruthless Aggression (2018) [FLAC|Lossless|image + .cue] <Thrash, D
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523379.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Jun Togawa - 12 альбомов (1984-2008) [FLAC|Lossless]<Japanese,new wave,n
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_520828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_520828.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ coldrain - Nonnegative (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, P
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513620.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ Nemophila - Revive (U.S. Version) (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcor
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511524.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ Yoshii Kazuya - 2 albums (2007-2009) [FLAC|Lossless]<J rock,rock'n'roll>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_511322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_511322.jpg" />
 </div>
 
 
@@ -395,7 +424,7 @@ Pazzo Fanfano Di Musica - Pazzo Fanfano Di Musica (1989) Reissue /2013, King Rec
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499163.jpg" />
 </div>
 
 
@@ -421,7 +450,7 @@ Murasaki - Purplessence (2010) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493109.jpg" />
 </div>
 
 
@@ -450,7 +479,7 @@ Thousand Eyes - Betrayer (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Met
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492455.jpg" />
 </div>
 
 
@@ -479,7 +508,7 @@ Marge Litch - Crystal Heart In The Fountain (1995) [WavPack|Lossless|image + .cu
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486400.jpg" />
 </div>
 
 
@@ -508,7 +537,7 @@ nano - 3 альбома (2013-2015) [FLAC|Lossless] <J-Rock>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481592.jpg" />
 </div>
 
 
@@ -537,7 +566,7 @@ Loudness - 2·0·1·2 (2012) [WavPack|Lossless]<Heavy Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476209.jpg" />
 </div>
 
 
@@ -572,7 +601,7 @@ VA - Who Do They Think We Are? - A Tribute to Deep Purple from Japan (1996) Reis
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475913.jpg" />
 </div>
 
 
@@ -607,7 +636,7 @@ Saber Tiger - Project One (1997) [WavPack|Lossless|image + .cue] <Heavy Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472378.jpg" />
 </div>
 
 
@@ -636,7 +665,7 @@ Saber Tiger - Indignation (2005) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472353.jpg" />
 </div>
 
 
@@ -665,7 +694,7 @@ SYU - Crying Stars - Stand Proud! (2010) Korean Edition [FLAC|Lossless|image + .
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420945.jpg" />
 </div>
 
 
@@ -694,7 +723,7 @@ Anthem - Blazing Faith - revisited (2015) Deluxe Edition - Blu-Ray + SHM CD [Wav
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420836.jpg" />
 </div>
 
 
@@ -723,7 +752,7 @@ Concerto Moon - Tears Of Messiah (2017) Japanese Edition [FLAC|Lossless|image + 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410479.jpg" />
 </div>
 
 
@@ -737,41 +766,6 @@ Concerto Moon - Tears Of Messiah (2017) Japanese Edition [FLAC|Lossless|image + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:890CF6F059E8AC535F584EDAAE98401C9B079A5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 152119   (372497) от 02.11.2011
-
-Takahiro Matsumoto/TMG (Tak Matsumoto Group) - 3 albums(2002-2004) [FLAC|lossless]<JRock,Hard rock, blues rock, heavy metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_372497.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Oh Japan ~Our Time Is Now~-04:09
-2.Everything Passes Away-04:40
-3.Kings For a Day-04:36
-4.I Know You by Heart-03:32
-5.I wish you were here-04:18
-6.The Greatest Show On Earth-03:02
-7.Signs of Life-03:49
-8.Red, White And Bullet Blues-04:53
-9.Trapped-03:38
-10.My Alibi-03:08(   Читать дальше...   )2002-2004Жанр: JRock,Hard rock,Instrumental,BluesПродолжительность: 00:58:17
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

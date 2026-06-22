@@ -1,3 +1,111 @@
+###  Публикация: 1671988   (171064) от 26.10.2023
+
+Благовест | Святой великомученик и целитель Пантелеимон (2013) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171064.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге рассказывается о жизни и многочисленных прижизненных и посмертных чудесах святого великомученика и целителя Пантелеимона, прошедшего спасительный путь приближения и уподобления Господу Богу. Он был милостивым, и всем сердцем хотел помочь людям больным, страдающим, нуждающимся в его помощи. В книге повествуется и о Русском Пантелеимоновом монастыре на (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E07CD71AB59491DA3F881A28E1C02D828591805D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671974   (171059) от 26.10.2023
+
+Благовест | Земная жизнь Пресвятой Богородицы и описание святых чудотворных икон Ее (2023) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171059.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой замечательной книге, составленной Софией Снессоревой и выдержавшей несколько переизданий, рассказывается о земной жизни Пресвятой Богородицы, а также приводятся сведения о многочисленных чудотворных иконах, написанных в Ее честь, и их изображения.
+
+Книга рассчитана на широкий круг православных читателей.Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6763725D31E6F67CAB424124F0DFB36866FC4A71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671980   (171051) от 26.10.2023
+
+Святитель Симеон Солунский | Объяснение священных обрядов и Таинств Церкви (2013) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга святителя Симеона Солунского объясняет символику и смысл совершаемых в храме Таинств и других священнодействий. В ней также подробно рассматриваются различные стороны храмовой жизни, правила поведения верующих в Церкви и совершения богослужений, даются ответы на многие насущные вопросы, касающиеся священнослужения, на основе Священного Предания.
+
+Книга рассчитана (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FFBF43FAD3B25C6FC15229790F50942474F86BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430381   (170901) от 10.12.2020
+
+Н.В. Дмитриева (сост.) | О Тебе радуется. Чудотворные иконы Божией Матери (2007) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга родилась из статей, написанных для журнала «Встреча». Семь лет в «Светоче» (разделе журнала) ежемесячно публикуются эти очерки. Книга посвящена чудотворным иконам Божией Матери, пережившим вместе со всей нашей Россией тяжелейшие годы гонений, когда разрушались храмы и уничтожались святыни. В лучшем случае чудотворные иконы попадали в музеи. Многие иконы (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC5D9D26C8F5603CC5233259FEF9EB0AE5179EDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087493   (170659) от 08.12.2022
 
 Сергий Нилус | Полное собрание сочинений в шести томах (2005) [PDF, DJVU]
@@ -6,7 +114,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170659.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170655.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170347.jpg" />
 </div>
 
 
@@ -84,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170193.jpg" />
 </div>
 
 
@@ -110,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170007.jpg" />
 </div>
 
 
@@ -136,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169559.jpg" />
 </div>
 
 
@@ -162,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169527.jpg" />
 </div>
 
 
@@ -188,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169472.jpg" />
 </div>
 
 
@@ -214,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169427.jpg" />
 </div>
 
 
@@ -240,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169216.jpg" />
 </div>
 
 
@@ -266,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169127.jpg" />
 </div>
 
 
@@ -292,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168993.jpg" />
 </div>
 
 
@@ -318,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168256.jpg" />
 </div>
 
 
@@ -344,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167783.jpg" />
 </div>
 
 
@@ -370,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167723.jpg" />
 </div>
 
 
@@ -398,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167558.jpg" />
 </div>
 
 
@@ -424,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167304.jpg" />
 </div>
 
 
@@ -450,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167299.jpg" />
 </div>
 
 
@@ -476,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167294.jpg" />
 </div>
 
 
@@ -502,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166927.jpg" />
 </div>
 
 
@@ -530,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166857.jpg" />
 </div>
 
 
@@ -558,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166624.jpg" />
 </div>
 
 
@@ -569,110 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D488721E31816D2770AF110C13646FAA31A43565
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431767   (166243) от 15.12.2020
-
-Святой Иоанн Кассиан Римлянин | Обозрение духовной брани (2020) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166243.jpg" />
-</div>
-
-
-###  Подробнее
-
-…цель ваша – в чистоте сердца, а конец – Жизнь Вечная. Итак, что может нас направить к сей цели, т. е. к чистоте сердца, тому мы следовать должны всею силою, а что отвлекает от неё, того избегать, как гибельного и вредного. Ибо для неё всё подъемлем мы и делаем; для неё оставляются родители, отечество, чины, богатство, утехи мира сего и все удовольствия, – чтоб, (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC8773C27E89976F336B041F4DE52ACB816680E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516509   (166237) от 11.12.2021
-
-Общество памяти игумении Таисии (изд.) | Акафист святому славному великомученику, победоносцу и чудотворцу Георгию (2009) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великомученик Георгий жил в Ливанской стране в правление императора Диоклетиана. Будучи воином, не пожелал мучить и гнать христиан и исповедал себя христианином. Принял мучения и смерть ок. 303 г. Многочисленны посмертные чудеса св. Георгия. Самое известное из них — победа над страшным чудовищем-змием, пожиравшим овец и требовавшим от окрестных жителей человеческих (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F12A20C757BFAE0C7B0F780F14FB6883881EBA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431521   (166136) от 15.12.2020
-
-Н.Е. Пестов | Как творить молитву Иисусову (2020) [PDF, FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166136.jpg" />
-</div>
-
-
-###  Подробнее
-
-И снова мы говорим о молитве. Поистине, безконечна эта тема, как и молитвенный труд христианина. А о наставлениях святых отцов в деле молитвы никогда не можем мы сказать, что это уже читали, изучили, а главное, не можем сказать, что так хорошо знакомы с этими наставлениями, что неуклонно следуем им. Поэтому, всякий раз, читая слова о молитве святых отцов или известных (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9010E1F0BFC2D8E6F9AC15A848A1061E8B26A740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597479   (166042) от 15.12.2022
-
-Архиепископ Варлаам (Ряшенцев) | Ступени к Небу: Господь не осудит смиренного (2011) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник трудов архиепископа Варлаама (Ряшенцева, 1878-1942) знакомит читателя с творчеством этого выдающегося старца и духовного писателя XX века. В книгу вошли не потерявшие своей значимости сочинения Владыки — прежде всего аскетического плана.Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFB653313343D4D74B1CF92EF1E44A068EB98500
 ```
 
 https://mybot314.ru/tekegram_catalog/

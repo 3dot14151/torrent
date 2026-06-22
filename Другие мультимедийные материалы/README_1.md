@@ -6,7 +6,7 @@
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511917.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509192.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507141.jpg" />
 </div>
 
 
@@ -86,6 +86,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 233361   (504533) от 05.09.2010
+
+Одиссей | Практическая энциклопедия садовода [2006] [ISO]
+
+>>Мультимедийные материалы
+>>Другие мультимедийные материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_504533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта энциклопедия ознакомит с основными приемами и секретами практического садоводства - от планирования приусадебного участка и его благоустройства до посадки деревьев, кустарников, цветов, овощных и плодово-ягодных культур, а также всевозможных экзотических растений и ухода за ними.
+ Садоводство - одно из самых популярных увлечений, которому посвящают свободное время люди во всем мире. Ни с чем не сравнить удовольствие от создания ярких цветочных клумб или от выращенных своими руками овощей и фруктов.
+ Энциклопедия предназначена не только для новичков садоводства в качестве идеального практического путеводителя, но и для опытных садоводов как компетентный и обширный справочник, в котором можно найти ответы на многие вопросы.Жанр: СадоводствоФормат: ISO
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1055545   (478795) от 26.09.2016
 
 ARCHON | 444 проекта котеджей (2011) [ISO]
@@ -94,7 +122,7 @@ ARCHON | 444 проекта котеджей (2011) [ISO]
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478795.jpg" />
 </div>
 
 
@@ -120,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469001.jpg" />
 </div>
 
 
@@ -152,7 +180,7 @@ Robert Bosch Hausgerate | Bosch MUM 4 DVD Рецепты кухонный ком
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464455.jpg" />
 </div>
 
 
@@ -178,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464057.jpg" />
 </div>
 
 
@@ -213,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448736.jpg" />
 </div>
 
 
@@ -241,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448728.jpg" />
 </div>
 
 
@@ -267,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447729.jpg" />
 </div>
 
 
@@ -293,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445704.jpg" />
 </div>
 
 
@@ -319,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_435290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_435290.jpg" />
 </div>
 
 
@@ -346,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_434255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_434255.jpg" />
 </div>
 
 
@@ -374,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_416288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_416288.jpg" />
 </div>
 
 
@@ -402,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413694.jpg" />
 </div>
 
 
@@ -429,7 +457,7 @@ TradeLikeaPro | Памм Инвестирование (2016) [unpacked]
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411229.jpg" />
 </div>
 
 
@@ -455,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393373.jpg" />
 </div>
 
 
@@ -481,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382309.jpg" />
 </div>
 
 
@@ -507,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362432.jpg" />
 </div>
 
 
@@ -534,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345156.jpg" />
 </div>
 
 
@@ -569,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337118.jpg" />
 </div>
 
 
@@ -600,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333091.jpg" />
 </div>
 
 
@@ -629,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333085.jpg" />
 </div>
 
 
@@ -657,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333083.jpg" />
 </div>
 
 
@@ -683,7 +711,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332991.jpg" />
 </div>
 
 
@@ -696,32 +724,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E835249589FC808EDDC20165FA76065987539C9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260114   (308821) от 08.11.2018
-
-Алексей Меркулов | Моделирование визуализация и постобработка (2014) [unpacked]
-
->>Мультимедийные материалы
->>Другие мультимедийные материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я покажу вам простые приёмы моделирования. И хотя интерфейс программы английский, вы очень быстро поймете принцип работы в 3ds Max. Вы будете моделировать здание, которое сами выберите или повторять шаг за шагом моделинг коттеджа, взятого за основу курса. В курсе рассмотрено создание конструкций разных форм (например, скатные крыши и плоские кровли)Производство: Школа Алексея МеркуловаЖанр: Обучающее видеоФормат: unpackedПродолжительность: 39:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:810349DE501D0A0A9E2F004B505469889BB75F87
 ```
 
 https://mybot314.ru/tekegram_catalog/

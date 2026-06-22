@@ -1,3 +1,29 @@
+###  Публикация: 1530409   (728981) от 11.02.2022
+
+Kotoura-san | Котоура [2013, TV, 12 эп. + 6SP] BDRip 720p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Непохожим на других всегда живется тяжко – в этом на горьком опыте убедилась Харука Котоура, с детства слышащая чужие мысли. Быть рядом с человеком, для которого ты словно открытая книга – нелегкое испытание. Даже родная мать его не выдержала и сбежала, бросив «чудовище» на попечение деда. Легко предсказать реакцию окружающих, когда те узнавали, с кем их свела судьба. (   Читать дальше...   )Производство: Студия AICЖанр: комедия, романтика, драма, мистикаРежиссер: Ота МасахикоПеревод: General TAB; Kasumi; Schum; TassadarЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин. + 6SP по 2 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67F878E3A26B62C55FCD5D9225582CD75DF423E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530559   (728925) от 11.02.2022
 
 Gin no Saji | Silver Spoon | Серебряная ложка [2013, TV, 22] BDRip 720p HEVC 10-bit raw
@@ -6,7 +32,7 @@ Gin no Saji | Silver Spoon | Серебряная ложка [2013, TV, 22] BDRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728925.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Miyakawa-ke no Kuufuku | The Miyakawa Family's Hunger | Голодные сёс�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728923.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Sakurasou no Pet na Kanojo | The Pet Girl of Sakurasou | Кошечка из С�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728920.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Mahou Shoujo Lyrical Nanoha Vivid | Magical Girl Lyrical Nanoha Vivid | Лири
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728552.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Tokusou Senshatai Dominion / New Dominion Tank Police / Доминион: Сок
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726140.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Radiant | Радиант [2018, TV, 21] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726102.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Ensemble Stars! | Звёзды ансамбля! [2019, TV, 24 эп.] WEBRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725997.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Hakkenden: Touhou Hakken Ibun 2 / Hakkenden - Eight Dogs of the East S2 / Хак
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725972.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Kidou Senshi Gundam 00 | Mobile Suit Gundam 00 | Мобильный воин Г�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725871.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Slow Start / Медленный старт [2018, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725033.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Goblin Slayer: Goblin's Crown | Убийца гоблинов (фильм) [2020
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724851.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Goblin Slayer: Goblin's Crown | Убийца гоблинов (фильм) [2020
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724706.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Dororon Enma-kun: Meeramera | Ghastly Prince Enma Burning Up | Доророн Е
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724574.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Hakkenden: Touhou Hakken Ibun / Хаккенден: Легенда о восьм
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723974.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ Angelic Layer / Арена Ангелов [2001, 26 эпизодов] BDrip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722634.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ Taishou Otome Otogibanashi | Taisho Otome Fairy Tale | Сказка о деву�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722610.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ Tantei wa Mou, Shindeiru. | The Detective Is Already Dead | Детектив у�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722607.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ Comet Lucifer | Комета Люцифера [2015, TV, 12 из 12] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722596.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ Soukou Kihei Votoms: The Last Red Shoulder / Armored Trooper Votoms: The Last Re
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721559.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ Overlord II | Повелитель [ТВ-2] [2018, TV, 13] WEBrip 720p 10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720907.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ Solty Rei / Солти Рэй [2005, TV, 24 эп.] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720738.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ M3: Sono Kuroki Hagane | M3 The Dark Metal | M3: Чёрная сталь [2014, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720434.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ Jinsei Soudan TV Animation / Jinsei / La Bonne Vie / Советы по жизн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720432.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ Solty Rei Extra Episode / Солти Рэй спешл [2005] DVDRip 396p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718544.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ Hayate no Gotoku! / Hayate the Combat Butler / Хаятэ, боевой двор
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718352.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ Hayate no Gotoku! / Hayate the Combat Butler / Хаятэ, боевой двор
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACAA1E4D56CE7BC91D9E20855A9F151BE27E2835
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972502   (717354) от 08.06.2016
-
-Valkyrie Drive: Mermaid | Сила Валькирии: Русалочка [2015, TV, 12 эп. + 6 SP] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717354.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одном из миров нежданная мутация превратила избранных девушек в грозное оружие, поражающее человеческое воображение. Для рождения такого чуда нужна спаянная боевая двойка, где в оружие превращается Экстер, то есть «внешняя», а ее напарница–Либератор способна этим оружием владеть. Сам процесс вооружения или «режим Валькирии» запускается после интенсивной… э-э, взаимной (   Читать дальше...   )Производство: Студия ARMSЖанр: экшн, эччи, юриРежиссер: Канэко ХиракуПеревод: FratelliЯзык субтитров: РусскийПродолжительность: 12 серий по 24 минуты + 6 спешалов по 2 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68B14D40E44E4B859EA6A951CAA77DE1BD4F258E
 ```
 
 https://mybot314.ru/tekegram_catalog/

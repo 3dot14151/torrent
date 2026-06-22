@@ -1,3 +1,57 @@
+###  Публикация: 597817   (1000103) от 03.01.2013
+
+Новогодняя жена (2012) SATRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000103.jpg" />
+</div>
+
+
+###  Подробнее
+
+В самый разгар вечеринки в клубе Даша и Максим встречают друг друга…и просыпаются в одной пастели…Решив, что их свела сама судьба, герои принимаются строить идеальные, «правильные» отношения и…подают заявление в ЗАГС, предварительно заключив пари: если в течение месяца им удастся не просто прожить вместе, но и сохранить чувство влюбленности, дело закончится свадьбой.
+
+Максим с Дашей изо всех сил пытаются стать настоящей парой, хотя жизнь постоянно проверяет их отношения на прочность. А тут и оставленные в прошлом «пассии» тоже внезапно воспылали чувствами к отринутым «половинкам».Жанр: КомедияРежиссер: Светлана МузыченкоПродюсер: Анастасия Шипулина, Родион ПавлючикАктеры: Сергей Перегудов, Карина Андоленко, Алёна Яковлева, Анна Донченко, Александр Арсентьев, Антон Васильев (III), Алексей ГришинПродолжительность: 01:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30B2FC465269EA36980BFB72ACBE2C19AED48750
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598300   (999868) от 04.01.2013
+
+Фото моей девушки (2008) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает романтическую историю фотографа Ивана, влюбленного в девушку Машу. Иван живет в приморском городе. Каждый год в один из соседних с ним домиков приезжает из Москвы Маша, работница столичного издания. Девушка пишет про психологию отношений между мужчиной и женщиной, а именно — увлекательные статьи "20 способов привлечь его внимание", "10 способов сказать ему, что вы беременны" и тому подобные шедевры. Однажды старый фотограф рассказывает Ивану про волшебный фотоаппарат. Если им сфотографируешь человека и будешь хранить у себя фотографию, что человек этот в тебя непременно влюбится. Разумеется, обогатившись этим знанием, Иван первым делом фотографирует Машу. Однако фото вскоре у него исчезает, а Маша таинственным образом начинает вздыхать по всем своим соседям мужского пола...Жанр: КомедияРежиссер: Алексей КолмогоровАктеры: Станислав Беляев, Наталья Швец, Юозас Будрайтис, Нина Гребешкова, Полина Лунегова, Лия Ахеджакова, Александр Робак, Сергей Афанасьев, Константин Чепурин, Ирина Сидорова, Нелли Пшенная, Елена Пирогова-Филиппова, Юлия Тельпухова.Перевод: Не требуется (Русский)Продолжительность: 01:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:868C654156E7B49E7259487A8C05B3001C509C84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 598261   (999819) от 04.01.2013
 
 День Додо (2012) SATRip
@@ -6,7 +60,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999819.jpg" />
 </div>
 
 
@@ -36,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999565.jpg" />
 </div>
 
 
@@ -62,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999326.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999310.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999241.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999205.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999083.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998901.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998800.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998735.jpg" />
 </div>
 
 
@@ -272,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997982.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997416.jpg" />
 </div>
 
 
@@ -325,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997390.jpg" />
 </div>
 
 
@@ -351,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997389.jpg" />
 </div>
 
 
@@ -377,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997371.jpg" />
 </div>
 
 
@@ -403,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997333.jpg" />
 </div>
 
 
@@ -429,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996863.jpg" />
 </div>
 
 
@@ -455,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996591.jpg" />
 </div>
 
 
@@ -481,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996579.jpg" />
 </div>
 
 
@@ -507,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996296.jpg" />
 </div>
 
 
@@ -533,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996295.jpg" />
 </div>
 
 
@@ -559,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995744.jpg" />
 </div>
 
 
@@ -585,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995710.jpg" />
 </div>
 
 
@@ -611,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994741.jpg" />
 </div>
 
 
@@ -622,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D2169768456CFF2A238DE09725971FB1070893A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605770   (994725) от 22.01.2013
-
-Дикое поле (1991) VHSRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит на Дону. В 1540 году к становищу атамана Сидора пришли трое. Один из них недавно бежал из турецкого плена, где от умирающего на его руках сотника, узнал о спрятанном в этих местах сундуке с рязанской казной. Казаки, посовещавшись, решают отправиться на ее поиски, но казну уже ищут и турки, которые когда-то ее здесь и спрятали.Жанр: Исторический, Приключения, ДрамаРежиссер: Николай ГусаровАктеры: Борис Рубашкин, Николай Гусаров, Владимир Антоник, Матлюба Алимова, Олег Корчиков, Лесь Сердюк, Николай Шевкуненко, Вячеслав Мелехов, Сергей РыкусовПродолжительность: 01:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A51D7D7A09AC4FE1EE3CFD1F6E7C6F450363EF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607343   (994345) от 23.01.2013
-
-Всё просто (2012) [H.264] DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Надя из Питера, учится в Лондоне. Родители создают возможность жить без особых забот и хлопот. Молодой человек Женя работает в Москве в крупной компании и подает большие надежды. Одно расстройство — из-за перспективной работы Женя переехал в Москву, а Надя осталась в Лондоне. 3000 километров — слишком далеко. И Надя решает сделать Жене сюрприз — приехать в гости без предупреждения. В итоге, сюрпризы ожидают не только Женю, но и Надю.Жанр: Мелодрама, КомедияРежиссер: Соня КарпунинаАктеры: Соня Карпунина, Агния Кузнецова, Клим Шипенко, Константин Крюков, Александр Яценко, Артем Быстров, Любовь Толкалина, Михаил Бабичев, Александр Самойленко, Донатас ГрудовичПеревод: Не требуетсяПродолжительность: 01:34:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E83DDAE09F5DF1BE007866C4BD219AC01EF7D2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

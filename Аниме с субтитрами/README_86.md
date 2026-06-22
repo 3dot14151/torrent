@@ -1,3 +1,29 @@
+###  Публикация: 1318431   (322506) от 16.10.2019
+
+Machikado Mazoku | The Demon Girl Next Door | Городская дьяволица [2019, TV, 12] WebRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юко Ёсида, обычная 15-летняя девочка, проснувшись однажды утром, обнаруживает, что обладает демонической силой. И теперь ей надо победить местную девочку-волшебницу, только так она сможет снять проклятие «40 000 иен за один месяц жизни». Да, теперь у неё есть рога и хвост, но по правде говоря, её сила даже меньше, чем у обычной девочки.Производство: Студия J.C. StaffЖанр: повседневность, комедияРежиссер: Сакурай ХироакиПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0643A62C3F2A111C2CCB00C574F91DB4C396EFA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317456   (322495) от 16.10.2019
 
 Try Knights | Упорные рыцари [2019, TV, 12] WEBRip 720p raw
@@ -6,7 +32,7 @@ Try Knights | Упорные рыцари [2019, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322495.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Bessatsu Olympia Kyklos | Экстра Олимпия Киклос | Олимп�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321542.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Mahou Sensei Negima! | Negima! | Волшебный учитель Нэгима!
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320744.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Meitantei Conan | Detective Conan | Детектив Конан [1996, TV, 810-8
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318454.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Boku no Hero Academia / My Hero Academia / Моя геройская акаде�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318428.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Hyakumannen Chikyuu no Tabi Bander Book | One Million-year Trip: Bander Book | �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318352.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Sora to Umi no Aida | Space Fish: Between the Sky and Sea | Между небо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317566.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Bakuman / Бакуман [ТВ-1] [2010, TV, 25 из 25] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317283.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Kimi ni Todoke / Reach You / Дотянуться до тебя [2009, TV, 25 э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317281.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Kidou Keisatsu Patlabor (1990) | Mobile Police Patlabor - The New Files | Пол
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317278.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Macross Zero | Макросс Зеро [2002, OVA, 5 эп.] BDRip 1080p Hi10P ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317185.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Kiseijuu: Sei no Kakuritsu | Parasyte: The Maxim | Паразит [2015, TV, 24]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317182.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Natsume Yuujinchou / Тетрадь дружбы Нацумэ (первый се
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317178.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Karas /  Crow /  Карас  [2005, OVA,  6 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317047.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Fumiko no Kokuhaku | Fumiko's Confession | Признание Фумико [2009
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316762.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Kannagi | Kannagi: Crazy Shrine Maidens | Каннаги [2008, TV, 13 + SP] BDR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316657.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Alice or Alice | Алиса или Алиса [2018, TV, 12 эп. + OVA] BDrip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316626.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Paulette no Isu | Стульчик Полетты [2014, Другое] BDrip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316624.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Hinata no Aoshigure | Солнце сквозь дождик [2013, Movie] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316618.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Ballroom e Youkoso | Welcome to the Ballroom | Добро пожаловать �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316607.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Project PAPO | Проект ПАПО [2006, OVA, 2 эп.] BDrip 1080 raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316600.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Rain Town | Город дождя [2011, ONA, 1 эп.] BDrip 818p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316597.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ Hi no Tori: Houou Hen | Phoenix: Karma Chapter | Жар-птица: Глава �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316482.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ Hi no Tori: Yamato Hen | Phoenix: Chapter of Yamato | Жар-птица: Гла�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316474.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ Hi no Tori | Phoenix | Жар-птица [2004, TV, 13 из 13] HDTV 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316469.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ Hi no Tori | Phoenix | Жар-птица [2004, TV, 13 из 13] HDTV 1080p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D4D9E2BC49A5FA4BB9F9998E82A2D3D8E7AF5D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259946   (316404) от 05.11.2018
-
-Shoujo Shuumatsu Ryokou | Girls' Last Tour | Девушки в последнем путешествии [2017, TV, 12 эп. + 12 SP] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наступил конец цивилизации. Лишь две девочки — Чито и Юури — остались в живых, и теперь они бороздят руины погибшего мира на своём гусеничном мотоцикле «Кеттенкрад» в поисках топлива и еды. Но пока они вместе, даже подобное тоскливое существование несёт в себе маленькие радости, будь то плошка супа или найденная исправная запчасть. Лишь общие опыт и чувства придают (   Читать дальше...   )Производство: студия White FoxЖанр: приключенияРежиссер: Одзаки ТакахаруПеревод: TimecraftЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин. + 12 SP по 2 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DF76F1159266F4C7F7F10ECF752C79DAC449CB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

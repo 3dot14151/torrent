@@ -1,3 +1,55 @@
+###  Публикация: 1048564   (546382) от 02.09.2016
+
+Экстрасенсы против детективов (2016.09.02) SATRip (сезон 1, выпуск 1)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грандиозная схватка между интуицией и дедукцией, предчувствием и логикой. Впервые в истории российского телевидения следователи, оперативники и криминалисты МВД сразятся с обладателями паранормальных способностей - шаманами, ведьмами и парапсихологами. По правилам проекта обеим командам предстоит в каждой программе раскрывать реальные преступления. В начале выпуска (   Читать дальше...   )Телекомпания: НТВЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:21:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A50EFE01B3FE0B720E2F127CF3A7147367799A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048853   (545797) от 03.09.2016
+
+Секретные материалы 17. Сакральное имя города  (2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545797.jpg" />
+</div>
+
+
+###  Подробнее
+
+За трехсотлетнюю историю город трижды менял свое название: Санкт-Петербург, Петроград, Ленинград. Если бы Николай II не переименовал его в Петроград, не было бы ни поражения в войне, ни революции и династия Романовых не закончилась бы. Ленинградом хотели назвать Москву, а Ленина похоронить на Дворцовой площади. Неизвестные страницы истории города в нашем материале.Телекомпания: Россия, МирЖанр: Документальный, ТелепередачаРежиссер: Алла ДерюгинаПродолжительность: 00:23:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF6996696C3A9C16D887512DBF98D4EE2E007793
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048907   (545739) от 03.09.2016
 
 Территория заблуждений с Игорем Прокопенко (2016.09.03) SATRip
@@ -6,7 +58,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545739.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545558.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545473.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545397.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536441.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535372.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535022.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535012.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534799.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532512.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532229.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528079.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526049.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525915.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525151.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523985.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516655.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516648.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516261.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515203.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515158.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513801.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513483.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510935.jpg" />
 </div>
 
 
@@ -616,59 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD1B3A4602BCF6CE43CFDEF312A360937E1DB369
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931827   (510934) от 27.08.2015
-
-Самые шокирующие гипотезы. Россия. Великая миссия  (25.08.2015) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удивительно, но несмотря на русофобию и антироссийскую истерию, которые существовали на Западе всегда, все европейские и американские предсказатели говорили о том, что Россию ждёт великое будущее. И именно на неё возлагали Великую миссию, которая заключается в спасении всего человечества.Телекомпания: РЕН-TVЖанр: ДокументальныйРежиссер: Артемий ГринчевскийПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4045CB1D6578C057C3B47485DF432CEF11BAC61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931820   (510868) от 27.08.2015
-
-Самые шокирующие гипотезы. Лаборатория богов  (27.08.2015) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Библейский Эдем - вовсе не мифический сад, а генетическая лаборатория?
-Новые факты и исследования показали - события, описанные в Библии, могли произойти на самом деле. Что такое земной Рай, или Эдем, где он находился, кем был построен и почему первые люди были изгнаны оттуда? Ученые приводят сенсационные доводы в пользу гипотезы о том, что человек был создан искусственно!Телекомпания: РЕН-TVЖанр: ДокументальныйРежиссер: Артемий ГринчевскийПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC4B379B15FBFBD1E7C82108F4ECD4CFF0FF1ACC
 ```
 
 https://mybot314.ru/tekegram_catalog/

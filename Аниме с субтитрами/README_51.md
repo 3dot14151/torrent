@@ -1,3 +1,29 @@
+###  Публикация: 1131779   (704473) от 07.05.2017
+
+Koutetsujou no Kabaneri | Kabaneri of the Iron Fortress | Кабанери из стальной крепости [2016, TV, 12] BDrip 1080p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704473.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире свирепствует эпидемия, превращающая людей в зомби. Болезнь дошла и до земли Хиномото, только начавшей познавать блага западной цивилизации. Эти блага стали единственной надеждой бедной островной страны, вмиг освоившей силу пара и покрывшейся сетью крепостей. По дорогам курсируют бронепоезда, защищенные от разгулявшихся живых трупов. Люди вроде бы отбились, (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Араки Тэцуро / Araki Tetsurou / 荒木哲郎Перевод: AleX_MytH / St_Ranger / JarlyЯзык озвучки: ЯпонскийПродолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E492E5BBA595BD07761F7BD106208DD3231E4473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220494   (704117) от 19.04.2018
 
 Nora | Twinkle Nora Rock Me! | Нора | Сверкающая Нора: Без ума от тебя! [1985, OVA, 2 эп.] LDrip 480p raw
@@ -6,7 +32,7 @@ Nora | Twinkle Nora Rock Me! | Нора | Сверкающая Нора: Без 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704117.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Hello!! Kin`iro Mosaic | Hello!! Golden Mosaic | Привет!! Золотая �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703837.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Yumeiro Patissiere / Dream-Colored Pastry Chef / Великолепный Кон
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703648.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Sakura Quest | Квест на фоне сакуры [2017, TV, 25 из 25] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703540.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703100.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Omoide no Marnie / When Marnie Was There / Воспоминания о Марн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702756.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ Glass no Kamen / The Glass Mask / Стеклянная маска [ТВ-1] [1984
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702748.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Yama no Susume: Second Season | Encouragement of Climb: Second Season | В го�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701942.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Endride | Эндрайд | Скиталец Эндры [2016, TV, 24 из 24] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701578.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ Nyan Koi! / Nyankoi! / Кошачьи Прихоти! [2009, TV, 12] BDrip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700601.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ The Cockpit | Кокпит [1993, OVA, 3 эп.] DVDrip 720p 10-bit raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700397.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ Momokuri / Момокури [2015, TV, 26 из 26] WEB-DLRip 360-576p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700234.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ B-Project: Kodou Ambitious | Проект Б: Амбициозное биени�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699706.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ B-Project: Zecchou Emotion | B-Project: Zeccho*Emotion | Проект Б: Кул
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699704.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ Isekai Maou to Shoukan Shoujo no Dorei Majutsu | How Not to Summon a Demon Lord 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699159.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ IS: Infinite Stratos / Необъятные Небеса [ТВ-1] [2011, TV, 12 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698550.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698026.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ Girls und Panzer Gekijouban | Girls und Panzer der Film | Девушки и та
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697696.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696895.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ KO Seiki Beast Sanjuushi / K.O. Beast / Зверовоины [1992, OVA, 7 ep.] 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696875.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ Seiken no Blacksmith / The Sacred Blacksmith / Божественный Кузн
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696754.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ Gakusen Toshi Asterisk | The Asterisk War | Войны Астериска [2015,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696587.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ Crusher Joe: The OVA's / Крушила Джо OVA 1 и 2 [1989, OVA, 2] BDRip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695039.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ Crusher Joe / Крушила Джо - Фильм [1983, Movie] BDRip 1080p HEVC 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694954.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ Senjou no Valkyria / Valkyria Chronicles / Хроники Валькирии [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_694787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_694787.jpg" />
 </div>
 
 
@@ -661,34 +687,6 @@ Senjou no Valkyria / Valkyria Chronicles / Хроники Валькирии [20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:525727882B42668619B4FC201BC4F25ADCE11D43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 794854   (694217) от 10.06.2014
-
-Rozen Maiden Zuruckspulen | Rozen Maiden ~2013~ | Девы Розена (2013) [2013, TV, 13 эп.] BDrip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то мастер Розен изготовил шесть чудесных кукол, вдохнув в них душу и магические способности. Он хотел создать совершенную девушку, но знал свой предел и понимал, что напрямую такое не получится. Тогда мастер заставил творения сразиться в «игре Алисы», чтобы победительница собрала в себе самое лучшее и исполнила его мечту. Для усиления каждая участница должна была найти хозяина-человека, который бы «завел» и поддержал ее своей жизненной силой. Розен не был богом, но владел временем, а потому был готов повторять игру до победного конца. Вот только игра внезапно пошла по чужим правилам…
-
-На деле мастер создал семь кукол, просто понял, какой жуткий и злокозненный дух получит седьмая – и не стал давать ей тело. Ничего, Киракисё, королева лжи и обмана, даже из Небытия смогла дотянуться до сестер и начала уничтожать их поодиночке. Конечно же, остановить ее могут лишь «дева-роза» Синку и ее партнер, японский парень Дзюн, по потенциалу сравнимый с самим Розеном. Для этого ребята разработали дерзкий план, включающий (   Читать дальше...   )Жанр: приключения, мистикаРежиссер: Омата СинъитиПродолжительность: 13 серий по 24 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4CE82DB2FAF19EEE66937CED8C189821B04F927
 ```
 
 https://mybot314.ru/tekegram_catalog/

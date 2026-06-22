@@ -6,7 +6,7 @@ Armenian Navy Band - Sounds Of Our Life - Part One: Natural Seeds (2004) Heaven 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778239.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - NRJ Extravadance (2018) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778200.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Disco Candy Pop Sensation Vol.6 (2016) [MP3|320 кб/с] <House, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777969.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Eurovision Song Contest Stockholm 2016: Come Together (2016) [MP3|320 кб/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777937.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Flirts - 10c A Dance (1982) "O" Records, LP [MP3|320 Kbps] <Pop, Synth-Pop, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777869.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Flirts - Calling All Boys (1982) Unidisc, LP [MP3|320 Kbps] <Pop, Hi NRG, Sy
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777824.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Girls Aloud - Sound Of The Underground (2003) Polydor [MP3|320 Kbps] <Pop, Elect
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777270.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Hot Parade Dance Winter (2018) [MP3|320 Kbps] <Dance, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777268.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Mastermix Pro Disc 213 - March (2018) [MP3|320 Kbps] <Indie, Folk, Neo Soul
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777244.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - NOW That's What I Call Remix (2018) [MP3|~281-292 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777239.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - NOW That's What I Call Running (2018) [MP3|320 Kbps] <New Wave, Britpop, Da
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777238.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Girls Aloud - What Will The Neighbours Say? (2004) Polydor [MP3|320 Kbps] <Pop, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776907.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Girls Aloud - Chemistry (2005) Polydor, Christmas Edition [MP3|320 Kbps] <Pop, E
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776902.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Girls Aloud - Tangled Up (2007) Fascination, Polydor [MP3|320 Kbps] <Pop, Drum n
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776901.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Giorgio Moroder - Schlagermoroder, Vol. 1-2 (1965-1976) 4CD (2013) [MP3|320 кб
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776816.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ VA - The World Of Italo Pop Platinum (Special Edition For San Remo-50th) (2002) 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776147.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Billy (Tokio Hotel) - I'm not Ok (2016) EP [MP3|320 кб/с] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776144.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Saskia & Serge - 2 Albums, 1 Compilations (1984-1992) [MP3|320 Kbps] <Pop, Folk,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776094.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Niila - Gratitude (2016) [MP3|320 кб/с] <Pop Rock, Folk Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775848.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Sparks - 2 Compilations (2012) 4CD [MP3|320 кб/с] <Electronic, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775726.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Milica Pavlovic - Zauvek (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775102.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Boulevard des Airs - Je Me Dis Que Toi Aussi (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774321.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ VA - WOW Hits 2019 (2018) Deluxe Edition [MP3|320 Kbps] <Hip Hop, Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774242.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ VA - Radio Italia Love (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774240.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ VA - Singers & Songwriters: Classics (2010) [MP3|320 Kbps] <Pop/Rock ,Country ,R
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773538.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ VA - Robot Is Systematic (2009) EP (Franco Rago & Gigi Farina feat. 'Lectric Wor
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773354.jpg" />
 </div>
 
 

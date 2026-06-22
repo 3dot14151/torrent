@@ -1,3 +1,107 @@
+###  Публикация: 1548385   (118381) от 10.02.2024
+
+Weird West (2022) [Ru/Multi] (1.78819/dlc) Repack Decepticon [Definitive Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследуйте мрачную фантазийную интерпретацию Дикого Запада, в которой шерифы и ганфайтеры живут бок о бок с фантастическими существами. Узнавайте истории необычных персонажей и превращайте их в легенды, принимая непростые решения. А разве могут существовать простые в этих беспощадных землях? Каждое путешествие уникально и создается вами собственноручно — в этих историях (   Читать дальше...   )Тип издания: RepackРазработчик: WolfEye StudiosЖанр: Action (Isometric), Adventure, RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E03A15415E0391995A75CA45006F7B94802422C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698655   (118377) от 10.02.2024
+
+The Inquisitor (2024) [Ru/Multi] (13389755/dlc) Repack DjDI [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118377.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Inquisitor - это сюжетная приключенческая игра жанра «тёмное фэнтези» с элементами экшена, в которой вы столкнетесь со сложными моральными дилеммами. Действие разворачивается в альтернативной (религиозной) вселенной. Источником вдохновения послужили бестселлеры из серии «Инквизитор» Яцека Пекары. Распятый Иисус подошел к порогу смерти, но его поглотил гнев. Он (   Читать дальше...   )Тип издания: RepackРазработчик: The Dust S.A.Жанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Немецкий, ПольскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F6823D379EC4FA3371EFFE781E39D253EBFCE1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698827   (118335) от 10.02.2024
+
+Ocean's Heart (2021) [Ru/Multi] (1.0.3(5)) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ocean's Heart - ролевая игра, выполненная в духе классических JRPG. Отправляйтесь исследовать таинственный архипелаг, путешествуя вместе с героиней Тилией. Вам предстоит сразиться с ордой монстров, зачистить десятки подземелий и разгадать загадку острова под названием Сердце океана. Визуальный стиль выполнен в духе олдскульных частей Final Fantasy и Dragon Quest.Тип издания: LicenseРазработчик: Max MrazЖанр: Ролевая игра, Экшны, ПриключениеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97DDC8DECE372E8419FE1849EFCF7DC2285FDA6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698674   (118334) от 10.02.2024
+
+Pixel Noir (2024) [En] (1.0) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскройте захватывающий заговор в этой загадочной игре в стиле нуар, пропитанной элементами классической ролевой игры. Путешествуйте по захудалым улицам в поисках улик, улучшайте навыки и настраивайте оружие. Сражайтесь в пошаговых боях с рассчитанными на время ударами и комбо, чтобы раскрыть темную правду, которая отравляет сердце города и ваше здравомыслие.Тип издания: SceneРазработчик: SWDTech GamesЖанр: Инди, Ролевые игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B387A4817E90F5DA52D68AF5333953A1AE281AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699001   (118195) от 11.02.2024
 
 Realms of Arkania: Blade of Destiny (Remake) (2013) [Multi] (1.36) License GOG
@@ -6,7 +110,7 @@ Realms of Arkania: Blade of Destiny (Remake) (2013) [Multi] (1.36) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118195.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Sword of Moonlight / King's Field (2000) [En] (1.2) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118040.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ The Inquisitor (2024) [Ru/Multi] (13389755/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117896.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Lies of P (2023) [Ru/Multi] (1.5.0.0/dlc) Repack dixen18 [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117482.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ GRAVEN (2021) [Ru/Multi] (16864) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117121.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Risen 3: Titan Lords (2015) [Ru] (3.0.30.0/dlc) Repack xatab [Enhanced Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116808.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Clash II (2022) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116799.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Trinity Fusion (2023) [Multi] (1.1) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116621.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Banishers: Ghosts of New Eden (2024) [Ru/Multi] (1.3.1.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116464.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ ELEX II (2022) [Ru/Multi] (1.05c) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116460.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Bandle Tale: A League of Legends Story (2024) [Ru/Multi] (1.068p/dlc) License GO
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116107.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Bandle Tale: A League of Legends Story (2024) [Ru/Multi] (1.068p/dlc) Repack Fit
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116095.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Akumi Wars (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116077.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Bandle Tale: A League of Legends Story (2024) [Ru/Multi] (1.068p/dlc) Scene SKID
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116043.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Myth of Empires (2024) [Ru/Multi] (1.7.6/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115284.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Welcome to ParadiZe (2024) [Ru/Multi] (13566803/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115142.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Secrets of Grindea (2024) [En] (13601958) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114900.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Robin Hood: Sherwood Builders (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114783.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ The Bard's Tale ARPG: Remastered and Resnarkled (2004) [Ru/Multi] (2.2.b) Licens
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114758.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Granblue Fantasy: Relink (2024) [Multi] (1.0.4/dlc) Repack FitGirl [Special Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114454.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/Mu
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114266.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Robin Hood: Sherwood Builders (2024) [Ru/Multi] (1.0) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114084.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Robin Hood - Sherwood Builders – это приключенческая рол�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E1887130D841F66631996EDC775E2EDD1B15B39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711613   (112445) от 31.03.2024
-
-Disgaea 7: Vows of the Virtueless (2023) [Multi] (1.12/dlc) Scene Tenoke [Ultimate Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Присоединяйтесь к главному герою Фудзи, чтобы принять участие в приключении Disgaea, которое станет еще масштабнее и лучше, чем когда-либо прежде! Погрузитесь в демоническое царство Хиномото, где нет кодекса бусидо, а есть кодекс разрушения Хиномото! В Хиномото, состоящем из множества миров, обитает множество демонов, каждый из которых имеет свои собственные убеждения. (   Читать дальше...   )Тип издания: TenokeРазработчик: Nippon Ichi Software, Inc.Жанр: Экшены, Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, Французский, Корейский и другиеЯзык интерфейса: Английский, Японский, Французский, Корейский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FB52C1E996FF9368D420DEF3129FABC9D895BF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713272   (112001) от 05.04.2024
-
-Immortal Mantis: Revenge (2024) [Multi] (1.1) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112001.jpg" />
-</div>
-
-
-###  Подробнее
-
-mmortal Mantis: Revenge - хоррор с нелинейным повествованием, где вы узнаете как историю серийного убийцы по прозвищу Богомол, так и о его новой жертве. Тяжелое детство и заключение контракта с темной сущностью превратило Фуюки в кровожадного монстра. Сергей, взявшееся за очередное дело детектив, видит некоторые сходства между собой и поведением убийцы из-за чего (   Читать дальше...   )Тип издания: LicenseРазработчик: BitlifeЖанр: Казуальные игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Бразильский ПортугальскийЯзык интерфейса: Английский, Бразильский Португальский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5C5D4C59CC926E051BD18908D64BB49C73EFCDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713186   (111974) от 05.04.2024
-
-Immortal Mantis (2022) [Multi] (1.1) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключения в мрачной вселенной Immortal Mantis позволяют игрокам взять под управление героя по имени Акин, что купил дом в сельской местности и столкнулся с загадочными явлениями. Игра выполнена в пиксельной ретро-стилистике, где необходимо бродить по изометрической карте с видом сверху и разбираться с головоломками. Атмосфера сделана в духе классических хоррор-бродилок, (   Читать дальше...   )Тип издания: LicenseРазработчик: BitlifeЖанр: Казуальные игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Бразильский ПортугальскийЯзык интерфейса: Английский, Бразильский Португальский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AE4AFCA93958B0FB76D3A213F803F689AB16AD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731738   (107632) от 22.06.2024
-
-Siralim Ultimate (2021) [En] (1.0) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Siralim Ultimate - пошаговая ролевая игра, позволяющая призывать более 1200 уникальных существ. Путешествуйте по процедурно сгенерированным локациям, добывайте ресурсы, охотьтесь за ценным лутом и многое другое. Игровой процесс выполнен в духе классических RPG, ссылаясь на олдскульные механики, в том числе и хардкорную сложность. События развиваются в фэнтезийном (   Читать дальше...   )Тип издания: SceneРазработчик: Thylacine StudiosЖанр: Ролевые игры, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00BCAD407B8D0512D40F2CC18D848F008A1B2FD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

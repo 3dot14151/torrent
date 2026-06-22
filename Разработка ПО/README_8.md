@@ -1,208 +1,3 @@
-###  Публикация: 472714   (84215) от 24.03.2012
-
-Bascom AVR 2.0.7.1 [Английский и Русский]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bascom-AVR - программная среда для создания исполняемого кода микроконтроллеров семейства AVR на языке высокого уровня близкого к стандартному Бейсику.
-В состав Bascom входят следующие компоненты разработки:
-компилятор Basic-подобного языка для AVR
-текстовый редактор с подсветкой синтаксиса
-отладчик-симулятор
-эмулятор терминала
-контекстная информационно-справочная система
-утилиты загрузки аппаратных эмуляторов и программаторов.Название программы: Bascom AVRЯзык интерфейса: Английский и Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472028   (84014) от 23.03.2012
-
-CodeVisionAVR V2.05.3 [Английский]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84014.jpg" />
-</div>
-
-
-###  Подробнее
-
-CodeVisionAVR - представляет собой  простую в использовании интегрированную среду разработки программного обеспечения для микроконтроллеров семейства Atmel AVR.
-Она обеспечивает расширенную поддержку устройств AVR и создает компактный и эффективный код
-CodeVisionAVR включает в себя следующие компоненты:
-- Компилятор языка Си для AVR;
-- Компилятор языка ассемблер для AVR;
-- Генератор начального кода программы, позволяющего произвести инициализацию периферийных устройств;
-- Модуль взаимодействия с отладочной платой STK-500;
-- Модуль взаимодействия с программатором;
-- Терминал.
-(   Читать дальше...   )Название программы: CodeVisionAVRЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464936   (81545) от 11.03.2012
-
-Borland InterBase 7.5.1 SP1 [English]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Borland InterBase 7.5 - высокопроизводительный, экономичный, многоплатформенный сервер баз данных. InterBase 7.5 представляет собой экономичную, высокопроизводительную СУБД с обработкой транзакций, которую используют миллионы пользователей во всем мире.
-
-Сочетая легкость установки, автоматическое восстановление после аварийных отказов и минимальные требования к администрированию, InterBase является наиболее подходящим решением для встраивания в тиражируемые приложения. Обладая поддержкой многопроцессорного режима и сложной архитектурой, InterBase идеально подходит для многофункциональных бизнес приложений, обслуживающих большое количество пользователей. Графический пользовательский интерфейс IBConsole теперь включает монитор производительности, одновременно отслеживающий состояние нескольких серверов и баз данных InterBase.
-
-Производительность, удобство использования, поддержка Windows, Linux и Solaris, а также таких сред разработки, как Borland Delphi, C++Builder, C#Builder и Kylix позволяют InterBase занять (   Читать дальше...   )Название программы: Borland InterBaseЯзык интерфейса: English
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709662   (61856) от 25.03.2024
-
-Interbase 2020 Update 5 14.5.0.864 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61856.jpg" />
-</div>
-
-
-###  Подробнее
-
-InterBase - это мощная, не требующая администрирования, компактная база данных, которая может обеспечивать работу вашего сервера и даже работать на ваших мобильных устройствах в качестве встроенной базы данных. В выпуске InterBase 2020 добавлен ряд новых функций, включая поддержку табличных пространств для InterBase, что позволяет повысить производительность на серверах (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E9E01CEF219643A126779E7E3AE36622FFCD21B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717349   (59229) от 19.04.2024
-
-Java SE Development Kit 22.0.1 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Java SE Development Kit - программное обеспечение необходимое для запуска веб-сайтов и приложений, созданных с помощью языка программирования Java, на котором написано множество программ и игр, особенно тех, для которых важна мобильность. Состоит из виртуальной машины и библиотеки Java-классов.
-Позволяет играть в сетевые игры, общаться с людьми по всему миру, подсчитывать (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59875E28136D8CD1C8EF66C0CD1C50D4F5ED5C5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717348   (59208) от 19.04.2024
-
-Java SE Development Kit 21.0.3 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Java SE Development Kit - программное обеспечение необходимое для запуска веб-сайтов и приложений, созданных с помощью языка программирования Java, на котором написано множество программ и игр, особенно тех, для которых важна мобильность. Состоит из виртуальной машины и библиотеки Java-классов.
-Позволяет играть в сетевые игры, общаться с людьми по всему миру, подсчитывать (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA4157059607305BAAC87CE5C835F7BB984249EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717347   (59182) от 19.04.2024
-
-Java SE Development Kit 17.0.11 LTS [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Java SE Development Kit - программное обеспечение необходимое для запуска веб-сайтов и приложений, созданных с помощью языка программирования Java, на котором написано множество программ и игр, особенно тех, для которых важна мобильность. Состоит из виртуальной машины и библиотеки Java-классов.
-Позволяет играть в сетевые игры, общаться с людьми по всему миру, подсчитывать (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B45CD7816BB46CB3FD8D23309226B40DABBE384
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726654   (55051) от 29.05.2024
 
 Microsoft Edge WebView2 Runtime 1.3.187.37 [Ru]
@@ -211,7 +6,7 @@ Microsoft Edge WebView2 Runtime 1.3.187.37 [Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55051.jpg" />
 </div>
 
 
@@ -238,7 +33,7 @@ Microsoft .NET 7.0.20 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55003.jpg" />
 </div>
 
 
@@ -265,7 +60,7 @@ Resource Tuner Business 2.24 Portable by FC Portables [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53771.jpg" />
 </div>
 
 
@@ -292,7 +87,7 @@ Resource Tuner Business 2.24 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51413.jpg" />
 </div>
 
 
@@ -319,7 +114,7 @@ JetBrains Aqua 2024.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44256.jpg" />
 </div>
 
 
@@ -345,7 +140,7 @@ Microsoft .NET 8.0.8 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44253.jpg" />
 </div>
 
 
@@ -372,7 +167,7 @@ Microsoft .NET 6.0.33 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44236.jpg" />
 </div>
 
 
@@ -399,7 +194,7 @@ Sublime Text 4 Build 4180 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42391.jpg" />
 </div>
 
 
@@ -425,7 +220,7 @@ JetBrains PyCharm Professional 2024.3 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36938.jpg" />
 </div>
 
 
@@ -451,7 +246,7 @@ JetBrains RubyMine 2024.3 (x64-arm64) Repack by Sitego
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36786.jpg" />
 </div>
 
 
@@ -478,7 +273,7 @@ Software Ideas Modeler Ultimate 14.88 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29607.jpg" />
 </div>
 
 
@@ -504,7 +299,7 @@ EditPlus 6.0.0 build 0632 + EditPlus 6.0.0 patch 0669 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27337.jpg" />
 </div>
 
 
@@ -530,7 +325,7 @@ Microsoft Visual Studio 2022 Community 17.13.2 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26295.jpg" />
 </div>
 
 
@@ -556,7 +351,7 @@ JetBrains dotUltimate 2024.1.3 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25138.jpg" />
 </div>
 
 
@@ -585,7 +380,7 @@ Resource Tuner Business | Personal 2.25 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20885.jpg" />
 </div>
 
 
@@ -612,7 +407,7 @@ Microsoft .NET 9.0.6 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14973.jpg" />
 </div>
 
 
@@ -639,7 +434,7 @@ Araxis Merge Pro 2025.1 [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8683.jpg" />
 </div>
 
 
@@ -666,7 +461,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.50 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8109.jpg" />
 </div>
 
 
@@ -692,7 +487,7 @@ JetBrains PhpStorm 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7550.jpg" />
 </div>
 
 
@@ -704,6 +499,191 @@ PhpStorm – это интегрированная среда разработк
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18E7E4D265CA378767DFE6D6CE0FE28822006635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812851   (7540) от 16.08.2025
+
+Jetbrains IntelliJ IDEA Ultimate 2025.2 Repack by Sitego [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7540.jpg" />
+</div>
+
+
+###  Подробнее
+
+JetBrains IntelliJ IDEA Ultimate - это профессиональный инструмент для разработки Java-приложений, который предлагает широкий спектр функций и возможностей для повышения эффективности разработчиков. Эта интегрированная среда разработки (IDE) обеспечивает быструю навигацию, умное автодополнение и рефакторинг кода, а также поддерживает множество технологий и фреймворков. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3367F340ED1BAE006B36D39604CBFD25F44EB13C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812861   (7518) от 16.08.2025
+
+JetBrains DataGrip 2025.2 Repack by Sitego [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7518.jpg" />
+</div>
+
+
+###  Подробнее
+
+JetBrains DataGrip - это инновационное программное обеспечение, специально разработанное для работы с различными базами данных, включая Oracle, SQL Server, MySQL, Sybase, HyperSQL, DB2, SQLite и многие другие. Оно представляет собой полноценный пакет инструментов, который обеспечивает удобство и эффективность при работе с данными.
+Одной из ключевых особенностей является (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AAD5CC7297F3A7D818706A80F7B777A8B69ACF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812857   (7494) от 16.08.2025
+
+JetBrains CLion 2025.2 Repack by Sitego [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7494.jpg" />
+</div>
+
+
+###  Подробнее
+
+JetBrains CLion — интеллектуальная среда разработки, предназначенная для создания программ на языках C и C++ на операционных системах Windows, Linux и macOS. CLion обладает множеством функций, которые облегчают процесс разработки, таких как автодополнение кода, интеграция с системами контроля версий, отладка и многое другое. Это позволяет разработчикам увеличить (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:787EBD05469D0399CFEE7BE325C3FB74DDB9DE9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812897   (7364) от 17.08.2025
+
+JetBrains PyCharm Professional 2025.2 Repack by Sitego [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7364.jpg" />
+</div>
+
+
+###  Подробнее
+
+JetBrains PyCharm Professional – это мощная и многофункциональная интегрированная среда разработки, предназначенная для работы с языком программирования Python. Она разработана компанией JetBrains, которая также создала такие продукты, как IntelliJ IDEA, RubyMine и WebStorm. PyCharm включает в себя все необходимые инструменты для быстрой и эффективной разработки (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A53553F90C2D5D970F06D5D4BE425B2B14E43FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812905   (7326) от 17.08.2025
+
+JetBrains Rider 2025.2 Repack by Sitego [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rider — это кросс-платформенная интегрированная среда разработки (IDE), созданная специально для .NET-разработчиков. Основанная на мощной платформе IntelliJ и технологиях ReSharper, Rider предлагает уникальное сочетание передовых инструментов и функций, обеспечивающих высокую производительность и эффективность при создании различных типов приложений. Эта современная (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1A64B71B21E398041F97728C29DFE124D493C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812859   (7320) от 17.08.2025
+
+Jetbrains WebStorm 2025.2 Repack by Sitego [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7320.jpg" />
+</div>
+
+
+###  Подробнее
+
+JetBrains WebStorm — это мощная интегрированная среда для разработки веб-приложений и UI-тестирования на JavaScript, HTML, and CSS. Она предлагает расширенные функции автодополнения, рефакторинга и анализа кода, которые ускоряют разработку и улучшают качество кода. Также WebStorm поддерживает современные технологии, такие как Node.js, Angular, React, и Vue.js, и (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A9CDAEC06152D2917FF0B1B06DC54E3B4411F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812869   (7302) от 17.08.2025
+
+JetBrains GoLand 2025.2 Repack by Sitego [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7302.jpg" />
+</div>
+
+
+###  Подробнее
+
+GoLand - это интегрированная среда разработки (IDE) от компании JetBrains, специально разработанная для работы с языком программирования Go. Она предоставляет разработчикам удобную среду для написания кода, анализа и отладки программ на Go.
+
+IDE GoLand предлагает широкий спектр инструментов, специфичных для языка Go, таких, как автодополнение кода, быструю навигацию (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33EB665C2C11F29D784194297FD417C992888A2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

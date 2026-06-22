@@ -1,3 +1,108 @@
+###  Публикация: 947578   (417806) от 17.10.2015
+
+Россия снова агрессор. ОКеям - нет! (2015) WEBRip
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клип на тему "Почему мы агрессоры для "просвещённого" Запада".Производство: РоссияЖанр: ДокументальныйПродолжительность: 00:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BCD7E0D0BAF4D47FA3BBAF5C79FEF9C82B737F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066009   (416858) от 24.10.2016
+
+Время покажет (24.10.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антироссийский психоз на Украине: кому выгодно? За последние дни стало известно, что родившейся в Киеве певице Наташе Королевой на пять лет запрещен въезд в Украину, а белорусский самолет был развернут от границы обратно в аэропорт Киева под угрозой атаки истребителей, чтобы спецслужбы могли обыскать одного из пассажиров. Что это — борьба за национальную безопасность (   Читать дальше...   )Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 01:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B8944D3AA7CAC8B6E9A34CBC3F49EA1EC3DE5BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066138   (414452) от 25.10.2016
+
+Специальный корреспондент. Оружие возмездия (2016.10.24) SATRip
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414452.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Специальный корреспондент" - это популярная публицистическая программа, которая выходит на телеканале "Россия" с сентября 2002 года. Каждую неделю один из ведущих рассказывает в своем фильме-репортаже о какой-либо актуальной проблеме, существующей в современном обществе, посвящает зрительскую аудиторию в подробности наиболее значимых для страны (   Читать дальше...   )Телекомпания: РоссияЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: ~ 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9884D4C2EE834A58171D06064034C0233ACA655B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948102   (413333) от 19.10.2015
+
+Почему США убивают Сирию? (2015) WEB-DLRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Арабская весна и война в Сирии - кто стоит за государственными переворотами и гражданскими войнами? Кто выращивает и снабжает боевиков ИГИЛ оружием? В чём причина хаоса и военных действий на Ближнем Востоке?
+Для сохранения мирового господства Америке необходимо ослабить все остальные страны. Это делается непрямыми методами: в непокорных странах устраиваются перевороты (   Читать дальше...   )Телекомпания: Познавательное ТВЖанр: Телепередача, интервьюПродолжительность: 04:20:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D87AC68ADE91F29927651B64FC66E64372280EE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168324   (410569) от 23.09.2017
 
 Военная тайна с Игорем Прокопенко (2017.09.23) SATRip
@@ -6,7 +111,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410569.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410564.jpg" />
 </div>
 
 
@@ -61,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410554.jpg" />
 </div>
 
 
@@ -90,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409145.jpg" />
 </div>
 
 
@@ -116,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408725.jpg" />
 </div>
 
 
@@ -145,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406660.jpg" />
 </div>
 
 
@@ -171,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401553.jpg" />
 </div>
 
 
@@ -200,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399537.jpg" />
 </div>
 
 
@@ -226,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397616.jpg" />
 </div>
 
 
@@ -255,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396736.jpg" />
 </div>
 
 
@@ -284,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394901.jpg" />
 </div>
 
 
@@ -313,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394108.jpg" />
 </div>
 
 
@@ -340,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393183.jpg" />
 </div>
 
 
@@ -369,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389713.jpg" />
 </div>
 
 
@@ -398,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389200.jpg" />
 </div>
 
 
@@ -424,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_387676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_387676.jpg" />
 </div>
 
 
@@ -451,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387375.jpg" />
 </div>
 
 
@@ -477,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387283.jpg" />
 </div>
 
 
@@ -503,7 +608,7 @@ Citizenfour: Правда Сноудена / Citizenfour (2014) BDRip [H.264/108
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386443.jpg" />
 </div>
 
 
@@ -530,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385099.jpg" />
 </div>
 
 
@@ -556,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385064.jpg" />
 </div>
 
 
@@ -582,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384925.jpg" />
 </div>
 
 
@@ -593,110 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8B5986EE5C565C3999C7C905E4351940CEB0756
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 720202   (379015) от 08.11.2013
-
-Чужая земля (2013) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379015.jpg" />
-</div>
-
-
-###  Подробнее
-
-За последнюю четверть века русская деревня изменилась до неузнаваемости. Как и почему своя земля стала чужой, а тысячи деревень превратились в заросшие буреломом, изуродованные пустыри? Полвека назад в Томской области было более 15 тысяч деревень. Сейчас осталось 600. В Костромской области треть населенных пунктов уже стали практически вымершими, а еще треть - с населением до 10 человек. Специалисты говорят, что все деревни Нечерноземья, в которых сейчас живет меньше 50 человек, исчезнут уже через 15 лет. Почему и как десятки тысяч молодых людей были вынуждены бросать родительские дома и бежать в города? Что происходит с огромным селом, где 20 лет назад закрылся роддом, 15 лет назад - детский сад, 10 лет назад - школа, и лишь несколько старух продолжают жить там вопреки всему. То, что сто лет назад в России 85% населения было крестьянским, знают все. Как и то, что сегодня почти три четверти людей живут в городах. И, тем не менее, 37 миллионов человек и сейчас – сельские жители. Новый фильм Никиты Михалкова - это (   Читать дальше...   )Жанр: Документальный, ТелепередачаПродолжительность: 01:01:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B2FCDE73C17B462509B1E1373E2967CDB9EF4F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068982   (378446) от 02.11.2016
-
-Русский вопрос (02.11.2016) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378446.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Русский вопрос" – еженедельная авторская программа директора Института стран СНГ Константина Затулина.В этом выпуске: 1.Накануне Дня народного единства. Труды и дни Федерального агентства по делам национальностей. 2.Шаткий мост над бурными водами. Усилят ли Польшу с Украиной совместные попытки очернить СССР? 3.Царь моря. Выставка Ивана Айвазовского в Третьяковской галерее.Телекомпания: ТВ-ЦентрЖанр: ТелепередачаРежиссер: Александр ДавыдовПродолжительность: 00:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:830B3E7F2EFA2195E3B25239F5B69DFB604B73AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068962   (378440) от 02.11.2016
-
-Время покажет (02.11.2016) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Права детей. Развод родителей — всегда стресс для ребенка. Но нередко при разводе дети страдают не только морально, но и материально. В 2014 году было дано поручение разработать концепцию обеспечения защиты жилищных прав несовершеннолетних при разводе родителей. Эксперты программы «Время покажет» размышляют о том, достаточно ли сейчас защищены имущественные права (   Читать дальше...   )Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 01:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6016FFBA22537F9164CA5A11F286B7190D99D9CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949514   (377588) от 23.10.2015
-
-Время покажет с Петром Толстым (23.10.2015) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377588.jpg" />
-</div>
-
-
-###  Подробнее
-
-В России все более и более острой становится проблема чрезмерного увлечения детей виртуальным миром, компьютерными играми и гаджетами. В последнее время прокатилась волна смертей, связанных с компьютерными играми. В студии "Время покажет" разбираются, что делать с детьми, завязшими в виртуальной реальности, и кто должен нести ответственность за их здоровье. (   Читать дальше...   )Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 01:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF2693B07C8CCC4BCD78A33D24A6B192A7E05A3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

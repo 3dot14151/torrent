@@ -1,3 +1,56 @@
+###  Публикация: 1173248   (390409) от 11.10.2017
+
+Sketch 47 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sketch от Bohemian Coding — один из лучших векторных редакторов для macOS! Разработка современных приложений немыслима без работы дизайнера, а дизайнеру для работы необходимо соответствующее программное обеспечение. В основном для разработки дизайна используются Adobe Illustrator, Photoshop и другие профессиональные графические редакторы, но есть и специализированные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.10.2017Разработчик: Bohemian CodingПоддерживаемая ОС: OS X 10.11 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:439E0010B48EBF1585272ED7FD77635B6BD368A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173641   (389769) от 12.10.2017
+
+A Better Finder Rename 10.22 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389769.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Better Finder Rename является лучшим решением для автоматизации процесса переименования большого количества файлов. Программа работает как отдельное приложение, однако может быть вызвано и из контекстного меню Finder.
+Под простым и понятным интерфейсом A Better Finder Rename скрываются гибкие настройки переименования файлов. В программе есть полный комплект настроек, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.10.2017Разработчик: Frank ReiffПоддерживаемая ОС: macOS 10.11.7 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA9BCA22CBFD46B34B283B045E2ABCECBCC5B25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1173644   (389704) от 12.10.2017
 
 Jump Desktop (RDP, VNC, Fluid) 7.1 (224) [En]
@@ -6,7 +59,7 @@ Jump Desktop (RDP, VNC, Fluid) 7.1 (224) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389704.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ Audirvana Plus 3.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389696.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ Live Home 3D St 3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389695.jpg" />
 </div>
 
 
@@ -88,7 +141,7 @@ Weather Dock 3.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389694.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ OmniGraffle Pro 7.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389691.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ iPhoto [5.0+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_389676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_389676.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ Max Payne [4.2+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_389673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_389673.jpg" />
 </div>
 
 
@@ -195,7 +248,7 @@ Canary Mail 1.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389052.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ Textual 7.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389031.jpg" />
 </div>
 
 
@@ -250,7 +303,7 @@ BBEdit 12.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388991.jpg" />
 </div>
 
 
@@ -276,7 +329,7 @@ Navicat Premium 12.0.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388940.jpg" />
 </div>
 
 
@@ -304,7 +357,7 @@ Principle 3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388936.jpg" />
 </div>
 
 
@@ -333,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388930.jpg" />
 </div>
 
 
@@ -361,7 +414,7 @@ System Monitor 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388929.jpg" />
 </div>
 
 
@@ -387,7 +440,7 @@ Command-Tab Plus 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388923.jpg" />
 </div>
 
 
@@ -415,7 +468,7 @@ Coda 2.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388873.jpg" />
 </div>
 
 
@@ -442,7 +495,7 @@ CloudMounter 2.2 (350) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388801.jpg" />
 </div>
 
 
@@ -468,7 +521,7 @@ Fantastical 2 v2.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387912.jpg" />
 </div>
 
 
@@ -494,7 +547,7 @@ Privatus 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387833.jpg" />
 </div>
 
 
@@ -521,7 +574,7 @@ Permute 2 v2.5.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387589.jpg" />
 </div>
 
 
@@ -547,7 +600,7 @@ Yate 5 v5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387561.jpg" />
 </div>
 
 
@@ -576,7 +629,7 @@ EverWeb 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387560.jpg" />
 </div>
 
 
@@ -604,7 +657,7 @@ GlueMotion 1.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387559.jpg" />
 </div>
 
 
@@ -632,7 +685,7 @@ Sync Checker 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387558.jpg" />
 </div>
 
 
@@ -643,60 +696,6 @@ Sync Checker - диагностическое приложение, которо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9BC94A75510A93B2E4F2DEC89661220E241106A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326076   (387557) от 19.09.2019
-
-Translatium 9 v9.3.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Translatium - мощное приложение для перевода для macOS.Тип издания: macOS SoftwareРелиз состоялся: 16.09.2019Разработчик: Quang LamПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:337BB40428E25C59986487A25F2C2543CBFDA198
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174024   (387535) от 14.10.2017
-
-Tap Forms Organizer 5.2.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используйте Tap Forms Organizer для отслеживания вашего инвентаря на работе и управляйте предметами домашнего обихода в домашних условиях. Отлично подходит для страховых и бухгалтерских целей! Это даже отлично подходит для управления списками подарков к праздникам или отслеживания всех ваших расходов и списков дел.
-
-Вы любитель кино, но у вас есть слишком много фильмов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.10.2017Разработчик: Tap Zapp Software Inc.Поддерживаемая ОС: OS X 10.11 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7AE9B4AF294345480948992329E6ABE0C7ADF51
 ```
 
 https://mybot314.ru/tekegram_catalog/

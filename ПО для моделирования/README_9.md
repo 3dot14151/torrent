@@ -1,3 +1,55 @@
+###  Публикация: 1816846   (3947) от 07.09.2025
+
+Мой Дом 3D 4.0 RePack (& Portable) by elchupacabra [Ru]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мой Дом 3D -  - это программа для самостоятельного проектирования домов. Вы сможете создать поэтажный план здания с мансардой и цокольным этажом, пристроить крыльцо, лестницу. Внешнюю и внутреннюю отделку меняйте по своему усмотрению. В каталоге есть 1150+ материалов и возможность загрузить свое фото обоев, линолеума и прочих покрытий.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B57E670D176235D881733678A03D087018F5E224
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817937   (3064) от 13.09.2025
+
+Конструктор шкафов-купе 3D 1.25 Repack by KaktusTV [Ru]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конструктор шкафов-купе — удобный редактор для разработки дизайна шкафов с нуля. Программа позволяет добиться профессионального результата и создать трёхмерную модель в кратчайшие сроки, независимо от опыта. Вы без труда спроектируете шкаф, который идеально подойдёт вам по всем параметрам, ведь в конструкторе есть все инструменты, чтобы реализовать любую вашу креативную (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69FFCD3CBD12B4546DBAA2E701CDFDD1FFE76BEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817950   (3037) от 13.09.2025
 
 AMS Дизайн Интерьера 3D 12.0 [Ru]
@@ -6,7 +58,7 @@ AMS Дизайн Интерьера 3D 12.0 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3037.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ ZBrush 2026.0 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3028.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ AMS Ландшафтный Дизайн 3D 10.0 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3026.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Cinema 4D 2026.0 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2838.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Chaos Vantage 3.0.1 beta [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1993.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Agisoft Metashape Pro 2.2.2 Build 21287 Repack (& Portable) by elchupacabra [Mul
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_343.jpg" />
 </div>
 
 

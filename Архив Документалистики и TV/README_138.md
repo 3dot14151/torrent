@@ -1,3 +1,29 @@
+###  Публикация: 1136507   (671201) от 24.05.2017
+
+Virgin Australia Supercars Championship. Сезон 2017. Winton SuperSprint. Этап 5. Гонка 1 (20.05.2017) HDTVRip [H.264/720p-LQ] [VO]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Австралийский чемпионат по шоссейно-кольцевым автогонкам среди легковых автомобилей сезона 2017 года - Этап 5Телекомпания: Fox Sports 506Жанр: СпортПеревод: Одноголосый закадровый, любительскийЯзык озвучки: РусскийПродолжительность: 01:33:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73C52C9386171C706CACEAAED3F9ACADB72A7577
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136950   (671200) от 24.05.2017
 
 Волейбол. Лига Чемпионов 2016-2017. Женщины. Финал 4-х. Матч за 3-е место. Динамо (Россия) — Эджзаджибаши ВитрА (Турция) (23.04.2017) WEB-DLRip [H.264/720p-LQ] [EN]
@@ -6,7 +32,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671200.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671199.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671153.jpg" />
 </div>
 
 
@@ -93,7 +119,7 @@ Virgin Australia Supercars Championship. Сезон 2017. Winton SuperSprint. Э
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671147.jpg" />
 </div>
 
 
@@ -119,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671145.jpg" />
 </div>
 
 
@@ -148,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671144.jpg" />
 </div>
 
 
@@ -177,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671137.jpg" />
 </div>
 
 
@@ -206,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670647.jpg" />
 </div>
 
 
@@ -233,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670479.jpg" />
 </div>
 
 
@@ -262,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670325.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670251.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670237.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670155.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670151.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669931.jpg" />
 </div>
 
 
@@ -436,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669930.jpg" />
 </div>
 
 
@@ -465,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669902.jpg" />
 </div>
 
 
@@ -494,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669900.jpg" />
 </div>
 
 
@@ -523,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669392.jpg" />
 </div>
 
 
@@ -551,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669218.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668775.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668753.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668651.jpg" />
 </div>
 
 
@@ -662,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668598.jpg" />
 </div>
 
 
@@ -690,7 +716,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668540.jpg" />
 </div>
 
 
@@ -701,35 +727,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:696D875D6045FBFA591EEFBFA50A7C0B5F8F1E89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031280   (668520) от 03.07.2016
-
-Футбол. Чемпионат Европы 2016. 1/4 финала. Германия - Италия (02.07.2016) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668520.jpg" />
-</div>
-
-
-###  Подробнее
-
-02 июля 2016, суббота. 22:00 МСК
- 1/4 финала
-Стадион:  Матмут-Атлантик (Бордо, Франция) , 38764 зрителя (90 % при вместимости 43000)
-Главный судья:  Виктор Кошшои (Татабанья, Венгрия)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: русский (Артем Шмельков (превью), Юрий Розанов, Денис Казанский)Продолжительность: 03:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:162F448861B5A754683F1C949E7C01FF2E2DA809
 ```
 
 https://mybot314.ru/tekegram_catalog/

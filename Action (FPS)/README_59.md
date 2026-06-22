@@ -1,3 +1,29 @@
+###  Публикация: 1815608   (5030) от 31.08.2025
+
+No Man's Sky (2016) [Ru/Multi] (6.00/dlc) Repack FitGirl
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классическая научная фантастика, ее многообразие и неповторимый дух приключений, оживают в творении студии Hello Games. No Man’s Sky – игра, отличающаяся невероятным размахом и амбициями. Вам предстоит исследовать бесконечную вселенную, открывать бесчисленные уникальные планеты и знакомиться с невиданными прежде формами жизни.Тип издания: RepackРазработчик: Hello GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D26F8CEDCCDC54CCB5DBFD662B90FF221F8750F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752282   (4903) от 01.09.2025
 
 7 Days to Die (2013) [Ru/Multi] (2.3 b8) Repack Pioneer
@@ -6,7 +32,7 @@
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4903.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ No Man's Sky (2016) [Ru/Multi] (6.02/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4625.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ PowerSlave Exhumed (2022) [Multi] (1.0.1659) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4362.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ PowerSlave (1996) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4336.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Wolfenstein: The New Order, The Old Blood, The New Colossus, Youngblood (2014-20
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4263.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3681.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ No Man's Sky (2016) [Ru/Multi] (6.03) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3652.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Dying Light 2: Stay Human (2022) [Ru/Multi] (1.24.2/dlc) Repack Wanterlude [Relo
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3534.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ ZERO PROTOCOL (2024) [Ru/Multi] (1.2) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3514.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Deadzone: Rogue (2025) [Ru/Multi] (1.0.0.19) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3422.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ The House of the Dead 2: Remake (2025) [Multi] (20250903) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3390.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Brigand: Oaxaca (2017) [En] (17.0/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3105.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ S.T.A.L.K.E.R.: Call of Prypiat (2010) [Ru/Multi] (1.10.0.26261) Repack Let'sРl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2282.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl (2007) [Ru/Multi] (1.10.0.26261) Repack Let'
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2281.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ The Precursors / Предтечи (2009) [Ru] (2.2) Repack Foxx [ReBuild]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2261.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ S.T.A.L.K.E.R.: Clear Sky (2008) [Ru/Multi] (1.10.0.26261) Repack Let'sРlay [En
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2248.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ CULTIC (2022) [En] (Build 20024050/dlc) Repack Let'sРlay [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2087.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Betrayer (2014) [Ru/Multi] (1.9.6844.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1902.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ S.T.A.L.K.E.R.: Legends of the Zone Trilogy (2025) [Ru/Multi] (1.10.0.26261) Rep
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1764.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ S.T.A.L.K.E.R.: Shadow of Chornobyl / S.T.A.L.K.E.R. Тень Чернобыля
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1762.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ S.T.A.L.K.E.R.: Call of Prypiat / S.T.A.L.K.E.R.: Зов Припяти (2010) [
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1761.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое небо (2008) [Ru/Mul
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1727.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ POSTAL: Brain Damaged (2022) [Multi] (1.10.4/dlc) License GOG [Connoisseur Editi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1400.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Project Warlock II (2) (2022) [Ru/Multi] (1.0.1.26) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1372.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Dying Light (2016) [Ru/En] (1.54.0/dlc) Repack Let'sРlay [Definitive Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_943.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Dying Light (2016) [Ru/En] (1.54.0/dlc) Repack Let'sРlay [Definitive Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9832D97DF4E1128E2EEB6A93C3E0FFDE282F36C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777729   (928) от 26.09.2025
-
-Dying Light 2: Stay Human (2022) [Ru/Multi] (1.24.2/dlc) Repack Let'sРlay [Digital Extras Edition]
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_928.jpg" />
-</div>
-
-
-###  Подробнее
-
-С событий первой части прошло 20 лет. Вирус победил, человечество на грани вымирания. Ваш герой - странствующий пилигрим Эйден Колдуэлл - своего рода посыльный, помогающий поселениям, разбросанным по опустошенным страшным вирусом землям, поддерживать между собой связь. Но истинная цель Эйдена - найти сестру Мию, которую он оставил в лапах жестокого доктора Вальца.Тип издания: RepackРазработчик: TechlandЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4BA00A0DA1DA5DDF9F898D817FD36DFA61CDE7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

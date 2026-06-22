@@ -1,3 +1,58 @@
+###  Публикация: 1428295   (180954) от 01.12.2020
+
+Music Collector Pro 20.2.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Music Collector позволяет автоматически каталогизировать ваши компакт-диски в базе данных. Просто вставьте компакт-диск в привод CD-ROM, отсканируйте его штрих-код или введите исполнителя и название, чтобы загрузить все данные из различных источников в Интернете. Используйте встроенную поддержку TWAIN для сканирования изображений обложек непосредственно в программу. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: CollectorzПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45D55B897F691465C5DB593A7CDCFC7A0C2B77DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428129   (180951) от 01.12.2020
+
+Duplicate File Finder Pro 6.11  [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180951.jpg" />
+</div>
+
+
+###  Подробнее
+
+PrimeFile - утилита, которая находит дубликаты файлов на вашем Mac всего за 3 клика.
+Drag & drop столько папок, сколько вы хотите, и нажмите кнопку SCAN. Через минуту приложение даст отчет со всеми дубликатов файлов по категориям: изображения, видео, музыки, архивы, документы и др.. Это очень легко, чтобы увидеть, сколько места занимает каждый файл.
+
+В Pro версии (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.11.2020Разработчик: NektonyПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:498553E8C4AA568E80094B9B334888DC252BD907
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428086   (180937) от 01.12.2020
 
 Alfred 4 Powerpack 4.3 [En]
@@ -6,7 +61,7 @@ Alfred 4 Powerpack 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180937.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ Book Collector Pro 20.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180929.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ Cisdem Video Converter 6.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180923.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ PowerPhotos 1.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180909.jpg" />
 </div>
 
 
@@ -113,7 +168,7 @@ Coherence X 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180900.jpg" />
 </div>
 
 
@@ -139,7 +194,7 @@ FontLab 7 v7.2.0.7622 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180896.jpg" />
 </div>
 
 
@@ -167,7 +222,7 @@ Eon Timer 2.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180879.jpg" />
 </div>
 
 
@@ -193,7 +248,7 @@ Money Pro - Personal Finance 2.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180876.jpg" />
 </div>
 
 
@@ -221,7 +276,7 @@ Art Text 4.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180835.jpg" />
 </div>
 
 
@@ -250,7 +305,7 @@ Export for iTunes 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180819.jpg" />
 </div>
 
 
@@ -276,7 +331,7 @@ Capto – Screen Recording, Screen Captures, and Editing 1.2.20 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180814.jpg" />
 </div>
 
 
@@ -303,7 +358,7 @@ Principle 5.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180801.jpg" />
 </div>
 
 
@@ -329,7 +384,7 @@ Movavi Video Suite for Mac 2021 v21.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180734.jpg" />
 </div>
 
 
@@ -355,7 +410,7 @@ Pixelmator Pro 2.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180724.jpg" />
 </div>
 
 
@@ -383,7 +438,7 @@ Movavi Screen Recorder 21.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180720.jpg" />
 </div>
 
 
@@ -409,7 +464,7 @@ PopClip 2023.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180253.jpg" />
 </div>
 
 
@@ -436,7 +491,7 @@ UctoX 2 v2.8.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180229.jpg" />
 </div>
 
 
@@ -465,7 +520,7 @@ Receipts 1.9.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180226.jpg" />
 </div>
 
 
@@ -493,7 +548,7 @@ EazyDraw 10.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180225.jpg" />
 </div>
 
 
@@ -519,7 +574,7 @@ Movie Collector Pro 20.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180223.jpg" />
 </div>
 
 
@@ -545,7 +600,7 @@ SILKYPIX Developer Studio Pro 10 v10.0.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180219.jpg" />
 </div>
 
 
@@ -573,7 +628,7 @@ Rottenwood 1.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180216.jpg" />
 </div>
 
 
@@ -599,7 +654,7 @@ Dark Reader for Safari 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180202.jpg" />
 </div>
 
 
@@ -626,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180190.jpg" />
 </div>
 
 
@@ -637,58 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95655A480BB5C4C308DDDFE9181085762C98949D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428394   (180166) от 02.12.2020
-
-PCDJ DEX 3.15.0.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180166.jpg" />
-</div>
-
-
-###  Подробнее
-
-PCDJ DEX 3 - профессиональное программное обеспечение для DJ на macOS, которое позволяет легко микшировать музыку, музыкальные клипы и устраивать караоке-шоу. DEX 3 дает вам полный контроль над вашими медиа, предоставляя больше творческой свободы при микшировании, чем когда-либо прежде. Благодаря нашему автоматическому микшированию ударов на основе сетки ударов легко (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.11.2020Разработчик: DIGITAL 1 AUDIO INCПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:596D7304EB66F4FC79C78F47E2007B3654F39D53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428397   (180147) от 02.12.2020
-
-JPEG SILKYPIX Photography 10 v10.2.9.2 [EN]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180147.jpg" />
-</div>
-
-
-###  Подробнее
-
-SILKYPIX JPEG Photography  - лучший инструмент для того, чтобы сделать красивую фотографию для блогов и SNS, а также распечатать и завершить рутинную работу. В SILKYPIX JPEG Photography, кнопка «Автоматическая настройка», которая автоматически выполняет коррекцию, подходящую для изображения, «индивидуальную настройку подсветки / тени» для выделенной и теневой части (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.11.2020Разработчик: Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD05C8791FBBA36F12D067F9DE8496D1C039F738
 ```
 
 https://mybot314.ru/tekegram_catalog/

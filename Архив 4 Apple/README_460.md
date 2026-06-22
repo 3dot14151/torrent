@@ -1,3 +1,60 @@
+###  Публикация: 1334256   (296926) от 28.10.2019
+
+Posterino 3 v3.6.5 (3082) [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Posterino – программа, ориентированная на создание различных постеров и открыток. Включает в себя достаточно много разных шаблонов, касательно расположения изображений на постере. Среди них такие знаменитые, как 365 Days, Landscape, Classic, Clasters и многие другие.
+
+Шаблоны можно редактировать, получая в какой-то мере произвольные результаты постеров. Это достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Zykloid SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A26300621499627340E4DEC8D075F2D94CAD764
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334216   (296920) от 28.10.2019
+
+ScreenFloat 1.5.17 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296920.jpg" />
+</div>
+
+
+###  Подробнее
+
+ScreenFloat — приложение для создания висящих на виду скриншотов
+Приложение позволяет создавать висящие перед глазами скриншоты и сохранять их в собственную библиотеку, чтобы потом быстро найти
+
+Используйте ScreenFloat для создания плавающих скриншотов, которые всегда видны, независимо от того, какое приложение вы используете. Таким образом, вам не нужно перемещать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Matthias GansriglerПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F7C850AA693C5AE1AAAD205CDAC0ED40047972
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334394   (296919) от 28.10.2019
 
 CADintosh X 8.5 [Multi]
@@ -6,7 +63,7 @@ CADintosh X 8.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296919.jpg" />
 </div>
 
 
@@ -32,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296885.jpg" />
 </div>
 
 
@@ -59,7 +116,7 @@ MiniTube 2.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296875.jpg" />
 </div>
 
 
@@ -86,7 +143,7 @@ Movist Pro 2.2.11 (133) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_296827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_296827.jpg" />
 </div>
 
 
@@ -114,7 +171,7 @@ Algoriddim djay Pro (Complete FX Pack) 2 v2.0.15 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_296825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_296825.jpg" />
 </div>
 
 
@@ -140,7 +197,7 @@ DxO PhotoLab 3 ELITE Edition 3.0.0 (build 21) CR2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_296824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_296824.jpg" />
 </div>
 
 
@@ -168,7 +225,7 @@ Watercolor Studio Pro 1.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296813.jpg" />
 </div>
 
 
@@ -194,7 +251,7 @@ Disk Drill Media Recovery 3.6.920 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296778.jpg" />
 </div>
 
 
@@ -222,7 +279,7 @@ PhoneClean Pro 4.0.1 (20151202) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296728.jpg" />
 </div>
 
 
@@ -248,7 +305,7 @@ Hands Off! 4.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296650.jpg" />
 </div>
 
 
@@ -275,7 +332,7 @@ Moom 3.2.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296582.jpg" />
 </div>
 
 
@@ -303,7 +360,7 @@ Acronis True Image 2016 (2.0.6038) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296552.jpg" />
 </div>
 
 
@@ -332,7 +389,7 @@ Movist 1.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296551.jpg" />
 </div>
 
 
@@ -360,7 +417,7 @@ Autopano Giga 4.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296549.jpg" />
 </div>
 
 
@@ -387,7 +444,7 @@ Artlantis Studio 6.0.2.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296546.jpg" />
 </div>
 
 
@@ -413,7 +470,7 @@ Adobe Acrobat Pro DC 2019.008.20071 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296523.jpg" />
 </div>
 
 
@@ -439,7 +496,7 @@ Folx Pro 5 5.7.13770 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296515.jpg" />
 </div>
 
 
@@ -468,7 +525,7 @@ Sketch 52.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296514.jpg" />
 </div>
 
 
@@ -495,7 +552,7 @@ Microsoft Office for Mac Standard 2019 v.16.19.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296509.jpg" />
 </div>
 
 
@@ -522,7 +579,7 @@ Adobe Zii 2019 - Universal Patcher v5.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296483.jpg" />
 </div>
 
 
@@ -548,7 +605,7 @@ Fantastical 2 - Calendar and Reminders 2.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296242.jpg" />
 </div>
 
 
@@ -575,7 +632,7 @@ CheckBook Pro 2.6.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296173.jpg" />
 </div>
 
 
@@ -601,7 +658,7 @@ PhotoSweeper X 3.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296170.jpg" />
 </div>
 
 
@@ -628,7 +685,7 @@ Retrobatch Pro 1.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296166.jpg" />
 </div>
 
 
@@ -641,59 +698,6 @@ Retrobatch Pro 1.4.3 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E2DAB7B76DB9863529519B0953FAE1F0C5D1073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424026   (296162) от 15.11.2020
-
-iBarcoder 3.12.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cristallight iBarcoder - профессиональный генератор штрих-кодов Mac для создания любого количества отдельных или последовательных штрих-кодов, и их печати в виде красочных этикеток со штрих-кодом в собственном стиле, любого размера или формы или их экспорта в виде файлов графических изображений в обычном векторном и растровом изображении.Тип издания: macOS SoftwareРелиз состоялся: 22.10.2020Разработчик: Cristallight SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A38BFB6522D733AAE1C5E8F0AB438404A237D55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424206   (296161) от 15.11.2020
-
-DrawOutX 2.1.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296161.jpg" />
-</div>
-
-
-###  Подробнее
-
-DrawOutX - приложение для создания многостраничных документов.
-Для этого необходимо просто вставить или просто перетащить в окно программы нужный текст и прочие элементы и модифицировать их с помощью встроенных различных фильтров, задать нужный формат (pdf, tiff, jpeg, png, icns) и сохранитьТип издания: macOS SoftwareРелиз состоялся: 15.11.2020Разработчик: TrollinПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0E71168D0F89610D2744C431A812BE0DD1560C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

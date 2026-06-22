@@ -1,3 +1,113 @@
+###  Публикация: 591709   (136062) от 20.12.2012
+
+Слуга государев (2007) [1080p] BDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_136062.jpg" />
+</div>
+
+
+###  Подробнее
+
+1709 год. Европу раздирают междоусобные войны. Францией все еще правит стареющий Людовик XIV, а подвиги мушкетеров еще не забыты. В Версале два французских дворянина, поссорившись из-за карточной игры, нарушают существующий запрет на дуэли и оказываются между тюрьмой и плахой палача. Милостью короля казнь заменена ссылкой «на пользу государства».
+
+Один из них должен отправиться на службу ко двору российского царя Петра Первого, другой — ко двору шведского короля Карла XII, чтобы шпионить в пользу Франции. Россия и Швеция находятся в состоянии войны, и герои должны прибыть к местам назначения как раз накануне Полтавской битвы. Однако оказывается, что ссылка — всего лишь предлог и на самом деле им уготовано место в первых рядах сражающихся друг против друга армий. Чтобы спасти любимого, подруга одного из героев решается на отчаянный шаг…
+
+В России тем временем ползут слухи о мистическом черном всаднике, якобы причастном к исчезновению людей… Проведенное расследование подтверждает, что загадочные появления мистического (   Читать дальше...   )Жанр: Боевик, Приключения, ВоенныйРежиссер: Олег РясковАктеры: Ольга Арнтгольц, Александр Бухаров, Алексей Чадов, Николай Чиндяйкин, Владислав Демченко, Ксения Князева, Валерий Маликов, Дмитрий Миллер, Елена Плаксина, Андрей РыклинПродолжительность: 01:56:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680022   (134726) от 27.11.2023
+
+Вор (1997) HDTV [1080i]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134726.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1952 году шестилетний Саня и его мать Катерина едут в поезде. Их случайный попутчик, офицер Анатолий очаровывает и Катю и Саню. Катя и Анатолий решают жить вместе. Сильный и добродушный Толян почти заменяет безотцовщине Сане отца. Он учит мальчика стоять за себя, вести себя по-мужски - так, как сам понимает мужественность и в соответствии с теми правилами, по которым (   Читать дальше...   )Производство: Россия, Франция / "НТВ-ПРОФИТ", "Продюксьон Ле Пон", "Руассифильм"Жанр: драма, криминалРежиссер: Павел ЧухрайАктеры: Владимир Машков, Екатерина Редникова, Михаил Филипчук, Амалия Мордвинова, Лидия Савченко, Анна Штукатурова, Ольга Пашкова, Юрий Беляев, Анатолий Кощеев, Людмила СелянскаяСубтитры: русскиеПродолжительность: 01:29:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:325C54A2CE88819C2ACEE365C76067BEBD674C9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680018   (134711) от 27.11.2023
+
+Побег из Таркова. Рейд (2021) WEBRip [H.265/1440p] [2K, SDR, 10-bit]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русский бoевик по шутеру Escape from Tarkov в духе S.T.A.L.K.E.R.
+Рассказ о борьбе частных военных компаний на территории города Тарков. Одни представляют интересы международной корпорации TerraGroup, ведущей там незаконную деятельность. Российская ЧВК BEAR направляет в город группу во главе со Скифом, чтобы найти пропавших коллег, чьей миссией был перехват информации (   Читать дальше...   )Производство: Россия / BattlestateЖанр: боевик, криминалРежиссер: Антон РозенбергАктеры: Матвей Зубалевич, Виктор Мищенчук, Михаил Солодко, Олег Савцов, Владимир Лукьянчиков, Кристина Александрова, Олег Руденко-Травин, Антон Лаврентьев, Сергей Масленников, Сергей ЛобановПеревод: не требуется (русский)Субтитры: русские (18+)Продолжительность: 01:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDF0CD8350579B405731FF0A79ACC3554AEF0542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679950   (134703) от 27.11.2023
+
+Побег из Таркова. Рейд (2021) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русский бoевик по шутеру Escape from Tarkov в духе S.T.A.L.K.E.R.
+Рассказ о борьбе частных военных компаний на территории города Тарков. Одни представляют интересы международной корпорации TerraGroup, ведущей там незаконную деятельность. Российская ЧВК BEAR направляет в город группу во главе со Скифом, чтобы найти пропавших коллег, чьей миссией был перехват информации (   Читать дальше...   )Производство: Россия / BattlestateЖанр: боевик, криминалРежиссер: Антон РозенбергАктеры: Матвей Зубалевич, Виктор Мищенчук, Михаил Солодко, Олег Савцов, Владимир Лукьянчиков, Кристина Александрова, Олег Руденко-Травин, Антон Лаврентьев, Сергей Масленников, Сергей ЛобановПеревод: не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B78AD511E672DC3B4CECA466B4B9512A2A469E16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678976   (134656) от 27.11.2023
 
 1993 (2023) WEBRip [H.264/1080p]
@@ -6,7 +116,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134656.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134026.jpg" />
 </div>
 
 
@@ -58,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133749.jpg" />
 </div>
 
 
@@ -84,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133652.jpg" />
 </div>
 
 
@@ -110,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133611.jpg" />
 </div>
 
 
@@ -136,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132985.jpg" />
 </div>
 
 
@@ -162,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132622.jpg" />
 </div>
 
 
@@ -188,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132501.jpg" />
 </div>
 
 
@@ -215,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132183.jpg" />
 </div>
 
 
@@ -241,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131952.jpg" />
 </div>
 
 
@@ -267,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131897.jpg" />
 </div>
 
 
@@ -293,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131797.jpg" />
 </div>
 
 
@@ -319,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131779.jpg" />
 </div>
 
 
@@ -345,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130989.jpg" />
 </div>
 
 
@@ -371,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130873.jpg" />
 </div>
 
 
@@ -397,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130811.jpg" />
 </div>
 
 
@@ -423,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130642.jpg" />
 </div>
 
 
@@ -449,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130641.jpg" />
 </div>
 
 
@@ -475,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130520.jpg" />
 </div>
 
 
@@ -501,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130455.jpg" />
 </div>
 
 
@@ -527,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130134.jpg" />
 </div>
 
 
@@ -553,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130127.jpg" />
 </div>
 
 
@@ -564,110 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5190C9EF5332553E99050E2669495A87B102531C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683068   (129953) от 09.12.2023
-
-Вандализм (2023) WEBRip [VP9/2160p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129953.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Вандализм" - это короткометражное кино про граффити.Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Никита СычёвАктеры: Илья Грешилов, Галя Голенкова, Иван Кузьмин, Михаил ВинокуровСубтитры: русскиеПродолжительность: 00:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE81B4041DBEAD049E5D4770348F0DD12857F7D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525456   (129901) от 20.01.2022
-
-Этерна: Часть первая (2021) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Законный наследник престола в изгнании и сын убитого мятежника — что между ними общего? У каждого своя цель: один мечтает занять трон и вернуть своей семье былую славу, другой — отомстить убийце своего отца, который служит узурпаторам. Юноши вступают в масштабную борьбу за власть и честь, в которой те, что казались друзьями, могут предать, а былые враги — превратиться (   Читать дальше...   )Производство: Россия, Black princeЖанр: фэнтези, драма, мелодрама, приключенияРежиссер: Евгений НевскийАктеры: Анар Халилов, Павел Крайнов, Юрий Чурсин, Денис Нурулин, Валентина Ляпина, Сергей Горошко, Сергей Гилев, Вениамин Смехов, Юлия Хлынина, Кирилл ЗайцевПеревод: Не требуется (Русский)Субтитры: Русские (Full)Продолжительность: 01:23:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA4D6F6179805C52555EFA41FCEBA43AC0124544
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683255   (129683) от 10.12.2023
-
-Чувства Анны (2023) WEBRip [H.264/1080p]
-
->>След.
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анна - сотрудница кондитерской фабрики, которая внезапно начинает слышать голоса внеземных цивилизаций. С помощью Анны инопланетяне передают важную для землян информацию.Производство: Россия / ID ProductionЖанр: фантастика, драмаРежиссер: Анна МеликянАктеры: Анна Михалкова, Тимофей Трибунцев, Олег Ягодин, Екатерина Андреева, Екатерина Новокрещенова, Полина Васильева, Мария Бердинских, Елена Фомина, Юлия Полынская, Федор БутинПеревод: не требуется (русский)Субтитры: отсутствуютПродолжительность: 02:09:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47FF1971B444E37513A16A8F157B966731E4D3FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525454   (129656) от 20.01.2022
-
-Помнишь (2021) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Песня «Помнишь» - заглавная композиция нового одноимённого EP Гарика Сукачёва. Это классический блюз с узнаваемыми гитарными партиями Дмитрия Варшавчика и с лирикой, которая отзовётся в сердце каждого человека и покажется созвучной его собственным переживаниям.Производство: РоссияЖанр: Короткометражный, драма, музыкаРежиссер: Гарик СукачёвАктеры: Александр Ляшенко, Борис Ефремов, Денис БарковскийСубтитры: английские (хардсаб)Продолжительность: 00:09:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47C22E0952E852949B722BE78D95B51EC5662C80
 ```
 
 https://mybot314.ru/tekegram_catalog/

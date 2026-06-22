@@ -1,3 +1,57 @@
+###  Публикация: 1621153   (200953) от 23.03.2023
+
+Ableton Live Suite 11 v.11.2.11 U2B [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Live - это быстрое и гибкое программное обеспечение для создания и исполнения музыки. Он включает в себя эффекты, инструменты, звуки и всевозможные творческие функции - все, что вам нужно для создания любой музыки. Создавайте в традиционном линейном расположении или импровизируйте без ограничений временной шкалы в режиме просмотра сеансов Live. Свободно перемещайтесь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.03.2023Разработчик: © 2022 AbletonПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6765302507DB4E225B8B981F99CCD9C7A7E482A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621244   (200859) от 23.03.2023
+
+Transmit 5.9.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Золотой стандарт приложений для передачи файлов
+Загружайте, загружайте и управляйте файлами на серверах с простым, знакомым и мощным интерфейсом.
+Теперь Transmit подключается к 10 новым облачным сервисам, таким как Backblaze B2, Box, Google Диск, DreamObjects, Dropbox, Microsoft Azure и Rackspace Cloud Files. И да, Transmit по-прежнему обрабатывает классику - FTP, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.03.2023Разработчик: Panic IncПоддерживаемая ОС: macOS X 10.15 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D914B430C67A431F4B9EC4890EB6AF7044FAB73D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621401   (200818) от 24.03.2023
 
 SketchUp Pro 2023 v.23.0.396 [Multi/Ru]
@@ -6,7 +60,7 @@ SketchUp Pro 2023 v.23.0.396 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200818.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Luminar Neo 1.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200592.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ Cinema 4D Studio 2023.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200502.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ Screaming Frog SEO Spider 18.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200424.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ MacCleaner 3 PRO 3.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200407.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ Charles Web Debugging Proxy 4.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200400.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ TechSmith Snagit 2023.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200393.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ Movist Pro 2.10.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200323.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ App Cleaner & Uninstaller Pro 8.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200321.jpg" />
 </div>
 
 
@@ -246,7 +300,7 @@ PDF Expert 3.0.37 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199739.jpg" />
 </div>
 
 
@@ -273,7 +327,7 @@ Little Snitch nightly 5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199536.jpg" />
 </div>
 
 
@@ -300,7 +354,7 @@ Disk Drill Enterprise 5.2.1215 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199505.jpg" />
 </div>
 
 
@@ -327,7 +381,7 @@ AnyTrans for iOS 8.9.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199366.jpg" />
 </div>
 
 
@@ -354,7 +408,7 @@ VMware Fusion Pro 13.0.2 (build 21581413) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199216.jpg" />
 </div>
 
 
@@ -381,7 +435,7 @@ Cinema 4D Studio 2023.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198796.jpg" />
 </div>
 
 
@@ -407,7 +461,7 @@ XMind PRO 22.11 (3656) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198603.jpg" />
 </div>
 
 
@@ -433,7 +487,7 @@ CrossOver 22.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198435.jpg" />
 </div>
 
 
@@ -459,7 +513,7 @@ ZBrush 2023.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198292.jpg" />
 </div>
 
 
@@ -485,7 +539,7 @@ CrossOver 22.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198004.jpg" />
 </div>
 
 
@@ -511,7 +565,7 @@ Serato DJ Pro Suite 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197398.jpg" />
 </div>
 
 
@@ -537,7 +591,7 @@ ON1 Sky Swap AI 2023.5 v.17.5.1.14028 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197255.jpg" />
 </div>
 
 
@@ -563,7 +617,7 @@ iToolab UnlockGo 5.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197174.jpg" />
 </div>
 
 
@@ -592,7 +646,7 @@ Microsoft Office 2021 for Mac LTSC v16.74 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197009.jpg" />
 </div>
 
 
@@ -620,7 +674,7 @@ Davinci Resolve Studio 18.5b4 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196875.jpg" />
 </div>
 
 
@@ -633,58 +687,6 @@ Davinci Resolve Studio 18.5b4 [Multi/Rus]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFB689B0A45BB10C00F39F3ABE738BB9286DEF35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640733   (196802) от 19.06.2023
-
-Adobe Illustrator for Mac 2023 v.27.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте векторную графику в программе, которую используют профессионалы. Оцените все возможности: от веб- и мобильной графики до логотипов, значков, иллюстраций, дизайна упаковки и рекламных щитов. Наслаждайтесь свободой творчества с Illustrator.Тип издания: macOS SoftwareРелиз состоялся: апрель 2023Разработчик: © 1990-2022 AdobeПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E07CB8F6B55871E64C6EF2D6ABD5D4FC285C57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642137   (196532) от 25.06.2023
-
-Maxon Cinema 4D Studio 2023.2.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легко изучаемая и чрезвычайно мощная: Cinema 4D является идеальным пакетом для всех художников трёхмерной графики, которые хотят добиваться захватывающих результатов быстро и без проблем. Начинающие, наравне с опытными профессионалами, могут воспользоваться широким набором инструментов и функций Cinema 4D для быстрого достижения потрясающих результатов. Легендарная (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.06.2023Разработчик: © 2023 MAXON Computer GmbHПоддерживаемая ОС: macOS 10.15 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF8EA9C87B7652AAC213FD286918C0796EFE7AF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

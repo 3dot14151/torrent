@@ -1,3 +1,29 @@
+###  Публикация: 1229673   (60056) от 11.04.2024
+
+BBC: Твое тело. 10 секретов сна / 10 Things You Need To Know About Sleep (Your Body. 10 Secrets of Sleep) (2009) HDTVRip [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Достаточно ли вы спите, и как выглядеть хорошо после недосыпания? Как бороться с бессонницей? Что такое сны, и как ими управлять? Что делать с храпом возлюбленного? С помощью впечатляющих визуальных технологий и новейших научных исследований можно отправиться в фантастическое путешествие по внутреннему миру человеческого тела.Производство: Великобритания, BBCЖанр: ДокументальныйУчастники: Режиссер: Ник Мэттингли, Ричард БрайтПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:49:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29228F408D7E5738EDE7F3AEE6C55AF318621FFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235835   (59973) от 12.04.2024
 
 BBC: История Индии с Майклом Вудом / The Story of India with Michael Wood (2007) HDTV [H.264/1080i-LQ] (Серии 1-6 из 6)
@@ -6,7 +32,7 @@ BBC: История Индии с Майклом Вудом / The Story of India
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59973.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ BBC: Мир природы. Водопад Виктория - Гремящий �
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59028.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ BBC: Вена. Империя, династия и мечта / Vienna: Empire, 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58956.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ BBC: Морские гиганты / Ocean Giants (2011) BDRemux [VC-1/1080p] (�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58902.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ BBC: История древней Британии / A History of Ancient Brita
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58822.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ BBC: Поразительные чудеса мира / Weird Wonders of the Wor
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58821.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ BBC: Звуковые волны: симфония физики / Sound Waves: T
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58814.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ BBC: Удивительный мир крови / The Wonderful World of Blood w
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58746.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ BBC: Чудеса времен года / Seasonal Wonderlands (Earth's Greatest
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58724.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ BBC: Тайная жизнь кошек / The Secret Life of the Cat (2013) HDTV
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58718.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ BBC: Царство Растений / Kingdom of Plants (2012) HDTVRip [H.264/7
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58570.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ BBC: По странам и континентам. Дикая Африка / Wi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58478.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ BBC: Волшебные числа: таинственный мир матема
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58466.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ BBC: Чудеса времен года / Seasonal Wonderlands (Earth's Greatest
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58434.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ BBC: Чудеса заводного мира / Mechanical Marvels. Clockwork Dr
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58389.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58358.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ BBC: Юлий Цезарь без прикрас / Julius Caesar Revealed (2017)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58277.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ BBC: Шотландия. Последний рубеж Рима / Scotland: Rome
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58169.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ BBC: Тайная наука. Химическое и биологическое
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58167.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57991.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57670.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57669.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57651.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57639.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57535.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDEE35BFD87BD6B0113079428FECF0EC55D77116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316558   (56180) от 18.05.2024
-
-BBC: Луи Теру. Разговоры с анорексией / Talking to Anorexia (2019) HDTVRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документалист Луи Теру пытается разобраться в сути анорексии, психического расстройства с самым высоким уровнем смертности. Луи посещает два крупнейших лондонских стационара для взрослых пациентов с расстройствами пищевого поведения, где он встречается с женщинами всех возрастов с разной степенью тяжести заболевания. Открывая для себя то, какую ужасающую власть имеет (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: Документальный, познавательный, исследованиеРежиссер: Эллена ВудУчастники: Луи Теру, Фрэнсис Коннан, Джеймс КеллиПеревод: Многоголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ECA597D10659403C796076086128EDF214129C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

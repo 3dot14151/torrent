@@ -1,3 +1,30 @@
+###  Публикация: 899265   (669120) от 21.05.2015
+
+RWBY / Red White Black Yellow / Красная, Белая, Чёрная, Жёлтая [2013-2014, TV, 28 из 28] WEB-DLRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давным-давно, в мире называемом Ремнант, появились полчища ужасных чудовищ — существ Гримм. Человечество оказалось на грани уничтожения. Однако, открытие волшебного вещества, "Праха", позволило отогнать Гримм. А в дальнейшем и поднять цивилизацию на совершенно иной уровень.
+Сейчас об угрозе никто и не помнит. Ведь мир и покой охраняют искусные воины, способные (   Читать дальше...   )Производство: США,   Rooster Teeth ProductionsЖанр: технофэнтези, боевик, комедия, школаРежиссер: Monty Oum (Монти Оум)Перевод: Серии 1-23, 27-28Язык субтитров: РусскийФормат: MP4Продолжительность: ~4-17 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF8EDE7DBDB48A85A34136B2A676D5C7C70C837E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 774368   (668922) от 22.06.2014
 
 Kamigami no Asobi / Game gods / Игры богов [2014, TV, 12 из 12] HDTV 720p Raw
@@ -6,7 +33,7 @@ Kamigami no Asobi / Game gods / Игры богов [2014, TV, 12 из 12] HDTV 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668922.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Eiga Koe no Katachi | A Silent Voice | Форма голоса [2016, Movie] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668816.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ Hunter X Hunter OVA 1 / Охотник х Охотник OVA-1 [2002, OVA, 8] DV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668283.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ Garo: Vanishing Line | Гаро: Линия схода [2017, TV, 24] WEBRip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666930.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ Shinigami no Ballad: Momo the Girl God of Death / Ballad of a Shinigami / Мом
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_665963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_665963.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ Shuten Douji / Star Demon / Звездный Демон [1989, OAV, 4] DVDrip ra
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_664771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_664771.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ Yojouhan Shinwa Taikei / The Tatami Galaxy / Cказ о четырех с пол
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_664756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_664756.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ Dragon Age: Dawn of the Seeker / Эпоха дракона: Рождение И�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664520.jpg" />
 </div>
 
 
@@ -216,7 +243,7 @@ Re:Creators | Возрождающие [2017, TV, 22 эп.] BDrip 1080p 10bit ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663764.jpg" />
 </div>
 
 
@@ -245,7 +272,7 @@ Mahou Shoujo Lyrical Nanoha: Reflection | Magical Girl Lyrical Nanoha: Reflectio
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663763.jpg" />
 </div>
 
 
@@ -271,7 +298,7 @@ Gekijouban Fate/Stay Night: Heaven's Feel - Presage Flower | Судьба: Но�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663646.jpg" />
 </div>
 
 
@@ -298,7 +325,7 @@ Mahouka Koukou no Yuutousei | The Honor at Magic High School | Почётная 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662097.jpg" />
 </div>
 
 
@@ -324,7 +351,7 @@ Shonen Onmyoji / Teenager Onmyouji / Юный мастер Инь-Ян [2006, TV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661453.jpg" />
 </div>
 
 
@@ -350,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658809.jpg" />
 </div>
 
 
@@ -376,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658562.jpg" />
 </div>
 
 
@@ -402,7 +429,7 @@ Leadale no Daichi nite | In the Land of Leadale | На просторах Лид
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658127.jpg" />
 </div>
 
 
@@ -428,7 +455,7 @@ Puka Puka Juju / Дюгонь Дюдю [2012, TV-sp] HDTV 720 raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_657843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657843.jpg" />
 </div>
 
 
@@ -454,7 +481,7 @@ Planetarian: Chiisana Hoshi no Yume | Planetarian: The Reverie of a Little Plane
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657812.jpg" />
 </div>
 
 
@@ -480,7 +507,7 @@ Buta / Хряк [2012, TV-sp.] HDTV 720p 10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_657750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657750.jpg" />
 </div>
 
 
@@ -507,7 +534,7 @@ Planetarian: Hoshi no Hito | Planetarian: Storyteller of The Stars | Плане�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657712.jpg" />
 </div>
 
 
@@ -533,7 +560,7 @@ Grisaia no Kajitsu | The Fruit of Grisaia | Натюрморт в серых т�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657343.jpg" />
 </div>
 
 
@@ -559,7 +586,7 @@ Makaryudo / Demon Hunter Makaryuudo / Охотница на демонов [1989
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_656818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_656818.jpg" />
 </div>
 
 
@@ -585,7 +612,7 @@ Otona Joshi no Anime Time: Kawamo o Suberu Kaze / A Wind Skimming the River's Su
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_656400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_656400.jpg" />
 </div>
 
 
@@ -612,7 +639,7 @@ Onee-chan ga Kita | Сестра без приглашения [2014, TV, 12 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656144.jpg" />
 </div>
 
 
@@ -640,7 +667,7 @@ Ikkitousen: Western Wolves | Школьные войны [ТВ-5] [2019, TV, 3 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656115.jpg" />
 </div>
 
 
@@ -652,32 +679,6 @@ Ikkitousen: Western Wolves | Школьные войны [ТВ-5] [2019, TV, 3 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC2B21DE6D17482B7FF1D84A0E2B67458DEB9F23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539973   (656113) от 27.03.2022
-
-Hanaukyou Maid Tai: La Verite | Hanaukyo Maid Team: La Verite | Горничные Ханаукё [ТВ-2] [2004, TV, 12 эп.] DVDRip 576p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Школьник Таро Ханаукё после смерти своих родителей решает отправится в Токио к своему деду. К большому для него сюрпризу, дед уехал на тропический остров, где собирается провести остаток своей жизни. При этом родственник оставил Таро в наследство огромный дворец с доброй сотней черезчур любвеобильных служанок, готовых выполнить абсолютно любое желание нового хозяина. (   Читать дальше...   )Производство: Студия Daume / 童夢Жанр: повседневность, комедия, эттиРежиссер: Нонака ТакуяПеревод: Cape_CanaveralЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:182808020E7F442E46D660412AF7968DF53FFA12
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 654894   (1043763) от 28.01.2023
+
+Как это работает? + Как делают спортинвентарь?  / How it's made? + How sports are made? (2001-2013) [Сезон 1-13 из 13] TVRip [H.264]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам интересно, как делают привычные, обыденные вещи? Discovery Channel представляет новые серии фильма "Как это работает", который приглашает зрителей за кулисы производства самых обычных предметов начиная с хоккейных шайб и ручных пил и кончая буровыми долотами и замороженной картошкой фри. Передача " Как это работает" показывает, как делают (   Читать дальше...   )Жанр: Семейный, Научно-популярныйПеревод: Одноголосый закадровый (профессиональный)Продолжительность: (247+8 серий) x ~00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AFB5804F6163DAEB7F4A3569CCB1EB97456E4A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608687   (1043536) от 31.01.2023
 
 Фауна Аляски: От мала до велика / Alaska And Beyond: Big And Small (2022) HDTVRip
@@ -6,7 +32,7 @@
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043536.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ BBC. Horizon: Видим ли мы одно и то же? / Horizon: Do You See 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042217.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ BBC: Жизнь птиц / The Life of Birds (1998) DVDRemux (сезон 1, се
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042215.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ BBC: Живая Природа. Райские птицы / BBC: Natural World. 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042203.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042179.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ NG. Доисторические хищники / Prehistoric Predators (2007-20
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042173.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ NG: Малика, королева львов / Malika: The Lion Queen (2022) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041850.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041246.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040764.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ NG: Самые страшные стихийные бедствия: Извер�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040275.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ BBC: Земля Один потрясающий день / Earth One Amazing Day
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040248.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ BBC - Великие мастера: Загадки Иеронима Босха 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039991.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ BBC. Идеальная планета / A Perfect Planet (2021) WEBRip [H.265/2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039973.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039736.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ NG. Опасные встречи / Dangerous Encounters (2006-2011) DVDRip (24 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039091.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038480.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037878.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037351.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037334.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037325.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037321.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037048.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036788.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036484.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036476.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD2AD5635C3983F09C2203B34734CFE262C9A171
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442511   (1036474) от 25.01.2021
-
-Близкие контакты пятой степени / Close Encounters of the Fifth Kind (2020) WEB-DL [H.264/1080p] [DVO]
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доктор Стивен Грир, основатель Центра по изучению внеземного разума, рассказывает о том, почему правительствам выгодно скрывать правду о контактах с пришельцами и даёт несколько простых советов начинающим контактёрам.Производство: США / 1091 Media, Star ContactЖанр: документальныйРежиссер: Майкл МаццолаАктеры: Стивен М. Грир, Linda A'Roraha, Wendy Boast, Jan Harzan, Филлип Джеймс, Jeremy Cloake, Adam Michael Curry, Valeria Efimova, Marian Kramer и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: Русские, Английские (SDH)Продолжительность: 02:00:00 серияРеклама: Нет.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A6EDDB14BB87478FD0D8F56E6443661E5966D86
 ```
 
 https://mybot314.ru/tekegram_catalog/

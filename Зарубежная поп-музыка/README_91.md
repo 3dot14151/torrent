@@ -6,7 +6,7 @@ VA - Best Movie Hits Vol. 2 (1994) [OGG Vorbis|480 Kbps] <Electronic, Jazz, Rock
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68446.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Best Movie Hits Vol. 1 (1994) [OGG Vorbis|480 Kbps] <Electronic, Rock, Funk
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68441.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - No.1 Hits Of The 90s (2003) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Te
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68398.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - 40 Jahre Disco - Dance The Disco (2010) 2 CD [OGG Vorbis|480 Kbps] <Electro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68281.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Etienne Daho - Pop Satori (серия "Другие восьмидесятые")
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68269.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Grammy 2017 Nominees (2017) [OGG Vorbis|480 Kbps] <Hip Hop, Rock, Funk / So
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68175.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Platin Vol. 7 (1999) 2 CD [OGG Vorbis|480 Kbps] <Hip Hop, Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68108.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Kidz Bop Kids - kidz bop 50 (2025) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68105.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Love Legends (2002) [OGG Vorbis|480 Kbps] <Soft Rock, Soul, Ballad, Rock, P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67834.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Now That's What I Call Music! 29 (1994) 2 CD [OGG Vorbis|480 Kbps] <Pop, Po
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67786.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Grew Up in the 80s (2025) [MP3|320 Kbps] <Pop, Rock, Dance>>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67639.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Sarah Connor - Freigeistin (2025) [MP3|320 Kbps] <Pop, Rhythm and Blues, Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66478.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ slo/tide - The Blur (2025) [MP3|320 Kbps] <Synthpop, Pop-Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66112.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - R&B Throwbacks 90s & 00s. 100 Classic Hits (2025) [MP3|320 Kbps] <Pop, Pop 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64963.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Bananarama - Glorious - The Ultimate Collection (2024) [MP3|320 Kbps] <Disco, Po
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63491.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Best Songs: The 70s (2023) [MP3|320 Kbps] <Pop, Rock, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61375.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - 100 Greatest Covers of All Time - Cover Versions (2024) [MP3|320 Kbps] <Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60655.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Mega Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60447.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Summer Party - Beach Evergreens (2024) [MP3|320 Kbps] <Pop, Dance, Club, Ho
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58770.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Little Big - Lobster Popstar (2024) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58134.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Sandra - The Platinum Collection (2009) 3 CD [OGG Vorbis|480 Kbps] <Electronic, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55131.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - 100% Hits: DJ Hits '97 Vol. 1 (1997) [OGG Vorbis|480 Kbps] <Electronic, Reg
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54888.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - 100% Hits: DJ Hits '97 Vol. 3 (1997) [OGG Vorbis|480 Kbps] <Electronic, Reg
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54767.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - DJ Hits 31 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54254.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - DJ Hits Vol. 32 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurod
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54250.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ VA - DJ Hits 33 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54133.jpg" />
 </div>
 
 

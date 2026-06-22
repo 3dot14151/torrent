@@ -1,3 +1,263 @@
+###  Публикация: 1613758   (59340) от 18.04.2024
+
+Open Transport Tycoon Deluxe / OpenTTD (2004) [Ru/Multi] (14.0) License GOG
+
+>>Win Старые Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Open Transport Tycoon Deluxe – это экономический симулятор с элементами стратегии в режиме реального времени. Геймеру предстоит взять под своё управление крупнейшую компанию. Основная задача игры заключена развитии своего транспортного предприятия. Его реформация осуществляется за счёт заработка денежных средств. Игрок получает прибыль за перевозку грузов и пассажиров. (   Читать дальше...   )Тип издания: LicenseРазработчик: OpenTTDЖанр: Strategy (Manage, Busines, Real-time)Язык субтитров: Русский, Английский, Белорусский, Датский и другиеЯзык интерфейса: Русский, Английский, Белорусский, Датский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:433F5A333CBCBAE89E32F79F07736BF7BD51FEB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717763   (58882) от 22.04.2024
+
+X2 The Threat: New Life / X2 Угроза: Новая жизнь (2003) [Ru] (1.5/1.3.1) Repack/Mod aL
+
+>>Win Старые Игры
+>>Simulation (Flight/Space)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действия игры происходят спустя двадцать лет после событий игр Beyond the Frontier и X-Tension в том же самом мире, во Вселенной X. Игрок по-прежнему может играть в любом предпочитаемом стиле — просто летать по космосу, выполнять миссии, проходить сюжет, воевать, торговать, покупать и строить станции, фабрики и получать с них доход. Перечисленные варианты можно и (   Читать дальше...   )Тип издания: Repack/ModРазработчик: EgosoftЖанр: Add-on (Standalone), Simulator (Space), 3D, Privateer, TraderЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85775887C7D0377247180A98FD678AFDB465DDB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718442   (58580) от 25.04.2024
+
+Jazz Jackrabbit (1994) [En] (2.0_csv2_patch_2/dlc) License GOG [Collection]
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте Jazz Jackrabbit! Маленький зайчик с очень большой пушкой - отправляется спасать свою возлюбленную зайчиху-принцессу Еву Длинноух от Девана Шелла и его террористов. Джазу предстоит пройти шесть эпизодов, каждый из которых включает три мира, ради спасения принцессы, славы и, хотелось бы надеяться, обретения девушки. Вас ждет увлекательное и динамичное приключение-платформер (   Читать дальше...   )Тип издания: LicenseРазработчик: Epic GamesЖанр: Приключение, Экшны, ПлатформерЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C9ACFB7445A3DD28FF3E9FBFFEBCCB011A4F1FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538972   (58413) от 27.04.2024
+
+Darklight conflict (1997) [Ru] (1.0) Repack Pilotus
+
+>>Win Старые Игры
+>>Simulation (Flight/Space)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы все живём на своей уютной планете и даже не подозреваем, какая в Галактике идёт война. Это грандиозное столкновение космических интересов двух великих рас - Рептонов и Овонов. Идёт война уже много столетий. В космических боях даже самые совершенные компьютеры боевых космолётов с самого начала конфликта так и не смогли эффективно функционировать, и их быстро пришлось (   Читать дальше...   )Тип издания: RepackРазработчик: Rage SoftwareЖанр: SimulationЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23FD3DBE9DA042158B8A820696E0EB8908C90FA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718998   (58276) от 28.04.2024
+
+XCOM: Area 51 (2016) [Ru/En] (0.971) Repack/Mod AndyFox
+
+>>Win Старые Игры
+>>AddOn/DLC/Mod для Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскрываем заговоры и боремся изо всех сил против засилья инопланетных оккупантов. Интересная модификация со сложной судьбой. Почти на финале доработки автор вдруг выпилил тему с обновлениями, запретил распространять модификацию, и окуклился. Тем не менее, перед нами последняя доступная версия, вполне играбельная и проходимая полностью.Тип издания: Repack/ModЖанр: Strategy, Turn-based, Sci-fiЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EF21135CBAD7AA409DF444D7B353FA85979B7CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719589   (58096) от 30.04.2024
+
+XPiratez - Labyrinthus Noctis (2024) [Ru/En] (N8) Repack/Mod AndyFox
+
+>>Win Старые Игры
+>>AddOn/DLC/Mod для Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58096.jpg" />
+</div>
+
+
+###  Подробнее
+
+2601-й год. Земля давно завоёвана инопланетянами. Вы управляете бандой девиц-пираток-мутанток. Грабьте инопланетян и их шестёрок ради развлечения, прибыли и власти.Тип издания: Repack/ModЖанр: Strategy, Turn-based, Sci-fiЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92B1772CDA82379A0F5B1BB4AF777DACBFD4A167
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719640   (58083) от 30.04.2024
+
+Medieval II (2): Total War (2006) [Ru/Multi] (1.52/dlc) Scene PROPHET
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возглавьте свою армию и завоюйте мир в Total War: MEDIEVAL II, четвертой игре знаменитой серии стратегических игр Total War. Ведите масштабные 3D-битвы с участием до 10 000 кровожадных бойцов на эпических полях сражений, будучи правителем величайших средневековых государств Западной Европы и Ближнего Востока. В это беспокойное для Западного мира время сражайтесь (   Читать дальше...   )Тип издания: SceneРазработчик: CREATIVE ASSEMBLY, Feral Interactive (Mac), Feral Interactive (Linux)Жанр: СтратегииЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE8DE3A917720E68E087BEFAA1B23BE643404059
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719415   (58082) от 30.04.2024
+
+X-Com: From the Ashes (2022) [Ru/En] (0.1.0.3) Repack/Mod AndyFox
+
+>>Win Старые Игры
+>>AddOn/DLC/Mod для Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время инопланетного вторжения инициатива X-COM провалилась, инопланетные агенты проникли в ряды большинства крупных правительств, и в течение нескольких месяцев стали марионеточными. Истинные мотивы инопланетян остаются неясными. Их враждебная деятельность умело скрывается от общественности. Нет никакой поддержки со стороны Совета финансирующих наций, а члены (   Читать дальше...   )Тип издания: Repack/ModЖанр: Strategy, Turn-based, Sci-fiЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3541E1739DA9884E3EADAD54F6197A5B4B6FBE9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719579   (58044) от 30.04.2024
+
+Xeno Operations Legacy (2024) [Ru/En] (0.97.06) Repack/Mod AndyFox
+
+>>Win Старые Игры
+>>AddOn/DLC/Mod для Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед нами переосмысление сюжета нетленной классики 1990-х с новыми возможностями. Улучшенное оформление и переработанный пользовательский интерфейс как в геолокации и управлении базой, так и при эвакуации из боевой обстановки, почти каждый экран был изменён. Ввиду того, что модификация на английском языке, и не локализовалась - есть не переведённые на русский язык (   Читать дальше...   )Тип издания: Repack/ModЖанр: Strategy, Turn-based, Sci-fiЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2463F004C7A0C5442754CCD0D8C7B38B2604A68D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551069   (57033) от 10.05.2024
+
+Legend of Ahssun / Легенда об Ахссуне (2018) [Ru/Multi] (1.2) Mod
+
+>>Win Старые Игры
+>>AddOn/DLC/Mod для Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полностью новый сюжет, не связанный с миром Готики. Изменению подверглись оригинальные предметы, умения и навыки, огромное количество текстур и моделей - растительности, брони, оружия, нпс и монстров.Тип издания: ModРазработчик: Piranha BytesЖанр: Adventure, RPG, 3D, 3rd PersonЯзык озвучки: НемецкийЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93C2F4E250355481565BC6F0EAED0F794EC16A0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724258   (56096) от 19.05.2024
 
 Warcraft II: Battle.net Edition / Военное ремесло 2: Боевое издание (1999) [Ru/En] (2.02.4/dlc) Repack dixen18
@@ -6,7 +266,7 @@ Warcraft II: Battle.net Edition / Военное ремесло 2: Боевое 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56096.jpg" />
 </div>
 
 
@@ -32,7 +292,7 @@ Warcraft 3: Expansion Set / Военное Ремесло 3: Расширенн�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56089.jpg" />
 </div>
 
 
@@ -58,7 +318,7 @@ Wolfenstein 3D (1992-2020) [En] (2.01.2020) Repack/Mod 1nomok [Beyond the Grave:
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55967.jpg" />
 </div>
 
 
@@ -84,7 +344,7 @@ Alpha Prime (2007) [Ru/En] (1.3) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55966.jpg" />
 </div>
 
 
@@ -110,7 +370,7 @@ Red Faction (2001) [Ru/En] (1.21) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53893.jpg" />
 </div>
 
 
@@ -136,7 +396,7 @@ TimeShift (2007) [Ru/Multi] (1.02) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53784.jpg" />
 </div>
 
 
@@ -162,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53587.jpg" />
 </div>
 
 
@@ -188,7 +448,7 @@ Tension / Тургор (2008) [Ru] (1.01) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53236.jpg" />
 </div>
 
 
@@ -214,7 +474,7 @@ Startopia (2001) [Ru/En] (1.0) Unofficial
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53171.jpg" />
 </div>
 
 
@@ -240,7 +500,7 @@ Freedom Force vs. the Third Reich (2005) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53135.jpg" />
 </div>
 
 
@@ -266,7 +526,7 @@ Freedom Force (2002) [En] (1.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53117.jpg" />
 </div>
 
 
@@ -292,7 +552,7 @@ The I of the Dragon / Глаз дракона (2002) [Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52480.jpg" />
 </div>
 
 
@@ -318,7 +578,7 @@ Robbo Millennium (2000) [Pl] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51799.jpg" />
 </div>
 
 
@@ -344,7 +604,7 @@ Manhunt (2004) [Ru] (1.1) Repack R.G. ReCoding
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49669.jpg" />
 </div>
 
 
@@ -370,7 +630,7 @@ Agatha Christie: Evil Under the Sun / Агата Кристи: Зло под С�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49388.jpg" />
 </div>
 
 
@@ -396,7 +656,7 @@ FlatOut (2005) [Ru/Multi] (1.01) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49232.jpg" />
 </div>
 
 
@@ -407,266 +667,6 @@ FlatOut (2005) [Ru/Multi] (1.01) Repack dixen18
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:915F7C450D78154FA8A86C10A39DF5D086FB24F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740033   (48305) от 31.07.2024
-
-Street Racing Syndicate (2005) [Ru/En] (1.1) Repack Decepticon
-
->>Win Старые Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Street Racing Syndicate - аркадная гонка, включающая свободную игру и кампанию с динамичными погонями от копов. Гонять предстоит на улицах Лос-Анджелеса, Майами и Филадельфии. Легальные гонки будут проходить днем. В ночное время суток игрок участвует в нелегальных заездах, в которых есть возможностью делать ставки. Полицейские при этом на чеку и просто так спуску (   Читать дальше...   )Тип издания: RepackРазработчик: EutechnyxЖанр: Racing, ArcadeЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13E278397866AFD07ABFE18324F0EF9F91A7BD14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740349   (48109) от 02.08.2024
-
-FlatOut 2 (2006) [Ru/Multi] (1.2) Repack FitGirl
-
->>Win Старые Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Примите участие в незабываемых гонках: виляя по трассе, вы будете разбивать ограждения, взрывать стенки из шин, раскидывать по всей дороге бочки с водой, сбивая другие машины. А если кто-нибудь, включая вас, попадет в серьезную аварию, расслабьтесь и наблюдайте, как пилот впечатляюще катапультируется через лобовое стекло.Тип издания: RepackРазработчик: Bugbear EntertainmentЖанр: Arcade, Racing (Cars), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E20D83D132EA7A894292FB0FA681A9C27C1A02F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 213893   (48033) от 03.08.2024
-
-Недетские сказки (2003) [Ru] (1.0) Unofficial
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой парень по имени Иван (как впоследствии выясняется, не такой уж и простой) в результате ряда невероятных событий попадает из современного мира компьютеров, мобильных телефонов, Интернета и виагры в сказочную среду русских народных преданий. Однако там не все так благополучно, как раньше! Засилье иностранной культуры не обошло стороной и мир русских народных (   Читать дальше...   )Тип издания: UnofficialРазработчик: Сатурн+Жанр: КвестЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCDAAB868A51E8E07EBFAE497ECD1E80F97F8C2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740812   (47972) от 03.08.2024
-
-Flatout (2005) [Ru/Multi] (1.01) Repack FitGirl
-
->>Win Старые Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разнесите все в щепки! Уникальной отличительной особенностью FlatOut является недостижимый ранее уровень реализации физической модели. Заграждения разносятся на куски, ряды шин по бокам трасс разлетаются во все стороны, канистры с водой и бочки отскакивают и наносят повреждения другим машинам. При потере управления автомобилем вы почувствуете всю его массу и инерцию, (   Читать дальше...   )Тип издания: RepackРазработчик: Bugbear EntertainmentЖанр: Arcade, Racing, 3D, CarsЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7629B250FB2ECC401CC02586CED2C120973E4F14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740896   (47872) от 04.08.2024
-
-realMyst (2000) [En] (1.11) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ремастированная версия самой продаваемой приключенческой игры Myst. Теперь со свободным движением на 360°, улучшенными анимациями и многими другими вещами! Именно так создатели этой игры хотели, чтобы она выглядела с самого начала! Поэтому погасите свет, включите колонки и приготовьтесь к одному из самых захватывающих и сюрреалистичных впечатлений в вашей жизни!Тип издания: LicenseРазработчик: Cyan WorldsЖанр: Adventure, Puzzle, Mystery, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ED9BBB88A6DA080D6EBA9F119B6DDB92EFEC688
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741647   (47563) от 07.08.2024
-
-Deer Avenger 4: The Redneck Strikes Back / Месть Оленя 4 (2001) [Ru/En] (1.0) Unofficial
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый уважающий себя чукча знает, что олень - это не только ценный мех или околохвостовый филей, но также рога, копыта и даже жилы, которыми так удобно скреплять фигвамы и прострачивать мокасины. Хотя нет, жилы у медведей. А мокасины, если не ошибаюсь, присущи скорее заокеанским любителям огненной воды , чем их отечественным аналогам. Впрочем, ну их. Лучше признайтесь (   Читать дальше...   )Тип издания: UnofficialРазработчик: HypnotixЖанр: ActionЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CBCD9B9D33E143C355D5D64F85C787149A48BC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742198   (47305) от 10.08.2024
-
-STAR WARS: Battlefront (2015) [Ru/Multi] (1.0.7.64833) Repack FitGirl
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Star Wars: Battlefront 2015 – космический шутер, основанный на событиях одноименной вселенной. Сюжет разворачивается в то же время, игроку доступны все эпичные битвы, когда-либо происходившие в галактике: баталия на снежной планете Хот, сражение в лесах Эндора, оборона Татуина и прочие военные действия, повлиявшие на ход истории. Бейтесь на земле или садитесь за (   Читать дальше...   )Тип издания: RepackРазработчик: DICE, DICE Los AngelesЖанр: Action, ShooterЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D35C325A2CD7AF1E8A89FD0119E94B7C49BC2AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742123   (47273) от 10.08.2024
-
-Hexen: Beyond Heretic (1995) [En] (1.1) License GOG
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hexen: Beyond Heretic - фэнтезийный шутер от первого лица, разработанный компанией Raven Software и изданный id Software в 1995 году. Он является прямым продолжением первой игры серии, Heretic. Пока эльф-сидхе Корвус сражался со злыми силами Д'Спарила, два оставшихся Змеиных Всадника были заняты тем, что сеяли семена разрушения в других измерениях. Будучи воином, (   Читать дальше...   )Тип издания: LicenseРазработчик: Raven SoftwareЖанр: Action, FPP, FantasyЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28C43F2F18FA8F493C508D2BF22B2EE6EE274241
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743320   (46758) от 15.08.2024
-
-Unreal 2: The Awakening (2003) [Ru/En] (build 2001) Repack dixen18
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы Джон Далтон, бывший морпех, а ныне маршал Земной колониальной администрации. Ваша задача – патрулировать границы освоенного человечеством космоса. Спокойная служба заканчивается, когда вы принимаете сигнал бедствия и отправляетесь навстречу самому удивительному приключению в своей жизни. Пока вы спокойно несли свою вахту, начался серьезный межпланетный конфликт, (   Читать дальше...   )Тип издания: RepackРазработчик: Legend Entertainment Company, Epic GamesЖанр: Шутер, От первого лица, ФантастикаЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E46258E4C2666BF54CB4DFBC78CDD82EB3F27886
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743959   (46428) от 18.08.2024
-
-Nancy Drew: Secret of the Scarlet Hand / Нэнси Дрю: Тайна алой руки (2002) [Ru] (1.0) License Новый Диск
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сокровища Майя станут главной причиной проблем у героини в игре «Нэнси Дрю. Тайна Алой Руки», где её пригласили на подготовку выставки в музее «Бич-Хилл». Она расположен в Вашингтоне, и сюда придут высокопоставленные чиновники и просто много горожан, потому что про эти племена уже все СМИ говорят. И тут привозят старый артефакт истории в виде монолита, который должен (   Читать дальше...   )Тип издания: LicenseРазработчик: HeR InteractiveЖанр: Квесты, Приключенческие игрыЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B35F3118A9111DFDB0F6B1CA9977D64B316E3A24
 ```
 
 https://mybot314.ru/tekegram_catalog/

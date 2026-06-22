@@ -1,3 +1,29 @@
+###  Публикация: 916119   (591335) от 07.07.2015
+
+BBC: Зараженный. Жизнь с паразитами / Unfested! Living With Parasites (2014) SATRip ("Видеофильм ТВ")
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Паразиты. У большинства людей они просто вызывают омерзение. Даже слово - паразит - оскорбление. Может паразиты и отвратительны, но для Майкла Мосли они уникальны. Их жизненный цикл поразителен. Мало кто на Земле сравнится с ними по умению приспосабливаться. Чтобы больше узнать об этих удивительных созданиях, Майкл сознательно заразит себя различными видами паразитов, (   Читать дальше...   )Производство: Великобритания, BBC, Science ProductionЖанр: ДокументальныйРежиссер: Натан УильямсПеревод: Одноголосый закадровый, профессиональный (Фильм озвучен компанией "Видеофильм ТВ")Продолжительность: 00:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3E940A4D4C5AA09B69EFE8FECE303E5A4231D26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1301053   (587015) от 09.05.2019
 
 BBC: Дикая Африка и Маленькие гиганты / Wild Africa & Tiny Giants (2014 -2015) BDRemux [H.264/1080p] (2 части) [EN / EN Sub]
@@ -6,7 +32,7 @@ BBC: Дикая Африка и Маленькие гиганты / Wild Africa 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587015.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585586.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ BBC: Голубая планета / The Blue Planet (2001) [DVDRip] [8 сери
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_585582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_585582.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ BBC: Галапагосы / Galapagos (2006) HDTVRip [720p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_584600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_584600.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ BBC: Прогулки с чудовищами / Walking with Beasts (2001) 2хDV
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_584590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_584590.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ BBC: Мир природы. Бабочки. Британская страсть 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583811.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ BBC: Секреты Рейха. Тайны нацизма / BBC: Secrets of Worl
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_582557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_582557.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ BBC: По странам и континентам: Южная Америка, �
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_582547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_582547.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580913.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ BBC. Планета людей - Арктика / Human planet - Arctic (2011) H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580799.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ BBC. Освенцим (Аушвиц): Нацисты и «Окончательн
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579798.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ BBC: Как искусство сотворило мир / How Art Made the Worl
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_579698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_579698.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ BBC: Всемирная история живописи / Sister Wendy’s Story
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_579620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_579620.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ BBC: 80 чудес света / Around the World in 80 Treasures (2005) 5хDVD9 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_579619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_579619.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ BBC: Встреча с Ураном / Horizon. Uranus Encounter (1986) VHSRip [E
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578927.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ BBC. Снежные медведи / Snow Bears (2017) DVB [H.264]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577995.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ BBC: Мир природы. В поисках легенды – чёрный л
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_577820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_577820.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577115.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ BBC: Мир природы: Снежный Барс / BBC: Natural World: Snow L
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_576761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_576761.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ BBC: Борьба за жизнь / Fight for Life (2007) 3хDVD5
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_576673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_576673.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ BBC: Разум человека (Лабиринты мозга) / The Human Min
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_576643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_576643.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ BBC. Большое австралийское приключение (Викт�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575910.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ BBC: Выдающиеся женщины ХХ столетия. Уоллис С�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574891.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ BBC: Выдающиеся женщины ХХ столетия. Мадам Ча�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574721.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ BBC: Дикие животные: Завоевание мегаполиса / Wi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574138.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ BBC: Дикие животные: Завоевание мегаполиса / Wi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CE590E1DAD4079E7B0920CDA07BCA4572705A26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 110851   (573140) от 26.07.2015
-
-BBC: Сверхчеловек (6 серий из 6) / BBC: Superhuman (2001) [DVD9 + DVD5]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_573140.jpg" />
-</div>
-
-
-###  Подробнее
-
-___Документальный сериал ВВС "Сверхчеловек" раскроет перед зрителем секреты человеческого тела, его способности к обновлению и регенерации после перенесенных тяжелых болезней, травм и увечий. Впервые в истории человек не только восхищается способностями своего организма к самоизлечению, но и может управлять ими, совершенствуя, таким образом, саму природу. (   Читать дальше...   )Жанр: ДокументальныйРежиссер: Джудис БантингПеревод: Одноголосый закадровый, профессиональныйЯзык субтитров: Русские, отключаемыеПродолжительность: 04:51:38  (6 x ~ 00:48:33)
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

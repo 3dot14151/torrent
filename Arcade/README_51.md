@@ -1,3 +1,55 @@
+###  Публикация: 1757589   (39019) от 28.10.2024
+
+Finding Frankie (2024) [Ru/Multi] (1.0.0) Scene Tenoke
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39019.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Finding Frankie вас приглашают принять участие в безумном и жутком паркур-шоу под управлением Фрэнки. Обходите опасных персонажей так, чтобы они вас не заметили, проходите полосы препятствий, прыгайте и бегайте по непростым трассам. Такое шоу вы точно не захотите пропустить!Тип издания: SceneРазработчик: Finding Frankie TeamЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EB903DBE4E1FB4939244EADB065C3F7C5BE08DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757850   (38849) от 30.10.2024
+
+[REDACTED] (2024) [Multi] (1.0) Scene Rune
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Динамичный рогалайт в жанре экшн с элементами хоррора, который погружает вас в темные коридоры тюремного комплекса, расположенного на одной из лун Юпитера. В этом аду наяву, после вспышки вируса, обычные заключенные превратились в жестоких монстров, и вы, как один из выживших охранников, должны прорваться через толпы врагов и найти единственный выход.Тип издания: SceneРазработчик: Striking Distance StudiosЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий, Японский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1C5C7ABB04CD09811FDF0C62E5B38B9452E1467
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1757941   (38832) от 30.10.2024
 
 Brotato (2022) [Ru/Multi] (1.1.3.0/dlc) Repack seleZen
@@ -6,7 +58,7 @@ Brotato (2022) [Ru/Multi] (1.1.3.0/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38832.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Deadly Days (2019) [Ru/Multi] (1.7.0f2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38807.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Jujutsu Kaisen: Cursed Clash (2024) [Multi] (20240925/dlc) Scene Tenoke [Ultimat
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38776.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Vampire Survivors (2021) [Ru/Multi] (1.12.105/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38627.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Guilty Gear -Strive- (2021) [Multi] (1.40/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38558.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Ashes of the Union (2024) [Ru/Multi] (Patch #7 Hotfix) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38534.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Voidwrought (2024) [Ru/Multi] (0.27.56) Scene Tenoke [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38336.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Monster High Skulltimate Secrets (2024) [Multi] (1.12) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38308.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Voidwrought (2024) [Ru/Multi] (0.27.56) Repack FitGirl [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38284.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Chicken Run (2000) [Ru/Multi] (1.0) Repack 1nomok
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38165.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Air Raid: This Is Not a Drill! (2003) [Ru/En] (1.0/dlc) Repack 1nomok
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38157.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ SOS OPS! (2023) [Ru/Multi] (05.11.2024/dlc) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37969.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Heart of Darkness (1998) [Ru/En] (1.1) Repack Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37841.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Beat Hazard 3 (2024) [Ru/Multi] (1.028) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37832.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Zombie Flick / 僵尸快打 (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37696.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Call of Sentinels (2024) [Ru/Multi] (1.0.0.2) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37621.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ The Smurfs - Dreams (2024) [Ru/Multi] (0.0.18/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37525.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Valley Peaks (2024) [Multi] (1.0.8.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37467.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.4.5.593/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37461.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ OTXO (2023) [Ru/Multi] (1.106) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37031.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Tyrian 2000 (1999) [En] (3.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36987.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.4.6.596/dlc) Repack Let'sРlay [The One Wh
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36962.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ LEGO Horizon Adventures (2024) [Ru/Multi] (1.1.0.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36713.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Microsoft Bicycle Board Games (2002) [En] (2.0) License
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36695.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Bicycle Board Games - это лицензированный сборник на�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:268B7428BC3D1D3A13CB7039C44A256C0BB9890A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761577   (36634) от 21.11.2024
-
-Fall (2024) [Ru/Multi] (0.1.1) Repack FitGirl
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36634.jpg" />
-</div>
-
-
-###  Подробнее
-
-В прошлом мир был практически захвачен зомби. Вы будете играть роль командира оставшегося лагеря выживших, чтобы найти надежду для последних выживших товарищей, собрать и назначить свой специальный полицейский отряд, чтобы исследовать этот мир после апокалипсиса... В этой игре вы будете играть выжившего, путешествуя по руинам городов, захваченных зомби, исследуя (   Читать дальше...   )Тип издания: RepackРазработчик: Tan HaoxiangЖанр: Экшены, Приключенческие игры, Ролевые игры, Симуляторы, СтратегииЯзык озвучки: Английский, Китайский (упрощенный)Язык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE27F9DDB8E131E9AEC91ADF82763F05A9CCA163
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761647   (36621) от 21.11.2024
-
-The Devil Within: Satgat (2024) [Multi] (1.0) Scene Rune
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36621.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Devil Within: Satgat предлагает погрузиться в атмосферу разрушенного мира и стать последней надеждой для человечества. Ты будешь играть за загадочного восточного воина, Rip Kim, которому удалось выжить после инфекции демонической кровью. В его задачу входит найти потерявших человечность душ и помочь им покоиться в мире, но чтобы это сделать, ему придется столкнуться (   Читать дальше...   )Тип издания: SceneРазработчик: Newcore GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: Английский, КорейскийЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE79E7745E029B6C7989DB5C45371A1435CA5AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

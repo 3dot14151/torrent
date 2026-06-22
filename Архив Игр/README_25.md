@@ -6,7 +6,7 @@ Call to Arms (2018) [Ru/Multi] (1.0.0.1/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686607.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_685280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_685280.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Angry Birds Space (L/1.2.0) [En] 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685002.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Alan Wake's American Nightmare (RePack/1.01.16.9062) [Ru/En] 2012 l a1chem1st
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684997.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_684881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_684881.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Max Payne 3 (NoDVD/v1.0.0.22) 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684768.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Max Payne 3 (Repack/1.0.0.22) [Ru/En/Multi6] 2012 l cdman
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684761.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Max Payne 3 (Repack/1.0.0.22) [Ru/En/Multi8] 2012 l Seraph1
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682467.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Max Payne 3  (RePack/1.0.0.22) [Ru/En] 2012 | R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682443.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Prince of Persia: The Forgotten Sands / Принц Персии: Забытые 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_678865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_678865.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Prince of Persia: The Forgotten Sands / Принц Персии: Забытые 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_678852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_678852.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Mad Riders (RePack/1.0.1.0) [Ru/Multi6\+] 2012 l R.G. ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678788.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Gabriel Knight 3: Blood of the Sacred,  Blood of the Damned / Гэбриэл Н�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_678663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_678663.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Bang Bang Racing [En] (RePack) 2012 | Asphyxia
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678399.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.7.0-f5/dlc) SteamRip R.G. Origins [Deluxe 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678313.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Max Payne 3 (Lossless Repack/1.0.0.22) [Ru/En] + bonus 2012 l tukash
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678274.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Dead Man's Hand / Дикий Запад: Игра со смертью (P) [Ru/En
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_676931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_676931.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ F-22 Lightning 2 [En] (RePack) 1996 | RG Games (Pilotus)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_676662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_676662.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Bang Bang Racing [Multi5\-] (L) 2012 | TiNYiSO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676221.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ DiRT Showdown [Ru] (RePack/1.0u1) 2012 l Fenixx
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676031.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675909.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ The Banner Saga 2 (2016) [En] (2.30.129) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675695.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Ridge Racer Unbounded {1.12} (RePack) [Multi6\+] 2012 | SHARINGAN
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675087.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Hovertank 3D [En] (RePack) 1991 | RG game (Pilotus)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674728.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Bang Bang Racing (RePack) [Multi5\-] 2012 | R.G. ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674586.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Bang Bang Racing [Multi5\-] (P) 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674583.jpg" />
 </div>
 
 

@@ -1,3 +1,107 @@
+###  Публикация: 993627   (895674) от 05.03.2016
+
+Военная тайна с Игорем Прокопенко (2016.03.05) SATRip
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895674.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 03:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C81A6B745666B3C425C737D66585CEBDC92BB4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993993   (894151) от 06.03.2016
+
+Добров в эфире (06.03.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894151.jpg" />
+</div>
+
+
+###  Подробнее
+
+В последний час уходящей недели известный российский журналист и политолог Андрей Добров расскажет о самом интересном в стране и в мире. Самые обсуждаемые события недели. Все, о чем говорили, спорили и писали. О том, что осталось за кадром. Как все было на самом деле. Неожиданные факты. Эксклюзивные съемки. Авторские репортажи. Главные ньюсмейкеры страны. Динамично. (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D233505679D369BFC7200A83D019861E66250035
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493554   (894099) от 04.09.2021
+
+Агитпроп. Афганистан: другому - яма? (30.08.2021) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большие державы, каждая из которых опасается экономического кризиса и волнений, тянут друг у друга из рук географическую карту. Тревожно то, что в этот раз она вполне может и порваться. Слишком высоки ставки, слишком многим рискуют участники раздела, слишком слабо в каждой из стран рабочее движение, которое могло бы преградить империализму путь.Производство: Россия, Авторский блог Константина Семина «Агитация и Пропаганда»Жанр: ПолитикаСубтитры: ОтсутствуетПродолжительность: 00:25:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:571A43E13A9B84DB1F4A21C770B66958B630F0BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993921   (893780) от 06.03.2016
+
+Вести недели (06.03.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893780.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вести недели» - еженедельная итоговая информационная программа Всероссийской государственной телерадиокомпании, выходящая в эфир по воскресеньям в 20.00, с хронометражем от 1 часа 10 минут до 1 часа 30 минут. Программа «Вести недели» не имеет рубрик, но внутри неё может показываться в кратком виде фрагменты из программы «Специальный корреспондент».Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 01:32:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF98683F2F7AC040597A13177D120AFA4F8EADE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493930   (892270) от 05.09.2021
 
 Агитпроп. Некоторые любят погорячее! (05.09.2021) WEBRip [H.264/1080p-LQ]
@@ -6,7 +110,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892270.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888610.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888221.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888050.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886899.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886523.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882588.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882312.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874533.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873819.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872047.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872045.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870400.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870374.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870310.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868587.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868404.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862859.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861258.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860707.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859547.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859540.jpg" />
 </div>
 
 
@@ -568,111 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:380529DF1F2AF4CE71EB3750F488481F53A0D650
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000695   (857517) от 26.03.2016
-
-Военная тайна с Игорем Прокопенко (2016.03.26) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857517.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 03:05:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53B150FEA862F6630670CCCB98C7ABF72CB57E21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377297   (853552) от 21.04.2020
-
-Планета Вавилон. Хроники великой рецессии (2013) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мировая экономика лежит в руинах. О причинах этого не принято говорить вслух. О реальных масштабах катастрофы знают немногие. Что придет на смену цивилизации потребления? Эта система не способна сохранить стабильность, в какой-то момент она непременно рухнет. Это Вавилонская башня.
-Сенсационные прогнозы от ведущих мировых аналитиков и эксклюзивные данные в фильме-расследовании (   Читать дальше...   )Производство: Россия, ВГТРКЖанр: Документальный, экономика, финансы, расследование, аналитикаРежиссер: Виолетта СергееваЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:855E69E237F811945A9B65EEDF646C385A262E9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110730   (852026) от 03.03.2017
-
-Антизомби (24.02.2017) SATRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему Кремль испугался фильма BBC о российских фанатах футбола? Как Трамп превратился из всеобщего российского любимчика в ненавистного врага? С какой целью Россия признала паспорта "ДНР" и "ЛНР"? Какие новые фейки придумали Басурин и Ходаковский?Телекомпания: Украина, ICTVЖанр: Документальный, ТелепередачаПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06A585546B61641910DFBDFBB946DB267FE2630D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002113   (850468) от 30.03.2016
-
-Политика (2016.03.30) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850468.jpg" />
-</div>
-
-
-###  Подробнее
-
-В среду комитет по иностранным делам Верховной рады Украины поддержал инициативу о прекращении дипломатических отношений с Россией. С соответствующим предложением выступила группа украинских депутатов. В студии программы "Политика" говорят о том, каковы перспективы этой инициативы и какими могут быть последствия разрыва дипотношений, а также пытаются понять, (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 01:25:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:443589CAF1010517695C7C3ED74578F7BADA907A
 ```
 
 https://mybot314.ru/tekegram_catalog/

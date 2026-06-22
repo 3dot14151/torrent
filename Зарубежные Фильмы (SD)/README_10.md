@@ -1,3 +1,107 @@
+###  Публикация: 1850638   (1054549) от 29.01.2026
+
+Кот и пёс / Chien & chat / Cat and Dog (2024) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коты и собаки, как известно, редко ладят. Но этой парочке придется действовать сообща, чтобы вернуться к своим хозяевам и уютной жизни любимых домашних питомцев. По нелепой случайности они потерялись в аэропорту, и теперь «лучшим врагам» предстоит отправиться в опасное, но захватывающее путешествие. А тем временем их хозяева — звезда социальных сетей и профессиональный (   Читать дальше...   )Производство: Франция, Канада / Gaumont, La Station d’Animation, Mandarin Films, Multipix, TF1 Films ProductionЖанр: комедия, приключения, семейныйРежиссер: Рем КерисиАктеры: Франк Дюбоск, Рем Кериси, Филипп Лашо, Инес Рег, Артюс, Рафаэл Фужер-Ларок, Оскар Дегань, Лени Скоффи, Лоренс Лаприз, Николя МишонПеревод: Дублированный (Велес)Язык озвучки: РусскийСубтитры: Русские (Forced, Full), французские (SDH), английские - (отдельно)Продолжительность: 01:26:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2D887B691914A76BD3D352DBC6AC3647F1C5B53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850621   (1054540) от 29.01.2026
+
+Морпехи. Зов долга / Sunray: Fallen Soldier (2024) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Энди Коулман посвятил всю жизнь службе в морской пехоте. Вернувшись домой, он больше не узнаёт прежний мир. Когда его дочь умирает от наркотической зависимости, Энди становится одержимым поиском виновных и объявляет войну наркоторговцам. В этой миссии к нему присоединяются бывшие сослуживцы.Производство: Великобритания / Sunray ProductionsЖанр: боевикРежиссер: Джеймс Кларк, Дэниел ШепердАктеры: Тип Каллен, Том Ли, Люк Соломон, Стивен Блейдс, Уилл Боуден, Николас Кларк, Дэниел Дэвидс, Бен Фогг, Энди Гейтенби, Кевин ГолдингПеревод: Дублированный (Akimbo Production)Язык озвучки: РусскийСубтитры: Русские (Forced) - отдельноПродолжительность: 01:55:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7CE42E49EBFB7E50258AE2F1342E050322D483E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850701   (1054495) от 29.01.2026
+
+Пять фунтов искупления / 5lbs of Pressure (2024) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отсидев срок за убийство, Адам возвращается в свой старый район, чтобы найти сына, который не догадывается о его существовании. Но брат человека, убитого Адамом много лет назад, жаждет мести и пойдет на всё.Производство: США / Dark Dreams Entertainment, Filmology, Intrinsic Value Films, Make Things Work, Paint Night ProductionsЖанр: триллер, мелодрама, криминалРежиссер: Фил ЭллоккоАктеры: Люк Эванс, Рори Калкин, Алекс Петтифер, Руди Панкоу, Стефани Леонидас, Саванна Штейн, Зак Вайнштейн, Оливия Карратерс, Лоррэйн Барроуз, Джули СердаПеревод: Дублированный (CPI Films)Язык озвучки: РусскийСубтитры: Русские (Forced, Full) - отдельноПродолжительность: 01:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DFBFFFBD3A03FE3792CADCD9678EDE6373C800D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850716   (1054465) от 29.01.2026
+
+Вечная зима / Orok tel (2018) BDRip [H.264] [HUN / RU Sub]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054465.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1944 году солдаты забирают женщин из венгерского села. Им говорят про уборку урожая в СССР. На самом деле их высылают на работу в угольную шахту. Среди несчастных Ирэн, которая с шестилетней дочкой ждала возвращения мужа с войны. Только встреча с человеком по имени Раймунд помогает Ирэн выжить, не сломиться в адских условиях и пережить все ужасы лагеря...Производство: Венгрия / Szupermodern StúdióЖанр: драма, мелодрама, историяРежиссер: Аттила СасАктеры: Марина Гера, Шандор Чаньи, Лаура Дёбрёши, Диана Кишш, Франциска Фаркаш, Нике Курта, Акош Орос, Анико Фюр, Тибор Гашпар, Нора Диана ТакачПеревод: субтитрамиЯзык озвучки: венгерский + русскийСубтитры: русские, английскиеПродолжительность: 01:54:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D273D3809AC5F77FAFC42E045A7947CDD11F6B6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850541   (1054405) от 28.01.2026
 
 По кличке Чудак / Oddball (2015) BDRip [H.264]
@@ -6,7 +110,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054405.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054231.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054229.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054196.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054185.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054173.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053894.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053868.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053819.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053666.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053459.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053376.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053262.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053261.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053221.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053198.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053172.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053061.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053033.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052880.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052630.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052542.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C21CDABFC4314B3BA59E85E83D349CF81C2D0EFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848222   (1052515) от 16.01.2026
-
-Стооднолетний старик, который не заплатил и исчез / Hundraettaringen som smet fran notan och forsvann (2016) BDRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение истории о неугомонном старике... Сюжет фильма закручивается вокруг Аллана Карлссона, которому стукнул 101 год, но он решает отправиться в Европу для того, чтобы найти легендарный рецепт содовой. Автором этого таинственного напитка был изобретатель из бывшего СССР. Аллан когда-то был обладателем редкого рецепта, но в начале 70-х годов прошлого века тот (   Читать дальше...   )Производство: Швеция, Венгрия, США / Buena Vista International (Sweden), Film i Väst, FLX, FLX Comedy AB, Nice DramaЖанр: комедия, криминал, приключенияРежиссер: Феликс Хернгрен, Манс ХернгренАктеры: Роберт Густафссон, Ивар Викландер, Давид Виберг, Сима Ниаварани, Йенс Хультен, Светлана Родина, Эрик Штерн, Ральф Карлссон, Колин Макфарлэйн, Элинор МацуураПеревод: любительский многоголосый (GreenРай Studio), любительский двухголосый (LakeFilms)Язык озвучки: русский, шведскийСубтитры: русские (porcellus), английскиеПродолжительность: 01:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:879B612AABEB24E7E9064C78FA61E118722E45D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847784   (1052315) от 14.01.2026
-
-Мученицы / Martyrs (2008) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франция. Начало 70-х. Маленькая Люси, почти год считавшаяся пропавшей без вести, обнаружена бредущей по проселочной дороге. Ребёнок находится в состоянии сильного шока и не может рассказать о случившемся. Пятнадцать лет спустя девушка с сильным посттравматическим синдромом вламывается в загородный дом респектабельной пары среднего возраста, живущей с двумя детьми-подростками. (   Читать дальше...   )Производство: Канада, Франция / Eskwad, Wild Bunch, TCB FilmЖанр: ужасы, триллерРежиссер: Паскаль ЛожьеАктеры: Морьяна Алауи, Милен Джампаной, Катрин Беджин, Патриция Туласне, Джульетт Госселин, Ксавье Долан, Изабель Шассе, Эмили Мискджьян, Майк Шуте, Гаелль Коэн, Ани Паскаль, Джесси Пэм, Эрика Скотт, Луиз Бойсверт, Жан-Франсуа БодроПеревод: профессиональный многоголосый (R5 СP-Digital), профессиональный двухголосый (Интерфильм), авторский (Дмитрий Есарев; Вячеслав Замез)Язык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 01:39:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A55323BE69B96F20CC1A9EFDD71F11E413F07036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847630   (1052281) от 13.01.2026
-
-Траффик / Reostat / Jaful Secolului / Traffic (2024) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наталья и Джинел покидают свою небольшую румынскую деревню на Дунае, чтобы работать за границей в крупном фламандском городе. Однажды вечером, после встречи с местным жителем, на неё нападают, и Наталья просит Иту — подругу с родины, ставшую мошенницей, — помочь ей.Производство: Румыния, Бельгия, Нидерланды / Lunanime, Les Films du Fleuve, Filmgate Films, AvanpostЖанр: драмаРежиссер: Теодора МихайАктеры: Анамария Вартоломеи, Йонуц Никулаэ, Рареш Андричи, Томас Риккеварт, Мике Либанон, Джулиан Де Бакер, Макрина Бырладяну, Труус де Бур, Тим Харс, Сафак КараденизПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, румынскийСубтитры: русские (full - AI), румынскиеПродолжительность: 02:01:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D6C1EAAEA282462F4FA226BAD42B56410D8B74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847637   (1052277) от 13.01.2026
-
-Девятки / The Nines (2007) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Метафизические аспекты жизни и искусства представлены в небольших иносказательных историях. О бесшабашном актёре, находящемся под домашним арестом, которого разыгрывает циничный сосед; о телесценаристе комедий положений, ставшим участником реалити-шоу; о разработчике видеоигр, оказавшемся с семьёй в неизвестной глуши после поломки автомобиля... Авторы фильма ставят (   Читать дальше...   )Производство: США / Destination Films, Jinks Cohen CompanyЖанр: фэнтези, драма, детектив, триллерРежиссер: Джон ОгастАктеры: Райан Рейнольдс, Мелисса МакКарти, Хоуп Дэвис, Элль Фэннинг, Дэвид Денман, Октавия Спенсер, Бен Фэлкуон, Далия Салем, Джон Гэйтинс, Энди Филдер, Грег Бейн, Мартин Ю, Грегг Наман, Лорен Скафария, Джим РэшПеревод: профессиональный многоголосый (Студия Велес), профессиональный двухголосый (НТВ+), любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8949944E4DF019ED0C17ADEC72CBD98979EA1D1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

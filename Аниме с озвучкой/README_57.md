@@ -1,3 +1,82 @@
+###  Публикация: 1707420   (62742) от 16.03.2024
+
+Urusei Yatsura (2022) | Lum, the Invader Girl | Несносные пришельцы (2022) [2022-2023, TV, 23 из 23] WEBRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Токио крушат динозавры? Во всём виноват Атару Моробоши!
+Перед нами ремейк известного комедийного сериала восьмидесятых. О пришельцах, фантастических неприятностях простого школьника и любовном треугольнике! Однажды на нашу планету прибыли пришельцы О́ни и захотели поработить человечество. Однако они согласились остановить вторжение, если человек, выбранный их (   Читать дальше...   )Производство: Япония, David ProductionЖанр: приключения, комедия, романтика, пародияРежиссер: Такахаси ХидэяПеревод: AnilibriaОзвучка: Gomer, Itashi, Lupin, NeoNoirЯзык озвучки: Японский и русскийСубтитры: РусскиеПродолжительность: 23 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1440E1DD9798D8BAFF50D3F00625021D5093F01F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707543   (62564) от 18.03.2024
+
+Lookism | Лукизм [2022, ONA, 8 из 8] WEBRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пак Хён-сок — пухлый и некрасивый старшеклассник, над которым регулярно издеваются в школе. Однажды, твердо решив начать новую жизнь, парень вдруг становится подтянутым красавчиком. Заполучив способность перемещаться между двумя телами, Хён-сок пытается разобраться в причинах этого странного свойства, а также обрести самого себя.Производство: Южная Корея, Studio MirЖанр: Экшен, драма, сверхъестественное, комедияРежиссер: Ильхан КванПеревод: Михаил ПоповЯзык озвучки: Корейский и русскийСубтитры: РусскиеПродолжительность: 1-7 эпизоды - 24 мин, 8 эпизод - 30 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FB1E1DB342FA389526C0AD5AA56CA934C11A863
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690318   (62401) от 20.03.2024
+
+Пушистый рай | Isekai de Mofumofu Nadenade Suru Tame ni Ganbattemasu. | Fluffy Paradise [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двадцати семи летняя офисная работница Мидори умерла от переутомления, так и не успев насладиться всеми радостями жизни. Но вдруг перед ней появляется сам Бог и предлагает ей переродиться в ином мире. И делает он это не из жалости и не из доброты душевной, а чтобы ответить на вопрос: заслуживает ли человечество и дальше продолжать своё существование. Взамен же он (   Читать дальше...   )Производство: Япония / Студия EMT SquaredЖанр: Повседневность, фэнтезиРежиссер: Китамура ДзюнъитиЯзык озвучки: Русский (AniLibria.TV); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:359EED14D57198B7F346696445A3E46C905A99BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690553   (62208) от 22.03.2024
 
 Мгновенная смерть | Sokushi Cheat ga Saikyou Sugite, Isekai no Yatsura ga Marude Aite ni Naranaindesu ga. [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +85,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62208.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62165.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62104.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ Uchuusen Sagittarius | Spaceship Sagittarius | Искатели приключе
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62048.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ Zom 100: Zombie ni Naru made ni Shitai 100 no Koto | Zom 100: Bucket List of the
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62045.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ Girls Bravo | Браво, девушки! [2004, TV, 11 из 11] DVDRip 480p raw
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61959.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61944.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ Girls Bravo 2 | Браво, девушки! 2 [2005, TV, 13 из 13] DVDRip 480p
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61899.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61894.jpg" />
 </div>
 
 
@@ -240,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61890.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ Triage X | Искусственный отбор [2015, TV, 10 из 10 + OVA] BD
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61849.jpg" />
 </div>
 
 
@@ -292,7 +371,7 @@ Kekkon Yubiwa Monogatari | Легенда свадебных колец | Скa�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61783.jpg" />
 </div>
 
 
@@ -318,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61651.jpg" />
 </div>
 
 
@@ -344,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61577.jpg" />
 </div>
 
 
@@ -370,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61555.jpg" />
 </div>
 
 
@@ -396,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61548.jpg" />
 </div>
 
 
@@ -422,7 +501,7 @@ Akuyaku Reijou Level 99: Watashi wa Ura Boss Desu ga Maou de wa Arimasen | Зл�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61345.jpg" />
 </div>
 
 
@@ -448,7 +527,7 @@ Oroka na Tenshi wa Akuma to Odoru | Глупый ангел пляшет с де
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61343.jpg" />
 </div>
 
 
@@ -474,7 +553,7 @@ Great Pretender | Великий притворщик [2020, Web, 23 из 23] WE
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61064.jpg" />
 </div>
 
 
@@ -500,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61029.jpg" />
 </div>
 
 
@@ -526,7 +605,7 @@ Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в од
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61025.jpg" />
 </div>
 
 
@@ -552,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61023.jpg" />
 </div>
 
 
@@ -578,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61000.jpg" />
 </div>
 
 
@@ -589,84 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ACE7B381B9F109696869DE18C427139BC1A8E27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690982   (60634) от 06.04.2024
-
-Hime-sama "Goumon" no Jikan Desu | Время пытки, принцесса | Tis Time for Torture, Princess [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Принцесса-имба, закаленная в бесчисленных сражениях и изнурительных тренировках по уничтожению любого противника, захвачена армией Повелителя Демонов и должна быть казнена при помощи безжалостных пыток!Производство: Япония, студия Pine JamЖанр: комедия, фэнтезиРежиссер: Канамори ЁкоЯзык озвучки: Русский закадровый (Dream Cast), (КОМНАТА ДИДИ), (AniLibria.TV)Субтитры: Русские надписи, русские (софтсаб), Multi-10Продолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D165504D9A0461125E1C085599B745DEDE35AB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713859   (60502) от 07.04.2024
-
-Shingeki no Kyojin: The Final Season - Kanketsu-hen | Attack on Titan: Final Season - The Final Chapters | Атака титанов: Финал — Заключительная глава [2023, Special, 2 из 2] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Противостояние титанов и людей достигло апогея. Однако теперь человечество вынуждено сражаться не только с огромными созданиями, но и друг с другом. Попытка захватить первенство в этой кровавой гонке влечёт за собой цепь событий, которые способны привести мир к гибели. В один миг враг может стать союзником, а товарищ по оружию превратиться в недруга, ведь в этом (   Читать дальше...   )Производство: студия MAPPAЖанр: приключения, фэнтези, драмаРежиссер: Хаяси ЮйтироЯзык озвучки: Японский, русский (DEEP, StudioBand, NewComers)Субтитры: Русские (Crunchyroll, Firegorn Team, DEEP)Продолжительность: 1-й эп. - 61 мин., 2-й эп. - 85 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36442EC554EE1C31BFC85B7F826A1843D8B9D843
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714363   (60276) от 09.04.2024
-
-Sousou no Frieren | Sousou no Frieren | Фрирен, провожающая в последний путь [2023-2024, TV, 28 из 28] WEBRip 396p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владыка Тьмы повержен, и вместе с тем подошло к концу путешествие героя Химмеля и его отряда. Шли годы, все они разбрелись кто куда, но только эльфийке-долгожительнице Фрирен десятилетия показались мгновением, и однажды на её плечи легла тяжесть осознания того, что людской век ужасно скоротечен. В конце концов эльфийка решает во чтобы то ни стало исполнить предсмертные (   Читать дальше...   )Производство: Япония, студия Madhouse / マッドハウスЖанр: фэнтези, приключения, драма, сёнэн, мультсериалРежиссер: Сайто КэйитироПеревод: СrunchyrollЯзык озвучки: Японский и русскийСубтитры: РусскиеПродолжительность: 28 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6E68B38695775A36E0A7A25ACB28C923498CA38
 ```
 
 https://mybot314.ru/tekegram_catalog/

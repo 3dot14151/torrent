@@ -6,7 +6,7 @@ James Blake - Playing Robots Into Heaven (Endel Focus Soundscape) (2024) [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119341.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Plantoid - Terrapath (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <progressive roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119308.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Great Alone - Perception (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alter
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119306.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Graywitch - Children Of Gods (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119292.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Arcane Tales - Until Where The Northern Lights Reign (2024) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119132.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Jazzy - Constellations (Expanded) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119118.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Shujaat Khan - Maestro's Voice (2022) [FLAC 24/48|Lossless|WEB-DL|tracks] <World
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119108.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Ghost Atlas - Dust of the Human Shape (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119105.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Background Music Masters, Smooth Jazz Family Collective - Bellissimo Jazz Italia
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119103.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Code Elektro - Metal Heart (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synthwave
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119098.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Modern Witchcraft - Modern Witchcraft (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119085.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ South Of Sundays - Honey Tongue (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Al
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119078.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Kmfdm - Hyëna (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock, I
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119075.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ The Last Dinner Party - Prelude to Ecstasy (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118915.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Tyrants - Warlord (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Speed, Thrash Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118901.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA, Marco Rinaldo - Saxophonic Haven: Sexy & Smooth Jazzed Up Evening (2024) [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118769.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Love Music Zone - Sexy Valentine’s Day 2024 (2024) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118761.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Background Instrumental Music Collective - Joyful Jazz Session: Swingin' into Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118750.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Thin Lizzy - Vagabonds Of The Western World (1973) Deluxe Edition, 2023, Univers
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118574.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Bob Marley & The Wailers - One Love (Original Motion Picture Soundtrack) (2024) 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118460.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Coffee Lounge Collection, Restaurant Jazz Music Collection, Romantic Restaurant 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118292.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Background Instrumental Music Collective, Romantic Music Center, Romantic Beats 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118290.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Chill Lounge Music Zone, Jazz Music Collection Zone - Night with Red Wine: A Toa
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118264.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Il Divo - XX (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Neo-Classical, Classi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118259.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Cooking Jazz Music Academy, Instrumental Music Ensemble, Calming Jazz Relax Acad
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118254.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Elegant People and Lo Greco Bros - Stories Of Us (2024) [FLAC 24/44.1|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118251.jpg" />
 </div>
 
 

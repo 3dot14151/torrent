@@ -1,3 +1,55 @@
+###  Публикация: 1329947   (347853) от 07.10.2019
+
+Алексей Николаевич Толстой | Хромой барин (2003) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман Алексея Толстого (1882-1945) "Хромой барин" (1912) рассказывает о помещике родной для писателя Самарской губернии, склонному к разным чудачествам, о всевозможных неординарных, иногда анекдотических происшествиях. "Чудаки", рассказывает о вырождении русского дворянства начала ХХ века, написан Алексеем Толстым в период эмиграции. А. Н. Толстой (   Читать дальше...   )Жанр: КлассикаПродолжительность: 08:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6417BD8C8699B0AD8A9AFBC017E53EC2FD066CE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072250   (345708) от 16.11.2016
+
+Гилберт Кийт Честертон | Рассказы, эссе (1997) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гилберту Кийту Честертону (1874-1936) были подвластны различные жанры, но в нашей стране он известен прежде всего как автор детективных историй о патере Брауне. Перу Г.К. Честертона принадлежат также и задорные, авантюрные романы о людях смелых, веселых, азартных. Герои Г.К. Честертона покоряют своей неординарностью, стремлением вырваться из скучной обыденности и (   Читать дальше...   )Жанр: Зарубежная классикаПродолжительность: 18:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DE645617087EAC81CE92FDD8577863DB032B586
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072700   (345557) от 16.11.2016
 
 Айрис Мердок | Сон Бруно. Черный принц (2010) [MP3]
@@ -6,7 +58,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345557.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345554.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345278.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343512.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342672.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339093.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337359.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_336299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_336299.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334717.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333536.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333346.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332145.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332006.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332001.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331849.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331715.jpg" />
 </div>
 
 
@@ -433,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329988.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329986.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329926.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329763.jpg" />
 </div>
 
 
@@ -539,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328526.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328057.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327893.jpg" />
 </div>
 
 
@@ -619,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327890.jpg" />
 </div>
 
 
@@ -631,59 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCA96632EF2B6B0FAC3C2A45C7D32F80BB04E72B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 261837   (327839) от 23.11.2010
-
-Гомер | Илиада (2004) [MP3, Вадим Максимов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327839.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Илиада" - легендарная поэма в сокровищнице мировой литературы: источник идей, сюжетов, характеров в искусстве. Имя ее создателя - слепого певца Гомера - скрывается в тумане мифа. Ни время, ни место его рождения и смерти не установлены окончательно. Нет уверенности и в слепоте поэта, рассказавшего нам в мельчайших подробностях историю Троянской войны и (   Читать дальше...   )Жанр: Поэма
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC44C8E24F748E9957E4840514A52AD7436CC542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 414457   (327698) от 24.11.2011
-
-Чингиз Айтматов | Тополёк мой в красной косынке (1984) [MP3, Николай Козий]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чингиз Торекулович Айтматов (1928–2008) – киргизский писатель, писавший на киргизском и русском языках. Народный писатель Киргизской ССР (1974). Герой Социалистического Труда (1978). Лауреат Ленинской (1963) и трёх Государственных премий СССР (1968,1977,1983). Член редакционного совета «Библиотеки всемирной литературы».
-Из сборника «Ранние журавли», в повести «Тополёк (   Читать дальше...   )Жанр: Классика советской литературы, повестьИздательство: Нигде Не КупишьПродолжительность: 04:25:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC38557AE25BD83C0F543658A9371DE4F5D4409
 ```
 
 https://mybot314.ru/tekegram_catalog/

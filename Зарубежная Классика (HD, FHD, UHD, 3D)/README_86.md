@@ -1,3 +1,56 @@
+###  Публикация: 1672809   (164831) от 01.11.2023
+
+Четыре мушкетёра Шарло / Les Quatre Charlots Mousquetaires / The Four Charlots Musketeers (1974) HDTVRip [H.264/1080p]
+
+>>След.
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бессмертный роман Александра Дюма они безбожно перелопатили, превратив в бурный водопад гэгов, сопровождающих необыкновенные приключения, нет, не прославленных мушкетеров, а их верных оруженосцев.
+Оказывается, на самом деле все было так. Четверка друзей-мушкетеров, вступив в схватку с отрядом гвардейцев кардинала, была обречена на неминуемую гибель. Если бы не их (   Читать дальше...   )Производство: Франция, Les Films Christian Fechner, Renn ProductionsЖанр: комедия, приключенияРежиссер: Андре ЮнебельАктеры: Жерар Ринальди, Жерар Филипелли, Жан Саррю, Жан-Ги Фешнер, Джозефин Чаплин, Даниэль Чеккальди, Поль Пребуа, Бернард Хэллер, Карин Петерсен, Катрин Журдан и др.Перевод: Дублированный (Дубляжная группа киностудии имени М. Горького)Язык озвучки: Русский, французскийСубтитры: русские, французскиеПродолжительность: 01:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C1D9B07CDB502A974FBB684C483128083AF6E26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595089   (164706) от 16.12.2022
+
+Голубые Гавайи / Blue Hawaii (1961) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чед Гейтс увольняется из армии и возвращается на родные гавайские пляжи к друзьям и девушке. Его отец хочет, чтобы сын устроился работать в компанию, занимающуюся продажей фруктов, но Чеду больше нравится веселиться, и скучная работа ему совсем не по душе.Производство: США / Hal Wallis ProductionsЖанр: мюзикл, комедияРежиссер: Норман ТорогАктеры: Элвис Пресли, Джоан Блэкман, Анджела Лэнсбери, Нэнси Уолтерс, Роланд Уинтерс, Джон Арчер, Ховард МакНир, Стив Броди, Кристиан Кэй, Ирис АдрианПеревод: Двуголосый профессиональный (Кондор), Авторский (А. Михалёв)Язык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 01:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA13D34287BCAABCFB0CA04138F70E7846549319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1589284   (164677) от 01.11.2023
 
 Ночь живых мертвецов / Night of the Living Dead (1968) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit] [MVO]
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164677.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164651.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164409.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164184.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164163.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164108.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164075.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163751.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163686.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163192.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162832.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162652.jpg" />
 </div>
 
 
@@ -320,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162193.jpg" />
 </div>
 
 
@@ -346,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161826.jpg" />
 </div>
 
 
@@ -372,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161772.jpg" />
 </div>
 
 
@@ -398,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161142.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161110.jpg" />
 </div>
 
 
@@ -451,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160346.jpg" />
 </div>
 
 
@@ -477,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160172.jpg" />
 </div>
 
 
@@ -503,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160073.jpg" />
 </div>
 
 
@@ -530,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159811.jpg" />
 </div>
 
 
@@ -556,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159705.jpg" />
 </div>
 
 
@@ -582,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159298.jpg" />
 </div>
 
 
@@ -608,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159293.jpg" />
 </div>
 
 
@@ -619,61 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74804B3062F71CF34EA5972679F678059BF505F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595748   (158902) от 26.12.2022
-
-Это случилось однажды ночью / It Happened One Night (1934) UHD BDRip [H.265/2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дочь миллионера Элли собирается замуж за знаменитого летчика Кинга Вестли, но ее отец презирает того, считая светским бездельником, поэтому он сажает дочь под замок и ищет основания для аннулирования помолвки. Элли удается бежать и она отправляется навстречу суженому в Нью-Йорк на автобусе. В том же автобусе едет только что уволенный репортер Питер.
-
-Ему необходима (   Читать дальше...   )Производство: США, Columbia Pictures CorporationЖанр: комедия, мелодрамаРежиссер: Фрэнк КапраАктеры: Кларк Гейбл, Клодетт Колбер, Уолтер Коннолли, Роско Карнс, Джеймисон Томас, Алан Хейл, Артур Хойт, Бланш Фредеричи, Чарльз С. Уилсон, Джозеф Крехан, Оливер Экхардт, Фрэнк ХоллидэйПеревод: Многоголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:45:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ACBACED44C97B47F26C0DCBC2BAF36967D6A2E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964997   (158358) от 21.12.2015
-
-Ричард III / Richard III (1955) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великий Шекспир изобразил его чудовищем. Причисленный к лику святых Томас Мор не пожалел для него черных красок. Современный историк Десмонд Сьюард озаглавил его жизнеописание «Ричард, черная легенда Англии». Само это имя стало символом вероломства и убийства.
-Блестящая экранизация знаменитой пьесы У.Шекспира. О последнем короле из династии Йорков, безжалостном зловещем (   Читать дальше...   )Производство: ВеликобританияЖанр: Драма, военный, историяРежиссер: Лоуренс ОливьеАктеры: Седрик Хардвик, Николас Хэннен, Лоуренс Оливье, Ральф Ричардсон, Джон Гилгуд, Мэри Керридж, Памела Браун, Пол Хюсон, Стюарт Аллен, Клер Блум, Расселл Торндайк,  Норман Фишер, Эндрю Крикшэнк и др.Перевод: Двуголосый закадровыйЯзык субтитров: Русский, английскийПродолжительность: 02:38:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED54F7F8A7C92AF158CFA8B631B733C6BE1E6C84
 ```
 
 https://mybot314.ru/tekegram_catalog/

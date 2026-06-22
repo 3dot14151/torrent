@@ -1,3 +1,110 @@
+###  Публикация: 1246126   (465335) от 09.09.2018
+
+Михаил Поляков | Цикл «Записки офицера погранвойск» [3 книги] (2016-2017) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вот так едешь в тревожку ночью, мечтаешь быстрее попасть домой, дембельнуться, ну на худой конец — поймать нарушителя, а попадаешь в катакомбы откуда выхода назад нет.
+Зато есть вход на другую планету, а там полный дурдом: орда, амазонки, таинственные Зонги, мамонты, кентавры, англы, база подводных лодок, китайская стена, контакт с пришельцами, всемогущее КГБ, комбинации, (   Читать дальше...   )Жанр: Альтернативная история, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:073209DD74C6FAADA3F33C4C3F90F64BCCFF5116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196483   (465200) от 09.09.2018
+
+Виктор Мануйлов | Жернова. 1918–1953 [12 томов] (2017-2018) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465200.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Молодой человек высокого роста, с весьма привлекательным, но изнеженным и даже несколько порочным лицом, стоял у ограды Летнего сада и жадно курил тонкую папироску. На нем лоснилась кожаная куртка военного покроя, зеленые – цвета лопуха – английские бриджи обтягивали ягодицы, высокие офицерские сапоги, начищенные до блеска, и фуражка с черным артиллерийским околышем, (   Читать дальше...   )Жанр: Историческая литература, Роман-эпопеяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53A6D92A4A9700CB852E234AD33D27791DE1DDA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161960   (463645) от 30.08.2017
+
+Эйта | Васка да Ковь (2016) [FB2, EPUB]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотя рыцарь с магичкой плохо ладили, Ковь вряд ли смогла бы долго странствовать без рыцаря, ее защищающего от таких банальных и немагических существ как дорожные грабители, а изгнанный из дома братом-тираном Васка — без цели и без надежд на то, что когда-нибудь хорошенько прославится и вернется в родной замок триумфатором, заставит брата с собой считаться. Времена (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75902D840A316613034E9334438D71AD55A9A241
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161818   (463640) от 30.08.2017
+
+Александр Петрокин | Апостол Мортис (2016) [FB2, EPUB]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман из цикла: Империя: Мир Стали и Магии.
+Книга по мотивам Героев Меча и Магии и Disciples, рассказывающая о парне, который сорвался в игру, спасаясь от реальной смерти. И начал играть за жреца Мортис, основав достаточно специфический некрополис.
+Люди реально уходят в срыв, а это бессмертие, для нас полутрупов уж точно.Жанр: Боевое фэнтезиФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD16B15C9D49C79C7960CC2854A4D566DF07D896
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1161961   (463582) от 30.08.2017
 
 Эйта | Опасайся дверных ручек (2016) [FB2, EPUB]
@@ -6,7 +113,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463582.jpg" />
 </div>
 
 
@@ -33,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463571.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463486.jpg" />
 </div>
 
 
@@ -86,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463484.jpg" />
 </div>
 
 
@@ -113,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463469.jpg" />
 </div>
 
 
@@ -139,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463459.jpg" />
 </div>
 
 
@@ -166,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463237.jpg" />
 </div>
 
 
@@ -192,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462533.jpg" />
 </div>
 
 
@@ -218,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461432.jpg" />
 </div>
 
 
@@ -245,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461188.jpg" />
 </div>
 
 
@@ -271,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461059.jpg" />
 </div>
 
 
@@ -299,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461050.jpg" />
 </div>
 
 
@@ -325,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460895.jpg" />
 </div>
 
 
@@ -353,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460051.jpg" />
 </div>
 
 
@@ -379,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459632.jpg" />
 </div>
 
 
@@ -407,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459570.jpg" />
 </div>
 
 
@@ -433,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459524.jpg" />
 </div>
 
 
@@ -461,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458837.jpg" />
 </div>
 
 
@@ -489,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458641.jpg" />
 </div>
 
 
@@ -518,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458622.jpg" />
 </div>
 
 
@@ -546,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458620.jpg" />
 </div>
 
 
@@ -573,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458169.jpg" />
 </div>
 
 
@@ -584,112 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:737FFDF3EAC6087EBFE9D8902D57F4E9B517681C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162474   (456897) от 02.09.2017
-
-Евгения Лыгина | Фолиант короля Тьмы (2017) [FB2, EPUB]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что делать, если оказываешься в другом мире? Начать, например, с поиска населённого пункта, дабы выяснить: как вернуться обратно домой? Обосновавшись в королевстве Имышь, Алёна устраивается на работу, но жители быстренько выдворили её за ворота. Арэл она, и этим всё сказано. Тут как снег на голову ещё свалился фолиант короля Тьмы. А никто не говорил, что будет легко (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C88D47C433F6FC94AF3401F28D8822758629E8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162482   (456826) от 02.09.2017
-
-Тори Халимендис | Самая темная ночь (2017) [FB2, EPUB]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Странные и страшные события происходят в Бранвии. Одновременно погибают герцог и его личный маг. После повторного замужества молодой вдовы исчезает юный наследник. А в крохотной северной деревушке появляется маленькая девочка с таинственным знаком на руке…
-У повзрослевшей Лессы просыпается магический дар, и за девушкой начинается самая настоящая охота. Ее разыскивают (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AFEFB92D4ED6AA1B26A4B3B4E60486C1942C0F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162556   (456819) от 02.09.2017
-
-Neon13 | Джой Гунган (2016) [FB2, EPUB]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вокруг сияние и всполохи сменялись сгустками тьмы, игрой теней и как будто этого мало, всюду происходило всевозможное движение. Как же я хотел понять где же оказался, хотя догадки и были - жил как все - то весело, то грустно, спешил везде успеть и потому допустил немало ошибок. Вот так увлекательно и пролетела жизнь, а сейчас пребываю в виде духовной сущности на (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастикаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCBF397FAD7DD7FE97BFA7110950EC91EF047A53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162467   (456817) от 02.09.2017
-
-Бронислав Кузнецов | Права мутанта (2017) [FB2, EPUB]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Расслабленно-созерцательная поездка на броне ревущего БТРа длилась недолго.
-Не успел Веселин Панайотов с удобством расположиться у распахнутого десантного люка, вдохнуть сравнительно свежего воздуха и оглядеть унылые деревца справа от колеи, как...    - Мать твою! - вполголоса, едва слышно за шумом двигателя выругался молчаливый солдат по фамилии Шутов - и без всякой (   Читать дальше...   )Жанр: Боевая фантастикаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C59803401F9D8521F8D26DD4CDD50C44BBFC4912
 ```
 
 https://mybot314.ru/tekegram_catalog/

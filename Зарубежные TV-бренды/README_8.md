@@ -1,3 +1,29 @@
+###  Публикация: 440588   (969430) от 17.01.2016
+
+NG: Расследования авиакатастроф: Посадка на Гудзон / National Geographic: Air Crash Investigation: Landing on the Hudson (2011 (эфир от 21.01.2012)) IPTVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитая история самолета, который вскоре после взлета из-за столкновения со стаей птиц совершил аварийную посадку на воду в центре города.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A29CE1E9608D1AC38F078D1360FAC87D903EF79E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358635   (968560) от 08.02.2020
 
 BBC: Живой мир: Бегемоты - жизнь в воде / Natural World: Hippos: Africa's River Giants (2019) IPTVRip [H.264]
@@ -6,7 +32,7 @@ BBC: Живой мир: Бегемоты - жизнь в воде / Natural Worl
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968560.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968507.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968440.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ History Channel: Вселенная. Наше место в галактике �
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968316.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ BBC: Планеты. Марс / The Planets: Mars (2019) IPTVRip [H.264]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967003.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ NGW: Настоящая чёрная пантера / The Real Black Panther (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965961.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Discovery: Могучие корабли. Кентуки / Mighty Ships. USS Ken
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964754.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ BBC: Загадки истории. Мифы и герои / BBC: In Search Of M
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964515.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Discovery: 100 Величайших Открытий / Discovery: 100 Greatest D
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962804.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ BBC: Планеты. Юпитер / Nova: The Planets: Jupiter (2019) IPTVRip [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960551.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ Discovery. Река забвения / River of No Return (2019) HDTVRip [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959084.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ BBC: Чудо животного мира / Wonder of Animals (2014) HDTVRip [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958336.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ Discovery. Выжить любой ценой / Ultimate Survival (2006-2011) DV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955223.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ NG: Забытые персонажи Библии / Lost Face of the Bible (201
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955032.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955011.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 3
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954539.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Discovery: Новый Мир. Мегаполис будущего / Discovery: N
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954529.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954527.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 4
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954492.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 1
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954430.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ NGW. Дикая природа Португалии / Wild Portugal (2019) HDTV 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952119.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ NG. Дикие места Таиланда / Thailand's Wild Side (2019) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952103.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ BBC: Планеты. Сатурн / Nova: The Planets: Saturn (2019) IPTVRip [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952060.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ BBC: Саймон Шама о Рембрандте: Шедевры послед�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951812.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951806.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BF07F1E773B8B1D0318CDB81354CDC5FF0058A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981548   (951245) от 01.02.2016
-
-BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 5]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нигде не скрыться (Равнины) / Nowhere to HideВ этом выдающемся документальном сериале в деталях рассмотрены отношения между хищниками и их добычей. Вместо того, чтобы сосредотачиваться на кровавых подробностях охоты, в сериале с беспрецедентной тщательностью исследуются методы, с помощью которых хищники добывают еду, а их добыча старается избежать смерти.Телекомпания: BBC / BBC Worldwide / BBC America / CCTV9 / NDR NaturfilmЖанр: Документальный, научно-познавательный, природа, флора, фаунаПеревод: Двухголосый закадровый, профессиональный (AlexFilm)Озвучка: Владимир Курдов и Наталья ЛанцПродолжительность: 00:58:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:332CD5D68D90FBDAFFCBCBBFE070F2BF9323C904
 ```
 
 https://mybot314.ru/tekegram_catalog/

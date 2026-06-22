@@ -1,3 +1,29 @@
+###  Публикация: 843531   (2729) от 15.09.2025
+
+Discovery. Великий замысел по Стивену Хокингу / Stephen Hawking's Grand Design (2012) BDRip [H.264/1080p] [1-3 серия из 3]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2729.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом замечательном новом сериале «Великий замысел по Стивену Хокингу» самый знаменитый в мире физик предпринимает попытку раскрыть тайны, скрывающиеся за извечными вопросами человечества: Создана ли Вселенная Богом? В чем смысл жизни? Почему существует Вселенная? Увлекательно излагая свое личное видение Вселенной, выдающийся британский космолог рассматривает разнообразные (   Читать дальше...   )Жанр: Документальный, научно-популярныйПеревод: Одноголосый закадровый (профессиональный, студия "СВ-Дубль")Субтитры: вшитыеЯзык субтитров: русский, английскийПродолжительность: 3х ~00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53EB5E8F1E8E66CE40448E6BED98E0DF5FB4ED8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1820592   (342) от 28.09.2025
 
 NG: Выживание в северных лесах / Northwoods Survival (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
@@ -6,7 +32,7 @@ NG: Выживание в северных лесах / Northwoods Survival (202
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_342.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ BBC: Родительство / Parenthood (2025) WEBRip [H.264/1080p] (сезо
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94.jpg" />
 </div>
 
 

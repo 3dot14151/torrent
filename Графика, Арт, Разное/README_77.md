@@ -1,3 +1,29 @@
+###  Публикация: 924951   (542678) от 05.08.2015
+
+Картинки - Я люблю тебя до слез или Играй, гормон! 60 обоев 8К [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542678.jpg" />
+</div>
+
+
+###  Подробнее
+
+" Я люблю тебя до слез, каждый вздох как в первый раз...") Все мы это проходили - оно как болезнь, как наваждение. И уверены, что Любовь - один из величайших смыслов нашей жизни. А вот ученые поговаривают, что любовь - не более, чем химия, то бишь попросту игра гормонов в теле. И какой была бы человеческая жизнь, если б не эта гормональная зависимость? (   Читать дальше...   )Формат: JPGРазрешение файлов: 7680х4320
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E5129F098B86C9A7B81DE4F4F560FEC1BE38518
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 530548   (542034) от 05.08.2012
 
 Обои для рабочего стола авиация (1010 обоев) 2012 [Wallpapers]
@@ -6,7 +32,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542034.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541796.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541791.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541715.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интернет-творчество
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541653.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541213.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541209.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541205.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541107.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541001.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540993.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540816.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Wonderful Nature Wallpapers (77 снимков) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540750.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540470.jpg" />
 </div>
 
 
@@ -367,6 +393,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 211529   (540156) от 30.07.2017
+
+Классическое искусство - Айвазовский Иван Константинович [JPG]
+
+>>Графика, Арт, Разное
+>>Классическое искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_540156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иван Константинович Айвазовский (арм.  , Ованнес Айвазян; 17 [29] июля 1817 год, Феодосия — 19 апреля [2 мая] 1900 год, там же) — всемирно известный русский художник-маринист, баталист, коллекционер, меценат. Живописец Главного Морского штаба, академик и почётный член Императорской Академии художеств, почётный член Академий художеств в Амстердаме, Риме, Париже, Флоренции (   Читать дальше...   )Формат: JPGРазрешение файлов: 491x800 - 2299x1100
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 531752   (540037) от 06.08.2012
 
 [Графика] Галерея православных икон
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540037.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539009.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539003.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538992.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538975.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538963.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538962.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538960.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538958.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538895.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80A6A546AB6687E0FA071CB59757A6B5A7753AFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925255   (538893) от 07.08.2015
-
-Картинки - Интерьер [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Картинки интерьеровФормат: JPGРазрешение файлов: 1920x1080 - 11811x4078
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EEC08EA2E9C16C932AF6A3C52E76D759303CA10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925289   (538891) от 07.08.2015
-
-Картинки - Космос [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Картинки на космическую темуФормат: JPGРазрешение файлов: 1600x1140 - 8000x5333
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E47E5D224207E9DC1A4C58A4CCF79B2879E20627
 ```
 
 https://mybot314.ru/tekegram_catalog/

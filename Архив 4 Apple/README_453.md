@@ -1,3 +1,60 @@
+###  Публикация: 1078015   (305101) от 29.11.2016
+
+Forecast Bar 2.8.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Forecast Bar - точный прогноз погоды  Forecast.io  прямо в строке меню. С красивыми фоновыми изображениями в соответствии с текущими погодными условиями и времени суток, и всё это в  простом и понятном интерфейсе.
+
+Панель Forecast Bar, кроме информации о погоде, отображает в том числе:
+- Текущие условиях, высокие и низкие температуры, условия облачности, а также относительная (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29 ноября 2016Разработчик: Real Casual Games, LLCПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+* показания прогноза погоды можно сделать на русском (в настройках программы)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:519CE8BE543442B3F0D6CBB3D2D8CCA4F0E1EBFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261341   (305051) от 10.11.2018
+
+iMazing 2.8.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305051.jpg" />
+</div>
+
+
+###  Подробнее
+
+iMazing: отличная альтернатива iTunes
+Согласитесь, iTunes – отличный инструмент для работы с iДевайсами и медиафайлами, однако в нем чего-то не хватает. Разобраться, чего именно, решили разработчики софтины iMazing, которая не только может стать шикарной заменой «яблочному» сервису, но и неотъемлемым инструментом для полноценного функционирования вашего iPhone или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: DigiDNAПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EAE31C72BF82B1A2292C993B66117CE309D5212
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261339   (305046) от 10.11.2018
 
 ScreenFlow 8.2.1 [Multi]
@@ -6,7 +63,7 @@ ScreenFlow 8.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305046.jpg" />
 </div>
 
 
@@ -35,7 +92,7 @@ Direct Message for Instagram 3.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304974.jpg" />
 </div>
 
 
@@ -63,7 +120,7 @@ This War of Mine v.4.0.0/dlc (2014) [Multi/Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304961.jpg" />
 </div>
 
 
@@ -89,7 +146,7 @@ Rhinoceros 6 v6.19 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304957.jpg" />
 </div>
 
 
@@ -117,7 +174,7 @@ Folx Pro 5.1.13631 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304810.jpg" />
 </div>
 
 
@@ -145,7 +202,7 @@ Adobe Acrobat Pro DC 2018.009.20044 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304753.jpg" />
 </div>
 
 
@@ -171,7 +228,7 @@ SketchUp Pro 2018 v18.0.16976 [Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304746.jpg" />
 </div>
 
 
@@ -197,7 +254,7 @@ Elmedia Player PRO 6.6 (980) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304469.jpg" />
 </div>
 
 
@@ -225,7 +282,7 @@ TechTool Pro 9.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304466.jpg" />
 </div>
 
 
@@ -252,7 +309,7 @@ DaisyDisk 4.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304305.jpg" />
 </div>
 
 
@@ -279,7 +336,7 @@ Sketch 41.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304053.jpg" />
 </div>
 
 
@@ -306,7 +363,7 @@ Hands Off! 3.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304051.jpg" />
 </div>
 
 
@@ -333,7 +390,7 @@ KCNcrew Pack 11.15.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303611.jpg" />
 </div>
 
 
@@ -361,7 +418,7 @@ iA Writer 5.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303600.jpg" />
 </div>
 
 
@@ -387,7 +444,7 @@ File Juicer 4.80 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303558.jpg" />
 </div>
 
 
@@ -415,7 +472,7 @@ File Cabinet Pro 7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303557.jpg" />
 </div>
 
 
@@ -441,7 +498,7 @@ Record Lectures 3.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303555.jpg" />
 </div>
 
 
@@ -469,7 +526,7 @@ AirMail 3 v3.6.72 (556) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303551.jpg" />
 </div>
 
 
@@ -497,7 +554,7 @@ Noise Machine 1.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303549.jpg" />
 </div>
 
 
@@ -523,7 +580,7 @@ Big Mean Folder Machine 2 v2.40 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303433.jpg" />
 </div>
 
 
@@ -551,7 +608,7 @@ WiFi Scanner 2.9.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303428.jpg" />
 </div>
 
 
@@ -577,7 +634,7 @@ DeskCover 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303426.jpg" />
 </div>
 
 
@@ -606,7 +663,7 @@ MacX Video Converter Pro 6.4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303418.jpg" />
 </div>
 
 
@@ -633,7 +690,7 @@ Tweetbot for Twitter 2.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303409.jpg" />
 </div>
 
 
@@ -647,63 +704,6 @@ Tweetbot - клиент Twitter для Mac. Этот полнофункцион�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EF60593C3FD00F9191FE3ECA1604BF229C93D1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184024   (303339) от 16.11.2017
-
-Things 3.2.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
-
-«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15 ноября 2017Разработчик: Cultured CodeПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD1A7B04A3149972EDF6F5C355D2571D166DFA78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184226   (303336) от 16.11.2017
-
-Lyn 1.9.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lyn - просмотрщик и браузер изображений
-Легкий, быстрй и удобный просмотрщик изображений, созданный в первую очередь для фотографов, иллюстраторов и графических дизайнеров.
-
-Lyn поддерживает все популярные графические форматы такие как JPEG, TIFF, JPEG 2000, PNG, TGA, RAW, HDR, OpenEXR, PPM, анимированный GIF и любой другой формат изображения, поддерживаемый Mac (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16 ноября 2017Разработчик: Mirko VivianiПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F0727C2CF191F4BD778B17A3D840E479D6156E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

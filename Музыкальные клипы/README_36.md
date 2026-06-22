@@ -1,3 +1,229 @@
+###  Публикация: 595602   (131338) от 30.12.2012
+
+Шоу Элементы: Модель для сборки (2002) VHSRip - Ёжик в тумане
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шоу "Элементы: Модель для сборки" на национальном музыкальном канале Муз-ТВ.
+
+МДС представляет собой литературно-музыкальный симбиоз, состоящий из лучших произведений зарубежной и российской литературы, современной прозы, преимущественно фантастического жанра, в сопровождении музыкального ряда в стилях современной электроники: даун-темпо, эмбиента, трип-хопа, (   Читать дальше...   )Жанр: Музыка, Видеоарт, ЛитератураРежиссер: Влад Копп, Андрей Кильдеев (DJ Incognito), Михаил Габович, Наталья УрманПродолжительность: 1:32:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD663638B7E5286DBAA54038955601493229C04A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596468   (131325) от 30.12.2012
+
+SaBo-FX - Erotic (Final Countdown 2012 remake) [H.264/720p] (2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Название песни: EroticЖанр: Музыка, PopПродолжительность: 00:05:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38D485740F7C6A1CEEF927366546A232E3B9A4F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596859   (130968) от 31.12.2012
+
+Progressive Rock - Rock Legends (2003) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка клипов выступлений классиков прогрессивного рока.01. John Wetton - Starless
+02. Rick Wakeman - Catherine Parr
+03. Focus - Eruption
+04. Emerson, Lake and Palmer - Barbarian
+05. Curved Air - Vivaldi
+06. Family - The Weaver's Answer
+07. Barclay James Harvest - Poor Man's Moody Blues
+08. Steve Hackett - Clocks
+09. Soft Machine - Tale of Taliesyn
+10. Van der Graaf Generator - Theme One(   Читать дальше...   )Жанр: Музыка, RockАктеры: Rick Wakeman, Focus, Barclay James Harvest, Steve Hackett, Uriah Heep,and more.Продолжительность: 01:27:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FBD2FBC4CD93B5C0201F22B34668703FD1FE51E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596674   (130751) от 31.12.2012
+
+Дискотека Авария - Ноги-ноги (2012) [H.264/720p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Музыка, PopПродолжительность: 00:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE2E707027A7DB6CE50CE7AF91A9647B31D9C710
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573254   (126163) от 25.12.2023
+
+Алиса - Видеоколлекция (2008) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126163.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Али́са» — русская рок-группа, образованная в 1983 году в Ленинграде.
+По опросам Ромир, «Алиса» входит в десятку самых популярных рок-групп России1.Экспериментатор
+2.Мое поколение
+3.Мы вместе
+4.Время менять имена(   Читать дальше...   )Жанр: Музыка, РокПродолжительность: 01:51:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4669268989BB1ED015D38D1AA756B3F69FBA1A48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 169818   (117747) от 14.02.2024
+
+Запрещенное к показу на ТВ видеоклипы / Banned, Uncensored & Uncut Music Videos (2009) Screener
+
+>>След.
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117747.jpg" />
+</div>
+
+
+###  Подробнее
+
+2Pac - All About You (Uncensored Version).mpg
+2Pac - How Do You Want It (XXX Version).mpeg
+50 Cent - Disco Inferno (DVDSCR Uncensored).mpg
+50 Cent - ft G Unit - My Buddy (Uncensored Version).mpg(   Читать дальше...   )Жанр: +18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5BF60F68B5ADCB4A34AEF9D48A7223768B8C442
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698879   (116952) от 18.02.2024
+
+Scooter - Video collection - Chapter 1 (1994 - 1997) DVDRip [H.264/1080p-LQ] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список всех клипов группы за первую главу их творчества вместе с видео-комментариями.Производство: ГерманияЖанр: Techno, Happy HardcoreРежиссер: Eric Will, Rainer Thieding, Russel Curtis, Rainer Thieding, Robert BröllochsАктеры: H.P. Baxxter, Rick J. Jordan, Ferris BuellerПеревод: ОтсутствуетСубтитры: РусскиеПродолжительность: 00:53:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAC3DAD53AB6E80B4DDE0A1E582009B8C0AE8CFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702436   (114690) от 02.03.2024
+
+Scooter - Video collection - Chapter 2 (1998 - 2002) DVDRip [H.264/1080p-LQ] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник всех клипов группы за вторую главу их творчества вместе с видео-комментариями.Производство: ГерманияЖанр: Techno, Happy HardcoreРежиссер: Rainer Thieding, Patric Ullaeus, Marc Schoellermann, Michael MenkeАктеры: H.P. Baxxter, Rick J. Jordan, Axel CoonПеревод: ОтсутствуетСубтитры: РусскиеПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2309B4AB907C105C065C499149623CF5BDDB6EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709199   (112227) от 02.04.2024
 
 Scooter - Video collection - Chapter 4 (2007-2012) DVDRip, WEBRip [H.264/1080p-LQ] [hand made Upscale AI]
@@ -6,7 +232,7 @@ Scooter - Video collection - Chapter 4 (2007-2012) DVDRip, WEBRip [H.264/1080p-L
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112227.jpg" />
 </div>
 
 
@@ -32,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110936.jpg" />
 </div>
 
 
@@ -58,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110779.jpg" />
 </div>
 
 
@@ -87,7 +313,7 @@ Dessar - Кошмар (посв. студентам РГГУ) (2024) WEBRip [H.2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109798.jpg" />
 </div>
 
 
@@ -116,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107668.jpg" />
 </div>
 
 
@@ -142,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107541.jpg" />
 </div>
 
 
@@ -168,7 +394,7 @@ Rihanna feat. Mikky Ekko - Stay (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102713.jpg" />
 </div>
 
 
@@ -194,7 +420,7 @@ B.o.B feat. Hayley Williams of Paramore - Airplanes (2010) WEB-DLRip [H.265/2160
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101555.jpg" />
 </div>
 
 
@@ -220,7 +446,7 @@ Alicia Keys feat. Kendrick Lamar, Pharrell Williams - It's On Again (2014) WEB-D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101553.jpg" />
 </div>
 
 
@@ -246,7 +472,7 @@ Coldplay - A Sky Full Of Stars (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101549.jpg" />
 </div>
 
 
@@ -272,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_98968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98968.jpg" />
 </div>
 
 
@@ -298,7 +524,7 @@ INNA - WOW (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_98957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98957.jpg" />
 </div>
 
 
@@ -324,7 +550,7 @@ Alexandra - Mowisz Mi, Ze Przepraszasz (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_97249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_97249.jpg" />
 </div>
 
 
@@ -350,7 +576,7 @@ Celia ft. Shaggy - Dame (2011) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94904.jpg" />
 </div>
 
 
@@ -376,7 +602,7 @@ Dekolte - Без тебя (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94209.jpg" />
 </div>
 
 
@@ -402,7 +628,7 @@ Best of Mtv / Mtv 2012 (2012) 720p 1080p WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88840.jpg" />
 </div>
 
 
@@ -431,7 +657,7 @@ Nightwish- Призрак оперы / Nightwish-Phantom of the opera (2006)[720
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87461.jpg" />
 </div>
 
 
@@ -457,7 +683,7 @@ Basshunter - Saturday (Uncensored) (2012) [H.264] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86964.jpg" />
 </div>
 
 
@@ -468,214 +694,6 @@ Basshunter - Saturday (Uncensored) (2012) [H.264] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A69E401FA02594BB1F3A6F6C16BEAB2B430A38D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479494   (86899) от 07.04.2012
-
-Jennifer Lopez ft. Pitbull - Dance Again (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86899.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance, Rap, Hip-hopПродолжительность: 00:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EAC9FC51D40B07A45C93B655B94050A711A8D84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479058   (86807) от 06.04.2012
-
-Видеоклипы International Performers in 2011 DVD-5 vol. 05 Пиратская Вечеринка 4.35Gb
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуется
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F46CC9EC22787ECB5ABD9764FC77CF714022A1B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478632   (86507) от 05.04.2012
-
-Deepside Deejays, Jus Jack, Dada & Sandy Rivera - Lollipop (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_86507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:05:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA85C8410D7E8609FA6298BC4C6CB5536261C638
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478098   (86322) от 04.04.2012
-
-Видеоклипы International Performers in 2011 DVD-5 vol. 04 Пиратская Вечеринка 4.36Gb
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуется
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1D85EDF089B6E41644ADB75A4272D2CE9E52C9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477653   (86121) от 03.04.2012
-
-Видеоклипы International Performers in 2011 DVD-5 vol. 03 Пиратская Вечеринка 4.28Gb
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуется
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:196D6FF2E9F6EE96E2797E922EA28696D09EF43D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477147   (85945) от 02.04.2012
-
-Видеоклипы International Performers in 2011 DVD-5 vol. 02 Пиратская Вечеринка 4.25Gb
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуется
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81E181F0D66E1FC8E4F68E0E20857137AA4EC9E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477199   (85890) от 02.04.2012
-
-Никита - Прости (Uncensored) (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_85890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:251B090A077C905DBAE2C9DCB85B3B530F7E0FAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476396   (85752) от 01.04.2012
-
-Видеоклипы International Performers in 2011 DVD-5 vol. 01 Пиратская Вечеринка 4.35Gb
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуется
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:308B6A76FEB2C578831193D2598865C581F9C58C
 ```
 
 https://mybot314.ru/tekegram_catalog/

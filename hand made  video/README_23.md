@@ -1,3 +1,29 @@
+###  Публикация: 1620279   (1032209) от 19.03.2023
+
+Девчата (1961) BDRip [H.265/2160p] [Колоризованная версия] [hand made Upscale AI]
+
+>>След.
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совсем молоденькая девчонка-сирота из детского дома поступает работать поварихой на лесоповал и влюбляется в самого удалого, раскрасивого и популярного ударника труда и отдыха в исполнении народного любимца Николая Рыбникова. Он спорит на меховую шапку, что завладеет сердцем симпатичной малютки, но сам попадает в плен любви.Производство: СССР / МосфильмЖанр: мелодрама, комедияРежиссер: Юрий ЧулюкинАктеры: Надежда Румянцева, Николай Рыбников, Люсьена Овчинникова, Инна Макарова, Светлана Дружинина, Нина Меньшикова, Станислав Хитров, Николай Погодин, В. Байков, Анатолий Адоскин...Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 1:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F76DCE5AD1170A8017723B8ACF7E3774CBF92E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 648570   (1032203) от 19.03.2023
 
 Командир счастливой "Щуки" (1972) DVDRip [DivX/720p-LQ] [hand made Upscale] [Полная реставрация]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032203.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032199.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031506.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031487.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030355.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029911.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ ENIGMA MCMXC a.D. (2003) DVDRip [H.264/1080p-LQ] [handmade remastered upscale AI
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029887.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029513.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028033.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027940.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027480.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026669.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025904.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025055.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024997.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023984.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022363.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022054.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021722.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021293.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020301.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019624.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019061.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018709.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1018357.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E7A0D2CEE6B503C26825C5513BBD9AB9F80B1D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466888   (1018219) от 01.05.2021
-
-Иллюзия полета / Flightplan (2005) HybridRip [H.264/720p-LQ] [Open Matte]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время авиарейса Берлин-Нью-Йорк, выполняемого сверхсовременным «Боингом-747», у Кайл Пратт неожиданно бесследно пропадает 6-летняя дочь Джулия. Переживая эмоциональный стресс после безвременной кончины мужа, Кайл отчаянно пытается доказать свою вменяемость не верящим ей членам экипажа и пассажирам. Однако ситуация выглядит настолько абсурдной и фантастичной, что (   Читать дальше...   )Производство: США / Imagine Entertainment, Touchstone PicturesЖанр: боевик, триллер, драма, детективРежиссер: Роберт ШвенткеАктеры: Джоди Фостер, Питер Сарсгаард, Шон Бин, Кейт Бихан, Яна Колесарова, Майкл Ирби, Марлен Лоустон, Ассаф Коэн, Эрика Кристенсен, Грета Скакки, Шейн Эдельман, Мэри Галлахер, Хейли РэммПеревод: ДублированныйСубтитры: Русские (forced, full), английскиеПродолжительность: 01:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6DE4F6A1600E9E7C08CAE57754CCCFC164DCFDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071701.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kyoushoku Soukou Guyver (2005) | Guyver: The Bioboosted Armor | Гайвер: Б
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070782.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Mahou Shoujo ni Akogarete | Становясь волшебницей [2024, TV,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070001.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Elfen Lied | Эльфийская песнь [2004, TV 13 эп. + SP] BDRip 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069102.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ School Days | Школьные дни [2007, TV 12 эп. + OVA 1-2] BDRip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068956.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Lupin the IIIrd the Movie: Fujimi no Ketsuzoku | Люпен III: Бессмер�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066797.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Gochuumon wa Usagi Desuka?? | Is the Order a Rabbit?? | Кролика зака�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065356.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Gochuumon wa Usagi Desuka? Bloom | Is the Order a Rabbit? Bloom | Кролика
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065054.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064083.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064082.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064081.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Hitoribocchi no Isekai Kouryaku | Нападение одиночки на ин�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064080.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Yofukashi no Uta Season 2 | Call of the Night Season 2 | Песнь ночных
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063392.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Virgin Punk | Невинный панк [2025, Movie] BDRip HEVC 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063178.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Watashi ga Koibito ni Nareru Wake Nai jan, Muri Muri! (*Muri ja Nakatta!?) | У 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062560.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061107.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059742.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Sidonia no Kishi | Knights of Sidonia | Рыцари Сидонии [2014, TV, 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058504.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Sidonia no Kishi: Daikyuu Wakusei Seneki | Knights of Sidonia: Battle for Planet
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058503.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Kamui no Ken | The Dagger of Kamui | Кинжал Камуи [1985, Movie] BDRip
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058339.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Shuumatsu no Harem | World's End Harem | Гарем конца света [2021,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056847.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Dead Leaves | Мёртвые листья: Звёздная тюряга [2004, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055922.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Slayers Premium | Первосортные Рубаки [2001, Movie] BDRip 1064
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055391.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055362.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055233.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Isekai Meikyuu de Harem o | Harem in the Labyrinth of Another World | Гарем
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054898.jpg" />
 </div>
 
 

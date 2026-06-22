@@ -6,7 +6,7 @@ Summer Wars | Летние Войны [2009, Movie] DVDRemux 480p raw+rus
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1945.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Toki o Kakeru Shoujo | The Girl Who Leapt Through Time | Девочка, пок�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1819.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hoshi o Ou Kodomo | Children Who Chase Lost Voices from Deep Below | Ловцы 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1608.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Hoshi o Ou Kodomo | Children Who Chase Lost Voices from Deep Below | Ловцы 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1588.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Kotonoha no Niwa | Сад слов | The Garden of Words | Сад изящных
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1580.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Kotonoha no Niwa | Сад слов | The Garden of Words | Сад изящных
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1567.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Kaizoku Oujo | Fena: Pirate Princess | Фена: Принцесса пирато
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1305.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Fermat no Ryouri | Fermat Kitchen | Готовка Ферма [2025, TV, 11 из
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1031.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Da Yu Hai Tang | Big Fish & Begonia | По ту сторону океана [201
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_962.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Kaze Tachinu | The Wind Rises | Ветер Крепчает [2013, Movie] DVD9 5
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_778.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Kaijuu no Kodomo | Children of the Sea | The Sea Monster's Children | Дети �
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_777.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Ookami Kodomo no Ame to Yuki | Wolf Children | Волчьи дети Амэ и �
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_760.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Da Yu Hai Tang | Big Fish & Begonia | По ту сторону океана [201
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_241.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Kaijuu no Kodomo | Children of the Sea | The Sea Monster's Children | Дети �
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59.jpg" />
 </div>
 
 

@@ -1,3 +1,90 @@
+###  Публикация: 1192767   (262759) от 18.12.2017
+
+Bananarama - True Confessions (1986) Reissue, 1988, London Records [FLAC|Lossless|image + .cue] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. True Confessions (5:20)
+ 02. Ready Or Not (3:55)
+ 03. A Trick Of The Night (4:41)
+ 04. Dance With A Stranger (4:32)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10EBAFF9DC894844221B3A715B62F648249EF9A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341155   (262582) от 27.11.2019
+
+Grimes - Miss Anthropocene (2020) [FLAC|Lossless|tracks] <Synthpop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Heavy I Fell Through the Earth (Art Mix) (06:08)
+02. Darkseid (ft. 潘PAN) (3:44)
+03. Delete Forever (03:57)
+04. Violence (ft. i_o) (03:40)(   Читать дальше...   )Жанр: Synthpop, Indie PopПродолжительность: 00:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:476B759E690C53AED5E2372F8E3EA15ECE179B45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341526   (262344) от 28.11.2019
+
+Harlem Voices - Singing (1996) [FLAC|Lossless|image + .cue] <Funk / Soul, Gospel, Cover>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All for love (4:44)
+02. Back for good (4:00)
+03. You've got a friend (4:29)
+04. '74-75 (3:48)(   Читать дальше...   )Жанр: Funk/Soul, Gospel, CoverПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08311AB0751228D4377C62A21AE4FD3431FF1353
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193455   (262134) от 21.12.2017
 
 Brunori Sas - A Casa Tutto Bene (2017) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
@@ -6,7 +93,7 @@ Brunori Sas - A Casa Tutto Bene (2017) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262134.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Faydee - Patterns (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, House>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261797.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Kelly Clarkson - Meaning Of Life (2017) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261758.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ VA - 90s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261677.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ VA - 20s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260557.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Tina Turner - Good Hearted Woman (1979) Remaster, 2025, Explore Rights Managemen
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260055.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Foster The People - Torches (2011) [FLAC|Lossless]<Indie Pop, Alternative>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256991.jpg" />
 </div>
 
 
@@ -215,7 +302,7 @@ VA - 10s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256323.jpg" />
 </div>
 
 
@@ -244,7 +331,7 @@ VA - Fresh Pop Hits 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255933.jpg" />
 </div>
 
 
@@ -273,7 +360,7 @@ Melanie Martinez - Portals (2023) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255510.jpg" />
 </div>
 
 
@@ -302,7 +389,7 @@ VA - timeless love tunes (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255301.jpg" />
 </div>
 
 
@@ -331,7 +418,7 @@ Elton John - Japanese Collection (11 CD Original Mastering) (1988 - 2006) [FLAC|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252096.jpg" />
 </div>
 
 
@@ -360,7 +447,7 @@ Sparks - 26 albums, 3 singles, 56 CD (1972-2023) [FLAC|Lossless|image + .cue] <A
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251913.jpg" />
 </div>
 
 
@@ -389,7 +476,7 @@ Backstreet Boys - A Very Backstreet Christmas (Deluxe Edition) (2022)(2025) [FLA
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251912.jpg" />
 </div>
 
 
@@ -418,7 +505,7 @@ Kristian Torgalsen - 2 Albums (2023-2025) [FLAC 24/44.1, FLAC 24/96|Lossless|WEB
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250972.jpg" />
 </div>
 
 
@@ -447,7 +534,7 @@ Mylene Farmer - 86-97 Mylene Farmer (2025) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250966.jpg" />
 </div>
 
 
@@ -476,7 +563,7 @@ VA - 70s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250936.jpg" />
 </div>
 
 
@@ -505,7 +592,7 @@ VA - 00s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250850.jpg" />
 </div>
 
 
@@ -534,7 +621,7 @@ VA - 80s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250587.jpg" />
 </div>
 
 
@@ -563,7 +650,7 @@ VA - 90s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250572.jpg" />
 </div>
 
 
@@ -592,7 +679,7 @@ Lily Allen - West End Girl (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Rock,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250471.jpg" />
 </div>
 
 
@@ -621,7 +708,7 @@ Digital Emotion - Digital Emotion & Outside In The Dark (1984, 1985) 2002, Break
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249563.jpg" />
 </div>
 
 
@@ -650,7 +737,7 @@ Tom Jones - Greatest Love Songs (2003) [APE|Lossless]<Soul, Rock, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248473.jpg" />
 </div>
 
 
@@ -670,99 +757,6 @@ Tom Jones - Greatest Love Songs (2003) [APE|Lossless]<Soul, Rock, Pop>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 258410   (246063) от 26.03.2022
-
-Laid Back - Good Vibes - The Very Best Of Laid Back (2008) 2CD [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maybe I'm Crazy
-02. Sunshine Reggae
-03. High Society Girl
-04. White Horse
-05. Elevator Boy
-06. One Life
-07. I'm Hooked
-08. It's A Shame
-09. Bakerman
-10. Highway Of Love(   Читать дальше...   )Жанр: PopПродолжительность: 02:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49EE7CAD665E29F3F652D73A6940B43F5E769248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623311   (246020) от 01.04.2023
-
-Whitney Houston - I Go to the Rock: The Gospel Music of Whitney Houston (2023) [FLAC|Lossless|image + .cue] <Pop, Soul, Gospel>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Безошибочно узнаваемый голос Whitney Houston мощный и неподвластный времени. Она достигла вершины популярности и успеха, став одной из самых опытных исполнителей всех времен. Но ее сердце было отдано gospel'у, стилю который повлиял на всю ее карьеру. Познакомьтесь с той стороной Whitney, которая присуща самой ее душе, с выпуском I Go to the Rock: The Gospel Music (   Читать дальше...   )01. I Go To The Rock (4:05)
-02. Jesus Loves Me (5:12)
-03. He Can Use Me (4:54) (Previously Unreleased)
-04. Joy to the World (4:41)(   Читать дальше...   )Жанр: Pop, Soul, GospelПродолжительность: 01:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6173D805159D66B11F2F2C699F13419C1FDC0F42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620224   (245838) от 19.03.2023
-
-Mylene Farmer - Libertine (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Libertine
-02. Sans contrefaçon (Girl Remix)
-03. L'instant X
-04. Déshabillez-moi(   Читать дальше...   )Жанр: PopПродолжительность: 00:26:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB466C5194AA12F94A10DDBF4C5ADED2F0894CC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

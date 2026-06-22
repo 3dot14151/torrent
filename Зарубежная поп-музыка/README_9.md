@@ -6,7 +6,7 @@ Arabesque - The Magic of Arabesque (2016) [MP3|320 kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918959.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - 80's Gold (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917231.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Mimi Page - Breathe Me In (2012) [MP3|320 кб/с] <Alternative Pop, Dream Pop, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917151.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Mimi Page - The Ethereal Blues (2015) [MP3|320 кб/с] <Alternative Pop, Dream 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917110.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Roxette - Charm School (2011) [MP3|320 kbps]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916491.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Tom Jones - Hide & Seek (The Lost Collection) (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915658.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ VA - I Love Power Ballads (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913941.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VA - All Acoustic (2021) [MP3|320 Kbps] <Pop, RnB, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910699.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Adam Lambert - VELVET (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909211.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Anarchic System - 3 Albums (1974, 1975) [MP3|320 Kbps] <Electronic, Pop Rock, Po
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909186.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ I Santo California - Greatest Hits (2006) [MP3|320 Kbps] <Pop, Ballad>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909084.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Frédéric Mercier - 3 Albums (1978-1986) LP [MP3|320 Kbps] <Electronic, Ambient
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908606.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - In The Club 2017.1 (2017) [MP3|320 Kbps] <House, Dance, Electronic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908575.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ VA - Pop Classics (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907485.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ VA - Twelve Inch Eighties: When the Going Gets Tough (2017) [MP3|320 Kbps] <Pop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907180.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ VA - 30 Stars: Love (2017) [MP3|320 Kbps] <Roots Rock, Alternative, Electro Soul
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907074.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ VA - Die Neue Schlagerparade 2020 [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905699.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Joy - 4 Albums (1986-2011) Collection 2LP+2CD [MP3|320 Kbps] <Electronic, Europo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903356.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Dua Lipa - Future Nostalgia (2020) [MP3|320 Kbps] <Synthpop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903255.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ ABBA - I Still Have Faith In You, Don't Shut Me Down (2021) (Single) [MP3|320 Kb
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893698.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Karizma Duo - Unplugged (2017) [MP3|320 Kbps] <Pop, Acoustic, Covers>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892935.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Anya Marina - Paper Plane (2016) [MP3|320 кб/с] <Alternative Pop, Indie Pop, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891595.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ VA - All Time Joy Classics Volume 1-3 (2011-2015) [MP3|320 кб/с] <Pop, Soul, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891310.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Patrick Remy - Constellations (1981) LP [MP3|320 Kbps] <Electronic, Synth-pop, D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891165.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ VA - Best Songs of 2021 So Far [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890774.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ Wax - American English (1987) [OGG|453-489 кб/с] <New Wave, Pop Rock, Synth P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889782.jpg" />
 </div>
 
 

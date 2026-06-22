@@ -1,3 +1,81 @@
+###  Публикация: 1845612   (1050795) от 02.01.2026
+
+Temple of the Green Moon / Храм Зеленой Луны (2025) [Ru/En] (1.0) Repack seleZen
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет развивается вокруг известного блогера, заядлого скептика, который решает отправиться на Жигулёвские горы, чтобы разоблачить мифы об аномальных зонах. Все, что ему интересно – это высмеять и опровергнуть все эти слухи и сказки. Но что, если таинственные силы и загадочные обстоятельства повергнут его в реальность, которой он никогда не смел даже предполагать?Тип издания: RepackРазработчик: OLKON GAMESЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D551528952D99B1AEF28FB201E6AD33E1430BD01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845613   (1050794) от 02.01.2026
+
+Temple of the Green Moon / Храм Зеленой Луны (2025) [Ru/En] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет развивается вокруг известного блогера, заядлого скептика, который решает отправиться на Жигулёвские горы, чтобы разоблачить мифы об аномальных зонах. Все, что ему интересно – это высмеять и опровергнуть все эти слухи и сказки. Но что, если таинственные силы и загадочные обстоятельства повергнут его в реальность, которой он никогда не смел даже предполагать?Тип издания: RepackРазработчик: OLKON GAMESЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE02BADCE6AA7D00D985E48792EAE2D8A5A2C2A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845081   (1050525) от 29.12.2025
+
+Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 21053667) Repack HardwareMining [Enhanced]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Senua's Saga: Hellblade 2 - продолжение ролевого экшена про кельтскую воительницу Сенуа. События сиквела переносят в Исландию, а история напрямую продолжает предыдущую часть. Основная идея игры состоит в том, чтобы показать свое видение шаманизма нордических земель. Игра опирается на кельтскую и скандинавкую мифологии. В центре истории героиня предыдущей части - (   Читать дальше...   )Тип издания: RepackРазработчик: Ninja TheoryЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38F5FB7A716725C5F9D490001A75EB841F318028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845117   (1050496) от 30.12.2025
 
 Bendy and the Dark Revival (2022) [Ru/Multi] (1.0.4.0332) Repack Let'sРlay
@@ -6,7 +84,7 @@ Bendy and the Dark Revival (2022) [Ru/Multi] (1.0.4.0332) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050496.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Mai: Child of Ages (2025) [Ru/Multi] (1.09) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050366.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ As Dusk Falls (2022) [Ru/Multi] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050210.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ The House in Fata Morgana (2016) [Ru/Multi] (1.3it) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049861.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Fuzz Dungeon (2021) [En] (1.3c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049848.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ JEF (2020) [En] (1.1c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049833.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Rue Valley (2025) [Ru/Multi] (1.1.0v11/dlc) Repack Necros [Digital Deluxe Editio
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049797.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Heroes of Loot 2 (2016) [En] (1.5.2b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049641.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Panicore (2024) [Ru/Multi] (1.3) Repack FitGirl [Supporter Pack]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049438.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Panicore (2024) [Ru/Multi] (1.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049437.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Uncanny Tales: 1992 (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049409.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Fragile Reflection (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049395.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Mourningwood Lodge / 欢迎来到林葬屋 (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049394.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Misty Judgment / 迷雾审判 (2025) [Multi] (1.0) Scene TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049393.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Altheia: The Wrath of Aferi (2025) [Ru/Multi] (1.005) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049375.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ The Artifact Protocol (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049373.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Dead In Bermuda (2015) [Ru/Multi] (1.1c v2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049372.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Gravewood High (2021) [Ru/Multi] (1.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049371.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Altheia: The Wrath of Aferi (2025) [Ru/Multi] (1.005) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049370.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Dead Reset (2025) [Ru/Multi] (build 19945272) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049369.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Escape the Backrooms (2022) [Ru/Multi] (1.2510) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049279.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ SUFFOCATE (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049278.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Simon the Sorcerer Origins (2025) [Ru/Multi] (1.0.1.10242025.58358/dlc) Repack F
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049275.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Simon the Sorcerer Origins (2025) [Ru/Multi] (1.0.1.10242025.58358/dlc) Repack F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0357E804A925C3C0AB542B38A90EB8395EEC1137
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843618   (1049274) от 21.12.2025
-
-Cubic Odyssey (2025) [Ru/Multi] (1.2.0.2) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправься в бескрайний мир, где ты можешь изменить каждую планету, каждую систему и каждый миг. Исследуй вселенную, полную жизни, древних тайн и нетронутых красот. Дай отпор Красной тьме, собирая ресурсы и создавая инструменты, оружие и транспорт, без которых не обойтись в этой одиссее. Объединись с друзьями и сразись с гигантскими противниками, чтобы подарить надежду (   Читать дальше...   )Тип издания: LicenseРазработчик: Atypical GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:626D3AB1D8D8CD6DE6D3B473DDC98479CB5D1CF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843309   (1049230) от 19.12.2025
-
-The Berlin Apartment (2025) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Малик получает заказ на ремонт старой берлинской квартиры. Но есть загвоздка: с собой приходится взять любознательную дочку, которая никак не может усидеть на одном месте. Диляра исследует квартиру и узнаёт о её предыдущих жильцах, время от времени натыкаясь на принадлежавшие им вещи. С каждой находкой Малик рассказывает дочке новую историю - со своими героями, сюжетом (   Читать дальше...   )Тип издания: RepackРазработчик: btfЖанр: Приключенческие игры, ИндиЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:239A44704CBD2E646FE465BE8B6D3CCCA198DCEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843300   (1049228) от 19.12.2025
-
-Grand Theft Auto V (5) Enhanced (2025) [Ru/Multi] (1.0.889.22) Repack HardwareMining
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы провести серию дерзких ограблений и выжить в большом неприветливом городе, уличному ловчиле, вышедшему на пенсию грабителю банков и вселяющему ужас психопату приходится работать с самыми страшными и безумными преступниками, шоуменами и госслужащими Западного побережья. Игроки на PC могут перенести прогресс сюжетного режима GTAV, а также созданных персонажей (   Читать дальше...   )Тип издания: SceneРазработчик: Rockstar NorthЖанр: Экшены, Приключенческие игры, ГонкиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5926B127C1649B4F5922B59C13376A57DBC7F23
 ```
 
 https://mybot314.ru/tekegram_catalog/

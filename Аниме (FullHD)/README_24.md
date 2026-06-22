@@ -6,7 +6,7 @@ Teekyuu | Теннис [2012, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707579.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Teekyuu 7 | Теннис 7 [2016, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707576.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Fukigen na Mononokean | The Morose Mononokean | Обитель мрачного 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707572.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Teekyuu 8 | Теннис 8 [2016, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707533.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Teekyuu 9 | Теннис 9 [2017, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707522.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Project K: Missing Kings | К: Пропавшие короли [2014, Movie] BDr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706741.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Shigatsu wa Kimi no Uso / Your Lie in April / Твоя апрельская ло
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706394.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Short Peace: Buki yo Saraba | Gambo | Hi no Youjin | Tsukumo [2012-2013, MV, 4 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705829.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Koutetsujou no Kabaneri | Kabaneri of the Iron Fortress | Кабанери из 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704473.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Hello!! Kin`iro Mosaic | Hello!! Golden Mosaic | Привет!! Золотая �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703837.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Sakura Quest | Квест на фоне сакуры [2017, TV, 25 из 25] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703540.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703100.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Omoide no Marnie / When Marnie Was There / Воспоминания о Марн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702756.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Yama no Susume: Second Season | Encouragement of Climb: Second Season | В го�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701942.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Endride | Эндрайд | Скиталец Эндры [2016, TV, 24 из 24] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701578.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ B-Project: Kodou Ambitious | Проект Б: Амбициозное биени�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699706.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ B-Project: Zecchou Emotion | B-Project: Zeccho*Emotion | Проект Б: Кул
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699704.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Isekai Maou to Shoukan Shoujo no Dorei Majutsu | How Not to Summon a Demon Lord 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699159.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698026.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Girls und Panzer Gekijouban | Girls und Panzer der Film | Девушки и та
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697696.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696895.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Gakusen Toshi Asterisk | The Asterisk War | Войны Астериска [2015,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696587.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Crusher Joe / Крушила Джо - Фильм [1983, Movie] BDRip 1080p HEVC 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694954.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Hotarubi no Mori e / To the Forest of Firefly Lights / В лес, где мер�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693345.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ JoJo no Kimyou na Bouken: Stardust Crusaders - Egypt Hen | Невероятны�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692093.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Kenpuu Denki Berserk | Berserk | Берсерк [1997, TV, 25 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691920.jpg" />
 </div>
 
 

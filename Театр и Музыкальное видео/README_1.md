@@ -1,3 +1,55 @@
+###  Публикация: 1859368   (1060999) от 15.03.2026
+
+Crematory - Born (2026) WEBRip [H.265/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкие легенды готик-метала Crematory выпустили свой новый сингл, который получил название "Born". Композиция стала одной из четырех новых песен из сборника "Greatest Hits", релиз которого состоится 15 мая 2026 года на лейбле Reigning Phoenix Music.Жанр: Gothic MetalПродолжительность: 00:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:332661DF1CFB71092F441776A0C77A4310114E95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859256   (1060810) от 15.03.2026
+
+Baby DONT Cry - Shapeshifter (2026) WEBRip [H.265/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: Южная КореяЖанр: KpopПродолжительность: 00:03:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E103F3DEC6B79714CE2B55E6F5892FC089E0AC7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859272   (1060807) от 15.03.2026
 
 Квартирник у Маргулиса. Рубеж Веков (14.03.2026) WEBRip [H.264/1080p]
@@ -6,7 +58,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060807.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ Madein - Pung! (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060477.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ RESCENE - BamBamBam (The First Night With The Duke OST) (2025) WEBRip [H.265/216
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060461.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ NiziU - Emotion (2025) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060460.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ First Love (CSR) - Сборник клипов (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060459.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ ILLIT - Сборник клипов (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060458.jpg" />
 </div>
 
 
@@ -169,7 +221,7 @@ Girls' Generation - FOREVER 1 (2022) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060441.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059992.jpg" />
 </div>
 
 
@@ -224,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058361.jpg" />
 </div>
 
 
@@ -250,7 +302,7 @@ Gary Moore - AVO session Basel  (2008) SATRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058325.jpg" />
 </div>
 
 
@@ -279,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057980.jpg" />
 </div>
 
 
@@ -308,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057718.jpg" />
 </div>
 
 
@@ -334,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057489.jpg" />
 </div>
 
 
@@ -365,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057124.jpg" />
 </div>
 
 
@@ -394,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055026.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053904.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053333.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050841.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050213.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ Baby DONT Cry - I DONT Care (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049897.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ Alice - Dance On (2022) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049896.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049885.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049562.jpg" />
 </div>
 
 
@@ -643,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048522.jpg" />
 </div>
 
 
@@ -657,61 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12A948CD61888897187B0740750484C3EEEA7F78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841811   (1048328) от 13.12.2025
-
-Andrea Bocelli: The Celebration 30th Anniversary (2025) BDRemux [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Съёмки проходили в театре «Театр тишины» в Лаятико в течение трёх вечеров в 2024 году и приурочены к 30-летию его творческой деятельности. Это уникальное событие, которое случается раз в жизни, представит звезду классической музыки Андреа Бочелли в его родной Тоскане вместе со звёздным составом специальных гостей, исполняющих песни, ставшие основополагающими в его (   Читать дальше...   )Производство: Германия / Mercury Studios, Impact Productions, Almud, CitySound & EventsЖанр: Rock, Pop, Classical, Stage & ScreenРежиссер: Sam WrenchАктеры: Andrea Bocelli, Jon Batiste, Veronica Berti, José Carreras, Sofia Carson, Russell CroweПеревод: отсутствуетЯзык озвучки: английскийСубтитры: отсутствуютПродолжительность: 02:30:52 + 01:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49108A3854507A6A3412CD9FC7F5E9C76D4761BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840776   (1047448) от 07.12.2025
-
-Квартирник у Маргулиса. Андрей Державин. 40 лет вдохновения (06.12.2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вместе с друзьями в 1985 году Андрей Державин основал музыкальную группу «Сталкер». Уже в 1986-м они выпустили дебютный магнитоальбом «Звёзды», после чего коллектив был принят в штат республиканской филармонии и отправился на гастроли по всей стране. Музыка группы — узнаваемый сплав мелодичного поп-рока и синтезаторной поп-музыки конца 80–90-х. В 1990-м композиция (   Читать дальше...   )00:00:01 Та, которая уходит в дождь
-00:09:15 Я хочу не помнить зла
-00:16:00 Журавли
-00:23:48 Когда ты уйдешь(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: рок, попЯзык: РусскийПродолжительность: 01:22:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12079B64CD6FEAC42EB49CC4446BDAC98E74D034
 ```
 
 https://mybot314.ru/tekegram_catalog/

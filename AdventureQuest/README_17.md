@@ -1,3 +1,107 @@
+###  Публикация: 997567   (872961) от 17.03.2016
+
+Shelter 2: Mountains (2015) [Ru/Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shelter 2: Mountains – DLC, в котором вам предстоит пережить снежные будни в образе матери-рыси. В игре Shelter 2 вам предстоит влиться в семью пушистой и милой рыси, которая борется за выживание в дикой природе. Растите рысят, учите их охотиться и осваивайте просторные заснеженные степи новой игровой зоны в DLC Mountains. И соблюдайте осторожность, ведь превратиться (   Читать дальше...   )Тип издания: LicenseРазработчик: Might and DelightЖанр: Adventure, 3DЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E85CD0BC2A44D0C4DA7C21514E4936981B13EA73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373029   (872167) от 10.04.2020
+
+In Other Waters (2020) [En] (1.0.2) License GOG (обновляемая)
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872167.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Эллери Вас, ксенобиолога, которая открывает внеземные формы жизни в поисках пропавшей напарницы. Эллери получает от Минэ Номура вызов на планету Глиезе 677Cc. Прибыв туда, она обнаруживает лишь заброшенную базу. Эллери отправляется в плавание по океану тайн, имея в своем распоряжении только неисправный акваланг и странный ИИ, указывающий ей путь. Этим ИИ (   Читать дальше...   )Тип издания: LicenseРазработчик: Jump Over The AgeЖанр: Приключение, Головоломка, ExplorationЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59E95A60E5828E09D97BC0D163E50A9ECF79C205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374794   (870250) от 11.04.2020
+
+Wanderlust: Transsiberian (2020) [En] (1.1.13.2003271410) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wanderlust: Transsiberian - это приключенческая игра, в которой двое протагонистов отправляются в путешествие по траннсибирской железной дороге. Для одного из них это мечта всей жизни, для второго же - необходимость. Игроков ждут различные уникальные персонажи, неизведанные уголки Сибири, а также возможность исследовать суровый северный край, не покидая своего дома.Тип издания: LicenseРазработчик: Different TalesЖанр: Приключение, Симулятор, ДрамаЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C2A8F53F4072BE3667580A7450DCABB4615408C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374681   (870227) от 11.04.2020
+
+Mask of Mists (2020) [Ru/Multi] (1.0.4) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870227.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной игре вы выступаете в роли наемника, которому было поручено отыскать пропавшего человека. Один из Архимагов Академии, проводивший свои исследования в глубине Зараженной Территории, перестал выходить на связь. В свое время данная область была подвергнута воздействию чудовищного количества магии и теперь заполнена порождениями Бездны. Отправляйтесь по следам (   Читать дальше...   )Тип издания: RepackРазработчик: 9 Eyes Game StudioЖанр: Adventure, Action, 1st Person, 3DЯзык озвучки: Русский, Английский, КитайскийЯзык субтитров: Русский, Английский, КитайскийЯзык интерфейса: Русский, Английский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A46AB9483AC6EB70A4B3DBF84F98CF68BEF8F63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496927   (867724) от 20.09.2021
 
 Call of Cthulhu (2018) [Ru/Multi] (4.15.2) License GOG
@@ -6,7 +110,7 @@ Call of Cthulhu (2018) [Ru/Multi] (4.15.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867724.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Those Who Remain (2020) [Ru/Multi] (1.0191) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866214.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Don't Forget Me (2021) [Ru/Multi] (1.1.3) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866069.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Don't Starve (2013) [Ru/En] (1.168028/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865720.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Barrow Hill: Curse of the Ancient Circle (2006) [Multi] (bh1-gog2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865303.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Barrow Hill: The Dark Path (2016) [Multi] (bh2-gog1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865168.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Herald: An Interactive Period Drama - Book I & II (2017) [En] (1.0.2) License HI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863797.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Republique Remastered (2015) [Ru/Multi] (1.0) License CODEX [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863724.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ The Mooseman / Человеколось (2017) [Ru/En] (1.0) Repack R.G. Мех�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863665.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Republique Remastered (2015) [Ru/Multi] (1.0) Repack bosenok [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862182.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Nelly Cootalot: The Fowl Fleet (2016) [En/Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862180.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Day of the Tentacle Remastered (2016) [En/Multi] (1.1.6) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862061.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Republique Remastered (2015) [Ru/En] (1.0) Repack xatab [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861974.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Boogeyman 2 (2017) [Ru/Multi] (1.4.1) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861788.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Sunwards (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861456.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ The Plane Effect (2021) [Ru/Multi] (1.01.2166) License DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859350.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Sable (2021) [En] (3.2.9) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859348.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Black Mirror 3: Final Fear / Черное зеркало 3 (2011) [Ru/Multi] (1.
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859242.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Alternativa / Альтернатива: Нечего терять (2011) [Ru] (1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858852.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Addams Family: Mansion Mayhem / Семейка Аддамс: Переполох 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857519.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Biped (2020) [Ru/Multi] (1.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856182.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Broken Age (2014) [Ru/Multi] (2.4.800398) Repack R.G. Механики [The Comp
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855233.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Broken Age (2014) [Ru/Multi] (2.4.800398) Repack R.G. Механики [The Comp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:451BEA22EF066B0152DC9BD83C6BDA8B3A309D78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001031   (855128) от 27.03.2016
-
-The Count Lucanor (2016) [En/Multi] (1.0.16) Repack ARMENIAC
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855128.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Count Lucanor - приключенческий RPG-рогалик с элементами хоррора, где вместе с мальчиком по имени Ганс, вам предстоит отправиться в удивительный волшебный мир и пережить уникальное приключение, наполненное сюрпризами и испытаниями! Погрузитесь в захватывающую историю, которая будет меняться от каждого вашего решения и постарайтесь собраться воедино все кусочки (   Читать дальше...   )Тип издания: RepackРазработчик: Baroque DecayЖанр: Horror Adventure, RPG, PuzzleЯзык субтитров: Английский, Французский, ИспанскийЯзык интерфейса: Английский, Французский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52C5417997C5F7685253DF13F7887E6126F3B5F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109963   (854834) от 01.03.2017
-
-Sherlock Holmes: The Devil's Daughter (2016) [Ru/En] (1.0.8767.0) Repack =nemos=
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Станьте самым знаменитым детективом всех времён - Шерлоком Холмсом! Используйте свои впечатляющие детективные способности для раскрытия пяти захватывающих и чрезвычайно разнообразных дел: убийства, исчезновения людей, впечатляющие кражи, а также расследования, которые способны привести в область невероятного.Тип издания: RepackРазработчик: FrogwaresЖанр: Adventure, Detective, Thriller, Action, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA454CEBCF69FB12B068ABC82776022777BA2F0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001385   (853618) от 28.03.2016
-
-The Inquisitor Book II: The Village (2015) [Ru/Multi] (1.0) Repack АRMENIAC [Nicolas Eymerich]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853618.jpg" />
-</div>
-
-
-###  Подробнее
-
-1345 год. Тень Сатаны витает над югом Франции. Злые тени появились в небе во время летнего солнцестояния, после чего убийственная чума стала распространяться по всем городам. Главный инквизитор Николя Эймерих считает, чтобы сдержать распространение заразы, зло нужно искоренить в самом его источнике. Но действительно ли он борется со злыми духами? Или это только его (   Читать дальше...   )Тип издания: RepackРазработчик: Ticonblu , MicroïdsЖанр: Квест, приключения (Point-and-Click)Язык озвучки: Английский, Итальянский, ЛатыньЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:945A545176AEE10CBB574F0F4BFEC85D8BB61E0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001386   (853520) от 28.03.2016
-
-The Inquisitor Book I: The Plague (2014) [Ru/Multi] (1.0) Repack АRMENIAC [Nicolas Eymerich]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой квеста The Inquisitor: The Plague – это реальный персонаж, всем известный инквизитор Николас Эймерик, призвание которого – бороться с еретиками и жестоко наказывать их. Он не понимает, как можно предать свою веру, и поэтому жалости к таким людям у него нет.Действие игры происходит в середине 13 века, в Каркасоне, зараженном смертельной чумой. Из-за (   Читать дальше...   )Тип издания: RepackРазработчик: Ticonblu , MicroïdsЖанр: Квест, приключения (Point-and-Click)Язык озвучки: Английский, Итальянский, ЛатыньЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B694594187430249793296551BEF0CEA2E962E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

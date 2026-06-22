@@ -1,3 +1,29 @@
+###  Публикация: 1467466   (1017712) от 04.05.2021
+
+VIP electronics v1.0.5 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017712.jpg" />
+</div>
+
+
+###  Подробнее
+
+VIP electronics - это незаменимый инструмент каждого радиолюбителя. Приложение позволяет произвести все необходимые расчёты при разработке электронных схем. Так же оно содержит справочник электронных компонентов и цоколёвку часто используемых разъёмов.Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 29 мая 2019 г.Разработчик: vip-cxema.orgПоддерживаемая ОС: Android 4.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5827FC5F9784F7E5704BED7604DDF76D1848F03D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467646   (1017705) от 04.05.2021
 
 4English: Learn English via News, Videos, Podcasts v2.1.4 [En]
@@ -6,7 +32,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017705.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Podcast Republic v21.5.4R [Ru] - Podcast Player & Podcast App
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017573.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Electrohelper: EE Toolbox Pro v2.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017549.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Electronic toolbox Pro v5.1.15 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017544.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ radio.net PRIME v5.4.1.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017502.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ XiiaLive™ Pro - Internet Radio v3.3.3.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017487.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ Cloud Radio Pro v8.1.0 [Ru] - Record , Lyrics & Music
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017480.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ Audials Play Pro v9.4.2-0-gaa8f88d97 [Ru] – Radio & Podcasts
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017469.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017381.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017377.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017324.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016898.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016688.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ GIF Maker Pro 1.7.66 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016284.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ nPlayer Pro 1.7.7.7_191219 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016253.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ Polaris Office Pro 9.0.12 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016060.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015716.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ Avee Music Player (Pro) 1.2.101 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015601.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015286.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015265.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015098.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015093.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015092.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014906.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Picture Insect v2.2 [Ru/Multi] - Bug Identifier
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014772.jpg" />
 </div>
 
 
@@ -650,34 +676,6 @@ Picture Insect v2.2 [Ru/Multi] - Bug Identifier
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E41C28E1BE16C407C1CE23C85A56C45098670D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439349   (1014749) от 22.05.2021
-
-Photographer's companion v1.9.0 Pro [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это приложение поможет вам отказаться от автоматического режима работы ваших камер, который не все делает и все контролирует. Для более опытных фотографов он может упростить настройки, выполнив расчеты за вас.
-
-В любом случае, это не волшебное приложение для создания красивых фотографий каждый раз, но оно позволит вам найти базовую настройку, которую нужно улучшить, (   Читать дальше...   )Тип издания: Пиратка (Pro)Релиз состоялся: 20 мая 2021 г.Разработчик: Stef SoftwareПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский, Итальянский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CB1D977B9232333AF509A7064FB1CC49560182B
 ```
 
 https://mybot314.ru/tekegram_catalog/

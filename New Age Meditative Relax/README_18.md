@@ -1,3 +1,32 @@
+###  Публикация: 1159199   (486247) от 19.08.2017
+
+Club di relax mentale - Esperienza rilassante (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Esperienza rilassante (03:31)
+02. Una spiaggia da sogno (03:31)
+03. Un mare di emozioni (03:33)
+04. Fuga romantica (03:31)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:57:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09CB18AD8C261B2CEFDC979C0A0E2DFEF1501F67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159330   (486129) от 19.08.2017
 
 VA - New Age Dimension (2017) [MP3|320 Kbps] <New Age>
@@ -6,7 +35,7 @@ VA - New Age Dimension (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486129.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Didier Merah - Eden (2016) [MP3|320 Kbps] <New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486109.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Borneo - Heart of Borneo - Spa and Relaxation (Instrumental) (2016) [MP3|320 Kbp
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485998.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Devakant - 4 альбома (1993-2014) [MP3|320 кб/с]<New age, World, Relax,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483803.jpg" />
 </div>
 
 
@@ -124,7 +153,7 @@ Enigma - Love Sensuality Devotion: Greatest Hits & Remixes (2001) 2016 Remastere
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483293.jpg" />
 </div>
 
 
@@ -153,7 +182,7 @@ Shaman's Dream - African Dream (2006) [MP3|320 кб/с]<New Age, Worldbeat, Medi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483224.jpg" />
 </div>
 
 
@@ -187,7 +216,7 @@ Capella Gregoriana - Mystic Gregorian Pop Songs & Ballads (2CD) (2005) [MP3|320 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482906.jpg" />
 </div>
 
 
@@ -222,7 +251,7 @@ The Sound Of Love - Closer to me (2017) [MP3|320 Kbps] <New age, Enigmatic, Voca
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482115.jpg" />
 </div>
 
 
@@ -251,7 +280,7 @@ Devakant - Earth And Sky (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482107.jpg" />
 </div>
 
 
@@ -280,7 +309,7 @@ Terry Oldfield - Temple Moon (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481859.jpg" />
 </div>
 
 
@@ -309,7 +338,7 @@ Brian Crain - Impressions from Paris to Prague (2015) [MP3|320 кб/с]<Piano, I
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481829.jpg" />
 </div>
 
 
@@ -338,7 +367,7 @@ Stephen Rhodes - Pure Angel Healing (2018) [MP3|320 Kbps] <New Agе, Relax, Medi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479923.jpg" />
 </div>
 
 
@@ -367,7 +396,7 @@ Kitaro - Final Call (2013) [MP3|320 кб/с]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478385.jpg" />
 </div>
 
 
@@ -402,7 +431,7 @@ SPA & Wellness Massage Masters, Beauty Spa Music Collection, Zen Spa Music Exper
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477341.jpg" />
 </div>
 
 
@@ -431,7 +460,7 @@ Relaxing Piano Music & Sleep Baby Sleep - Newborns - Relaxing Pregnancy Music (2
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471909.jpg" />
 </div>
 
 
@@ -460,7 +489,7 @@ Deuter - Mystic Voyage (2015) [MP3|320 кб/с]<New Age, Relax, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471309.jpg" />
 </div>
 
 
@@ -489,7 +518,7 @@ Jeff Wahl - Playing with Silence (2017) [MP3|320 Kbps] <New Age, Instrumental>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469966.jpg" />
 </div>
 
 
@@ -518,7 +547,7 @@ Neil Tatar - After the Rain (2018) [MP3|320 Kbps] <New Age, Instrumental>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469895.jpg" />
 </div>
 
 
@@ -547,7 +576,7 @@ Gregorian - Epic Chants (2012) [MP3|~245 кб/с (V0)]<NewAge & Meditative,Ambie
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469547.jpg" />
 </div>
 
 
@@ -582,7 +611,7 @@ ALTERSON - Entrance (2010) [MP3|320 кб/с]<Психоактивная ауди
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466764.jpg" />
 </div>
 
 
@@ -608,7 +637,7 @@ Ottmar Liebert - Slow (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465644.jpg" />
 </div>
 
 
@@ -637,7 +666,7 @@ Craig Pruess & Anuradha Paudwal - Sacred Chants Of Shakti (2012) [MP3|320 Kbps] 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465639.jpg" />
 </div>
 
 
@@ -664,7 +693,7 @@ Jules Calmer - Deserted Paradise (2017) [MP3|320 Kbps] <Ambient, New Age, Downte
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463649.jpg" />
 </div>
 
 
@@ -693,7 +722,7 @@ Peter Kater - Love (2015) [MP3|320 кб/с]<New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462714.jpg" />
 </div>
 
 
@@ -722,7 +751,7 @@ Michael Whalen - Kiss the Quiet (2018) [MP3|320 Kbps] <New Age, Piano, Instrumen
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461479.jpg" />
 </div>
 
 
@@ -736,35 +765,6 @@ Michael Whalen - Kiss the Quiet (2018) [MP3|320 Kbps] <New Age, Piano, Instrumen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B451CB3B100A5947FA4A5665E4A46336A377B628
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941995   (457968) от 29.09.2015
-
-Snatam Kaur - Light Of The Naam. Morning Chants (2014) [MP3|320 кб/с]<New Age, Vocal, Mantras>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waah Yantee - Creativity
-02. The Mul Mantra - Inner Truth
-03. Sat Siree Siree Akaal - Beyond Death
-04. Rakhay Rakhanahaar - Protection(   Читать дальше...   )Жанр: New Age, Vocal, MantrasПродолжительность: 01:12:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07B9E901DEE4F4C02E6FA0E31D014E0F1468F1B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

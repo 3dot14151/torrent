@@ -1,3 +1,81 @@
+###  Публикация: 1658132   (191909) от 06.09.2023
+
+Анатолий Папанов. Надо просто любить и верить (2022) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анатолий Папанов — яркий, талантливый, любимый. Его мгновенно узнавали по неповторимому голосу. Многие до сих пор помнят даже небольшие его роли. Сам Анатолий Дмитриевич искренне удивлялся, как с такой внешностью и произношением вообще стал актером. Он не был доволен почти ни одной своей киноработой, называя себя «ошибкой режиссеров». Авторам фильма удалось собрать (   Читать дальше...   )Производство: Россия | ООО «КОНТРАСТ»Жанр: Биография, документальныйРежиссер: Георгий АнановУчастники: Андрей Иванов, Надежда Каратаева, Елена Папанова, Вера Васильева, Татьяна Васильева, Юрий Титов, Мария Папанова, Светлана Светличная, Юрий Васильев, Игорь КорнелюЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:51:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6126CB9EE27828FE1672CC2FFECFD25180298EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588259   (191808) от 03.11.2022
+
+Нажми на кнопку / PressPausePlay (2011) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая революция в искусстве в последнее десятилетие позволила реализовывать творческие возможности в беспрецедентном масштабе. К чему приведет подобная тенденция – к улучшению качества кино, музыки и литературы, к новому уровню истинных талантов либо же к цифровому океану посредственной массовой культуры?Производство: Швеция, Австралия, Франция, США, Исландия, Япония, Германия, Испания, Норвегия, Великобритания, House of RadonЖанр: документальный, история, искусство, музыкаРежиссер: Дэвид Дворски, Виктор КолерПеревод: многоголосый профессиональный (Jaskier)Субтитры: русские, английскиеПродолжительность: 01:23:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E108912480BB78C08286838F889036270370BE39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588374   (191563) от 04.11.2022
+
+Человек-паук: Все дороги ведут в никуда / Spider-Man: All Roads Lead to No Way Home (2022) WEBRip [H.264/1080p-LQ] [VO]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Присоединяйтесь к нашим ведущим JB Smoove и Martin Starr на праздновании 20-летия фильмов о Человеке-пауке!. От оригинальной трилогии Сэма Рэйми до «потрясающих» фильмов Марка Уэбба и последнего трио от режиссера Джона Уоттса — мы познакомим зрителей со звездами, трюками и действием, злодеями и героями и воздадим должное Стэну Ли.Производство: СШАЖанр: документальныйПеревод: Одноголосый профессиональный (Jaskier)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 00:29:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:836AEC8C58975F6A8B65C65E6C6355F44DC85566
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588314   (191481) от 04.11.2022
 
 Звук 007 / The Sound of 007 (2022) WEB-DL [H.264/1080p]
@@ -6,7 +84,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191481.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191380.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_190879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190879.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_190875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190875.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_190846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190846.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190586.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190547.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190299.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190285.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189948.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189691.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189140.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186882.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186865.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186722.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186433.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185681.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185426.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184259.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181781.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181475.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181142.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181080.jpg" />
 </div>
 
 
@@ -589,85 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC87891AB1BF5B977BD0B131A229B98D006B3F6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593460   (181044) от 26.11.2022
-
-Тайны кино. Убить дракона (2020) WEBRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181044.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Убить дракона" – именно так называлась последняя киноработа Марка Анатольевича Захарова. Так случилось, что этот самый "Дракон" "породил" театрального режиссера и "убил" кинорежиссера Захарова.
-Почему же именно пьеса Евгения Шварца сыграла в судьбе выдающегося режиссера столь роковую роль? Почему триумфально дебютировав с (   Читать дальше...   )Производство: РоссияЖанр: документальный, кино о киноЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FDBDAD5C362FE51BC338B41EF49C14271CB27CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666033   (180790) от 02.10.2023
-
-Кубрик о Кубрике / Kubrick by Kubrick (2020) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стэнли Кубрик рассуждает о творческом процессе. Документальный фильм на основе уникальных интервью кинокритика Мишеля Симана.Производство: Франция, Польша, ARTE, Telemark, Temps NoirЖанр: документальный, история, биография, кинематографРежиссер: Грегори МонроУчастники: Стэнли Кубрик, Мишель Симан, Малькольм МакдауэллПеревод: двуголосый профессиональный (Кубик в Кубе)Язык озвучки: русскийСубтитры: русские (Ольга Суходольская, КиноПоиск HD)Продолжительность: 01:12:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00BD2884C6802E83B2F44350BFBA407A81FF983C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655011   (180036) от 03.10.2023
-
-Частный визит / Visite privee (2019) UHDTV [H.265/2160p] (серии 1-6 из ?)
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Путешествия по частным коллекциям шедевров мировой живописи.Производство: Франция, SAS MediartЖанр: документальный, изобразительное искусствоРежиссер: Чарльз ЛавиланиПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: серии ~00:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8306349F5EE6529995BDD809540EB8D586DF552B
 ```
 
 https://mybot314.ru/tekegram_catalog/

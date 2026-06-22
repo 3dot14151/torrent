@@ -1,3 +1,29 @@
+###  Публикация: 1711375   (61352) от 30.03.2024
+
+STAR WARS: Dark Forces Remaster (2024) [Ru/En] (1.0.1308.0) Repack dixen18
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Star Wars: Dark Forces Remaster был воплощен в жизнь командой Nightdive Studios и полностью переработан с помощью собственного движка KEX, что позволяет игре работать на современных игровых устройствах с разрешением до 4K и частотой 120 кадров в секунду. Новым и вернувшимся игрокам понравится обновленный игровой процесс Star Wars: Dark Forces Remaster, текстуры высокого (   Читать дальше...   )Тип издания: RepackРазработчик: Nightdive Studios, LucasArtsЖанр: ЭкшеныЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E88F434781506699B739EE93CE27D41D251AC90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396497   (61264) от 31.03.2024
 
 Sword Art Online: Alicization Lycoris (2020) [Ru/Multi] (3.12/dlc) Scene Tenoke
@@ -6,7 +32,7 @@ Sword Art Online: Alicization Lycoris (2020) [Ru/Multi] (3.12/dlc) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61264.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ F.E.A.R. 3 (2011) [Ru/Multi] (16.0.20.1060) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60728.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Bulletstorm (2017) [Ru/Multi] (1.0upd2/dlc) Repack dixen18 [Full Clip Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60632.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Sniper: Ghost Warrior 3 (2017) [Ru/En] (3.8.6/dlc) Repack Decepticon [Gold Editi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59688.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Seed of the Dead: Sweet Home (2021) [Multi] (2.103/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59323.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (13890751/dlc) Repack Decepticon [Deluxe Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59263.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (Spider's Thread/dlc) Scene Rune [Deluxe Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59243.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Rise of the Triad: Ludicrous Edition (2023) [Multi] (1.1.2952) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59134.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (13890751/dlc) Repack FitGirl [Deluxe Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59026.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ INDUSTRIA (2021) [Ru/Multi] (1.3.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58730.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Rise of the Triad: Ludicrous Edition (2023) [Multi] (11830638) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58574.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Return to Castle Wolfenstein (2001) [Ru/En] (1.42c) Rip R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58527.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Turbo Overkill (2022) [Ru/Multi] (1.35) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58518.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Phantom Fury (2024) [Ru/Multi] (17276) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58409.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Rise of the Triad (2013) [En] (1.5.5) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58390.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Cryostasis: Sleep of Reason / Анабиоз: Сон разума (2008) [Ru] (1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58354.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Phantom Fury (2024) [Ru/Multi] (17276) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58117.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Unholy Village (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58079.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Phantom Fury (2024) [Ru/Multi] (17384) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57020.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Soviet Soldier / История советского Солдата (2024) [Ru/M
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56327.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Alpha Prime (2007) [Ru/En] (1.3) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55966.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Back 4 Blood (2021) [Ru/Multi] (20240515/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55664.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ System Shock Remake (2023) [Ru/Multi] (1.2.318898) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55590.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ System Shock Remake (2023) [Ru/Multi] (1.2.318898) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55489.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ BioShock 2 (2010) [Multi] (1.5.0.019) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54852.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ BioShock 2 (2010) [Multi] (1.5.0.019) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82F53B5AFFCF5816924DA54CA6394202B736DDB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727074   (54758) от 01.06.2024
-
-Aliens vs. Predator (2010) [Ru] (2.27/dlc) Rip xatab
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый боевик от известного разработчика - компании Rebellion, в 1999 году выпустившей знаменитую игру, в которой люди, Чужие и Хищники впервые сошлись в бескомпромиссных сражениях. Битва продолжается - разные формы жизни снова сойдутся в непримиримой борьбе. В Aliens vs Predator игроков ждут три захватывающие сюжетные кампании, а также незабываемые многопользовательские (   Читать дальше...   )Тип издания: RipРазработчик: RebellionЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D85593F9C6D4AE62BA6C83FE3A58162D70A99C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

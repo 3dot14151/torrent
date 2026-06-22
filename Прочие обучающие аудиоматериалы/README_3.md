@@ -1,3 +1,112 @@
+###  Публикация: 1855094   (1058032) от 21.02.2026
+
+Билл Брайсон | Просто о необычном и сложном. Тело. Руководство пользователя (2019) [MP3, Филипп Матвеев-Витовский]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тело. Руководство пользователя - уникальное путешествие по человеческому организму от всемирно известного писателя Билла Брайсона.
+Эта научно-популярная книга представляет собой занимательный гид по устройству нашего тела, его возможностям и особенностям. Брайсон рассказывает о каждой системе организма - от скелета и кожи до мозга и иммунной системы - в характерном (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: АСТПродолжительность: 15:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD39345C24FA400861E23F2EABAAB30CA5412F50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854629   (1057744) от 19.02.2026
+
+Оливер Сакс | Река сознания (2025) [MP3, Станислав Иванов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как работает наша память, и можно ли ей доверять? Почему время иногда бежит, а порой замедляется? Можно ли обвинять плагиаторов в краже идей?
+Оливер Сакс приглашает в увлекательное путешествие по загадкам сознания, восприятия и творчества, раскрывая неожиданные связи между наукой, историей и человеческим мышлением.
+Какова доля истины в шутке: «Лжет, как очевидец»? (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: АСТПродолжительность: 05:19:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36698C8085E54402AE4598F833BA820CD90AF496
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854845   (1057684) от 20.02.2026
+
+Брайан Фейган | Малый ледниковый период. Как климат изменил историю, 1300–1850 (2021) [MP3, Юрий Белик]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представьте, что в Англии растет виноград, а доплыть до Гренландии и даже Америки можно на нехитром драккаре викингов. Несколько веков назад это было реальностью, однако затем в Европе – и в нашей стране в том числе, – стало намного холоднее. Людям пришлось учиться выживать в новую эпоху, вошедшую в историю как малый ледниковый период.
+И, надо сказать, люди весьма (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: БомбораПродолжительность: 10:17:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:455DD69D191CA1F9685BD1BD9BC41306F5BEA5F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854119   (1057338) от 18.02.2026
+
+Роман Марс | Город в деталях. Как по-настоящему устроен современный мегаполис (2022) [MP3, Игорь Павлов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами настоящее полевое руководство по изучению современного города. Почти каждый элемент городской среды предстает с необычного, нового ракурса. С каждым из них связана история, которая удивит, развеселит или заставит задуматься.
+Роман Марс наводит свою уникальную оптику на все: от заброшенных строений и линий электропередач до деловых кварталов и исторической (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: БомбораПродолжительность: 13:30:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3BB67D0EF0BB74BCC35884BEA19E906D285AF0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854472   (1057335) от 18.02.2026
 
 Джей Оуэнс | Пыль. История современного мира в триллионе пылинок (2025) [MP3, Нина Медникова]
@@ -6,7 +115,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057335.jpg" />
 </div>
 
 
@@ -35,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056893.jpg" />
 </div>
 
 
@@ -63,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056874.jpg" />
 </div>
 
 
@@ -91,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056870.jpg" />
 </div>
 
 
@@ -119,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056770.jpg" />
 </div>
 
 
@@ -145,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056769.jpg" />
 </div>
 
 
@@ -172,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056627.jpg" />
 </div>
 
 
@@ -200,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056183.jpg" />
 </div>
 
 
@@ -229,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056092.jpg" />
 </div>
 
 
@@ -257,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056091.jpg" />
 </div>
 
 
@@ -283,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056090.jpg" />
 </div>
 
 
@@ -310,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055863.jpg" />
 </div>
 
 
@@ -339,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055795.jpg" />
 </div>
 
 
@@ -365,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055685.jpg" />
 </div>
 
 
@@ -391,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055684.jpg" />
 </div>
 
 
@@ -417,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055578.jpg" />
 </div>
 
 
@@ -443,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055576.jpg" />
 </div>
 
 
@@ -469,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055177.jpg" />
 </div>
 
 
@@ -496,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054425.jpg" />
 </div>
 
 
@@ -523,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054416.jpg" />
 </div>
 
 
@@ -549,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054415.jpg" />
 </div>
 
 
@@ -576,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054414.jpg" />
 </div>
 
 
@@ -587,111 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAA205902C3FDDAB9879AECFCB54BD333F3D70D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849983   (1054019) от 25.01.2026
-
-Иммануил Кант | Основы метафизики нравственности (Сборник) (2023) [MP3, Игорь Гмыза]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054019.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Основы метафизики нравственности» – этический трактат, в котором величайший философ Западной Европы развивает философское обоснование морального закона – категорического императива.
-Только разумное существо имеет волю, благодаря которой оно способно совершать поступки из принципов. И только разумное существо при достижении желаемого способно руководствоваться законом (   Читать дальше...   )Жанр: ФилософияИздательство: Аудиокнига (АСТ)Продолжительность: 14:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDD2C91D0E1D317FAE9D55F1AD201824F00E0A9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849879   (1054018) от 25.01.2026
-
-Лаура Паунтни, Томислав Марич | Антропология. Всё, что нужно знать о происхождении, становлении и развитии человека (2025) [MP3, Игорь Гмыза]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054018.jpg" />
-</div>
-
-
-###  Подробнее
-
-От древних ритуалов до будущего науки – откройте для себя увлекательный мир антропологии! Данная аудиокнига охватывает все ключевые аспекты человеческой эволюции и культурных достижений. Интересные интервью с ведущими антропологами, уникальные подходы к изучению общества, прогрессивные научные практики – в этой книге есть всё, что делает антропологию одной из самых (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: ЛёдПродолжительность: 23:28:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F40449FCE99566FC228CA2973BD86A47AB831516
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850110   (1053937) от 26.01.2026
-
-Вильям Похлебкин | Чай (2010) [MP3, Марина Ловейко]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чай издавна прославляли как исцеляющий напиток. Он стимулирует жизнедеятельность организма, ликвидирует усталость, усиливает работоспособность. В этой книге вы найдете ответы на все ваши вопросы о чае - древнейшем и самом распространенном напитке на земле.Жанр: КулинарияИздательство: Нигде не купишьПродолжительность: 10:19:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF587B77CC0B27B25FB2783A1480FCCD9DB4F6B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849653   (1053594) от 24.01.2026
-
-Юстасия Булгакова | Прогулка по Анталье сквозь века (2024) [MP3, Анна Османова]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юстасия Булгакова – блогер, журналист и писатель. Может рассказать 1000 и 1 историю про Турцию и Анталью. В этой книге автор поделится с вами удивительными, а порой и откровенными фактами из истории одного из самых туристических городов Турции.Жанр: Города и люди, Занимательная история, Интересные факты истории, История городов, История Турции, Морские курорты, Научпоп: прочее, Национальная культура, Национальный менталитет, Популярно об историиИздательство: БОМБОРАПродолжительность: 08:26:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B0AE593B99F268272912EC1121876559B6CB5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

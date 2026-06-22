@@ -1,3 +1,55 @@
+###  Публикация: 603321   (995849) от 19.01.2013
+
+Среди коршунов / Unter Geiern (1964) [1080p] BDRemux
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совершено жестокое нападение на ферму Бауманна, убиты жена и дочь фермера. Все улики говорят о том, что это были индейцы. Как нельзя кстати на ферме объявляется никому неизвестный проповедник, утверждающий, что на ферму действительно напали индейцы одного из племён. Виннету и Шаттерхэнд сомневаются в словах проповедника. Но удастся ли нашим героям доказать свою правоту?Жанр: Приключения, вестернРежиссер: Альфред ФерерВ ролях: Пьер Брис, Гойко Митич, Гёц Георге, Эльке Зоммер, Стюарт Грейнджер, Зигхардт Рупп, Уолтер Барнс, Миха Балох, Ренато Бальдини, Теренс Хилл, Луи Вель, Войя Мирич, Столе Аранджелович, Илия Ивезич, Борис Дворник, Душан Булайич, Мирко Кралев, Давор Антолич, Джордже Ненадович, Милан Срдоч, Владимир Бачич, Драгомир «Гидра» БояничПеревод: Многоголосый закадровыйПродолжительность: 01:38:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19F8AD3A11363A5D0FDD1E27596BFADAB063FC31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603309   (995842) от 19.01.2013
+
+Громовержец и Виннету / Winnetou und sein Freund Old Firehand (1966) [1080p] BDRemux
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комендант приграничного городка Мирамонте захватил и посадил в тюрьму брата главаря банды Сайлера. Узнав об этом, Сайлер грозит сравнять город с землей, если его брат не будет выпущен на свободу. Знаменитый охотник Громовержец и вождь апачей Виннету помогают защитить город и отбить нападение бандитов.Жанр: Приключения, вестернРежиссер: Альфред ФорерВ ролях: Пьер Брис, Род Камерон, Мари Верзини, Тодд Армстронг, Харальд Лайпниц, Надя Грей, Уолтер Вилц, Йорг Марквардт, Рик Батталья, Виктор де Кова, Владимир Медар, Миха Балох, Александр Гаврич, Душан Антониевич, Илия Ивезич, Аоександр Беларич, Милан Босильчич, Райнер Брандт, Томас Брот, Мария Чрнобори, Звонко Добрин, Питер Эльшольц, Герхард ГейслерПеревод: Многоголосый закадровыйПродолжительность: 01:34:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8026ECE443FFD940DE8C522946A670397F587FDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 604201   (995801) от 19.01.2013
 
 Пирамида сынов Солнца / Die Pyramide des Sonnengottes / Pyramid of the Sun God (1965) BDRemux [H.264/1080p]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995801.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995711.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995602.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995565.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995551.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995537.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995447.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995441.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994787.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994423.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994421.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993239.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993078.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991722.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991638.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990083.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989189.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988975.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987785.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987394.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987308.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986736.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985659.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984727.jpg" />
 </div>
 
 
@@ -621,60 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970680   (984060) от 04.01.2016
-
-Звёздные войны: Эпизод 5 - Империя наносит ответный удар / Star Wars: Episode V - The Empire Strikes Back (1980) BDRip [H.264/1080p] [ 35mm Renegade Grindhouse Scan]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Борьба за Галактику обостряется в пятом эпизоде космической саги. Войска Императора начинают массированную атаку на повстанцев и их союзников.
-Хан Соло и принцесса Лейя укрываются в Заоблачном Городе, в котором их и захватывает Дарт Вейдер, в то время как Люк Скайуокер находится на таинственной планете джунглей Дагобар.
-Там Мастер - джедай Йода обучает молодого рыцаря (   Читать дальше...   )Производство: США, Lucasfilm Ltd.Жанр: Фантастика, Фэнтези, Боевик, ПриключенияРежиссер: Ирвин КершнерАктеры: Марк Хэмилл, Харрисон Форд, Кэрри Фишер, Билли Ди Уильямс, Энтони Дэниелс, Дэвид Праус, Питер Мейхью, Кенни Бейкер, Фрэнк Оз, Алек Гиннесс.Перевод: Дублированный, Многоголосый закадровый, Двуголосый закадровый, Одноголосый закадровыйПродолжительность: 02:04:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:622205112120513AC66A4718DD9B06E0641D9012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967823   (983096) от 05.01.2016
-
-Громовержец и Виннету / Winnetou und sein Freund Old Firehand (1966) BDRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комендант приграничного городка Мирамонте захватил и посадил в тюрьму брата главаря банды Сайлера. Узнав об этом, Сайлер грозит сравнять город с землей, если его брат не будет выпущен на свободу. Знаменитый охотник Громовержец и вождь апачей Виннету помогают защитить город и отбить нападение бандитов.Производство: Германия (ФРГ), Югославия / Jadran Film, Rialto Film Preben-PhilipsenЖанр: Приключения, ВестернРежиссер: Альфред ФорерАктеры: Пьер Брис, Род Камерон, Мари Верзини, Тодд Армстронг, Харальд Ляйпниц, Надя Грей, Уолтер Вилц,  Йорг Марквардт, Рик Батталья, Виктор де КоваПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:34:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90421DAF1D2F1FA94E3B650243BEC1AA9C36E3D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

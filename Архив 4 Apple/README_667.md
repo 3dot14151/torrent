@@ -1,3 +1,55 @@
+###  Публикация: 1692564   (122323) от 17.01.2024
+
+Navicat Charts Creator for Mac 1.2.15 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Navicat Charts Creator преобразует ваши данные в эффективные визуализации для выявления тенденций, закономерностей и выбросов. Упростите анализ данных и поделитесь своим рабочим пространством с коллегами, чтобы лучше поддерживать ваши бизнес-решения и стратегии.Тип издания: macOS SoftwareРелиз состоялся: 09.01.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F301B0A8B2995C9892D69BDEF0A1893EFA7AB832
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692745   (122322) от 17.01.2024
+
+SnippetsLab 2.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122322.jpg" />
+</div>
+
+
+###  Подробнее
+
+SnippetsLab — это простой в использовании менеджер фрагментов кода. Он позволяет вам структурировано и организованно хранить сниппеты (фрагменты кода), легко находить нужные, а также синхронизировать их между устройствами через iCloud. Интерфейс SnippetsLab минималистичен и улучшена совместимость с macOS Monterey.Тип издания: macOS SoftwareРелиз состоялся: 17.01.2024Разработчик: © 2015-2024 Renfei SongПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E71FEA8B6B8D3B3680BD8DF4C92C0D55CAFDE28F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692569   (122320) от 17.01.2024
 
 RightFont 8.5 [En]
@@ -6,7 +58,7 @@ RightFont 8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122320.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Capture One 23 Pro 16.3.4.5 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122190.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ SponsorBlock for YouTube 5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122159.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Bike Outliner for Mac 1.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122158.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ dBpoweramp Music Converter 2023-12-22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122147.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ Text Workflow 1.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122139.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ QuickLinks 3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122138.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ PullTube 1.8.5.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122134.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ Topaz Photo AI for Mac 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122079.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ App Cleaner & Uninstaller Pro 8.2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121959.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ Capture One 23 Enterprise 16.3.4.5 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121880.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ PDF Expert 3.8.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121878.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ Topaz Video AI for Mac 4.1.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121874.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ ACDSee Photo Studio 10 for Mac v.10.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121867.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ Master of Typing 3 - Practice 15.14.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121857.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ Wondershare Recoverit for Mac 12.5.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121855.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ WiFi Signal Strength: Wifiry 2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121845.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ Magic Disk Cleaner 2.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121844.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ AutoKrypt 13 for Mac 13.08 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121839.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ Typora for Mac 1.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121837.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ SQLPro Studio 2023.60 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121832.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ Scrutiny 12.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121819.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ Wing Pro 10 for Mac 10.0.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121705.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ OmniReader Pro for Mac 2.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121691.jpg" />
 </div>
 
 
@@ -626,58 +678,6 @@ OmniReader - полифункциональное приложение для ч
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5689FA6EB7F3FBAFF4DC29CDFCB0EEB236D65F17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693656   (121690) от 21.01.2024
-
-DVD-Cloner 2024 for Mac v.11.00.740  [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121690.jpg" />
-</div>
-
-
-###  Подробнее
-
-DVD-Cloner - это небольшая утилита, при помощи которой вы сможете создать полностью идентичную копию вашего DVD-диска (например, с фильмом), в том числе и диска с защитой, и записать ее на другой диск. Программа проста в обращении, не требует тонкой настройки, поддерживает работу с большинством DVD-RW устройств и позволяет создавать копии фильмов с качеством, не (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2024Разработчик: © 2002-2022 OpenCloner™ Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE79BAC22BDCA156B193DF19056C77A71656DDC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693776   (121509) от 22.01.2024
-
-VueScan Pro for Mac 9.8.26 U2B [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121509.jpg" />
-</div>
-
-
-###  Подробнее
-
-VueScan является приложением для работы со сканерами Minolta, HP, Nikon, Epson, Polaroid, Canon и мн.др. Поддерживается работа с глубиной цвета, а также автоматическая и ручная настройки большого количества параметров и пакетного режима сканирования. VueScan поддерживает больше 2800 моделей сканеров. Приложением предусмотрено автоустранение дефектов с изображения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.01.2024Разработчик: © 2024 Hamrick SoftwareПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:359712C2DBBF92978C52549DEEF009965AE469AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

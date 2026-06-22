@@ -1,3 +1,81 @@
+###  Публикация: 1608597   (1043560) от 31.01.2023
+
+Ода Нобунага / Fuunji Oda Nobunaga / Lucky Adventurer Oda Nobunaga (1959) WEB-DLRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043560.jpg" />
+</div>
+
+
+###  Подробнее
+
+После смерти старого князя в Овари, главой клана становится его сын - Ода Нобунага. Нобунага довольно беспечный молодой человек, ведущий, так сказать разгульный образ жизни, а всеми делами управляет за него "дедушка" Хирате Масахидэ. Однако враг не дремлет: соседний князь Имагава Ёсимото, обладающий значительной силой и завышенными амбициями, стремится (   Читать дальше...   )Производство: Япония / Toei CompanyЖанр: драма, историяРежиссер: Тосикадзу КоноАктеры: Kyoko Mitsui, Кацуо Накамура, Кинносукэ Накамура, Эитаро Синдо, Рюносукэ Цукигата, Эидзиро ЯнагиПеревод: Одноголосый любительский (Shaman)Язык озвучки: русский, японскийСубтитры: английские - отдельным файломПродолжительность: 01:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7970F1005D3133E5395789DC1B23527C1942CFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608604   (1043523) от 31.01.2023
+
+Месть / Рождественская песнь / Keuriseumaseu kaereol / Christmas Carol (2022) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043523.jpg" />
+</div>
+
+
+###  Подробнее
+
+В рождественское утро Оль У, брата-близнеца Иль У, нашли мёртвым с множественными синяками на теле. Несмотря на это, в полиции дело закрыли, сочтя произошедшее несчастным случаем. Иль У решает сам отомстить убийцам. Единственная зацепка, которая у него есть, - голоса на заднем плане, которые он слышал во время разговора с братом. Но этого хватает, чтобы примерно (   Читать дальше...   )Производство: Южная Корея / FinecutЖанр: триллер, криминалРежиссер: Ким Сон-суАктеры: Чинён, Ким Ён-мин, Хо Дон-вон, Ким Дон-хвиПеревод: Многоголосый любительский (STEPonee | 18+)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:10:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA52F475067C70780F6B300067D12C05DD573414
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609445   (1043251) от 03.02.2023
+
+Сасаки в моей памяти / Sasaki, in, mai main / Sasaki in My Mind (2020) WEB-DLRip [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043251.jpg" />
+</div>
+
+
+###  Подробнее
+
+27-летний Юдзи Митани приехал в Токио, чтобы стать актером, но так и остался невостребованным. Отношения с девушкой практически разрушены, жизнь пуста и бесцветна. Однажды Юдзи воссоединяется с одноклассником Тада и вспоминает свои дни с Сасаки, который был чрезвычайно харизматичным человеком в школе. Сасаки всегда очаровывал окружающих своей взрывной энергией. Однако (   Читать дальше...   )Производство: Япония / Third Window FilmsЖанр: драмаРежиссер: Такуя УтиямаАктеры: Кисэцу Фудзивара, Минори Хагивара, Гаку Хосокава, Сатору Игути, Rii Ishihara, Нидзиро МуракамиПеревод: Авторский (Александр Смирнов)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB26F096349C027AEE732C9121E52CCA47744451
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436755   (1043051) от 01.01.2021
 
 Убийственная мультипликация / Deo Web-toon: Ye-go Sal-in / Killer Toon (2013) HDRip [MVO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043051.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043010.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042660.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042520.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042408.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042403.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042401.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042282.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042260.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041780.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041648.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041224.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041213.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041010.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040835.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040484.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040483.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040339.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039826.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039287.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039073.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038741.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038476.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D0C72D84B0F64142F1E4D7DB70026A5435DE75D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440859   (1038191) от 19.01.2021
-
-Воспоминания убийцы / Sarinjaui gieokbeop / Memoir of a Murderer (2017) BDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серийный убийца Ким Бён-су завязал 17 лет назад. Живёт теперь со взрослой дочерью и болезнью Альцгеймера и подумывает сдаться в дом престарелых, когда в округе вновь происходят убийства. Столкнувшись однажды в тумане с другим автомобилем, Бён-су замечает кровь в багажнике и явно человеческое тело, а у хозяина авто - такой же холодный взгляд убийцы.Производство: Южная Корея, Green Fish PicturesЖанр: Драма, боевик, триллерРежиссер: Вон Щин-ёнАктеры: Соль Гён-гу, Ким Нам-гиль, Ким Соль-хён, О Даль-су, Хван Сок-чон, Чон Ин-гём, Щин Ги-джун, Ким Дон-хи, Ким Хан-джун, Ким Джон-ён, Чо Джэ-юн, Чхэ Гук-хи, Киль Хэ-ён, Ли Бён-джун, Ким Мин-джэПеревод: Многоголосый профессиональный (Кириллица)Субтитры: Русские (Hentai, FSG Black Pearl), английские - отдельными файламиПродолжительность: 01:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A46D09C31B5A593712CD1AE7CC201AF4BB1082DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615080   (1038075) от 24.02.2023
-
-Один день / A Day / Haru / Ha-roo (2017) HDRip [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хирург Ким Джун-ён — блестящий специалист и не очень хороший отец. Чтобы достичь таких высот в медицине, ему приходилось жертвовать общением с дочерью. И вот в не самый лучший день у Джун-ёна на глазах в автомобильной аварии погибает дочь. С этого момента в жизни мужчины наступает ад — он застревает в этом кошмарном дне и вынужден проживать его снова и снова, пытаясь (   Читать дальше...   )Производство: Корея Южная / Film LineЖанр: триллер, фантастика, драма, боевикРежиссер: Чо Сон-хоАктеры: Ким Мён-мин, Пён Ё-хан, Ю Джэ-мён, Чо Ын-хён, Щин Хе-сон, Лим Джи-гю, Хан Хи-джон, Ли Ю-ха, Пак Мин-су, Чан Ин-хо и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, корейскийСубтитры: Русские, английские (отдельно)Продолжительность: 01:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED5BB0B3C4B9F5A6BA7F80AD80DB2D62D0A7BDE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441135   (1037980) от 20.01.2021
-
-Смертельные пальцы Брюса / Lung men bei chi / Bruce's Deadly Fingers (1976) BDRip [AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда шайка гангстеров похищает бывшую подружку Брюса, тот незамедлительно бросается за ними в погоню. А подспорьем ему в грядущей битве будет древняя техника рукопашного боя, позволяющая умертвлять противника одним лишь прикосновением пальцев.Производство: Гонконг, United Cine-Production EnterprisesЖанр: Боевик, драма, криминалРежиссер: Джозеф ВеласкоАктеры: Брюс Ле, Майкл Чан, Нора Мяо, Ло Ле, Чан Вэй, Чи Йинг Чэн, Роуз Чэн, Лайк Чунг, Тао Чианг, Чиу Чи-ЛинПеревод: Авторский (Андрей Дольский)Субтитры: отсутствуютПродолжительность: 01:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C69C89D728B9BBFDF3C9B62DB73CD4676E7EB18B
 ```
 
 https://mybot314.ru/tekegram_catalog/

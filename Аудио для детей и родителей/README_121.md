@@ -1,3 +1,82 @@
+###  Публикация: 1792806   (20693) от 21.04.2025
+
+Руне Белсвик | Простодурсен. Зима от начала до конца (2021) [MP3, Екатерина Гороховская]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повести Руне Белсвика, современного норвежского писателя, о Простодурсене и его друзьях очень популярны в Норвегии. В маленькой приречной стране жизнь героев полна обычных забот: тут рубят дрова и копают канавы, пекут хлеб и сушат башмаки, смотрят в небо и бросают в воду камушки... Но удивительное дело: чуть измени угол зрения - и самые простые вещи наполняются особым (   Читать дальше...   )Жанр: зарубежные детские книги, сказкиПеревод: Ольга ДроботИздательство: СамокатПродолжительность: 05:18:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF7D0141FA2872A708FDE59C7410B8F9AA882EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649212   (20406) от 24.04.2025
+
+Геннадий Казанский | Ежи. Тернистая дорога к морю (2023) [MP3, Puffin Сafe]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Длинноухий ёжик по имени Ежи всегда понимал человеческую речь, хотя сам разговаривать он не умеет, это не мешает ему объяснить Тимми, что и у него есть мечты. Ежи мечтает увидеть море и не остановится ни перед чем в достижении своей цели. Приключения Тимми и Ежи начались со случайной встречи, которая привела к настоящей дружбе. Мальчик и длинноухий ёж заботятся, (   Читать дальше...   )Жанр: Детская литератураИздательство: Аудиокнига своими рукамиПродолжительность: 02:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD04726BAD1F0A4B027AA93E89FFF19CA5052133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793562   (20264) от 25.04.2025
+
+Альваро Бильбао | EQ-воспитание. Системный подход к воспитанию личности (2025) [MP3, Алексей Петров]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нейропсихолог и многодетный отец о воспитании детей с точки зрения развития мозга.
+Книга от нейропсихолога и многодетного отца, раскрывающая все аспекты воспитания и развития детей, от формирования привычек до развития эмоционального и когнитивного интеллекта.Жанр: Воспитание детей, Детская психологияИздательство: МИФПродолжительность: 08:27:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:870BCA2AC741A3BCF0093DC7274CBE298C7FC1F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728581   (17887) от 18.05.2025
 
 Александр Пушкин, В.А. Жуковский, Сергей Аксаков | В гостях у сказки (Выпуск № 2). Сказка о рыбаке и рыбке (2005) [MP3, Вениамин Смехов]
@@ -6,7 +85,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17887.jpg" />
 </div>
 
 
@@ -34,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17317.jpg" />
 </div>
 
 
@@ -62,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16715.jpg" />
 </div>
 
 
@@ -90,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16698.jpg" />
 </div>
 
 
@@ -116,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16684.jpg" />
 </div>
 
 
@@ -144,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16555.jpg" />
 </div>
 
 
@@ -170,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16327.jpg" />
 </div>
 
 
@@ -196,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16088.jpg" />
 </div>
 
 
@@ -224,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16087.jpg" />
 </div>
 
 
@@ -252,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15837.jpg" />
 </div>
 
 
@@ -281,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15155.jpg" />
 </div>
 
 
@@ -307,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15056.jpg" />
 </div>
 
 
@@ -333,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14939.jpg" />
 </div>
 
 
@@ -359,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14408.jpg" />
 </div>
 
 
@@ -388,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14403.jpg" />
 </div>
 
 
@@ -417,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12746.jpg" />
 </div>
 
 
@@ -445,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8349.jpg" />
 </div>
 
 
@@ -473,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8218.jpg" />
 </div>
 
 
@@ -501,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8201.jpg" />
 </div>
 
 
@@ -529,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8198.jpg" />
 </div>
 
 
@@ -556,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8000.jpg" />
 </div>
 
 
@@ -584,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7842.jpg" />
 </div>
 
 
@@ -610,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6761.jpg" />
 </div>
 
 
@@ -623,90 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54C806D2FAE9AF962D290C0B57DDAD67C980CFC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813628   (6731) от 20.08.2025
-
-Павел Бажов | Уральские сказы. Часть 2 (2022) [MP3, Вячеслав Захаров]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Литературные чтения.
-Павел Петрович Бажов (1879–1950) – русский писатель, фольклорист, впервые выполнил литературную обработку уральских сказов.
-Уральские сказы – сборник удивительно красивых сказов Павла Бажова, литературно-обработанного «рабочего фольклора» Урала. Они ненавязчиво рассказывают о доброте, справедливости, честности и любви, о том, что (   Читать дальше...   )Жанр: Русская литература для детей, классика, сказкаИздательство: Радио России – Санкт-ПетербургПродолжительность: 01:24:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E249DCDC6DC18692BADD1619A99A4B367C252022
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 333616   (6202) от 24.08.2025
-
-Сергей Козлов | Сказки о Ёжике и Медвежонке [2006] [MP3, Александр Лавров]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Замечательный сказочник Сергей Козлов – автор смешных и трогательных историй о Ежике и Медвежонке. Эти неразлучные друзья давно перебрались со страниц книжек в кадры мультфильмов, которые знает и любит любой малыш.
-В этом сборнике вы найдете сказки про Ёжика, Медвежонка и их друзей. Что за прелесть это лето! Дни стоят легкие, солнечные, деревья шумят молодой листвой, (   Читать дальше...   )Жанр: Русская литература для детей, философская сказкаИздательство: «СамИздат»Продолжительность: 00:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B218A0167401FDB19B5C7CDC400D9726256B99F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814883   (5660) от 27.08.2025
-
-Сергей Козлов | Сказки (1985) [MP3, Вячеслав Захаров и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Детская страничка. Советские писатели.
-Сергей Григорьевич Козлов (1939–2010) – советский писатель-сказочник, поэт. Его наиболее известные произведения – книга и сценарий к одноименному мультфильму «Ёжик в тумане», другие книги о Ёжике и Медвежонке, истории о Львёнке и Черепахе, стихи для мультфильма «Как львёнок и черепаха пели песню».
-
- Сергей Козлов (   Читать дальше...   )Жанр: Зарубежная литература для детей, сказкаИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 00:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1A42BCB12F38B01A32B1D04964928FBA8AC9603
 ```
 
 https://mybot314.ru/tekegram_catalog/

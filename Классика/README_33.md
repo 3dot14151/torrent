@@ -6,7 +6,7 @@ Charles Gounod - Faust (Plácido Domingo,Mirella Freni,Nicolai Ghiaurov,Georges 
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448314.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Craig Armstrong - Piano Works (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Class
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447232.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Tchaikovsky - Manfred Symphony (Riccardo Muti & Philharmonia Orchestra) (1989) [
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447211.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Richard Galliano - Vivaldi (2013) [FLAC|Lossless|image + .cue]<Classical, Accord
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444213.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Renata Tebaldi - The Great Renata Tebaldi (2002)(2CD) [APE|Lossless|image + .cue
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442035.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Slava - Ottima Best Of Slava (1999) [MP3|320 Kbps] <Classical, Vocal>
 >>Вокал
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442016.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вокал
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438867.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Annelie - After Midnight (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437337.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Johann Strauss - Romantic Classic (1999) [FLAC|Lossless|tracks + .cue] <Classica
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436796.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Johann Sebastian Bach-Violin Double Concerto (BWV 1041-43, 1056): English Chambe
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436304.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Mahler - Symphony No.10 (Sir Simon Rattle & Bournemouth Symphony Orchestra) (198
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435984.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Schubert - Piano transcriptions (Antti Siirala ) (2003) [FLAC|image +.cue]<Class
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435846.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Ludovico Einaudi - Undiscovered (2020) Compilation [FLAC|Lossless|WEB-DL|tracks]
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435814.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ VA - Weekend classics series by Deutsche Grammophon (11 CD из 35) (2006) [APE,
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435492.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ David Garrett - Explosive (2015) Deluxe Edition [MP3|320 кб/с]<Classical, Cro
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435265.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Arianna Savall - Peiwoh (2009) [FLAC|Lossless|tracks + .cue] <Classical, Vocal M
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434675.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Wolfgang Amadeus Mozart - Romantic Classic (1999) [FLAC|Lossless|tracks + .cue] 
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434291.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Ludwig Van Beethoven - Romantic Classic (1999) [FLAC|Lossless|tracks + .cue] <Cl
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434287.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Lubomyr Melnyk - Rivers and Streams (2015) [FLAC|Lossless|tracks + .cue] <Classi
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433303.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ BrunuhVille - The Eternal Forest (2011) [MP3|320 кб/с]<Neo-Classical, Instrum
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431447.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ BrunuhVille - Tales From The Lost Kingdom (2012) [MP3|320 кб/с]<Neo-Classical
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431434.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ BrunuhVille - Once Upon A Time (2011) [MP3|320 кб/с]<Neo-Classical, Instrumen
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431252.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Claudio Constantini, Louiza Hamadi - 20th Century Tango (2020) Ibc classical [FL
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429534.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Franz Schubert - Symphonies Nos. 1 & 2 (Claudio Abbado & The Chamber Orchestra o
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429311.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428637.jpg" />
 </div>
 
 
@@ -738,7 +738,7 @@ Roman Ilyin - Pieces. Part 1 (2019) [MP3|320 Kbps] <Modern classical, ensemble, 
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427332.jpg" />
 </div>
 
 

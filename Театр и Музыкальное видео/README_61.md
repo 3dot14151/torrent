@@ -1,3 +1,158 @@
+###  Публикация: 517969   (644799) от 02.07.2012
+
+Призрак оперы / The Phantom of the Opera (2004) HDRip
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644799.jpg" />
+</div>
+
+
+###  Подробнее
+
+е:
+ Его голос взывает к ней из темных глубин здания оперного театра, который стал вторым домом для невинной хористки Кристины. Только руководительница балетной труппы мадам Жири знает, что таинственный "ангел музыки" Кристины — на самом деле Призрак, уродливый музыкальный гений, обитающий в катакомбах театра и наводящий ужас на артистов, которые там живут и работают.
+ Когда темпераментная дива Карлотта уходит из театра в разгар генеральной репетиции нового спектакля, жаждущим славы управляющим не остается ничего иного, как вытолкнуть под огни рампы Кристину. Ее выступление на премьере завораживает и зрителей, и Призрака, который отныне посвящает себя тому, чтобы сделать из нее звезду сцены. Но он — не единственный, перед которым благоговеет юная сопрано, — в скором времени за Кристиной начинает ухаживать богатый покровитель театра виконт Рауль де Шаньи.
+ Хотя Призрак подчинил Кристину своей власти, ее неодолимо влечет к эффектному Раулю, что приводит в ярость "гения музыки". Высокие страсти, свирепая (   Читать дальше...   )Жанр: мюзикл, триллер, драма, мелодрамаРежиссер: Джоэл ШумахерПродюсер: Джефф Абберли, Остин Шоу, Джулия БлэкманАктеры: Джерард Батлер, Эмми Россум, Патрик Уилсон, Миранда Ричардсон, Минни Драйвер, Сайэрэн Хайндз, Саймон Кэллоу, Виктор МакГуайр, Дженнифер Эллисон, Мюррей Мелвин, Кевин МакНолли, Джеймс Флит, Имоджен БэйнПеревод: ДублированныйПродолжительность: 02:21:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:914B34D3356E9699A10AA818EC8A11CB8DD6AAA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517959   (644561) от 02.07.2012
+
+Призрак оперы / The Phantom of the Opera (2004) HDRip
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644561.jpg" />
+</div>
+
+
+###  Подробнее
+
+е:
+ Его голос взывает к ней из темных глубин здания оперного театра, который стал вторым домом для невинной хористки Кристины. Только руководительница балетной труппы мадам Жири знает, что таинственный "ангел музыки" Кристины — на самом деле Призрак, уродливый музыкальный гений, обитающий в катакомбах театра и наводящий ужас на артистов, которые там живут и работают.
+ Когда темпераментная дива Карлотта уходит из театра в разгар генеральной репетиции нового спектакля, жаждущим славы управляющим не остается ничего иного, как вытолкнуть под огни рампы Кристину. Ее выступление на премьере завораживает и зрителей, и Призрака, который отныне посвящает себя тому, чтобы сделать из нее звезду сцены. Но он — не единственный, перед которым благоговеет юная сопрано, — в скором времени за Кристиной начинает ухаживать богатый покровитель театра виконт Рауль де Шаньи.
+ Хотя Призрак подчинил Кристину своей власти, ее неодолимо влечет к эффектному Раулю, что приводит в ярость "гения музыки". Высокие страсти, свирепая (   Читать дальше...   )Жанр: мюзикл, триллер, драма, мелодрамаРежиссер: Джоэл ШумахерПродюсер: Джефф Абберли, Остин Шоу, Джулия БлэкманАктеры: Джерард Батлер, Эмми Россум, Патрик Уилсон, Миранда Ричардсон, Минни Драйвер, Сайэрэн Хайндз, Саймон Кэллоу, Виктор МакГуайр, Дженнифер Эллисон, Мюррей Мелвин, Кевин МакНолли, Джеймс Флит, Имоджен БэйнПеревод: ДублированныйПродолжительность: 02:21:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:001FEC020800A6DA0F4A1E4002425E9B6F5F5A2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 346590   (643732) от 06.06.2011
+
+Светлана Сурганова  в Донецке (2011) CAMRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Светлана Сурганова и оркестр на концерте в Донецке 18 мая 2011 года.
+Концерт состоялся в ДМ "Юность".
+
+Донетчане долго ждали и дождались!(   Читать дальше...   )01.	Так начинался день
+02.	Не бойся милая
+03.	Забирай
+04.	Дождь(   Читать дальше...   )Жанр: VIP-Punk-DecadenceПродолжительность: 01:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87A5ECE69CD6742BEBB7B9D8027D112B2E502D1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518346   (643617) от 03.07.2012
+
+The Realm Of Napalm Records Vol. III (2012) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Napalm Records представляет фанатам тяжелой музыки новый, третий DVD сборник лейбла. Треклист DVD включает в себя такие великие группы как Monster Magnet, Grave Digger, Alestorm и много других.1. ALESTORM - Shipwrecked
+2. ARKONA Liki - Bessmertnykh Bogov
+3. ARKONA - Stenka Na Stenku
+4. ARKONA - Yarilo
+5. ARTAS - Rassenhass
+6. DIABULUS IN MUSICA - Sceneries of Hope
+7. DRACONIAN - The Last Hour of Ancient Sunlight
+8. EDENBRIDGE - Higher
+9. FEJD - Gryning
+10. GRAVE DIGGER - Highland FarewellЖанр: MetalПеревод: ОтсутствуетФормат: DVD VideoПродолжительность: 03:52:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292110   (642821) от 31.03.2019
+
+Dream Theater - Live at Budokan (2004/2011) BDRip [H.265/1080p-LQ] [10-bit]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Dream Theater в Nippon Budokan Hall 26 апреля 2004 года (Токио, Япония).
+Blu Ray выпущен 18 октября 2011, если верить вики.1. "As I Am" – 8:34
+2. "This Dying Soul" – 12:12
+3. "Beyond This Life" – 19:34
+4. "Hollow Years" – 9:19(   Читать дальше...   )Производство: Eagle Rock EntertainmentЖанр: ProgressiveРежиссер: Mike PortnoyПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:52:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B231A39F663123EE65689992A1FA4211D2929E4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 678152   (641810) от 17.07.2013
 
 Кубана 2012 / Kubana 2012 (2013) [H.264] HDRip
@@ -6,7 +161,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_641810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_641810.jpg" />
 </div>
 
 
@@ -35,7 +190,7 @@ The Rolling Stones - The Stones In The Park (1969/2012) [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641658.jpg" />
 </div>
 
 
@@ -64,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_639619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_639619.jpg" />
 </div>
 
 
@@ -93,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638774.jpg" />
 </div>
 
 
@@ -122,7 +277,7 @@ Judas Priest - Epitaph (2013) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_638022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_638022.jpg" />
 </div>
 
 
@@ -148,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637747.jpg" />
 </div>
 
 
@@ -174,7 +329,7 @@ Motörhead Videography / Motorhead Видеография (29 клипов) (198
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637650.jpg" />
 </div>
 
 
@@ -205,7 +360,7 @@ Whitesnake:  "Live In The Still Of The Night" (MTV-HD) (2004) HDTV 1080i [H.264]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_636690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_636690.jpg" />
 </div>
 
 
@@ -239,7 +394,7 @@ Tarja Turunen & Mike Terrana - Beauty & The Beat (2014) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636310.jpg" />
 </div>
 
 
@@ -268,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_636226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_636226.jpg" />
 </div>
 
 
@@ -297,7 +452,7 @@ Burt Bacharach - A Life In Song (2016) BDRip [H.264/1080i-LQ] <Pop, R&B, Film Mu
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636030.jpg" />
 </div>
 
 
@@ -327,7 +482,7 @@ Motorhead - Clean Your Clock (Live in Munich 2015) (2016) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635934.jpg" />
 </div>
 
 
@@ -353,7 +508,7 @@ Whitesnake - Made In Japan (2011/2013) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_635912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_635912.jpg" />
 </div>
 
 
@@ -379,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635726.jpg" />
 </div>
 
 
@@ -407,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635284.jpg" />
 </div>
 
 
@@ -436,7 +591,7 @@ Motorhead - Clean Your Clock (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634136.jpg" />
 </div>
 
 
@@ -462,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633202.jpg" />
 </div>
 
 
@@ -490,7 +645,7 @@ Ocean Drive feat. Aylar - Some People (2010) [720p]HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632610.jpg" />
 </div>
 
 
@@ -516,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631623.jpg" />
 </div>
 
 
@@ -542,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631535.jpg" />
 </div>
 
 
@@ -571,7 +726,7 @@ Ferry Corsten - Radio Crash (2008) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631038.jpg" />
 </div>
 
 
@@ -582,136 +737,6 @@ Ferry Corsten 'Radio Crash' [405 Recordings]Жанр: TranceРежиссер: н
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C64A42731DA03EA53FFBED1ED6E1A6FE0A80E1AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682085   (630903) от 23.07.2013
-
-Mr Sam & Andy Duguid vs. Pat Benatar - Invincible (2010) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mr Sam & Andy Duguid vs. Pat Benatar - InvincibleЖанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BA9C91C8FDBFEF12A5AA69725F95D21AAAB3CCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682043   (630894) от 23.07.2013
-
-Chicane vs Natasha Bedingfield - Bruised Water (2009) [720p]HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chicane vs Natasha Bedingfield - Bruised Water (Original)Жанр: TranceПеревод: ОтсутствуетПродолжительность: 00:03:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47C036C36759B58E61ADF0D11AA0AABAA879315C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682028   (630891) от 23.07.2013
-
-ATB - Humanity (Airplay Mix) (2005)   [H.264]HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630891.jpg" />
-</div>
-
-
-###  Подробнее
-
-ATB - Humanity (Airplay Mix)(Official Video HD)Жанр: TranceПеревод: ОтсутствуетПродолжительность: 00:03:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAD6DA933AC0B026FE5437E5A77473C2C0E31408
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682030   (630780) от 23.07.2013
-
-ATB - Let You Go (Reworked) (2005) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630780.jpg" />
-</div>
-
-
-###  Подробнее
-
-ATB - Let You Go (Reworked)(Official Video HD)Жанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0DFF54644FF9AF2A2457E21C857EE08DA3EB5CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682048   (630642) от 23.07.2013
-
-Dannii Minogue - Who Do You Love Now (feat Riva) (2001) [720p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630642.jpg" />
-</div>
-
-
-###  Подробнее
-
-DANNII MINOGUE 'Who Do You Love Now' (with Riva) 2001 HDЖанр: DanceПродолжительность: 00:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D5008690D9EB784477DCF629C5908C7847BC7FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

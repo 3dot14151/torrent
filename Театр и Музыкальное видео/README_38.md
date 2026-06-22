@@ -1,3 +1,165 @@
+###  Публикация: 310724   (835868) от 19.03.2011
+
+Музыкальный ринг на НТВ. Выпуск №16. Анне Веске vs Людмила Сенчина  (18.03.2011) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый музыкальный проект НТВ — это бескомпромиссное музыкальное состязание, где каждому участнику придется проявить всю силу и мощь своего таланта. Раз в неделю на «Музыкальный ринг НТВ» будут выходить два популярных артиста или коллектива. Их главное оружие — вокал, ведь петь звездным соперникам предстоит только вживую. А вести проект, по всем правилам настоящего (   Читать дальше...   )Жанр: ТВ-ШоуПродолжительность: ~ 01:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF853A73F468A9F85BCA7E6D5BF882557F48D470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 652419   (835653) от 04.05.2013
+
+Whitesnake - Made In Japan (2013) BDRip [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Best Years
+02. Give Me All Your Love Tonight
+03. Love Ain't No Stranger
+04. Is This Love(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 194555   (835162) от 22.04.2010
+
+Школа волшебниц. Музыкальное ледовое шоу Винкс. / Winx on Ice (2008) TVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835162.jpg" />
+</div>
+
+
+###  Подробнее
+
+WINX и Специалисты начнут новое захватывающее путешествие против монстров на льду, гигантских пауков, в поисках тайны, что скрывается за Каролиной и ее тайного дневника. «Каролина» - известная итальянская фигуристка Каролина Костнер, она играет саму себя, как фея, которую обманом привлекли к себе Валтор и Трикс. На мой взгляд самое красивое и зрелищное шоу! Фанатам (   Читать дальше...   )Жанр: МьюзиклПеревод: ОригинальныйПродолжительность: 01:28:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501535   (835036) от 10.10.2021
+
+Квартирник НТВ у Маргулиса. Александр Пушной с новой группой (09.10.2021) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_835036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карьера российского музыканта-мультиинструменталиста и певца Александра Пушного началась с создания группы «Медведь» в далеком 1993 году. С тех пор он прочно обосновался на музыкальной сцене, его карьера с каждым годом набирает обороты, он записывает каверы на различные песни и выпускает альбомы, а количество поклонников его творчества только увеличивается. В гостях (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA8834519F1DA7B4ADA02BA749C24161AA7426F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 652675   (834277) от 05.05.2013
+
+Cirque du Soleil: Сказочный мир / Cirque du Soleil: Worlds Away (2012) BDRip [720p]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ФэнтезиРежиссер: Эндрю АдамсонАктеры: Эрика Линц, Игорь Зарипов, Лутс Халбхюбнер, Джон Кларк, Даллас Барнетт, Таня Дрюери, Сара Хуболт, Аскья Мэйбери, Дэмиен Гордон, Зэк Бриклэнд ...Перевод: Дублированный (студия «Пифагор»)Язык субтитров: русские, украинские, английские |UTF-8|Продолжительность: 01:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77C350DD143268AE21700C492B0BCA4216EB19DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004705   (834068) от 08.04.2016
+
+G. BIZET - Carmen - Metropolitan Opera, Garanca, Alagna  (2010) 2DVD5
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834068.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Opening Credits / Vorspann / Generique debut 0:53
+Metropolitan Opera Orchestra, Yannick Nezet-Seguin
+2. Introduction by Renée Fleming (I) 1:52
+Renee Fleming(   Читать дальше...   )Жанр: OperaПеревод: ОтсутствуетЯзык субтитров: Francais, English, Deutsch, Espanol, ChineseПродолжительность: 02:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:598F0B6BB7ADAC97DAE620F04DE3804F8216DD2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 310268   (833875) от 20.03.2011
 
 UFO -Rockpalast. Hardrock Legends Vol.1 (2010) DVD5
@@ -6,7 +168,7 @@ UFO -Rockpalast. Hardrock Legends Vol.1 (2010) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833875.jpg" />
 </div>
 
 
@@ -32,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833702.jpg" />
 </div>
 
 
@@ -59,7 +221,7 @@ Manfred Mann's Earth Band-Watch The DVD (2008) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833590.jpg" />
 </div>
 
 
@@ -89,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833052.jpg" />
 </div>
 
 
@@ -115,7 +277,7 @@ AC/DC: No Bull (1996) BDRip [H.264/720p-LQ] [Directors Cut] [PR]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832698.jpg" />
 </div>
 
 
@@ -144,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831809.jpg" />
 </div>
 
 
@@ -173,7 +335,7 @@ AC/DC - No Bull (1996) BDRemux [VC-1/1080i] [Directors Cut]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830962.jpg" />
 </div>
 
 
@@ -202,7 +364,7 @@ Yello - Live in Berlin (2017) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830866.jpg" />
 </div>
 
 
@@ -232,7 +394,7 @@ Talking Heads: Stop Making Sense (1984) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830698.jpg" />
 </div>
 
 
@@ -260,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_830629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_830629.jpg" />
 </div>
 
 
@@ -289,7 +451,7 @@ Mark Knopfler: A night in London (1996) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830337.jpg" />
 </div>
 
 
@@ -315,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829880.jpg" />
 </div>
 
 
@@ -344,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829824.jpg" />
 </div>
 
 
@@ -370,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829808.jpg" />
 </div>
 
 
@@ -399,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828968.jpg" />
 </div>
 
 
@@ -425,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828888.jpg" />
 </div>
 
 
@@ -451,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828803.jpg" />
 </div>
 
 
@@ -480,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826951.jpg" />
 </div>
 
 
@@ -509,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826899.jpg" />
 </div>
 
 
@@ -539,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826618.jpg" />
 </div>
 
 
@@ -550,171 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62E7A319E60E5ADEA8A28E1DBC423487EB367BB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502617   (826611) от 15.10.2021
-
-Хелло, Жанин / Hallo Janine! (1939) BDRip [H.264] [DVO]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франция. Весь Париж собирается в варьете смотреть танцевальное ревю с участием длинноногих красоток. Одна из них - Жанин, одарённая танцовщица, исполняющая степ. Однажды она узнаёт, что её лучшую подругу обманул и бросил некий граф Рене. Она решает познакомиться с этим негодяем, влюбить в себя, а потом хладнокровно сказать ему "прощай" и тем самым отомстить (   Читать дальше...   )Производство: Германия, Universum Film (UFA)Жанр: мюзиклРежиссер: Карл БезеАктеры: Марика Рёкк, Иоханнес Хестерс, Руди Годден, Мади Раль, Эльза Эльстер, Эрих Понто, Кёте Кюль, Хуберт фон Майеринк, Ernst Dumcke, Эдит МайнхардПеревод: любительский двухголосый (Светла)Субтитры: немецкиеПродолжительность: 01:31:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA616CC418DCD34EAB62174F07CD90244D24E41E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115699   (826153) от 18.03.2017
-
-Тина Кароль - Цветы жизни DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Выше облаков
-02. Шиншилла
-03. Пупсик
-04. Не бойся(   Читать дальше...   )Производство: УкраинаЖанр: МузыкальныйАктеры: Тина КарольПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E2EEAA35A77675DF34AF72A90CF4383D4C6292D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196006   (825553) от 01.01.2018
-
-Главный новогодний концерт (2017.12.31-2018.01.01) SATRip (части 1-2 из 2)
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все звезды на одной сцене! Большинство звезд специально объединятся в дуэты и трио, чтобы хиты в их исполнении зазвучали по-новому.Телекомпания: Первый каналЖанр: КонцертАктеры: Ольга Кормухина, Интарс Бусулис, Валерия, Юрий Антонов, Варвара, "Бурановские бабушки", "Иванушки Int.", "Фабрика", Олег Газманов, Александр Буйнов, Егор Крид, Полина Гагарина, DJ Smash, "А-студио", Александр Панайотов, Светлана Лобода, Вахтанг, Владимир Пресняков, Александр Иванов, Александр Ревва, Глюкоза, Нюша, Ани Лорак, (   Читать дальше...   )Субтитры: ОтсутствуютПродолжительность: ~ 03:46:08Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5495B2617CBB664863FCB852D784DE7C007287C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 774851   (825380) от 08.04.2014
-
-Metallica - Freeze 'Em All (2013) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825380.jpg" />
-</div>
-
-
-###  Подробнее
-
-В течении всего две тысячи тринадцатого года по сети интернет бродили упорные слухи о том, что Металлика собирается отыграть в Антарктиде. И в начале декабря эти слухи были претворены в жизнь.
-Для немногочисленной аудитории победителей соответствующего конкурса (   Читать дальше...   )01. Creeping Death
-02. For Whom the Bell Tolls
-03. Sad but True
-04. Welcome Home (Sanitarium)(   Читать дальше...   )Жанр: Концерт, Heavy MetalПродолжительность: 01:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD9A0774D0E3E1D12B34BB878BEE68715F796166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 196401   (825214) от 28.04.2010
-
-Foreigner: Greatest Hits (2008) [1080i] Blu-Ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шикарный концерт группы Foreigner с лучшими хитами 70 - 80 годов...Смотрим, слушаем, наслаждаемся мелодичным хард-роком.
-
-Universally hailed as one of the most popular rock acts throughout the 70s and 80s, Foreigner still puts on an absolutely thrilling and sensational show thirty years later. This episode of Soundstage is packed with smash hits like Cold As Ice, (   Читать дальше...   )Жанр: Hard RockРежиссер: Joe ThomasПеревод: ОригинальныйПродолжительность: 01:09:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196477   (824119) от 02.01.2018
-
-Песня года Беларуси (2017) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальный фестиваль собрал популярных артистов, которые занимают вершины хит-парадов.Телекомпания: Беларусь / ОНТЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 02:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD0358C8F19F69BA28E116D18EF6C946AFF2B906
 ```
 
 https://mybot314.ru/tekegram_catalog/

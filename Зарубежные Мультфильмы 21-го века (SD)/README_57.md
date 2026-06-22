@@ -1,3 +1,29 @@
+###  Публикация: 1762056   (36391) от 23.11.2024
+
+Завороженные / Spellbound (2024) WEB-DLRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юная Эллиан должна разрушить заклинание, разделившее ее королевство на две части и превратившее ее родителей, короля и королеву Лумбрии, в монстров.Производство: Испания, США / Ilion Animation Studios, Netflix Animation, Skydance AnimationЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Вики ДженсонАктеры: Рэйчел Зеглер, Мигель Бернардо, Giovanna Bush, Дэннис Стоун, Дженифер Льюис, Ди Брэдли Бейкер, Сьюзэн Фитцер, Николь Кидман, Хавьер Бардем, Джон ЛитгоуПеревод: Дублированный (Videofilm Int.)Язык озвучки: РусскийСубтитры: русские (forced, 2x full), английские (SDH) - отдельными файламиПродолжительность: 01:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3BA8AEC627CBBDD6163B7E9A289D0DE9CF9CE7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763594   (35501) от 02.12.2024
 
 Моана 2 / Moana 2 (2024) TS [H.264] [звук с TS]
@@ -6,7 +32,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35501.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35045.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32704.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32121.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32088.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31529.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31129.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29982.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27763.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27197.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27116.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Looney Tunes: Космическое вторжение / The Day the Earth Blew
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26124.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25946.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24650.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22071.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11960.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11808.jpg" />
 </div>
 
 

@@ -1,3 +1,166 @@
+###  Публикация: 1209524   (779195) от 27.02.2018
+
+BlackArch Linux 2017.12.11 [Хакинг, аудит, безопасность] [i686, x86-64] 1xDVD, 1xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779195.jpg" />
+</div>
+
+
+###  Подробнее
+
+BlackArch - «легковесный», простой и гибкий дистрибутив Linux, оптимизированный для архитектур i686 и x86-64, использующий последние стабильные версии программ и дополняемый поддерживаемым сообществом репозиторием AUR. Arch «будет тем, что вы из него сделаете», и рассчитан не на новичков, а на более опытных пользователей. Дистрибутив был создан Джаддом Винетом.
+ (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:279F3FB454B0D10102B6D1497EF1F0DECC577F98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012969   (778147) от 02.05.2016
+
+ChaletOS 16.04 [x86-64] 2xDVD
+
+>>След.
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый релиз ChaletOS. Дистрибутив предназначен для людей, желающих перейти на Linux и при этом испытывать минимум затруднений в излучении новой ОС. Интерфейс максимально приближен к OC Windows, обладает широкими возможностями настройки и приятными темами. Рабочее окружение Xfcе не требовательно к ресурсам, что оценят владельцы менее мощных пк. Из коробки имеет необходимый (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DF9DA2C19909C6BFB4E841F2C3AA14325CCE95A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 659995   (774653) от 23.05.2013
+
+Siduction 13.1.0 (включая легкие DE) [i386 + amd64] (4xDVD + 6xCD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлен siduction 13.1.0 стабильный выпуск нового desktop-ориентированного дистрибутива и Live CD/DVD, основанного на unstable-ветке Debian GNU/Linux. Проект siduction является форком дистрибутива aptosid, из которого он выделился в конце 2011 года, и предлагает пять  отдельных Live-носителей с различными рабочими столами, в том числе с легкими рабочими столами:  LXDE, XFCE, Razor-qt, а также с KDE и GNOME.
+
+Razor-qt легковесное десктоп-окружение, построенное на технологиях Qt. Ключевые направления развития Razor-qt - простота, скорость, настраиваемость и интуитивно понятный интерфейс. Небольшое потребление ресурсов позволяет использовать Razor-qt на маломощных и устаревших системах. Код написан на языке C++ (без QML и Qt Quick) и распространяется под лицензиями GPLv2 и LGPLv3+. Ядро Linux kernel  3.9.3, X-Server --  1.12.4-6. Это -- первый выпуск siduction, в который входит GNOME 3.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 659755   (774610) от 23.05.2013
+
+BackBox Linux 3.05 [Анализ безопасности, хакинг] [i386, x86-64] (2xDVD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда разработчиков BackBox Linux представляет новый стабильный релиз специализированного дистрибутива GNU/Linux, предназначенного для проведения пен-тестов и оценки безопасности компьютерных систем.
+
+Дистрибутив базируется на Ubuntu, ядро Linux 3.2 и Xfce 4.8.
+
+Как и раньше, в предыдущих релизах дистрибутива, исправлены обнаруженные баги, улучшена производительность, улучшено стартовое меню, улучшены драйвера Wi-Fi (compat-wireless aircrack patched). Добавлены новые и обновлены старые хакерские инструменты - bAutomater, inundator, Ettercap, Wireshark, SE Toolkit, Metasploit, sqlmap, BeEF, Recon-ng, zaproxy, Weevely, THC-IPV6, truecrack, Hashcat) и многое другое .
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 886491   (769957) от 09.04.2015
+
+JonDo 0.9.76.2 [анонимный доступ в сети] [x86] DVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_769957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вышел очередной корректирующий релиз дистрибутива JonDo  - 0.9.76.2.  Устранены выявленные баги, обновлена пакетная база. Jondo Live-DVD предлагает безопасные, предварительно настроенные среды для анонимного серфинга в сети и многие другие инструменты сохранения анонимности. Дистрибутив основан на Debian GNU / Linux. Онлайн-система содержит прокси-клиенты для JonDonym, Tor маршрутизатор Onion и ремейлер Mixmaster. Firefox (Firefox+JonDoFox) предварительно настроен для анонимного веб-серфинга, Thunderbird с Enigmail (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94FF5200A2734470F5909BB8A3DC8F7AA7E1A8AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125245   (768453) от 14.04.2017
+
+Parrot Security OS 3.5 [Хакинг, аудит, безопасность] [i386, amd64, arm] 5xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Parrot Security OS предназначен для пентестинга (тестирования на проникновение), обратного инженеринга, взлома, облачного пентестинга, конфиденциальности, анонимности и криптографии. Набирающий популярность security-дистрибутив, основанный на стабильной ветке Debian-linux. Довольно простой в освоении, подходит и для новичков и для профессионалов. Этот дистрибутив (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34B705ABB32626045F516C9497C999E2E23BC05E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279258   (766746) от 28.01.2019
 
 Debian GNU/Linux 9.7.0 + nonfree Stretch [i386] 4xDVD
@@ -6,7 +169,7 @@ Debian GNU/Linux 9.7.0 + nonfree Stretch [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766746.jpg" />
 </div>
 
 
@@ -32,7 +195,7 @@ Debian GNU/Linux 9.7.0 + nonfree Stretch [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766638.jpg" />
 </div>
 
 
@@ -58,7 +221,7 @@ MX-19.2 Linux (XFCE) [x86-64, i386] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764207.jpg" />
 </div>
 
 
@@ -84,7 +247,7 @@ Antergos (ex. Cinnarch) 2013.05.12 (легкий дистрибутив) [i686 +
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762499.jpg" />
 </div>
 
 
@@ -112,7 +275,7 @@ JonDo 0.9.77 [анонимный доступ в сети] [x86] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_759054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_759054.jpg" />
 </div>
 
 
@@ -138,7 +301,7 @@ Linux Mint 20.3 Una (XFCE, Mate, Cinnamon) [64bit] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758002.jpg" />
 </div>
 
 
@@ -164,7 +327,7 @@ Debian Edu - Skolelinux 10.4.0 Buster [Linux для школы] [i386, x86-64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756859.jpg" />
 </div>
 
 
@@ -190,7 +353,7 @@ Debian GNU/kFreeBSD 7.0.0 [i386, amd64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_756822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_756822.jpg" />
 </div>
 
 
@@ -220,7 +383,7 @@ Elementary OS 3 [Freya] [i386,amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756471.jpg" />
 </div>
 
 
@@ -246,7 +409,7 @@ Calculate Linux 15.17 [i686] 1xCD, 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755671.jpg" />
 </div>
 
 
@@ -274,7 +437,7 @@ Scientific Linux 7.1 (w. LiveDVD) [x86-64] 3xDVD, 1xDL DVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754886.jpg" />
 </div>
 
 
@@ -300,7 +463,7 @@ Chakra (Arch + KDE) 2013.05 Benz [x86-64] (1xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_754872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_754872.jpg" />
 </div>
 
 
@@ -328,7 +491,7 @@ Calculate Linux 15.17 [x86-64] 1xCD, 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_753546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_753546.jpg" />
 </div>
 
 
@@ -356,7 +519,7 @@ ZevenOS 3.1 Neptune [x64] (1xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_752897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752897.jpg" />
 </div>
 
 
@@ -384,7 +547,7 @@ Manjaro Linux 0.8.6 (Arch + XFCE, openbox, net) [i686, x86-64] (4xCD, 2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749241.jpg" />
 </div>
 
 
@@ -412,7 +575,7 @@ Snowlinux 4.0 Frosty [Cinnamon, Mate] [i386 + amd64] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747243.jpg" />
 </div>
 
 
@@ -438,7 +601,7 @@ OSGeo-Live 9.5 (Дистрибутив для географов, картогр
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746485.jpg" />
 </div>
 
 
@@ -464,7 +627,7 @@ Q4OS 1.4.10 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746244.jpg" />
 </div>
 
 
@@ -492,7 +655,7 @@ BackBox Linux v5.1 [Аудит безопасности, хакинг] 2xDVD [i3
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744360.jpg" />
 </div>
 
 
@@ -520,7 +683,7 @@ OSGeo-Live 10.5 (Дистрибутив для географов, картог�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740605.jpg" />
 </div>
 
 
@@ -531,168 +694,6 @@ OSGeo-Live 10.5 (Дистрибутив для географов, картог�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FD2BEAD6998C6DA7C28821692B036F8907BD1ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 785921   (738598) от 12.05.2014
-
-Sabayon 14.05 [x86] 4xDVD, 1xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлен релиз дистрибутива Sabayon Linux 14.05, сочетающего в себе удобство для конечного пользователя с гибкостью Gentoo. Sabayon Linux оформлен в виде Live-дистрибутива, снабжённого возможностью лёгкой установки на жёсткий диск. Sabayon использует модифицированную rolling-модель подготовки обновлений, которая делает выпуск обновлений более предсказуемым и менее болезненным. Дистрибутив доступен в сборках с KDE 4.12.5 (2.0 Гб), GNOME 3.12 (1.4 Гб) и Xfce 4.10 (1.2 Гб).
-
-Пакетная база дистрибутива синхронизирована с коллекцией портажей Gentoo и полностью совместима с Portage 2.2 (EAPI2), пользователь имеет возможность установки программ как из исходных текстов, так и используя готовые бинарные пакеты, собранные для платформ ARMv7, x86 и x86-64. Для x86 и x86-64 в репозитории насчитывается около 14000 пакетов, а для ARMv7 - более 2000. Поддерживаемые пакеты обновляются непрерывно (rolling-релиз), предоставляя пользователю доступ к самым свежим версиям программ. Для управления пакетами подготовлен GUI интерфейс (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAFE3840B823CF13B0AF3451E0F6301F07BEA64B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 785922   (738593) от 12.05.2014
-
-Sabayon 14.05 [amd64] 4xDVD, 1xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлен релиз дистрибутива Sabayon Linux 14.05, сочетающего в себе удобство для конечного пользователя с гибкостью Gentoo. Sabayon Linux оформлен в виде Live-дистрибутива, снабжённого возможностью лёгкой установки на жёсткий диск. Sabayon использует модифицированную rolling-модель подготовки обновлений, которая делает выпуск обновлений более предсказуемым и менее болезненным. Дистрибутив доступен в сборках с KDE 4.12.5 (2.0 Гб), GNOME 3.12 (1.4 Гб) и Xfce 4.10 (1.2 Гб).
-
-Пакетная база дистрибутива синхронизирована с коллекцией портажей Gentoo и полностью совместима с Portage 2.2 (EAPI2), пользователь имеет возможность установки программ как из исходных текстов, так и используя готовые бинарные пакеты, собранные для платформ ARMv7, x86 и x86-64. Для x86 и x86-64 в репозитории насчитывается около 14000 пакетов, а для ARMv7 - более 2000. Поддерживаемые пакеты обновляются непрерывно (rolling-релиз), предоставляя пользователю доступ к самым свежим версиям программ. Для управления пакетами подготовлен GUI интерфейс (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D14EAAC39F74D8247B36C0C22ED882FA90B9C3EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526543   (738007) от 25.01.2022
-
-Kali Linux 2021.4a (ex. BackTrack) [amd64, i386, arm] 6xDVD, 3xCD Аудит безопасности, хакинг
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738007.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 декабря 2021 состоялся релиз обновления дистрибутива Kali Linux 2021.4a, предназначенного для тестирования систем на предмет наличия уязвимостей, проведения аудита, анализа остаточной информации и выявления последствий атак злоумышленников.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16D23A0E1B9E417DD8A3DB2EFA7FAB185537E72A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 786960   (737147) от 16.05.2014
-
-Edubuntu 14.04 LTS [x86, x86-64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Edubuntu — дистрибутив операционной системы Linux, основанный на дистрибутиве Ubuntu. Ориентирован на использование в образовательных учреждениях.
-
-В Edubuntu включён Linux Terminal Server Project для быстрого развёртывания и сетевой загрузки. Edubuntu содержит большое количество программ образовательного направления, таких как GCompris, KDE Education Project, SchoolTool Календарь.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E92AD7322E6CC5550ADBEBFD8BFE49008EFC41E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 786998   (737030) от 16.05.2014
-
-Lubuntu 14.04 LTS [x86, x86-64] 4xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lubuntu — это свободная операционная система на базе Ubuntu Linux. Основное отличие Lubuntu — малые требования к ресурсам компьютера за счет использования среды рабочего стола LXDE. Lubuntu — это современная операционная система, которую можно поставить как на современные компьютеры, так и на устаревшие. Lubuntu работает очень быстро, она безопасна, красива, функциональна. К тому же, Lubuntu позволяет вернуть к жизни старые персональные компьютеры, на которых другие современные операционные системы не смогут нормально работать. Lubuntu также отлично подходит для установки на нетбуки и другие портативные устройства.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9197F381B261A3DFD771DE02DD4C9FC0110D656
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399608   (732834) от 01.08.2020
-
-GeckoLinux "Rolling" edition 999.200729.0 [amd64] 7xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732834.jpg" />
-</div>
-
-
-###  Подробнее
-
-GeckoLinux — дистрибутив Linux на базе openSUSE. Дистрибутив распространяется в двух редакциях: Static, которая основывается на openSUSE Leap, и Rolling, которая основывается на openSUSE Tumbleweed. Здесь только версия Rolling. Представлены варианты с DE: Cinnamon, Xfce, GNOME, KDE Plasma, MATE, LXQt и IceWM.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2475E25A974EB15AA7CA1ECC4C58265A217BA6DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

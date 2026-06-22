@@ -6,7 +6,7 @@
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775932.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ported *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775294.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775032.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772928.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771085.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769482.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766890.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766830.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764992.jpg" />
 </div>
 
 
@@ -232,6 +232,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215053   (761282) от 24.03.2018
+
+(Linux) Pizza Connection 3 (2018) [Ru/Multi] (1.0.6655.32666) License GOG [Soundtrack Edition]
+
+>>*Nix Игры
+>>Native *Nix Games
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_761282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mamma mia! Легендарная кулинарная эпопея Pizza Connection возвращается на ПК после долгих лет ожидания. Попробуйте новые острые вкусы! Приготовьте пиццу, от которой нельзя отказаться! В Pizza Connection 3 собраны проверенные ингредиенты из предыдущих частей знаменитого экономического симулятора, но подаются они совершенно под другим соусом!Тип издания: LicenseРазработчик: Gentlymad Studios, Assemble EntertainmentЖанр: Стратегия, Симулятор, МенеджментЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E07B57556A936158FA83726865B4A79981ECDD8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 660142   (756138) от 30.05.2013
 
 (Linux) Противостояние 4 - Реальная Война 3 / Sudden-Strike 2 - Real War Game 3 [Crossover bottle] (2013) [Ru] (3.0b) Mod
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ported *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756138.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751197.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747034.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741695.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ Linux Braid (2009) [Ru/Multi] (2015-06-11) License GOG
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732432.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711223.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702577.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702557.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698149.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689168.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669061.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664065.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658658.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658462.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655517.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646186.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24B5CB7A5C43DD152F14B73C3167C1A05EA3FA93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066711   (642342) от 14.06.2017
-
-(Linux) Human Fall Flat (2016) [Ru/Multi] (1.2g) License GOG
-
->>*Nix Игры
->>Native *Nix Games
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Human: Fall Flat, забавная головоломка, основанная на законах физики м посвященная тому, как не разбиться всмятку во сне. Нам всем приходилось вскакивать посреди ночи из-за того, что во сне мы разбивались, упав с большой высоты. А если бы мы могли остаться во сне и попытаться избежать падения, используя смекалку и законы физики?Тип издания: LicenseРазработчик: Curve DigitalЖанр: Action, Adventure, PuzzleЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC0E46F0FFF5EF641E4BD56A68EC07FB277F6EDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

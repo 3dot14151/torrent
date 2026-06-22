@@ -1,3 +1,55 @@
+###  Публикация: 1167582   (414875) от 21.09.2017
+
+Засекреченные списки. Скрытая угроза! 7 настоящих хозяев Земли (Эфир от 16.09.2017) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Природа объявила нам войну, вирусы, неизвестные смертельные болезни. Каким будет следующем удар, кто и зачем нарушил законы климата? Оружие с дальним прицелом, кто с помощью дождей или засухи истребляет целые народы? Кого уже сейчас убивает легендарное бактериологическое оружие? Животных в мире больше, чем людей, почему рано или поздно мы проиграем природе войну (   Читать дальше...   )Телекомпания: Россия, RenTV, Юнайтед медиаЖанр: ДокументальныйПродолжительность: 01:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE67577D05EF9CEDF5A4CF63E9EA0FA63EAD5DAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412906   (413471) от 01.10.2020
+
+Страшные истории (2020) WEBRip [H.264/1080p-LQ] (выпуски 1-8 из 8)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413471.jpg" />
+</div>
+
+
+###  Подробнее
+
+В городе завелся кто-то очень странный. Они всегда там, где смерть: мужчина в очках-авиаторах, старуха с кривой клюкой и человек с кожаным портфелем. На каждом месте преступления, везде, где случилась трагедия, они в толпе зевак. Говорят, в каждом городе они выглядят по-разному...Телекомпания: ТВ3Жанр: Документальный, мистика, ужасыСубтитры: ОтсутствуютПродолжительность: ~00:08:00 выпуск
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:303C6CC6D3D302822315C1B29AC928B00BDA34C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948569   (411407) от 20.10.2015
 
 Земля. Территория загадок. Когда приходят призраки (2015) SATRip
@@ -6,7 +58,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411407.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409457.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Discovery: Темные материи. Запутанные, но правди�
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409376.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409246.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408640.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408636.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408553.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407620.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407148.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400560.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400517.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400201.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399350.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397606.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392908.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392834.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392833.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387548.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387373.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386862.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385109.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384943.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384919.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384352.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE6165D0C7DA090948B3108C381165FE8B9B6501
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415121   (378245) от 11.10.2020
-
-Битва экстрасенсов (10.10.2020) WEB-DL [H.264/720p-LQ] (сезон 21, выпуск 3)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378245.jpg" />
-</div>
-
-
-###  Подробнее
-
-На ТНТ стартует 21-й сезон «Битвы экстрасенсов» – проекта, который навсегда изменил представление людей об экстрасенсорике и человеческих возможностях. Из-за пандемии в этом году кастинг в 21-й сезон «Битвы экстрасенсов» впервые был полностью дистанционный. Его можно было пройти по видеосвязи – не выходя из дома, из любой точки мира, из любой деревни или села, везде, (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-шоуСубтитры: ОтсутствуютПродолжительность: 01:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:424AF638366AB5DA55ECFEB14357B124B3E02DBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949396   (377147) от 23.10.2015
-
-По следам тайны. Йога - путь самопознания (2015) IPTVRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377147.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1837 году в Лахоре один из самых известных Йогов Индии по имени Харидас на спор с махараджей позволил похоронить себя в земле на 40 дней. Для чистоты эксперимента, захороненное тело Харидаса все эти 40 дней охранял конвой солдат. Когда 40 дней прошли, жители Лахора и окрестных селений огромной толпой пришли посмотреть на пробуждение Харидаса. Всего лишь через полчаса (   Читать дальше...   )Телекомпания: ВГТРКЖанр: Документальный, историяРежиссер: Армен ПетросянПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCAC700BE745C14A58DDE9DB844615EA29D6BF4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

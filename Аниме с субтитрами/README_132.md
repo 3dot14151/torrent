@@ -1,3 +1,29 @@
+###  Публикация: 1820954   (8615) от 06.10.2025
+
+Sozai Saishuka no Isekai Ryokouki / A Gatherer's Adventure in Isekai / Путешествие коллекционера по другому миру [2025, TV, 1 из ?] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Такеру Камищиро — обычный офисный служащий, которого в один прекрасный день призывают в мир меча и магии под названием Мадеус. Разумеется, он сразу же получает пачку полезных навыков, включающих невероятную силу и потрясающие магические способности. Но самое главное — он наделён силой «Поиска» различных ценных предметов.Жанр: приключения, фентези.Режиссер: Одака ЁсинориЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: ? серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E3DAB5DE13099CF5938DBE5E0FFAE8238D0B98F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805679   (8479) от 11.08.2025
 
 Food Court de, Mata Ashita. / See You Tomorrow at the Food Court / Увидимся завтра на фудкорте [2025, TV, 6] WEBRip 720p raw
@@ -6,7 +32,7 @@ Food Court de, Mata Ashita. / See You Tomorrow at the Food Court / Увидим�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8479.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Necronomico no Cosmic Horror Show | Necronomico and the Cosmic Horror Show | К�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2551.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Mattaku Saikin no Tantei to Kitara | Detectives These Days Are Crazy! | С ны�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2540.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Kanojo, Okarishimasu 4-1 | Rent-A-Girlfriend S4 P1 | Девушка на час 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2512.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Tsuihousha Shokudou e Youkoso! / Welcome to the Outcast's Restaurant! / Добр
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2260.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Clevatess: Majuu no Ou to Akago to Shikabane no Yuusha | Clevatess | Клева�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2255.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Mikadono San Shimai wa Angai, Choroi. | Dealing with Mikadono Sisters Is a Breez
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2239.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Onmyou Kaiten Re:verse | Цикл оммёдзи: Перерождение [2025
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2228.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Tsuyokute New Saga | Стать сильнее! Новая сага [2025, TV, 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2227.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Jidouhanbaiki ni Umarekawatta Ore wa Meikyuu o Samayou 2nd Season | Reborn as a 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2226.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Muchuu sa, Kimi ni. | Captivated, by You | Других таких нет [2025,
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2200.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Sakamoto Days (2025) | Дни Сакамото [Часть 2] [2025, TV, 11 эп
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2096.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Zutaboro Reijou wa Ane no Moto Konyakusha ni Dekiai Sareru / Betrothed to My Sis
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1920.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Sono Bisque Doll wa Koi o Suru 2 / My Dress-Up Darling 2 / Эта фарфоро
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1744.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ Yuusha Party o Tsuihou Sareta Shiro Madoushi, S Rank Boukensha ni Hirowareru / �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1739.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ Kizetsu Yuusha to Ansatsu Hime / The Shy Hero and the Assassin Princesses / Об
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1738.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Koujo Denka no Kateikyoushi / Private Tutor to the Duke's Daughter / Чacтны�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1716.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ Ame to Kimi to | With You and the Rain | С тобой и дождём [2025, TV
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1687.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ Dan Da Dan (2025) | Дандадан [ТВ-2] [2025, TV, 12 из 12] WEBRip 720p
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1542.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ Dekin no Mogura | The Earthbound Mole | Запрещённый крот [2025, T
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1530.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ Uglymug, Epicfighter | Busamen Gachi Fighter | Всё тот же невзрач
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1520.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ Nyaight of the Living Cat / Night of the Living Cat / Ночь живых кош
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1518.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ Hotel Inhumans | Отель для нелюдей [2025, TV, 12 из 13] WEBRip 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1506.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Jibaku Shounen Hanako-kun 2 Kouhen | Toilet-bound Hanako-kun Season 2 (2025) | �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1496.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ Grand Blue Season 2 / Grand Blue Dreaming 2 / Необъятный океан [�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1381.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ Grand Blue Season 2 / Grand Blue Dreaming 2 / Необъятный океан [�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A9B7FADCB5A8ECF5FEDF95E7940D79156945109
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805849   (1364) от 23.09.2025
-
-Kakkou no Iinazuke Season 2 | A Couple of Cuckoos Season 2 | Обручённые кукушками [ТВ-2] [2025, TV, 12 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Умино Наги и Амано Эрика родились в один день и их перепутали в роддоме. Наги воспитывался как сын владельца закусочной, а Эрика — как дочь гостиничного магната. Родители поощряют их помолвку и они начинают совместную жизнь. Однако вскоре между ними возникают проблемы, поскольку Наги застревает в любовном четырехугольнике. Жизнь и любовь запутываются в эпическую (   Читать дальше...   )Производство: Студия Okuruto Noboru / オクルトノボルЖанр: комедия, романтика, повседневностьРежиссер: Хисида МасакадзуПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC0F96DD39369180C7D99B60F1AE522B68138CDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

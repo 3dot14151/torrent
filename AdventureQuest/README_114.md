@@ -1,3 +1,133 @@
+###  Публикация: 1807420   (9285) от 05.08.2025
+
+PEAK (2025) [Ru/Multi] (1.11.a) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9285.jpg" />
+</div>
+
+
+###  Подробнее
+
+PPEAK - это совместная игра о восхождении, где малейшая ошибка может привести к гибели. Играйте в одиночку или вместе с группой отчаянных бойскаутов. Сбегите с таинственного острова, для чего вам потребуется забраться на гору в его центре. Хватит ли вам сил, чтобы достичь ПИКА? Нужна рука помощи? Тогда положитесь на друзей, если хотите покорить гору, которая меняется (   Читать дальше...   )Тип издания: RepackРазработчик: Team PEAKЖанр: Экшены, Приключенческие игры, ИндиЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:716A16238FE8571E176B25998F2953594DA7E4AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805138   (9268) от 05.08.2025
+
+The Echo Paradox (2025) [En] (19081580) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9268.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Echo Paradox - это психологическая игра ужасов, в которой вы исследуете альтернативные вселенные с различными существами. Человечество стоит на пороге тревожного откровения – мультивселенная реальна, но жутко лишена жизни. Как смелый доброволец исследовательской группы Phaselink, вы отправляетесь в пугающее путешествие, отправляясь в неизвестные параллельные (   Читать дальше...   )Тип издания: SceneРазработчик: VirtuzillaЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C61463E0C032975991531D84CB6D5DD97F784926
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780563   (9188) от 06.08.2025
+
+Lost Records Bloom & Rage (2025) [Ru/Multi] (2.04.132116) Repack Let'sРlay [Soundtrack Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перенеситесь в 1995 год в этом захватывающем приключении от авторов знаменитой игры Life is Strange. Снимите фильм о своём последнем лете в Вельвет-Коув, играя за замкнутую чудачку Суонн. Познакомьтесь с бунтаркой Норой, рассудительной Отем и загадочной упрямицей Кэт. Но лето кончается, а вместе с ним и их дружба. Двадцать семь лет спустя судьба вновь сводит их вместе. (   Читать дальше...   )Тип издания: RepackРазработчик: DON'T NODЖанр: Приключенческие игры, ИндиЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C60512D5A4C3654601D7ACD103B991799E8D43A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599669   (9176) от 06.08.2025
+
+Lucy Dreaming (2022) [Multi] (2.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наберитесь мужества и шагните в ужасающий мир Британского пригорода среднего класса, чтобы помочь Люси раскрыть секрет её кошмарных снов. Но знайте, её подсознание - кроличья нора, полная тайн, приключений и невиданных существ. Lucy Dreaming вдохновлена классическими адвенчурами 90-х и вобрала всё лучшее от них, начиная с очаровательной пиксельной графики и заканчивая (   Читать дальше...   )Тип издания: LicenseРазработчик: Tall Story Games LtdЖанр: Приключение, Головоломка, МистикаЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FED4406030F10567B1B875071233397821AB7F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810786   (9118) от 06.08.2025
+
+Tall Trails (2025) [En] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tall Trails дает под контроль Альпа, маленького голема в поисках своего предназначения. Передвижение завязано на Ракетном Ботинке - устройстве, потребляющем собранные предметы в качестве топлива для полетов. Геймеру предстоит бегать и карабкаться по миру, используя ботинок для вертикального подъема. Каждый предмет дает уникальный эффект, меняя способ навигации персонажа (   Читать дальше...   )Тип издания: SceneРазработчик: Brady SoglinЖанр: Экшены, Приключенческие игры, Казуальные игры, ИндиЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80CDBE9966346625B5C2AF22E8AAADE8D334958C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794874   (9084) от 07.08.2025
 
 Necrophosis (2025) [Ru/Multi] (Build 19486897) Repack Let'sРlay
@@ -6,7 +136,7 @@ Necrophosis (2025) [Ru/Multi] (Build 19486897) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9084.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ The Invincible (2023) [Ru/Multi] (Build:45.002 CL_57352) Repack Let'sРlay [Delu
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9059.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Luto (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9048.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ LEILA (2025) [Ru/Multi] (20250803 Build 19462323) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8938.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Forgotten 23 (2025) [Multi] (1.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8753.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Runa Illustra (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8737.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8722.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.08.06.18.12/dlc) Repack Fit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8700.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Luma Island (2024) [Ru/Multi] (1.1.4.25451) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8591.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Death Relives (2025) [Ru/Multi] (0.14.68.408) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8507.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 19131828) Repack Let's
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8322.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ The Roottrees are Dead (2025) [Multi] (20250717) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8307.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 19131828) Repack Decep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8187.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Out of Sight (2025) [Ru/Multi] (1.0.48) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8160.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Cabernet (2025) [Multi] (1.1.19) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7961.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258.834/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7956.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Kulebra and the Souls of Limbo (2025) [Multi] (1.1.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7940.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ BROK the InvestiGator (2022) [Ru/Multi] (1.5.3/dlc) Repack Let'sРlay [Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7931.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.08.12.09.11/dlc) Repack Wan
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7754.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ Labyrinth of the Demon King (2025) [Ru/Multi] (1.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7565.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ The End of the Sun (2025) [Ru/Multi] (2.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7558.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ The End of the Sun - это мистическая приключенческа�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6E2B9D56001692E16D547D3DC781EA989BA44AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670599   (7552) от 16.08.2025
-
-Night Loops (2023) [Ru/Multi] (1.4.1) License GOG [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта история о поиске неведомых миров и путешествии в глубины духа. Холодная, зацикленная, медленно дрейфующая в никуда, – но каждая ночь отличается, как не найти двух одинаковых пятен крови. Говорят, если ступить на Путь, можно вновь выстроить внутренний мир и вернуть то, что ваше по праву. Да, жанр этой игры - психологический хоррор и приключение... но вы совершенно (   Читать дальше...   )Тип издания: LicenseРазработчик: JiaquariumЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Японский, Китайский (упрощенный)Язык интерфейса: Русский, Английский, Японский, Китайский (упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DDA1A7524931A8911F724206EA5FE4833B24FB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812748   (7524) от 16.08.2025
-
-Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 19131828) Repack Wanterlude [Enhanced]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Senua's Saga: Hellblade 2 - продолжение ролевого экшена про кельтскую воительницу Сенуа. События сиквела переносят в Исландию, а история напрямую продолжает предыдущую часть. Основная идея игры состоит в том, чтобы показать свое видение шаманизма нордических земель. Игра опирается на кельтскую и скандинавкую мифологии. В центре истории героиня предыдущей части - (   Читать дальше...   )Тип издания: RepackРазработчик: Ninja TheoryЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6960CB74FB8D0E06B9938A06E74421DEB47C53EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377856   (7395) от 17.08.2025
-
-Disaster Report 4: Summer Memories (2020) [Multi] (1.05(a)/dlc) License GOG [Digital Limited Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы попали в трагическую катастрофу, затронувшую множество жизней и теперь вам придется принимать решения, от которых будет зависеть: кому жить, а кому умереть в хаосе природного бедствия. Как вы будете справляться с последствиями катаклизма? Вы оказываетесь в городе, пострадавшем от масштабного землетрясения, в эпицентре хаоса и разрушений. Только от вас зависит, (   Читать дальше...   )Тип издания: LicenseРазработчик: Granzella Inc.Жанр: Приключение, Экшн, ВыживаниеЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Китайский (традиционный), Японский, КорейскийЯзык интерфейса: Английский, Китайский (традиционный), Японский, Корейский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F1D7D9A526DF707662E28DC36C85042B4E9DAB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804301   (7388) от 17.08.2025
-
-Boxville 2 (2025) [Ru/Multi] (2.17.4) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Boxville 2 от Triomatica Games - это следующая часть приключенческой игры о банках, живущих в городе из коробок. Два друга получили важное задание от мэра - установить фейерверк для городского праздника. Но из-за небольшой ошибки фейерверк запустился неправильно, вызвав хаос в городе. Хуже того, один из друзей пропал без вести. Теперь главному герою, предстоит исследовать (   Читать дальше...   )Тип издания: LicenseРазработчик: Triomatica GamesЖанр: Приключенческие игры, ИндиЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AABF980F65B9A0AF6BC8F1B63D1384734619ED6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787782   (7377) от 17.08.2025
-
-The Darkest Files (2025) [Multi] (1.0.8.1) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Германия, 1956. Война окончена, но справедливость не восторжествовала. Бывшие нацисты гуляют на свободе, а их жертвы лежат в безымянных могилах. Как прокурор вы будете раскапывать похороненные факты, опрашивать свидетелей и преследовать преступников. Вы - Эстер Кац, молодая обвинительница, только что вступившая в новый специальный отряд Фрица Бауэра.Тип издания: LicenseРазработчик: Paintbucket GamesЖанр: Приключенческие игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73D47797C23E4AFA04241757C03E5FF29F84E0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ VA - Matters Of The Heart (2021) Behind The Sky Music [FLAC 2.0|48/24|tracks|WEB
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008848.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ beatfarmer - The Light (2021) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008596.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Eluvium (Matthew Robert Cooper, Martin Eden) - Discography 30 Releases (2003-202
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008536.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Before Tigers - Missing My Future (2021) 79Ancestors [FLAC 2.0|44.1/24|tracks|WE
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008338.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ John Williams - Rodrigo: Concierto de Aranjuez_Villa-Lobos : Guitar Concerto (19
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008172.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Julia Kent - Discography 22 Releases (2007-2021) Leaf Records [FLAC|Lossless|tra
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007565.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Eluvium - For Thousands Of Miles (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Ambient,
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007464.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007340.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Wil Bolton (aka CHEjU) - Discography 30 Releases (2010-2021) [FLAC|Lossless|trac
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007232.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Lucrecia Dalt - Discography 19 Releases (2011-2021) Human Ear Music, Pruna Recor
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006971.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Stillhead - Iceberg (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006415.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Inhmost - The Meaning Of...... (2021) re:st [FLAC 2.0|44.1/24|tracks|WEB-DL] <Am
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006286.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Jon Hassell - Seeing Through Sound (Pentimento Volume Two) (2020) Ndeya [FLAC|Lo
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006284.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Motionfield - Discography 16 Releases (2006-2021) Autoload [FLAC|Lossless|tracks
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005980.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Fief - I-IV (2019) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, D
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005933.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Eric "The" Taylor (Resilience, Architects Of Existence) - Discography 7 Releases
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005815.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Pole - Discography 29 Releases (1998-2021) Mute, Kiff SM, ~scape [FLAC|Lossless|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005592.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ C-Land - Contactee’s Journal (2021) Microcosmos Records [FLAC|Lossless|WEB-DL|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005218.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Underwater Sleep Orchestra - The Night and Other Sunken Dreams (2021) Cryo Chamb
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005213.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ bvdub - Hard Times, Hard Hearts (2021) AY [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambi
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005199.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Si Matthews (Confluent Phase, Cryostasis) - Discography (2015-2019) Carpe Sonum,
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003548.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Hello Meteor - Discography 44 Releases (2014-2021) Evergreen Prefecture Media [F
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003472.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Igor Pumphonia - Elixir Of The Soul (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambien
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003017.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Sole Massif & Jacob Newman - Santraukos (2019) [FLAC|Lossless|WEB-DL|tracks] <Am
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003000.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ Autumn Of Communion - Discography 28 Releases + Box Set 20 Releases (2012-2021) 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002955.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ Joel Tammik (Rajaleidja) - Collection 15 Releases (2004-2019) [FLAC|Lossless|tra
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001879.jpg" />
 </div>
 
 

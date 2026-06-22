@@ -1,3 +1,110 @@
+###  Публикация: 1199337   (800956) от 16.01.2018
+
+Валаам (2018) WEBRip [H.264/1080i-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Валаам – самый древний монастырь на севере Руси, самый первый. Здесь короткое лето, нескончаемо длинная зима, пронизывающие ветра и вокруг – холодная Ладога. Здесь особое место. Для особых людей. Отсюда начинается дорога России к Богу, говорят монахи. Они же говорят, что Валаам – это Северный Афон, а еще, что это зеркало России. Судьба Валаама – это всегда судьба (   Читать дальше...   )Телекомпания: РОО «Ассоциация «Наше Кино», Россия 1 HDЖанр: ДокументальныйРежиссер: Вера КильчевскаяПродолжительность: 00:51:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0505FBA9411C1EC1BEC836D9D78E99784750B2B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199654   (800291) от 17.01.2018
+
+Запрещенное интервью. Птаха vs Федоров (2017) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откровенный разговор российского рэп-исполнителя Давида Нуриева с депутатом Госдумы Евгением Федоровым и сотрудниками Центрального московского штаба НОД. В фильме использованы клипы «Свобода 2.017» и «Проходили 9.0».Производство: Телевидение Национально-Освободительного ДвиженияЖанр: ПолитикаПродолжительность: 01:14:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51F9D8264DECB27E41792D7D30C0957D76B128D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121917   (799642) от 03.04.2017
+
+Специальный корреспондент. Стратегия напряжённости (2017.04.03) SATRip
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799642.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Специальный корреспондент" - это популярная публицистическая программа, которая выходит на телеканале "Россия" с сентября 2002 года. Каждую неделю один из ведущих рассказывает в своем фильме-репортаже о какой-либо актуальной проблеме, существующей в современном обществе, посвящает зрительскую аудиторию в подробности наиболее значимых для страны (   Читать дальше...   )Телекомпания: РоссияЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: ~ 02:11:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:370F08B9E09E6BD4FEA81C428B61E6646CE6B9E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199998   (797423) от 18.01.2018
+
+Пресс-конференция Главы ДНР Александра Захарченко (18.01.2018) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глава ДНР Александр Захарченко во время пресс-конференции ответил на вопросы журналистов:
+о законе Украины о реинтеграции Донбасса №7163;
+об указе о запрете выезда на Украину госслужащим ДНР;
+о новых направлениях работы в рамках Интеграционного комитета «Россия — Донбасс»;(   Читать дальше...   )Производство: Министерство информации ДНРЖанр: ПолитикаПродолжительность: 00:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:084D5B7F57C28C172F81B010DBF435CDE2B558E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011412   (797048) от 27.04.2016
 
 Русский вопрос (27.04.2016) SATRip
@@ -6,7 +113,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797048.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797019.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797004.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796522.jpg" />
 </div>
 
 
@@ -111,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795587.jpg" />
 </div>
 
 
@@ -137,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794726.jpg" />
 </div>
 
 
@@ -163,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794007.jpg" />
 </div>
 
 
@@ -191,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794006.jpg" />
 </div>
 
 
@@ -217,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794003.jpg" />
 </div>
 
 
@@ -243,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793952.jpg" />
 </div>
 
 
@@ -269,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793093.jpg" />
 </div>
 
 
@@ -295,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793080.jpg" />
 </div>
 
 
@@ -322,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792719.jpg" />
 </div>
 
 
@@ -348,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791632.jpg" />
 </div>
 
 
@@ -376,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789510.jpg" />
 </div>
 
 
@@ -402,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789495.jpg" />
 </div>
 
 
@@ -428,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788951.jpg" />
 </div>
 
 
@@ -454,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788168.jpg" />
 </div>
 
 
@@ -480,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787701.jpg" />
 </div>
 
 
@@ -507,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784914.jpg" />
 </div>
 
 
@@ -533,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784635.jpg" />
 </div>
 
 
@@ -562,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784341.jpg" />
 </div>
 
 
@@ -574,111 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E2FB23F1DFD220A2DC474765E58D5E747AF62B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204777   (783750) от 09.02.2018
-
-Интервью Натальи Поклонской Газета.ru (05.02.2018) WEB-DLRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Депутат Государственной Думы России Наталья Поклонская рассказала в эксклюзивном интервью писателю и колумнисту издания «Газета.Ru» Аурену Хабичеву о ситуации на Украине, фильме «Матильда», о предстоящих выборах и отношении к кандидатам в президенты России, о своих любимых книгах и многом другом. Полная версия.Производство: Россия, АО «Газета.Ру»Жанр: ПолитикаПродолжительность: 00:29:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E4F589D6B16711B0375D7FEAEBDBBE12D34D71C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205442   (783493) от 10.02.2018
-
-Беседа с Евгением Федоровым (27.01.2018) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783493.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гостях у депутата Государственной Думы России, координатора НОД Евгения Федорова общественная организация «Федерация ветеранов спорта». Темы беседы: кто управляет миром, существует ли мировое правительство; как работает управление однополярным миром; почему бизнес не хочет возвращать капиталы в Россию; как работает низкая ключевая ставка; «государство-убежище» (   Читать дальше...   )Производство: Телевидение Национально-Освободительного ДвиженияЖанр: ПолитикаПродолжительность: 02:01:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55809DD24D1E7F7076813DC3DC310CD824447ED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205582   (783429) от 10.02.2018
-
-Презентация книги Натальи Поклонской "Преданность Вере и Отечеству" (08.02.2018) WEB-DLRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783429.jpg" />
-</div>
-
-
-###  Подробнее
-
-8 февраля 2018 г. в книжном магазине «Библио-Глобус» состоялась презентация книги депутата Государственной Думы РФ Натальи Поклонской «Преданность Вере и Отечеству» (издательство «Книжный мир»).
-Книга «Преданность Вере и Отечеству» позволит читателям лучше узнать и оценить Наталью Поклонскую как юриста, политика, общественного деятеля и православного человека, не (   Читать дальше...   )Производство: Россия, «День-ТВ»Жанр: ПолитикаПродолжительность: 00:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:699DB6BFB6CDE0E7FEFE25537E1D3FBB702C8238
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205897   (782931) от 12.02.2018
-
-Беседа с Евгением Федоровым (02.02.2018) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Руководитель Молодёжного направления Информационного штаба НОД Мария Максимова встретилась с депутатом Государственной Думы России, координатором НОД Евгением Федоровым. Темы беседы: олигархическое правление в России в 90-е годы; что предлагает кандидат в президенты Грудинин; конфликт на пресс-конференции Грудинина в Уфе; о важности соблюдения законодательства о (   Читать дальше...   )Производство: Телевидение Национально-Освободительного ДвиженияЖанр: ПолитикаПродолжительность: 00:35:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B211C9FA5BA3FB781FCBC5B950EF3D77798934C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

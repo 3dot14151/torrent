@@ -1,3 +1,55 @@
+###  Публикация: 1582626   (230464) от 10.10.2022
+
+Алексей Гравицкий, Сергей Волков | Чикатило (Книга 1). Явление зверя (2022) [MP3, Кирилл Головин]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230464.jpg" />
+</div>
+
+
+###  Подробнее
+
+В середине 1980-х годов в Новочеркасске и его окрестностях происходит череда жутких убийств. Местная милиция бессильна. Они ищут опасного преступника, рецидивиста, но никто не хочет даже думать, что убийцей может быть самый обычный человек, их сосед. Удивительная способность к мимикрии делала Чикатило неотличимым от миллионов советских граждан. Он жил в обществе (   Читать дальше...   )Жанр: Истории из жизни, КриминалистикаПродолжительность: 10:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC74A140A0B25FED57AF385EA4C081DDB6523738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650497   (225487) от 02.08.2023
+
+Лев Безыменский | По следам Мартина Бормана (2023) [MP3, Александр Харитонов]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Какова судьба Мартина Бормана, одного из главных немецких военных преступников, ближайшего помощника Гитлера? До сих пор на этот вопрос нет ответа. В печати появляются противоречивые сообщения: Борман в Аргентине... Борман в Перу... Борман погиб... Борман жив... Журналист Л. Безыменский, автор ряда работ по истории германского милитаризма и фашизма, решил совершить (   Читать дальше...   )Жанр: ПублицистикаИздательство: Аудиокнига своими рукамиПродолжительность: 05:12:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:368BA40EFF17B31D2EE2324F1B299CEB1E96F249
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1650498   (225451) от 02.08.2023
 
 Евгений Черешнев | Форма жизни №4 (2021) [MP3, Артем Пахомов]
@@ -6,7 +58,7 @@
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_225451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225451.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224922.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223918.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221976.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219580.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210727.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209615.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208792.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208033.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208032.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206743.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206176.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205771.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203887.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203639.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202338.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198859.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192589.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192413.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191593.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_189919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189919.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189609.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188463.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187997.jpg" />
 </div>
 
 
@@ -625,59 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:663B2E82DDA6E53A5D28D71FCEE8255233778A89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827556   (187986) от 22.10.2025
-
-Ева Меркачёва | Град обреченных. Честный репортаж о семи колониях для пожизненно осуждённых (2021) [MP3, Ева Меркачёва]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журналист и правозащитник Ева Меркачёва побывала во всех семи российских колониях для пожизненно осужденных – там, где никто не хочет оказаться по своей воле. Она брала интервью у сотрудников колоний и у заключенных и рассказала в своей книге честно и без прикрас всё, что ей удалось увидеть и узнать. Автор подробно описала распорядок дня в колониях, быт заключенных, (   Читать дальше...   )Жанр: ПублицистикаИздательство: ЭВЕРБУКПродолжительность: 08:08:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54A369BD3E62CD6D805864A8BFBC3F72BD0E98B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662565   (187749) от 18.09.2023
-
-Пётр Кропоткин | Анархия и нравственность (2022) [MP3, Пётр Мальцов]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник включает избранные труды Петра Алексеевича Кропоткина (1842—1921) – русского революционера-анархиста.
-Будучи пытливым учёным и высокообразованным человеком, П. А. Кропоткин пытался подвести под анархизм какую-либо научную основу и аргументированно показать его необходимость. Для него анархизм представлялся философией человеческого общества. Метод познания (   Читать дальше...   )Жанр: ПублицистикаИздательство: ИДДКПродолжительность: 16:10:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BA1F49FF3C433725CE284317BA96F19E2951E1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

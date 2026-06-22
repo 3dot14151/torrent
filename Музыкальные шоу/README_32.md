@@ -1,3 +1,109 @@
+###  Публикация: 954784   (224975) от 14.12.2015
+
+Всероссийский конкурс юных талантов "Синяя птица"  (2015) SATRip  (Выпуски № 1-7 из 7)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всероссийский конкурс юных талантов. Главная задача конкурса – открыть новые имена юных артистов, которые через несколько лет станут мировыми звездами. "Синяя Птица" поможет сбыться мечтам юных участников! Каждый ребенок талантлив по-своему. Но есть дети, которые уже в раннем возрасте поражают окружающих редкой музыкальностью, чувством ритма, пластикой, (   Читать дальше...   )Телекомпания: ВГТРКЖанр: ТелепередачаПродолжительность: 01:29:47; 01:44:40; 01:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5009B08BDE53CE8D6ADD18761F28382E6DCA3D8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 735772   (223269) от 20.12.2013
+
+Ежегодный шоу-показ мод / The Victoria's Secret Fashion Show (2013) HDTV [MPEG-2/1080i] [EN]
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223269.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Нью-Йорке прошло долгожданное модное шоу бельевого гиганта Victoria's Secret.
+Показ традиционно состоялся с участием самых сексуальных девушек — Алессандры Амбросио, Адрианы Лимы, Кары Дельвинь, Карли Клосс, Даутцен Крус, Марины Линчук и Кэндис Свейнпол.
+"Ангелы" Victoria's Secret примерили роскошные костюмы, расшитые стразами, перьями, жемчугом и драгоценными (   Читать дальше...   )Производство: СШАЖанр: Музыкальное fashion-шоуРежиссер: Hamish HamiltonПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 00:47:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39110215F12440DEC61F2A4AF3AF820AE3BE2F59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513835   (222574) от 30.11.2021
+
+Новые Танцы (2021) WEBRip [H.264/1080p] (сезон 1, выпуск 17)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое танцевальное шоу! Лучшие танцовщики страны снова выходят на сцену. Теперь не будет наставников и их команд, а только очные танцевальные поединки между участниками в четырёх категориях: соло, дуэты, дети и команды. Оценивать выступления участников будет Мигель совместно с двумя приглашенными гостями. Компанию неизменной ведущей Ляйсан Утяшевой составит Ульяна (   Читать дальше...   )Телекомпания: Россия, Comedy Club Production, Телеканал ТНТЖанр: Реалити-шоу, танцы, развлекательный, хореографияСубтитры: ОтсутствуютПродолжительность: 01:27:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DBE4DA7B8BB79EE8BDE80A884351D2C3BA1C460
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084417   (220544) от 18.12.2016
+
+Танцы (2016.12.17) WEB-DL [H.264/720p-LQ] (сезон 3, выпуск 21)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220544.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 августа на ТНТ стартует 3-й сезон самого масштабного танцевального шоу страны! Создатели обещают, что проект станет еще круче, ярче и мощнее: новые города, новые герои, новые «ТАНЦЫ»! География участников третьего сезона шоу «ТАНЦЫ» впечатляет! На телевизионные кастинги попали представители более 100 городов. И не только России, но и Прибалтики, Европы, Америки (   Читать дальше...   )Телекомпания: ТНТЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 01:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4E59B09A509C8BB68F35FC164DD392E2C765C56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585634   (220342) от 23.10.2022
 
 Шоу Аватар (2022) WEBRip [H.264/1080p] (сезон 1, выпуск 8)
@@ -6,7 +112,7 @@
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220342.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219920.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219491.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217443.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216551.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216515.jpg" />
 </div>
 
 
@@ -163,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215884.jpg" />
 </div>
 
 
@@ -189,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215526.jpg" />
 </div>
 
 
@@ -215,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215238.jpg" />
 </div>
 
 
@@ -241,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215202.jpg" />
 </div>
 
 
@@ -267,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214428.jpg" />
 </div>
 
 
@@ -293,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_214252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_214252.jpg" />
 </div>
 
 
@@ -319,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213936.jpg" />
 </div>
 
 
@@ -345,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213905.jpg" />
 </div>
 
 
@@ -371,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213794.jpg" />
 </div>
 
 
@@ -397,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208779.jpg" />
 </div>
 
 
@@ -423,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207479.jpg" />
 </div>
 
 
@@ -449,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206910.jpg" />
 </div>
 
 
@@ -475,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205787.jpg" />
 </div>
 
 
@@ -501,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204463.jpg" />
 </div>
 
 
@@ -527,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201149.jpg" />
 </div>
 
 
@@ -553,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199329.jpg" />
 </div>
 
 
@@ -564,113 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BA9FD6B32A0BA6B9F54EDBD62CB8734F6663970
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587310   (192866) от 30.10.2022
-
-Шоу Аватар (2022) WEBRip [H.264/1080p] (сезон 1, выпуск 9) (Финал)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192866.jpg" />
-</div>
-
-
-###  Подробнее
-
-3 сентября на НТВ стартует «Шоу Аватар» — супертехнологичный музыкальный проект, которого еще не было на российском телевидении. В новом шоу телеканала зрители попадают в сказочную вселенную, населенную фантастическими образами, скрытыми под цифровыми аватарами. Для их создания используются современные технологии захвата движения, а членам жюри, полный состав которого (   Читать дальше...   )Производство: НТВЖанр: Музыкальный, ТВ-ШоуПродолжительность: 02:27:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B6B59E7525DB8F7B9BDC49DAFE503611FDDB8A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657573   (192152) от 05.09.2023
-
-Ты супер! (2023) WEBRip [H.264/1080p] (сезон 7, выпуск 1)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенью на НТВ стартует седьмой сезон международного вокального конкурса «Ты супер!», который станет суперсезоном: в нем примут участие 20 новых конкурсантов и 30 уже знакомых юных артистов — всего 50 талантливых детей, оставшихся без попечения родителей и проживающих в детских домах, школах-интернатах, приемных и опекунских семьях.Производство: Россия | «ВайТ Медиа»Жанр: Тв шоу, музыкальный конкурсЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:33:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A12337BD683A96F62EB9A681EE2DA095CB8EE09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588292   (191621) от 04.11.2022
-
-Расул Гамзатов. Песни в концертной студии Останкино (1987) TVRip
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исполненные песни:
-1. Лев Лещенко - "Берегите друзей".
-2. Лев Лещенко - "Патимат".
-3. Дмитрий Гнатюк - "Сыновья".(   Читать дальше...   )Телекомпания: Главная редакция музыкальных программ ЦТ и Дагестанское телевидениеЖанр: телепередача, искусство, творческий вечер, концертПродолжительность: 01:21:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D85398CC6E574D71EF717DC96D64FE31C15A280
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659209   (190088) от 11.09.2023
-
-Ты супер! (2023) WEBRip [H.264/1080p] (сезон 7, выпуск 2)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенью на НТВ стартует седьмой сезон международного вокального конкурса «Ты супер!», который станет суперсезоном: в нем примут участие 20 новых конкурсантов и 30 уже знакомых юных артистов — всего 50 талантливых детей, оставшихся без попечения родителей и проживающих в детских домах, школах-интернатах, приемных и опекунских семьях.Производство: Россия | «ВайТ Медиа»Жанр: Тв шоу, музыкальный конкурсЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:29:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F89ED2F57F6C4D012E1A1A6F5151B562E392C86
 ```
 
 https://mybot314.ru/tekegram_catalog/

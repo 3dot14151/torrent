@@ -1,3 +1,107 @@
+###  Публикация: 886061   (732306) от 29.05.2016
+
+Космос: Пространство и время / Cosmos: A SpaceTime Odyssey (2014) BDRip [H.264/1080p] (сезон 1, серии 1-13 из 13)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал рассказывает о последних научных открытиях, которые были сделаны в области астронавтики, астрофизики и других наук. Сериал «Космос: Путешествие во времени» является продолжением научно-популярной серии фильмов «Космос: Персональное путешествие с Карлом Саганом» и отражает события последних трех десятилетий. Астрофизик Нил Деграсс Тайсон с соавторами (   Читать дальше...   )Производство: США / Cosmos Studios, Fuzzy Door Productions, National Geographic Channel, Six Point Harness, Syon MediaЖанр: Документальный, наука, космосРежиссер: Брэннон Брага, Энн Драйэн, Билл ПоупПеревод: Одноголосый профессиональный (студия Арк-ТВ)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: 09:40:17 (~00:43:00 серия)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:154CD6DAE6F732C8A8981D89742C2C1B8A36CDAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283815   (732045) от 18.02.2019
+
+NGW: Охотница / Malika. Leopard Huntress (2018) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Леопардиха Малайка потеряла своего детеныша после жестокой схватки с леопардом, и теперь ей предстоит после этой потери начать новую жизнь. В своих схватках за выживание она сталкивается с грозными противниками и вынуждена начать охотиться вне своей привычной и комфортной зоны обитания. Отчаянное положение вынуждает ее изобретать новые для нее приемы охоты, и каждый (   Читать дальше...   )Производство: ЮАР, Earth Touch, Nat Geo Wild, SmithsonianЖанр: Документальный, природа, флора, фаунаРежиссер: Грэм ДуэйнПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D595F4A4C5D7459FB6049BE84B7FF3D4C8B58CD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283853   (732044) от 18.02.2019
+
+NGW: Царство леопардов / Leopard Kingdom (2018) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карула, царица Джумы, правила в южно-африканском заповеднике Саби Санд в течение более чем десяти лет. Но теперь она умерла, и ее наследники надеются добиться контроля над территорией, которая была ее царством.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DC472E2DC66B4EE21A0CD6948EEE0A357B0C0DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283868   (731832) от 18.02.2019
+
+NG: Война Гитлера против прессы / Hitler's Battle Against the Press (2018) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731832.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1920-х годах журналисты газеты Мюнхенер Пост уже видели опасность, исходившую от Гитлера. Решительно и бесстрашно они писали об угрозе национал-социализма. Гитлер называл эту газету "мастерской дьявола" и угрожал ее сотрудникам с помощью своих головорезов. Сегодня эти смелые редакторы и их газета оказались в полном забвении. Только одна книга об их работе (   Читать дальше...   )Производство: Германия, National Geographic ChannelЖанр: Документальный, история, исследованиеРежиссер: Юте Бьюннен, Джераль ИндресПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2808600C8B065A7F75F26FF387EF4B4D7C977E38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021820   (731769) от 30.05.2016
 
 NG: Титаник. Дело закрыто / Titanic. Case Closed (2012) HDTV [H.264/1080i]
@@ -6,7 +110,7 @@ NG: Титаник. Дело закрыто / Titanic. Case Closed (2012) HDTV [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731769.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NG. Гении / American Genius (2015) WEB-DLRip [H.264/720p-LQ] (Сезон 1,
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730598.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730563.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ V3: суперпушка Гитлера / Building Hitler's Supergun / Hitlers S
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729630.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ NG. Разгадка тайны Стоунхенджа / Stonehenge Decoded (200
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729524.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ NG: V3: суперпушка Гитлера / Building Hitler's Supergun / Hitle
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729520.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ NGW: Схватка тигров / Clash of Tigers (2018) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728773.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ NG: Тайны Тутанхамона / Ultimate Tutankhamun (2013) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727436.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ NG: Марс и SpaceX / Mars: Inside SpaceX (2018) HDTVRip [H.264/1080p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727420.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ National Geographic. Больше чем фокусы с Ди Эм Си / Beyond
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727323.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ National Geographic. Больше чем фокусы с Ди Эм Си / Beyond
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727205.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ NG. Реальность или фантастика? Корабли-призр�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726168.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ Nat Geo Wild: Амазонская электрическая рыба / Amazon'
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726013.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ NG. Научные глупости / Science of stupid (2019) HDTVRip (сезо
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724509.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ NG: Пчелы-Убийцы / Killer Bees (200?) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723989.jpg" />
 </div>
 
 
@@ -401,7 +505,7 @@ NG. Взгляд изнутри: Секреты зоны 51 / Area 51 Declassifi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723736.jpg" />
 </div>
 
 
@@ -427,7 +531,7 @@ NGW: Ягуары против крокодилов / Jaguar vs. Croc (2017) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723122.jpg" />
 </div>
 
 
@@ -453,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722648.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722637.jpg" />
 </div>
 
 
@@ -505,7 +609,7 @@ NGW: Смертоносная Африка. Рифы / Africa's Deadly Kingdom (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722582.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ NGW: Дикая зима / Wild winter (2016) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721623.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ NGW: Неукротимая Южная Америка / South America Untamed (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721542.jpg" />
 </div>
 
 
@@ -568,110 +672,6 @@ NGW: Неукротимая Южная Америка / South America Untamed (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62F87F10D6037D03CF0F5845E6E981E077B3A576
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218651   (721524) от 10.04.2018
-
-NGW: Последние дьяволы / Last Devils (2016) HDTVRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721524.jpg" />
-</div>
-
-
-###  Подробнее
-
-В отдалённом уголке отдалённого острова живут невероятные и легендарные сумчатые животные - тасманийские дьяволы. Коренные народы из уст в уста передают истории о некогда красивом, подобно пантере, животном, которое было проклято и превратилось в злобное животное с огромной пастью и острыми клыками, которое получило название "Тераба", что переводится как (   Читать дальше...   )Производство: Австралия, Nat Geo WildЖанр: Документальный, природа, фаунаРежиссер: Йен МаршПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE7001FF41D2F72F77DFAE53DD42E4208C6D9D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218643   (721403) от 10.04.2018
-
-NGW: Птица-динозавр / Dino-Bird (2017) HDTVRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721403.jpg" />
-</div>
-
-
-###  Подробнее
-
-В древних дождевых лесах Австралии ведёт борьбу за выживание современный динозавр. Величественное и странное существо, которое считают самой опасной птицей в мире - таинственный казуар!Производство: Австралия, Nat Geo WildЖанр: Документальный, природа, фаунаРежиссер: Эдвард Салтау, Дэниэл ХантерПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:432B7B85025E3299406D044A3E5FDBF8A38E8A49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218583   (721397) от 10.04.2018
-
-NGW: Десять смертельно опасных змей / Ten deadliest snakes (2016) HDTV [H.264/1080i-LQ] (Серии 1-4 из 4)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Найджел Марвен составляет свой список самых опасных змей на земле, путешествуя буквально по всему свету, от дождевых лесов Филиппин с их изнуряющей влажностью, до знойных пустынь Ближнего Востока.Производство: Великобритания, Image Impact, EdenЖанр: Документальный, фаунаРежиссер: Найджел МарвенПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 4 х ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F0F580398C12DB4A750950FBB9B7AEF6E5B1818
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218551   (721271) от 10.04.2018
-
-NGW: Апокалипсис животных / World's deadliest. Animal Apocalypse (2013) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Довольно часто поступают сообщения о том, что в разных частях планеты произошла массовая гибель животных, птиц или рыб. Так недавно у берегов Перу было обнаружено около девятисот трупов дельфинов. В Великобритании были обнаружены трупы тысяч крабов. В некоторых местах вымирают целые пчелиные семьи. Что происходит? С чем это связано? Может, следующими станем мы? По (   Читать дальше...   )Производство: США, Nat Geo WildЖанр: Документальный, фаунаРежиссер: Фил ФранкПеревод: Одноголосый закадровый, профессиональный (АРК ТВ)Субтитры: отсутствуютПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA5EA30EACFC3F3A61AC5A7ED2EAF0754C2A5CBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

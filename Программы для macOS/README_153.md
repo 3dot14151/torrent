@@ -1,3 +1,109 @@
+###  Публикация: 1673297   (166112) от 31.10.2023
+
+ScreenFlow 10.0.10 [Multi]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166112.jpg" />
+</div>
+
+
+###  Подробнее
+
+ScreenFlow - создаем свои скринкасты
+Бывает, нужно записать видео с экрана для каких-либо ознакомительных целей, либо объяснить непонятливому товарищу, как и что делается в его «свежекупленном» маке. Именно тогда и встает вопрос — как это сделать? Вот тут ScreenFlow и раскрывается во всем своем великолепии.
+Простая, но крайне мощная утилита для захвата и записи видео (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.10.2023Разработчик: © 2022 Telestream, Inc.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий, Французский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA2D708FD5B11E96BA1BDCA45AF09B7E8B5FFFB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345632   (166066) от 15.12.2019
+
+Adobe Zii 2020 - Universal Patcher 5.1.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Zii Patcher - лучшая утилита от отечественного разработчика для активации любого продукта Adobe. Стоит обратить внимание на то, что с каждым обновлением продукта, существующий Adobe Zii теряет свою актуальность, однако сам Adobe Zii регулярно обновляется вслед за Adobe. Срок обновления Adobe Zii не превышает действие пробного периода.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: TNTПоддерживаемая ОС: macOS 10.11 El CapitanЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25F465ED264625F74F4CEC18E82792B6FCB13844
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431793   (165931) от 15.12.2020
+
+Axure RP 9 v9.0.0.3723 Pro / Team / Enterprise Edition macOS [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Axure RP - быстрое макетирование для приложений вебсайта, ориентированное под каркасные прототипы веб-сайтов. Продукт предназначен для снижения издержек проектирования веб-сайтов. Это решение поможет быстро в визуальном режиме создать рабочий прототип будущего сайта, затем выгрузить прототип в html и просмотреть его через браузер. Качество вполне приемлемо для дальнейшей (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2020Разработчик: Axure Software Solutions, Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA379A2F380D3E8D4A5ABD08BD01D8E0C8F59FAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345859   (165816) от 16.12.2019
+
+NCH Zulu Maters 5.02 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zulu - профессиональное программное обеспечение для микширования и сэмплирования аудиотреков. Zulu представляет собой виртуальную среду для диджеев с возможностью микширования звуковых дорожек в реальном времени. Позоволяет автоматически сканировать и синхронизировать аудиотреки, поддерживает режим drag & drop и даёт возможность предпрослушивания материала. Zulu (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: NCH SoftwareПоддерживаемая ОС: macOS 10.5 LeopardЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CF87423AAC4EC255205D7F5F73777A209F18D17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673308   (165777) от 31.10.2023
 
 Screaming Frog SEO Spider 19.3 [En]
@@ -6,7 +112,7 @@ Screaming Frog SEO Spider 19.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165777.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Elmedia Player Pro 7.8 (build 1897) [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165712.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ Irvue 2023.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165616.jpg" />
 </div>
 
 
@@ -86,7 +192,7 @@ Serial Box & SerialSeeker 10-2023 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165545.jpg" />
 </div>
 
 
@@ -114,7 +220,7 @@ MacCleanse 9.0.5 Pre-Release [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165473.jpg" />
 </div>
 
 
@@ -140,7 +246,7 @@ Hallmark Card Studio for Mac 22.0.07 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165464.jpg" />
 </div>
 
 
@@ -167,7 +273,7 @@ Serial 2 v.2.0.16 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165425.jpg" />
 </div>
 
 
@@ -194,7 +300,7 @@ Duplicate Photos SweeperOff 3.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165405.jpg" />
 </div>
 
 
@@ -220,7 +326,7 @@ AirRadar 6 v6.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165402.jpg" />
 </div>
 
 
@@ -246,7 +352,7 @@ PlistEdit Pro 1.9.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165353.jpg" />
 </div>
 
 
@@ -273,7 +379,7 @@ uBar 4 v.4.2.2  [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165325.jpg" />
 </div>
 
 
@@ -299,7 +405,7 @@ TextMate 2 v2.0.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165309.jpg" />
 </div>
 
 
@@ -327,7 +433,7 @@ Unclutter 2.1.25 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165233.jpg" />
 </div>
 
 
@@ -354,7 +460,7 @@ gTasks Pro - for Google Tasks 1.3.27 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165210.jpg" />
 </div>
 
 
@@ -381,7 +487,7 @@ Posterino 3 v.3.11.13 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165199.jpg" />
 </div>
 
 
@@ -408,7 +514,7 @@ SILKYPIX Developer Studio Pro 9E v9.0.16.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165180.jpg" />
 </div>
 
 
@@ -436,7 +542,7 @@ Deltopia DeltaWalker Oro Edition 2.5.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165022.jpg" />
 </div>
 
 
@@ -462,7 +568,7 @@ Apple MainStage 3.6.3 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164868.jpg" />
 </div>
 
 
@@ -490,7 +596,7 @@ VirtualHostX 8 v8.7.15 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164581.jpg" />
 </div>
 
 
@@ -518,7 +624,7 @@ TaskPaper 3.9.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164568.jpg" />
 </div>
 
 
@@ -545,7 +651,7 @@ CollageIt 3 Pro v.3.6.12 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164556.jpg" />
 </div>
 
 
@@ -572,7 +678,7 @@ Screen Snapshot 4.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164545.jpg" />
 </div>
 
 
@@ -583,111 +689,6 @@ iSnapshot - это эффективный и простой инструмент
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FCE31CBCA0A64EB12CC38BC0A0F882E92A40D46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516993   (164511) от 13.12.2021
-
-Smooze 1.9.23 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smooze одушевляет ваш скролл и добавляет функциональность к вашей не оригинальной Apple мыши (прокрутки колеса мыши).Тип издания: macOS SoftwareРелиз состоялся: 11.12.2021Разработчик: © 2021 Start BootstrapПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:662EB6100E436A80731E461929398264F0DE52DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516988   (164494) от 13.12.2021
-
-ProPaint -Image & Photo Editor for Mac 3.7.0 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pro Paint - это полнофункциональный редактор фотографий, который используется для редактирования изображений, векторной графики, преобразования произвольной формы, обрезки, редактирования альфа-канала, рисования и других специализированных задач. Он предоставляет высококачественные инструменты для работы с изображениями для создания оригинальных произведений искусства.Тип издания: macOS SoftwareРелиз состоялся: 13.12.2021Разработчик: © 2021 XiuXia YangПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Упрощенный китайский и Традиционный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0A9146E1D8C265BB8D7D3C54819643AC5BB92B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673639   (164493) от 02.11.2023
-
-FonePaw Android Data Recovery for Mac 5.7.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легко восстанавливайте удаленные и потерянные фотографии, видео, аудио, WhatsApp, текстовые сообщения, контакты, журналы вызовов и документы с ваших устройств Android и SD-карты.Тип издания: macOS SoftwareРелиз состоялся: 27.10.2023Разработчик: © 2023 FonePaw Technology LimitedПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E292A136A9CACC1DA8AB2431C3CB432D03BB8F6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673548   (164456) от 02.11.2023
-
-Araxis Merge Pro Edition 2023.5976 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение для двух и трехстороннего сравнения / слияния файлов и синхронизации папок от компании Araxis. Используйте данную утилиту, чтобы сравнивать, понимать и объединять различные версии источника кодов, веб-страницы и другие текстовые файлы и даже текст, копированный и вставленный с другого приложения.
-Araxis Merge – это обязательное приложение для разработчиков (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.11.2023Разработчик: © 1993–2022 ARAXIS LTD.Поддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC8A18464828BFFE89A1E1A61CCFC2355028135D
 ```
 
 https://mybot314.ru/tekegram_catalog/

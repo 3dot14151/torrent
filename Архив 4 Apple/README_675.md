@@ -1,3 +1,56 @@
+###  Публикация: 1700884   (116821) от 18.02.2024
+
+iBarcoder 3.14.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cristallight iBarcoder - профессиональный генератор штрих-кодов Mac для создания любого количества отдельных или последовательных штрих-кодов, и их печати в виде красочных этикеток со штрих-кодом в собственном стиле, любого размера или формы или их экспорта в виде файлов графических изображений в обычном векторном и растровом изображении.Тип издания: macOS SoftwareРелиз состоялся: 17.01.2024Разработчик: © 2022 Cristallight SoftwareПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B02C14F6764F2C47409F399D84E0F7E2FE9A54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701142   (116679) от 19.02.2024
+
+Dropshare 5 v.5.47 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116679.jpg" />
+</div>
+
+
+###  Подробнее
+
+DropShare позволяет быстро передавать файлы больших объемов через интернет. Отправитель просто перетягивает его на значок программы, и файл выгружается на сервер. Остается сообщить ссылку получателю, чтобы он мог открыть ее в своем браузере.
+Dropshare - приложение строки меню для Drag & Drop загрузки файлов, снимков экрана и даже каталогов на собственный сервер, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.02.2024Разработчик: © 2024 DropshareПоддерживаемая ОС: OS X 12.3 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:024FE48A4F3A68869B5A78C1CBABC087AC2128C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701080   (116678) от 19.02.2024
 
 Fork 2.40.2 [En]
@@ -6,7 +59,7 @@ Fork 2.40.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116678.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ NCH Express Invoice Plus 11.05 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116677.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Fig Player - play mp4 mkv mp3 for Mac 1.3.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116666.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ EdgeView 4 v.4.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116659.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116657.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ Folder-Factory 7.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116652.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ Capture One 23 Pro 16.3.6.6 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116538.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ Capture One 23 Enterprise 16.3.6.6 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116510.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ djay - DJ App & AI Mixer 5.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116480.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ Mp3tag 1.8.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116479.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ Labels and Databases 1.7.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116475.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ Remote Desktop Manager Enterprise Edition 2023.3.13.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116358.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ CrossOver 24.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116243.jpg" />
 </div>
 
 
@@ -353,7 +406,7 @@ Native Instruments Kontakt 7 for Mac v.7.8.1 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116213.jpg" />
 </div>
 
 
@@ -379,7 +432,7 @@ Aiseesoft iPhone Unlocker for Mac 2.0.36 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116202.jpg" />
 </div>
 
 
@@ -405,7 +458,7 @@ MouseBoost pro for Mac 3.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116194.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ Proxyman for Mac 5.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116192.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ FxFactory Pro 8.0.13 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116184.jpg" />
 </div>
 
 
@@ -484,7 +537,7 @@ Keep It 2.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116174.jpg" />
 </div>
 
 
@@ -510,7 +563,7 @@ PDF Expert 3.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116038.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ BetterMouse for Mac 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115994.jpg" />
 </div>
 
 
@@ -563,7 +616,7 @@ CloudMounter 4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115982.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ Wondershare PDFelement Pro OCR 10.2.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115863.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ TG Pro (Temperature Gauge Pro) 2.90 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115829.jpg" />
 </div>
 
 
@@ -627,60 +680,6 @@ TG Pro — контроль температуры и вентиляторов �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13037D00A504B646A92F20C8F8F0CD688C18061B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702257   (115819) от 24.02.2024
-
-Text Workflow 1.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный и простой в использовании инструмент, который поможет вам преобразовать ваш текст. Text Workflow устраняет необходимость выполнять повторяющиеся задачи вручную над вашим текстом. Комбинируйте действия по преобразованию, чтобы создать мощную автоматизацию для вашего текста.
-Комбинируйте действия преобразования, чтобы создать мощную автоматизацию для вашего (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.02.2024Разработчик: © 2024 Giorgos TrigonakisПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E82EF235D1BB14F0449B017AD8EC03C5081444ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702262   (115801) от 24.02.2024
-
-Video Converter X2 for Mac 1.3.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Video Converter X2 — это полнофункциональное программное обеспечение для преобразования форматов, которое поддерживает конвертацию практически всех форматов мультимедийных файлов, включая видео MP4, AVI, 3GP, WMV, MKV, VOB, MOV, FLV; аудио MP3, AC3, FLAC, AAC, M4A, AIFF, WAV и т. д.
-Video Converter X2 имеет встроенные шаблоны форматов, оптимизированные для различных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.02.2024Разработчик: © 2024 Omi Software Studio IncПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, упрощенный Китайский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CBF71BA9F17DD18BE0CBA8F5231782EA878B1F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1661508   (188613) от 15.09.2023
+
+Text Workflow 1.6.6  [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный и простой в использовании инструмент, который поможет вам преобразовать ваш текст. Text Workflow устраняет необходимость выполнять повторяющиеся задачи вручную над вашим текстом. Комбинируйте действия по преобразованию, чтобы создать мощную автоматизацию для вашего текста.
+Комбинируйте действия преобразования, чтобы создать мощную автоматизацию для вашего (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.09.2023Разработчик: © 2023 Giorgos TrigonakisПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92BDFD45D739739289EBCB3367CD80FABDBE1A36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661510   (188610) от 15.09.2023
+
+File List Export 2.8.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188610.jpg" />
+</div>
+
+
+###  Подробнее
+
+File List Export (бывший File list to Excel) - простое в использовании приложение, которое поможет вам создать список файлов для какой-либо необходимости. Перечислите все свои фотографии, все ваши видео или все файлы. Если вам нужно создать список файлов, это приложение для вас. Новая версия с большим количеством 26 колонок метаданных и экспорта в CVS файл. Просто (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.09.2023Разработчик: © 2023 Giorgos TrigonakisПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1C077267391344A93899634723FCEBE2BC1B7CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1661505   (188608) от 15.09.2023
 
 MediaInfo for Mac 23.09 [Multi/Ru]
@@ -6,7 +59,7 @@ MediaInfo for Mac 23.09 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188608.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Yoink 3.6.86  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188598.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Downie 4 v.4.5.11(4455) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188521.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ Sketch 94.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188473.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ Pixelmator Pro 3.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188428.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ Magnet 2.10.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188403.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ SketchUp Pro 2023 v.23.1.318 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188384.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ ABBYY FineReader PDF for Mac 15.2.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188367.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ PowerPhotos 2.5b5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188274.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ NetShred X 5.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188270.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ KCNcrew Pack 09-15-23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188257.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ Principle 6.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188256.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ Magic Disk Cleaner 2.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188250.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ Aiseesoft Mac FoneLab for iOS 10.3.82 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188240.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ SoundSource 5.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188233.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ The Unarchiver - Unzip RAR ZIP 3.3.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188192.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ Davinci Resolve Studio 18.6 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188155.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ Native Instruments Traktor Pro Plus 3 for Mac v.3.10.0.71 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188040.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ Logic Pro X 10.7.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187757.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ Bartender 4 4.2.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187708.jpg" />
 </div>
 
 
@@ -536,7 +589,7 @@ Adobe Illustrator for Mac 2023 v.27 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187322.jpg" />
 </div>
 
 
@@ -562,7 +615,7 @@ DaisyDisk 4.12.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185863.jpg" />
 </div>
 
 
@@ -590,7 +643,7 @@ Cascadea 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185596.jpg" />
 </div>
 
 
@@ -616,7 +669,7 @@ ImageRanger Pro Edition 1.7.7.1667 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185583.jpg" />
 </div>
 
 
@@ -627,60 +680,6 @@ ImageRanger - программа позволит найти все нужные
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86647E9B61CA22070C21D7A793744AF43AE61717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426995   (185570) от 26.11.2020
-
-Art Files 3 v3.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Art Files идеально подходит для иллюстраторов и художников или тех, кто работает с графическими файлами и нуждается в отправке документов другим лицам для редактирования или печати.
-Программа собирает все данные о .ai файлах (Adobe illustrator) - данные о шрифтах, других файлах, которые относятся к Вашему проекту. Также Art Files обладает уникальной способностью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.11.2020Разработчик: Code LineПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A87987A40BE421B1E0FD6483AEA4BE1B7C28FD43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426905   (185563) от 26.11.2020
-
-PhotoSweeper X 3.9.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185563.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoSweeper — отличный способ поиска дубликатов изображений
-Проблема очистки компьютера остро стоит у многих пользователей. При «обычной» эксплуатации жесткий диск забивается ненужными файлами не очень быстро, но у тех, кто активно работает с определенными типами файлов, проблема с появлением дубликатов файлов весьма актуальна. Наиболее острую необходимость в приложениях (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 26.11.2020Разработчик: Gwinno Software IncПоддерживаемая ОС: OS X 10.12.2 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42ABE27294413609EF8D3F8C4B580566216D9F68
 ```
 
 https://mybot314.ru/tekegram_catalog/

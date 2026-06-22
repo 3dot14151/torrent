@@ -1,3 +1,133 @@
+###  Публикация: 1613729   (1038974) от 20.02.2023
+
+Боулинг Сатурн / Bowling Saturne (2022) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полицейскому Гийому достается в наследство семейный боулинг-бизнес. Герой ведет важное расследование серии убийств, поэтому не может заниматься боулингом. Он отдает управление бизнесом своему сводному брату-маргиналу Арману. Но спустя время Гийом вынужден вернуться к боулингу, поскольку его брат вместе с командой погрузили бизнес в пучину криминала и насилия.Производство: Франция, Бельгия / BE TV, Canal+ International, Canal+Жанр: триллер, драмаРежиссер: Патрисия МазюиАктеры: Арье Вортхальтер, Achille Reggiani, Y-Lan Lucas, Leïla Muse, Фредерик ван ден Дрише, Эммануэль Мэтт, Nicolas Lepy и др.Перевод: Многоголосый любительский (Синема УС)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D4F0F2C30418CEC2A90BD96FE8DA5261A9C6B34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613916   (1038966) от 20.02.2023
+
+Тень Караваджо / L'ombra di Caravaggio (2022) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обвиненный в убийстве соперника и приговоренный к смертной казни Караваджо бежит из Рима в Неаполь. Когда до папы Павла V доходит слух, что талантливый художник бросает вызов церкви, используя в качестве моделей для написания библейских сюжетов нищих, проституток и воров, тот обращается к секретной службе Ватикана. В Неаполь (   Читать дальше...   )Производство: Италия, Франция / Canal+Жанр: драма, биография, историяРежиссер: Микеле ПлачидоАктеры: Риккардо Скамарчо, Микаела Рамаццотти, Луи Гаррель, Изабель Юппер, Микеле Плачидо, Виничио Маркиони, Лолита Шамма, Алессандро Абер, Мони Овадия, Лоренцо ЛавиаПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:58:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6624966E232E9DFA9BF321EB245F0D2B78F55DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440231   (1038937) от 16.01.2021
+
+Дрожь земли: Остров крикунов / Tremors: Shrieker Island (2020) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Богатенький плейбой незаконно завёз Грабоидов на курортный остров, чтобы устроить опасную трофейную охоту. Миру снова понадобится помощь Бёрта Гаммера в борьбе с этими тварями.Производство: США / Living Films, Universal 1440 EntertainmentЖанр: Боевик, ужасыРежиссер: Дон Майкл ПолАктеры: Майкл Гросс, Джон Хидер, Ричард Брэйк, Кэролайн Лэнгриш, Джеки Крус, Кэсси Клер, Сахайак Бунтханакит, Matthew Douglas, Randy Kalsi, Bear WilliamsПеревод: ДублированныйСубтитры: АнглийскиеПродолжительность: 01:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02E8B95851679BA697C9C386081DC02FC3070214
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440264   (1038913) от 16.01.2021
+
+Охота на Санту / Fatman (2020) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обиженный на Санту мальчик нанимает киллера, чтобы отомстить за плохой подарок. Но он не подозревает, что Санта не так прост и за долгие годы службы приобрел много необычных навыков.Производство: Великобритания, Канада, США / Panasper Films, Fortitude International, Saban FilmsЖанр: Фэнтези, боевик, триллер, комедияРежиссер: Эшом Нелмс, Йен НелмсАктеры: Мэл Гибсон, Уолтон Гоггинс, Марианн Жан-Батист, Чэнс Херстфилд, Сюзанна Сатчи, Роберт Бокстэл, Майкл Дайсон, Дебора Гровер, Эллисон Грайр Батлер, Эрик ВулфПеревод: Дублированный (IVI), профессиональный многоголосый (AMS)Субтитры: Английские (Full, SDH)Продолжительность: 01:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEB5CD8CAE74FDA7400AD258BD95F0ADE2D01387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614198   (1038714) от 21.02.2023
+
+Хроника случайной связи / Дневник мимолетного романа / Chronique d'une liaison passagere / Diary of a Fleeting Affair (2022) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мать-одиночка и женатый мужчина понимают, что их роман завязан сугубо на сексе. Хотя они соглашаются, что у этих отношений нет будущего, они становятся все ближе.Производство: Франция / arte France Cinéma, Centre National de la Cinématographie (CNC), CinéЖанр: мелодрамаРежиссер: Эмманюэль МуреАктеры: Сандрин Киберлэн, Винсент Макен, Georgia Scalliet, Максанс Туаль, Brahim Zairi, Mohamed Zairi, Juliette Capieu и др.Перевод: Многоголосый любительский (Синема УС)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB9F092D34583302B63BF6F6DEB5870BABB2BE90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 749852   (1038705) от 21.02.2023
 
 Смерть ей к лицу / Death Becomes Her (1992) HDRip [H.264]
@@ -6,7 +136,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038705.jpg" />
 </div>
 
 
@@ -33,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038679.jpg" />
 </div>
 
 
@@ -59,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038668.jpg" />
 </div>
 
 
@@ -85,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038654.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038419.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038390.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038386.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038221.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038219.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038144.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038143.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038140.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038100.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037962.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037905.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037889.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037885.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037883.jpg" />
 </div>
 
 
@@ -476,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037838.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037646.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037637.jpg" />
 </div>
 
 
@@ -540,137 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABCF3F83DCAAD0E911D50C42B783DAA2E52882D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441359   (1037628) от 21.01.2021
-
-Юный детектив (Малыш-детектив) / The Kid Detective (2020) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эйбу, известному когда-то ребенку-детективу, теперь 32 года. В перерывах между похмельем и приступами жалости к себе он продолжает браться за примитивные загадки, пока однажды клиентка не просит его расследовать убийство ее парня.Производство: Канада / Woods Entertainment, JoBro Productions & Film FinanceЖанр: Драма, комедия, детективРежиссер: Ивэн МорганАктеры: Адам Броди, Софи Нелисс, Сара Сазерленд, Джесси Ной Груман, Венди Крюсон, Джонатан Уитэйкер, Питер Макнил, Софиа Уэбстер, Даллас ЭдвардсПеревод: Многоголосый профессиональный (Google Play)Субтитры: Русские (Full), украинские (Full), английские (Full)Продолжительность: 01:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30BBC3E2024AF8DDD58F76D2D93FA4DE6685AA8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441437   (1037617) от 21.01.2021
-
-Незрячая / Sightless (2020) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды ночью на Эллен нападает неизвестный, в результате чего девушка теряет зрение. Эллен не сдается и пытается адаптироваться к новому образу жизни, но недоброжелатель все еще где-то рядом, и он намерен закончить начатое.Производство: США / Headlong Entertainment, Benattar/Thomas Productions, MarVista EntertainmentЖанр: Триллер, драмаРежиссер: Купер КарлАктеры: Дениз Акдениз, Мэделин Петш, Александр Кок, Мэттью Кинг, Ли Джонс, Десембер Энсмингер, Микэндрю Пердарис, Джаррод Кроуфорд, Кортни Комптон, Karolina ProtsenkoПеревод: Дублированный (Netflix)Субтитры: Русские, английскиеПродолжительность: 01:29:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8140ACCC18F33F5B3033E63BC219E21F45E01597
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441487   (1037615) от 21.01.2021
-
-Спаситель / Redemption Day (2021) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Будучи награжденным Почетной медалью за храбрость во время перестрелки с ИГИЛ, капитан морской пехоты США Брэд Пакстон страдает от долгосрочных последствий пребывания в зоне боевых действий. С поддержкой любящей жены Кейт Брэд пытается приспособиться к гражданской жизни.
-Когда Кейт, известному археологу, предоставляется уникальная возможность сделать карьеру в Марокко, (   Читать дальше...   )Производство: Марокко, США / H Films, Buffalo 8 Productions, Redemption FilmЖанр: Боевик, триллерРежиссер: Хичам ХаджиАктеры: Гэри Дурдан, Серинда Свон, Энди Гарсиа, Брайс Бекстер, Эрни Хадсон, Мартин Донован (II), Роберт Неппер, Сами Насери, Don Bigg, Jay FootlikПеревод: Многоголосый любительский (AlphaProject )Субтитры: ОтсутствуютПродолжительность: 01:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43BFCFE0177B6A2BED43AF96E6D14980312ADFF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441433   (1037610) от 21.01.2021
-
-Беги, прячься, бей / Run Hide Fight (2020) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037610.jpg" />
-</div>
-
-
-###  Подробнее
-
-17-летняя Зои оказывается в школе, захваченной школьниками-террористами, которые заставляют заложников вести онлайн-трансляцию происходящего. Зои использует свой ум и навыки выживания, чтобы бороться за свою жизнь и жизнь своих одноклассников против группы школьных стрелков, которые все транслируют в прямом эфире. Вопреки принятому протоколу, девушка решает дать (   Читать дальше...   )Производство: США / Bonfire Legend, Media Finance CapitalЖанр: БоевикРежиссер: Кайл РанкинАктеры: Томас Джейн, Рада Митчелл, Изабель Мэй, Эли Браун, Олли Шолотан, Трит Уильямс, Барбара Крэмптон, Сайрус Арнольд, Карлтон Кодл, Бриттон СирПеревод: Многоголосый любительский (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 01:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:861C1235B6EDD3F5A6B5C25CB8CE341645A29B3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441287   (1037607) от 21.01.2021
-
-Очень русские друзья / Ziemlich russische Freunde (2020) HDTVRip [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семья Вайгелей решила продать свой земельный участок, чтобы купить квартиру, а семья Галкиных, перебравшаяся в Германию из России, решила его купить, чтобы построить дом. О цене договорились, ударили по рукам, заключили сделку и поехали ее к Галкиным отмечать...Производство: Германия / ARD Degeto Film GmbHЖанр: КомедияРежиссер: Эстер ГроненборнАктеры: Наталия Бобылева, Emanuel Fellmer, Александер Флахе, Swintha Gersthofer, Берта Каммер, Екатерина Медведева, Оливер Моммсен, Инго Паулик, Барбара Пракопенка, Николай ЗеликовскиПеревод: Двухголосый любительский (Horizon Studio)Субтитры: ОтсутствуютПродолжительность: 01:27:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:261E673F019E9FD288097277BE041294563DAD27
 ```
 
 https://mybot314.ru/tekegram_catalog/

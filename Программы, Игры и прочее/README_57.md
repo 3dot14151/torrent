@@ -1,3 +1,55 @@
+###  Публикация: 892092   (721113) от 25.04.2015
+
+120 игр SEGA на Android (5 выпуск) 5.0 [Ru/En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередная порция культовых незабываемых игр консоли SEGA, оптимизированных для платформы Android, которые не вошли в прежние выпуски. Удобное управление встроенных кнопок, повторяющих настоящую модель геймпада SEGA, плавность движения, чистый стереозвук и простота установки позволяют полностью окунуться в игровой процесс эпохи 90-х, когда программисты умудрялись делать игровые шедевры из 16 бит.Тип издания: RepackРелиз состоялся: 24.04.2015Разработчик: SEGAПоддерживаемая ОС: Android 2.3 и вышеЖанр: Adventure, Horror, Fighting, RacingЯзык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D427BC56408E6296AC0DB6ABD10574858AA2A570
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 789820   (717683) от 29.05.2014
+
+CamMove  - фоторегистратор из телефона (2014) <Ru>
+
+>>Программы, Игры и прочее
+>>ПО и Игры на Java
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717683.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью данного Java приложения  и старенького ненужного телефона Вы легко можете сделать  охранную сигнализацию с фотофиксацией и уведомлений по СМС и соседи, ворующие Ваши помидоры с грядки, не уйдут от справедливого возмездия.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:798912E4039F647E0F7046169E9D2C942F9F22F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130371   (716050) от 01.05.2017
 
 AutoBoy v3.5.1 AdFree [Ru/Multi]
@@ -6,7 +58,7 @@ AutoBoy v3.5.1 AdFree [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716050.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715878.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ MScopesPro for USB Camera v1.28 [En/Rus] - запись видео с внешн
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715874.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714408.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Infinite Design v3.4.21 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714310.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Gboard – Google Клавиатура 6.2.34.154174348 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712176.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711768.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Baby Daybook - Daily Tracker v2.0.15 Pro [Ru/Multi]
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711642.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711608.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711569.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710406.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ The Room: Old Sins 1.0.1 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709490.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707675.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Audiomack v5.7.3 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707516.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706859.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ Persona: Бьюти-камера v1.3.39 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706699.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ Remotix VNC RDP Remote Desktop v6.2.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706318.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ SURE Universal Remote v4.11.90 [Ru/Multi] - Универсальный пуль�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706313.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ Battletoads Double Dragon - The Revenge 5.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705461.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704671.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ ROM Manager (Premium) 5.5.3.7 [En]
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704583.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ USB Camera Standard 2.1.2 [En] - запись видео с внешней ве�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702880.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ Mobile Odin / Flash Fire 4.20 / 0.17 [Ru/En]
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702710.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ Vocaberry  v2.7.3 [Ru] - научиться петь 0+ (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701582.jpg" />
 </div>
 
 
@@ -625,62 +677,6 @@ Vocaberry  v2.7.3 [Ru] - научиться петь 0+ (обновляемая)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38E664303A71712D22D4314C251689384D5545F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402387   (701581) от 14.08.2020
-
-Vocal Range Vocaberry v0.8.0 [Ru] - Диапазон Голоса (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение покажет ваш диапазон голоса и также сделает предположение о вашем певческом голосе.
-Например:
-A2-A4 - Баритон
-Понимание диапазона помогает в обучении вокалом, караоке, а также чтобы понять какие песни вам подходят, а какие нет.Тип издания: Пиратка (Mod)Релиз состоялся: 09.09.2019Разработчик: adhocappПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3CC30E7826F8A168FBF1B652558B4765453371D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402391   (701412) от 14.08.2020
-
-Vocaberry Karaoke v0.22.1 [Ru] - Научиться петь популярные песни Vocaberry (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701412.jpg" />
-</div>
-
-
-###  Подробнее
-
-С этим приложением вы сможете научиться красиво петь любимые песни.
-Без занятий с преподавателем вы сможете попадать в ноты и не фальшивить, развить слух и музыкальную память. Караоке с 21480 песнями на разных языках (включая RU). Во всех песнях поддерживается «фирменная» технология. По окончании исполнения показывается оценка в баллах.Тип издания: Пиратка (Mod)Релиз состоялся: 12.07.2020Разработчик: adhocappПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCEC250B2FD15BD04E7CAF304AE365C09A0F669B
 ```
 
 https://mybot314.ru/tekegram_catalog/

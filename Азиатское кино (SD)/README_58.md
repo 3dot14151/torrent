@@ -1,3 +1,82 @@
+###  Публикация: 1340551   (163935) от 17.12.2020
+
+Смертельная иллюзия / Xie reng shi leng / Deadly Illusion (1998) DVDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163935.jpg" />
+</div>
+
+
+###  Подробнее
+
+На благотворительном вечере убит известный меценат (а по совместительству глава банды тигров) Чан Шунь-Чай.
+ За 5 минут до этого полиция убивает киллера, в кармане которого найдено фото другого известного мецената Кау Мань Фу. Получается убийц было двое или хотели убить Кау Мань-Фу, а по ошибке убили Чан Шунь-Чая. Полиция берется за расследование этого дела и так (   Читать дальше...   )Производство: Гонконг, Power Stars ProductionЖанр: БоевикРежиссер: Тони ЛюАктеры: Юй Жунгуан, Майкл Чан, Кэрри Н, Цуй Кам-Кон, Лун Фон, Роберт Мак, Лам Чак-МинПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: отсутствуютПродолжительность: 01:29:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC37EF21AE8616840D7EF4952B9BD0A9C8B50DE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517193   (163395) от 14.12.2021
+
+Код игрока / Куцукакэ Токидзиро / Kutsukake Tokijirо / The Gambler's Code (1961) WEB-DLRip [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Куцукакэ Токидзиро (Райдзо Итикава) странствует по свету и живет одним днем. Долг боссу Тамарида вынуждает его бросить вызов Сандзо, единственному выжившему члену банды Наканума. Нанеся несколько ударов и посчитав, что с долгом покончено, Токидзиро отпускает Сандзо к жене и сыну, но тот все равно погибает в неравной битве с бандой Тамарида. Перед самой смертью, Токидзиро (   Читать дальше...   )Производство: Япония, Daiei StudiosЖанр: Драма, историяРежиссер: Кадзуо ИкэхироАктеры: Раидзо Итикава, Митиё Аратама, Такаси Симура, Харуко Сугимура, Рюдзо Симада, Фудзио Суга, Ёсио Инаба, Гэн Симидзу, Сигэру Аоки, Тосио ТибаПеревод: Авторский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:26:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4B47458D7CF9B3D0E980FEE65E0D215C2D7AD0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517208   (163193) от 14.12.2021
+
+Перекрестный огонь / Nou fo / Raging Fire (Crossfire) (2021) BDRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Честный и принципиальный полицейский Бон отказывается прогнуться под начальство и пойти на сделку с совестью, из-за чего его команду не берут на спецоперацию по захвату давно разыскиваемого преступника. Но на месте появляется банда неизвестных в масках и убивает почти всех копов, в том числе начальника Бона. Оказывается, бывший полицейский Нго, некогда подававший (   Читать дальше...   )Производство: Гонконг, Китай, Emperor Film Production, Super Bullet Pictures, Tencent PicturesЖанр: боевик, криминал, триллерРежиссер: Бенни Чан / Benny ChanАктеры: Донни Йен, Николас Це, Цинь Лань, Кенни Вон, Дип Нг, Джина Хо, Ангус Юн, Брюс Тун, Тони У, Юй КанПеревод: профессиональный двухголосый (Pazl Voice)Субтитры: английские (два варианта)Продолжительность: 02:05:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA8FBAAAA0456BC955FF827BFF75D01BE4731926
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516930   (163172) от 14.12.2021
 
 Рыбак (Книга рыб) / Jasaneobo / The Book of Fish (2021) WEB-DLRip [DVO]
@@ -6,7 +85,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163172.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162965.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162758.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161601.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161568.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161565.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161039.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161016.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160886.jpg" />
 </div>
 
 
@@ -241,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159689.jpg" />
 </div>
 
 
@@ -267,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157632.jpg" />
 </div>
 
 
@@ -293,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156678.jpg" />
 </div>
 
 
@@ -319,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156524.jpg" />
 </div>
 
 
@@ -345,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156437.jpg" />
 </div>
 
 
@@ -371,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154826.jpg" />
 </div>
 
 
@@ -397,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154631.jpg" />
 </div>
 
 
@@ -423,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154060.jpg" />
 </div>
 
 
@@ -449,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153857.jpg" />
 </div>
 
 
@@ -475,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153524.jpg" />
 </div>
 
 
@@ -501,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153400.jpg" />
 </div>
 
 
@@ -527,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152868.jpg" />
 </div>
 
 
@@ -553,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152539.jpg" />
 </div>
 
 
@@ -579,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152188.jpg" />
 </div>
 
 
@@ -590,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E42A8AF0C3CF8F5EAB07C092A5DFF59C45A52C1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434110   (152185) от 23.12.2020
-
-Авангард: Арктические волки / Ji xian feng / Vanguard (2020) BDRip [H.265] [10-bit]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они берутся за задания, которые другим не под силу. Когда международный синдикат наемников похищает известного бизнесмена, единственным шансом на его спасение становится лихая команда «Авангард», не имеющая равных в мастерстве и дерзости.Производство: Китай / China Film (Shanghai) International Media Co., China Film Group Corporation (CFGC), Epitome CapitalЖанр: Боевик, криминалРежиссер: Стэнли ТунАктеры: Джеки Чан, Ян Ян, Ай Лунь, Сюй Жохань, Мия Муци, Чжу Чжэнтин, Джексон Лоу, Эйад Хурани, Дзавад Рамезани, Десмонд ЭлдриджПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 01:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24F886FB30A534D2168136874E09F96F0A7ECFD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086279   (151141) от 24.12.2016
-
-Поезд в Пусан / Busanhaeng (2016) BDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Южную Корею охватывает вспышка зомби-вируса. Отец с маленькой дочерью, проводник с беременной женой и многие другие пытаются добраться до города Пусан. Именно там, как говорят, самое безопасное место в стране, где можно найти защиту от заболевания. Люди садятся на скоростной поезд до Пусана. А поскольку в нём же оказываются заражённые, начинается отчаянная борьба (   Читать дальше...   )Производство: Корея Южная | Next Entertainment World, Red PeterЖанр: Триллер, Драма, УжасыРежиссер: Сан Хо ЁнАктеры: Ю Гон, Ю Ми Чон (II), Дон Сок Ма, Су Ан Ким, Ый Сон Ким, У Шик Чхве, Со Хи Ан, Хёк Чжин Чжан, Ын Гён Сим, Сок Ён Чон, Мён Син Пак, До Им У, Юль Хо КимПеревод: ДублированныйПродолжительность: 01:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78AC6CED92E25270DC62023DA5D1B53AF96B3FE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601376   (150813) от 31.12.2022
-
-Флаг в тумане / Kiri-no-hata / Sweet revenge / Flag in the Mist (1977) HDRip [H.264] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девушка приезжает в Токио с острова Кюсю к знаменитому адвокату, чтобы он спас её брата от несправедливого обвинения в убийстве. К сожалению, у неё нет денег, которые обычно просит адвокат за подобную работу. Само дело также представляется безнадёжным.Производство: Япония / Hori Kikaku Productions, Toho CompanyЖанр: детектив, драма, криминалРежиссер: Кацуми НисикаваАктеры: Момоэ Ямагути, Томокадзу Миура, Рэнтаро Микуни, Хироси Сэкигути, Харуко Като, Идзуми Хара, Рэндзи Исибаси, Томико Исии, Рюносукэ Канэда, Миюки КодзимаПеревод: Двуголосый любительский (Head Pack Films)Язык озвучки: русский, японскийСубтитры: английские, русскиеПродолжительность: 01:34:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:188107E0481C2A792F66B1D8FAE3B80C2E3151D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

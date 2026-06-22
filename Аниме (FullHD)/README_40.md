@@ -6,7 +6,7 @@ Aoki Hagane no Arpeggio: Ars Nova | Arpeggio of Blue Steel | Мелодия во
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328898.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ One Piece 3D2Y: Ace no shi wo Koete! Luffy Nakama Tono Chikai | 3D2Y: Переж
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324409.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Panda Kopanda: Amefuri Circus no Maki | Panda! Go, Panda!: Rainy Day Circus | Б
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322802.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Panda Kopanda | Panda! Go, Panda! | Большая панда и маленьк�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322800.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Mahou Sensei Negima! | Negima! | Волшебный учитель Нэгима!
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320744.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Sora to Umi no Aida | Space Fish: Between the Sky and Sea | Между небо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317566.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Bakuman / Бакуман [ТВ-1] [2010, TV, 25 из 25] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317283.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Kimi ni Todoke / Reach You / Дотянуться до тебя [2009, TV, 25 э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317281.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Kidou Keisatsu Patlabor (1990) | Mobile Police Patlabor - The New Files | Пол
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317278.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Macross Zero | Макросс Зеро [2002, OVA, 5 эп.] BDRip 1080p Hi10P ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317185.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Kiseijuu: Sei no Kakuritsu | Parasyte: The Maxim | Паразит [2015, TV, 24]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317182.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Natsume Yuujinchou / Тетрадь дружбы Нацумэ (первый се
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317178.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Karas /  Crow /  Карас  [2005, OVA,  6 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317047.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Fumiko no Kokuhaku | Fumiko's Confession | Признание Фумико [2009
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316762.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Alice or Alice | Алиса или Алиса [2018, TV, 12 эп. + OVA] BDrip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316626.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Paulette no Isu | Стульчик Полетты [2014, Другое] BDrip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316624.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Hinata no Aoshigure | Солнце сквозь дождик [2013, Movie] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316618.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Ballroom e Youkoso | Welcome to the Ballroom | Добро пожаловать �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316607.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Project PAPO | Проект ПАПО [2006, OVA, 2 эп.] BDrip 1080 raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316600.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Rain Town | Город дождя [2011, ONA, 1 эп.] BDrip 818p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316597.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Hi no Tori: Houou Hen | Phoenix: Karma Chapter | Жар-птица: Глава �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316482.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Hi no Tori | Phoenix | Жар-птица [2004, TV, 13 из 13] HDTV 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316469.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Shoujo Shuumatsu Ryokou | Girls' Last Tour | Девушки в последне�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316404.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Fullmetal Panic! Invisible Victory | Full Metal Panic! Invisible Victory | Ст�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316399.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Masamune-kun no Revenge | Masamune-kun's Revenge | Месть Масамунэ [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316308.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Hi no Tori 2772: Ai no CosmoZone | Phoenix 2772: Cosmos Zone of Love | Жар-п
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316269.jpg" />
 </div>
 
 

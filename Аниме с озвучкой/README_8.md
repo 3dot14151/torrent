@@ -1,3 +1,81 @@
+###  Публикация: 1477123   (1011093) от 14.06.2021
+
+Kikou Ryouhei Mellowlink | Armor Hunter Mellowlink | Бронебойщик Меллоулинк [1988, OVA, 12 из 12] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011093.jpg" />
+</div>
+
+
+###  Подробнее
+
+В галактике Астрагиус уже начинает утихать столетняя война между империями Гильгамеш и Баларант. За неподчинение приказу лейтенанта Швеппса и его взвод пилотов ВОТОМов отправляют на передовую в качестве бронебойщиков для прикрытия отступления своих войск. Вооружённые старыми противотанковыми винтовками и не имея поддержки союзных ВОТОМов, бойцы Швеппса были уничтожены. (   Читать дальше...   )Производство: Sunrise / サンライズЖанр: приключения, фантастика, мехаРежиссер: Канда ТакэюкиПеревод: TancistЯзык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5859C46BA670614DCAD4035928D3A12654F315FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477365   (1010732) от 16.06.2021
+
+Air | Высь [2005, TV, 12 эп.] SDTV 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Столетия назад в средневековой Японии ещё можно было встретить мистических крылатых дев, имеющих связь с потусторонним миром и обладающих мощными магическими силами. Они были призваны помогать людям, но в суровой реальности той эпохи стали заложницами сильных мира сего, использующих их как оружие в войнах. Эти чистые душой существа не могли выжить в людской грязи, (   Читать дальше...   )Производство: Япония, Kyoto AnimationЖанр: драма, романтика, мистикаРежиссер: Исихара ТацуяЯзык озвучки: Русский от AniDub (Azazel, Esther, Jade)Субтитры: ОтсутствуютПродолжительность: ТВ, 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F3D3F2F42542B4BC3B9E8F9E2DBC1D5F827EF4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478901   (1009918) от 21.06.2021
+
+Gekijouban Gintama Kanketsuhen: Yorozuya yo Eien Nare | Gintama: Movie 2 | Гинтама (фильм второй) [2013, Movie] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интересно, что бы случилось, если бы Белого Демона никогда не существовало? В один прекрасный день мир сошёл с ума, и теперь Эдо ввергнут в настоящий хаос. Гинтоки Саката отныне живёт в альтернативной реальности, будущем, в котором ему места не нашлось. Но что же случилось с Ёродзуей? А с остальными? Но важнее всего: кто за всем этим стоит? Похоже, Гинтоки снова (   Читать дальше...   )Производство: Япония, SunriseЖанр: Комедия, приключения, полнометражныйРежиссер: Ёити ФудзитаЯзык озвучки: Русский, японскийПродолжительность: 01:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D51831BB99385AEF8C331DA9AC6231096D41087
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479526   (1009502) от 24.06.2021
 
 UFO Robo Grendizer | Grandizer | Инопланетный робот Грендайзер [1975, TV, 74 из 74] DVDRip 576p rus
@@ -6,7 +84,7 @@ UFO Robo Grendizer | Grandizer | Инопланетный робот Гренд�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009502.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009061.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008775.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ Ayashi no Ceres | Ceres: Celestial Legend | Подозрительная Цер�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008225.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Fruits Basket the Final TV-3 | Корзинка фруктов: Финал ТВ-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007953.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ Slime Taoshite 300-nen, Shiranai Uchi ni Level Max ni Nattemashita / Я 300 ле
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007938.jpg" />
 </div>
 
 
@@ -166,7 +244,7 @@ Tensura Nikki: Tensei Shitara Slime Datta Ken / The Slime Diaries: That Time I G
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007657.jpg" />
 </div>
 
 
@@ -194,7 +272,7 @@ Zombie Land Saga Revenge / Зомбиленд. Сага [ТВ-2] [2021, TV, 12 e
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007654.jpg" />
 </div>
 
 
@@ -222,7 +300,7 @@ Majo Minarai o Sagashite | Looking for Magical Doremi | Дореми: В пои�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007523.jpg" />
 </div>
 
 
@@ -248,7 +326,7 @@ Hyper Police | Гиперполиция [1997, TV, 25 из 25] DVDRip 478p 10-bi
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006577.jpg" />
 </div>
 
 
@@ -275,7 +353,7 @@ Boys Be... | Мальчишки есть мальчишки [2000, TV, 13 + 1] D
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006572.jpg" />
 </div>
 
 
@@ -302,7 +380,7 @@ Ore dake Haireru Kakushi Dungeon | The Hidden Dungeon Only I Can Enter | Сил�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005975.jpg" />
 </div>
 
 
@@ -329,7 +407,7 @@ Kamisama ni Natta hi | The Day I Became a God | День, когда я стал
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004661.jpg" />
 </div>
 
 
@@ -355,7 +433,7 @@ Ima, Soko ni Iru Boku | Now and Then, Here and There | Здесь и сейча�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004252.jpg" />
 </div>
 
 
@@ -381,7 +459,7 @@ Baki | Баки (ONA-1) [2018, Web, 26 эп.] WEBRip 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004248.jpg" />
 </div>
 
 
@@ -409,7 +487,7 @@ Hikari to Mizu no Daphne | Daphne in the Brilliant Blue | Дафна: Тайна
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003634.jpg" />
 </div>
 
 
@@ -435,7 +513,7 @@ Zoku Natsume Yuujinchou | Тетрадь дружбы Нацумэ [ТВ-2] [200
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003510.jpg" />
 </div>
 
 
@@ -461,7 +539,7 @@ Mushishi Tokubetsu Hen: Hihamu Kage | Мастер Муси: Тень, погл�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003509.jpg" />
 </div>
 
 
@@ -488,7 +566,7 @@ Tales of Vesperia: The First Strike | Сказания Весперии: Пер�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001102.jpg" />
 </div>
 
 
@@ -514,7 +592,7 @@ Psycho-Pass 3: First Inspector | Психопаспорт 3: Первый инс
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001077.jpg" />
 </div>
 
 
@@ -540,7 +618,7 @@ Kumo no Mukou, Yakusoku no Basho / The Place Promised in Our Early Days / Beyond
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999206.jpg" />
 </div>
 
 
@@ -566,7 +644,7 @@ Ergo Proxy / Эрго прокси [2006, TV, 23 из 23] HDTVrip 720p raw + rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996554.jpg" />
 </div>
 
 
@@ -596,7 +674,7 @@ Blade | Блэйд [2011, TV, 12] BDRip 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991250.jpg" />
 </div>
 
 
@@ -607,87 +685,6 @@ Blade | Блэйд [2011, TV, 12] BDRip 720p raw+rus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:556EBB4BC0E759AAA497AF3A7678ED91303B01B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611806   (987957) от 31.01.2013
-
-Nazo no Kanojo X / Mysterious Girlfriend X / Загадочная девушка Икс [2012, TV, 13+OVA] BDRip 720p raw + rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жил был самый обычный ни чем не выделяющийся паренек - Цубаки Акира, Ходил в школу как все, учился как все...короче совсем обычный. За исключением одного но. Акире всегда снились странные сны...
- В один прекрасный день вся его обычная жизнь рухнула, когда в их класс перевелась "Странная" девушка Урабэ Микото....
-©FooBooЖанр: комедия, романтика, школаРежиссер: Ватанабэ АюмуПродолжительность: ТВ, 13 серий + OVA по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C653678C69DD4E01966BF3D4B3C4C011DA64F4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971919   (984366) от 04.01.2016
-
-Gokukoku no Brynhildr / Brynhildr in the Darkness / Брюнхильда во тьме [2014, TV, 13 ep + SP] BDRip Hi10p 720p Raw+Rus x3(ext)
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984366.jpg" />
-</div>
-
-
-###  Подробнее
-
-В детстве Рёта Мураками дружил с девочкой по прозвищу Куронэко. Его подружка не раз заявляла, что встречалась с пришельцами, и однажды взялась лично показать «неверующему» братьев по разуму. Кончилось это плохо – девочка погибла, мальчик еле выжил. Потеряв близкого человека, Рёта поверил, что «истина где-то рядом» и решил стать астрономом, чтобы в будущем работать (   Читать дальше...   )Жанр: приключения, фантастика, драмаРежиссер: Имайдзуми КэнъитиПеревод: Русские субтитры от nnm-club^anime
-Переводчик/Оформление: kvaking, Редактор/Тайм-код: ElSwankoСубтитры: ASS, Полные | Надписи (внешними файлами)Формат: MKVПродолжительность: 13 эпизодов и спэшл по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED38F1C48AFEF2C8CE061F7D162A4414C489E8BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342251   (984294) от 25.01.2020
-
-Overlord II | Повелитель [ТВ-2] [2018, TV, 13 ep] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение аниме-сериалаПроизводство: Madhouse Studios, ЯпонияЖанр: Приключения, Фэнтези, Сверхъестественное, ЭкшенРежиссер: Ито НаоюкиОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 13 Эпизодов по 25 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF2BB0C7942D0C53010A1804EC500719113DD3BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

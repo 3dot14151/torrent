@@ -1,3 +1,137 @@
+###  Публикация: 1143338   (636825) от 17.06.2017
+
+Through the Woods (2016) [Ru/Multi] (1.0) SteamRip Let'sPlay [Digital Collector's Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Through the Woods — это приключенческая игра от третьего лица в жанре «хоррор». Действие разворачивается в лесах западного побережья Норвегии и повествует о матери, потерявшей своего сына. По мере игры вам предстоит узнать от женщины, что предшествовало исчезновению ее сына. Вы последуете за испуганной героиней, которой пришлось войти в это ужасное место с одной (   Читать дальше...   )Тип издания: SteamRipРазработчик: Antagonist GamesЖанр: Adventure, Action (Survival horror), 3D, 3rd PersonЯзык озвучки: Английский, НорвежскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BCE49DDE70A295AC1E04D91D2D264F4C3549562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293053   (633101) от 05.04.2019
+
+Tomb Raider: Anniversary (2007) [Ru/Multi] (1.0) Repack R.G. Revenants
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633101.jpg" />
+</div>
+
+
+###  Подробнее
+
+По случаю десятой годовщины культовой серии игр о расхитительнице гробниц Eidos Interactive делает всем поклонникам Лары Крофт замечательный подарок. Ветераны и представители нового поколения игроков смогут разделить с рисковой и авантюрной Ларой ее самое первое приключение.Тип издания: RepackРазработчик: Crystal DynamicsЖанр: Action (Shooter), 3D, 3rd Person, AdventureЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:681B3A4183B935F5DB56EFF5FCBB5639B73A8A77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519811   (632757) от 08.07.2012
+
+Blades of Time. Limited Edition  (Steam-Rip) [Ru/Multi7] 2012 | R.G. Игроманы
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аюми — бесстрашная охотница за сокровищами. Она великолепно вооружена и необычайно прекрасна. В поисках ценных трофеев девушка отправляется на таинственный и, конечно же, полный опасностей остров. Как выяснилось, это место богато не только сокровищами — оно буквально пропитано гнетущей магией Хаоса. А очень скоро Аюми поймет, что остров скрывает множество древних тайн и может подарить немало полезных навыков и способностей.
+
+Используя все, что подвернется под руку: мечи, ружья, а главное, революционно новую игровую механику «Перемотка времени» - способность поворачивать время вспять - Аюми изящно и зрелищно расправится с полчищам врагов и разгадает десятки удивительных головоломок, избежит хитроумных смертельных ловушек и вырвется из цепких объятий мистического острова.
+
+Колоритные персонажи, сногсшибательные визуальные спецэффекты, горы сокровищ, огромное разнообразие боевых умений — Blades of Time оставит незабываемые впечатления не только у начинающих геймеров, но и у самых взыскательных поклонников приключенческих экшенов.(   Читать дальше...   )Тип издания: Steam-RipРазработчик: Gaijin EntertainmentЖанр: Action (Slasher) / 3D / 3rd PersonЯзык озвучки: Русский, Multi7Язык интерфейса: Русский, Multi7
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2A69903FF4ABE4571B0644A226238EFEAB386F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294143   (631241) от 06.04.2019
+
+Hitman: Absolution (2012) [Ru/Multi] (1.0.447.0) License GOG
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hitman: Absolution рассказывает историю самого личного контракта наемного убийцы. Преданный Агентством и затравленный полицией, Агент 47 ищет искупления в испорченном и изуродованном мире. На его затылке – особый штрихкод. За его головой развернута настоящая охота. За ним по пятам следует полиция, его жизнь не стоит и цента, но у него – особое задание. И горе тем, (   Читать дальше...   )Тип издания: LicenseРазработчик: IO Interactive, Feral InteractiveЖанр: Action (Shooter), 3D, 3rd Person, StealthЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E83F35A1FE27B2A371B00A45F588020955410131
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035147   (629803) от 15.07.2016
+
+Dead Space (2008) [Ru/Multi] (1.0.0.222) License GOG
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dead Space - по-настоящему жуткая штука. Она не терзает уродцами, стоящими за дверью. Не раздражает бесконечными толпами «мяса». Не топит в литрах кетчупа. Нас осторожно теребят за нервы, ясно давая понять - безопасных мест нет. Куда бы ни ступил инженер Айзек Кларк, его ждут одиночество и неизвестность, пронизанные холодным шепотом и биением сердца.Тип издания: LicenseРазработчик: EA Redwood ShoresЖанр: Action (Shooter, Survival horror), 3D, 3rd PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2466D9CBBF691C066763D7B709ACDCC5293E9EFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214722   (629331) от 07.04.2019
 
 Attack on Titan 2 (2018) [Multi] (1.4.0.0/dlc) Repack xatab
@@ -6,7 +140,7 @@ Attack on Titan 2 (2018) [Multi] (1.4.0.0/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629331.jpg" />
 </div>
 
 
@@ -32,7 +166,7 @@ Outcast [Ru/En] (Repack/1.0.46.7) 1999 | R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628443.jpg" />
 </div>
 
 
@@ -60,7 +194,7 @@ Silent Hill 4: The Room [Ru] (RePack) 2004 | R.G. Element Arts
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628310.jpg" />
 </div>
 
 
@@ -86,7 +220,7 @@ The Cursed Crusade (2011) [Ru/En] (Update 7) Repack R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627289.jpg" />
 </div>
 
 
@@ -112,7 +246,7 @@ The Piano (2018) [En] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625865.jpg" />
 </div>
 
 
@@ -138,7 +272,7 @@ EARTH DEFENSE FORCE 4.1: The Shadow of New Despair (2016) [En/Ja] (1.0) Repack O
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622283.jpg" />
 </div>
 
 
@@ -164,7 +298,7 @@ Blades of Time / Клинки Времени [Ru/En/Multi7] (RePack/u5) 2012 | R
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622245.jpg" />
 </div>
 
 
@@ -192,7 +326,7 @@ EARTH DEFENSE FORCE 4.1: The Shadow of New Despair (2016) [En/Ja] (1.0) License 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622142.jpg" />
 </div>
 
 
@@ -218,7 +352,7 @@ The Last Stand: Aftermath (2021) [Ru/Multi] (1.1.0.11) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621513.jpg" />
 </div>
 
 
@@ -244,7 +378,7 @@ State of Decay (2015) [Ru/Multi] (1.0/dlc) Repack xatab [Year One Survival Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620509.jpg" />
 </div>
 
 
@@ -270,7 +404,7 @@ Bayonetta (2017) [Ru/Multi] (1.01) Repack ivandubskoj
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619359.jpg" />
 </div>
 
 
@@ -296,7 +430,7 @@ Styx: Master of Shadows (2014) [Ru/En] (1.02) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617068.jpg" />
 </div>
 
 
@@ -322,7 +456,7 @@ Crying is not Enough (2018) [Ru/Multi] (1.0/upd1) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616474.jpg" />
 </div>
 
 
@@ -348,7 +482,7 @@ The Haunted: Hells Reach (2011) [Multi] (1.0 Build 8564469/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616002.jpg" />
 </div>
 
 
@@ -374,7 +508,7 @@ Devil May Cry 4 (2015) [Multi] (1.0.0.0/dlc) SteamRip Let'sРlay [Special Editio
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611976.jpg" />
 </div>
 
 
@@ -400,7 +534,7 @@ POSTAL Redux (2016) [En/Ch] (4.3.0/dlc) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608307.jpg" />
 </div>
 
 
@@ -426,7 +560,7 @@ Toukiden: Kiwami (2015) [En/Jap] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608174.jpg" />
 </div>
 
 
@@ -453,7 +587,7 @@ Sniper Elite V2 (2012) [Ru/Multi] (1.13/dlc) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607352.jpg" />
 </div>
 
 
@@ -479,7 +613,7 @@ Sniper Elite V2 (2012) [Ru/Multi] (1.13/dlc) License PLAZA [Complete Pack]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607279.jpg" />
 </div>
 
 
@@ -505,7 +639,7 @@ ECHO (2017) [Ru/En] (24.03.2019) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606007.jpg" />
 </div>
 
 
@@ -531,7 +665,7 @@ Crying is not Enough: Remastered (2018) [Ru/Multi] (1.0/upd2) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604535.jpg" />
 </div>
 
 
@@ -542,136 +676,6 @@ Crying is not Enough (“Крик не поможет”) - это игра на
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D32F3CF40EAE6B08FA43F91435C2C688DB6E7A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148264   (604170) от 05.07.2017
-
-Remember Me (2013) [Ru/Multi] (1.0.2056.0/dlc) SteamRip Let'sPlay
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый Париж, 2084 год. Воспоминания перестали быть личными, их можно оцифровать, купить или продать. Под напором социальных сетей, стремительному развитию которых положил начало XXI век, понятия «частная жизнь» и «личное дело» превратились в пережиток былой эпохи. Люди добровольно пожертвовали сокровенным в обмен на удобства, которые обеспечили им технологии.Тип издания: SteamRipРазработчик: DONTNOD EntertainmentЖанр: Action, Adventure, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BAE61503F591156AAC5073947D8707D0D3B362B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911126   (604160) от 05.07.2017
-
-Sniper Elite V2 (2012) [Ru/En] (1.13/dlc) Repack =nemos=
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во мраке последних дней Второй мировой войны, посреди руин Берлина одна-единственная пуля может изменить ход истории... Sniper Elite V2 — это долгожданное продолжение получившей признание игры Sniper Elite, которое даёт игрокам возможность по-настоящему почувствовать себя снайпером времен Второй мировой войны. Вы — элитный американский снайпер Карл Фэйрбёрн. После (   Читать дальше...   )Тип издания: RepackРазработчик: RebellionЖанр: Action (Shooter), 3D, 3rd Person, StealthЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCCA7F62667B1C4CB1225E7D97FEB8445B335B70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297374   (603997) от 22.04.2019
-
-Assassin's Creed (2008) [Ru/Multi] (1.02v2) License GOG [Director's Cut Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Assassin’s Creed® – игра, определившая новые стандарты жанра приключенческого боевика. Фотореалистичная графика, усовершенствованная физическая модель, фанатичное внимание к деталям... этому проекту удалось открыть новую главу в истории игр! При этом, техническое совершенство – только одна из двух составляющих, принесших игре такую популярность, вторая – сюжет. Теоретически, (   Читать дальше...   )Тип издания: LicenseРазработчик: Ubisoft MontrealЖанр: Экшн, Приключение, ИсторическаяЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83870ED82A8133922DB269FC36D2E3BF481454E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088129   (603996) от 22.04.2019
-
-Prince of Persia: The Sands of Time / Принц Персии: Пески времени (2003) [Ru/Multi] (1.0.0.181) License GOG
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Среди выжженных песков Персии появилась древняя легенда. Она рассказывает о временах, когда проливалась кровь и правил обман. Ведомый темными силами магического кинжала, юный Принц выпустил смертельное зло на прекрасное королевство. Благодаря коварству очаровательной принцессы и абсолютным силам Песков Времени, Принц пускается в трудный путь, чтобы вернуть проклятые (   Читать дальше...   )Тип издания: LicenseРазработчик: Ubisoft MontrealЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: Русский, Английский, Немецкий, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77FC28D539C83F694F59903A7534FF6B6A033616
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148458   (603747) от 06.07.2017
-
-Prince of Persia: The Forgotten Sands / Принц Персии: Забытые Пески (2010) [Ru] (1.00/dlc) Repack Other s
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Много песка утекло со времени нашего первого знакомства с Принцем Персии, и вот он вернулся. На этот раз он расскажет нам историю о давно забытом прошлом, почти утерянном в круговороте времени. После получения невероятной силы - возможности управлять Песками Времени - Принц отправился в королевство своего брата Малика, но там встретил лишь смерть и разрушение. Чтобы (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft MontrealЖанр: Adventure, Action, 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20E2185C17F9FC7EC0DACA7AF205C8FA106DFB14
 ```
 
 https://mybot314.ru/tekegram_catalog/

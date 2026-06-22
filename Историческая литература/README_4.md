@@ -1,3 +1,109 @@
+###  Публикация: 1848806   (1053336) от 20.01.2026
+
+Денис Креленко | Войны ХХ века. Хроники войн в картах, событиях, фактах. Большой иллюстрированный атлас (2020) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Войны XX века. Локальные войны и вооруженные конфликты» представляет собой собрание цветных карт, содержащих подробную информацию о событиях главных вооруженных конфликтов XX века. Наряду с красочными и подробными картами атлас содержит сопроводительные тексты, в которых изложены особенности и итоги военных событий. Особое внимание в атласе уделено событиям, (   Читать дальше...   )Жанр: История, ЭнциклопедииИздательство: АСТФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F9C872A66B63CD50DD92C495CE2F6ED35C08656
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848590   (1053140) от 18.01.2026
+
+Дэн Джонс | Крестоносцы. Полная история (2024) [PDF, FB2, RTF, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подробная история крестовых походов, рассказанная автором бестселлеров «Тамплиеры» и «Плантагенеты» Дэном Джонсом.
+
+Более тысячи лет христиане и мусульмане жили бок о бок, иногда в мире, а иногда в состоянии войны. Но когда в 1099 году христианские армии захватили Иерусалим, начался самый печально известный период противостояния двух религий. Расширяя привычные временные (   Читать дальше...   )Жанр: ИсторияИздательство: АльпинаФормат: PDF, FB2, RTF, EPUBКачество: Изначально электронное (ebook), Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25657962E379D5157B08E7CCFCDA7922A42BCB64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848776   (1053113) от 18.01.2026
+
+Феликс Лурье | Всемирная история. Всемирная история в картах, событиях, фактах. Большой иллюстрированный атлас (2020) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большой иллюстрированный атлас содержит уникальные линейные таблицы, отражающие историческую хронологию ведущих государств Европы, Азии, Африки и Америки. Благодаря авторской подаче легко отследить важнейшие события пяти тысячелетий мировой истории и их влияние на развитие мира. Кроме этого, в атласе вы найдете краткий исторический словарь, расширяющий информативность (   Читать дальше...   )Жанр: История, ЭнциклопедииИздательство: АСТФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2194C829F09860FBBB28B946930A7984E97894D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848774   (1053112) от 18.01.2026
+
+Дмитрий Иванов | Великие русские мореплаватели. История морских экспедиций в картах, событиях, фактах. Большой иллюстрированный атлас (2025) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русским мореплавателям довелось внести достойный вклад в расширение знаний о нашей планете. На их счету – открытие Антарктиды, северо-западных берегов Северной Америки, пролива, разделяющего Америку и Евразию, исследование Командорских, Алеутских, Курильских островов, Новой Земли и побережья Северного Ледовитого океана, описание Маркизских, Марианских, Гавайских (   Читать дальше...   )Жанр: История, География, ЭнциклопедииИздательство: АСТФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC02D5597A88EEA716DDD2AEE829F3C6D3C0FA02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848773   (1053111) от 18.01.2026
 
 Патрик О`Брайн | Большой исторический атлас мира. Всемирная история в картах, событиях, фактах. Большой иллюстрированный атлас (2022) [PDF]
@@ -6,7 +112,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053111.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053109.jpg" />
 </div>
 
 
@@ -61,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053108.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053107.jpg" />
 </div>
 
 
@@ -115,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053105.jpg" />
 </div>
 
 
@@ -141,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053104.jpg" />
 </div>
 
 
@@ -167,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053088.jpg" />
 </div>
 
 
@@ -193,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053087.jpg" />
 </div>
 
 
@@ -219,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053086.jpg" />
 </div>
 
 
@@ -245,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053082.jpg" />
 </div>
 
 
@@ -271,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053081.jpg" />
 </div>
 
 
@@ -297,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053071.jpg" />
 </div>
 
 
@@ -325,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052818.jpg" />
 </div>
 
 
@@ -351,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052791.jpg" />
 </div>
 
 
@@ -377,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052772.jpg" />
 </div>
 
 
@@ -403,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052768.jpg" />
 </div>
 
 
@@ -429,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052369.jpg" />
 </div>
 
 
@@ -457,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052365.jpg" />
 </div>
 
 
@@ -483,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051918.jpg" />
 </div>
 
 
@@ -511,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051824.jpg" />
 </div>
 
 
@@ -537,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051771.jpg" />
 </div>
 
 
@@ -565,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049475.jpg" />
 </div>
 
 
@@ -578,113 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E0B56119E386E15AF1C2838C3F95EF1B99FDE42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843605   (1049469) от 21.12.2025
-
-Питер Саррис | Юстиниан. Византийский император, римский полководец, святой (2025) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сколько реформ способен реализовать император за 83 года своей жизни, 20 из которых правил совместно с женой? Правда ли, что храм Святой Софии так восхищал современников, что в Средние века писали, будто там живет ангел? Действительно ли персидский царь предложил императору Юстиниану «усыновить» своего сына?
-Император Юстиниан правил почти четыре десятилетия, с 527 (   Читать дальше...   )Жанр: Биографии, мемуары, историяИздательство: АзбукаФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7448833DDCAA40C611EF53E60F6310A3D5F77527
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843613   (1049467) от 21.12.2025
-
-Хаим Бен Яаков | Чемодан, вокзал, Израиль. К истории антисемитизма в СССР (2024) [PDF, EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Убийство Михоэлса и разгром Еврейского антифашистского комитета, московская каденция Голды Меир и метания обласканного Кремлем Ильи Эренбурга, борьба с безродными космополитами и «Дело врачей», юдофобские «хозяйственные» процессы начала 1960-х и всплеск национального самосознания после Шестидневной войны, антисемитские нарративы в советской пропаганде и деятельность (   Читать дальше...   )Жанр: ИсторияИздательство: Freedom LettersФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E6E1D38AF92269AF3E32ECB62780A80BB1320B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843348   (1049196) от 20.12.2025
-
-Джонатан Димблби | Операция «Барбаросса». Начало конца нацистской Германии (2025) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049196.jpg" />
-</div>
-
-
-###  Подробнее
-
-• Захватывающий рассказ о крупнейшей военной операции всех времен — вторжении нацистской Германии на территорию Советского Союза в 1941 году
-• Автор использует донесения, дневники, письма и мемуары командующих, офицеров и солдат группы армий «Центр» вермахта, а также неопубликованные документы из российских архивов
-• В книге анализируются исторические предпосылки (   Читать дальше...   )Жанр: История, военнаяИздательство: Альпина нон-фикшнФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D96B6814DC64B0C5EDBAAC12EB3D9887C09FD68F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843098   (1049168) от 18.12.2025
-
-Кирилл Рогов (ред.) | Демонтаж коммунизма. Тридцать лет спустя (2021) [PDF, FB2, EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описание: Эта книга посвящена 30-летию падения Советского Союза, завершившего каскад крушений коммунистических режимов Восточной Европы. С каждым десятилетием, отделяющим нас от этих событий, меняется и наш взгляд на их последствия – от рационального оптимизма и веры в реформы 1990‐х годов до пессимизма в связи с антилиберальными тенденциями 2010‐х. Авторы (   Читать дальше...   )Жанр: История, политология, экономикаИздательство: Новое литературное обозрениеФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:934C6BA77FCF48B811DF23CE4C585A93BF38DC8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

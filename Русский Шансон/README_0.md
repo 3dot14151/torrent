@@ -1,3 +1,32 @@
+###  Публикация: 1851339   (1055460) от 03.02.2026
+
+VA - Красивый шансон (2025) [MP3|320 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Бутырка - Я душу к небу отпущу [00:04:22]
+02 - Виват Басов - С любимыми не расставайтесь никогда [00:03:40]
+03 - Владимир Тимофеев, Ирина Рейн - Грешу и каюсь [00:04:05]
+04 - Геннадий Жаров - Мы разлучились [00:04:05](   Читать дальше...   )Жанр: ChansonПродолжительность: 01:22:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD6B45299E52E961F595911E6A70AC65405F0B24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851344   (1055459) от 03.02.2026
 
 Вадим Спирихин - Без границ (2026) [MP3|320 Kbps] <Chanson>
@@ -6,7 +35,7 @@
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055459.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Vayper - Песни на стихи Некрасова Н.А. (2026) [MP3|~190 K
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054010.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Vayper - Dancing Music fo NY 2026 at Vayper@SWH (2025) [MP3|~190 Kbps (V2)] <Cha
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054008.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Vayper - Песни на стихи Юнны Мориц (2025) [MP3|~190 Kbps (V
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051443.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Vayper - Песни на стихи Николая Рубцова (Volume 1) (20
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051442.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Vayper - Песни на стихи Н. Гумилева (2025) [MP3|~190 Kbps (
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050838.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048179.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046335.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045836.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045668.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044599.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044454.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Шоферской 12 (2002) [MP3|320 Kbps] <Шансон>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043922.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042165.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042163.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042159.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042158.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041649.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041642.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041079.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040134.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ VA - Дискотека русского шансона (2020) [MP3|320 Kbps] <�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037634.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ VA - На волне любимого радио шансон (2005) 2 CD [MP3|3
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036694.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ VA - Пацанам городских окраин (2004) [MP3|320 Kbps] <Ша�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034125.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032975.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C7E3923CB246CA80EC45B79F65D6043C7D2B302
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620261   (1032314) от 19.03.2023
-
-VA - Хорошо сидим! 20 Праздничных хитов (2004) [MP3|320 Kbps] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Воровайки - Бен Ладен и Буш
-02. С. Любавин - Ништяк, девочка
-03. М. Круг и В. Цыганова - Постой душа
-04. Е. Чужой - Фонарики(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:13:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41269D6D32E818788330B12C52026B48950F2306
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1597271   (166895) от 14.12.2022
-
-Serge Chaloff - The Complete Serge Chaloff Sessions (1946 - 1956) 4CD, 1993, Mosaic Records [FLAC|Lossless|tracks + .cue] <Bop, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166895.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Blue Serge [3:06]
-02. Blue Serge (long version) [6:04]
-03. Pumpernickel (alternate take) [2:34](   Читать дальше...   )Жанр: Bop, West Coast JazzПродолжительность: 03:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7941569269FF25D5A7B169DC5CE334B79C88DA13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516362   (166853) от 10.12.2021
-
-Ely Bruna & Papik - In Sweet Harmony (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Year Of The Cat
-02. I'm Not In Love
-03. Feelings
-04. Steppin' Out(   Читать дальше...   )Жанр: Jazz, Soul, Easy ListeningПродолжительность: 01:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B35CC2BC5C768EE99D7C56A2C1A437CDF638BCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345520   (166775) от 15.12.2019
-
-Marlon Jordan - The Undaunted (1993) Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Village Blues [10:09]
-02. Confrontation [11:05]
-03. Lauries Mood [7:47]
-04. In Or Out [8:34](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:59:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A37A6B3181101E68827E3D2C31F47950E607B44C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345524   (166767) от 15.12.2019
-
-Bix Beiderbecke - 1924 - 1927 (1994) Classics [FLAC|Lossless|tracks + .cue] <Early Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fidgety Feet [2:24]
-02. Jazz Me Blues [2:46]
-03. Oh Baby [2:19]
-04. Copenhagen [2:30](   Читать дальше...   )Жанр: Early JazzПродолжительность: 01:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D780DA0CFE5E3F82B3417D23493CB5AFD7024D74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345525   (166736) от 15.12.2019
 
 Bix Beiderbecke & Paul Whiteman - 1927 - 1928 (2001) Classics [FLAC|Lossless|tracks + .cue] <Early Jazz>
@@ -122,7 +6,7 @@ Bix Beiderbecke & Paul Whiteman - 1927 - 1928 (2001) Classics [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166736.jpg" />
 </div>
 
 
@@ -151,7 +35,7 @@ Jazz At Lincoln Center Orchestra - The Abyssinian Mass (2016) 2CD, Blue Engine R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166718.jpg" />
 </div>
 
 
@@ -180,7 +64,7 @@ Yves Brouqui - Live At Smalls (2002) Elabeth [FLAC|Lossless|image + .cue] <Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166682.jpg" />
 </div>
 
 
@@ -209,7 +93,7 @@ Toshiyuki Miyama And His New Herd - Tribute (1978) 1991, Teichiku Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166506.jpg" />
 </div>
 
 
@@ -238,7 +122,7 @@ Chet Baker Trio - Live in Paris: The Radio France Recordings (1983 - 1984) 2CD, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166352.jpg" />
 </div>
 
 
@@ -267,7 +151,7 @@ Erroll Garner - 1944-1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166257.jpg" />
 </div>
 
 
@@ -296,7 +180,7 @@ Lee Konitz & The Brazilian Band - Brazilian Serenade (1996) Venus Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166233.jpg" />
 </div>
 
 
@@ -325,7 +209,7 @@ Beegie Adair - Winter Wonderland (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Piano 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166152.jpg" />
 </div>
 
 
@@ -354,7 +238,7 @@ Till Bronner - Christmas (2021) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Cont
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165988.jpg" />
 </div>
 
 
@@ -383,7 +267,7 @@ Ed Neumeister Quartet - New Standards (2005) MeisteroMusic [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165906.jpg" />
 </div>
 
 
@@ -412,7 +296,7 @@ Phil Hey Quartet - Subduction: Live at the Artists' Quarter (2005) Self-Released
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165903.jpg" />
 </div>
 
 
@@ -441,7 +325,7 @@ Berk & The Virtual Band - Jazz Chill / Jazz Chill Vol.2 (2006, 2007) [APE, FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165837.jpg" />
 </div>
 
 
@@ -467,7 +351,7 @@ VA - Smooth Jazz Hits (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165716.jpg" />
 </div>
 
 
@@ -496,7 +380,7 @@ Django Reinhardt - BD Jazz, Vol.2 (1937 - 1953) 2CD, 2006, Nocturne [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165520.jpg" />
 </div>
 
 
@@ -525,7 +409,7 @@ Erroll Garner - 1945-1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165510.jpg" />
 </div>
 
 
@@ -554,7 +438,7 @@ Acker Bilk - Stranger On The Shore (The Best Of) (2001) Sanctuary Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165493.jpg" />
 </div>
 
 
@@ -583,7 +467,7 @@ Stephane Grappelli - Compact Jazz (1987) Verve Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165480.jpg" />
 </div>
 
 
@@ -612,7 +496,7 @@ Jimmy Greene - While Looking Up (2020) Mack Avenue [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165373.jpg" />
 </div>
 
 
@@ -641,7 +525,7 @@ Larry Coryell & Philip Catherine - Jazz at Berlin Philharmonic XI: The Last Call
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165341.jpg" />
 </div>
 
 
@@ -670,7 +554,7 @@ Little Violet - Code Red (2021) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz /Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165322.jpg" />
 </div>
 
 
@@ -699,7 +583,7 @@ Anat Cohen - Claroscuro (2012) Anzic Records [FLAC|Lossless|tracks + .cue] <Mode
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165304.jpg" />
 </div>
 
 
@@ -728,7 +612,7 @@ Kenny Drew, Jr. - Kenny Drew, Jr. (1991) Antilles [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165303.jpg" />
 </div>
 
 
@@ -742,6 +626,122 @@ Kenny Drew, Jr. - Kenny Drew, Jr. (1991) Antilles [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0ADD4BB43A4C4C329A4B246364E84112847F8050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346033   (165252) от 17.12.2019
+
+Bill Evans - 25 Evans (2005) 2CD, Universal [FLAC|Lossless|tracks + .cue] <Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165252.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Danny Boy [3:45]
+02. Blue Monk [4:34]
+03. Spartacus Love Theme [5:11](   Читать дальше...   )Жанр: Cool, Piano JazzПродолжительность: 02:11:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C4EF6BF7598FCF63DF1A1E222BD9D922F894360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597786   (165225) от 16.12.2022
+
+Nat "King" Cole - 1941 - 1943 (1994) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Will Make You Laugh [3:18]
+02. Stop! The Red Light's On [2:40]
+03. Hit the Ramp [3:24]
+04. I Like to Riff [2:49](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 01:14:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C8489D539BBE63FD2E41DA4A0152D530507EE77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597783   (165214) от 16.12.2022
+
+Django Reinhardt - 1941 - 1942 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hungaria [2:29]
+02. De nulle part [3:02]
+03. Dinette [2:53]
+04. Crepuscule [3:03](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 01:08:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68EF0A06874FBFAADA45327FF96C606EBA6657C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597627   (165076) от 16.12.2022
+
+Harry James - 1940 - 1941 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flight of the Bumble Bee [2:25]
+02. Mister Meadowlark [2:54]
+03. The Nearness of You [2:37]
+04. Four or Five Times [2:51](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:12:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20B953317EAD9EFD0878818657D8491F69C57CBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

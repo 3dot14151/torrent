@@ -1,3 +1,30 @@
+###  Публикация: 1217857   (365550) от 17.10.2018
+
+History Channel: Хит-парад древности. Первая десятка / Ancient Top 10 (2016) HDTVRip [H.264/720p-LQ] (10 серий из 10)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подробный рассказ о том, как работали древние технологии. В программе принимают участие Беттани Хьюз и Эндри Торбет, которые познакомят зрителей с десятью выдающимися изобретениями древности.
+Каждая серия будет посвящена определенной теме: «Самое смертоносное оружие», «Тайны Египта», «Древний Рим». Удивительно, каким «продвинутым» был древний мир.Производство: США, History, A&E Television NetworksЖанр: Документальный, научно-популярный, историяПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 10 x ~ 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D9EDB0D3F96D677334B8FBBD2904DB1002E310D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217862   (365420) от 17.10.2018
 
 History Channel: Хит-парад древности. Первая десятка / Ancient Top 10 (2016) HDTVRip (10 серий из 10)
@@ -6,7 +33,7 @@ History Channel: Хит-парад древности. Первая десятк
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365420.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358555.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342936.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342921.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342782.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340519.jpg" />
 </div>
 
 
@@ -163,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332858.jpg" />
 </div>
 
 
@@ -189,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332813.jpg" />
 </div>
 
 
@@ -215,7 +242,7 @@ History Channel. Скрытые следы: Первая мировая войн
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307111.jpg" />
 </div>
 
 
@@ -241,7 +268,7 @@ History Channel: Скрытые следы / Hidden Traces (2014-2016) HDTVRip [
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306731.jpg" />
 </div>
 
 
@@ -267,7 +294,7 @@ History channel: Вселенная / The Universe (2007) BDRemux [H.264/1080p] 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300946.jpg" />
 </div>
 
 
@@ -293,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300751.jpg" />
 </div>
 
 
@@ -319,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290878.jpg" />
 </div>
 
 
@@ -345,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280115.jpg" />
 </div>
 
 
@@ -372,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280011.jpg" />
 </div>
 
 
@@ -399,7 +426,7 @@ History. Кругосветное путешествие Оззи и Джека 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274399.jpg" />
 </div>
 
 
@@ -425,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274248.jpg" />
 </div>
 
 
@@ -451,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273237.jpg" />
 </div>
 
 
@@ -477,7 +504,7 @@ History Channel: Тайны китайских колесниц / Secret of the 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266836.jpg" />
 </div>
 
 
@@ -503,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266740.jpg" />
 </div>
 
 
@@ -530,7 +557,7 @@ History channel: Вселенная / The Universe (2007) BDRemux [H.264/1080p] 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266023.jpg" />
 </div>
 
 
@@ -556,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242619.jpg" />
 </div>
 
 
@@ -582,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240048.jpg" />
 </div>
 
 
@@ -608,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239810.jpg" />
 </div>
 
 
@@ -634,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238387.jpg" />
 </div>
 
 
@@ -645,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72322489CBA0F320F5A530DF88EE06D288DF53DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637045   (231033) от 02.06.2023
-
-Хватай не глядя / Storage Wars (2010-2011) WEBRip [H.264/1080p] (сезон 1, серии 1-19 из 19)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Складские и гаражные аукционы – это богатейший и практически неисчерпаемый источник скрытых сокровищ. Понятно, что охотники за этими сокровищами постараются завладеть ими, обойдя всех конкурентов, в надежде, что в старом хламе отыщутся по-настоящему ценные вещи, которые можно выгодно перепродать. Аукционы проходят так: владелец склада открывает дверь, и у потенциальных (   Читать дальше...   )Производство: США, ORIGINAL PRODUCTIONS, INC A Fremantle Company for A&E NETWORKЖанр: телепередача, реальное ТВРежиссер: Мэттью БеннеттПеревод: Двуголосый профессиональныйЯзык озвучки: РусскийПродолжительность: ~00:22:00 каждая серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26FD69B75D0C73499A2B77AA112366EFDFA2D001
 ```
 
 https://mybot314.ru/tekegram_catalog/

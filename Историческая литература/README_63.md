@@ -1,3 +1,109 @@
+###  Публикация: 941476   (462509) от 27.09.2015
+
+Сабит Ахматнуров | Распад Тюркского каганата. VI–VIII вв. (2015) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пора согласиться с точкой зрения великих русских евразийцев начала ХХ столетия, что у России своя евразийская цивилизация, – утверждает автор. Тысячи лет здесь народы удивляли мир не только своею воинственностью, вооружением или древним ювелирным искусством, но литературой, музыкой, художественными произведениями, архитектурой.
+
+Народы бывших союзных республик нынче (   Читать дальше...   )Жанр: История, археология, этнографияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08126BD028C38ED29A42E2056224D18E097D1F65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058985   (462101) от 04.10.2016
+
+К. Баллод | Государство будущего (1906) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462101.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге профессор К. Баллод (Баллодис) сделал попытку показать трансформацию капиталистической Германии из ее тогдашнего состояния в социалистическое общество мирным путем и описать суть социализма. При этом социализм явился бы более экономной системой, чем капитализм. Работа стала одним из оснований для разработки плана ГОЭЛРО.Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22F5AC1011BA886BE44F862516EFCBCEEB912C82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059521   (461978) от 04.10.2016
+
+Н. И. Бухарин | Енчмениада [к вопросу об идеологическом вырождении] (1923) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чрезвычайная запутанность наших социально-экономических отношений, одновременное сосуществование самых разнообразных хозяйственных форм и соответствующих им людских группировок, сложный переплет этих элементов, их крайняя подвижность и т. д., — все это неизбежно выплывает и дает себя знать не только в сфере политических настроений и политических формулировок, но (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B19C95F85CBB6EF6FFBA5DA895DC675BD69D1F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059405   (461972) от 04.10.2016
+
+М. П. Павлович | Милитаризм , маринизм и война 1914-1918 гг. [Воен. бюджеты и воен. силы европ. государств накануне войны] (1918) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вопрос о политике вооруженного мира накануне войны, о всеобщей милитаризации бюджетов и росте налогового бремени, падавшего на народные массы, настолько важен, что ни один серьезный исследователь, поставивший своей задачей изучение причин войны и условий, благоприятствовавших катастрофе, разразившейся над Европой в 1914 г., не сумеет его обойти.Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26E57E51C48F6ED39D0B7A3A27FEE0CAB6BD6428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059419   (461965) от 04.10.2016
 
 С. Трахтенберг | Просвещение в СССР (1927) [PDF]
@@ -6,7 +112,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461965.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461821.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461727.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461718.jpg" />
 </div>
 
 
@@ -113,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461574.jpg" />
 </div>
 
 
@@ -141,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461573.jpg" />
 </div>
 
 
@@ -169,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461512.jpg" />
 </div>
 
 
@@ -197,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461508.jpg" />
 </div>
 
 
@@ -223,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461507.jpg" />
 </div>
 
 
@@ -249,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461505.jpg" />
 </div>
 
 
@@ -275,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461504.jpg" />
 </div>
 
 
@@ -303,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461497.jpg" />
 </div>
 
 
@@ -330,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461496.jpg" />
 </div>
 
 
@@ -356,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461494.jpg" />
 </div>
 
 
@@ -383,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461448.jpg" />
 </div>
 
 
@@ -409,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461446.jpg" />
 </div>
 
 
@@ -435,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461441.jpg" />
 </div>
 
 
@@ -461,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461435.jpg" />
 </div>
 
 
@@ -489,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461342.jpg" />
 </div>
 
 
@@ -515,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461319.jpg" />
 </div>
 
 
@@ -542,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461176.jpg" />
 </div>
 
 
@@ -570,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460437.jpg" />
 </div>
 
 
@@ -581,114 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64DC5EEA5F03CEC2C97C112771840615A837CD35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059692   (459703) от 05.10.2016
-
-В. Ягов | Современный анархо-синдикализм (1928) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель настоящей брошюры — осветить состояние современного, т. е. послевоенного анархо-синдикализма.
-
-Но современный анархо-синдикализм можно понять лишь в связи с его состоянием до войны. Поэтому приходится уделить внимание изложению основных черт теории анархо-синдикализма и критике его основных положений.Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C89F28CB8D887E641424B10D9DC3E2A1D5C664F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941744   (458114) от 29.09.2015
-
-Виктория Миленко | Саша Черный: Печальный рыцарь смеха (2014) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Саша Черный (1880–1932), знаменитый сатирический поэт, по одним оценкам — «безнадежный пессимист», по другим — «детская душа». Каким был этот человек, создавший язвительную картину своей эпохи и вдруг развернувшийся к противоположным жанрам? Что заставляло его бросаться от сатиры — к лирике, от революционных манифестов — к религиозному миссионерству, от ядовитых (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:245EFFE33119A05B0C44BE2136C79D899FD9488B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060246   (457736) от 06.10.2016
-
-К. Форлендер | История социалистических идей (1925) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слова «социалист», «социалистический», «социализм», которые теперь у всех на устах, — сравнительно недавнего происхождения. Название «социалист» в первый раз появилось в одном лондонском кооперативном журнале 1827 года, а слово «социализм» в современном смысле впервые было употреблено почти совсем забытым последователем Сен-Симона Жонсьером в статье, напечатанной (   Читать дальше...   )Жанр: История, политология, экономика, философияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32967B65AF202B7A4B5A4F2115D9BB5198F45E84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060154   (457570) от 06.10.2016
-
-Г. Сальвиоли | Капитализм в античном мире (1923) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Введение:
-
-Наука может изучать явления экономической жизни двумя способами: в их реальном, объективном виде, какими они являются во времени и в пространстве; или в их субъективно-отраженном виде, т. е. какими они являются в изображении и представлении людей, какие чувства они в людях вызывают, и как последние их понимают. Каждый из этих способов имеет свои достоинства: (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED81331297A24317477296FF1EA97D00801D1EE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

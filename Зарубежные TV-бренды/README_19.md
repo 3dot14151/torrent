@@ -1,3 +1,82 @@
+###  Публикация: 850273   (843019) от 03.04.2016
+
+NG. Бушующие миры: Смертоносная пыль / Storm Worlds: Deadly Dust (2010) HDTVRip [H.264/720p] [3-я серия из 3]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843019.jpg" />
+</div>
+
+
+###  Подробнее
+
+В некоторых частях нашего мира погода бросается в крайности. Там бушуют дикие грозы и тайфуны, причиняющие огромные убытки и уносящие жизни около 12 тыс. человек каждый год. Но в нашей вселенной, существуют миры, где погода бушует в гораздо больших масштабах. Космические бури. Может быть они и кажутся знакомыми, но размеры и сила их не сравнятся ни с чем. И погодные (   Читать дальше...   )Жанр: Документальный, научно-познавательный, космосПеревод: Одноголосый закадровый (профессиональный, студия "АРК-ТВ")Субтитры: отсутствуютПродолжительность: 00:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D61F5CF566ACD79A347B67E92DC6B1D2D6F68918
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378945   (842550) от 27.04.2020
+
+NG: Марс: Один день на красной планете / Mars: One Day on the Red Planet (2020) HDTVRip [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Использование данных с орбитальных станций и марсоходов позволило воссоздать достаточно точное изображение поверхности Красной планеты и раскрыть некоторые ее секреты. За время совершения Марсом одного полного вращения вокруг своей оси вы увидите вулканы-монстры, древние озера, инопланетные ледяные миры и места крушения космических кораблей. Исследуйте перспективы (   Читать дальше...   )Производство: США / National GeographicЖанр: Документальный, космосРежиссер: Martin JohnsonПеревод: Одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 01:27:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E1612B0DC7B2DC34C5E7B2E583A4F2E411FFBB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 716290   (842013) от 30.03.2014
+
+BBC: Исаак Ньютон: Последний чародей (Последний из магов) / Isaac Newton: The Last Magician (2013) SATRip
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие считают Исаака Ньютона величайшим гением всех времён. При жизни его считали полубогом науки. Ньютон раскрыл саму природу света, что позволило нам изучить Вселенную. Благодаря нему мы можем рассчитывать движение и предсказывать изменения. Он объяснил силу, объясняющую всю Вселенную точной математической формулой - Закон всемирного тяготения.
+Ньютона почитают (   Читать дальше...   )Производство: Великобритания, BBCЖанр: Документально-постановочный, историяРежиссер: Ренни БартлетПеревод: Двуголосый закадровый (Видео-фильм ТВ)Продолжительность: ~ 00:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC088A6BCFBF3F854E4BD3165A5F365E200B1A75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112558   (841531) от 09.03.2017
 
 National Geographic. Охотники на питонов. Нашествие змей / Python Hunters. Snake invasion (2011) HDTV [H.264/1080i-LQ] (2 сезон: 1 серия из 6)
@@ -6,7 +85,7 @@ National Geographic. Охотники на питонов. Нашествие з
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841531.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841425.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841424.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ Discovery: Железная дорога Аляски  / Railroad Alaska (2016) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841061.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ NG. Звездное выживание с Беаром Гриллсом / Runni
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840946.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ Discovery: Золотая лихорадка / Gold Rush (2018) HDTV  [H.264/108
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_840741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_840741.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840688.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ Discovery: Золотая лихорадка / Gold Rush (2019) HDTV [H.264/1080
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840627.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840150.jpg" />
 </div>
 
 
@@ -240,7 +319,7 @@ Discovery. Дороги России: Трасса Кола (2016) HDTVRip [720p
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839622.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ Discovery. Смертельный улов / Deadliest Catch (2019) HDTVRip [H.2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838923.jpg" />
 </div>
 
 
@@ -292,7 +371,7 @@ DV: Из истории великих научных открытий / Great M
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838843.jpg" />
 </div>
 
 
@@ -318,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838200.jpg" />
 </div>
 
 
@@ -344,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837852.jpg" />
 </div>
 
 
@@ -370,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837849.jpg" />
 </div>
 
 
@@ -396,7 +475,7 @@ BBC. Тайный командующий. Военный стратег Иран
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837382.jpg" />
 </div>
 
 
@@ -422,7 +501,7 @@ BBC: Мир природы: Львы пустыни / Natural World: Desert Lion
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836690.jpg" />
 </div>
 
 
@@ -448,7 +527,7 @@ DV: Из истории великих научных открытий / Great M
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835759.jpg" />
 </div>
 
 
@@ -474,7 +553,7 @@ DV: Из истории великих научных открытий / Great M
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835750.jpg" />
 </div>
 
 
@@ -500,7 +579,7 @@ DV: История письменности / The Written Word (2005) SATRip (с
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835689.jpg" />
 </div>
 
 
@@ -526,7 +605,7 @@ Discovery. Техногеника. Лефортовский тоннель (2017
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835105.jpg" />
 </div>
 
 
@@ -552,7 +631,7 @@ NG: Хранители сокровищ Египта / Egypt's Treasure Guardian
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834503.jpg" />
 </div>
 
 
@@ -578,91 +657,13 @@ Discovery. Гигантские чудовища: Громадный потро�
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833917.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Гигантское чудовище мегалания выглядит фантастическим - ящерица длиной 5.5 метров с пастью, полной острых ядовитых зубов. Это самая крупная хищная рептилия после тираннозавров.Жанр: Документальный, научно-популярный, доисторический мирПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:44:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 311395   (833716) от 20.03.2011
-
-History Channel: Письменный код (История письменности) / The Writing Code (2007) IPTVRip (серии 3 из 3)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833716.jpg" />
-</div>
-
-
-###  Подробнее
-
-От первых иероглифов до математических кодов века цифрового - наше путешествие в историю человечества заново откроет тайну и силу величайшего и необходимого инструмента - письменности.Жанр: ДокументальныйРежиссер: Жен Серчингер, Сьюзан Бауман, Норман БернсПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 3x~00:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:037CA5029507457BBAE4D684BB962E31FD6E1D9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380619   (832939) от 03.05.2020
-
-Сила племени / Survive the Tribe (2014) WEB-DL [H.264/1080p] (сезон 1, серии 6 из 6)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тысячи лет племена борются за свое выживание на самых суровых землях в мире. Его зовут Хэйзен Одел и он - инструктор по выживанию и гид по дикой природе. Он хочет обучаться у лучших, поэтому путешествует по самым отдаленным уголками земного шара, чтобы бросить вызов сложнейшим испытаниям. Чтобы преодолеть их, он должен научиться выживать в природе, используя лишь (   Читать дальше...   )Производство: Великобритания, Icon Films, National GeographicЖанр: Документальный, путешествия, экстримРежиссер: Алекс Паркинсон, Джордж Пальеро, Адриан Макфарлейн, Стивен ШирманПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 6 x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79FBFF35108B918FD09914BE2ABADC34D902DFDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 190191   (832422) от 04.04.2014
-
-BBC: Терри Джонс и варвары / Terry Jones' Barbarians (2006) SATRip [4 серии из 4]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ДокументальныйПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 4x~00:51:00
 
 ## Скачать торент
 ```bash

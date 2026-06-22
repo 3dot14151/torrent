@@ -1,3 +1,81 @@
+###  Публикация: 955558   (333348) от 11.11.2015
+
+Дикий город / Bou Chau Mai Sing (2015) HDRip [H.264]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отставной полицейский, содержащий бар, помогает пьяной девушке и привозит ее домой. Когда его брат отправляется, чтобы проводить, проспавшуюся после бурной ночи девушку, на них нападают бандиты и увозят незнакомку в неизвестном направлении. Он бросается ее спасать, понимая, что все больше погружается пучину лжи и преступлений, который он, верный зову полицейского (   Читать дальше...   )Производство: Гонконг, Beijing East Light Film Co., East Light Film, Mei Ah Films Production Co. Ltd.Жанр: Боевик, Триллер, КриминалРежиссер: Ринго ЛамАктеры: Луис Ку, Шон Юе, Лия Тун, Сяо-Чуань Чан, Джек Као, Сэм Ли, Филип Нг, Дейв Вон, Саймон ЯмПеревод: Двухголосый закадровый, любительский (2D)Язык субтитров: АнглийскийПродолжительность: 01:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0686B8BFE44FBC6F4C49E67A9D780A1C825C683B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955547   (333201) от 11.11.2015
+
+Дикий город / Bou Chau Mai Sing (2015) WEBRip
+
+>>След.
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отставной полицейский, содержащий бар, помогает пьяной девушке и привозит ее домой. Когда его брат отправляется, чтобы проводить, проспавшуюся после бурной ночи девушку, на них нападают бандиты и увозят незнакомку в неизвестном направлении. Он бросается ее спасать, понимая, что все больше погружается пучину лжи и преступлений, который он, верный зову полицейского (   Читать дальше...   )Производство: Гонконг, Beijing East Light Film Co., East Light Film, Mei Ah Films Production Co. Ltd.Жанр: Боевик, Триллер, КриминалРежиссер: Ринго ЛамАктеры: Луис Ку, Шон Юе, Лия Тун, Сяо-Чуань Чан, Джек Као, Сэм Ли, Филип Нг, Дейв Вон, Саймон ЯмПеревод: Двухголосый закадровый, любительский (2D)Язык субтитров: КитайскийПродолжительность: 01:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAC02825129E909D3D8E908975FF603EAE9D74EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420479   (332539) от 01.11.2020
+
+Ох, дикость / Ah, koya / Ah, Wilderness / Wilderness: Part One (2017) HDRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ближайшее будущее. Действие разворачивается в Синдзюку, Токио. Синдзи выходит из колонии для несовершеннолетних. Барикан страдает от заикания и чрезмерной застенчивости. Двое непохожих и чужих людей, обременённых проблемами, встретятся в боксёрском зале, чтобы стать друзьями и разрешить, казалось, безнадежные ситуации с помощью бокса.Производство: Япония, My Theater D.D., TV Man UnionЖанр: Драма, спортРежиссер: Ёсиюки КисиАктеры: Масаки Суда, Ян Ик-чун, Дэндэн, Рику Хагивара, Аоба Кавай, Таэ Кимура, Акари Киносита, Кацуя Кобаяси, Анна Конно, Ко МаэхараПеревод: Двуголосый любительский (RealFake)Субтитры: отсутствуютПродолжительность: 02:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:949CB22D4A8D6D2BC6438FD528F1898EF3EEFD42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 955836   (332221) от 12.11.2015
 
 Томиэ: Начало / Tomie: Beginning (2005) DVDRip
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332221.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332014.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330655.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328874.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328583.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328154.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327791.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324349.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324347.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324211.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323342.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322356.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322109.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321937.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318071.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318058.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317917.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317556.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314230.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313108.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313007.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312636.jpg" />
 </div>
 
 
@@ -582,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312200.jpg" />
 </div>
 
 
@@ -593,84 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:601B6306322157A7E154D23F9F3BD0577028A84F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 418431   (311417) от 03.12.2011
-
-Кукловод / Choneung ryeokja (Haunters) (2010) HDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311417.jpg" />
-</div>
-
-
-###  Подробнее
-
-В фирму под названием «Утопия» приходит устраиваться на работу молодой человек, Им Кьюн-нам. Ему 33 года от роду. Босс, человек с не меньшими странностями, чем название его компании, при первом же знакомстве рассказывает ему о таинственных событиях, недавно происшедших в офисе. И предлагает оформить его на должность представителя фирмы. На что молодой человек, недавно (   Читать дальше...   )Жанр: Фантастика, Триллер, БоевикРежиссер: Ким Мин-сукАктеры: Кан Дон-вон, Ко Су, Юн Да-кьёнг, Ли Се-Ранг, Чой Деок Мун, Абу-Дод, Чжон Ын Че, Кан Хен ЧжунПеревод: Авторский (одноголосный закадровый) - Сербин ЮрийПродолжительность: 01:45:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FEB182F7F102097F4DDFAD8FFBF7F95D43779F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 729014   (311122) от 01.12.2013
-
-Слепой детектив / Maang taam / Blind Detective 2013 HDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он — талантливый детектив, вынужденный уйти в отставку после того, как во время выполнения задания потерял зрение. С тех пор он зарабатывает на жизнь тем, что распутывает дела, с которыми не может справиться полиция. Она — многообещающий полицейский агент, терзаемая чувством вины из-за пропажи подруги детства. Потрясенная тем, с каким блеском он раскрывает дело, (   Читать дальше...   )Производство: Гонконг, КитайЖанр: Криминал, ДрамаРежиссер: Джонни ТоАктеры: Энди Лау, Сэмми Чэн, Гао Юаньюань, Тао Го, Филип Кеунг, Сует Лам, Хой-Панг Ло, Таи-Ло Ма, Ман-Вэй Вонг, Инь-Инь ЙиуПеревод: Двуголосый закадровый, любительскийОзвучка / Автор перевода: Ольга Гринтиева и Константин РомановПродолжительность: 02:09:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E1D480176C41B43F59AEAF0DD2E16E3525F7518
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 193263   (311119) от 01.12.2013
-
-2046 / 2046 (2004) DVDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_311119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он был писателем. Он думал, что пишет о будущем, а на самом деле он писал о прошлом. В его книге загадочный поезд время от времени отправлялся в 2046 год, и все, кто на него садились, стремились погрузиться в утраченное прошлое. Говорили, что в 2046 никогда ничего не меняется. Никто не знал наверняка, так ли это, потому что уехавшие туда никогда не возвращались, (   Читать дальше...   )Производство: Гонконг, Китай, Франция, Италия, Германия / Jet Tone Films, Shanghai Film Group Corporation, Orly Films, arte France Cinema, Classic, France 3 Cinema, Paradis Films, Precious Yield, ZDF/ArteЖанр: Фантастика, Фэнтези, Драма, МелодрамаРежиссер: Вонг Кар-ВайАктеры: Тони Люн Чу Вай, Гун Ли, Фэй Вонг, Такуя Кимура, Чжан Цзыи, Карина Лау, Чан Чэнь, Цзэ Дун, Мэгги Чун, Тончай МакИнтайрПеревод: Двухголосый закадровый, профессиональныйПродолжительность: 02:03:15
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

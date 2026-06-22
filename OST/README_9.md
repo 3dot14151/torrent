@@ -1,3 +1,90 @@
+###  Публикация: 1287946   (697761) от 10.03.2019
+
+Cris Velasco - Clive Barker's Jericho (2007) Soundtrack [MP3|~245 Kbps (V0)] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крис Веласко хорошо известен по его совместными саундтреками с Сашей Дикисияном, например Dark Messiah, John Woo's Stranglehold, Hellgate: London и многими другими. Но когда у Криса подворачивается возможность написать что-либо без своего лучшего друга, он пытается воспользоваться ею сполна (правда, всё равно приходится просить его о помощи). Самостоятельно он написал (   Читать дальше...   )1. Legend of the Firstborn (1:57)
+2. The Coloseum (2:55)
+3. Lichthammer (1:50)
+4. Path of the Righteous (2:19)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:29:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F75E737FFDDFD727EB7564C784B0F89F819C364D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025747   (697694) от 18.06.2016
+
+OST - Mick Gordon - DOOM (2016) [MP3|320 кб/с] <Electronic / Progressive Metal>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697694.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Main Menu (05:05)
+02. You Will Be Worse (05:15)
+03. The Beginning (07:40)(   Читать дальше...   )Жанр: Electronic / Progressive MetalПродолжительность: 05:20:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E87C6BE7954A4749352712D37FE98C41E888F59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027458   (696534) от 19.06.2016
+
+Thomas Wander & Harald Kloser - Independence Day: Resurgence / День независимости Возрождение (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Traveling Through Space (01:26)
+02. Great Speech (01:37)
+03. Hostile Territory (01:23)
+04. How Did They Get the Lights On? (01:13)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DDF1AB3B561099579F9175035136A542893C1F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027402   (696528) от 19.06.2016
 
 VA - The Nice Guys / Славные парни (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -6,7 +93,7 @@ VA - The Nice Guys / Славные парни (Original Motion Picture Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696528.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Power Glove - Trials Of The Blood Dragon (Original Game Soundtrack) (2016) [MP3|
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692964.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ OST Лара Крофт: Расхитительница гробниц 2 - Ко�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691821.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Andrew Lockington, VA - The Space Between Us / Космос между нами 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691486.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Really Slow Motion - Of Mist and Magic (2014) [MP3|320 Kbps CBR] <Soundtrack, In
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691411.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Really Slow Motion - Charged (2015) [MP3|320 Kbps CBR] <Soundtrack, Instrumental
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691181.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Really Slow Motion - Elevation (2014) [MP3|320 Kbps CBR] <Soundtrack, Instrument
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691074.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Paul Leonard-Morgan - Warhammer 40,000: Dawn of War III (Official Game Soundtrac
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691073.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Audiomachine - Worlds of Wonder (2017) [MP3|320 Kbps CBR] <Soundtrack, Instrumen
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690879.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Daniel Pemberton - Mal De Pierres / From The Land Of The Moon / Иллюзия �
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689378.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Mandy Hoffman - The Lovers / Любовники (Original Motion Picture Soundtr
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689374.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Really Slow Motion - Battle Angel (2016) [MP3|320 Kbps] <Soundtrack, Instrumenta
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689244.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Audiomachine - Magnus & Magnus: B-Sides (2015) 2 CD [MP3|320 Kbps|CBR] <Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689213.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Hans Zimmer, Lorne Balfe - Genius / Гений (National Geographic Original Ser
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689207.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Danny Elfman - The Circle / Сфера (Original Motion Picture Soundtrack) (201
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689099.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Danny Bensi & Saunder Jurriaans - LA 92 / Лос-Анджелес 92 (Original N
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687429.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Ramin Djawadi - Game of Thrones / Игра престолов (Music from the HB
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686101.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Bear McCreary - God of War (2018) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684816.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Martin Iveson - Fighting Force 2 (1999) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684545.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Daniel Pemberton - The Counselor / Советник (Original Motion Picture Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682911.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Alan Silvestri - Мстители: Война бесконечности / Aveng
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682610.jpg" />
 </div>
 
 
@@ -618,7 +705,7 @@ Theodore Shapiro and Ludwig Goransson - Central Intelligence / Полтора ш
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682464.jpg" />
 </div>
 
 
@@ -647,7 +734,7 @@ Rupert Gregson-Williams - The Legend of Tarzan / Тарзан. Легенда (O
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682461.jpg" />
 </div>
 
 
@@ -661,90 +748,6 @@ Rupert Gregson-Williams - The Legend of Tarzan / Тарзан. Легенда (O
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6D0963D2485CF651B7591FBA8F347692AE85917
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509231   (676055) от 11.06.2012
-
-Жизнь и приключения Мишки Япончика / Однажды в Одессе (2011) [MP3|320 кб/с] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: OSTПродолжительность: 00:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04FC98668590DAD06370E38E9409490767CEA812
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136756   (672537) от 23.05.2017
-
-VA - Baywatch / Спасатели Малибу (Music From The Motion Picture) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Notorious B.I.G. - Hypnotize (03:50)
-02. Sean Paul - No Lie (feat. Dua Lipa) (03:41)
-03. A$AP Rocky - Everyday (feat. Rod Stewart, Mark Ronson & Miguel) (04:21)
-04. Vince Staples - BagBak (02:40)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CE8FA1C0CF4EFC2006F5976FBB641C14AE843BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028799   (671839) от 01.07.2016
-
-VA - The Witcher (Collection Original Soundtrack) (2008-2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marcin Przybylowicz - Blood and Wine (02:57)
-02. Mikolai Stroinski - Fanfares and Flowers (03:11)
-03. Piotr Musial - For Honor! for Toussaint! (02:04)
-04. Piotr Musial - Blood Run (02:01)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 07:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BA2888041D1BA1B8C17FFCFEE21C8E254FD0EAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

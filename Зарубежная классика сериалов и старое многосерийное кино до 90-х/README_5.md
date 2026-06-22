@@ -1,3 +1,81 @@
+###  Публикация: 1425997   (169514) от 11.12.2020
+
+Берлин, Александерплац / Berlin Alexanderplatz (1980) DVDRip [H.264] (сезон 1,  серии 1-14 + бонусы) СВ дубль, Союза работников дубляжа
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Зарубежная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в 1927—1928 годах. Франц Биберкопф выходит из берлинской тюрьмы Тегель после четырёхлетнего заключения за убийство своей подруги Иды. В первое время он испытывает животный страх перед окружающим миром, от которого он успел отвыкнуть; земля буквально уходит у него из-под ног. Через некоторое время, придя в себя, он решает стать честным человеком (   Читать дальше...   )Производство: Германия (ФРГ), Италия / Bavaria Film, Radiotelevisione Italiana (RAI), Westdeutscher Rundfunk (WDR)Жанр: драма, криминалРежиссер: Райнер Вернер ФассбиндерАктеры: Гюнтер Лампрехт, Клаус Хольм, Ханна Шигулла, Франц Бухризер, Бригитта Мира, Рогер Фриц, Готфрид Йон, Барбара Зукова, Гюнтер Кауфманн. Иван ДесниПеревод: Двуголосый профессиональный (СВ дубль, Союза работников дубляжа)Язык озвучки: русский, немецкийПродолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E09E57AFA351E767965DDF468CFD90AB40D0EBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432539   (163569) от 17.12.2020
+
+Сумеречная зона / The Twilight Zone (1963) HDRip [H.264] (сезон 4, серии 1-18 из 18) fiendover
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Зарубежная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы отправляетесь в другое измерение не только видений и звуков, но и разума. Это путешествие в волшебную страну, границы которой устанавливает только воображение. Каждый эпизод - это отдельная история, снятая в одном из жанров фантастики, мистики, триллера или ужасов.Производство: США / Cayuga Productions, CBS Television NetworkЖанр: ужасы, фантастика, фэнтези, триллер, драма, детективРежиссер: Джон Брам, Дуглас Хэйс, Базз КьюликАктеры: Род Серлинг, Роберт МакКорд, Джей Оверхолтс, Вон Тейлор, Дэвид Армстронг, Джеймс Терли, Джек Клагмен, Бёрджесс Мередит, Джон Андерсон, Дж. Пэт О’МэллиПеревод: Одноголосый любительский (В. Рутилов aka fiendover)Продолжительность: ~00:52:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C44863F5DE3F974FF9B36D2E70B581F2B135CA43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967930   (158172) от 22.12.2015
+
+Одинокий голубь / Lonesome Dove (1989) BDRip [H.264/720p] (серии 1-4 из 4)
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Зарубежная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это потрясающе снятая сага о старом Западе, история любви и приключений Аугустуса МакКреа и Вудроу Колла — героев грандиозного эпоса. Техасские бродяги становятся партнерами и друзьями, помогающими друг другу переносить лишения, опасности, тяготы…Производство: СШАЖанр: драма, приключения, вестернРежиссер: Саймон УинсерАктеры: Роберт Дювалл, Томми Ли Джонс, Дэнни Гловер, Дайан Лэйн, Роберт Урих, Фредерик Форрест, Д.Б. Суини, Рик Шродер, Анжелика Хьюстон, Крис Купер и др.Перевод: двухголосый, закадровый, профессиональныйЯзык субтитров: английскийПродолжительность: 01:34:36 + 01:30:16 + 01:34:01 + 01:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7759AF0E52DE70B671EFCECF405EE7D446431B40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 714096   (148919) от 26.12.2013
 
 Перри Мейсон / Perry Mason (1963-1964) SATRip (Сезон 7, 30 серий из 30) СВ-Дубль
@@ -6,7 +84,7 @@
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148919.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132798.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128339.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124754.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124315.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116785.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116155.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115455.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114418.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114094.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82782.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75735.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74454.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61779.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61675.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60735.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60734.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60613.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60316.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60305.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60210.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59145.jpg" />
 </div>
 
 
@@ -582,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57799.jpg" />
 </div>
 
 
@@ -593,85 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF0FB4AD10B2DE6B89B0D6693ED21FD8A698BC30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718754   (56592) от 14.05.2024
-
-Секрет Сахары / Il Segreto del Sahara (1987) WEBRip (сезон 1, серии 1-4 из 4) [МVO]
-
->>Классика сериалов и многосерийное кино до 90-х
->>Зарубежная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_56592.jpg" />
-</div>
-
-
-###  Подробнее
-
-1925 год, американский археолог находит древние манускрипты, доказывающие существование легендарной Говорящей Горы и ее сокровищ. Поиски забрасывают его в самые удаленные уголки Сахары, и только отчаянное мужество, любовь и верные друзья помогают ему преодолеть смертельно опасные препятствия и приподнять завесу тайны Сахары.
-Минисериал из 4-х серийПроизводство: Италия, Германия (ФРГ), Франция, Испания / Beta Film, Racing Pictures, Rai Fiction, RAI Rete 1 TVЖанр: фантастика, фэнтези, приключенияРежиссер: Альберто НегринАктеры: Майкл Йорк, Бен Кингсли, Джеймс Фарентино, Энди Макдауэлл, Дэвид Соул, Мигель Бозе, Диего Абатантуоно, Даниэль Ольбрыхский, Делия Боккардо, Ана ОбрегонПеревод: Многоголосый профессиональный (ОРТ)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:28:45 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A26E6AB4BC2333157857CCD42FE1279FC51996C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 627920   (50938) от 06.07.2024
-
-Квантовый скачок / Quantum Leap (1989-1993) DVDRip (сезон 1-5, серии 1-97 из 97) СТС
-
->>Классика сериалов и многосерийное кино до 90-х
->>Зарубежная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50938.jpg" />
-</div>
-
-
-###  Подробнее
-
-1995 год. Разработав теорию о том, что человек может путешествовать во времени в пределах продолжительности собственной жизни, доктор Сэм Беккет на базе в пустынях Нью-Мехико возглавил сверхсекретный проект, названный «Квантовый Скачок». Оказавшись перед необходимостью подтвердить свою теорию или потерять финансирование, доктор Беккет шагнул в квантовый ускоритель (   Читать дальше...   )Производство: США / Belisarius Productions, Universal TelevisionЖанр: фантастика, боевик, драма, детектив, приключенияРежиссер: Джеймс Уитмор мл., Джо Наполитано, Майкл ЦинбергАктеры: Скотт Бакула, Дин Стокуэлл, Дебора Прэтт, Деннис Уолфберг, В.К. Стрэттон, Кэролин Сеймур, Фран Беннетт, Брэд Силверман, Майкл Беллисарио, Джон Д’Акино и др.Перевод: Многоголосый профессиональный (СТС)Продолжительность: ~00:47:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CD4CE27D8D48F0729B09F8CDE1832F0A4ADEEC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773698   (30574) от 18.01.2025
-
-Твин Пикс / Twin Peaks (1990-2017) BDRip / WEBRip [H.264/1080p] (сезон 1-3, серии 1-48 из 48) LostFilm
-
->>След.
->>Зарубежная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30574.jpg" />
-</div>
-
-
-###  Подробнее
-
-История начинается с известия о находке обнажённого тела Лоры Палмер, «завёрнутого в полиэтилен» и выброшенного волнами на берег озера. В ходе расследования перед внимательными взглядами агента Купера, шерифа Трумана и его помощников проходят разные жители Твин Пикс. Постепенно зритель открывает для себя тёмную и страшную сторону жизни обитателей на первый взгляд (   Читать дальше...   )Производство: США / Lynch/Frost Productions, Propaganda Films, Spelling EntertainmentЖанр: триллер, драма, криминал, детектив, фантастикаРежиссер: Дэвид Линч, Лесли Линка Глаттер, Калеб ДешанельАктеры: Кайл МакЛоклен, Майкл Онткин, Шерил Ли, Лара Флинн Бойл, Шерилин Фенн, Рэй Уайз, Мигель Феррер, Дэвид Линч, Билли Зейн, Хизер Грэм и др.Перевод: Профессиональный многоголосый (LostFilm)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: ~00:46:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BEFAA8AAA7FDDFE9E6F2CB333C8D961EB8DFEBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

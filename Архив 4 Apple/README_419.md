@@ -1,3 +1,57 @@
+###  Публикация: 1070863   (364669) от 08.11.2016
+
+PaintCode 3.0.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364669.jpg" />
+</div>
+
+
+###  Подробнее
+
+PaintCode является отличным приложением для создания графических элементов, как в Photoshop . Но в этом случае эта программа генерирует не изображение, а Core Graphics код.
+Причины уникальности этого приложения заключаются в следующем:
+- Экономия времени разработки. Если бы Вы стали писать код для Core Graphics в ручную, то это заняло бы очень много времени, чем (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 ноября 2016Разработчик: PixelCut s.r.oПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF9D3B22E786DDAAAEA3D6508E06251D8FA98004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255493   (364110) от 18.10.2018
+
+Movavi Screen Recorder 5 v5.4.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем простую и функциональную программу для записи всего, что происходит на экране вашего Mac. Захватывайте и сохраняйте на жесткий диск видео и музыку из интернета, записывайте разговоры в Skype и игровой процесс, создавайте собственные видеоуроки.Программа крайне проста в освоении и не требует никаких специальных навыков. Установите настройки записи, снимите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.08.2018Разработчик: Movavi Software, Ltd.Поддерживаемая ОС: macOS 10.7 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:376649162907B7CCE7B7B4E3AA37389D9513A076
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255429   (364095) от 18.10.2018
 
 4K YouTube to MP3 3.3.10 [Multi/Ru]
@@ -6,7 +60,7 @@
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364095.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ SketchUp Pro 2017 (17.0) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363820.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ Principle 4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363626.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363450.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363443.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ AudioFinder 6.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363345.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ Cookie 6.1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363341.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ Stellaris v2.1.4.4 (24035) (2016) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363262.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363207.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ Pixave 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363202.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ WinX DVD Ripper 6.5.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363199.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ MediaHuman Youtube Downloader 3.9.9.47 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363194.jpg" />
 </div>
 
 
@@ -326,7 +380,7 @@ Smooze 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363166.jpg" />
 </div>
 
 
@@ -355,7 +409,7 @@ Fantastical 2.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363155.jpg" />
 </div>
 
 
@@ -384,7 +438,7 @@ Capture One Pro 11 v11.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363063.jpg" />
 </div>
 
 
@@ -411,7 +465,7 @@ Algoriddim djay Pro (Complete FX Pack) 2 v2.2.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363015.jpg" />
 </div>
 
 
@@ -437,7 +491,7 @@ OmniFocus Pro 3.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362895.jpg" />
 </div>
 
 
@@ -464,7 +518,7 @@ Adguard 2.5.1.904 nightly [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362860.jpg" />
 </div>
 
 
@@ -490,7 +544,7 @@ Scrutiny 7.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362831.jpg" />
 </div>
 
 
@@ -517,7 +571,7 @@ UninstallPKG 1.0.29 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362825.jpg" />
 </div>
 
 
@@ -545,7 +599,7 @@ Wondershare Filmora Х v10.0.0.61 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362733.jpg" />
 </div>
 
 
@@ -571,7 +625,7 @@ Adobe Dreamweaver CC 2018 v18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362685.jpg" />
 </div>
 
 
@@ -598,7 +652,7 @@ Adobe Audition CC 2018 v11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362446.jpg" />
 </div>
 
 
@@ -624,7 +678,7 @@ Red Giant Trapcode Suite 13.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362361.jpg" />
 </div>
 
 
@@ -635,62 +689,6 @@ Trapcode Suite состоит из 10 плагинов для After Effects, к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7320A74837A957C0BC0AC5B120C96D35C0451530
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951443   (362256) от 29.10.2015
-
-Wolfram Mathematica 10.3.0.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое система Mathematica?
-Почти любой рабочий процесс включает в себя вычисление результатов, и это именно то, что делает система Mathematica —от построения веб-сайта для торговли хедж-фондами или публикации технических учебников до разработки встроенных алгоритмов распознавания изображений или преподавания математического анализа.
-
-Система Mathematica известна (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 октября 2015Разработчик: Wolfram.Поддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский, Французский, Немецкий, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:279D71F6269A697AD7FA70708B23EC6C71B4233B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071194   (362030) от 09.11.2016
-
-Lingon X 4.2.4 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lingon X  - автоматический запуск приложений и сценариев
-Lingon позволяет визуально создавать файлы автозагрузки, которые используются для запуска приложений и скриптов автоматически при загрузке Mac OS X. Список всех программ выносится в таблицу, где его удобно редактировать. Тут же отображается статус каждой программы: чем она занимается, работает ли в данный момент (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 октября 2016Разработчик: Peter Borg Apps ABПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский, Немецкий  и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65CE7A119EE970AD8E9F154448652979CF5F9F39
 ```
 
 https://mybot314.ru/tekegram_catalog/

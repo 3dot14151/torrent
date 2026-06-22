@@ -1,3 +1,55 @@
+###  Публикация: 1814277   (5213) от 30.08.2025
+
+Ui Kits - UI8 - Lumine - Minimalistic Brand Guidelines [FIG]
+
+>>Материалы для мультимедиа и дизайна
+>>Web-дизайн и шаблоны сайтов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Независимо от того, являетесь ли вы дизайнерским агентством, фрилансером или владельцем бизнеса, Lumine поможет вам уверенно представить свой бренд. Произведите впечатление на клиентов, коллег и членов команды с помощью профессионально разработанного руководства по бренду, которое заложит основу для успеха.Формат: FIG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E0D23FF77C40DE028368EDBBEAAD3A43693E712
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816243   (4578) от 03.09.2025
+
+Ui Kits - UI8 - Dolphin VPN - VPN Mobile Mobile App UI Kits [FIG]
+
+>>Материалы для мультимедиа и дизайна
+>>Web-дизайн и шаблоны сайтов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dolphin VPN — это премиальный и высококачественный набор пользовательского интерфейса для мобильного VPN-приложения с более чем 40 высококачественными экранами, простой в использовании в Figma.Формат: FIG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A2269153DE02C3925E09B70FED89BC4B2FA9D9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809582   (4479) от 04.09.2025
 
 Ui Kits - UI8 - UI KIT | AI Art Generator App - bento & glassmorphism style [FIG]
@@ -6,7 +58,7 @@ Ui Kits - UI8 - UI KIT | AI Art Generator App - bento & glassmorphism style [FIG
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4479.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Ui Kits - UI8 - Akshan - Furniture E-Commerce UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4107.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Ui Kits - UI8 - NutriMart - Grocery Shopping App UI Kit [FIG, XD, SKETCH]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3130.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Ui Kits - UI8 - Lodgify - Hotel Booking Mobile App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2776.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Ui Kits - UI8 - FRQNCY STUDIO [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2444.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Ui Kits - UI8 - HotelQu - Booking Hotel Mobile App [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2320.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Ui Kits - UI8 - Farmiant - Farming Assistant App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1975.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ Ui Kits - UI8 - Travela - Travel & Booking Mobile App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1570.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1455.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ Ui Kits - UI8 - Oxtopus - Web3 Wallet Mobile App [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1422.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ Ui Kits - UI8 - Marz - Crypto Wallet App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1309.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ Ui Kits - UI8 - Virtual Brain | AI Chatbot App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_795.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ Ui Kits - UI8 - Lumen Loops [SVG, WEBM, MP4, FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_793.jpg" />
 </div>
 
 

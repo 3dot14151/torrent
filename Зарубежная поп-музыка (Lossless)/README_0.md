@@ -1,3 +1,119 @@
+###  Публикация: 1869358   (1068768) от 09.05.2026
+
+Streisand, Kristofferson - A Star Is Born (1976) [FLAC|Lossless|image + .cue] <Pop Rock, Stage & Screen>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068768.jpg" />
+</div>
+
+
+###  Подробнее
+
+1		Watch Closely Now 3:40
+2		Queen Bee 3:49
+3		Everything 3:41
+4		Lost Inside Of You 2:53(   Читать дальше...   )Жанр: Pop Rock, Stage & ScreenПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:400ADC27D463DD55493A7C4C0E4E3B71380182F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869349   (1068408) от 06.05.2026
+
+VA - Every Mother Counts 2012 (2012) [FLAC|Lossless|tracks + .cue] <Folk, World & Country, Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bono and The Edge / Original of the Species [0:04:02.72]
+02. Eddie Vedder / Skipping [0:03:45.66]
+03. Paul Simon and Edie Brickell / Pretty Day [0:02:18.12]
+04. Faith Hill / Wish for You [0:03:25.55](   Читать дальше...   )Жанр: Folk, World & Country, Pop, RockПродолжительность: 01:09:48.000 (184 690 800 samples)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BFD6FFB512E9FBC7B6FFD9F3EC0DCB117C57EE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869167   (1068197) от 06.05.2026
+
+After 7 - Reflections (1995) [FLAC|Lossless|tracks + .cue] <Funk / Soul, Contemporary R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 'Til You Do Me Right    [0:04:55.00]
+02. Cryin' for It    [0:05:01.00]
+03. Save It Up    [0:04:10.00]
+04. Damn Thing Called Love    [0:05:32.00](   Читать дальше...   )Жанр: Funk / Soul, Contemporary R&BПродолжительность: 00:56:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6A42A17E2D4CB6953E2A6060C7FE89E4C4842D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868860   (1067971) от 02.05.2026
+
+Carpenters - The Singles 1969-1973 (1973) Compilation, Reissue, 1995, A&M Records [FLAC|Lossless|tracks] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067971.jpg" />
+</div>
+
+
+###  Подробнее
+
+1		We've Only Just Begun 4:09
+2		Top Of The World 2:58
+3		Ticket To Ride 4:09
+4		Superstar 3:40(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F154D798B4915D74C5B7241BAA9D6EA902F5F0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1868089   (1067700) от 02.05.2026
 
 Carpenters - A Song For You (1972) [FLAC|Lossless|image + .cue] <Pop Rock>
@@ -6,7 +122,7 @@ Carpenters - A Song For You (1972) [FLAC|Lossless|image + .cue] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067700.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Cilla Black - You're My World - Her Greatest Hits (1995) Compilation [FLAC|Lossl
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067697.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Carpenters - Carpenters (1991) Compilation, A&M Records [FLAC|Lossless|image + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067695.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Shout-Out Pop (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067478.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Anne Murray - Croonin' (1993) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067281.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Sydney Youngblood - Sydney Youngblood (1990) [FLAC|Lossless|image + .cue] <Elect
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066945.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Carpenters - Lovelines (1989) Remastered [FLAC|Lossless|image + .cue] <Pop, Soft
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066942.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Sylvester - Mutual Attraction (1986) [FLAC|Lossless|image + .cue] <Electronic, F
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066940.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Frank Duval - Rarities Volume 4 (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066346.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Kenny Rogers - Kenny Rogers (1983) Reissue, 1986, RCA [FLAC|Lossless|image + .cu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066001.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Thomas Anders - ZEITLOS (2026) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065983.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Annie Lennox - Songs of Mass Destruction (2007) [FLAC|Lossless|tracks + .cue] <S
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065780.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ The Ring - Savage Lover (1981) [FLAC|Lossless|tracks] <Disco, Space Rock, Prog R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065683.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Juice Newton - Juice Newton's Greatest Hits (And More) (1984) Compilation, Reiss
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065606.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Susanna Hoffs - When You're A Boy (1991) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065420.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - 90s Huge Hits (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Other>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062619.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - 10s Huge Hits (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Other>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062147.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - 80s Huge Hits (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062084.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - Greatest Ever! Love (The Definitive Collection) (2006) 3 x CD, Compilation 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061877.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - Funk Classics The 70's (1995) [FLAC|Lossless|tracks + .cue] <Funk / Soul, R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061876.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Magic 90s (2019) 4 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop, Ro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061875.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - Greatest Ever! Nineties (The Definitive Collection) (2006) 3 x CD, Box Set 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061870.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - Greatest Ever! Nineties (The Definitive Collection) (2006) 3 x CD, Box Set 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1D9B2E2DCBDD813A0B7E1096B20C3542F9B3164
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859679   (1061500) от 17.03.2026
-
-VA - This Is Your Life (1991) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Londonbeat - This Is Your Life - (03:59)
- 02. Eurythmics - Don't Ask Me Why - (04:14)
- 03. Rick Astley - Cry For Help - (04:53)
- 04. Eros Ramazzotti - Musica È - (04:04)(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1024E9B0D40CA744926EECCC043C790087FFD6D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859686   (1061455) от 17.03.2026
-
-VA - Greatest Ever Decade 70s (2021) 4 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sister Sledge - Lost In Music (4:47)
-02. Chic - Le Freak (3:32)
-03. Sheila - Spacer (3:46)
-04. Stargard - Wear It Out (3:38)(   Читать дальше...   )Жанр: PopПродолжительность: 04:43:48.053 (750 937 152 samples)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E947C80093A854B049E6FEE11638533F5F358EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859655   (1061442) от 17.03.2026
-
-VA - The Classic 70s Collection (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock, Funk / Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dolly Parton - Jolene - (02:39)
- 02 - Tammy Wynette - Stand by Your Man - (02:40)
- 03 - Melanie - Ruby Tuesday - (04:34)
- 04 - Art Garfunkel - I Only Have Eyes for You - (03:34)(   Читать дальше...   )Жанр: Rock, Funk / Soul, PopПродолжительность: 03:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57ABBCAA6CD971BCD77E0AA2BA812567317F60B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859823   (1061437) от 24.03.2026
-
-VA - 00s Huge Hits (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B.o.B - Nothin’ on You (4:28)
-02. Coldplay - Yellow (4:26)
-03. Linkin Park - In the End (3:36)
-04. David Guetta - Memories (3:30)(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 05:09:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFC7B221BDA8F2DA0ECC7C1C762537633EEFE0CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

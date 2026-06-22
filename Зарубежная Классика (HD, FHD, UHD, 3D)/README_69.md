@@ -1,3 +1,55 @@
+###  Публикация: 500874   (258575) от 26.05.2012
+
+Глаза без лица / Les yeux sans visage (1960) [1080p] BDRemux
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неизвестные похищают и убивают дочь профессора Женессье. Полиция приглашает доктора на опознание. Убитый горем отец организует похороны Кристиан. На самом деле, девушка жива, а Женессье вот уже несколько месяцев подряд пытается восстановить ее лицо, изуродованное в автокатастрофе. Его помощница Луиза заманивает в поместье девушек, которым предстоит стать жертвами пластических операций безумного доктора…Жанр: Ужасы, триллер, драма, детективРежиссер: Жорж ФранжюАктеры: Пьер Брассер, Алида Валли, Джульетт Майниел, Эдит Скоб, Франсуа Герин, Александр Риньо, Беатрис Альтариба, Шарль Блаветт, Клод Брассер, Мишель ЭчеверриПеревод: Одноголосый закадровыйПродолжительность: 01:28:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCDA78C8B253C236950935CB5E014912BAA45BE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500432   (258367) от 25.05.2012
+
+Орфей / Orpheus / Orphee [The Criterion Collection] (1950) [720p] BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый поэт Орфей пресыщен жизнью и славой. Все меняет встреча с Принцессой Ада. Она и сама влюбляется в Орфея, а ее слуга Артебиз — в его жену Эвридику. Странный любовный четырехугольник обречен. Движимая запретной для нее любовью, Принцесса забирает Эвридику в царство Тьмы, а Орфей с Артебизом пускаются в погоню …Жанр: драма, мелодрамаРежиссер: Жан КоктоАктеры: Жан Маре, Франсуа Перье, Мария Казарес, Мари Деа, Анри Кремьё, Жюльетт Греко, Роже Блен, Эдуард Дермит, Рене Ворм, Рэймонд Форе, Пьер Бертен, Жак Варенн, Андре Карнеж, Клод Мориак, Филипп Бордье, Клод Борелли, Жан Кокто, Рене Козима, Жак Дониоль-Валькроз, Рене Лакур, Жюльен Мафр, Жан-Пьер Мельвиль, Жан-Пьер Моки, Анри Сан Жуан, Виктор ТабурноПеревод: Дублированный, Многоголосый закадровыйПродолжительность: 01:36:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 500404   (258106) от 24.05.2012
 
 Боккаччо 70 / Boccaccio '70 (1962) [1080p] BDRemux
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258106.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256995.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256659.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255467.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255379.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255259.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255075.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254686.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254665.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254356.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254349.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253280.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253263.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253030.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252968.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252943.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252939.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252932.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252593.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252498.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252247.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252172.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251885.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251860.jpg" />
 </div>
 
 
@@ -621,59 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DD24B59FF5977F65600077952228B026AC9256C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 305118   (251849) от 01.06.2023
-
-Профессионал / Le professionnel (1981) BDRip [H.264/720p]
-
->>След.
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Убить президента африканской республики. Такое задание получил секретный агент Жослен Бомон. Внезапно политика изменилась, и французское правительство сдает героя африканским властям. Сбежав с каторги, волк-одиночка возвращается на родину с одной целью: довести задание до конца. А чернокожий лидер как раз приезжает во Францию.Производство: ФранцияЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Жорж ЛотнерАктеры: Жан-Поль Бельмондо, Жан Дезайи, Робер Оссейн, Мишель Бон, Сирил Клер, Жан-Луи Ришар, Сидики Бакаба, Пьер Сентон, Мари-Кристин Декуар, Бернар-Пьер ДоннадьёПеревод: Дубляж, многоголосый, авторскийСубтитры: RussianПродолжительность: 01:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04DEB1ABC5F8DEFC1E2A0630B2704F78C542AF07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 417297   (251761) от 04.06.2023
-
-Человек дождя / Rain Man (1988) BDRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251761.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Чарли, грубоватого и эгоистичного молодого повесы, в наследство от отца остались лишь розовые кусты да «Бьюк» 49-го года. Внезапным «сюрпризом» для него стало открытие того, что львиная доля наследства оставлена отцом его больному аутизмом брату Раймонду.
-Задавшись целью отобрать свою «справедливую долю» семейного достояния, Чарли похищает старшего брата и держит (   Читать дальше...   )Производство: СШАЖанр: ДрамаРежиссер: Барри ЛевинсонАктеры: Дастин Хоффман, Том Круз, Валерия Голино, Джералд Р. Молен, Джек Мёрдок, Майкл Д. Робертс, Ральф Сеймур, Люсинда Дженни, Бонни Хант, Ким РобиллардПеревод: ДублированныйЯзык субтитров: РусскиеПродолжительность: 02:13:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BF67703CBE70E127EAA797CD8683F1A12153FD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

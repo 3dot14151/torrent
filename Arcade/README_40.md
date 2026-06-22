@@ -1,3 +1,55 @@
+###  Публикация: 1673698   (164025) от 02.11.2023
+
+Hamster on Rails (2023) [Ru/Multi] (1.0.44.0) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hamster on Rails – приключение с хомяком-строителем, специализирующимся на создании железных дорог. Предстоит путешествовать между мирами, исследуя их особенности и пользуясь полезностями, добывая ресурсы, минералы и кристаллы. Материалы помогут создавать безумные железные дороги в опасных частях территории, а также решать головоломки, на чём и сфокусирован игровой (   Читать дальше...   )Тип издания: LicenseРазработчик: Virtual Arts StudioЖанр: Гонки, Стратегия, ГоловоломкаЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:664307A4AB81DBA4DECE9B459D4118ACEEF45B9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302744   (163955) от 18.12.2019
+
+Dead or Alive 6 (2019) [Ru/Multi] (1.18/dlc) Repack =nemos= [Digital Deluxe Edition]
+
+>>След.
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dead or Alive 6 — это новейший зрелищный трёхмерный файтинг со стремительными и увлекательными боями. Эта игра разработана Koei Tecmo Games, обладает потрясающей графикой, позволяет зрелищно и весело биться на многоуровневых аренах. Это серия файтингов класса AAA, разрабатываемая студией Team NINJA, принадлежащей Koei Tecmo Games.Тип издания: RepackРазработчик: KOEI TECMO GAMESЖанр: Arcade (Fighting), ActionЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28663A5EC99C7FA903EB58B8E1118880A30D4899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392337   (163117) от 14.12.2021
 
 Wildfire (2020) [Ru/Multi] (1.04.06) License GOG
@@ -6,7 +58,7 @@ Wildfire (2020) [Ru/Multi] (1.04.06) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163117.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ The Smurfs 2 - The Prisoner of the Green Stone (2023) [Ru/Multi] (1.02.06/dlc) S
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162904.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Overcooked! 2 (2018) [Ru/Multi] (6.231.1/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161805.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Song of Nunu: A League of Legends Story (2023) [Ru/Multi] (0.0.31/dlc) License G
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160937.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Space Tail: Every Journey Leads Home (2022) [Multi] (1.0.2r9/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159149.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Project Lazarus (2023) [Ru/Multi] (7.1) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159118.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Lunistice (2022) [Multi] (1.05a) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156466.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Human: Fall Flat (2016) [Ru/Multi] (842523) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156304.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Sine Mora [En/Multi6] (Steam-Rip/1.0.0.1) 2012 | R.G. Игроманы
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156219.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Killer Instinct (2017) [Ru/Multi] (1.0/u3) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156208.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Street Fighter X Tekken [Ru/En/Multi11] (Steam-Rip/1.02/9 DLC) 2012 | R.G. GameW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155589.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Sundered (2017) [Ru/Multi] (911) Repack xatab [Eldritch Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155068.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154619.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Clid the Snail (2021) [Ru/Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154529.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ UnMetal (2021) [Ru/Multi] (1.0.11/dlc) License GOG [UnDeluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151947.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ UFO ROBOT GRENDIZER - The Feast of the Wolves (2023) [Ru/Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151893.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Street Fighter V 2017 (2016) [Ru/Multi] (2.0/dlc) Repack Other s [Deluxe Edition
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151042.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ SpongeBob SquarePants: Battle for Bikini Bottom - Rehydrated (2020) [Ru/Multi] (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150113.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ The Smurfs 2 - The Prisoner of the Green Stone (2023) [Ru/Multi] (1.03.1/dlc) Li
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149935.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ FlashBack 2 (2023) [Multi] (1.00) Scene FAiRLIGHT
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148400.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Grand Theft Auto Mission Pack: London 1969 & 1961 (1999) [Ru/Multi] (1.0) Lossle
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148086.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Grand Theft Auto (1997) [Ru/Multi] (1.0) Lossless Repack R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147991.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Grand Theft Auto 2 / GTA 2: Беспредел (1999) [Ru/Multi] (11.44) Lossles
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147874.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Death's Gambit (2018) [Multi] (1.2) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146369.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Death's Gambit — увлекательный 2D-платформер в жан�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7D8E7A81B18B7C8573B82C8C24FBB5880B02DD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155399   (146187) от 25.12.2018
-
-Sundered (2017) [Ru/Multi] (17-12-2018) License GOG [Eldritch Edition]
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sundered – ужасающая борьба за выживание и здравомыслие, нарисованная от руки эпопея от создателей Jotun. Это реиграбельный метроид, где тебе предстоит сражаться с древними зловещими силами либо подчиняться их воле. Ты играешь за Эша, странника, путешествующего по разрушенному миру, плененному предательскими, вечно меняющимися пещерами-ловушками, кишащими страшными (   Читать дальше...   )Тип издания: LicenseРазработчик: Thunder Lotus GamesЖанр: Экшн, Metroidvania, RoguelikeЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37AFA0448BFF19FC5EDCC212BA70639E768026CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338889   (145572) от 26.12.2019
-
-Tower Hunter: Erza's Trial (2019) [Ru/Multi] (2019.1.12) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как и в других играх жанров Rogue-like и Metroidvania, в Tower Hunter: Erza’s Trial игроки прокладывают себе путь через огромную башню со случайно генерируемыми помещениями. В башне множество видов окружения, и есть простор как для исследования, так и для преодоления препятствий различной сложности. Благодаря контракту, заключённому между нашей героиней Эрзой и демоном, (   Читать дальше...   )Тип издания: LicenseРазработчик: IceSitruunaЖанр: Экшн, Metroidvania, RoguelikeЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B30F9EB7BAF90CFC9CFE1630A59160600DB702BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,83 @@
+###  Публикация: 1441139   (1037946) от 20.01.2021
+
+Лялин дом (2020) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм Лялин дом, снятый по одноименному рассказу Людмилы Улицкой, повествует об истории, которая произошла в профессорской семье в семидесятые годы 20 века в Москве. Сложные взаимоотношения между мамой, дочкой и отцом, приводят к конфликту, в котором неожиданное появления молодого человека, разрешат его не в пользу старшего поколения. Может ли возникнуть глубокое (   Читать дальше...   )Производство: Россия / Gold MediumЖанр: Короткометражный, драма, экранизацияРежиссер: Оксана ДегтяреваАктеры: Екатерина Гусева, Арина Семёнова, Владимир Яворский, Сухраб Хайлобеков, Егор СазыкинСубтитры: ОтсутствуютПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3100CD9465EE7BD2A8A79D8F4362F154F1193342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441164   (1037944) от 20.01.2021
+
+Фоторобот Евы (2020) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм по рассказу Сергея Шаргунова.
+Молодая пара, отношения которой строились на взаимном доверии, переживает не лучшие времена. Странный женский голос начинает преследовать Дашу, героиню фильма. Чаще всего, дама на другом конце трубки интересуется ее мужем. SMS с именем Ева, появляются и на мобильном телефоне мужа…Производство: Россия / Gold MediumЖанр: Короткометражный, драмаРежиссер: Евгения ШевченкоАктеры: Дарья Жовнер, Роман Евдокимов, Даниил Воробьев, Анастасия Теплинская, Светлана ЛаккайСубтитры: ОтсутствуютПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FED3EA22AA35F1653362C9BC35C3A69847BF6EE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441165   (1037936) от 20.01.2021
+
+Фоторобот Евы (2020) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм по рассказу Сергея Шаргунова.
+Молодая пара, отношения которой строились на взаимном доверии, переживает не лучшие времена. Странный женский голос начинает преследовать Дашу, героиню фильма. Чаще всего, дама на другом конце трубки интересуется ее мужем. SMS с именем Ева, появляются и на мобильном телефоне мужа…Производство: Россия / Gold MediumЖанр: Короткометражный, драмаРежиссер: Евгения ШевченкоАктеры: Дарья Жовнер, Роман Евдокимов, Даниил Воробьев, Анастасия Теплинская, Светлана ЛаккайСубтитры: ОтсутствуютПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10BD805C3576CBD264636E98775BCB5B5E46ECC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441420   (1037715) от 21.01.2021
 
 Ищу козла (2020) WEBRip [H.264/1080p-LQ]
@@ -6,7 +86,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037715.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037681.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037668.jpg" />
 </div>
 
 
@@ -85,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037619.jpg" />
 </div>
 
 
@@ -111,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037569.jpg" />
 </div>
 
 
@@ -137,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037377.jpg" />
 </div>
 
 
@@ -163,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037370.jpg" />
 </div>
 
 
@@ -189,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037362.jpg" />
 </div>
 
 
@@ -216,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037121.jpg" />
 </div>
 
 
@@ -242,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037066.jpg" />
 </div>
 
 
@@ -268,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037022.jpg" />
 </div>
 
 
@@ -294,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036817.jpg" />
 </div>
 
 
@@ -320,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036809.jpg" />
 </div>
 
 
@@ -346,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036797.jpg" />
 </div>
 
 
@@ -373,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036759.jpg" />
 </div>
 
 
@@ -399,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036756.jpg" />
 </div>
 
 
@@ -425,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036550.jpg" />
 </div>
 
 
@@ -451,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036548.jpg" />
 </div>
 
 
@@ -477,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036536.jpg" />
 </div>
 
 
@@ -504,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036515.jpg" />
 </div>
 
 
@@ -530,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036373.jpg" />
 </div>
 
 
@@ -556,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036256.jpg" />
 </div>
 
 
@@ -582,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036210.jpg" />
 </div>
 
 
@@ -593,84 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8324226D78872F07E06C0C475B506F81EEBB2F99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443048   (1035917) от 27.01.2021
-
-Агасфер (2018) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035917.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о встрече молодого успешного парня и на первый взгляд обычного бродяги, который утверждает, что он ни кто иной, как Агасфер – легендарный персонаж, который по преданию обречен скитаться из века в век по земле до Второго пришествия Христа. Неожиданно бродяга оказывается довольно интересным собеседником, и парень решает найти слабое место в его на первый взгляд (   Читать дальше...   )Производство: Россия / ООО «Тритона»Жанр: ДрамаРежиссер: Алина ПоличукАктеры: Илья Полянский, Михаил Данилюк, Лариса Бурмистрова, Алина Поличук, Светлана АтамановаПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:14:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0D7C9BF4672B8A97221F8BDECE21CDD0AEDB117
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443379   (1035687) от 28.01.2021
-
-Ржев (2019) BDRip [H.264/720p-LQ] [GER Transfer]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035687.jpg" />
-</div>
-
-
-###  Подробнее
-
-1942 год. Ржевская битва. После боёв под селом Овсянниково от роты советских солдат осталась только треть. Бойцы пытаются продержаться до прихода подкрепления. Но из штаба поступает приказ удержать деревню любой ценой. Значит, отступать нельзя… Каждый из героев понимает, что выбраться живыми из этого переплёта почти невозможно. В этот момент в Овсянниково, едва не (   Читать дальше...   )Производство: Россия / 3xMedia, KinoallianceЖанр: Военный, Драма, ИсторияРежиссер: Игорь КопыловАктеры: Сергей Жарков, Иван Батарев, Олег Гаянов, Арсений Семёнов, Александр Горбатов, Александр Бухаров, Григорий Некрасов, Игорь Грабузов, Александр Аравушкин, Дан РозинСубтитры: ОтсутствуютПродолжительность: 01:57:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:034DFF86D25194C814A7C1A1A32908C624B6DD59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443316   (1035673) от 28.01.2021
-
-Молодое вино (2019) WEBRip [H.264/1080p-LQ] [PR]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивая и уверенная в себе Мила пытается найти жениха тихой и застенчивой Любе. Однажды вечером они едва уносят ноги от местной шпаны и оказываются в уютном домике местного парня Славы. Здесь же их находит любимец женщин Коля, с которым у Милы когда-то был роман. В итоге незаметная и неудачливая Люба уводит любимого человека у яркой и успешной Милы и уезжает с ним (   Читать дальше...   )Производство: Россия / ООО «ХитФильм продакшн» при поддержке Министерства культуры РФЖанр: ДрамаРежиссер: Петр ОлевскийАктеры: Катерина Шпица, Валерия Бурдужа, Нил Кропалов, Данила Рассомахин, Екатерина Волкова, Александр Яценко, Анастасия Стежко, Анна Любименко, Майя Чухланцева, Денис СвистунСубтитры: ОтсутствуютПродолжительность: 01:23:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8988EBED4958402805F3B0FD08DBED583D2FF632
 ```
 
 https://mybot314.ru/tekegram_catalog/

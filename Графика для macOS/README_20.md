@@ -1,3 +1,55 @@
+###  Публикация: 1457253   (236430) от 25.03.2021
+
+Photo Effects Pro 6.2 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Effects Pro предлагает большое количество творческих и красочных графических эффектов для мгновенного получения потрясающих результатов. Большое количество привлекательных «фишек», чтобы ваши фотографии выглядели потрясающе.Тип издания: macOS SoftwareРелиз состоялся: 23.03.2021Разработчик: CluBees TechПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987DF1E81124E8F52F1F3960088BE8891B5ECA6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457167   (236341) от 25.03.2021
+
+Image Enhance Pro 5.2 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Image Enhance Pro – это инструмент для создания HDR-изображений с расширенным диапазоном динамического освещения и деталей. Наш предварительный алгоритм будет как входной, что обеспечит удивительный HDR эффект, улучшение цвета и деталей композиции. Кроме того, с плагином HDR look, вы также можете использовать другие фильтры, чтобы получить желаемый результат.Тип издания: macOS SoftwareРелиз состоялся: 23.03.2021Разработчик: Clubees TechПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B525E9EDDAB3237EE159833CF33509B1C585FBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457448   (236274) от 26.03.2021
 
 EXIF App 1.3 [En]
@@ -6,7 +58,7 @@ EXIF App 1.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236274.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Bulk Photo Watermark 2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236115.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Chaotica 2.2.3 Beta [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235476.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ ApolloOne - Photo Video Viewer 3.0.2 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235417.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Labels and Databases 1.7.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235288.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Graphic Inspector 2 v.2.6.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234771.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Art Text 4 v.4.3.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234544.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ Memory Pictures 4.3.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_234059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234059.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ Nik Complete 5 Collection by DxO v.5.2.0 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_234027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234027.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ EazyDraw 10.12.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233880.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ Black Out 2.0.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233609.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ AssetsGen 4.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232640.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ HitPaw Photo Object Remover for Mac 1.1.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231533.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ BatchPhoto Pro for Mac 5.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231300.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ Photo Image Editor Pixelstyle 4.1.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231169.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ Redacted 1.2.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226153.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ ImageRanger Pro Edition 1.9.4.1874 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_225963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225963.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ Chaotica 2.0.36 fix [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225864.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ MiniCAD 4.4.5 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225759.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ Astute Graphics Plug-ins Bundle for Adobe Illustrator CC 1.0.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224839.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ Adobe DNG Converter 11.1.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224603.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ CODIJY Recoloring 4.2.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224038.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ Nik Complete 3 Collection by DxO v3.3.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223352.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ Red Giant Trapcode Suite 16.0.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223100.jpg" />
 </div>
 
 
@@ -626,60 +678,6 @@ Trapcode Suite состоит из 10 плагинов для After Effects, к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1CB6397701A0298DB67FBA2BD066647B8F7A6AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514051   (221419) от 01.12.2021
-
-Photo Image Editor Pixelstyle 3.7.0 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221419.jpg" />
-</div>
-
-
-###  Подробнее
-
-PixelStyle Photo Editor легко редактирует фотографии и изображения и создает оригинальные уникальные произведения искусства. В нем есть десятки высококачественных фильтров и полезные функции редактирования, аналогичные программному обеспечению PS.
-Благодаря передовому механизму обработки фотографий PixelStyle Photo Editor быстро обрабатывает высококачественные фотографии (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.11.2021Разработчик: © 2021 XiuXia YangПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Упрощенный китайский, Традиционный китайский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:697ECB8EAC6861949E490CCC8EBCF246205BA728
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651735   (221296) от 07.08.2023
-
-Nevercenter CameraBag Photo 2023.3 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221296.jpg" />
-</div>
-
-
-###  Подробнее
-
-CameraBag позволяет мгновенно применить одну из сотен красивых предустановок к вашим фотографиям, а затем погрузиться глубже с ультра-интуитивными профессиональными настройками.
-Благодаря CameraBag с предустановками, специально разработанными для портретов, различными пейзажными сценариями, точной эмуляцией аналогового кинопленки из прошлого, популярными современными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.07.2023Разработчик: © 2023 Nevercenter Ltd. Co.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8DCCFB04518B0F41D89DC0C091F4D192D18EE0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

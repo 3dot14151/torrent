@@ -1,3 +1,29 @@
+###  Публикация: 224241   (971696) от 15.01.2016
+
+NG: Запреты. Вуду / Taboo. Voodoo (2002) SATRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему вуду запрещено? Возможно, потому, что оно включает такие жуткие обряды, как одержимость и черная магия. Проследите, как вуду обрело разнообразие и стало табу даже у народов, практикующих его.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 440517   (970602) от 22.01.2012
 
 NG: Апокалипсис: Вторая мировая война: Развязывание войны / National Geographic: Apocalypse. World War II. The outbreak of war (2009 (эфир от 21.01.2012)) IPTVRip
@@ -6,7 +32,7 @@ NG: Апокалипсис: Вторая мировая война: Развяз
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970602.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ NG: Запреты. Опознавательные знаки / Taboo. Marks of 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970584.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ NG: Табу: Зарождение эротического кино / Taboo. Th
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970288.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ National Geographic: Расследования авиакатастроф. См
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969600.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ NG: Расследования авиакатастроф: Посадка на �
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969430.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ NGW: Настоящая чёрная пантера / The Real Black Panther (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965961.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ NGW. Дикая природа Португалии / Wild Portugal (2019) HDTV 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952119.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ NG. Дикие места Таиланда / Thailand's Wild Side (2019) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952103.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946651.jpg" />
 </div>
 
 
@@ -232,6 +258,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 763352   (942475) от 09.01.2017
+
+NG. Игры разума / Brain Games (2014) SATRip [сезон 3, серии 1-11 из 11]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_942475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа Игры разума приглашает вас в путешествие в мир интерактивных игр и тестов, которые помогут вам понять, как устроен ваш мозг. По-настоящему умопомрачительные эксперименты протестируют то, как ваш мозг воспринимает окружающий мир. Исследуя внимание, страх, убеждение и принятие решений, Игры разума заставляет вас задуматься о собственном мозге. Ведь именно (   Читать дальше...   )Телекомпания: National Geographic ChannelЖанр: ДокументальныйРежиссер: Трей Нельсон, Джереми Кроуэлл, Майкл НигроПеревод: Одноголосый закадровый, профессиональныйПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:471CA5DBF2FB9C76C45689264645F164DE0C1951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364586   (936203) от 03.03.2020
 
 NGW. Акулы-каннибалы / Cannibal Sharks (2019) HDTVRip [H.264/1080p-LQ]
@@ -240,7 +292,7 @@ NGW. Акулы-каннибалы / Cannibal Sharks (2019) HDTVRip [H.264/1080p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936203.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ NGW. Гигантские змеи. Удавы / Monster Constrictors (2019) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936193.jpg" />
 </div>
 
 
@@ -284,6 +336,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 285052   (935956) от 20.01.2011
+
+NG: Тайное оружие Гитлера / Hitler's (Nazi) Secret Weapon (2010) HDTVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_935956.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фашисткой Германии были созданы одни из самых разрушительных видов оружия на земле. Огромные пушки, высокотехнологичные ракеты и передовые реактивные истребители. Fritz X - прообраз современной "умной бомбы", была совершенно секретной бомбой Адольфа Гитлера. Завеса тайны скрывает один из последних секретов Второй мировой войны. Могла ли бомба нацистов изменить ее исход? В этом фильме немецкие и американские авиационные эксперты воскресят новаторское оружие Третьего рейха. Они проведут смелый эксперимент в глубине калифорнийской пустыни - сбросят две модели высокоточной бомбы нацистов...Жанр: ДокументальныйПеревод: Профессиональный (полное дублирование) + Профессиональное (одноголосое)Формат: AVIПродолжительность: 00:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:822006CC7EEC7BEDEDBE03E793BAB2E33FCECB74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095126   (926037) от 20.01.2017
 
 Королевы гадюк / Viper Queens (2016) SATRip
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926037.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ NG. Cуперпрайд (Львиные страсти) / Superpride (2007) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920928.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ NG: Тайные жизни Иисуса / Secret Lives of Jesus (2006) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917052.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914054.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ NG: Подъём Коста Конкордия / The Raising Of The Costa Conkor
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911629.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ NG. Расследование на месте катастрофы / Crash Scen
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911350.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ NG: Осушить океан. Бермудский треугольник / Dra
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904602.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903224.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902981.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899663.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898746.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ N.G. Дикие животные 24 часа / Wild 24 (2015) HDTVRip [H.264/720
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896013.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ N.G. Дикие животные 24 часа / Wild 24 (2015) HDTVRip [H.264/720
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:899E4EEF8E265833F6C3ED83DD43C0223FA9CE55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493841   (893394) от 04.09.2021
-
-NG. 9/11: Один день из жизни Америки / 9/11: One Day in America (2021) HDTV [H.264/1080i] (серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал рассказывает подробную историю 11 сентября глазами очевидцев, героев и выживших. Созданный в сотрудничестве с Национальным мемориалом и музеем 11 сентября в честь 20-й годовщины событий, этот новый масштабный сериал повествует о трагическом дне в мельчайших подробностях - от удара первого самолета в северную башню до спасения последних выживших из-под обломков.Производство: США, 72 Films, National September 11 Memorial & Museum, National GeographicЖанр: Документальный, история, терроризм, катастрофаРежиссер: Даниэль БогадоПеревод: Одноголосый профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 6x ~00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3550B8007BC87CE7F2C95939D662AF78B7905685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370911   (893278) от 29.03.2020
-
-NG. Звездное выживание с Беаром Гриллсом / Running Wild Bear Grylls (2019) HDTVRip [H.264/1080p] (сезон 5, серии 10 из 10)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специалист по выживанию Беар Гриллс возвращается в дикую природу в новом сезоне своего приключенческого сериала вместе с популярными голливудскими знаменитостями, от супергероев Марвел, до отмеченных различными премиями звезд шоу-бизнеса. Раз в неделю каждый новый гость Беара отправляется вместе с ним в путешествие по самым экстремальным природным ландшафтам в мире. (   Читать дальше...   )Производство: США, Великобритания, Bear Grylls Ventures, Electus, National Geographic ChannelЖанр: Документальный, реалити-шоу, выживание, путешествия, экстримРежиссер: Беар Гриллс, Дилберт ШупманПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 10 x ~00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB078B9D5BF34A9C91BB058F1666E8B585438254
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102016   (892787) от 08.02.2017
-
-N.G. Момент смерти / Moment of death (2008) WEB-DLRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смерть. Она восхищает. Она пугает. И те, кто с нею сталкивался, и кому удалось ее избежать на время, смотрят на мир уже совсем другими глазами. Что с нами происходит, когда мы умираем? Что поджидает человека в этом коридоре пути между жизнью и - смертью? И действительно ли мы умираем, когда наше сердце останавливается навсегда?Телекомпания: США, National Geographic ExplorerЖанр: Документальный, научно-популярныйРежиссер: Марк МаннуччиПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC0A4D15186CEDD9F5CD619588C59798157A5FA9
 ```
 
 https://mybot314.ru/tekegram_catalog/

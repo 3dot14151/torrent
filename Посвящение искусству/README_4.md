@@ -1,3 +1,82 @@
+###  Публикация: 1462387   (1021156) от 14.04.2021
+
+Феномен Бумажного дома / La casa de papel: El fenomeno (2020) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм о том, почему и как сериал Бумажный дом завоевал огромную популярность во всем мире, а также о звездах проекта, исполнивших культовые роли в одном из самых популярных фильмов про ограбления.Производство: Испания / Vancouver MediaЖанр: ДокументальныйРежиссер: Luis Alfaro Palacios, Pablo LejarretaПеревод: Многоголосый профессиональный (HDRezka Studio)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6006BD567D81E308F00B1F6514052B28FF1A094A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029022   (1021116) от 14.04.2021
+
+По волне моей памяти: ПЕСНЯРЫ Леонида Борткевича (части 1-2 из 2, полная версия) (2013) WEB-DLRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021116.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Русское вторжение на западный фронт», — именно так в середине семидесятых годов двадцатого века назвала выступления ансамбля «Песняры» в США американская пресса.
+И действительно, в 70-е «Песняры», пожалуй, были единственным рок-коллективом из СССР, который признали на Западе. За их профессионализм, мелодизм и особую эстетику. Визитной карточкой легендарного музыкального (   Читать дальше...   )Телекомпания: «ЦТ», ВремяЖанр: Телепередача, ТВ-ШоуПродолжительность: 01:33:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA57B30C3623FF52024077DB425A1035B43B59C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462748   (1020651) от 17.04.2021
+
+Наше кино. Чужие берега (2017) DVB (серии 1-4 из 4)
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цикл документальных фильмов об отечественном и зарубежном кинематографе. Российское кино появилось на свет и развивалось в соперничестве с крупнейшими на тот момент европейскими кинематографиями... Каждый фильм посвящен отдельной вехе развития отечественного кинематографа XX столетия. Как происходило его взаимодействие, как складывались отношения, порой очень непростые, (   Читать дальше...   )Телекомпания: Россия / ТВ КультураЖанр: Документальный, Искусство, ИсторияРежиссер: Георгий СушкоСубтитры: русские, телетекст (888)Продолжительность: ~00:40:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D845333677447FA0C718B7917684EDFB5C3F1B90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463184   (1020620) от 17.04.2021
 
 Стивен Кинг: Повелитель страха / Stephen King: Le mal necessaire (2020) DVB [H.264/1080i-LQ] (MVO)
@@ -6,7 +85,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020620.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020208.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019467.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019430.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019316.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018944.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018899.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017804.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017255.jpg" />
 </div>
 
 
@@ -240,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017231.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016896.jpg" />
 </div>
 
 
@@ -292,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016274.jpg" />
 </div>
 
 
@@ -318,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014648.jpg" />
 </div>
 
 
@@ -344,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014264.jpg" />
 </div>
 
 
@@ -370,7 +449,7 @@ Slash: Raised On The Sunset Strip (2014) BDRip [H.264/1080p] [EN / RU, EN Sub]
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014188.jpg" />
 </div>
 
 
@@ -396,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014130.jpg" />
 </div>
 
 
@@ -422,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014087.jpg" />
 </div>
 
 
@@ -448,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014001.jpg" />
 </div>
 
 
@@ -474,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013699.jpg" />
 </div>
 
 
@@ -500,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013525.jpg" />
 </div>
 
 
@@ -526,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013228.jpg" />
 </div>
 
 
@@ -552,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013053.jpg" />
 </div>
 
 
@@ -578,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012506.jpg" />
 </div>
 
 
@@ -591,86 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3A8CFD4DB6907CA58ADC8F444AC7CCFA1BC95B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474950   (1012496) от 05.06.2021
-
-Друзья: Воссоединение / Friends Reunion Special (2021) WEBRip [H.264/720p-LQ] [MVO]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исполнители главных ролей сериала «Друзья» воссоединяются и посещают места съёмок легендарного шоу — квартиру Моники, кофейню Central Perk, знаменитый фонтан — а также встречаются с актёрами, исполнившими гостевые роли, и рассказывают о забавных случаях со съёмок.Телекомпания: США, Bright/Kauffman/Crane Productions, HBO Max, Warner Bros. TelevisionЖанр: Документальный, КомедияПеревод: Многоголосый профессиональный (Novamedia, LostFilm)Субтитры: Русские (Forced, Full), английские (Full)Продолжительность: 01:43:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF5A87BF209C25D3DD44C3E5E447DF2711631C95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475491   (1012290) от 07.06.2021
-
-Звездные судьбы (2013) DVB (серии 1-25 из ?) (Обновляемая)
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Психологи считают, что любая семья переживает несколько кризисных периодов: год, три года, семь лет, пятнадцать лет. Семья может распасться, если супруги не сумеют сделать все для ее спасения. Все то же самое происходит в жизни звезд: браки, семейные кризисы, разводы, только с поправкой на повышенное внимание со стороны зрителей, поклонников и журналистов. О том, (   Читать дальше...   )Телекомпания: Россия / «Москва. Доверие»Жанр: Документальный, Искусство, БиографияСубтитры: отсутствуютПродолжительность: ~00:44:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5004BB1D732821572C94316469BCED44ECB4D482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475590   (1012244) от 07.06.2021
-
-Владимир Высоцкий - Это я не вернулся из боя... (1974/2009) SATRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012244.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основу документального фильма легла уникальная кинохроника, которая еще никогда не демонстрировалась на отечественном телевидении. Кадры, снятые 35 лет назад в Югославии, только в 2008 году были найдены в зарубежных архивах.
-
-Пленка, запечатлевшая работу над фильмом "Единственная дорога", несмотря на все ужасы сербско-хорватской войны, ничуть не пострадала. (   Читать дальше...   )Телекомпания: ТВ Югославии / ТО "Ракурс"Жанр: Документальный, биография, история, культура, искусство, авторская песняРежиссер: Васелин Люмович, Александр КовановскийПродолжительность: 00:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:345819C8EE9537972A223FB7D98E4D057F7C3B03
 ```
 
 https://mybot314.ru/tekegram_catalog/

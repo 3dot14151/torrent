@@ -1,3 +1,107 @@
+###  Публикация: 1356582   (977546) от 31.01.2020
+
+Halloween Chronicles 2: Evil Behind a Mask / Хроники Хэллоуина 2: Проклятие масок (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение мистической серии от Domini Games. В канун Хеллоуина дядюшка Освальд пригласил вас в свой магазинчик «Истинный ужас». Разумеется, вы и подумать не могли, что ужасы там окажутся вполне реальными! Одна из трёх новых масок, приобретённых дядей, превратила вашего отца в страшное существо... Сможете ли вы остановить монстров до того, как они вернут своего (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFD4F96BA1DBF8510922D01168E8074249B4B2CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356878   (976559) от 01.02.2020
+
+Magic Gate. Faces of Darkness / Волшебные врата. Лики тьмы (2015) [Ru] (1.0) Unofficial
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой игры вместе со своей невестой поселяется в своем новом доме. При распаковке вещей его невеста натыкается на волшебное зеркало, которое переносит ее в другой мир. Без колебания герой отправляется за ней и попадает в волшебный мир Элириум, где он видит, что его невесту похитили темные призрачные духи. Отправляйтесь в волшебный мир, найдите новых друзей (   Читать дальше...   )Тип издания: UnofficialРазработчик: Pivot GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40CD4256727F2311CF071DEFE262D0422D3651DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975012   (974265) от 13.01.2016
+
+Labyrinths of the World 2: Forbidden Muse / Лабиринты Мира 2: Запретная Муза (2015) [Ru] Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974265.jpg" />
+</div>
+
+
+###  Подробнее
+
+С тех пор как пропала Каллиопа - покровительница города талантливых людей, - его жители лишились своих способностей: художники разучились рисовать, циркачи жонглировать, а скульпторы забыли, как из бесформенной массы создавать прекрасные образы. Детективное агентство решило поручить вам расследование этого дела и поиски ответов на многочисленные вопросы.Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:159B9DDF6750D394796BBF1E20E75ABC86F25F88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357385   (974221) от 03.02.2020
+
+The Unseen Fears 5: Ominous Talent / Невидимые страхи 5: Зловещий талант (2020) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение мистической игры The Unseen Fears. Ваш друг Карлос, искусствовед, попросил вас посетить Италию, чтобы помочь расследовать исчезновение коллеги. Все подсказки ведут в местную галерею, где вы быстро обнаруживаете, что это не первое исчезновение. И когда все встанет на свои места, вы обнаружите сверхъестественную паутину лжи, ревности и предательства. Вам (   Читать дальше...   )Тип издания: UnofficialРазработчик: GrandMA StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3611B69C2E4EC025BB558EB2B2095037C62CAC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357397   (974200) от 03.02.2020
 
 Living Legends 8: The Crystal Tear / Живые легенды 8. Хрустальная слезинка (2020) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -6,7 +110,7 @@ Living Legends 8: The Crystal Tear / Живые легенды 8. Хрустал
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974200.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ The Treasures of Montezuma 5 / Сокровища Монтесумы 5 (2016) [R
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974087.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ The Secret Order 8: Return to the Buried Kingdom / Тайный орден 8: В
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972992.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Labyrinths of the World 3: Changing the Past (2016) [En] Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971933.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Phantasmat 5: Behind the Mask / Фантазмат 5: За маской (2015) [
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971743.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Haunted Legends 6: The Dark Wishes / Ожившие легенды. Темные
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971688.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Witches' Legacy 9: The City That Isn't There / Наследие ведьм 9: Г
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970469.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Detectives United 3: Timeless Voyage (2020) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969642.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Immortal Love 7: Stone Beauty (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961845.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Phenomenon. City of Cyan / Феномен. Лазурный город (2012) [R
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959294.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Bonfire Stories 3: Manifest Horror (2020) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959258.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Immortal Love 7: Stone Beauty / Бессмертная любовь 7: Каме�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959256.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Enchanted Kingdom 6: Arcadian Backwoods / Зачарованное короле�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956858.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Immortal Love 7: Stone Beauty / Бессмертная любовь 7: Нетл�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956855.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ The Beast of Lycan Isle / Зверь Острова Оборотней (2013) [R
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954220.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ Haunted Legends 8: The Iron Mask / Ожившие легенды 8: Железн
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951643.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ Cursed (2016) [Ru/Multi] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951604.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ Royal Trouble 2: Honeymoon Havoc / Королевские неприятност
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946456.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ Dark Romance 11: The Ethereal Gardens / Роман тьмы 11: Небесные
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943640.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ Lost Lands 7: Redemption (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942209.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ Secrets of the Dark 3: Mystery of the Ancestral Estate / Темные тайны
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940998.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ Atlantis: Mysteries of Ancient Inventors / Атлантида. В поисках
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940370.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ Atlantis: Mysteries of Ancient Inventors / Атлантида. В поисках
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C35D7C04A4CADC6D917F613245F34DFA076A918E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092349   (939881) от 11.01.2017
-
-Yuletide Legends: The Brothers Claus / Святочные истории: Братья Клаус (2016) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотелось ли вам когда-либо побывать эльфом - помощником Санты? Если да, то у вас есть такая возможность! Помогите Санте подготовиться к самой важной ночи в году. Но если бы все было так просто. Темные силы захватили Северный полюс и праздник в опасности! Удастся ли вам победить темные силы и подарить людям веселый Новый год и Рождество?Тип издания: UnofficialРазработчик: Daily MagicЖанр: Hidden ObjectЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B35FAD3CFC8922FCB6F46EB48ECEED0C131913A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092223   (939870) от 11.01.2017
-
-The Dreamatorium of Dr. Magnus 2 (2015) [Ru/Multi] (1.0) License PROPHET
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в неизвестное! Вас ждёт встреча с давним знакомцем - доктором Макарио Магнусом, учёным и изобретателем. В то время, как он работал на сверхсекретном проекте, его подруга Лара была похищена, а затем и его самого утащил призрак. Что же за призрак, который похитил их? И как таинственный Дрематориум, то ли робот, то ли механизм подключен к яростному призраку?Тип издания: LicenseРазработчик: Two DesperadosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:613F37FBF4C99E049A7679E578D5065B1C83755F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092068   (939861) от 11.01.2017
-
-Crossroad Mysteries: The Broken Deal / Тайны Перекрестка: Сорванная Сделка (2016) [Ru] (1.0) Unofficial
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все, что Анна помнит о своем детстве, - это ее жизнь в приюте. Но что было до того, как она туда попала? И что означают эти странные символы на ее руках, похожие на стигматы? Решайте головоломные задачки, проходите увлекательные мини-игры, отыскивайте предметы по списку и помогите отчаявшейся девушке узнать тайну своего прошлого!Тип издания: UnofficialРазработчик: N-Tri StudioЖанр: Hidden ObjectЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0663AB71994522A4C368446298DEED14A0536473
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092058   (939858) от 11.01.2017
-
-Spirits of Mystery 6: Family Lies / Тайны духов 6: Семейная ложь (2016) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двадцать пять лет назад в королевской семье родилась долгожданная дочь. На празднике неожиданно для всех появился темный маг с угрозами, и с тех самых пор родители девочки не знали покоя, опасаясь за ее жизнь... Решайте головоломки, ищите предметы по списку, проходите мини-игры и защитите прекрасную принцессу от темных сил!Тип издания: UnofficialРазработчик: ERS Game StudiosЖанр: Hidden ObjectЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FB3C9FCB913CA63E5A5F997CE93D0118C3B4297
 ```
 
 https://mybot314.ru/tekegram_catalog/

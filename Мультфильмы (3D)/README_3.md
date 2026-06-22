@@ -1,3 +1,107 @@
+###  Публикация: 992016   (900578) от 02.03.2016
+
+Снупи и мелочь пузатая в кино / The Peanuts Movie (2015) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чарли Браун, Снупи, Люси, Линус и другие полюбившиеся персонажи комиксов «Мелочь пузатая» впервые появятся на большом экране в полнометражном анимационном фильме, снятом с использованием последних достижений 3D-анимации. Снупи — самый симпатичный пес в мире — к тому же, классный пилот — отправляется в невероятные воздушные приключения в погоне за главным злодеем (   Читать дальше...   )Производство: США / 20th Century Fox Animation, Blue Sky Studios, Feigco EntertainmentЖанр: Мультфильм, Комедия, Приключения, СемейныйРежиссер: Стив МартиноАктеры: Тромбоун Шорти, Ребекка Блум, Анастасия Бредихина, Франческа Капальди, Кристин Ченоуэт, Александр Гарфин, Ной Джонстон, Билл Мелендес, Хэдли Белль Миллер, Мика РевеллиПеревод: Дублированный (iTunes)Продолжительность: 01:28:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CD716B3E03B74417767E04B3575F4BDB41B4060
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 761030   (899387) от 26.02.2014
+
+Турбо / Turbo (2013) BDRip [1080p] [hand made 60fps] [Горизонтальная анаморфная стереопара 3D]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ничто так не раздражает темпераментную, мечтающую о скорости улитку с говорящим именем Турбо, как неспешная жизнь, медленные разговоры, заторможенные соседи. Пусть наш герой выглядит большим чудаком в этом вялом, неторопливом мире, пусть он идёт вопреки закону природы о «рождённом ползать», но если в сердце горит «пламенный мотор», а душа верит в чудо, оно просто (   Читать дальше...   )Производство: СШАЖанр: Компьютерная анимация, ПриключенияРежиссер: Дэвид СоренПерсонажи: Райан Рейнольдс, Пол Джаматти, Майкл Пенья, Снуп Догг, Майя Рудольф, Мишель Родригес, Сэмюэл Л. Джексон, Луис Гусман, Билл Хейдер, Бен ШварцПеревод: ДублированныйПродолжительность: 01:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F71DC6F3970F46341EABBE477850CD8D72FA1B09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 294305   (899190) от 11.02.2011
+
+Гадкий Я / Despicable Me (2010) [1080p] Blu-ray 3D
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гадкий снаружи, но добрый внутри Грю намерен, тем не менее, закрепить за собой статус главного архизлодея в мире, для чего он решает выкрасть Луну при помощи созданной им армии миньонов. Дело осложняют конкуренты, вставляющие высокотехнические палки в колеса, и семейные обстоятельства в виде трех сироток, о которых Грю вынужден заботиться...Жанр: Комедия, семейный, мультфильмРежиссер: Пьер Соффин, Крис РеноАктеры: Стив Карелл, Джейсон Сигел, Расселл Брэнд, Джули Эндрюс, Уилл Арнетт, Кристен Уиг, Миранда Косгров, Дэна Гайер, Элси Фишер, Пьер КоффенПеревод: ДубляжСубтитры: English, Chinese, Danish, Finnish, Norwegian, Portuguese,Продолжительность: 01:34:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 637585   (896072) от 02.04.2013
+
+Побег с планеты Земля / Escape from Planet Earth (2013) BDRip [1080p] [Вертикальная анаморфная стереопара 3D]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896072.jpg" />
+</div>
+
+
+###  Подробнее
+
+На планете Бааб, в самом центре Вселенной, два брата делают всё возможное, чтобы защитить свою галактику. Они — полные противоположности. Если девиз Гарри — «сначала подумай, потом сделай», то отважный Скорч живет по закону «сила есть — ума не надо», что не мешает им слаженно работать. Но однажды они получают сигнал S.O.S. с опасной планеты…под названием Земля. Скорч, (   Читать дальше...   )Жанр: Мультфильм, Фантастика, Комедия, Приключения, СемейныйРежиссер: Кэллан БрукнерПерсонажи: Брендан Фрейзер,  Роб Кордри,  Рики Джервэйс,  Джонатан Морган Хейт,  Джессика Альба,  София Вергара,  Пол Шеер,  Джейсон Симпсон,  Сара Джессика Паркер,  Даг АбрахамсПеревод: ДублированныйПродолжительность: 01:29:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E89CE9A6FAA6394283CAD9B8041F4EE537B8487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 867415   (895918) от 12.02.2015
 
 Семейка монстров / The Boxtrolls (2014) BDRemux [1080p] 3D [3D/2D] [Re Encoding BD50 -> BD25]
@@ -6,7 +110,7 @@
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895918.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889993.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888327.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885873.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882422.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882164.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878677.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872618.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870794.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870778.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870700.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869124.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867789.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867053.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866273.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866122.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865943.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865714.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865252.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864691.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864606.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864304.jpg" />
 </div>
 
 
@@ -566,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3005E3F71F4C9304C91C894C55E8C90E23D261D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 645678   (863499) от 19.04.2013
-
-Двигай время! / Los ilusionautas (2012) BDRip [1080p] [Вертикальная анаморфная стереопара 3D]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Невероятные события потрясают Францию. Все герои знаменитых романов Жюля Верна ожили и, сами того не ведая, несут хаос и разрушения. А всё потому, что новый президент Франции и министр культуры задумали внести в романы великого писателя правки и перепутали там всё. Спасти ситуацию может лишь команда из 4-х одарённых детей, которые отправлены в прошлое, чтобы вернуть (   Читать дальше...   )Жанр: Мультфильм, Фэнтези, Приключения, СемейныйРежиссер: Эдуардо ШульдтПерсонажи: Натан Есвелл, Чера Бэйли, Кэтлин Барр, Лиллиен Карлсон, Гарри Чок, Йен Джеймс Корлетт, Майкл Донован, Фил Хеес, Роджер КеллиПеревод: ДублированныйПродолжительность: 01:21:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:780BCB8E5E19F20E76232B605D40746E6F114C9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 767625   (863263) от 18.03.2014
-
-Холодное сердце / Frozen (2013) BDRip [1080p] 3D [Вертикальная анаморфная стереопара] [Line]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда древнее предсказание сбывается и королевство погружается в объятия вечной зимы, трое бесстрашных героев — принцесса Анна, отважный Кристофф и его верный олень Свен — отправляются в горы, чтобы найти сестру Анны, Эльзу, которая может снять со страны леденящее заклятие. По пути их ждет множество увлекательных сюрпризов и захватывающих приключений: встреча с мистическими (   Читать дальше...   )Жанр: Мультфильм, мюзикл, фэнтези, комедия, мелодрама, приключения, семейныйРежиссер: Крис Бак, Дженнифер ЛиПерсонажи: Кристен Белл, Идина Мензел, Джонатан Грофф, Джош Гад, Сантино Фонтана, Алан Тьюдик, Киаран Хайндс, Крис Уильямс, Стивен Дж. АндерсонПеревод: ДублированныйПродолжительность: 01:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF7641E9030C345F492C4B940D08A43B499F8E01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 874429   (862601) от 03.03.2015
-
-Пингвины Мадагаскара / Penguins of Madagascar (2014) BDRemux [1080p] 3D [3D/2D] [Re Encoding BD50 -> BD25]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четвёрка пингвинов-шпионов — Шкипер, Ковальски, Рико и Прапор — объединяется с командой «Северный ветер», помогающей беззащитным животным. Им предстоит остановить злобного осьминога, доктора Октавиуса Брайна, желающего уничтожить этот мир…Производство: США, DreamWorks Animation, Pacific Data Images (PDI)Жанр: Мультфильм, Комедия, Приключения, СемейныйРежиссер: Эрик Дарнелл, Саймон Дж. СмитПерсонажи: Том МакГрат, Крис Миллер, Кристофер Найтс, Конрад Вернон, Джон Малкович, Бенедикт Камбербэтч, Кен Жонг, Аннет Махендру, Петер Стормаре, Энди РихтерПеревод: Дублированный (Лицензия)Язык субтитров: Русский (полные форсированные 3d), Украинский (полные 3d) Английский (полные 3d)Продолжительность: 01:31:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84CEDF6311E82EC74767F979CC60317D1EE5EF2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999642   (862282) от 23.03.2016
-
-Хороший динозавр / The Good Dinosaur (2015) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара] [hand made 16:9]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862282.jpg" />
-</div>
-
-
-###  Подробнее
-
-По сюжету динозавры не вымерли, а эволюционировали в разумных существ и живут и здравствуют на Земле. А вот люди остались на довольно примитивной стадии развития. Фильм расскажет историю дружбы динозавра и маленького мальчика.Производство: Pixar Animation Studios, Walt Disney PicturesЖанр: Приключения, фэнтези, комедия, приключения, семейныйРежиссер: Питер СонПерсонажи: Джеффри Райт, Фрэнсис МакДорманд, Малиа Нипай-Падилья, Райан Типл, Джек МакГроу, Маркус Скрибнер, Рэймонд Очоа, Джек Брайт, Питер Сон, Стив ЗанПеревод: Дублированный (Лицензия)Продолжительность: 01:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB58C83979BBDFFE6FF516B2E7148C7A9961C7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

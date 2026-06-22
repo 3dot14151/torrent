@@ -1,3 +1,57 @@
+###  Публикация: 1427318   (184316) от 27.11.2020
+
+Boinx FotoMagico Pro 5 v5.6.14 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184316.jpg" />
+</div>
+
+
+###  Подробнее
+
+FotoMagico – популярный пакет для создания слайд-шоу от компании Boinx Software.
+
+В состав программы входит отдельный плеер, который позволяет просматривать слайд-шоу с высоким разрешением на компьютерах, на которых не установлен пакет FotoMagico (ранее это было возможно лишь при экспорте слайд-шоу в видеоролик, при этом приходилось искать компромисс между большим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Boinx Software Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3A7637E28D65BFEA9286044D7CD18510D297A93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427058   (184302) от 27.11.2020
+
+Wirecast Pro 14.0.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wirecast предлагает доступное программное обеспечение в качестве альтернативы дорогим аппаратным решениям организации видео-трансляций в сети Интернет. Благодаря Wirecast вы можете выводить на вещание несколько потоков с камер, в реальном времени вставляя в программный поток видеоклипы, изображения, звуки и такие необходимые элементы, как переходы, титры, хрома-кеинг, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.10.2020Разработчик: Telestream, Inc.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский, Французский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BE962403625F974478F6DBC5B1398D2CA8ACEE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427154   (184271) от 27.11.2020
 
 Sublime Text 4.0 Dev build 4093 [En]
@@ -6,7 +60,7 @@ Sublime Text 4.0 Dev build 4093 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184271.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ Remote Desktop Manager Enterprise 2020.3.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184112.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ Scrutiny 9 v9.13.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183612.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ Bookends 13.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183608.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ Integrity Pro 9.13.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183600.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ Multitouch 1.19.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183598.jpg" />
 </div>
 
 
@@ -168,7 +222,7 @@ Alfred 4 Powerpack 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183593.jpg" />
 </div>
 
 
@@ -196,7 +250,7 @@ Hookshot 1.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183589.jpg" />
 </div>
 
 
@@ -222,7 +276,7 @@ OverPicture for Safari 1.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183579.jpg" />
 </div>
 
 
@@ -248,7 +302,7 @@ SQLPro Studio 2020.104 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183567.jpg" />
 </div>
 
 
@@ -274,7 +328,7 @@ MacGourmet Deluxe 4.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183518.jpg" />
 </div>
 
 
@@ -300,7 +354,7 @@ Twitterrific 5 v5.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183501.jpg" />
 </div>
 
 
@@ -327,7 +381,7 @@ Sensei 1.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183369.jpg" />
 </div>
 
 
@@ -353,7 +407,7 @@ TechSmith Camtasia 2020 Studio v2020.0.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183308.jpg" />
 </div>
 
 
@@ -379,7 +433,7 @@ Wondershare Recoverit 9.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183282.jpg" />
 </div>
 
 
@@ -406,7 +460,7 @@ FontExplorer X Pro 7 v7.2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183228.jpg" />
 </div>
 
 
@@ -434,7 +488,7 @@ Movavi Picverse 1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183186.jpg" />
 </div>
 
 
@@ -460,7 +514,7 @@ Downie 4 4.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182495.jpg" />
 </div>
 
 
@@ -488,7 +542,7 @@ Sensei 1.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182486.jpg" />
 </div>
 
 
@@ -514,7 +568,7 @@ EdgeView 2 v2.903 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182476.jpg" />
 </div>
 
 
@@ -540,7 +594,7 @@ Mirror for Sony TV 3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182444.jpg" />
 </div>
 
 
@@ -569,7 +623,7 @@ Audiobook Builder 2 2.2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182394.jpg" />
 </div>
 
 
@@ -596,7 +650,7 @@ Keka 1.2.58 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182386.jpg" />
 </div>
 
 
@@ -622,7 +676,7 @@ X Lossless Decoder XLD 20201123 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182291.jpg" />
 </div>
 
 
@@ -633,60 +687,6 @@ X Lossless Decoder (XLD) - это инструмент для macOS, котор�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B41F95276516EE162BBE170B4A3963264275E7E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592728   (182123) от 24.11.2022
-
-Microsoft Office 2021 for Mac LTSC 16.67 VL [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легко узнаваемый Office, разработанный для Mac
-Быстро приступите к работе с современными версиями приложений Word, Excel, PowerPoint, Outlook и OneNote, которые сочетающими в себе знакомый интерфейс Office и уникальные возможности Mac, какие успели вам полюбиться.
-Что касается Word, то здесь появилась новая вкладка «Макет» для быстрого доступа к функциям и область (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: Microsoft CorporationПоддерживаемая ОС: macOS 11 и вышеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C4EB5203069DBEA230780E9F4785B797F25F751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427766   (182027) от 29.11.2020
-
-Boom 3D 1.3.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Boom 3D является уникальным приложением для профессиональной обработки звука, которое радикально изменяет ваше восприятие музыки. Эта премиальная версия включает в себя бесплатные звуковые эффекты, обеспечивающие потрясающие ощущения. Приложение автоматически калибруется в соответствии с типом компьютера Mac, обеспечивая уникальное персонализированное звучание. Кроме (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2020Разработчик: Global Delight Technologies Pvt. Ltd.Поддерживаемая ОС: macOS 10.10.3+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B8D6F58E033E434415B7B496DD1271E666BC39E
 ```
 
 https://mybot314.ru/tekegram_catalog/

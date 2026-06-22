@@ -1,3 +1,107 @@
+###  Публикация: 1496786   (869928) от 19.09.2021
+
+Первая передача на НТВ. Автомобильная передача (19.09.2021) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Машину на гарантии спалило дополнительное оборудование. На ком лежит ответственность? Виновника ДТП определяет компьютер. Кому поверит суд: мультику о ТВМ или протоколу автоинспектора? Какие три законодательные инициативы навсегда изменят жизнь водителей? Менять разбитую фару или все-таки ремонтировать? Пропустил пешехода, но не затормозил до конца – получил штраф. (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:25:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBBD1A535ACC2D2DCA0084BB94E5E5DEC08F4747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998661   (868501) от 20.03.2016
+
+Первая передача на НТВ. Автомобильная передача. Выпуск №243 (20.03.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868501.jpg" />
+</div>
+
+
+###  Подробнее
+
+« Первая передача» — новый проект для автомобилистов и про автомобилистов. Ведущий «Первой передачи» — Виктор Травин, президент Коллегии правовой защиты автовладельцев. Уже много лет этот известный журналист защищает права автолюбителей. В автомире для него нет секретов и закрытых дверей. Всех, кто не представляет своей жизни без автомобиля, и тех, кто только задумывается (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаРежиссер: Роман ИовицаСубтитры: ОтсутствуютПродолжительность: ~ 00:32:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F175423898A4A5A66600F57BEC26F1D9EBCDD077
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 291884   (863112) от 03.03.2011
+
+BBC: Топ Гир (сезон 16 серии 1-6) / Top Gear (2011) HDTVRip [H.264/720p-LQ] Jetvis Studio [Обновляемый]
+
+>>След.
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый сезон самого увлекательного из всех автомобильных шоу.Жанр: Документальный, Телепередача, СпортУчастники: Джереми Кларксон, Джеймс Мэй, Ричард Хаммонд, СтигПеревод: Двухголосый закадровый, любительский, в 3 серии трёхголосый - с ZaharЯзык субтитров: РусскиеПродолжительность: ~ 01:00:00 серия
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108548   (862353) от 25.02.2017
+
+Главная дорога (2017.02.25) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862353.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Главная дорога» — первая на российском телевидении информационная программа обо всем, что происходит на дорогах страны. Это полчаса полезной информации не только для автолюбителей, но и для пешеходов. В постоянной рубрике «Испытано на себе» зрителей ждут наглядные советы, как вести себя в сложных ситуациях на дорогах. Сложнейший курс контраварийной подготовки, адаптированный (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:32:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:742A2C14AEFB3E1DE1B4732AE7E3EB909D9A761D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108982   (860456) от 26.02.2017
 
 Первая передача на НТВ. Автомобильная передача (2017.02.26) SATRip (выпуск 281)
@@ -6,7 +110,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860456.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859661.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ History Channel: Поворот наворот / Counting Cars (2012) HDTV [H.26
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859088.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858927.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858068.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857494.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857019.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855637.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854793.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850424.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849919.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849829.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848273.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847832.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846699.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846187.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845288.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845101.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844809.jpg" />
 </div>
 
 
@@ -504,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844346.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843320.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ Discovery. Махинаторы. Машина мечты / Wheeler Dealers: Drea
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840752.jpg" />
 </div>
 
 
@@ -567,114 +671,6 @@ Discovery. Махинаторы. Машина мечты / Wheeler Dealers: Drea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:408F8C4FDF255A7BDEC72C0A8E0362EFBBC6ACE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113302   (837853) от 11.03.2017
-
-Главная дорога (2017.03.11) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837853.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Главная дорога» — первая на российском телевидении информационная программа обо всем, что происходит на дорогах страны. Это полчаса полезной информации не только для автолюбителей, но и для пешеходов. В постоянной рубрике «Испытано на себе» зрителей ждут наглядные советы, как вести себя в сложных ситуациях на дорогах. Сложнейший курс контраварийной подготовки, адаптированный (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:32:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBFB17A61E47A29C0DCA2917005ADC46FD72A114
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309751   (837214) от 18.03.2011
-
-Топ Гир (сезон 1) / BBC: Top Gear (1 Season) (2002) TVRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авто-шоу «Top Gear» — это программа абсолютно новой формации для телезрителей прогрессивного толка. В ней нет ни слова о недорогих семейных автомобилях, нет занудных советов автолюбителям, да и банального cлова «автолюбитель» в ней тоже нет.
-
-Это программа для настоящих фанатов роскошных, безумно дорогих и самых быстрых автомобилей, для настоящих ценителей запаха бензина и пылающих тормозных дисков, для тех, кому не безразличен экстремальный драйв.
-
-Эксперты программы, профессионалы высочайшего класса, способны вынести справедливый вердикт любому сверхсовременному спорткару.Жанр: Телепередача, ДокументальныйПеревод: Одноголосый закадровый, профессиональный (озвучка НТВ)Продолжительность: ~00:59:00 на серию
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53307E9417F31E814B9AF2DF1A7369B716B8C37B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501282   (836556) от 09.10.2021
-
-Главная дорога (09.10.2021) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для многих водителей встреча с патрульным экипажем настоящий стресс: одни начинают излишне заискивать, другие сознательно идут на конфликт и начинают рьяно спорить. Нужно ли выходить из машины и законно ли требовать от инспектора назвать причину остановки?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:27:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDE1B95F937746AAA893A52C33B3BD81693C20B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113691   (836180) от 12.03.2017
-
-Топ Гир / Top Gear (2017) HDTVRip [H.264/720p-LQ] (сезон 24, серия 1) Jetvis Studio & RG.paravozik
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый сезон с новыми ведущими после ухода знаменитой троицы. Top Gear (англ. Top Gear) — популярная английская телепередача, посвящённая автомобилям. Первые выпуски передачи появились в 1977 году. Эта передача была просто пересказ журнала, в течение долгого времени формат передачи не менялся. Но в 2002 году, произошел перезапуск цикла, и вместо сухого пересказа, (   Читать дальше...   )Телекомпания: BBCЖанр: Телепередача, автошоуПеревод: Профессиональный (многоголосый закадровый) - Jetvis Studio & RG.paravozikСубтитры: ОтсутствуютПродолжительность: ~ 01:02:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10EF74BCCF52FFCEFA3EA72E86DF33F0DF96E4EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Toy Defense [WineSkin]
 >>Casual Games, Other для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255950.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Total War: WARHAMMER II v.1.12 DLC (2017) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255399.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Prison Architect v.The Jailhouse101 11011 (2015) [Multi/Ru] [macOS Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255395.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Pathfinder: Wrath of the Righteous v.2.1.2e.526 (2021) [Multi/Ru] [macOS Native 
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255364.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Machinarium v.4041 (2009) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255322.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Disco Elysium v.a0a062e7(54625) (2019) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255139.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Project Zomboid v.41.78.16 (2013) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255073.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Europa Universalis IV v.1.35.0.4 (2013) [Multi] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255046.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Baldur's Gate II: Enhanced Edition v.2.6.6.0 (2013) [Multi/Ru] [macOS Native gam
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255008.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Parkitect v.1.8p2 (2018) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254979.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Fury Unleashed v.1.9.1.0 (2020) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254770.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Dead Age 2 v1.42 (2020) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254620.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ RimWorld v.1.4.3704  (2018) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254615.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Port Royale 3: Pirates & Merchants [WineSkin]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253512.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Yetisports. Кругосветный пингвин [WineSkin]
 >>Casual Games, Other для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253308.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Sneaky Sasquatch 2.1.4 (2019) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250546.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ SUNLESS SKIES v2.0.4.fcf0af7a [En] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249553.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Fallout New Vegas 2011 Extended Edition [WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_248112.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Dead Cells v.1.24.4 DLC (2018) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247264.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Ziggurat 2 v16.02.2022.11.04.32.87 (2021) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245539.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Spiritfarer v35321a (2020) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245470.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Project Hospital v1.2.22644 (2018) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244648.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Broken Age v.3a (2014) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244602.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ TUNIC v.1.0.t1483.b37 (2022) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244585.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Gear.Club Stradale (2022) [Multi/Ru] [macOS Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244544.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Black & White (2001) [Ru] [macOS WineSkin]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235226.jpg" />
 </div>
 
 

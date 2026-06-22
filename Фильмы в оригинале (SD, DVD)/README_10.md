@@ -1,3 +1,31 @@
+###  Публикация: 466230   (142244) от 29.12.2014
+
+Проделки близнецов / Das Doppelte Lottchen (1950) VHSRip [DE/EN, DE, RU Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (SD, DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Близнецы Луиза и Лотта разделяются в младенчестве из-за развода родителей. Луиза вырастает у отца, дирижера в Вене, Лотта у матери, редактора журнала в Мюнхене. Когда им исполняется 10, они встречаются в летнем лагере, узнают правду и меняются местами, чтобы помочь родителям снова воссоединиться.
+
+Доп. информация: Die Zwillinge Luise und Lotte werden als Babys wegen der Scheidung der Eltern getrennt. Luise wächst beim Vater, Dirigent in Wien, Lotte bei der Mutter, Zeitschriftenredakteurin in München, (   Читать дальше...   )Жанр: Комедия, Мелодрама, СемейныйРежиссер: Йозеф фон Баку/Josef von BákyАктеры: Петер Мосбахер, Ютта Гюнтер, Иза Гюнтер, Антье Вайссгербер, Зента ВенграфПеревод: отсутствуетЯзык субтитров: Английский, Немецкий, РусскийПродолжительность: 01:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91F8E8EBA481ADDBE80CF1109F4BDD58FA0E2CD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 593309   (135207) от 23.12.2012
 
 Линии Веллингтона / Linhas de Wellington / Lines Of Wellington (2012) DVDRip   [EN]
@@ -6,7 +34,7 @@
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135207.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134514.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132510.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126893.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124613.jpg" />
 </div>
 
 
@@ -136,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121218.jpg" />
 </div>
 
 
@@ -162,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107128.jpg" />
 </div>
 
 
@@ -188,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89915.jpg" />
 </div>
 
 
@@ -215,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87563.jpg" />
 </div>
 
 
@@ -241,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86589.jpg" />
 </div>
 
 
@@ -267,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83946.jpg" />
 </div>
 
 
@@ -293,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83404.jpg" />
 </div>
 
 
@@ -319,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82662.jpg" />
 </div>
 
 
@@ -345,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81723.jpg" />
 </div>
 
 
@@ -371,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81010.jpg" />
 </div>
 
 
@@ -397,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80623.jpg" />
 </div>
 
 
@@ -423,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78494.jpg" />
 </div>
 
 
@@ -449,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77806.jpg" />
 </div>
 
 
@@ -479,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69177.jpg" />
 </div>
 
 
@@ -505,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68501.jpg" />
 </div>
 
 
@@ -531,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62023.jpg" />
 </div>
 
 
@@ -557,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58905.jpg" />
 </div>
 
 
@@ -584,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57964.jpg" />
 </div>
 
 
@@ -610,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55352.jpg" />
 </div>
 
 
@@ -636,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55205.jpg" />
 </div>
 
 
@@ -647,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:205316B578397333D092F85388C5E91779E46B0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732022   (52411) от 23.06.2024
-
-Женщина в песках / Suna no onna / Woman in dunes (1964) BDRip [H.264] [JP / RU Sub] [Режиссёрская версия]
-
->>Зарубежное кино
->>Фильмы в оригинале (SD, DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сценарий к фильму адаптирован Кобо Абэ по его одноимённому роману 1962 года... Энтомолог-любитель Ники Дзюмпэй, охотясь за насекомыми в пустыне, опаздывает на последний автобус, и местные жители приглашают его переночевать в их деревне в доме у молодой женщины. Дом оказывается на самом дне ямы, в песке, куда Дзюмпэя спускают по верёвочной лестнице. Хозяйка дома, (   Читать дальше...   )Производство: Япония / Teshigahara Productions, Toho Film (Eiga) Co. Ltd.Жанр: драма, триллерРежиссер: Хироси ТэсигахараАктеры: Эйдзи Окада, Кёко Кисида, Хироко Ито, Кодзи Мицуи, Сэн Яно, Киндзо Сэкигути, Роберт Данэм, Киёхико Итиха, Хидэо Кандзэ, Хироюки НисимотоПеревод: субтитрыЯзык озвучки: японскийСубтитры: русские (японская коллекция; Skuf), английскиеПродолжительность: 02:27:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64ACEFE3A01A7A7697CAC13005DCC8F4D78F168F
 ```
 
 https://mybot314.ru/tekegram_catalog/

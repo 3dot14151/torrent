@@ -1,3 +1,108 @@
+###  Публикация: 1679792   (135373) от 26.11.2023
+
+PrintLab Studio 3.0.2 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135373.jpg" />
+</div>
+
+
+###  Подробнее
+
+PrintLab Studio - это легкое и простое в использовании приложение для создания векторных иллюстраций для Mac OS X. PrintLab Studio содержит инструменты, необходимые для создания базовых фигур. Быстро создавайте рисунки и легко меняйте стили.Тип издания: macOS SoftwareРелиз состоялся: 08.05.2018Разработчик: © 2021 Bluetail TeamПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B03E3DFE8545F74AFAF8607801CA5200FDFA8C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679803   (135344) от 26.11.2023
+
+JixiPix Chromatic Edges 1.0.31 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135344.jpg" />
+</div>
+
+
+###  Подробнее
+
+JixiPix переносит винтаж в совершенно новый экстрим. Прошли те времена, когда у вас было несколько крошечных вариантов добавления бликов к вашим изображениям. Chromatic Edges возвращает тонкую магию обработки фотографий с помощью стеклянных, серебряных и бумажных гравюр - всего несколько нажатий и у вас уникальная фотография.
+Особое внимание тут уделено краям ваших (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.11.2023Разработчик: © 2023 JixiPix Software, LLCПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB309D6502AC825320F694F3A374D0D57E0E3F0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679647   (135343) от 26.11.2023
+
+Aspect Ratio X 2.1.8 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aspect Ratio X - калькулятор для расчёта соотношения сторон, разрешения экрана, прост в использовании с дружественным интерфейсом.Тип издания: macOS SoftwareРелиз состоялся: 01.12.2022Разработчик: © 2016–2022 IXEAUПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C78E058DF91C3AB9162193928B62D667B57B112
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679828   (135325) от 26.11.2023
+
+Resize Sense - Flexible batch image processing 2.3.3 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Resize Sense приложение, которое поможет вам изменить размер, обрезать, выпрямить, повернуть, зеркально отобразить и переименовать много изображений. Редактирование IPTC и EXIF метаданных даже в нескольких изображений одновременно. Есть ли у вас строгие требования к размеру для веб-дизайна проекта / графики, или просто хотите,  сделать много фотографий меньшего размера (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.11.2021Разработчик: © 2023 VeprITПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDBCBD283DC070992A15BF0E934D9AB546B8BFB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679736   (135321) от 26.11.2023
 
 Dynaper - Dynamic Wallpapers 1.5.6 [En]
@@ -6,7 +111,7 @@ Dynaper - Dynamic Wallpapers 1.5.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135321.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Rumpus PRO 9 v.9.0.12 + Tether Client 1.1  [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135311.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ JixiPix Watercolor Studio Pro 1.4.17 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135295.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ Logo Art for Mac 1.0.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135273.jpg" />
 </div>
 
 
@@ -112,7 +217,7 @@ iFunia Video Converter Pro for Mac 7.4.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135267.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ StopMotion for Mac 3.01 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135265.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ SQLPro for MSSQL 2023.10 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135261.jpg" />
 </div>
 
 
@@ -191,7 +296,7 @@ iToolab FixGo 3.3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135249.jpg" />
 </div>
 
 
@@ -220,7 +325,7 @@ SuperDuper! 3.8 ARM [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135245.jpg" />
 </div>
 
 
@@ -246,7 +351,7 @@ Super-AI Photo Enlarger for Mac 2.0.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135232.jpg" />
 </div>
 
 
@@ -272,7 +377,7 @@ CRAX Commander 1.13.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135196.jpg" />
 </div>
 
 
@@ -298,7 +403,7 @@ CDRConverter for CorelDRAW on Mac 1.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135169.jpg" />
 </div>
 
 
@@ -324,7 +429,7 @@ Template for MS PowerPoint for Mac 6.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135165.jpg" />
 </div>
 
 
@@ -350,7 +455,7 @@ nuTXT 3.30 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134966.jpg" />
 </div>
 
 
@@ -376,7 +481,7 @@ Swish 1.10.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134923.jpg" />
 </div>
 
 
@@ -402,7 +507,7 @@ CADintosh X 8.8.6 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134909.jpg" />
 </div>
 
 
@@ -428,7 +533,7 @@ VectorStyler for Mac 1.1.111 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134890.jpg" />
 </div>
 
 
@@ -454,7 +559,7 @@ Readiris Pro 17.1.9 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134879.jpg" />
 </div>
 
 
@@ -481,7 +586,7 @@ CrossOver 23.7.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134719.jpg" />
 </div>
 
 
@@ -508,7 +613,7 @@ wordCount 2.56 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134646.jpg" />
 </div>
 
 
@@ -535,7 +640,7 @@ ZoneClock for Mac 3.65 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134631.jpg" />
 </div>
 
 
@@ -563,7 +668,7 @@ Cisdem ContactsMate 6 v.6.7.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134629.jpg" />
 </div>
 
 
@@ -574,113 +679,6 @@ Cisdem ContactsMate 6 v.6.7.0 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:805BF495DC154D57BC6E5F07641C8EB5823FA3E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680121   (134621) от 28.11.2023
-
-Convusic for Mac 1.17 [Multi/Ru]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Convusic позволяет автоматически открывать ссылки с Apple Music, Amazon Music, Deezer, Pandora, Spotify, Tidal и YouTube Music в любом другом музыкальном приложении, не пошевелив и пальцем.
-После загрузки Convusic и настройки его на предпочитаемый музыкальный сервис ссылки с любого другого музыкального сервиса будут автоматически открываться в выбранном вами приложении. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.04.2022Разработчик: © 2021-2022 Varun SanthanamПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C640491BDE1DA5D5D4DD95765AA12311FFF430F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680133   (134617) от 28.11.2023
-
-Yate 6.17.2.1 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yate - Мощный и удобный редактор ID3-тегов с широким набором полезных функций.
-Yate был разработан для людей, которые серьезно относятся к маркировке и организации их аудио файлов. Yate позволит привести в порядок и сделать более красивым ваш сборник музыки с помощью тегов и огромного количества дополнительной информации о песнях.
-У Yate есть длинный список особенностей, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.11.2023Разработчик: © 2023 Many RobotsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72E8C46FA660454665D2222B1A8DA8FA4F3B9561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680152   (134615) от 28.11.2023
-
-Cisdem OCRWizard 5.1.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cisdem OCRWizard с улучшенным механизмом оптического распознавания символов (OCR) может легко конвертировать любые PDF-файлы, отсканированные документы или файлы изображений (включая изображение визитной карточки) на 49 языках в доступные для поиска и редактирования PDF, Word, Pages, HTML, Excel, Keynote, и ePub и т. д. на Mac.Тип издания: macOS SoftwareРелиз состоялся: 24.11.2023Разработчик: © 2023 Cisdem Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49A58F32C2B550966BB8AA3D5EEEA7902302853B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680141   (134607) от 28.11.2023
-
-Unite 5.1.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unite позволяет быстро и легко превратить веб-сайты в полнофункциональные нативные приложения для MacOS. Используя революционный браузер Unite в качестве бэкэнда, каждое приложение Unite имеет собственный браузер, оставаясь при этом невероятно маленьким и полнофункциональным. И поскольку приложения Unite являются уникальным браузером, они имеют отдельные файлы cookie (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.11.2023Разработчик: © 2023 BZG Inc.Поддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0254E12E53A90E3E4C502A6B3294C0BBB1D56ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

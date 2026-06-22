@@ -1,3 +1,107 @@
+###  Публикация: 1324897   (418667) от 12.09.2019
+
+NGW: Африканские охотники / Africa's Hunters (2018) HDTVRip [H.264/1080p-LQ] (сезон 3, серии 6 из 6)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418667.jpg" />
+</div>
+
+
+###  Подробнее
+
+В уникальном документальном фильме о самых опасных хищниках Африки, речь пойдет о совершенных убийцах: львах, леопардах, диких собаках и вездесущих гиенах, которые не оставляют шансов выжить своим жертвам.Производство: США, Plimsoll Productions, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 6x ~00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAB171FD47CD7B7693BF36D10BE22467941A7FBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251612   (415421) от 02.10.2018
+
+NGW: Прекрасная Америка: Дикий Юго-Запад. Заповедник Гаторленд / Wild Southwest. Gatorlands (2017) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Безжалостное болото Border Swamp (Пограничное Болото), которое раскинулось между Техасом и Луизианой - это место, про которое рассказывают множество жутких историй, но это также дом для диких животных.Производство: США, Red Rock Films, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58E1A2C67548DD6FAB2BC52C17F3D1D2B31044A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251861   (413190) от 03.10.2018
+
+NGW: Пустынное море / The Desert Sea (2016) HDTV [H.264/1080i-LQ] (Серии 1-2 из 2)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал, состоящий из двух эпизодов, расскажет о Соноре - одной из известнейших пустынь, располагающихся на территории Северной Америки. Если вы когда-нибудь слышали фразу "Дикий запад", то точно узнаете здешние места - первородный, настоящий, неповторимый дикий запад во всей своей красе. Вы окажетесь в самой жаркой пустыне Северной Америки, где влажность (   Читать дальше...   )Производство: Новая Зеландия, Natural History New Zeland LtdЖанр: Документальный, природа, флора, фаунаРежиссер: Дэвид С. ФальконеПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 2 x~00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C52089C205C736905C0229466DCF5F8CF22B762D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251867   (413188) от 03.10.2018
+
+NGW: Зеленый ковбой из Австралии / Monster Croc Wrangler (Outback Wrangler) (2018) HDTV [H.264/1080i-LQ] (Сезон 3, серии 1-8)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заболоченная местность на севере Австралии является домом для одного из крупнейших видов крокодилов – морского крокодила. Эти крокодилы откладывают яйца во время сезона дождей, поэтому у Мэтта Райта и его товарищей есть всего 3 месяца, чтобы собрать 20 000 крокодильих яиц. Мэтт и его команда по сбору яиц, в которую входит Мик "Профессор" Бернс, Крейг Мур (   Читать дальше...   )Производство: Австралия, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~ 00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46D8BED5C97DF47533E5893C6DF21D4CF55195AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167933   (412300) от 22.09.2017
 
 NG. Миссия Сатурн / Mission Saturn (2017) HDTVRip [H.264/720p-LQ]
@@ -6,7 +110,7 @@ NG. Миссия Сатурн / Mission Saturn (2017) HDTVRip [H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412300.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NG:ЭкзоМарс: В поисках жизни / Exomars: The Hunt for Life (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411684.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NG. Суперсооружения: Аэробус BelugaXL / Megastructures. Be
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408524.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ NG: Когда акулы нападают / When sharks attack (2016) HDTVRip (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407727.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403686.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ NG: Жизнь в других мирах. Аурелия / Extraterrestrial. Au
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403060.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ NG: Жизнь в других мирах. Голубая луна / Extraterres
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403052.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ NG. Суперсооружения Третьего рейха / Nazi Megastruct
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_397324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_397324.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ NGW: Дикие болота / Wild Swamplands (2013) HDTVRip [H.264/720p-LQ] (�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391145.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ NG: Ловец комет: Миссия "Розетта" (Розетта: пос
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389700.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ NGW: Когда акулы нападают / When sharks attack (2017) HDTV [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387706.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ NGW: История одной гиеновой собаки / A Wild Dog's Tale
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387703.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ NG. Шаньдун: страна Конфуция / Shandong. Land of Confucius 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387692.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ NG. Экстремальный Китай. Горы Сыгунян / Extreme Chi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385441.jpg" />
 </div>
 
 
@@ -374,7 +478,7 @@ NG. Линии Наска: Древние тайны / Nasca Lines. Ancient Secr
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383558.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ NG. Черные фараоны: империя золота / Black Pharaohs of
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383450.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ NGW: Замбези / The Zambezi (2010) HDTVRip [H.264/720p-LQ] (эпизоды
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383014.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ NGW: В неизвестность с Джеком Рэнделлом / Out Ther
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380500.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ NG. Годы опасной жизни / Years of Living Dangerously (2016) DVB 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377283.jpg" />
 </div>
 
 
@@ -504,7 +608,7 @@ NG. Титаник: 20 лет спустя с Джеймсом Кэмероно�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377167.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ NG. 9/11: Один день из жизни Америки / 9/11: One Day in Am
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376897.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ NG: Самые странные в мире / World's Weirdest (2011-2016) HDTVR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375003.jpg" />
 </div>
 
 
@@ -567,111 +671,6 @@ NG: Самые странные в мире / World's Weirdest (2011-2016) HDTVR
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:967C6BF0888C606A0D946AD0365AFCC0DCA19740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254370   (374942) от 13.10.2018
-
-NG. Черные фараоны: империя золота / Black Pharaohs of Empire Gold (2018) DVB
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это земля пирамид, золота и древних сокровищ, но это не Египет, а современный Судан, на месте которого в древности располагалось прославленное царство Куш. Сегодня археологи используют все доступные им способы, от роботов, до альпинистов, чтобы найти ключи к разгадке тайн этой древней культуры, существование которой долгое время отрицалось. Когда-то кушиты наполняли (   Читать дальше...   )Производство: США, National Geographic Channel, PBSЖанр: Документальный, история, исследованиеПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97AC13C99510FE5CAC7BB7BAC1844735E124B08F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324098   (371865) от 26.09.2019
-
-NG. Дикая Скандинавия / Wild Nordic (2019) HDTV [H.264/1080i] (серии 5 из 5)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Родные земли викингов были и остаются дикими. Скандинавия - область эпических контрастов, где древние горы встречаются с густым лесом, а земля разрывается ото льда и огня.Производство: США, Red Rock Films for National GeographicЖанр: Документальный, природа, флора, фаунаРежиссер: Алекс СлеттенПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:43:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45C87BFFCBE702AA83047CC069A696142DDE979D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254746   (370514) от 15.10.2018
-
-NG. 2000-е: Величайшие трагедии / The 2000s Greatest Tragedies (2015) DVBRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Передача прольёт свет на десятилетие, которое принесло нам невероятное количество разрушений.
-От совершённой руками человека атаки на башни-близнецы, возвестившей десятилетие всемирного терроризма, и разрушительного цунами - природной катастрофы, которая принесла огромные разрушения на побережья Юго-Восточной Азии, до смерти Майкла Джексона, благодаря которой возрос (   Читать дальше...   )Производство: Великобритания, Twofour Broadcast Ltd, National Geographic ChannelЖанр: Документальный, исследование, историяПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE155F07907729EBE858F5D1DFDFDBD2FF80DAB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255670   (364093) от 18.10.2018
-
-NGW: Остров муссонов. Слоненок Лока / Island of the Monsoon. Loka The Baby Elephant (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот сериал посвящен удивительному миру дикой природы чарующего острова Шри Ланка - мира, заполненного экстримом. От влажных, насыщенных водными испарениями джунглей на юге, до выжженной сухой восточной части, этот небольшой остров - словно мозаика из различных сред обитания и микроклиматов.Производство: Великобритания, Blue Ant Media Solutions Inc., Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77DAF465DC10B0484556767D7496F3FC8614DA0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

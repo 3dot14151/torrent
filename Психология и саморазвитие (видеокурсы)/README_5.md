@@ -1,3 +1,61 @@
+###  Публикация: 1526095   (738657) от 23.01.2022
+
+Тата Феодориди | Искусство психотерапии: Коммуникация (2021) WEB-DLRip
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для практикующих специалистов, консультантов, а также для тех кто хочет и готов погрузиться на по настоящему профессиональный уровень.
+
+Почему этот марафон идёт с пометрой PRO?
+Темы, которые мы будем раскрывать, на мой взгляд, не просто рекомендуемы, а необходимы практикующим специалистам. И к велчиайшему сожалению, они крайне мало даны в образовательных программах, (   Читать дальше...   )Жанр: ВидеокурсПродолжительность: 22:14:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6D26D1B3E9E5477A6AF5AD53167ADBDEAF0B8AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532252   (716179) от 18.02.2022
+
+Правое полушарие Интроверта, Мария Елец | Телесно-ориентированная психология (2021) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как научиться слышать и понимать себя.
+Вам подойдет этот курс, если вы:
+Переживаете по любому поводу и не знаете, как с этим справляться
+Хотите освоить работающие техники борьбы со стрессом(   Читать дальше...   )Производство: Правое полушарие ИнтровертаЖанр: ПсихологияЯзык озвучки: РусскийПродолжительность: 09:07:24Реклама: Присутствуют наложения на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2560EBF1C860BF1361ED7B020B3AC042CF08D61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1533371   (706796) от 23.02.2022
 
 Оксана Самойлова | Стратегия на миллион (2021) HDRip [RU]
@@ -6,7 +64,7 @@
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706796.jpg" />
 </div>
 
 
@@ -34,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706316.jpg" />
 </div>
 
 
@@ -60,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706311.jpg" />
 </div>
 
 
@@ -86,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706308.jpg" />
 </div>
 
 
@@ -114,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671832.jpg" />
 </div>
 
 
@@ -140,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657600.jpg" />
 </div>
 
 
@@ -169,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629471.jpg" />
 </div>
 
 
@@ -197,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607349.jpg" />
 </div>
 
 
@@ -225,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605994.jpg" />
 </div>
 
 
@@ -254,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585733.jpg" />
 </div>
 
 
@@ -282,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516828.jpg" />
 </div>
 
 
@@ -310,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516479.jpg" />
 </div>
 
 
@@ -340,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511199.jpg" />
 </div>
 
 
@@ -369,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494629.jpg" />
 </div>
 
 
@@ -395,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490803.jpg" />
 </div>
 
 
@@ -421,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485356.jpg" />
 </div>
 
 
@@ -449,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472220.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470135.jpg" />
 </div>
 
 
@@ -505,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_449858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_449858.jpg" />
 </div>
 
 
@@ -531,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444272.jpg" />
 </div>
 
 
@@ -560,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441407.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437912.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437725.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437568.jpg" />
 </div>
 
 
@@ -657,59 +715,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3FDDBDAF8546EC356867F8FCF8EF649E29EBA94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 2978   (424976) от 09.09.2019
-
-Фрэнк Пьюселик | Магия Общения [Видеотренинг]
-
->>След.
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальный эксклюзивный семинар от одного из трех создателей HЛП, ярчайшего тренера и просто прекрасного хорошего человека Фрэнка Пьюселика
-Его манера ведения семинара уникальна и вызывает восторг даже у самых искушенных нлперов мира. Семинар посвящен главным образом ОБЩЕHИЮ, магическим секретам коммуникации, именно поэтому семинар так и называется "Магия общения". (   Читать дальше...   )Продолжительность: около10 часов
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F97DE1EEF6FD1F8C271A7952A9A5D6436B12F66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 12341   (422787) от 10.09.2019
-
-Фрэнк Пьюселик - Работа с группой в трудных случаях на тренинге
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это более полная версия семинара, выложенного в этой теме: Фрэнк Пьюселик - Тренинг для тренеров | Frank Pucelik - Training Of Trainers (добавлены недостающие файлы CD1 и целикомПеревод: С переводчиком
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A919048CE1E617EE674C8E1DAEC03179C9BC977
 ```
 
 https://mybot314.ru/tekegram_catalog/

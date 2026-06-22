@@ -1,3 +1,29 @@
+###  Публикация: 1465146   (1008519) от 01.07.2021
+
+Nomad: Megalo Box 2 | Megalobox: Nomad | Мегалобокс [ТВ-2] [2021, TV, 13 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008519.jpg" />
+</div>
+
+
+###  Подробнее
+
+В конце концов, «Безредукторный» Джо стал чемпионом Мегалонии, первого в истории турнира по мегалобоксу. Поклонники повсюду были очарованы стремительным взлетом Джо, который прыгнул с самого глубокого подземного кольца на вершину всего за три месяца и без использования оборудования. Семь лет спустя «Безредукторный» Джо снова сражался в подпольных матчах. Украшенный (   Читать дальше...   )Производство: Студия TMS Entertainment / トムス・エンタテインメントЖанр: приключения, спортРежиссер: Морияма ЁПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC104E5FAAC701281B5F6E5D97908CF22EDF0380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463189   (1008396) от 02.07.2021
 
 Osananajimi ga Zettai ni Makenai LoveCome / Романтическая комедия, в которой подруга детства ни за что не проиграет [2021, TV, 12] WEBRip 720p raw
@@ -6,7 +32,7 @@ Osananajimi ga Zettai ni Makenai LoveCome / Романтическая коме�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008396.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Senyoku no Sigrdrifa | Warlords of Sigrdrifa | Полководцы Сигрдр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008365.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Tatoeba Last Dungeon Mae no Mura no Shounen ga Joban no Machi de Kurasu You na M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008108.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Non Non Biyori: Nonstop | Деревенская глубинка [ТВ-3] [2021
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008107.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Nanatsu no Taizai: Fundo no Shinpan | The Seven Deadly Sins: Dragon's Judgement 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008058.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Edens Bowy | Eden's Bowy | Парень из Эдема [1999, TV, 26 из 26] D
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007591.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Hanyou no Yashahime: Sengoku Otogizoushi | Yashahime: Princess Half-Demon | Пр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007282.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Fruits Basket the Final | Корзинка фруктов [ТВ-2, финал] [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007235.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Hibike! Euphonium | Sound! Euphonium | Играй, эуфониум! [ТВ-1 и 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007007.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Kabukibu! / Клуб кабуки [2017, TV, 12 из 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006945.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Gleipnir | Глейпнир [2020, TV, 13 эп.] BDRip 1080p HEVC 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006885.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Kenka Banchou Otome: Girl Beats Boys | Боевой главарь банды: �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006392.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Night Head Genesis | Сумеречный разум: Рождение [2006, TV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005905.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Regalia: The Three Sacred Stars | Регалия: Три священные зв
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005581.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ Regalia: The Three Sacred Stars | Регалия: Три священные зв
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005277.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ TO-Y | Той [1987, OVA] BDRip 1080p HEVC 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004752.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Akudama Drive | Акудама Драйв [2020, TV, 12 из 12] BDRip 1080p HEV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004690.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ Go-Toubun no Hanayome 2 | The Quintessential Quintuplets 2 | Пять невес
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004689.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ Wixoss Diva(A)Live | Wixoss: Дива в прямом эфире [2021, TV, 12 �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004651.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ Re:Zero kara Hajimeru Isekai Seikatsu 2nd Season | Re: Жизнь в альте�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004620.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ Yatogame-chan Kansatsu Nikki | Заметки Ятогамэ [ТВ-1] [2019, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004480.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen | Asc
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004437.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ Mahou Shoujo Lyrical Nanoha: Detonation | Magical Girl Lyrical Nanoha Detonation
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004255.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ Ore o Suki na no wa Omae Dake ka yo | Oresuki: Are You the Only One Who Loves Me
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004174.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ Idoly Pride | Расцвет айдолов [2021, TV, 12 из 12] BDRip 1080p 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004131.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ Idoly Pride | Расцвет айдолов [2021, TV, 12 из 12] BDRip 1080p 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88668DFC78B3255AE7E15472284480192A903EEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349681   (1004061) от 03.01.2020
-
-Neon The Animation | Неон Анимация [2011, OVA, 6] DVDRip 480p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гордостью Токио и узнаваемым во всём мире местом является Акихабара. Аналогичные "Акихабары" есть во многих крупных городах Японии и даже за рубежом. Одним из самых таких крупных мест, сравнимым по размерам и продажам с токийской Акихабарой, является район Ниппонбаши в Осаке, родина поп-культуры Японии. У него даже есть два талисмана - сёстры Неон-чан и (   Читать дальше...   )Производство: Osaka Animation CollegeЖанр: приключения, комедия, историяРежиссер: нет данныхПеревод: Shaman AnimeЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 6 эп по 5 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86BBF789526394D36C36F9E5EE90FB7A4BD7F51F
 ```
 
 https://mybot314.ru/tekegram_catalog/

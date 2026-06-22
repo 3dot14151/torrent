@@ -1,3 +1,81 @@
+###  Публикация: 525385   (287283) от 19.11.2018
+
+В. Крейс | Фундамент. Прочно и надежно (2012) [PDF]
+
+>>Разное (категория книг)
+>>Строительство и ремонт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основой любого здания является фундамент, поэтому при его строительстве недопустимы ошибки. Данная книга содержит множество ценных советов. Как сделать фундамент правильно: какой лучше выбрать в зависимости от типа грунта, рельефа, как распланировать работы по его возведению, рассчитать их стоимость и длительность, какие современные материалы существуют, каковы технологические (   Читать дальше...   )Жанр: Строительство, ремонтФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C748642AA53C262ED7DC348F4CE51B728FC344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187249   (281886) от 27.11.2017
+
+Линда Баркер | Оформление стен. 100 новых дизайнерских решений (2006) [PDF]
+
+>>Разное (категория книг)
+>>Строительство и ремонт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это красочно иллюстрированная книга знакомит с разнообразными покрытиями и использованием новейших техник оригинальной отделки стен – от оклеивания интерактивными обоями до нанесения аппликаций и применения мозаики, замши, кожи. Уникальные дизайнерские решения и оформительские идеи помогут вам обновить интерьер и преобразовать ваш дом. Стены формируют характер нашего (   Читать дальше...   )Жанр: Дизайн, ремонтФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93EF858690C0592E1A19A8AC225079E89959869F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187256   (280293) от 28.11.2017
+
+А.Г. Кудряшова  (ред.) | Сантехника (2003) [PDF]
+
+>>Разное (категория книг)
+>>Строительство и ремонт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наверное, многие при слове «евроремонт» прежде всего подумают о сантехнике и представят себе потрясающую ванную комнату со всевозможными «штучками». Да, евростандарт в сантехнике — это действительно фантастика, о чем вы узнаете, прочитав данную книгу. Выбирайте. И пусть этот маленький мир, сверкающий великолепием, доставит вам истинное удовольствие. Подбор сантехники (   Читать дальше...   )Жанр: РемонтФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F581962B2A83A1C5B055ABD08C15181CA3700D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1187271   (280134) от 28.11.2017
 
 Йожеф Косо | Мансарды и чердачные помещения (2008) [PDF]
@@ -6,7 +84,7 @@
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280134.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273164.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271795.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270733.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269332.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267673.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263422.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262058.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259344.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256689.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251269.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229004.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228947.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224731.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223513.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223283.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217485.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213216.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ Dennis Odin Johnson | Руководство по строительству к�
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208969.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198768.jpg" />
 </div>
 
 
@@ -533,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197186.jpg" />
 </div>
 
 
@@ -559,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195707.jpg" />
 </div>
 
 
@@ -585,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195575.jpg" />
 </div>
 
 
@@ -596,87 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD24B64FC358D1BED5B05BDDBCB79173B9C72D78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588276   (191767) от 03.11.2022
-
-В.В.Самойлович | Отделочные работы (1990) [PDF]
-
->>Разное (категория книг)
->>Строительство и ремонт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191767.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге содержатся практические советы и рекомендации по отделке и ремонту жилых домов и квартир своими силами; приведены характеристики отделочных материалов, инструментов и приспособлений, даны советы по устранению дефектов поверхностей и ремонту поврежденных участков. Из книги можно узнать, как устроить перегородки, подобрать обои, облицевать плитками стены, оборудовать (   Читать дальше...   )Жанр: Строительство, ремонтФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A78322BBFC1FB3F7C4A8B4454B3B19EECF1ADAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582862   (191678) от 03.11.2022
-
-Сборник | Книги по строительству [12 книг] (2010-2015) [PDF] [Обновляемая]
-
->>Разное (категория книг)
->>Строительство и ремонт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191678.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Бадьин Г. М. - Строительство  и  реконструкция  малоэтажного  энергоэффективного дома, 2011 + CD-ROM
-2. Зарубина Л. П. - Устройство полов. Материалы и технологии, 2011
-3. Бадьин Г. М., Сычев С.А. - Современные технологии строительства и реконструкции зданий, 2011
-4. Зарубина Л. П. - Теплоизоляция зданий и сооружений. Материалы и технологии. 2-е изд., 2012(   Читать дальше...   )Жанр: СтроительствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E266C098867FE24BF5F3B9F204B0B4C9127D072
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663090   (187002) от 20.09.2023
-
-Игорь Резько | Евроремонт. Практический справочник домашнего мастера (2011) [PDF]
-
->>Разное (категория книг)
->>Строительство и ремонт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы решили сделать в квартире ремонт своими руками? Тогда эта книга – именно то, что вам нужно! Здесь отражены все этапы ремонта дома, начиная с перепланировки и заканчивая дизайнерскими «штучками» по украшению вашего жилища. В книге содержатся исчерпывающие сведения о материалах, инструментах, современных технологиях, даны дельные советы по ремонту потолка, стен, (   Читать дальше...   )Жанр: Строительство, ремонтИздательство: ХарвестФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC3B2039DCCA106A3253FDF584DEBEF70660B02E
 ```
 
 https://mybot314.ru/tekegram_catalog/

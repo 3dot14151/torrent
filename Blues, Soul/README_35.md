@@ -6,7 +6,7 @@ Bob Lanza Blues Band - From Hero to Zero (2015) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219059.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Fiona Boyes - Box & Dice (2015) [MP3|320 кб/с] <Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218947.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Dalannah Gail Bowen - Looking Back (2019) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_218180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218180.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Eric Mcfadden - Does ACDC (Acoustic Tribute) (2018) [MP3|320 Kbps] <Blues, Blues
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217499.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Christmas Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216101.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Muddy Manninen - River Flows (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215027.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Marc Ford & The Neptune Blues Club - The Vulture (2016) [MP3|320 Kbps] <Blues, B
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214692.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Randall Bramblett - Pine Needle Fire (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213642.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Natural Blues - I Can’t Breathe (2020) [MP3|320 Kbps] <Blues/Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213633.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Dennis Siggery & Neil Sadler - Testify (2023) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207402.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Moon BB Band - Collection (2018-2022) 3CD  [MP3|320 Kbps] <Blues, Jazz, Easy Lis
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207387.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Savoy Brown - Blues All Around (2023) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207193.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Joe Bonamassa - Road To Redemption (2022) EP [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204817.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Marvin Gaye - Let's Get It On (1978) 5CD, Deluxe Edition, 2023, Motown [MP3|320 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204290.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Azula Queen Quartet - Blues Sem Fronteiras (2023) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203354.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Joe Louis Walker - Weight of the World (2023) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202660.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Hugo Race ft. Michelangelo Russo - John Lee Hooker's World Today (2017) [MP3|320
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195680.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Winter Blues 2023 (2022) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189995.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Brian Grey - Collection (2021-2022) 9CD [MP3|320 Kbps] <Blues, Rock, Bluegrass>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186562.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Akella Presents - vol.209 - Blues-Rock Live!(2CD) (2019) [MP3|320 Kbps] <Bl
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185104.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Blues Company - Take the Stage (2020) Live [MP3|320 Kbps] <Rock Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184992.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ King King - Maverick (Deluxe) (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183375.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Max Merritt - I Can Dream (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181369.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Blues Masters (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180034.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ VA - Modern Blues (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180029.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ Will Jacobs, Ally Venable, Ashley Sherlock - Blues Caravan 2023 (2023) [MP3|320 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179468.jpg" />
 </div>
 
 

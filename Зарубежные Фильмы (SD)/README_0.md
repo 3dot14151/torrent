@@ -1,3 +1,107 @@
+###  Публикация: 1873827   (1071376) от 30.05.2026
+
+Русалка / Mermaid (2025) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Даг — погрязший в долгах и зависимостях неудачник из Флориды, которого только что уволили с работы. В момент полного отчаяния он находит на побережье раненую русалку. Спрятав существо в своём полуразвалившемся доме, Даг начинает выхаживать её, но забота быстро перерастает в опасную одержимость. Когда о русалке узнают жестокие дельцы, Дагу приходится пойти на всё, (   Читать дальше...   )Производство: США / Bad Grey, Pilot Moon Films, Candy PicturesЖанр: ужасы, боевик, триллер, комедияРежиссер: Тайлер КорнакАктеры: Джонни Пембертон, Эйвери Потемри, Нэнси МакКрамб, Роберт Патрик, Тайлер Райс, Кевин Нилон, Кирк Фокс, Кевин Данн, Том Арнольд, Джулия ЛарсонПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, английскийСубтитры: русские (full - AI), английские (full, SDH)Продолжительность: 01:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04F7CE2D8B46D804376F4C0F0A5D8449C8FDD7D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1873610   (1071283) от 29.05.2026
+
+Странник / Homo Faber (1991) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация романа Макса Фриша «Homo Фабер»... Уолтер Фабер не может долго оставаться на одном месте и, можно сказать, одержим постоянным перемещением, сменой мест. Он приближается к тому отрезку жизни перед старостью, который принято называть "возраст средних лет". Черно-белая ретроспекция используется для того, чтобы передать воспоминания Фабера о студенческих (   Читать дальше...   )Производство: Германия, Франция, Великобритания, Греция / Action Films, Биоскоп Фильм, Stefi 2Жанр: драма, мелодрама, экранизацияРежиссер: Фолькер ШлёндорфВ ролях: Сэм Шепард, Жюли Дельпи, Барбара Зукова, Дитер Кирхлехнер, Трэйси Линд, Деборра-Ли Фёрнесс, Аугуст Цирнер, Томас Хайнце, Билл Данн, Петер БерлингПеревод: профессиональный многоголосый (ОРТ), любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские (imvolk-13), английскиеПродолжительность: 01:53:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DC62C2553A48B1245566F574A6E3DF1DE807885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1873722   (1071196) от 29.05.2026
+
+4.3.2.1 / 4.3.2.1. (2010) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071196.jpg" />
+</div>
+
+
+###  Подробнее
+
+4.3.2.1 - 4 девушки, 3 дня, 2 города, 1 шанс... Джоанн работает в супермаркете; Кассандра стремится в Нью-Йорк, чтобы встретиться с другом из Интернета; Кэррис борется за права женщин, а Шэннон направляется на встречу с отцом. Но сама судьба сталкивает их отдельные миры и друг друга. У девушек всего три дня, которые они никогда не забудут и два города, которые они (   Читать дальше...   )Производство: Великобритания, Atlantic Swiss Productions, Retro-juice Productions...Жанр: комедия, криминал, триллерРежиссер: Ноэль Кларк, Марк ДэвисАктеры: Эмма Робертс, Ноэль Кларк, Тэмзин Эджертон, Офелия Ловибонд, Шаника Уоррен-Мерленд, Джейкоб Андерсон, Адам Дикон, Эшли Томас, Николас Бриггс, Натали БриттонПеревод: дублированный, любительский двухголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:56:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:156BACA1E3DD0D7B0BAF8A3527BFF6F8FFA24E94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1873301   (1071167) от 27.05.2026
+
+Девятые врата / The Ninth Gate (1999) BDRip [H.264] [Remastered]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дин Корсо, один из лучших специалистов по поиску, оценке и скупке раритетных изданий, принимает от владельца крупнейшей в мире библиотеки оккультных книг необычный, но крайне выгодный заказ: определить подлинность венца собрания, фолианта XVII века под названием «Девять врат в царство призраков», с помощью которого, по преданию, можно вызвать самого Люцифера. Ему (   Читать дальше...   )Производство: Франция, Испания, США / Artisan Entertainment, Bac Films, Canal+ España, Canal+Жанр: триллер, детектив, фэнтезиРежиссер: Роман ПоланскиАктеры: Джонни Депп, Фрэнк Ланджелла, Лена Олин, Эмманюэль Сенье, Барбара Джеффорд, Джек Тейлор, Хосе Лопес Родеро, Тони Амони, Джеймс Руссо, Уилли ХолтПеревод: Дублированный (Мосфильм), многоголосый профессиональный (НТВ), двуголосый профессиональный (R5 Мьюзик-Трейд, НТВ+), авторский (Д.Есарев)Язык озвучки: Русский, английскийСубтитры: Русские, английские (Full, SDH)Продолжительность: 02:13:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64CD478DF6F479F698C228D5C3402FC7D1670262
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1873415   (1071058) от 28.05.2026
 
 Совещательная комната / La camera di consiglio (2025) WEB-DLRip [H.264] [MVO]
@@ -6,7 +110,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071058.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071041.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070949.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070927.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070887.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070751.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070727.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070578.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070502.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070499.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070468.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070375.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070353.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070246.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070147.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070036.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069879.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069819.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069794.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069786.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069723.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069670.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CDD739A5ECD5BE4952A25E5053CF907E9C44311
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871357   (1069542) от 16.05.2026
-
-Офисное пространство / Office Space (1999) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Питер Гиббонс после неудачного сеанса гипноза становится человеком с поменявшимися жизненными взглядами. Его новая философия — «забей на работу». Если он и показывается теперь в офисе, то только для того, чтобы играть в компьютерные игры, нарушать внутренний распорядок, а также говорить своему боссу, куда тому следует засунуть свои идиотские распоряжения. Но подобные (   Читать дальше...   )Производство: США / 20th Century Fox Film Corporation, 3 Arts Entertainment, Cubicle Inc.Жанр: комедия, криминалРежиссер: Майк ДжаджАктеры: Рон Ливингстон, Дженнифер Энистон, Дэвид Херман (I), Аджай Найду, Дидрих Бадер, Стивен Рут, Гэри Коул, Ричард Рили, Александра УэнтуортПеревод: профессиональный многоголосый (R5; 1 канал), профессиональный двухголосый (Лазер Видео; Goodtime Media Trash HD)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:29:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2559E1F3322696B477CBD41E0E9F330DA07FEC11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870958   (1069497) от 14.05.2026
-
-Сеть Марианы / The Mariana's Web (2025) WEBRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Днём Фоско работает на ферме и ухаживает за коровами, а по ночам сидит на сайте знакомств. Он начинает переписываться с загадочной Марианой: дерзкой, раскрепощённой и, судя по фото, очень привлекательной. Их откровенный флирт принимает неожиданный оборот, когда Мариана присылает Фоско подарок — VR-очки. Благодаря мощному гаджету он попадает в её виртуальный мир, (   Читать дальше...   )Производство: Филиппины / See Thru Pictures, Singularities Film ProductionЖанр: ужасы, фантастика, триллерРежиссер: Марко КальвизеАктеры: Рубен Мария Сорикес, Алекса Окампо, Люка Бьяджини, Кристина Ночи, Андреа Дугони, Азия Галеотти, Валентина Пинка, Кристин ВильяресПеревод: Профессиональный многоголосыйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:23:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:598ED3F1A23C1873BBEA3A78FCD9FFEC2ACA4722
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871241   (1069368) от 16.05.2026
-
-Любовь с того света / L'Ame ideale / The Ideal Soul (2025) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сорокалетняя Эльза давно смирилась с одиночеством. Отношения не складываются из-за её пугающего дара видеть призраков. Однако знакомство с обаятельным Оскаром пробуждает в ней угасшую надежду и заставляет поверить в то, что некоторые истории любви не умирают.Производство: Франция / Les Films entre 2 et 4, Gaumont, TF1 Films Production, TF1Жанр: драма, мелодрама, комедияРежиссер: Алис ВьяльАктеры: Джонатан Коэн, Магали Лепин Блондо, Флоранс Янас, Жан-Кристоф Фолли, Анн Бенуа, Софьян Герраб, Афида Тахри, Эрик Наггар, Нина Абутаджедин, Франсуа КретонПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, французскийСубтитры: русские (full - AI), французские (full, SDH)Продолжительность: 01:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31373F586FCD509DA13FCC497908AECB07A1BFBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871062   (1069347) от 15.05.2026
-
-Мы умрем сегодня ночью / We Die Tonight (2025) WEBRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда в магазин врываются окровавленные мужчина и женщина, умоляющие о помощи, сотрудники решают помочь им и запирают все двери. Снаружи — жестокая банда, требующая выдать беглецов. Однако чем дольше длится осада, тем яснее становится: спасённые тоже что-то скрывают. Их история не так проста, а их тайны угрожают не только им, но и всем, кто решил их защитить.Производство: Швеция / Rock Hammer Films, Nordic UnitedЖанр: триллер, боевик, криминалРежиссер: Ричард ХолмАктеры: Аманда Линд, Кристиан Магду, Кристоффер Йонер, Эмилия Русманн, Клара Христианссон, Джонатан Фредрикссон, Иа Лангхаммер, Кардо Радзаци, Эмиль Алмен, Маттеус СливоПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:28:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:777CE806CFF995472664BBA74BA700B4091CDEBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

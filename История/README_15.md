@@ -6,7 +6,7 @@
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625261.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624934.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624656.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624383.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622797.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621881.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619607.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618849.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ BBC: Тюдоровский рождественский пир / A Tudor Feast 
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618546.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616893.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ BBC: Колониальный Дом [8 из 8] / Colonial House (2004) TVRip
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616724.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616342.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616071.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614317.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Viasat History. Викинги / Vikings [серии 1-5 из 5] (2014) SATRip
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613742.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611779.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611442.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608793.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608398.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607514.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607163.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ NG. Сокровища Тутанхамона / Tut's Treasures: Hidden Secrets 
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606771.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ U-455. Тайна пропавшей субмарины / U 455 Le Sous-Marin Di
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605573.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603891.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603887.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603582.jpg" />
 </div>
 
 

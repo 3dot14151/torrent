@@ -1,3 +1,55 @@
+###  Публикация: 1500908   (839700) от 07.10.2021
+
+Первая брачная ночь / La mariee est trop belle (1956) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прекрасная Бриджит Бардо играет Шу-Шу — юную парижанку, которая, благодаря стечению обстоятельств, делает головокружительную карьеру успешной фотомодели для журналов мод. Фото-сессии и киносъемки рекламных роликов идут каждый день. В паре с ней постоянно работает юноша Патрис, такой же как и она, баловень судьбы. Редактор журнала Мишель явно симпатизирует Шу-Шу и (   Читать дальше...   )Производство: Франция, Generale de Films, Socit Nouvelle Path CinmaЖанр: мелодрама, комедияРежиссер: Пьер Гаспар-ХьюиАктеры: Брижит Бардо, Мишлин Прель, Луи Журдан, Марселль Арнольд, Роже Дюма, Люсьен Хьюберт, Мадлен ЛамбертПеревод: профессиональный многоголосый (Film Prestige)Язык озвучки: русский, французскийСубтитры: русские, французские, английскиеПродолжительность: 01:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79E9DC4C494FB7F1B152228F2D19DA42C22809E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111223   (839411) от 10.03.2017
+
+Че Гевара / El «Che» Guevara (1968) HDTV [H.264/1080i-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839411.jpg" />
+</div>
+
+
+###  Подробнее
+
+50 миллионов боливаров обещало правительство Боливии за голову революционера, выдающегося борца за свободу и социальную справедливость Эрнесто Че Гевары. На его поимку, на разгром небольшого партизанского отряда, которым он командовал, были брошены отборные, особо обученные войска… Авторы фильма рассказывают о последнем, самом драматическом периоде жизни Че Гевары, (   Читать дальше...   )Производство: Италия / InducineЖанр: Драма, БиографияРежиссер: Паоло ХеушАктеры: Франсиско Рабаль, Джон Айрленд, Сузанна Мартинкова, Ховард Росс, Андреа Кекки, Джакомо Росси Стюарт, Гуидо Лоллобриджида, Хосе Торрес, Лекс Монсон, Пьеро МорджаПеревод: Многоголосый закадровый, профессиональный (Первый канал)Продолжительность: 01:31:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE045D3CC2D66E3FC50461424E5896E51983B8B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003801   (839297) от 05.04.2016
 
 Побег из Шоушенка / The Shawshank Redemption (1994) BDRip [H.265/1080p]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839297.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838920.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838861.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838302.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837915.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837829.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837748.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837319.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836401.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836291.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836290.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835635.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835098.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834661.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834539.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834145.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833190.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833083.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832916.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832749.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832603.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832572.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832350.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831817.jpg" />
 </div>
 
 
@@ -627,60 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:642F50B1CDFFE901145CF27B8771E193606431B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110932   (831757) от 15.03.2017
-
-Бремя страстей человеческих / Of Human Bondage (1934) WEB-DLRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831757.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основу этой картины лёг одноимённый роман Уильяма Сомерсета Моэма, который был написан в 1915 году. Фильм рассказывает историю любви и жизненных скитаний сироты по имени Филип Кэри, рано лишившегося родительской заботы и ласки. Филип мучительно ищет свое призвание и пытается понять — в чем же состоит смысл жизни. Он влюбляется в женщину лёгкого поведения и ему (   Читать дальше...   )Производство: США, Radio Pictures (II)Жанр: Драма, МелодрамаРежиссер: Джон КромвельАктеры: Лесли Говард, Бетт Дэвис, Фрэнсис Ди, Кэй Джонсон, Реджинальд Денни, Алан Хейл, Реджинальд Шеффилд, Реджинальд Оуэн, Десмонд Робертс, Чарльз КоулмэнПеревод: Многоголосый закадровыйПродолжительность: 01:23:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C07F574F9A5E3D39707994F059B104709371D072
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499804   (831658) от 12.10.2021
-
-Вдова Кудер / La veuve Couderc (1971) BDRemux [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франция. 1934 год. Молодой человек идет по дороге. Его зовут Жан. Кто он и откуда пришел, не известно. Жан видит маленькую ферму и решает остановиться.
-Хозяйка, вдова Кудер, предлагает ему кров, стол и работу. Ей нравится Жан, и она довольна новым знакомством.
-Единственное, с чем она не согласна мириться – это визиты потаскушки Фелисии. Но Жан не интересуется мнением (   Читать дальше...   )Производство: Франция, Италия / Lira Films, Pegaso CinematograficaЖанр: драма, мелодрамаРежиссер: Пьер Гранье-ДеферАктеры: Ален Делон, Симона Синьоре, Оттавия Пикколо, Жан Тиссье, Моник Шометт, Боби Лапуант, Жан-Пьер Кастальди, Пьер Колле, Робер Фавар, Андре РуйеПеревод: Многоголосый профессиональный, двуголосый профессиональныйСубтитры: русские, английские, французские (SDH)Продолжительность: 01:29:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2216478D8B20A7FBFA400BBE1172A65DC406DAA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

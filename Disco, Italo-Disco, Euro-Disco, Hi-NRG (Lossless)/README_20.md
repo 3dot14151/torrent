@@ -1,3 +1,119 @@
+###  Публикация: 1186689   (284243) от 26.11.2017
+
+Martinelli - Voices (1987) Compilation, Unofficial [APE|Lossless|image + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_284243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cinderella (7:48)
+02. Voice (In The Night) (8:41)
+03. Summer Lover (5:45)
+04. Orient Express (6:52)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:17:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0225034460C54D0A2644430FD602A82BC780A3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337385   (274802) от 10.11.2019
+
+VA - Another Side of Mike Mareen Part Two (2016) Italo Box Music, 2019, Remastered [FLAC|Lossless|image + .cue] <Euro-Disco, Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amadeus Liszt - The Devil Wins (Maxi Version) (5:56)
+02. Laurent Antony - Flies (Remix) (4:42)
+03. DJ's Project - Vision of Love (Maxi Version) (7:49)
+04. Gayle Robertson - Africa (Maxi Version) (5:27)(   Читать дальше...   )Жанр: Euro-Disco, Italo-Disco, Synth-popПродолжительность: 01:18:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:460ED1B829C8894F07A3C062F1A1F7DCB2911B11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337382   (274752) от 10.11.2019
+
+VA - Another Side of Mike Mareen Part One (2016) Italo Box Music, 2019, Remastered [FLAC|Lossless|image + .cue] <Disco, Euro-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Optimal - Monoton (Maxi Version) (8:31)
+02. DJ's Project - How Are You (Maxi Version) (7:36)
+03. Rocco Caruso & Children's Voice - Tirami Su (Maxi Version) (6:16)
+04. Luisa - Parole (Maxi Version) (7:28)(   Читать дальше...   )Жанр: Disco, Euro-Disco, Synth-popПродолжительность: 01:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:875E85ABDC533E96C014C63C412C5FAA2BC6972C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337387   (274620) от 10.11.2019
+
+VA - Another Side of Mike Mareen Part Three (2016) Italo Box Music, 2019, Remastered [FLAC|Lossless|image + .cue] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Mareen - Love-Spy (The Badman-Mix) (6:29)
+02. Shipra - Blinded by the Light (Maxi Version) (6:03)
+03. DJ's Project - Birthday Girl (DJ-Dance-Mix) (6:09)
+04. Andy Anderson - Golden Hits of Soulful Dynamics (Alternative Maxi Version) (6:45)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:18:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADC948900FEA83F45B9694365581A9D30F97320B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 311382   (270824) от 01.12.2018
 
 Ken Wilbard - You're Burning (1977) [FLAC|Lossless|tracks]<Pop, Disco>
@@ -6,7 +122,7 @@ Ken Wilbard - You're Burning (1977) [FLAC|Lossless|tracks]<Pop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270824.jpg" />
 </div>
 
 
@@ -36,7 +152,7 @@ VA - Another Side Of Fancy Part Two (2014) 2CD, Remastered [FLAC|Lossless|image 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269768.jpg" />
 </div>
 
 
@@ -65,7 +181,7 @@ Video Kids - On Satellite (2011) Unofficial Release [FLAC|Lossless|image + .cue]
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268382.jpg" />
 </div>
 
 
@@ -94,7 +210,7 @@ Mike Mareen - Greatest Hits & Remixes (2017) 2CD [FLAC|Lossless|image + .cue] <I
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268251.jpg" />
 </div>
 
 
@@ -123,7 +239,7 @@ VA - Italoconnection: Remixes Vol. 2 (2018) [FLAC|Lossless|image + .cue] <Italo-
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264272.jpg" />
 </div>
 
 
@@ -152,7 +268,7 @@ VA - Italo Golden Classics (2 CD) (1996) [FLAC|Lossless|image + .cue] <Italo Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263767.jpg" />
 </div>
 
 
@@ -181,7 +297,7 @@ VA - ZYX Italo Disco Spacesynth Collection (2014) 2CD, Compilation [FLAC|Lossles
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262893.jpg" />
 </div>
 
 
@@ -210,7 +326,7 @@ VA - ZYX Italo Disco New Generation Vol. 15 (2019) 2CD, Compilation [FLAC|Lossle
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262622.jpg" />
 </div>
 
 
@@ -239,7 +355,7 @@ VA - ZYX Italo Disco Spacesynth Collection 2 (2015) 2CD, Compilation [FLAC|Lossl
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262615.jpg" />
 </div>
 
 
@@ -268,7 +384,7 @@ VA - ZYX Italo Disco Spacesynth Collection 3 (2017) 2CD, Compilation [FLAC|Lossl
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262314.jpg" />
 </div>
 
 
@@ -297,7 +413,7 @@ Aurum Project - Can't Fight This Feeling (2025) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_261342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261342.jpg" />
 </div>
 
 
@@ -326,7 +442,7 @@ VA - Tribute in Bossa To The Beatles (2010) [FLAC|Lossless]<Pop, Bossa>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259125.jpg" />
 </div>
 
 
@@ -361,7 +477,7 @@ Lian Ross - V (2025) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258024.jpg" />
 </div>
 
 
@@ -390,7 +506,7 @@ Discobonus - Different Shores (2020) [FLAC|Lossless|tracks + .cue] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255672.jpg" />
 </div>
 
 
@@ -419,7 +535,7 @@ Marc Fruttero - Eagles (2025) Limited Edition [FLAC|Lossless|tracks] <Italo-Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251735.jpg" />
 </div>
 
 
@@ -448,7 +564,7 @@ Matia Bazar - Fantasia (Best & Rarities) (2CD) (2011) [FLAC|Lossless]<Italo-pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_251000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251000.jpg" />
 </div>
 
 
@@ -483,7 +599,7 @@ Lian Ross - 4You (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244799.jpg" />
 </div>
 
 
@@ -512,7 +628,7 @@ Kaioh - Emotional Fire (2021) [FLAC|Lossless|tracks] <Eurobeat>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242534.jpg" />
 </div>
 
 
@@ -541,7 +657,7 @@ Fred Ventura - Rewind Of Change (Italoconnection Reworks) (2023) EP [FLAC|Lossle
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_241026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241026.jpg" />
 </div>
 
 
@@ -570,7 +686,7 @@ Linda Jo Rizzo - Forever (2023) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235924.jpg" />
 </div>
 
 
@@ -599,7 +715,7 @@ Giorgio Moroder - From Here To Eternity / E=MC2 (1977, 1979) Reissue, Remastered
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235663.jpg" />
 </div>
 
 
@@ -626,7 +742,7 @@ Cerrone - A Part of You (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235565.jpg" />
 </div>
 
 
@@ -640,122 +756,6 @@ Cerrone - A Part of You (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5BBC3395ECC96DC4E0CDB90A180DBDBA6B97868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644853   (233604) от 07.07.2023
-
-Donna Summer - Another Place and Time (1989) Deluxe, 2023, Driven By The Music [FLAC|24/44.1|WEB-DL|tracks] <Disco, Eurodance, Europop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don't Wanna Get Hurt (3:28)
-02. When Love Takes over You (4:13)
-03. This Time I Know It's for Real (3:39)
-04. The Only One (3:55)(   Читать дальше...   )Жанр: Disco, Eurodance, EuropopПродолжительность: 01:49:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EE56B7FBD7DD6E4B4B87EE9BBF04BF75240FDA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268078   (229392) от 09.12.2018
-
-Fancy - D.I.S.C.O. (1999) [FLAC|Lossless|image + .cue] <Euro-Disco, Eurodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.D.I.S.C.O. (Lust For Life) 3:32
-02.How Do You Feel Right Now 3:55
-03.Japanese Girl 3:14
-04.When Clowns Cry 3:51(   Читать дальше...   )Жанр: Euro-Disco, EurodanceПродолжительность: 00:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D223E415F68D12ABC4AFC8B872187E9CAB6C4781
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512796   (229113) от 26.11.2021
-
-Lordi - Lordiversity: Superflytrap (2021) [FLAC|Lossless|WEB-DL|tracks] <Disco, Hard Rock>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SCG Minus 6: Delightful Pop-Ins
-02. Macho Freak
-03. Believe Me
-04. Spooky Jive(   Читать дальше...   )Жанр: Disco, Hard RockПродолжительность: 00:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40E584FC0F221FBA7106AEB56102B5471572CC0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423877   (229016) от 16.11.2020
-
-New Baccara - F.U.N. (1990) Japanese Edition [FLAC|Lossless|tracks + .cue] <Euro-Disco, Euro-Pop, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. F.U.N. (4:57)
- 02. Say A Little Prayer (3:43)
- 03. Without You (4:44)
- 04. Are You Alone Tonight (3:53)(   Читать дальше...   )Жанр: Euro-Disco, Euro-Pop, SynthpopПродолжительность: 00:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D95360B63A5BCD6B5E3996CD143154E5EB089BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1240664   (524383) от 12.08.2018
+
+Подарите мне аэроплан! (2017) SATRip (2 серии из 2)
+
+>>Документалистика и Телепередачи
+>>Авиация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что заставило молоденьких барышень из приличных семей, выпускниц института благородных девиц, богатых, образованных и красивых, из всех нарядов, которые им предлагала изощренная мода начала ХХ века, выбрать аскетичную кожанку авиатриссы? Рискуя жизнью, они парили в небе на изящных, но несовершенных аэропланах, и восхищенной публике на земле это казалось миражом. (   Читать дальше...   )Производство: Россия, ООО «ТВ СТУДИЯ АВГУСТ»Жанр: Документальный, авиация, биография, историяРежиссер: Сергей. ГоловецкийПродолжительность: 2 х ~ 00:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2FB3785A17D7BF5686216111DD91E984C3AA0B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1313410   (524335) от 08.07.2019
 
 Последний штурмовик (2019) HDTVRip [H.264/1080p-LQ]
@@ -6,7 +32,7 @@
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524335.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515883.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515459.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514841.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512869.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512860.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511744.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511624.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509863.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508852.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499394.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498815.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497519.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485949.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483955.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482961.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482691.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468666.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468448.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454426.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448954.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448295.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439607.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435827.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435496.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F665B02E1D15C11F4893FD391F2D4E4EB910EA03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 645622   (428823) от 12.10.2015
-
-Тайна гибели самолета «Максим Горький» (2000) TVRip
-
->>Документалистика и Телепередачи
->>Авиация
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самолетов, подобных Максиму Горькому, не было нигде в мире. 18 мая 1935 года этот самолет-гигант взорвался в воздухе, став братской могилой для 49 человек, находившихся в тот момент на его борту. В те времена на самолетах не было самописцев, именуемых черными ящиками. Причиной аварии было объявлено: воздушное хулиганство летчика-испытателя Николая Благина, летевшего (   Читать дальше...   )Жанр: ДокументальныйПродолжительность: 00:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC623738EA9CCDCBA33BCB2C1FC7935774894A08
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ R-Studio Network / Technician 9.5 Build 191671 RePack (& Portable) by Dodakaedr 
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051025.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AOMEI Backupper Technician Plus 8.1.0 Full (Repack & Portable) by elchupacabra [
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051024.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AOMEI Backupper Technician Plus 8.1.0 Lite (Repack & Portable) by elchupacabra [
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050988.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AOMEI Backupper Technician Plus 8.1.0 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048700.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ AOMEI Backupper Technician Plus 8.1.0 RePack by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048580.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ DiskDigger 2.0.13.4139 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047081.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ O&O DiskImage Professional 21.2.207 RePack by elchupacabra [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046663.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ R-Studio Network 9.5 Build 191648 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046608.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ R-Studio Network 9.5 Build 191648 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046569.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ R-Studio Network Technician 8.15 Build 180125  [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042639.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ MiniTool Power Data Recovery Business Technician 9.2 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037676.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Active Disk Image Professional 10.0.3 [Multi/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037640.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Wondershare Recoverit Premium 11.0.0.13 [x64] [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033071.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Acronis True Image 2020 Build 38530 RePack by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031012.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Resilio Sync v 2.7.2.1375 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030822.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ CardRecovery 6.30 Build 0216 RePack (& Portable) by elchupacabra [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030365.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ R-Drive Image 6.3 Build 6309 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029865.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ R-Drive Image 6.3 Build 6309 + BootCD [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029127.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Transcend RecoveRx 4.2 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028801.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Macrium Reflect v 7.3.5672 x64 Server Plus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027798.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ CardRecovery 6.10 Build 1210 [MULTi + Русский]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999475.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ SyncBackPro 6.3.7.0 [Multi / Русский]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989903.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Paragon Migrate OS to SSD 4.0 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986498.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Seagate DiscWizard 2019.22800 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980823.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Ontrack EasyRecovery Technician 14.0.0.0 RePack (& Portable) by elchupacabra [Mu
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956586.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Active Data Studio 15.0.0.1 + BootCD [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953888.jpg" />
 </div>
 
 

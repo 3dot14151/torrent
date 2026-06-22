@@ -6,7 +6,7 @@
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104918.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104473.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Organic Loops - Rock Hip Hop Guitars And Bass [Wav|Rex][английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102673.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101719.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101679.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101619.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100939.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100905.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100797.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94601.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94536.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91211.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91152.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ ReFX Nexus 2 - 2011 Presets Pack [FXB|NXP][английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88933.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88729.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Organic Loops - Real Strings Vol. 2 Disco Strings by Pete Whitfield (Wav | Rex2 
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87631.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Organic Loops - Live Dubstep Strings (Wav|Rex2) by KRock-Studio[английск
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87593.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ MIDI Pack - Collection ONE Part 6 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86848.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ MIDI Pack - Collection ONE (MIDI) Part 1 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86839.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ MIDI Pack - Collection ONE (MIDI) Part 3 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86809.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ MIDI Pack - Collection ONE (MIDI) Part 2 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86804.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ MIDI Pack - Collection ONE (MIDI) Part 4 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86783.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ MIDI Pack - Collection ONE Part 5 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86777.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ MIDI Pack - Collection TWO Part 1 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86580.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ MIDI Pack - Collection TWO Part 4 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86549.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ MIDI Pack - Collection TWO Part 2 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86547.jpg" />
 </div>
 
 

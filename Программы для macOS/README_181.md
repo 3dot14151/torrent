@@ -1,3 +1,109 @@
+###  Публикация: 1704365   (114331) от 04.03.2024
+
+Reader for Mac 5.8 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Reader — это быстрая и минималистичная программа просмотра PDF с мощными элементами управления.
+Это полная версия Reader, которая включает в себя базовые аннотации, включая выделение и написание желтых заметок.Тип издания: macOS SoftwareРелиз состоялся: 26.02.2024Разработчик: © 2024 The Augmented Text Company LTDПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1B9A6C313E8B0CC8D0740E702FB645F9B8F5433
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704514   (114330) от 04.03.2024
+
+Data Extractor 1.9.2 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Data Extractor позволяет извлекать данные, содержащиеся в текстовых документах, и собирать их во внутренней организованной таблице с полями и записями.
+Он может анализировать все указанные вами текстовые файлы. Проанализировав их, понять по текстовым тегам, что извлечь и куда это поместить. Data Extractor преобразует хаотические данные в один организованный элемент (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.03.2024Разработчик: © 2024 Roberto PanettaПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7CC152ACD137465788AB3AFA87B4A27E2D01474
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704358   (114325) от 04.03.2024
+
+TunesKit AceMovi Video Editor 4.9.23 [Multi]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114325.jpg" />
+</div>
+
+
+###  Подробнее
+
+TunesKit AceMovi Video Editor может отличаться от множества подобных приложений для редактирования видео на рынке, главным образом, благодаря простому и интуитивно понятному интерфейсу, а также множеству мощных функций. С помощью этого программного обеспечения вы можете легко создавать высококачественные видео на Mac, независимо от того, являетесь ли вы профессионалом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.02.2024Разработчик: © 2024 TunesKitПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EE3931C68FCE7224C7D40727A02E3AB5C07A368
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704473   (114313) от 04.03.2024
+
+MetaRename for Mac 1.0.10 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114313.jpg" />
+</div>
+
+
+###  Подробнее
+
+MetaRename — это удобный инструмент для фотографов и видеооператоров, которым необходимо регулярно управлять обширными коллекциями файлов. Используя MetaRename, вы можете легко переименовывать и упорядочивать свои фотографии и видео на основе метаданных, таких как модель камеры, дата съемки и местоположение, что упрощает поиск нужных файлов, когда они вам нужны.Тип издания: macOS SoftwareРелиз состоялся: 03.03.2024Разработчик: © 2012-2024 Jérémy VizziniПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9B8B37DC4B23C43A159630B9074A56786E72E16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704468   (114303) от 04.03.2024
 
 SnapMotion Unlimited for Mac 5.2.1. [Multi]
@@ -6,7 +112,7 @@ SnapMotion Unlimited for Mac 5.2.1. [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114303.jpg" />
 </div>
 
 
@@ -35,7 +141,7 @@ GroupsPro 5.5.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114284.jpg" />
 </div>
 
 
@@ -62,7 +168,7 @@ Easy Data Transform for Mac 1.46.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114181.jpg" />
 </div>
 
 
@@ -88,7 +194,7 @@ MarginNote 3 Pro v.3.7.25 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114161.jpg" />
 </div>
 
 
@@ -115,7 +221,7 @@ iReal Pro 2024.2 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114157.jpg" />
 </div>
 
 
@@ -141,7 +247,7 @@ DxO FilmPack 7 for Mac v.7.5.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114150.jpg" />
 </div>
 
 
@@ -167,7 +273,7 @@ Menuwhere 2.2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114138.jpg" />
 </div>
 
 
@@ -193,7 +299,7 @@ AList Desktop for Mac ARM 3.32.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114135.jpg" />
 </div>
 
 
@@ -219,7 +325,7 @@ DxO ViewPoint 4 for Mac v.4.15.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114122.jpg" />
 </div>
 
 
@@ -246,7 +352,7 @@ AList Desktop for Mac iNTEL 3.32.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114117.jpg" />
 </div>
 
 
@@ -272,7 +378,7 @@ App Cleaner & Uninstaller Pro 8.2.7 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114066.jpg" />
 </div>
 
 
@@ -300,7 +406,7 @@ DxO PhotoLab 6 ELITE Edition 6.15.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114043.jpg" />
 </div>
 
 
@@ -327,7 +433,7 @@ Boinx FotoMagico Pro 6 v.6.5.7 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114025.jpg" />
 </div>
 
 
@@ -354,7 +460,7 @@ A Better Finder Attributes 7 v.7.31 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114005.jpg" />
 </div>
 
 
@@ -380,7 +486,7 @@ Nova 11.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113996.jpg" />
 </div>
 
 
@@ -407,7 +513,7 @@ SimpleMind − Mind Mapping 2.3.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113991.jpg" />
 </div>
 
 
@@ -434,7 +540,7 @@ Navicat for SQL Server on Mac 16.3.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113986.jpg" />
 </div>
 
 
@@ -460,7 +566,7 @@ One Switch 1.34.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113983.jpg" />
 </div>
 
 
@@ -486,7 +592,7 @@ NextChat for Mac 2.11.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113978.jpg" />
 </div>
 
 
@@ -512,7 +618,7 @@ Calendar 366 II 2.15.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113976.jpg" />
 </div>
 
 
@@ -539,7 +645,7 @@ AutoCrypt 2.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113968.jpg" />
 </div>
 
 
@@ -566,7 +672,7 @@ PopChar for Mac 10.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113959.jpg" />
 </div>
 
 
@@ -577,114 +683,6 @@ PopChar for Mac 10.0 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0574D0FE38096E3A2656181CC43D6A2A8B78F875
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705227   (113956) от 07.03.2024
-
-Navicat Data Modeler Essentials for Mac 3.3.17 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat Data Modeler Essentials — это мощный и простой в использовании инструмент проектирования баз данных для создания моделей данных и управления ими. Он поддерживает различные системы баз данных, включая MySQL, MariaDB, Oracle, SQL Server, PostgreSQL и SQLite.
-С помощью Navicat Data Modeler Essentials вы можете легко создавать высококачественные модели данных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.03.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A736549B5BA1CDBC400CE36BF0DC1BE4B7DECB98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705199   (113955) от 07.03.2024
-
-ToothFairy 2.8.4 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113955.jpg" />
-</div>
-
-
-###  Подробнее
-
-ToothFairy - это небольшое приложение позволяет всего лишь одним кликом управлять любым устройством посредством Bluetooth.
-ToothFairy поможет вам перейти от одного выбранного устройства Bluetooth к другому, непосредственно из меню.Тип издания: macOS SoftwareРелиз состоялся: 06.03.2024Разработчик: © 2022 C-Command SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D66AA75BD20A8AABF7810B4626F307B5C66CDEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705036   (113953) от 07.03.2024
-
-Disk Graph 3.0.3 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk Graph - инструмент, который позволяет проверить ваш диск и легко найти файлы, какие занимают большую часть дискового пространства. С его красивым интерфейсом и его подобным кругу графиком, определение местоположения больших файлов никогда не было проще.Тип издания: macOS SoftwareРелиз состоялся: 06.03.2024Разработчик: © 2024 DesairemПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF4E730FB4D7A70A4F2B64095BE3D2F6B84AC395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515732   (113927) от 08.03.2024
-
-Stay 1.4 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы привередливы и стараетесь держать свои окна в порядке, это приложение для вас. Будьте уверены, что ваши окна находятся там, где вы хотите, даже когда вы подключаете и отключаете дисплеи.
-Как это работает?
-Переместите ваши окна туда, где вы хотите их видеть, затем сохраните их. После сохранения окна могут быть возвращены в их первоначальное состояние в любое (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.06.2021Разработчик: © 2021 Cordless DogПоддерживаемая ОС: macOS 10.15.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27A8394D2C33A1AFAC026B6B7AD5B0C0836F066D
 ```
 
 https://mybot314.ru/tekegram_catalog/

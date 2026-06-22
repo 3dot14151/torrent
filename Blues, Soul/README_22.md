@@ -6,7 +6,7 @@ Phantom Blues Band - Inside Out (2011) [MP3|320 кб/с]<Funky Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541401.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Christ Ruest & Gene Taylor - It's Too Late Now (2017) [MP3|320 Kbps] <Chicago Bl
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541050.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Nighttime Lovers Vol.25 (2016) [MP3|320 Kbps] <Electronic, Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540645.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Bar Room Blues: A 12-Track Program (2004) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538674.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Divin' Ducks - 5 albums (1992 - 1998) [MP3|224-320 кб/с]<Hard Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538554.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ The Pentones - Don't Leave Nothin' Behind (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537276.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Wendy Rich - Driver (2015) [MP3|320 кб/с]<Country, Blues Soul, Americana>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537272.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Seasick Steve - Sonic Soul Surfer (2015) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536580.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Trudy Lynn - I'll Sing The Blues For You (2016) [MP3|320 Kbps] <Texas Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535315.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Detroit Blues Band - Real Life (1990) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535303.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ VA - Pillow Talk (2018) [MP3|320 Kbps] <Soul, Boogie, Jazz>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535094.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Shaun Murphy - 4 Альбома (2009-2012) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532427.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ VA - Blues Fusion - Electro Deluxe (2013) [MP3|320 Kbps] <Blues , Downtempo, Chi
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530788.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Jeff Menteer - The Nature of My Dreams (2011) [MP3|256 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529275.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Sly & The Family Stones - Les Genies du Rock - Back On The Right Track (1994) [M
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528759.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ The Shirelles - Les Genies du Rock - Will You Love Me Tomorrow (1993) [MP3|320 �
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528701.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Sam & Dave, Solomon Burke - Les Genies du Rock - Hold On I'm Coming (1993) [MP3|
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528696.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Monti Amundson - Somebody's Happened to Our Love (2006) [MP3|320 Kbps] <Modern E
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525224.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Hurricane Ruth - Born On The River (2014) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523341.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ The Stella Vees - Don't Tell Me Your Name (2015) [MP3|320 кб/с]<Chicago & Wes
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523336.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Jools Holland - Finding The Keys. The Best Of (2011) [MP3|320 kbps]<Blues, Jazz,
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523060.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Big Yuyu - Down South City (2022) [MP3|320 Kbps] <Blues Rock, Classic Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520810.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Hill Country Revue - H C R III (2018) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519285.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Nakia - Blues Grifter (2018) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518423.jpg" />
 </div>
 
 
@@ -712,7 +712,7 @@ Grant Lyle - So There (2012) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517943.jpg" />
 </div>
 
 
@@ -747,7 +747,7 @@ Cathy Jean - In the Remains (2011) [MP3|320 кб/с]<Blues, Modern Electric Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517381.jpg" />
 </div>
 
 

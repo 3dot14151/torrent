@@ -1,3 +1,134 @@
+###  Публикация: 979174   (960810) от 25.01.2016
+
+Ралука / Raluca (2014) DVDRip [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Послужной список Филипа Маролда в полиции подпорчен, и теперь он перебивается частным сыском, выслеживая неверных мужей и жен. Во время очередного (на первый взгляд ординарного) дела, он встречает в баре красивую румынку. Слишком большой любитель женщин, чтобы даже задуматься над случайностью такой встречи, он очертя голову бросается в новую интрижку. Даже не подозревая (   Читать дальше...   )Производство: Чехия / Screenplay ByЖанр: Триллер, Драма, Криминал, ЭротикаРежиссер: Зденек ВиктораАктеры: Ян Долански, Мальвина Пахлова, Давид Новотный, Гелена Дворжакова, Станислав Майер, Кристина Фрейова, Дана Сислова, Радим Шваб, Клара Седлачкова-Олтова, Петр Конаш, Зденек Виктора...Перевод: Одноголосый закадровыйПродолжительность: 01:16:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBFDC9AFC7CAD0848846F2CFE34A2FD0418168ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979140   (960804) от 25.01.2016
+
+Я буду другой / Ich bin die Andere (2006) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Успешный молодой инженер Роберт проводит в отеле незабываемую ночь с таинственной леди в красном. На следующий день они встречаются в юридической фирме, где Каролин работает над контрактом Роберта, но она, кажется, ничего не помнит об их прошлой встрече. Чем больше Роберт проникает в болезненный мир Каролин и темные секреты ее семьи, тем более опасной становится (   Читать дальше...   )Производство: ГерманияЖанр: ДрамаРежиссер: Маргарете фон ТроттаАктеры: Катя Риманн, Армин Мюллер-Шталь, Карин Дор, Аугуст Диль, Бернадетт Хирваген, Барбара Ауэр, Дитер Лазер, Петер Лерхбаумер, Бен Саад, Феликс МюллерПеревод: Любительский одноголосый (Денис Строев)Субтитры: ОтсутствуютПродолжительность: 01:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E44F148503A50901D1F8B4BF985314D358E97DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979251   (960745) от 25.01.2016
+
+Ралука / Raluca (2014) DVDRip [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Послужной список Филипа Маролда в полиции подпорчен, и теперь он перебивается частным сыском, выслеживая неверных мужей и жен. Во время очередного (на первый взгляд ординарного) дела, он встречает в баре красивую румынку. Слишком большой любитель женщин, чтобы даже задуматься над случайностью такой встречи, он очертя голову бросается в новую интрижку. Даже не подозревая (   Читать дальше...   )Производство: Чехия / Screenplay ByЖанр: Триллер, Драма, Криминал, ЭротикаРежиссер: Зденек Виктора / Zdenek ViktoraАктеры: Ян Долански, Мальвина Пахлова, Давид Новотный, Гелена Дворжакова, Станислав Майер, Кристина Фрейова, Дана Сислова, Радим Шваб, Клара Седлачкова-Олтова, Петр Конаш, Зденек Виктора...Перевод: Одноголосый закадровый (женский - Kass)Продолжительность: 01:16:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27BD36DE84DE5DEF80217A77A7662E39025BF0B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 747596   (960717) от 20.01.2014
+
+Любовь и секс на Ибице / Verliefd op Ibiza (2013) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футболист Кевин только что заключил выгодный контракт с мадридским Реалом. Он вряд ли понимает, что делать со свалившимся на него богатством, но его подруга Эльза знает, как Кевин должен тратить свои миллионы... Две 40-летних подруги Джеки и Ирма хотя и проводят отпуск вместе, но имеют разные представления об идеальном отдыхе: Джеки предпочитает тусоваться с молодыми (   Читать дальше...   )Производство: Нидерланды / Farmhouse Film & TV, Johan Nijenhuis & Co, Televisie Radio Omroep Stichting (TROS)Жанр: Мелодрама, КомедияРежиссер: Йохан НийенхейсАктеры: Виллеке ван Аммельрой, Йим Баккум, Рик Энгелкес, Ким Феенстра, Джаспер Готтлиб, Мариус Готтлиб, Кимберли Клавер, Симоне Клейнсма, Ян Коейман, Дэвид ЛюсиерПеревод: Многоголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B991F3AB48F4E038109E230C0969534F47814DAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 747421   (960708) от 20.01.2014
+
+В погоне за счастьем / The Pursuit of Happyness (2006) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крис Гарднер — отец одиночка. Воспитывая пятилетнего сына, Крис изо всех сил старается сделать так, чтобы ребенок рос счастливым. Работая продавцом, он не может оплатить квартиру, и их выселяют.
+Оказавшись на улице, но не желая сдаваться, отец устраивается специалистом в брокерскую компанию. Только и там его доходы далеки от нормальных. Но Крис поклялся себе во чтобы (   Читать дальше...   )Производство: СШАЖанр: ДрамаРежиссер: Габриэле МуччиноАктеры: Уилл Смит, Тэнди Ньютон, Брайан Хау, Джеймс Карен, Дэн Кастелланета, Курт Фуллер, Джейден СмитПеревод: Профессиональный |полное дублирование|Язык субтитров: РусскийПродолжительность: 01:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A66A78F86409A076ED2E0340D0490505AEF12A7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978975   (960655) от 25.01.2016
 
 Темная сторона / Shockwave Darkside (2014) WEB-DLRip
@@ -6,7 +137,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960655.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960652.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960649.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960643.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960614.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960607.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960606.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960604.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960580.jpg" />
 </div>
 
 
@@ -240,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960570.jpg" />
 </div>
 
 
@@ -266,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960558.jpg" />
 </div>
 
 
@@ -294,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960557.jpg" />
 </div>
 
 
@@ -320,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960522.jpg" />
 </div>
 
 
@@ -346,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960513.jpg" />
 </div>
 
 
@@ -372,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960477.jpg" />
 </div>
 
 
@@ -398,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960472.jpg" />
 </div>
 
 
@@ -424,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960414.jpg" />
 </div>
 
 
@@ -450,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960239.jpg" />
 </div>
 
 
@@ -476,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960002.jpg" />
 </div>
 
 
@@ -502,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_959909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_959909.jpg" />
 </div>
 
 
@@ -528,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959749.jpg" />
 </div>
 
 
@@ -540,136 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3785AF2EAEC5CCB260B4B3F24F620EB381D5EA4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 855797   (959724) от 03.01.2015
-
-Синоптик / The Weather Man (2004) HDTVRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэйв Спиртс - один из тех счастливчиков, которым принято завидовать. Популярный ведущий прогноза погоды, он получает приглашение работать в крупном нью-йоркском телешоу. Деньги, признание, отличные перспективы - удача явно на его стороне. Но мысль об этом почему-то больше не греет. Пока «глашатай морозов и дождей» покорял профессиональные вершины, его личная жизнь (   Читать дальше...   )Производство: Германия, СШАЖанр: Комедия, драмаРежиссер: Гор ВербинскиАктеры: Николас Кейдж, Майкл Кейн, Хоуп Дэвис, Джеменн де ла Пенья, Николас Холт, Майкл Рисполи, Джил Беллоуз, Джудит МакКоннелл, Крис Маррс, Дина ФэклисПеревод: Профессиональный многоголосыйПродолжительность: 01:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE43D0EC85642065D99A558E5C8B8F1498A3F277
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979373   (959687) от 26.01.2016
-
-Молитва о рок-н-ролле / Prey for Rock & Roll (2003) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959687.jpg" />
-</div>
-
-
-###  Подробнее
-
-ильм снят по мотивам автобиографического рок-мьюзикла Шери Лавдодж рассказывавшего историю ее жизни в бытность солисткой девичей рок-группы из Лос-Анджелеса. В центре сюжета киноверсии четыре девушки, собравшиеся в рок-группу под названием Clamdancy и мечтающие достигнуть вершин музыкального олимпа. Джина Гершон исполняет в фильме роль вокалистки и одновременно соло-гитаристки (   Читать дальше...   )Производство: USAЖанр: Музыкальный, ДрамаРежиссер: Алекс СтейермаркАктеры: Gina Gershon, Drea de Matteo, Lori Petty, Shelly Cole, Marc Blucas, Ivan Martin, Eddie Driscoll, Ashley Drane, Shakara LedardПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 01:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBD0EE6F3A46BDBFDEEF58D88260FF227A48A1D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 855818   (959577) от 03.01.2015
-
-Люси / Lucy (2014) HDRip [H.264] [AVO]
-
->>След.
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Франция / Canal+Жанр: Боевик, ФантастикаРежиссер: Люк БессонАктеры: Скарлетт Йоханссон, Морган Фримен, Аналей Типтон, Мин Сик Чхве, Амр Вакид, Мэйсон Ли, Йохан Филип Асбек, Фредерик Чау, Клер Трэн, Жан Оливер ШредерПеревод: Авторский (одноголосый, закадровый) А.Ю.ГавриловСубтитры: ОтсутствуютФормат: MKVПродолжительность: 01:29:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9237CB65C5B282BDB46C611F6514662B431A91D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979206   (959389) от 26.01.2016
-
-Этот неловкий момент / Un moment degarement (2015) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два закадычных друга со своими дочерьми проводят отпуск на Ривьере, где на солнечных пляжах в 42-летнего отца семейства влюбляется соблазнительная 18-летняя красотка. Все бы ничего, да только прелестная девушка является дочерью лучшего друга - строгого отца, грозящего пристрелить любого, кто подойдет ближе, чем на шаг, к обожаемой малышке.Производство: Франция, Бельгия / Entre Chien et Loup, La Petite ReineЖанр: Мелодрама, КомедияРежиссер: Жан-Франсуа Рише / Jean-François RichetАктеры: Венсан Кассель, Франсуа Клюзе, Лола Ле Ланн, Алис Исааз, Лука Мельява, Ромейн Апельбаум, Филипп Наон,  Аннелиз Эм...Перевод: ДублированныйПродолжительность: 01:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:057C0F75E75C5FC6E897E56204207CECACBEF00F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979502   (959374) от 26.01.2016
-
-Затмение / Regression (2015) HDRip
-
->>След.
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959374.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ходе расследования дела Анджелы Грей детектив Брюс Киннер вынужден обратиться к психологу для выявления ее подавленных воспоминаний. Сеанс регрессивного гипноза открывает ужасающие факты — по ночам с согласия отца над девушкой проводились сатанинские ритуалы. Желая защитить девушку от преследования зловещего тайного общества, детектив оказывается втянут в пугающий (   Читать дальше...   )Производство: Испания, Канада, FilmNation Entertainment, First Generation Films, HimenpteroЖанр: Ужасы, Триллер, ДетективРежиссер: Алехандро АменабарАктеры: Эмма Уотсон, Итэн Хоук, Дэвид Тьюлис, Девон Бостик, Аарон Эшмор, Дейл Дикки, Давид Денсик, Адам Батчер, Кристиан Бруун, Аарон АбрамсПеревод: Многоголосый закадровый, любительскийОзвучка / Автор перевода: Victory-FilmsПродолжительность: 01:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C1952E101B755AC55F2E0AC63FB4DD4561918C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

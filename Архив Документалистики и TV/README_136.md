@@ -1,3 +1,32 @@
+###  Публикация: 508926   (677471) от 11.06.2012
+
+Футбол. Чемпионат Европы 2012. 1-й тур. Группа C. Испания - Италия (2012) HDTVRip [H.264/720p]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677471.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 июня 2012 года, воскресенье. 20:00 мск
+ Группа C. 1-й тур
+ Гданськ (Польша). Стадион PGE Арена Гданськ.
+ Главный судья: Виктор Кошшои (Татабанья, Венгрия)Жанр: СпортПродолжительность: 00:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05BD1F77139DDF2C6CCE8DFDFD241AB236CCD07D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135708   (677436) от 21.05.2017
 
 Хоккей. Чемпионат мира 2017. Предварительный раунд. Группа B. 7-й тур. Франция – Словения (15.05.2017) WEB-DL
@@ -6,7 +35,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677436.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677434.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677432.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677431.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677429.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677426.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677421.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677418.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677414.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677396.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677300.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677125.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676909.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676846.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676396.jpg" />
 </div>
 
 
@@ -435,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676351.jpg" />
 </div>
 
 
@@ -462,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675457.jpg" />
 </div>
 
 
@@ -489,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675299.jpg" />
 </div>
 
 
@@ -518,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675069.jpg" />
 </div>
 
 
@@ -547,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674910.jpg" />
 </div>
 
 
@@ -576,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674829.jpg" />
 </div>
 
 
@@ -604,7 +633,7 @@ Moto GP. Сезон 2017. HJC Helmets Grand Prix de France. Этап 5. Гонк
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674764.jpg" />
 </div>
 
 
@@ -630,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674592.jpg" />
 </div>
 
 
@@ -659,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674138.jpg" />
 </div>
 
 
@@ -687,7 +716,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673479.jpg" />
 </div>
 
 
@@ -701,35 +730,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82F9578FD727442B95C874E29D75CA051610A6F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223624   (673477) от 05.05.2018
-
-Хоккей. Чемпионат мира 2018. Группа A. Россия — Франция (04.05.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673477.jpg" />
-</div>
-
-
-###  Подробнее
-
-04 мая 2018 года, пятница. 17:15 МСК
-82-й Чемпионат мира по хоккею с шайбой 2018 года
-Группа A. 1-й Тур
-Россия — Франция(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C1A770E5802EE9325AEDCAFA5D883AD1D349FD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

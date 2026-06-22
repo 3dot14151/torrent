@@ -1,3 +1,393 @@
+###  Публикация: 1340881   (263130) от 25.11.2019
+
+Однажды в… Голливуде / Once Upon a Time... in Hollywood (2019) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм повествует о череде событий, произошедших в Голливуде в 1969 году, на закате его «золотого века». Известный актер Рик Далтон и его дублер Клифф Бут пытаются найти свое место в стремительно меняющемся мире киноиндустрии.Производство: Великобритания, США, Китай / Bona Film Group, Heyday Films, Sony Pictures EntertainmentЖанр: Драма, комедияРежиссер: Квентин ТарантиноАктеры: Леонардо ДиКаприо, Брэд Питт, Марго Робби, Эмиль Хирш, Маргарет Куэлли, Тимоти Олифант, Джулия Баттерз, Остин Батлер, Дакота Фаннинг, Брюс ДернПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, full), украинские (Full), английские (Full, SDH)Продолжительность: 02:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A13E9102BB311B2A7E0892382898AB6838285590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192195   (263007) от 17.12.2017
+
+Конверт  (2017) WEB-DLRip [576p] iPad
+
+>>Аудио и Видео
+>>Отечественное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Москва. Наши дни. В архитектурную компанию по ошибке приходит странное письмо. Секретарь, заметив недоразумение, просит водителя Игоря доставить конверт по нужному адресу. С этого момента в его жизни начинают происходить необъяснимые вещи: злосчастный конверт как будто преследует героя, целенаправленно ведя его к таинственному адресату.Производство: РоссияЖанр: Триллер, ужасыРежиссер: Владимир МарковАктеры: Юлия Пересильд, Игорь Лизенгевич, Ольга Медынич, Сергей Барковский, Дмитрий Куличков, Алексей Кирсанов, Диана Енакаева, Варвара Бородина, Станислав Лесной, Вилен БабичевПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:14:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E7CC2581818ED277A8CC520417B4AB7D2332C09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341156   (262891) от 26.11.2019
+
+Стриптизёрши / Hustlers (2019) WEB-DL [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они — яркие, сексуальные и очень амбициозные. Они — танцовщицы элитного стриптиз-клуба, клиенты которого — известные финансисты с Уолл-Стрит. Но когда банковский кризис в одночасье превращает накопления девушек в пыль, подруги по несчастью жаждут отомстить. Они разрабатывают дерзкий план как вернуть потерянные деньги, чтобы снова вести роскошную гламурную жизнь, (   Читать дальше...   )Производство: США / Annapurna Pictures, Gloria Sanchez Productions, Nuyorican Productions, STX FilmsЖанр: Комедия, криминал, драмаРежиссер: Лорин СкафарияАктеры: Констанс Ву, Дженнифер Лопес, Джулия Стайлз, Кеке Палмер, Лили Рейнхарт, Карди Би, Лиззо, Мерседес Рул, Мадлен Брюэр, Метте ТаулиПеревод: Дублированный (iTunes)Субтитры: Aнглийские (Full, SDH)Продолжительность: 01:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8021472C805CF599EDE9E6FC71CBABF2E2A46140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341090   (262878) от 26.11.2019
+
+Стриптизёрши / Hustlers (2019) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они — яркие, сексуальные и очень амбициозные. Они — танцовщицы элитного стриптиз-клуба, клиенты которого — известные финансисты с Уолл-Стрит. Но когда банковский кризис в одночасье превращает накопления девушек в пыль, подруги по несчастью жаждут отомстить. Они разрабатывают дерзкий план как вернуть потерянные деньги, чтобы снова вести роскошную гламурную жизнь, (   Читать дальше...   )Производство: США / Annapurna Pictures, Gloria Sanchez Productions, Nuyorican Productions, STX FilmsЖанр: Комедия, криминал, драмаРежиссер: Лорин СкафарияАктеры: Констанс Ву, Дженнифер Лопес, Джулия Стайлз, Кеке Палмер, Лили Рейнхарт, Карди Би, Лиззо, Мерседес Рул, Мадлен Брюэр, Метте ТаулиПеревод: Дублированный (iTunes)Субтитры: Английские (Full, SDH)Продолжительность: 01:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64633EABA1A5090FDD094012CDB589F4011AECA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341078   (262820) от 26.11.2019
+
+Однажды в… Голливуде / Once Upon a Time... in Hollywood (2019) WEBRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм повествует о череде событий, произошедших в Голливуде в 1969 году, на закате его «золотого века». Известный актер Рик Далтон и его дублер Клифф Бут пытаются найти свое место в стремительно меняющемся мире киноиндустрии.Производство: Великобритания, США, Китай / Bona Film Group, Heyday Films, Sony Pictures EntertainmentЖанр: Драма, комедияРежиссер: Квентин ТарантиноАктеры: Леонардо ДиКаприо, Брэд Питт, Марго Робби, Эмиль Хирш, Маргарет Куэлли, Тимоти Олифант, Джулия Баттерз, Остин Батлер, Дакота Фаннинг, Брюс ДернПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, full), украинские (Full), английские (Full, SDH)Продолжительность: 02:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABAB74EE270FED2C1EDCF2BB906D894E60994336
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192670   (262736) от 18.12.2017
+
+Удача Логана / Logan Lucky (2017) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уволили с работы? Подготовь самое дерзкое ограбление в истории! Джимми Логан молниеносно подбирает команду «специалистов», способных на такую аферу, и надеется выйти сухим из воды. Будь как Логан!Производство: СШАЖанр: Комедия, криминалРежиссер: Стивен СодербергАктеры: Ченнинг Татум, Адам Драйвер, Дэниэл Крэйг, Райли Кио, Кэти Холмс, Джек Куэйд, Брин Глисон, Сет МакФарлейн, Себастьян Стэн, Хилари СуэнкПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96604C86F609A7EA5DF86390E8D3EAD34A1D1E6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192739   (262728) от 18.12.2017
+
+Удача Логана / Logan Lucky (2017) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уволили с работы? Подготовь самое дерзкое ограбление в истории! Джимми Логан молниеносно подбирает команду «специалистов», способных на такую аферу, и надеется выйти сухим из воды. Будь как Логан!Производство: СШАЖанр: Комедия, криминалРежиссер: Стивен СодербергАктеры: Ченнинг Татум, Адам Драйвер, Дэниэл Крэйг, Райли Кио, Кэти Холмс, Джек Куэйд, Брин Глисон, Сет МакФарлейн, Себастьян Стэн, Хилари СуэнкПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C032CA7A12D75E1B1584B2C9E1D9FC92DF6BF0B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192664   (262715) от 18.12.2017
+
+Удача Логана / Logan Lucky (2017) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уволили с работы? Подготовь самое дерзкое ограбление в истории! Джимми Логан молниеносно подбирает команду «специалистов», способных на такую аферу, и надеется выйти сухим из воды. Будь как Логан!Производство: СШАЖанр: Комедия, криминалРежиссер: Стивен СодербергАктеры: Ченнинг Татум, Адам Драйвер, Дэниэл Крэйг, Райли Кио, Кэти Холмс, Джек Куэйд, Брин Глисон, Сет МакФарлейн, Себастьян Стэн, Хилари СуэнкПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02B261AF5BEBC5ADFB2FE7D623C394720FFDE86A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341200   (262584) от 27.11.2019
+
+Щегол / The Goldfinch (2019) WEB-DL [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262584.jpg" />
+</div>
+
+
+###  Подробнее
+
+История юного Теодора Деккера, потерявшего мать во время теракта в Метрополитен-музее. Чудом оставшись в живых после взрыва, Тео получает от умирающего старика редкую картину кисти Карела Фабрициуса и кольцо. С этого момента начинается его погружение в подпольный мир искусства.Производство: США / Amazon Studios, Color Force, Warner BrothersЖанр: ДрамаРежиссер: Джон КраулиАктеры: Энсел Элгорт, Оакс Фигли, Анайрин Барнард, Финн Вулфард, Сара Полсон, Люк Уилсон, Джеффри Райт, Николь Кидман, Уилла Фицджералд, Эшли КаммингсПеревод: Дублированный (iTunes)Субтитры: Russian (forced, full), Ukrainian (forced), English (full close caption)Продолжительность: 02:29:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7886DFCEC1C0743691CF7001ADCC4C95992C6E09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341274   (262554) от 27.11.2019
+
+Однажды в… Голливуде / Once Upon a Time... in Hollywood (2019) WEB-DLRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм повествует о череде событий, произошедших в Голливуде в 1969 году, на закате его «золотого века». Известный актер Рик Далтон и его дублер Клифф Бут пытаются найти свое место в стремительно меняющемся мире киноиндустрии.Производство: Великобритания, США, Китай / Bona Film Group, Heyday Films, Sony Pictures EntertainmentЖанр: Драма, комедияРежиссер: Квентин ТарантиноАктеры: Леонардо ДиКаприо, Брэд Питт, Марго Робби, Эмиль Хирш, Маргарет Куэлли, Тимоти Олифант, Джулия Баттерз, Остин Батлер, Дакота Фаннинг, Брюс ДернПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, full), украинские (Full), английские (Full, SDH)Продолжительность: 02:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD254A604D55891B9456495590BD9E7F67E3752E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341330   (262526) от 27.11.2019
+
+Ирландец / The Irishman (2019) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262526.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о Фрэнке Ширэне по прозвищу Ирландец, которому приписывают убийство 25 гангстеров, включая самого Джимми Хоффу.Производство: США / Fabrica de Cine, STX Entertainment, Sikelia Productions, Tribeca ProductionsЖанр: Драма, криминал, биографияРежиссер: Мартин СкорсезеАктеры: Роберт Де Ниро, Анна Пэкуин, Аль Пачино, Джо Пеши, Алекса Палладино, Джесси Племонс, Харви Кейтель, Бобби Каннавале, Стивен Грэм, Джек ХьюстонПеревод: Дублированный (Пифагор)Субтитры: Русские (forced, full), английские (forced, full, SDH)Продолжительность: 03:29:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:313F48CE5C4FB2A173A9A62DE46DFC1EACD1BB0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193011   (262424) от 19.12.2017
+
+Дюнкерк / Dunkirk (2017) BDRip [576p] [IMAX Edition] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм расскажет историю чудесного спасения более трехсот тысяч солдат в ходе Дюнкеркской операции, имевшей место в начале Второй мировой войны. События начинаются с окружения сотен тысяч британских и союзных войск силами противника. Пойманные в ловушку на пляже, и находясь спиной к морю, они сталкиваются лицом к лицу с неразрешимой ситуацией, тем временем как тиски (   Читать дальше...   )Производство: СШАЖанр: Военный, драма, историяРежиссер: Кристофер НоланАктеры: Финн Уайтхед, Том Глинн-Карни, Джек Лауден, Гарри Стайлс, Анайрин Барнард, Джеймс Д’Арси, Барри Кеоган, Кеннет Брана, Киллиан Мёрфи, Марк РайлэнсПеревод: Дублированный (Лицензия)Субтитры: Русские форсированные,  Русские,  АнглийскиеПродолжительность: 01:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3668D674B8DB3E839B2BC90F907EA19F1D4F897
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341516   (262326) от 28.11.2019
+
+Храбрец / The Brave (1997) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Моргантаун — огромная свалка на окраине американской цивилизации. Здесь в беспросветной нищете обитает семья Рафаэля. Маккарти — продюсер нового фильма, в котором он предполагает заснять натуральное убийство. Исполнителю главной роли обещан огромный гонорар. Рафаэль принимает предложение. До начала съемок осталось 7 дней…Производство: США / Acappella Pictures, Brave Pictures Inc., Jeremy Thomas Productions, Majestic Films InternationalЖанр: ДрамаРежиссер: Джонни ДеппАктеры: Джонни Депп, Марлон Брандо, Маршалл Белл, Эльпидия Каррильо, Луис Гузман, Фредерик Форрест, Кларенс Уильямс-третийПеревод: Многоголосый, авторский одноголосыйСубтитры: Английские (вшитые, отключаемые)Продолжительность: 02:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7125CA2B0BF92106038A6F955463D9071A2D989
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193284   (262215) от 20.12.2017
+
+Статус Брэда / Brad's Status (2017) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262215.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Брэда есть все, чтобы быть счастливым. Но, когда он встречает более успешных друзей детства, которые обставили его по всем статьям, он чувствует себя полным лузером.Производство: СШАЖанр: Драма, комедия, музыкаРежиссер: Майк УайтАктеры: Бен Стиллер, Остин Абрамс, Дженна Фишер, Майкл Шин, Джемейн Клемент, Люк Уилсон, Шази Раджа, Луиза Ли, Майк Уайт, Хавьер ГробетПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60B4D353D34F208D115A4499D20D718765349768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193501   (262093) от 21.12.2017
+
+Оно / It (2017) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда в городке Дерри, штат Мэн, начинают пропадать дети, несколько ребят сталкиваются со своими величайшими страхами и вынуждены помериться силами со злобным клоуном Пеннивайзом, чьи проявления жестокости и список жертв уходят в глубь веков.Производство: США, КанадаЖанр: Ужасы, триллерРежиссер: Андрес МускеттиАктеры: Джейден Либерер, Джереми Рэй Тейлор, Софиа Лиллис, Финн Вулфард, Чоузен Джейкобс, Джек Дилан Грейзер, Уайатт Олефф, Билл Скарсгард, Николас Хэмилтон, Джейк СимПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Русские,  АнглийскиеПродолжительность: 02:14:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F5DC60576D2450DAACD21F1455539ADDFE6CB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193490   (262059) от 21.12.2017
 
 Оно / It (2017) BDRip [1080p] ATV
@@ -6,7 +396,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262059.jpg" />
 </div>
 
 
@@ -32,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261943.jpg" />
 </div>
 
 
@@ -58,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261925.jpg" />
 </div>
 
 
@@ -84,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261921.jpg" />
 </div>
 
 
@@ -110,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261882.jpg" />
 </div>
 
 
@@ -136,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252480.jpg" />
 </div>
 
 
@@ -162,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252433.jpg" />
 </div>
 
 
@@ -188,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249462.jpg" />
 </div>
 
 
@@ -214,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248379.jpg" />
 </div>
 
 
@@ -240,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246845.jpg" />
 </div>
 
 
@@ -268,7 +658,7 @@ Synth Replicants - Cyclus ONE (2020) [AAC|~316 Kbps] <Electronic>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246061.jpg" />
 </div>
 
 
@@ -282,441 +672,6 @@ Synth Replicants - Cyclus ONE (2020) [AAC|~316 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E28CD3FA32E8E2A3A766977A2AB3EECB07C7644E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511284   (246051) от 20.11.2021
-
-Marina & the Kats - Small (2015) [AAC|~318 Kbps] <Swing, Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marina's Theme (1:51)
-02. Dirty (3:33)
-03. Broke (3:30)
-04. Small (3:34)(   Читать дальше...   )Жанр: Swing, JazzПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4314DCA114011B8B25538265CF0259244C21D00C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511160   (246043) от 20.11.2021
-
-Juliette Armanet - Brûler le feu (2021) [AAC|~296 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Le Dernier Jour du Disco (3:27)
-02. Qu'importe (3:47)
-03. Tu me Play (2:45)
-04. Boum Boum Baby (3:25)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A521188F156AA5B61A10C49C0B20BF26C525DD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511348   (246037) от 20.11.2021
-
-Swingrowers - (Pronounced Swing Grow'ers) (2012) [AAC|~333 Kbps] <Electro, Swing, Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Senza Ciatu (5:38)
-02. Swingrowers, The Boswell Sisters - Crazy People (3:27)
-03. Craziness (3:51)
-04. Kiawami (3:53)(   Читать дальше...   )Жанр: Electro, Swing, JazzПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:730FF6455D22D28317AC54647B924228A52DEFD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511352   (246013) от 20.11.2021
-
-Swingrowers - Outsidein (2018) [AAC|~316 Kbps] <Electro, Swing, Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Strings Attached (4:07)
-02. Follow Me (3:16)
-03. Selfie Face (4:16)
-04. My Mood (3:59)(   Читать дальше...   )Жанр: Electro, Swing, JazzПродолжительность: 00:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED4333F9BCF931CDDA527D11CA3BCBDF3CD7533E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511633   (245942) от 21.11.2021
-
-VA - Smooth and Sexy - Premium Jazz Grooves (2016) [AAC|~331 Kbps] <Lounge, Chill Out, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vladi Strecker - De el Mar a la Luna (Jazz Loungebar Mix) (6:40)
-02. Bar Blue - It's a Good Life (Sax Mix) (4:00)
-03. Noise Boyz - Honeytrap (Keys and Trumpet Mix) (5:33)
-04. Orange Music - Blown Away (Acoustic Mix) (6:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:51:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:468ADC5514BD22C7B8C694B4191143B1A6CA65AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536746   (245885) от 25.07.2022
-
-VA - 80s Dance Classics (2022) [AAC|~334 Kbps] <Pop, Dance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soft Cell - Tainted Love (2:40)
-02. Yazz - The Only Way Is Up (4:27)
-03. Technotronic, Felly - Pump Up The Jam (Edit) (3:35)
-04. Hithouse - Jack To The Sound Of The Underground (4:06)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:46:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D770B8C437E59419DA663E515615890A3C22704C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511724   (245777) от 22.11.2021
-
-VA - Chillout Winter Paradise (2021) [AAC|~289 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Performative Mode - Morning Air (6:24)
-02. Habermohl - An Immense Feeling (5:44)
-03. Aktnuance - Beautiful Beginning (5:53)
-04. Kalokagathia Union - Ascending Mind (6:00)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F43BE9F228CEE0D3288BB90E6DAA9E8A73908FED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511725   (245770) от 22.11.2021
-
-Nina Stark - Organic (2021) [AAC|~308 Kbps] <Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nina Stark, Ole Kock Hansen, Jonas Johansen - What I Adore (3:17)
-02. Nina Stark, Ole Kock Hansen, Jesper Bodilsen - I'm Changing (4:27)
-03. Nina Stark, Ole Kock Hansen, Thomas Ovesen - Song of a Bird (4:56)
-04. Nina Stark, Ole Kock Hansen, Jesper Bodilsen - Love Walked In (3:55)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16D01EA9735E91BE61110A1C37C3B66F5598AB74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511729   (245762) от 22.11.2021
-
-VA - Chillax (Smooth Chill-Out Sounds For Pure Relaxing), Vol. 4 (2021) [AAC|~316 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DMTunes - White January (6:10)
-02. Spoq - Side By Side (3:08)
-03. Artur Bayramgalin - The Morning Moon (4:19)
-04. Stuce The Sketch - Sublime (3:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EE5E9582ACD0B0603ACE624606629BB10986999
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511727   (245752) от 22.11.2021
-
-Elena Maque - Feel Again (2021) [AAC|~344 Kbps] <Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elena Maque, Scott Kinsey, Leonardo Amuedo, HADRIEN FERAUD, Alexey Nikolaev, Gary Novak - Hey Friend (3:30)
-02. Lover Man (4:29)
-03. Elena Maque, Scott Kinsey, HADRIEN FERAUD, Léo Amuedo, Gary Novak - The Girl from Ipanema (3:48)
-04. Elena Maque, Scott Kinsey, HADRIEN FERAUD, Gary Novak - Feel Again (3:50)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE5589A0F6B3EE9102963FA3A3112CE955528396
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511765   (245746) от 22.11.2021
-
-VA - Piano Moods Collection, Vol. 2 (2020) [AAC|~264 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shoshana Michel - Nocturne in E Flat (4:24)
-02. Michael e - Remembrance (Original Mix) (3:50)
-03. Nicholas Gunn - Beauty, Under the Influence of Music (Original Mix) (4:18)
-04. Igor Berin - Moonlight (Original Mix) (2:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:58:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B52045DBD52DE23C9AD7B8B31E0819BDFA6E5F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511882   (245732) от 22.11.2021
-
-VA - Aimée Sol presents Lounge Attitudes, Vol. 1 (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Natasza Kurek Group - Lesmianie (The Forest Tale) (4:47)
-02. Soulounge, Florine Dimonye - L Is Gone (4:34)
-03. 351 Lake Shore Drive, Genius Jane - Moon Shadow (5:24)
-04. Thomas Lemmer, Lena Belgart - Is It Too Late (Radio Mix) (3:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:57:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F26CFC9CCA8702EF90309F88D68ED240A9846602
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512697   (245415) от 25.11.2021
-
-VA - Musica para: Rejuvenecer y sentirse bella (2021) [AAC|~309 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jjos, Manu López - On a Magical Night (6:30)
-02. Jorge Tamarit - On The Move (3:32)
-03. Siri Umann - Soft Waves (4:14)
-04. José Ramos - Chill Hotel (4:11)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12DE4E26E952D8C506450D590DC19A4A9DFA4904
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512683   (245382) от 25.11.2021
-
-VA - Musica Elegante (2020) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jorge Tamarit - Inside Secrets (5:51)
-02. Jjos - Fly Away (Ambient Mix) (4:42)
-03. José Ramos - Acalento (3:58)
-04. Fede Garcia - 360 Degrees (Original Mix) (4:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:57:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69558894C8B029148BE9CA69A84DC097F7AF6931
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512698   (245373) от 25.11.2021
-
-VA - Infinite Fade: Chillout Your Mind (2021) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steen Thottrup, Annette Berg - Sunset People (Original Mix) (4:39)
-02. Beamy - Moonglow (3:32)
-03. Project Blue Sun - Living in Dreams (Original Mix) (3:31)
-04. Marga Sol - Bliss of Water (Original Mix) (6:00)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:19:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8A3659015B710C6880BA07E57DE32A56E271A02
 ```
 
 https://mybot314.ru/tekegram_catalog/

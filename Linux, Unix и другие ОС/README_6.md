@@ -1,3 +1,86 @@
+###  Публикация: 762247   (892190) от 02.03.2014
+
+Manjaro Linux 0.8.9 Ascella  (Arch + зоопарк рабочих столов) [x86-64] 9xDVD, 2xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчики дистрибутива и разработчики сообщества представили очередной выпуск Manjaro Linux – основанного на Arch Linux легковесного дистрибутива, пользователь которого имеет выбор из настольных окружений Xfce, Openbox, KDE, E17, LXDE, Gnome, MATE, Cinnamon, netbook, fluxbox, а также net.
+
+Новости в дистрибутиве: обновлен пакетный менеджера Pamac 0.9.7; возможность включения/отключения поддержки AUR (пользовательских репозиториев); у иконки уведомлений в трее пакетного менеджера Pamac изменен период обновлений; удалены ненужные зависимости; изменены настройки через pamac-manager/updater GUI; добавлена запись 'Просмотр истории' в меню pamac-менеджера; добавлена поддержка AUR в инсталляционный скрипт менеджера pacmac (данная функция работает, если она включена в конфигах pamac.conf). Добавлены новые возможности в MHWD (Manjaro Hardware Detection): поддержка сетевых карт. Добавлен раздел «/home» в режиме автоматической установки. Исправлена проблема изменения размера окна в настройках языка. Исправлена проблема (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D7E5B900A864BF5D98DD72E87CC1F3B34051278
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 762256   (892067) от 02.03.2014
+
+Manjaro Linux 0.8.9 Ascella (Arch + зоопарк рабочих столов) [i686] 9xDVD, 2xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчики дистрибутива и разработчики сообщества представили очередной выпуск Manjaro Linux – основанного на Arch Linux легковесного дистрибутива, пользователь которого имеет выбор из настольных окружений Xfce, Openbox, KDE, E17, LXDE, Gnome, MATE, Cinnamon, netbook, fluxbox, а также net.
+
+Новости в дистрибутиве: обновлен пакетный менеджера Pamac 0.9.7; возможность включения/отключения поддержки AUR (пользовательских репозиториев); у иконки уведомлений в трее пакетного менеджера Pamac изменен период обновлений; удалены ненужные зависимости; изменены настройки через pamac-manager/updater GUI; добавлена запись 'Просмотр истории' в меню pamac-менеджера; добавлена поддержка AUR в инсталляционный скрипт менеджера pacmac (данная функция работает, если она включена в конфигах pamac.conf). Добавлены новые возможности в MHWD (Manjaro Hardware Detection): поддержка сетевых карт. Добавлен раздел «/home» в режиме автоматической установки. Исправлена проблема изменения размера окна в настройках языка. Исправлена проблема (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:516B4096A56C902AF39E849603363993B1082DB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994225   (889086) от 08.03.2016
+
+Parted Magic 2016-03-02 [x86, x64] 1xCD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Parted Magic - дистрибутив на основе Linux, предназначенный для различных дисковых операций: очистка, восстановление, создание файловой системы, разбиение на разделы, клонирование, резервное копирование. Также в дистрибутиве содержатся утилиты тестирования и диагностирования.
+Система является Live-версией, не требующий инсталляции. Загрузка возможна с CD, USB или (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC162367331F7A31BE39F773AF8EF36709151205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494373   (888717) от 07.09.2021
 
 Ubuntu 20.04.3 Focal Fossa LTS [amd64] 2xDVD
@@ -6,7 +89,7 @@ Ubuntu 20.04.3 Focal Fossa LTS [amd64] 2xDVD
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888717.jpg" />
 </div>
 
 
@@ -32,7 +115,7 @@ Tor Browser 2.3.25-6 [анонимный доступ в сети] [i686, x86-64
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_884413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_884413.jpg" />
 </div>
 
 
@@ -58,7 +141,7 @@ OS4 13.4 (легкий дистрибутив) [x86, x64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880799.jpg" />
 </div>
 
 
@@ -86,7 +169,7 @@ Slackel KDE-4.10.5 Live [x86, x86-64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879650.jpg" />
 </div>
 
 
@@ -114,7 +197,7 @@ Tails 0.23 RC1 [анонимный доступ в сети] [i386] 1xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879367.jpg" />
 </div>
 
 
@@ -142,7 +225,7 @@ Cinnarch 2013.04.05 [i686 + x86-64] (4xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877630.jpg" />
 </div>
 
 
@@ -170,7 +253,7 @@ KaOS Linux 2016.03 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876774.jpg" />
 </div>
 
 
@@ -196,7 +279,7 @@ PCLinuxOS 2013.04 KDE FullMonty [i586] (1xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872755.jpg" />
 </div>
 
 
@@ -224,7 +307,7 @@ Manjaro Linux 0.8.5 (Arch с несколькими рабочими стола�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871036.jpg" />
 </div>
 
 
@@ -258,7 +341,7 @@ ROSA Marathon 2012 RP2 (Enterprise Desktop X1) (Национальная про�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863503.jpg" />
 </div>
 
 
@@ -286,7 +369,7 @@ OSGeo-Live 9.0 (Дистрибутив для географов, картогр
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862661.jpg" />
 </div>
 
 
@@ -312,7 +395,7 @@ MovieShot 1.0 [x86] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862526.jpg" />
 </div>
 
 
@@ -341,7 +424,7 @@ Manjaro Linux 0.8.5 (Arch + lxde, kde, mate) [i686] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860789.jpg" />
 </div>
 
 
@@ -371,7 +454,7 @@ Manjaro Linux 0.8.5 (Arch + lxde, kde, mate) [x86-64] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860592.jpg" />
 </div>
 
 
@@ -401,7 +484,7 @@ Foresight Linux 2.5.3 [x86, x86-64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860583.jpg" />
 </div>
 
 
@@ -429,7 +512,7 @@ Scientific Linux 6.4 Live [i386] (DVD + 2xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860219.jpg" />
 </div>
 
 
@@ -457,7 +540,7 @@ Pear Linux 7.0 [amd64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859921.jpg" />
 </div>
 
 
@@ -487,7 +570,7 @@ Bugtraq II Black Widow beta (хакинг и анализ безопасност
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859920.jpg" />
 </div>
 
 
@@ -515,7 +598,7 @@ Scientific Linux 6.4 Live [x86-64] (DVD + 2xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859818.jpg" />
 </div>
 
 
@@ -543,7 +626,7 @@ Box Shot 3D 2.10 [En] [x86, x64] (cxarchive)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857171.jpg" />
 </div>
 
 
@@ -570,7 +653,7 @@ Pinguy OS 14.04.4-1 [i686, x86-64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853625.jpg" />
 </div>
 
 
@@ -596,7 +679,7 @@ Kubuntu 13.04 Raring Ringtail [i386, amd64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852493.jpg" />
 </div>
 
 
@@ -622,7 +705,7 @@ Xubuntu 13.04 [i386, amd64] (2xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852490.jpg" />
 </div>
 
 
@@ -637,86 +720,6 @@ Xubuntu — это разрабатываемая Canonical, основанна�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 648575   (852486) от 25.04.2013
-
-Edubuntu 13.04 (Ubuntu для школ и вузов) [i386, amd64] (2xDVD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Edubuntu — дистрибутив операционной системы Linux, основанный на дистрибутиве Ubuntu. Ориентирован на использование в образовательных учреждениях. В Edubuntu включён Linux Terminal Server Project и большое количество программ образовательного направления, таких как GCompris; KDE Education Project; SchoolTool Calendar (en — school management information system) и ряд других.
-
-Установив Edubuntu Вы получите все возможности текущей версии Ubuntu 13.04 плюс некоторый набор образовательных программ. Поскольку Edubuntu работает с теми же репозиториями, что и Ubuntu, в последней все эти программы также будут доступны, однако придется их устанавливать самостоятельно, на что уйдет дополнительное время.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378113   (846138) от 25.04.2020
-
-CAE Linux 2018 [x86_64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846138.jpg" />
-</div>
-
-
-###  Подробнее
-
-CAE Linux - операционная система для инженерного расчетного анализа и проектирования. Представляет из себя Xubuntu 16.04 LTS 64 bit, т.е. Ubuntu c легковесным рабочим столом XFCE с обширным набором предустановленных инженерного, научного и образовательного программного обеспечения, а также большое количество приложений для выполнения различных проектных, расчетных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AEFDD627D5CE4C3B48FAB390955CD3786183F8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003701   (843124) от 03.04.2016
-
-Debian GNU/Linux 8.4.0 Jessie [amd64] 3xDVD, 2x updateDVD, 1x netinstCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843124.jpg" />
-</div>
-
-
-###  Подробнее
-
-На зеркалах, с опозданием на сутки по отношению к объявленной дате, стали размещать четвертое обновление стабильного выпуска Debian 8 (кодовое имя "jessie"). Это обновление в основном содержит исправления проблем безопасности стабильного выпуска, а также несколько корректировок серьёзных проблем. Рекомендации по безопасности опубликованы отдельно и указываются (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1424D4844B3D46A1F2A5375A8E40102065ECD4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

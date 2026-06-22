@@ -1,3 +1,56 @@
+###  Публикация: 492450   (247922) от 05.05.2012
+
+Удиви меня. Сезон №3. Выпуск №5 (2012.05.05) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшие фокусники страны демонстрируют свое искусство и борются за звание сильнейшего! Они пилят и протыкают, манипулируют и поражают ловкостью рук, заставляют предметы испаряться, а девушек – появляться! Главный приз шоу: поездку в Лас-Вегас на шоу «Мистерия» легендарного Цирка дю Солей.
+«Мистерия» - это уникальная постановка, которую можно увидеть собственными глазами только в Лас-Вегасе! Шоу было 8 раз удостоено награды «Лучшая постановка» по оценкам журнала Las Vegas Review Journal. В состав труппы входят 72 артиста из 18 стран мира.Жанр: ТВ-ШоуПродолжительность: ~ 01:33:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40E4879F53C1BC31E7385346B7CB7F16FF3F2C3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618837   (247487) от 19.06.2023
+
+Звёзды в Африке (2023) SATRip (сезон 4, выпуск 1-15 из 15)
+
+>>След.
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Участникам снова предстоит выжить в тропиках южноафриканского региона Лимпопо. Ну а главным призом для победителя шоу является 5 млн рублей. Новые правила, новые участника, новые испытания! В новом сезоне у участников вообще не будет никакой еды! Даже маис и бобы, которые обычно всегда присутствовали на кухне, теперь необходимо зарабатывать. Заработать также придется (   Читать дальше...   )Телекомпания: Россия, "Ти Эл Видж" по заказу ТНТ-ТелесетьЖанр: ТВ-шоуУчастники: Наталия Медведева, Денис Лебедев, Эвелина Блёданс, Торнике Квитатиани, Мария Погребняк, Алина Акилова, Тимофей Зайцев, Игорь Ознобихин, Виталий Гогунский, Иван ПышненкоСубтитры: ОтсутствуютПродолжительность: ~01:30:00 выпуск
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A8ED935AFE4C3A527B7E45E0E0689FA53911B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607260   (247292) от 29.06.2023
 
 На ножах (2023) WEBRip [H.264/1080p] (сезон 8, выпуски 1-24 из 24)
@@ -6,7 +59,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247292.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246455.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246371.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246320.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245696.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245034.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244931.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244004.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243926.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242463.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242273.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241659.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238555.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234699.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227688.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224562.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224556.jpg" />
 </div>
 
 
@@ -451,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221166.jpg" />
 </div>
 
 
@@ -477,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220712.jpg" />
 </div>
 
 
@@ -503,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220703.jpg" />
 </div>
 
 
@@ -529,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219165.jpg" />
 </div>
 
 
@@ -555,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218756.jpg" />
 </div>
 
 
@@ -582,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217004.jpg" />
 </div>
 
 
@@ -608,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216532.jpg" />
 </div>
 
 
@@ -619,59 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51B9AC9E9ADFE013C0344E7A7554EC5C4A502FFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940492   (214990) от 19.12.2015
-
-Последний Герой (американская версия). Сезон 31 / Survivor: Cambodia — Second Chance (season 31) (2015) HDTV [H.264/720p] [EN]
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американское реалити-шоу (Российский аналог - Последний Герой), транслируемое каналом CBS. Игра была придумана Чарли Парсонсом и впервые прошла в Швеции под названием Expedition Robinson в 1992 году. Бессменным ведущим американского варианта шоу является бывший репортер Джефф Пробст, а продюсером — Марк Бернетт.
-Суть реалити-шоу состоит в том, что группу незнакомцев (   Читать дальше...   )Телекомпания: CBSЖанр: ТелепередачаПеревод: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E251724E412E055A6403D8C257112048157BDD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085387   (214718) от 21.12.2016
-
-Вечерний Ургант (2016.12.20) SATRip (cезон 10, выпуск 71)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:28:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D9E16C969D923F151AC86CC43EE8378B137A56B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 851159   (867219) от 22.02.2017
+
+NecroVision (2009) [Ru] (1.2) SteamRip Let'sPlay
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Война — это ад. NecroVision — это шутер от первого лица, который проведет игроков через безумные поля сражений Первой мировой войны и сквозь темные подземелья, полные вампиров, демонов и темной магии.
+В поисках приключений, молодой американец Саймон Бакнер присоединился к британской армии в разорванной войной Европе в 1916 году. Во время особенно ожесточенного сражения, (   Читать дальше...   )Тип издания: SteamRipРазработчик: The Farm 51Жанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCDDAF859098C1ED681BD8AF3354DE353929DF11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107404   (867212) от 22.02.2017
 
 Beyond Enemy Lines (2017) [En] (30120) License SKIDROW
@@ -6,7 +33,7 @@ Beyond Enemy Lines (2017) [En] (30120) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867212.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ The Town of Light (2016) [Ru/Multi] (2.2/dlc) Repack Other s [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865912.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ NecroVision (2009) [Ru] (1.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865475.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ Burn / Пекло (2007) [Ru] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861963.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ Absent Mind (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861903.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ Soldier of Fortune: Payback (2007) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860902.jpg" />
 </div>
 
 
@@ -163,7 +190,7 @@ Among the Innocent: A Stricken Tale (2017) [En] (1.004) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860111.jpg" />
 </div>
 
 
@@ -189,7 +216,7 @@ Far Cry Franchise [Ru/En/Multi] (Steam-Rip) 2004-2012 | R.G. Игроманы
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857708.jpg" />
 </div>
 
 
@@ -215,7 +242,7 @@ DESYNC (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851389.jpg" />
 </div>
 
 
@@ -241,7 +268,7 @@ Quake: Enhanced (2021) [Ru/Multi] (7211438/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850670.jpg" />
 </div>
 
 
@@ -267,7 +294,7 @@ Rogue Warrior (2009) [Ru] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847764.jpg" />
 </div>
 
 
@@ -293,7 +320,7 @@ In Sound Mind (2021) [Ru/Multi] (1.01.0916) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847280.jpg" />
 </div>
 
 
@@ -319,7 +346,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыл�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847262.jpg" />
 </div>
 
 
@@ -345,7 +372,7 @@ Homefront: The Revolution (2016) [Ru/En] (1.078.1055/dlc) Repack R.G. Revenants 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840868.jpg" />
 </div>
 
 
@@ -371,7 +398,7 @@ One Sole Purpose (2017) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840858.jpg" />
 </div>
 
 
@@ -397,7 +424,7 @@ Nether: Resurrected (2014) [Ru/En] (2014 June) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837517.jpg" />
 </div>
 
 
@@ -424,7 +451,7 @@ S.T.A.L.K.E.R. Shadow of Chernobyl - Конец Света 2: Последний
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837510.jpg" />
 </div>
 
 
@@ -450,7 +477,7 @@ Shogo: Mobile Armor Division / Ярость: Восстание на Крону�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835614.jpg" />
 </div>
 
 
@@ -476,7 +503,7 @@ Follia Dear Father (2020) [Ru/Multi] (3.86) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835537.jpg" />
 </div>
 
 
@@ -502,7 +529,7 @@ Far Cry 3: Blood Dragon (2013) [Ru/En] (1.0.1) RePack R.G. Games
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832312.jpg" />
 </div>
 
 
@@ -528,7 +555,7 @@ Stairs (2015) [En] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832141.jpg" />
 </div>
 
 
@@ -554,7 +581,7 @@ Crysis 2 (2011) [Ru] (1.9) Repack/Mod Agastan [HD Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831951.jpg" />
 </div>
 
 
@@ -580,7 +607,7 @@ Resilience: Wave Survival (2015) [En] (Build 26) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828215.jpg" />
 </div>
 
 
@@ -606,7 +633,7 @@ Outlast Dilogy (2013-2017) [Ru/Multi] Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825536.jpg" />
 </div>
 
 
@@ -632,7 +659,7 @@ Obscuritas (2016) [Ru/Multi] (1.0) Repack ARMENIAC
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824517.jpg" />
 </div>
 
 
@@ -643,32 +670,6 @@ Obscuritas - это паззл-хоррор, события которого р�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A16D489712624B576FD7257C5DBAE152C18B94C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839204   (824030) от 27.11.2025
-
-Cold Fear (2005) [Ru/Multi] (1.0) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_824030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Том Хансен, офицер береговой охраны, за годы службы повидал немало смертей. Однажды во время яростного шторма его патрульный катер получает приказ обследовать российское китобойное судно «Дух Востока», дрейфующее в открытом океане. Выжившие на корабле не обнаружены, казалось бы, трагедия уже произошла. Но настоящий кошмар только начинается. То, что притаилось под (   Читать дальше...   )Тип издания: LicenseРазработчик: DarkworksЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26EE94B5B96DFAF065F9275F24B72CA436E13322
 ```
 
 https://mybot314.ru/tekegram_catalog/

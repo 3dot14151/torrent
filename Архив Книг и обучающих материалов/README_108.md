@@ -1,3 +1,31 @@
+###  Публикация: 531138   (541939) от 05.08.2012
+
+Книжная серия | Женщина-миф (17книг) [1995-2011] [PDF, FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женщина-миф - серия книг о знаменитых женщинах всех времен и народов.
+В книгах - фотографии, немного правды, много приукрашиваний, выдумок и сплетен.
+Автобиографии и, тем более, биографии по-другому не пишутся.Жанр: История. ПерсоныФормат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C729C83DA19E14BDF1D32CF43DC104325DEB1CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 531283   (541832) от 05.08.2012
 
 Юлия Фирсанова | Серия "Джокеры – Карты Творца" [2011-2012] [FB2]
@@ -6,7 +34,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541832.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541829.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541776.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541757.jpg" />
 </div>
 
 
@@ -112,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541408.jpg" />
 </div>
 
 
@@ -138,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541405.jpg" />
 </div>
 
 
@@ -164,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541330.jpg" />
 </div>
 
 
@@ -190,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541329.jpg" />
 </div>
 
 
@@ -208,6 +236,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 364673   (541296) от 21.07.2011
+
+Ирина Данчева | Утешение в скорби [2010] [MP3]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_541296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тему этой книги подсказала жизнь. А подтолкнула к написанию — смерть. Если эти записки принесут утешение в скорби хотя бы одному человеку — они уже небесполезны. Ибо спасающий себя — спасает и других.
+
+Эта история — о том, как человек, оставшись наедине с неизлечимой болезнью, выбирает единственно верный путь. Как приходят ближнему на помощь любящие его. Хочу рассказать о том, что умиротворяет и укрепляет страдающую душу. Даже если жизнь кажется беспросветной, не стоит унывать: Утешитель — всегда рядом. Остается лишь призвать Его и принять всем сердцем...Жанр: Современная проза
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCA99D65CD61EF4F0EAF75BBEC7F4D2AB908426D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925384   (541219) от 06.08.2015
 
 Диана Трубецкая | Ловушка для ангела. Тайны дома на Берсеневской набережной (2015) [FB2]
@@ -216,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541219.jpg" />
 </div>
 
 
@@ -234,6 +290,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 366127   (541185) от 21.07.2011
+
+Журнал | Салон AudioVideo №8 [2011] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_541185.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Салон Audio Video" - это один из наиболее авторитетных российских массовых журналов, посвященный новинкам аудио- и видеотехники.
+"Салон Audio Video" адресован прежде всего тем, кому необходима беспристрастная и экспертная оценка аппаратуры, появляющейся на российском рынке, а также информация о последних достижениях в области потребительской электроники и принципах оптимального выбора моделей в любой ценовой категории. Кроме этого, в журнале читатели найдут интересные статьи о музыке и кино, написанные известными критиками.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C276D87E2C3A5376F19ECC38D18AE8797D15D50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 366177   (541092) от 21.07.2011
 
 В.В. Лысак | Микробиология [2007] [PDF]
@@ -242,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541092.jpg" />
 </div>
 
 
@@ -268,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540854.jpg" />
 </div>
 
 
@@ -294,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540742.jpg" />
 </div>
 
 
@@ -321,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540736.jpg" />
 </div>
 
 
@@ -347,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540617.jpg" />
 </div>
 
 
@@ -373,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540598.jpg" />
 </div>
 
 
@@ -399,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540462.jpg" />
 </div>
 
 
@@ -425,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540461.jpg" />
 </div>
 
 
@@ -454,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540453.jpg" />
 </div>
 
 
@@ -481,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540328.jpg" />
 </div>
 
 
@@ -508,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540304.jpg" />
 </div>
 
 
@@ -534,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540153.jpg" />
 </div>
 
 
@@ -562,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539933.jpg" />
 </div>
 
 
@@ -589,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539759.jpg" />
 </div>
 
 
@@ -600,87 +683,6 @@ Playboy  — журнал для мужчин, издающийся с 1953 го
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 818736   (539671) от 04.09.2014
-
-Журнал | Electronics For You №9 (сентябрь 2014) [PDF] [En]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это журнал для читателей, интересующихся электроникой и техникой. Впервые был выпущен в 1969 году. В нем широко представлены обзоры лучших образцов электронной продукции, сравнения аппаратного и программного обеспечения, новости электронной техники, компьютерного оборудования, источников питания, радиоэлектронных компонентов, цифровых устройств.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0A0564FC73DA7F1C5F1668B2CB2ECE48D98D5BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 818531   (539545) от 04.09.2014
-
-Мартин Гринберг (сост.) | Дорога Короля [антология] (2004) [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник фантастических рассказов различных авторов, изданный к столетию со дня рождения Дж. Р. Р. Толкина.
-Конечно же, жанр «фэнтези» возник задолго до Толкина. Но именно он, Король, создатель удивительного мира Среднеземья, стал тем краеугольным камнем, той отправной точкой, с которых началось триумфальное шествие Маленького Народа — эльфов, хоббитов, гномов, орков, (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DF90C303CAF961D03F717E2FA3444D123709C3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925563   (539307) от 07.08.2015
-
-Юрий Авдеенко | Вдруг выпал снег. Год любви (1986) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие остросюжетного романа «Вдруг выпал снег» происходит в первые послевоенные годы в небольшом причерноморском городе. Автор рассказывает о непростой судьбе оставшегося без родных семнадцатилетнего парнишки, о становлении его личности, выборе жизненного пути.
-
-Роман «Год любви» — о современной армии, о молодых офицерах и солдатах, о заслуженном командире полка.Жанр: РоманФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0044190F8CEA3303027C59AFFBC280DB40657AEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

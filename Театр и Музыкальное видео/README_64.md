@@ -1,3 +1,159 @@
+###  Публикация: 523211   (618337) от 15.07.2012
+
+Duran Duran - A Diamond In the Mind (2011) Blu-Ray [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_618337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт состоялся  в центре Манчестера, одиннадцатиметровая арена .была черной, когда начался концерт. Очень эффектным стал выход группы на сцену в струях белого дыма  струйка белого дыма, Duran Duran
+Великолепные визуальные эффекты и и инсталляции на протяжении всего концерта  и приглашенные звезды сделали шоу поистине незабываемым.
+Ле Бон  написал позднее в  Twitter: ""Я просто люблю музыку, здесь мы все на одной стороне!"
+
+...01. Return to Now
+02. Before the Rain
+03. Planet Earth
+04. View to a Kill
+05. All You Need Is Now
+06. Blame the Machines
+07. Safe (In the Heat of the Moment)
+08. The Reflex
+09. Man Who Stole a Leopard
+10. Girl Panic!(   Читать дальше...   )Жанр: RockФормат: BDMVПродолжительность: 01:35:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544832   (618302) от 17.04.2022
+
+Квартирник у Маргулиса. Екатерина Яшникова (16.04.2022) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еще в школе будущая российская певица, поэт и музыкант Екатерина Яшникова начала писать стихи. В 2014 году она дала свой первый концерт в составе группы Kanoka, а вот широкую популярность приобрела спустя два года, в 2016, — тогда Екатерина выпустила песню «Я останусь одна». С тех пор прошло чуть больше пяти лет, а в копилке Яшниковой уже три студийных альбома, ротации (   Читать дальше...   )00:00:06 Я останусь одна
+00:04:35 Песня о себе
+00:13:47 Песня для соседа
+00:20:50 Доширак(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:09:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39411F8F6B1219AA89D77751D586686D4D882BC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911048   (617902) от 22.06.2015
+
+In Flames - Rock Am Ring (2015) HDTVRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rock am Ring — один из крупнейших рок-фестивалей, ежегодно проходящий в Германии в первый выходной июня.01. Bullet Ride
+02. Where the Dead Ships Dwell
+03. Paralyzed
+04. Alias(   Читать дальше...   )Жанр: Melodic death metalПеревод: Не требуетсяПродолжительность: 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56A33976ECB4F767B9B14DE3001D96305532B153
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 684824   (617897) от 29.07.2013
+
+Новая Волна 2013. Международный конкурс молодых исполнителей. День 1-6 (2013) DVB
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Международный конкурс "Новая волна" вновь приглашает всех любителей песни в Юрмалу в концертный зал "Дзинтари". Участники конкурсной программы уже прошли сложные региональные, окружные и национальные отборочные туры в России, Украине, Белоруссии, Армении, Финляндии и Латвии. Россию в этом году представят: группа FRUKTЫ, Арсений Бородин, группа (   Читать дальше...   )День 1
+01. Диcкотека Авария - Ноги
+02. Ани Лорак - Зажигай сердце
+03. В.Меладзе/Валерия - Не теряй меня(   Читать дальше...   )Жанр: Концерт, ТВ-шоуПродолжительность: 6 x ~ 02:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10CD890307691736AC805DA0231486434C41C608
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 352275   (617819) от 19.06.2011
+
+Сурганова и оркестр - Концерт на Красной площади   (2011.12.06) TvRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Светлана Сурганова и оркестр на гала-концерте «Россия молодая» в Москве на Красной площади 12. 06. 2011 года, в рамках празднования Дня России.
+Cветлана Яковлевна Сурганова поздравила всех с праздником и пожелала стране мудрых правителей..
+1.	Я не жалею
+.
+2.	ВеснаЖанр: VIP-Punk-DecadenceПродолжительность: 00:08:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BEF43A7FEF0EDB969760C51F15CCFE329B60236
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036988   (617172) от 22.07.2016
 
 Savage Garden - The Video Collection (1998) DVD5
@@ -6,7 +162,7 @@ Savage Garden - The Video Collection (1998) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617172.jpg" />
 </div>
 
 
@@ -35,7 +191,7 @@ Girls' Generation (SNSD) - Music video collection. Part 2 (2007-2012)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616473.jpg" />
 </div>
 
 
@@ -63,7 +219,7 @@ Robert Plant & The Band of Joy: Live from the Artists Den (2011) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_616471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_616471.jpg" />
 </div>
 
 
@@ -98,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_616416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_616416.jpg" />
 </div>
 
 
@@ -127,7 +283,7 @@ Celtic Woman - Believe (2012) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616277.jpg" />
 </div>
 
 
@@ -156,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615923.jpg" />
 </div>
 
 
@@ -182,7 +338,7 @@ Sensation 2011 - Celebrate Life / St. Petersburg Russia (2011) SATRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615755.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615612.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615135.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_614497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_614497.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614320.jpg" />
 </div>
 
 
@@ -322,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614048.jpg" />
 </div>
 
 
@@ -348,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613919.jpg" />
 </div>
 
 
@@ -378,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612373.jpg" />
 </div>
 
 
@@ -408,7 +564,7 @@ Garbage - Live at Festival Beauregard (2012) HDTVRip 720p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611151.jpg" />
 </div>
 
 
@@ -443,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611149.jpg" />
 </div>
 
 
@@ -472,7 +628,7 @@ Madonna - MDNA Tour (Live in Abu Dhabi) (2012) CAMRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611053.jpg" />
 </div>
 
 
@@ -501,7 +657,7 @@ Aerosmith / Rock for the Rising Sun (2013) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_611009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_611009.jpg" />
 </div>
 
 
@@ -530,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609434.jpg" />
 </div>
 
 
@@ -561,7 +717,7 @@ Rafa Romero - Que No Acabe (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607502.jpg" />
 </div>
 
 
@@ -587,7 +743,7 @@ AC/DC: Let There Be Rock (1980/2011) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_607217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_607217.jpg" />
 </div>
 
 
@@ -601,145 +757,6 @@ AC/DC: Let There Be Rock (1980/2011) [1080p] BDRip
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 107868   (605996) от 20.04.2019
-
-Queen - Rock Montreal & Live Aid (1981) Blu-ray [H.264/1080p] [EN]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Живой концерт Queen в Монреале, Канада. В фильме принимали участвие Freddie Mercury, Brian May, John Deacon, и Roger Taylor. Изначально название фильма "We Will Rock You" и с этим название фильм был показан на Каннском кинофестивале в мае 1983 года. После был издан в Северной Америке (в сентябре 1984 г.) и стал первым коммерческим фильмом (концертом) группы (   Читать дальше...   )1. Intro (Taylor)
-2. We Will Rock You (Fast) (May)
-3. Let Me Entertain You (Mercury)
-4. Play The Game (Mercury)(   Читать дальше...   )Производство: США | Mobilevision, YellowbillЖанр: RockРежиссер: Сауль СвиммерЯзык субтитров: English, Spanish French, Italian, Netherlands, Portugese, DutchЯзык: АнглийскийПродолжительность: 01:35:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:913E55457938EC8AB3A32BB8E72D28ED2789ADF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546471   (605943) от 24.04.2022
-
-Квартирник у Маргулиса. Группа "После 11" (23.04.2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605943.jpg" />
-</div>
-
-
-###  Подробнее
-
-В далеком 1999 году трое студентов Саратовской государственной консерватории имени Л. В. Собинова Юрий Постарнаков, Андрей Зверев и Николай Феоктистов исполнили на конкурсе авторской песни, посвященном 200-летию Пушкина, песню «Звёздочка»: именно с этого момента и началась история группы. Сами участники говорят, что играют настоящий народный рок: их музыка — это (   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Фолк-поп-рокЯзык озвучки: РусскийПродолжительность: 01:09:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABCAFD9832ADC33F9C6146D8BBADC1FD492153A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 111162   (605225) от 22.07.2012
-
-AC/DC-No Bull (Live from Plaza De Toros De Las Ventas, Madrid, Spain) (1996) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_605225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Back in black
-02 Shot down in flames
-03 Thunderstruck
-04 Girl's got Rythm(   Читать дальше...   )Жанр: Коннцерт, Hard RockПродолжительность: 02:02:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913357   (605021) от 29.06.2015
-
-Мурат Тхагалегов: Всем красавицам Кавказа (2011) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоверсия первого сольного концерта. Популярный певец посвятил сольник всем девушкам Кавказа и не только! В исполнении кавказского "Казановы" прозвучат известные композиции и новые произведения, которые просто обречены стать хитами!01. Аслан Кушхов и ансамбль народного танца "Кафа" - Интро
-02. Мурат Тхагалегов - Казанова
-03. Мурат Тхагалегов - Одна ночь
-04. Мурат Тхагалегов - Плачут раны(   Читать дальше...   )Жанр: КонцертПродолжительность: 02:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73E29F7283204448E900A88E690ABE12479EEFDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297304   (604054) от 22.04.2019
-
-Квартирник НТВ у Маргулиса. Женя Любич (20.04.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604054.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новом выпуске в гости к Евгению Маргулису пришла «русская француженка» Женя Любич. В России о ней узнали как об участнице французской музыкальной группы Nouvelle Vague: она с ними часто и много выступала как в Париже, так и за пределами Франции. В уютной обстановке певица исполнила свои композиции и поделилась интересными воспоминаниями из жизни и творчества.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:51:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D979DF521EA354E77E978539913EE3D5DF4C9B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

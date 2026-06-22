@@ -1,3 +1,58 @@
+###  Публикация: 1078685   (300689) от 01.12.2016
+
+Tri-BACKUP Pro 8.0.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tri-BACKUP (Резервное копирование)
+ Tri-BACKUP – это эффективный и простой в использовании инструмент, который автоматически выполнит резервное и обычное копирование. Эта программа может создавать загрузочную копию вашего жёсткого диска и автоматически обновлять эту копию. В случае проблем или если вы захотите заменить жёсткий диск, вы можете просто перезапустить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05 ноября 2016Разработчик: TRI-EDREПоддерживаемая ОС: macOS 10.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AEAC3B9AAF90CA20191219E4842D278C5A359AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078567   (300514) от 01.12.2016
+
+MyBrushes - Sketch, Paint, Design 2.1.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300514.jpg" />
+</div>
+
+
+###  Подробнее
+
+MyBrushes является уникальным приложением для рисования, предназначенным для создания изображений и воспроизведения всего процесса рисования на НЕОГРАНИЧЕННОМ РАЗМЕРЕ ХОЛСТА. Оно поддерживает ввод текста и мгновенную обработку изображений. С MyBrushes вы сможете чертить, рисовать и делиться своими шедеврами когда и где угодно с другими любителями искусства.
+
+MyBrushes (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30 ноября 2016Разработчик: Paint StudioПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66143A36D70B7B5CE69F74CA5FC81466E00FF900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423578   (300469) от 13.11.2020
 
 Sync Folders Pro 4.1 [Multi/Ru]
@@ -6,7 +61,7 @@ Sync Folders Pro 4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300469.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ MenuBar Stats 3 v3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300466.jpg" />
 </div>
 
 
@@ -63,7 +118,7 @@ Nova 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300464.jpg" />
 </div>
 
 
@@ -90,7 +145,7 @@ Mountain Duck 4.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300458.jpg" />
 </div>
 
 
@@ -119,7 +174,7 @@ Movist Pro 2.4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300457.jpg" />
 </div>
 
 
@@ -147,7 +202,7 @@ Batteries 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300455.jpg" />
 </div>
 
 
@@ -173,7 +228,7 @@ Find Any File (FAF) 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300453.jpg" />
 </div>
 
 
@@ -200,7 +255,7 @@ RapidWeaver 8 v8.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300452.jpg" />
 </div>
 
 
@@ -228,7 +283,7 @@ xScope 4 v4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300451.jpg" />
 </div>
 
 
@@ -254,7 +309,7 @@ Loopback 2.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300449.jpg" />
 </div>
 
 
@@ -283,7 +338,7 @@ DxO PhotoLab 4 ELITE Edition 4.0.2.45 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300252.jpg" />
 </div>
 
 
@@ -311,7 +366,7 @@ Prism 9 v9.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_300248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_300248.jpg" />
 </div>
 
 
@@ -339,7 +394,7 @@ DCommander 3 Premium v3.8.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300247.jpg" />
 </div>
 
 
@@ -367,7 +422,7 @@ iA Writer 5.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300240.jpg" />
 </div>
 
 
@@ -393,7 +448,7 @@ Reeder 5 v5.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300234.jpg" />
 </div>
 
 
@@ -419,7 +474,7 @@ CADintosh X 8.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300086.jpg" />
 </div>
 
 
@@ -445,7 +500,7 @@ AnyTrans 8.8.0.20201105 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300079.jpg" />
 </div>
 
 
@@ -473,7 +528,7 @@ Movavi PDFChef for Mac 2021 v21.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300078.jpg" />
 </div>
 
 
@@ -499,7 +554,7 @@ Gestimer 1.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300076.jpg" />
 </div>
 
 
@@ -526,7 +581,7 @@ Logoist 4 v4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_299946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_299946.jpg" />
 </div>
 
 
@@ -554,7 +609,7 @@ Rhinoceros 6 v6.31.20315 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299942.jpg" />
 </div>
 
 
@@ -582,7 +637,7 @@ Capture One 21 Pro Beta 3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299937.jpg" />
 </div>
 
 
@@ -609,7 +664,7 @@ TechSmith Snagit 4.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299840.jpg" />
 </div>
 
 
@@ -636,7 +691,7 @@ ACDSee Photo Studio 6 v6.3.1795 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_299792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_299792.jpg" />
 </div>
 
 
@@ -649,59 +704,6 @@ ACDSee Photo Studio 6 v6.3.1795 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7084F121F53DFDDDCBBDDC1EE5EB3D07AB89E279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423650   (299639) от 13.11.2020
-
-Magnet 2.5.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый раз, когда вы хотите скопировать содержимое из одного приложения в другое, сравнивать файлы бок о бок в многозадачном режиме, необходимо сделать так, чтобы все окна были расположены соответственно. Magnet делает этот процесс простым и понятным. Вы щелкаете любое окно в левой, правой, верхней или нижней половине экрана. И путем перетаскивания окон по углам, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.11.2020Разработчик: Pavel KozarekПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Голландский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62A0ABCCAD2BF1024B646F54810A5FB8CE5CCECB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078519   (299563) от 01.12.2016
-
-LilyView 1.2.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299563.jpg" />
-</div>
-
-
-###  Подробнее
-
-LilyView — это лёгкий, поддерживающий мульти-тач жесты просмотрщик изображений, которого вам так не хватало раньше.
-При загрузке какого-нибудь графического файла LilyView отображает его по центру экрана. Примечательно, что программа самостоятельно отслеживает, есть ли другие изображения в той же папке, где была открыта текущая картинка. Если в папке имеется другая (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29 ноября 2016Разработчик: Software Ambience Corp.Поддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68F084FFD082B52E25724668361CD242F4C7FF22
 ```
 
 https://mybot314.ru/tekegram_catalog/

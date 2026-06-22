@@ -1,3 +1,90 @@
+###  Публикация: 1341600   (228812) от 29.11.2019
+
+VA - Workout I Get Back In Shape (2019) [MP3|320 Kbps] <Hard Rock, Rock, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228812.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Motley Crue - Kickstart My Heart (5:42)
+2.Nirvana - Smells Like Teen Spirit (5:03)
+3.Switchfoot - NATIVE TONGUE (4:38)
+4.3 Doors Down - Kryptonite (4:02)(   Читать дальше...   )Жанр: Hard Rock, Rock, OtherПродолжительность: 04:14:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A364760C1D2CC59B673ED024FFCCAE226A0A775
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424300   (227815) от 17.11.2020
+
+VA - Welkome To New World (2020) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227815.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Motion City Soundtrack - Crooked Ways
+002. Royal Green - Baby You're A Rich Man
+003. Garrison - The Only One
+004. Matthew Sweet & Susanna Hoffs - Gimme Some Truth(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 07:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:623D2BEA8CC55099A58FE20AE74B019140E675DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512950   (227391) от 27.11.2021
+
+VA - Raise Your Flag Rock World's Fest (CD 01) (2021) [MP3|320 Kbps] <Rock, Punk, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227391.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jakethehawk - Ochre And Umber
+002. Jxdn - Angels & Demons
+003. Home Brewed Universe - Gallifrey Funk
+004. Rostam - Kinney(   Читать дальше...   )Жанр: Rock, Punk, AlternativeПродолжительность: 09:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F142280A84EA8487855715E3248A025ED5EC3698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342203   (225531) от 01.12.2019
 
 VA - Something In My Heart (2019) [MP3|320 Kbps] <Blues Rock>
@@ -6,7 +93,7 @@ VA - Something In My Heart (2019) [MP3|320 Kbps] <Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225531.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223595.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ VA - Rock The Stage (2019) [MP3|320 Kbps] <Rock, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222615.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ VA - Halloween Stories (2022) [MP3|320 Kbps] <Rock, Hard Rock, Heavy Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222386.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ The Savage Rose - Her Story (Compilation) 2CD (2016) [MP3|320 Kbps] <Progressive
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220830.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ VA - Alternative Classic Rock (2016) [MP3|320 Kbps] <Alternative, Progressive, H
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220402.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ VA - Punk Rock: Just The Hits! (2020) [MP3|320 Kbps] <Punk, Punk Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216634.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ The Kelly Family - Compilation (2022) [MP3|320 Kbps] <Rock, Pop-Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216629.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Dr. Project Point Blank Blues Band - Compilation (2022) [MP3|320 Kbps] <Rock, Bl
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215395.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ VA - Festival Indie Pop Rock Music (2019) [MP3|320 Kbps] <Indie, Pop, Rock, Alte
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214799.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ VA - Рок 2020 Главные Хиты [MP3|320 Kbps] <Rock, Alternative, Othe
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_214267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_214267.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ VA - Русский Рок 2 (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213129.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213018.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ VA - MyTones - Heavy Metal Ringtones (2023) [MP3|320 Kbps] <Rock, Hard Rock, Met
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211027.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ MyTones - Ultimate ACDC Tones (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211009.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ VA - Assorted rock, blues rock, ballads part  25 Compilation (2023) [MP3|320 Kbp
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210578.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ MyTones - Ultimate Queen Tones (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210564.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ VA - female rock, blues rock part  24 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210443.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ VA - 90s Ballads (2023) [MP3|320 Kbps] <Alternative, Ballad, Soft Rock, Vocal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210056.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ VA - We Will Rock You (2022) [MP3|320 Kbps] <Classic Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209794.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Ringtone Track Masters - Ringtone Tunes Guitar Riffs (2009) 3CD [MP3|320 Kbps] <
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209168.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Dire Straits & Mark Knopfler - Collection (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208282.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ VA - Yacht Rock (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207225.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ VA - Yacht Rock (2023) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15E208381CC1DE2951280044BA2F778CD50CED97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579678   (207117) от 28.09.2022
-
-VA - Русский Рок 3 (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ундервуд - Дым (3:54)
-02. Щенки - Я Выпил Я Покурил Я Танцую (4:16)
-03. ЮГ 404 & Фрик Пати - Химия (2:27)
-04. Ярик Бро - Свитерок (2:42)(   Читать дальше...   )Жанр: RockПродолжительность: 02:52:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DF60AB9D17C7C440170FEB536BC935C739740C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582495   (206251) от 10.10.2022
-
-Nickelback - Compilation (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Animals
-02. Kiss It Goodbye
-03. How You Remind Me
-04. Do This Anymore(   Читать дальше...   )Жанр: RockПродолжительность: 02:52:5
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE11E152FB64BEDAAD8814A0F26F39F58079E0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585690   (204846) от 24.10.2022
-
-VA - Сектор газа. Народный трибьют 1 часть (2022) [MP3|256 Kbps] <Punk Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204846.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 ARS-Русский мат [00:01:57]
-002 Забыл как дышать-Импотент [00:03:29]
-003 Руслан Ахтямов-Кума [00:02:37]
-004 Сергей Мельник-Тёща [00:03:42](   Читать дальше...   )Жанр: Punk RockПродолжительность: 01:13:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3173799371E6FB2C34E3AA4B72B2DE45D464CB3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

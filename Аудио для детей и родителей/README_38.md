@@ -1,3 +1,56 @@
+###  Публикация: 1403804   (688564) от 21.08.2020
+
+Вильгельм Гауф | Корабль привидений. Калиф-аист. Сказки (1970 - 1980)  [Сборник]  [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688564.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборнике восемь радиоспектаклей, поставленных в разные годы по пяти сказкам В. Гауфа.Жанр: Детская литература. РадиоспектаклиВ ролях: Армен Джигарханян, Олег Табаков, актёры театровПродолжительность: 05:09:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:773F894DEB453F95066E46FF787FD927E395E388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 419822   (687836) от 15.03.2019
+
+Жюль Верн | Пятнадцатилетний капитан. В погоне за метеором [Радиоспектакль] [2010] [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман известного французского писателя Жюля Верна «Пятнадцатилетний капитан», повествует о приключениях юного капитана китобойной шхуны «Пилигрим» Дика Сэнда.
+В романе «В погоне за метеором» космическое тело, состоящее из золота, едва не разрушило земную экономику. Метеор оказывается слишком большой ценностью в мире, стабильность которого держится на золотом запасе (   Читать дальше...   )Жанр: Классика, приключенческий романПродолжительность: 01:24:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1618E6778E7F59A16D7E0305A92C82187147AEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134755   (687343) от 16.05.2017
 
 Тайсаев Джабраил | Звёздочка и дракон. Клоун личных страхов. (2017) [MP3]
@@ -6,7 +59,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687343.jpg" />
 </div>
 
 
@@ -35,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686596.jpg" />
 </div>
 
 
@@ -64,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686595.jpg" />
 </div>
 
 
@@ -92,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686581.jpg" />
 </div>
 
 
@@ -120,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686484.jpg" />
 </div>
 
 
@@ -148,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686168.jpg" />
 </div>
 
 
@@ -174,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685999.jpg" />
 </div>
 
 
@@ -200,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685585.jpg" />
 </div>
 
 
@@ -229,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684892.jpg" />
 </div>
 
 
@@ -255,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684398.jpg" />
 </div>
 
 
@@ -281,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683419.jpg" />
 </div>
 
 
@@ -308,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683274.jpg" />
 </div>
 
 
@@ -335,7 +388,7 @@ VA - Злодейские песенки (2000) [MP3|246~255 кб/с (V3)]<Де�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683263.jpg" />
 </div>
 
 
@@ -364,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681219.jpg" />
 </div>
 
 
@@ -390,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680347.jpg" />
 </div>
 
 
@@ -416,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678315.jpg" />
 </div>
 
 
@@ -445,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677088.jpg" />
 </div>
 
 
@@ -471,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674304.jpg" />
 </div>
 
 
@@ -498,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674233.jpg" />
 </div>
 
 
@@ -524,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673196.jpg" />
 </div>
 
 
@@ -551,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672085.jpg" />
 </div>
 
 
@@ -577,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670458.jpg" />
 </div>
 
 
@@ -604,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669211.jpg" />
 </div>
 
 
@@ -632,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669071.jpg" />
 </div>
 
 
@@ -646,59 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:398BC2CA64B2718D123DDD1BFDC6B5C6215891DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137124   (669066) от 25.05.2017
-
-Шарль Перро | Кот в сапогах (1971) [MP3, Николай Литвинов и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Радиоспектакль Шарля Перро "Кот в сапогах" - это одна из наиболее известных сказок знаменитого французского писателя о приключениях кота. Это история о том как после кончины одного старца младшему сыну в наследство от отца достался кот. Было младшему от чего расстроиться, но только кот оказался не простым, а на редкость предприимчивым и смышленым. И благодаря (   Читать дальше...   )Жанр: Пьеса, сказкаИздательство: Сказки со старых грампластинокПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CA70B97EB83A1507E7015ABF879DB12CC1ACB60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137535   (667809) от 26.05.2017
-
-Братья Гримм | Бабушка-метелица (1978) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667809.jpg" />
-</div>
-
-
-###  Подробнее
-
-И вот мы повзрослели... Где оно, беззаботное детство?.. Ушло? Да нет же, оно рядом, путается у вас под ногами, задает глупые вопросы и стремится завладеть вашим вниманием... Да и сами-то вы - так ли далеко от них, как порой кажется?.. А как часто случайно услышанный мотив уносит нас туда - на десять... пятнадцать... двадцать лет назад... В детство...
-СКАЗКИ - сказки (   Читать дальше...   )Жанр: СказкаПродолжительность: 00:09:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60F8A8ABDF5E324843B27F08E10968CB1C37B4D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

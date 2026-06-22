@@ -6,7 +6,7 @@ Karen Souza - Language Of Love (2020) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936206.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Billy Taylor - With Four Flutes (1959) Remaster, 2006, Victor [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935568.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Dave Douglas Quintet - Brazen Heart (2015) Greenleaf Music[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935567.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Seamus Blake & Chris Cheek - Let's Call The Whole Thing Off (2016) WEB [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935437.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Melvin (Mel) Rhyne - Organ-izing (1960) 2000, Original Jazz Classics[FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935435.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Ornette Coleman And Prime Time - Virgin Beauty (1988) [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935430.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Lew Tabackin Quartet - What A Little Moonlight Can Do (1994) Concord Jazz[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935428.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Dave Brubeck - Time Out / Gone With The Wind (1959) 2CD, 2010, Not Now Music[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935358.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Hal Galper - Ivory Forest 1979 (2013) P-Vine Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935038.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Tom Harrell - The Art Of Rhythm (1998) RCA Victor [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935037.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Lena Horne - Stormy Weather (1993) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935036.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Dexter Gordon - Clubhouse 1965 (1990) Blue Note [FLAC|Lossless|tracks + .cue] <H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934653.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Elvin Jones & Masabumi Kikuchi - Hollow Out (1972) Remaster, 2015, Universal[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934138.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Christian McBride Trio - Live At The Village Vanguard (2015) Mack Avenue Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934120.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Erik Truffaz Quartet - Doni Doni (2016) Foufino Productions[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934117.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Natalie Cole - Sophisticated Lady (1996) MCPS[APE|Lossless|tracks + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934023.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Sounds Of ‘94 (1994) GRP Records[FLAC|Lossless|image + .cue] <Post-Bop, V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934022.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Sarah McKenzie - Paris In The Rain (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz, V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934011.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Chet Baker - Sings and Plays with Bud Shank, Russ Freeman and Strings 1955 (1987
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933820.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Lonnie Liston Smith & The Cosmic Echoes - Astral Traveling (1973) 2014,  BGP Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933817.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Dave McKenna & Hal Overton - Dual Piano Jazz (1960) Remaster, 2014, Solid Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932644.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Tete Montoliu - Blues For Myself (1977) Remaster, 2015, DiscMedi Blau[FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932632.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Datura - Datura (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Jazz-Pop, Blue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932589.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Dusko Goykovich - Bebop City (1995) Enja[FLAC|Lossless|image + .cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932545.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ George Cables Trio - Cables' Fables (1991) 1995, SteepleChase[APE|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932544.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Louis Armstrong - La Vie En Rose (1930-1950) 1995, Success[APE|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932372.jpg" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 1175337   (360007) от 26.10.2017
+
+Кобра / Cobra (1986) BDRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он — «Кобра» — штурмовой отряд полиции из одного человека, ему достаётся кровавая работёнка, за которую никто не хочет (или не осмеливается) взяться. Он выходит на след убийцы, за которым целая армия преступников-маньяков, стремящихся уничтожить свидетельницу их кровавой вакханалии. Но, к счастью, она попадает под защиту «Кобры».Производство: США, Warner Bros, Cannon Group, Golan-Globus ProductionsЖанр: Боевик, Триллер, КриминалРежиссер: Джордж Пан КосматосАктеры: Сильвестр Сталлоне, Бриджитт Нильсен, Рени Сантони, Эндрю Робинсон, Брайан Томпсон, Джон Херцфелд, Ли Гарлингтон, Арт ЛаФлёр, Марко Родригес, Росс Ст. Филлип, Вэл Эйвери, Дэвид Раш, Джон Хок, Ник Анджотти, Нина Аксельрод, Джо БонниПеревод: Дублированный, профессиональный многоголосый, авторскийСубтитры: Русские, английскиеПродолжительность: 01:27:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:692C6B68A7D9FD08D14DFDE9FC70BC95D64033F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417271   (359976) от 19.10.2020
+
+Ворчун / Il Burbero (1986) BDRip [H.265/1080p] [10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Адвокат Тито Торризи летит во Флоренцию, чтобы отвлечься от неудачных дел. Он продает свой лишний билет официантке Мэри, не подозревая, к чему приведет его доброта.Производство: Италия / C.G. Silver Film, AlexandraЖанр: КомедияРежиссер: Франко Кастеллано, Джузеппе МоччиаАктеры: Адриано Челентано, Дебра Фэйер, Жан Сорель, Маттиа Сбража, Анджела Финоккьяро, Пеппе Ланцетта, Перси ХоганПеревод: Двуголосый профессиональный, авторский, многоголосый (UKR)Язык озвучки: Русский, украинский, итальянскийСубтитры: Русские, итальянскиеПродолжительность: 01:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:892DCD53CA27B72E482947FDAAE1E5A9247338DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 576298   (359929) от 18.11.2012
 
 Список Шиндлера / Schindler's List (1993) [720p] HDTVRip
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_359929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_359929.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_359548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_359548.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359145.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358570.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357824.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357639.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357540.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357140.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356601.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356075.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355969.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355352.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355228.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355042.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353163.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352863.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352780.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352464.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352052.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352002.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351881.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351828.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351652.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351648.jpg" />
 </div>
 
 
@@ -626,60 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:292766ADF5F0D316EB63835D52038AF38C8ED9FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 572326   (350093) от 22.11.2012
-
-Двадцатый век / 1900 / Novecento (1976) [720p] BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350093.jpg" />
-</div>
-
-
-###  Подробнее
-
-i
-Прекрасным летним утром 1900 года в итальянской провинции Эмилия появляются на свет два мальчика. Олмо - еще один рот в многодетной семье бедного крестьянина. Альфредо - отпрыск богатых помещиков. Несмотря на столь различное социальное положение, мальчики не только подружатся, но пронесут дружбу через всю свою жизнь. Они - дети страшных лет Европы, чье отрочество придется на годы Первой мировой войны, а зрелость вступит в свои права под грохот гитлеровских орудий. Фашистская Италия - страна неспокойная. Меняется вековой уклад общества, народ все больше узнает о своих правах, Муссолини использует смуту для захвата власти. Ветер перемен врывается и в провинцию Эмилия. Сплетение судеб - близких и бесконечно далеких, сплетение жизни личности и жизни страны...Жанр: Драма, историяРежиссер: Бернардо БертолуччиВ ролях: Роберт Де Ниро, Жерар Депардье, Берт Ланкастер, Дональд Сазерленд, Доминик Санда, Стефания Сандрелли, Стерлинг Хейден, Франческа Бертини, Лаура Бетти, Вернер БрунсПеревод: Многоголосый закадровый, Одноголосый закадровыйПродолжительность: 02:42:24+02:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B6C8501D2628A7E3DDD42B3908E52A953BDA776
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254476   (349545) от 24.10.2018
-
-Скачущие издалека / The Long Riders (1980) BDRip [H.265/1080p-LQ] [10-bit] [PR]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитая банда Малыша Джеймса — самая крутая шайка грабителей банков, поездов и дилижансов. Преисполненные отваги, они слывут в народе местными героями. Но поймать их клянется само всемогущее сыскное агентство Пинкертона, а это значит, что бандитам предстоит встреча со смертельным врагом.
-Выбор небогат: оказаться за решеткой или погибнуть. Только сила воли и кровное (   Читать дальше...   )Производство: США / Huka Productions, United ArtistsЖанр: ВестернРежиссер: Уолтер ХиллАктеры: Дэвид Кэрредин, Кит Кэрредин, Роберт Кэрредин, Джеймс Кич, Стейси Кич, Деннис Куэйд, Рэнди Куэйд, Кевин Брофи, Гарри Кэри мл., Кристофер Гест, Николас ГестПеревод: Многоголосый закадровый, Двуголосый закадровый x2, Одноголосый закадровыйСубтитры: английские, русскиеПродолжительность: 01:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72919CA27089404A30FA235F447FE1CE237A4343
 ```
 
 https://mybot314.ru/tekegram_catalog/

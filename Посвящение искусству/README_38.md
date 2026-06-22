@@ -1,3 +1,81 @@
+###  Публикация: 1078996   (298062) от 02.12.2016
+
+Смерть на съемочной площадке (2016) HDTV [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Часто актёры повторяют – хочу умереть на съёмочной площадке, до последней минуты сниматься в кино, служить своим зрителям. Иногда так и происходит. Жизнь кумиров трагически прерывается на съёмках прямо во время работы над новыми картинами… Зачем Евгений Урбанский шёл на риск, исполняя в фильме "Директор" опасный трюк без дублёра? Почему легенду о романе (   Читать дальше...   )Телекомпания: Россия, ТВ ЦентрЖанр: Документальный, ИсторияПродолжительность: 00:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D14416832454D837189BCE4BD5FCD771C5311F1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078656   (297797) от 02.12.2016
+
+Битлз: восемь дней в неделе – гастрольные годы / The Beatles - Eight Days a Week - The Touring Years (2016) BDRip [H.264/720p] [EN / RU Sub]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый документальный фильм Рона Ховарда, приглашающий поклонников группы The Beatles на гастрольные туры с 1963 по 1966 год, от дебюта в ливерпульском клубе до прощального выступления в Сан-Франциско. С помощью эксклюзивных записей, хроник, воспоминаний воссоздается история легендарной четверки – как они работали над будущими хитами, решали повседневные вопросы (   Читать дальше...   )Телекомпания: Великобритания, США / Apple Corps, Apple Corps, Imagine Entertainment, OVOW Productions, Universal Music Group International, White Horse PicturesЖанр: ДокументальныйРежиссер: Рон ХовардПеревод: ОтсутствуетЯзык субтитров: русскийПродолжительность: 01:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:191FF9DC1F40C7D8034D4B521DA9250C77E65DD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961362   (297097) от 03.12.2015
+
+Последняя гастроль Джо Дассена (2006) IPTVRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297097.jpg" />
+</div>
+
+
+###  Подробнее
+
+После знаменитого телевизионного выступления артистов французской эстрады голос Джо Дассена зазвучал по всему Советскому Союзу. Его партнерами на том концерте были Жильбер Беко, Саша Дистель, Далида. Однако соперничать с Джо Дассеном никто из них так и не смог. Он завоевал прочную позицию в советском эфире. Его пластинки выпускали миллионными тиражами, но их не хватало (   Читать дальше...   )Телекомпания: ВГТРКЖанр: ДокументальныйПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC4F5EAF25AFEEA9908DD43E3711596D6A70C929
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184787   (296767) от 19.11.2017
 
 Я – Хит Леджер / I Am Heath Ledger (2017) BDRip [H.264/720p] [MVO] [PR]
@@ -6,7 +84,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296767.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Queen: История альбома "News of the World" / Queen: The story of "
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296705.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295559.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294769.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_294482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_294482.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293763.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293311.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293042.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286202.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286040.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ Queen: Дни наших жизней / Queen: Days Of Our Lives (2011) BDRemux 
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284329.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282576.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281814.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280584.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277340.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277333.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277328.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277325.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277192.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274448.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273515.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271512.jpg" />
 </div>
 
 
@@ -583,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270191.jpg" />
 </div>
 
 
@@ -594,84 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A224BA93C83FE2AF8AF631B2780FBF3300A80B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339021   (268207) от 17.11.2019
-
-Толомуш Океев (1985) TVRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм-портрет о творческой судьбе кинорежиссёра Толомуша Океева, и его размышления о жизни и творчестве.Телекомпания: СССР, КиргизфильмЖанр: Документальный, БиографияСубтитры: отсутствуютПродолжительность: 00:26:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87376D966A8FA7DB10F47557916B01B9E4A6AB66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339625   (265196) от 20.11.2019
-
-INTO_нация Большой Одессы (2018) WEB-DLRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все герои этого фильма в каком-то смысле сироты. Потому что они лишились своей родины — своего города, в котором родились. Они разъехались по всему миру и говорят на разных языках со своими детьми. И далеко не все их дети понимают специфический язык и юмор, который наши герои увезли с собой. Почему наши герои вспоминают свой город? Хотели бы они туда вернуться и (   Читать дальше...   )Производство: Россия, УкраинаЖанр: Документальный, биографияРежиссер: Александр БруньковскийСубтитры: ОтсутствуютПродолжительность: 01:34:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A40450B021499AA169C6C7BB06F1FA37B006F83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341500   (262282) от 28.11.2019
-
-Уитни: Могу я быть собой? / Whitney: Can I Be Me (2017) BDRemux [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитые режиссеры Ник Брумфилд и Руди Долезал представляют новый документальный фильм об одной из величайших певиц всех времен и народов. Уитни Хьюстон была подлинным воплощением суперзвезды, «американской принцессой» и одной из самых титулованных артисток. Несмотря на заработанные миллионы, хиты, возглавлявшие чарты большее количество недель, чем песни "Битлз", (   Читать дальше...   )Производство: Великобритания, США, Lafayette Films, Passion Pictures, Showtime NetworksЖанр: Документальный, музыка, биографияРежиссер: Ник Брумфилд, Руди ДолезалПеревод: Многоголосый закадровый, профессиональный (1 канал)Субтитры: АнглийскиеПродолжительность: 01:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8C94A4C236439560A1EAFE3B0E5FC11A22F5AF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Exposure Software Eye Candy 7 v7.2.3.189 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737798.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ YTD Video Downloader PRO 4.16.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737793.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Bill Express 1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737408.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Image Tricks Pro 3.9.5 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737400.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ aText 2.40.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737392.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ OmniGraffle Pro 7 v7.19.4 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737361.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Mirror for Panasonic TV 3.7.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736936.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Project Office Pro 9.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736915.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Cleaner-App Pro 8.2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736912.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Dependency Walker 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736888.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Mirror for Chromecast 2.9.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736430.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Acon 1.1.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736423.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Easy Screen Recorder 4.6.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736420.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Navicat Premium 16.0.7 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736398.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Nuclear 0.6.17 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736289.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Native Instruments Komplete 12 Ultimate Collector’s Edition v1.06 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736065.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ LaunchControl 1.52.4 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735872.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ AnyDrop 1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_735403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_735403.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ RSS Button for Safari 1.7.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735399.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Storyspace 3 v3.9.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735396.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Kiosc 1.13.7 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735395.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Mirror for Sony TV 3.7.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735389.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ VoodooPad 6 v6.0.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734977.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ DSSW Power Manager 5.4.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734858.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ MediaHuman Youtube Downloader 3.9.9.41 (build 2807) [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734770.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Serial Box & SerialSeeker 2022 - 02 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734424.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Arslan Senki | The Heroic Legend of Arslan | Сказание об Арслан�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415707.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kuroshitsuji: Book of the Atlantic | Black Butler: Book of the Atlantic | Тём
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414546.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Kikou Soseiki Mospeada | Genesis Climber Mospeada | Моспида - оружи�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413605.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Soba e | Рядом с тобой [2019, Web] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412717.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Madoromi no Vevara | Vevara in Your Dream | Вевара из мира дрём�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412591.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Bartender | Бармен [2006, TV, 11 из 11] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408212.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Ore o Suki na no wa Omae Dake ka yo | Oresuki | Ты единственная, �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406727.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Gekijouban Kuroko no Baske: Last Game | Kuroko's basketbal: Last Game | Баск
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399305.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Sherlock Hound: The Adventure of the Blue Carbuncle | Meitantei Holmes: Aoi Akad
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391726.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Kobayashi-san Chi no Maid Dragon | Miss Kobayashi's Dragon Maid | Кобаяcи 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391712.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391699.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Ajin | Полулюди [2015, MV, 3] BDRip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390233.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Plastic Nee-san / +Tic Elder Sister / Сестрёнка-моделистка [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388956.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Kono Sekai no Katasumi ni | In This Corner of the World | В этом уголк
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388769.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Kurogane no Linebarrels | Linebarrels of Iron | Стальной Лайнбар�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387590.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Gekijouban Mahouka Koukou no Rettousei: Hoshi o Yobu Shoujo | Непутевый
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387273.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Gekijouban Kidou Senshi Gundam 00: A Wakening of the Trailblazer | Mobile Suit G
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386807.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Captain Earth | Капитан Земля [2014, TV, 25] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386227.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Gake no Ue no Ponyo / Ponyo on the Cliff by the Sea / Рыбка Поньо на
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385639.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Gochuumon wa Usagi Desuka?? Sing for You | Кролика заказывали? 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385505.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Gochuumon wa Usagi Desuka?? Dear My Sister | Кролика заказывали
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385504.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Yuru Yuri San Hai! / Свободу лесбиянкам! Три подружк�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384258.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ One Punch Man | One-Punch Man | Ванпанчмен [2015, TV, 12 + 6sp] BDrip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384159.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381552.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Blue Thermal | Влюблённые в небо [2022, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381538.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Aria the Benedizione | Ария: Благословение [2021, Movie] BDRip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381534.jpg" />
 </div>
 
 

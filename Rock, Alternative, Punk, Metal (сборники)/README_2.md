@@ -1,3 +1,61 @@
+###  Публикация: 1610389   (1042407) от 07.02.2023
+
+VA - Impressive Sound 2022.2: Volume III (2022) [MP3|320 Kbps] <Post-metal, blackgaze, sludge metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. De Mal En Pire - L'Astre de Velours
+02. Asunojokei - Heavenward
+03. Adolf Plays The Jazz - Cinnamon
+04. Lodz - This Mistake Again(   Читать дальше...   )Жанр: Post-metal, blackgaze, sludge metalПродолжительность: 01:29:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EF685F925DD75B78D71BCBC014B5CBDFF10444E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610269   (1042405) от 07.02.2023
+
+VA - Impressive Sound 2022.2: Volume I (2022) [MP3|320 Kbps] <Progressive metal, progressive rock, avant-garde metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Irist - Gloria
+02. Aenaon - Psyche
+03. The Blank Canvas - Epitaph For A Friend
+04. Charlie Griffiths - Arctic Cemetery(   Читать дальше...   )Жанр: Progressive metal, progressive rock, avant-garde metal, melodic death metalПродолжительность: 01:29:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70DE56D2C2D9B7D409A6DE3A0B9DD2525BDEC13C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437104   (1042259) от 04.01.2021
 
 VA - Music for You vol.15 (2021) [MP3|320 Kbps] <Metal, Rock, Other>
@@ -6,7 +64,7 @@ VA - Music for You vol.15 (2021) [MP3|320 Kbps] <Metal, Rock, Other>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042259.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Mick Jagger - Angel in My Heart (2021) 2CD, Compilation [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041688.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Ian Gillan - Unchain Your Brain (2021) 2CD, Compilation  [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041448.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Dorothy - Compilation (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041383.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Omega - Movin' World (2023) 2CD Compilation  [MP3|320 Kbps] <Rock, Psychedelic, 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040306.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Private Partners: Rock Blues Lyric Collection (2021) [MP3|320 Kbps] <Rock B
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040286.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - XV Anniversary Compilation (2021) [MP3|320 Kbps] <Doom Metal, Drone, Post-M
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038252.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Zepparella - 100% Zepparella (2021) [MP3|320 Kbps] <Rock, Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037978.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - XV Years Of Doom & Solitude (2021) [MP3|320 Kbps] <Doom Metal,  Drone, Post
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037759.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Everybody Loves An Outlaw - Compilation (2023) [MP3|320 Kbps] <Rock, Pop Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036978.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Frаncine - Golden Anthology Of Rock And Roll Music (2020) [MP3|320 Kbps] <Rock 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036304.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Impressive Sound 2022.2: Volume IV (2022) [MP3|320 Kbps] <Jazz, art-pop, av
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036157.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Impressive Sound 2022.2: Volume V (2022) [MP3|320 Kbps] <Instrumental, prog
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036152.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Impressive Sound 2022.2: Volume VI (2022) [MP3|320 Kbps] <Hardcore, metalco
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036147.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Prog Metal Rock Compilation (2021) 2xCD [MP3|320 Kbps] <Progressive Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034202.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Size Of My Heart (2021) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034201.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Ultimate Rock`n`Roll Party (Vol.02) (2021) [MP3|320 Kbps] <Rock & Roll>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033709.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Pantera - Collection (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032716.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Рок впрок 16 (2021) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032246.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Rock Drive 12 (2020) от DON Music (2020) [MP3|320 Kbps] <Hard Rock, Rock,
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031550.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - The Black Lavender (2021) [MP3|320 Kbps] <Rock, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031151.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Glam Rock 1970 - 1976 (2021) 5CD [MP3|320 Kbps] <Rock, Glam Rock, Hard Rock
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030678.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Hammond Organ in ROCK (2021) [MP3|320 Kbps] <Rock, Hammond>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029520.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Anos 70 - Internacional (2023) [MP3|320 Kbps] <Rock, Pop>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029398.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Anos 70 - Internacional (2023) [MP3|320 Kbps] <Rock, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97AAA42C597DC890CC2DCBD2994E3B71BEB52882
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410598   (1029142) от 25.02.2021
-
-The Rolling Stones - Best of the Best (1965-1973) Remaster SMRP, De-Noised, 2020 [MP3|320 Kbps] <Classic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-(I Can't Get No) Satisfaction (1965) (03:45)
-02-Play With Fire (1965) (02:16)
-03-As Tears Go By (1965) (02:47)
-04-I've Been Loving You Too Long (1965) (02:57)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ABB13B3104758D52627CA7691DDE1E999F51006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 873907   (1028395) от 01.03.2021
-
-VA - Чартова дюжина. Итоги хит-парадов разных лет 1999-2020 [MP3|256-320 кб/с]<Rock>
-
->>След.
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чартова дюжина" - хит-парад радиостанции "Наше радио", ориентированный преимущественно на русскоязычную музыку, а также рок-премия и фестиваль, в котором участвуют победители чарта по итогам года. Хит-парад состоит из тринадцати мест (соответственно названию, которое обыгрывает выражение "чёртова дюжина", то есть число 13). Голосование осуществляется (   Читать дальше...   )Состав раздачи:
-Чартова дюжина за 1999-2020 гг.
-Лучшие песни десятилетия (1998-2008)
-Выбор НАШЕго Топ-5Жанр: RockПродолжительность: 20:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA03822454EE3F5136C0AB41EA71CAFCF83A4D1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

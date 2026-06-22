@@ -1,3 +1,211 @@
+###  Публикация: 577519   (358213) от 19.11.2012
+
+Robbie Williams - Candy (2012) [1080p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7450B2FCCB47F86EEB5713D95247FAC404BD0289
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577924   (358211) от 19.11.2012
+
+Pitbull - Get It Started ft. Shakira (2012) [H.264/1080p]  WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96CD23A2DE62CEE880D1715E5AACCE13A8AC99FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577526   (358056) от 19.11.2012
+
+No Doubt - Push And Shove ft. Busy Signal, Major Lazer (2012) [H.264/1080p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РОР
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FC21FF70F15E98B5B3E1442D766A2856620D43F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577463   (358052) от 19.11.2012
+
+Kelly Rowland - ICE (Explicit) ft. Lil Wayne (2012)  [H.264/1080p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РОР
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F056F05B267065B23067D29E1FE6C66F102EF304
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577916   (358044) от 19.11.2012
+
+Madonna - Turn Up The Radio (Explicit) (2012)  [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РОР
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CDEA2F3A68C4C92CE99E6A651E6EBC29E1C6412
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577730   (358040) от 19.11.2012
+
+ПРЕМЬЕРА! Анастасия Стоцкая - Преступник (2012)  [H.264/1080p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РОР
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA4C4415D7F5BD586D6521D6FA3734D7309EBCE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577886   (358038) от 19.11.2012
+
+Чай Вдвоем - Время-вода (2012)  [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РОР
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59E6F19898E2419CDCB352C34C7F13A37A30D2D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577908   (358028) от 19.11.2012
+
+Jennifer Lopez - Goin' In ft. Flo Rida (2012) [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РОР
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4166F2CA86DF4FE41E93457C63BD100B60D12BB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 577501   (357663) от 19.11.2012
 
 Tiesto x Melanie Iglesias - Sounds Of The Night (2012) [H.264/1080p] WEBRip
@@ -6,7 +214,7 @@ Tiesto x Melanie Iglesias - Sounds Of The Night (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357663.jpg" />
 </div>
 
 
@@ -32,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357517.jpg" />
 </div>
 
 
@@ -58,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357402.jpg" />
 </div>
 
 
@@ -84,7 +292,7 @@ LOBODA - 40 ГРАДУСОВ (Нравится) (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357396.jpg" />
 </div>
 
 
@@ -110,7 +318,7 @@ Money Trump - Boss In My City (Uncensored) (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357388.jpg" />
 </div>
 
 
@@ -136,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355490.jpg" />
 </div>
 
 
@@ -165,7 +373,7 @@ VA - Осенний марафон № 201 / Видеоклипы (Популя�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353150.jpg" />
 </div>
 
 
@@ -194,7 +402,7 @@ Benny Benassi 'Rough Road' Bus Tour - Episode 5 (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350586.jpg" />
 </div>
 
 
@@ -220,7 +428,7 @@ DVJ Bazuka - Remind (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350427.jpg" />
 </div>
 
 
@@ -246,7 +454,7 @@ Lady Gaga - Marry The Night / MTV EMA 2011  (2011) HDTVRip [1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348212.jpg" />
 </div>
 
 
@@ -272,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347839.jpg" />
 </div>
 
 
@@ -298,7 +506,7 @@ Rico Rossi - Take Em Down (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345434.jpg" />
 </div>
 
 
@@ -324,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345255.jpg" />
 </div>
 
 
@@ -353,7 +561,7 @@ VA - Осенний марафон № 202 / Видеоклипы (Дискот�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344068.jpg" />
 </div>
 
 
@@ -382,7 +590,7 @@ ZAZ (2010-2011)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342779.jpg" />
 </div>
 
 
@@ -416,7 +624,7 @@ Stereo Palma Feat. Craig David - Our Love (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341230.jpg" />
 </div>
 
 
@@ -442,7 +650,7 @@ Sandra Valterović Siso lažljiva (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340940.jpg" />
 </div>
 
 
@@ -468,7 +676,7 @@ Pretty Mesha - World Star Honeys (Uncensored) (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340462.jpg" />
 </div>
 
 
@@ -479,232 +687,6 @@ Pretty Mesha - World Star Honeys (Uncensored) (2012) [H.264/720p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D24F685A8DFA485310EB47834D31E74D6208877D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580695   (340453) от 26.11.2012
-
-Suzi Quatro (vol.1) (2012) VHSRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can The Can - Top Of The Pops '73
-02. 48 Crash - Disco '73
-03. Daytona Demon - Disco '74
-04. All Shook Up - Happy Days '77(   Читать дальше...   )Жанр: Музыка, Glam rockПродолжительность: 00:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:387BF82BB32027BA1A4BFC98EF2BA9C255FF55CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580696   (340347) от 26.11.2012
-
-Suzi Quatro (vol.2) (2012) TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breakdown - RockPop '79
-02. Don't Change My Luck - Kenny Everett Show '79
-03. Evie - RockPop '79
-04. He's A Sports PA - BBC TV Editors tape '79(   Читать дальше...   )Жанр: Музыка, Glam RockПродолжительность: 01:05:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F751150B49AAD01429555010F9C98EA695308F05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580474   (340212) от 26.11.2012
-
-Leanna Decker - Killer (2011) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8D7882F68EB9AF6631E0F1AC7975F4C9886219E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580258   (339611) от 26.11.2012
-
-Сборник видеоклипов / Millenium Застольная (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_339611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Золотое Кольцо - Я сама любовь
-02 В.Сердючка - Тук тук тук
-03 Н.Королёва и А.Цекало.Ти ж мене пiдманула
-04 Белый день - Дарья
-05 Золотое Кольцо - Напилася я пьяна
-06 А.Пугачёва - Миллион алых роз
-07 София Ротару - Одна калина
-08 В.Добрынин - Не сыпь мне соль на рану
-09 Ой снег, снежок (Караоке)
-10 Балаган Лимитед - Гори, гори ясно(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EB722541A20C070BDF722DE0D57221E9C913A6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581467   (338054) от 27.11.2012
-
-Dash Berlin ft. Kate Walsh - When You Were Around (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TranceПродолжительность: 00:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:487F68EBF8F45263BBBB775ED2EBA6BE0C5E0988
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581469   (337927) от 27.11.2012
-
-DJ Sub - Resident Evil VS Silent Hill (Dubstep video Mix) (2012) [H.264] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DubstepПродолжительность: 00:04:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E57768CC4CC4206727FF252DD3649CF8ED187011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581465   (337699) от 27.11.2012
-
-DVJ Bazuka - Breakin (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Electro HouseПродолжительность: 00:03:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5041FB9D116A4EE2924A956EF5784A654AFF3AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954788   (336896) от 09.11.2015
-
-VA - Осенний марафон № 203 / Видеоклипы (Дискотека с размахом № 2) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенние (08.11.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Amira - Останови эту ночь (Премьера!) (00:03:10)
-02. David Guetta ft. Sia and Fetty Wap - Bang My Head (Official Video) (00:03:33)
-03. Enya - So I Could Find My Way (Official Video) (00:04:25)
-04. Jess Glynne - Take Me Home (Official Video) (00:04:32)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Dubstep, Alternative, Chill OutПродолжительность: 01:30:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D93412983FD35869BBD634A350AA84010B587A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

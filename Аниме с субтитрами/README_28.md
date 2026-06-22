@@ -1,3 +1,31 @@
+###  Публикация: 1494159   (890419) от 06.09.2021
+
+Gekijouban Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer the Movie: Mugen Train | Истребитель демонов: Поезд «Бесконечный» [2020, Movie] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение сериала.
+
+Завершив оздоровительные тренировки в Доме бабочки, Тандзиро и его друзья отправляются выполнять новое задание. На поезде «Бесконечный» творится что-то неладное: в одночасье там исчезает более 40 человек! А значит, Тандзиро, Нэдзуко, Иносукэ и Дзэницу предстоит сразиться с могущественным демоном. Присоединившись к одному из сильнейших мечников, (   Читать дальше...   )Производство: студия Ufotable / ユーフォーテーブルЖанр: приключения, фэнтезиРежиссер: Сотодзаки ХаруоПеревод: 1) Naiko Subs; 2) suffa; 3) YakuSub StudioЯзык озвучки: #1: ЯпонскийСубтитры: РусскиеПродолжительность: 120 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:738CDA3E7F2EFD180422EC080ECA01F5C6040C6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474855   (890411) от 06.09.2021
 
 Ijiranaide, Nagatoro-san | Don't Toy With Me, Miss Nagatoro | Не издевайся надо мной, Нагаторо [2021, TV, 12 эп.] BDRip 1080p raw
@@ -6,7 +34,7 @@ Ijiranaide, Nagatoro-san | Don't Toy With Me, Miss Nagatoro | Не издева�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890411.jpg" />
 </div>
 
 
@@ -33,7 +61,7 @@ Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её завет�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890406.jpg" />
 </div>
 
 
@@ -59,7 +87,7 @@ Gekijouban Blood-C: The Last Dark / BLOOD-C: Последний Тёмный [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890216.jpg" />
 </div>
 
 
@@ -89,7 +117,7 @@ Aria the Avvenire | Ария: Будущее [2015, OVA, 3 эп.] BDrip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890194.jpg" />
 </div>
 
 
@@ -118,7 +146,7 @@ Ixion Saga: Dimension Transfer / ИКСИОН САГА: Пространстве
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889990.jpg" />
 </div>
 
 
@@ -146,7 +174,7 @@ Kud Wafter | Куд Вафтер [2020, OVA] BDRip 1080p HEVC 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889178.jpg" />
 </div>
 
 
@@ -175,7 +203,7 @@ Uchuu Senkan Yamato 2199 | Star Blazers 2199 | Space Battleship Yamato 2199 | К
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889135.jpg" />
 </div>
 
 
@@ -201,7 +229,7 @@ Aria the Crepuscolo | Ария: Сумерки [2021, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889013.jpg" />
 </div>
 
 
@@ -227,7 +255,7 @@ Null Peta | Null & Peta | Нуль и Пета [2019, Web, 13 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888586.jpg" />
 </div>
 
 
@@ -254,7 +282,7 @@ Jashin-chan Dropkick | Dropkick on My Devil! | Пинок с наскока Дз
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888427.jpg" />
 </div>
 
 
@@ -280,7 +308,7 @@ Batman Ninja | Бэтмен-ниндзя [2018, Movie] BDRip 1080p raw+eng
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888377.jpg" />
 </div>
 
 
@@ -306,7 +334,7 @@ Girly Air Force | Девичьи воздушные силы [2019, TV, 12 эп.
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888329.jpg" />
 </div>
 
 
@@ -332,7 +360,7 @@ Runway de Waratte | Smile Down the Runway | Улыбайся на подиуме
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888115.jpg" />
 </div>
 
 
@@ -358,7 +386,7 @@ Pet | Питомец [2020, TV, 13 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887914.jpg" />
 </div>
 
 
@@ -384,7 +412,7 @@ Seto no Hanayome / My Bride is a Mermaid / Морская Невеста [2007, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887853.jpg" />
 </div>
 
 
@@ -412,7 +440,7 @@ Flying Witch / Полет ведьмы [2016, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887534.jpg" />
 </div>
 
 
@@ -439,7 +467,7 @@ Overlord | Повелитель [2015, TV, 13 + 8 sp] BDRip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887429.jpg" />
 </div>
 
 
@@ -465,7 +493,7 @@ Last Exile / Изгнанник [2003, TV, 26 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887090.jpg" />
 </div>
 
 
@@ -491,7 +519,7 @@ Death Parade / Парад смерти [2015, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887014.jpg" />
 </div>
 
 
@@ -517,7 +545,7 @@ Code Geass Hangyaku no Lelouch / Код Гиас: Восставший Лелу�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887002.jpg" />
 </div>
 
 
@@ -544,7 +572,7 @@ Musekinin Kanchou Tylor: Tokubetsu Hen - Hitoribocchi no Senso | The Irresponsib
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886670.jpg" />
 </div>
 
 
@@ -570,7 +598,7 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden | Magia Record: Puella Magi Mado
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886480.jpg" />
 </div>
 
 
@@ -596,7 +624,7 @@ Bishoujo Yuugekitai Battle Skipper | Battle Skipper School | Школа воен
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886195.jpg" />
 </div>
 
 
@@ -622,7 +650,7 @@ Ai Tenchi Muyou! / Тэнти - лишний! Любовь [2014, TV, 50 + 10 SP
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885938.jpg" />
 </div>
 
 
@@ -648,7 +676,7 @@ Hai to Gensou no Grimgar / Гримгал пепла и иллюзий [2016, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885483.jpg" />
 </div>
 
 
@@ -660,33 +688,6 @@ Hai to Gensou no Grimgar / Гримгал пепла и иллюзий [2016, TV
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:342567EFAD81E15FF2D7B9303D5C6B2123E64238
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103147   (885367) от 12.02.2017
-
-Code Geass Hangyaku no Lelouch R2 / Код Гиас: Восставший Лелуш R2 [TV-2] [2008, TV, 25 эп.] BDRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошел год со дня разгрома «Черного восстания». Остатки «Ордена Черных Рыцарей» скрываются от Империи, рассеявшись по стране, их лидер Зеро казнен Британией, а жители сектора 11 угнетены еще сильнее. Основные силы Империи теперь сконцентрированы на Европейском фронте.
-Впрочем, для самих Британцев в 11 секторе жизнь наладилась. В один прекрасный день британский студент, (   Читать дальше...   )Производство: Япония, студия Sunrise, студия CLAMPЖанр: приключения, фантастика, меха, драмаРежиссер: Танигути ГороЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 25 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA60ECF2471D65FF1B03CF1969C5EBCA27201E72
 ```
 
 https://mybot314.ru/tekegram_catalog/

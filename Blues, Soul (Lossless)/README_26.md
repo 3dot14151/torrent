@@ -6,7 +6,7 @@ Birdlegg - Extra Mayo (2016) WEB [FLAC|Lossless|tracks + .cue] <Electric Blues, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940354.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Shane Henry - Deliverance (2004) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940350.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Robert Cray Band - Too Many Cooks (1980) 1989, TOMATO, авторская р
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940267.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Mark 'Mississippi Slide' Jeghers - The Bluez Projekt (2016) WEB [FLAC|Lossless|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938945.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Love's Greatest Hits (2006) [FLAC|Lossless|tracks + .cue] <Funk, Soul, Cont
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938845.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Ryan McGarvey - 3 Альбома (2007 - 2014) [FLAC|Lossless|image + .cue] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937239.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Glenn Kaiser Band - Octane (2008) [APE|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935420.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935265.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935259.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Glenn Kaiser Band - Blacktop (2003) [FLAC|Lossless|tracks + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934018.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Simon Kinny-Lewis - Behind the Blue Mask (2013) [FLAC|Lossless|WEB-DL|tracks + .
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933959.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Glenn Kaiser Band - Carolina Moon (2001) [APE|Lossless|image + .cue] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932542.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Snowy White - Live At Rockpalast (2014) 2CD + DVD [FLAC|Lossless|image + .cue]<B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932475.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Glenn Kaiser - Spontaneous Combustion (1994) [FLAC|Lossless|tracks + .cue] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932426.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Wily Bo Walker - The Wily Bo Walker Story (2016) 2CD WEB [FLAC|Lossless|tracks +
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932256.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Mitch Kashmar - West Coast Toast (2016) [FLAC|Lossless|image + .cue] <Harmonica 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930972.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Blindstone - Freedom's Calling (2008) [FLAC|Lossless|image + .cue] <Heavy Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930956.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Eliana Cargnelutti - Electric Woman (2015) [FLAC|Lossless|image + .cue] <Modern 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930924.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Hunter & The Dirty Jacks - Mixed Company & The Midnight Hokum (2015) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929392.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Brad Wilson - Power Blues Guitar (2016) Live [FLAC|Lossless|image + .cue] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929388.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Toni Braxton And Babyface - Love Marraige And Divorce (2014) /Scene/ [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928141.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Mark Cook - Take Me Back Home (Styles 2 Collection) (2014) [FLAC|Lossless|image 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927879.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Rossington - Take It On Faith (2016) [FLAC|Lossless|image + .cue] <Blues, Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927873.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Simon Kinny - Lewis (2015-2016) 2CD [FLAC|WEB-DL|Lossless|image + .cue] <Blues-R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927806.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ The Aynsley Dunbar Retaliation - To Mum From Aynsley And The Boys / Remains To B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927803.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Neal Black, Nico Wayne Toussaint, Fred Chapellier - B.T.C Blues Review - Live An
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927695.jpg" />
 </div>
 
 

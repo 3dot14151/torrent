@@ -1,3 +1,55 @@
+###  Публикация: 1033912   (636271) от 12.07.2016
+
+А.В. Банников и др. (сост.) | Раннехристианские жития галльских святых (2016) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучая историю как поздней Римской империи, так и варварских королевств, мы сталкиваемся с необходимостью привлечения дополнительных источников для ликвидации лакун в наших знаниях об этом периоде. К счастью, до нас дошли многочисленные жития раннехристианских святых. Сочинения подобного рода нельзя просто отбрасывать и игнорировать при реконструкции исторических (   Читать дальше...   )Жанр: Жития, агиографияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41EF5D5B84E455FE59874D44A5C475E833508AC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907848   (636058) от 13.06.2015
+
+Д. Сидоров | О христианских праздниках, постах и обрядах (1957) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636058.jpg" />
+</div>
+
+
+###  Подробнее
+
+В брошюре рассказывается о происхождении и сущности христианских праздников, постов и обрядов.Жанр: история, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76105444FD3F5D549DE22C1D409F4DC808EEBFBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033757   (636038) от 12.07.2016
 
 Иларион, митрополит (Алфеев) | Православие. [I и II том] (2010) [FB2]
@@ -6,7 +58,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636038.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636036.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635956.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635949.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635829.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634124.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634122.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634119.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633744.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633742.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633740.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633620.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633502.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633225.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633175.jpg" />
 </div>
 
 
@@ -409,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633085.jpg" />
 </div>
 
 
@@ -437,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632598.jpg" />
 </div>
 
 
@@ -463,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632516.jpg" />
 </div>
 
 
@@ -489,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632418.jpg" />
 </div>
 
 
@@ -516,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632321.jpg" />
 </div>
 
 
@@ -542,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632207.jpg" />
 </div>
 
 
@@ -570,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632201.jpg" />
 </div>
 
 
@@ -596,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632145.jpg" />
 </div>
 
 
@@ -622,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632123.jpg" />
 </div>
 
 
@@ -633,58 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B31A8DFEA4F3F66D381F90F895484E7156A050F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543200   (631988) от 10.04.2022
-
-Монахиня Евпраксия (сост.) | Преподобный Иоанн Кассиан Римлянин. Изборник (2010) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нам нечего бояться внешнего неприятеля; враг в нас самих скрывается. В нас ежедневно происходит внутренняя война; после одержания победы в ней всё внешнее сделается слабым и с воином Христовым всё помирится и покорится ему. Мы не будем иметь такого неприятеля, которого бы следовало бояться вне нас, если внутреннее будет в нас побеждено и покорено духу. Мы должны (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F999088F1F90632886E1F7474EF447AE982145A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144105   (631797) от 20.06.2017
-
-А.И. Сидоров (пер.) | Жизнь и деяния святой и блаженной учительницы нашей Синклитикии (2013) [FB2, DOC]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сочинение "Жизнь и деяния святой и блаженной учительницы нашей Синклитикии" - александрийской святой, жившей в V веке, является уникальным святоотеческим памятником древнеегипетского монашества  и по своему жанру представляет собою нечто среднее между житием, похвальным словом и монашеским богословско-аскетическим трактатом. Его особенностью является не (   Читать дальше...   )Жанр: ЖитиеФормат: FB2, DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A9A6658F9372C121BC6D7F1DF00871637766D55
 ```
 
 https://mybot314.ru/tekegram_catalog/

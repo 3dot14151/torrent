@@ -6,7 +6,7 @@ E.Y.E: Divine Cybermancy [En/Fr] (Steam-Rip/1.37) 2011 | R.G. Игроманы
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634707.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Shank 2 [Ru] (RePack/1.0dc120305) 2012 l SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634618.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (2.0) SteamRip Let'sPlay [Deluxe Ed
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634578.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Lost Sea (2016) [Ru/Multi] (1.0.3) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633803.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Warparty (2019) [Ru/Multi] (1.0.2) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633229.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Dead Island Game of The Year Edition [Ru/En] (RePack/1.3) 2012 | VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632685.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Tom Clancy's Ghost Recon: Future Soldier (RePack/1.2) [Ru] 2012 l kuha
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632669.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_632614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_632614.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Endless Space (L) [Multi3/-] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632568.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Wargame: European Escalation + 2 DLC (Repack/12.07.02.470000075) [Ru] 2012 | R.G
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630452.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Banished (2014) [En] (1.0.3 b140620) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630155.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Cocoto Kart Racer 2 [Wii] [PAL] [Multi 6] (2011)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630145.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ The Raven: Legacy of a Master Thief (Episode 1) (2013) [Multi] (1.0) License REL
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629421.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Dungeon Siege 3 [En] (L) 2011 | RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_629175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_629175.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ S.T.A.L.K.E.R. Чистое Небо - Продолжение (RePack) [Ru] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628321.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Infinium Strike (2016) [Ru/Multi] (1.0) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628035.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Outward (2019) [Ru/Multi] (1.0/upd1) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627324.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Storm: Frontline Nation (L) [Multi5\-] 2011 | R.G. Origins
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626875.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Oxenfree (2016) [Ru/En] (2.1.0F26) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625901.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Rayman Origins (2012) [Ru/Multi] (1.0.32504u1.4) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625321.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Men of War: Assault Squad 2 / В тылу врага: Штурм 2 (2014) [Ru/En
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625058.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_624872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_624872.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Dear Esther (RePack/1.0u5) [Ru/En] 2012 l Fenixx
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624697.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Dear Esther / Дорогая Эстер (RePack/1.0u5) [Ru/En] 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624527.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ D4: Dark Dreams Don’t Die (2015) [Multi] (1.0) Repack R.G. Механики [S
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623082.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ Firewatch (2016) [Ru/Multi] (1.06 а) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623000.jpg" />
 </div>
 
 

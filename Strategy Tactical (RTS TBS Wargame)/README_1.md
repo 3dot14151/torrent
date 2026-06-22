@@ -1,3 +1,81 @@
+###  Публикация: 501552   (258579) от 26.05.2012
+
+Battle Isle 2220: Shadow of the Emperor (RePack) [En] 1995 | RG Games (Pilotus)
+
+>>Win Старые Игры
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третья часть все той же пошаговой стратегии. Ничего принципиально нового.(   Читать дальше...   )Тип издания: RePackЖанр: Пошаговая стратегияЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494158   (249272) от 09.05.2012
+
+Laser Squad Nemesis [Ru] (P) 2003
+
+>>Win Старые Игры
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_249272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Laser Squad Nemesis — пошаговая тактическая стратегия. В игре отсутствует одиночная компания. Игра рассчитана на сетевые сражения. В ней предусмотрены: игра через интернет, локальную сеть, hotseat, e-mail. Одна из основных особенностей игры — одновременное выполнение приказов, отданных юнитам.Тип издания: ПираткаЖанр: СтратегияЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143366   (249063) от 03.11.2025
+
+Heroes of Might and Magic (1996) [Multi] (1.5 editor fix) License GOG
+
+>>Win Старые Игры
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вселенная Might and Magic растет. Кому, как не вам, завоевывать открытые новые земли! Но берегитесь – ваши тактические умения и лидерские качества пройдут проверку в боях с множеством полководцев. Грамотно распоряжайтесь имеющимися ресурсами, иначе вас ждет поражение. Созовите армию героев и отправляйтесь за победой!Тип издания: LicenseРазработчик: New World Computing, Inc.Жанр: Стратегия, Пошаговая, ФэнтезиЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6431622859913977485BF5CB1C63598C14A3156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143241   (249062) от 03.11.2025
 
 Heroes of Might and Magic II (2) (1996) [Multi] (1.01/dlc) License GOG [Gold]
@@ -6,7 +84,7 @@ Heroes of Might and Magic II (2) (1996) [Multi] (1.01/dlc) License GOG [Gold]
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249062.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ MechCommander Gold (1998) [Ru/En] (2.1.0.3/dlc) Repack Necros
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246072.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ MechCommander 2 (2001) [Ru/En] (2.2.0.5) Repack Necros
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246070.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Warhammer: Mark of Chaos (2006) [Multi] (2.14/dlc) License GOG [Gold Edition]
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236415.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Etherlords 2 / Демиурги 2 HD (2003) [Ru] (1.03) Repack BAPK
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207469.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Warhammer 40 000: Chaos Gate (1998) [Ru] (1.2 Hotfix 3) Repack Other s
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206554.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Styrateg / Западная граница (2006) [Ru] (1.0) License
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206060.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Gary Grigsby's War in the West (2014) [En] (1.02.59/dlc) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201941.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Gary Grigsby's War in the East (2010) [Multi] (1.11.03/dlc) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201097.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Warhammer 40,000: Chaos Gate (1998) [En] (1.2hf3) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197402.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Desert Law / Койоты: Закон пустыни (2005) [Ru/Multi] (1.0) Lic
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196908.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Warhammer 40,000: Dawn of War (2006) [En] (0.19) License GOG [Master Collection]
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196461.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ The Gladiators: Galactic Circus Games / Гладиаторы (2002) [Ru] (1.0) L
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196051.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Black Moon Chronicles (1999) [En/Fr/Ge] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156400.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Faces of War / В тылу врага 2 (2006) [Ru/En] (1.04.1) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137186.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Shattered Union / Shattered Union: Захват США (2005) [Ru] (1.00x) Repac
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125121.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Soldiers of Anarchy / Солдаты анархии [Ru] (L/1.1.2.178) 2002
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104430.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ Scorched Earth (RePack) [En] 1991 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102657.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ Battle Master [En] (RePack) 1991 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102380.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ Laser Squad [En] (RePack) 1992 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_101791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_101791.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ Ballerburg / Баллербург [Ru] (RePack) 2002 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89272.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ Full Spectrum Warrior [Ru] (RePack) 2004 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87617.jpg" />
 </div>
 
 
@@ -583,7 +661,7 @@ Gunlok [Ru] (RePack) 2000 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86947.jpg" />
 </div>
 
 
@@ -594,84 +672,6 @@ Gunlok [Ru] (RePack) 2000 | Pilotus
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478768   (86630) от 05.04.2012
-
-Robin Hood: The Legend of Sherwood / Робин Гуд: Легенда Шервуда [Ru] (RePack) 2002 | Pilotus
-
->>Win Старые Игры
->>Strategy Tactical (RTS/TBS/Wargame)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86630.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Робин Гуд: Легенда Шервуда" - это тактическая стратегия, жанр которой фактически оформился с выходом знаменитой игры "Commandos" и получил развитие в "Desperados". Теперь создатели Desperados обратились к классическому английскому сюжету о братстве лесных стрелков, злом шерифе, короле Ричарде и его брате Джоне по прозванию "Безземельный". Руками Робина Гуда игрок спасет Англию от жестокого гнета самозваного правителя, собрав выкуп за томящегося в плену Ричарда Львиное Сердце.(   Читать дальше...   )Тип издания: RePackЖанр: Strategy (Real-time / Tactical) / Arcade / IsometricЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478294   (86473) от 04.04.2012
-
-Star Wolves / Звездные волки [Ru] (RePack) 2004 | Pilotus
-
->>След.
->>Strategy Tactical (RTS/TBS/Wargame)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86473.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Звездные Волки" - трехмерная космическая стратегия в реальном времени с элементами RPG. Действие игры происходит в далеком будущем. Чтобы хоть как-то бороться с пиратством на трансгалактических линиях, человечеством был легализован институт "охотников за головами" - наемников, владеющих скоростными космическими истребителями и призванных бороться с разного рода преступниками. Именно в роли такого наемника игрок и вступает в игру, имея вначале лишь небольшую сумму денег, пару кораблей и массу амбиций. По ходу дела главному персонажу предстоит сражаться с пиратами, охранять торговые суда, участвовать в охоте за знаменитым Красным Корсаром, наживаться на страстях урановой лихорадки, выполнять секретные задания, и даже служить агентом императора. В команде игрока может быть до шести уникальных персонажей, каждый из которых обладает своей внешностью, голосом, способностями и историей. В ходе игры характеристики персонажей растут, добавляются новые уникальные навыки.Тип издания: RePackЖанр: Трехмерная космическая тактическая стратегияЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462509   (81482) от 11.03.2012
-
-1944: Battle of the Bulge / Арденны 1944 [Ru] (L) 2005
-
->>Win Старые Игры
->>Strategy Tactical (RTS/TBS/Wargame)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Военно-историческая стратегия 1944: Battle of the Bulge, разрабатываемая венгерской компанией Digital Reality, продолжает рассказ о Второй мировой войне, начатый в проектах Desert Rats vs. Afrika Korps и D-Day. 20 миссий для одиночного прохождения можно будет выполнить за каждую сторону, а затем проявить своё полководческое мастерство в многопользовательском режиме. На этот раз, после песков Африки и берегов Нормандии, вам придется воевать в условиях европейской зимы, накладывающей дополнительные ограничения на возможности солдат и техники.Тип издания: ЛицензияЖанр: СтратегияЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9CEF10325986D2617CF29C5F9A8498320DEA6A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

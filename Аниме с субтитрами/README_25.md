@@ -1,3 +1,29 @@
+###  Публикация: 633366   (916249) от 22.03.2013
+
+Nanako Kaitai Shinsho / Amazing Nurse Nanako / Нанако [1999, OVA, 6 ep.] DVDRip +eng
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Медсестра Нанако - глупая большегрудая ассистентка известного ученого-генетика Огами, работающая в его несколько странном медицинском центре, расположенном на американской военной базе. Нанако, кроме роли медсестры, то и дело приходится исполнять роль подопытного кролика в экспериментах сумасшедшего ученого. Кроме того, исследованиями доктора Огами заинтересовались (   Читать дальше...   )Жанр: приключения, комедия, фантастика, эттиРежиссер: Нэгиси Хироси / Negishi HiroshiПеревод: Кампай-клубЯзык озвучки: ЯпонскийЯзык субтитров: Русский; АнглийскийПродолжительность: (6 эп.), 30 мин..
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 633353   (916171) от 22.03.2013
 
 Kizuoibitou / Wounded Man / Человек со шрамом [1986, OVA, 5 ep.] DVDRip
@@ -6,7 +32,7 @@ Kizuoibitou / Wounded Man / Человек со шрамом [1986, OVA, 5 ep.] 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916171.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Neppuu Kairiku Bushi Road [2013, TV-спешл] HDTV 720p Hi10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915864.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Mugen no Ryvius | Infinite Ryvius | Бесконечное путешестви�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915686.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Nihon Chinbotsu 2020 | Japan Sinks 2020 | Гибель Японии 2020 [2020, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915504.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Girlfriend (Kari) | Girlfriend (Beta) | Девушка (Бета) [2015, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915161.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Soukyuu no Fafner: Dead Aggressor - Exodus | Небесный Фафнир: Ис
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914684.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Wixoss Diva(A)Live | Wixoss: Дива в прямом эфире [2021, TV, 12 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913907.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Slime Taoshite 300-nen, Shiranai Uchi ni Level Max ni Nattemashita | Я 300 ле
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913741.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Dr. Stone: Stone Wars | Доктор Стоун [ТВ-2] [2021, TV, 11 эп.] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913727.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Kimi to Boku no Saigo no Senjou, Arui wa Sekai ga Hajimaru Seisen | KimiSen | П
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913726.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Memories Off | Забыть прошлое [2001, OVA, 3 эп.] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913212.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Memories Off 2nd | Memories Off 2 | Забыть прошлое 2 [2003, OVA, 3 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913151.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ High School DxD Born | Демоны старшей школы [ТВ-3] [2015, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912983.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Kemeko Deluxe! | Кемеко Делюкс! [2008, TV, 12 из 12] BDRip 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910897.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Time Travel Shoujo: Mari Waka to 8-nin no Kagakusha-tachi | Девушки, пу
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910176.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ Altered Carbon: Resleeved | Видоизмененный углерод [2020, M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910150.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Hetalia: World Stars | Хеталия: Мировые звёзды [2021, Web, 1
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908213.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ Sekai Seifuku: Bouryaku no Zvezda / World Conquest Zvezda Plot / Покорен�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907520.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ Heroic Age / Героический Эйдж [2007, TV, 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906730.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ Ghost Sweeper GS Mikami / Ghost Sweeper Mikami / Миками - истребит
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_905762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_905762.jpg" />
 </div>
 
 
@@ -544,7 +570,7 @@ Carole & Tuesday | Кэрол и Тьюсдей [2019, TV, 24 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905577.jpg" />
 </div>
 
 
@@ -570,7 +596,7 @@ Akanesasu Shoujo | The Girl in Twilight | Девушка в багряных с�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905557.jpg" />
 </div>
 
 
@@ -596,7 +622,7 @@ Uchi no Ko no Tame Naraba, Ore wa Moshikashitara Maou mo Taoseru Kamo Shirenai. 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905375.jpg" />
 </div>
 
 
@@ -622,7 +648,7 @@ Isekai Shokudou | Restaurant to Another World | Кафе из другого м�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905246.jpg" />
 </div>
 
 
@@ -648,7 +674,7 @@ Hashiri Tsuzukete Yokattatte. | Хорошо, что я продолжил бе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903817.jpg" />
 </div>
 
 
@@ -660,33 +686,6 @@ Hashiri Tsuzukete Yokattatte. | Хорошо, что я продолжил бе�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9915B03213FE199379C327927A6EE4887EEB2C5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369467   (903664) от 23.03.2020
-
-Fukuyama Gekijou: Natsu no Himitsu | Театр Фукуямы: Летний секрет [1990, OVA, 1 эп.] LDRip 480p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшой сборник клипов и коротких историй, основанный на манге Фукуямы Кейко, представляет собой рассказы из книжки, которую мышиная семья читает перед сном. Всего 8 историй (4 музыкальных и 4 повествовательных) плюс морской эндинг и маленькая вставка с мышами, открывающие и закрывающие ОВАшку.
-ОВАшка несёт каплю японского "моно но аварэ" ("печального (   Читать дальше...   )Жанр: приключенияРежиссер: Сакурай МитиёПеревод: Orphan; World_Houp & Аццкий КритегЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 1 эп. по 55 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C433E5ABB540BD92A7A0D685325C21FEC0C8A2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

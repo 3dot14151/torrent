@@ -1,3 +1,108 @@
+###  Публикация: 1115035   (829785) от 16.03.2017
+
+Странные контакты третьей степени / Strange Encounters of The Third Kind (2004) SATRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грибы растут на Земле более 400 миллионов лет. Они многообразны по размеру и форме. На сегодняшний день их насчитывается более 100 тысяч видов. В фильме рассказывается об удивительном мире грибов, таящем множество загадок и тайн.Телекомпания: АвстрияЖанр: Документальный, флора и фаунаРежиссер: Курт МюндлПеревод: Одноголосый профессиональный, студия СВ-дубль по заказу ВГТРК "Культура"Продолжительность: 00:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB8534D5013070BAD0AD090FDE220CD01FADDC01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365339   (829302) от 05.05.2020
+
+Африканские охотники / Africa's Hunters (2016-2017) UHDTV [H.265/2160p] [4K, 10-bit, 50fps] (сезоны 1-2, серии 1-12 из 12)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дикая природа, которая заставляет своих детищ сражаться за выживание, использует самые жестокие методы. Пищевая цепочка на Африканском континенте весьма запутана. Здесь животные одновременно могут быть как хищниками, так и жертвами. Сложно сказать, кто именно занимает вершину этой сложнейшей цепи. Здесь есть место и диким кошкам, и медведям, и псам и многим другим (   Читать дальше...   )Производство: Канада, Plimsoll Productions for Blue Ant Media InternationalЖанр: Документальный, природа, флора, фаунаРежиссер: Ханна ХоарПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:196AA02DF103C5CF6A226DDE204506F0B5DFBE6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 653644   (829098) от 08.05.2013
+
+Дикая Германия / Дикая природа Германии. Побережье Померании / Wildes Deutschland. Vorpommerns Kuste (2011) BDRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Германия - это страна с разнообразным и неповторимым ландшафтом. Этот минисериал покажет неизвестный и недоступный обычным туристам мир Германии, мир дикой природы.
+На Балтийском море расположился один из самых красивых природных ландшафтов Германии - переднее побережье Померании. В этом краю обитают благородные олени, лосось из моря идет по пресноводным рекам на (   Читать дальше...   )Жанр: Документальный, научно-познавательный, природаПеревод: Одноголосый закадровый (профессиональный, Ю.Сербин)Продолжительность: 00:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DCA02218B6B908F4CDE0822DB63AD3FA16B1223
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005977   (828795) от 11.04.2016
+
+Гринды - морские охотники (Дельфины – гепарды морских глубин) / Cheetahs Of The Deep (2013) [H.264/720p] HDTVRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие виды китов и дельфинов обитают в водах Канарских островов. Гринды с короткими плавниками обитают тут в большом количестве. Гринды живут, как правило, в группах из примерно 20-30 особей. Группа следует вожаку, социальное поведение внутри которой высоко развито. Одна такая группа следует Изоре, поведение которой ученые записывали в течение целого года. В то (   Читать дальше...   )Телекомпания: Viasat NatureЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C18EE227CD181F98EBCFE2C64DD83558CA0A9C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006049   (828601) от 11.04.2016
 
 IMAX: Голубая планета / Blue Planet (1990) BDRemux [VC-1/1080p] [EN / RU Sub]
@@ -6,7 +111,7 @@ IMAX: Голубая планета / Blue Planet (1990) BDRemux [VC-1/1080p] [E
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828601.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828097.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827651.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ Animal Planet. Чудеса голубой планеты. Семь контин
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826534.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822622.jpg" />
 </div>
 
 
@@ -137,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822338.jpg" />
 </div>
 
 
@@ -164,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818985.jpg" />
 </div>
 
 
@@ -190,7 +295,7 @@ BBC. Как устроена природа / Secrets of Our Living Planet (2012
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818839.jpg" />
 </div>
 
 
@@ -216,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817842.jpg" />
 </div>
 
 
@@ -242,7 +347,7 @@ NG. Кевин Ричардсон - Заклинатель львов / Kevin Ri
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817597.jpg" />
 </div>
 
 
@@ -268,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817001.jpg" />
 </div>
 
 
@@ -294,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815447.jpg" />
 </div>
 
 
@@ -320,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815376.jpg" />
 </div>
 
 
@@ -346,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814068.jpg" />
 </div>
 
 
@@ -372,7 +477,7 @@ NG. Дикая Арктика / Wild Arctic (2018) WEB-DL [H.264/1080p] (Сер�
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814001.jpg" />
 </div>
 
 
@@ -398,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813597.jpg" />
 </div>
 
 
@@ -424,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813456.jpg" />
 </div>
 
 
@@ -450,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813453.jpg" />
 </div>
 
 
@@ -476,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813445.jpg" />
 </div>
 
 
@@ -502,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813444.jpg" />
 </div>
 
 
@@ -528,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812311.jpg" />
 </div>
 
 
@@ -554,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809961.jpg" />
 </div>
 
 
@@ -565,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A822A7633F29059147BB153B7C5B4703BD544718
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009410   (809655) от 21.04.2016
-
-Зеленая планета / The Green Planet (Das  grüne Wunder - Unser Wald) (2012) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Леса занимают 30 процентов поверхности Земли, но мы до сих пор мало что о них знаем. «Зеленая планета» позволит нам приблизиться к этому загадочному и волшебному миру. Режиссер Ян Хафт и его команда покажут истории лесных жителей, от грациозных оленей до хитрых лисиц и диких кабанов.Телекомпания: Германия, Natural History Germany, Nautilusfilm, NDR Naturfilm, Polyband GmbH, Studio Hamburg Doclights ProduktionЖанр: Документальный, видовой, флора, фаунаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 01:29:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DF70E128D70CBF6F4760E333D362586664084A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 199157   (808854) от 07.05.2010
-
-Страсти по насекомым 2. Великий Альянс / Insectia 2. The Grand Alliance (2010) HDTVRip (серия 7 из 13)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снятый по строгим научным стандартам, сериал "Страсти по насекомым" один из самых лучших образовательных фильмов по энтомологии - науке, изучающей насекомых. Несомненно, заслуга в этом выдающегося популяризатора и прекрасного рассказчика Джорджа Броссара. После пятнадцатилетней карьеры нотариуса в возрасте 38 лет Броссар оставляет это скучное занятие и (   Читать дальше...   )Производство: Франция, Pixcom, Cineteve, La CinquiemeЖанр: Документальный, природа, энтомологияРежиссер: Герман ГутерресПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:22:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 198841   (808852) от 07.05.2010
-
-Страсти по насекомым 2. Остров ткачей / Insectia 2. Weavers Island (2010) HDTVRip (серия 6 из 13)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снятый по строгим научным стандартам, сериал "Страсти по насекомым" один из самых лучших образовательных фильмов по энтомологии - науке, изучающей насекомых. Несомненно, заслуга в этом выдающегося популяризатора и прекрасного рассказчика Джорджа Броссара. После пятнадцатилетней карьеры нотариуса в возрасте 38 лет Броссар оставляет это скучное занятие и (   Читать дальше...   )Производство: Франция, Pixcom, Cineteve, La CinquiemeЖанр: Документальный, природа, энтомологияРежиссер: Герман ГутерресПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:22:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 198840   (808851) от 07.05.2010
-
-Страсти по насекомым 2. Жизнь в пустыне / Insectia 2. Life in the Desert (2000) HDTVRip (серия 5 из 13)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снятый по строгим научным стандартам, сериал "Страсти по насекомым" один из самых лучших образовательных фильмов по энтомологии - науке, изучающей насекомых. Несомненно, заслуга в этом выдающегося популяризатора и прекрасного рассказчика Джорджа Броссара. После пятнадцатилетней карьеры нотариуса в возрасте 38 лет Броссар оставляет это скучное занятие и (   Читать дальше...   )Производство: Франция, Pixcom, Cineteve, La CinquiemeЖанр: Документальный, природа, энтомологияРежиссер: Герман ГутерресПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:22:23
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

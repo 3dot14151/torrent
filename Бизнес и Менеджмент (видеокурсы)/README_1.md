@@ -6,7 +6,7 @@
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039774.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039766.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039705.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039509.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Creative Writing School, Павел Миронов | Сценарист виде
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039444.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ ConvertMonster | Интернет-маркетолог 3.0 (2019) PCRec
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038660.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ ConvertMonster | Специалист по трафику, трафик-мене
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038649.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037971.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Slurm (Слёрм) | Soft skills для каждого (2022) WEB-DL [Тариф
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037702.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Udemy, Rob Percival и др. | The Complete Digital Marketing Course - 12 Course
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037636.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037356.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Skillbox, Дмитрий Крутов и др. | Продюсер онлайн-�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037029.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036876.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036811.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036807.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036784.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Convert Monster | Яндекс.Директ [Пакет "Эксперт"] (2019)
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036764.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036514.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036507.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035950.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035940.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035912.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035681.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035668.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ SEMPRO | SEO-конференция. Как делать SEO для западн
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035434.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034619.jpg" />
 </div>
 
 

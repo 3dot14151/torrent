@@ -1,3 +1,107 @@
+###  Публикация: 1316228   (488403) от 09.08.2019
+
+Animus - Stand Alone (2019) [Ru/Multi] (1.1.1) License PLAZA
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возьмите на себя роль анонимного воина — пойманного не на месте и во времени - в путешествии, чтобы положить конец разрушенному миру. Соберите свое оружие и выбирайте осторожно: расстояние, время, комбинации, выносливость и атрибуты будут определять исход битвы. Animus: Stand Alone — ролевая игра, состоящая из быстрых этапов и компактных сражений с боссами. SA — (   Читать дальше...   )Тип издания: LicenseРазработчик: TENBIRDSЖанр: Action, RPG, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BC9F86E54C312B36D4FE64F1B2B5E6C66751C98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243868   (487739) от 29.08.2018
+
+Tales of Hongyuan (2017) [En/Ch] (1.1.0/dlc) License PLAZA
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два могущественных королевства воюют между собой вот уже много лет. Пока что держится равновесие, которое не позволяет одной из сторон захватить преимущество. Но что будет, когда на поле боя выйдете вы?Тип издания: LicenseРазработчик: 弘原游戏Жанр: RPG (Action), 3DЯзык субтитров: Английский, КитайскийЯзык интерфейса: Английский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4065B2228D4656280E82ACC36ED8CEDEE5E78404
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159097   (487416) от 18.08.2017
+
+Sword Coast Legends (2015) [Ru/En] (1.0) Repack xatab
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487416.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом мире игрок будет не один. Компанию ему составят бесстрашные герои, которые будут представлять пять рас и шесть неповторимых классов. Особенностью игры является возможность останавливать время в любой момент, оценить обстановку и отдать наиболее точнее приказы, для успеха следующего шага.Тип издания: RepackРазработчик: n-SpaceЖанр: RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B35070295F24B574B41F4430F2EEBC313930CCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156074   (485395) от 19.08.2017
+
+The Legend of Heroes: Trails of Cold Steel (2017) [En/Jp] (1.0.6430.37816/dlc) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485395.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре внимания Trails of Cold Steel находится группа кадетов из военной академии Торс, во главе с неформальным лидером новоиспечённого класса VII - Рином Шварцером. Вопреки правилам и обычаям академии, которые разделяют учебные группы по социальным классам, особый класс VII отличается от остальных. Принятые в него студенты отбирались не по социальному признаку, (   Читать дальше...   )Тип издания: LicenseРазработчик: Nihon Falcom CorporationЖанр: Ролевая игра, Пошаговая, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:416A2C2BC225C607387D4B900F9FADDE2D7ECB03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159251   (485393) от 19.08.2017
 
 Blue Horizon (2017) [Ru/Multi] (1.0) License HI2U
@@ -6,7 +110,7 @@ Blue Horizon (2017) [Ru/Multi] (1.0) License HI2U
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485393.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Darkwood (2017) [Ru/Multi] (1.3) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484469.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Immortals Fenyx Rising (2020) [Ru/En] (1.1.1) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482039.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ ATOM RPG: Post-apocalyptic indie game (2018) [Ru/En] (1.17/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480480.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Vestaria Saga II: The Sacred Sword of Silvanister (2022) [Multi] (1.13.6) Licens
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479965.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Windbound (2020) [Ru/Multi] (1.0.36896.31/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478516.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Tower of Time (2018) [Ru/Multi] (1.2.4.2473) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477644.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ bit Dungeon II (2014) [En] (2.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474754.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Herolike (2016) [En] (1.0) License HI2U
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472368.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Hero Siege (2014) [En] (2.0.0.3/dlc) Unofficial VseTop [Digital Collector's Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471118.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Masquerada: Songs and Shadows (2016) [En] (0.95) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467874.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Hard West 2 (2022) [Ru/Multi] (1.0.0.0.4021/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467703.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Midnight Protocol (2021) [Ru/Multi] (1.3.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467698.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Paradise Killer (2020) [En] (1.0.8.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465849.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Vanaris Tactics (2022) [Multi] (1.01) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465742.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Two Worlds: Game Of The Year Edition [Ru] (RePack) 2008 | Spieler
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464338.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ Dead State: Reanimated (2014) [Ru] (2.0.2.0002) Repack leve1ord
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463775.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ Neverwinter Nights: Enhanced Edition (2018) [Multi] (78.8186/dlc) License CODEX 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462693.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (cs:6544/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461602.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ Space Rogue (2016) [Ru] (1.1.7917) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461260.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ Legend of Grimrock 2 (2014) [En] (2.2.4) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460777.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ ONINAKI (2019) [Multi] (1.0.0/dlc) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460501.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ ONINAKI (2019) [Multi] (1.0.0/dlc) License HOODLUM
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7B505851FD1BC86F0123B365B528C482109FC55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162141   (458741) от 01.09.2017
-
-Wizards and Warriors (2000) [En] (1.0) License
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пусть сюжет Wizards & Warriors не делает каких-то неожиданных поворотов, пусть каждое слово и каждый мотив вселенских злодеев уже выучены назубок, эта RPG готова удивлять и радовать даже самых матёрых поклонников жанра.Тип издания: LicenseРазработчик: Heuristic ParkЖанр: RPG, 3D, 1st PersonЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:825D4D3FAA4A3BDE5F86FC6BDF06C7FDFCB14255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321449   (458644) от 24.08.2019
-
-Faery Tale Adventure II: Halls of the Dead (1997) [En] (1.0) License
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сиквел первой части, вышедший спустя восемь лет. События игры происходят в стране Farr, где три брата под вашим управлением отправляются на борьбу со Злом. Как и в первой части фэнтезийный мир страны Farr впечатляет своими масштабами. Огромное множество городов и деревень, в каждом из которых найдется занятие для трех братьев. Остается лишь добавить, что перспектива (   Читать дальше...   )Тип издания: LicenseРазработчик: The Dreamers GuildЖанр: RPGЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69CBBDD1AA5FCB9F47860D37CAA02BD0DA8AE4BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247095   (456406) от 13.09.2018
-
-Torchlight (2009) [Ru/En] (1.15(a)) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Торчлайт. Процветающий шахтерский городок, выросший рядом с богатейшими залежами эмбера, редкой руды, способной зачаровать – или погубить – все, чего она касается. Эмбер – невероятно могущественная субстанция, а могущество, как знают все, развращает. Вам предстоит отправиться в горы неподалеку от города и спуститься в шахты, чтобы узнать, какое влияние эмбер оказал (   Читать дальше...   )Тип издания: LicenseРазработчик: Runic Games Inc.Жанр: Ролевая игра, Экшн, ФэнтезиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6911179B6AEA97E049DB289406DC4B5EF61C4D1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135324   (456243) от 02.09.2017
-
-Regalia: Of Men and Monarchs (2017) [En/Ge/Pl] (1.0.7.0) License GOG
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Regalia: Of Men And Monarchs  - ролевая игра, полная увлекательных битв и захватывающих приключений. Соберите отряд из запоминающихся персонажей и за дело! Впереди у вас много работы — ведь вам предстоит возродить целое королевство. Насладитесь нарисованной от руки графикой, порадуйтесь оригинальной оркестровой музыке, сочиненной Game Audio Factory (авторам музыкального (   Читать дальше...   )Тип издания: LicenseРазработчик: Pixelated MilkЖанр: Role-playing, Strategy, FantasyЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, ПольскийЯзык интерфейса: Английский, Немецкий, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7A4581F2F6D38C1D4FB009E8D9D650EB143E852
 ```
 
 https://mybot314.ru/tekegram_catalog/

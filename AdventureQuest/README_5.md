@@ -1,3 +1,81 @@
+###  Публикация: 1839523   (1046639) от 29.11.2025
+
+Myst (2021) [Ru/Multi] (3.0.9) Repack Necros [VR]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на Мист – поразительно красивый остров, поросший зловещими тайнами и окутанный интригами. Отправляйтесь на остров Мист и в другие потрясающие, длительно бездействующие места, называемые "Эпохами", и начните разгадывать тайну, в которую Вас втянули. Постепенно узнавая, что же произошло на острове, Вы обнаружите, что играете ключевую роль (   Читать дальше...   )Тип издания: RepackРазработчик: Cyan WorldsЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C669449F0B2E6A09E5DA2458B48CFE6B4A8025
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839530   (1046627) от 29.11.2025
+
+Disney Villains Cursed Cafe (2025) [Multi] (1.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загляните в Проклятое кафе. Окунитесь в мир, где каждая чашка хранит тайну, а каждый глоток может изменить судьбу! В качестве нового зельевара в Проклятом кафе Disney Villains вы будете создавать волшебные смеси для легендарных персонажей - Круэллы де Виль, Злой Королевы, Гастона, Капитана Крюка, Джафара, Малефисенты и Урсулы - все они переосмыслены в современном (   Читать дальше...   )Тип издания: LicenseРазработчик: Bloom Digital MediaЖанр: Казуальные игры, Приключение, КвестыЯзык интерфейса: Английский, Французский, Испанский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3521EC1F2F659B99CDE5DA13DBC078AB0071E169
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839435   (1046556) от 28.11.2025
+
+Fran Bow (2015) [Ru/Multi] (11189293) Repack Necros
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fran Bow — приключенческая игра, рассказывающая историю девочки Фрэн, которая борется с психическим расстройством и несправедливой судьбой. После ужасной и загадочной смерти своих родителей, найденных расчленёнными в их доме, Фрэн оказывается в приюте Освальда, психиатрической больнице для детей. Увидев во сне любимого кота, Фрэн решает сбежать из психиатрической (   Читать дальше...   )Тип издания: RepackРазработчик: Killmonday Games ABЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4421AF89DEF6A7CABAA671AC603F769F3F14F32F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839429   (1046555) от 28.11.2025
 
 Riven (2024) [Ru/Multi] (1.7.5) Repack Necros
@@ -6,7 +84,7 @@ Riven (2024) [Ru/Multi] (1.7.5) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046555.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Sable (2021) [Multi] (4.3.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046373.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Interrogation: You Will Be Deceived (2019) [En] (1.1.9.a1704342) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046307.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ September 7th (2023) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045614.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Children of Silentown (2023) [Ru/Multi] (1.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045449.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ My Grandparents' Christmas Mystery (2022) [En] (Build 10272844) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045356.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045009.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ American Fugitive (2019) [Ru/Multi] (1.1.19095) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043114.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Remothered: Broken Porcelain (2020) [Ru/Multi] (1.4.5.1) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042642.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ The Book of Bondmaids (2021) [Ru/Multi] (1.84/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042577.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ The Walking Dead: The Telltale Definitive Series (2020) [Ru/Multi] (1.6/dlc) Lic
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042374.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ DARQ (2019) [Ru/Multi] (2.3.1/dlc) License GOG [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042210.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Twinsen's Little Big Adventure Classic / Relentless: Twinsen's Adventure (1994) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041225.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ GRUNND (2023) [En] (1.016d) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040965.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Fear of the Dark (2023) [Ru/Multi] (Build 10576095) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039218.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ JUSTICE SUCKS: Tactical Vacuum Action (2022) [Ru/Multi] (1.1.01-615-aa61ab1) Lic
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038298.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ The Long Dark (2017) [Ru/Multi] (1.93) Repack xatab [Episode 1-3]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037865.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Samsara Room (2020) [Ru/Multi] (1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037768.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Nancy Drew: The Creature of Kapu Cave / Нэнси Дрю: Чудовище пе
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036778.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Time Commando (1996) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036486.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ The Fantastic Kitty Rue (2022) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035819.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Puzzle Agent (2010) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035677.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ File Destined (2023) [Ru/Multi] (1.0.382) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034718.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ File Destined — это психологический триллер-игра,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F2DD8AE5928A41FF352F294422243D4D5BB0BFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444412   (1034316) от 02.02.2021
-
-Nancy Drew: Curse of Blackmoor Manor / Нэнси Дрю: Проклятье поместья Блэкмур (2004) [Ru] (5.078) License
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нэнси Дрю отправляется на своё первое международное расследование. Ей необходимо навестить Линду Пенвеллин — дочь соседки и молодую жену британского дипломата. Таинственная болезнь заставляет Линду прятаться за плотным балдахином кровати. От кого или чего она скрывается? Или, возможно, ей угрожает нечто куда более опасное, чем простые недуги? Вычурные узоры, украшающие (   Читать дальше...   )Тип издания: LicenseРазработчик: Her InteractiveЖанр: Adventure, QuestЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15AF4995BB7446B632EB57DE70D9631E88575745
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618228   (1034256) от 10.03.2023
-
-FATAL FRAME / PROJECT ZERO: Mask of the Lunar Eclipse (2023) [Multi] (Build 10547139/dlc) Repack Other s [Digital Deluxe]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Японский хоррор на выживание FATAL FRAME / PROJECT ZERO: Mask of the Lunar Eclipse возвращается с улучшенной графикой. Во время праздника на острове Рогецу (Rogetsu Isle) таинственным образом исчезли несколько детей. Позже пропавших нашли, но те ничего не помнили. И вот уже подростками они возвращаются на остров. Исследуя разные места и защищаясь от призраков, они (   Читать дальше...   )Тип издания: RepackРазработчик: KOEI TECMO GAMES CO., LTD.Жанр: Adventure (Horror), 3rd Person, 3DЯзык озвучки: ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FAFEF75F8DE42785FCFB24E1B4D1275170C28B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445233   (1033695) от 05.02.2021
-
-Riddle of the Sphinx: The Awakening / Загадка Сфинкса: Пробуждённый (2021) [En] (6173388/dlc) Unofficial [Enhanced Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загадка Сфинкса - это эпическое египетское приключение, место действия которого - древнее изваяние Сфинкса и Великая пирамида Хеопса, одно из семи древних чудес света. Исследуйте секретные катакомбы, обнаружьте скрытые гробницы, раскапывайте священные реликвии, найдите и обезвредьте все хитроумные ловушки, обойдите циничных соперников-археологов - раскройте тайну, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Old World StudiosЖанр: Adventure, Point'n'clickЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD7C5CEA4E9D0F42853835BD8C6A9F4ACAB0D799
 ```
 
 https://mybot314.ru/tekegram_catalog/

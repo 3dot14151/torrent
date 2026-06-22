@@ -1,3 +1,29 @@
+###  Публикация: 1754541   (40698) от 11.10.2024
+
+Нокдаун / Cinderella Man (2005) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Потерпев несколько поражений кряду, подававший надежды боксёр-тяжеловес Джим Брэддок вынужден бросить спорт. Во времена Великой депрессии Брэддок берётся за любую работу, чтобы прокормить свою жену Мэй и детей. При этом он всё ещё надеется вернуться на ринг. И однажды ему предоставляется такой шанс. В последнюю минуту Джим заменяет другого боксёра и выходит на поединок (   Читать дальше...   )Производство: США / Imagine Entertainment, Miramax Films, Parkway Productions, Universal PicturesЖанр: драма, мелодрама, биография, спортРежиссер: Рон ХовардАктеры: Рассел Кроу, Рене Зеллвегер, Пол Джаматти, Крэйг Бирко, Пэдди Консидайн, Брюс Макгилл, Дэвид Хубанд, Коннор Прайс, Эриель Уоллер, Патрик ЛуисПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 02:24:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C3D89A295199924DE01532CF960AD48485EFB60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754538   (40695) от 11.10.2024
 
 Пуленепробиваемый монах / Bulletproof Monk (2003) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40695.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40616.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40610.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40583.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40559.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40544.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40515.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40504.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40501.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40500.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40423.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40421.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40327.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40315.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40309.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40247.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40206.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40199.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40196.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40178.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40098.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40015.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39910.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39893.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39874.jpg" />
 </div>
 
 
@@ -646,33 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A3DB7A15713BAAD5150C90F3402873BDD74E52F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756328   (39814) от 20.10.2024
-
-Игра смерти / Si wang you xi / Game of Death (1978) BDRip [AV1/1080p] [10-bit] [handmade AI] [MVO]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преступный синдикат зловещего доктора Лэнда контролирует гонконгский шоу-бизнес: все артисты обязаны отчислять мафии немалые суммы со всех своих доходов. Молодой актер Билли Ло вступает в борьбу с преступным синдикатом. Жёлто-чёрный костюм, использованный во время съёмок этого фильма, был использован Квентином Тарантино во время съёмок фильма «Убить Билла».
-Название (   Читать дальше...   )Производство: Гонконг, США / Concord Productions Inc., Golden Harvest Company Ltd.Жанр: боевик, триллер, драмаРежиссер: Роберт Клауз, Брюс ЛиАктеры: Брюс Ли, Коллин Кэмп, Дин Джаггер, Гиг Янг, Таи Чунг Ким, Бяо Юэнь, Роберт Уолл, Карим Абдул-Джаббар, Мел Новак, Хью О`БрайанПеревод: Многоголосый закадровый (Superbit)Язык озвучки: РусскийСубтитры: Русские, английскиеПродолжительность: 01:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13DEA5A0464E28FA7E28C814578BA86FEF2DE28F
 ```
 
 https://mybot314.ru/tekegram_catalog/

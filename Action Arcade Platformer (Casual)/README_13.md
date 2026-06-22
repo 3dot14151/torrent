@@ -1,3 +1,58 @@
+###  Публикация: 724480   (350110) от 20.11.2013
+
+Party of Sin (2012) [Ru/Multi] (1.0.0.5766) License [indiegamestand]
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-нибудь испытывали жгучее желание покинуть узы Ада и добраться к самой вершине небес - Раю?
+
+В игре Party of Syn вам будут подконтрольны Семь Смертных Грехов, с помощью которых вам предстоит одолеть сложнейшие головоломки, полчища нечисти и злющих боссов. Каждый из грехов наделен своей супер-возможностью, которая поможет вам выбраться из царства мертвых и пробить себе путь на небеса. А кооператив, поддерживающий до четырех игроков, несомненно даст преимущество в решении очередной загадки.
+(   Читать дальше...   )Тип издания: ЛицензияРазработчик: Crankshaft GamesЖанр: Arcade (Platform)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский, и другиеЯзык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC102E2FFDDB5500A1DE33FC31E347F9DDE0E98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180016   (344131) от 02.11.2017
+
+Hob (2017) [Ru/Multi] (1.16.3.0) Repack R.G. Catalyst
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчики Torchlight и Torchlight II представляют Hob - захватывающее приключение в прекрасном, но жестоком мире. Проникните в тайны планеты, узнайте правду и исцелите этот мир прежде, чем он погрузится в хаос. Hob - это приключенческая игра от Runic Games, создателей Torchlight и Torchligt 2, в которой игрок оказывается в роли персонажа, очутившегося в неизвестноТип издания: RepackРазработчик: Runic GamesЖанр: Action, Arcade (Platformer)Язык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB31226F49AD0F8470DC757CA59E4EB76DB9A166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074086   (339688) от 18.11.2016
 
 Renoir (2016) [Ru/Multi] (1.0) Repack R.G. Механики
@@ -6,7 +61,7 @@ Renoir (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339688.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Nation Red / Зомбилэнд (2009) [Ru/En] (1.00.1000) Lossless Repack R.G. 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339101.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ Forge Quest (2015) [En] (1.56.5) Repack Hazestalker
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336546.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ ICEY (2016) [Muti] (1.0) License SKiDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335252.jpg" />
 </div>
 
 
@@ -110,7 +165,7 @@ GONNER2 (2020) [Rui/Multi] (1.1.8.2) License GOG [The Full Ikk Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331907.jpg" />
 </div>
 
 
@@ -136,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325409.jpg" />
 </div>
 
 
@@ -162,7 +217,7 @@ Shovel Knight (2014) [En/Multi] (2.01) Repack Let'sPlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324426.jpg" />
 </div>
 
 
@@ -188,7 +243,7 @@ Cyber Hook (2020) [Ru/Multi] (1.2.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324205.jpg" />
 </div>
 
 
@@ -214,7 +269,7 @@ A Hat in Time (2017) [Ru/Multi] (59270/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322543.jpg" />
 </div>
 
 
@@ -240,7 +295,7 @@ de Blob (2017) [Multi] (0.28b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320600.jpg" />
 </div>
 
 
@@ -266,7 +321,7 @@ Way of the Red (2016) [En] (1.0.0.0/24.11.2016) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315331.jpg" />
 </div>
 
 
@@ -292,7 +347,7 @@ Rampage Knights (2015) [En] (1.5) Unofficial
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311545.jpg" />
 </div>
 
 
@@ -318,7 +373,7 @@ Cyber Chicken (2016) [En] (1.0.3) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310531.jpg" />
 </div>
 
 
@@ -344,7 +399,7 @@ Steel Rats (2018) [Ru/Multi] (1.0/dlc) Repack xatab
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308826.jpg" />
 </div>
 
 
@@ -370,7 +425,7 @@ Sneaky Sneaky  (2014) [En] (1.0.293) Repack  Let'sPlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303752.jpg" />
 </div>
 
 
@@ -396,7 +451,7 @@ Iggy's Egg Adventure (2015) [En] License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302922.jpg" />
 </div>
 
 
@@ -422,7 +477,7 @@ Rogue Wizards (2016) [En] (1.0.311) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299446.jpg" />
 </div>
 
 
@@ -448,7 +503,7 @@ Junk Jack (2016) [En] (3.1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291385.jpg" />
 </div>
 
 
@@ -474,7 +529,7 @@ King Lucas (2016) [En/Es] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291211.jpg" />
 </div>
 
 
@@ -500,7 +555,7 @@ CRAZY CHICKEN Strikes Back (2016) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291203.jpg" />
 </div>
 
 
@@ -526,7 +581,7 @@ LIMBO (2011) [Ru/Multi] (3.0.0.1) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283625.jpg" />
 </div>
 
 
@@ -552,7 +607,7 @@ Braid (2009) [Ru/Multi] (1.015/dlc) Repack CyberAndrew
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_278162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_278162.jpg" />
 </div>
 
 
@@ -578,7 +633,7 @@ The House of Da Vinci (2017) [Ru/Multi] (1.0) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278111.jpg" />
 </div>
 
 
@@ -604,7 +659,7 @@ Filthy Lucre (2016) [Ru/Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278071.jpg" />
 </div>
 
 
@@ -615,58 +670,6 @@ Filthy Lucre — это изометрический стелс-экшен, со
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B61784200344999A86B12537765BC42B210A216E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187940   (276748) от 30.11.2017
-
-Сборник 50 flash игр #6 (2017) [En] (1.0.0) Unofficial
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник 50 flash игр, работающих оффлайн. Достаточно просто запустить лаунчер и выбрать любую игру. Заряжайте свои пушки - пришло время сразиться со толпами врагов на своем пути, чтобы выйти победителем из неравной схватки!Тип издания: UnofficialРазработчик: Y8, Box10, Armor GamesЖанр: Action, Arcade, PlatformerЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16C39F4AD4BC8733B356FD82884110DF3DEE71D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078888   (273050) от 16.12.2016
-
-Rad Rodgers: World One (2016) [En] (1.1.4480) License GOG
-
->>След.
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rad Rodgers: World One – необычный платформер о приключениях сорванца Рэда, очутившегося в мире компьютерных игр. С кем не бывало: проведя бессонную ночь за любимой компьютерной игрой, вы на миг смыкаете глаза и оказываетесь в мире игры. Именно это случилось с Рэдом. К счастью, вместе с ним в прекрасный тропический мир перенеслась и его верная консоль Dusty («Пылинка»), (   Читать дальше...   )Тип издания: LicenseРазработчик: Interceptor EntertainmentЖанр: Arcade (Platform)Язык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8486E9A5D6EEC649A3A1830DAB67EFA4DBAF963F
 ```
 
 https://mybot314.ru/tekegram_catalog/

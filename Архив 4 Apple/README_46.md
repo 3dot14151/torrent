@@ -6,7 +6,7 @@ PDF Search 11.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017779.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Solis 1.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017778.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ PDFpen Pro 13 v13.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017775.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Batteries 2.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017770.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Allavsoft Video Downloader Converter 3.23.5.7794 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017767.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Nova 6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017766.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Adobe Animate 2021 v21.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017752.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Adobe Zii 2021 - Universal Patcher 6.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017746.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ QuarkXPress 2020 16.3.3 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017744.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Adobe Media Encoder 2021 v15.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017737.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Adobe XD v39.0.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017736.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Adobe Audition 2021 v14.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017734.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ WiFi Explorer 3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017728.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Adobe After Effects 2020 v18.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017659.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Adobe Premiere Pro 2021 v15.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017655.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Adobe Photoshop 2021 v22.3.1 + Neural Filters [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017617.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Feeder 4 v4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017603.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ NCH Doxillion Plus 5.36 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017597.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ NCH Debut Professional 7.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017586.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ DjVu Reader Pro 2.5.0 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017579.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ ON1 Photo RAW 2021.5 v15.5.0.10396 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017547.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Hookshot 1.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017456.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ GoodNotes 5 v5.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017455.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ djay - DJ App & AI Mixer 3.1  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017454.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Sensei 1.4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017451.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ NCH Express Accounts Plus 9.04 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017448.jpg" />
 </div>
 
 

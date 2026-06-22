@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059411.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059241.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030858.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010077.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969968.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968507.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Discovery: Могучие корабли. Кентуки / Mighty Ships. USS Ken
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964754.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ NG: Суперсооружения. Пальмовые острова в Дуб�
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918813.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912988.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Discovery: Дерзкие проекты / Extreme Engineering (2003-2007) [SATR
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907860.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ NG: Чудеса инженерии: Панамский канал / Big Bigger 
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904417.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895483.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888042.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ NG. Суперсооружения. Мегазаводы. Суперавтомо
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801989.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ NG. Суперсооружения. Мегазаводы. Суперавтомо
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801954.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ NG. Мегазаводы: Wargaming / Ultimate Factories: Wargaming (2013) HDTVR
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796597.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Discovery: Самые крепкие инструменты / World's Toughest T
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792122.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ NG. Суперсооружения. Мегазаводы. Суперавтомо
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760680.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ NG. Суперсооружения. Мегазаводы. Экстремальн
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758832.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Discovery: Самые крепкие инструменты / World's Toughest T
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_756071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_756071.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ NG. Суперсооружения. Мегазаводы. Суперавтомо
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723623.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716351.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ NG: Суперсооружения: Мегазаводы. Мак-Трак / Mega
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648990.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ NG: Суперсооружения: Мегазаводы. MV Agusta / MegaStruct
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624611.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ NG: Суперсооружения: Мегазаводы. Бакарди / MegaS
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614733.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ NG: Суперсооружения: Мегазаводы. Грузовики М�
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609051.jpg" />
 </div>
 
 

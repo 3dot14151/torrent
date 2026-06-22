@@ -1,3 +1,82 @@
+###  Публикация: 1812650   (7756) от 15.08.2025
+
+Akira | Акира [1988, Movie] WEBRip 2160p/4K raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя 31 год после Третьей мировой войны и ядерной бомбардировки столицы Японии, воссоздан новый город - Нью-Токио. Внешне все под контролем, однако страна теперь напоминает профашистское государство, жесточайшим образом подавляющее попытки мятежа. В исследовательских центрах проводятся парапсихологические опыты над людьми для разработки совершенного вида оружия. (   Читать дальше...   )Производство: Япония / Akira Committee Company Ltd., Akira Studio, TMS EntertainmentЖанр: аниме, мультфильм, фантастика, боевик, триллер, детективРежиссер: Кацухиро ОтомоПеревод: Дублированный (Студийная Банда, Reanimedia)Язык озвучки: Русский, японскийСубтитры: РусскиеПродолжительность: 02:05:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:398B15EACFAE38F38A491354F4B8F2B6649B87F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799914   (7149) от 18.08.2025
+
+Kijin Gentoushou | Sword of the Demon Hunter | Хроники людей и демонов [2025, TV, 18 из 24 эп.] WebRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Онгоинги с озвучкой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7149.jpg" />
+</div>
+
+
+###  Подробнее
+
+В период Эдо в горной деревне Кадоно жила жрица по имени «Ицукихимэ». Дзинта , молодой человек, который, несмотря на то, что он чужак, выступает в качестве стража жрицы, сталкивается с таинственным демоном, который говорит о далеком будущем в лесу, куда он отправился, чтобы победить его. От Эдо до эпохи Хэйсэй, это фэнтезийная серия о демоне-человеке, который путешествует (   Читать дальше...   )Производство: Yokohama Animation LabЖанр: приключeния, фэнтeзиРежиссер: Айура КадзуяПеревод: SanaeЯзык озвучки: Японский и РусскийПродолжительность: эп. 01 – 54 мин. | эп. 02-13 и 18 – 24 мин. | эп. 14-17 – 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:306930B6CD72D82732DCA1DF108E7149657E6B21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737209   (5285) от 30.08.2025
+
+Юный лорд — мастер побега | Неуловимый самурай | Nige Jouzu no Wakagimi | The Elusive Samurai [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быть потомком рода Камакура и будущим сёгуном и так непросто, но ещё сложнее, когда ты ко всему прочему не особо-то любишь сражаться. Тогда у тебя остаётся лишь два варианта: либо терпеть, либо просто сбегать с тренировок! И наш герой — Ходзё Токиюки — выбирает второе, ведь он — настоящий мастер побега.
+Но вот спокойным денькам приходит конец. Сёгунат Камакура оказывается (   Читать дальше...   )Производство: Япония / Студия CloverWorksЖанр: Комедия, приключения, сёненРежиссер: Ямадзаки ЮтаЯзык озвучки: Русский (AniLibria.TV); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C7BA7DDF0FB87CB23DAD3BB78D007F1DE5F5D3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804283   (4839) от 01.09.2025
 
 Saikyou Onmyouji no Isekai Tenseiki | The Reincarnation of the Strongest Exorcist in Another World | Перерождение сильнейшего экзорциста [2023, TV, 13 из 13 эп.] BDRip 1080p HEVC 10-bit raw+rus
@@ -6,7 +85,7 @@ Saikyou Onmyouji no Isekai Tenseiki | The Reincarnation of the Strongest Exorcis
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4839.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4680.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ Shikanoko Nokonoko Koshitantan | My Deer Friend Nokotan | Моя подруга-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4556.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ Mizu Zokusei no Mahou Tsukai | The Water Magician | Маг воды [2025, TV, 8
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4500.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ Jibaku Shounen Hanako-kun 2 Kouhen | Toilet-bound Hanako-kun Season 2 | Туал
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4456.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ Overtake! | Обгон! [2023, TV, 12 из 12 эп.] BDRip 1080p HEVC 10-bit raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3808.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3668.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ Yofukashi no Uta Season 2 | Call of the Night Season 2 | Песнь Ночных
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3491.jpg" />
 </div>
 
 
@@ -215,7 +294,7 @@ Berserk: Ougon Jidai Hen - Memorial Edition | Berserk: The Golden Age Arc - Memo
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2456.jpg" />
 </div>
 
 
@@ -241,7 +320,7 @@ Bad Girl | Плохая девочка [ТВ-1] [2025, TV, 10 из 12] WEBRip 10
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2232.jpg" />
 </div>
 
 
@@ -267,7 +346,7 @@ Clevatess: Majuu no Ou to Akago to Shikabane no Yuusha | Клеватесс: К�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2091.jpg" />
 </div>
 
 
@@ -293,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1917.jpg" />
 </div>
 
 
@@ -319,7 +398,7 @@ Jidouhanbaiki ni Umarekawatta Ore wa Meikyuu o Samayou 2nd Season | Orejihanki |
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1911.jpg" />
 </div>
 
 
@@ -345,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1907.jpg" />
 </div>
 
 
@@ -371,7 +450,7 @@ Higurashi no Naku Koro ni Kai | When They Cry: Kai | Когда плачут ц�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1815.jpg" />
 </div>
 
 
@@ -397,7 +476,7 @@ Higurashi no Naku Koro ni | Higurashi When They Cry | Когда плачут ц
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1814.jpg" />
 </div>
 
 
@@ -423,7 +502,7 @@ Tsuihousha Shokudou e Youkoso! | Welcome to the Outcast's Restaurant! | Добр
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1745.jpg" />
 </div>
 
 
@@ -449,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1735.jpg" />
 </div>
 
 
@@ -475,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1708.jpg" />
 </div>
 
 
@@ -502,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1531.jpg" />
 </div>
 
 
@@ -528,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1382.jpg" />
 </div>
 
 
@@ -555,7 +634,7 @@ Kizetsu Yuusha to Ansatsu Hime | Обморочный герой и принце
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1377.jpg" />
 </div>
 
 
@@ -581,7 +660,7 @@ Kanchigai no Atelier Meister: Eiyuu Party no Moto Zatsuyou-gakari ga, Jitsu wa S
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1336.jpg" />
 </div>
 
 
@@ -592,85 +671,6 @@ Kanchigai no Atelier Meister: Eiyuu Party no Moto Zatsuyou-gakari ga, Jitsu wa S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65CFB2BDC1AA90644531BBA827B4ECA8F4737541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818572   (1299) от 23.09.2025
-
-Kaizoku Oujo | Fena: Pirate Princess | Фена: Принцесса пиратов [2021, TV, 12 из 12 эп.] BDRip 10-bit 1080p raw+eng+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1299.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 век, Атлантический океан. Фена Хаутман отправилась с отцом в морское путешествие, но вскоре на их корабль нападают пираты. Фену сажают в шлюпку и ей удаётся спастить в одиночку. Прошло десять лет. Фена выросла красавицей с белоснежной кожей и отливающими серебром волосами. Когда Фену настигла погоня, её спасает юноша в красных доспехах и шлеме с оленьими рогами. (   Читать дальше...   )Производство: Production I.GЖанр: приключeнияЯзык озвучки: Японский, Английский и РусскийСубтитры: Английские и Русские ASS(int) by CrunchyRoll (Полные и Надписи)Продолжительность: 12 эп. по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:672258E0CECFA4DB686D8DB7BC5A3A76B124535F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805861   (1229) от 24.09.2025
-
-Отель для нелюдей | Hotel Inhumans [2025, TV, 12 из 13] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Онгоинги с озвучкой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1229.jpg" />
-</div>
-
-
-###  Подробнее
-
-За маской безупречного сервиса и изысканной кухни скрываются тёмные тайны. Гости отеля "Для нелюдей" – профессиональные убийцы, прибывшие со всего света, чтобы выполнить свои смертоносные контракты. И тут для них созданы все условия: от новейших технологий в области закупки оружия до гарантированного сокрытия личности и беспрепятственного избавления от (   Читать дальше...   )Производство: Япония / Студия BridgeЖанр: Драма, приключения, экшенРежиссер: Амино ТэцуроЯзык озвучки: Русский (AniLiberty); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD0CA8952D9BD305992BF4FA0E7C9D33C3266B0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805824   (1098) от 25.09.2025
-
-Подобранный авантюристом ранга S | Yuusha Party o Tsuihou Sareta Shiro Madoushi, S Rank Boukensha ni Hirowareru: Kono Shiro Madoushi ga Kikakugai Sugiru | Scooped Up by an S-Rank Adventurer! [2025, ...
-
->>Аниме с озвучкой
->>Онгоинги с озвучкой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кому вообще сдался этот бездарный белый маг?
-С этими словами всеми обожаемый герой исключает бедного Ллойда из своей группы. Потеряв постоянную работу, наш белый маг по воле случая попадает в группу S-ранга и сопровождает её на задании. Тогда никому и в голову не могло прийти, что группа героя распадётся, а Ллойд, необычный маг поддержки, станет первоклассным авантюристом. (   Читать дальше...   )Производство: Япония / Студия Felix Film, directrainЖанр: Приключения, фэнтезиРежиссер: Тамада ХиросиЯзык озвучки: Русский (AniLiberty), (ТО Дубляжная), (Dream Cast); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D031F471941EEF9AD0823D2DFA43D43F400CE08
 ```
 
 https://mybot314.ru/tekegram_catalog/

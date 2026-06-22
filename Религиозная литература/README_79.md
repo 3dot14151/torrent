@@ -1,3 +1,108 @@
+###  Публикация: 1243300   (377380) от 12.10.2018
+
+Трифонов Печенгский монастырь (изд.) | Беседы великих русских старцев. О Православной вере, спасении души и различных вопросах духовной жизни. (2003) [DJVU, PDF, FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ПравославиеФормат: DJVU, PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61857580EBC02D65AB26586411E13211D2A2E334
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414584   (376978) от 12.10.2020
+
+О. Рожнёва (сост.) | Святой апостол Иоанн Богослов и архимандрит Иоанн (Крестьянкин). Твой святой покровитель (2019) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376978.jpg" />
+</div>
+
+
+###  Подробнее
+
+При крещении мы получаем имя святого. Эта книга, входящая в серию "Именинник", станет прекрасным подарком тем, кто носит имя Иван (Иоанн) и для кого святой Иоанн Богослов является небесным покровителем. Она включает литературно обработанное житие святого апостола Иоанна Богослова и рассказывает о жизненном подвиге Иоанна (Крестьянкина), великого старца (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93DD2857155463F41B11C13FB272C058AD2DCCF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175737   (376776) от 19.10.2017
+
+Джованни Гуайта | Жизнь человека. Встреча неба и земли. Беседы с Католикосом Всех Армян Гарегином I (1999) [FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые на русском языке читатель может познакомиться с историей, учением и духовным опытом Армянской Апостольской Церкви, одной из самых древних Церквей мира, а также прикоснуться к истории армянского народа, который, несмотря на свою многострадальную судьбу, войны, геноцид, рассеяние, в течение многих веков сохранял свою верность Христу.
+В беседах с Католикосом (   Читать дальше...   )Жанр: ИнтервьюФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:266D4C8DF6AA44430B673F3F230DBF03BC1EB7FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327228   (376716) от 24.09.2019
+
+В. Зоберн | Новые чудеса любимых святых (2019) [PDF, FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами свидетельства о чудесах, которые произошли в наши дни, здесь и сейчас. Это поразительное собрание фактов чудесных происшествий: истории спасения, исцеления и вразумления по молитвам блаженных Матроны Московской и Ксении Петербургской, святого праведного Иоанна Кронштадтского, преподобных Серафима Саровского и Сергия Радонежского, святителя Николая Чудотворца (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8D8B4A167609190DEA3C88C0E4C9C95C16EC908
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175740   (376632) от 19.10.2017
 
 Джованни Гуайта | 1700 лет верности. История Армении и ее Церкви (2002) [FB2, EPUB, MOBI]
@@ -6,7 +111,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376632.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376624.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375125.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374290.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373326.jpg" />
 </div>
 
 
@@ -137,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372011.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371907.jpg" />
 </div>
 
 
@@ -193,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371539.jpg" />
 </div>
 
 
@@ -221,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371194.jpg" />
 </div>
 
 
@@ -247,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368223.jpg" />
 </div>
 
 
@@ -273,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367669.jpg" />
 </div>
 
 
@@ -299,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367645.jpg" />
 </div>
 
 
@@ -325,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367643.jpg" />
 </div>
 
 
@@ -353,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367634.jpg" />
 </div>
 
 
@@ -381,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367321.jpg" />
 </div>
 
 
@@ -409,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366413.jpg" />
 </div>
 
 
@@ -435,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366229.jpg" />
 </div>
 
 
@@ -463,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365497.jpg" />
 </div>
 
 
@@ -489,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365483.jpg" />
 </div>
 
 
@@ -518,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365481.jpg" />
 </div>
 
 
@@ -544,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365480.jpg" />
 </div>
 
 
@@ -570,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365466.jpg" />
 </div>
 
 
@@ -583,111 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:355A077948CFBCF153859A7FE0E2F407E581BC40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328565   (363712) от 30.09.2019
-
-К. Лученко | Россия: взгляд с колокольни [От Калининграда до Якутии] (2016) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга относится к востребованному сегодня жанру документальной прозы. Журналист Ксения Лученко и фотограф Анна Гальперина проехали по восьми регионам, от Калининградской области до Якутии, чтобы рассказать о том, как судьбы городов переплетаются с человеческими судьбами, как живут священники и церковные общины в современной России.
-В книге собраны авторские эссе (   Читать дальше...   )Жанр: Православие. Документальная прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBACA0A8962A0F6AA87684B33ADAC47D7CEFED00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071386   (361876) от 09.11.2016
-
-Пол Верт | Православие, инославие, иноверие [Очерки по истории религиозного разнообразия Российской империи] (2012) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361876.jpg" />
-</div>
-
-
-###  Подробнее
-
-В исследовании американского историка Пола Верта феномен поликонфессиональности Российской империи изучается сквозь призму проблем имперского строя и управления в XIX — начале XX вв. Автор рассматривает в едином контексте православие и так называемое «иностранные исповедания», освещает значение и последствия этнического разнообразия внутри православного сообщества. (   Читать дальше...   )Жанр: История межконфессиональных отношенийФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3051912DA750F5D3A13CFD1744A8FCD176F19240
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951674   (361276) от 30.10.2015
-
-М. Муллаев | Происхождение и реакционная сущность шариата (1967) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361276.jpg" />
-</div>
-
-
-###  Подробнее
-
-В предлагаемой работе, на основе марксистско-ленинского учения о религии, а также используя изданную в различные периоды политическую, специальную, художественную советскую и иностранную литературу и первоисточники мусульманского права (шариата), делается попытка осветить происхождение, социальные корни и реакционную, антинародную сущность правовых норм шариата, (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB89C1FC827B79DF7F57A2D74973C80744D463C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951619   (361135) от 30.10.2015
-
-В. А. Руднев | Обряды народные и обряды церковные (1982) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361135.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассказывается о том, как складывались и развивались народные обряды и праздники, в которых последовательно отражались демократические и социалистические идеи, принципы и идеалы народных масс. Показан также процесс формирования церковных обрядов и таинств в прошлом.Жанр: История, религиоведение, искусствоФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23797DAFE4A79C4BB9114C6F0BEF36D7A80F0861
 ```
 
 https://mybot314.ru/tekegram_catalog/

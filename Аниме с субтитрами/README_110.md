@@ -1,3 +1,29 @@
+###  Публикация: 1060422   (146428) от 27.12.2016
+
+Mahou Shoujo Nante Mou Ii Desu kara. Second Season / Меня достало быть девочкой-волшебницей 2 [2016, TV, 12 из 12] WEB-DLRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня Юдзука Ханами — тихая девочка, у которой мало друзей. Однажды на улице к ней обращается неведомое существом подозрительной наружности по имени Митон, за секунду до этого рывшееся в мусоре, и сообщает, что у Юдзуки есть все задатки девочки-волшебницы. В следующий момент героиня превращается в девочку-волшебницу, вот только её боевым нарядом оказывается (   Читать дальше...   )Производство: Студия Pine Jam / パインジャムЖанр: комедияРежиссер: Ёнэда КадзухироЯзык субтитров: Русский (отключаемый), Английский (отключаемый)Продолжительность: 12 эп. по 4 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA2CB9D4904C896E12B0A82DEE2D37D31D6117CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253121   (146331) от 25.12.2018
 
 Release the Spyce / Выпустить Спайс [2018, TV, 12] HDTV 720p raw
@@ -6,7 +32,7 @@ Release the Spyce / Выпустить Спайс [2018, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146331.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Ken En Ken: Aoki Kagayaki | Xuan Yuan Sword Luminary | Меч Жёлтого и�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146308.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Ore ga Suki na no wa Imouto Dakedo Imouto ja Nai / My Sister, My Writer / Я л�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146288.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Komi-san wa, Komyushou Desu. | Komi Can't Communicate | У Коми пробле
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146121.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Cheating Craft / Искусство обмана [2016, TV, 12 из 12] WEB-DLRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146031.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Deca-Dence | Дека-Данс | Декаданс [2020, TV, 12 из 12] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146000.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Ani ni Tsukeru Kusuri wa Nai! 4 | В случае с братом медицин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145516.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Soul Buster: Shousei Ran / Разрушитель душ [2016, TV, 12 из 12] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145511.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Al Caral no Isan | Наследие Ал Карал [1993, OVA] LDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145227.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Seirei Gensouki | Seirei Gensouki: Spirit Chronicles | Духовные хрон
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145222.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Momo e no Tegami / A Letter to Momo / Письмо для Момо [2011, Movie]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145060.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Hells / Hells Angels / Ангелы Ада [2008, MV] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145019.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Chuukan Kanriroku Tonegawa | Менеджер среднего звена Тон
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144920.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Momo e no Tegami / A Letter to Momo / Письмо для Момо [2011, Movie]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144548.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Owarimonogatari | Истории финала [2015, TV, 12 эп.] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144415.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Rakudai Kishi no Cavalry / Rakudai Kishi no Eiyuutan / Chivalry of a Failed Knig
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144358.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Ajin 2 | Полулюди [ТВ-2] [2016, TV, 13] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144048.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ Touken Ranbu: Hanamaru / Дикая пляска мечей: Ханамару [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144013.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Watashi ga Motete Dousunda / Kiss Him, Not Me / Целуй его, а не ме�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143958.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ Drifters | Скитальцы [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143779.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ Beelzebub-jou no Oki ni Mesu Mama. | As Miss Beelzebub Likes | Как госпо
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143724.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ Bermuda Triangle: Colorful Pastorale | Бермудский треугольни
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143705.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ Sora to Umi no Aida | Between the Sky and Sea | Между небом и мор�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143696.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ Conception / Зачатие [2018, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143686.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ Tonari no Kyuuketsuki-san | Ms. Vampire Who Lives in My Neighborhood. | Госп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143646.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ Tonari no Kyuuketsuki-san | Ms. Vampire Who Lives in My Neighborhood. | Госп
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:411017BD9F833A73931CE4033B57B875D6017AA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061385   (143558) от 28.12.2016
-
-Keijo!!!!!!!! / Кейджо !!!!!!!! [2016, TV, 12] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в альтернативной Японии, где существует спорт под названием кейдзо. Два противника стоят на платформе, плавающей в воде, и пытаются столкнуть друг друга, используя только груди и задницы. Гениально! Главная героиня Нодзоми Каминащи — старшеклассница, которая после окончания школы планирует профессионально заняться этим, хм, спортом. Девушка (   Читать дальше...   )Жанр: комедия, этти, траваРежиссер: Такахаси ХидэяПродолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86C4A4606A3FCED0DFDA746B15662D84D8C579EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

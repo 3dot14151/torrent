@@ -6,7 +6,7 @@ Udemy, Nikolay Naydenov | Absolute Beginners ZBrush Course (2020) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736263.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Udemy, Nikolay Naydenov | Female Anatomy for Artists Course (2020) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736254.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Chris Maynard | Color Theory for CG and VFX Artists (2015) PCRec [En / Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736104.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Lynda, William Lidwell | Universal Principles of Design (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735813.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Digital Tutors, Laura Smith | Animating an Infographic in After Effects (2014) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735801.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ FastTrack Tutorials, Emiel Sleegers | Large Game Environment Creation - In-Depth
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735780.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Flippednormals, Abraham Leal | Zbrush 2021 for Absolute Beginners (2020) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735776.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Wingfox Studio, Alex Vochshakin | Creative Environment Creation in Unreal Engine
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735772.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Udemy, Nikolay Naydenov | Orc Rider and Bull Creature Creation in Zbrush (2019) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735768.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ CGMA, CGsociety, Johan Lithvall | Hair creation for games (2018) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735319.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Game Art Institute, Adam Skutt | Character Creation For Games (2016) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735318.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Cubebrush, Tom Paul | Zbrush for Hard Surface Design (2014) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735309.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ RENDER.CAMP, Даниил Нагаец | Профессиональная Виз
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735296.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734889.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Motion Design School | Animated Typefaces with Animography (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734836.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734832.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734827.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Motion Design School | CG Adventure (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734820.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734404.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Udemy, Jan Boode | Fighter Girl Character in Blender 2.91 Tutorial (2022) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733925.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Allan McKay | FX Technical Director Transformation Module 15 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733801.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733720.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733695.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Skillshare, Miguel Nogueira | Realistic Character Design for Games (2022) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733510.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Skillshare, Neil Bettison | Blender 3 The Ultimate Medieval Scene Course (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733509.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733336.jpg" />
 </div>
 
 

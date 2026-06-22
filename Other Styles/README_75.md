@@ -1,3 +1,275 @@
+###  Публикация: 1133256   (666593) от 27.05.2017
+
+VA - Furi Original Soundtrack (2016) [MP3|320 Kbps] <Electronic>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carpenter Brut - Time to Wake Up (1:09)
+02. Danger - 6.24 (4:22)
+03. Carpenter Brut - Enraged (4:58)
+04. Waveshaper - A Picture in Motion (3:23)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3402937E59E1C4FCA72F8759BC596502A4E8184B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137630   (666578) от 27.05.2017
+
+VA - Guitar Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carlos Estevez - Brisa Mananera
+02. Tchavalito - Paseo
+03. Gipsy Lovers - Recuerdo
+04. Kenichi Tamura - Twilight of Melancholy(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:02:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34464C46EFD7FC4BE01D5EF7CAEB602425243846
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137616   (666501) от 27.05.2017
+
+Geoff Zanelli - Pirates of the Caribbean: Dead Men Tell No Tales / Пираты Карибского моря - Мертвецы не рассказывают сказки (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Geoff Zanelli - Dead Men Tell No Tales (01:51)
+02. Geoff Zanelli - Salazar (04:27)
+03. Geoff Zanelli - No Woman Has Ever Handled My Herschel (03:59)
+04. Geoff Zanelli - You Speak of the Trident (01:58)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1751D09279F6F23A0210CF74B94DC9ABE25E4B67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137617   (666500) от 27.05.2017
+
+Geoff Zanelli - Pirates of the Caribbean: Dead Men Tell No Tales / Пираты Карибского моря - Мертвецы не рассказывают сказки (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks] ...
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Geoff Zanelli - Dead Men Tell No Tales (01:51)
+02. Geoff Zanelli - Salazar (04:27)
+03. Geoff Zanelli - No Woman Has Ever Handled My Herschel (03:59)
+04. Geoff Zanelli - You Speak of the Trident (01:58)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30ECAB3E35C25C7EA84BA441ECF73F4141272742
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360809   (666466) от 17.03.2022
+
+Sergio Santini - Коллекция (2017-2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Classical, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Life (5:19)
+02. Love to the Piano (4:22)
+03. Feeling (4:48)
+04. Last Hope (7:02)(   Читать дальше...   )Жанр: Instrumental, Classical, PianoПродолжительность: 01:12:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:710A8283FE41FF8398AA23C9B585AF866DD4BC14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 511079   (666227) от 17.06.2012
+
+Hangedup - 3 albums (2001-2005) [FLAC|Lossless] <Experimental, Instrurumental, Post-Rock>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_666227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klang Klang (03:35)
+02. Alarm (05:08)
+03. A Different Kind Of Function (06:06)
+04. Kick-Back-Hub (01:28)
+05. Eksplozije (02:25)
+06. Go Let's Go (05:11)
+07. Derailleur (01:49)
+08. Fuck This Place (04:04)
+09. How We Keep Time (05:02)
+10. Junk The Clatter (08:02)2001-2005Жанр: Experimental, Instrurumental, Post-RockПродолжительность: 00:42:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 511723   (666103) от 17.06.2012
+
+Hrsta - 3 albums (2001-2007) [FLAC|Lossless] <Post-Rock, Experimental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_666103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entre La Mer Et L'eau Douce (03:50)
+02. Beau Village (05:01)
+03. The Orchard (04:34)
+04. Tomorrow Winter Comes (04:11)
+05. Haunted Pluckley (02:51)
+06. Hechicero Del Bosque (08:41)
+07. Saturn Of Chagrin (05:10)
+08. Kotori (04:30)
+09. Holiday (03:09)2001-2007Жанр: Post-Rock, ExperimentalПродолжительность: 00:42:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224547   (666012) от 10.05.2018
+
+Kevin Wood - Eternal (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Search of Meaning (6:14)
+02. Light Shines Through (5:15)
+03. Father’s Love (2:59)
+04. Love’s Embrace (6:03)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:748B28F22ED59492E99B7A48632233644056CA4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224481   (666008) от 10.05.2018
+
+Jupiter Panic - Days of Sorrow (2018) [MP3|320 Kbps] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Days of Sorrow (3:26)
+02. The Return (5:06)
+03. Retired By a Mistake (3:18)
+04. Futura (4:50)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5D040F7C50BCB1A70075FE0A9AF3993D39FDC15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137659   (665421) от 28.05.2017
 
 David Garcia Diaz - RiME (2017) Deluxe Soundtrack [FLAC|Lossless|WEB-DL|tracks] <Score>
@@ -6,7 +278,7 @@ David Garcia Diaz - RiME (2017) Deluxe Soundtrack [FLAC|Lossless|WEB-DL|tracks] 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665421.jpg" />
 </div>
 
 
@@ -35,7 +307,7 @@ VA - Союз нерушимый... - Песни и танцы народов С
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664684.jpg" />
 </div>
 
 
@@ -63,7 +335,7 @@ Diane Arkenstone & David Arkenstone - Avalon: Between Earth and Sky (2022) [FLAC
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664342.jpg" />
 </div>
 
 
@@ -92,7 +364,7 @@ The Romantic Strings and Orchestra - Stardust Moods (1989) [MP3|320 Kbps] <Instr
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664194.jpg" />
 </div>
 
 
@@ -121,7 +393,7 @@ Eilen Jewell - Sundown Over Ghost Town (2015) [MP3|320 кб/с]<Americana, Count
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663350.jpg" />
 </div>
 
 
@@ -150,7 +422,7 @@ VA - Deep Silence Meditation: Best New Age 2017 Asian Garden Chinese Music [MP3|
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661293.jpg" />
 </div>
 
 
@@ -179,7 +451,7 @@ KoolSax - Meditation (Relax Your Mind to Save the World) (2014) [MP3|320 Kbps] <
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661291.jpg" />
 </div>
 
 
@@ -208,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660499.jpg" />
 </div>
 
 
@@ -243,7 +515,7 @@ John Barry - The Real... John Barry (2016) 3CD [FLAC|Lossless|tracks + .cue] <So
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660008.jpg" />
 </div>
 
 
@@ -272,7 +544,7 @@ Rupert Gregson-Williams - Wonder Woman / Чудо-женщина (Original Motio
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660006.jpg" />
 </div>
 
 
@@ -301,7 +573,7 @@ Rupert Gregson-Williams - Wonder Woman / Чудо-женщина (Original Motio
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659910.jpg" />
 </div>
 
 
@@ -330,7 +602,7 @@ Hotline Miami 2 - OST (2015) LP & EP [MP3|320 кб/с]<OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659611.jpg" />
 </div>
 
 
@@ -359,7 +631,7 @@ VA - Treme: Music From the Original HBO Series Season 2 (2012) [MP3|320 кб/с]
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659283.jpg" />
 </div>
 
 
@@ -394,7 +666,7 @@ Joe Hisaishi - И солнце снова взойдёт / The Sun Also Rises (2
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659214.jpg" />
 </div>
 
 
@@ -423,7 +695,7 @@ David Hicken - Portrait of a Pianist (2017) [MP3|320 Kbps] <Classical, Neoclassi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659194.jpg" />
 </div>
 
 
@@ -452,7 +724,7 @@ Land of Kush - 2 albums (2009-2010) [FLAC|Lossless] <Avant-garde, Free Jazz, Pos
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_659118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_659118.jpg" />
 </div>
 
 
@@ -484,7 +756,7 @@ Wulfin Lieske - Spanish Guitar Music (1992) [FLAC|Lossless]<Classical Guitar>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_658151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_658151.jpg" />
 </div>
 
 
@@ -500,296 +772,6 @@ Francisco Tárrega ( 1852 - 1909 )
 07. Preludio No. 5 E-Dur/In E Major [01:32]
 08. Preludio No. 13 A-Moll/In a Minor [00:53]
 09. Lagrima (Preludio) [01:43](   Читать дальше...   )1992Жанр: Classical GuitarФормат: CDПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139770   (658112) от 04.06.2017
-
-Danielle Egnew - You've Got to Go Back the Way That You Came (2017) [FLAC|Lossless|tracks] <Country, Americana>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Stones (4:36)
-02 - Go Be Love (4:09)
-03 - Not Dead Yet (3:59)
-04 - Temperance (4:13)(   Читать дальше...   )Жанр: Country, AmericanaПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B6C55B26F7A890A4E4CA0E5B7AB0ADAEF03DA2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139766   (658038) от 04.06.2017
-
-Kate Ellis - Carve Me Out (2017) [FLAC|Lossless|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Don't Lie To Me (3:04)
-02 - One's You Love The Most (3:54)
-03 - I Believe (3:31)
-04 - Night Before The Dawn (3:08)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:34:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84190B82C8971BE759E975753B9C30434227B68B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514455   (657968) от 24.06.2012
-
-Laurindo Almeida, Salli Terri, Martin Ruderman - Duets With Spanish Guitar (1990) [FLAC|Lossless]<Classical>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_657968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ibert - Entr'acte [03:16]
-02. Villa-Lobos - Bachianas brasieleiras No. 5  - Aria [05:57]
-03. Desportes - Ronde [02:04]
-04. Ovalle - Azulco [01:31]
-05. Chopin - Prelude in E minor, Op. 28 No. 4 [02:18]
-06. Almeida - O Cacador [01:51]
-07. Desportes - Pastorale joyeuse [02:41]
-08. Ovalle - Tres pontos de santo [04:10]
-09. Gossec - Tambourin [01:31]
-10. Henrique - Boi-Bumba [01:39](   Читать дальше...   )1990Жанр: ClassicalФормат: CDПродолжительность: 00:55:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514682   (657745) от 24.06.2012
-
-VA - The Ultimate Classical Guitar Album (2008) 2CD [FLAC|Lossless]<Classical Guitar>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_657745.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Allegro - Pepe Romero, Celin Romero, San Antonio Symphony Orchestra, Victor Alessandro, Antonio Vivaldi [03:44]
-2. Adagio in G minor - Dominic Miller, Budapest Film Orchestra, Nick Ingman, Tomaso Albinoni [05:08]
-3. Questa Notte - Craig Ogden, Ludovico Einaudi [05:07]
-4. Canario (Allegro ma non troppo) - Pepe Romero, The Academy of St. Martin in the Fields, Neville Marriner, Joaquin Rodrigo [04:42]
-5. Canarios - Heinz Wildhagen, Narciso Yepes, Guenther Dieckmann, Gaspar Sanz [03:10]
-6. Berceuse from Dolly Suite - Gabriel Faur? [03:17]
-7. Farewell to Stromness - Los Angeles Guitar Quartet, Peter Maxwell Davies [04:19]
-8. Spanish Dance, Op.37, No.10 - "Danza triste" - Pepe Romero, Celin Romero, Enrique Granados "[03:48]
-9. Romance No. 1 - Craig Ogden, John Brunning [02:57]
-10. Melodie - Pepe Romero, Robert Schumann [01:48](   Читать дальше...   )Жанр: Classical GuitarПродолжительность: 01:00:07
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903490   (657375) от 31.05.2015
-
-Marcin Przybylowicz & Mikolai Stroinski – The Witcher 3: Wild Hunt (2015) [FLAC|Lossless]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Trail - [02:50]
-02. Geralt of Rivia - [02:22]
-03. Eredin, King of the Hunt - [02:28]
-04. Wake Up, Ciri - [01:35](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:21:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4CBBCCAC60E9B0D31DB8521A1E87CFC8C40FD0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515110   (656816) от 25.06.2012
-
-Шедевры Этнической Музыки - Африканские барабаны (2007) [MP3|224 кб/с]<Ethnic Africa>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01- African Tales. 11:36
-02- Boho. 09:54
-03- Lion Huter. 09:56
-04- Savannah beat. 06:37
-05- Southern Night. 07:55
-06- Taimba. 08:16Жанр: Ethnic AfricaПродолжительность: 00:54:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:755178FFC244F255C296C4471D3F4488A8E61235
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514085   (656621) от 25.06.2012
-
-Daniel Licht - Silent Hill: Downpour / Сайлент-Хилл: Ливень (2012) [MP3|320 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656621.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Silent Hill (Feat. Jonathan Davis) (3:10)
- 2. Intro Perk Walk (2:48)
- 3. In The Ravine (3:18)
- 4. Bus To Nowhere (3:42)
- 5. Meet JP (2:15)
- 6. Stalking For Dinner (4:27)
- 7. Don`t Go In The Basement (2:27)
- 8. Railcar Ride (3:01)
- 9. Downpour Intro (4:38)
- 10. Jump Monster (1:40)(   Читать дальше...   )2012Жанр: OSTПродолжительность: 00:58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98776846F7DD875E8BAC768C43FE6AB49AB8552D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226346   (655655) от 20.05.2018
-
-VA - Latino Fitness Club 2018 (3CD) (2018) [MP3|320 Kbps] <Pop, Latin-Dance, Reggaeton>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655655.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-Продолжительность: 01:04:13
-
-01. J Balvin - Mi Gente(   Читать дальше...   )Жанр: Pop, Latin-Dance, ReggaetonПродолжительность: 01:09:08
-
-01. Anitta & J Balvin - Downtown
-02. Kaysha - Shape of You (Kizomba Remix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0066E73DC6C557091AE4BAA4276C7A3D364E1C35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514784   (655328) от 26.06.2012
-
-Нирвана / Nirvana (by Mauro Pagani, Federico De Robertis & VA) - 1997, FLAC (tracks+.cue), lossless (1997) [FLAC|Lossless]<Score / Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_655328.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Whatever It Is - Pagani, Della Volpe and Now (vocals) 4:17
-2.John Barleycorn (Must Die) - S.L. Winwood and Traffic (vocals) 6:24
-3.Eqbirotz - Mauro Pagani 2:34
-4.Sodae - Cabral, Morais and Cesaria Evora (vocals) 4:54
-5.Hotels - Federico De Robertis 3:51
-6.Chelsea Hotel - Mauro Pagani 3:27
-7.Nirvana - Federico De Robertis 6:54
-8.Last Dance - Eraldo Bernocchi, Bill Laswell and Monks of the Gyued Monastery (vocals) 3:41
-9.Town House - Mauro Pagani 1:50
-10.Tema di Lisa - Federico De Robertis 1:45(   Читать дальше...   )Жанр: Score / SoundtrackПродолжительность: 01:04:36
 
 ## Скачать торент
 ```bash

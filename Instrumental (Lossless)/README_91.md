@@ -6,7 +6,7 @@ Bonnie McCoy - Blues Singing Woman (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219136.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Dwight Trible - Horace (2001) Elephant[FLAC|tracks+.cue] <Vocal Jazz, Afro-Cuban
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219120.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ When Rivers Meet - Saving Grace (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219005.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Nada - Panta Rei (2001) Naxos Jazz[APE|image+.cue] <Vocal Jazz>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218911.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Chris Rea - Hofner Blue Notes (2003) Reissue 2019 [FLAC|Lossless|tracks + .cue] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218383.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Funky Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_218230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218230.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Chris Rea - Blue Street (Five Guitars) (2003) Reissue 2019 [FLAC|Lossless|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_218187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218187.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Chris Rea - Still So Far To Go...The Best Of Chris Rea (2009) 2CD [FLAC|Lossless
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_218100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218100.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Randy Crocker - Don't Forget the Wine (2022) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217331.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Jim Preen - Midnight Kitchen (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217310.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Billy Truitt - Abstract Truth (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Count
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217294.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Dion - Stomping Ground (2021) [FLAC|Lossless|tracks + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217264.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Mayham & Eggs - Snake Oil (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217242.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ The Nikhil Korula Power Trio - Crossroads (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_217198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217198.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ A & E and the Big C - A & E and the Big C (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217193.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Russell Ballantine - Harpo's Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_217148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217148.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ TT Slim - Guess Who Dropped in? (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217137.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Sam Cole - Thoughts and Reflections (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_217120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217120.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ B.B. King - Blues Summit (1993) [FLAC|Lossless|image + .cue]<Blues, Modern Elect
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217099.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Tony Wessels and the Revolvers - Reloaded (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_217069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217069.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Stacy Jones - World on Fire (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216922.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Matt Arthur - Then & Now (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216903.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Kandy Roar - Demon Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216893.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Steinar Ytrehus - Black Coffee and Sweet Love Songs (2022) [FLAC|Lossless|image 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215827.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ John Haydock - Brush with the Blues (2022) [FLAC|Lossless|image + .cue] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215697.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Chris Thomas King - Why My Guitar Screams & Moans (2004) [WavPack|Lossless]<Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215269.jpg" />
 </div>
 
 

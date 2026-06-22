@@ -1,3 +1,29 @@
+###  Публикация: 1410814   (431823) от 23.09.2020
+
+Uchuu no Kishi Tekkaman Blade II | Star Knight Tekkaman Blade II | Space Knight Tekkaman Blade II | Космический рыцарь Теккамен Блейд 2 [1994, OVA, 6 из 6] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя десять лет после окончания последней войны с радамцами была собрана новая команда Космических рыцарей под руководством Аки и Ди-Боя. Первая миссия нового Теккамана - победить радамцев, но на горизонте замаячила новая угроза...Производство: Tatsunoko Production / タツノコプロЖанр: приключения, фантастика, мехаРежиссер: Тонокацу ХидэкиПеревод: Андрей aka avarachЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 6 эп. по 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D6F1A5FCBF128FB4C82373F2C3B2B245A8ED4F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410923   (431822) от 23.09.2020
 
 Hataage! Kemono Michi | Rise Up! Animal Road | За дело! "Звериная Тропа" [2019, TV, 12 эп.] BDRip 1080p HEVC 10bit raw
@@ -6,7 +32,7 @@ Hataage! Kemono Michi | Rise Up! Animal Road | За дело! "Звериная 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431822.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Shinchou Yuusha: Kono Yuusha ga Ore Tueee Kuse ni Shinchou Sugiru | Этот г�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431719.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Yousei Ou | Король фей [1988, OVA] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431718.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Uchuu no Kishi Tekkaman Blade | Star Knight Tekkaman Blade | Space Knight Tekkam
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431651.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Toaru Kagaku no Accelerator | A Certain Scientific Accelerator | Некий на
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431647.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Psycho-Pass 3: First Inspector | Психопаспорт 3: Первый инс
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431638.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden | Magia Record: Puella Magi Mado
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431544.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Gosenzo-sama Banbanzai! | Gosenzosama Banbanzai! | Долгих лет жизн�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_430698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_430698.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ Arslan Senki (2015) | The Heroic Legend of Arslan (2015) | Сказание об
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430661.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ Shichisei no Subaru / Seven Senses of the Re'Union / Семь Чувств в Re
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430527.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Darker than Black: Gaiden / Darker than Black: Side story / Темнее Чер�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_430088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_430088.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ Yatogame-chan Kansatsu Nikki Nisatsume | Заметки Ятогамэ [ТВ-2] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429619.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ Bokura no Nanokakan Sensou | Seven Days War | Наша семидневная в
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429481.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ Shaman King | Шаман Кинг [2001, TV, 64 эп.] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429394.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ TV Yarou Nanana: Kaibutsu Kraken o Oe! | Wacky TV Nanana: Hunt the Legendary Kra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429209.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ Fruits Basket 2nd Season | Корзинка фруктов [ТВ-2, сезон I
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429066.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ Little Witch Academia: Mahou Shikake no Parade | Little Witch Academia: The Ench
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428821.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ Phantom in the Twilight | Фантом в сумерках [2018, TV, 12] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428232.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ Sankarea | Санка Рэа [2012, TV 12 эп. + 1 SP + OVA 2 эп.] BDrip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428094.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ Gundam Build Divers | Гандам: Сконструированные дайв�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428078.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ Go!Go!575 | Давай-давай! 5-7-5 [2014, TV, 4 + 1] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426088.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ Yahari Ore no Seishun LoveCome wa Machigatte Iru. Kan | OreGairu 3 | Как и �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424954.jpg" />
 </div>
 
 
@@ -592,7 +618,7 @@ Appare Ranman! | Аппарэ-Ранман | Небо в цвету! [2020, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424638.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ Zetsuen no Tempest: The Civilization Blaster | Буря Потерь [2012, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423651.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ Classroom Crisis / Кризис в классе [2015, TV, 13] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422931.jpg" />
 </div>
 
 
@@ -655,32 +681,6 @@ Classroom Crisis / Кризис в классе [2015, TV, 13] HDTV 720p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:044199DD5A29D86CFBA5F456E1A23C899EA99C1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376642   (422431) от 27.09.2020
-
-Houkago Teibou Nisshi / Дневник послешкольного пирса [2020, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хина Цуруги переезжает в прибрежный город, чтобы поступить в старшую школу. Прогуливаясь по набережной, она встречает сэмпая Куроиву, которая приглашает Хину вступить в рыболовный клуб. Хина — домоседка и ей не нравятся морские существа, но она всё же пробует ходить на рыбалку вместе с тремя другими старшеклассницами и ест их улов. Постепенно Хина начинает меняться (   Читать дальше...   )Жанр: комедия, повседневность, рыбалкаРежиссер: Окума ТакахаруЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F7A44E9157ED460532D434C8E8154B88212822B
 ```
 
 https://mybot314.ru/tekegram_catalog/

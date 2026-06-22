@@ -6,7 +6,7 @@ Chatelaine - Chatelaine (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227638.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Wham - Wham! (1978) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227401.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Phylicia Allen - Josephine Superstar (1978) LP [MP3|320 Kbps] <Funk Soul, Disco,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_227343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_227343.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Venti Compilation 5 (2018) 2CD, Compilation [MP3|~245 Kbps (V0)] <Italo-Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226449.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Weapons Of Peace - Weapons Of Peace (1977) LP [MP3|320 Kbps] <Electronic, Funk S
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225969.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Slang - Slang (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Space Rock, Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225878.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Margaret Singana - Tribal Fence (1977) LP [MP3|320 Kbps] <Electronic, Funk Soul,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225394.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Spargo - 2 Albums (1980, 1981) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224861.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - All Stars Cover Hits: Euro Beats (2006) [MP3|~245 Kbps (V0)] <Euro-Disco, E
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223434.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Sphinx - Sphinx (1983) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222757.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - All Stars Cover Hits 3: Euro Beats (2007) [MP3|~245 Kbps (V0)] <Euro-Disco,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222225.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Shalamar - 10 Albums (1977-1990) Collection [MP3|320 Kbps] <Electronic, Disco, F
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_222065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222065.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Paradise Express - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Funk/Sou
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221516.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Electronic System - Disco Machine (1977) Reissue, 2004, Musique Belgique Archive
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220856.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Camaro's Gang - Decamerone (The Camaro One) (1985) LP [MP3|320 Kbps] <Electronic
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218878.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ New Mexico - New Mexico (1980) LP [MP3|320 Kbps] <Funk, Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218706.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Italo Mania 2 (1988) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218683.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Samba Soul - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Sam
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218486.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Pamala Stanley - 2 Albums (1979, 1990) [MP3|320 Kbps] <Electronic, Disco, Hi NRG
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_218109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218109.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Nel Oliver - Nel Oliver (1980) LP [MP3|320 Kbps] <Disco, Reggae, Funk/Soul>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216219.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Baby'O - "You've Got It!" (1979) [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214890.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Leonore O'Malley - First Be A Woman (1980) LP [MP3|320 Kbps] <Electronic, Funk/S
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214236.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Qua La Mano (1980) Musica Di Detto Mariano, LP [MP3|320 Kbps] <Electronic, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213721.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Black Devil Disco Club & Bernard Fevre - 10 Albums, 2 Singles & EPs (1975-2020) 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213311.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ VA - ZYX Italo Disco Spacesynth Collection 9 (2023) 2CD, Compilation [MP3|320 Kb
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211380.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ VA - Nu Disco 2023 (Best Of Disco House) (2023) [MP3|320 Kbps] <Nu-Disco, Disco 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211236.jpg" />
 </div>
 
 

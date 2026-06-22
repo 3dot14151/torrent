@@ -6,7 +6,7 @@ Juusenki L-Gaim III: Fullmetal Soldier | Heavy Metal L-Gaim III: Fullmetal Soldi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22462.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Devil May Cry (2025) | И дьявол может плакать (2025) [2025, W
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22431.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Thunderbolt Fantasy: Touri-ken Yuuki 3 | Thunderbolt Fantasy: Sword Seekers 3 | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22047.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Bloody Escape: Jigoku no Tousou Geki | Bloody Escape: Bats out of Hell | Кро�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20788.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Inazuma Eleven: Outer Code | Одиннадцать молний: Внешний
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20425.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Watashi no Shiawase na Kekkon 2 | My Happy Marriage 2 | Мой счастлив�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20111.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в од
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16319.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Dungeon Meshi | Delicious in Dungeon | Подземелье вкусностей
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16318.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Garo: Honoo no Kokuin / Garo the Animation / Гаро: Печать пламен
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16284.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Watashi no Shiawase na Kekkon | My Happy Marriage | Мой счастливый 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16248.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Kaii to Otome to Kamikakushi | Mysterious Disappearances | Загадочные 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16204.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Hibike! Euphonium 3 | Sound! Euphonium 3 | Играй, эуфониум! [ТВ-3
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16111.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Hamefura. Movie | Bakarina. Movie | Gekijouban Otome Game no Hametsu Flag shika 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16106.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Gekijouban Overlord: Sei Oukoku Hen | Overlord: The Sacred Kingdom | Повел�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15774.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Arifureta Shokugyou de Sekai Saikyou Season 3 | Arifureta: From Commonplace to W
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15760.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15755.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Kimi no Koto ga Dai Dai Dai Dai Daisuki na 100 Nin no Kanojo | The 100 Girlfrien
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15645.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Megami no Cafe Terrace (2024) | The Cafe Terrace and Its Goddesses (2024) | Бо
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15639.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Failure Frame | Hazure Waku no Joutai Ijou Skill de Saikyou ni Natta Ore ga Sube
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15636.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Hataraku Maou-sama!! | The Devil Is a Part-Timer! Season 2 | Повелител�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15183.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Isekai Shikkaku | No Longer Allowed in Another World | Дисквалифици�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15166.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Tate no Yuusha no Nariagari Season 3 | The Rising of the Shield Hero Season 3 | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15165.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Hokkyoku Hyakkaten no Concierge-san | The Concierge at Hokkyoku Department Store
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15164.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Katsute Mahou Shoujo to Aku wa Tekitai Shite Ita. | The Magical Girl and the Evi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15161.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Tsuki ga Michibiku Isekai Douchuu Dai Ni Maku | Tsukimichi: Moonlit Fantasy 2 | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15160.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Shikanoko Nokonoko Koshitantan | My Deer Friend Nokotan | Моя подруга-
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15134.jpg" />
 </div>
 
 

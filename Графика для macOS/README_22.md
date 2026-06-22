@@ -1,3 +1,56 @@
+###  Публикация: 1655491   (204270) от 26.08.2023
+
+Image Resizer – Resize Photos 2.4 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Image Resizer – Resize Photos  полезный и эффективный инструмент для изменения размера одного или нескольких изображений без ущерба для разрешения и качества изображения. Используя этот инструмент, вы можете выбрать фотографии из библиотеки фотографий или из любой папки на вашем компьютере.
+Получите это приложение, Image Resizer и будьте уверены, что у вас есть лучший (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.09.2022Разработчик: © 2022 Tweaking Technologies Private LimitedПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52E337ACE72DA6A62F39B3FCC5FB405B1D71115D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655440   (204241) от 26.08.2023
+
+Lyn 2.3.4 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lyn - легкий, быстрый и удобный просмотрщик изображений, созданный в первую очередь для фотографов, иллюстраторов и графических дизайнеров. Lyn - это чрезвычайно универсальный и эстетически приятный интерфейс, Geotagging технология, простой и комплексное решение для совместного использования.Тип издания: macOS SoftwareРелиз состоялся: 25.08.2023Разработчик: © 2023 Mirko VivianiПоддерживаемая ОС: macOS 10.12.6+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4BECA21C22FC8528DF31B80743B1BEDCCA35ABD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655484   (204215) от 26.08.2023
 
 Batch Photo Resizer 3.2 [Multi]
@@ -6,7 +59,7 @@ Batch Photo Resizer 3.2 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204215.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ Nik Complete 5 Collection by DxO v.5.4.0 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204134.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ DxO PhotoLab 5 ELITE Edition 5.14.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202987.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ Luminar Neo 1.13.0 Intel/ARM [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202928.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ DxO PureRAW 3 for Mac v.3.5.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202867.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ ImageRanger Pro Edition 1.9.4.1875 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202797.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ Nik Complete Collection by DxO 6.1.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197297.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ ON1 Portrait AI 2023.5 v.17.5.1.14028 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197286.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ ON1 Resize AI 2023.5 v.17.5.1.14028 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197152.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ ON1 Photo Keyword AI 2023.5 v.17.5.1.14079 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196711.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ Adobe Illustrator for Mac 2023 v.27.6.1 Intel/ARM [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196191.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ Photo Mechanic 6 v.6.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195318.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ AI Photo for Mac 1.13 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194921.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ Astute Graphics Plugins Elite Bundle for Mac 2.3.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194322.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ Topaz Gigapixel AI 8.4.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193737.jpg" />
 </div>
 
 
@@ -405,7 +458,7 @@ Pixelmator Pro 3.7 [En/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193724.jpg" />
 </div>
 
 
@@ -433,7 +486,7 @@ CorelDRAW Graphics Suite 2025 26.2.0.170 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193637.jpg" />
 </div>
 
 
@@ -459,7 +512,7 @@ Optimage 3.5.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191036.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ Adobe Bridge 2023 13.0.4 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190409.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ Boxy SVG 4.12.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190199.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ Exposure Software Blow Up 3 v.3.1.6.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189779.jpg" />
 </div>
 
 
@@ -564,7 +617,7 @@ Exposure X7 Bundle v.7.1.8.9 [EN]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189664.jpg" />
 </div>
 
 
@@ -590,7 +643,7 @@ Teorex Inpaint 9.2.3 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188906.jpg" />
 </div>
 
 
@@ -617,7 +670,7 @@ HyperDither 2.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184555.jpg" />
 </div>
 
 
@@ -628,58 +681,6 @@ HyperDither использует элегантную процедуру уме�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:228D671D1540D6570866B6378C521D3F7EE501CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427246   (184481) от 27.11.2020
-
-PhotosRevive 1.3.0 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184481.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotosRevive автоматически раскрашивает ваши старые черно-белые фотографии. Приложение использует революционный искусственный интеллект, который добавит цвета ультра-реалистичным способом. Приложение очень простое в использовании. Сканируй или импортируй свою фотографию и все. Приложение раскрасит его без каких-либо усилий с вашей стороны.Тип издания: macOS SoftwareРелиз состоялся: 27.11.2020Разработчик: NeededAppsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CFBF639FDFBD5A4FBE02204068DA44C37DDBDE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592726   (182439) от 24.11.2022
-
-Pixelmator Classic 3.9.11 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pixelmator представляет собой мощный инструмент редактирования изображений, активно использующий вычислительные мощности графической карты. Он предлагает инструменты выделения, рисования, штриховки, навигации и цветокоррекции, поддерживает многослойные изображения, обработку рисунков на базе графического процессора, управление цветами, автоматизацию, имеет стильный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.11.2022Разработчик: Pixelmator TeamПоддерживаемая ОС: macOS 10.14.4 и вышеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D66A935DFE35D5797D4430CBC07B6379AFB8F36
 ```
 
 https://mybot314.ru/tekegram_catalog/

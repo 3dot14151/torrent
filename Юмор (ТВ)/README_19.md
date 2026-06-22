@@ -1,3 +1,133 @@
+###  Публикация: 1292998   (640637) от 01.04.2019
+
+КВН-2019. Высшая лига. 1.8 финала. Игра 4 (2019.03.31) WEB-DL [H.264/1080p-LQ]
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН, знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания: "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри — люди, у которых с чувством юмора все в (   Читать дальше...   )Телекомпания: Первый каналЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A3B1B0D3F2B9F5D583946CB0FD52EBD15B4AC42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 800571   (640052) от 29.06.2014
+
+Улетное видео по-русски. Новый сезон  (2014.06.27) SATRip
+
+>>Юмор (ТВ)
+>>Приколы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект представляет собой русскую версию уже идущей в эфире ДТВ программы «Улетное видео». В ней собраны эксклюзивные, случайно снятые материалы со всей России. Сюжеты, которые вошли в программу, сделаны мобильными телефонами, уличными камерами наблюдениями, случайными очевидцами или любым другим техническим средствам, у которого есть функция REC. А главное, в отличие от зарубежной версии, каждый сможет почувствовать себя в центре событий. Ведь теперь велика вероятность, что тот или иной случай произошел именно в вашем городе, на вашей улице, около вашего дома.Жанр: Приколы, ЮморПродолжительность: ~ 00:50:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3D9F141340AE95C019B0BA52D357EDDCE55130D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907962   (635560) от 13.06.2015
+
+Сказочная Русь. Звезданутые войны / Вечерний Киев. Сезон №6. Серия №30 (154) (2015.06.12) SATRip
+
+>>Юмор (ТВ)
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Будет смешно но-новом: Политический мультфильм "Сказочная Русь" изготовлен с использованием технологий 3D. Это рассказ о тех далеких-далеких временах, когда в Киевской Руси еще не было письменности и о которых до нас дошли только легенды. Тогда богатыри жили по соседству, а Змей Горыныч весной возвращался с юга - и жизнь казалась сказочным! Поэтому и страна (   Читать дальше...   )Телекомпания: 1+1Жанр: анимационный сериал, политикаРежиссер: Владимир ЗеленскийПродолжительность: ~ 00:12:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63A435CFE56418155AF567B8152EC6E2B2DE498F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907857   (635283) от 13.06.2015
+
+Сказочная Русь. Звезданутые войны / Вечерний Киев. Сезон №6. Серия №29 (153) (2015.06.12) SATRip
+
+>>Юмор (ТВ)
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Будет смешно но-новом: Политический мультфильм "Сказочная Русь" изготовлен с использованием технологий 3D. Это рассказ о тех далеких-далеких временах, когда в Киевской Руси еще не было письменности и о которых до нас дошли только легенды. Тогда богатыри жили по соседству, а Змей Горыныч весной возвращался с юга - и жизнь казалась сказочным! Поэтому и страна (   Читать дальше...   )Телекомпания: 1+1Жанр: анимационный сериал, политикаРежиссер: Владимир ЗеленскийПродолжительность: ~ 00:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DF81F53557E915CA520E21D525C8C31EB4F1004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228572   (635271) от 01.06.2018
+
+Камеди Клаб / Комеди Клаб / Comedy Club (2018.06.01) SATRip
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635271.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Гарик Мартиросян, Вадим Галыгин, Павел Воля, Тимур Батрутдинов, Александр Ревва, Гавр, Олег Верещагин, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Алексей Лихницкий, Роман Юнусов, Антон Лирник, Андрей Молочный, Александр Незлобин, Дмитрий Хрусталёв, Васильев Виктор, Сергей Бессмертный, Игорь Меерсон, Семён Слепаков, Михаил Галустян и др.Субтитры: ОтсутствуютПродолжительность: ~00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38902D19C4AEC170AB695EC6F485ACB46D46D3AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228673   (633539) от 02.06.2018
 
 Азбука Уральских пельменей. А (2018.06.01) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +136,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633539.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631544.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623864.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623862.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623752.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623398.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620654.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620348.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618385.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Stand Up (2019.04.14) SATRip (сезон 6, выпуск 23)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616740.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611505.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приколы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610390.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607441.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатирики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607360.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606161.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ Stand Up (2019.04.21) SATRip (сезон 6, выпуск 24)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604626.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602086.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597749.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приколы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595853.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585655.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатирики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583187.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16DBC4D34DF1196D53587CED3ADB39F115ECB883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554118   (579893) от 28.05.2022
-
-Однажды в России (27.05.2022) WEBRip [H.264/1080p]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Телекомпания: ТНТЖанр: Юмористическое тв-шоуАктеры: Азамат Мусагалиев, Екатерина Моргунова, Тимур Тания, Ольга Картункова, Александр Пташенчук, Максим Киселёв, Денис Дорохов, Заур Байцаев, Давид Цаллаев, Яна Кошкина и др.Субтитры: ОтсутствуютПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5E0531915BE383EB4B9BBA3623B3EC013D7EF60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302798   (578957) от 17.05.2019
-
-Камеди Клаб / Комеди Клаб / Comedy Club (2019.05.17) SATRip
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578957.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Гарик Мартиросян, Вадим Галыгин, Павел Воля, Тимур Батрутдинов, Александр Ревва, Гавр, Олег Верещагин, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Алексей Лихницкий, Роман Юнусов, Антон Лирник, Андрей Молочный, Александр Незлобин, Дмитрий Хрусталёв, Васильев Виктор, Сергей Бессмертный, Игорь Меерсон, Семён Слепаков, Михаил Галустян и др.Субтитры: ОтсутствуютПродолжительность: 00:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:828CAC7895B622D6C2933FC8A4ED5ECBE5BDC1B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555453   (568520) от 04.06.2022
-
-Однажды в России (03.06.2022) WEBRip [H.264/1080p]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Телекомпания: ТНТЖанр: Юмористическое тв-шоуАктеры: Азамат Мусагалиев, Екатерина Моргунова, Тимур Тания, Ольга Картункова, Александр Пташенчук, Максим Киселёв, Денис Дорохов, Заур Байцаев, Давид Цаллаев, Яна Кошкина и др.Субтитры: ОтсутствуютПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D53B0748B0D852188FDBD45E4590E4BA2E4BB5B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489054   (564624) от 06.06.2022
-
-На троих (2021) WEBRip [H.264/1080p] (сезон 11, серии 1-40 из 40)
-
->>Юмор (ТВ)
->>Украинские шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юмористическое скетч-шоу «На троих» - это остроумные шутки и забавные истории, которые происходят в жизни. Персонажи «На троих» хорошо знакомые зрителю - это обычные врачи, гаишники, полицейские, учителя, «офисный планктон». Особенность шоу в том, что в каждом скетче только три персонажа.Производство: Украина / DIZEL STUDIOЖанр: ТВ-шоу, Скетчи, ЮморРежиссер: Евгения Евтушенко, Александр Тименко, Михаил КомаровскийАктеры: Егор Крутоголов, Виктория Булитко, Яна Глущенко, Евгений Сморигин, Александр Бережок, Евгений Гашенко, Марина ПоплавскаяЯзык озвучки: РусскийПродолжительность: ~00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DE79A92F12761F60033DEC4F0A013A8C7150B18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044925   (563108) от 21.08.2016
-
-Михаил Задорнов. О врачах, медицине и наших болезнях. Лучшее (2016) WEBRip
-
->>Юмор (ТВ)
->>Сатирики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция шуток Михаила Задорнова о врачах, медицине, необычных болезнях и еще более странных диагнозах.Телекомпания: РЕНЖанр: Юмористический концерт, сатираРежиссер: Михаил ЗадорновСубтитры: ОтсутствуютПродолжительность: ~ 00:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C290B014D1E802CF794C99BD4C978C10D96040E
 ```
 
 https://mybot314.ru/tekegram_catalog/

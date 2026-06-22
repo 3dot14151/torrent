@@ -6,7 +6,7 @@ VA - Русский хит 2003 (2002) [FLAC|Lossless|tracks + .cue]<Pop, Dance>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276171.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Burito - Белый альбом (2017) [FLAC|Lossless|image + .cue] <Pop-Rock, 
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273160.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA – XXXL 10. Максимальный размер удовольствий (
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270546.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Новый год в стиле Ретро (2016) [FLAC|Lossless|WEB-DL|tra
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269982.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269973.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264573.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264458.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263735.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Hi-Fi - 5 альбомов (1998-2002) [FLAC|Lossless|image + .cue] <Рор>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263365.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262209.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260608.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Пульс эпохи (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257567.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255574.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255566.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255565.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_248893.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ VA - Лучшая Discoteka 80-х...90-х (2004) [FLAC|Lossless|tracks + .cue] <
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243904.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243615.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242445.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Burito - Псевдопанк (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241363.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240958.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239403.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236933.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236698.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236671.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236603.jpg" />
 </div>
 
 

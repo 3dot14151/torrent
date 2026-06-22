@@ -1,3 +1,133 @@
+###  Публикация: 1450879   (1028603) от 28.02.2021
+
+Заклятье: Другая сторона / Andra sidan (2020) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда отец семейства уезжает в командировку, в доме начинает происходить нечто жуткое. Семилетний Лукас заводит дружбу с мальчиком-ровесником с «другой стороны», который боится Существа из подвала. Когда Лукас исчезает, его мачехе придется проникнуть в мир мертвых и разгадать заклятье «другой стороны».Производство: Швеция / Breidablick Film ABЖанр: Ужасы, триллерРежиссер: Торд Даниэльссон, Оскар МелландерАктеры: Дилан Гвин, Линус Вальгрен, Хенрик Норлен, Сови Рюден, Никлас Ярнехейм, Карин Холмберг, Янна Гранстрём, Якоб Фальстедт, Трой ДжеймсПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:24:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2723C22FFB7EB2F262731BB9CE33BE703034943A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450752   (1028576) от 28.02.2021
+
+Пациент Зеро / Yummy (2019) HDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028576.jpg" />
+</div>
+
+
+###  Подробнее
+
+В клинику пластической хирургии где-то в Восточной Европе приезжает бельгийка Элисон в сопровождении мамы, большой любительницы улучшать собственную внешность, и недотёпы-бойфренда Микаэля. В клинике царит пренебрежение врачебной этикой и гигиеной, а также втайне проводятся эксперименты со стволовыми клетками. К недовольству близких и удивлению персонала Элисон хочет (   Читать дальше...   )Производство: Бельгия / 10.80 Films, A Team Productions, Everstory ProductionsЖанр: Ужасы, комедия, боевикРежиссер: Ларс ДамуасоАктеры: Майке Нёвилль, Барт Холландерс, Бенжамин Рамон, Клара Клейманс, Анник Кристиэнс, Эрик Годон, Джошуа Рубин, Таеке Николай, Том Ауденарт, Нуреддин Фарихи и др.Перевод: Дублированный (iTunes)Субтитры: английскиеПродолжительность: 01:29:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A7BC8B4C094A32E60BDECA7706EFDAF4403FE55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451231   (1028475) от 01.03.2021
+
+Тайна Трех сосен / Still Life: A Three Pines Mystery (2013) WEB-DLRip [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уважаемую школьную учительницу находят в лесу мертвой, убийство всколыхнуло всю деревню. Главный инспектор Арманд Гамаш (Натаниэль Паркер) прибыл с инспектором Жан-Ги Бовуаром (Энтони Лемке) расследовать странную смерть. С помощью лучшего друга жертвы, Клэр Морроу (Кейт Хьюлетт), они начинают распутывать тайны, переворачивая жизнь, казалось бы, утопической деревни. (   Читать дальше...   )Производство: Канада / PDM Entertainment, Attraction ImagesЖанр: детективРежиссер: Питер МоссАктеры: Натаниель Паркер, Энтони Лемке, Кейт Хьюлетт, Гэбриел Хоган, Майк МакФэден, Сузанна Форнье, Дебора Гровер, Джудит Берибей, Патриция МакКензи, Дилан Троубридж и д.р.Перевод: Профессиональный (двуголосый закадровый) (ViruseProject)Язык озвучки: Русский, английскийСубтитры: русские (отдельно)Продолжительность: 01:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3878DAC025AFB115E8FF94ADFC26462EA4D5FD5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451210   (1028437) от 01.03.2021
+
+Никогда, редко, иногда, всегда / Never Rarely Sometimes Always (2020) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легко ли быть девушкой в современном мире? Кто придет на помощь, если ты попадешь в беду? Как решиться на отчаянный поступок, который навсегда изменит твою жизнь? Сложные, порой нежеланные ответы на эти и многие другие вопросы о взрослении найдут сестры Отем и Скайлар на пути из родного городка в Нью-Йорк.Производство: Великобритания, США / BBC Films, Cinereach, Mutressa MoviesЖанр: ДрамаРежиссер: Элиза ХиттманАктеры: Сидни Фланиган, Талия Райдер, Теодор Пеллерен, Райан Эгголд, Шэрон Ван Эттен, Келли Чепмен, Ким Риос Лин, Дрю Зельцер, Каролина Эспиро, Элиасар ХименесПеревод: Дублированный (iTunes)Субтитры: Русские, английские (отдельно)Продолжительность: 01:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54B239A30175C1B55E5892E6AFBA2F94DD5EFE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451248   (1028429) от 01.03.2021
+
+Милый друг / La derniere vie de Simon (2019) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Симон — сирота, у которого есть невероятный дар — перевоплощаться в любого человека, к которому он хотя бы раз прикоснулся. Однажды эта способность и желание обрести близких толкает его на отчаянную ложь. Ложь, которая может стоить ему любви и жизни.Производство: Франция, Бельгия / A-Motion, Belga Productions, Canal+Жанр: Фантастика, драма, мелодрама, семейныйРежиссер: Лео КарманнАктеры: Бенжамен Вуазен, Мартин Карманн, Камилль Клари, Николас Ваншицкий, Жюли-Анна Рот, Альбер Жеффрие, Симон Суссе, Вики Андрен, Флоранс Мюллер, Пьер КачьяПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:43:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91B36A24E1D95159DE9F66EB59695BC2C196C7B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451329   (1028422) от 01.03.2021
 
 Дьявол в деталях / The Little Things (2021) WEB-DLRip
@@ -6,7 +136,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028422.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028401.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028290.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028286.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028278.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028276.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028275.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028274.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028271.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028268.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028263.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028257.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028169.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028132.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028128.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028121.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028116.jpg" />
 </div>
 
 
@@ -451,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028107.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027993.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027901.jpg" />
 </div>
 
 
@@ -529,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027895.jpg" />
 </div>
 
 
@@ -540,136 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B33286EB01CA0D9F8A0CE55D85952E9BF8860995
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444298   (1027837) от 05.03.2021
-
-Техносекс / Teknolust (2002) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стремясь использовать искусственную жизнь, чтобы улучшить мир, Розетта Стоун, биогенетик создает СРА (Само Воспроизводящийся Автомат) и использует свою ДНК, чтобы создать женщин-киборгов полулюдей-полукомпьютеров, которых зовут Руби, Олив и Марин. СРА действует через интернет-портал, помогая его пользователям осуществить все их эротические мечты. Поскольку женщины (   Читать дальше...   )Производство: США, Германия, Великобритания, Blue Turtle, Epiphany Productions, Hotwire ProductionsЖанр: Фантастика, драма, мелодрама, комедияРежиссер: Линн Хершман-ЛисонАктеры: Тильда Суинтон, Джереми Дэвис, Джеймс Урбаняк, Джон О’Кифи, Карен Блэк, Аль Наземиан, С.У. Виолет, Джош Корнблут, Томас Джей Райан, Ховард СуэйнПеревод: Многоголосый профессиональныйСубтитры: Русские, английские - отдельными файламиПродолжительность: 01:22:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06B03FA6E1375909352CA87F4D866E96C12870E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452077   (1027830) от 05.03.2021
-
-Дать дуба в округе Юба / Breaking News in Yuba County (2021) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неприметная и тихая Сью Баттонс мечтает о крупице внимания и уважения, но не получает их ни на работе, ни дома. Однажды ее муж таинственным образом исчезает. Словно услышанная Вселенной, женщина вмиг оказывается в лучах славы. Благо сестра работает на телевидении. Вот только «скелет в шкафу» Сью поднимает на уши криминальную банду округа, вдобавок к дотошным копам. (   Читать дальше...   )Производство: Великобритания, США / AGC Studios, Nine Stories Productions, Sarma FilmsЖанр: Триллер, драма, комедия, криминалРежиссер: Тейт ТейлорАктеры: Эллисон Дженни, Мила Кунис, Реджина Холл, Аквафина, Ванда Сайкс, Эллен Баркин, Мэттью Модайн, Джимми Симпсон, Кеонг Сим, Джульетт ЛьюисПеревод: Дублированный (iTunes)Субтитры: Русские, английские (отдельно)Продолжительность: 01:36:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83CBFDE5912018ADB103D339BDD6C6F53616FDE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452082   (1027828) от 05.03.2021
-
-Папаши / E per il tuo bene (2020) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трое отчаявшихся отцов видят, что их худший кошмар сбывается: они убеждены, что их дочери выбрали себе неправильных женихов. Уверенные, что действуют для их же блага, они объединяют усилия, чтобы как можно скорее избавиться от суженых своих дочек.Производство: Италия / Picomedia, Medusa FilmЖанр: КомедияРежиссер: Роландо РавеллоАктеры: Марко Джаллини, Винченцо Салемме, Джузеппе Баттистон, Изабелла Феррари, Валентина Лодовини, Клаудия Пандольфи, Матильда Джоли, Алис Ферри, Элеонора Трецца, Лорена ЧезариниПеревод: Многоголосый профессиональный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03D466E619DB466BE8FCBE27BF7B3246FF314DA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452076   (1027816) от 05.03.2021
-
-Заклинание / Spell (2020) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преуспевающий нью-йоркский адвокат Маркус узнаёт о кончине отца, с которым много лет не общался. Вместе с семьёй - женой и двумя детьми-подростками - он на собственном небольшом самолёте отправляется на похороны в Кентукки, но где-то над горами Аппалачи попадает в грозу и терпит крушение. Раненый Маркус приходит в себя в доме пожилой женщины Элоиз. Она утверждает, (   Читать дальше...   )Производство: США / LINK Entertainment, MC8 Entertainment, Paramount PicturesЖанр: УжасыРежиссер: Марк ТондерайАктеры: Омари Хардвик, Лоретта Дивайн, Лоррэйн Барроуз, Hannah Gonera, Kalifa Burton, Джон Бизли, Тумишо Маша, Steve Mululu, Питер Батлер, Андре ДжейкобсПеревод: Дублированный (iTunes)Субтитры: Русские, украинские, английские (отдельно)Продолжительность: 01:31:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ADFBD3F02C3A0B3588E7997D450CF1A704D04DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452171   (1027805) от 05.03.2021
-
-День курка / Boss Level (2020) BDRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027805.jpg" />
-</div>
-
-
-###  Подробнее
-
-У бывшего агента спецназа Роя уже в глазах рябит от перестрелок и взрывов. Его убивали уже сотню раз, но каждый раз он просыпается тем же утром из-за дурацкой петли времени. Кому пришло в голову провернуть с ним такое, а, главное, зачем? Каждый день его теперь напоминает видеоигру с бесконечным запасом жизней, но чтобы ее остановить и успеть спасти свою семью, он (   Читать дальше...   )Производство: США / WarParty Films, Scott Free Productions, Emmett/Furla/Oasis FilmsЖанр: Фантастика, боевик, триллерРежиссер: Джо КарнаханАктеры: Фрэнк Грилло, Мэл Гибсон, Наоми Уоттс, Рио Грилло, Кен Жонг, Шон МакКинни, Аннабелль Уоллис, Мишель Йео, Уилл Сассо, Селина ЛоПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские, английские (отдельно)Продолжительность: 01:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35B16F6A2DAA069CB0F79509B97263C0AF899FE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

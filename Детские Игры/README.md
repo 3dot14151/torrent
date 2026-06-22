@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041541.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021657.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001821.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000760.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Gumboy: Чудеса на виражах / Gumboy: Crazy Adventures {6+} (L) [Ru
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000751.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000750.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000749.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992318.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992316.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991690.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991634.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991628.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991503.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991502.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990478.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990419.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990354.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988710.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987706.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987704.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987700.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987695.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987624.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987622.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987619.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986814.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Turmoil (2016) [En/Multi] (1.0) Repack Aladow
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703412.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702627.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_701795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_701795.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_701682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_701682.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ MechaGore (2016) [Ru/Multi] (1.1) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701594.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Hector: Badge of Carnage! Episode 1: We Negotiate With Terrorists [En] (L/2011.4
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701199.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ BioShock 2 [Ru] (RePack) 2010 | R.G. ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_699678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_699678.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Galactic Civilizations III (2015) [En] (1.8/dlc) License SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697566.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Kingdom Wars 2: Battles (2016) [Ru/Multi] (1.6/dlc) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697554.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_697249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_697249.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Man vs. Wild [Wii] [NTSC] [ENG] (2011)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697033.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ The First Templar / The First Templar: В поисках Святого Граа
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_697028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_697028.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_696138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_696138.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Subnautica: Below Zero (2019) [Ru/Multi] (11252) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695344.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Happy Dance Collection[Wii] [NTSC-J] [Jaр] (2008)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695060.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Rock Revolution  [Wii] [PAL] [Multi 5] (2009)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694892.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693222.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ The First Templar / The First Templar: В поисках Святого Граа
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693214.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693122.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ The Eden of Grisaia (2017) [En] (1.0) License PLAZA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692853.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Outlast 2 (2017) [Ru/Multi] (1.0.17517) License CODEX [patch]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690895.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ SUPERHOT: MIND CONTROL DELETE (2020) [Ru/Multi] (1.0.1) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689857.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ CheMax Rus 12.2 [Русский]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689828.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Max Payne 3 (Lossy Repack / 1.0.0.17) [Multi8\+] 2012 | a1chem1st
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689245.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_686877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_686877.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Hydrophobia Prophecy [En] (L) 2011 | SKiDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686871.jpg" />
 </div>
 
 

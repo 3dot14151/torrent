@@ -1,3 +1,29 @@
+###  Публикация: 1729131   (53763) от 10.06.2024
+
+Ghostrunner 2 (2023) [Ru/Multi] (0.40570.441/dlc) Repack dixen18
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кровь прольется в долгожданном хардкорном слэшере от первого лица, действие которого происходит через год после событий первой части. Вас ждет приключение в постапокалиптическом киберпанковом будущем. Джек вернулся, чтобы сразиться с жестоким культом киберниндзя, возникшим на задворках Башни Дхармы, и определить будущее человечества. Вас ждут невероятные схватки (   Читать дальше...   )Тип издания: RepackРазработчик: One More LevelЖанр: Экшны, От первого лицаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFC85E849FFEF266A402E163137A85EFD9D57D0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976739   (53587) от 12.06.2024
 
 Антология классики: id Software 20 лет спустя (1994-2016) [En] (2.8.1/2.1.1/2.2.30/20140513/0.20.7) Repack/Mod NEO_WORK [ZDoom, GZDoom, Risen3D, DarkPlaces, KMQuake2]
@@ -6,7 +32,7 @@
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53587.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Chornobyl Liquidators (2024) [Ru/Multi] (0.9.1/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53548.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Escape from Hata / Побег из Хаты (2024) [Ru/Multi] (1.0) Repack FitGi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53385.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ DOOM Eternal (2020) [Ru/Multi] (11905845/dlc) Repack FitGirl [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53063.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Jack Holmes: Master of Puppets (2024) [Ru/Multi] (1.1.8) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52760.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Crime Boss Rockay City (2023) [Ru/Multi] (1.0.9.1@143028/dlc) Scene FAiRLIGHT
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52512.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Fossilfuel 2 (2024) [Multi] (1.0.1) Scene SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52479.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.21.67207.27/dlc) Scene Doge
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52477.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Far Cry 4 (2014) [Ru/Multi] (1.12/dlc) Repack seleZen [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52072.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Rage (2011) [Ru/En] (1.0.35.4669/dlc) Repack dixen18 [Anarchy Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52001.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Diatomic (2024) [En] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51745.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Generation Zero (2019) [Ru/Multi] (2780013/dlc) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51574.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Doom 3: BFG Edition (2012) [Ru/En] (1.14) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51558.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Dead War: Rise of Zombies / Dead War: Rise of Combat (2024) [En] (1.0) Repack Fi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51532.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ We Happy Few (2018) [Ru/Multi] (1.9.88966/dlc) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50623.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Starsand (2022) [Ru/Multi] (1.0.9) License GOG [Digital Supporter Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50202.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Wolfenstein: Youngblood (2019) [Ru/Multi] (11991189/dlc) Repack Decepticon [Delu
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50199.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Deep Rock Galactic (2020) [Ru/Multi] (1.39.102179.0/dlc) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50097.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ System Shock Remake (2023) [Ru/Multi] (1.2.18898) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49889.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ TeleMorpher (2024) [Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49641.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Crysis (2007) [Ru/En] (1.1.1.6156) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49587.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Call of Juarez: The Cartel (2011) [Ru/Multi] (1.1.12) Scene PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49443.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ STAR WARS: Dark Forces Remaster (2024) [Multi] (1.0.4) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49381.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Succubus (2021) [Ru/Multi] (15112813/dlc) Scene Rune [Ultimate Edition] [18+]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49007.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Sniper: Ghost Warrior 2 (2013) [Ru/En] (1.0.9/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48933.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Sniper: Ghost warrior 2 - продолжение нашумевшего поль
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A4C1A6D4A04D045E98A6A6137616ACC7B5ED233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739262   (48712) от 27.07.2024
-
-Borderlands 3 (2019) [Ru/Multi] (11919094/dlc) Repack dixen18
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Borderlands 3, всеми любимый «шутер с базиллионами лута», возвращается, чтобы порадовать вас несметным множеством убойных стволов и новым крышесносным приключением! Вам предстоит покорить доселе не виданные миры, играя за одного из четырех новых искателей Хранилища – нереально крутых перцев, у каждого из которых уникальные навыки, способности и модификации. Действуя (   Читать дальше...   )Тип издания: RepackРазработчик: Gearbox SoftwareЖанр: Экшены, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8064491B3433333CCB78FEA7FF79F1703193C6F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

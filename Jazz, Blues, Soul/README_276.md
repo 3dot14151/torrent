@@ -1,32 +1,3 @@
-###  Публикация: 931013   (514087) от 24.08.2015
-
-VA - Sensual Jazz Lounge, Vol. 1 (2015) [MP3|320 кб/с]<Jazzy, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Richy Kicklighter - On and On (07:09)
-02. Ross Milligan - East Wes Side (03:40)
-03. MX47 - Groovy Nocturne (04:15)
-04. Jive Ass Sleepers - The Look of Lust (05:07)(   Читать дальше...   )Производство: Musique SensuelleЖанр: Jazzy, LoungeПродолжительность: 00:54:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4747A33EB611951F483C6C8A5E0FC973D8663E51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242618   (514036) от 23.08.2018
 
 Hampton Hawes - Jam Session (1968) 2014, Columbia [FLAC|Lossless|image + .cue] <Hard Bop>
@@ -35,7 +6,7 @@ Hampton Hawes - Jam Session (1968) 2014, Columbia [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514036.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Charles Davis All Stars - A Tribute To Kenny Dorham (2010) TCB Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514035.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Freddie Hubbard - The Hub of Hubbard (1969) 1972, MPS Records [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514034.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Big Willy - All In (2018) [MP3|320 Kbps] <Blues, Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513993.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Thomas Marriott - Romance Language (2018) Origin Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513967.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Paul Desmond & Jim Hall - The Complete Recordings Of The Paul Desmond Quartet Wi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513621.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Janiva Magness - Hard to Kill (2022) [FLAC|Lossless|tracks + .cue] <Electric Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513617.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Tape Five - Both Sides of the Moon (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513602.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Eric Clapton - Live in Los Angeles 1994 (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <B
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513522.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Maynard Ferguson - Maynard '61 + "Straightaway" Jazz Themes (1961) 2013, America
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513169.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Jimmy Lloyd Rea & The Switchmasters - Cruzin` For A Bloozin` (2007) [MP3|320 Kbp
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513115.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ City West Quartet - First Bite Live (1990) /Suisa/[FLAC|tracks+.cue]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513080.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Erin Harpe & The Delta Swingers - Big Road (2017) [MP3|320 Kbps] <Electric Blues
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513059.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Coleman Hawkins - Father Bean (1956/1960) /1990, Jazzlab/[FLAC|tracks+.cue]<Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513023.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Universal Hippies - Evolution of Karma (2018) [MP3|320 Kbps] <Heavy Psychedelic 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512982.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Sarah Vaughan - Young Sassy (1944 - 1950) 4CD, 2006, Proper Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512588.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ VA - The Cliffhanger Project (2010) [MP3|320 кб/с]<Blues-Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512521.jpg" />
 </div>
 
 
@@ -531,7 +502,7 @@ Sophie Alour - La geographie des reves (2012) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512424.jpg" />
 </div>
 
 
@@ -566,7 +537,7 @@ VA - Screaming and Crying (2012) 3CD [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512422.jpg" />
 </div>
 
 
@@ -599,7 +570,7 @@ Bonedog - Desert Storm (2012) [MP3|~256 кб/с ]<Blues/Hard Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512389.jpg" />
 </div>
 
 
@@ -634,7 +605,7 @@ Shorty Rogers And His Giants - Way Up There (1955) /2012, Warner/[FLAC|tracks+.c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511948.jpg" />
 </div>
 
 
@@ -663,7 +634,7 @@ Daniel Carter, Roy Campbell, William Parker, Rashid Bakr - Other Dimensions In M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511947.jpg" />
 </div>
 
 
@@ -692,7 +663,7 @@ The Cannonball Adderley Quintet - Country Preacher (1969) /2014, Universal/[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511942.jpg" />
 </div>
 
 
@@ -721,7 +692,7 @@ Andrea Wood - Kaleidoscope (2015) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511936.jpg" />
 </div>
 
 
@@ -750,7 +721,7 @@ Jay Jesse Johnson - Set The Blues On Fire (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511886.jpg" />
 </div>
 
 
@@ -764,6 +735,35 @@ Jay Jesse Johnson - Set The Blues On Fire (2015) [MP3|320 кб/с]<Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26DA6CF8981B481828735828F32F4FF2E6E64490
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931542   (511847) от 26.08.2015
+
+Galactic - Into The Deep [Deluxe Edition] (2015) [FLAC|tracks|WEB-DL]<Funk, Fusion, Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sugar Doosie (4:06)
+02. Higher And Higher (feat. JJ Grey) (4:11)
+03. Into The Deep (feat. Macy Gray) (3:43)
+04. Dolla Diva (feat. David Shaw and Maggie Koerner) (3:32)(   Читать дальше...   )Жанр: Funk, Fusion, RockПродолжительность: 00:59:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41A54EAFFC0B2AF263F3144468EFF6EF8A9DECF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

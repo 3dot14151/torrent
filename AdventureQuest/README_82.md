@@ -1,3 +1,133 @@
+###  Публикация: 1724526   (51110) от 04.07.2024
+
+饿殍：明末千里行 / Epiao: Ming Mo Qianli Xing (2024) [Multi] (1.21) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляйтесь в путешествие по древнему Китаю в мрачном, раздвигающем границы визуальном романе, вдохновленном традиционным китайским искусством и современной анимацией. Отправляйтесь с четырьмя девушками в процветающий город Лоян в разветвленном повествовании на темы мести, каннибализма, принудительного труда и многого другого в искупительное путешествие.Тип издания: SceneРазработчик: ZerocreationGameЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: Китайский (упрощенный, традиционный)Язык субтитров: Английский, Японский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Японский, Китайский (упрощенный, традиционный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75EFF579A48C1D05AFE61828D71DAAC9656A12B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734543   (51106) от 04.07.2024
+
+CRUELTY (2024) [Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51106.jpg" />
+</div>
+
+
+###  Подробнее
+
+CRUELTY – что может быть лучше ужаса от японских разработчиков? Где все начинается с того что вы оказались в аварии и лишились чувств. И как только вы откроете глаза, то поймете, что попали в кошмарный мир, который явно не принадлежит знакомой Земле. Попросту говоря, перед вами опасная скотобойня, в которой будет множество ужасающих сцен, а заправляет всем безумие. (   Читать дальше...   )Тип издания: RepackРазработчик: 838s ManiacsЖанр: Экшены, Приключенческие игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CDC89DED1CEC56C43457AFEA80F1609E5996CD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734798   (51002) от 05.07.2024
+
+Psychopath Massacre (2024) [Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Власти Румынии во время полицейского рейда в доме обнаружили очень тревожную запись, на которой подробно описаны ужасные убийства, совершенные одним человеком. Среди находок - около 60 видеокассет, записанных психопатом и запечатлевших графические подробности его убийств. Сотрудники правоохранительных органов штата и федеральных агентств тщательно изучают видеозаписи, (   Читать дальше...   )Тип издания: RepackРазработчик: Tarba Paul CornelЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, РумынскийЯзык интерфейса: Английский, Румынский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD7C2F197481A991D96D164F748681D2C15E5D12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735076   (50925) от 06.07.2024
+
+Nancy Drew: Mystery of the Seven Keys (2024) [En] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое приключение известной девушки-детектива Нэнси Дрю перенесёт игроков в самое сердце Праги, её исторический центр. Намереваясь узнать правду о краже фамильного ожерелья, вам предстоит побродить по улицам Праги и исследовать неповторимую и таинственную атмосферу старого города. Решайте сложные головоломки, разгадывайте загадки и находите подсказки, связанные со (   Читать дальше...   )Тип издания: RepackРазработчик: HeR InteractiveЖанр: Приключенческие игры, Казуальные игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A98005446125591C4DF5E2F9A1D23B1805C09B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735002   (50863) от 06.07.2024
+
+TOEM: A Photo Adventure (2021) [Ru/Multi] (3.0.10) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50863.jpg" />
+</div>
+
+
+###  Подробнее
+
+TOEM - приключенческая головоломка, выполненная в черно-белой стилистике. Отправляйтесь в причудливую. экспедицию, раскрывая тайны волшебного мира ТОЕМ. Визуальный стиль выполнен полностью в рисованном монохромно ключе. Познакомьтесь с забавными героями, помогая решать их проблемы. Путешествуйте по миру и делайте различные фотографии.Тип издания: LicenseРазработчик: Something We MadeЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC2AB4F1B04FAB9C6E7EF0E938EADBAC98A7EB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735000   (50847) от 06.07.2024
 
 The Oregon Trail (2022) [Ru/Multi] (1.0.31.23/dlc) License GOG
@@ -6,7 +136,7 @@ The Oregon Trail (2022) [Ru/Multi] (1.0.31.23/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50847.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Stranded Sails Explorers of the Cursed Islands (2019) [Ru/Multi] (1.4.8) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50730.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ REVEIL (2024) [Ru/Multi] (1.1.1/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50690.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Eyes of Destiny (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50596.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Myst (2021) [Ru/Multi] (1.8.7) Repack dixen18 [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50583.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Amnesia: The Bunker (2023) [Ru/Multi] (1.9) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50518.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Murders on the Yangtze River (2024) [Multi] (1.4.17) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50452.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Whispering Lane: Horror (2024) [Ru/Multi] (1.0) Repack FitGirl [Collector's Edit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50401.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Empyrion - Galactic Survival (2020) [Ru/Multi] (1.11.4448/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50296.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Eternal Escape: castle of shadows (2024) [Ru/Multi] (1.0) Scene TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50166.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ HEIRS / Наследники (2024) [Ru/En] (Build 14928619) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50088.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ HEIRS / Наследники (2024) [Ru/En] (Build 14928619) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50027.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ Daymare: 1994 Sandcastle (2023) [Ru/Multi] (1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49990.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ The Last Alchemist (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49976.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Madhouse Madness: Streamer's Fate (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49965.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ KAKU: Ancient Seal (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49903.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Layers of Fear (2023) [Ru/Multi] (1.6.1/dlc) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49888.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Layers of Fear 2 (2019) [Ru/Multi] (1.00) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49865.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ KAKU: Ancient Seal (2024) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49863.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ Yuppie Psycho (2019) [Ru/Multi] (2.7.5) License GOG [Executive Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49840.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ Antichamber (2013) [Ru/En] (build 296940) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49830.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ Antichamber – необычная головоломка, где игрок м�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7971EA9D3F45597D7724F00E1C38A397DD4AE1AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737582   (49695) от 18.07.2024
-
-Supernatural (2024) [Ru/Multi] (1.2.1) Scene FAiRLIGHT
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49695.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Supernatural вы с головой погружаетесь в работу детектива Уайатта. У вас на руках - нехитрое дело: Миссис Сьюзан, горничная, бесследно исчезла. Просто очередной рабочий день, верно? Ошибаетесь. Supernatural - это не обычная детективная игра в стиле «наведи и щелкни». Здесь вы не просто следуете сценарию, а активно формируете повествование. Это не универсальное (   Читать дальше...   )Тип издания: SceneРазработчик: Hitori De ProductionsЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DF69BCAD564087F46421E5BAEED1317C140DB0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737650   (49693) от 18.07.2024
-
-Amber Alert (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта игра разработана для того, чтобы быть сложной. Вам нужно будет внимательно слушать свое окружение, так как убийцы будут нападать тихо и неожиданно. Вы, вероятно, будете часто умирать. Если вам не нравится ощущение нахождения в неизвестной и несправедливой среде (не забывайте, что вас ждут десятки убийц на пустых улицах и в домах ночью), эта игра не для вас. Если (   Читать дальше...   )Тип издания: RepackРазработчик: MEATBREADЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Японский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9E9E968D6AB4D806463C78EFDC5D8CDDBF55619
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737594   (49643) от 18.07.2024
-
-Grouls (2024) [En] (0.5) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключенческая экшен-игра на хоррор-тематику, разработанная компанией OxygenStudio. Игрокам предстоит стать на место Дениса, молодого человека, который ищет свою пропавшую семью в жутком заброшенном доме. Основной геймплей игры заключается в сборе разбросанных частей тела, избегая при этом злобных сущностей. Благодаря погружающей в мрачную атмосферу и сложным головоломкам, (   Читать дальше...   )Тип издания: RepackРазработчик: OxygenStudioЖанр: Экшены, Приключенческие игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54E22F9DDABE903E479B87BAF0FC080F5DA551DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737968   (49476) от 20.07.2024
-
-Nobody Wants to Die (2024) [Ru/Multi] (1.0.1.0.46.065) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nobody Wants to Die с головой окунает вас в Нью-Йорк будущего, где смерть - пережиток прошлого. Сейчас 2329 год, и Большое Яблоко - это огромный мегаполис, стоящий на краю пропасти. Бессмертие стало реальностью, но за него приходится платить. Добро пожаловать в мир, где все поставлено на карту. Вы становитесь на место детектива Джеймса Карры. Он опытный следователь (   Читать дальше...   )Тип издания: RepackРазработчик: Critical Hit GamesЖанр: ПриключениеЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E01CCCA1B733BE851976B7F264B0ABAEAEDE6B75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652764   (49460) от 20.07.2024
-
-Suzerain (2020) [En] (3.0.9/dlc) Scene Tenoke [Supporter Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Итак, Вы - президент. В роли президента Антона Рейна, только что избранного на первый срок, вам предстоит возвысить родной многострадальный Сордленд или, наоборот, довести его до полного упадка. Сюжет игры (политическая драма) раскручивается посредством диалогов с членами кабинета министров и другими значимыми личностями. Вам предстоит бороться с коррупцией или поощрять (   Читать дальше...   )Тип издания: SceneРазработчик: Torpor GamesЖанр: Indie, Roleplay, AdventureЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72278E4797E7BF50B444369DFFFAAF1976DC0943
 ```
 
 https://mybot314.ru/tekegram_catalog/

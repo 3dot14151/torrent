@@ -1,3 +1,32 @@
+###  Публикация: 1194532   (154211) от 26.12.2017
+
+Zen Buddhismus Regeneration - Musik fur Yoga Ubungen (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Musik fur Yoga Ubungen - 03:50
+02. Beruhigende Musik New Age - 03:25
+03. Autogenes Training fur spirituelle Entwicklung - 03:20
+04. Ruhe und Einschlafmusik - 03:37(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:51:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26B905F7D313793038C8ADA17A25714481418007
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1172556   (150170) от 24.12.2020
 
 Shinnobu - 8 альбомов (2017-2020) [MP3|320 Kbps] <Enigmatic, Electronic, New Age>
@@ -6,7 +35,7 @@ Shinnobu - 8 альбомов (2017-2020) [MP3|320 Kbps] <Enigmatic, Electronic,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150170.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Medwyn Goodall - Medicine Woman 5: Transformation (2014) [MP3|320 кб/с] <New 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148968.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ David Thomas - Ani Yun Wiya, Vol. 2 (2016) [MP3|320 Kbps] <Native American, Worl
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148344.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - A New You (2015) 3CD [MP3|320 кб/с] <Relax, Pop, Nu Jazz, Easy Listening
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147570.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Peter Davison - What Happened Next... (2016) [MP3|320 Kbps] <New Age, Meditation
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143105.jpg" />
 </div>
 
 
@@ -152,7 +181,7 @@ Messiah Project - Rise Above the Bustle (2017) [MP3|320 Kbps] <New age, Enigmati
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142320.jpg" />
 </div>
 
 
@@ -181,7 +210,7 @@ Krishna Das - Trust In The Heart (2017) [MP3|320 Kbps] <Meditative, Mantras, Eth
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138290.jpg" />
 </div>
 
 
@@ -210,7 +239,7 @@ Ambra - Child Of The Universe (2003) [OGG Vorbis|480 Kbps] <Electronic, New Age,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137685.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ Noel Quinlan - 7 albums (1991-2004) [MP3|320 кб/с]<New Age, World, Instrument
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135397.jpg" />
 </div>
 
 
@@ -274,7 +303,7 @@ Deep Forest - Burning (2023) [MP3|320 Kbps] <New Age, Electro>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131718.jpg" />
 </div>
 
 
@@ -303,7 +332,7 @@ TV Girl - Who Really Cares (2016) Digital Album[MP3|320 Kbps] <Hypnotic Pop>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127601.jpg" />
 </div>
 
 
@@ -332,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123311.jpg" />
 </div>
 
 
@@ -361,7 +390,7 @@ Dancing Fantasy - Day Dream (1995) [OGG Vorbis|480 Kbps] <New Age/Meditative/Rel
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122196.jpg" />
 </div>
 
 
@@ -390,7 +419,7 @@ Dancing Fantasy - California Grooves (1991) [OGG Vorbis|480 Kbps] <New Age/Medit
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122164.jpg" />
 </div>
 
 
@@ -419,7 +448,7 @@ VA - B-Tribe - Inner Meditation Journey (2024) [MP3|320 Kbps] <Native American, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117976.jpg" />
 </div>
 
 
@@ -448,7 +477,7 @@ Auscultate - Songs of the Beatles (2002) [MP3|320 Kbps] <Gregorian, A Capella, C
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115549.jpg" />
 </div>
 
 
@@ -477,7 +506,7 @@ Shamanic Chants - Forest Whispers Shamanic Journey (2024) [MP3|320 Kbps] <Native
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113915.jpg" />
 </div>
 
 
@@ -506,7 +535,7 @@ VA - Relax. Anti Stress Vol. 2 (2012) [MP3|320 кб/с]<Relax, Meditation>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102364.jpg" />
 </div>
 
 
@@ -541,7 +570,7 @@ Iana - Native Dancer, Vol. 2 (2013) [MP3|320 Kbps] <Native American, New Age, Wo
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101240.jpg" />
 </div>
 
 
@@ -570,7 +599,7 @@ AguaFlames - Ti Qua? (2008) [MP3|320 кб/с]<Chillout/Lounge>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100321.jpg" />
 </div>
 
 
@@ -604,7 +633,7 @@ Inti Cesar Malasquez - Searching For The Trail (1995) [MP3|320 кб/с]<New age,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97805.jpg" />
 </div>
 
 
@@ -630,7 +659,7 @@ Grollo-Capitanata - Aura Magic (2006) [MP3|320 кб/с]<New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97783.jpg" />
 </div>
 
 
@@ -665,7 +694,7 @@ VA - Ayurveda Lounge. Relaxation & Meditation. Volume 2 (2012) [MP3|320 кб/с]
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97675.jpg" />
 </div>
 
 
@@ -696,7 +725,7 @@ VA - Mystic India (Vol.4) (2004) [MP3|320 кб/с]<New Age, Meditative, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94941.jpg" />
 </div>
 
 
@@ -731,7 +760,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82728.jpg" />
 </div>
 
 
@@ -751,41 +780,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88EBFCA2C3CE09FDC7483F6CA43E64BE7CE5545B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459899   (79120) от 29.02.2012
-
-VA - Mystic India (Vol.1) (2001) [MP3|320 кб/с]<New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Asher - Red desert (05:39)
-02. Prem Joshua - New kafi (06:17)
-03. Prem Joshua - Mango rain (07:10)
-04. James Asher - Further east (05:25)
-05. Chinmaya Dunster & Vidroha Jamie - Wandering way (04:24)
-06. Music from the World of Osho - Namaste (03:45)
-07. Al Gromer Khan - Agori dance (07:07)
-08. Ustad Usman Khan - Raga hansadhwani (08:57)
-09. Hariprasad Chaurasia - Indian folklore (10:03)
-10. Namaste - Gayatri mantra (09:01)(   Читать дальше...   )2001Жанр: New Age, Meditative, RelaxПродолжительность: 01:11:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:957E9BDA6E72E8F9167CBCA522E1FC083802AB70
 ```
 
 https://mybot314.ru/tekegram_catalog/

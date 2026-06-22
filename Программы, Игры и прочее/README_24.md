@@ -1,3 +1,30 @@
+###  Публикация: 1432309   (1034546) от 01.02.2021
+
+WEATHER NOW v0.3.40 Premium [Ru] - прогноз погоды, метео-радар и виджеты
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главными особенностями программы прогноза погоды WeatherNow являются домашний экран и страница прогноза с графиками на 48 часов и 15 дней, а также анимированные погодные карты.
+На домашнем экране вы сможете найти информацию о выбранном местоположении, локальном времени и реальной погоде с детальными погодными данными, ну и конечно же, бесподобное по красоте, трехмерное (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 23 октября 2020 г.Разработчик: WEATHER NOWПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC63931746780D7533FEB5F39D5922F1D16710A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339521   (1034513) от 01.02.2021
 
 Drops Learning Languages v35.47 [Ru/Multi] - Изучение иностранных языков
@@ -6,7 +33,7 @@ Drops Learning Languages v35.47 [Ru/Multi] - Изучение иностранн
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034513.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Fuelio: топливо и расходы v7.8.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034414.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ Film Maker v2.9.1.5 Pro [En] – Видеоредактор, фото и Эфф�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034409.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ Paranoia: Родительский контроль v1.0.7.1 Premium [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034371.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ Engineering Tools : Mechanical v206 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034191.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ PC Remote v7.4.2 Vip [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034142.jpg" />
 </div>
 
 
@@ -169,7 +196,7 @@ Floor Plan Creator v3.6.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034069.jpg" />
 </div>
 
 
@@ -195,7 +222,7 @@ Kingdom Rush Vengeance v1.9.10 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034065.jpg" />
 </div>
 
 
@@ -221,7 +248,7 @@ AudioBooks. Аудиокниги бесплатно v4.0.8 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034043.jpg" />
 </div>
 
 
@@ -250,7 +277,7 @@ Battle of Warships Морской бой v1.72.12 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033902.jpg" />
 </div>
 
 
@@ -276,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033868.jpg" />
 </div>
 
 
@@ -305,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033618.jpg" />
 </div>
 
 
@@ -331,7 +358,7 @@ NUM - No UI Movies v1.0.60 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033602.jpg" />
 </div>
 
 
@@ -357,7 +384,7 @@ Sun Locator Pro v4.20 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033514.jpg" />
 </div>
 
 
@@ -386,7 +413,7 @@ Olympia Pro v21.2.1 [En] - Gym Workout & Fitness Trainer
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033468.jpg" />
 </div>
 
 
@@ -414,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033375.jpg" />
 </div>
 
 
@@ -440,7 +467,7 @@ Avito автопоиск с оповещениями v1.15.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033363.jpg" />
 </div>
 
 
@@ -466,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033353.jpg" />
 </div>
 
 
@@ -494,7 +521,7 @@ VLC for Android 3.5.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033338.jpg" />
 </div>
 
 
@@ -521,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033195.jpg" />
 </div>
 
 
@@ -547,7 +574,7 @@ Call Blocker / Блокировщик звонков v4.5.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033182.jpg" />
 </div>
 
 
@@ -573,7 +600,7 @@ Very Little Nightmares v1.2.0 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033124.jpg" />
 </div>
 
 
@@ -599,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032865.jpg" />
 </div>
 
 
@@ -625,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032681.jpg" />
 </div>
 
 
@@ -651,7 +678,7 @@ Bubble Shooter Royal Pop / Шарики Игры Королевские v2.3.2.2
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032211.jpg" />
 </div>
 
 
@@ -662,32 +689,6 @@ Bubble Shooter Royal Pop / Шарики Игры Королевские v2.3.2.2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87A6E6BD9A4E69B8BEFD74289E32D351ABF7A695
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203299   (1032163) от 11.02.2021
-
-AirReceiver v4.9.5 FTV/MITV [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032163.jpg" />
-</div>
-
-
-###  Подробнее
-
-AirReceiver - это универсальный сервер ChromeCast, AirPlay и DLNA. С помошью него вы можете передавать видео, фотографии, музыку на устройство Android из Android, iOS / Mac OS или Windows ПК. Так же поддерживается дублирование / расширение экрана iOS / macOS и просмотр / воспроизведение содержимого сетевых папок Windows/NAS и других DLNA-устройств в локальной сети. (   Читать дальше...   )Тип издания: Русская модификация без проверки лицензииРелиз состоялся: 11.02.2021Разработчик: felix.longПоддерживаемая ОС: Android 2.3 или более поздняяЯзык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D898BD6C8E73EFA53FEB50CF22DFE50043093EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

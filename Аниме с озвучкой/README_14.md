@@ -1,3 +1,81 @@
+###  Публикация: 1470691   (869215) от 19.09.2021
+
+Токийские мстители / Tokyo Revengers [2021, TV, 24 ep] WEB-DL 1080p Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ханагаки Такэмити - 26 лет, абсолютный неудачник: девственник с отвратительной работой, начальник у него на 6 лет младше, который относится к нему как к идиоту, ужасный дом и полное отсутствие какой-либо поддержки, что может быть еще хуже? В очередной унылый день своей жизни, Такэмити из новостей узнаёт о смерти своей первой и единственной девушки, ставшей случайной (   Читать дальше...   )Жанр: приключенияРежиссер: Хацуми КойтиЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 24 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38FA083ACF48AF410F95FC3163E163CA40E40E91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497108   (867755) от 20.09.2021
+
+Ochikobore Fruit Tart | Dropout Idol Fruit Tart | Отикоборэ: Фруктовый пирог | Группа айдолов-неудачниц «Фруктовый пирог» [2020, TV, 12 из 12] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Десятиклассница Сакура Ино переезжает в Токио, чтобы исполнить свою мечту стать айдолом. Она заселяется в общежитие «Нэдзуми», где знакомится со своими соседками: некогда популярной детской актрисой Роко, музыкантом Хаю и моделью Ниной. Но тут девочки узнают, что их общежитие должны вот-вот снести, и решают спасти свой дом! Для этого они создают айдол-группу Fruit (   Читать дальше...   )Производство: FeelЖанр: повседневность, музыкальныйРежиссер: Кавагути КэйитироПеревод: Wakanim (Вадим Попков, Анна Бахарева)Язык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32DD94D854CFEA8185A367F26FAFDC002D7FF9A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 672281   (865974) от 01.03.2015
+
+Kokoro Connect / Единение сердец [2014, TV, 12 ep + 4 sp] BDRip Hi10p 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они не друзья детства и не знают друг друга десяток лет. Нет, трое девчонок и двое парней встретились уже в старшей школе Ямабоси, где познакомились и подружились. Никто из них не сумел найти клуб по душе, так и родилось «Общество молодежной культуры». Президентом стала веселая и общительная Иори, ее замом – строгая и рассудительная Химэко, а замкнула женский коллектив симпатичная модница Юй. С парнями тоже все ясно: Тайти – всеобщий помощник, а Ёсифуми – местный «мачо», что не стесняется признаваться Юй в любви (   Читать дальше...   )Жанр: комедия, романтика, драма, школаРежиссер: Онума СинПеревод: Dreamers Team (01-13), Nesitach & Stan WarHammer (sp)Формат: MKV |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CF8EED22D8FC994D10D8C2AA48C8F88253F08A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 873901   (865969) от 01.03.2015
 
 Code Geass Hangyaku no Lelouch R2 / Code Geass: Lelouch of the Rebellion R2 / Код Гиас: Восставший Лелуш (второй сезон) [2008, TV, 25 ep] BDRip 720p Raw+Rus
@@ -6,7 +84,7 @@ Code Geass Hangyaku no Lelouch R2 / Code Geass: Lelouch of the Rebellion R2 / К
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865969.jpg" />
 </div>
 
 
@@ -34,7 +112,7 @@ Kono Subarashii Sekai ni Shukufuku wo! / Этот замечательный м�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865513.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Cop Craft | Cop Craft | Мастерство копа [2019, TV] BDRip 1080p raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865072.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ Majutsushi Orphen / Sorcerous Stabber Orphen / Волшебник-воин Ор�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863662.jpg" />
 </div>
 
 
@@ -115,7 +193,7 @@ Sousei no Onmyouji | Две звезды оммёдзи [2016, TV, 50 из 50] B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863274.jpg" />
 </div>
 
 
@@ -141,7 +219,7 @@ Akira | Акира [1988, MV] BDRip 1080p raw + rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863221.jpg" />
 </div>
 
 
@@ -167,7 +245,7 @@ Youjo Senki | Saga of Tanya the Evil | Военная Хроника Мален�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859730.jpg" />
 </div>
 
 
@@ -194,7 +272,7 @@ Meikyuu Black Company | The Dungeon of Black Company | Подземелье Чё
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859225.jpg" />
 </div>
 
 
@@ -220,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859224.jpg" />
 </div>
 
 
@@ -248,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855700.jpg" />
 </div>
 
 
@@ -274,7 +352,7 @@ Sennen Joyuu | Millennium Actress | Актриса тысячелетия [2004,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853967.jpg" />
 </div>
 
 
@@ -300,7 +378,7 @@ Divine Gate / Божественные врата [2016, TV, 12] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853519.jpg" />
 </div>
 
 
@@ -327,7 +405,7 @@ Bishoujo Senshi Sailor Moon S | Красавица-Воин Сейлор Мун 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852763.jpg" />
 </div>
 
 
@@ -353,7 +431,7 @@ Bishoujo Senshi Sailor Moon Super S: Black Dream Hole | Красавица-Во�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852757.jpg" />
 </div>
 
 
@@ -379,7 +457,7 @@ Bishoujo Senshi Sailor Moon S: Hearts In Ice | Красавица-Воин Се�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852756.jpg" />
 </div>
 
 
@@ -405,7 +483,7 @@ Bishoujo Senshi Sailor Moon R | Красавица-Воин Сейлор Мун 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852755.jpg" />
 </div>
 
 
@@ -433,7 +511,7 @@ Bishoujo Senshi Sailor Moon R: Promise Of The Rose | Красавица-Воин
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852754.jpg" />
 </div>
 
 
@@ -459,7 +537,7 @@ Bishoujo Senshi Sailor Moon | Красавица-Воин Сейлор Мун [T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852753.jpg" />
 </div>
 
 
@@ -485,7 +563,7 @@ Bishoujo Senshi Sailor Moon Crystal | Pretty Guardian Sailor Moon Crystal | Кр
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852751.jpg" />
 </div>
 
 
@@ -511,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849045.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847274.jpg" />
 </div>
 
 
@@ -563,7 +641,7 @@ Lupin Sansei: Cagliostro no Shiro / Lupin III: The Castle of Cagliostro / Люп
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846001.jpg" />
 </div>
 
 
@@ -589,7 +667,7 @@ Shinchou Yuusha: Kono Yuusha ga Ore Tueee Kuse ni Shinchou Sugiru | Лучше �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845784.jpg" />
 </div>
 
 
@@ -600,84 +678,6 @@ Shinchou Yuusha: Kono Yuusha ga Ore Tueee Kuse ni Shinchou Sugiru | Лучше �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D959545092DD34215379512C47B33766EB664B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 664236   (845531) от 13.03.2015
-
-Aoi Bungaku Series / Blue Literature Series / Классические истории [2009, TV, 12 ep] BDRip 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классические произведения отличаются тем, что исследуют стороны человеческой жизни, которые мало зависят от места и времени действия. Предлагаемая серия, поставленная по романам и рассказам четырех японских писателей первой половины XX века – не исключение. В каждой сюжетной арке через различные образы восточной и западной культуры автор и читатели (зрители) ищут ответы на исконные вопросы бытия. В чем смысл жизни, что делает человека человеком? Можно ли безнаказанно презреть законы и обычаи общества? Что есть (   Читать дальше...   )Жанр: драма, историяРежиссер: Асака МориоПеревод: Dreamers TeamФормат: MKV |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC46A9072B4FB1D491E40DA290BD4DFFFB0E36B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974258   (844667) от 02.04.2016
-
-Durarara!!x2 Ketsu / Дюрарара!! 2 (сезон третий) [2016, TV, 12 ep] WEB-DL 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Икэбукуро - не просто район в центре Большого Токио, это живое людское море со своими приливами и отливами, тихими заводями и коварными водоворотами. Пока что море лишь волнуется, но для опытного глаза ясно - собирается буря столетия, ибо слишком много сил столкнулось в темной глубине. Старые банды и новые союзы, древние демоны и сумасшедшие ученые, супермены и самозванцы, (   Читать дальше...   )Жанр: приключения, мистика, повседневностьРежиссер: Омори ТакахироПеревод: LeDi-MaHo TeamСубтитры: ASS, Встроенные, Полные | Надписи «LeDi-MaHo Team»Формат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C08E0177319794DA01676173B9939B4DAD8B5BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378795   (844001) от 26.04.2020
-
-Watashi, Nouryoku wa Heikinchi de tte Itta yo ne! | Я Сказала, Усредни Мои Способности! [2019, TV, 12 ep] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844001.jpg" />
-</div>
-
-
-###  Подробнее
-
-В день, когда Адель фон Аскам исполнилось 10 лет, она вспомнила всё о своей прошлой жизни в качестве Мисато Курихары. Она была японской девушкой с выдающимися способностями, которой её таланты только мешали. Возвращаясь с выпускного, Мисато погибла, спасая маленькую девочку. На небесах она встретила Бога, который предложил ей прожить ещё одну жизнь, но в параллельном (   Читать дальше...   )Производство: Project No.9, ЯпонияЖанр: Приключения, Комедия, фэнтезиРежиссер: Ота МасахикоОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 12 Эпизодов по 23 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E39A3898CE283E25E48098ECD22597956F0E28E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

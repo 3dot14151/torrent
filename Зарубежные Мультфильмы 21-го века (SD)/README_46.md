@@ -1,3 +1,29 @@
+###  Публикация: 271391   (282154) от 17.12.2010
+
+Пингвины из Мадагаскара в рождественских приключениях / The Madagascar Penguins in a Christmas Caper (2005) DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый Год приходит в город, и все обитетели Центрального Зоопарка готовятся к его встрече. Пингвины украсили свою пещеру и мечтают о черно-белом празднике, когда юный Рядовой замечает, что Белый Медведь грустит в полном одиночестве. Окруженный своими товарищами, Рядовой решает, что никто не заслуживает таких каникул, и вырабатывает свой собственный план помощи собрату. (   Читать дальше...   )Производство: США |  DreamWorks AnimationЖанр: компьютерная анимация, короткометражка, комедия, семейныйРежиссер: Гари ТруздейлПеревод: Русский одноголосый закадровыйЯзык озвучки: Видео: DivX 4, ~998 Kbps, 624х336 (1,857), 23.976 fpsПродолжительность: 00:12:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335479   (281800) от 05.11.2019
 
 Бэтмен против Черепашек-ниндзя / Batman vs. Teenage Mutant Ninja Turtles (2019) BDRip [H.264]
@@ -6,7 +32,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281800.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281626.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280329.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Angry Birds 2 в кино / The Angry Birds Movie 2 (2019) BDRip [H.265] [10-bit
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280056.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Angry Birds 2 в кино / The Angry Birds Movie 2 (2019) BDRip [H.264]
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279965.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279494.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278062.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276915.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276353.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275432.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274253.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273125.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273123.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273076.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273066.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272620.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271551.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271470.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270387.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269930.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269850.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269289.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268619.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265494.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265259.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B346954A0F8850EA372BB6E4C43C630448609C22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339605   (265201) от 20.11.2019
-
-Тайная жизнь домашних животных 2 / The Secret Life of Pets 2 (2019) BDRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хозяева Макса уезжают за город в гости на ранчо и берут с собой Макса. Тем временем, в городе у Снежка и Гиджет свои приключения.Производство: США, Франция, Япония / Universal Pictures, Illumination Entertainment, DentsuЖанр: Мультфильм, комедия, приключения, семейныйРежиссер: Крис Рено, Джонатан дель ВальПеревод: ДублированныйЯзык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:26:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C2D3D15F6C584C39FADA0FF1231E520DAD09B98
 ```
 
 https://mybot314.ru/tekegram_catalog/

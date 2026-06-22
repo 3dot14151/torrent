@@ -1,3 +1,107 @@
+###  Публикация: 50757   (319167) от 04.11.2020
+
+Чарли Чаплин (32 фильма)
+
+>>След.
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чарли Чаплин родился 16 апреля 1889 года в Лондоне, в семье артистов мюзик-холла. Вскоре после рождения Чарли его родители разошлись; дети остались на попечении матери, Ханны Хэрриетт Хилл, которая продолжала выступать в варьете. Через несколько лет она потеряла голос и в 1896 году была вынуждена оставить сцену. Братья Сид и Чарли (вместе с матерью) оказались в работном (   Читать дальше...   )Жанр: Комедия, Документальный, ДрамаРежиссер: Charles ChaplinАктеры: Charles ChaplinПеревод: Двухголосый закадровый, немое кино, отсутствуетПродолжительность: 100:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95ADA18D847F42F03029BF0EE9BD7111A434354A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 726832   (319103) от 28.11.2013
+
+Враг Государства №1 / Coffret l'Integrale Mesrine (2008) BDRip [1080p] [Дилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жак Мерин, великий французский гангстер, прославился у себя на родине больше, чем самая яркая кинозвезда. Авантюры Мерина всегда были головокружительно бесшабашными, отчаянно дерзкими и абсолютно непредсказуемыми по своему замыслу. Не зря его называли «человеком с тысячью лиц». Отправляясь на новое крупное «дело», он всегда изменял облик, делал пластические операции, (   Читать дальше...   )Производство: Франция, Канада, Италия / La Petite Reine, Remstar Productions, Novo RPIЖанр: боевик, криминалРежиссер: Жан-Франсуа РишеАктеры: Венсан Кассель, Сесиль де Франс, Жерар Депардье, Людивин Санье, Жилль Лелуш, Рой Дюпюи, Елена Анайя, Мишель Дюшоссуа, Мириам Буайе, Флоранс Томассен, Абделхафид МеталсиПеревод: Дублированный (лицензия)Субтитры: ОтсутствуютПродолжительность: 02:13:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D207D13FE82D90CA798849EBE96562B8E6E34F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 416752   (318393) от 30.11.2011
+
+Бэтмен / Batman (1989-2008) [1080p] BDRemux [Коллекция]
+
+>>След.
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бэтмен поднимает ставки в войне с криминалом. С помощью лейтенанта Джима Гордона и прокурора Харви Дента он намерен очистить улицы от преступности, отравляющей город. Сотрудничество оказывается эффективным, но скоро они обнаружат себя посреди хаоса, развязанного восходящим криминальным гением, известным испуганным горожанам под именем Джокер.Жанр: Боевик, Триллер, ФантастикаРежиссер: Кристофер Нолан.Актеры: Кристиан Бэйл, Хит Леджер, Аарон Экхарт, Майкл Кейн, Мэгги Джилленхол, Гари Олдман, Морган Фриман, Моника Карнен, Рон Дин, Киллиан Мёрфи и др.Перевод: Дублированный, Многоголосый закадровый, АвторскийЯзык субтитров: Английские, Русские, Русский (R5), Русский (Пучков aka Goblin)Продолжительность: 02:32:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331573   (317924) от 18.10.2019
+
+Полицейская академия / Police Academy: The Complete Collection (1984-1994) BDRip [H.264] [Коллекция]
+
+>>След.
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мирные жители США находятся в опасности! Мэр города принял новый закон — больше нет никаких ограничений при приеме на службу в полицию. Вес, пол, рост и слабые умственные способности никому не помешают поступить в полицейскую академию. Приемные комиссии ломятся от толстяков, ботаников и уличных хулиганов. Преподаватели академии в шоке и намерены любым способом избавиться (   Читать дальше...   )Производство: США / The Ladd Company, Warner Bros.Жанр: комедия, криминалРежиссер: Хью Уилсон, Джерри Пэрис, Джеймс Синьорелли, Джерри Пэрис, Джим Дрейк, Алан Майерсон, Питер Бонерз, Алан МеттерАктеры: Стив Гуттенберг, Ким Кэтролл, Дж. У. Бейли, Бубба Смит, Донован Скотт, Джордж Гейнс, Эндрю Рубин, Дэвид Граф, Лесли Истербрук, Майкл УинслоуПеревод: многоголосый профессиональный, авторскийСубтитры: отсутствуютПродолжительность: 01:36:26 / 01:27:10 / 01:23:45 / 01:27:18 / 01:29:52 / 01:23:56 / 01:22:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE1B3CB60B3DCF148C95EEB8242A7A71A242765C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075687   (317801) от 23.11.2016
 
 Халк / Hulk (2003, 2008) BDRip [H.265/1080p-LQ] [Дилогия]
@@ -6,7 +110,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317801.jpg" />
 </div>
 
 
@@ -34,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317585.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_317093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_317093.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_315592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_315592.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313621.jpg" />
 </div>
 
 
@@ -140,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313432.jpg" />
 </div>
 
 
@@ -166,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306554.jpg" />
 </div>
 
 
@@ -192,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302577.jpg" />
 </div>
 
 
@@ -218,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302568.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302554.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302550.jpg" />
 </div>
 
 
@@ -298,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302549.jpg" />
 </div>
 
 
@@ -324,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301667.jpg" />
 </div>
 
 
@@ -350,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300793.jpg" />
 </div>
 
 
@@ -376,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300418.jpg" />
 </div>
 
 
@@ -402,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300382.jpg" />
 </div>
 
 
@@ -428,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300367.jpg" />
 </div>
 
 
@@ -455,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298225.jpg" />
 </div>
 
 
@@ -487,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292470.jpg" />
 </div>
 
 
@@ -513,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291362.jpg" />
 </div>
 
 
@@ -539,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291352.jpg" />
 </div>
 
 
@@ -567,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290640.jpg" />
 </div>
 
 
@@ -578,112 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9BAF4A50351ACD177615638F64AA1E88CBBDC2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334265   (290526) от 31.10.2019
-
-Звездный путь / Star Trek (2009,2013,2016) BDRip [H.265/1080p] [10-bit] [Трилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесстрашная команда крейсера Звездного Флота «Энтерпрайз» исследует неизведанные глубины космоса. Во время этого полного опасностей путешествия герои сталкиваются с таинственной силой, ставящей под угрозу не только их миссию и стабильность Федерации, но и весь миропорядок.Производство: США, Германия, Китай, ОАЭ, Канада / Paramount Pictures, Spyglass Entertainment, Bad Robot, Skydance Media, Alibaba PicturesЖанр: фантастика, боевик, приключенияРежиссер: Джей Джей Абрамс, Джастин ЛинАктеры: Крис Пайн, Закари Куинто, Зои Салдана, Карл Урбан, Эрик Бана, Антон Ельчин, Саймон Пегг, Джон Чо, Леонард Нимой, Брюс Гринвуд, Саймон Пегг, Бенедикт Камбербэтч, Идрис Эльба, София Бутелла, Джо ТаслимПеревод: ДублированныйСубтитры: Русские, украинские, английскиеПродолжительность: 02:06:50 / 02:12:06 / 02:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:678CCDBB433E85373ED22272560E3CF01594B1B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604164   (289311) от 08.12.2014
-
-Стивен Кинг. Коллекция фильмов. Дополнение / (1980-2011) DVDRip/BDRip
-
->>След.
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289311.jpg" />
-</div>
-
-
-###  Подробнее
-
-У писателя Майкла Нунена от аневризмы умирает жена Джоанна. После ее гибели известный на весь мир автор мистических романов намеренно делает из себя затворника, отгородившись от остального мира. Но проходит несколько лет, и по стечению обстоятельств писатель встречает девушку Мэтти, в которую влюбляется, хотя и не желает признаваться в этом самому себе. Его жизнь начинается с чистого листа. После признания в своих чувствах новоявленной невесте Майклу придется столкнуться с не менее жутким кошмаром, чем смерть (   Читать дальше...   )Жанр: Ужасы, Фэнтези, ТриллерРежиссер: Мик ГэррисАктеры: Пирс Броснан, Мелисса Джордж, Мэтт Фрюэр, Джейсон Пристли, Аннабет Гиш, Аника Нони Роуз, Уильям Шэллерт, Кэйтлин Кармайкл, Гари Леверт, David SheftellПеревод: Профессиональный многоголосныйПродолжительность: 02:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2E788D74ED6BB2D4DF4FE7DBAC2EA333A666C4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263050   (283860) от 21.11.2018
-
-Сайлент Хилл / Silent Hill (2006-2012) BDRip [H.265/1080p-LQ] [10-bit, Дилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хизер терзается ночными кошмарами с одиннадцатилетнего возраста и вынуждена со своим отцом постоянно менять место жительства, скрываясь от таинственных сил. Накануне своего восемнадцатого дня рождения Хизер, вернувшись домой, обнаруживает, что её отец исчез. Единственное, что она нашла дома — нарисованный на стене оккультный символ с надписью «отправляйся в Сайлент (   Читать дальше...   )Производство: США, Франция, Davis-Films, Silent Hill 2 DCP, Sony Pictures Entertainment (SPE)Жанр: Ужасы, Триллер, Детектив, ДрамаРежиссер: Майкл Дж. БассеттАктеры: Аделаида Клеменс, Кит Харингтон, Дебора Кара Ангер, Мартин Донован, Малкольм МакДауэлл, Кэрри-Энн Мосс, Шон Бин, Рада Митчелл, Роберто Кампанелла, Эрин Питт, Питер АутербриджПеревод: Дублированный (лицензия)Субтитры: ОтсутствуютПродолжительность: 01:34:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B73AE4331D2EDC5D680217195FFF70866316EF50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079528   (283617) от 09.12.2016
-
-Трансформеры: Квадрология / Transformers: 4-Movie Collection (2007 - 2014) BDRip [H.265/1080p-LQ]
-
->>След.
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильмы, повествующие о войне между инопланетными разумными машинами, вошли в историю фантастического кинематографа и стали явлением масс-культуры XX века. Все начиналось 11 миллионов лет назад…
-
-Раса квинтессонов, населявшая планету Кибертрон, открыла новый источник энергии, подаривший разум пилотируемым роботам. Они начали производство боевых роботов (десептиконов) (   Читать дальше...   )Производство: США, Китай /  Di Bonaventura Pictures, DreamWorks SKG, Hasbro Inc., Paramount Pictures, SprocketHeads, ThinkFilm Inc.Жанр: Фантастика, БоевикРежиссер: Майкл БэйАктеры: Шайа ЛаБаф, Меган Фокс, Джош Дюамель, Тайриз Гибсон, Джон Туртурро, Рэйчел Тейлор, Энтони Андерсон, Джон Войт, Кевин Данн, Джули УайтПеревод: ДублированныйЯзык субтитров: РусскийПродолжительность: 02:23:27 | 02:30:35 | 02:34:23 | 02:45:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:712A8432FCD3218DE0BE0DA3CA40DDB1FA7F1D6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

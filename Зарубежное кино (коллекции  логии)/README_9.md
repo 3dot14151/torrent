@@ -1,3 +1,55 @@
+###  Публикация: 517884   (644678) от 02.07.2012
+
+Три цвета: Синий, Белый, Красный / Trois couleurs: Bleu, Blanc, Rouge (1993, 1994) BDRemux [1080p] [The Criterion Collection]
+
+>>След.
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_644678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Синий, белый и красный — цвета флага Франции. Культовая трилогия Кшиштофа Кесьлёвского является вольной рефлексией автора на знаменитый девиз «Свобода, равенство, братство».Производство: Франция, Швейцария, ПольшаЖанр: драма, мелодрама, детективРежиссер: Кшиштоф КесьлевскийАктеры: Ирен Жакоб, Жан-Луи Трентиньян, Фредерик Федер, Жан-Пьер Лори, Самюэль Ле Бьян, Марион Сталанс, Теко Селио, Бернар Эскалон, Жан Шлегель, Эльжбета ЯсиньскаПеревод: профессиональный многоголосыйЯзык озвучки: русский, французскийСубтитры: Английские (Criterion), Английские, Русские, Французские (Lyrics), Русские (Lyrics)Продолжительность: 01:38:20; 01:31:59; 01:39:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 346145   (640991) от 07.06.2011
+
+Ва-банк / Vabank (1981, 1984) DVD5/DVD9 [Дилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_640991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение знаменитой комедии польского режиссера Ю. Махульского «Ва Банк». Месть останавливает Крамера от разумного шага – уехать в Швейцарию, где у него еще осталось много денег. Сбежав из тюрьмы, он разыскивает своего заклятого врага и ... ему почти удается его уничтожить. Но неистощимый на выдумки медвежатник Квинто с блеском выходит из создавшейся ситуации (   Читать дальше...   )Жанр: Криминал, КомедияРежиссер: Юлиуш МахульскийАктеры: Ян Махульский, Леонард Петрашак, Витольд Пыркош, Эва Шикульска, Бронислав Вроцлавский, Кшиштоф Кершновский, Яцек Хмельник, Юзеф Пара, Эльжбета Зайонцувна и Тео Блом в роли ОдерматтаПеревод: Многоголосый закадровыйПродолжительность: 01:37:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128576   (640720) от 29.05.2018
 
 Лара Крофт: Расхитительница гробниц. Дилогия / Lara Croft: Tomb Raider. Dilogy (2001-2003) HDRip [AVO]
@@ -6,7 +58,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640720.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638890.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_637724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_637724.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634948.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634627.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631408.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631108.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630804.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_628445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_628445.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_624927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_624927.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624926.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_623074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_623074.jpg" />
 </div>
 
 
@@ -330,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623069.jpg" />
 </div>
 
 
@@ -356,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621593.jpg" />
 </div>
 
 
@@ -382,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619484.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619410.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619395.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619391.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619278.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619271.jpg" />
 </div>
 
 
@@ -540,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619201.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616475.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615649.jpg" />
 </div>
 
 
@@ -618,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615532.jpg" />
 </div>
 
 
@@ -629,58 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0ACACE9A3797E8D64D00FD8BAA21218C965007B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911055   (613741) от 24.06.2015
-
-Миллениум Стига Ларссона / The Stieg Larsson's Millennium (2010) BDRip [H.264/1080p] [Extended Version] [Трилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613741.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Миллениум» — детективная трилогия, написанная шведским писателем Стигом Ларссоном, главными героями которой являются Микаэль Блумквист, детектив-журналист, и девушка-хакер Лисбет Саландер. Трилогия включает в себя: «Девушку с татуировкой дракона», «Девушку, которая играла с огнем» и «Девушку, которая взрывала воздушные замки». Все книги стали бестселлерами с общим (   Читать дальше...   )Производство: Швеция, Германия, Норвегия, Дания / Yellow Bird, ZDF Enterprises, Sveriges Television (SVT)Жанр: триллер, драма, криминал, детективРежиссер: Нильс Арден Оплев, Даниэль АльфредсонАктеры: Микаэл Нюквист, Нуми Рапас, Лена Эндре, Питер Абер, Владимир Антоник, Свен-Бертиль Таубе, Петер Андерссон, Ингвар Хирдвалль, Марика Лагеркранц, Бьёрн Гранат, Ева Фрёлинг, Михалис Куцогиннакис, Анника Халлин, София Ледарп, Томас Колер, Давид Денсик, Стефан Саук, Фредерик Олссон, Джейкоб Эрикссон, Гуннель Линдблум, Барбро ЭнбергПеревод: профессиональный (многоголосый закадровый)Язык субтитров: русский, английскийПродолжительность: 01:33:00, 01:33:00 | 01:33:15, 01:33:11 | 01:32:20, 01:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29B30B8102C9150290670E41492304B37D32FCE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 345745   (613114) от 24.07.2016
-
-Крокодил Данди / Crocodile Dundee (Трилогия) (1986 / 1988 / 2001) [1080i] HDTV
-
->>След.
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы готовы к возвращению Крокодила Данди? В третьей части этого безумно популярного фильма Мик Данди, следуя за своей подругой, журналисткой Сью Чарльстон, переселяется из деревенской глуши Австралии в модный и суетливый Лос-Анджелес. Сью возглавляет лос-анжелесский офис газеты своего отца и пытается выяснить причины гибели одного из лучших журналистов. Данди, которому (   Читать дальше...   )Жанр: Комедия, ПриключенияРежиссер: Саймон Уинсер / Simon WincerПродолжительность: 01:28:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C95DF8684719D0C58A9D7FE16180CD02A367DF9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

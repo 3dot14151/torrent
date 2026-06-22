@@ -1,3 +1,32 @@
+###  Публикация: 1289463   (686743) от 16.03.2019
+
+Tess Parks & Anton Newcombe - Tess Parks & Anton Newcombe (2018) [FLAC|Lossless|tracks + .cue] <Rock, Indie Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686743.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Life After Youth (04:03)
+2. Monochrome Wound (03:16)
+3. Mount Pleasant (04:40)
+4. Bindle (02:18)(   Читать дальше...   )Жанр: Rock, Indie Rock, Psychedelic RockПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:345432BEAB89CB0A8455112A0162AC78323AD820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403950   (686444) от 22.08.2020
 
 Linkin Park - She Couldn't (2020) Single [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie>
@@ -6,7 +35,7 @@ Linkin Park - She Couldn't (2020) Single [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686444.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ Skillet - 14 Альбомов (1996-2013) Дискография [FLAC|Lossless]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_685750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_685750.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ Blink-182 - California (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684294.jpg" />
 </div>
 
 
@@ -87,7 +116,7 @@ Pom Poms - Turn You Out (2017) [FLAC|Lossless|tracks] <Alternative Rock, Female 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683042.jpg" />
 </div>
 
 
@@ -116,7 +145,7 @@ If These Trees Could Talk - Above The Earth, Below The Sky (2009) [FLAC|Lossless
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_682922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_682922.jpg" />
 </div>
 
 
@@ -145,7 +174,7 @@ Fever Feel - Fever Feel (2018) [FLAC|Lossless|tracks + .cue] <Rock, Indie, Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682164.jpg" />
 </div>
 
 
@@ -174,7 +203,7 @@ The Fall - Bend Sinister | The Domesday Pay-Off Triad Plus! (2019) RM. [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682087.jpg" />
 </div>
 
 
@@ -203,7 +232,7 @@ Le Butcherettes - bi/MENTAL (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682078.jpg" />
 </div>
 
 
@@ -232,7 +261,7 @@ The Young Gods - Data Mirage Tangram (2019) [FLAC|Lossless|tracks + .cue] <Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682075.jpg" />
 </div>
 
 
@@ -261,7 +290,7 @@ Elysian Fields - The Afterlife (2009) [FLAC|Lossless|tracks + .cue] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682074.jpg" />
 </div>
 
 
@@ -290,7 +319,7 @@ Karen O & Danger Mouse - Lux Prima (2018) [FLAC|Lossless|tracks + .cue] <Electro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682071.jpg" />
 </div>
 
 
@@ -319,7 +348,7 @@ Messer Chups - Mondo Harp (2019) [FLAC|Lossless|tracks + .cue] <Punk, Surf, Tras
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681981.jpg" />
 </div>
 
 
@@ -348,7 +377,7 @@ Amanda Palmer - There Will Be No Intermission (2019) [FLAC|Lossless|tracks + .cu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681879.jpg" />
 </div>
 
 
@@ -377,7 +406,7 @@ Red Hot Chili Peppers - Transmission Impossible (2016) 3CD, Remastered, Compilat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681878.jpg" />
 </div>
 
 
@@ -406,7 +435,7 @@ Linkin Park - One More Light (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680538.jpg" />
 </div>
 
 
@@ -435,7 +464,7 @@ Ritual Howls - Rendered Armor (2019) [FLAC|Lossless|tracks + .cue] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680439.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ Martha - Love Keeps Kicking (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Pu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678492.jpg" />
 </div>
 
 
@@ -493,7 +522,7 @@ American Football - American Football (LP3) (2019) [FLAC|Lossless|tracks + .cue]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678482.jpg" />
 </div>
 
 
@@ -522,7 +551,7 @@ U137 - Chapter Two (2019) [FLAC|Lossless|WEB-DL|tracks] <Cinematic Post Rock, Ep
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678373.jpg" />
 </div>
 
 
@@ -551,7 +580,7 @@ Desert Planet - My Biggest Dream (2017) EP [FLAC|Lossless|tracks + .cue] <Hard R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676597.jpg" />
 </div>
 
 
@@ -580,7 +609,7 @@ Professor Tip Top - Hybrid Hymns (2019) [FLAC|Lossless|tracks + .cue] <Progressi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676581.jpg" />
 </div>
 
 
@@ -606,7 +635,7 @@ Nine Inch Nails - 17 Альбомов (1989 - 2007)  [FLAC|Lossless]<Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_676223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_676223.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ Papa Roach - Crooked Teeth (2017) [FLAC|Lossless|tracks + .cue] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674492.jpg" />
 </div>
 
 
@@ -679,7 +708,7 @@ Living Hour - Softer Faces (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie-Pop, Psyc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674453.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ Papa Roach - Crooked Teeth (2017) Limited Edition, 2CD [FLAC|Lossless|tracks + .
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670766.jpg" />
 </div>
 
 
@@ -722,35 +751,6 @@ Papa Roach - Crooked Teeth (2017) Limited Edition, 2CD [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:860B945613C178AB0D45464364D773D570A40061
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030771   (670467) от 02.07.2016
-
-One Hundred Thousand - The Forms In Which They Appear (2016) [FLAC|Lossless|tracks] <Alternative, Hard Rock, Progressive>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Delivered    02:48
-02.  Goldenjaw    05:31
-03.  The Way You See Yourself    03:39
-04.  Far From Dead    05:23(   Читать дальше...   )Жанр: Alternative, Hard Rock, ProgressiveПродолжительность: 00:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B01B53C75DFA23FAB9A6D6C74795EA145100A1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1410202   (815398) от 21.10.2021
+
+Приключения Шерлока Холмса и доктора Ватсона. Смертельная схватка. (1980) DVDRip [H.264/1080i-LQ] [handmade remastered upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шерлок Холмс вступил в смертельную схватку с главарем английской преступности профессором Мориарти. В сети полиции попали все, кроме главаря, и друзья на время решили укрыться в тихой Швейцарии. Но от гнева Мориарти ещё не ускользал никто.Производство: СССР / ЛенфильмЖанр: криминал, детективРежиссер: Игорь МасленниковАктеры: Василий Ливанов, Виталий Соломин, Рина Зеленая, Валентина Панина, Борислав Брондуков, Борис Рыжухин, Борис Клюев, Анатолий Подшивалов, Светлана Крючкова..Продолжительность: 01:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D3DCBEF0EEDED4BD5B5F56BE219CD806FD0EC84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 777040   (813837) от 14.04.2014
 
 Контакт / Contact (1997) BDRip [1080p] [hand made 60fps]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813837.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813353.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813086.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812938.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811959.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811840.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Ace of Base - Видеоколлекция от ALEXnROCK (2017) WEBRip
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811763.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Mylene Farmer - Видеоколлекция от ALEXnROCK (2017) [H.264/720p]
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811440.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810997.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810786.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810196.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809863.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ Bon Jovi - Видеоколлекция от ALEXnROCK (2017) WEBRip [H.264/720p
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809726.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809377.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809050.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809048.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808029.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807757.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807574.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806778.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806771.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806717.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806042.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806039.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805729.jpg" />
 </div>
 
 
@@ -653,33 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6091DA37FAFC4247E51D595A780609494DFA043
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384107   (805726) от 18.05.2020
-
-В августе 44-го (2001) HybridRip [Полная версия] [hand made]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805726.jpg" />
-</div>
-
-
-###  Подробнее
-
-События происходят в августе 1944 года. На территории освобождённой Белоруссии в тылу советских войск действуют вражеские агенты. В эфир регулярно выходит радиостанция с позывными «КАО». Контрразведчикам из СМЕРШа, трём молодым офицерам во главе с капитаном Алёхиным, поручено в кратчайшие сроки разыскать разведгруппу противника.
-По роману Владимира Богомолова "Момент (   Читать дальше...   )Производство: Россия, Беларусь / БеларусьфильмЖанр: Боевик, триллер, драма, детектив, военныйРежиссер: Михаил ПташукАктеры: Евгений Миронов, Владислав Галкин, Юрий Колокольников, Беата Тышкевич, Алексей Петренко, Александр Феклистов, Рамаз Чхиквадзе, Александр Балуев, Ярослав Бойко, Анджей ПечиньскийСубтитры: ОтсутствуютПродолжительность: 01:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5872FE675364878B7F4FC22296B12A17DF70EA58
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,82 +1,3 @@
-###  Публикация: 1220930   (143409) от 27.12.2018
-
-Осторожно, Земляне! (2017-2018) WEBRip [H.264/720p-LQ] (Сезон 1-4, Серии 1-60 из 60)
-
->>След.
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое межгалактическое шоу производства Студии анимации 2х2!
-Инопланетное вторжение уже началось. Разумные гуманоиды потерпели крушение на территории России и вышли на контакт… Но удастся ли им найти общий язык с представителями местной фауны и их двустволками? Внимание! При встрече с инопланетянами не кормите их сахаром (и не мочите после полуночи, но это не точно).Производство: РоссияЖанр: Приключения, Комедия, СиткомРежиссер: Евгений Кузнецов, Кирилл Данильченко, Анна МалинаСубтитры: ОтсутствуютПродолжительность: 60x ~00:15:10Реклама: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0506431C15798E33ABA38E5B5DCACCFC8C6E3A67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658903   (143085) от 22.11.2023
-
-Простоквашино (2018-2023) WEBRip [H.264/1080p] (сезон 1-4, серии 1-106 из 106 + бонусы)
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Казалось, никакие бури внешнего мира не смогут поколебать привычный и размеренный ход деревенской жизни Простоквашино. Время как будто застыло. Все так же каждое утро Матроскин дегустирует свежее молоко, полученное от своей любимицы - коровы Мурки. Все так же Шарик проводит время в окрестных лесах, «фотоохотясь» на редкую дичь. Правда, теперь он научился выкладывать (   Читать дальше...   )Производство: Россия | «Союзмультфильм»Жанр: Мультфильм, детскийРежиссер: Михаил Солошенко, Евгения Жиркова, Анна КузинаАктеры: Антон Табаков, Гарик Сукачев, Павел Деревянко, Алексей Онежен, Мигель Родригез, Иван Охлобыстин, Юлия Меньшова, Андрей Тенетко, Ольга Голованова, Беата СуховаСубтитры: ОтсутствуютПродолжительность: ~00:06:30 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A75131FA19DCB67AFA9E3F1E51C4ED68980BAE1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 694979   (142886) от 28.12.2017
-
-Барбоскины (2012-2017) SATRip/WEBRip (Серии 101-180) [Обновляемая]
-
->>След.
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мама, папа и… пятеро щенят. У Барбоскиных все, как у людей. Папа свободное время проводит за компьютером, дочери увлекаются модой и слушают Жанну Киску, а сыновья играют в футбол и мечтают о Нобелевской премии.Телекомпания: РоссияЖанр: Мультсериал, Анимация, ДетскийРежиссер: Дмитрий ЯковенкоСубтитры: ОтсутствуютПродолжительность: Каждая серия ~ 00:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFE32F0BF8FFAACD0D6D0B13EBD5CE62D4C763EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427615   (142827) от 22.11.2023
 
 Сказочный патруль / Fantasy patrol (2016-2023) WEB-DLRip [H.264/720p-LQ] (сезон 1-4, серии 1-84 из 84) (Обновляемая)
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142827.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141826.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141722.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ Web-зона (2018) WEB-DLRip [H.264/720p-LQ] (Сезон 1-2, Серии 1-24 �
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140659.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140343.jpg" />
 </div>
 
 
@@ -217,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139979.jpg" />
 </div>
 
 
@@ -243,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139217.jpg" />
 </div>
 
 
@@ -269,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_135755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135755.jpg" />
 </div>
 
 
@@ -295,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135744.jpg" />
 </div>
 
 
@@ -323,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130625.jpg" />
 </div>
 
 
@@ -349,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130604.jpg" />
 </div>
 
 
@@ -376,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130594.jpg" />
 </div>
 
 
@@ -402,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130593.jpg" />
 </div>
 
 
@@ -428,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126942.jpg" />
 </div>
 
 
@@ -446,32 +367,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692404   (122570) от 16.01.2024
-
-Боцман и попугай (1982-1986) WEBRip [H.264/1080p-LQ] (серии 1-5 из 5) [handmade AI]
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122570.jpg" />
-</div>
-
-
-###  Подробнее
-
-О приключениях боцмана Ромы и его попугая.Производство: СССР / СоюзмультфильмЖанр: мультфильм, детскийРежиссер: Михаил КаменецкийАктеры: Роман Филиппов, Ефим Кациров, Ольга Громова, Владимир Басов, Анатолий Баранцев, Сергей Филиппов, Елена Санаева, Юрий Волынцев, Всеволод Ларионов, Наталья ЖуравлеваСубтитры: ОтсутствуютПродолжительность: ~00:10:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDE651B7F84F10C6F60FC13C6206134FF0E97F08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696478   (119368) от 04.02.2024
 
 Объяснялкины (2023) WEBRip [H.264/720p] (сезон 1, серии 1-8 из 8)
@@ -480,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119368.jpg" />
 </div>
 
 
@@ -506,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118781.jpg" />
 </div>
 
 
@@ -532,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118779.jpg" />
 </div>
 
 
@@ -558,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116783.jpg" />
 </div>
 
 
@@ -584,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110881.jpg" />
 </div>
 
 
@@ -610,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110131.jpg" />
 </div>
 
 
@@ -636,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102530.jpg" />
 </div>
 
 
@@ -662,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101313.jpg" />
 </div>
 
 
@@ -673,6 +568,114 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D569AAE018EB45675147AC068C4D68FDB07E8D24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 451612   (81328) от 10.03.2012
+
+Мистер Фримен / Mr.Freeman (2009-2012) IPTVRip [H.264]
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая серия «заставляющего задуматься мультфильма», как писали в комментариях, от Mr. Freeman вышла 21 сентября. В какой-то степени это творение похоже на «запрещённую рекламу» Года молодёжи, созданную командой Шлегеля.
+Серии мультфильма содержат множество различных «символов» и намёков. Например, Фримен может представать в облике, содержащем стереотипные черты каких-либо конкретных личностей, либо социальных групп (например, при фразе «Я сам себе всё подчинил» Фримен стоит на пьедестале в шапке-треуголке, держа руку на уровне груди). В сериях присутствуют также «25-е кадры», являющиеся элементами некоего более крупного изображения. Кроме того, незначащие на первый взгляд детали, как, например, цифры 21.12.12., в которые превращается «кардиограмма» в первой серии, являющиеся предположительной датой завершения нынешней эпохи по календарю Майя. Эти и многие другие детали питают множество версий относительно личности Фримена и его целей.Жанр: АнимацияРежиссер: Mr.FreemanАктеры: Mr.FreemanПеревод: ОтсутствуетПродолжительность: 18 эпизодов ~ по 00:03:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 430478   (76834) от 17.02.2012
+
+Фиксики [Серии 1-28 + Бонус] (2010) DVDRip
+
+>>След.
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обыкновенному мальчишке Дим Димычу невероятно повезло! Он узнал, что в его доме живут маленькие человечки - Фиксики! Он сумел с ними подружиться и узнать много нового о том, что его окружает! Теперь Фиксики помогают Дим Димычу, что бы ни случилось!
+
+Кто же такие Фиксики? Это маленькие человечки, которые живут внутри машин и приборов, они ухаживают за техникой изнутри, (   Читать дальше...   )Жанр: Детский, Компьютерная анимацияРежиссер: Васико Бедошвили, Андрей Колпин, Джангир Сулейманов, Наталья Мирзоян, Роман Соколов, Светлана Мардаголимова, Владимир ПономаревПерсонажи: Симка, Нолик, Папус, Мася, Дедус, Жучка, Дим Димыч, родители Дим Димыча, КусачкаПродолжительность: 28 x ~00:06:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 446114   (73949) от 03.02.2012
+
+Приключения капитана Врунгеля (1976-1979) DVD5 (серии 01-13 из 13) [реставрация]
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключения капитана Врунгеля — рисованный мультсериал студии «Киевнаучфильм», состоящий из 13 серий. Мультфильм Давида Черкасского был выпущен по сюжету одноимённого романа Андрея Некрасова.
+Христофору Бонифатьевичу Врунгелю, известному мореходу, профессору навигации, приходит приглашение участвовать в международной регате. Специально для соревнований помощник Врунгеля (   Читать дальше...   )Производство: СССР / Студия «Киевнаучфильм»Жанр: мультфильм, анимацияРежиссер: Давид ЧеркасскийПеревод: не требуетсяСубтитры: отсутствуютПродолжительность: 02:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C24D4F26E809A233264822F7929E812715584883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 445321   (73533) от 01.02.2012
+
+Барбоскины. Выпуск №2. Лучший подарок. Серии 1-15 (2011) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мама, папа и… пятеро щенят. У Барбоскиных все, как у людей. Папа свободное время проводит за компьютером, дочери увлекаются модой и слушают Жанну Киску, а сыновья играют в футбол и мечтают о Нобелевской премии.Жанр: Мультсериал, Анимация, ДетскийПродолжительность: 15 ~ 00:05:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:769D163AE8D286BBE7D32BD9C46B81F712F45FCA
 ```
 
 https://mybot314.ru/tekegram_catalog/

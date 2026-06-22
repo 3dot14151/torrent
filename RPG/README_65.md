@@ -1,3 +1,107 @@
+###  Публикация: 1764461   (34934) от 07.12.2024
+
+Alder's Blood (2020) [Ru/Multi] (2.0.1) License GOG [Definitive Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alder's Blood - это мрачная и темная тактическая стелс-игра, в которой пошаговый бой направлен на то, чтобы избежать засады противника и создать свою собственную. Используйте хитрость и тактику, чтобы преодолеть нескончаемый натиск монстров, проявления угасания вашего бога. Управляйте своими ограниченными ресурсами, выходите на улицу со своими товарищами и исследуйте (   Читать дальше...   )Тип издания: LicenseРазработчик: Shockwork GamesЖанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADBAD9B72716254BD68AC7D69BFD73402FB0D982
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764456   (34888) от 07.12.2024
+
+Alder's Blood: Prologue (2020) [En] (1.0.20a) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34888.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Alder's Blood: Prologue вы будете играть за Чарльза, простолюдина, который стремится быстро заработать и пытается охотиться на порождения тьмы. Если он выживет - доход от продажи останков существ обеспечит его на ближайшие недели. Но охота не будет легкой. Ключ к победе здесь не в грубой силе, а в скрытности и ловкости.Тип издания: LicenseРазработчик: Shockwork GamesЖанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5D1223428E6DA579E82498677A556634E477E0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759160   (34572) от 11.12.2024
+
+Bad 2 Bad: Apocalypse (2024) [Ru/Multi] (Build 16701862/dlc) Repack Let'sРlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34572.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Bad 2 Bad: Apocalypse», официальное продолжение «Bad 2 Bad: Delta» и «Extinction», было выпущено на нескольких платформах, с расширенным уровнем, более обширным миром и более богатым контентом. Apocalypse следует за историей команды «Delta» во главе с майором Пэном, которая спасает и восстанавливает мир, опустошенный вирусом от Human Forces. Присоединяйтесь к команде (   Читать дальше...   )Тип издания: RepackРазработчик: DAWINSTONEЖанр: Экшены, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0C8C46BA9F4DD3BEDCD06F3BC5B263B01DA4674
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765300   (34431) от 12.12.2024
+
+Sea of Stars (2023) [Ru/Multi] (1.1.53846) Repack Wanterlude
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sea of Stars - динамичное ролевое приключение, разработанное в стилистике игр старой школы девяностых годов. Повелитель плоти восстал и теперь мир находится под угрозой уничтожения. Мы же узнаем историю двух детей Солнцестояния, обладающих особой силой и могуществом, которые и являются единственной надеждой людей на спасение. Твоими противниками станут жуткие потусторонние (   Читать дальше...   )Тип издания: RepackРазработчик: Sabotage StudioЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F9446C0CB712E16FF0FFACE3B3B49DD24E3BAC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758202   (34260) от 14.12.2024
 
 Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.4.63.0) Repack seleZen
@@ -6,7 +110,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.4.63.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34260.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Archons (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34223.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Banishers: Ghosts of New Eden (2024) [Ru/Multi] (1.5.0.0/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34220.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Sir Whoopass: Immortal Death (2022) [En] (1334) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34165.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Keylocker | Turn Based Cyberpunk Action (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34087.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Rogue Citadel (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33956.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Barony (2015) [Ru/En] (4.3.1) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33869.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ SpiderWeb Games (Avadon, Avernum, Exile, Geneforge, Nethergate, Subterra) (1995-
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33830.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Crown Wars: The Black Prince (2024) [Ru/Multi] (Build 16501847/dlc) Repack Let's
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33613.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Atelier Ryza 3: Alchemist of the End & the Secret Key (2023) [Multi] (1.7.0.0/dl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33386.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Neptunia Game Maker R:Evolution Deluxe Edition (2024) [Multi] (UWP/dlc) Scene Ru
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33345.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Diablo II (2): Resurrected (2021) [Ru/En] (1.6.81914) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33314.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ The Iron Oath (2022) [En] (1.0.021) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33214.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ The Legend of Heroes: Trails to Azure (2023) [Multi] (1.1.19) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33111.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ V Rising (2024) [Ru/Multi] (1.0.10.2-r83846-b3/dlc) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33104.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Tokyo Clanpool (2024) [Multi] (0.30) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33100.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Glorious Companions (2019) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32991.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Pathfinder: Kingmaker (2018) [Ru/Multi] (2.1.7b.fix/dlc) Repack Wanterlude [Impe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32890.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Banishers: Ghosts of New Eden (2024) [Ru/Multi] (1.5.0.0/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32880.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Dragon Quest Monsters: The Dark Prince (2024) [Multi] (1.0.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32761.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Dungeon Defenders (2011) [Multi] (10.0.0/dlc) Scene TinyIso
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32637.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Deathbulge: Battle of the Bands (2023) [En] (1.2.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32602.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Deathbulge: Battle of the Bands (2023) [En] (1.2.2) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D296E9B3F0FD220289144DA0B168D70BC6D3CA3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762885   (32559) от 30.12.2024
-
-Sin Slayers: Reign of The 8th (2024) [Ru/Multi] (1.5.0.6/dlc) Repack Let'sРlay [Supporter Pack]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sin Slayers возвращается на Steam спустя некоторое время в своем лучшем виде. Это сложная RPG Roguelite, в которой вы решаете судьбу мира, взяв на себя его грехи. Сможете ли вы держаться за свет, когда все остальное погрузилось во тьму? Семь смертных грехов. А вы слышали о восьмом? Погрузитесь в безумие в Sin Slayers, RPG Roguelite, где вам предстоит решить, сколько (   Читать дальше...   )Тип издания: RepackРазработчик: goonswarmЖанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36F10546C87F27B755F6C65A978E1AE9E6F4B887
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769788   (32548) от 30.12.2024
-
-Stray Blade (2023) [Ru/Multi] (1.8/dlc) Repack Let'sРlay [Ultimate Bundle]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проявите себя в этом приключенческом экшене, исследуйте развалины загадочной цивилизации и участвуйте в ожесточенных схватках. Легенды гласят о затерянной долине — диком и заросшем зеленью месте, в котором сокрыта великая сила. Вы нашли эти забытые края, но погибли. Спустя некоторое время жизнь вернулась к вам. Но у всего есть своя цена — теперь вы привязаны к этому (   Читать дальше...   )Тип издания: RepackРазработчик: Point Blank GamesЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AA10E0E57C7712F68D596F8A9947526C46FB6CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770023   (32522) от 30.12.2024
-
-Caribbean Legend (2024) [Ru/En] (1.3.5/dlc) Repack seleZen
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Caribbean Legend - пиратская РПГ с открытым миром погружает в захватывающую эпоху карибского пиратства, предлагая пройти увлекательное путешествие в роли Шарля де Мора, молодого французского дворянина, ищущего приключений и помогающего своему брату в Новом Свете. На протяжении 200-часового приключения по разнообразным островам и регионам игроки сталкиваются с огромным (   Читать дальше...   )Тип издания: RepackРазработчик: BlackMark StudioЖанр: Ролевые игрыЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0FB7F430DC518E093A06562A03A752B780B4C2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770428   (32343) от 01.01.2025
-
-Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 16756464) Scene Rune
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Играйте в тактическую RPG с увлекательным, неповторимым сюжетом, действие которого разворачивается в мире пиратов. Капитан Флинт отправляется на поиски загадочного сокровища вместе со своей командой и другом Билли Бонсом. И хотя капитана манит неизведанное, он еще не подозревает, что после этого приключения станет по-настоящему свободен. Отправляйтесь в фантастический (   Читать дальше...   )Тип издания: SceneРазработчик: Savage LevelЖанр: Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB00D9697B233441708809DBBFC8EF10E5B08FA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

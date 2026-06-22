@@ -1,3 +1,29 @@
+###  Публикация: 906346   (645239) от 08.06.2015
+
+И.Б. Мусова | Логопедические чистоговорки (1999) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645239.jpg" />
+</div>
+
+
+###  Подробнее
+
+В брошюру включены чистоговорки, которые апробированы автором в работе по автоматизации звуков С-СЬ, З-ЗЬ, Ц, Ш, Ч, Щ, Л-ЛЬ, Р-РЬ, К-КЬ, Г-ГЬ, Х-ХЬ, Б-БЬ, Д-ДЬ, В-ВЬ, Т-ТЬ, М-МЬ, Н-НЬ, Ф-ФЬ, П-ПЬ и выработки четкой дикции, формированию и уточнению значений предлогов.Жанр: Развивающее пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C27D46A6D88DBD88D8D779613601A9BE92100547
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 518079   (645060) от 02.07.2012
 
 Г.Г.Галкина | Звуки, буквы я учу! Альбом упражнений №2 по обучению грамоте дошкольника [2006] [TIF]
@@ -6,7 +32,7 @@
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645060.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645058.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644924.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644831.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644815.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644807.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640844.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637864.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636955.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633758.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633459.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633059.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631125.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630849.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630665.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629884.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629622.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629193.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629186.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629185.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629079.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628976.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628864.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628739.jpg" />
 </div>
 
 
@@ -647,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628648.jpg" />
 </div>
 
 
@@ -658,33 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01464D6473D980009C70BC06D87E122B22846F4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521660   (626995) от 11.07.2012
-
-Галина Селивановская | Играем и развиваем речь [2010] [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Надоели скучные и неинтересные учебники? Новая обучающая книжка-раскраска поможет вам. Она станет незаменимым помощником для развития речи и подкотовки ребёнка к школе.
-Это уникальное издание будет интересно, как детям, так и родителям. Автор – профессиональный детский психолог и специалист по раннему развитию. Для мам и пап, бабушек и дедушек в книге приведены необходимые методические материалы и рекомендации по развитию речи, а для детей – множество игр, загадок, скороговорок, которые помогут развить все необходимые речевые навыки, причём сделать это без особых усилий и с большим удовольствием.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03353925E1C7AE8D98D75918DC8E5128AB5427D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

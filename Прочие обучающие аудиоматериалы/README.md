@@ -1,4 +1,108 @@
 https://t.me/izofen
+###  Публикация: 1877136   (1073870) от 
+
+Ли Нухэ | Сторителлинг в стиле Ghibli. Учимся создавать истории по методу Хаяо Миядзаки (2026) [MP3, Антон Ческидов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073870.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вдохновение можно найти даже в прогнозе погоды». – Хаяо Миядзаки Каждый из нас когда-то впервые увидел аниме студии Ghibli. Для кого-то это была случайная встреча, кто-то осознанно выбрал «Ходячий замок» или «Моего соседа Тоторо». Однако всех нас объединяет одно – ощущения тепла, света и доброты, созданные аниматором. Помните удивление от первой встречи с пушистым (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: БомбораПродолжительность: 05:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44A5B03A22786779656A357113AA1EEDB38D54D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876496   (1073529) от 
+
+Ульяна Соболева | Как написать книгу за 30 дней (2026) [MP3, Людмила Быкова]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073529.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Как написать книгу за 30 дней» — не просто пособие, а практический путеводитель, который помогает превратить замысел в настоящую книгу. Зачем откладывать на годы в ожидании вдохновения? Начать можно уже сейчас — шаг за шагом воплощая идею в реальность. Эта книга-курс подскажет, как найти сюжет, придумать название, написать аннотацию и составить план, а также даст (   Читать дальше...   )Жанр: Познавательная литератураИздательство: ЛитРес: чтецПродолжительность: 07:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3E822538D211B091536C9F1E8D4819B4E97AB90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876429   (1073265) от 
+
+Айзек Азимов | Научно-популярная библиотека. Слова на карте. Географические названия и их смысл (2026) [MP3, Любовь Одинцова]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга почти топонимический атлас мира, который у Айзека Азимова получился сборником занимательных историй. Вы узнаете, почему Австралия несет в себе слово юг, а Австрия – восток и как за названием Нью-Джерси мог скрыться английский король, а за именем Филадельфия – египетский фараон. Множество мест на земле было названо в честь богов, святых, королей и президентов, (   Читать дальше...   )Жанр: Занимательная география, История географииИздательство: ЛитРес: чтецПродолжительность: 11:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0200D97BED6C623E992D96DC24436B208A9B3DC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876139   (1072994) от 
+
+Айзек Азимов | Путеводитель по Библии. Новый Завет (2026) [MP3, Вероника Аксёнова]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Азимова – настоящий путеводитель по древней земле, на которой более двух тысяч лет назад произошло событие, изменившее ход всемирной истории. Вы узнаете о Палестине времен Маккавеев и границах владений Ирода Великого. Пройдете путем Христа и апостолов в их земном служении. Азимов касается исторической географии и этнографии, не оставляя без внимания основные (   Читать дальше...   )Жанр: Библейские сюжеты, Древние цивилизацииИздательство: ЛитРес: чтецПродолжительность: 22:18:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C46F00F6DDB0974FE0B29E7599BD5A3305D784B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875689   (1072735) от 
 
 Константин Циолковский | Философия Вселенной (2026) [MP3, Павел Константиновский]
@@ -7,7 +111,7 @@ https://t.me/izofen
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072735.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072547.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072159.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071791.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071294.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071270.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071223.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071195.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071194.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071120.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071048.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1070990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1070990.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070881.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070583.jpg" />
 </div>
 
 
@@ -374,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070407.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070406.jpg" />
 </div>
 
 
@@ -427,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070309.jpg" />
 </div>
 
 
@@ -453,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069353.jpg" />
 </div>
 
 
@@ -480,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068845.jpg" />
 </div>
 
 
@@ -506,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068731.jpg" />
 </div>
 
 
@@ -532,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068544.jpg" />
 </div>
 
 
@@ -558,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068278.jpg" />
 </div>
 
 
@@ -571,110 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8B21F45A68B503DD12BBA2624E03519D72300C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869431   (1068216) от 06.05.2026
-
-Мария Кнебель | О действенном анализе пьесы и роли (2026) [MP3, Андрей Черкасов]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действенный анализ пьесы и роли — репетиционный метод, разработанный К. С. Станиславским и развитый М. О. Кнебель, в основе которого лежит исследование устройства пьесы путем этюдов-импровизаций. Актёр, выполняя подобный этюд, осуществляет «разведку умом» и «разведку телом»: например, заменяет реплики персонажа своими словами, фантазирует, при этом сохраняя верность (   Читать дальше...   )Жанр: Учебное пособиеИздательство: Аудиокнига своими рукамиПродолжительность: 08:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEFF030C8740A2313CE4D262A1CF0DCF8DD8548F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869109   (1067810) от 04.05.2026
-
-Кип Торн | Черные дыры и складки времени. Дерзкое наследие Эйнштейна (2026) [MP3, Вячеслав Душин]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая монография является популярным изложением новейших достижений в области астрофизики и гравитации, которые тесно связаны с фундаментальными предсказаниями А.Эйнштейна. Читатель найдет в книге много интересного о вкладе ученых разных стран в эту область науки, а также в близких к ней областях. Эта книга переведена с английского на французский, немецкий, (   Читать дальше...   )Жанр: АстрофизикаИздательство: Аудиокнига своими рукамиПродолжительность: 19:02:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53C340B09CAFD21562AD425D902369F576B97DEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1868728   (1067769) от 02.05.2026
-
-Владимир Сурдин | Звезды (2025) [MP3, Филипп Матвеев-Витовский]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга – ваш проводник в мир современных знаний о звёздах: от названий созвездий и основ наблюдения до тайн их внутреннего строения, энергии и эволюции. Вы проследите весь путь светил – от рождения до впечатляющих финалов в виде новых, сверхновых и нейтронных звёзд. Идеальный старт для студентов и всех, кто хочет понять природу сияющих гигантов нашей Вселенной. (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: АСТПродолжительность: 13:02:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C6C82AF3B2DF16A8F8CE30865C09B00DAFB1902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1868139   (1067353) от 29.04.2026
-
-Майкл Газзанига | Corpus Scientificum Кто за главного? Свобода воли с точки зрения нейробиологии (2021) [MP3, Вадим Прохоров]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несёт ли каждый человек личную ответственность за свои поступки? Кто мы? Биологические роботы, запрограммированные на совершение определённых действий и поддержание определённых функций? Отлаженные тысячелетиями эволюции компьютеры, многозадачные, сложные, но при этом ограниченные и порой дающие сбои? Есть ли у нас свобода воли? Если да – то откуда, ведь мы являемся (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: АСТПродолжительность: 08:43:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE854F0E386E160AFFDE7FBC5F87BC28C775858E
 ```
 
 https://mybot314.ru/tekegram_catalog/

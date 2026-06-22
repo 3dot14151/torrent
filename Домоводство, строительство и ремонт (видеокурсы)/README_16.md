@@ -1,3 +1,32 @@
+###  Публикация: 1777008   (22697) от 02.04.2025
+
+Анна Кулакова | Сборник вебинаров по ландшафтному дизайну и садоводству (часть 1) (2023-2024) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22697.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 10 ошибок в благоустройстве участка
+2. МАФ в ландшафтном дизайне
+3. Вредители хвойных растений и меры борьбы с ними
+4. Болезни и вредители лиственных и плодовых пород деревьев и кустарников(   Читать дальше...   )Жанр: ВебинарыЯзык озвучки: РусскийПродолжительность: 69:34:47Реклама: Ватермарки и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEC341790A3DA9B808CDA9E1B84B4F660D68FC67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790104   (21786) от 11.04.2025
 
 Екатерина Сваровская | Ржаной хлеб. Эпизод I (2023) WEB-DL [RU]
@@ -6,7 +35,7 @@
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21786.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ George Vondriska | Создайте станцию для беспроводно
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20526.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ Dale Barnard | Искусство и Ремесла Стиль Greene & Greene (
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18493.jpg" />
 </div>
 
 
@@ -87,7 +116,7 @@ Woodsmith PBS | Woodsmith shop (Season 6) (2012) TVRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18319.jpg" />
 </div>
 
 
@@ -113,7 +142,7 @@ Brenda K.B. Anderson | Вязаные носки (2023) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18283.jpg" />
 </div>
 
 
@@ -139,7 +168,7 @@ George Vondriska | Создать невозможный стол (2024) WEBRip
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18262.jpg" />
 </div>
 
 
@@ -166,7 +195,7 @@ Nicki LaFoille | Сумка с разделителем (2025) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18095.jpg" />
 </div>
 
 
@@ -192,7 +221,7 @@ Cynthia Nims | Французская домашняя кухня: Основн�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17877.jpg" />
 </div>
 
 
@@ -218,7 +247,7 @@ Illene Sofranko | Консервирование 101 (2025) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17790.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ Nicki LaFoille | Трикотажное ноу-хау + толстовка с к
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17778.jpg" />
 </div>
 
 
@@ -270,7 +299,7 @@ Sara Bendrick | Выходные в саду (2021) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17765.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Craig Olson | Стрижка овец (2020) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17694.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Robin Miller | Давай устроим поздний завтрак (2024) WE
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17692.jpg" />
 </div>
 
 
@@ -348,7 +377,7 @@ Katie Workman & Robin Miller | Готовим в будние вечера (2024
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17583.jpg" />
 </div>
 
 
@@ -374,7 +403,7 @@ ZJ Humbach | Организация идеальной студии для ши�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17380.jpg" />
 </div>
 
 
@@ -401,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15156.jpg" />
 </div>
 
 
@@ -427,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13397.jpg" />
 </div>
 
 

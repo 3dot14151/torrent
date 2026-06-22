@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1876515   (1073520) от 
+
+Blazblue Calamity Trigger (2014) [Multi] (1.0) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двухмерный файтинг ручной работы от создателей культового франчайза Guilty Gear. Это Мортал Комбат нашего времени - в стиле "готического аниме" с оригинальным сюжетом и в непривычной вселенной, где соседствуют технология и магия. Встаньте на сторону одного из бойцов в конфликте будущего, где нет правых и виноватых. Маги Novus Orbus Librarium, или просто (   Читать дальше...   )Тип издания: LicenseРазработчик: Arc System WorksЖанр: ЭкшеныЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C6EE0C0571408D87267C86E4A3CD4982986CD07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875384   (1072522) от 
 
 Hatred (2015) [Ru/Multi] (rc12) License GOG
@@ -7,7 +33,7 @@ Hatred (2015) [Ru/Multi] (rc12) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072522.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ DOSTAVKA (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072322.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ TerraTech Legion (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071888.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ CrossCode (2018) [Ru/Multi] (1.4.2-4/dlc) Repack Let'sРlay [Complete Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069230.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Kamikaze Lassplanes (2024) [Multi] (1.1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067945.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Temtem: Swarm (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067580.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ SpongeBob SquarePants: The Movie (2004) [Ru] (1.0) Unofficial
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067285.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Dome Keeper (2022) [Ru/Multi] (5.0.2/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067238.jpg" />
 </div>
 
 
@@ -207,6 +233,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867355   (1067020) от 25.04.2026
+
+Dungeon Scroll / Свитки подземелий (2003) [En] (2.05) Unofficial [Gold Edition]
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1067020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dungeon Scroll - это игра на правописание на тему подземелий ролевых игр. Игрокам даются восемь плиток с буквами, из которых нужно составить слова, наносящие урон врагам, встречающимся в подземелье. Чем длиннее слово, тем больше урона оно наносит противникам. В то же время враги атакуют игрока, отнимая у него здоровье. Если здоровье игрока падает до нуля, он проигрывает. (   Читать дальше...   )Тип издания: UnofficialРазработчик: Robinson TechnologiesЖанр: ГоловоломкиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EE6757577D679601EB868348CDF33B6358CA8ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1863529   (1063381) от 05.04.2026
 
 Biped 2 (2025) [Ru/Multi] (2.0) Repack Let'sРlay
@@ -215,7 +267,7 @@ Biped 2 (2025) [Ru/Multi] (2.0) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063381.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ Goat Simulator 3 (2022) [Ru/Multi] (1.2.1.0_476053/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063120.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Mortal Kombat 11 (2019) [Ru/Multi] (0.384-34-CL237394/dlc) Repack dixen18 [Ultim
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061992.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ Dragon Ball FighterZ (2018) [Ru/Multi] (1.42/dlc) Scene Rune [Legendary Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061557.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ S.E.M.I.: Side Effects May Include... (2025) [Ru/Multi] (1.0.ebcf741ea) Repack F
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061091.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Hoverflow (2021) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060795.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ Big Hops (2026) [Ru/Multi] (21207) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060140.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ Boat Together (2025) [Ru/Multi] (1.2.2) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060133.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ FRONT MISSION 3 Remake (2026) [Multi] (0.0.13) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059802.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Gatekeeper (2024) [Ru/Multi] (1.2.0.00/dlc) Repack FitGirl [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059540.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Harry Potter - Anthology / Гарри Поттер - Антология (2001-20
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059385.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.8.0-118300/dlc) Repack Let's
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058695.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ Brotato (2022) [Ru/Multi] (1.1.14.3/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058686.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Driftwood (2023) [Ru/Multi] (1.0.6-h1) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058545.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Bud Spencer & Terence Hill - Slaps And Beans (2017) [Ru/Multi] (1.02) Repack Let
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058489.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ Bud Spencer & Terence Hill - Slaps And Beans 2 (2023) [Ru/Multi] (1.2.2024011511
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058414.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ Bud Spencer & Terence Hill - Slaps And Beans 2 (2023) [Ru/Multi] (1.2.2024011511
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7D510F82036A03181829644EC446033DACD9B79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853625   (1056658) от 14.02.2026
-
-BlazBlue Entropy Effect (2024) [Ru/Multi] (1.0.8.139834.0/dlc) Repack FitGirl [Complete Edition]
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056658.jpg" />
-</div>
-
-
-###  Подробнее
-
-BlazBlue Entropy Effect - двухмерная приключенческая игра во вселенной BlazBlue, но с другим жанром и стилем, чем предыдущие файтинги. В ней присутствуют элементы рогелита, такие как процедурно генерируемые карты, permadeath и кастомизация персонажей. Также здесь имеется насыщенный сюжет с несколькими концовками, зависящими от выбора геймера.Тип издания: RepackРазработчик: 91ActЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Английский, Китайский (упрощенный), ЯпонскийЯзык субтитров: Русский, Английский, Немецкий, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Немецкий, Китайский (упрощенный) и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6660D569889526DB7C01BF350BE1F81C2C1AD83B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852552   (1055966) от 08.02.2026
-
-Donna: The Canine Quest (2025) [En] (1.0.0/dlc) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055966.jpg" />
-</div>
-
-
-###  Подробнее
-
-В фантастическом мире, где сосуществуют волшебные существа и мифологические персонажи, древнее зло начинает отбрасывать свою тень на землю. Только ротвейлер по имени Донна обладает достаточной силой и отвагой, чтобы противостоять этой тьме. Донна, отважная собака-воин с благородным сердцем, унаследовала от своих предков миссию по защите беззащитных собак и спасению (   Читать дальше...   )Тип издания: LicenseРазработчик: RAZE GAMESЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D323629EB445D20FE4AE54706E8CDC71BDFF000
 ```
 
 https://mybot314.ru/tekegram_catalog/

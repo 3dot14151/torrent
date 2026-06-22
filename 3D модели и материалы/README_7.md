@@ -1,3 +1,29 @@
+###  Публикация: 1495076   (884250) от 10.09.2021
+
+3D модели - Hum3D - Honda Monkey 125 2019 [V-Ray|*.max, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884250.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель мото марки Honda.Формат: V-Ray|*.max, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:023D721F38B4EC01F8B9A2F8471B44FC34A04BB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495107   (884222) от 10.09.2021
 
 3D модели - Hum3D - McLaren Elva 2021 [V-Ray|*.max, FBX, OBJ]
@@ -6,7 +32,7 @@
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884222.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882239.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881444.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876573.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867592.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856825.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854986.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853370.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849458.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846200.jpg" />
 </div>
 
 
@@ -279,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846034.jpg" />
 </div>
 
 
@@ -306,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845914.jpg" />
 </div>
 
 
@@ -333,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845897.jpg" />
 </div>
 
 
@@ -359,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845828.jpg" />
 </div>
 
 
@@ -386,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845826.jpg" />
 </div>
 
 
@@ -413,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845821.jpg" />
 </div>
 
 
@@ -440,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845819.jpg" />
 </div>
 
 
@@ -467,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844160.jpg" />
 </div>
 
 
@@ -494,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844154.jpg" />
 </div>
 
 
@@ -521,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844153.jpg" />
 </div>
 
 
@@ -548,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839465.jpg" />
 </div>
 
 
@@ -574,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837858.jpg" />
 </div>
 
 
@@ -600,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837767.jpg" />
 </div>
 
 
@@ -626,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834870.jpg" />
 </div>
 
 
@@ -652,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834637.jpg" />
 </div>
 
 
@@ -663,32 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86420AEEAAA0F9D70753DD2125E854955AEE4B72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380415   (834397) от 02.05.2020
-
-3D модели - Unreal Engine - Megascans - Meadow Pack [UASSET, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот пакет предоставляет 3 варианта различной плотности для каждого актива, от LOD до высокой детализации, подходящей для Archviz в реальном времени до рекламных щитов, UV-карт освещения и материалов, настроенных на ветер. У вас будет все, что вам нужно для создания плотных и правдоподобных луговых сцен, готовых для разброса с помощью рисовальщика листвы, использовать (   Читать дальше...   )Формат: UASSET, FBX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FCDEDAC1491E63CFF84CDCC29BA737BB09AA533
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,83 @@
+###  Публикация: 1131686   (707118) от 06.05.2017
+
+Герольд Бельгер | Дом скитальца (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дом, в котором жил юный переселенец Герольд Бельгер вместе со своими обездоленными родственниками, к сожалению, не сохранился. Аульчане не догадались сделать в этом доме музей творчества знаменитого земляка, произведения которого понятны и казахам, и русским, и немцам, или открыть здесь музей депортации, безмолвный укор истории. Своеобразным музеем депортации стал (   Читать дальше...   )Жанр: ПрозаПродолжительность: 13:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6BDA99BCCDBBAEB1D7D77648415542B09718057
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131492   (707100) от 06.05.2017
+
+Иван Шмелёв | Волчий перекат (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707100.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Волчий перекат" создает впечатление мельком подсмотренной картинки жизни.
+В "Забавном приключении" писатель отобразил не только силу рвущихся к власти новых дельцов, но и недолговечность, шаткость их царствования.
+В "Пугливой тишине" автор рассказывает о разложении дворянской усадьбы. Повесть строится на контрасте между завороженной (   Читать дальше...   )Жанр: ПрозаПродолжительность: 05:52:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83E5A6B7A19F11156DC6B672AD8A816678D1FE08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131422   (706952) от 06.05.2017
+
+Леонид Белоглазов | Танец Осы. Записки артиллериста (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706952.jpg" />
+</div>
+
+
+###  Подробнее
+
+В «библиотеке» Великой Отечественной войны, состоящей из сотен и тысяч невероятно искренних, талантливых и честных автобиографических книг, «Записки артиллериста» занимают особое место. Может быть, потому, что это – в большей степени, чем художественная книга, документальное, репортажное жизнеописание длиною в три военных года. Репортаж, где боли, крови, страха и (   Читать дальше...   )Жанр: Воспоминания о войнеПродолжительность: 02:57:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F093DFD0944E1241799F71A8845C2C85DD8237AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220250   (706181) от 18.04.2018
 
 Федор Кнорре | Родная кровь (2018) [MP3]
@@ -6,7 +86,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706181.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705365.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704072.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702545.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702509.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701559.jpg" />
 </div>
 
 
@@ -162,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701550.jpg" />
 </div>
 
 
@@ -188,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701383.jpg" />
 </div>
 
 
@@ -216,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701240.jpg" />
 </div>
 
 
@@ -243,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701130.jpg" />
 </div>
 
 
@@ -269,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701123.jpg" />
 </div>
 
 
@@ -296,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700969.jpg" />
 </div>
 
 
@@ -324,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700843.jpg" />
 </div>
 
 
@@ -350,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700779.jpg" />
 </div>
 
 
@@ -376,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700721.jpg" />
 </div>
 
 
@@ -403,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700715.jpg" />
 </div>
 
 
@@ -429,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700650.jpg" />
 </div>
 
 
@@ -457,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700503.jpg" />
 </div>
 
 
@@ -483,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700420.jpg" />
 </div>
 
 
@@ -509,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699504.jpg" />
 </div>
 
 
@@ -537,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698717.jpg" />
 </div>
 
 
@@ -564,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697934.jpg" />
 </div>
 
 
@@ -591,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697000.jpg" />
 </div>
 
 
@@ -602,84 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BEBDDED0810991441C1C33ED47725BC0D730691
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221158   (696798) от 23.04.2018
-
-Мюриэл Спарк | Мисс Джин Броди в расцвете лет (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Героини романа — шесть девочек-школьниц, объединившихся в «клан Броди» волей их любимой учительницы, мисс Джин Броди. Действие происходит в Эдинбурге в тридцатые годы. Мисс Броди ведет класс маленьких девочек начального отделения респектабельной частной школы. На одном из первых уроков истории мисс Броди рассказывает вместо лекции трагический сюжет своей первой любви (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 07:28:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A364C6C815785A1A46555BB8C8E62650170FB469
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403106   (695952) от 17.08.2020
-
-Линн Грэхем | Отложенное счастье (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мерри Армстронг забеременела, проведя ночь с начальником – красивым и избалованным греческим миллиардером Ангелом Валтиносом. Грек щедро заплатил, чтобы она держалась от него подальше и хранила в тайне имя отца ребенка. Но шестнадцать месяцев спустя он снова ворвался в жизнь Мерри с ультиматумом. Она должна выбрать между замужеством без любви и заранее проигранной (   Читать дальше...   )Жанр: Зарубежные любовные романыПродолжительность: 03:52:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B41362943A58A98ACBC88F05DC79C428D2CEE8D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221327   (695112) от 24.04.2018
-
-Джеки Коллинз | Грешники (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695112.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Грешники" срывают завесу с блестящего и таинственного мира шоу-бизнеса с его безжалостной борьбой за место под солнцем и сексуальными интригами. Очаровательная Санди Симмонс и мужественный красавец Чарли Брик приехали покорять Голливуд. Они жили за счет своей красоты и обаяния и во всем полагались на своих агентов. Если ты сегодня звезда, к чему беспокоиться (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 08:12:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:397413E8800D0DEEAE8DD6A7F83383D4A807222B
 ```
 
 https://mybot314.ru/tekegram_catalog/

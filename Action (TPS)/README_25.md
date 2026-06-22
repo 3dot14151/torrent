@@ -1,3 +1,163 @@
+###  Публикация: 1241439   (519880) от 17.08.2018
+
+The Bureau: XCOM Declassified (2013) [Ru/Multi] (1.0.0.2177831/dlc) License GOG
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год 1962. Из-за холодной войны нация охвачена страхом. Секретная правительственная организация под названием "Бюро" начинает расследовать таинственные атаки нового врага поопаснее, чем коммунизм. В роли агента Картера вы будете отдавать приказы, нажимать на курок и вести за собой отряд в этом увлекательном тактическом шутере от третьего лица.Тип издания: LicenseРазработчик: 2K MarinЖанр: Action (Tactical, Shooter), 3D, 1st Person, 3rd PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AEC39B51433B01362520D535C39E4F8783DBCED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157881   (519873) от 17.08.2018
+
+Super Cloudbuilt (2017) [Ru/Multi] (1.0/upd4) Repack Other s
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возьмите на себя роль молодого солдата по имени Деми, которая просыпается посреди руин здания в загадочном мире, отключенная от ее прежней жизни и ее физического тела. С каждым новым испытанием Деми предстоит решить множество головоломок и узнать, что таит в себе будущее. Сможет ли Деми понять и принять этот новый мир, или же она поставит под сомнение эту реальность (   Читать дальше...   )Тип издания: RepackРазработчик: Coilworks, Double ElevenЖанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE26367416C0354CEADC25CF5951CA65438FF7BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534737   (518626) от 14.08.2012
+
+Orcs Must Die Дилогия [Ru/En] (RePack) 2011-2012 | R.G. Механики
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы швыряли их в разные стороны, жгли огнем, нарезали ломтиками... Счет шел на тысячи - но теперь требуется удвоить усилия! Во второй части «Стратегической игры 2011 года» по версии AIAS от студии Robot Entertainment вам предстоит прорубаться через несметные полчища орков на пару с другом!
+
+Вновь окунитесь в самую гущу битвы, играя за могущественного боевого мага или хитроумную волшебницу. Защищайте новые крепости и гномьи шахты, истребляйте тысячи орков и прочих чудовищ - в вашем распоряжении самое разнообразное оружие, заклинания, стражники, ловушки и амулеты. Проходите новую кампанию вместе с другом в совместной игре - либо боритесь за выживание в бесконечном режиме!
+
+Открывайте доступ к новым и старым средствам обороны, совершенствуйте их и пускайте в дело - пусть перемалывают полчища орков в сочный зеленый фарш!(   Читать дальше...   )Тип издания: RePackРазработчик: Robot EntertainmentЖанр: Action / Strategy (Real-time) / 3D / 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533173   (518620) от 14.08.2012
+
+Sniper Elite Collection [Ru/En] (Steam-Rip/1.0.0.0/2 DLC) 2005-2012 l R.G. GameWorks
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идет 1945 год. Берлин лежит в руинах. Вермахт готовит удар возмездия. Ракеты с нервно-паралитическим газом вот-вот обрушатся на города Европы. Соперничающие армии союзников ведут смертельную игру, пытаясь заполучить ракеты и их создателей первыми. Ситуация сложная, предательство подстерегает на каждом шагу. Ты должен понять, кто свой, кто чужой, и каждая твоя пуля должна достигнуть цели, иначе мир погибнет вместе с тобой.(   Читать дальше...   )Тип издания: ЛицензияРазработчик: RebellionЖанр: Action (Shooter) / 3D / 3rd Person / StealthЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FAEC9C25CC078DE4249DC330A357FC92767BFB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929512   (518001) от 20.08.2015
+
+Darksiders: Wrath of War (2010) [Ru/Multi] (1.1) License PROPHET
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экшен, рассказывающий о приключениях одного из всадников апокалипсиса по кличке «Война». На протяжении n-го количества уровней ему предстоит бегать по миру недалекого будущего, где демоны уничтожили все человечество. «Войне» предстоит разузнать, кто из дьявольского отродья бесстыдно нарушил древнее соглашение и испепелил людскую расу.Тип издания: ЛицензияРазработчик: Vigil GamesЖанр: Action (Slasher) / 3D / 3rd PersonЯзык озвучки: Русский, Английский, Немецкий, Французский, Испанский, Итальянский, Польский, Чешский, ЯпонскийЯзык субтитров: Русский, Английский, Немецкий, Французский, Испанский, Итальянский, Польский, Чешский, ЯпонскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Испанский, Итальянский, Польский, Чешский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCAE6DA3ABA419E69C677EA4661FD6AC7A08A598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929707   (517999) от 20.08.2015
+
+Darksiders II (2012) [Ru/Multi] (1.5/upd6/dlc) License PROPHET [Complete Edition]
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Darksiders 2 является продолжением Darksiders: Wrath of War, действия которого развернутся параллельно с событиями первой части. На этот раз в роли главного героя выступит не Война, а другой Всадник Апокалипсиса – Смерть. Вместе с ним нам и предстоит отправиться в новое опасное путешествие и доказать всем, что Война не виновен в преждевременном начале Апокалипсиса.Тип издания: ЛицензияРазработчик: Vigil GamesЖанр: Action, Slasher, 3D, 3rd PersonЯзык озвучки: Русский, Английский, Французский, Итальянский, Немецкий, ИспанскийЯзык субтитров: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Польский, Чешский, ГолландскийЯзык интерфейса: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Польский, Чешский, Голландский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B348DF378860D1EAA72C5636994F5278C3233569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 876082   (515788) от 22.08.2015
 
 Zombie Army Trilogy (2015) [Ru/Multi] (1.8.20.01) SteamRip Let'sPlay
@@ -6,7 +166,7 @@ Zombie Army Trilogy (2015) [Ru/Multi] (1.8.20.01) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515788.jpg" />
 </div>
 
 
@@ -32,7 +192,7 @@ Transformers: Rise of the Dark Spark (2014) [Ru/En] (1.0/dlc) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514744.jpg" />
 </div>
 
 
@@ -58,7 +218,7 @@ The Amazing Spider-Man / Новый Человек-паук [Ru] (Steam-Rip) 201
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514173.jpg" />
 </div>
 
 
@@ -84,7 +244,7 @@ Spider-Man [Ru] (RePack) 2000 | RG Games/Pilotus
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513135.jpg" />
 </div>
 
 
@@ -111,7 +271,7 @@ Velvet Assassin (2009) [Ru] (1.0) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510609.jpg" />
 </div>
 
 
@@ -137,7 +297,7 @@ The Amazing Spider-Man / Новый Человек-паук [Multi6\+] (L) 2012 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510225.jpg" />
 </div>
 
 
@@ -163,7 +323,7 @@ The Amazing Spider-Man / Новый Человек-паук [Ru/En/Multi6] (RePa
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509300.jpg" />
 </div>
 
 
@@ -190,7 +350,7 @@ X-Men Origins: Wolverine (2010) [Ru] (1.0.0.1) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507737.jpg" />
 </div>
 
 
@@ -216,7 +376,7 @@ Dead Rising 3 (2014) [Ru/Multi] (1.0.0.6/upd6/4dlc) Repack xatab [Apocalypse Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507736.jpg" />
 </div>
 
 
@@ -242,7 +402,7 @@ X-Men Origins: Wolverine / Люди Икс: Начало: Росомаха [RuEn
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507142.jpg" />
 </div>
 
 
@@ -269,7 +429,7 @@ Ninja Blade (2009) [Ru/En] (1.0) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506836.jpg" />
 </div>
 
 
@@ -295,7 +455,7 @@ Kane and Lynch: Dead Men (2007) [Multi] (1.0.0.129) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505892.jpg" />
 </div>
 
 
@@ -321,7 +481,7 @@ True Crime Дилогия [Ru/En] (RePack) 2004-2006 | Mailchik
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504062.jpg" />
 </div>
 
 
@@ -347,7 +507,7 @@ Conflict: Denied Ops / Конфликт: Секретные операции [Ru
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501404.jpg" />
 </div>
 
 
@@ -373,7 +533,7 @@ Afterfall: Insanity Extended Edition / Afterfall: Тень прошлого Ра
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498793.jpg" />
 </div>
 
 
@@ -407,7 +567,7 @@ Binary Domain + 2 DLC [Ru] (RePack/u2) 2012 l Fenixx
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498789.jpg" />
 </div>
 
 
@@ -437,7 +597,7 @@ Transformers: Fall Of Cybertron / Трансформеры: Падение Ки�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496862.jpg" />
 </div>
 
 
@@ -463,7 +623,7 @@ Heavy Metal : F.A.K.K. 2 [Ru] (L) 2000
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496531.jpg" />
 </div>
 
 
@@ -489,7 +649,7 @@ Cross of the Dutchman (2015) [Ru/Multi] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495403.jpg" />
 </div>
 
 
@@ -515,7 +675,7 @@ Resident Evil: Revelations / Biohazard Revelations UE (2013) [Ru/En] (1.4/dlc) R
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495345.jpg" />
 </div>
 
 
@@ -526,172 +686,6 @@ Resident Evil Revelations — популярная игра в жанре "уж�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8BD05BCD470A0032D0D1F5648822501C6CCBD11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158229   (495141) от 14.08.2017
-
-Red Number: Prologue (2017) [Ru/En] (1.0) License HI2U
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплекс "Новый Рассвет" - самая большая колония на Марсе к 2091 году. Из-за энергетического кризиса в 2040 году все страны объединились в конфедерацию Земли и сразу же приступили к строительству колонии на Марсе для добычи ресурсов. Наконец, с большим трудом, строительство комплекса закончилось в 2065 и он, наконец, был открыт. С этого момента все усилия (   Читать дальше...   )Тип издания: LicenseРазработчик: TheBlavasЖанр: Action, 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:689CB95B1573A4A8E22617737841F306FD107D17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 382142   (494942) от 31.08.2011
-
-Death to Spies / Смерть шпионам Дилогия  [Ru] (RePack) 2007-2008 | Spieler
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совершенно секретно. 29 февраля 1944 года. Ставка ВГК – начальнику ГУК СМЕРШ.
-Сотрудник четвертого отдела главного управления военной контрразведки СМЕРШ Строгов Семен Алексеевич, зарекомендовавший себя с лучшей стороны в
-первом отечественном шпионском боевике (в перехваченных шифрограммах обозначенном как stealth-action), снова направляется командованием для участия
-в ряде сложнейших операций под кодовым названием "Смерть шпионам: Момент истины".
-Считаем, что Строгов обладает всеми качествами, необходимыми для выполнения особо опасных заданий по сбору информации о местах дислокации военных и
-гражданских объектов противника, а также для противодействия и ликвидации вражеских агентов и представителей высшего командного состава вермахта.
-Личным приказом Верховного Главнокомандующего Строгову, прошедшему серьезную переподготовку в специальном тренировочном центре, предписано немедленно приступить к осуществлению сверхсекретных миссий. Его задача – захватить шпионов и диверсантов и получить исчерпывающие (   Читать дальше...   )Тип издания: RepackЖанр: Action / Add-on (Standalone) / 3D / 3rd Person / StealthЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543709   (494878) от 05.09.2012
-
-Binary Domain [Ru/En] (RePack/u2) 2012 l R.G. Механики
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Командный шутер Binary Domain создан под руководством Тошихиро Нагоши (Toshihiro Nagoshi) — одного из авторов знаменитой серии Yakuza.
-
-Токио, 2080 год. На улицах мегаполиса в ожесточенных боях сошлись люди и роботы. Международный отряд миротворцев, присланный для стабилизации ситуации, сражается на территории заброшенных районов. Но в войне со столь необычным и, казалось бы, чуждым человеческой природе противником солдаты начинают задаваться вопросом: правильно ли то, что они делают? Неужели машины стали настолько человечны? Или это люди постепенно превращаются в роботов?
-
-Специально для Binary Domain создается инновационная система искусственного интеллекта. Противники смогут оценивать ситуацию на поле боя и чутко реагировать на ее изменения. Поэтому игрокам придется тщательно планировать свои действия и не забывать об осторожности. Лишь в этом случае они смогут добиться успеха!(   Читать дальше...   )Тип издания: RepackЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F95EBDB1A3F77E2B288F7B3FCD05FAEF0C80C03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054848   (491778) от 20.09.2016
-
-GEARGUNS - Tank offensive (2016) [En] (1.0) License CODEX
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491778.jpg" />
-</div>
-
-
-###  Подробнее
-
-GEARGUNS - Tank Offensive. Эта игра предложит вам захватывающее путешествие сквозь разрушенные города с эпичными баталиями, сюжетную линию, режим выживания и военную технику. В игре GEARGUNS - Tank Оffensive существует множество разнообразных врагов - быстрые пауки, несущие на себе заряд энергии. Медленные, но стреляющие по вам из лучемётов роботы.Тип издания: LicenseРазработчик: Alexey GlinskiyЖанр: Action, 3rd person, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:811A837D1259FFB11ED1DBACFE01203EEC7919C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158596   (491507) от 16.08.2017
-
-Peter Jackson's King Kong (2005) [Ru/Multi] (1.0.0.1) Repack R.G. Механики [Gamer's Edition]
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Созданная по мотивам одноимённого фильма, игра Peter Jackson's King Kong раскроет перед вами таинственный и непознанный мир Острова Черепа. Разработчики Beyond Good and Evil и Splinter Cell создали невероятно атмосферную игру, которая, несомненно, придётся по вкусу как любителям приключений, так и жаждущим экшена игрокам. Игра Peter Jackson's King Kong готова предложить (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft MontpellierЖанр: Action, 3D, 1st Person, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3359E55DB46CB4277DDFFDF05281DE5DEA1CA51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158485   (491269) от 16.08.2017
-
-Fragmented (2017) [Ru/Multi] (17.8.1) License CODEX
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы просыпаетесь на враждебной земле чужого мира, после путешествия по колонизации планеты. Rhyldan, принимает катастрофический оборот. Вооруженные лишь кулаками, ваш ум и фрагменты знания, зарытые глубоко в уме поврежденного сознания, вы должны обеспечить выживание человеческой расы.Тип издания: LicenseРазработчик: Above, Beyond TechnologiesЖанр: Action (Survival), Open World, 3rd PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B70FB27A8AA1BDD19A2EC320F32088D7A6F5122
 ```
 
 https://mybot314.ru/tekegram_catalog/

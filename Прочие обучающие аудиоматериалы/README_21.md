@@ -1,3 +1,109 @@
+###  Публикация: 1416962   (362717) от 18.10.2020
+
+Николай Кукушкин | Хлопок одной ладонью (2020) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь на Земле – непостижимая, вездесущая, кишащая миллионами ног, сучков, колючек и зубов вакханалия, в которой мы существуем и из которой мы происходим. Три с половиной миллиарда лет она обходилась без нас, и вот, в последние мгновения истории, из этого хитросплетения животных, растений, грибов и микробов выныривает человек и задается вопросом: кто я такой и в (   Читать дальше...   )Жанр: Научно-популярная литература, НейробиологияПродолжительность: 14:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF1183F12E294960B3CEA3A9F8034BBB6C662F47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576942   (361484) от 16.09.2022
+
+Станислав Дробышевский | Палеонтология антрополога. (Книга 1). Докембрий и палеозой (2020) [MP3, Виктор Бабков]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первобытный океан и ядовитая атмосфера. Выход на сушу и страшные катаклизмы. Сценарий к фильмам ужасов, - подумаете вы. - Нет, докембрий и палеозой, - ответим мы.
+Как зарождалась жизнь? Что происходило с атмосферой? И как всё это повлияло на развитие нашей Земли?
+Миллиарды лет вокруг Солнца вращается Земля. Примерно четыре миллиарда лет на ней копошится жизнь. Мы (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 12:55:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD4CCF938EDD28C04AF223CDC8F6E0D45D4DA1AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417174   (360242) от 19.10.2020
+
+Нэнси Сталкер | Япония. История и культура: от самураев до манги. [Часть 1] (2020) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Японская культура проникла в нашу современность достаточно глубоко, чтобы мы уже не воспринимали доставку суши на ужин как что-то экзотичное. Но вы знали, что японцы изначально не ели суши как основное блюдо, только в качестве закуски? Мы привычно называем Японию Страной восходящего солнца – но в результате чего у неё появилось такое название? И какой путь в целом (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 09:01:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A522A146FF15550C51199AEE9F11DF27B352253
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577103   (359615) от 17.09.2022
+
+Станислав Дробышевский | Палеонтология антрополога. (Книга 2). Мезозой (2020) [MP3, Виктор Бабков]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Золотая середина – это не самый банальный момент, это не унылость, не скука повседневности. Второй том «Палеонтологии антрополога» продолжает историю живого прошлого Земли. В новом издании рассказывается о жизни мезозоя (триаса, юры и мела) –самой известной и впечатляющей эры. Время, ставшее символом палеонтологии, образцом прошлого. Пришло время реализовывать наработанные (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 15:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8881B861C49C0EE85A31DA7CAA3ED55BD5757187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328860   (359064) от 02.10.2019
 
 Сергей Ястребов | От атомов к древу: Введение в современную науку о жизни (2019) [MP3]
@@ -6,7 +112,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359064.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358318.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358287.jpg" />
 </div>
 
 
@@ -86,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357389.jpg" />
 </div>
 
 
@@ -121,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356885.jpg" />
 </div>
 
 
@@ -147,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355948.jpg" />
 </div>
 
 
@@ -173,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355282.jpg" />
 </div>
 
 
@@ -201,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352319.jpg" />
 </div>
 
 
@@ -227,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351973.jpg" />
 </div>
 
 
@@ -253,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348935.jpg" />
 </div>
 
 
@@ -279,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345789.jpg" />
 </div>
 
 
@@ -305,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343517.jpg" />
 </div>
 
 
@@ -331,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343384.jpg" />
 </div>
 
 
@@ -357,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343179.jpg" />
 </div>
 
 
@@ -383,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342943.jpg" />
 </div>
 
 
@@ -409,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342834.jpg" />
 </div>
 
 
@@ -435,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342006.jpg" />
 </div>
 
 
@@ -461,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341971.jpg" />
 </div>
 
 
@@ -489,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341849.jpg" />
 </div>
 
 
@@ -515,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340952.jpg" />
 </div>
 
 
@@ -542,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340895.jpg" />
 </div>
 
 
@@ -568,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340812.jpg" />
 </div>
 
 
@@ -579,119 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3108AC5EA76FCA3B093F58CA2671E47CD3F0AAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580139   (339618) от 26.11.2012
-
-Язык Наш - Поводырь Наш В Рай или Ад [2003] [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cобраны труды:
-* Патриарха русской словесности — адмирала Шишкова. Президента Российской академии наук, госсекретаря и министра просвещения, ревнителя церковнославянского языка. Два века назад он открыл важнейшие законы языка, подтверждённые современной наукой. И поныне филологи пользуются его открытиями.
-* Избранные мысли великого педагога — Рачинского, святой жизни мирянина, истинного учёного, всю жизнь посвятившего воспитанию детей простого народа.
-* Победоносцева, обер-прокурора Священного Синода, ангела-хранителя, спасшего Россию от неминуемой гибели прозападного пути развития.
-
- Время раздачи: по возможностиЖанр: Филология, Лингвистика, Философия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C17B64041FE1966777BD2AC2D4970B6239BD9696
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579173   (338884) от 26.09.2022
-
-Нил Деграсс Тайсон | Астрофизика с космической скоростью (2021) [MP3, Олег Лобанов]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Темное вещество, гравитация, возможность межгалактических полетов и Теория Большого взрыва… Изучение тайн Вселенной подобно чтению захватывающего романа. Но только если вы хорошо понимаете физику, знаете, что скрывается за всеми сложными терминами и определениями. В самых головоломных вопросах науки вам поможет разобраться Нил Деграсс Тайсон — один из самых авторитетных (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 04:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5270C9C0A30251961B485D693329A2C87EE64E3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066986   (337607) от 19.11.2016
-
-Серов Игорь | Супер Интеллект (Действуй быстрее других) (2014) [MP3, PDF, DOCX, JPG]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это комплексный тренинг на развитие памяти и интуиции. Мы будем учиться мыслить образно, задействуя правое полушарие мозга. И как следствие – запоминать всё, что нам нужно помнить и принимать интуитивные решения в повседневной жизни.
-
-В программе 3 блока:
-- Специальными упражнениями запускаем правое полушарие, обретая способность мыслить образами.(   Читать дальше...   )Жанр: Мнемотехники, ИнтуицияФормат: MP3, PDF, DOCX, JPGПродолжительность: 17:22:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7AD8131E0B0EB8CEB7653AE02386DAA9DF5F168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955083   (333340) от 11.11.2015
-
-Иван Чурсин | Скорочтение + Суперпамять (2013) [MP3, DOC, DOCX, JPG]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Онлайн-коучинг "Скорочтение" разработан для нескольких категорий людей:
-тех, кто хочет повышение, и нужно прочитать 50-100 книг, несколько сотен статей, и кучу других материалов; тех, кто читает более 1го часа в день, чтобы сэкономить от 10 000 до 60 000 часов в течении жизни, и освободить себе от 1 часа в день дополнительно свободного времени; тех, кто (   Читать дальше...   )Жанр: Скорочтение, МнемотехникиФормат: MP3, DOC, DOCX, JPGПродолжительность: 08:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD4E98F227D4F7C83B5EEB0FEC0D3FFDFEF79E10
 ```
 
 https://mybot314.ru/tekegram_catalog/

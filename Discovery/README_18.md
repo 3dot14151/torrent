@@ -1,3 +1,81 @@
+###  Публикация: 1171760   (367069) от 23.10.2017
+
+Discovery: Хакер в дикой природе / Hacking the Wild (2017) HDTVRip [H.264/720p-LQ] (Сезон 1, серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Энди Квитмейер пытается выжить в дикой природе, используя повседневные технологии которые должны ему в этом помочь.Производство: CША, AMPLE for Science ChannelЖанр: Документальный, экстримРежиссер: Кэролайн ПересПеревод: Одноголосый закадровый, профессиональный (Кириллица)Субтитры: отсутствуютПродолжительность: серии x ~00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:913FF22E83C8947FA4775D93338B7E4AB0477250
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070799   (363793) от 08.11.2016
+
+Discovery. Как работают машины / Machines: How They Work (2016) HDTVRip (1-10 серий из 10)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание сериала, собственно, заложено в его названии. Многие видели подобные программы - "Как это устроено?", "Как это работает?", из этой передачи вы узнаете о работе самых разных по устройству и назначению машин.Телекомпания: Канада, Discovery ChannelЖанр: документальный, техникаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 10 x ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEECFA1DFB9E398B0DAC67E3F9AEE728BD942610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577243   (359245) от 17.09.2022
+
+Discovery. Жизнь и смерть на Эвересте / To Live or Die on Everest (2020) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый год при покорении Эвереста, самой высокой вершины мира, погибает от пяти до десяти спортсменов. В весенний сезон в 2019 году с вершины не вернулись живыми уже одиннадцать человек. Вместе с опытными альпинистами разбираемся, можно ли предотвратить такие трагедии в будущем.Производство: США, MAK Pictures, Discovery ChannelЖанр: документальный, путешествия, альпинизмРежиссер: Марк КадинПеревод: одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A467C59B12A07859FCB9FDC7D244EF5BD7239D93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255070   (358355) от 20.10.2018
 
 Discovery. Неделя космоса / Space Week (2018) HDTVRip 720p [H.264/720p-LQ] [50 fps] (серии 1-4 из 4)
@@ -6,7 +84,7 @@ Discovery. Неделя космоса / Space Week (2018) HDTVRip 720p [H.264/7
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358355.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Discovery: Американские Изобретатели / Invent It Rich (2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357867.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ Discovery: Разрушители легенд. Опасное вождение 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355358.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ Discovery. Трамп: беспрецедентно / Unprecedented (2022) WEBRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352047.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349889.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ Discovery. Аляска: Семья из леса / Alaskan Bush People (2019) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349501.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Discovery. Юпитер: близкий контакт / Jupiter: Close Encounte
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347154.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ Discovery: Мятежники ледяного озера / Ice Lake Rebels (201
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344058.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ Discovery. Путешествие в неизвестность с Эдом Ст
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341796.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ Discovery: Путешествие в неизвестность с Эдом Ст
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341688.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ Discovery: Через червоточину с Морганом Фримено�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341626.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ Discovery: Оружие, которое изменило мир. РПГ / Weapon
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340217.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ Discovery. Дороги России: Трасса Байкал (2016) HDTVRip [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340085.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ Discovery: Наука сексуальной привлекательности 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339769.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ Discovery. Прирожденные короли / Brothers in Blood: The Lions 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339701.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ Discovery. Прирожденные короли / Brothers in Blood: The Lions 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339589.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ Discovery: Разрушители легенд. Стрелки-профи / Myth
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339354.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ Discovery: Как устроена Вселенная / How the Universe Works (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336764.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ Discovery. Умельцы против апокалипсиса / Masters of Dis
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334533.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ Discovery: Остров с Беаром Гриллсом / The Island with Bear 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332799.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ Discovery. Махинаторы (Автодилеры) / Darracq (2014) HDTVRip 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332316.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ Discovery. Махинаторы (Автодилеры) / Lincoln Continental (20
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332181.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ Discovery: Разрушители легенд. Незаконченное де�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329244.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ Discovery: Разрушители легенд. Незаконченное де�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1BB0C77129E4EB0EDD04A96B062EC6C663FF750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 842033   (329187) от 17.11.2014
-
-Discovery Scienceу: Двойники Земли / Alien Planet Earths (2014) HDTVRip
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329187.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 лет назад казалось, что во Вселенной есть только одна планета, способная поддерживать жизнь. Сегодня мнение астрономов изменилось. Мы расскажем о поисках близнеца Земли.Жанр: Документальный, научно-познавательный, космосРежиссер: Марк БрайджПеревод: Одноголосый закадровыйПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0BEAB08B4BEF72BA8EF0BED848D93AF5FF9EBD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 842134   (328127) от 18.11.2014
-
-Discovery Scienceу: НАСА. Необъяснимые материалы / NASA's. Unexplained Files (2014) HDTVRip (Серия 2)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Существует ли жизнь за пределами нашей планеты? Невероятные съемки НАСА и интервью с астронавтами и учеными знакомят с историями НЛО.Жанр: Документальный, научно-познавательный, космос, уфологияРежиссер: Рассел Эйтач, Дэниел Эдвардс, Райан Гафни, Ян ЛевисонПеревод: Одноголосый закадровыйПродолжительность: 00:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:373F36F03D65401B34E79ACB2751E915AAA44CC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 842030   (328026) от 18.11.2014
-
-Discovery Scienceу: НАСА. Необъяснимые материалы / NASA's. Unexplained Files (2014) HDTVRip (Серия 1)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Существует ли жизнь за пределами нашей планеты? Невероятные съемки НАСА и интервью с астронавтами и учеными знакомят с историями НЛО.Жанр: Документальный, научно-познавательный, космос, уфологияРежиссер: Рассел Эйтач, Дэниел Эдвардс, Райан Гафни, Ян ЛевисонПеревод: Одноголосый закадровыйПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F40083D1D5E5F153B7D8DDD9762AFD7B28A4E100
 ```
 
 https://mybot314.ru/tekegram_catalog/

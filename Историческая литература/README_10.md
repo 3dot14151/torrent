@@ -1,3 +1,108 @@
+###  Публикация: 1355189   (984828) от 25.01.2020
+
+Р. Левман (отв. ред.) | Фашистская Польша в тупике (1938) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984828.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге представлены материалы из советской периодической печати о социально-экономическом и политическом положении польского буржуазно-помещичьего государства накануне Второй мировой войны.Жанр: История, политология, публицистика, экономика, социологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEE2162EC1F53C39ED2C0BB1A81B138A569795C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971976   (984649) от 04.01.2016
+
+Людмила Морозова | Знаменитые женщины средневековой Руси (2015) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга посвящена роли женщин в возвышении Москвы в конце XIII в., их деятельности по укреплению Московского княжества и превращению его в центр собирания русских земель после Батыева нашествия. На фоне обширного исторического материала в книге показано, как женщины из окружения великих князей Московских помогали им создавать Русское централизованное государство, (   Читать дальше...   )Жанр: ИсторияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAB00B626E9A63A8B26D24AE8AAE6BECEE88CA42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971837   (984645) от 04.01.2016
+
+Эдуард Скляров | Записки бывшего милиционера (2014) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящие записки, названные как «Записки бывшего милиционера», являются не литературным, а кратким документальным описанием моей жизни, и то только в той части, которая запомнилась мне самому или о которой я узнал из документов, прочих бумаг и рассказов других людей, и не только милицейского периода, которому отдано почти тридцать лет собственной жизни.
+Когда задумывались (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CE4DAED481561CA5C1E1CB9C9673E9936BE416A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971822   (984589) от 04.01.2016
+
+Питер Акройд | Уильям Блейк (2004) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984589.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге, посвященной выдающемуся художнику, поэту, мистику и духовидцу XVIII в., известный романист и биограф Питер Акройд исследует важнейшие элементы творчества Уильяма Блейка, от принципиально нового метода гравировки до влияния готики и спиритуализма на содержание и дух его работ. Автор книги освещает природу необычных персонажей, населяющих его поэтические (   Читать дальше...   )Жанр: Современная проза, Литературоведение, Биографии и МемуарыПеревод: Т. А. АзарковичФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21FA89100927AE9FEAACDA5E9E5DEE32F8E5DFC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971949   (984561) от 04.01.2016
 
 Норман Пензер | Гарем. История, традиции, тайны (2005) [PDF]
@@ -6,7 +111,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984561.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983509.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983499.jpg" />
 </div>
 
 
@@ -87,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983433.jpg" />
 </div>
 
 
@@ -116,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983427.jpg" />
 </div>
 
 
@@ -142,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983421.jpg" />
 </div>
 
 
@@ -168,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983420.jpg" />
 </div>
 
 
@@ -197,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983419.jpg" />
 </div>
 
 
@@ -226,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983347.jpg" />
 </div>
 
 
@@ -254,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983344.jpg" />
 </div>
 
 
@@ -280,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983198.jpg" />
 </div>
 
 
@@ -306,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982457.jpg" />
 </div>
 
 
@@ -333,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982211.jpg" />
 </div>
 
 
@@ -359,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982067.jpg" />
 </div>
 
 
@@ -387,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981996.jpg" />
 </div>
 
 
@@ -413,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981930.jpg" />
 </div>
 
 
@@ -439,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981846.jpg" />
 </div>
 
 
@@ -465,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980774.jpg" />
 </div>
 
 
@@ -491,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980769.jpg" />
 </div>
 
 
@@ -519,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980687.jpg" />
 </div>
 
 
@@ -547,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980549.jpg" />
 </div>
 
 
@@ -573,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980536.jpg" />
 </div>
 
 
@@ -584,116 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0B633580C32FD9EE3A73D10DE994D2DD367D089
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356136   (980391) от 29.01.2020
-
-Александр Бушков | Остров кошмаров. Корона и плаха (2020) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третья книга трилогии «Остров кошмаров».
-
-Современные англичане забыли о многих своих гнусных «изобретениях», например об институте «сервентов» XVII века.
-За сто с лишним лет Британия насильно отправила в Америку в общей сложности 50 000 белых рабов – своих граждан! Их перевозили в битком набитых трюмах, в которых оголодавшие люди охотились за корабельными крысами, (   Читать дальше...   )Жанр: Популярно об историиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA95273E71AAE4508C443623414276975EE4F541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973264   (980295) от 08.01.2016
-
-Андре Моруа | Дон Жуан, или Жизнь Байрона (2010) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лорд Байрон.
-Великий поэт. Основатель романтического направления в английской литературе.
-Знаменитый денди, ставший настоящей иконой стиля для своего поколения.
-Но прежде всего — самый скандальный ловелас эпохи. Покоритель сердец. Обольститель, власть которого над женщинами считалась поистине дьявольской.(   Читать дальше...   )Жанр: Биографии и Мемуары, Биографический романПеревод: М. П. БогословскаяФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C555C8105215CF8B4CE0CAC88A7EE65EC66B5DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973309   (980284) от 08.01.2016
-
-Виктор Губарев | Удачи капитана Граммона (2015) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередная электронная книга из серии «Пираты, корсары, флибустьеры» посвящена малоизвестным страницам жизни и пиратских похождений одного из предводителей французских флибустьеров – капитана Жана де Граммона. Используя в качестве базы французский порт Пти-Гоав в западной части острова Гаити, Граммон в 70-80-е годы XVII века прославился своими набегами на города Испанского (   Читать дальше...   )Жанр: Морские приключения, Путешествия и географияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDF84DF1A7DCA8F6BB1A6FBC4560FC9674F21DF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973284   (980282) от 08.01.2016
-
-Вячеслав Лопатин | Суворов и Потемкин (1992) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980282.jpg" />
-</div>
-
-
-###  Подробнее
-
-С середины XIX в. зародилась версия о Г. А. Потемкине как о «завистливом временщике», «бездарном военачальнике», который мешал своему подчиненному А. В. Суворову победоносно закончить войну 1787—1791 гг., утвердившую Россию в положении черноморской державы. На основании обширного документального материала, в том числе новых архивных документов, в книге опровергается (   Читать дальше...   )Жанр: История, Биографии и МемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B88CC1BBB053DEEE92A5A52E12793CE534DA870
 ```
 
 https://mybot314.ru/tekegram_catalog/

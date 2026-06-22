@@ -1,3 +1,29 @@
+###  Публикация: 663047   (756818) от 30.05.2013
+
+NG: Тайные истории НЛО / Secret history of UFO's (2012) IPTVRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инопланетяне или неизвестное природное явление? Мы исследуем тайные истории НЛО, проанализируем интересные факты и послушаем специалистов.Жанр: Документальный, научно-познавательный, паранормальный, мистика, исследование, НЛОПеревод: Одноголосый закадровыйПродолжительность: ~ 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:030CBDC01BF9CA55CE962B37484E40E2ED690DF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018460   (756124) от 20.05.2016
 
 Хоккей. Чемпионат мира 2016. 1/4 финала. Финляндия - Дания (19.05.2016) HDTVRip [H.264/720p-LQ]
@@ -6,7 +32,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756124.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756123.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756122.jpg" />
 </div>
 
 
@@ -93,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756121.jpg" />
 </div>
 
 
@@ -122,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756118.jpg" />
 </div>
 
 
@@ -148,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756116.jpg" />
 </div>
 
 
@@ -177,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756026.jpg" />
 </div>
 
 
@@ -206,7 +232,7 @@ BBC: Полет Земли. (Мир с высоты птичеьго полёт�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755757.jpg" />
 </div>
 
 
@@ -232,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755574.jpg" />
 </div>
 
 
@@ -258,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755485.jpg" />
 </div>
 
 
@@ -284,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755406.jpg" />
 </div>
 
 
@@ -310,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754760.jpg" />
 </div>
 
 
@@ -336,7 +362,7 @@ NG: Неизвестная планета Земля / One Strange Rock (2018) W
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_754270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_754270.jpg" />
 </div>
 
 
@@ -362,7 +388,7 @@ BBC: Полет Земли. (Земля с птичьего полёта). Аф�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754215.jpg" />
 </div>
 
 
@@ -388,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754157.jpg" />
 </div>
 
 
@@ -417,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754156.jpg" />
 </div>
 
 
@@ -446,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754154.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754152.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754148.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754145.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754102.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753951.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753949.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753730.jpg" />
 </div>
 
 
@@ -672,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753534.jpg" />
 </div>
 
 
@@ -686,33 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FAB5F6AEF0F135E1D515366B8E8D6D09B00DB6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281019   (753490) от 07.02.2019
-
-Биатлон с Дмитрием Губерниевым. Сезон 2018-2019. Выпуск 8 (2019) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эфир от: 27.01.2019
-Для биатлонистов зима - это время мобилизации сил и полной концентрации. Для зрителей - начало интереснейших соревнований и сильных переживаний за сборную. В программе все, о чем хотят знать болельщики: новости и комментарии, интервью с лидерами соревнований и рассказы о спортсменах и командах.Телекомпания: Матч ТВ HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:28:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D1D1F4C38ADF9D186409140B6B5632DFC298499
 ```
 
 https://mybot314.ru/tekegram_catalog/

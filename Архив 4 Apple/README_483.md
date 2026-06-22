@@ -1,3 +1,57 @@
+###  Публикация: 1338972   (268194) от 17.11.2019
+
+Movavi Slideshow Maker 6.0.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movavi Slideshow Maker – это простая и удобная программа для создания слайд-шоу на русском языке. Вы сможете самостоятельно превращать фотографии из вашей коллекции в красивое видео, причем для этого вам не потребуется каких-либо специальных навыков. Загрузите изображения в программу, соедините фото анимированными переходами, добавьте подходящий саундтрек, наложите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Movavi Software Limited.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E022C8633A1288797A152FC2C126B92358CA0953
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338921   (268132) от 17.11.2019
+
+CrossOver 19.0 beta 1 (build 32154) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет CrossOver основан на программном коде коде Wine и представляет собой оболочку для запуска программ под Windows на платформе macOS. Кроме этого, он позволяет запускать игры, что для многих пользователей является решающим фактором при выборе операционной системы.
+
+Отметим, что вышеупомянутый Wine представляет собой программную прослойку, позволяющую выполнять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: CodeWeaversПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1564A3995CBAE18D6E0A96317D124442DDA6FF05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338984   (268127) от 17.11.2019
 
 Unclutter 2.1.20d [Multi/Ru]
@@ -6,7 +60,7 @@ Unclutter 2.1.20d [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268127.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ ExpanDrive 6.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268037.jpg" />
 </div>
 
 
@@ -63,7 +117,7 @@ Coda 2 v2.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267976.jpg" />
 </div>
 
 
@@ -90,7 +144,7 @@ MovieMator Video Editor Pro 2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267895.jpg" />
 </div>
 
 
@@ -116,7 +170,7 @@ Hedge 17.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267865.jpg" />
 </div>
 
 
@@ -143,7 +197,7 @@ Airmail 3 3.6.51 (533) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267800.jpg" />
 </div>
 
 
@@ -171,7 +225,7 @@ SketchUp Pro 2019 v19.3.252 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267755.jpg" />
 </div>
 
 
@@ -197,7 +251,7 @@ Serial Box 12.2018 + SerialSeeker 1.3.15 (191) + iSerial Reader 2.0.21 (build 01
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267279.jpg" />
 </div>
 
 
@@ -226,7 +280,7 @@ ABBYY Lingvo Dictionary для Mac 1.10 [Eni/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267278.jpg" />
 </div>
 
 
@@ -253,7 +307,7 @@ Folder-Factory 5.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267154.jpg" />
 </div>
 
 
@@ -282,7 +336,7 @@ Multitouch 1.16.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267153.jpg" />
 </div>
 
 
@@ -310,7 +364,7 @@ Gifox 2 – Gif Recording & Sharing v2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267152.jpg" />
 </div>
 
 
@@ -338,7 +392,7 @@ KCNcrew Pack 11-15-19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267151.jpg" />
 </div>
 
 
@@ -364,7 +418,7 @@ Amadine 1.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267150.jpg" />
 </div>
 
 
@@ -392,7 +446,7 @@ Movist Pro 2.2.12 (134) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267149.jpg" />
 </div>
 
 
@@ -420,7 +474,7 @@ Viscosity 1.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267121.jpg" />
 </div>
 
 
@@ -448,7 +502,7 @@ PDF Expert 2.4.30 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267003.jpg" />
 </div>
 
 
@@ -477,7 +531,7 @@ Pixelmator Pro 1.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266747.jpg" />
 </div>
 
 
@@ -505,7 +559,7 @@ Permute 3 v3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266736.jpg" />
 </div>
 
 
@@ -531,7 +585,7 @@ JetBrains PhpStorm 2018.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266302.jpg" />
 </div>
 
 
@@ -557,7 +611,7 @@ Folx GO+ 5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266288.jpg" />
 </div>
 
 
@@ -586,7 +640,7 @@ TurboCollage 7 v7.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266187.jpg" />
 </div>
 
 
@@ -612,7 +666,7 @@ Slidepad 1.0.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266186.jpg" />
 </div>
 
 
@@ -640,7 +694,7 @@ ExpanDrive 7 v7.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266185.jpg" />
 </div>
 
 
@@ -653,60 +707,6 @@ ExpanDrive 7 v7.4.0 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBC8DBC1CA90C60B530D5452498BD50736CD636D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339377   (266162) от 19.11.2019
-
-Polarr Photo Editor Pro 5.10.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_266162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Polarr - единственный редактор фотографий, который вам нужен.
-
-Неважно, если вы новичок в области фотографии или профессионала, у Polarr есть все. Новички оценят, что Polarr предлагает расширенные средства автоматического улучшения и сложные фильтры для редактирования всех деталей вашей фотографии. Профессиональные фотографы с нетерпением ждут нашей поддержки слоев, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.11.2019Разработчик: Polarr Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BF880834140A6606468C282A303C6FF80ACF0C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339332   (266158) от 19.11.2019
-
-PowerPhotos 1.7.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266158.jpg" />
-</div>
-
-
-###  Подробнее
-
-PowerPhotos работает со встроенным приложением «Фото» на вашем Mac, предоставляя множество инструментов, которые помогут вам привести вашу коллекцию фотографий в порядок.Тип издания: macOS SoftwareРелиз состоялся: 12.11.2019Разработчик: Fat Cat SoftwareПоддерживаемая ОС: macOS 10.14 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0167FA73BCC92E8A05CAA473B3BD7DCCB63FE7BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

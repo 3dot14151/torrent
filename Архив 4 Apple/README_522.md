@@ -1,3 +1,58 @@
+###  Публикация: 1504367   (237158) от 23.10.2021
+
+ArchCommander 2.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение ArchCommander - это легкий файловый менеджер архивов для macOS.
+• Browsing
+• Просмотр элементов
+• Создание новых архивов(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2021Разработчик: Marcin LabenskiПоддерживаемая ОС: macOS 10.13.6+Язык интерфейса: Английский, Немецкий и Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC4279120D2A3F2B33DF109E0AF4698BBE907D79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607959   (237140) от 28.01.2023
+
+Exhibeo 2 v.2.0.12 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Exhibeo 2 - Создайте великолепные HTML5 презентации. Exhibeo - мощное средство для создания эффектных веб-галерей и слайд-шоу для веб-сайтов. Exhibeo поддерживает большинство распространенных графических форматов (PNG, JPEG и GIF), так же PSD, TIFF, RAW и многие другие. В приложении имеются уже готовые темы оформления на все случаи жизни, в которые пользователю остается (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.01.2023Разработчик: © 2016 - 2023 Softpress Systems LtdПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B0FD0E150D1A43DBB99588EB2D027B44AB2167C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608070   (237132) от 28.01.2023
 
 System Dashboard 4.5.8 [En]
@@ -6,7 +61,7 @@ System Dashboard 4.5.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237132.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ beaTunes 5 v.5.2.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237088.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ TG Pro (Temperature Gauge Pro) 2.82[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237087.jpg" />
 </div>
 
 
@@ -86,7 +141,7 @@ PCalc 4.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237086.jpg" />
 </div>
 
 
@@ -113,7 +168,7 @@ Downie 4 v4.1.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237081.jpg" />
 </div>
 
 
@@ -141,7 +196,7 @@ Aiseesoft Mac Data Recovery  1.6.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237070.jpg" />
 </div>
 
 
@@ -168,7 +223,7 @@ Amadeus Pro 2.8.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237065.jpg" />
 </div>
 
 
@@ -194,7 +249,7 @@ Native Instruments Traktor Pro Plus 3.9.0.90 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237057.jpg" />
 </div>
 
 
@@ -220,7 +275,7 @@ Acorn 7 v.7.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237053.jpg" />
 </div>
 
 
@@ -247,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237044.jpg" />
 </div>
 
 
@@ -273,7 +328,7 @@ Smultron 12 v12.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237034.jpg" />
 </div>
 
 
@@ -300,7 +355,7 @@ Bigasoft Video Downloader Pro for Mac 3.25.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237029.jpg" />
 </div>
 
 
@@ -326,7 +381,7 @@ CADintosh X 8.8.3 Beta [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237020.jpg" />
 </div>
 
 
@@ -352,7 +407,7 @@ Display Maid 3.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237009.jpg" />
 </div>
 
 
@@ -378,7 +433,7 @@ Bigasoft Audio Converter for Mac 5.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236999.jpg" />
 </div>
 
 
@@ -406,7 +461,7 @@ A Better Finder Rename 11 v11.29 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236989.jpg" />
 </div>
 
 
@@ -433,7 +488,7 @@ GraphicConverter 11 v.11.7.1 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236985.jpg" />
 </div>
 
 
@@ -459,7 +514,7 @@ Reader for Mac 4.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236956.jpg" />
 </div>
 
 
@@ -486,7 +541,7 @@ Multitouch 1.24.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236944.jpg" />
 </div>
 
 
@@ -512,7 +567,7 @@ DirEqual 5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236938.jpg" />
 </div>
 
 
@@ -539,7 +594,7 @@ TaskPaper 3.8.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236931.jpg" />
 </div>
 
 
@@ -566,7 +621,7 @@ SnapNDrag Pro Screensho‪t‬  4.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236923.jpg" />
 </div>
 
 
@@ -594,7 +649,7 @@ ON1 Photo Keyword AI 2023.5 v.17.5.1.14058 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236920.jpg" />
 </div>
 
 
@@ -620,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236917.jpg" />
 </div>
 
 
@@ -631,59 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55700B961C880EA0D35D483884DF451947769A15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640936   (236913) от 20.06.2023
-
-AnyMP4 Android Data Recovery for Mac 2.1.12 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236913.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyMP4 Android Data Recovery – это отличное приложение для восстановления данных на Android телефонах и планшетах, которая может восстанавливать удаленные текстовые сообщения, фотографии, контакты, журналы вызовов, видео, фотографии и многое другое из Ваших Android телефонов/планшетов/ карты SD. Она поддерживает различные популярные Android устройства, такие как, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.06.2023Разработчик: © 2023 AnyMP4 StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C065E5C138E8C4B21624B28A071A74694353764A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455679   (236905) от 20.03.2021
-
-Find Any File (FAF) 2.3 b10 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Find Any File - утилита для быстрого поиска любого файла на вашем Mac
-Find Any File не содержит никаких подменю с настройками, быстро справляется с задачей и удобна в использовании. Все что нужно - написать ключевое слово (или слова) в окне поиска без предварительных настроек меню. Но если вам необходимо усложнить поиск, то Find Any File имеет множество подменю делающих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.03.2021Разработчик: Thomas TempelmannПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBAD8DBABD535A36B039814666CC727873900F2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

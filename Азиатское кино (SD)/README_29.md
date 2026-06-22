@@ -1,3 +1,81 @@
+###  Публикация: 1545848   (611039) от 21.04.2022
+
+Математик в стране чудес / Isanghan naraui suhakja (Mathematician of a Wonderland, In Our Prime) (2022) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уже немолодой гениальный математик из Северной Кореи некоторое время назад перебежал в Южную. На новом месте мужчина вынужден скрывать свое прошлое и может рассчитывать только на работу охранником в школе. Однажды он начинает общаться со старшеклассником, которому математика дается с трудом, и решает помочь парню подтянуть знания. Так начинается необычная дружба.Производство: Южная Корея, Joy Rabbit, Showbox/MediaplexЖанр: ДрамаРежиссер: Пак Дон ХунАктеры: Но Джон Хён, Пак Хэ Джун, Ким Дон Хви, Пак Пён Ын, Юн Со, Чхве Мин СикПеревод: Enasty CheСубтитры: Русские, английские - отдельными файламиПродолжительность: 01:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E5B35E75AD9E9B2FA8DAD78D481266BD77033E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 354308   (610227) от 23.06.2011
+
+В поисках Джеки / Looking for Jackie (2009) HDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чеонгу Ят-Сану 16 лет, он живет в Индонезии и мечтает о то, что когда-нибудь встретится со своим кумиром Джеки Чаном, который возьмет его в ученики. Чеонг настолько погружен в свои мечты, что даже толком не учится — особенно плохие оценки у него по мандаринскому диалекту, из-за чего одноклассники его задирают. Чеонга хотят отправить к дедушке и бабушке в Пекин, и (   Читать дальше...   )Производство: Китай / August 1st Film Studio, Beijing Film Studio, Children's Film Studio Entertainment, Davis-FilmsЖанр: боевик, комедияРежиссер: Фанг КанлянАктеры: Бинг Бай, Джеки Чан, Лан Куин, Ян Тэнг, Хуа Тиан, Джан ВуПеревод: Профессиональный (многоголосый)Субтитры: ОтсутствуютПродолжительность: 01:27:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06010477E906758AF50EC14565CBD168C58E5AA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296640   (610046) от 18.04.2019
+
+Горы Хаккода / Hakkodasan (1977) BDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610046.jpg" />
+</div>
+
+
+###  Подробнее
+
+В январе 1902 года Генеральный штаб Императорской армии Японии ведёт активную подготовку к войне с Российской империей и вторжению на континент. Чтобы подготовить армию к сибирским морозам, генералы решают провести испытательные маневры на севере Хонсю, и два батальона получают приказ совершить пеший переход через перевал в горах Хаккода.Производство: Япония, Hashimoto Productions, Shimano Kikaku Company Ltd., Toho CompanyЖанр: Драма, ИсторияРежиссер: Сиро МоританиАктеры: Сёго Симада, Кэн Такакура, Хидэдзи Отаки, Кинъя Китаодзи, Тэцуро Тамба, Рэнтаро Микуни, Комаки Курихара, Акира Хамада, Марико Кага, Юдзо КаямаПеревод: Одноголосый, любительский (Владислав Данилов)Субтитры: отсутствуютПродолжительность: 02:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E166807E088B540EB4B84725CD035B9776E2CCB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546295   (607838) от 23.04.2022
 
 Байан Ко: Моя родная страна / Bayan ko: Kapit sa patalim (This Is My Country) (1984) BDRip [AVO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607838.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605932.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605806.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605136.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604430.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604334.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603515.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603389.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602983.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601022.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600946.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598421.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597902.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597558.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596767.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596262.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596191.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596186.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593309.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593033.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592949.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592897.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592698.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9F9CC4601A70DBA269975755E10F70121A8CB00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300607   (592676) от 07.05.2019
-
-Ведьма / Manyeo / The Witch: Part 1 - The Subversion (2018) BDRip [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычная старшеклассница пережила потерю памяти, после чего девушку удочерила пожилая пара. Вроде бы, жизнь начала налаживаться, но однажды неподалеку от ее дома происходит убийство, а после героиня встречает человека, утверждающего, что убийство — ее рук дело. Обычная старшеклассница оказывается запрограммированной убийцей, результатом секретных экспериментов.Производство: Корея Южная / Peppermint & CompanyЖанр: Боевик, триллер, фантастикаРежиссер: Пак Хун-джонАктеры: Ким Да-ми, Чо Мин-су, Чхве У-щик, Пак Хи-сун, Ко Мин-щи, Чхве Джон-у, О Ми-хи, Чон Да-ын, Ким Бён-ок, Ли Джу-вонПеревод: Многоголосый закадровый, профессиональный (HDrezka Studio)Субтитры: Русские (Forced, full)Продолжительность: 02:05:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F4B7764B5B26A084F7D5E8754B4F24B773E6256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550249   (592495) от 10.05.2022
-
-День разрушения / Hakai no Hi (The Day of Destruction) (2020) BDRip [AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семь лет назад молодой человек отправился в закрытую шахту, чтобы посмотреть на недавно обнаруженного там монстра. С тех пор по местности распространяются слухи об эпидемии некой болезни, от которой люди сходят с ума.Производство: Япония, Imagination (II), Second SightЖанр: Драма, ужасы, фэнтезиРежиссер: Тосиаки ТоёдаАктеры: Киёхико Сибукава, MahiToThePeople, Иссэй Огата, Рюхэй Мацуда, Ёсукэ Кубодзука, Ицуки Нагасава, Сима ОнисиПеревод: Авторский (Андрей Дольский)Субтитры: Английские - отдельным файломПродолжительность: 00:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8399CDE14EA22D25820DD189E1F40DB744E5ACD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550453   (592147) от 11.05.2022
-
-Висячий сад / Kuchu teien (Hanging garden) (2005) BDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семья Кёбаши переезжает в новый модный дом. Они надеются, что там их ждет счастье. Но проходит время, счастье не наступает, зато у каждого члена семьи от мала до велика появляются свои секреты. И, когда сын приводит в дом свою новую девушку, внезапно всё скрытое вдруг оказывается на поверхности, что в свою очередь приводит к конфликту.Производство: Япония, Asahi National Broadcasting Company, Asmik Ace Entertainment, Culture Publishers Inc. (CP)Жанр: ДрамаРежиссер: Тойода ТосиакиАктеры: Кёко Коидзуми, Ан Судзуки, Ицудзи Итао, Масахиро Хирота, Дзюн Кунимура, Эйта, Асами Имадзюку, Рё Кацудзи, Соним, Хироми НагасакуПеревод: Одноголосый любительский (Олег Воротилин)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05D8D28903398AFD0DEDC3169E9F81262A30D934
 ```
 
 https://mybot314.ru/tekegram_catalog/

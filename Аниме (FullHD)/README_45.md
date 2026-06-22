@@ -6,7 +6,7 @@ Healer Girl | Девушка-целитель [2022, TV, 12 из 12] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228893.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Muteking the Dancing Hero | Герой-танцор Мутэкинг [2021, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227935.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Deji Meets Girl | Девушка встречает дэдзи [2021, TV, 12 э�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227653.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Lupin Sansei vs. Meitantei Conan The Movie | Lupin III vs. Detective Conan The M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227286.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Aharen-san wa Hakarenai | Непостижимая Ахарэн [2022, TV, 12 э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226525.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Shakugan no Shana II / Жгучий взор Шаны [ТВ-2] [2007, TV, 24] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224781.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Shakugan no Shana III Final / Жгучий взор Шаны III Финал [TV3
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224639.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Shin Ikkitousen | Истинная сила тысячи [2022, TV, 3 эп.] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224390.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Guin Saga / Сага о Гуине [2009, TV, 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223969.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Sounan Desuka? | Are You Lost? | Бедствие ли это? [2019, TV, 12 э�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221295.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Tiger & Bunny 2 | Тигр и Кролик 2 [2022, Web, 25 эп.] WEBRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221232.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Hakumei to Mikochi | Хакумэй и Микоти [2018, TV, 12 эп. + OVA] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220902.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Maou-sama, Retry! | Demon Lord, Retry! | Король демонов, попыт
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_220782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_220782.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Seishun Buta Yarou wa Yumemiru Shoujo no Yume o Minai | Эта глупая св
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219616.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Mahou Shoujo Ore | Magical Girl Ore | Как я стала мальчиком-в
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218656.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ The Big O | Большой О [1999, TV, 26 из 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216566.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Yuukai Anna | Anna (Kidnapper) | Анна-похитительница [2018, Mo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216198.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Galaxy Angel | Галактические ангелы [ТВ-1] [2001, TV, 24 э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213882.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Cannon Busters | Приятели с пушками | Пушечные ядра 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213867.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Galaxy Angel Z | Галактические ангелы Z [ТВ-2] [2002, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213863.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Mahou Tsukai Reimeiki | The Dawn of the Witch | Рассвет ведьмы [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213797.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Yuu Yuu Hakusho (1993) | Yu Yu Hakusho: The Movie | Отчет о буйстве
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213684.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Yuu Yuu Hakusho: Meikai Shitou Hen - Honoo no Kizuna | Yu Yu Hakusho: The Movie 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213679.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Yuu Yuu Hakusho | Yu Yu Hakusho: Ghost Files | Отчет о буйстве ду
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213623.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Gekijouban Sword Art Online: Progressive - Hoshinaki Yoru no Aria | Мастер
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212712.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Witch Craft Works | Ведьмовство | Ремесло ведьмы [2014, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212363.jpg" />
 </div>
 
 

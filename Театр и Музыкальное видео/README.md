@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1876644   (1073436) от 16.06.2026
+
+YouTube канал "80rec" - Музыкальные клипы (1978-1991) WEBRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оффлайн-копия коллекции YouTube канала "80rec" / UC6fZ9cmqSAx5N4hw1x0InlQ по состоянию на июнь 2026 года.
+
+Канал "80rec" был открыт в 2011 году, перестал обновляться с сентября 2016 года.
+За 5 лет было опубликовано более 130 музыкальных видеоклипов, большая часть из которых сохранена для данной раздачи.Жанр: музыка, концерт, искусство, история, телепередачаПродолжительность: 8:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F527D4F22A9D65CDDB530CFC22005B02A79D7200
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876646   (1073435) от 16.06.2026
+
+YouTube канал "TopPop" - Музыкальные клипы (1970-1988) WEBRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оффлайн-копия коллекции YouTube канала "TopPop" / UCxjzlr0hdKWfIwK2lY0SvEg по состоянию на 15 июня 2026 года.
+
+Канал "TopPop" был открыт в сентябре 2015 года.
+За 11 лет было опубликовано более 3400 музыкальных видеоклипов, большая часть из которых сохранена для данной раздачи.Жанр: музыка, концерт, искусство, история, телепередачаПродолжительность: 224:05:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E18CF361E3868D19F0C7582A11C7A6116CDFBAFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875227   (1072534) от 
 
 C.C. Catch - Сборник видеоклипов (1985-2024) WEBRip, HDRip [H.264/720p-1440p]
@@ -7,7 +65,7 @@ C.C. Catch - Сборник видеоклипов (1985-2024) WEBRip, HDRip [H.
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072534.jpg" />
 </div>
 
 
@@ -37,7 +95,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072375.jpg" />
 </div>
 
 
@@ -63,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072030.jpg" />
 </div>
 
 
@@ -89,7 +147,7 @@ Led Zeppelin - Live at the Royal Albert Hall (1970) [H.265/1080p] [handmade Upsc
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071778.jpg" />
 </div>
 
 
@@ -118,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071540.jpg" />
 </div>
 
 
@@ -147,7 +205,7 @@ aespa - Lemonade (2026) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071372.jpg" />
 </div>
 
 
@@ -174,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071190.jpg" />
 </div>
 
 
@@ -200,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071157.jpg" />
 </div>
 
 
@@ -226,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070722.jpg" />
 </div>
 
 
@@ -255,7 +313,7 @@ I.O.I - Suddenly (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070377.jpg" />
 </div>
 
 
@@ -282,7 +340,7 @@ Jin Young - EverLove (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070039.jpg" />
 </div>
 
 
@@ -308,7 +366,7 @@ Lady Gaga - Apple Music Live: MAYHEM Requiem (2026) WEB-DLRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069599.jpg" />
 </div>
 
 
@@ -334,7 +392,7 @@ woo!ah! - WXW (Wish With W) (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069492.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069408.jpg" />
 </div>
 
 
@@ -387,7 +445,7 @@ Daita (Daitah Itoh) - EUPHONY (2003) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069367.jpg" />
 </div>
 
 
@@ -417,7 +475,7 @@ YouTube канал "NoMadU55555" - Музыкальные клипы (1936-2009)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068910.jpg" />
 </div>
 
 
@@ -446,7 +504,7 @@ YouTube канал "Pustinnik25" - Советская музыка (2018) WEBRip
 >>РњСѓР·С‹РєР°Р»СЊРЅС‹Рµ РєР»РёРїС‹
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068486.jpg" />
 </div>
 
 
@@ -475,7 +533,7 @@ Rose - On The Ground (2021) WEBRip [H.265/2160p] [60fps] [Remaster]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068211.jpg" />
 </div>
 
 
@@ -502,7 +560,7 @@ Lisa - Dream (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068207.jpg" />
 </div>
 
 
@@ -530,7 +588,7 @@ MinSeo (woo!ah!) - Endlessly You (2026) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068195.jpg" />
 </div>
 
 
@@ -559,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067897.jpg" />
 </div>
 
 
@@ -587,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067270.jpg" />
 </div>
 
 
@@ -616,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066207.jpg" />
 </div>
 
 
@@ -645,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066182.jpg" />
 </div>
 
 
@@ -659,61 +717,6 @@ Jony и детский хор - "Воздушный сарафан"
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B587840BA2FE9DC4F05ED7B691CDD7DB669BCEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866387   (1066178) от 20.04.2026
-
-Unlucky Morpheus - Live 2017 (2017) DVDRip [AV1/1080p] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Unlucky Morpheus - Live 2017 (Shinjuku ReNY 16.08.2017)01. Opfer
-02. Wings
-03. Phantom Blood
-04. Violet(   Читать дальше...   )Производство: ЯпонияЖанр: Speed Metal, Power Metal, ProgressiveРежиссер: Постановка концерта: Лидер группы Shiren (Юкимура Хирано) и вокалист Kasumi.Участники: Fuki, Shiren, Jinya, Hiroyuki Ogawa, Fumiya, Jill, Ahemi, Dougen Kubota, Shacho.Продолжительность: 01:02:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:836179AD5DF3B46B1FAEB5A4C168AB3B527970FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864732   (1065113) от 
-
-Kanye West - Седая ночь (2026) WEBRip [H264/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канье Уэст (также известен как Йе) — американский рэпер, музыкальный продюсер, автор песен, звукорежиссёр и дизайнер. Исполняет хит Юрия Шатунова "Седая Ночь" на английском языке.Жанр: Pop, RapПродолжительность: 00:05:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41EC8F431FA958C15F0E644597D43729362F64CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

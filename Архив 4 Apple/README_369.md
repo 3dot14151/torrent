@@ -1,3 +1,29 @@
+###  Публикация: 1160856   (469796) от 27.08.2017
+
+Wondershare Data Recovery 6.0.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восстановление утерянных фотографий, видео, документов, электронных писем и архивных файлов с любого жесткого диска Mac или внешнего жесткого диска, IPod, USB диска, SD карты, цифрового фотоаппарата, мобильного телефона и MP3/MP4-плеера в результате случайного удаления, форматирования, вирусной инфекции, неправильной эксплуатации, неожиданного отключения питания (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.08.2017Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: OS X 10.6.8 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:336447838CDBC90D5956E3708F4F993A26708CD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1161124   (469668) от 27.08.2017
 
 Audirvana Plus 3.1 [En]
@@ -6,7 +32,7 @@ Audirvana Plus 3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469668.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Stellaris v2.3.3.1 (30871) GOG (2016) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468891.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ MacX Video Converter Pro 5.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468663.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Hands Off! 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468541.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ AirServer 6.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468498.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Apimac Secret Folder (8 (Build 084)) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468307.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ Pyre v50427.17438 (2017) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467548.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Things 3.1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467468.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ Kaleidoscope 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467230.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ ForkLift 2.5.2 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467223.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ Navicat Premium 12.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467198.jpg" />
 </div>
 
 
@@ -304,7 +330,7 @@ iA Writer 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466857.jpg" />
 </div>
 
 
@@ -331,7 +357,7 @@ Pixelmator 3.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466853.jpg" />
 </div>
 
 
@@ -357,7 +383,7 @@ Elmedia Player Pro 6.0 (740) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466731.jpg" />
 </div>
 
 
@@ -385,7 +411,7 @@ Lyn 1.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466565.jpg" />
 </div>
 
 
@@ -413,7 +439,7 @@ iStat Menus 5.11 (628) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466299.jpg" />
 </div>
 
 
@@ -442,7 +468,7 @@ Apple iOS 6 Golden Master (iPhone 4S,iPhone 4,iPhone 3GS,iPad 2/3) (IOS)
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466185.jpg" />
 </div>
 
 
@@ -468,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466162.jpg" />
 </div>
 
 
@@ -495,7 +521,7 @@ Espionage 3.6.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466159.jpg" />
 </div>
 
 
@@ -521,7 +547,7 @@ iMazing 2.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466063.jpg" />
 </div>
 
 
@@ -548,7 +574,7 @@ iA Writer 4.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465533.jpg" />
 </div>
 
 
@@ -575,7 +601,7 @@ TechTool Pro 9.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465530.jpg" />
 </div>
 
 
@@ -602,7 +628,7 @@ Corel Painter 2018 (18.0.0.621) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465100.jpg" />
 </div>
 
 
@@ -629,7 +655,7 @@ Unibox 1.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464769.jpg" />
 </div>
 
 
@@ -656,7 +682,7 @@ Beyond Compare 4.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464756.jpg" />
 </div>
 
 
@@ -670,33 +696,6 @@ Beyond Compare - мощная и одна из лучших программ д�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69E9D5490BF8E428A9B716AF60681F33C92DA1B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941098   (464618) от 26.09.2015
-
-PlistEdit Pro 1.8.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464618.jpg" />
-</div>
-
-
-###  Подробнее
-
-PlistEdit Pro - продвинутый редактор для файлов настроек plist и JSON файлов.
-С PlistEdit Pro, пользователи могут легко изменять эти файлы и оказывать более полный контроль над своими системами. Вы можете использовать PlistEdit Pro в ваших разработках, а также использовать встроенный файловый браузер, который позволяет исследовать и изменять настройки параметров (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 26 сентября 2015Разработчик: Fat Cat SoftwareПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F38C12EE1D9A1C8DBC91944BBE1819AB0101CE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

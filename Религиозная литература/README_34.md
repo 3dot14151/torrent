@@ -1,3 +1,55 @@
+###  Публикация: 1206034   (782947) от 12.02.2018
+
+Архимандрит Серафим (Чичагов) | Летопись Серафимо-Дивеевского монастыря (2011) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782947.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Летопись Серафимо-Дивеевского монастыря» — замечательная книга, чей жанр можно определить как «агиографический документальный роман». Во многом уникальный текст, написанный одним святым — священномучеником Серафимом (Чичаговым) о другом святом — прп. Серафиме Саровским, притом что одного Серафима от другого по историческим меркам почти ничего не отделяло. Сщмч. (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:945BA71409C967075FFA1F311F1311E8699270DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390511   (782730) от 16.06.2020
+
+Священник Александр Дьяченко | Преодоление. Рассказы и очерки (2011) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782730.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Люди заходят в храм, а вместе с ними врывается и гул голосов, шорох шагов… Всё это напоминает шум вокзала. Словно люди в ожидании экспресса зашли погреться и поговорить, но только экспрессы в наших местах не останавливаются. Они весточки из далёкого радостного мира, о котором нам остаётся только мечтать. Грустно, хотя понимаешь, чтобы состав остановился, и ты вошёл (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C15758BBB2018886DCBB85B17138BBD564B73CDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206144   (782159) от 14.02.2018
 
 Общество памяти игумении Таисии (изд.) | Краткое изложение Литургии Святого Иоанна Златоуста для мирян (2010) [PDF, DJVU]
@@ -6,7 +58,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782159.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782156.jpg" />
 </div>
 
 
@@ -64,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782152.jpg" />
 </div>
 
 
@@ -90,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781428.jpg" />
 </div>
 
 
@@ -118,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_781035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_781035.jpg" />
 </div>
 
 
@@ -144,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780420.jpg" />
 </div>
 
 
@@ -170,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780412.jpg" />
 </div>
 
 
@@ -196,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780410.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780308.jpg" />
 </div>
 
 
@@ -250,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780120.jpg" />
 </div>
 
 
@@ -276,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780112.jpg" />
 </div>
 
 
@@ -302,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780110.jpg" />
 </div>
 
 
@@ -331,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780106.jpg" />
 </div>
 
 
@@ -357,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780099.jpg" />
 </div>
 
 
@@ -383,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780094.jpg" />
 </div>
 
 
@@ -409,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780089.jpg" />
 </div>
 
 
@@ -436,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779975.jpg" />
 </div>
 
 
@@ -464,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779803.jpg" />
 </div>
 
 
@@ -492,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779779.jpg" />
 </div>
 
 
@@ -518,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779668.jpg" />
 </div>
 
 
@@ -546,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779405.jpg" />
 </div>
 
 
@@ -572,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778870.jpg" />
 </div>
 
 
@@ -598,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778867.jpg" />
 </div>
 
 
@@ -624,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778205.jpg" />
 </div>
 
 
@@ -635,61 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF9DFC7B919D663EA28A7668A665E3A36CA5DCD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211187   (777861) от 06.03.2018
-
-П. Кушу | Загадка Иисуса (1930) [DJVU, PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Без всякого преувеличения можно сказать, что во всей идеологии христианства миф об Иисусе является одновременно и самым важным и самым уязвимым пунктом, что вся история христианства с первых его шагов была борьбой за миф об Иисусе...
-
-Автор данной книги, Поль Кушу, является главой французской мифологической школы. Под его редакцией в крупном парижском издательстве (   Читать дальше...   )Жанр: История, политология, религиоведение, мифологияФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C8E07C7C56AEF105C00F137F4220E5685E3BD85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211225   (777828) от 06.03.2018
-
-Протоиерей Михаил Шполянский | Мы входим в храм. Практическое пособие на пути к Церкви (2016) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эту книгу нельзя считать только лишь сборником сведений о нормах церковной жизни и руководством по поведению в храме. Она – результат многолетних размышлений и живого опыта православного священника. Без чего не может произойти встреча с Богом? Какие первые шаги можно сделать в своем приходском храме? Что такое Церковь как духовное явление?
-Как церковная жизнь может (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC2742DB0BC8797A0B2ACFE021EC575C5845EDF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

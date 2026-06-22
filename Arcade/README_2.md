@@ -1,3 +1,55 @@
+###  Публикация: 1608676   (1043400) от 01.02.2023
+
+Punch A Bunch (2023) [En] (1.0) License TENOKE
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Punch A Bunch – аркадный симулятор бокса, в котором используется передовая физическая модель, позволяющая не только проверить свой уровень ударной техники и скорость, но и насладиться юморными ситуациями. Действия игры происходят на боксерском ринге, где вы будете управлять желтым персонажем в перчатках и шортах, биться с другими пользователями или оттачивать навыки (   Читать дальше...   )Тип издания: LicenseРазработчик: PontypantsЖанр: Action, Indie, SportsЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87248BAD67CE71918B882300D643E2EF349A6035
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419411   (1041819) от 05.01.2021
+
+Pumpkin Jack (2020) [Ru/Multi] (1.4.6) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pumpkin Jack — это дикая, но симпатичная 3D-игра, в которой вы перевоплощаетесь в Джека, фантастического Повелителя Тыкв. Начните чудовищное приключение в землях иного мира и помогите Злу победить Добро. Исполняя волю самого дьявола, убейте своего заклятого врага и начните странствия по мистическим проклятым землям Королевства Скуки (Boredom Kingdom).Тип издания: LicenseРазработчик: Nicolas MeyssonnierЖанр: Экшн, Приключение, ПлатформерЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A32432323E73633C18E2ED36B27CACED77A430EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347909   (1041226) от 11.02.2023
 
 Yooka-Laylee and the Impossible Lair (2019) [Multi] (28130/dlc) License GOG [Digital Deluxe Edition]
@@ -6,7 +58,7 @@ Yooka-Laylee and the Impossible Lair (2019) [Multi] (28130/dlc) License GOG [Dig
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041226.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Temple Of Snek (2023) [Ru/Multi] (1.0) License TENOKE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039729.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Power of Ten (2023) [Multi] (1.1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038704.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Beatbuddy: Tale of the Guardians (2013) [Multi] (1.2.9) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038030.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Arcade Paradise (2022) [Ru/Multi] (1016/dlc) License GOG [Digital Deluxe Edition
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037699.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ RUINER (2017) [Ru/Multi] (1.6c) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037427.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Rayman 3 HD (2012) [Multi] (1.0) Repack/Mod HDlab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035605.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Rayman Forever (1999) [En] (1.21) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033583.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ GRIME (2021) [Ru/Multi] (1.11.11/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033576.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Redout: Space Assault (2021) [Ru/Multi] (1.0.1) Repack xatab [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033129.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Jump Force (2019) [Ru/Multi] (2.05/dlc) Repack xatab [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033099.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Blue Fire (2021) [Ru/Multi] (3.0.8) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032812.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Warhammer 40,000: Dakka Squadron (2021) [Ru/En] (153773 PCS) Repack Other s [Fly
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030080.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Cyberia (1994) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026178.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Kosmokrats (2020) [Ru/Multi] (1.2) Repack SpaceX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024838.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Puyo Puyo Tetris 2 (2021) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024300.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ WarriOrb (2020) [Ru/Multi] (1.3) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020069.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Vigil: The Longest Night (2020) [Ru/Multi] (3.11) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019384.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Hotline Miami (2012) [Ru/Multi] (46452) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019373.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ REDEEMER (2019) [Ru/Multi] (2.2) Repack Other s [Enhanced Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017987.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Pumpkin Jack (2020) [Ru/Multi] (1.4.6) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017176.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Hocus Pocus (1994) [En] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017170.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Mayhem in Single Valley (2021) [Ru/Multi] (4.0.00) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013443.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Ghosts 'n Goblins Resurrection (2021) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013110.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Ghosts 'n Goblins Resurrection (2021) [Multi] (1.0) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5329C372AB62A9970BABFBD2482AF5C9A3F4BB38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474611   (1012797) от 03.06.2021
-
-Wing of Darkness (2021) [Multi] (1.0) License DOGE
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Войны народов перестали быть конфликтами между людьми и переросли в борьбу за выживание, ведь теперь человечество сражается с новым врагом. Откуда ни возьмись, появились неопознанные летающие объекты, "Подавители" и единственное оружие, способное им противостоять – это система "Хельд". Управлять системами "Хельд" умеют лишь так называемые (   Читать дальше...   )Тип издания: LicenseРазработчик: Production ExabilitiesЖанр: Action, Anime, Mech, Shoot'em upЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, Корейский, Французский и другиеЯзык интерфейса: Английский, Японский, Корейский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22E39039BF3871DFA75A5B2D36E3FD60BA1B4575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474999   (1012477) от 05.06.2021
-
-Last Kids on Earth and the Staff of Doom (2021) [Multi] (1.0) License Fairlight
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сражайтесь с ордами зомби и монстров в ролевой игре с полуоткрытым миром The Last Kids on Earth and the Staff of Doom, которая рассказывает новую историю в постапокалиптическом городке Уэйкфилд. Играя за выживших подростков Джека, Квинта, Джун или Дирка, Вы исследуете кишащие зомби улицы, чтобы помешать Малондре, могущественному противнику, получить Посох Судьбы. (   Читать дальше...   )Тип издания: LicenseРазработчик: Stage Clear StudiosЖанр: Action, Beat'em up, RPG, ZombieЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:499ECEF1F22C313A221D619F429EBB49E5A39BE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

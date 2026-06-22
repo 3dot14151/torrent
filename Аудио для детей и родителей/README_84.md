@@ -1,3 +1,83 @@
+###  Публикация: 1347770   (148882) от 24.12.2019
+
+Фрэнсис Хардинг | Колодец желаний (2019) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148882.jpg" />
+</div>
+
+
+###  Подробнее
+
+В то утро Райан проснулся с паршивым ощущением – день не задался с самого начала. Увидев в зеркале чужое лицо, он чуть не свернул себе шею. А еще ему повсюду мерещилась вода. С лучшими друзьями тоже творились странные вещи. Челли начала читать мысли других людей, а рядом с Джошем перегорали и взрывались лампочки.
+Что же это за колдовство?
+Всему виной горстка монет, (   Читать дальше...   )Жанр: Детские остросюжетныеПродолжительность: 08:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:449D8ABC91DD662473EF53E1906922473B292690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347755   (148648) от 24.12.2019
+
+Кир Булычев | Похищение чародея (2019) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы решили отдохнуть в уютном деревенском домике – хорошенько подумайте. Не пришлось бы оказаться втянутым в гнусную историю с похищением из Древней Руси гениального чародея – изобретателя…Жанр: Детская, фантастикаПродолжительность: 05:07:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EB875E3F69D1D10E9DEB537145E6384B541F4B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434981   (148547) от 26.12.2020
+
+Ирина Наумова | Господин Куцехвост, Одуванчик и большая оттепель. Книга 2 (2019) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая книга замечательной современной писательницы про мышиное семейство Куцехвостов, живущее в дачном поселке. Маленького мышонка Одуванчика и его друга Мышеврага ждут новые приключения. А все началось с того, что Одуванчик решил переплыть в спичечном коробке лужу, которая образовалась у дома… Коробок размок, Одуванчик провалился в ледяную воду, но все-таки добрался (   Читать дальше...   )Жанр: Детская литература. СказкаПродолжительность: 02:22:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:767B274C8F6664D1194478CA39E6F20F4F42C816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519808   (147197) от 25.12.2021
 
 Финские народные сказки (2021) [MP3, Hemming Estorsky]
@@ -6,7 +86,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147197.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147017.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145875.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145806.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145783.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145710.jpg" />
 </div>
 
 
@@ -165,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145709.jpg" />
 </div>
 
 
@@ -194,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145580.jpg" />
 </div>
 
 
@@ -220,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145416.jpg" />
 </div>
 
 
@@ -247,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144996.jpg" />
 </div>
 
 
@@ -273,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143777.jpg" />
 </div>
 
 
@@ -299,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143561.jpg" />
 </div>
 
 
@@ -328,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143096.jpg" />
 </div>
 
 
@@ -355,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142961.jpg" />
 </div>
 
 
@@ -382,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142793.jpg" />
 </div>
 
 
@@ -408,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142546.jpg" />
 </div>
 
 
@@ -436,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141041.jpg" />
 </div>
 
 
@@ -462,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141023.jpg" />
 </div>
 
 
@@ -489,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140509.jpg" />
 </div>
 
 
@@ -515,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140302.jpg" />
 </div>
 
 
@@ -541,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138895.jpg" />
 </div>
 
 
@@ -568,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138278.jpg" />
 </div>
 
 
@@ -594,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137676.jpg" />
 </div>
 
 
@@ -605,88 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FD9FAC4D36DBDF93005E4ECA0B67714BC053556
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591473   (136447) от 19.12.2012
-
-М. Шаповалов | Удивительные приключения утенка [2012] [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удивительные приключения цирковых артистов утенка Кряши и серой кряквы Серебрянки, с которой утёнок очень подружился....
-Спектакль для детей младшего возраста.Жанр: Радиоспектакль
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B48FF405298592ACDCE2E64793D42CF2AD1C0D9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679760   (135367) от 26.11.2023
-
-Борис Житков | Рассказы о животных (2012) [MP3, Леонид Бородин]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Борис Степанович Житков (1882–1938), известный русский советский писатель-путешественник, автор приключенческих рассказов и путевых заметок.
-Книги Бориса Житкова отличаются высокой познавательной ценностью, захватывающим сюжетом, чудесным юмором и романтической верой в торжество добра.
-В сборник вошли рассказы о животных Бориса Житкова. Яркие, увлекательные - они (   Читать дальше...   )Жанр: Русская литература для детей, классика, рассказИздательство: Нигде не купишьПродолжительность: 03:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5E8F1AB188BE0346E28F657FA510BB0B92EA4D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679790   (135359) от 26.11.2023
-
-Борис Житков | Семь огней (2012) [MP3, Вячеслав Герасимов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Борис Степанович Житков (1882–1938), известный русский советский писатель-путешественник, автор приключенческих рассказов и путевых заметок.
-Книги Бориса Житкова отличаются высокой познавательной ценностью, захватывающим сюжетом, чудесным юмором и романтической верой в торжество добра. В сборник вошли рассказы, повести, пьесы и очерки для детей старшего школьного (   Читать дальше...   )Жанр: Русская литература для детей, классика, повесть, очерк, рассказИздательство: Нигде не купишьПродолжительность: 11:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:175E7E187AABF9BF5CD44DB42074259FD969164C
 ```
 
 https://mybot314.ru/tekegram_catalog/

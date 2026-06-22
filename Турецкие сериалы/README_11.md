@@ -1,3 +1,29 @@
+###  Публикация: 1767477   (16010) от 01.06.2025
+
+Долг жизни / Can Borcu (2024-2025) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-22 из 22) AlisaDirilis, DeziDenizi
+
+>>След.
+>>Турецкие сериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Успешный адвокат Мехмет после смерти жены начинает сталкиваться с проблемами в отношениях со своей дочерью Доа, которая обвиняет отца в смерти матери. В сочетании с бурным подростковым возрастом, Доа испытывает приступы гнева, которые сильно изматывают Мехмета. Напряжение между ними достигает пика, когда Доа пытается покончить с собой. В тоже время идеальный на первый (   Читать дальше...   )Производство: Турция / NTC MedyaЖанр: драмаРежиссер: Семих БагджиАктеры: Мине Тугай, Эбру Озкан, Бюлент Иналь, Чагла Боз, Селен Сойдер, Демирджан Каджель, Ильбер Уйгар Каболу, Гонджагюль Сунар, Джюнейт Мете, Нурсим Демир и др.Перевод: Двуголосый любительский (AlisaDirilis, DeziDenizi)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~02:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:888759E76AFB81B54E6A989DAA6574D79C708CDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749186   (14700) от 14.06.2025
 
 Чёрное сердце / Siyah Kalp (2024-2025) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-34 из 34) Voize, AlisaDirilis
@@ -6,7 +32,7 @@
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14700.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14654.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14653.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14158.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13914.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10404.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9561.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3612.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2665.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2661.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2570.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2450.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2365.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2360.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2339.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2333.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2316.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2312.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2293.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2156.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2151.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2108.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1997.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1986.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1868.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5DF7421D44FE03ACEE07E6EF77FF070BDEA5C00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819068   (1787) от 20.09.2025
-
-Любовь и слёзы / Ask ve Gozyasi (2025) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1 из ??) DeziDenizi (обновляемая)
-
->>Зарубежные сериалы
->>Турецкие сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мейра — дочь одной из самых богатейших семей Турции. Она получила престижное образование в США и решила вернуться на родину. Девушка хочет добиться уважения в обществе своими силами и поэтому устраивается на работу в торговый центр, тщательно скрывая свое истинное происхождением. Именно здесь она и знакомится с Селимом — юристом, из компании ее отца. Между молодыми (   Читать дальше...   )Производство: Турция / O3 Turkey MedyaЖанр: драма, романтикаРежиссер: Энгин ЭрденАктеры: Ханде Эрчел, Барыш Ардуч, Ознур Серчелер, Берк Джанкат, Шенай Гюрлер, Санем Челик, Лорин Мерхарт, Афра Карагёз, Сенан Кара, Мерт Денизмен и др.Перевод: Двуголосый любительский (DeziDenizi)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~02:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1513198054A71C530B2960514881A77614D27498
 ```
 
 https://mybot314.ru/tekegram_catalog/

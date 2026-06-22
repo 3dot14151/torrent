@@ -1,3 +1,29 @@
+###  Публикация: 1795586   (19172) от 06.05.2025
+
+Ведьмина гора / Race to Witch Mountain (2009) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [Локализованная версия] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19172.jpg" />
+</div>
+
+
+###  Подробнее
+
+В жизни Джека Бруно, таксиста-неудачника из Лас-Вегаса, всё перевернулось с ног на голову в тот момент, когда к нему в такси, спасаясь от погони, запрыгнули Сэт и Сара. Вскоре он поймёт, что его пассажиры - дети с необычными паранормальными способностями, которых ему предстоит защитить от безжалостных преследователей.Производство: США / Walt Disney Pictures, Gunn Films, Sandman StudiosЖанр: фантастика, триллер, комедия, приключения, семейныйРежиссер: Энди ФикменАктеры: Дуэйн Джонсон, Аннасофия Робб, Александр Людвиг, Карла Гуджино, Киран Хайндс, Том Эверетт Скотт, Крис Маркетт, Билли Браун, Гэрри Маршалл, Ким РичардсПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:34:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:793D213308FB19E646B9357D4076F7916F1E0E24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795536   (19171) от 06.05.2025
 
 Человек из ниоткуда / Ajeossi / The Man from Nowhere (2010) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19171.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19169.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19166.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19156.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19149.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19078.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18990.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18967.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18940.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18939.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18907.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18888.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18881.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18869.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18868.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18867.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18865.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18863.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18857.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18848.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18847.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18846.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18844.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18843.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18841.jpg" />
 </div>
 
 
@@ -650,33 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA75A1ABAACEB23E72A95957075CD2E63D7ED41F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796157   (18840) от 09.05.2025
-
-Коктейль / Cocktail (1988) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой, самоуверенный и амбициозный Брайан Фланаган всегда мечтал сделать карьеру, которая дала бы ему власть, развлечения и быстрые деньги. Однако когда выясняется, что крупные фирмы вовсе не спешат брать его на работу, холодная реальность опустевшего кошелька заставляет его согласиться на работу бармена.
-Растворившись в соблазнительном мире легких денег и секса, (   Читать дальше...   )Производство: США / Interscope Communications, Silver Screen Partners III, Touchstone PicturesЖанр: драма, мелодрама, комедияРежиссер: Роджер ДональдсонАктеры: Том Круз, Брайан Браун, Элизабет Шу, Лоуренс Лакинбилл, Келли Линч, Джина Гершон, Лиза Бейнс, Рон Дин, Роберт Донли, Эллен ФолиПеревод: Дублированный (СВ-Дубль), многоголосый (Видеосервис, 1 канал, Нева 1), авторский (Живов, Котов, Михалев)Язык озвучки: Русский, английскийСубтитры: Английские (PGS), испанские (PGS), французские (PGS)Продолжительность: 01:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C5F9124D65A539D61BA5AE5E2360DCF2A1BCDFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

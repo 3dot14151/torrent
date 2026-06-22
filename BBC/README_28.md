@@ -1,3 +1,29 @@
+###  Публикация: 1259993   (63105) от 13.03.2024
+
+BBC: Атлантида была здесь (Свидетельства Атлантиды) / Atlantis: The Evidence (2010) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одни думают, что когда-нибудь её найдут на дне моря, другие провели всю жизнь в её поисках, третьи считают, что её не существует. Остров Атлантида... Согласно легенде, Атлантида - сказочно богатый остров, исчезнувший в морской пучине. Но существовал ли он на самом деле и где? Сегодня эксперты считают, что нашли настоящую Атлантиду. Археологи обнаружили следы древней (   Читать дальше...   )Производство: Великобритания, США, Франция, Австрия, BBC Northern Ireland, Discovery Channel, France Télévisions, ProSiebenЖанр: Документальный, историяРежиссер: Натали МейнсУчастники: Беттани Хьюз, Кристос Думас, Ирвинг ФинкельПеревод: Двуголосый закадровый, профессиональный (Акцент-PRO и SDI Media)Субтитры: отсутствуютПродолжительность: 00:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:200F407716A12265821B1E8CE7AE7DC1578E385D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228870   (63051) от 14.03.2024
 
 BBC: Вивисекция. Как устроены насекомые / Insect Dissection: How Insects Work (2013) HDTVRip [H.264/720p-LQ] [PR]
@@ -6,7 +32,7 @@ BBC: Вивисекция. Как устроены насекомые / Insect D
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63051.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ BBC: Horizon. В поисках бессмертия / The Immortalist (2016) HD
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62995.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ BBC. Секс и чувственность: искусство модерн / S
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62941.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ BBC: Horizon. Таинственные сигналы из космическо�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62933.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ BBC: Всемирная история живописи / Sister Wendy's Story o
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62922.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ BBC Earth. 8 дней до Луны и обратно / 8 days to the Moon and b
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62891.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ BBC: Доминик Монаган и дикие существа / Wild Things 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62816.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ BBC: Гении современного мира / Genius Of The Modern World (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62809.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ BBC: Гении древнего мира / Genius Ancient World (2015) WEB-DL [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62789.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ BBC: Дикая Патагония / Wild Patagonia (2015) HDTVRip [H.264/720p] 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62788.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ BBC. Порядок и хаос. Силы, которые управляют В�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62713.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ BBC: Какого пола твой мозг? / Is Your Brain Male Or Female? (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62692.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ BBC: История мира с Эндрю Марром / Andrew Marr's History 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62680.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ BBC. Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/1080p-
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62623.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ BBC: Дуб - искусство выживания / Oak Tree: Nature's Greates
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62497.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ BBC: Доминик Монаган и дикие существа / Wild Things 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62481.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ BBC: Город под водой. Павлопетри / City Beneath the Waves
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62475.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ BBC: Исаак Ньютон: Последний чародей (Последн�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62421.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ BBC: Дикая природа Новой Зеландии / Wild New Zealand (N
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62410.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ BBC: Духи ягуара / Spirits of the Jaguar (1996) DVDRemux (серии 1
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62369.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ BBC: Есть, голодать, жить дольше / Eat, Fast and Live Long
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62364.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ BBC: Живой мир / BBC: Natural World (2009-2014) HDTV [H.264/1080i-LQ] (7
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62190.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ BBC: Мир природы - Горы тропических дождей / Natu
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61737.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ BBC: Мир природы. Исландия: Дикая жизнь / Natural Wo
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61640.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ BBC: Мир природы. Ошибки природы / Natural World. Natures
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61563.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ BBC: Мир природы. Ошибки природы / Natural World. Natures
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F672FB7120A26A34B3AAC249D05CED5487DE026E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360264   (61562) от 28.03.2024
-
-BBC: По странам и континентам. Дикая Австралазия / Wild Australasia (Wild Down Under) (2003) DVDRemux (серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предположения о существовании загадочной Terra incognita Australis - "Неизвестной южной земли" к югу от экватора высказывали еще древние географы. Обширная территория суши в южном полушарии изображалась на картах в XV веке, хотя очертания ее ничем не напоминали Австралию. Вплоть до XVII века никому из европейцев не удалось увидеть Австралию собственными (   Читать дальше...   )Производство: Великобритания, Австралия, Australian Broadcasting Corporation (ABC), British Broadcasting Corporation (BBC)Жанр: Документальный, природа, флора, фаунаУчастники: Мэтт ДэйПеревод: Одноголосый закадровый, профессиональныйСубтитры: РусскиеПродолжительность: серии x ~00:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBFE56CF370635577DCA30DF8BA0DBC1F9FDDED9
 ```
 
 https://mybot314.ru/tekegram_catalog/

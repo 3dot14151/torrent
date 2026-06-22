@@ -1,3 +1,81 @@
+###  Публикация: 1315062   (515969) от 17.07.2019
+
+Кусама: Бесконечные миры / Kusama: Infinity (2018) WEB-DLRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яёи Кусама, самая продаваемая художница в мире, преодолела множество препятствий, прежде чем смогла показать миру свои радикальные художественные работы. Вот уже больше шестидесяти лет она создает свои произведения, а ее инсталляции «Бесконечные зеркальные комнаты» посетило рекордное количество человек по всему миру.Производство: США / Magnolia PicturesЖанр: ДокументальныйРежиссер: Хезер ЛенцПеревод: Многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4912068F857D019BDDB1E565A8E99B338B87B17F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315157   (515009) от 18.07.2019
+
+Вествуд: Панк, икона, активист / Westwood: Punk, Icon, Activist (2018) WEB-DLRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_515009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вивьен Вествуд — легенда лондонского стиля, его создатель и разрушитель. Дизайнер одежды, она с самого начала заявила о себе как явлении культуры. Сегодня Вествуд — гранд-дама, кавалер ордена Британской империи, бунтарь и активист — по-прежнему живет и работает в Лондоне, где издавна уживаются королевская корона и панковская булавка.Производство: Великобритания / Finished FilmsЖанр: ДокументальныйРежиссер: Лорна ТакерПеревод: отсутствуетЯзык озвучки: английскийСубтитры: русские (хардсаб)Продолжительность: 01:23:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71D965FEC4492A9638D3DB695EBFD7801866540C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561598   (514454) от 05.07.2022
+
+Джентльмены удачи. Все оттенки Серого (2020) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несомненно, фильм про так называемых «джентльменов удачи», пользовавшийся бешеным успехом ещё во времена выпуска, до сих пор для многих остается одной из любимейших комедий советского кинематографа. Зрители узнают, как проходили съемки, как создавались самые известные сцены, кто придумал знаменитое ругательство "редиска" и еще множество других интересных (   Читать дальше...   )Производство: Россия, 1 каналЖанр: документальный, история, киноРежиссер: Георгий АнановЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94BB5799C5390880F9E8685483ED836EE6B17654
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930807   (513951) от 24.08.2015
 
 Военная тайна клоуна Шуйдина (2010) IPTVRip
@@ -6,7 +84,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513951.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513891.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513010.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Liam Gallagher: 48 Hours at Rockfield (2022) WEB-DL [H.264/1080p] [EN / En Sub]
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512508.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511848.jpg" />
 </div>
 
 
@@ -141,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510780.jpg" />
 </div>
 
 
@@ -168,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509650.jpg" />
 </div>
 
 
@@ -194,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509371.jpg" />
 </div>
 
 
@@ -220,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508869.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506215.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502394.jpg" />
 </div>
 
 
@@ -298,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502327.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501661.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499674.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498519.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498345.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496515.jpg" />
 </div>
 
 
@@ -454,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494412.jpg" />
 </div>
 
 
@@ -480,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492323.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492134.jpg" />
 </div>
 
 
@@ -532,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490429.jpg" />
 </div>
 
 
@@ -559,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490358.jpg" />
 </div>
 
 
@@ -585,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486406.jpg" />
 </div>
 
 
@@ -597,84 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F89497824101034170F0407EBB55EA8DF3D8E7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566125   (486297) от 27.07.2022
-
-Дух Баухауса / Bauhaus Spirit: 100 Years of Bauhaus (Vom Bauen der Zukunft - 100 Jahre Bauhaus) (2018) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Школа искусства и архитектуры Баухаус была основана 100 лет назад. На протяжении всей своей истории мы решаем вопрос о том, как архитектура может способствовать тому, чтобы люди лучше жили вместе и участвовали в повседневной жизни друг друга.Производство: Германия, Filmtank, Zweites Deutsches Fernsehen (ZDF), ARTEЖанр: документальный, искусство, архитектураРежиссер: Нильс Болбринкер, Томас ТилшПеревод: многоголосый профессиональный (The Kitchen Russia)Субтитры: русскиеПродолжительность: 01:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B99DE2B6A7C5AE3888F980E0A2F74D3D7E0D6C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566120   (486282) от 27.07.2022
-
-Сергей Филиппов. Есть ли жизнь на Марсе? (2012) HDTVRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступая в небольших и, чаще всего, отрицательных ролях, Филиппов создавал образы, запоминающиеся на десятилетия. Это Казимир Алмазов в «Укротительнице тигров», лектор в «Карнавальной ночи», Киса Воробьянинов в «Двенадцати стульях», шведский посол в «Иван Васильевич меняет профессию». Его персонажи отличались склонностью к спиртному, а фразы, ими произнесенные, живы (   Читать дальше...   )Производство: Россия, Первый канал, Киностудия "Останкино"Жанр: документальный, история, биографияРежиссер: Иван ЦыбинЯзык озвучки: русскийСубтитры: русские (С.АРТЕМОВ, Т.УЛЬЯНОВА, А.КНЯЗЕВА, М.ДВОРАК, М.ЛЕВИН, Н.ПЕТРУЛЕВИЧ, А.ПРЯХА)Продолжительность: 00:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E025812B624E202C528176171A249E1954A6075D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053999   (485893) от 23.09.2016
-
-Джонни Квест. Документальный фильм / Jonny Quest Documentary (2012) WEB-DL
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Релиз приурочен к годовщине выхода на ТВ классического сериала о Джонни Квесте (18.09.1964 г.). Авторский фан-фильм про историю создания шедевра и интересных моментах, взятых из интервью Дага Уайлди, фактического отца приключений Джонни Квеста.Телекомпания: File O-37 productionЖанр: Документальный, ВидовойПеревод: Одноголосый закадровый, Трамвай-фильмПродолжительность: 02:21:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C8B11F169139C667BBA3CAC445884908BA0D10B
 ```
 
 https://mybot314.ru/tekegram_catalog/

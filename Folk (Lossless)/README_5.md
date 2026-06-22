@@ -6,7 +6,7 @@ Lula Wiles - What Will We Do (2019) [FLAC|Lossless|WEB-DL|tracks] <American Folk
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686739.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Way Down Wanderers - illusions (2019) [FLAC|Lossless|tracks + .cue] <Country
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686641.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Народные Золотые Хиты (2002) 2CD [FLAC|Lossless|tracks +
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680665.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ NeillyRich - Here Now Forever (2017) [FLAC|Lossless|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674901.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Tom Russell - October in the Railroad Earth (2019) [FLAC|Lossless|tracks + .cue]
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674334.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ The Bodarks - Uprooted (2018) [FLAC|Lossless|tracks + .cue] <Contemporary Folk, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672350.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Todd Snider - Cash Cabin Sessions, Vol. 3 (2019) [FLAC|Lossless|tracks + .cue] <
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670695.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Cole Swindell - All of It (2018) [FLAC|Lossless|tracks + .cue] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668804.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Baba Yaga's Stew - Baba Yaga's Stew (2019) [FLAC|Lossless|tracks + .cue] <Folk, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668668.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Jody Direen - Shake Up (2016) [FLAC|Lossless|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666770.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Danielle Egnew - You've Got to Go Back the Way That You Came (2017) [FLAC|Lossle
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658112.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Kate Ellis - Carve Me Out (2017) [FLAC|Lossless|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658038.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Claire Hastings - Those Who Roam (2019) [FLAC|Lossless|tracks + .cue] <Folk, Cel
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648641.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Current 93 - Invocations Of Almost (2019) [FLAC|Lossless|tracks + .cue] <Folk, C
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648635.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ VA - The Ultimate Country Love Songs Anthology (2019) [FLAC|Lossless|WEB-DL|trac
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648625.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ VA - Romantic Collection. Country (2000) [FLAC|Lossless]<County>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647307.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Andrew Bird - My Finest Work Yet (2019) [FLAC|Lossless|tracks + .cue] <Folk-Rock
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646812.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Johnny Cash - The Real... Johnny Cash (2011) 3CD [FLAC|Lossless|tracks + .cue] <
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642704.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Levon Minassian & Armand Amar - Songs from a World Apart (2005) [FLAC|Lossless|i
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639698.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Honeycutters - On the Ropes (2016) [FLAC|Lossless|tracks] <Country,Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639346.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Angus & Julia Stone - Angus & Julia Stone (2014) Deluxe Edition [FLAC|Lossless|t
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637942.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ John Denver - The Real... John Denver (2013) 3CD [FLAC|Lossless|tracks + .cue] <
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631485.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Boy Howdy - Welcome to Howdywood (1992) [FLAC|Lossless|tracks + .cue] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629992.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Emily Jane White - Alluvion (2022) [FLAC|Lossless|WEB-DL|tracks] <Neo-Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629517.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623596.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Our Native Daughters - Songs of Our Native Daughters (2019) [FLAC|Lossless|track
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622496.jpg" />
 </div>
 
 

@@ -1,4 +1,56 @@
 https://t.me/izofen
+###  Публикация: 1876719   (1073385) от 19.06.2026
+
+Пассажир дождя / Le passager de la pluie (1969) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Замужняя женщина Мелли живёт на отшибе. Её муж, штурман международных авиалиний, находится в частых командировках. Однажды, когда его нет, её насилует приезжий преступник. Она убивает его и прячет тело. Через некоторое время в городке появляется загадочный американец Гарри Добс, который разыскивает убитого и особенно интересуется судьбой бывшей при нём сумки. Ушлый (   Читать дальше...   )Производство: Франция, Италия / Greenwich Film Productions, Medusa DistribuzioneЖанр: драма, криминал, детектив, триллерРежиссер: Рене КлеманАктеры: Чарльз Бронсон, Марлен Жобер, Анни Корди, Джилл Айрленд, Жан Гавен, Коринн Маршан, Эллен Баль, Габриэле Тинти, Жан Пиа, Стив ЭкхардтПеревод: профессиональный многоголосый (ОРТ; Останкино; Paramount Channel), профессиональный двухголосый (Film Prestige), авторский (Гаврилов; Михалёв; Матвеев)Язык озвучки: русский, французскийСубтитры: русские (Film Prestige), английскиеПродолжительность: 01:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10A93E7AFA6B344468DCC0AF5389366869199A53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876188   (1073040) от 18.06.2026
+
+Интимный разговор / Телефон пополам / Pillow Talk (1959) BDRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обладатели спаренного телефонного номера дизайнер Джен Морроу и композитор Брэд Аллен никогда друг друга не видели, но люто друг друга ненавидят. Брэд каждый вечер играет своим многочисленным поклонницам одну и ту же мелодию, а Джен подслушивает, возмущается и жалуется в телефонную компанию. За Джен ухаживает миллионер Джонатан Форбс, который по стечению обстоятельств (   Читать дальше...   )Производство: США / Arwin Productions, Universal International Pictures (UI or U-I)Жанр: Мелодрама, КомедияРежиссер: Майкл ГордонАктеры: Рок Хадсон, Дорис Дэй, Тони Рэндалл, Тельма Риттер, Ник Эдамс, Джулия Миде, Аллен Дженкинс, Марсель Далио, Ли Патрик, Мэри МакКартиПеревод: Многоголосый профессиональный (СТС)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D689CB29F6755B048FF395FFF3D2DEFD54AC0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875150   (1072386) от 07.06.2026
 
 Индиана Джонс: В поисках утраченного ковчега / Raiders of the Lost Ark (1981) UHD BDRip [AV1/2160p] [4K, HDR10, 10-bit]
@@ -7,7 +59,7 @@ https://t.me/izofen
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072386.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072382.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072363.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071923.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071500.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070920.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069953.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068194.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067864.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067554.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067385.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067322.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067196.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067099.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066923.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066735.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066125.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063794.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063531.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063449.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063255.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063101.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062945.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062899.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F0125FC2751EBDB7228692E6B4E29E195586411
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861440   (1062482) от 02.04.2026
-
-Индиана Джонс и Храм судьбы / Indiana Jones and the Temple of Doom (1984) BDRip [AV1/2160p] [4K, HDR10, 10-bit]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесстрашный доктор Джонс отправляется в сердце Гималаев вместе с ресторанной певичкой Уилли Скотт и своим верным маленьким помощником Коротышкой. Среди величественных гор археологу и его спутникам предстоит столкнуться с кровавым культом поклонения древней Богине Смерти — Кали. Станет ли Индиана следующим несчастным, погибшим на жутком алтаре человеческих жертвоприношений, (   Читать дальше...   )Производство: США, Великобритания / Lucasfilm Ltd., Paramount PicturesЖанр: приключения, боевик, комедияРежиссер: Стивен СпилбергАктеры: Харрисон Форд, Кейт Кэпшоу, Амриш Пури, Рошан Сет, Филип Стоун, Ке Хюи Куан, Рой Чяо, Дэвид Ип, Рик Янг, Chua Kah JooПеревод: Многоголосый профессиональный (НТВ+)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:017A13E16F0E2F065F5BB0036720AB0B695DC402
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861443   (1062481) от 03.04.2026
-
-Индиана Джонс и последний крестовый поход / Indiana Jones and the Last Crusade (1989) BDRip [AV1/2160p] [4K, HDR10, 10-bit]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062481.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз бесстрашный Индиана разыскивает самую таинственную реликвию в истории человечества — Святой Грааль. В этом археологу помогает его отец, профессор Джонс старший. Теперь под бдительным оком своего отца Индиане предстоит совершить много благородных подвигов и потрясающих открытий. В новых странствиях храброму археологу доведется добыть чашу, которую держал (   Читать дальше...   )Производство: США / Lucasfilm Ltd., Paramount PicturesЖанр: приключения, боевик, комедияРежиссер: Стивен СпилбергАктеры: Харрисон Форд, Шон Коннери, Денхолм Эллиотт, Элисон Дуди, Джон Рис-Дэвис, Джулиан Гловер, Ривер Феникс, Майкл Бирн, Кеворк Маликян, Роберт ЭддисонПеревод: Многоголосый профессиональный (НТВ+)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06F682F3015B17C52D791FBFCDA3F3F2BBF8B60E
 ```
 
 https://mybot314.ru/tekegram_catalog/

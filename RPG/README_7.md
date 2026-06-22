@@ -1,3 +1,108 @@
+###  Публикация: 1213790   (1006556) от 15.07.2021
+
+Bastion (2011) [Ru/Multi] (1.50436) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bastion – ролевой боевик, в котором рассказчик реагирует на каждое ваше действие, выводя игровое повествование на совершенно новый уровень. Исследуйте более 40 ярких нарисованных вручную локаций и раскройте секрет Бедствия – таинственной катастрофы, разрушившей мир. Используйте огромный арсенал улучшаемого оружия и сражайтесь против кровожадных чудовищ, которые уже (   Читать дальше...   )Тип издания: LicenseРазработчик: Supergiant GamesЖанр: Экшн, Ролевая игра, ФэнтезиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E15D2AC42EE727126B9321E4D8CFB76F9FB36A48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483886   (1006452) от 16.07.2021
+
+Firelight Fantasy: Resistance (2021) [Ru/Multi] (4.25) License PLAZA
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firelight Fantasy: Resistance – игра про зрелищные сражения на мечах от третьего лица.
+Данная игра - это начало удивительной истории про мир Изотопии. Окунитесь в необычную историю, произошедшую когда-то в прошлом… а может быть и будущем. Впрочем, это не так важно.Тип издания: LicenseРазработчик: Firelight InteractiveЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA9E435165AB1D2C18C160D0C04792FED7B7DCCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484748   (1005875) от 21.07.2021
+
+Death's Door (2021) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сбор душ умерших от звонка до звонка — серые будни любой вороны, зарабатывающей на жизнь честным трудом. Однако работа может заиграть новыми красками, когда порученная тебе душа похищена, а отчаянный вор скрылся в краях, неподвластных смерти, — там, где раздувшиеся от собственной алчности и мощи существа уже давно пережили отведенный им срок.Тип издания: RepackРазработчик: Acid NerveЖанр: Adventure, Action, RPG, 3DЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C0A9149AFCFFE20FA5DD16E3EAA9BABC9A8D1F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178770   (1005237) от 26.07.2021
+
+Divinity: Dragon Commander (2013) [Ru/En] (1.0.124hf/dlc) License GOG [Imperial Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы рыцарь-дракон. Ваша миссия - воссоединить расколотую империю и стать новым императором. Успех будет полностью зависеть от вашей способности эффективно управлять своей империей, сформировать неуязвимую армию и привести её к победе. Ваше секретное оружие - это ваш тактический разум, ваши лидерские способности и ваше умение превращаться в дракона! Больше, чем просто (   Читать дальше...   )Тип издания: LicenseРазработчик: Larian StudiosЖанр: Action, Strategy (Real-time, Turn-based), RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:479E4F8AB10DC055FA3D58BB79D1063569AAC1B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486152   (1004950) от 29.07.2021
 
 Shadoworlds (1992) [En] (0.9.1) License GOG
@@ -6,7 +111,7 @@ Shadoworlds (1992) [En] (0.9.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004950.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Final Fantasy II (2021) [Ru/Multi] (1.0) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004921.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ Final Fantasy (2021) [Ru/Multi] (1.0) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004918.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ Eldest Souls (2021) [Ru/Multi] (Build 7099613) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004836.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ Eastern Exorcist (2021) [Multi] (Build 6990221) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004795.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ The Ascent (2021) [Ru/Multi] (Build 7106737) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004779.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ Ys IX: Monstrum Nox (2021) [Multi] (1.0.5/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004660.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ Signs of the Sojourner (2020) [En] (4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004471.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ Lichdom: Battlemage (2014) [En] (1.2.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004416.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ Guild of Darksteel (2021) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004249.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ Jade Empire (2005) [Ru] (1.00) Repack xatab [Special Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003650.jpg" />
 </div>
 
 
@@ -292,7 +397,7 @@ The Forgotten City (2021) [Ru/Multi] (1.1) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003466.jpg" />
 </div>
 
 
@@ -318,7 +423,7 @@ Jupiter Hell (2021) [En] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003216.jpg" />
 </div>
 
 
@@ -344,7 +449,7 @@ Heroes of Hammerwatch (2018) [En] (101/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002864.jpg" />
 </div>
 
 
@@ -370,7 +475,7 @@ Octopath Traveler (2019) [Multi] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002452.jpg" />
 </div>
 
 
@@ -396,7 +501,7 @@ The Witcher / Ведьмак (2008) [Ru/Multi] (1.5/dlc) Repack Other s [Enhance
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002101.jpg" />
 </div>
 
 
@@ -422,7 +527,7 @@ The Witcher / Ведьмак (2007) [Ru/Multi] (1.5a) License GOG [Enhanced Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002094.jpg" />
 </div>
 
 
@@ -448,7 +553,7 @@ Library of Ruina (2021) [Multi] (1.1.0.5b1) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001663.jpg" />
 </div>
 
 
@@ -474,7 +579,7 @@ Girls' civilization (2020) [Multi] (4552555) Repack Nikita1358
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001488.jpg" />
 </div>
 
 
@@ -500,7 +605,7 @@ Bound by Flame (2014) [Ru/Multi] (2195b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001326.jpg" />
 </div>
 
 
@@ -526,7 +631,7 @@ The Surge 2 (2019) [Ru/Multi] (1.09u5/dlc) Repack =nemos=
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000732.jpg" />
 </div>
 
 
@@ -552,7 +657,7 @@ Torchlight 2/II [Ru/En/Multi4] (Steam-Rip/1.21.5.1) 2012
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996615.jpg" />
 </div>
 
 
@@ -567,114 +672,6 @@ Torchlight 2/II [Ru/En/Multi4] (Steam-Rip/1.21.5.1) 2012
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49C393C5B9A1E121FA824ABA54AC699E1CED401D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577232   (996596) от 16.01.2013
-
-Torchlight II [Ru/En/Pl] (Repack/1.21.5.1) 2012 | THETA
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитая ролевая игра возвращается! В Torchlight II вы вновь окунетесь в волшебный причудливый мир, окутанный зловещими тайнами, где за каждым углом поджидают кровожадные монстры, а сундуки трещат по швам от переполняющих их сокровищ. И судьба этого мира снова в ваших руках!
-
-Мы очень постарались, чтобы игра Torchlight II не потеряла очарования и увлекательности первой части, и в то же время добавили немало инноваций — в том числе так ожидаемую фанатами возможность играть вместе в Интернете и по локальной сети. Torchlight — стремительная, захватывающая ролевая игра, под завязку наполненная сражениями и добычей трофеев. Отправляйтесь на поиски приключений в гордом одиночестве или в компании друзей! (   Читать дальше...   )Тип издания: RepackЖанр: RPG (Rogue/Action) / 3D / 3rd PersonЯзык озвучки: Английский, Русский (только в видеороликах)Язык субтитров: Русскиe, АнглийскиeЯзык интерфейса: Русский, Английский, Польский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603957   (996590) от 16.01.2013
-
-Torchlight 2/II [Ru/Multi4] (RePack/1.21.5.1) 2012 | R.G. Games
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996590.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Torchlight II вы вновь окунетесь в волшебный причудливый мир, окутанный зловещими тайнами, где за каждым углом поджидают кровожадные монстры, а сундуки трещат по швам от переполняющих их сокровищ. И судьба этого мира снова в ваших руках!
-Мы очень постарались, чтобы игра Torchlight II не потеряла очарования и увлекательности первой части, и в то же время добавили немало инноваций — в том числе так ожидаемую фанатами возможность играть вместе в Интернете и по локальной сети. Torchlight — стремительная, захватывающая ролевая игра, под завязку наполненная сражениями и добычей трофеев. Отправляйтесь на поиски приключений в гордом одиночестве или в компании друзей!
-(   Читать дальше...   )Тип издания: RePackРазработчик: Runic GamesЖанр: RPG (Rogue/Action) / 3D / 3rd PersonЯзык озвучки: Английский, Немецкий, Польский и Русский (только в видеороликах)Язык интерфейса: Английский, Немецкий, Русский, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEB312640DFB0A96D909F1776168B6872A429536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609920   (990765) от 28.01.2013
-
-Pirates of Black Cove [En/Multi4] (L/1.0.6.8095) 2011 | PROPHET
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990765.jpg" />
-</div>
-
-
-###  Подробнее
-
-XVI век, Карибское море. Эскадры пиратских кораблей и корсаров бороздят воды около побережья Америки и карибских островов, но у них нет человека, способного объединить их в грозную силу. Сможете ли вы добиться признания и титула Пиратского короля, взяв под свой контроль все торговые пути, по которым перевозятся в Европу щедрые дары Американского континента?(   Читать дальше...   )Тип издания: ЛицензииЖанр: Strategy (Real-time) / Arcade / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский, Multi4
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BDF775AEA0AE0FDE72241A0CF0AA84617E73FD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970152   (986495) от 02.01.2016
-
-Dungeon Siege 3 (2011) [Ru/En] (1.0/upd1/dlc) Repack R.G. Catalyst
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вас ожидают невероятные приключения в древнем королевстве Эб, погрязшем в хаосе и анархии. Вместе с одним из четырех героев вам предстоит совершить отчаянные подвиги, уничтожить бесчисленные орды чудовищ и вернуть жителям страны надежду на счастливое будущее. Предусмотрены не только одиночные странствия и приключения в мире, где сошлись в сражении острые клинки и (   Читать дальше...   )Тип издания: RepackРазработчик: Obsidian EntertainmentЖанр: RPG (Rogue, Action), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CED523C32173522CF94CC5C3BEFC746F9DBB11E
 ```
 
 https://mybot314.ru/tekegram_catalog/

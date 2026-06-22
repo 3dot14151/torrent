@@ -6,7 +6,7 @@
 >>Камерная
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965439.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Pergolesi Giovanni Battista–Stabat Mater: M. Marshall L.V. Terrani C. Abbado L
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963851.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ https://mybot314.ru/tekegram_catalog/
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962396.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ Stravinsky - The Rite Of Spring / Mahler - Symphony No.1 (2014) [FLAC 2.0|48.0/2
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962094.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Lev Oborin, David Oistrakh, Svyatoslav Knushevitckiy - Beethoven - Piano Trio in
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961955.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - 101 Classics: The Best Loved Classical Melodies (1998) 8CD [APE|image + .cu
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961903.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ VA - Новогодняя ночь (2008) Ридерз Дайджест 4CD [MP3
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960859.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ VA - 100 Best Baroque  (2006) 6CD Box-set,  серия "Best 100" [FLAC|Lossless
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960618.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ VA - Klassiska Favoriter Opera (1996) 3CD [FLAC|Lossless]<Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957505.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Izar Melting Pot Ensemble - The Melting Pot (2015) [FLAC|Lossless|tracks + .cue]
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956112.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Gershwin - Second Rhapsody - Piano Concerto in F, Porgy and Bess: Symphonic Suit
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956058.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954598.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Josquin Desprez - Missa Gaudeamus (1990) [FLAC|Lossless|image + .cue] <Classical
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953685.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Damien Poisblaud - Chant Grégorien - Abbaye du Thoronet (1990) PAVANE Records [
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953609.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Vitalij Margulis / Виталий Маргулис - Frederic Chopin / Фред�
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953584.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Antonio Lucio Vivaldi - Flute Concerto I Solisti Veneti solist Jean-Piere Rampal
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951595.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Anna Netrebko & Mahler Chamber Orchestra Claudio Abbado - Sempre Libera (2004) [
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950925.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Johann Strauss - Rosen aus dem Suden. Staatskapelle Dresden, Carl Von Garaguly (
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950426.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Arturo Toscanini - Toscanini Collection Vol.71 - La Scala Orchestra Acoustic Rec
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950410.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Enrico Caruso / Энрико Карузо - Prima Voce: Caruso (1989) Nimbus Rec
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950397.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Mark Gorenstein - Tchaikovsky: Symphonic Works after Shakespeare Romeo And Julie
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950360.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Arturo Toscanini - Toscanini Collection Vol.37 - Debussy La mer, Prelude a l'apr
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950357.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Helene Grimaud - Water (2016) [MP3|320 кб/с] <Classical, Piano>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949715.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Helene Grimaud - Water (2016) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949650.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ Mozart - Julia Fischer, Gordan Nikolić, Netherlands Chamber Orchestra, Yakov Kr
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948137.jpg" />
 </div>
 
 
@@ -739,7 +739,7 @@ Craig Armstrong - Sun On You (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Classi
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948117.jpg" />
 </div>
 
 

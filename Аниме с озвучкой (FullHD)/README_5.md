@@ -6,7 +6,7 @@ Tales of Vesperia: The First Strike | Сказания Весперии: Пер�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001102.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Psycho-Pass 3: First Inspector | Психопаспорт 3: Первый инс
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001077.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Overlord II | Повелитель [ТВ-2] [2018, TV, 13 ep] BDRip 1080p raw+ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984294.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Bougyaku Sareta Tamashii no Jukyou | Corpse Party: Tortured Souls | Вечери
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966920.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Heisei Tanuki Gassen Ponpoko | Pom Poko | Помпоко: Война танук�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965824.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Shoujo Shuumatsu Ryokou | Girls' Last Tour | Девушки в Последне�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965822.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Kill la Kill | Убей или Умри [2011, TV, 24 ep + SP] BDRip 1080p 10-bi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965821.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Mirai Nikki | The Future Diary | Дневник Будущего [2011, TV, 26 e
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965819.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Cross Ange: Tenshi to Ryuu no Rondo | Cross Ange: Rondo of Angel and Dragon | К
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962793.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Netoge no Yome wa Onnanoko ja Nai to Omotta? | And You Thought There Is Never a 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961638.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Zero kara Hajimeru Mahou no Sho | Grimoire of Zero | Книга Магии дл�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960289.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Gekijouban Soushuuhen Overlord | Overlord: Fushisha no Ou & Shikkoku no Eiyuu | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958951.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Haiyore! Nyaruko-san W | Ползучий Хаос! Няруко-Сан [ТВ-2]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951929.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Haiyore! Nyaruko-san F | Ползучий Хаос! Няруко-Сан [ТВ-1]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951921.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Girls und Panzer: Kore ga Hontou no Anzio-sen Desu! | Девушки и Танк
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950452.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Girls und Panzer Gekijouban | Girls und Panzer der Film | Девушки и Та
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950451.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Stranger Mukoh Hadan | Sword of the Stranger | Меч чужака [2007, Movie]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950450.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Girls und Panzer | Girls & Panzer | Девушки и Танки [2012, TV, 12 e
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950449.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Soul Eater Not! | Пожиратель Душ! Класс НОТ! [2014, TV, 12 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942306.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Owari no Seraph: Nagoya Kessen Hen | Seraph of the End: Battle in Nagoya | По�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939075.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Owari no Seraph | Seraph of the End: Vampire Reign | Последний Сера
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939074.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Hai to Gensou no Grimgar | Grimgar of Fantasy and Ash | Гримгал Мир И
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939073.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Irozuku Sekai no Ashita kara | Iroduku: The World in Colors | Из Завтра�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935633.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Gokukoku no Brynhildr | Brynhildr in the Darkness | Брунгильда во Т
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935632.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Akame ga Kill! | Убийца Акамэ! [2014, TV, 24 ep + 24 sp] BDRip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935631.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Charlotte | Шарлотта [2015, TV, 13 ep + 1 sp] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934325.jpg" />
 </div>
 
 

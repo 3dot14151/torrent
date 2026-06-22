@@ -7,7 +7,7 @@ XYplorer 28.30.0700 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072559.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Advanced Renamer 4.23 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072290.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Advanced Renamer 4.22 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072028.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ EF Commander 26.05 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071280.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Just Manager 1.0.0-rc.1 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071029.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ FileVoyager Lite / Full 26.4.26.1 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070622.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Advanced Renamer 4.21 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070221.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ XYplorer 28.30.0600 RePack (& Portable) by elchupacabra [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069916.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Tablacus Explorer 26.5.12 Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069673.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Total Commander 11.57 PowerPack + Portable 2026.05 by SamLab [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069636.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ muCommander 1.6.2 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069371.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ FreeCommander XE 2026 Build 948 RePack by AMPED [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069190.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Q-Dir 12.63 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069030.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ PeaZip 11.1.0 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068995.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Total Commander 11.57 Extended 26.5 Full / Lite RePack (& Portable) by BurSoft [
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068868.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Total Commander 11.57 Final [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068523.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Bandizip Professional 7.43 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068305.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ WinRAR 7.22 Final [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068178.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ WinRAR 7.22 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068148.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ ASCOMP F-Rename Pro 3.000 RePack (& Portable) by elchupacabra [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068120.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Bandizip Professional 7.43 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068031.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ WinRAR 7.22 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068005.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ WinRAR 7.22 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067976.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ XYplorer 28.30.0600 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067920.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ WinRAR 7.22 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067734.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ XYplorer 28.30.0400 RePack (& Portable) by elchupacabra [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067660.jpg" />
 </div>
 
 

@@ -1,3 +1,82 @@
+###  Публикация: 1632008   (235895) от 08.05.2023
+
+Необыкновенные приключения Бастера / Buster: Oregon Mortensen / Buster's World (2021) WEB-DL [H.264/1080p] [MVO]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весёлый 11-летний подросток Бастер мечтает стать одним из величайших магов Дании.
+Его цель — выиграть в шоу талантов, которое состоится этим летом, поэтому Бастер каждый день тренируется со своим старым другом, волшебником мистером Ларсеном. На пути к победе Бастера ждут преграды, сложности и испытания.Производство: Дания / Crone Ungfelt FilmЖанр: семейныйРежиссер: Мартин Миэ-РенарАктеры: Манфред Вебер Кортцен, Магнус Милланг, Иби Стовинг, Хеннинг Енсен, Керстин Яннеруп Гьезинг, Виола Мартинсен, Бертил Смит, Линда Педерсен, Natali Vallespir, Louise DavidsenПеревод: Многоголосый профессиональный (Студия Позитив)Язык озвучки: Русский, ДатскийСубтитры: ОтсутствуютПродолжительность: 01:31:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4A703BD3E8064E5F5EE5B8238FFF939317E423A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631999   (235557) от 08.05.2023
+
+Зип и Зап на острове Капитана / Zipi y Zape y la Isla del Capitan / Zip & Zap and the Captain's Island (2016) WEB-DL [H.264/1080p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проказники Зип и Зап оказываются наказанными в самый канун Рождества. Теперь вместо того, чтобы наслаждаться зимними каникулами, они должны сопровождать своих родителей в деловой поездке на отдаленный остров. Однако ужасный шторм нарушает все планы, и семья вынуждена искать временное прибежище в доме эксцентричной мисс Пам, где дети без семей наслаждаются райской (   Читать дальше...   )Производство: Испания / Mod Producciones, Kowalski Films, Atresmedia CineЖанр: фантастика, фэнтези, комедия, приключения, семейныйРежиссер: Оскар Сантос ГомесАктеры: Елена Анайя, Тео Планель, Тони Гомес, Ириа Кастеллано, Максимо Пастор, Ана Бланко де Кордова, Ферми Рейчак, Хорхе Бош, Каролина Лапауса, Хуан Антонио КодинаПеревод: Дублированный (Студия Позитив)Язык озвучки: Русский, ИспанскийСубтитры: РусскиеПродолжительность: 01:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF3E561317338DB9C9016B1079F722E373F34D16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633299   (234469) от 14.05.2023
+
+Антбой / Мальчик-муравей / Antboy (2013, 2014, 2016) WEB-DL [H.264/1080p] [Трилогия]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234469.jpg" />
+</div>
+
+
+###  Подробнее
+
+12-летнего Пелле кусает муравей, и у него развиваются сверхспособности. При помощи ботаника Вильгельма Пелле превращается в таинственного супергероя по имени Мальчик-муравей. Когда суперзлодей по имени Блоха выходит на сцену, Мальчик-муравей должен справиться с его кознями.Производство: Дания / Nimbus Film Productions, Det Danske Filminstitut, FilmFynЖанр: фэнтези, комедия, приключения, семейныйРежиссер: Аск ХассельбальхАктеры: Оскар Дитц, Амалия Крузе Йенсен, Самуэль Тинг Граф, Николас Бро, Сесиль Альструп Тарп, Маркус Йесс Петерсен, Йоханнес Джеффрис Сёренсен, Лерке Винтер Андерсен, Франк Тиль, Томас ВоссПеревод: Дублированный (Back Board Cinema)Язык озвучки: Русский, ДатскийСубтитры: РусскиеПродолжительность: 01:16:46 / 01:23:13 / 01:24:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17E1D6F95EBCDBF381AE4905B231B25E216C2623
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1633257   (234440) от 14.05.2023
 
 Великая война ёкаев / Великая война гоблинов / Yokai daisenso / The Great Yokai War (2005) WEB-DL [H.264/1080p] [MVO]
@@ -6,7 +85,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234440.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234099.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232428.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232169.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231881.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231451.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231217.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230822.jpg" />
 </div>
 
 
@@ -215,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230625.jpg" />
 </div>
 
 
@@ -241,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230539.jpg" />
 </div>
 
 
@@ -267,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230347.jpg" />
 </div>
 
 
@@ -293,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229767.jpg" />
 </div>
 
 
@@ -319,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229598.jpg" />
 </div>
 
 
@@ -345,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228994.jpg" />
 </div>
 
 
@@ -371,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228124.jpg" />
 </div>
 
 
@@ -397,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226136.jpg" />
 </div>
 
 
@@ -424,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225846.jpg" />
 </div>
 
 
@@ -450,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225573.jpg" />
 </div>
 
 
@@ -477,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_224795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224795.jpg" />
 </div>
 
 
@@ -504,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_224626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224626.jpg" />
 </div>
 
 
@@ -530,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_224592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224592.jpg" />
 </div>
 
 
@@ -556,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_224179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224179.jpg" />
 </div>
 
 
@@ -582,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223459.jpg" />
 </div>
 
 
@@ -593,84 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9E85A3C44B22F8400B8BDA6EB80A242262AE30F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651072   (223309) от 05.08.2023
-
-Тайна Геродота / Misterul lui Herodot (1976) HDTV [H.264/1080i] [VO]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223309.jpg" />
-</div>
-
-
-###  Подробнее
-
-В горном селе два школьника находят фибулу, оставшуюся от римлян и пролежавшую много веков в земле. Желая узнать больше об этом времени, ребята похищают записки погибшего на войне учителя, в которых он делал ссылки на поселение Лисидава, упомянутое Геродотом...Производство: Румыния / Filmstudio BucurestiЖанр: приключенияРежиссер: Geta Doina TarnavschiАктеры: Christian Orascu, Тудор Петрут, Александру Данила, Anca Marzareanu, Catalin Evoescu, Сильвиу Станкулеску, Эрнест Мафтей, Мелания Урсу, Ромео Поп, Штефан Михэилеску-БрэилаПеревод: одноголосый любительский (Семён Ващенко)Язык озвучки: русский, румынскийСубтитры: русские (Наталья Чуканова)Продолжительность: 01:24:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64AB99AD29B738785FE28F4765C7D06F0CC697F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342463   (223072) от 02.12.2019
-
-Бобот и энергия Вселенной / Бобот та енергiя Всесвiту / The Bobot (2018) WEB-DL [H.264/1080p-LQ]
-
->>След.
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из-за мощного взрыва на Солнце на всей Земле может исчезнуть электроэнергия. Электромагнитное поле Земли — щит, построенный людьми, — формируется специальными энергетическими Станциями, одна из которых была отключена Мусорщиками — неизвестными существами. 12-летний Вадик попадает в круговорот событий, и на его плечи ложится миссия спасения мира. Ему на помощь приходит (   Читать дальше...   )Производство: Украина, Mental Drive StudioЖанр: Фантастика, приключения, семейныйРежиссер: Максим КсендаАктеры: Тарас Шевченко, Виктор Григорьев, Владимир Ращук, Арсен Шавлюк, Иванна Бородай, Игор МирошниченкоЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D263F745FEB05D01AE2E81AF14B154719AAF04A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651472   (222121) от 06.08.2023
-
-Тайна Зелёного Холма / Uzbuna na Zelenom Vrhu (2017) WEB-DL [H.264/1080p] [VO]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_222121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коко и его друзья проводят летние каникулы на берегу озера в небольшом посёлке Зелёный Холм. Спокойную жизнь посёлка нарушает ряд дерзких ограблений. Под покровом ночи таинственные воры проникают в квартиры местных жителей и выносят оттуда всё ценное. Полиция не спешит реагировать, поэтому за дело берутся юные детективы.Производство: Хорватия / KinoramaЖанр: семейныйРежиссер: Cejen CernicАктеры: Марко Тоциль, Алекс Ракош, Jan Pentek, Tin Gregoric, Jakov Piljek, Люсия Филипс, Sara Colakovic, Toma Serdarevic, Dora Bilic, Дижана ВидусинПеревод: одноголосый любительский (Семён Ващенко)Язык озвучки: русский, хорватскийСубтитры: русские (karlivanovich), английские (jaygator), английские, испанские, португальскиеПродолжительность: 01:21:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2905D86BAB1A0D902F77045E0DBAE9D53678554
 ```
 
 https://mybot314.ru/tekegram_catalog/

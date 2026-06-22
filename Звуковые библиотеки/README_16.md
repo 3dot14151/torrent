@@ -6,7 +6,7 @@ Soniccouture - EP73 Deconstructed [Kontakt, MIDI]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320638.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315066.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312948.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310604.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308146.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306091.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Spitfire Audio - Spitfire Solo Violin [Kontakt, OGG]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305142.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Lens Distortions - Beginnings [WAV, MP3]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304953.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303893.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Best Service - Elysion [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303144.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Spitfire Audio - Spitfire Solo Cello [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302982.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ NNM-Club Sound Cleaner Group Collection - AudioJungle Bundle Originals 2019
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302818.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302724.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302074.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301995.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301889.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301744.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301734.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301656.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299649.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ NNM-Club Sound Cleaner Collection - STouR - Album 3-2019
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298569.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ NNM-Club Sound Cleaner Collection - Teacher - Album 3-2019
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298472.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Sample Logic - Modern Animated Percussion RePack Андрей650071 [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296663.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Embertone - Walker 1955 Concert D Full [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294430.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294283.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293285.jpg" />
 </div>
 
 

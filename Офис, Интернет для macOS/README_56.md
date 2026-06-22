@@ -1,3 +1,56 @@
+###  Публикация: 1708220   (113160) от 19.03.2024
+
+GarageSale 9.7.2 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Управлять своими аукционами на всемирно известной торговой площадке EBay теперь проще простого. Приложение GarageSale для Mac OS открывает пользователю доступ ко всем необходимым функциям этого популярного сайта. Теперь не нужно проходить через все утомительные процедуры на сайте, чтобы начать аукцион. Все, что вам нужно – это приобрести новую версию приложения и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.03.2024Разработчик: © 2023 iwascoding GmbHПоддерживаемая ОС: OS X 10.12 +Язык интерфейса: Английский, Немецкий, Французский и Итальянский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00BD0F9BF2D1AA53832876BB5173AA0830CE8C4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708034   (113150) от 19.03.2024
+
+Tap Forms Organizer 5 v.5.3.41 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tap Forms Organizer простое в использовании, абсолютно настраиваемое и очень мощное приложение. Tap Forms Organizer поможет вам отслеживать всю наиболее важную информацию вашей жизни. Tap Forms Organizer - настраиваемое приложение базы данных, оно разработано, чтобы удовлетворить Ваши уникальные потребности на работе, дома или в движении.
+Используйте Tap Forms Organizer (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.03.2024Разработчик: ©2024 Tap Zapp Software Inc.Поддерживаемая ОС: macOS 10.14 +Язык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D9636C9F8E72DE65EF8B77DD097ADD3AA1E250B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708211   (113149) от 19.03.2024
 
 MWeb Pro 4.5.8 [Multi]
@@ -6,7 +59,7 @@ MWeb Pro 4.5.8 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113149.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ NCH DreamPlan Plus for Mac 9.10 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113148.jpg" />
 </div>
 
 
@@ -62,7 +115,7 @@ PixelSnap 2 for Mac v.2.5.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113077.jpg" />
 </div>
 
 
@@ -88,7 +141,7 @@ Data Creator 1.9.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113034.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ VueScan Pro for Mac 9.8.30 U2B [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112975.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ Text Workflow 1.9.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112953.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ Codepoint for Mac 1.16 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112916.jpg" />
 </div>
 
 
@@ -195,7 +248,7 @@ AirMail Pro 5 v.5.7.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112757.jpg" />
 </div>
 
 
@@ -222,7 +275,7 @@ NCH Express Invoice Plus 11.10 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112755.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ Wing Pro 10 for Mac 10.0.3.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112753.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ DataGraph for Mac 5.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112752.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ GoodTask 7.7.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112732.jpg" />
 </div>
 
 
@@ -327,7 +380,7 @@ eMail Address Extractor 4.7 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112721.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ MarkMyWords 2.10.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112633.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ URL Manager Pro 6.4.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112580.jpg" />
 </div>
 
 
@@ -408,7 +461,7 @@ Keep It 2.4.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112574.jpg" />
 </div>
 
 
@@ -434,7 +487,7 @@ SiteSucker 5.3.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112478.jpg" />
 </div>
 
 
@@ -461,7 +514,7 @@ Valentina Studio Pro 13.9.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112430.jpg" />
 </div>
 
 
@@ -487,7 +540,7 @@ Scrutiny 12.8.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112396.jpg" />
 </div>
 
 
@@ -514,7 +567,7 @@ Integrity Pro 12.8.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112344.jpg" />
 </div>
 
 
@@ -540,7 +593,7 @@ Cookie 7.2.9 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112305.jpg" />
 </div>
 
 
@@ -567,7 +620,7 @@ iBarcoder 3.14.8 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112232.jpg" />
 </div>
 
 
@@ -593,7 +646,7 @@ LocalSend for Mac 1.14.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112217.jpg" />
 </div>
 
 
@@ -619,7 +672,7 @@ MarsEdit 5.1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112197.jpg" />
 </div>
 
 
@@ -630,60 +683,6 @@ MarsEdit 5.1.4 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4D82BB1A78FA6F215D01E38FA4E642194CA94EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486962   (90300) от 23.04.2012
-
-Bento 4.0.6 [Eng/Rus]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владельцы домашних Mac’ов смогут использовать Bento для упорядоченного хранения информации о содержимом личного фотоархива или фонотеки, планирования семейного бюджета, расчета затрат и решения многих других повседневных задач. Поддержка шаблонов и тем позволяет быстро создать базу данных, «заточенную» под ту или иную задачу, и выбрать подходящий вариант оформления. Интерфейс продукта позволяет выполнять большинство типовых действий с помошью мыши и не предполагает наличия у пользователей навыков программирования.
-
-Из стартового окна Bento пользователи смогут получить быстрый доступ к основным функциональным возможностям продукта (запустить видео-руководство, выполнить синхронизацию данных с календарем iCal или адресной книгой, создать новую библиотеку или открыть любую из доступных библиотек).Название программы: BentoЯзык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482474   (88514) от 14.04.2012
-
-Microsoft Office for Mac 2011 Service Pack 2 [RU/EN/DE]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Корпорация Майкрософт выпустила обновление для Microsoft Office для Mac 2011. Это обновление предоставляет последние исправления для Office для Mac 2011. Кроме того это обновление содержит улучшения стабильности и надежности.Название программы: Microsoft Office for Mac 2011 Service Pack 2Язык интерфейса: RU/EN/DE
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

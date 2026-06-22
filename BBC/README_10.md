@@ -1,3 +1,30 @@
+###  Публикация: 342856   (745124) от 04.05.2014
+
+BBC: Планеты / The Planets (1999) DVDRip (сезон 1, серии 1-8 из 8)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одиноки ли мы во вселенной? За последнее время люди многое узнали о планетах и звездах Солнечной системы. Известны их размеры, вес и состав, расстояние от каждой планеты до Солнца, а современные астрономические приборы, такие, как радиотелескопы и космические зонды, позволили сделать ряд гипотез о возникновении звезд.
+Сериал ВВС «Планеты» приглашает вас в невероятное (   Читать дальше...   )Производство: Великобритания / A+E Networks, British Broadcasting Corporation (BBC)Жанр: документальныйРежиссер: Дэвид МакНабПеревод: Профессиональный двухголосыйСубтитры: отсутствуютПродолжительность: 8 х ~ 00:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:662B0336A701A79FE59E0BD8B49337C70F45398F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020319   (743450) от 27.05.2016
 
 BBC: История возникновения лекарств / BBC: Pain, Pus and Poison (2013) SATRip
@@ -6,7 +33,7 @@ BBC: История возникновения лекарств / BBC: Pain, Pus
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743450.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743334.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ BBC: Тайны тёмной энергии / BBC: The Mysteries of Dark Energy 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743206.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ BBC: Антарктическая полярная станция / Ice Station 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742489.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ BBC: Чудеса живой природы / Nature's Great Events (2005) DVDRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742281.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ BBC: Мир природы - Горы тропических дождей  / Nat
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740912.jpg" />
 </div>
 
 
@@ -162,7 +189,7 @@ BBC: Живая Природа. Райские птицы / BBC: Natural World. 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740833.jpg" />
 </div>
 
 
@@ -188,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740309.jpg" />
 </div>
 
 
@@ -214,7 +241,7 @@ BBC: Horizon. Что было до Большого взрыва / What Happened
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740094.jpg" />
 </div>
 
 
@@ -242,7 +269,7 @@ BBC: Серенгети / Serengeti II (2021) WEB-DL [H.264/1080p] (сезон 2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738347.jpg" />
 </div>
 
 
@@ -268,7 +295,7 @@ BBC. Брачная Игра / The Mating Game (2021) WEB-DL [H.265/2160p] [4K, 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738341.jpg" />
 </div>
 
 
@@ -294,7 +321,7 @@ BBC: Да будет вода / There Will Be Water (2016) WEB-DLRip [H.264/1080
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732862.jpg" />
 </div>
 
 
@@ -321,7 +348,7 @@ BBC. Horizon. Гибель океана / The Death of the Oceans (2010) HDTVRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732555.jpg" />
 </div>
 
 
@@ -347,7 +374,7 @@ BBC: Удивительный мир крови / The Wonderful World of Blood w
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730670.jpg" />
 </div>
 
 
@@ -373,7 +400,7 @@ BBC. Зелёная планета / The Green Planet (2022) WEB-DL [H.264/1080p
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730376.jpg" />
 </div>
 
 
@@ -399,7 +426,7 @@ BBC: Живая Природа. Райские птицы / BBC: Natural World. 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729938.jpg" />
 </div>
 
 
@@ -425,7 +452,7 @@ BBC: Антарктическая полярная станция / Ice Station 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729750.jpg" />
 </div>
 
 
@@ -451,7 +478,7 @@ BBC: Как строилась Британия / How We Built Britain (2007) HD
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729513.jpg" />
 </div>
 
 
@@ -477,7 +504,7 @@ BBC: Цивилизации / Civilisations (2018) BDRemux [H.264/1080p] (сез
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729456.jpg" />
 </div>
 
 
@@ -503,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729224.jpg" />
 </div>
 
 
@@ -529,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728637.jpg" />
 </div>
 
 
@@ -555,7 +582,7 @@ BBC. Horizon. Что же такое один градус? / Horizon. What is O
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728590.jpg" />
 </div>
 
 
@@ -582,7 +609,7 @@ BBC. Барокко! От собора св.Петра до собора св.П
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728464.jpg" />
 </div>
 
 
@@ -608,7 +635,7 @@ BBC: Тайны вселенной: Великие ученые своими с�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727316.jpg" />
 </div>
 
 
@@ -634,7 +661,7 @@ BBC. Вся правда об акулах / Shark (2015) BDRip [H.264/1080p] (�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724462.jpg" />
 </div>
 
 
@@ -645,32 +672,6 @@ BBC. Вся правда об акулах / Shark (2015) BDRip [H.264/1080p] (�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF539D7705749B8FB105CD17F406D1EFEE58E450
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 709777   (723966) от 05.06.2016
-
-BBC. Horizon. Откуда берутся гении? / Horizon. What Makes a Genius? (2011) HDTVRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откуда берутся гении? Как Уильям Шекспир писал свои гениальные пьесы, которые спустя несколько веков все также тревожат наши сердца и умы? Как Исаак Ньютон стал человеком, который открыл закон всемирного тяготения? Чем отличался мозг Альберта Энштейна, Наполеона II, композитора Георга Генделя и многих других гениев? Родился ли Джон Леннон с талантом писать песни? (   Читать дальше...   )Жанр: Документальный, научно-популярныйПеревод: Двухголосый закадровый (профессиональный, Ред Медиа)Язык субтитров: английскийПродолжительность: 00:58:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEB63627133EA52E3E0575081E0F963140601C75
 ```
 
 https://mybot314.ru/tekegram_catalog/

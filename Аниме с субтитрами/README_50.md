@@ -1,3 +1,29 @@
+###  Публикация: 1286531   (710994) от 03.03.2019
+
+Lostorage Conflated WIXOSS | Беспамятство: Объединение WIXOSS [ТВ-4][2018, TV, 12 эп.] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старшеклассница Судзуко Хомура вернулась в свой родной город Икэбукуро, однако у неё не получалось поладить со своими одноклассницами. Поэтому она решает научиться играть в популярную карточную игру ВИКРОСС, которая на проверку оказывается не так проста, как кажется. Однако Судзуко выдержала испытание и прошла серию жестоких карточных дуэлей ВИКРОСС, где за поражение (   Читать дальше...   )Производство: студия J.C. StaffЖанр: приключенияРежиссер: Ёсида РисакоПеревод: CrunchyrollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D11752D35B160F6D5C598F82A231BBF169F4989
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286536   (710973) от 03.03.2019
 
 Caligula | Калигула [2018, TV, 12 эп.] BDrip 1080p raw
@@ -6,7 +32,7 @@ Caligula | Калигула [2018, TV, 12 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710973.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Sword Art Online Alternative: Gun Gale Online | Мастера меча онла
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710746.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Mirai no Mirai | Мирай из будущего [2018, Movie] BDrip 1080p 10-b
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710438.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Imawa no Kuni no Alice | Alice in Borderland | Элис в Пограничье 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709713.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Code Geass Hangyaku no Lelouch | Code Geass - Lelouch of the Rebellion | Код 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709316.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Demi-chan wa Kataritai | Interviews with Monster Girls | Деми хотят п�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709285.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Non Non Biyori Movie: Vacation | Деревенская глубинка: Кан
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708965.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Kakyuusei (1999) | Какюсэй [ТВ] [1999, TV, 14 из 14] DVDRip 480p 10-b
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708869.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ Teekyuu 3 | Теннис 3 [2013, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707590.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ Teekyuu 5 | Теннис 5 [2015, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707589.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ Teekyuu 6 | Теннис 6 [2015, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707587.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ Teekyuu 2 | Теннис 2 [2013, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707585.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ Usakame | Кролик и черепаха [2016, TV, 12 из 12 + 1 SP из 1] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707583.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ Teekyuu | Теннис [2012, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707579.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ Teekyuu 7 | Теннис 7 [2016, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707576.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ Fukigen na Mononokean | The Morose Mononokean | Обитель мрачного 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707572.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ Teekyuu 8 | Теннис 8 [2016, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707533.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ Teekyuu 9 | Теннис 9 [2017, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707522.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ Blend S | Садистская смесь [2017, TV, 12 из 12] BDRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707517.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ Iriya no Sora, UFO no Natsu | Sky of Iriya, Summer of UFO | Небо Ирии, �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707035.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ Project K: Missing Kings | К: Пропавшие короли [2014, Movie] BDr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706741.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ Shigatsu wa Kimi no Uso / Your Lie in April / Твоя апрельская ло
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706394.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ Soushin Shoujo Matoi | Matoi the Sacred Slayer | Матой: Изгоняюща�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706385.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ Short Peace: Buki yo Saraba | Gambo | Hi no Youjin | Tsukumo [2012-2013, MV, 4 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705829.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ Taiho Shichau zo: Second Season / You're Under Arrest Second Season / Вы ар�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704613.jpg" />
 </div>
 
 
@@ -655,32 +681,6 @@ Taiho Shichau zo: Second Season / You're Under Arrest Second Season / Вы ар�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D61E3003C77BED548BE297997938EC78F6F51FB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131779   (704473) от 07.05.2017
-
-Koutetsujou no Kabaneri | Kabaneri of the Iron Fortress | Кабанери из стальной крепости [2016, TV, 12] BDrip 1080p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704473.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире свирепствует эпидемия, превращающая людей в зомби. Болезнь дошла и до земли Хиномото, только начавшей познавать блага западной цивилизации. Эти блага стали единственной надеждой бедной островной страны, вмиг освоившей силу пара и покрывшейся сетью крепостей. По дорогам курсируют бронепоезда, защищенные от разгулявшихся живых трупов. Люди вроде бы отбились, (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Араки Тэцуро / Araki Tetsurou / 荒木哲郎Перевод: AleX_MytH / St_Ranger / JarlyЯзык озвучки: ЯпонскийПродолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E492E5BBA595BD07761F7BD106208DD3231E4473
 ```
 
 https://mybot314.ru/tekegram_catalog/

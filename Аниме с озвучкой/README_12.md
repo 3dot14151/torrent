@@ -1,3 +1,84 @@
+###  Публикация: 375943   (912175) от 24.03.2013
+
+Ao no Exorcist / Blue Exorcist / Синий Экзорцист [2011, TV, 25 из 25 +1Sp] BDRip Hi10p 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_912175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рин Окимура и его брат Юкио — сироты, росшие в храме священника и экзорциста Фудзимото. Рин — парень неплохой, но вспыльчивый, придурковатый и постоянно ввязывающийся в драки. Юкио же наоборот, умный, прилежный и мечтающий стать врачом (и лечение извечных ссадин брата ему в этом лишь помогает).
+Но в реальности разница между ними куда сильнее: на самом деле Рин — полудемон, и не просто полудемон, а сын самого Сатаны. И когда, вопреки предосторожностям Фудзимото, силы Рина прорезаются наружу, папенька находит (   Читать дальше...   )Жанр: приключения, мистикаРежиссер: Окамура ТэнсайОзвучка: AncordПродолжительность: 25 серий(+Special) по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC956C8E9CE6F18A4181754676B13F1CBD7DF209
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347123   (912020) от 18.03.2020
+
+Robotics;Notes | Записки о Робототехнике [2013, TV, 22 ep] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912020.jpg" />
+</div>
+
+
+###  Подробнее
+
+2019 год. Отклонение мировой линии 1,048596. Большое распространение получает устройство, ставшее известным в народе под названием «Покеком» и работающее на операционной системе «Фондроид». Это устройство — одно из лучших изобретений в области дополненной реальности, то есть оно позволяет дополнять реальный мир объектами виртуального мира.
+В то же время клуб робототехники (   Читать дальше...   )Производство: Production I.G, ЯпонияЖанр: Триллер, Фантастика, ПовседневностьРежиссер: Номура КадзуяОзвучка: Двухголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 22 Эпизода по 25 Мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99B814BE5A9121EECBE9CF8BB4204653F52A3CFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347124   (911768) от 18.03.2020
+
+Chaos;Child | Хаос; Дитя [2017, TV, 12 ep + 1 sp + 2 OVA] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал начинается в Сибуе, спустя шесть лет после окончания «Вершины хаоса». Район был восстановлен, однако землетрясение оставило свой серьезный психологический отпечаток на выживших.
+Среди них и наш главный герой — Такуру Миясиро, потерявший своих родителей во время этого хаоса. Обыденную жизнь Такуру резко прерывает серия из двух убийств при загадочных обстоятельствах, (   Читать дальше...   )Производство: Silver Link, ЯпонияЖанр: ТриллерРежиссер: Дзимбо МасатоОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 14 Эпизодов по 25 Мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:735E953F4CEA7FC2A5BF60BD3C5D4866A9586C4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347125   (911757) от 18.03.2020
 
 Chaos;Head | Хаос; Вершина [2008, TV, 13 ep] BDRip 1080p 10-bit raw+rus
@@ -6,7 +87,7 @@ Chaos;Head | Хаос; Вершина [2008, TV, 13 ep] BDRip 1080p 10-bit raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911757.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ Gekijouban Steins;Gate: Fuka Ryouiki no Deja vu | Врата Штейна: Зо�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911755.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Steins;Gate 0 | Врата Штейна 0 [2018, TV, 23 ep+1 sp] BDRip 1080p raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911753.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Isekai Cheat Magician | Маг-обманщик из другого мира [20
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909954.jpg" />
 </div>
 
 
@@ -113,7 +194,7 @@ Babylon | Вавилон [2019, TV, 12] WEBRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909953.jpg" />
 </div>
 
 
@@ -139,7 +220,7 @@ Soul Eater | Пожиратель Душ [2008, TV, 51 ep] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909952.jpg" />
 </div>
 
 
@@ -165,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908149.jpg" />
 </div>
 
 
@@ -191,7 +272,7 @@ Chaos Dragon: Sekiryuu Seneki / Драконий хаос: Война красн
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905431.jpg" />
 </div>
 
 
@@ -217,7 +298,7 @@ Hells Angels | Hells | Ангелы Ада [2008, Movie] BDRip 1080p 10-bit raw+
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904530.jpg" />
 </div>
 
 
@@ -244,7 +325,7 @@ Yuusha ni Narenakatta Ore wa Shibushibu Shuushoku o Ketsui Shimashita | Геро
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904529.jpg" />
 </div>
 
 
@@ -270,7 +351,7 @@ Shisha no Teikoku / The Empire of Corpses / Империя мертвых [2015,
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903488.jpg" />
 </div>
 
 
@@ -296,7 +377,7 @@ Aldnoah.Zero | Алдноа.Зеро [ТВ-2] [2015, TV, 12 из 12] BDRip 1080p
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903469.jpg" />
 </div>
 
 
@@ -322,7 +403,7 @@ Musaigen no Phantom World | Myriad Colors Phantom World | Бескрайний �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903467.jpg" />
 </div>
 
 
@@ -348,7 +429,7 @@ Aldnoah.Zero | Алдноа.Зеро [ТВ-1] [2014, TV, 12 из 12] BDRip 1080p
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903461.jpg" />
 </div>
 
 
@@ -374,7 +455,7 @@ Toaru Kagaku no Accelerator | A Certain Scientific Accelerator | Некий на
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902878.jpg" />
 </div>
 
 
@@ -400,7 +481,7 @@ Maoyuu Maou Yuusha | Герой при Заклятом Враге [2013, TV, 12
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902877.jpg" />
 </div>
 
 
@@ -426,7 +507,7 @@ Dakara Boku wa, H ga Dekinai | Говорю же, я не Извращенец! 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901134.jpg" />
 </div>
 
 
@@ -453,7 +534,7 @@ Guilty Crown | Корона Греха [2011, TV, 22 ep + OVA] BDRip 1080p 10-bi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897972.jpg" />
 </div>
 
 
@@ -480,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895406.jpg" />
 </div>
 
 
@@ -506,7 +587,7 @@ Jibaku Shounen Hanako-kun | Toilet-Bound Hanako-kun | Туалетный мал�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894542.jpg" />
 </div>
 
 
@@ -532,7 +613,7 @@ Final Fantasy VII: Advent Children | Последняя фантазия VII: Д
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893333.jpg" />
 </div>
 
 
@@ -558,7 +639,7 @@ Kono Subarashii Sekai ni Shukufuku wo! | Этот замечательный м�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893191.jpg" />
 </div>
 
 
@@ -584,7 +665,7 @@ Kono Subarashii Sekai ni Shukufuku wo! 2 | Этот замечательный �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893153.jpg" />
 </div>
 
 
@@ -597,86 +678,6 @@ TV2+OVA - Любительский (многоголосый) |Субтитры:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:446E5D60AE98F4D0A792E74A329BF8D011C676A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994019   (893095) от 06.03.2016
-
-Ou Dorobou Jing | King of Bandit Jing | Приключения Джинга | Джинг, король бандитов [2002, TV, 13 эп.] DVDRip 480p raw + rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир «Джинга», хоть и представляет собой фантазию, но в нём живут такие же люди, а значит, в нём есть теже человеческие пороки и радости, хотя ценности там “не человеческие”, что, по-моему, является очень интересной находкой авторов, с трудом представлялось, как можно украсть улыбку или солнце стырить на верёвочке, причём тырил он это всё, предупреждая хозяина, но (   Читать дальше...   )Производство: Studio DEENЖанр: приключения, комедияРежиссер: Ватанабэ ХиросиПеревод: KirillЯзык субтитров: Русский (отключаемый)Формат: mkvПродолжительность: 13 эп., 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8FA53ABB3B40A905A2C3DB3AC3D11E0F1833EDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994378   (890681) от 07.03.2016
-
-Gun x Sword | Gun Sword | Огнем и мечом [2005, TV, 26 эп.] DVDRip 480p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890681.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом пародийном сериале была предпринята попытка скрестить вестерн, меха и роуд-муви. Но хотя обыгрывание штампов занимает значительную часть сюжета, а в результате получилась захватывающая история про поиски и месть, спасение человечества и свободу выбора.
-
-Действие происходит на планете «Бесконечная иллюзия»: здесь нашлось место шумным высокотехнологичным городам (   Читать дальше...   )Производство: AIC A.S.T.A.Жанр: приключения, драма, фантастика, мехаРежиссер: Танигути ГороПеревод: karmadone (1-13); Ce$$eL & Dc.Sheff.yO (14-26)Язык субтитров: Русский (отключаемый)Формат: mkvПродолжительность: 26 эп., 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6151D874B2817F59965FDDF7350D316991A35464
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 789284   (890365) от 15.02.2015
-
-Hitsugi no Chaika / Chaika the Coffin Princess / Чайка и Гроб [2014, TV, 12 ep] BDRip Hi10p 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как уже бывало не раз, дрязги и предательство развалили некогда могучую, а ныне одряхлевшую империю. Алчные соседи, активно поучаствовавшие в развале, растащили территорию поверженного врага на куски, а группа убийц, толпой набросившихся на последнего императора, так же поступила с его телом. Кстати, убийцы теперь зовутся Восемь героев, ведь в мире меча и волшебства даже частица тела великого мага-правителя – могущественный талисман, дающий силу хозяину. После этого шесть победивших наций долго разбирались между (   Читать дальше...   )Жанр: приключения, фэнтези, романтикаРежиссер: Масуй СойтиПеревод: TimecraftФормат: MKV |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F48931BDEF43C1A9B8EB13290C2F50B33B96BBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

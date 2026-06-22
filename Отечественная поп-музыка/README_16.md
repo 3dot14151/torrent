@@ -1,3 +1,96 @@
+###  Публикация: 532710   (533994) от 09.08.2012
+
+MAXI Наши 2000-е (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hi-Fi - Седьмой Лепесток
+ 02. Чай Вдвоем - Он Не Разлюбит
+ 03. София Ротару - Белый Танец
+ 04. Света - А Может Да
+ 05. Иванушки International - Билетик В Кино
+ 06. Алла Пугачева - Исчезнет Грусть
+ 07. Авраам Руссо - Знаю
+ 08. Reflex - Трудно Говорить (Remix)
+ 09. Филип Киркоров И Маша Распутина - Мечта
+ 10. Жасмин - ДаЖанр: PopПродолжительность: 23:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F83B66B7C3E6DB668163CF9A832541C2A1041D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 860390   (526300) от 09.08.2017
+
+ВИА Весёлые ребята - Ретроспектива (2014) [MP3|320 кб/с]<Поп, ретро>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Легко влюбиться
+02. Летний дождь
+03. С полуслова, с полувзгляда
+04. Только я не верю(   Читать дальше...   )Жанр: Поп, ретроПродолжительность: 01:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23858B4E0EA65A871C97E698FA5A6BCA55C988A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927124   (524856) от 13.08.2015
+
+VA - Созвездие хитов - Романтические хиты Vol.1 (2004) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524856.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:48] 01. Adriano Celentano - IL Tempo Se Ne Va
+[05:49] 02. Алла Пугачева - Миллион алых роз
+[03:53] 03. Михаил Боярский - Все пройдет
+[03:04] 04. Вахтанг Кикабидзе - Мои года-мое богатство(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5550FB9BD87C3BF48284F60F6FDC4AD2986D7C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559864   (522646) от 27.06.2022
 
 Elvira T - Не люби (2022) [MP3|320 Kbps] <Pop>
@@ -6,7 +99,7 @@ Elvira T - Не люби (2022) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522646.jpg" />
 </div>
 
 
@@ -35,7 +128,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521211.jpg" />
 </div>
 
 
@@ -64,7 +157,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520405.jpg" />
 </div>
 
 
@@ -93,7 +186,7 @@ DJ Дождик - Почему же... (2006) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517106.jpg" />
 </div>
 
 
@@ -122,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517094.jpg" />
 </div>
 
 
@@ -151,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513733.jpg" />
 </div>
 
 
@@ -180,7 +273,7 @@ Lena Katina (Лена Катина) - Моно (2019) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505895.jpg" />
 </div>
 
 
@@ -209,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504206.jpg" />
 </div>
 
 
@@ -244,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504048.jpg" />
 </div>
 
 
@@ -273,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500825.jpg" />
 </div>
 
 
@@ -308,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496299.jpg" />
 </div>
 
 
@@ -337,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494816.jpg" />
 </div>
 
 
@@ -366,7 +459,7 @@ VA - Русская Коллекция. ХИТЫ 60-х Часть I, II (2009) [
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490858.jpg" />
 </div>
 
 
@@ -401,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490375.jpg" />
 </div>
 
 
@@ -430,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487454.jpg" />
 </div>
 
 
@@ -459,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486792.jpg" />
 </div>
 
 
@@ -486,6 +579,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 381895   (486632) от 04.09.2011
+
+Михаил Боярский - 27 альбомов (1979-2009) [MP3|192-320 kbps]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_486632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Слово.
+ 02 - Позвольте мне.
+ 03 - Крик.
+ 04 - Утро.1979-2009Жанр: PopПродолжительность: 29:15:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243893   (486096) от 30.08.2018
 
 Наталья Пушкова - Крапива-лебеда | Просто... (1995, 2001) [MP3|320 Kbps] <Pop, Pop-Folk>
@@ -494,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486096.jpg" />
 </div>
 
 
@@ -523,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481568.jpg" />
 </div>
 
 
@@ -552,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479918.jpg" />
 </div>
 
 
@@ -581,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479600.jpg" />
 </div>
 
 
@@ -616,7 +738,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479500.jpg" />
 </div>
 
 
@@ -645,7 +767,7 @@ Plazma / Плазма - 607 / Six Zero Seven (Extended) (2004) [MP3|320kbps]<Pop
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477871.jpg" />
 </div>
 
 
@@ -656,128 +778,6 @@ Plazma / Плазма - 607 / Six Zero Seven (Extended) (2004) [MP3|320kbps]<Pop
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406226   (477225) от 02.09.2020
-
-Родион Газманов - Что такое любовь? (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477225.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Что такое любовь?
-2. Полюса
-3. Гравитация
-4. Шанс(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9943E7D99D468C4F072734F62A40FD39FF630A84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057071   (477208) от 27.09.2016
-
-Олег Хромов - Дискография (1991 -1992) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477208.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Малина-малина (4:47)
-2 - Общий вагон (4:14)
-3 - Музыкальный фонтан (3:48)
-4 - Шальная девчонка (6:11)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:702E7A4FB7EC190A658ACB66B7A546E61FDC5E8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057404   (475009) от 28.09.2016
-
-VLNY - Грустные танцы (2016) EP [MP3|320 Kbps] <Indie Pop, Synth Pop, Dream Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вдох
-02. Танцы в темноте
-03. Линда
-04. Грустные танцы(   Читать дальше...   )Жанр: Indie Pop, Synth Pop, Dream PopПродолжительность: 00:19:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDEC28A393F53C7D25027196204083FCAB4652D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 386018   (472173) от 11.09.2011
-
-Наталья Сенчукова - Необходимость (2011) [MP3|320 kbps]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Ты так долго не звонил
-02.Необходимость
-03.Все шоколадно
-04.Сахарная вата
-05.Не отречься
-06.Не летная погода
-07.Перстенек
-08.Телефонная история
-09.Костя,ты не прав
-10.Все решено(   Читать дальше...   )2011Жанр: PopПродолжительность: 00:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A0902C665B937A74A9A9EF1F607E7D9E74651C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 946836   (833865) от 08.04.2016
+
+Osomatsu-san / Mr. Osomatsu / Возвращение Осомацу-куна [2015, TV, 25+SP] HDTVRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возвращение одного из главных аниме и манги 60-ых на экраны. Четвёртую стену сломали, отсылок напихали, любимых героев вернули. К большинству фирменных шуток вы привыкнете к концу первой серии, а персонажей с легкостью научитесь определять по голосам. Понравится тем, кто помнит и любит Дораэмона, Осомацу-куна и другую классику того времени.
+И не удивляйтесь чёрно-белой (   Читать дальше...   )Производство: Studio PierrotЖанр: комедияРежиссер: Фудзита ЁитиЯзык субтитров: Английский (отключаемый), Русский (отключаемый)Продолжительность: 25 серий по 25 минут+SP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2546AED5E01F86503B61A2B6CDE2B5B62662B35F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 310329   (831802) от 21.03.2011
 
 Ookami-san to Shichinin no Nakama-tachi / Волчица и семеро друзей [2010, TV, 12 серий] BDrip 1080p raw
@@ -6,7 +33,7 @@ Ookami-san to Shichinin no Nakama-tachi / Волчица и семеро дру�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831802.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ Bright: Samurai Soul | Яркость. Душа самурая [2021, Movie] WEB
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831746.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ Santa no Yama: Yousei no Mori | В горах у Санты: Эльфийски�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831574.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ Yukiwatari | Прогулки по снегу [1994, Movie] VHSRip 360p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831460.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ Little Polar Bear: Shirokuma-kun, Fune ni Noru | Белый медвежонок
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831454.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ D4 Princess / Drill for Princess / Тренировка для принцесс�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830487.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ Ikkitousen: Great Guardians / Школьные войны (сезон трети
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830486.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ Senki Zesshou Symphogear GX | Последняя Песня Боевых При�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830470.jpg" />
 </div>
 
 
@@ -216,7 +243,7 @@ Dog Days'' | Собачья Жизнь 3 [2015, TV, 12] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830347.jpg" />
 </div>
 
 
@@ -242,7 +269,7 @@ Fate/Kaleid Liner Prisma Illya Zwei Herz! | Судьба: Девочка-вол�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830277.jpg" />
 </div>
 
 
@@ -268,7 +295,7 @@ Fate/Stay Night TV Reproduction / Судьба: Ночь Схватки [2010, O
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830249.jpg" />
 </div>
 
 
@@ -296,7 +323,7 @@ Himouto! Umaru-chan | Beautiful Little Sister! Umaru-chan | Моя двулич�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830189.jpg" />
 </div>
 
 
@@ -322,7 +349,7 @@ Psycho-pass New Edit | Психо-паспорт: Новое издание [TB-
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829399.jpg" />
 </div>
 
 
@@ -348,7 +375,7 @@ Date a Live | Рандеву с жизнью [ТВ-1] [2013, TV, 12 эп. + 1 OV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828720.jpg" />
 </div>
 
 
@@ -374,7 +401,7 @@ Houkago no Pleiades | Wish Upon the Pleiades | Внеклассные плеяд
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828711.jpg" />
 </div>
 
 
@@ -400,7 +427,7 @@ Diabolik Lovers More, Blood / Дьявольские возлюбленные [T
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828089.jpg" />
 </div>
 
 
@@ -428,7 +455,7 @@ Souryo to Majiwaru Shikiyoku no Yoru ni... | Жаркая ночка с мона
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825975.jpg" />
 </div>
 
 
@@ -454,7 +481,7 @@ Kouryuu Densetsu Villgust | Armored Dragon Legend Villgust | Легендарн�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824687.jpg" />
 </div>
 
 
@@ -480,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823805.jpg" />
 </div>
 
 
@@ -508,7 +535,7 @@ Hadashi no Gen 2 | Barefoot Gen 2 | Босоногий Гэн 2 [1986, Movie] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822919.jpg" />
 </div>
 
 
@@ -534,7 +561,7 @@ Gekijouban Aoki Hagane no Arpeggio: Ars Nova - Cadenza | Мелодия воро
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822837.jpg" />
 </div>
 
 
@@ -560,7 +587,7 @@ Hadashi no Gen | Barefoot Gen | Босоногий Гэн [1983, Movie] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822815.jpg" />
 </div>
 
 
@@ -586,7 +613,7 @@ Schwarzesmarken / Чёрные метки [2016, TV, 12 эп.] HDTVRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822594.jpg" />
 </div>
 
 
@@ -614,7 +641,7 @@ Ajin | Полулюди [2016, TV, 13] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822592.jpg" />
 </div>
 
 
@@ -640,7 +667,7 @@ Kishibe Rohan wa Ugokanai | Так говорил Рохан Кисибэ [2017,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822366.jpg" />
 </div>
 
 
@@ -651,32 +678,6 @@ Kishibe Rohan wa Ugokanai | Так говорил Рохан Кисибэ [2017,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CFAE68A9B89B3DF09B019528B51F8FEDFD9435E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 655462   (821534) от 12.05.2013
-
-Mouryou Senki Madara / Мадара [1991, OVA, 2 ep.] DVDRip raw +eng
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рождённый в неизвестности, Мадара рос и и воспитывался как подмастерье кузнеца. Встреча с демоническим Моки раскрывает ему его судьбу и вынуждает его отправиться в путешествие. Мадара воюет ради мести. Его цель — победить собственного брата и свергнуть своего отца, тирана Мироку.Жанр: приключения, фэнтезиРежиссер: Морияма Юдзи / Moriyama YujiПеревод: GreymanЯзык озвучки: ЯпонскийЯзык субтитров: Русский; Английский (soft)Продолжительность: (2 эп.), 60 мин.
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

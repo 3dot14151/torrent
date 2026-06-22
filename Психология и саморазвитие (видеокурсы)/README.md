@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1876467   (1073276) от 
+
+Level One, Людмила Мартьянова | Профайлинг: как разбираться в людях (2022) WEB-DL, PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представьте, как удобно было бы предсказывать поведение других людей. Мы бы знали, как найти подход к нужным людям, убедить коллег в своей точке зрения или понять, на кого можно положиться в трудную минуту.Производство: Level OneЖанр: видеокурс, обучающий курс, психология общения, межличностные коммуникации, профайлингЯзык озвучки: русскийПродолжительность: 14:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF39BE8DE61264652E5449093ADC1FB980BDE5BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875858   (1072834) от 
 
 Medio Modo, Вячеслав Дубынин | Мозг и движения: почему управлять телом сложнее, чем мыслить (2026) WEB-DL [AD] [RU]
@@ -7,7 +33,7 @@ Medio Modo, Вячеслав Дубынин | Мозг и движения: по
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072834.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072425.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071832.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ Medio Modo, Алексей Решетун | Какие бывают убийст
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071408.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071349.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071348.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071106.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070950.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070910.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ Ronny Welzel | Energetische und magnetische hypnose, Part 1 / Энергетич
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070314.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069326.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ TutorPlace, Юлия Падалка | Лидерство (2026) WEB-DL [AD] [RU]
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067914.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ Magisteria, Александр Беликов | Введение в дедукт
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067893.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067119.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ TutorPlace, Алена Ефремова | Управление тревожно�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067084.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ TutorPlace, Мария Якушева | Базовый гардероб (2025) W
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066966.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ TutorPlace, Елизавета Супрунова | Выпечка от прос
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066936.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ Logic and Chaos, Константин Шпунт, Алекс Ланге | Лог
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064581.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ Level One, Виктор Горбатов | Логика через голово�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063322.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ TutorPlace, Наталья Баранова | Архетипы Юнга (2026) W
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063307.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ TutorPlace, Галина Шикина | Техники концентрации 
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063080.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062740.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061295.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061181.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061072.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B14BD76AED2CFB9863D7A0276FF4A930A1C88AF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859314   (1061070) от 15.03.2026
-
-Вячеслав Дубынин | Мозг: дофамин, движение и новизна (2022) PCRec [AD] [RU]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061070.jpg" />
-</div>
-
-
-###  Подробнее
-
-В лекции речь пойдёт о дофамине - ключевом нейромедиаторе нашей нервной системы.Жанр: видеоурок, лекция, нейрофизиология, психологияЯзык озвучки: русскийПродолжительность: 02:05:45Реклама: наложение на видео (плашка спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53767CB749127053F3375D093BE7D1E277B0D968
 ```
 
 https://mybot314.ru/tekegram_catalog/

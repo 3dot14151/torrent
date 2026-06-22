@@ -1,3 +1,261 @@
+###  Публикация: 1447855   (1031331) от 15.02.2021
+
+Go_A - Шум (2021) [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Шум (03:59)Жанр: Folk-RockПродолжительность: 00:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F5AED14D17650A0C57F87EF4C3E6817B3867C90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620541   (1031194) от 24.03.2023
+
+VA - Spring Break 2023: Country Hits (2023) [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luke Bryan - Country Girl (Shake It For Me)
+02. Little Big Town - Day Drinking
+03. Josh Ross - Tall Boys
+04. Florida Georgia Line - Sun Daze(   Читать дальше...   )Жанр: CountryПродолжительность: 03:20:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38D2E4E0CCF1A0EC8199C89C0CE07C90E2858629
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447777   (1031010) от 16.02.2021
+
+Sina Vodjani - Священный Будда (1998) Правительство Звука, 2002 [FLAC|Lossless|tracks + .cue] <World, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031010.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот альбом Sina Vodjani вдохновили духовные наставники Мата Амританандамай и Его Святейшество, 17 Кармапа. "Эти люди изменили мою жизнь, - говорит музыкант. - Своей музыкой я всегда пытался донести до людей свет, мир, надежду и благословение. Выпуская компакт-диски, я также могу оказывать материальную поддержку тем, кто в ней нуждается, делать пожертвования (   Читать дальше...   )01. Straight to the Heart (8:10)
+02. Om Mani Padme Hung (5:47)
+03. Milarepa (5:38)
+04. Dorje Chang (3:35)(   Читать дальше...   )Жанр: World, New AgeПродолжительность: 01:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F48B3DA59F5DEBE29265FDC46C3D4E41FFDA297C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448174   (1030910) от 17.02.2021
+
+The Harmony Group - Spanish Guitar Tribute to Abba (2007) Brisa Records, 2015 [FLAC|Lossless|WEB-DL|tracks] <Pop, Guitar, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chiquitita (Instrumental) (4:43)
+02. Gimme Gimme Gimme! (Instrumental) (4:06)
+03. Mamma Mia (Instrumental) (3:28)
+04. Super Trouper (Instrumental) (4:14)(   Читать дальше...   )Жанр: Pop, Guitar, InstrumentalПродолжительность: 01:22:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2CE098FFDF270F21BC8776589B1F2904C927DC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 314732   (1030601) от 18.02.2021
+
+Bernd Steidl - Paganiniana (2001) [FLAC|Lossless|image + .cue] <Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hrx 		        (00:25)
+02. Made in Germany 	(03:06)
+03. Apocalypse 		(04:51)
+04. Paganiniana 1 	(02:02)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 00:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09D78677D48A73194545776A0E48661E5DB5DC34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 288570   (1030598) от 18.02.2021
+
+VA - Original Musette (2000) [FLAC|Lossless|image + .cue] <Instrumental, Accordion>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le p'tit bal du samedi soir (02:39)
+02. Caroussel Java 		(02:51)
+03. Java Militaire 		(02:19)
+04. La Java Bleue 		(02:46)(   Читать дальше...   )Жанр: Instrumental, AccordionПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AE378FF2B6741713BA0298852237A6D79FC21DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 257665   (1030590) от 18.02.2021
+
+VA - Tango Planet – The Best Of Tango (1998) [FLAC|Lossless|image + .cue] <Tango>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Cumparasita - Julio Cortazon Orchestra 	(03:20)
+02. Adios Muchachos - Julio Cortazon Orchestra 	(01:39)
+03. El Choclo - Alle Gould Orchestra 		(02:18)
+04. Rio De La Plata - Armand Frydman & Deni Hekimian 		(02:20)(   Читать дальше...   )Жанр: TangoПродолжительность: 01:11:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E323A2A5ADFE709876BF18B6C60D282B3304D13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 354958   (1030589) от 18.02.2021
+
+Валерий Приказчиков - 2 альбома (2004, 2008) [FLAC|Lossless|image + .cue, tracks] <Surf, Beat>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дебют квартета «Электрон» состоялся в 1963 году в эфире популярной в то время радиостанции «Юность». Участники «Электрона» в разное время учились в музыкальных школах, В. Приказчиков и Е. Гусев занимались в музыкальном училище при Московской консерватории по классу гитары. Но настоящую школу они получили в художественной самодеятельности, в ансамбле гитаристов, которым (   Читать дальше...   )01. Электрон - Вернись 			  (1965) (02:33)
+02. Электрон - Мелодия из к-ф 'Бум' 	  (1965) (02:37)
+03. Электрон - Солнечные часы 		  (1966) (02:35)
+04. Электрон - Веселые туристы 		  (1966) (02:02)(   Читать дальше...   )Жанр: Surf, BeatПродолжительность: 01:18:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE961A8C2B3D5037F1CDA677636D71B9BC8C11B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 295442   (1030584) от 18.02.2021
+
+Оркестр Вермишель - 5 альбомов (1996 - 2010) [FLAC|Lossless|tracks + .cue, image + .cue] <Instrumental, Ethno-Art-Rock>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030584.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Оркестр Вермишель» («Vermicelli Orchestra») — российский инструментальный ансамбль, этно-арт-рок проект. Основатель коллектива и основной автор музыки — Сергей Щураков. Группа образована в 1996 году, состав группы менялся несколько раз и окончательно сформировался к 2000 году. В составе группы играли Илья Порхунов, Виталий Семенов, Наиль Кадыров, Всеволод Гаккель, (   Читать дальше...   )Список альбомов:
+1996 (2001) - Anabasis
+1999 - Византия
+2005 - Марк Аврелий(   Читать дальше...   )Жанр: Instrumental, Ethno-Art-RockПродолжительность: 03:19:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4ABBE4CD0A8CBE7AA946D345E2223AB9E9FE9F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 199315   (1030581) от 18.02.2021
 
 VA - La collection Latina Tango (2007) Compilation, Digipak [APE|Lossless|image + .cue] <Neo Tango>
@@ -6,7 +264,7 @@ VA - La collection Latina Tango (2007) Compilation, Digipak [APE|Lossless|image 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030581.jpg" />
 </div>
 
 
@@ -35,7 +293,7 @@ VA - Erotica (1977) [FLAC|Lossless] <Instrumental>
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030579.jpg" />
 </div>
 
 
@@ -64,7 +322,7 @@ VA - Cosmic Chill Lounge Vol.1-4 (2007-2010) [FLAC|Lossless|image + .cue] <Chill
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030578.jpg" />
 </div>
 
 
@@ -93,7 +351,7 @@ Harry Holland ‎– Superhits '85 Im Magic Accordion-Sound (1985) [FLAC|Lossles
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030576.jpg" />
 </div>
 
 
@@ -122,7 +380,7 @@ VA - Mystera IX (2002) [OGG Vorbis|480 Kbps] <Downtempo, Synth-pop, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030509.jpg" />
 </div>
 
 
@@ -151,7 +409,7 @@ VA - Mystera V (2000) [OGG Vorbis|480 Kbps] <Electronic, New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030508.jpg" />
 </div>
 
 
@@ -180,7 +438,7 @@ VA - The Best Of Mystera (2001) 2 CD [OGG Vorbis|480 Kbps] <New Age, Synth-pop, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030497.jpg" />
 </div>
 
 
@@ -209,7 +467,7 @@ Markus Klepper - Akkordeon Classics (2000) [FLAC|Lossless|image + .cue] <Classic
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030410.jpg" />
 </div>
 
 
@@ -238,7 +496,7 @@ Liliana Barrios - Troileana (2007) [FLAC|Lossless|image + .cue] <Tango>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030401.jpg" />
 </div>
 
 
@@ -267,7 +525,7 @@ VA – Exotic Guitars From The Clovis Vaults - Including "World Wide Hits" (2010
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030379.jpg" />
 </div>
 
 
@@ -296,7 +554,7 @@ VA – Ball Room Dance Collection - Tango (2001) Compilation [FLAC|Lossless|imag
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030368.jpg" />
 </div>
 
 
@@ -325,7 +583,7 @@ The Royal Philharmonic Orchestra - Hits Of Elton John - The Ballads (1991) [FLAC
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030366.jpg" />
 </div>
 
 
@@ -354,7 +612,7 @@ Stefan Nicolai - 2 альбома (1993, 2006) [FLAC|Lossless|tracks] <Instrumen
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030362.jpg" />
 </div>
 
 
@@ -383,7 +641,7 @@ Norrie Paramor and His Orchestra - 2 альбома (1998) Compilation [FLAC|Los
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030361.jpg" />
 </div>
 
 
@@ -412,7 +670,7 @@ VA - The Best Of Instrumental Music (2001) 2CD [FLAC|Lossless|image + .cue] <Ins
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030357.jpg" />
 </div>
 
 
@@ -441,7 +699,7 @@ VA - Romantic Guitar (1995) Compilation, Unofficial Release [FLAC|Lossless|image
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030354.jpg" />
 </div>
 
 
@@ -470,7 +728,7 @@ Harry Holland, Dieter Reith - Magic Accordion (1985) [FLAC|Lossless|image + .cue
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030343.jpg" />
 </div>
 
 
@@ -484,267 +742,6 @@ Harry Holland, Dieter Reith - Magic Accordion (1985) [FLAC|Lossless|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EF2489CAE6808876F5910DBCD114B4EADA0C2CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 255905   (1030342) от 19.02.2021
-
-Le Valedon - Sensuous Sax (1995, 1996) 2СD  [FLAC|Lossless|tracks + .cue] <Instrumental, Saxophone>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goin' In Circles 	      (04:16)
- 02. I Can't Make You Love Me (04:56)
- 03. Colour My World 	      (02:57)
- 04. Everytime You Go Away    (04:29)(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 01:33:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BF0CEBE30296C0841BD1FF79E5ED87054B7CC57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 162997   (1030334) от 19.02.2021
-
-Carlos Gardel - 40 Famous Tangos (2005) 2CD Remaster [FLAC|Lossless|tracks] <Tango>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Cuesta Abajo (03:13)
-02.Silencio (02:42)
-03.Caminito (02:29)
-04.Tomo Y Obligo (02:18)(   Читать дальше...   )Жанр: TangoПродолжительность: 01:46:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BDCC909F3D16A485D0B6BC69B2374DC61299551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 305074   (1030332) от 19.02.2021
-
-The Gino Marinello Orchestra - Romantic Instrumental. Collection (1987-1998) [FLAC|Lossless|image + .cue, tracks] <Easy Listening, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-
-1987 - Latenight Melodies
-1989 - Romantique De La France(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 06:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908E500D0EB0F7ADC5960DE865B2456C9A93B591
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622255   (1030276) от 28.03.2023
-
-Teufelstanz - In Omne Tempus (2015) [FLAC|Lossless|image + .cue] <Medieval Folk, Bagpipe>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. XIMUUS
-03. Стареющий Вагант
-04. A-Kenavo(   Читать дальше...   )Жанр: Medieval Folk, BagpipeПродолжительность: 01:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6BC302CC2AB8C280CF0FF94C09516CA259319FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622381   (1030267) от 28.03.2023
-
-Dark Diva - 3 Albums (2021-2023) [MP3|320 Kbps] <Trip Hop, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2021 - Отчуждение
-2022 - Плач покинутых детей
-2023 - ЙойкЖанр: Trip Hop, FolkПродолжительность: 3 CD, 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA6E2616D33623B4E6163F871D20DE7C08E77069
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447866   (1030211) от 20.02.2021
-
-Go_A - #Ідиназвук (2016) [FLAC|Lossless|WEB-DL|tracks] <Folk, IDM>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Веснянка (04:13)
-02. Вогнi (04:39)
-03. Сонце (05:39)
-04. Намалюй (03:38)(   Читать дальше...   )Жанр: Folk, IDMПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03105757EF06A5966184B0EE85A0C8F6F1E2ACC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 314199   (1030129) от 20.02.2021
-
-VA - Midnight Sax (1996) [FLAC|Lossless|tracks + .cue] <Instrumental, Saxophone>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John, Osbourne - Blue Eyes 		(03:28)
-02. Leiber, Stoller, King - Stand by Me (02:55)
-03. Masser, Creed - The Greatest Love of All (04:43)
-04. Bahler - She's Out of My Life 	(03:26)(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 01:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EE8DA498F3DB3871377FE1FE50411870A4BEDC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 252875   (1030118) от 20.02.2021
-
-Albert Assayag - Accordion Dances: Tango Waltz Paso (2009) [FLAC|Lossless|tracks + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tango Des Fleurs	    (03:46)
- 02.  Tango Star		    (02:25)
- 03.  Tango Magique	    (02:26)
- 04.  Valse Blonde	    (02:06)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:22:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1D67D23DE380ACEA81ABD742580C493D4A16AD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 209363   (1030107) от 20.02.2021
-
-Royal Philharmonic Orchestra - Legends (2004) 3CD Compilation [APE|Lossless|image + .cue] <Classical, Symphonic Rock>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Королевский филармонический оркестр (Royal Philharmonic Orchestra) — Британский симфонический оркестр с площадкой в Лондоне. Он широко гастролирует, иногда его называют «Национальным оркестром Великобритании» (англ. Britain's national orchestra).Royal Philharmonic Orchestra - Legends CD-I
-01. Angels (4:39)
-02. Babylon (4:08)
-03. With or Without You (5:14)(   Читать дальше...   )Жанр: Classical, Symphonic RockПродолжительность: 03:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61A89A2DAB43FC6C3C8CB9AA511E9D742C564548
 ```
 
 https://mybot314.ru/tekegram_catalog/

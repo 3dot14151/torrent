@@ -1,3 +1,58 @@
+###  Публикация: 1866387   (1066178) от 20.04.2026
+
+Unlucky Morpheus - Live 2017 (2017) DVDRip [AV1/1080p] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Unlucky Morpheus - Live 2017 (Shinjuku ReNY 16.08.2017)01. Opfer
+02. Wings
+03. Phantom Blood
+04. Violet(   Читать дальше...   )Производство: ЯпонияЖанр: Speed Metal, Power Metal, ProgressiveРежиссер: Постановка концерта: Лидер группы Shiren (Юкимура Хирано) и вокалист Kasumi.Участники: Fuki, Shiren, Jinya, Hiroyuki Ogawa, Fumiya, Jill, Ahemi, Dougen Kubota, Shacho.Продолжительность: 01:02:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:836179AD5DF3B46B1FAEB5A4C168AB3B527970FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864732   (1065113) от 
+
+Kanye West - Седая ночь (2026) WEBRip [H264/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канье Уэст (также известен как Йе) — американский рэпер, музыкальный продюсер, автор песен, звукорежиссёр и дизайнер. Исполняет хит Юрия Шатунова "Седая Ночь" на английском языке.Жанр: Pop, RapПродолжительность: 00:05:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41EC8F431FA958C15F0E644597D43729362F64CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1864799   (1065053) от 12.04.2026
 
 Князь Владимир (2025) HDTVRip [AV1/1080i]
@@ -6,7 +61,7 @@
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065053.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065051.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ Yena - Catch Catch (2026) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065034.jpg" />
 </div>
 
 
@@ -86,7 +141,7 @@ Hwasa - So Cute (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065027.jpg" />
 </div>
 
 
@@ -113,7 +168,7 @@ Kanye West - Белые розы (2026) WEBRip [H264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065011.jpg" />
 </div>
 
 
@@ -139,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065007.jpg" />
 </div>
 
 
@@ -165,7 +220,7 @@ Laibach - Musick (feat. Wiyaala) (2026) WEBRip [AV1/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065006.jpg" />
 </div>
 
 
@@ -191,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065003.jpg" />
 </div>
 
 
@@ -217,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064934.jpg" />
 </div>
 
 
@@ -243,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064310.jpg" />
 </div>
 
 
@@ -272,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063379.jpg" />
 </div>
 
 
@@ -301,7 +356,7 @@ Baby DONT Cry - Bittersweet (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062907.jpg" />
 </div>
 
 
@@ -328,7 +383,7 @@ Fuki & Unlucky Morpheus - Fuki Fes Live (2016) [AV1/1080p] [hand made upscale AI
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062458.jpg" />
 </div>
 
 
@@ -357,7 +412,7 @@ Odd Youth - Babyface (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062198.jpg" />
 </div>
 
 
@@ -384,7 +439,7 @@ Narin - No Savior (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062190.jpg" />
 </div>
 
 
@@ -411,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062019.jpg" />
 </div>
 
 
@@ -440,7 +495,7 @@ DJ Slon & Ангел-А (2007-2019) WEBRip [H.264/480p, 720p] (5 Клипов)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061855.jpg" />
 </div>
 
 
@@ -469,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061611.jpg" />
 </div>
 
 
@@ -498,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061457.jpg" />
 </div>
 
 
@@ -524,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061377.jpg" />
 </div>
 
 
@@ -550,7 +605,7 @@ MTV 80s Video Hits Collection (2026) SATRip [ex VH1] (parts 1-4)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061335.jpg" />
 </div>
 
 
@@ -578,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061226.jpg" />
 </div>
 
 
@@ -607,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061116.jpg" />
 </div>
 
 
@@ -636,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061000.jpg" />
 </div>
 
 
@@ -650,58 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68A5CE7518734A14881AC6D7CFA84B700E5E09F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859368   (1060999) от 15.03.2026
-
-Crematory - Born (2026) WEBRip [H.265/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкие легенды готик-метала Crematory выпустили свой новый сингл, который получил название "Born". Композиция стала одной из четырех новых песен из сборника "Greatest Hits", релиз которого состоится 15 мая 2026 года на лейбле Reigning Phoenix Music.Жанр: Gothic MetalПродолжительность: 00:04:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:332661DF1CFB71092F441776A0C77A4310114E95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859256   (1060810) от 15.03.2026
-
-Baby DONT Cry - Shapeshifter (2026) WEBRip [H.265/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Южная КореяЖанр: KpopПродолжительность: 00:03:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E103F3DEC6B79714CE2B55E6F5892FC089E0AC7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

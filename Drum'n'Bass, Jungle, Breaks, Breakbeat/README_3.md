@@ -6,7 +6,7 @@ VA - Mind Technologies Vol. 6 (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518513.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505117.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ VA - Retrospective Drum 'n' Bass: 10 Years (2018) [MP3|320 Kbps] <Drum'n'Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495896.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ VA - Mind Technologies Vol. 5 (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490189.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Nero - Between II Worlds (2015) [MP3|320 кб/с]<Drum & Bass, Dubstep, House>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489568.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ VA - Point Of Origin Vol. 1 (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488236.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Chase & Status - Tribe (2017) [MP3|320 Kbps] <Drum & Bass, Dubstep, Grime>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485800.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ K-Chaos - Let The Heat In (2017) LP [MP3|320 Kbps] <Drum & Bass, Breaks, Techno>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471879.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ The Living Tombstone - zero one (2020) [MP3|320 Kbps] <Electronic, Dubstep>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470598.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Eschaton - Carina (2017) EP [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469813.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Utah Jazz - Vintage (2010) [MP3|320 кб/с]<Drum & Bass / Liquid Funk>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469652.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ VA - Kosmos Gets Harder After Album (2016) EP [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459161.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Jiva & Fr.om - Saturnine (2017) LP [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459147.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Physical Illusion - Solitary (2017) EP [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459036.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Physical Illusion - Cosmonaut Training Center (2017) EP [MP3|320 Kbps] <Drum & B
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459033.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Asian Dub Foundation - Access Denied (2020) [MP3|320 Kbps] <Breakbeat, Electroni
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442547.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Kosheen - Independence (2012) [MP3|320 кб/с]<House / Techno / Dubstep / Drum 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_440664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_440664.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Odesza - A Moment Apart (2017) [MP3|320 Kbps] <Chillout, Downtempo, Future Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434426.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434226.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Bcee - Northpoint (2017) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432460.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ VA - Liquid Drum & Bass Essentials Vol 02 (2017) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428302.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - Welcome to the Jungle (Drum & Bass X Jungle) (2018) [MP3|320 Kbps] <Drum & 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377277.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - Nothing But... Liquid Drum & Bass Vol.2 (2016) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369254.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367941.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ A-Mase - Emotions & Dreams (2019) [MP3|320 Kbps] <Atmospheric Breaks, Progressiv
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366037.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ VA - Chilling On The Couch 02 LP (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363659.jpg" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 471292   (574956) от 25.07.2015
+
+Мумия: Трилогия / The Mummy: Trilogy (1999 / 2001 / 2002) [720p] HDDVDRip / BDRip
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_574956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: фэнтези,приключения,боевикРежиссер: Роб КоэнАктеры: Брендан Фрейзер, Джет Ли, Мария Белло, Джон Ханна, Мишель Йео, Люк Форд, Изабелла Люн, Энтони Вонг Чау-Санг, Расселл Вонг, Лайам КаннингэмПеревод: Русский дубляж, Авторский одноголосыйСубтитры: Русский, английскийПродолжительность: 01:51:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302585   (573900) от 20.05.2019
+
+Эмир Кустурица. Фильмография (1978 - 2016) DVDRip [H.264]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эми́р Кусту́рица (серб. Емир Кустурица, род. 24 ноября 1954, Сараево, ФНРЮ) — югославский и сербский кинорежиссёр и актёр кино, отмеченный наградами крупнейших кинофестивалей Европы, включая две «Золотые пальмовые ветви» Каннского кинофестиваля. Кавалер ордена Почётного легиона, иностранный член Академии наук и искусств Республики Сербской. Кроме работы (   Читать дальше...   )Производство: Сербия, Великобритания, СШАЖанр: Комедия, драмаРежиссер: Эмир КустурицаАктеры: В описании каждого фильмаСубтитры: отсутствуютПродолжительность: 14 фильмов
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8988D463DBE445B2D9CADAE9371990C175176C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 528853   (568253) от 30.07.2012
 
 Уж кто бы говорил.Трилогия/Look Who's Talking (1989/1990/1993) 3*DVD5
@@ -6,7 +58,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568253.jpg" />
 </div>
 
 
@@ -36,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565275.jpg" />
 </div>
 
 
@@ -64,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562284.jpg" />
 </div>
 
 
@@ -91,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550167.jpg" />
 </div>
 
 
@@ -117,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549964.jpg" />
 </div>
 
 
@@ -143,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549129.jpg" />
 </div>
 
 
@@ -169,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548090.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548051.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544841.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541892.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541651.jpg" />
 </div>
 
 
@@ -305,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535863.jpg" />
 </div>
 
 
@@ -324,6 +376,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 366585   (534477) от 24.07.2011
+
+Чужой против Хищника: Дилогия / Alien vs Predator: Dilogy (2004, 2007) [720p] BDRip
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_534477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Атакованный «Предалиеном», жутким гибридом Хищника и Чужого, корабль Хищников терпит крушение в лесах, окружающих маленький техасский городок. И пока на сигнал о помощи, посланный в момент падения, спешит подкрепление, Чужие успевают инфицировать половину населения города...Жанр: Ужасы, Фантастика, БоевикРежиссер: Колин Штраус, Грег ШтраусАктеры: Стивен Паскуале, Рейко Эйлсворт, Джон Ортиз, Джонни Льюис, Эриель Гейд, Кристен Хагер, Сэм Траммелл, Роберт Джой, Дэвид Петкау, Том Вудрафф мл., Йен Уайт, Чела Хорсдэл, Meshach Peters, Matthew A. Ward, Michal Suchanek, Дэвид Хорнсби, Крис Мартин, James Chutter, Phil Uhler, Kevin Haaland, Джина ХолденПеревод: Профессиональный (полное дублирование)Продолжительность: 01:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B338536328FD461137981CEA50B84A9FCD22D81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 367470   (532598) от 25.07.2011
 
 Ганнибал Лектер / The Hannibal Lecter (1986 -2007) BDRemux [H.264/1080p] [Пенталогия]
@@ -332,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532598.jpg" />
 </div>
 
 
@@ -358,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525200.jpg" />
 </div>
 
 
@@ -385,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520691.jpg" />
 </div>
 
 
@@ -412,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520644.jpg" />
 </div>
 
 
@@ -438,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519651.jpg" />
 </div>
 
 
@@ -464,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518944.jpg" />
 </div>
 
 
@@ -492,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514856.jpg" />
 </div>
 
 
@@ -518,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513139.jpg" />
 </div>
 
 
@@ -544,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512674.jpg" />
 </div>
 
 
@@ -570,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512058.jpg" />
 </div>
 
 
@@ -596,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512008.jpg" />
 </div>
 
 
@@ -607,85 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 367819   (511157) от 21.08.2012
-
-Комиики 1,2,3 (Забавные истории / Маленькие комедии ) / Le Comiche, Le nuove comiche (1990-1994) DVDRip
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Паоло Вилладжио и Ренато Поццетто, два популярных итальянских комика, в роли двух приятелей, настоящих "ходячих катастроф", превращают в кошмар все, к чему прикасаются. От начала и до самого конца комедия представляет собой непрерывную эксцентрику и клоунаду. Любители ударов по голове, задирания платья у невесты, падений и прочих несчастных случаев получат (   Читать дальше...   )Производство: ИталияЖанр: КомедияРежиссер: Нери ПарентиАктеры: Паоло Вилладжо, Ренато Поццетто, Луиджи Петруччи, Рамона Бадеску, Роберто Капорали, Серджо Ди Пинто, Соня Вивиани, Иза Галлинелли, Серджо Гибелло, Клаудия ДзаччариПеревод: Одноголосый закадровыйПродолжительность: 01:26:33 + 01:27:58 + 01:33:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:412FA1F41A8E3764C1AB8C11AF547B08BB4547C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402933   (509388) от 23.08.2020
-
-Кинематографическая вселенная Marvel / Marvel Cinematic Universe (2015 - 2019)  UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit] [Коллекция часть 2]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год выпуска: 2015, 2016, 2017, 2018, 2019
-«Кинематографическая вселенная Marvel» (англ. «Marvel Cinematic Universe»; сокр. КВМ) — вымышленная вселенная, американская медиафраншиза, серия фильмов о супергероях, основанная на комиксах компании Marvel и разработанная кинокомпанией Marvel Studios. Вселенная была создана путём соединения в общую сюжетную линию нескольких (   Читать дальше...   )Производство: США, Канада /  Paramount Pictures, Marvel Enterprises, Marvel StudiosЖанр: фантастика, боевик, фэнтези, комедия, приключения, триллерРежиссер: Джон Фавро, Луи Летерье, Кеннет Брана, Джо Джонстон, Шейн Блэк, Алан Тейлор, Джеймс Ганн, Пейтон Рид, Скотт Дерриксон, Джон Уоттс, Тайка Вайтити, Райан Куглер, Энтони Руссо, Джо Руссо, Пейтон Рид, Анна Боден, Райан ФлекАктеры: Эдвард Нортон, Лив Тайлер, Тим Рот, Уильям Хёрт, Тим Блэйк Нельсон, Тай Буррелл, Кристина Кэбот, Лу Ферриньо, Пол Соулз, Роберт Дауни мл., Крис Хемсворт, Марк Руффало, Крис Эванс, Скарлетт Йоханссон, Дон Чидл, Бенедикт Камбербэтч, Том Холланд, Чэдвик Боузмэн, Зои Салдана, Карен Гиллан, Том Хиддлстон, Крис Пратт, Пол Беттани, Элизабет Олсен, Себастиан Стэн, Идрис (   Читать дальше...   )Перевод: ДублированныйСубтитры: русские, английскиеПродолжительность: 01:57:06 / 02:27:42 / 01:54:59 / 02:15:46 / 02:13:28 / 02:10:31 / 02:14:35 / 02:29:21 / 01:58:07 / 02:03:42 / 03:01:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E8BD7B204446FD3D933538CF780B5952781549
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560822   (508870) от 09.07.2022
-
-Маньяк-полицейский / Maniac Cop (1988-1992) BDRip [H.265/1080p] [10-bit] [Трилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508870.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета — противостояние убийцы-полицейского, который вернулся из мёртвых, и полицейских города Нью-Йорка. Слоган картины: «Вы имеете право хранить молчание… навсегда!»Производство: США / Shapiro-Glickenhaus Entertainment, Fadd Enterprises, Medusa Pictures, Movie House Sales Company, The, Overseas FilmGroup, First Look Pictures, NEO Motion PicturesЖанр: ужасы, боевик, криминал, детективРежиссер: Уильям Лустиг, Джоэль СойзонАктеры: Том Аткинс, Брюс Кэмпбелл, Лаурен Лэндон, Ричард Раундтри, Роберт Дави, Клаудия Кристиан, Майкл Лернер, Роберт З’Дар, Кэйтлин Дюлэйни, Гретчен БекерПеревод: двухголосый профессиональный, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:25:08 / 01:27:22 / 01:24:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DD6FCBF39900698B0BA0463001E7DCED4AF4A1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

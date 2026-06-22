@@ -1,3 +1,32 @@
+###  Публикация: 1289449   (686631) от 16.03.2019
+
+Биатлон. Чемпионат Мира 2019. Эстерсунд (Швеция). Женщины. Гонка преследования 10 км (2019) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686631.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 марта 2019 года, воскресенье. 15:45 МСК
+53-й Чемпионат Мира по биатлону 2019 года. Эстерсунд (Швеция)
+Женщины. Гонка преследования 10 км (полная трансляция)
+Церемония награждения на "Медаль Плаза"(   Читать дальше...   )Телекомпания: Матч ТВЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89FF551E70A0C8A4FC0E0FB04C09803277006683
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289454   (686627) от 16.03.2019
 
 Биатлон. Чемпионат Мира 2019. Эстерсунд (Швеция). Мужчины. Гонка преследования 12,5 км (2019) WEB-DL [H.264/720p-LQ]
@@ -6,7 +35,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686627.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686584.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686461.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686408.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686377.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686358.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686277.jpg" />
 </div>
 
 
@@ -203,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686004.jpg" />
 </div>
 
 
@@ -230,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685336.jpg" />
 </div>
 
 
@@ -259,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685335.jpg" />
 </div>
 
 
@@ -288,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685334.jpg" />
 </div>
 
 
@@ -317,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685304.jpg" />
 </div>
 
 
@@ -346,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685298.jpg" />
 </div>
 
 
@@ -375,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685229.jpg" />
 </div>
 
 
@@ -404,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685227.jpg" />
 </div>
 
 
@@ -433,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684920.jpg" />
 </div>
 
 
@@ -459,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684407.jpg" />
 </div>
 
 
@@ -488,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684405.jpg" />
 </div>
 
 
@@ -517,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684401.jpg" />
 </div>
 
 
@@ -546,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684394.jpg" />
 </div>
 
 
@@ -572,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684284.jpg" />
 </div>
 
 
@@ -598,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684237.jpg" />
 </div>
 
 
@@ -627,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684236.jpg" />
 </div>
 
 
@@ -656,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684234.jpg" />
 </div>
 
 
@@ -685,7 +714,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684134.jpg" />
 </div>
 
 
@@ -699,35 +728,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C4FF98EE73B89B7A456DDD519387DE7021C55D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289784   (684131) от 17.03.2019
-
-Биатлон. Чемпионат Мира 2019. Эстерсунд (Швеция). Одиночная смешанная эстафета. Супермикст (2019) IPTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684131.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 марта 2019 года, четверг. 19:10 МСК
-53-й Чемпионат Мира по биатлону 2019 года. Эстерсунд (Швеция)
-Одиночная смешанная эстафета. Супермикст
-Стадион:  Национальная биатлонная Арена "Эстерсунд" (Эстерсунд, Швеция)Телекомпания: Eurosport 2 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 00:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F843CA4F6AAB9C641B280FCB3259C3BE44C21517
 ```
 
 https://mybot314.ru/tekegram_catalog/

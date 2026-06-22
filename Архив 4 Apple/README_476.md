@@ -1,3 +1,57 @@
+###  Публикация: 1082935   (275793) от 14.12.2016
+
+iMazing 2.1.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275793.jpg" />
+</div>
+
+
+###  Подробнее
+
+iMazing: отличная альтернатива iTunes
+Согласитесь, iTunes – отличный инструмент для работы с iДевайсами и медиафайлами, однако в нем чего-то не хватает. Разобраться, чего именно, решили разработчики софтины iMazing, которая не только может стать шикарной заменой «яблочному» сервису, но и неотъемлемым инструментом для полноценного функционирования вашего iPhone или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13 декабря 2016Разработчик: DigiDNAПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF68E3F9A5F783A50AA15AFA28B76BF74BE3DD23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233476   (275760) от 09.11.2019
+
+Dead Cells v.1.5 (2018) [Multi/Ru] [macOS Native game]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275760.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Roguelite»? «Метроидвания»? Все сразу!
+Вы выросли на играх в жанре «roguelike»? Стали свидетелем расцвета более простых «roguelite» и их еще более упрощенных версий? Что ж, тогда мы рады представить игру в новом жанре RogueVania, который сочетает в себе черты игры «roguelite» (Rogue Legacy, Binding of Isaac, Enter the Gugneon, Spelunky…) и старых добрых «Метроидваний» (   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 2018Разработчик: Motion TwinПоддерживаемая ОС: 10.9 +Жанр: ЭкшенЯзык интерфейса: русский, английский, французский +
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5858F230FF3E62192B6DC70C72FA137896BFE28B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337008   (275753) от 09.11.2019
 
 Adobe After Effects 2020 17.0.0.557 [Multi/Ru]
@@ -6,7 +60,7 @@ Adobe After Effects 2020 17.0.0.557 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275753.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ Coda 2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275684.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ GraphicConverter 10 v10.6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275227.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ RightFont 5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275223.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ Path Finder 8.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275208.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ Pixelmator 3.7.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275202.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ Pixelmator Pro 1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275151.jpg" />
 </div>
 
 
@@ -194,7 +248,7 @@ Smooze 1.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275024.jpg" />
 </div>
 
 
@@ -220,7 +274,7 @@ Music Tag Editor 2 v4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275021.jpg" />
 </div>
 
 
@@ -248,7 +302,7 @@ Athentech Perfectly Clear Complete 3.9.0.1694 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275020.jpg" />
 </div>
 
 
@@ -276,7 +330,7 @@ FilePane 1.10.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275018.jpg" />
 </div>
 
 
@@ -302,7 +356,7 @@ Duplicate Manager Pro 1.3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275016.jpg" />
 </div>
 
 
@@ -331,7 +385,7 @@ Wirecast Pro 13.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275012.jpg" />
 </div>
 
 
@@ -357,7 +411,7 @@ Elimisoft App Uninstaller 2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275005.jpg" />
 </div>
 
 
@@ -383,7 +437,7 @@ KCNcrew Pack 12-15-16 + Bonus [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274969.jpg" />
 </div>
 
 
@@ -411,7 +465,7 @@ Downie 2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274967.jpg" />
 </div>
 
 
@@ -439,7 +493,7 @@ Wondershare Recoverit 8 v8.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274905.jpg" />
 </div>
 
 
@@ -466,7 +520,7 @@ BetterTouchTool 3 v3.209 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274881.jpg" />
 </div>
 
 
@@ -492,7 +546,7 @@ iFinance 4.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274874.jpg" />
 </div>
 
 
@@ -518,7 +572,7 @@ Duplicate Photos Fixer Pro 2.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274873.jpg" />
 </div>
 
 
@@ -546,7 +600,7 @@ MWeb: Markdown writing,note taking,static blog Gen 2.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274864.jpg" />
 </div>
 
 
@@ -573,7 +627,7 @@ Adobe Zii 2020 - Universal Patcher v5.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274863.jpg" />
 </div>
 
 
@@ -599,7 +653,7 @@ Aiseesoft PDF Converter-PDF 3.3.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274852.jpg" />
 </div>
 
 
@@ -626,7 +680,7 @@ A Better Finder Rename 10.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274848.jpg" />
 </div>
 
 
@@ -638,61 +692,6 @@ A Better Finder Rename является лучшим решением для а�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31CB1F5E23A38137966E38323CFD7F43A8DDDBC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083426   (274840) от 15.12.2016
-
-Get Backup Pro 3.3.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Get Backup Pro - Универсальная утилита для выполнения резервного копирования, клонирования дисков/разделов и синхронизации файлов и папок. Get Backup Pro предлагает двустороннюю синхронизацию, архивирование только измененных файлов, восстановление отдельных файлов и папок, защиту архивов шифрованием.
-
-Возможности:
-- создание сжатых, зашифрованных бэкапов(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 декабря 2016Разработчик: BeLight Software Ltd.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91080D19E493CA0D64EB3804EDC783DF9C4ACAEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337461   (274815) от 10.11.2019
-
-TurboMosaic Pro 3.0.20 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274815.jpg" />
-</div>
-
-
-###  Подробнее
-
-TurboMosaic — программа, позволяющая легко и быстро строить превосходные фотомозаики из выбранных Вами изображений. Удивите друзей плакатом или постером, созданными своими руками из Ваших фотографийТип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: SilkenMermaid TechnologiesПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F674BEB9899ACFA6CF2DCC139D6D387BF742584
 ```
 
 https://mybot314.ru/tekegram_catalog/

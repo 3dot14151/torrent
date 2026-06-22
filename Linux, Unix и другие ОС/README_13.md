@@ -1,3 +1,168 @@
+###  Публикация: 906322   (641273) от 10.06.2015
+
+OpenVMS 7.3 [VAX] 1xCD
+
+>>Linux, Unix и другие ОС
+>>Другие ОС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641273.jpg" />
+</div>
+
+
+###  Подробнее
+
+OpenVMS (англ. Open Virtual Memory System, или просто VMS) — проприетарная серверная операционная система, разработанная во второй половине 1970-х годов компанией Digital Equipment Corporation для серии компьютеров VAX. Позже портирована на платформы DEC Alpha и Intel Itanium. В августе 2014 года выкуплена у компании Hewlett-Packard и полностью принадлежит компании (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:999DD737CDB71B5DCA4A07193065BFC0705CF6CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518624   (640723) от 04.07.2012
+
+Commodore OS Vision 1.0 Beta 9 [amd64] (2xDVD)
+
+>>Linux, Unix и другие ОС
+>>ОС *Nix (Alpha, Beta, RC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_640723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Commodore OS Vision - это 64-битный дистрибутив Linux на базе Linux Mint, который был создан специально для фанатов Commodore, использующих Commodore USA, например, Commodore 64, машины серии VIC, а также ожидающуюся в скором времени высокопроизводительную линейку Amiga. В Commodore OS Vision используется классический инфтерфейс GNOME 2, дополненный разнообразными эффектами рабочего стола Compiz,Emerald. Он включает в себя поддержку десятков игр различных жанров (FPS, Racing, Retro и т.д.), поддерживает браузеры Firefox и Chromium, а также LibreOffice, Scribus, GIMP, Blender, OpenShot и Cinellera, сложные инструменты разработки, работу со звуком с помощью Ardour или Audacity.
+
+login: admuser
+pass: admuser
+
+На втором диске игры.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226793   (640718) от 29.05.2018
+
+OpenBSD 6.3 [amd64, i386] 2xCD
+
+>>Linux, Unix и другие ОС
+>>ОС *BSD
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640718.jpg" />
+</div>
+
+
+###  Подробнее
+
+OpenBSD — свободная многоплатформенная операционная система, основанная на 4.4BSD — BSD-реализации UNIX-системы. Основным отличием OpenBSD от других свободных операционных систем, базирующихся на 4.4BSD (таких, как NetBSD, FreeBSD), является изначальная ориентированность проекта на создание наиболее безопасной, свободной и лицензионно чистой из существующих операционных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5C875FC23122823420AFE0F976FFA70AA3AA0E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 800931   (638278) от 30.06.2014
+
+Kubuntu 14.10 Utopic Unicorn Alpha I [i386, amd64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС *Nix (Alpha, Beta, RC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вышел первый  альфа релиз следующей версии Kubuntu 14.10 -  Utopic Unicorn. Kubuntu — производный от Ubuntu дистрибутив Linux. Kubuntu использует графическое окружение KDE вместо стандартного для Ubuntu Unity. Слоган проекта Kubuntu — «Дружественный компьютер». Дистрибутив разрабатывался и поддерживался компанией Canonical Ltd. до версии 12.04. Релиз 14.10 разрабатывается сообществом. Дистрибутив содержит все необходимые программы, которые Вам нужны или могут потребоваться: программу просмотра Интернет, офисный пакет для работы с текстами, электронными таблицами и презентациями, программы для общения в Интернет и много других
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01BC3492077048C4055AAF5597753ADFBA25CDE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 800930   (638179) от 30.06.2014
+
+Ubuntu Gnome 14.10 Utopic Unicorn Alpha I [i386, amd64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС *Nix (Alpha, Beta, RC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вышел первый Alpha релиз Ubuntu GNOME 14.10 (Utopic Unicorn), отличающийся от основного релиза DE, в котором вместо Unity используется традиционный Gnome. Комитет по техническому развитию Ubuntu (Ubuntu Tech Board) утвердил придание сборке Ubuntu с десктоп-окружением GNOME статуса официального ответвления от Ubuntu.
+
+Ubuntu — это разрабатываемая Canonical, основанная на ядре Linux операционная система, которая идеально подходит для использования на персональных компьютерах, ноутбуках и серверах. Она содержит все необходимые программы, которые вам нужны: просмотр Интернета, офисный пакет для работы с текстами, электронными таблицами и презентациями, программы для общения в Интернет и много других.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3685A753A54CEA007A2A1EE01031391804CB54F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908097   (635287) от 13.06.2015
+
+KaOS Linux 2015.06 (Arch + Plasma KDE 5) [x86-64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект KaOS представил июньский релиз новой стабильной версии своего Linux-дистрибутива с поддержкой UEFI и разметки GPT. Plasma/KDE desktop 5. Ядро Linux Kernel 4.0.5, glibc 2.21 и Binutils 2.25, libpng 1.6 series, systemd 220
+
+Дистрибутив KaOS основан на пакетном менеджере Arch Linux — pacman. Он использует в качестве основного рабочего окружения последнюю версию (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2257FCDBDC65C80E7C30E25318686FE08727A89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908314   (633336) от 14.06.2015
 
 Voyager Live X8  (легкий дистрибутив) [efi-amd64, amd64, i386] 3xDVD
@@ -6,7 +171,7 @@ Voyager Live X8  (легкий дистрибутив) [efi-amd64, amd64, i386] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633336.jpg" />
 </div>
 
 
@@ -34,7 +199,7 @@ Debian GNU/Linux 9.0 + nonfree Stretch [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633012.jpg" />
 </div>
 
 
@@ -60,7 +225,7 @@ Manjaro Linux 0.8.13 Ascella (Arch + несколько рабочих стол�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631881.jpg" />
 </div>
 
 
@@ -86,7 +251,7 @@ Manjaro Linux 0.8.13 Ascella (Arch + несколько рабочих стол�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631413.jpg" />
 </div>
 
 
@@ -112,7 +277,7 @@ Tor Browser 4.5.2 [анонимный доступ в сети] [х86, x64] (bun
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629745.jpg" />
 </div>
 
 
@@ -138,7 +303,7 @@ Tor Browser 5.0a2  (Alpha2)  [анонимный доступ в сети] [х86
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627505.jpg" />
 </div>
 
 
@@ -164,7 +329,7 @@ OpenMandriva Lx 3.02 PLASMA [i586, x86-64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625357.jpg" />
 </div>
 
 
@@ -190,7 +355,7 @@ Lubuntu 13.10 Saucy Alpha II (легкий дистрибутив) [i386, amd64]
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623952.jpg" />
 </div>
 
 
@@ -218,7 +383,7 @@ Kubuntu 13.10 Saucy Alpha II [i386, amd64]
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623829.jpg" />
 </div>
 
 
@@ -244,7 +409,7 @@ Antergos 17.6 [i586, x86_64]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623393.jpg" />
 </div>
 
 
@@ -270,7 +435,7 @@ Autodesk Maya 2017 Update 3 [x64] (rpm)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623056.jpg" />
 </div>
 
 
@@ -297,7 +462,7 @@ Parted Magic 2016.07.12 [i686/amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622285.jpg" />
 </div>
 
 
@@ -323,7 +488,7 @@ Ubuntu Gnome 13.10 Saucy Alpha II [i386, amd64]
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621707.jpg" />
 </div>
 
 
@@ -351,7 +516,7 @@ Sabayon 17.06 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621537.jpg" />
 </div>
 
 
@@ -377,7 +542,7 @@ Bricsys BricsCAD Platinum 17 17.1.20 Build 47302 [x64] (.tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621238.jpg" />
 </div>
 
 
@@ -403,7 +568,7 @@ OpenVPN Access Server 2.6.1 [En]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620083.jpg" />
 </div>
 
 
@@ -429,7 +594,7 @@ Mageia 5 Cauldron [i586] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619959.jpg" />
 </div>
 
 
@@ -455,7 +620,7 @@ Mageia 5 Cauldron [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619621.jpg" />
 </div>
 
 
@@ -481,7 +646,7 @@ Mageia 5 Cauldron Live [i586, x86-64] 4xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619615.jpg" />
 </div>
 
 
@@ -507,7 +672,7 @@ OpenVMS 8.4 [Alpha] 1xCD
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617439.jpg" />
 </div>
 
 
@@ -518,165 +683,6 @@ OpenVMS (англ. Open Virtual Memory System, или просто VMS) — пр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72B174624A4DBD417631436B36559F8311B8CCBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146247   (614324) от 29.06.2017
-
-Solus Linux (Budgie DE) 2017.04.18.0 [x86-64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Solus — независимый Linux дистрибутив, использующий Budgie в качестве окружения рабочего стола и eopkg для управления пакетами. Согласно описанию с сайта, Solus — операционная система для современных ПК, основной целью которой является удобство в использовании. Операционная система построена с нуля и не зависит ни от каких других дистрибутивов.
-
-Для управления пакетами (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:683995380AC57A54F3960247FAAFB3CF7E851358
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146632   (612649) от 30.06.2017
-
-Sabayon 17.07 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64] 8xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлен новый  релиз дистрибутива Sabayon Linux 17.07, сочетающего в себе удобство для конечного пользователя с гибкостью Gentoo. Sabayon Linux оформлен в виде Live-дистрибутива, снабжённого возможностью лёгкой установки на жёсткий диск. Sabayon использует модифицированную rolling-модель подготовки обновлений, которая делает выпуск обновлений более предсказуемым (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCEE567DE968E1F0530A4C874C9417E7F9237E8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146921   (612533) от 30.06.2017
-
-Maplesoft Maple 2017.1a Build 1238644 [x64] (run)
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канадская компания Maplesoft представила очередную версию своего флагманского пакета технических вычислений Maple. Одним из самых заметных отличий новой версии стала высочайшая скорость решения дифференциальных уравнений. Столь же значительные улучшение внесены и во все остальные математические функции, включая базовые операции и сложные алгоритмы обработки данных. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:357CDD9D9A67453A98EA06DAC098E79B8A53EE14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147111   (609183) от 02.07.2017
-
-Debian 9.0.0 [amd64] 2xDLBD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609183.jpg" />
-</div>
-
-
-###  Подробнее
-
-После 26 месяцев разработки Проект Debian с гордостью представляет новую стабильную версию 9 (кодовое имя Stretch), которая будет поддерживаться в течение следующих 5 лет благодаря совместной работе команды безопасности Debian и команды долгосрочной поддержки Debian.
-Firefox и Thunderbird возвращаются в Debian с выпуском Stretch и заменяют безбрендовые варианты Iceweasel (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBD1538FAC8C87A91529DEF63DF1FEB4A7670E18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147344   (609066) от 02.07.2017
-
-PCLinuxOS 2017.06.20 (LXDE, MATE, XFCE, KDE) [x86-64] (4xDVD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609066.jpg" />
-</div>
-
-
-###  Подробнее
-
-PCLinuxOS - один из самых популярных на Западе вариантов операционной системы Linux. Переведённый на 85 языков (в том числе русский), с богатой коллекцией программного обеспечения (с акцентом на домашнее и офисное применение), распространяемый в виде "живого" DVD-диска (может работать без инсталляции на винчестер) PCLinuxOS ко всему прочему окружён многочисленным (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24083F4DAD26D0E158FA073BFF77708FCB892A8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147739   (607191) от 03.07.2017
-
-Linux Mint 18.2 Sonya (KDE, XFCE, Mate, Cinnamon) [32bit] 4xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Linux Mint — дистрибутив операционной системы Linux, основанный на Ubuntu LTS. Цель дистрибутива заключается в предоставлении конечному пользователю максимально простой системы, которая будет готова к работе сразу после установки и не потребует загружать наиболее популярное программное обеспечение, в том числе и дополнительные кодеки для воспроизведения популярных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FA6A909E556051920E4C6FD4A5B296B8D623246
 ```
 
 https://mybot314.ru/tekegram_catalog/

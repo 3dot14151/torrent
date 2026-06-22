@@ -6,7 +6,7 @@ Digital Juice - Juice Drops 54 jaggedEDGE (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_307413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_307413.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Digital Juice - Canvases Heart (Files)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_307218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_307218.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Digital Juice - ToxicTraxx Volume 03: Cinematic Christmas (.djmusic)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_306859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_306859.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Digital Juice - Animated Canvases Collection 11: Clean Slates (Files)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_304515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_304515.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Digital Juice - Animated Revealers Collection 1: Dynamic Unveiling (.djrevealers
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_304366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_304366.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Digital Juice - Editor's Toolkit Pro Single 146: Tech TV (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_302308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_302308.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Digital Juice - Motion Design Elements: Trellis Blooms [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291013.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Digital Juce - Animated Canvases Collection 29: Prime Reflections (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290566.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Digital Juice - Juice Drops Collection One: clearNTENT (Full Files Tif-zip)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259424.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Digital Juice - Ready2Go: Collection 05 (AE) (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258186.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Digital Juice - RevealerBoxx - Volume 1 to 18 [MP4, MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256611.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Digital Juice - WipeBoxx - Volume 1 to 51 [MP4, MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252414.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Digital Juice - AnimationBoxx - Volume 1 to 22 [MP4]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250634.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Digital Juice - Ready2Go: Collection 11 (AE) (.djprojects)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248654.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Digital Juice - Animated Canvases Collection 12: Great Expectations (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_136346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_136346.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Digital Juice - CanvasBoxx - Volume 1 to 266 [JPG]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125897.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Digital Juice - TextureBoxx - Volume 1 to 74 [JPG]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125887.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Digital Juice - StageBoxx - Volume 1 to 70 [JPG]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125886.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Digital Juice - BrushBoxx - Volume 1 to 4 [MP4]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125822.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Digital Juice - Compositor's Toolkit Visual FX Library III [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17933.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Digital Juice - Canvases Collection 01: Stretched Bounds [JPG]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9586.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Digital Juice - Canvases Banners & Ribbons [JPG]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9583.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1311.jpg" />
 </div>
 
 

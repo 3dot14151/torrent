@@ -1,3 +1,81 @@
+###  Публикация: 596397   (131387) от 30.12.2012
+
+Тай-цзи: Герой / Tai Chi Hero (2012) [H.264] BDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Необыкновенно одарённого ребёнка Яна Лучаня все считают местным дурачком, тем не менее, мать Яна предлагает ему изучить боевые искусства. Подчинившись её желанию, Ян отправляется в отдалённую деревню Чэнь обучаться тайцзы. В этой легендарной деревне все практикуют тайцзы, и используют его в повседневной жизни. Однако жителям деревни запрещено раскрывать аспекты тайцзы чужакам, и Ян узнал об этом на собственном опыте.Жанр: Боевик, ПриключенияРежиссер: Стивен ФангАктеры: Стивен Фанг, Юань Сяочао, Тони Люн Ка Фай, Эдди Пэн, Шу Ци, Дэниэл Ву, Стэнли Фунг, Пьер Бурдо, Пол Филип Кларк, Кеони Эверингтон, Анджела БейбиПеревод: Двуголосый закадровый, любительскийПродолжительность: 01:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA21C44C6CF3B44201DCBC858AAA92C2002E1B96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682490   (131285) от 07.12.2023
+
+Контрабандистки / Milsu / Smugglers (2023) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131285.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре сюжетной линии оказываются две молодые женщины из провинциального городка, именуемом как Кунчхон, где близкие по духу подруги занимаются дайвингом с целью собирательства ценных морских водорослей. Консервная фабрика является единственным пристанищем, где местные жители могут заработать средств для существования, однако вскоре предприятие вынуждено закрыться. (   Читать дальше...   )Производство: Южная Корея / Next Entertainment World, Filmmaker R&KЖанр: Боевик, криминал, комедияРежиссер: Рю Сын-ванАктеры: Ким Хе-су, Ём Джон-а, Чо Ин-сон, Ко Мин-щи, Пак Чон-мин, Ким Джон-су, Ким Джэ-хва, Пак Кён-хе, Ли Джин-хи, Ли До-гунПеревод: Профессиональный многоголосый (Jaskier)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47C4610CCCED986A81C797D098F2F260C9E00F1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682722   (130957) от 08.12.2023
+
+Тяжёлый день / Saigo made Iku / Hard Days (2023) WEB-DLRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130957.jpg" />
+</div>
+
+
+###  Подробнее
+
+У полицейского Юдзи Кудо куча долгов, жена подала на развод, мать в критическом состоянии в больнице. Кажется, что хуже быть не может, однако мужчина становится виновником ДТП, из-за которого начинаются самые тяжёлые дни в его жизни.Производство: Япония / Nikkatsu, Robot Communications, Toho CompanyЖанр: Триллер, боевик, криминалРежиссер: Митихито ФудзииАктеры: Дзюнъити Окада, Го Аяно, Акира Эмото, Рёко Хиросуэ, Хаято Исомура, Рюсукэ Комакинэ, Марио Куроба, Куруми Симидзу, Тэтта Сугимото, Таро СуругаПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: Русские, английские (отдельно)Продолжительность: 01:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:544D954D974F771AEB2D641A2DBD6C52E6B562C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682674   (130946) от 08.12.2023
 
 Наследник / Потомок / Gwigongja (The Childe) (2023) BDRip [MVO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130946.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130608.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130550.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130482.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130178.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129295.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128739.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128723.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128416.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126719.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126650.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126058.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125574.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125069.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125013.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125007.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124932.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124829.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124697.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124575.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123438.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122952.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122942.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:735F53BC16B6C06282E71883286D0A298A504F3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691957   (122930) от 14.01.2024
-
-Убить императора / Ye yan / The Banquet (2006) BDRip [H.264] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122930.jpg" />
-</div>
-
-
-###  Подробнее
-
-В результате дворцового переворота убит императора Танг, и на престол воцаряется его жестокий брат. Молодая вдовствующая императрица принимает предложение стать женой нового правителя. Но у убитого императора есть взрослый сын, законный наследник, бывший возлюбленный своей прекрасной мачехи. Чтобы помочь юноше вернуть престол, императрица надевает маску преданной (   Читать дальше...   )Производство: Китай / Huayi Brothers, Media Asia Films Ltd.Жанр: фэнтези, драма, мелодрама, боевикРежиссер: Сяоган ФэнАктеры: Цзыи Чжан, Гэ Ю, Дэниэл Ву, Сюнь Чжоу, Цзину Ма, Сяомин Хуан, Чжоу Чжонгэ, Цзэн Цюшэн, Сюй Сиянь, Лю ЯньбиньПеревод: профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык озвучки: русский, китайскийСубтитры: русские, английскиеПродолжительность: 02:10:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4147753A723E1A2935FBA1A3F0BE1273D587753B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692415   (122662) от 16.01.2024
-
-Луна / Deo mun (2023) BDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122662.jpg" />
-</div>
-
-
-###  Подробнее
-
-2029 год. Пять лет назад Южная Корея пыталась отправить экспедицию на Луну, но ракета взорвалась вскоре после старта, поэтому на новую миссию возлагаются большие надежды. Уже выведенный на окололунную орбиту космический корабль попадает под действие сильного солнечного ветра, происходит утечка топлива и взрыв, в результате которого погибают два из трёх членов экипажа. (   Читать дальше...   )Производство: Корея Южная / BLAAD StudiosЖанр: Фантастика, драма, триллерРежиссер: Ким Ён-хваАктеры: Соль Гён-гу, То Гён-су, Ким Хи-э, Пак Пён-ын, Чо Хан-чхоль, Чхве Бён-мо, Хон Сын-хи, Чхве Джон-у, Брэд Литтл, Пол де ХэвиллэндПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: РусскийСубтитры: Русские, английские (отдельно)Продолжительность: 02:09:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CA91EED7BDD5180F227B94D4ACD442043A12E1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692306   (122611) от 16.01.2024
-
-Остров акул / Sha kou tao sheng / Escape of Shark (2021) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122611.jpg" />
-</div>
-
-
-###  Подробнее
-
-На небольшом курортном острове случается землетрясение, из-за чего выходит из строя вышка связи, и сообщение о надвигающемся цунами не доходит до отеля. Разрушительная волна приходит внезапно, затапливая всё вокруг. Несколько выживших пытаются выбраться, но снаружи их подстерегает гигантская акула-людоед.Производство: Китай / Tmeng PicturesЖанр: ужасы, боевикРежиссер: Чжу ЦзянАктеры: Юй Болинь, Чжан Синьюань, Ракель Сюй, Чжан Цзывэнь, Лю Цяньюй, Марина Малайя, Ван Сяолун, Yang Yu-BinПеревод: Дублированный (Кипарис)Язык озвучки: русский, китайскийСубтитры: отсутствуютПродолжительность: 01:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2684C3DF18BD70A603C7687A3B610CE3AB8EDC34
 ```
 
 https://mybot314.ru/tekegram_catalog/

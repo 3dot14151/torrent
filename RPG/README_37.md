@@ -1,3 +1,107 @@
+###  Публикация: 1836699   (254199) от 12.11.2025
+
+Slayer: The Demon Haunted World (2025) [Ru/Multi] (Build 20761750) Repack Let'sРlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Slayer: The Demon Haunted World - это стратегическая экшен-игра с тщательно проработанной боевой системой и мрачным повествованием. Казалось, что эпоха пепла и пыли осталась позади. Но тени вновь пробудились, и пророчество начало сбываться. Под лунным светом родилась беловолосая девочка - Элия. Только она способна бросить вызов павшей звезде. Пробудившись на вершине (   Читать дальше...   )Тип издания: RepackРазработчик: PLAY MephistowaltzЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5DE487027389B2AD25FEC7CEEDE7A1D0270FA7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498115   (253980) от 18.05.2012
+
+Magic Candle Антология [En] (RePack) 1989-1993 | Pilotus
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253980.jpg" />
+</div>
+
+
+###  Подробнее
+
+События игры The Magic Candle (Волшебная Свеча) развиваются в сказочной стране Deruvia. Великое зло в форме демона по имени Dreax, удерживается в Волшебной свече силой колдовства 44 волшебников. Однако свеча догорает, а зло готовится к освобождению из своего заточения и уже планирует обрушиться всей своей мощью на жителей Deruvia. В такой ответственный момент оказывается, что все волшебники пропали без вести и в Deruvia некому противостоять Дриксу. С этого момента Вы вступаете в игру.Тип издания: RePackЖанр: Ролевая играЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468511   (252787) от 13.05.2012
+
+Diablo III/3 [Multi9] (L) 2012
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третья часть знаменитой серии action/RPG Diablo. Сюжет разворачивается спустя 20 лет после событий Diablo 2. Нам предложено снова сразиться с адовыми созданиями в мире Санктуарии, выступив в роли персонажа одного из пяти классов, среди которых есть и новенький — Знахарь (Witch Doctor). Как и положено, носиться по подземельям и крошить гостей из Преисподней поможет огромный багаж всяческих умений и интересных вещичек. Для любителей онлайн-баталий также припасены приятные сюрпризы: например, совместное прохождение игры с уникальными квестами.Тип издания: ЛицензияРазработчик: Blizzard EntertainmentЖанр: Action-RPG, Hack and slashЯзык озвучки: Английский, Португальский,  Французский, Немецкий, Испанский, Итальянский, Польский, Корейский, Китайский.Язык интерфейса: Английский, Португальский,  Французский, Немецкий, Испанский, Итальянский, Польский, Корейский, Китайский.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836409   (252531) от 10.11.2025
+
+Liuyin's World (2025) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Колесо Сансары этого мира было искажено загрязнённой духовной энергией, превратившись в ИИ. Развитие технологий ИИ позволило преодолеть пределы жизни, объединив плоть, душу и механику в новую форму жизни. Однако выжившие люди и демоны не принимают этот метод. Главный герой исследует мир, где сосуществуют люди, механические ИИ и монстры, раскрывая конфликты между (   Читать дальше...   )Тип издания: RepackРазработчик: kingnagameЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, КитайскийЯзык субтитров: Русский, Английский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Китайский (упрощенный) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DE213C4DDA65F538E0931440CE9B660041EFA73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836170   (252483) от 09.11.2025
 
 Battle Suit Aces (2025) [Multi] (Build 20305022) Scene Tenoke
@@ -6,7 +110,7 @@ Battle Suit Aces (2025) [Multi] (Build 20305022) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252483.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Ys vs Trails in the Sky: Alternative Saga (2025) [Multi] (Build 20347223) Scene 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252482.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Ys vs Trails in the Sky: Alternative Saga (2025) [Multi] (1.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252481.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Atelier Resleriana: The Red Alchemist & (and) the White Guardian (2025) [Multi] 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252471.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ HYKE: Northern Light(s) (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252288.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Mortal Sin (2023) [Ru/Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252274.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Sunless Sea (2015) [En] (2.2.11.3212/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252252.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ The Witcher 2: Assassins of Kings / Ведьмак 2: Убийцы короле�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252171.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Greedventory (2023) [Multi] (1.0.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252123.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ The Lord of the Rings: Gollum (2023) [Ru/Multi] (0.2.51064/dlc) Repack DjDI [Pre
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252004.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Star Wars: Knights of the Old Republic 2 (II): The Sith Lords (2005) [Multi] (1.
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251879.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ The Lord of the Rings: Gollum (2023) [Ru/Multi] (0.2.51064) Scene FAIRLIGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251836.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Rise Eterna II (2) (2025) [Multi] (20251003) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251789.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ DELTARUNE (2025) [Ru/Multi] (1.04) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251701.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (2.1.1) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250517.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Those Who Rule (2025) [En] (1.4.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250339.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Citizen Sleeper 2 Starward Vector (2025) [Ru/Multi] (1.2.21/dlc) Repack Let'sРl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248545.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Out There: Oceans of Time (2022) [Ru/Multi] (1.2.1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247446.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ God of War (2022) [Ru/Multi] (1.0.13) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246956.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ The Valiant (2022) [Ru/Multi] (1.5c) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246737.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Challenge of the Five Realms (RePack) [En] 1992 | Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_246580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_246580.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ The Swindle (2015) [En] (1.061) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243869.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ The Swindle – это игра в стиле стимпанк, в которо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAE9BE56EA1517DD714C29536145FA88CBFA20D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549240   (237068) от 06.05.2022
-
-Eldest Souls (2021) [Ru/Multi] (1.1.23f2-master) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люди веками служили древним богам, но однажды взбунтовались и заточили эти огромные воплощения бедствий в священных стенах Цитадели. Но там пробудилось зло. Чтобы напоследок отомстить всему миру, древние боги обрушили на него великий Мор. Человечество вымирает, но последний луч надежды ещё не угас. Тяжкая ноша выпала на долю воина-одиночки. В его руках двуручный (   Читать дальше...   )Тип издания: LicenseРазработчик: Fallen Flag StudioЖанр: RPG, Action, SoulslikeЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB7BD5DFAFFC53AF0E29F9AE6B1273671E8BA7D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577076   (234642) от 17.09.2022
-
-Legend of Grimrock 2 (2014) [En] (2.2.4) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Legend of Grimrock – подземная бродилка с классическими традициями и современным исполнением. Корабль, перевозящий четырех узников, терпит крушение вблизи одинокого острова Некс. На острове полным-полно древних развалин и таинственных капищ; кроме того, существует разветвленная сеть подземных ходов и шахт. Чтобы выбраться отсюда живыми, пленникам придется пройти (   Читать дальше...   )Тип издания: LicenseРазработчик: Almost HumanЖанр: Ролевая игра, Приключение, ФэнтeзиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02EAC962D6A2CA3B895FA197F7A424DB7FFD14FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552870   (233451) от 23.05.2022
-
-Birthright: The Gorgon's Alliance / Право на Жизнь: Союз Горгон (1997) [Ru] (1.0) Unofficial
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальное сочетание традиционных RPG, Adventure и стратегии в одной игре! Короли не выбираются людьми, но их выбирает провидение. Станьте по праву рождения во главе армии могучих героев и магов, и ,с помощью оружия и переговоров , подкупа и лести, изгоните силы тьмы и верните себе то, что принадлежит вам по праву рождения - вашу страну.Тип издания: UnofficialРазработчик: Synergistic SoftwareЖанр: Strategy, Adventure, RPG, 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D96A151A24C218B9162C80F9F7C083DAF6FC1EA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552875   (233314) от 24.05.2022
-
-Birthright: The Gorgon's Alliance / Страна Героев (1997) [Ru] (1.3) Unofficial
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальное сочетание традиционных RPG, Adventure и стратегии в одной игре! Короли не выбираются людьми, но их выбирает провидение. Станьте по праву рождения во главе армии могучих героев и магов, и ,с помощью оружия и переговоров , подкупа и лести, изгоните силы тьмы и верните себе то, что принадлежит вам по праву рождения - вашу страну.Тип издания: UnofficialРазработчик: Synergistic SoftwareЖанр: Strategy, Adventure, RPG, 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BD531019C344172234D7B8F390F0B4881D58935
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1517231   (163674) от 14.12.2021
+
+JPEG SILKYPIX Photography 10 v10.2.17.0 [EN]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163674.jpg" />
+</div>
+
+
+###  Подробнее
+
+SILKYPIX JPEG Photography  - лучший инструмент для того, чтобы сделать красивую фотографию для блогов и SNS, а также распечатать и завершить рутинную работу. В SILKYPIX JPEG Photography, кнопка «Автоматическая настройка», которая автоматически выполняет коррекцию, подходящую для изображения, «индивидуальную настройку подсветки / тени» для выделенной и теневой части (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2021Разработчик: © 2021 Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95D4001959A5175D1D11C70E67D6644EFEC9EC6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517239   (163658) от 14.12.2021
+
+WidsMob Denoise 2.18 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163658.jpg" />
+</div>
+
+
+###  Подробнее
+
+WidsMob Denoise простое приложение снижения шума для смартфонов и видеокамер с различными форматами фотографий. Это идеальное решение для удаления шума для портретных, а также пейзажных фотографий. Независимо от того, снимаете ли в помещении, в условиях низкой освещенности, прикоснитесь к старым изображениям или портрету, вы можете легко получить желаемые эффекты.Тип издания: macOS SoftwareРелиз состоялся: 07.12.2021Разработчик: WidsMob Technology Co., LimitedПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14E45307DB7A8E561AB9015C083E8F41A5311F3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346566   (163646) от 19.12.2019
+
+Audirvana 3.5.29 [Multi]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audirvana - мощный аудиофильский плеер с широчайшими возможностями. Плеер понимает, пожалуй, все существующие форматы аудио: AIFF, WAVE, AAC, MP3, FLAC, Monkey Audio APE, WavPack, Apple Lossless, DSD (DSDIFF включая DST, DSF, и SACD ISO). При этом для поддерживаемых ЦАПов сигнал выводится прямо в DSD, для остальных будет использоваться высококачественное преобразование (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: AudirvanaПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский, Упрощенный Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A07EEC0E5B209E3B5462C5C4967968BCBF5580C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517279   (163615) от 14.12.2021
+
+Donemax Data Recovery 1.3 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Donemax Data Recovery для Mac предоставляет простой способ восстановить данные на Mac. Интерфейс очень прост для пользователей, и вы можете восстановить данные всего за 3 шага с помощью программного обеспечения.Тип издания: macOS SoftwareРелиз состоялся: 10.12.2021Разработчик: © 2021 DonemaxПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F10EC9AEBEDB64133F894B880692D98C99BA3066
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517233   (163609) от 14.12.2021
 
 Tayasui Sketches Pro 6.4 [Multi/Ru]
@@ -6,7 +110,7 @@ Tayasui Sketches Pro 6.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163609.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ Blocs 4.4.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163592.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ Typinator 9 v.9.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163518.jpg" />
 </div>
 
 
@@ -89,7 +193,7 @@ Surge for Mac 5.4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163479.jpg" />
 </div>
 
 
@@ -115,7 +219,7 @@ HD Video Converter Movavi 22.1.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163471.jpg" />
 </div>
 
 
@@ -141,7 +245,7 @@ Paste 2.5.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163439.jpg" />
 </div>
 
 
@@ -167,7 +271,7 @@ BetterZip 5 v5.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163371.jpg" />
 </div>
 
 
@@ -194,7 +298,7 @@ iTrash 5 v5.3.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163288.jpg" />
 </div>
 
 
@@ -220,7 +324,7 @@ Hookshot 1.23.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163047.jpg" />
 </div>
 
 
@@ -246,7 +350,7 @@ Art Files 3 v3.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163004.jpg" />
 </div>
 
 
@@ -273,7 +377,7 @@ Noise Machine 1.18 fix [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162994.jpg" />
 </div>
 
 
@@ -299,7 +403,7 @@ PDF Reader Pro Edition 2.8.5.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162804.jpg" />
 </div>
 
 
@@ -325,7 +429,7 @@ Synalyze It! Pro 1.32 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162728.jpg" />
 </div>
 
 
@@ -353,7 +457,7 @@ Awaken 6.4.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162646.jpg" />
 </div>
 
 
@@ -379,7 +483,7 @@ Tidabie Tidal Music Converter 1.4.4 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162625.jpg" />
 </div>
 
 
@@ -405,7 +509,7 @@ Timer RH PRO  2.13.0 [En/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162480.jpg" />
 </div>
 
 
@@ -431,7 +535,7 @@ Swift Publisher 5 v.5.6.9 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162463.jpg" />
 </div>
 
 
@@ -457,7 +561,7 @@ Dropzone 3 v3.8.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162443.jpg" />
 </div>
 
 
@@ -484,7 +588,7 @@ PhotosBlender 2.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162408.jpg" />
 </div>
 
 
@@ -511,7 +615,7 @@ PatterNodes 2 v2.4.11 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162401.jpg" />
 </div>
 
 
@@ -538,7 +642,7 @@ Flyingbee PDF to PowerPoint 5.3.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162399.jpg" />
 </div>
 
 
@@ -564,7 +668,7 @@ Base64 Coder 2.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162371.jpg" />
 </div>
 
 
@@ -575,112 +679,6 @@ Base64 Coder - это быстрый и простой конвертер фай
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19A23A3591C469164F15CEE2D5E8B829192309CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517624   (162350) от 16.12.2021
-
-Super Photo Upscaler 2.0.0 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Super Photo Upscaler, основанный на технологии масштабирования изображений AI, представляет собой средство улучшения изображения, которое интеллектуально увеличивает фотографии с низкого разрешения до высокого, сохраняя при этом чистые края без потери качества.
-Новейшая версия Super Photo Upscaler включает в себя Waifu2x «Deep Convolutional Neural Networks», которая (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.04.2021Разработчик: © 2002 - 2021, Effectmatrix Ltd. Co.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC8909BF6A3AD208C0E65EE61A0A2417F1351E3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517729   (162278) от 16.12.2021
-
-VideoProc Vlogger for Mac 1.2 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162278.jpg" />
-</div>
-
-
-###  Подробнее
-
-VideoProc Vlogger - это интуитивно понятное и функциональное программное обеспечение для редактирования видео для всех. Создавайте кинематографические видеоролики для повседневного творчества, особых моментов или праздников.Тип издания: macOS SoftwareРелиз состоялся: 06.12.2021Разработчик: © 2021 Digiarty Software, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1E75F44016EE3EEB56B1BDCDBF31F73328F4EDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517750   (162187) от 16.12.2021
-
-Combo Cleaner Premium 1.3.7 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Combo Cleaner  самый простой способ очистки вашего Mac от нежелательных файлов, вирусов и вредоносных программ. Наш механизм защиты от вредоносных программ сертифицирован лабораториями OPSWAT. Combo Cleaner очистит ваш диск от нежелательных файлов и устранит вредоносное ПО (включая рекламное ПО и потенциально нежелательные приложения, вызывающие нежелательные объявления (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.10.2021Разработчик: © 2021 UAB RCS LTПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FC358A45FA2991D1C933038C8CBAEB565607506
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598675   (162143) от 20.12.2022
-
-VSDX Annotator for Mac 1.16.1 U2B [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162143.jpg" />
-</div>
-
-
-###  Подробнее
-
-VSDX Annotator — это инструмент, предназначенный для работы с рисунками MS Visio на Mac. Он предоставляет широкий спектр возможностей для аннотирования, а также позволяет обмениваться визуальными документами в многоплатформенной среде.
-Просмотр, редактирование и преобразование файлов Visio® на Mac. Средство просмотра Visio® визуализирует все содержимое чертежей с (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2022Разработчик: © 2022 NektonyПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B64162EE61CE06FB91D30D822AC3E807FB47E241
 ```
 
 https://mybot314.ru/tekegram_catalog/

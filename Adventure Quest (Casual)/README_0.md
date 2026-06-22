@@ -1,3 +1,81 @@
+###  Публикация: 1845000   (1050369) от 29.12.2025
+
+Happy Holidays 5: Christmas Never Ends / Счастливые праздники 5: Рождество никогда не заканчивается (2025) [Ru/Multi] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение праздничной серии игр поиска предметов с мини-играми Happy Holidays. Вам предстоит путешествие по заснеженным городам и уютный отдых зимними вечерами. Познакомьтесь с праздничными сценами со всего мира - от сверкающих европейских рынков до теплых каминов в далеких странах. В каждом месте спрятаны сокровища, загадки и истории, которые передают радость (   Читать дальше...   )Тип издания: UnofficialРазработчик: GameOn ProductionЖанр: Я ищу, КазуальнаяЯзык субтитров: Русский, Французский, НемецкийЯзык интерфейса: Русский, Французский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03FE50642E470461F63DE130BF496FBF0DAE890E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844847   (1050175) от 28.12.2025
+
+Christmas Stories 14: By Candlelight / Рождественские истории 14: Свет свечи (2025) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение рождественских историй Christmas Stories. Таинственный Снежный дух появляется в маленьком городке посреди холодной зимы. Похоже, Дух чем-то обеспокоен, но почему? Что случилось, что привело его к вашему дому? Запрягайте собак и отправляйтесь в путешествие по ледяной пустыне, чтобы узнать, какие тайны скрываются за появлением Духа. Свет свечи проявит тени (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C6C7BC23EC1B71D0B667C68C2703D0ECF2A442B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844472   (1049926) от 26.12.2025
+
+Montgomery Fox 2 and the Case of the Missing Ballerinas / Монтгомери Фокс 2 и Дело о пропавших балеринах (2025) [Ru] (1.0) Unofficial
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение красочного поиска c мини-играми Montgomery Fox. Из театра бесследно пропали все балерины! Директор очень обеспокоен. Живы ли они ещё? Всё указывает на то, что злоумышленник - Ленивый Пёс. Но действовал ли он в одиночку, или кто-то другой дёргал за ниточки? Разобраться в этом нелёгком деле вновь сможет лишь Монтгомери Фокс, частный детектив!Тип издания: UnofficialРазработчик: Big Fish StudiosЖанр: Я ищу, КазуальнаяЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79CE07A3DB657103CB4FDB3D2F382D7686C2CF4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844227   (1049863) от 25.12.2025
 
 Happy Holidays 5: Christmas Never Ends (2025) [Multi] (1.0) Unofficial [Collector's Edition]
@@ -6,7 +84,7 @@ Happy Holidays 5: Christmas Never Ends (2025) [Multi] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049863.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Escape from Mental Hospital / 100 Дверей - Сбеги Из Дурдома 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049666.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Christmas Fables 4: Nutcracker's Tale / Рождественские Басни 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049501.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Christmas Wonderland 16 / Рождественская Страна Чудес 1
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049095.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Chronicles of Albian 3: The Vanishing Village / Хроники Альбиана 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048823.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Chivalry Quest: Sword and Flame / Рыцарский квест: Меч и Пл�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048258.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Christmas Stories 14: By Candlelight (2025) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048123.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Christmas Across America / Рождество по всей Америке (2025
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048122.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Christmas Fables 4: Nutcracker's Tale (2025) [Multi] (1.0) Unofficial [Collector
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047882.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Mistyvale / Туманная Долина (2025) [Ru] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047881.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Christmas Wonderland 16 (2025) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047356.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Living Legends 13: Haunting Melody / Живые легенды 13: Завора�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046929.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Montgomery Fox and the Case Of The Diamond Necklace / Монтгомери Фо�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046924.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Detectives United 4: Phantoms of the Past (2020) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042265.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Hidden Expedition 20: Reign of Flames / Секретная экспедиция 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042186.jpg" />
 </div>
 
 
@@ -388,6 +466,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438814   (1040574) от 10.01.2021
+
+Spirit Legends 4: Finding Balance (2021) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1040574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эйлин только что приняли в Стражу Гармонии. Однако ее первая аудиенция у короля прошла совсем не так, как планировалось. Таинственный убийца не пойман, Темное Братство снова строит коварные планы, а еще кто-то становится властелином самых могущественных духов. Эйлин оказывается в самом центре заговора...Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:633D97334AF860FE272A320E9E1941F3ED6F164C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438912   (1040302) от 11.01.2021
 
 Twin Mind: Murderous Jealousy (2021) [En] (1.0) Unofficial [Collector's Edition]
@@ -396,7 +500,7 @@ Twin Mind: Murderous Jealousy (2021) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040302.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Cobra Kai: The Karate Kid Saga Continues (2021) [En] (1.0) License CODEX
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039971.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Secret City 5: Mysterious Collection / Тайный город 5: Таинств
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039758.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ The Cabinets of Doctor Arcana / Кабинеты доктора Аркана (20
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039261.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Living Legends Remastered 2: Frozen Beauty (2021) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038996.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Living Legends 7: Fallen Sky / Живые легенды 7: Упавшее не�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038193.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Labyrinths of the World 13: Eternal Winter (2021) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037106.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Labyrinths of the World 13: Eternal Winter (2021) [En] (1.0) Unofficial [Collect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBCB9A9CDC1F1A56F8B28810921777C9C15A552C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443002   (1035953) от 27.01.2021
-
-Bridge to Another World 7: Secrets of the Nutcracker / Мост в Другой Мир 7: Тайны Щелкунчика (2020) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035953.jpg" />
-</div>
-
-
-###  Подробнее
-
-В детстве Мари каждое Рождество встречала со своим крёстным, мастером Дроссельмейером, и его учеником Фрицем. Но с возрастом она стала навещать их всё реже, пока совсем не перестала приезжать. Но в это Рождество ей всё же придётся вновь посетить мастерскую крестного - потому как Фриц прислал Мари письмо, в котором очень просил её приехать. Ведь он хочет раскрыть (   Читать дальше...   )Тип издания: UnofficialРазработчик: Friendly Fox studioЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFD0CF449F5854CB46F3731DC5E21ED18A53EF41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443799   (1035121) от 30.01.2021
-
-Strange Investigations: Becoming (2021) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте новую увлекательную игру. Дана Стрендж стала детективом, чтобы отыскать пропавшую в далеком детстве сестру. Когда расследование завершилось, она решила оставить службу. Однако на пороге появился ее старый друг и предложил ей место детектива в его частном агентстве. Дана снова в деле! Подозреваемые накапливаются, неуловимая, загадочная фигура следует за (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A43EC95852B7D15D60FA70B601E0B51BC2C66538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444243   (1034559) от 01.02.2021
-
-Spirit Legends 4: Finding Balance / Легенды Духов 4: Поиск гармонии (2021) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение фантастической серии игр Spirit Legends. Эйлин, став Стражем Гармонии, оказывается в центре заговора, который грозит разорвать королевство на части! Темное Братство строит коварные планы, кто-то порабощает могущественных духов, таинственный убийца - на свободе... Берите Бестиарий и помогите Эйлин, пробравшись через паутину интриг, восстановить баланс (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E8ECA85BAD33B73B6C4DECE563A3ADBAF6045A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445263   (1033736) от 05.02.2021
-
-Rite of Passage 10: Embrace of Ember Lake (2021) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение захватывающей детективной серии игр Rite of Passage. Вы удочерили Хэлси, когда она была ещё младенцем. Счастливая жизнь закончились в её шестнадцатый День рождения - у Хэлси раскрылись шокирующие способности, которые дали понять, что она - не совсем обычный ребёнок! Ваш брат Джейсон - единственный, кто может помочь, но он бесследно исчез, а таинственное (   Читать дальше...   )Тип издания: UnofficialРазработчик: Mad Head GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E44AA3AEB9D968EE48556CEC9BC2C6B7EE217EAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

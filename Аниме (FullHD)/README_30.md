@@ -6,7 +6,7 @@ Bubble | Пузырь [2022, ONA] WebRip 1080p raw+eng
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573815.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kokkoku | Миг за мигом [2018, TV, 12 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572727.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Kujira no Kora wa Sajou ni Utau | Children of the Whales | В песках по�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572620.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka Gaiden: Sword Oratoria |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572307.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Basquash! | Баскваш! [2009,TV, 26] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566987.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Next A-Class [2012, ONA] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566868.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Release the Spyce | Освобождение шпионов [2018, TV, 12 эп.]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565418.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Soushin Shoujo Matoi | Matoi the Sacred Slayer | Матой: Изгоняюща�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565390.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Hamatora The Animation | Хаматора [2014, TV, 12] BDrip 1080p HEVC Hi10p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565047.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Reply Hamatora | Re: Hamatora | Re: Хаматора [2014, TV, 12] BDrip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565031.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565018.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Seishun Buta Yarou wa Bunny Girl Senpai no Yume o Minai | Rascal Does Not Dream 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564993.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Youjo Senki: Saga of Tanya the Evil | Военная хроника малень
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564728.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Shirogane no Ishi: Argevollen | Аргеволлен: Серебряная мо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563246.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Re-Kan! | Ре-Кан! [2015, TV, 13] BDrip 1080p HEVC Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563111.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Nisekoi: | Притворная Любовь 2 [ТВ-2][2015, TV, 12 эп. + 2 O
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561285.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Nisekoi | Nisekoi: False Love | Притворная любовь | Любовь
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561270.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559839.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Hakozume: Kouban Joshi no Gyakushuu | Police in a Pod | Девушки-поли�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559719.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Gekijouban Aoki Hagane no Arpeggio: Ars Nova - DC | Мелодия воронё�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558687.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Calamity of the Zombie Girl | Aru Zombie Shoujo no Sainan | Месть восс�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557292.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Devil Survivor 2 The Animation | Выжившие среди демонов 2 [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556710.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Break Blade /  Broken Blade / Сломанный Меч [2010, Movie, 6 эп.] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555665.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Slow Start / Медленный старт [2018, TV, 12] BDrip 1080p HEVC 10bit
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555201.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Bubblegum Crisis / Кризис каждый день [1987, OVA, 8 эп.] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554135.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Koro-sensei Quest! (2016) / Квест Коро-сэнсэя! (2016) [2016, ONA,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552878.jpg" />
 </div>
 
 

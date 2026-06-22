@@ -1,3 +1,29 @@
+###  Публикация: 1839204   (824030) от 27.11.2025
+
+Cold Fear (2005) [Ru/Multi] (1.0) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_824030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Том Хансен, офицер береговой охраны, за годы службы повидал немало смертей. Однажды во время яростного шторма его патрульный катер получает приказ обследовать российское китобойное судно «Дух Востока», дрейфующее в открытом океане. Выжившие на корабле не обнаружены, казалось бы, трагедия уже произошла. Но настоящий кошмар только начинается. То, что притаилось под (   Читать дальше...   )Тип издания: LicenseРазработчик: DarkworksЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26EE94B5B96DFAF065F9275F24B72CA436E13322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381810   (823829) от 08.05.2020
 
 Deus Ex: Mankind Divided (2016) [Ru/En] (1.19hf/dlc) Repack  xatab [Digital Deluxe Edition]
@@ -6,7 +32,7 @@ Deus Ex: Mankind Divided (2016) [Ru/En] (1.19hf/dlc) Repack  xatab [Digital Delu
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823829.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ The Tape (2015) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822826.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Putrefaction (2015) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822600.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Dead Secret (2016) [En] (1.0) Rip Unleashed
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822599.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Deus Ex: Human Revolution (2013) [Ru/Multi] (2.0/dlc) Repack West4it [Director's
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822093.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ SOMA (2015) [Ru/Multi] (1.500) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821992.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Worst Case Z (2016) [En/De] (1.0) License CODE
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818716.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ White Noise 2 (2017) [Ru/Multi] (1.0/upd46/dlc) License PLAZA [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818645.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818609.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Wolfenstein: The Old Blood (2015) [Ru/En] (1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816583.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Red Orchestra: Ostfront 41–45 (2006) [Multi] (1.0) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816345.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ Into the Pit (2021) [Multi] (368) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815402.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Metro: Last Light / Метро 2033: Луч надежды (2013) [Ru/Multi] Lic
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814942.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ Doorways: The Underworld (2014) [En/Es] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814828.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ Armed Assault 2 / ArmA 2: Reinforcements / ArmA 2: Второй фронт [Ru] 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814710.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ Taken (2015) [Ru/Multi] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814707.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ Delta Force (1998) [En] (1.00.03.03p) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814568.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ Wolfenstein Anthology (1981-2015) [Ru/Multi] (1.0/1.4/1.41/1.2/1.0.0.2/1.0.0.0/d
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813058.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ Delta Force 2 (1999) [En] (1.06.15) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812749.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ Delta Force: Land Warrior / Отряд Дельта: Операция "Спец�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812699.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Delta Force: Task Force Dagger / Отряд Дельта: Операция "Ки
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812638.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ Delta Force: Xtreme / Delta Force: Первая кровь (2005) [En] (1.6.9.3)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812637.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ Homefront (2011) [Ru/En] (1.5/dlc) Repack R.G. Механики [Ultimate Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812623.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Delta Force: Black Hawk Down / Delta Force: Операция "Черный Яс�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812622.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ Painkiller Антология [Ru/En] (Lossless RePack) 2004-2011 | RG Packers
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811087.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ Painkiller Антология [Ru/En] (Lossless RePack) 2004-2011 | RG Packers
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3C0B5BB3CFA03C6DDB3B6B77E135F08828C295F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118952   (810841) от 26.03.2017
-
-The Butterfly Sign (2017) [Ru/Multi] (1.2.0) License PLAZA [Chapter II: Human Error]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810841.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Butterfly Sign: Human Error - вторая глава детектива от первого лица, в котором нам предстоит сыграть за единственного выжившего в крупном теракте. Главный герой - единственный свидетель произошедшего, и от его воспоминаний зависит его судьба. Поэтому он решается на отчаянную меру: он принимает экспериментальный препарат “Раммекс”, который погружает его в чертоги (   Читать дальше...   )Тип издания: LicenseРазработчик: Quantum Phoenix Studio, Dennis EsieЖанр: Adventure, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00C6D399E2110F1AC60496B27A881D8E21D99223
 ```
 
 https://mybot314.ru/tekegram_catalog/

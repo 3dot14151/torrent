@@ -6,7 +6,7 @@ Thinknetica, Артем Нистратов | Event-Driven Architecture (2023) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255212.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Gumroad, FlyCat | Avatar Character Modeling in Blender (2023) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255115.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Motion Design School | 2D Character Design Magician (2022) WEB-DL [AD] [EN / EN 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255014.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254792.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254666.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Udemy, Nafay Sheikh | Realistic Natural Environments in Unreal Engine 5 (2023) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254664.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254526.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254512.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254510.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254506.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ kontentica, Сергей Беляк | Нейросети. Старт (2023) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254468.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254447.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Udemy, Otto Lai | Intro to Geometry Nodes using Blender 3.3 (2022) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254429.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Udemy, Rob Tuytel | Creating 3D Environments in Blender 3.2 (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254410.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254401.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Sculpt Art, Александр Спиридонов, Сергей Носолюк
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252339.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Gumroad, Fxforfun | SideFX – FFF Houdini Subject 071 (2022) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252243.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Timesavervfx, Юлия Корчагина| Моушн-графика в Davinci 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252217.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Udemy, Nikolay Naydenov | Absolute Beginners Substance Painter Course (2020) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252209.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Timesavervfx, Александр Ежов | Анимация фотографи�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252203.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Udemy, Nikolay Naydenov | 3D Character Sculpting in Blender - Viking Edition (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252199.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Udemy, Артем Яковлев | Blender 2023 - полный базовый к
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252138.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Rebelway, Urban Bradesko | Meteor in Houdini and Karma (2021) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250193.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Udemy, Motion Guru | Complete Modeling & Animating a Drone in Blender 3.0 (2022)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250151.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Liveclasses, Андрей Козьяков | Adobe Illustrator: Расширен
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250080.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ SideFx, Attila Torok | Sexy Explosions in Houdini 18.5 (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250049.jpg" />
 </div>
 
 

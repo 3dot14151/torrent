@@ -1,3 +1,85 @@
+###  Публикация: 1019579   (749727) от 23.05.2016
+
+Стивен Кинг | Лавка дурных снов [Сборник] (2016) [FB2, PDF, EPUB]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор многочисленных романов, Стивен Кинг всегда считался еще и блестящим мастером малой прозы, ведь именно эти произведения принесли ему престижную премию О. Генри.
+
+Новый сборник рассказов Кинга «Лавка дурных снов» – книга уникальная. Мастер впервые предваряет каждое произведение удивительно откровенной историей его создания, приоткрывая «дверь» в свою творческую (   Читать дальше...   )Жанр: Ужасы и Мистика, Зарубежное фэнтезиПеревод: Виктор Вебер, Сюзанна Алукард, Татьяна Покидаева, Игорь Моничев, Н. И. Сидемон-Эристави, Виктор В. АнтоновФормат: FB2, PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD61EFA36EE78C3205CDB0A0C547DC971FC7D8C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281760   (749687) от 09.02.2019
+
+Павел Корнев | Экзорцист: Проклятый металл. Жнец. Мор. Осквернитель [сборник] (2019) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесы из века в век рвутся в души людей из серой Бездны, в которой никогда ничего не происходило и никогда ничего происходить не будет. Экзорцисты и экзекуторы молитвами и огнем спасают души бесноватых, изгоняя нечистых обратно в породившую их пустоту. Так было с самого сотворения мира и так должно было быть до конца его дней.
+
+Но появился человек, способный повелевать (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40716204C12F1A3DAF0268B0C78C0F04289E63F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019504   (749613) от 23.05.2016
+
+Кирилл Шарапов | Мёртвый мир. Поселенец (2016) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вилен Ульянов – начальник охраны секретного института, в котором создали ворота для перехода в другой мир. Вилен первый испытал переход и выяснил, что обратной дороги нет. Он оказался в зеркальном мире, пережившем глобальную войну: мёртвые города, животные-мутанты и люди, потерявшие за тридцать лет остатки разума. Вилен отправляется в свой родной город, чтобы встретить (   Читать дальше...   )Жанр: Боевая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18235EFE5DC53BD7EE5462A2613C17EFAE33496D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396350   (748598) от 14.07.2020
 
 Илона Эндрюс | Магия побеждает (2020) [FB2]
@@ -6,7 +88,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748598.jpg" />
 </div>
 
 
@@ -35,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748155.jpg" />
 </div>
 
 
@@ -61,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748091.jpg" />
 </div>
 
 
@@ -88,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747978.jpg" />
 </div>
 
 
@@ -117,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747965.jpg" />
 </div>
 
 
@@ -145,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747900.jpg" />
 </div>
 
 
@@ -173,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747741.jpg" />
 </div>
 
 
@@ -199,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747571.jpg" />
 </div>
 
 
@@ -227,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747479.jpg" />
 </div>
 
 
@@ -255,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747387.jpg" />
 </div>
 
 
@@ -283,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746807.jpg" />
 </div>
 
 
@@ -311,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746759.jpg" />
 </div>
 
 
@@ -339,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746723.jpg" />
 </div>
 
 
@@ -365,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746653.jpg" />
 </div>
 
 
@@ -393,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746531.jpg" />
 </div>
 
 
@@ -419,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746495.jpg" />
 </div>
 
 
@@ -445,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746417.jpg" />
 </div>
 
 
@@ -471,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746406.jpg" />
 </div>
 
 
@@ -499,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746347.jpg" />
 </div>
 
 
@@ -527,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746346.jpg" />
 </div>
 
 
@@ -555,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746273.jpg" />
 </div>
 
 
@@ -582,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745977.jpg" />
 </div>
 
 
@@ -610,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745832.jpg" />
 </div>
 
 
@@ -623,87 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2366BC0B608ABB403D1B4CF2E265D8F5D487821A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216966   (745822) от 02.04.2018
-
-Ричард Морган | Черный человек (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Карл Марсалис – тринадцатый, плод генетических экспериментов, человек, созданный для сражений в последних конфликтах XXI века. Но после второй гражданской войны в США, после раскола Северной Америки на три государства, после голодных бунтов и восстаний на Земле наступил мир, и тринадцатых стали считать опасными мутантами. Кого-то казнили, немногие стали работать (   Читать дальше...   )Жанр: Зарубежная фантастика, Научная фантастикаПеревод: Ольга КидватиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DABECB26EB77A635CA9E321D289C1C467EB4C05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396670   (745499) от 16.07.2020
-
-Кэтрин Хоу | Дочери Темперанс Хоббс (2020) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман цикла «Книга таинств».
-
-Конни Гудвин – эксперт по разрушенному колдовством прошлому Америки. Молодой профессор из Бостона, она построила успешную карьеру, изучая историю магии и разоблачая угрозы общества в отношении тех, кто владел искусством чародейства.
-(   Читать дальше...   )Жанр: Героическое фэнтези, Городское фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF49FC67BE6D3ECE6E5A8A4BB02C738090EA4AAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396646   (745365) от 16.07.2020
-
-Анастасия Гор | 2:36 по Аляске (2020) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джейми Рейс – единственная студентка во всей Аляске, проснувшаяся утром 27 августа. Крис Роуз – единственный полицейский, оставшийся на Земле после рокового 2:36 на часах. Им предстоит непосильное: ей – пересечь несколько штатов, чтобы добраться до семьи, а ему – не дать себе все испортить. Ведь в этом новом мире таится что-то ужасное… Как и в самом Крисе. Когда (   Читать дальше...   )Жанр: Научная фантастика, Социальная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BEBE6DB77E24CF4CAC85C232D34F92CC924AA0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

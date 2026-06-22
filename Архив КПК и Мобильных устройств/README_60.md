@@ -1,3 +1,56 @@
+###  Публикация: 986329   (526478) от 16.09.2016
+
+Crossty v1.5.15 [Ru/Multi] - мобильное приложение для просмотра вышивальных схем
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Crossty открывает интерактивные форматы схем для вышивки, такие как XSD (Pattern Maker) и PAT (PCStitch). Перемещайтесь по схеме, приближайте и отдаляйте без потери качества, подсвечивайте нужные элементы схемы, получайте информацию о цвете, типе стежка, количестве сложений нити и составе бленда, отмечайте то, что уже отшито. С этим приложением мобильное устройство (   Читать дальше...   )Тип издания: Пиратка (Full с Маркета)Релиз состоялся: 02.09.2016Разработчик: Zvezdolet PublishingПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66D97676B5ABF80B4343001E963E2F535045AED2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 368500   (525601) от 01.08.2011
+
+Скорая помощь / ER (Полные 1-14 сезоны, 309 серий) / ER (Майкл Крайтон) [1994-2008, Драма, DVDRip, 480 х 272]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герои остросюжетного сериала «Скорая помощь» - врачи чикагской городской больницы. Они оказывают экстренную помощь пациентам, спасают человеческие жизни, забывая порой о себе и совершенно не думая о том, что их каждодневная работа граничит с героизмом. Выполняя свой профессиональный долг, врачи «Скорой помощи» влюбляются, разводятся, плетут интриги, надеются на лучшее и... в общем, у них все как у людей, несмотря на трудную работу и высокое призвание.
+Лучший сериал компании WARNER BROS. Обладатель 19 премий самой престижной награды США - "Эмми". "Скорая помощь" - это переплетение мелодрамы и триллера, драмы и комедии. Герои сериала любят, разводятся, надеются и переживают - проходят через все испытания на грани жизни и смерти.Жанр: ДрамаРежиссёр: Майкл КрайтонВ ролях: Джордж Клуни (1994-1999,2000), Ной Уайл (1994-2005, 2006), Пол МакКрейн (1997-2003), Джулианна Маргулис (1994-2000), Шерри Стрингфилд (1994-1997, 2001-2005), Эрик Ла Саль (1994-2002), Алекс, Кингстон (1997-2004), Глория Рубен(1994-1999), Лора Иннес (1995-2007), Горан Вишнич (1999-2007)Перевод: Профессиональный (многоголосый закадровый)Формат: *.mp4Продолжительность: 45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1052785   (524369) от 18.09.2016
 
 Весенняя капель (2005) DVDRip [H.264] [MP4|640x480]
@@ -6,7 +59,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524369.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Photo Blender v1.7 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524357.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523974.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Llama Location Profiles 1.2014.11.20.2330 [Ru/Multi] - Автоматизаци�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523249.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ Toki Tori 1.0.3 HD [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523211.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ Space Marshals v1.2.3 Мод [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522377.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ Root Checker Pro 3.97.0.69 [Ru] - Проверка на наличие Root пр
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522270.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521524.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521448.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520975.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_519731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_519731.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ Battery HD Pro 1.98.14 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519619.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ MP4 640х360 Такси 3 / Taxi 3 (2003) DVDRip
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518797.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ Repainter 1.2.4 + Mod by Parrot043 [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_518777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_518777.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ Animal ID - Защита и Уход v2.0.12 Mod by sserratty [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517708.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ AirDroid 1.1.0 - Управление с помощью Wi-Fi (15.08.2012) <Ru>
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517481.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ FilmoraGo - Видео редактор 6.6.9 Mod by Rajat, Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516598.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ OfficeSuite + PDF & HD + Addons 13.0.42559 & 12.5.42057 Mod by GhostRider, Mihz,
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516584.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515872.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ V Recorder - Запись видео с экрана 6.5.3 Mod by Mixroot [Ru/Mu
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515517.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ FolderPlay v.1.8 [Программа] (S9.2-S9.4, S^3)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515409.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515312.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_515233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_515233.jpg" />
 </div>
 
 
@@ -613,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514269.jpg" />
 </div>
 
 
@@ -624,58 +677,6 @@ Wi-Fi Ruler-создаем свои правила для Wi-Fi соединен
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930987   (513874) от 24.08.2015
-
-Mosquito Simulator 2015 v1.3 [En]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mosquito Simulator 2015 - В этой игре вы сможете побывать на месте комара! Почувствовать всё то, что испытывает комар, раздражать людей на отдыхе или в офисе, напиться их крови и конечно же лопнуть от жадности) Но не забывайте, что вас могут и прихлопнуть, так и не дав поживится. В этом и заключается ваша основная задача, летать и раздражать людей своим писком и (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 13 августа 2015 г.Разработчик: LumiSys Kft.Поддерживаемая ОС: Android 4.0+Жанр: Аркады / СимуляторыЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:627B5D91134DF7151C8E37E7DF83327B8311CE78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930998   (513702) от 24.08.2015
-
-Марш Империй / March of Empires v1.0.1b [Ru]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513702.jpg" />
-</div>
-
-
-###  Подробнее
-
-March of Empires / Марш Империй – надоели серые будни? Игра позволит вам стать предводителем одного из трёх наций. Вы можете стать предводителем высокогорных земель, царём северных территорий или султаном необъятной пустыни. Для начала создайте свой замок. Который будет не так-то просто взять штурмом. Стройте новые войска, развивайте военное дело, не забывая при (   Читать дальше...   )Тип издания: ЛицензияРелиз состоялся: 11 августа 2015 г.Разработчик: GameloftПоддерживаемая ОС: Android 4.0+Жанр: СтратегииЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C0E1C30CEAA907C60B84E4462ED2B40493FFA9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

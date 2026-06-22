@@ -1,3 +1,81 @@
+###  Публикация: 1211224   (777739) от 06.03.2018
+
+Дина Рубина | Синдикат (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777739.jpg" />
+</div>
+
+
+###  Подробнее
+
+В начале 21-го века, который я все-таки считаю своим, после десяти лет отсутствия, я оказалась в Москве. Ощущения были странными, фантасмагорическими: выяснилось, что за эти десять лет у меня полностью поменялась вестибулярная система и система координат, ощущение расстояний и восприятие действительности. Почему-то многое казалось диким и смешным (чувство юмора, (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 21:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:955E3972084D72F5108BBE05522B673CE72F1EE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211437   (777567) от 07.03.2018
+
+Игорь Переверзев | История Андрея Петрова (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждая книга – это воплощение, воссоздание в тексте внутреннего мира писателя. Чем богаче этот мир, чем теснее соприкасается он с миром других людей, тем больший отклик находит произведение. Каждая талантливая книга – вклад в познание причин успехов или неуспехов жизни человеческого сообщества. Именно это делает книгу по-настоящему интересной. Писатель может не ставить (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 07:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6161D03388F400FC001AA3F6A69C9AF1329CFCF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013708   (777327) от 05.05.2016
+
+Джонатан Коу | Прикосновение к любви (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Робин Грант — потерянная душа, когда-то он любил девушку, но она вышла за другого. А Робин стал университетским отшельником, вечным аспирантом. Научная карьера ему не светит, а реальный мир кажется средоточием тоски и уродства. Но у Робина есть отдушина — рассказы, которые он пишет, забавные и мрачные, странные, как он сам. Робин ищет любви, но когда она оказывается (   Читать дальше...   )Жанр: Современная прозаПеревод: с англ. Игоря АлюковаПродолжительность: 06:54:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C7965F836191A5E45B8E636E522204D5DC52D49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013559   (777295) от 05.05.2016
 
 Ирина Агапова, Маргарита Давыдова | Москва слезам не верит (2015) [MP3]
@@ -6,7 +84,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777295.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777293.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776921.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776917.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776872.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776831.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776826.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776512.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776504.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776449.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776444.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776164.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775089.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774345.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774282.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773537.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773384.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772964.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771983.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771916.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771837.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771715.jpg" />
 </div>
 
 
@@ -584,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771633.jpg" />
 </div>
 
 
@@ -596,87 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:927969671CF247B33952ED52A737D8CD4F0A621D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391864   (771632) от 22.06.2020
-
-Алексей Очкин | Иван - я, Федоровы - мы (1976) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771632.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой повести подлинные события и почти все подлинные имена. Автор её, Алексей Яковлевич Очкин, описывает боевые дела своего друга, "братишки" Вани Фёдорова, не дожившего до Победы.Жанр: Военная драма. РадиоспектакльПродолжительность: 00:55:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C09710E5F6BA36A6B267475DBDBACD2631318926
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016162   (771601) от 13.05.2016
-
-Михаил Умнов | Саламандра (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Михаил Иванович Умнов
-15.04.1961
-Род. в Москве в семье рабочих. Окончил Литинститут (1990) и Высшие курсы сценаристов и режиссеров (1995).
-(   Читать дальше...   )Жанр: РоманПродолжительность: 09:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E0C6D9516CF9F94BCB05E536616A42E90C66636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016261   (771595) от 13.05.2016
-
-Джон Дос Пассос | Три солдата (2014) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джон Дос Пассос в 1917 году добровольцем ушел на фронт. В годы Первой мировой он побывал в Италии и Франции, участвовал в Гражданской войне в Испании. Его роман "Три солдата" - это история о любви и дружбе, о страхе и предательстве на войне. Героями романа стали музыкант, фермер и продавец линз – люди из разных социальных слоев, с различными взглядами и (   Читать дальше...   )Жанр: Военная прозаПродолжительность: 14:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ACBB358E9A7F8E1490E0BA6B3B7DC882C43BDB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

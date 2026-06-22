@@ -1,3 +1,38 @@
+###  Публикация: 540338   (504740) от 28.08.2012
+
+Lingua Mystica - Magic Secrets (2007) [MP3|320 кб/с]<New Age,Celtic,World,Ethereal Voices>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (01:06)
+02. Gloria (03:25)
+03. The Magic Will Return (03:36)
+04. By Morning Dawn (03:17)
+05. Hallelujah (03:36)
+06. A Stone Will Tell (04:05)
+07. Gone to Earth (04:33)
+08. World of Fantasy (03:22)
+09. Call of Immortality (04:04)
+10. Turn the Key (03:25)(   Читать дальше...   )Жанр: New Age,Celtic,World,Ethereal VoicesПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C8FF75E4A7C0F4876FAAD28F839CC36F6DCE057
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933868   (504510) от 03.09.2015
 
 Glenn Main - Into The Blue (2015) [MP3|320 кб/с]<Electronic, New Age>
@@ -6,7 +41,7 @@ Glenn Main - Into The Blue (2015) [MP3|320 кб/с]<Electronic, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504510.jpg" />
 </div>
 
 
@@ -35,7 +70,7 @@ Ambra - Honour and Glory (2002) [MP3|~245 кб/с (V0)]<Electronic, Enigmatic, N
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504499.jpg" />
 </div>
 
 
@@ -70,7 +105,7 @@ Lichtmond (Лунный свет) - Erwachen Fruhlingstanzerin (2010) [MP3|256 �
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504391.jpg" />
 </div>
 
 
@@ -105,7 +140,7 @@ Kelly Andrew - Journey (2015) [MP3|320 кб/с]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503668.jpg" />
 </div>
 
 
@@ -134,7 +169,7 @@ Valefim Planet - India (2015) [MP3|192 Kbps] <New age, Chillout>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503284.jpg" />
 </div>
 
 
@@ -163,7 +198,7 @@ Bodhi - Trans Ukraine (2006) [MP3|320 kbps]<New age, Flute, Electronic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500669.jpg" />
 </div>
 
 
@@ -197,7 +232,7 @@ VA-New Age Style - Mystic Lounge (2012) [MP3|320 кб/с]<New Age, Tribal, PsyCh
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499175.jpg" />
 </div>
 
 
@@ -223,7 +258,7 @@ David Hicken - 3 albums (2007-2008) [MP3|192, 320 кб/с]<New age, Instrumental
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499121.jpg" />
 </div>
 
 
@@ -258,7 +293,7 @@ Iasos - 9 albums (1975-2001) [MP3|256-320 кб/с]<New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498763.jpg" />
 </div>
 
 
@@ -284,7 +319,7 @@ Divine Matrix - Atmospheric Variations (2012) [MP3|320 кб/с]<Electronic, Ambi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498441.jpg" />
 </div>
 
 
@@ -313,7 +348,7 @@ Shiva feat. Magdalena - Shivas Dance (1996) [MP3|320 кб/с]<New Age, Relax, El
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498149.jpg" />
 </div>
 
 
@@ -348,7 +383,7 @@ VA - Music For Modern Yoga (2009) [MP3|320 кб/с]<New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498148.jpg" />
 </div>
 
 
@@ -383,7 +418,7 @@ Perry Wood - Chakra Balancing (2004) [MP3|320 кб/с]<New age, Meditative, Rela
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498090.jpg" />
 </div>
 
 
@@ -415,7 +450,7 @@ Davis Mitchell - Drummer Boy (1996) [MP3|320 Kbps] <Native American>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497678.jpg" />
 </div>
 
 
@@ -444,7 +479,7 @@ VA - Arabesque the Beautyness of India and Asia (2015) [MP3|320 кб/с]<Lounge,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497520.jpg" />
 </div>
 
 
@@ -473,7 +508,7 @@ Doudou - The Love Of Piano (2011) [MP3|320 кб/с]<New age, Instrumental>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496433.jpg" />
 </div>
 
 
@@ -508,7 +543,7 @@ Richard Sharp - Bathtime Relaxation (2008) [MP3|320 кб/с]<New age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496339.jpg" />
 </div>
 
 
@@ -543,7 +578,7 @@ Myriam Cannas - Imana. Chants Arameens (2015) [MP3|320 кб/с]<New Age, World M
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494267.jpg" />
 </div>
 
 
@@ -572,7 +607,7 @@ Karin Nobbs & Philip N'bess - Avel & Roc'h (2006) [MP3|320 кб/с]<New age, Rel
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493898.jpg" />
 </div>
 
 
@@ -604,7 +639,7 @@ VA - New Age Sensation (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493694.jpg" />
 </div>
 
 
@@ -633,7 +668,7 @@ VA - Best Of Chill Out 2012 (2012) [MP3|320 кб/с]<Chillout, Lounge, Downtempo
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493411.jpg" />
 </div>
 
 
@@ -668,7 +703,7 @@ Bernward Koch - Touched by Love (2016) [MP3|320 Kbps] <New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492485.jpg" />
 </div>
 
 
@@ -697,7 +732,7 @@ Kevin Kendle - Illumination (2015) [MP3|320 кб/с]<Electronic, Ambient, New Ag
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492265.jpg" />
 </div>
 
 
@@ -726,7 +761,7 @@ Neil Harvey - Beautiful Day (2010) [MP3|320 кб/с]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490180.jpg" />
 </div>
 
 
@@ -755,7 +790,7 @@ Musica tantrica consort - Massaggio di coppia (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487892.jpg" />
 </div>
 
 
@@ -769,35 +804,6 @@ Musica tantrica consort - Massaggio di coppia (2017) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D700241A7CCC4DF705BC9BE0669B46FCCA556AB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159199   (486247) от 19.08.2017
-
-Club di relax mentale - Esperienza rilassante (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Esperienza rilassante (03:31)
-02. Una spiaggia da sogno (03:31)
-03. Un mare di emozioni (03:33)
-04. Fuga romantica (03:31)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:57:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09CB18AD8C261B2CEFDC979C0A0E2DFEF1501F67
 ```
 
 https://mybot314.ru/tekegram_catalog/

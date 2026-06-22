@@ -1,3 +1,58 @@
+###  Публикация: 324291   (62157) от 22.03.2024
+
+О. Генри | Голос большого города (2008) [MP3, Владимир Самойлов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Зарубежная литература, классика, юмор, рассказИздательство: Студия «АРДИС»Продолжительность: 06:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF7D945165CC31A2B164AC63965A0FFA6D22AF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 337137   (62156) от 22.03.2024
+
+О. Генри | Сердце Запада (2004) [MP3, Владимир Самойлов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Антология юмора и сатиры.
+О. Генри (Уильям Сидни Портер) (1862-1910) – американский писатель, признанный мастер короткого рассказа.
+О. Генри автор около 280 рассказов, не считая фельетонов и различных маленьких произведений.
+На диске представлены рассказы О. Генри. Перевод с английского Михаила Урнова, Татьяны Озёрской, Ольги Холмской, Марии Лорие, Ирины (   Читать дальше...   )Жанр: Зарубежная литература, классика, юмор, рассказИздательство: Студия «АРДИС»Продолжительность: 09:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A5CF16F3EB8A00BDF0FB15E9E00033ABF251CD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 337143   (62155) от 22.03.2024
 
 О. Генри | Четыре миллиона (2007) [MP3, Владимир Самойлов]
@@ -6,7 +61,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62155.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62154.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62062.jpg" />
 </div>
 
 
@@ -88,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61751.jpg" />
 </div>
 
 
@@ -114,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61747.jpg" />
 </div>
 
 
@@ -141,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61740.jpg" />
 </div>
 
 
@@ -167,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61724.jpg" />
 </div>
 
 
@@ -195,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61714.jpg" />
 </div>
 
 
@@ -221,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61618.jpg" />
 </div>
 
 
@@ -247,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61553.jpg" />
 </div>
 
 
@@ -274,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61552.jpg" />
 </div>
 
 
@@ -301,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61547.jpg" />
 </div>
 
 
@@ -327,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61545.jpg" />
 </div>
 
 
@@ -354,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61526.jpg" />
 </div>
 
 
@@ -381,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61474.jpg" />
 </div>
 
 
@@ -409,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61444.jpg" />
 </div>
 
 
@@ -436,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61346.jpg" />
 </div>
 
 
@@ -463,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61324.jpg" />
 </div>
 
 
@@ -490,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61321.jpg" />
 </div>
 
 
@@ -517,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61227.jpg" />
 </div>
 
 
@@ -544,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61219.jpg" />
 </div>
 
 
@@ -573,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61114.jpg" />
 </div>
 
 
@@ -601,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61112.jpg" />
 </div>
 
 
@@ -627,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60948.jpg" />
 </div>
 
 
@@ -640,61 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:346CC2CD89DF37F150F937B6E537DAAEB2946265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 332712   (60946) от 03.04.2024
-
-Иосиф Бродский | Мой Бродский (2006) [MP3, Михаил Козаков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иосиф Александрович Бродский (1940–1996) – один из самых ярких и своеобразных поэтов XX столетия. В 1987 г. Бродский стал лауреатом Нобелевской премии по литературе, которая была присуждена ему за «всеобъемлющее творчество, насыщенное чистотой мысли и яркостью поэзии».
-В этот диск вошли произведения Иосифа Бродского в исполнении Михаила Козакова. Аудиокнига с музыкальным (   Читать дальше...   )Жанр: Русская литература, классика, поэзияИздательство: Мелодия, 1С-ПаблишингПродолжительность: 02:14:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA9F99A963855968CA62618830D5F19E1F7B1A90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 383631   (60923) от 03.04.2024
-
-Иосиф Бродский | Часть речи (2009) [MP3, Илья Прудовский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Поэтическая библиотека.
-Иосиф Александрович Бродский (1940–1996) – один из самых ярких и своеобразных поэтов XX столетия. Бродский стал лауреатом Нобелевской премии по литературе, которая была присуждена ему за «всеобъемлющее творчество, насыщенное чистотой мысли и яркостью поэзии».
-Цикл стихотворений «Часть речи» (1975-1976), включенный в данное издание, (   Читать дальше...   )Жанр: Русская литература, классика, поэзияИздательство: Студия «АРДИС»Продолжительность: 02:20:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA18EB4F2CF88012B5FF99CCE6C7EC6B0309FD52
 ```
 
 https://mybot314.ru/tekegram_catalog/

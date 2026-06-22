@@ -1,3 +1,111 @@
+###  Публикация: 321911   (1039207) от 15.01.2021
+
+НЕТ! Содому и Гоморре в России! (2010) DVDRip
+
+>>След.
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039207.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 Октября 2010г. Европейский суд по правам человека признал незаконным все запреты на проведение гей - парадов в России.
+Считаем это грубейшим вмешательством во внутренние дела нашей страны, и требуем от российских властей начать процедуру по созданию в России правовой структуры, альтернативной Европейскому суду по правам человека.
+Мы, граждане России, родители (   Читать дальше...   )Жанр: ДокументальныйРежиссер: Г. ЦарёваПродолжительность: 01:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BE9C3D2733204D1A48BD5A9EF952A84513B8FA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440211   (1038746) от 17.01.2021
+
+США-2020 / Это случилось в Америке (2020) DVB [H.264] (фильмы 1-2 из 2)
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня Америка переживает глубочайший раскол в обществе, который то и дело вспыхивает беспорядками – насилием, погромами и мародерством. Страна пытается пересмотреть свою историю и найти виновных в мучающих ее проблемах. Одни называют это очищением, другие – культурной революцией, ведущей в пропасть. Но кто эти революционеры, какие цели они перед собой ставят, и (   Читать дальше...   )Телекомпания: Россия / ТВ РТРЖанр: Документальный, ПолитикаСубтитры: отсутствуютПродолжительность: 00:45:45+00:58:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABD40BE172F36395B6214476E1019FC69A0A0339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614326   (1038539) от 22.02.2023
+
+Ежегодное послание Президента России Владимира Путина Федеральному Собранию (21.02.2023) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038539.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 февраля 2023 года президент Российской Федерации Владимир Владимирович Путин огласил Послание Федеральному Собранию РФ. Послание определяет вектор развития страны. Президент оценил ход спецоперации, ситуацию в мире, социально-экономическую жизнь России.Производство: РоссияЖанр: ПолитикаСубтитры: отсутствуютПродолжительность: 01:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB1456C8B4E058C40B9EE2AF954C6738DB37FBA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442534   (1036214) от 26.01.2021
+
+Агитпроп. Не мой протест  (23.01.2021) WEBRip [H.264]
+
+>>След.
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вера в чудеса толкает людей на выдающиеся подвиги и выдающиеся глупости. Проблема в том, что одно от другого, как правило, очень трудно отличить. То, что вчера казалось глупостью, на следующий день оказывается подвигом. То, что вчера называли подвигом, по прошествии времени предстает поступком глупым и безрассудным.
+
+Возвращение Навального в Россию многим показалось (   Читать дальше...   )Производство: Россия, Авторский блог Константина Семина «Агитация и Пропаганда»Жанр: ПолитикаСубтитры: ОтсутствуетПродолжительность: 00:12:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:170596200B777D006F73667507A30451466B1FE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616981   (1035835) от 04.03.2023
 
 Кто взорвал „Северные потоки“? (2023) DVB
@@ -6,7 +114,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035835.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035560.jpg" />
 </div>
 
 
@@ -61,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033743.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033700.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031333.jpg" />
 </div>
 
 
@@ -140,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030003.jpg" />
 </div>
 
 
@@ -166,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028171.jpg" />
 </div>
 
 
@@ -192,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028054.jpg" />
 </div>
 
 
@@ -218,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025477.jpg" />
 </div>
 
 
@@ -244,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022804.jpg" />
 </div>
 
 
@@ -270,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022391.jpg" />
 </div>
 
 
@@ -296,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021919.jpg" />
 </div>
 
 
@@ -322,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021779.jpg" />
 </div>
 
 
@@ -351,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021582.jpg" />
 </div>
 
 
@@ -377,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020834.jpg" />
 </div>
 
 
@@ -403,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020605.jpg" />
 </div>
 
 
@@ -429,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019595.jpg" />
 </div>
 
 
@@ -455,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017894.jpg" />
 </div>
 
 
@@ -481,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015304.jpg" />
 </div>
 
 
@@ -507,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015294.jpg" />
 </div>
 
 
@@ -533,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011455.jpg" />
 </div>
 
 
@@ -559,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011280.jpg" />
 </div>
 
 
@@ -570,112 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6B831B1FB1C18C8D74F59CA7B6D0BD78328D365
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478678   (1010143) от 20.06.2021
-
-Агитпроп. Киссинджер наоборот (20.06.2021) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дипломатический поединок Путина и Байдена публику не впечатлил. Ни нокаута, ни нокдауна, ни даже просто пропущенных ударов. Да собственно, вообще никаких ударов. Два часа за закрытыми дверями, две раздельные пресс-конференции. И ведь не скажешь - “победила дружба”. Но практически никаких новостей, кроме возвращения послов и продления СНВ3. Что это было вообще?Производство: Россия, Авторский блог Константина Семина «Агитация и Пропаганда»Жанр: ПолитикаСубтитры: ОтсутствуетПродолжительность: 00:13:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE4A041DDFC7ADB7788DB03BDD1F98B29A03FD5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482691   (1007427) от 09.07.2021
-
-Агитпроп. Мао не покажется! (05.07.2021) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007427.jpg" />
-</div>
-
-
-###  Подробнее
-
-КПК — крупнейшая в мире правящая партия и крупнейшая партия, исповедующая социалистические принципы хотя бы на словах. Можно предъявлять к ней множество претензий, но если судить о празднике на площади Тяьнаньмынь по-обывательски, то и здесь невозможно не заметить разницу между молодыми лицами рабочих, учителей, врачей, военных и да, бюрократов, и обрюзгшими, перепомаженными, (   Читать дальше...   )Производство: Россия, Авторский блог Константина Семина «Агитация и Пропаганда»Жанр: ПолитикаСубтитры: ОтсутствуетПродолжительность: 00:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3FA8C31ACD3DA1B5901A886B0DB93610A4B44DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483772   (1006646) от 15.07.2021
-
-Агитпроп. Поиграем в стратегию? (11.07.2021) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Публикация обновленной стратегии национальной безопасности России привела в равное возбуждение и либеральную оппозицию, и придворных патриотов.
-
-Первые ужаснулись завинчиванию гаек и бряцанию оружием. Вторые - наоборот, пришли в восторг от того и от другого. Документ из 44 страниц едва ли достоин такой реакции. Но обратить на него внимание все же стоит. Не потому, (   Читать дальше...   )Производство: Россия, Авторский блог Константина Семина «Агитация и Пропаганда»Жанр: ПолитикаСубтитры: ОтсутствуетПродолжительность: 00:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40517F27146128969A8F35A64039D8C914D4635E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484762   (1005926) от 21.07.2021
-
-Это случилось в Америке (2020) DVB [H.264] (серии 1-2 из 2)
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня Америка переживает глубочайший раскол в обществе, который то и дело вспыхивает беспорядками – насилием, погромами и мародерством. Страна пытается пересмотреть свою историю и найти виновных в мучающих ее проблемах. Одни называют это очищением, другие – культурной революцией, ведущей в пропасть. Но кто эти революционеры, какие цели они перед собой ставят, и (   Читать дальше...   )Производство: Россия, ВГТРК Россия-1Жанр: Документальный, аналитическийРежиссер: Татьяна АрхипцоваЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:45:45+00:58:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:371476EA979B7D37DAF65F8152341DD871F9A157
 ```
 
 https://mybot314.ru/tekegram_catalog/

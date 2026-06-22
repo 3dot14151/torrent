@@ -1,3 +1,81 @@
+###  Публикация: 1863910   (1063127) от 07.04.2026
+
+И.А. Кушнир и др. | Геометрия. Школа боевого искусства. 7-9 классы (учебник и задачник) [2 книги] (1999 - 2000) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063127.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге в доступной форме излагается фундаментальный курс геометрии для учащихся 7 - 9 классов (планиметрия). Основное внимание уделяется методологии решения задач — более полутысячи задач с решениями. В качестве теоретического материала используются теоремы, задачи-теоремы и важные методические рекомендации.Жанр: МатематикаИздательство: ФактФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:027D463796283B7BCD6BF3494F4B4B2D612102DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864076   (1062996) от 08.04.2026
+
+И.М. Смирнова, В.А. Смирнов | Геометрия 10-11 классы. Учебник (базовый и профильный уровни) (2008) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемый учебник двухуровневый: с учетом параграфов со звездочкой он соответствует профильному уровню, без их учета - базовому. Наряду с традиционными вопросами геометрии пространства в качестве дополнительного в учебник включен материал научно-популярного и прикладного характера, а также помещены нестандартные и исследовательские задачи, исторические сведения. (   Читать дальше...   )Жанр: МатематикаИздательство: МнемозинаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E122573DB371BD9B76EE427ED6860A9396AF46A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864077   (1062995) от 08.04.2026
+
+И.М. Смирнова, В.А. Смирнов | Геометрия. 7-9 классы (2007) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник соответствует программе по математике для общеобразовательных учреждений. Помимо классической геометрии на плоскости в качестве дополнительного материала включены также вопросы геометрии пространства, научно-популярной и современной геометрии, топологии и др.Жанр: МатематикаИздательство: МнемозинаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86CF00D0EC1678EBE92D1233C94C428C14D253EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1864078   (1062994) от 08.04.2026
 
 С.А. Козлова, А.Г. Рубин, В.А. Гусев | Геометрия. 7-9 классы (2015) [PDF]
@@ -6,7 +84,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062994.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062738.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062268.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059704.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059203.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058401.jpg" />
 </div>
 
 
@@ -167,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058010.jpg" />
 </div>
 
 
@@ -194,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057328.jpg" />
 </div>
 
 
@@ -220,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057327.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057227.jpg" />
 </div>
 
 
@@ -274,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057198.jpg" />
 </div>
 
 
@@ -301,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057197.jpg" />
 </div>
 
 
@@ -327,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056210.jpg" />
 </div>
 
 
@@ -353,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055023.jpg" />
 </div>
 
 
@@ -379,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054669.jpg" />
 </div>
 
 
@@ -405,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054668.jpg" />
 </div>
 
 
@@ -431,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054667.jpg" />
 </div>
 
 
@@ -457,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054226.jpg" />
 </div>
 
 
@@ -483,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054225.jpg" />
 </div>
 
 
@@ -509,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054224.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054223.jpg" />
 </div>
 
 
@@ -563,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053136.jpg" />
 </div>
 
 
@@ -589,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053133.jpg" />
 </div>
 
 
@@ -600,87 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B60AFD5D465B4499BB4D11F4C4F682CA64BC43A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845004   (1050350) от 29.12.2025
-
-А.П. Доморяд | Математические игры и развлечения (1961) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классическим играм и развлечениям посвящена большая часть этой книги. В первых параграфах книги говорится о различных системах, счисления и о некоторых вопросах теории чисел, знание которых необходимо для понимания теории различных математических игр. Впрочем, для многих читателей эти параграфы могут представить и самостоятельный интерес. Теория отдельных игр изложена (   Читать дальше...   )Жанр: Занимательная математика, логические игры, головоломкиИздательство: Государственное издательство физико-математической литературыФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:514D9D1CD3C64F4AC25AB545647123BE49D37FD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843960   (1049768) от 24.12.2025
-
-А.И. Шапиро | Физика в приборах. Пособие для 7-8 класса (2020) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Карточки этого пособия с вопросами к ним подготовил знаменитый киевский учитель физики Анатолий Израилевич Шапиро.  Он использовал их на уроках как слайды для проектора.
-
-Мы собрали карточки в одну книжку, но книга не предполагает последовательного изучения. Её страницы можно копировать и раздавать школьникам по отдельности в том порядке, в котором они вписываются (   Читать дальше...   )Жанр: Учебное пособиеИздательство: Образовательные проектыФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1E57D67C9F7D3568FDA480E4EB31D099A587498
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843963   (1049767) от 24.12.2025
-
-Т.А. Жуляева | Химия. Большой наглядный справочник школьника (2023) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049767.jpg" />
-</div>
-
-
-###  Подробнее
-
-В справочнике представлены основные разделы школьного курса химии:
-«Первоначальные химические понятия», «Теоретические основы химии», «Неорганическая химия», «Органическая химия», «Условия протекания и признаки химических реакций», «Расчёты по химическим формулам и уравнениям реакций», «Методы познания в химии». Материал сгруппирован по коротким рубрикам, таблицам (   Читать дальше...   )Жанр: Учебное пособиеИздательство: ЭксмоФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19DA9CF2AB106B1D8AEE810620DCFBE96248327A
 ```
 
 https://mybot314.ru/tekegram_catalog/

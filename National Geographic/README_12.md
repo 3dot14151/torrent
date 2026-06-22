@@ -1,3 +1,107 @@
+###  Публикация: 1218651   (721524) от 10.04.2018
+
+NGW: Последние дьяволы / Last Devils (2016) HDTVRip [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721524.jpg" />
+</div>
+
+
+###  Подробнее
+
+В отдалённом уголке отдалённого острова живут невероятные и легендарные сумчатые животные - тасманийские дьяволы. Коренные народы из уст в уста передают истории о некогда красивом, подобно пантере, животном, которое было проклято и превратилось в злобное животное с огромной пастью и острыми клыками, которое получило название "Тераба", что переводится как (   Читать дальше...   )Производство: Австралия, Nat Geo WildЖанр: Документальный, природа, фаунаРежиссер: Йен МаршПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE7001FF41D2F72F77DFAE53DD42E4208C6D9D50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218643   (721403) от 10.04.2018
+
+NGW: Птица-динозавр / Dino-Bird (2017) HDTVRip [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721403.jpg" />
+</div>
+
+
+###  Подробнее
+
+В древних дождевых лесах Австралии ведёт борьбу за выживание современный динозавр. Величественное и странное существо, которое считают самой опасной птицей в мире - таинственный казуар!Производство: Австралия, Nat Geo WildЖанр: Документальный, природа, фаунаРежиссер: Эдвард Салтау, Дэниэл ХантерПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:432B7B85025E3299406D044A3E5FDBF8A38E8A49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218583   (721397) от 10.04.2018
+
+NGW: Десять смертельно опасных змей / Ten deadliest snakes (2016) HDTV [H.264/1080i-LQ] (Серии 1-4 из 4)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Найджел Марвен составляет свой список самых опасных змей на земле, путешествуя буквально по всему свету, от дождевых лесов Филиппин с их изнуряющей влажностью, до знойных пустынь Ближнего Востока.Производство: Великобритания, Image Impact, EdenЖанр: Документальный, фаунаРежиссер: Найджел МарвенПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 4 х ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F0F580398C12DB4A750950FBB9B7AEF6E5B1818
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218551   (721271) от 10.04.2018
+
+NGW: Апокалипсис животных / World's deadliest. Animal Apocalypse (2013) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Довольно часто поступают сообщения о том, что в разных частях планеты произошла массовая гибель животных, птиц или рыб. Так недавно у берегов Перу было обнаружено около девятисот трупов дельфинов. В Великобритании были обнаружены трупы тысяч крабов. В некоторых местах вымирают целые пчелиные семьи. Что происходит? С чем это связано? Может, следующими станем мы? По (   Читать дальше...   )Производство: США, Nat Geo WildЖанр: Документальный, фаунаРежиссер: Фил ФранкПеревод: Одноголосый закадровый, профессиональный (АРК ТВ)Субтитры: отсутствуютПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA5EA30EACFC3F3A61AC5A7ED2EAF0754C2A5CBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218587   (721265) от 10.04.2018
 
 NGW: Дикий Нил / Wild Nile (2014) HDTV [H.264/1080i-LQ] (Серии 1-3 из 3)
@@ -6,7 +110,7 @@ NGW: Дикий Нил / Wild Nile (2014) HDTV [H.264/1080i-LQ] (Серии 1-3 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721265.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720823.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NG. Бушующие миры: Солнечная буря / Storm Worlds: Cosmi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720052.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ NGW: Африканская кровавая река / Africa's blood river (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719525.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ NGW: Смертельная игра. Великий побег / Deadly game. E
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719523.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ NGW: Переменчивые животные. Свирепые семьи / Mo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719522.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ NGW. Человек против пумы / Man vs. Puma (2018) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718936.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ NGW: Власть царицы / Regime of the Queen (2018) HDTV [H.264/1080i-LQ
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718821.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718813.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ NG. Вдоль Великой Китайской стены / Trekking The Great
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718685.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ NG: Мафия кобры / Cobra Mafia (2014) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718513.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ NG. Десятка лучших фотографий National Geographic / Nat G
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717728.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ NGW: Выживание в Серенгети / Surviving the Serengeti (2015) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717522.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ NGW: Африканская суперзмея / Africa's super snake (2017) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717513.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ NGW: Переменчивые животные. Подростковые кош�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717511.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ NGW: Дикая природа Дальнего Востока / Wild Far East (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717408.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ NGW: Переменчивые животные. Брачные игры / Moody 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717391.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ NGW: Город выдр / Otter town (2016) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717307.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ NGW: Супер-белки / Super Squirrel (2014) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717304.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ NGW: Дикие маленькие кошки / Wild little cats (2017) HDTV [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717302.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716619.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ NG: 1989: Год, сотворивший современный мир / 1989: T
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716274.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ NG: 1989: Год, сотворивший современный мир / 1989: T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F517F75DD817755313DC9DC514CA8E06EA62ED84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 328790   (715815) от 26.04.2011
-
-NG: Самые страшные стихийные бедствия: Торнадо / Ultimate Disaster: Tornado (2007) TVRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Торнадо - это яркое зрелище, но его разрушительная сила колоссальна. С помощью специалистов и компьютерной графики, мы увидим к чему может привести это стихийное бедствие.Производство: СШАЖанр: ДокументальныйРежиссер: Jeff SwimmerПеревод: Одноголосый профессиональныйПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6E77D3E0998157B8B99CDB486F40304BEC7018A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219136   (715732) от 13.04.2018
-
-NGW: Кровавые соперники: гиппопотамы против львов / Blood rivals: Hippo V. Lion (2015) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Днём гиппопотамы агрессивны и не терпят вторжения на свою территорию, а ночью контроль переходит в лапы хищников, охотящихся на добычу.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Кира ИваноффПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFA7A9C60FBE0E727F4ACA2EAA322DD0F453D41F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219133   (715726) от 13.04.2018
-
-NGW: Самые опасные животные. Безумные акулы / World's deadliest. Shark frenzy (2017) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акулы жаждут мяса. Они используют опыт 400 миллионов лет эволюции, силу, технику и генетику, чтобы добиться своей цели.Производство: Новая Зеландия, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Джеймс БитонПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E805F427FBE78BD300AD791B2FA2908108E3B9DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400793   (714665) от 07.08.2020
-
-Осушить океан: Затонувший город пиратов / Drain the Sunken Pirate City (2017) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вот уже 300 лет город пиратов Порт-Роял скрыт на дне Карибского моря. Море буквально поглотило этот город. Но теперь в ходе исследования мы сможем осушить Карибское море и открыть то, что когда-то считалось самым безнравственным городом на земле - ведь это была величайшая столица морских разбойников. Считается, что в городе так много грешили, что он заслужил "кару (   Читать дальше...   )Производство: Великобритания, Канада, Mallinson Sadler Productions, Northern Sky Entertainment, Discovery Channel Canada, National Geographic ChannelЖанр: Документальный, научно-познавательныйРежиссер: Софи Элвин-ХаррисПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAF357BB06E8EAFD318F4E8E3F940EB859705C88
 ```
 
 https://mybot314.ru/tekegram_catalog/

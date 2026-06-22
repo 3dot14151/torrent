@@ -1,3 +1,57 @@
+###  Публикация: 984230   (911424) от 25.02.2016
+
+На той стороне 110-й улицы / Across 110th Street (1972) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мелкие чернокожие преступники отважились на нахальное преступление: они украли у итальянского гангстера 300 тысяч долларов и теперь находятся в бегах. За дело берутся двое полицейских — коррумпированный коп и его юный чернокожий напарник. Остается только один вопрос, кто первым доберется до воришек: служители закона или итальянские мафиози…Производство: США, Film GuarantorsЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Бэрри ШирАктеры: Энтони Куинн, Яфет Котто, Фрэнк Эду, Фрэнк Арно, Пол Бенджамин, Эд Бернард, Тина Бейер, Джерри Блэк, Сэмюэл Блу мл.Перевод: Многоголосый закадровыйЯзык субтитров: английскиеПродолжительность: 01:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:030A6AAEEB0C683F231265B23F66325334AD05E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490839   (910199) от 25.08.2021
+
+Падение Римской империи / The Fall of the Roman Empire (1964) BDRemux [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Правлению императора Марка Аврелия приходит конец, умирая, он назначает своим преемником не сына Комадаса, а полководца Гая Ливия, влюбленного в его дочь.
+Именно из-за этого Комадас все-таки приходит к власти и ситуация в Римской империи резко меняется: рушатся все военные и политические достижения, племена
+варваров вместе с предводителями бывших имперских провинций (   Читать дальше...   )Производство: США / Samuel Bronston ProductionsЖанр: Драма, военный, историяРежиссер: Энтони МаннАктеры: Софи Лорен, Стивен Бойд, Алек Гиннесс, Джеймс Мэйсон, Кристофер Пламмер, Энтони Куэйл, Джон Айрленд, Омар Шариф, Мел Феррер, Эрик ПортерПеревод: Многоголосый профессиональный, АвторскийЯзык озвучки: Русский, украинский, английскийСубтитры: ОтсутствуютПродолжительность: 03:05:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFF51393282DA58FD737EC8DE1E0DE9A01BC736E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095409   (910070) от 29.01.2017
 
 Человек из Рио / L'Homme de Rio (1964) BDRip [H.264/720p]
@@ -6,7 +60,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910070.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908859.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908095.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907934.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907699.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907579.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907517.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907432.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906442.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906030.jpg" />
 </div>
 
 
@@ -272,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905961.jpg" />
 </div>
 
 
@@ -300,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_905944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_905944.jpg" />
 </div>
 
 
@@ -326,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905848.jpg" />
 </div>
 
 
@@ -352,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905766.jpg" />
 </div>
 
 
@@ -379,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905721.jpg" />
 </div>
 
 
@@ -405,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904963.jpg" />
 </div>
 
 
@@ -431,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904761.jpg" />
 </div>
 
 
@@ -458,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902238.jpg" />
 </div>
 
 
@@ -484,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902141.jpg" />
 </div>
 
 
@@ -510,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901900.jpg" />
 </div>
 
 
@@ -536,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901436.jpg" />
 </div>
 
 
@@ -562,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901271.jpg" />
 </div>
 
 
@@ -590,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901188.jpg" />
 </div>
 
 
@@ -617,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900950.jpg" />
 </div>
 
 
@@ -628,60 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE856537191850D29734DE37676AFE1ECC6FF7B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532799   (899700) от 25.03.2020
-
-Джентльмены предпочитают блондинок / Gentlemen Prefer Blondes (1953) [720p] BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шоу-герлз Лорелей и Дороти отправляются на гастроли в Париж. За ними тайно следит частный детектив, нанятый отцом миллионером, чтобы доказать сыну, что Лорелей любит его подарки.Жанр: Мюзикл, драма, мелодрама, комедияРежиссер: Ховард ХоуксАктеры: Джейн Расселл, Мэрилин Монро, Чарльз Коберн, Эллиот Рид, Томми Нунан, Джордж Уинслоу, Марсель Далио, Тейлор Холмс, Норма Варден, Ховард УенделлПеревод: Профессиональный (многоголосый, дублированный)
-Профессиональный (многоголосый, закадровый)Субтитры: Русские x5 (форсированные для песен, форсированные для надписей, полные, somewax, dvd magic), Украинские, Польские, Чешские, Английские x2 (полные, SDH)Продолжительность: 01:31:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C00A329394EF2641F2386D8ECB0F0FF4ED8F54CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127896   (899620) от 25.03.2020
-
-Кагемуся: Тень воина / Kagemusha (1980) BDRip [H.264/1080p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Япония, XVI век. Мелкий воришка осуждён на казнь, но внезапно ему даруют жизнь. Дело в том, что он как две капли воды похож на местного правителя Такэду Сингэна, властного и сильного человека, один вид которого воодушевлял солдат.
-Желая застраховать себя от потрясений, родственники заставляют воришку исполнять роль государя, вживаясь в неё. Он становится как бы «тенью» (   Читать дальше...   )Производство: Япония, кинокомпания «Тoho Studios»Жанр: Детектив, Военный, ИсторияРежиссер: Акира КуросаваАктеры: Дайсуке Рюи, Каори Момои, Кеничи Хагивари, Кота Юи, Сюйджи Отаки, Татсуя Накадаи, Хидео Мурата, Цутомо Ямадзаки и др.Перевод: Многоголосый закадровыйСубтитры: Русские (полные и форсированные на непереведенные фрагменты)Продолжительность: 03:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B7432B4EFF1E661B7CB7C6A4279F6F7732C5403
 ```
 
 https://mybot314.ru/tekegram_catalog/

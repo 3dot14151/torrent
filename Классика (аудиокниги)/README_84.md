@@ -1,3 +1,59 @@
+###  Публикация: 1801007   (66266) от 07.06.2025
+
+Александр Куприн | Леночка (2025) [MP3, Андрей Красавин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Литературные чтения.
+Александр Иванович Куприн (1870–1938) – русский писатель, яркий представитель демократических и гуманистических традиций русской литературы, автор блестящих произведений, отражающих разные стороны русской жизни конца XIX – начала XX века.
+Рассказ «Леночка» написан А.И. Куприным в 1910 году. Полковник Возницын едет из Петербурга в (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBCE80F4E3114D8538427E94C544BD6BDA738E05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801005   (66265) от 07.06.2025
+
+Александр Куприн | Гамбринус (1971) [MP3, Лев Колесов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Библиотека школьника.
+Александр Иванович Куприн (1870–1938) – русский писатель, яркий представитель демократических и гуманистических традиций русской литературы, автор блестящих произведений, отражающих разные стороны русской жизни конца XIX – начала XX века.
+Рассказ «Гамбринус» написан А.И. Куприным 1907 году. Первая публикация в феврале 1907 года в (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 00:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A08C107EB3E3E91CD7B892306AB769F8B048C8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801009   (66244) от 07.06.2025
 
 Александр Куприн | Осенние цветы (1996) [MP3, Людмила Сапожникова]
@@ -6,7 +62,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66244.jpg" />
 </div>
 
 
@@ -34,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66204.jpg" />
 </div>
 
 
@@ -63,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66131.jpg" />
 </div>
 
 
@@ -92,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66059.jpg" />
 </div>
 
 
@@ -120,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66058.jpg" />
 </div>
 
 
@@ -149,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66056.jpg" />
 </div>
 
 
@@ -178,7 +234,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66053.jpg" />
 </div>
 
 
@@ -207,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65921.jpg" />
 </div>
 
 
@@ -235,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65751.jpg" />
 </div>
 
 
@@ -263,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65727.jpg" />
 </div>
 
 
@@ -292,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65557.jpg" />
 </div>
 
 
@@ -321,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65554.jpg" />
 </div>
 
 
@@ -349,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65539.jpg" />
 </div>
 
 
@@ -376,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65507.jpg" />
 </div>
 
 
@@ -405,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65395.jpg" />
 </div>
 
 
@@ -432,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65394.jpg" />
 </div>
 
 
@@ -459,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65340.jpg" />
 </div>
 
 
@@ -487,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65189.jpg" />
 </div>
 
 
@@ -513,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65011.jpg" />
 </div>
 
 
@@ -542,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64965.jpg" />
 </div>
 
 
@@ -568,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64954.jpg" />
 </div>
 
 
@@ -596,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64939.jpg" />
 </div>
 
 
@@ -622,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64896.jpg" />
 </div>
 
 
@@ -650,7 +706,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64877.jpg" />
 </div>
 
 
@@ -663,59 +719,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3411612AA9F0883ECBC4C262927F85CFF1E8BF5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808711   (64873) от 26.07.2025
-
-Александр Куприн | Чудесный доктор (сборник) (2023) [MP3, Иван Букчин, Александр Аравушкин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Иванович Куприн (1870—1938) — знаменитый русский писатель, автор романов, повестей, очерков и рассказов. Самые известные произведения Куприна "Гранатовый браслет", "Олеся" и "Юнкера" сделали его классиком отечественной и мировой литературы. Его рассказы для детей учат с добротой относиться к людям и помогать им. Образцом милосердия (   Читать дальше...   )Жанр: детская классика, классическая проза, литература 19 века, русская классикаИздательство: АСТПродолжительность: 04:36:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:671901D463F677AACA10038398B97E05B2FD5A72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809635   (64693) от 31.07.2025
-
-Владимир Маяковский | Баня (Радиоспектакль) (2008) [MP3, Георгий Менглет, Ростислав Плятт и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Владимирович Маяковский (19 июля 1893, Багдади, Кутаисская губерния, Российская империя – 14 апреля 1930, Москва, СССР) – русский и советский поэт, драматург, киносценарист, кинорежиссёр, киноактёр, художник. Лауреат премии Ленинского комсомола (1968 – посмертно). Один из наиболее значимых русских поэтов XX века, классик советской литературы.
-Радиоспектакль (   Читать дальше...   )Жанр: кая литература, классика, комедия, фантастикаИздательство: Студия «Звуковая книга», ГостелерадиофондПродолжительность: 02:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:337725C0C24C98E2E1A6B0E03B68F663FA7A5CF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

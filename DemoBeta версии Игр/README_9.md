@@ -6,7 +6,7 @@ Flotsam (2019) [Ru/Multi] (0.8.5f1) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37452.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Valheim - Ashlands (2021) [Ru/Multi] (0.219.16) Repack Wagner [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36419.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Inside the Backrooms (2022) [Ru/Multi] (0.5.3) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36381.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Last Plague: Blight (2024) [Ru/Multi] (0.9.8) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36296.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Endless Sky (2015) [En] (0.10.10/dlc) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36093.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ ASKA (2024) [Ru/Multi] (1.4.2711242013) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35816.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (0.10.6) Repack Wanterlude [Early A
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35789.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ The Long Drive (2019) [Ru/En] (2024.11.26b test) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35654.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ B-17 Flying Fortress : The Mighty 8th Redux (2024) [En] (1.0.15) License GOG [Ea
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34988.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Ostriv (2020) [Multi] (0.5.8.3/dlc) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34250.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Forever Skies (2023) [Ru/Multi] (1.7.0) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34238.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Scrap Mechanic (2016) [Ru/Multi] (0.7.3) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34004.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ VOIN (2024) [Ru/Multi] (0.1.0) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33411.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Low Magic Age (2017) [Multi] (0.91.75.2) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32985.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Cataclismo (2024) [Ru/Multi] (0.22.0.6.417) Repack Wagner [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32596.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Forever Skies (2023) [Ru/Multi] (1.7.1) Repack Wagner [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31527.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Endzone 2 (2024) [Ru/Multi] (0.8.9140.27121) Repack Wagner [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31336.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Wild Woods (2024) [Ru/Multi] (0.1.0) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30052.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Hidden Deep (2022) [Ru/Multi] (0.96.7/dlc) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29538.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Winter Falling: Battle Tactics (2022) [En] (7.11) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29430.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Manor Lords (2024) [Ru/Multi] (0.8.029) Repack Wagner [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29236.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Industry Giant 4.0 (2024) [Ru/Multi] (0.4.2) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29230.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Industry Giant 4.0 (2024) [Ru/Multi] (0.4.2) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28629.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Slime Rancher 2 (2022) [Ru/Multi] (0.6.2) Repack EXROW [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27346.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Supermarket Simulator (2024) [Ru/Multi] (0.6) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27220.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ The First Berserker Khazan (2025) [Ru/Multi] (480684) Repack Let'sРlay [Demo]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26333.jpg" />
 </div>
 
 

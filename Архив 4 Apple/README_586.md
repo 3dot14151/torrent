@@ -1,3 +1,56 @@
+###  Публикация: 1429019   (178557) от 04.12.2020
+
+NetShred X 5.6.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178557.jpg" />
+</div>
+
+
+###  Подробнее
+
+NetShred X - утилита не просто для удаления кэша веб-браузера, cookie, истории посещения страниц и др., а уничтожения всех Интернет следов без возможности их восстановления. NetShred X удаляет временные файлы, оставленные браузером или почтовым клиентом, обеспечивая тем самым приватность пользователя. Программа поддерживает все популярные браузеры и почтовые клиенты. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Mireth TechnologyПоддерживаемая ОС: macOS 10.10.4+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4B31BB46DD88D32813A4AA06F19613629A4735D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429023   (178548) от 04.12.2020
+
+PatterNodes 2 v2.4.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178548.jpg" />
+</div>
+
+
+###  Подробнее
+
+PatterNodes - хорошо продуманный и настраиваемый инструмент для создания простых и сложных графических узоров, анимаций, градиентов и иллюстраций на основе повторений.
+Для достижения желаемого результата необходимо определить ряд шагов, которые описывают картину. Все используемые элементы или операции представлены в плавающей панели под названием узла, который может (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.12.2020Разработчик: Lost MindsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02D493ECAD69CD45BDF7935A0E78772B55BEE34E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428903   (178543) от 04.12.2020
 
 ColorWell 7.2 [Multi]
@@ -6,7 +59,7 @@ ColorWell 7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178543.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ MacX DVD Ripper Pro 6.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178541.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Mic Drop 1.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178538.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ WebScraper 4.14.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178537.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ Default Folder X 5.5.3  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178534.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ CoLocalizer Pro 7.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178533.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ Cisdem AppCrypt 5.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178532.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ Deckset 2.0.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178528.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ iBarcoder 3.12.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178524.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ MacX Video Converter Pro 6.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178523.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ Dropzone 4 Pro v4.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178493.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ Workspaces 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178488.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ Shortcut Bar 2.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178476.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ Magoshare Data Recovery Professional 4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178473.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ WinX DVD Ripper 6.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178469.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ iA Writer 5.6.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178461.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ WinX HD Video Converter for Mac 6.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178448.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ Tayasui Sketches Pro 6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178442.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ AYVY 1.6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178440.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ Airy 3.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178437.jpg" />
 </div>
 
 
@@ -538,7 +591,7 @@ Meta 1.9.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178425.jpg" />
 </div>
 
 
@@ -565,7 +618,7 @@ WiFi Explorer 3.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178393.jpg" />
 </div>
 
 
@@ -593,7 +646,7 @@ Translate Tab 2.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178326.jpg" />
 </div>
 
 
@@ -619,7 +672,7 @@ Movavi PDFChef for Mac 2021 v21.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178325.jpg" />
 </div>
 
 
@@ -630,60 +683,6 @@ PDF-редактор теперь PDFChef. Сделать работу с PDF п
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B19882D9B9132B30047342693114F88F5A69FE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428989   (178236) от 04.12.2020
-
-Duplicate File Finder & Remover 1.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Находите и удаляйте дубликаты файлов и папок на дисках и в облачных хранилищах быстро и безопасно.
-Вы собираетесь загрузить простое и элегантное приложение для сканирования вашего Mac на наличие всех видов дубликатов. Оно также имеет гибкие правила автоматического выбора, поэтому вам не нужно вручную перебирать дубликаты. ПО дает точные результаты за секунды на дисках (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.07.2017Разработчик: 508 Software, LLCПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0806F324523C2B1245D4C41B00AB1149FDD9EF73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428909   (178211) от 04.12.2020
-
-Sublime Text 4.0 Dev [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sublime Text — быстрый кроссплатформенный редактор исходных текстов программ. Поддерживает плагины на языке программирования Python.
-Sublime Text не является свободным или открытым программным обеспечением, однако, некоторые его плагины распространяются по свободной лицензии, а также разрабатываются и поддерживаются сообществом разработчиков. Он поддерживает подсветку (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.11.2020Разработчик: Jon SkinnerПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0320DEF9C912B2CCB24A57D28B671A57233ED17A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,264 @@
+###  Публикация: 1024730   (716126) от 09.06.2016
+
+Midori - Mellow - Relaxation Piano (2014) [FLAC|Lossless|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clarity [00:08:22]
+ 02. A Promise of Love [00:05:08]
+ 03. Love Is All We Need [00:06:20]
+ 04. Peace [00:06:36](   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 01:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E45EB9B8D0CECCAC04381966207FF7F7B93FF69F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024740   (716035) от 09.06.2016
+
+Hans Zimmer - Kung Fu Panda 3 / Кунг-фу Панда 3 (Music from the Motion Picture) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hans Zimmer & Lang Lang – Oogway's Legacy (02:00)
+02. Hans Zimmer - Hungry for Lunch (01:15)
+03. Hans Zimmer – The Power of Chi (04:12)
+04. Hans Zimmer – The Arrival of Kai (02:01)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFFC59F0F35E7EFAFBF852B2D7154D4CD3AE11F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024650   (716020) от 09.06.2016
+
+Deva Premal & Miten with Manose - Cosmic Connections Live (with Manose) (2016) Live [MP3|320 кб/с] <New age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Om Sahana Vavatu Mantra (Live)
+02. Mangalam (Live)
+03. Nam Myoho Renge Kyo Mantra (Live)
+04. Om Kumara Mantra (Live)(   Читать дальше...   )Жанр: New age, MeditativeПродолжительность: 00:59:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37D5E982E40354523EB2ACFBC92613AB2D19A457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130155   (715964) от 01.05.2017
+
+VA, Tyler Bates - Guardians of the Galaxy / Стражи Галактики (Original Motion Picture Soundtrack) (2014) Deluxe Edition [FLAC|Lossless|tracks + .cue]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tyler Bates - Morag (01:58)
+02. Tyler Bates - The Final Battle Begins (04:21)
+03. Tyler Bates - Plasma Ball (01:18)
+04. Tyler Bates - Quill's Big Retreat (01:38)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:49:42 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74CEA0BFA04639FE28978462C214E529E4E1A8A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024266   (715958) от 09.06.2016
+
+Michael Giacchino - Zootopia / Зверополис (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shakira - Try Everything (03:17)
+02. Stage Fright (00:40)
+03. Grey's uh-Mad at Me (01:45)
+04. Ticket to Write (01:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:184075190F0AB1A52517BBAEF015BDB4E463D02F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024268   (715830) от 09.06.2016
+
+Michael Giacchino - Zootopia / Зверополис (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shakira - Try Everything (03:17)
+02. Stage Fright (00:40)
+03. Grey's uh-Mad at Me (01:45)
+04. Ticket to Write (01:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EBBFC8615B1C55D404A5C0A5F1F0209B7ED3111
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219243   (715730) от 13.04.2018
+
+Dr. Jeffrey Thompson & Mick Rossi - Dancing Clouds (2007) [FLAC|Lossless|tracks] <New Age, Meditative, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmos 15:28
+02. Flying 15:49
+03. Astral Plane 16:05
+04. Dancing Clouds 15:22Жанр: New Age, Meditative, RelaxПродолжительность: 01:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:312BA8154153A9BC8FDB3047125BEB70F1F522C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219318   (715508) от 13.04.2018
+
+Danheim - Munarvagr (2017) [FLAC|Lossless|tracks] <Dark Folk, Dark Ambient>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro 0:44
+02. Vindöld 3:28
+03. Tyrfing 3:27
+04. Tyr 3:40(   Читать дальше...   )Жанр: Dark Folk, Dark AmbientПродолжительность: 00:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E62E35A0A3BE856A95EA7689A391C46B19AD6E93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219324   (715500) от 13.04.2018
+
+Danheim - Fridr (2018) [FLAC|Lossless|tracks] <Dark Folk, Dark Ambient>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fridr 4:24
+02. Ginnung 4:55
+03. Fegurð 4:45
+04. Yggdrasil 4:32(   Читать дальше...   )Жанр: Dark Folk, Dark AmbientПродолжительность: 00:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8F682CB24D57E632E687F6FE75AC4C42B8E4C87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024413   (715453) от 09.06.2016
 
 Toby Fox - Undertale Soundtrack (2015) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Chiptune, Midi, Orchestral>
@@ -6,7 +267,7 @@ Toby Fox - Undertale Soundtrack (2015) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715453.jpg" />
 </div>
 
 
@@ -35,7 +296,7 @@ The Innocence Mission - Sun On The Square (2018) [FLAC|Lossless|tracks + .cue] <
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715076.jpg" />
 </div>
 
 
@@ -64,7 +325,7 @@ Jim Brickman - Relax to the Hits of Jim Brickman (2019) [FLAC|Lossless|WEB-DL|tr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714911.jpg" />
 </div>
 
 
@@ -93,7 +354,7 @@ Meditation Music Zone & Ensemble de Musique Zen Relaxante - Bouddha 2019: Bar, l
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714910.jpg" />
 </div>
 
 
@@ -122,7 +383,7 @@ Lee Scratch Perry - The Black Album (2018) [FLAC|Lossless|tracks + .cue] <Dub, R
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714825.jpg" />
 </div>
 
 
@@ -151,7 +412,7 @@ Two Steps From Hell - Dragon (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714718.jpg" />
 </div>
 
 
@@ -180,7 +441,7 @@ Shannon Rae - Shannon Rae (2016) [FLAC|Lossless|tracks] <Country, Alt Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714143.jpg" />
 </div>
 
 
@@ -209,7 +470,7 @@ Alex Hart - On This Day (2014) [MP3|320 кб/с] <Country, Alt Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714139.jpg" />
 </div>
 
 
@@ -238,7 +499,7 @@ Liquid Mind - Relaxing Rain & Ocean Mixes (2014) [MP3|320 кб/с] <New Age, Amb
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714134.jpg" />
 </div>
 
 
@@ -267,7 +528,7 @@ Liquid Mind - Relaxing Rain & Ocean Mixes (2014) [FLAC|Lossless|tracks] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714083.jpg" />
 </div>
 
 
@@ -296,7 +557,7 @@ Hans Zimmer - Kung Fu Panda 3 / Кунг-фу Панда 3 (Music from the Motio
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714075.jpg" />
 </div>
 
 
@@ -325,7 +586,7 @@ Terry Oldfield & Soraya - Namaste (2016) [MP3|320 кб/с] <New age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713994.jpg" />
 </div>
 
 
@@ -354,7 +615,7 @@ VA - Are Lonesome Tonight. 23 Romantic Instrumentals (UY) Unofficial Release [AP
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713962.jpg" />
 </div>
 
 
@@ -383,7 +644,7 @@ Nature Sounds & Yoga Tribe - The Natural Orchestra (2016) [MP3|320 кб/с] <New
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713796.jpg" />
 </div>
 
 
@@ -412,7 +673,7 @@ Danheim - Herja (2018) [FLAC|Lossless|tracks] <Dark Folk, Dark Ambient>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713353.jpg" />
 </div>
 
 
@@ -441,7 +702,7 @@ Ikaiki Taky - Inka Llacta (2009) [FLAC|Lossless|tracks + .cue]<Ethnic, Folk, New
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713041.jpg" />
 </div>
 
 
@@ -470,7 +731,7 @@ Native Spirit - Pow Wow Dance (2008) [FLAC|Lossless|tracks + .cue]<Ethnic, Folk,
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713039.jpg" />
 </div>
 
 
@@ -484,266 +745,6 @@ Native Spirit - Pow Wow Dance (2008) [FLAC|Lossless|tracks + .cue]<Ethnic, Folk,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83354461561B3DB9DB55BAABAAC4EB53A173A1FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130740   (712685) от 03.05.2017
-
-Glenn Morrison - How We Are (Motion Picture Soundtrack) (2017) [MP3|320 Kbps] <Soundtracks>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712685.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. How We Are (04:06)
-2. Incessant (04:18)
-3. Dinosaur Vibrato (04:16)
-4. Apocalyptic Veil (07:44)(   Читать дальше...   )Жанр: SoundtracksПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC905047673007078EB4C748E4B2AE256A878873
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130588   (712678) от 03.05.2017
-
-VA - Your Own Personal Buddha: Cafe Ethnic Lounge (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Velvet - Shaking the Spirits - Mykonos Sunset Mix
-02. Milews - Cafe Del Mar Dreams - Tabla Buddha Ibiza Mix
-03. Moonflower - Buddha in the Lounge - Bar Cafe Night Mix
-04. Blue Crisp - African Skies - Sunset Del Mar Lounge Mix(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:25:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F85175B6874E57853AD25468FA5BD29CBA04400D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130632   (712277) от 03.05.2017
-
-Kitaro - Sacred Journey of Ku-Kai, Volume 5 (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul From Ocean (5:57)
-02. Breath Of Light (6:31)
-03. Reflection Of The Heart (5:36)
-04. Wave Rotation (5:03)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ED82BC411E27F4DA7446A4BA802AFAD68976260
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 791733   (711938) от 01.06.2014
-
-VA - Pure... Country (2010) Box Set, 4 CD [FLAC|Lossless]<Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ну что ж, общими усилиями мы продвигаемся к пополнению списка релизов под общим лейблом Pure... от Sony. Думаю, что уже сегодня в клубе наиболее полная коллекция этой серии. Здесь же представлен четырех-дисковый сет, посвященной музыке Country. И хотя в аннотации к сету пишется, что он охватывает множественные стили и эры кантри, на мой взгляд коллекция все-таки (   Читать дальше...   )01. Johnny Cash - I Walk the Line  (2:36)
-02. Willie Nelson - On the Road Again  (2:33)
-03. John Denver - Take Me Home, Country Roads  (3:12)
-04. Lynn Anderson - (I Never Promised You a) Rose Garden  (2:56)(   Читать дальше...   )Жанр: CountryПродолжительность: 03:31:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E360BB6FC01B37FA69994FEC54217B0C35AD6551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219570   (711832) от 15.04.2018
-
-Ajeet Kaur - Shuniya: Healing Chants (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maha Mrityunjai (31:02)
-02. Adi Shakti - Bhakti Mantra (12:42)
-03. Ra Ma Da Sa (10:59)Жанр: New AgeПродолжительность: 00:54:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C43E63EB07CC0685BF251C89B5620378DC7880D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286660   (711311) от 03.03.2019
-
-Vince Gill - Pocket Full Of Gold (1991) [FLAC|Lossless|tracks + .cue] <Folk, World, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711311.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	I Quit 	2:30
-2 	Look At Us 	3:59
-3 	Take Your Memory With You 	2:34
-4 	Pocket Full Of Gold 	4:04(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 00:32:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6608F27F61546E2142399D121DFEFEB87B340902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286727   (711297) от 03.03.2019
-
-Toby Keith - Pull My Chain (2001) [FLAC|Lossless|tracks + .cue] <Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711297.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	I'm Just Talkin' About Tonight 	2:45
-2 	I Wanna Talk About Me 	3:04
-3 	I Can't Take You Anywhere 	3:33
-4 	You Leave Me Weak 	3:22(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66909DEEA2AD6F9A5C75D21B57758DAFAD3A2C05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286736   (711283) от 03.03.2019
-
-Toby Keith - Greatest Hits Volume One (1998) [FLAC|Lossless|tracks + .cue] <Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711283.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	Getcha Some 	3:16
-2 	If A Man Answers 	3:36
-3 	Should've Been A Cowboy 	3:30
-4 	Dream Walkin' 	3:56(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AD87F7878A3A3264DDD51D65BDCBD45E2D09E83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286738   (711206) от 03.03.2019
-
-Toby Keith - Greatest Hits 2 (2004) [FLAC|Lossless|tracks + .cue] <Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711206.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	How Do You Like Me Now?! 	3:27
-2 	Country Comes To Town 	3:38
-3 	You Shouldn't Kiss Me Like This 	3:42
-4 	I'm Just Talkin' About Tonight 	2:45(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:963D425B830B635F8A6840EE38BF9A0B2FF328EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

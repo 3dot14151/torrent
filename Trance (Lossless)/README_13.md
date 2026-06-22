@@ -6,7 +6,7 @@ VA - A State of Trance - Classics Top 10, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64751.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - A State of Trance - Classics Top 10, Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64735.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - A State of Trance - Classics Top 10, Vol. 5 (2025) [FLAC|Lossless|WEB-DL|tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64729.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - A State of Trance Radio Top 50 - 2025, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64558.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Armin van Buuren - A State of Trance (Celebration Weekend) (unmixed tracks)
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59918.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Nova Scotia - Power Of Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Trance, Pop Tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58773.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ CJ Stone & Quiz ft. Jenny - Surrender (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58766.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Jamie B and Nova Scotia - Because Of You (2018) [FLAC|Lossless|WEB-DL|tracks] <S
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58764.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Sash! - Adelante (Bobina Megadrive Remix) (2018) [FLAC|Lossless|tracks] <Progres
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57287.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ VA - A State of Trance 2024 (mixed by Armin van Buuren) (2024) [FLAC|Lossless|WE
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56021.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ VA - Armada Chill - Summer 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Deep House
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53930.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Robert Miles - Dreamland (1996) [FLAC|Lossless|tracks + .cue] <Trance, Electroni
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51836.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ VA - Anjunabeats presents Vocal Trance 01 (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49741.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Deejay Laura - Euphoria (2013) [FLAC|Lossless|tracks] <Pop Trance, Scouse House>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39643.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Clarky - Forever In Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Trance, Pop Tranc
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34585.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ DJ Nibzy feat. Chrissie - Stand By Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Scou
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33131.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ VA - The Best Of Suanda Voice 2024 [FLAC|Lossless|WEB-DL|tracks] <Vocal Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33026.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Armin Van Buuren - A State of Trance, Ibiza 2024 (Mixed by Armin van Buuren) (20
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32856.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Kyau & Albert - All in Good Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Electroni
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32828.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ djdtime - Melodic Techno & Ethereal Vocals (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26877.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ VA - Trance Top 100, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25830.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Armin van Buuren - Live at Seven Wonders, Pillars of Creation ... (2025) [FLAC|L
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23531.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - Trance Top 100, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19861.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ VA - A State of Trance - Classics Top 10, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19764.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Markus Schulz - The Rabbit Hole Circus (Extended Mixes) (2025) [FLAC|Lossless|WE
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19570.jpg" />
 </div>
 
 
@@ -713,7 +713,7 @@ VA - A State of Trance Radio Top 50 - 2025, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15830.jpg" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 1015740   (773909) от 11.05.2016
+
+Braid (2009) [Ru/Multi] (1.0) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Braid — это выполненный в живописном стиле платформер-головоломка, который дает вам возможность управлять течением времени множеством странных и необычных способов. Начав с городского особняка, вы посетите разнообразные мирыТип издания: LicenseРазработчик: Number NoneЖанр: Arcade (Platform), LogicЯзык озвучки: -/-Язык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6372D023C8DFF4AD712C2CCA81503D5A9103D87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124674   (772736) от 13.04.2017
+
+The Sexy Brutale (2017) [En] (1.0) License SKIDROW
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772736.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Sexy Brutale принадлежит перу студии Cavalier Game Studios и Tequila Works. Игра идет по стопам «Дня сурка»: герою приключения, как и персонажу Билла Мюррея, предстоит вновь и вновь переживать один и тот же день. Действие The Sexy Brutale происходит во время маскарада в особняке загадочного господина Маркиза.Тип издания: LicenseРазработчик: Cavalier Game Studios, Tequila WorksЖанр: Aracde, AdventureЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1D92903BB45D0D11D971CE87A051A246A71AD7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957727   (772735) от 13.04.2017
 
 Tinertia (2015) [Multi] (2.0/dlc) Repack R.G. Механики
@@ -6,7 +58,7 @@ Tinertia (2015) [Multi] (2.0/dlc) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772735.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ ZAMB! Endless Extermination (2019) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772646.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ The Expendables 2: Videogame (2012) [Ru/Multi] (1.0) Repack =nemos=
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772224.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ AVICII Invector (2019) [Ru/Multi] (1.4.4) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771189.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Chicku (2016) [En] (1.05) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771057.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Riff Racer - Race Your Music! (2016) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770034.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Shadow Complex Remastered (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769433.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Shadow Complex Remastered (2016) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769425.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Holy Potatoes! We're in Space?! (2017) [Ru/Multi] (1.1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766702.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Hellmut: The Badass from Hell (2018) [Ru/Multi] (1.0.3/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766488.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Asura (2017) [En/Ch] (1.0.27251) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765946.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Mr Shifty (2017) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765942.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Return of the Incredible Machine Contraptions (2000) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764148.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Trackmania Turbo (2016) [Ru/Multi] (2016-03-23_18_29) Repack =nemos=
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764084.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Armored Evolution (2019) [En] (2.0.b) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761579.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Unravel (2016) [Multi] (1.0.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761017.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Panzer Elite Action - Dunes of War (2007) [Ru] (1.44.12) Repack =nemos=
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760595.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Trine (2014) [Ru/Multi] (2.12) Repack R.G. Catalyst [Enchanted Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759371.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Crossing Souls (2018) [Ru/Multi] (1.2.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757675.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Asterix & Obelix XXL Dilogy / Asterix & Obelix XXL 1 & 2  (2004-2005) [Ru/Multi]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756434.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Survive in Space (2016) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755217.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Survive in Space (2016) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755110.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Koihime Enbu (2016) [En/Ja] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755105.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Scrap Garden (2016) [Ru/Multi] (1.1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753206.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Scrap Garden – очаровательный 3D платформер, расс�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F64764FCF0BA29E96343F227B3B1E993334A48E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281573   (751488) от 08.02.2019
-
-My Memory of Us (2018) [Ru/Multi] (1.13057.1) Repack R.G. Catalyst
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751488.jpg" />
-</div>
-
-
-###  Подробнее
-
-My Memory of Us – это воспоминание о дружбе между мальчиком и девочкой. Дружбой, которая объединяла их в трудные времена. Во времена террора, боли и изгнания, когда люди были вынуждены жить в двух искусственно разделенных мирах.Тип издания: RepackРазработчик: Juggler GamesЖанр: Adventure, PlatformerЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD8808AED545A7EE134752CF67C450E0468A0A16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008939   (751184) от 22.05.2016
-
-IS Defense (2016) [En] (1.0 u5/dlc) License CODEX
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751184.jpg" />
-</div>
-
-
-###  Подробнее
-
-IS Defense - это аркадный шутер в фэнтезийном сеттинге с уклоном в политику. На дворе 2020 год, запрещенная группировка ИГИЛ распространяется в мире все больше и готовит вторжение в Европу. Игроку предстоит дать отпор темным силам террористов.Тип издания: LicenseРазработчик: Destructive CreationsЖанр: Arcade (Virt.shooting), 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5108CBEA5CB1DE6B2471AA956902BCBDB67BD0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

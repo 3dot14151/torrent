@@ -6,7 +6,7 @@ Rik Meijer - Rik Meijer (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366625.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Pacific 22 - Walking on the Border Line (2022) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366512.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Rubenoff Project - ...And Another Thing (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366496.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Dig 3 - The Dig 3 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366492.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The C J Smith Band - Coming Home Again (2022) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366489.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Stone Free - Stone Free (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366488.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Curve - Revelation (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366487.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Peanuts - Dawn (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366486.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Tuomari Nurmio & Knucklebone Oscar - Believe It or Not (2022) [FLAC|Lossless|WEB
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366359.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Sunday Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366350.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Tyla's Dogs D'amour - Tree Bridge Cross (2022) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366347.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ The B. Christopher Band  - Snapshots from the Second Floor (2022) [FLAC|Lossless
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366161.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Powerhouse Gospel On Independent Labels (1946 - 1959) 4CD, 2010, JSP [FLAC|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365474.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Various Artist: Alligator Records - Collection: 15 albums, 25 CD (1991-2017) [FL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364608.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ John Mayall With Eric Clapton - Blues Breakers (2019) Remaster, 1966 [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363385.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Nuggets Of The Golden Age Of Gospel (1945 - 1958) 4CD, 2009, JSP [FLAC|Loss
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363336.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Big Bill Morganfield - 7 Albums (1997 - 2016) [FLAC|Lossless|image + .cue|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359171.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Ronnie Earl And The Broadcasters - Beyond The Blue Door (2019) [FLAC|Lossless|im
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359156.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Jimmy D. Lane - 3 альбома (1997 - 2004) [FLAC|Lossless|image + .cue|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359143.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Debbie Davies - 13 Albums (1993 - 2015) [FLAC|Lossless|image + .cue|tracks + .cu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358382.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Don Ray Band - 4 альбома (2009 - 2013) [FLAC|Lossless|tracks + .cue] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356522.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Too Slim And The Taildraggers - Brace Yourself (2022) Live [FLAC|Lossless|image 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354817.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ James Brown - Funkin' In The Jungle (1993) [FLAC|Lossless|image + .cue] <Funk, S
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353536.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Danny Bryant's Redeyeband - Just As I Am (2010) [FLAC|Lossless|image + .cue] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352611.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Danny Bryant's Redeyeband - Covering Their Tracks (2004) [FLAC|Lossless|image + 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352603.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Rob "Wild Boar" Moore - Used to Be Wild (2022) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352549.jpg" />
 </div>
 
 

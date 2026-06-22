@@ -6,7 +6,7 @@ Mix: Meisei Story 2nd Season - Nidome no Natsu, Sora no Mukou e | Микс: Ис
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186165.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Shinigami Bocchan to Kuro Maid (2023) | The Duke of Death and His Maid (2023) | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186163.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Eiyuu Kyoushitsu | Hero Classroom | Класс для героев [2023, TV, 12
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186159.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Level 1 Dakedo Unique Skill de Saikyou Desu | С особым навыком я 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186155.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Ayakashi Triangle / Треугольник Аякаси [2023, TV, 12] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185603.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Takunomi. | Алкогольные посиделки [2018, TV, 12] BDRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184743.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Niehime to Kemono no Ou | Sacrificial Princess and the King of Beasts | Жерт
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184192.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Suki na Ko ga Megane o Wasureta | The Girl I Like Forgot Her Glasses | Моя в
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184187.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Undead Girl Murder Farce | Фарс убитой нежити [2023, TV, 13 эп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184177.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Tensei Shitara Slime Datta Ken | That Time I Got Reincarnated as a Slime | О м
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183634.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Shi Cao Lao Long Bei Guan Yi E Long Zhi Ming | A Herbivorous Dragon of 5,000 Yea
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183580.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Shiro Seijo to Kuro Bokushi / Saint Cecilia and Pastor Lawrence / Святая �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183448.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Kuromukuro | Чёрная сталь [2016, TV, 26 эп.] BDRip 720p 10-bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183015.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Hataraku Maou-sama!! 2nd Season / The Devil is a Part-Timer!! 2nd Season / По�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182728.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Mahou Sensei Negima! Shiroki Tsubasa Ala Alba | Волшебный учител�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182546.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Kanojo, Okarishimasu 3 | Rent-a-Girlfriend (2023) | Девушка на час [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181845.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ AI no Idenshi | The Gene of AI | Ген искусственного интел�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181828.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Spy Kyoushitsu 2 / Spy Classroom 2 / Шпионский класс 2 [2023, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181806.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Edens Zero 2 | Нулевой Эдем [ТВ-2] [2023, TV, 25 из 25] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181784.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Dekiru Neko wa Kyou mo Yuuutsu | The Masterful Cat Is Depressed Again Today | К
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181740.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Uchi no Kaisha no Chiisai Senpai no Hanashi / Story of a Small Senior in My Comp
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181040.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Bleach Sennen Kessen Hen - Ketsubetsu Tan | Bleach: Thousand-Year Blood War - Th
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181027.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Jitsu wa Ore, Saikyou Deshita? / Am I Actually the Strongest? / На самом 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181009.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Toji no Miko: Kizamishi Issen no Tomoshibi | Жрицы с мечами: Раз�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176563.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Ao no Orchestra | Blue Orchestra | Синий оркестр [2023, TV, 24] WEBR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174395.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Urahara | Урахара | Вопреки [2017, TV, 12 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173813.jpg" />
 </div>
 
 

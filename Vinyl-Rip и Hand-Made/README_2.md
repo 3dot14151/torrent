@@ -1,3 +1,90 @@
+###  Публикация: 1859602   (1061228) от 17.03.2026
+
+Tool - Studio Albums (7 releases) (1991-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tool — американская рок-группа из Лос-Анджелеса, штат Калифорния, США, образованная в 1990 году.1991 - 72826
+1992 - Opiate (EP)
+1993 - Undertow
+1996 - ÆnimaЖанр: Progressive MetalПродолжительность: 06:53:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9AEA0772875582E601096C7754DB272CF1C7E01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859718   (1061224) от 17.03.2026
+
+Seven Impale - Studio Albums (4 releases) (2013-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Seven Impale — это звучание прошлого и будущего. Они сочетают в себе ритмы современного метала, часто встречающиеся у таких групп, как Tool и Meshuggah, и классический прогрессивный рок в стиле King Crimson. Seven Impale также используют элементы джаза в гармониях и импровизации.2013 - Beginning-Relieve (EP)
+2014 - City of the Sun
+2016 - Contrapasso
+2023 - Summit(   Читать дальше...   )Жанр: Prog RockПродолжительность: 03:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDF8E362DDC281DCAFBB36FD25E1FB646B00C75E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859309   (1061042) от 15.03.2026
+
+Delibes / Chopin - Douglas (Berliner Philharmoniker, Herbert von Karajan) - Coppelia-Ballettsuite / Les Sylphides (1961) Reissue, Repress [LAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical, Romant ...
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Delibes: Coppelia-Balletsuite
+A1 Vorspiel Und Mazurka
+A2 Szene Und Walzer Der Swanhilde
+A3 Csardas(   Читать дальше...   )Жанр: Classical, RomanticПродолжительность: 00:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93634F230E038A4D13E88D04713564CB8FA6F9BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858874   (1060778) от 13.03.2026
 
 Skeeter Davis and Bobby Bare - Tunes For Two (1965) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, Country>
@@ -6,7 +93,7 @@ Skeeter Davis and Bobby Bare - Tunes For Two (1965) [FLAC 2.0|192/24|image +.cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060778.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ VA - Twenty-Five Years Of Royal Variety At The London Palladium 1930 - 1973 (197
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060650.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Ebony Tears - Studio Albums (3 releases) (1997-2001) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060567.jpg" />
 </div>
 
 
@@ -92,7 +179,7 @@ Tammy Wynette - In Love (1976) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, Co
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060539.jpg" />
 </div>
 
 
@@ -121,7 +208,7 @@ Boston Pops Orchestra • Arthur Fiedler - Classical Music For People Who Hate C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059790.jpg" />
 </div>
 
 
@@ -150,7 +237,7 @@ Max Bygraves - Max Bygraves (1971) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059760.jpg" />
 </div>
 
 
@@ -179,7 +266,7 @@ Mason - Studio Albums (3 releases) (2013-2025) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059424.jpg" />
 </div>
 
 
@@ -207,7 +294,7 @@ Peter Katin, London Philharmonic Orchestra, John Pritchard - Tchaikovsky / Litol
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059237.jpg" />
 </div>
 
 
@@ -236,7 +323,7 @@ Susperia - Studio Albums (7 releases) (2001-2018) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059157.jpg" />
 </div>
 
 
@@ -265,7 +352,7 @@ Armageddon (Sweden) - Studio Albums (5 releases) (1997-2016) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058677.jpg" />
 </div>
 
 
@@ -294,7 +381,7 @@ Abhorrent Decimation - Studio Albums (3 releases) (2013-2017) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058676.jpg" />
 </div>
 
 
@@ -322,7 +409,7 @@ Cleo Laine - The Platinum Collection Of Cleo Laine (1981) Series The Platinum Co
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058675.jpg" />
 </div>
 
 
@@ -351,7 +438,7 @@ VA - Country Dreams (1983) [FLAC|Lossless|image + .cue] <Folk, Country>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058640.jpg" />
 </div>
 
 
@@ -380,7 +467,7 @@ Cathedral - Studio Albums (15 releases) (1991-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058533.jpg" />
 </div>
 
 
@@ -409,7 +496,7 @@ Ghosts of Jupiter - Studio Albums (4 releases) (2011-2021) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058190.jpg" />
 </div>
 
 
@@ -438,7 +525,7 @@ Handel, The Academy Of St. Martin-in-the-Fields - Concerto (1979) cond. Neville 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057984.jpg" />
 </div>
 
 
@@ -467,7 +554,7 @@ Rotting Christ (Sakis Tolis; χ ξ ς') - Studio Albums (20 releases) (1991-2026
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057602.jpg" />
 </div>
 
 
@@ -496,7 +583,7 @@ VA - Emotions (1978) Billy Joel, Chris Rea, Andy Williams, Bonnie Tyler and othe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057272.jpg" />
 </div>
 
 
@@ -525,7 +612,7 @@ Callisto - Studio Albums (5 releases) (2002-2015) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057177.jpg" />
 </div>
 
 
@@ -554,7 +641,7 @@ Spiritual Beggars - Studio Albums (9 releases) (1994-2016) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057126.jpg" />
 </div>
 
 
@@ -583,7 +670,7 @@ Music For Pleasure - Hot Hits 9 (1971) Cover versions of chart songs from 1971 [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057125.jpg" />
 </div>
 
 
@@ -612,7 +699,7 @@ Carl Belew - Carl Belew (1960) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Folk, Co
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057114.jpg" />
 </div>
 
 
@@ -641,7 +728,7 @@ VA - Duets Country Style (1976) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057113.jpg" />
 </div>
 
 
@@ -655,93 +742,6 @@ A4 Connie Smith, Dallas Frazier - The Laying On Of Hands(   Читать дал�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCEA3F83873A7725D4CE049C6D9B6696A1186D78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853263   (1056365) от 12.02.2026
-
-The Ocean Collective - Studio Albums (12 releases) (2003-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Sludge/Post-Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056365.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Ocean - немецкая метал-группа, основанная в Берлине в 2000 году гитаристом Робином Штапсом.2003 - Fogdiver
-2004/2009 - Fluxion
-2006 - Aeolian
-2007 - PrecambrianЖанр: Progressive/Sludge/Post-MetalПродолжительность: 10:49:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E1491A1BDFA5D5117AD5D8395CDB3AE1B06899B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852899   (1056180) от 10.02.2026
-
-VOLA - Studio Albums (6 releases) (2008-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Djent>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vola — рок-группа из Дании, основанная в Копенгагене в 2006 году.2008 - Homesick Machinery (EP)
-2011 - Monsters (EP)
-2015 - Inmazes
-2018 - Applause of a Distant CrowdЖанр: Progressive Metal, DjentПродолжительность: 04:28:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ECF4B3A272247EEAC7B64F8307F2E64C80C47B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852892   (1056179) от 10.02.2026
-
-Andy Williams - Andy Williams (1970) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Jazz, Pop, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056179.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Unchained Melody
-A2 Do You Mind
-A3 It's All In The Game
-A4 Are You Sincere?(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AD26A8E0BA563BAC5EB5E535C4A0068B0C83FE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

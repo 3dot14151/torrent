@@ -1,3 +1,84 @@
+###  Публикация: 1013193   (777313) от 05.05.2016
+
+По законам своей мечты (1968) TVRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм снят в 1968 году на Ленинградском телевидении.
+Фильм рассказывает о ленинградском композиторе Станиславе Пожлакове.
+В нём звучат песни в исполнении автора, а также Эдуарда Хиля, Марии Кодряну,
+Нины Коста, Анатолия Королёва.Телекомпания: Ленинградское ТВЖанр: ДокументальныйПродолжительность: 00:28:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC8637A799712E30863E8D03AA843619A240730D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013725   (777255) от 05.05.2016
+
+Хичкок (Трюффо) / Hitchcock (Truffaut) (2015) WEB-DLRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777255.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1962 году состоялась встреча, определившая судьбу кинематографа. Молодой критик и режиссер французской новой волны Франсуа Трюффо взял серию интервью у своего кумира Альфреда Хичкока. Трюффо был одержим идеей доказать, что Хичкок, многими считавшийся ремесленником, штампующим фильмы «низкого жанра», на самом деле — один из величайших творцов и новаторов, чье филигранное (   Читать дальше...   )Производство: Франция, США, Arte France, Artline Films, Cohen Media GroupЖанр: ДокументальныйРежиссер: Кент ДжонсАктеры: Матьё Амальрик, Уэс Андерсон, Оливье Ассайас, Питер Богданович, Арно Деплешен, Дэвид Финчер, Джеймс Грэй, Киёси Куросава, Ричард Линклейтер, Пол Шредер и др.Перевод: Профессиональный многоголосый (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46D56FABBD3D906BC6DC2D320075ACBBF5EB96F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013736   (777211) от 05.05.2016
+
+Хичкок (Трюффо) / Hitchcock (Truffaut) (2015) WEB-DLRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777211.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1962 году состоялась встреча, определившая судьбу кинематографа. Молодой критик и режиссер французской новой волны Франсуа Трюффо взял серию интервью у своего кумира Альфреда Хичкока. Трюффо был одержим идеей доказать, что Хичкок, многими считавшийся ремесленником, штампующим фильмы «низкого жанра», на самом деле — один из величайших творцов и новаторов, чье филигранное (   Читать дальше...   )Производство: Франция, США, Arte France, Artline Films, Cohen Media GroupЖанр: ДокументальныйРежиссер: Кент ДжонсАктеры: Матьё Амальрик, Уэс Андерсон, Оливье Ассайас, Питер Богданович, Арно Деплешен, Дэвид Финчер, Джеймс Грэй, Киёси Куросава, Ричард Линклейтер, Пол Шредер и др.Перевод: Профессиональный многоголосый (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:769947D3C652415CCE55489AB8405F83A6FDD72A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014066   (776934) от 06.05.2016
 
 Валентин Зубков. Поцелуй над пропастью (2016) SATRip
@@ -6,7 +87,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776934.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776892.jpg" />
 </div>
 
 
@@ -59,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776863.jpg" />
 </div>
 
 
@@ -85,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775760.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774133.jpg" />
 </div>
 
 
@@ -137,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771820.jpg" />
 </div>
 
 
@@ -163,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771437.jpg" />
 </div>
 
 
@@ -190,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770385.jpg" />
 </div>
 
 
@@ -217,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768896.jpg" />
 </div>
 
 
@@ -243,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768887.jpg" />
 </div>
 
 
@@ -269,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768525.jpg" />
 </div>
 
 
@@ -295,7 +376,7 @@ The Rolling Stones. Концерт на Кубе / The Rolling Stones: Havana Mo
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767898.jpg" />
 </div>
 
 
@@ -321,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765908.jpg" />
 </div>
 
 
@@ -347,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765074.jpg" />
 </div>
 
 
@@ -373,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764953.jpg" />
 </div>
 
 
@@ -399,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764416.jpg" />
 </div>
 
 
@@ -425,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764335.jpg" />
 </div>
 
 
@@ -451,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764333.jpg" />
 </div>
 
 
@@ -477,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764253.jpg" />
 </div>
 
 
@@ -503,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764175.jpg" />
 </div>
 
 
@@ -529,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764119.jpg" />
 </div>
 
 
@@ -555,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763329.jpg" />
 </div>
 
 
@@ -581,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763026.jpg" />
 </div>
 
 
@@ -592,84 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:269CB1DD1A7AD8D3C22C23C6A3B7A0117DA4C656
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017183   (762840) от 16.05.2016
-
-Красная машина (2016) HDTV [H.264/1080i-LQ]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о самой успешной в истории спорта команде — хоккеистах ЦСКА и сборной СССР. Рассказ о том, как один из самых выдающихся хоккеистов всех времён и народов превратился в бунтовщика, восставшего против советской спортивной системы. Сборную СССР по хоккею соперники называли «Красной армией». Ее уважали и боялись, одно лишь упоминание имен ее ведущих игроков повергало (   Читать дальше...   )Производство: Sony pictures classics, Первый канал HDЖанр: Документальный, позновательныйПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:17:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A59098989CC5C50D8C173F65449DBEDB023D6E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 660644   (762682) от 27.05.2013
-
-Петр Тодоровский - В кругу друзей (2009) TVRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вечер встречи кинорежиссера Петра Тодоровского с актерами, снимавшимися в его фильмах, с друзьями музыкантами, с коллегами по цеху. Теплая и дружеская обстановка и в зале, и на сцене открывает для зрителей новые грани его таланта и души. Несколько песен, написанных знаменитым режиссером прозвучат в исполнении дуэта Никитиных, актеров кино и его друзей-музыкантов. (   Читать дальше...   )Телекомпания: РТРЖанр: ТелепередачаПродолжительность: 00:52:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE1583EDE7E85E2E46BACCDD4D38A31CA0B08A6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522351   (758401) от 07.01.2022
-
-Ганнибал Хопкинс и Сэр Энтони / Hannibal Hopkins & Sir Anthony (2021) HDTVRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Портрет хамелеона и легендарного актера, англичане считают его английским актером, американцы - "своей" звездой. Он сам считается гражданином мира, который любит Шекспира и американскую культуру. Действительно, еще с юности он мечтал о жизни и работе в США, и это несмотря на то, что Англия первая предоставила ему немало отличных возможностей для театра (   Читать дальше...   )Производство: Франция, Arte France – Unité Documentaires, Wichita Films, Kali PicturesЖанр: документальный, история, биографияРежиссер: Клара Куперберг, Юлия КупербергПеревод: двуголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5582E888FD737E4E9A5B7946C1BBDD8F6CCDD3F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 965871   (223840) от 15.12.2015
+
+Depeche Mode - Sounds Of The Universe (2009) CD+DVD [FLAC|Lossless|tracks + .cue] <Synth-pop, Alternative Rock>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Chains (6:53)
+02. Hole to Feed (3:59)
+03. Wrong (3:13)
+04. Fragile Tension (4:09)(   Читать дальше...   )Жанр: Synth-pop, Alternative RockПродолжительность: 00:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B8029EF38E3A14CFC1606AC2E7CA79231DC23C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965560   (223716) от 15.12.2015
+
+Depeche Mode - Speak & Spell (1981) 1988, Mute  [FLAC|Lossless|image + .cue] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Life (3:46)
+02. I Sometimes Wish I Was Dead (2:18)
+03. Puppets (3:57)
+04. Boys Say Go! (3:07)(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:55:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09F117EF4ED8A3974F3D20A0F15482486687B7C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965568   (223493) от 15.12.2015
+
+Depeche Mode - Violator (1990) [FLAC|Lossless|tracks + .cue] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. World in My Eyes (4:26)
+02. Sweetest Perfection (4:43)
+03. Personal Jesus (4:56)
+04. Halo (4:30)(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB20B99354ADE22BD0231E461606AF2DEC537A34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342587   (222597) от 03.12.2019
 
 Kalax - III (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave, 80s>
@@ -6,7 +93,7 @@ Kalax - III (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222597.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222529.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Philtron - None (1997) [FLAC|Lossless|image + .cue] <Synth-Pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221181.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Frankmusik - Day Break (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220151.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Fancy - Strip Down (2000) [FLAC|Lossless|tracks + .cue] <Synth-pop, Disco>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218530.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Blackbook - Confessions Of The Innocent (2022) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215687.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Koto - Return of the Dragon (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215278.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Depeche Mode - The Singles Boxes 1-6 (DMBX1-DMBX6) (1981-2001) [36CD] - 1991, 20
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215113.jpg" />
 </div>
 
 
@@ -239,7 +326,7 @@ Minimal Schlager - Love, Sex & Dreams (2022) [FLAC|Lossless|WEB-DL|tracks] <Synt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214560.jpg" />
 </div>
 
 
@@ -268,7 +355,7 @@ Syrian - Kosmonauta (2006) Russian Edition [FLAC|Lossless|image + .cue] <Synth P
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_214256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_214256.jpg" />
 </div>
 
 
@@ -297,7 +384,7 @@ Malik Djoudi - Temperaments (2019) Wagram Music & Cinq 7 [FLAC|Lossless|WEB-DL|t
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213609.jpg" />
 </div>
 
 
@@ -326,7 +413,7 @@ A-Ha - True North (2022) [FLAC 2.0|24/96|WEB-DL|tracks] <Synthpop, Pop-Rock>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211842.jpg" />
 </div>
 
 
@@ -355,7 +442,7 @@ Analog '82 - Youthtopia (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211818.jpg" />
 </div>
 
 
@@ -384,7 +471,7 @@ Pet Shop Boys - SMASH – The Singles 1985 – 2020 (2023) 3CD, 2023 Remaster [F
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211362.jpg" />
 </div>
 
 
@@ -413,7 +500,7 @@ Alphaville - First Harvest 1984-92 (1992) [FLAC|Lossless|tracks + .cue] <Synth-p
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210038.jpg" />
 </div>
 
 
@@ -442,7 +529,7 @@ W O L F C L U B (Wolfclub) - Desert Hearts (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208874.jpg" />
 </div>
 
 
@@ -471,7 +558,7 @@ Depeche Mode - Sounds Of The Universe | The 12" Singles (2023) [FLAC|Lossless|WE
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207051.jpg" />
 </div>
 
 
@@ -500,7 +587,7 @@ Mega Bog - End of Everything (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204744.jpg" />
 </div>
 
 
@@ -529,7 +616,7 @@ Didier Marouani & Space - 12 albums, 21 CD (1977-2002) [FLAC|Lossless|image + .c
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204405.jpg" />
 </div>
 
 
@@ -558,7 +645,7 @@ Depeche Mode - Ghosts Again (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Synthpo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202870.jpg" />
 </div>
 
 
@@ -584,7 +671,7 @@ Spacehawk - New Generation (2023) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Spa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201689.jpg" />
 </div>
 
 
@@ -613,7 +700,7 @@ M83 - Fantasy (2023) [FLAC 2.0|96/24|WEB-DL|tracks] <electronic-pop, synth-pop, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201098.jpg" />
 </div>
 
 
@@ -642,7 +729,7 @@ Depeche Mode - Memento Mori (2023) [FLAC|Lossless|tracks + .cue] <SynthPop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200811.jpg" />
 </div>
 
 
@@ -656,93 +743,6 @@ Depeche Mode - Memento Mori (2023) [FLAC|Lossless|tracks + .cue] <SynthPop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3ACE5F8937C2AC391920A9FABC59270446C248B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626369   (199914) от 14.04.2023
-
-Pet Shop Boys - Lost (2023) EP [FLAC|Lossless|WEB-DL|tracks] <SynthPop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lost Room
-02. I Will Fall
-03. Skeletons In The Closet
-04. Kaputnik(   Читать дальше...   )Жанр: SynthPopПродолжительность: 00:20:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:963323BAA54BC089C8CB7F7DDB9793D8F1289518
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632463   (198673) от 10.05.2023
-
-Sandra - Stop For A Minute (Maxi-Singles Collection) (2023) [FLAC|Lossless|image + .cue] <Synthpop, Eurodisco, Europop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stop For A Minute (Extended Version)
-02. Maria Magdalena (Extended Version)
-03. In The Heart Of The Night (Extended Version)
-04. Little Girl (Extended Version)(   Читать дальше...   )Жанр: Synthpop, Eurodisco, EuropopПродолжительность: 01:17:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F1AE221EBA9278903B060C91CA768EB9DB7FEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639097   (197265) от 11.06.2023
-
-Analog '82 - Sunsets and Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Rain (4:22)
-02. Super VHS (4:00)
-03. Metropolis (4:12)
-04. Reconnect (3:27)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AB1225F06451D3A5D056A69FCFD9257F2BBE770
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1522037   (761517) от 05.01.2022
+
+Щелкунчик (1973) DVDRip [H.264/1080p-LQ] [handmade remastered upscale AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая девушка, убираясь под елкой, находит игрушку в виде Щелкунчика для орехов. Щелкунчик оживает и рассказывает ей грустную историю о своём проклятии и коварной королеве мышиного царства. Вдруг откуда-то из угла комнаты слышится странный звук. По стене пробегают трещины, и из пролома появляется мышиный царь. Он стал большим и страшным, но и сам Щелкунчик возмужал (   Читать дальше...   )Производство: СССР / СоюзмультфильмЖанр: мультфильм, фэнтези, короткометражка, семейныйРежиссер: Борис СтепанцевСубтитры: отсутствуютПродолжительность: 00:25:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:128918B7D8BFBDCF3545226A759BC04801FAC173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395926   (751300) от 12.07.2020
+
+Остров сокровищ (1988) DVDRip [H.264/1080p-LQ] [handmade remastered upscale AI]
+
+>>След.
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шхуна «Испаньола» бороздит морские просторы в поисках острова, на котором спрятаны легендарные сокровища капитана пиратов Флинта. На корабле зреет заговор. Разбойники во главе с одноногим Джоном Сильвером, кажется, близки к цели…Производство: СССР / КиевнаучфильмЖанр: Детский, Приключения, Комедия, Музыкальный, Мультфильм, Рисованная анимацияРежиссер: Давид ЧеркасскийСубтитры: отсутствуютПродолжительность: 01:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98C35DBCEBF5ED1CE59733EF569C3CD6C3B3689D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523669   (749415) от 12.01.2022
+
+Дядюшка Ау (1979) DVDRip 1080p [H.264/1080p-LQ] [Remastered Upscale AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весёлая, добрая и в меру поучительная сказка по мотивам повести финского писателя Ханну Мякеля "Дядюшка Ау". "Осенью на севере темнеет рано... так рано что в лесу совсем не рассветает и трудно понять что сейчас день или ночь". Вот тут и живет "Дядюшка Ау - зловещий и страшный, правда очень маленький. Каждый вечер он отправляется на работу. (   Читать дальше...   )Производство: СССР, СоюзмультфильмЖанр: МультфильмРежиссер: Иосиф Доукша, Майя Бузинова, Мария Муат, Лидия СуриковаАктеры: Татьяна Решетникова, М. Лобанов, Владимир Ферапонтов, Василий Ливанов, Александр Граве, Светлана Крючкова, Анатолий Щукин, Бернгард ЛевинсонПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 00:19:01 + 00:18:12 + 00:18:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9064B9D54A2CAA7ED2C5155AC7E5DAEE54B9B6AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523870   (747976) от 13.01.2022
+
+Контакт (1978) WEBRip [H.264/1080p-LQ] [Remastered AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747976.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о встрече человека и инопланетянина, который пытается изучить Землю посредством имитации увиденного.Производство: СССР / СоюзмультфильмЖанр: мультфильм, короткометражкаРежиссер: Владимир ТарасовСубтитры: ОтсутствуютПродолжительность: 00:10:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:182CE251819CDE5D2669A5422568FA954BD29B83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093985   (738611) от 23.01.2022
 
 Русские народные сказки (1949-1979) BDRip [H.264/1080p]
@@ -6,7 +110,7 @@
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738611.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727286.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727151.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724122.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722489.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716310.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706802.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701116.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693866.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664232.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663693.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658141.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657054.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646767.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638944.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583695.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577362.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555110.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480639.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478072.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437920.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437919.jpg" />
 </div>
 
 
@@ -566,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2FE7CA23F4CA12B04235768017A8F020A5DDFF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575594   (375218) от 10.09.2022
-
-Дом для леопарда (1979) BDRip [H.264/1080p-LQ] [handmade remastered AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Забавная история о приключениях леопарда, решившего подыскать для себя и своей семьи жилище.Производство: СССР / ТО «Экран»Жанр: мультфильм, короткометражкаРежиссер: Анатолий РезниковАктеры: Александр Очеретянский, Аркадий МинаковСубтитры: ОтсутствуютПродолжительность: 00:09:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29E536EC82348AA7D55F33B1C6C83D0BDA302F84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327238   (373985) от 25.09.2019
-
-Остров сокровищ (1988) BDRip [H.264/1080p]
-
->>След.
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шхуна «Испаньола» бороздит морские просторы в поисках острова, на котором спрятаны легендарные сокровища капитана пиратов Флинта. На корабле зреет заговор. Разбойники во главе с одноногим Джоном Сильвером, кажется, близки к цели…Производство: СССР / КиевнаучфильмЖанр: Детский, Приключения, Комедия, Музыкальный, Мультфильм, Рисованная анимацияРежиссер: Давид ЧеркасскийСубтитры: отсутствуютПродолжительность: 01:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4385A75417A4824908275E5926CCB0F6FBC862EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576276   (368380) от 13.09.2022
-
-Чертёнок с пушистым хвостом (1985) BDRip [H.264/1080p-LQ] [handmade remastered AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два незадачливых пса похищают маленького котёнка, чтобы потребовать от папаши-кота выкуп. Но лучше бы они этого не делали...Производство: СССР / ТО «Экран»Жанр: мультфильм, короткометражкаРежиссер: Анатолий РезниковАктеры: Евгений Евстигнеев, Борис НовиковСубтитры: ОтсутствуютПродолжительность: 00:16:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C8C9025FED47D694395AE08FA57E88AA756C7F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576451   (366346) от 14.09.2022
-
-Гуси-лебеди (1949) BDRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366346.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам русской народной сказки. Уехали матушка с батюшкой, а дочери наказ оставили братца Ваню беречь, со двора не выпускать. Заигралась Машенька, да не доглядела: унесли братика гуси-лебеди, помощники Бабы Яги. Теперь Машеньке надо выручать Ваню, а помогут ей в этом добрые друзья: яблонька, печка, речка и др.Производство: СССР / СоюзмультфильмЖанр: мультфильм, детский, фэнтези, семейный, короткометражкаРежиссер: Иван Иванов-Вано, Александра Снежко-БлоцкаяАктеры: Мария Бабанова, Вера ОрловаСубтитры: Русские, АнглийскиеПродолжительность: 00:18:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1637EED5E1823DA3273CA996F00B16C06D54F307
 ```
 
 https://mybot314.ru/tekegram_catalog/

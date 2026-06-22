@@ -1,3 +1,29 @@
+###  Публикация: 1834650   (250369) от 04.11.2025
+
+Книжная серия | Мир занимательной науки [8 книг из 25] (1984 - 1991) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия книг от издательства "Вышэйшая школа" по точным и техническим наукам.Жанр: Точные и технические наукиИздательство: Вышэйшая школаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A057FD28095DCF283F1A863DADAF25DA820A70C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562947   (250255) от 11.07.2022
 
 Колин Таккер | Как управлять ядерным реактором (2022) [PDF]
@@ -6,7 +32,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250255.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250241.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249747.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249473.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249449.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249438.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ B.M. Askerov | Electron Transport Phenomena in Semiconductors (1994) [PDF] [EN]
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248588.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ F.A. Kröger / Ф. Крёгер | Chemistry of Imperfect Crystals / Химия �
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246732.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245088.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242929.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239743.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237825.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237513.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236819.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_236013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_236013.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233949.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233500.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233479.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233432.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233424.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232373.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ DK | Complete Atlas of the World, 3rd Edition: The Definitive View of the Earth 
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231366.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ Tom Jackson | The Periodic Table Book - A Visual Encyclopedia (2017) [PDF]
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231268.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230825.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230006.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4CA23E40E1DE357BAF724F83E734D5E0CE4B2CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649298   (229960) от 27.07.2023
-
-Л.А. Сантало | Введение в интегральную геометрию (1956) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интегральная геометрия — своеобразное направление современной геометрии, в котором соединяются идеи, идущие из дифференциальной геометрии, теории выпуклых тел, теории вероятностей и теории меры.Основная задача в интегральной геометрии — определение меры в различных однородных пространствах. Сопоставление мер геометрических объектов разного рода позволило получить (   Читать дальше...   )Жанр: МатематикаИздательство: Издательство иностранной литературыФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F11867E95836A5DF7F803565A2F2F8732CAF52D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

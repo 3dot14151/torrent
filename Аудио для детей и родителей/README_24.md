@@ -1,3 +1,60 @@
+###  Публикация: 1386763   (793354) от 30.05.2020
+
+VA - The Mozart Effect - Music for Moms & Moms-to-be (2000) [MP3|320 Kbps]<Детская, Классика>
+
+>>Аудио для детей и родителей
+>>Классика для мам и малышей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mozart - La Ci Darem la Mano from Don Giovanni
+02. Mozart - Andante, II, From the Divertimento in G Minor
+03. Mozart - Adagio, II, From the String Quartet No. 12 in B Flat Major
+04. Mozart - Andante, VI, From the Serenade(   Читать дальше...   )Жанр: Детская, КлассикаПродолжительность: 00:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A26A83D22B8FAF31EFA549831B56CB70B90E5001
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 336375   (793163) от 30.05.2020
+
+Елена Сухова | Приключения Растяпкина (2011) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Блестяще озвученные увлекательны в стиле экшн приключения студента Семена Растяпкина, который вполне соответствует своей фамилии. Взламывая систему кодов на компьютере, ломает и сам компьютер. Покидая место происшествия, непременно наследит. С современным оружием никак не может управиться…
+
+Информация о творческой группе и исполнителях отсутствует.Жанр: СказкаПродолжительность: 11:08:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F11A537F5CE80166615D2CA8A62328E2F89F0717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 99523   (793151) от 30.05.2020
 
 Сергей Козлов | Ёжик в тумане и другие сказки (2006) [MP3, Александр Бордуков]
@@ -6,7 +63,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793151.jpg" />
 </div>
 
 
@@ -32,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792971.jpg" />
 </div>
 
 
@@ -58,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792946.jpg" />
 </div>
 
 
@@ -84,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792937.jpg" />
 </div>
 
 
@@ -110,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792931.jpg" />
 </div>
 
 
@@ -137,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792642.jpg" />
 </div>
 
 
@@ -166,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792575.jpg" />
 </div>
 
 
@@ -192,7 +249,7 @@ VA - The Mozart Effect - Music for Children, Vol.1 Tune Up Your Mind (1997) [MP3
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792469.jpg" />
 </div>
 
 
@@ -221,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791853.jpg" />
 </div>
 
 
@@ -250,7 +307,7 @@ VA - The Mozart Effect - Music for Babies, Vol.2 Nighty Night (2000) [MP3|320 Kb
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791792.jpg" />
 </div>
 
 
@@ -279,7 +336,7 @@ VA - Сlassics fur mein Bаby (4CD) (2008) [FLAC|Lossless]<Classical>
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791741.jpg" />
 </div>
 
 
@@ -308,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791078.jpg" />
 </div>
 
 
@@ -335,7 +392,7 @@ VA - The Mozart Effect - Music for Children, Vol.2 Relax, Daydream, & Draw (1997
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790047.jpg" />
 </div>
 
 
@@ -364,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787632.jpg" />
 </div>
 
 
@@ -390,7 +447,7 @@ Oбработка Александра Афанасьева | Русские н�
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787386.jpg" />
 </div>
 
 
@@ -416,7 +473,7 @@ Stephan North - Pregnancy (2001) [MP3|320 Kbps]<Детская музыка, Rel
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786767.jpg" />
 </div>
 
 
@@ -445,7 +502,7 @@ Jim Brickman - Piano Lullabies - Baby's Bedtime Favorites (2012) [MP3|320 Kbps]<
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786744.jpg" />
 </div>
 
 
@@ -474,7 +531,7 @@ Twinkle Twinkle Little Rock Star - Lullaby Versions of Lynyrd Skynyrd (2015) [MP
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786589.jpg" />
 </div>
 
 
@@ -503,7 +560,7 @@ VA - Избранные классические произведения (2011)
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786554.jpg" />
 </div>
 
 
@@ -532,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786341.jpg" />
 </div>
 
 
@@ -558,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785599.jpg" />
 </div>
 
 
@@ -584,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785164.jpg" />
 </div>
 
 
@@ -613,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785163.jpg" />
 </div>
 
 
@@ -642,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785160.jpg" />
 </div>
 
 
@@ -656,64 +713,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2893C81143741BC2A7DF7613E58924F7879F0D10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388905   (785158) от 08.06.2020
-
-Владимир Львовский - Весёлые песенки (2008) [MP3|320 Kbps]<Детские песни и минусовки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01+/-10. Веселый маленький трамвай
-02+/-11. Веселая песенка
-03+/-12. Три веселых поросенка
-04+/-13. Такая вот мартышка(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 00:55:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63313AC0BCDBC779598C66ACBDC3D3B52310C8F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204249   (784889) от 05.02.2018
-
-Г. Х. Андерсен - Принцесса На Горошине / О Том, Как Буря Перевесила Вывески (1984) Vinyl, LP, Mono, Repress [FLAC|Lossless|tracks] <Non-Music, Children's>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784889.jpg" />
-</div>
-
-
-###  Подробнее
-
-A	Принцесса На Горошине
-Directed By – Н. Киселева*
-Lyrics By – Новелла Матвеева
-Music By – Михаил Меерович(   Читать дальше...   )Жанр: Non-Music, Children'sПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82DC663213F17D0B226BDCAACD2D59C6AF9BE120
 ```
 
 https://mybot314.ru/tekegram_catalog/

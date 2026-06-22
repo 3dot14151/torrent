@@ -1,243 +1,3 @@
-###  Публикация: 1766347   (33753) от 18.12.2024
-
-Linea: An Innerlight Game 1.4.15 [En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Linea: Уютные головоломки приглашает вас в умиротворяющее путешествие, где истории и головоломки сливаются в гармонии. Помогайте уникальным персонажам и направляйте их через личные истории, проводя линию света, чтобы освещать путь и окружающий мир. Каждая решённая головоломка открывает новую строку диалога, и история продвигается. Каждая история — это новое приключение, (   Читать дальше...   )Тип издания: UnlockedРелиз состоялся: 4 дек. 2024 г.Разработчик: Infinity Games, LdaПоддерживаемая ОС: Android 7.0+ (arm64-v8a)Жанр: ГоловоломкиЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D74228F3CA9BBC8EB500E01D8975556583CDAFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766515   (33705) от 19.12.2024
-
-White Day - The School v21.1.109 + v3.1.5 [Ru/Multi]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарная классическая хоррор игра возвращается с полной трёхмерной графикой.
-White Day предлагает игрокам прекрасную 3D-графику, ошеломляющий сюжет и глубокое погружения, упакованный в отличную хоррор игру.
-White Day - это ремейк PC-версии, выпущенный в 2001 году. Оригинальная игра завоевала большую популярность в Южной Корее и до сих пор с теплотой вспоминают (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 4 дек. 2024 г.Разработчик: SONNORIПоддерживаемая ОС: Android 6.0+Жанр: ПриключенияЯзык интерфейса: Русский, Английский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EDB7253A25501C8D85D741C7986691807D98819
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766645   (33688) от 19.12.2024
-
-Cozy Grove: Camp Spirit v3.1.0 [En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заблудшие души достойны доброты. Помогите мишкам-привидениям в продолжении любимого симулятора жизни, где правит доброта, а вас ждут новые путешествия, поделки и тайны.Тип издания: UnlockedРелиз состоялся: 10 дек. 2024 г.Разработчик: Netflix, Inc.Поддерживаемая ОС: Android 8.0+ (arm64-v8a)Жанр: РолевыеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58F79B4B8D1D466809EF3C4656420653E53E0B79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766657   (33681) от 19.12.2024
-
-Pocket Rogues: Ultimate v1.37.2 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pocket Rogues - это динамичная Action-RPG старой школы с элементами Roguelike. Здесь вам предстоит с боем прорываться сквозь орды монстров, путешествуя по уникальным, случайно генерируемым локациям и развивать собственную крепость и героев.
-Сражения в реальном времени бросят вызов любому хардкорному игроку, а исследование окружения и множество необычных механик затянут (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 17 дек. 2024 г.Разработчик: EtherGamingПоддерживаемая ОС: Android 8.1+ (arm64-v8a)Жанр: РПГЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:321FE5DA69A79D96C0E6E6A188ADEBD3CAD14448
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766655   (33679) от 19.12.2024
-
-Spiritfarer Netflix Edition v1.5.8 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Только для подписчиков Netflix. Вы — паромщик в загробном мире. В этой трогательной игре о смерти вам предстоит построить лодку для исследования мира и позаботиться о душах, пока они не обретут покой. В этой уютной игре вам предстоит играть за Стеллу — перевозчика душ умерших. Общайтесь с душами своих пассажиров, с удовольствием проводите время и, в конечном счете, (   Читать дальше...   )Тип издания: UnlockedРелиз состоялся: 10 дек. 2024 г.Разработчик: Netflix, Inc.Поддерживаемая ОС: Android 8.0+ (arm64-v8a)Жанр: ПриключенияЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DD3CDF001B3189259827B9A3C8FE474EA06A289
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766497   (33646) от 19.12.2024
-
-Party Hard Go v0.100034 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33646.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Party Hard вы играете за того, кто действительно устал от соседей, устраивающих громкие вечеринки. Вместо того чтобы звонить в полицию, вы решаете, что лучше убить всех - используя свой верный нож и окружающую среду. Тактическая стратегия следует за серией убийств в партиях через США.Тип издания: PaidРелиз состоялся: 18 дек. 2024 г.Разработчик: tinyBuildПоддерживаемая ОС: Android 4.4+Жанр: АркадыЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC8A4CF93168059825D680EA7A38B94CBC7BC31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766672   (33614) от 20.12.2024
-
-Dead God Land: Survival Games v0.0.0263 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зомби на этих мрачных островах очень свирепые. Хорошо, что есть убежище, где я могу выжить. Смотри, я тут смастерил крутое оружие. Теперь кошмары превратятся в ночные сафари, а мы выживем в мире зомби! :) - Рик улыбнулся, размахивая огромной дубинкой с гвоздями перед мертвым зомби. Выжить на острове в компании орд зомби под силу не каждому. Общение с ходячими мертвецами (   Читать дальше...   )Тип издания: Mod (Много денег)Релиз состоялся: 4 дек. 2024 г.Разработчик: DevVision GamesПоддерживаемая ОС: Android 7.0+Жанр: ЭкшнЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EADC4CD35CC279AA1C7F94B7DE60672F33BB037D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766637   (33601) от 20.12.2024
-
-MiHome v10.0.702 Mod by Vevs [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая быстрая и качественная модификация MiHome.
-Управление и связь с устройствами.
-Подключение устройств к сети.
-Подключение устройств друг к другу.Тип издания: ModРелиз состоялся: 19.12.2024Разработчик: Beijing Xiaomi Mobile Software Co.,LtdПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:388FFCCFC93BAE42B65BD8F56821D16DE690E76C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766667   (33588) от 20.12.2024
-
-Fallout Shelter 1.21.0 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fallout Shelter дарит вам возможность управлять высокотехнологичным подземным убежищем от «Волт-Тек». Постройте лучшее убежище, сделайте его обитателей счастливыми, защитите их от опасностей пустоши.Тип издания: Mod (Unlimited Money)Релиз состоялся: 4 дек. 2024 г.Разработчик: Bethesda Softworks LLCПоддерживаемая ОС: Android 7.0+Жанр: СимуляторЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D624FF0A2E7CD5D3D2A9F73B9FEAA605A897E86A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766679   (33581) от 20.12.2024
 
 Mountains of Madness 8.6.161 [En]
@@ -246,7 +6,7 @@ Mountains of Madness 8.6.161 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33581.jpg" />
 </div>
 
 
@@ -272,7 +32,7 @@ Exploding Kittens® 2 v0.0.19 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33578.jpg" />
 </div>
 
 
@@ -299,7 +59,7 @@ Beat Find / Распознавание музыки v1.6.51 Mod by Alex.Strannik
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33508.jpg" />
 </div>
 
 
@@ -326,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33494.jpg" />
 </div>
 
 
@@ -352,7 +112,7 @@ DREDGE v1.5.4 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33482.jpg" />
 </div>
 
 
@@ -378,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33481.jpg" />
 </div>
 
 
@@ -404,7 +164,7 @@ ToonMe v0.7.15 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33466.jpg" />
 </div>
 
 
@@ -430,7 +190,7 @@ Jigsawscapes® - Пазлы v3.6.7 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33461.jpg" />
 </div>
 
 
@@ -456,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33410.jpg" />
 </div>
 
 
@@ -482,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33405.jpg" />
 </div>
 
 
@@ -508,7 +268,7 @@ Bendy and the Ink Machine v1.0.840 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33284.jpg" />
 </div>
 
 
@@ -534,7 +294,7 @@ A Kindling Forest v1.3 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33257.jpg" />
 </div>
 
 
@@ -560,7 +320,7 @@ ARK: Ultimate Mobile Edition 1.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33204.jpg" />
 </div>
 
 
@@ -588,7 +348,7 @@ Woolly Boy and the Circus 1.0.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33156.jpg" />
 </div>
 
 
@@ -616,7 +376,7 @@ Last Day on Earth: Survival v1.31.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33098.jpg" />
 </div>
 
 
@@ -642,7 +402,7 @@ Homo Machina v1.6.38 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33078.jpg" />
 </div>
 
 
@@ -668,7 +428,7 @@ Castlevania: SotN v1.0.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33076.jpg" />
 </div>
 
 
@@ -679,6 +439,251 @@ Castlevania: SotN v1.0.4 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC5189506378C29E8A822B4F9438716A9552D23A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768670   (33056) от 25.12.2024
+
+The Grinch 1.0.0 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пришло время Рождества, а значит, пришло время его украсть! Помогите Гринчу осуществить его коварный план (а заодно помогите его сердцу немного вырасти) в этом праздничном платформере!Тип издания: UnlockedРелиз состоялся: 17 дек. 2024 г.Разработчик: Outright Games LtdПоддерживаемая ОС: Android 10+Жанр: ActionЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65153C019EAE22EE4AFE887D51DFFD2B13E8AE53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768312   (33046) от 25.12.2024
+
+Universe For Sale 1.0.4 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33046.jpg" />
+</div>
+
+
+###  Подробнее
+
+На странном базаре торгует взволнованная девушка, которая собственными руками создает целые вселенные.
+
+Universe for Sale — приключение в густых облаках Юпитера, нарисованное от руки. Здесь разумные орангутаны подрабатывают в порту, а загадочные сектанты избавляются от собственной плоти, чтобы достичь просветления.Тип издания: PaidРелиз состоялся: 25 нояб. 2024 г.Разработчик: Akupara GamesПоддерживаемая ОС: Android 7.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03DFC1D31EC08D7134DB5F0418478FD05055D8F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768588   (33020) от 25.12.2024
+
+Not Another Weekend v1.12 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приготовьтесь к причудливому приключению для всех любителей пиксельной графики!
+
+Вы играете за посыльного Майка Мелкоута, который работает в высококлассном отеле. Майк может показаться сумасшедшим или даже странным, но вполне может быть и таковым. Однако у него только один план. Темный план! Чтобы выгнать всех за один уик-энд.
+(   Читать дальше...   )Тип издания: PaidРелиз состоялся: 12 февр. 2024 г.Разработчик: Dionous GamesПоддерживаемая ОС: Android 5.0+Жанр: ПриключенияЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B81B6C6A31077C8DF5E3455173AA420C5CEA09D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768703   (32968) от 26.12.2024
+
+DYSMANTLE v1.4.0.03 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Покинув убежище, в котором провели много лет, вы обнаружите дивный, такой знакомый и одновременно новый мир. Мир, населенный мерзкими и гнусными существами. Мир, где нет других людей. Мир, в котором правит дикая природа. Мир, который скоро станет еще хуже.
+Ваша цель — понять, как сбежать с этого жалкого острова. И получить удовольствие от постапокалипсиса, конечно.Тип издания: Paid + Unlocked DLCРелиз состоялся: 24 сент. 2024 г.Разработчик: 10tons LtdПоддерживаемая ОС: Android 6.0+Жанр: ПриключенияЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69260143F0DF5C0D3212CB5E4A0FAC975F1F2689
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767515   (32941) от 26.12.2024
+
+X Downloader & Video Player v2.1.25 Premium Mod by PlatinumMods [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32941.jpg" />
+</div>
+
+
+###  Подробнее
+
+🌟 Быстрое приложение для загрузки видео. Легко сохраняйте все видео и фотографии из Интернета.
+XDownloader — это мощный инструмент, который позволяет вам загружать видео с любого веб-сайта или приложения социальных сетей, включая TikTok (без водяного знака), Facebook, Instagram и другие. С помощью встроенного браузера XDownloader вы можете легко просматривать (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 22.12.2024Разработчик: DC Mobile StudioПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52964AC955A436A2BFA9C86E9547CB4928271762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769000   (32925) от 26.12.2024
+
+Auto Blur: Авторазмытие v2.7.0 Mod by 0x7d, oflarm [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автоматическое размытие фона - это быстрое и простое в использовании приложение для создания потрясающих изображений с эффектом размытия фона.Тип издания: AdfreeРелиз состоялся: 24.12.2024Разработчик: Judi StudioПоддерживаемая ОС: Android 7.0+Язык интерфейса: Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06172A27F67A309039E2988460A47C2938C665C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739514   (32910) от 27.12.2024
+
+Радио онлайн - PCRadio v2.7.5.2 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный клиент для прослушивания интернет-радио. Присутствует возможность смены качества аудиопотока. Поддерживается вывод 32 битного звука. В наличии обширный каталог с категориями и возможностью поиска.
+Радио онлайн - PCRADIO Более 8 лет является лидером в области интернет вещания, благодаря технологии экономии трафика и сохранения отличного качества звука радиостанций. (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 26.12.2024Разработчик: PCRADIOПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F782ACDF9D2C249251A1D0E0707684ED9AEA8404
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769257   (32844) от 27.12.2024
+
+Unforeseen Incidents v1.0.90 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unforeseen Incidents - это интерактивная детективная игра в классическом стиле, действие которой разворачивается в красиво нарисованном мире. Присоединяйтесь к Харпер Пендрелл и участвуйте в сложном расследовании, умных диалогах и богатом наборе персонажей в этой захватывающей приключенческой игре.Тип издания: PaidРелиз состоялся: 21 нояб. 2024 г.Разработчик: Application Systems Heidelberg Software GmbHПоддерживаемая ОС: Android 10+Жанр: ПриключенияЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B24C9FE356E26E4B8ACC44ECA21964982D7E351A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769255   (32808) от 27.12.2024
+
+Электробезопасность. Тесты v3.1 Mod by 0x7d [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все сборники соответствуют сборникам Ростехнадзора. Приложение позволяет пройти тестирование по актуальным на данный момент категориям:
+- II группа по электробезопасности до и выше 1000 В
+- III группа по электробезопасности до и выше 1000 В
+- IV группа по электробезопасности до и выше 1000 В(   Читать дальше...   )Тип издания: AdFreeРелиз состоялся: 26.12.2024Разработчик: Понасенков ВиталийПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EC4CDDDD6C51C6C0CEF19E2A55903551A02E4C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

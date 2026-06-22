@@ -1,3 +1,83 @@
+###  Публикация: 946560   (425267) от 14.10.2015
+
+А. Подмазов | Старообрядчество в Латвии (1970) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425267.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассказывается об истории латвийских старообрядцев, об их положении при царизме, в буржуазной Латвии, в Советской Латвии.Жанр: История, религиоведение, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25C588F1E1152BB3198D4E370999F4BD5179403A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946633   (425265) от 14.10.2015
+
+И. А. Крывелев | Новые толкования Библии (1974) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425265.jpg" />
+</div>
+
+
+###  Подробнее
+
+В брошюре освещаются те приемы, при помощи которых богословы христианства и иудаизма пытаются спасти потерпевший полное крушение миф о «богодухновенности» и безошибочности Библии.
+
+Автор анализирует ряд новейших высказываний богословов, знаменующих вынужденное признание ими некоторых выводов критики Библии.Жанр: История, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D1194C8D91CADE76B0FA0221130978E3AA561F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946640   (425253) от 14.10.2015
+
+Г. Л. Баканурский | Иудейский клерикализм (1974) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425253.jpg" />
+</div>
+
+
+###  Подробнее
+
+В брошюре рассматриваются особенности иудейского клерикализма, вскрываются классовые причины его союза с сионизмом. На основе фактического материала подвергаются критическому анализу социальные доктрины иудейского клерикализма, раскрывается реакционная роль клерикалов в Израиле.Жанр: История, религиоведение, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01052BB29BE02942CC9086160A7884123CE09220
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 831083   (421951) от 14.10.2014
 
 Эрвин В. Люцер | Крест Гитлера. Церковь времен III рейха. Рассказ о том, как крест Христов пытались заменить на крест Гитлера (2005) [PDF, FB2]
@@ -6,7 +86,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421951.jpg" />
 </div>
 
 
@@ -34,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421847.jpg" />
 </div>
 
 
@@ -60,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421768.jpg" />
 </div>
 
 
@@ -86,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420981.jpg" />
 </div>
 
 
@@ -112,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420979.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420878.jpg" />
 </div>
 
 
@@ -164,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420877.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420875.jpg" />
 </div>
 
 
@@ -216,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420874.jpg" />
 </div>
 
 
@@ -242,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420872.jpg" />
 </div>
 
 
@@ -268,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420868.jpg" />
 </div>
 
 
@@ -294,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420866.jpg" />
 </div>
 
 
@@ -320,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420863.jpg" />
 </div>
 
 
@@ -346,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420861.jpg" />
 </div>
 
 
@@ -372,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420859.jpg" />
 </div>
 
 
@@ -398,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420727.jpg" />
 </div>
 
 
@@ -424,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420716.jpg" />
 </div>
 
 
@@ -450,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420712.jpg" />
 </div>
 
 
@@ -476,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420711.jpg" />
 </div>
 
 
@@ -502,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420707.jpg" />
 </div>
 
 
@@ -530,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420705.jpg" />
 </div>
 
 
@@ -556,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420636.jpg" />
 </div>
 
 
@@ -582,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420533.jpg" />
 </div>
 
 
@@ -593,86 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13FE5FA859DAE9E3F4F7326BB8DFCA4E5492A1F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947316   (420400) от 16.10.2015
-
-Джекоб Ньюзнер (сост.) | Смерть и жизнь после смерти в мировых религиях (2007) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой популярный обзор представлений о загробной жизни в крупнейших мировых религиях - христианстве, иудаизме, исламе и индуизме.
-
-Издание адресовано широкому кругу читателей.Жанр: РелиговедениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A07010AE05875A1A7C0FA01D62229A519903B29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412325   (420229) от 28.09.2020
-
-Диана Хорсанд-Мавроматис | Православный календарь на 2021 год (2020) [EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами настоящий помощник для православных христиан на весь 2021 год. В календаре представлены даты и подробные описания всех праздников следующего года, которые традиционно отмечает православный мир. Внутри книги вы найдете жития святых, молитвы, описания особо почитаемых образов, изречения святых отцов и православные притчи. Книга поможет праведно прожить следующий (   Читать дальше...   )Жанр: Православные календари, Православные молитвы, Православные традицииФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1A29D25FDB0B21D4824E03DBEFA5C7C744EAF85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167294   (419727) от 19.09.2017
-
-К.Г. Доусон | Религия и культура (2000) [PDF, DJVU, DOC]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная книга представляет собой курс джиффордских лек­ций, прочитанных в Эдинбургском университете в 1947 г., и по­священа проблеме взаимоотношений между религией и культу­рой в истории. Ключевая мысль всего произведения состоит в том, что религия является динамическим элементом в культуре и что важнейшие культурные изменения обязаны своим происхождением именно религии. (   Читать дальше...   )Жанр: Культурология, социология религииФормат: PDF, DJVU, DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06FA0C6DAE984566BB120C4DA9704536B5EE953E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,82 @@
+###  Публикация: 1857286   (1059472) от 05.03.2026
+
+Александр Юрьевич Давыдов | Военный коммунизм. Народ и власть в революционной России. Конец 1917 г. — начало 1921 г. 2-е издание (2025) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор книги — профессор кафедры русской истории Российского государственного педагогического университета им. А. И. Герцена — на основе изучения большого количества источников и материалов определяет корреляционную зависимость между практикой большевистской партии и радикальной перестройкой главных сфер общественного развития в период военного коммунизма (кон. 1917 (   Читать дальше...   )Жанр: ИсторияИздательство: Евразия (Интермедиатор)Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE0CDC7D89EC0EE4685EF7461A7AB92DE6448DB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857283   (1059471) от 05.03.2026
+
+Льюис Френсис Зальцман | Англия во времена Тюдоров. В контексте социальной жизни и промышленности. 2-е издание (2025) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059471.jpg" />
+</div>
+
+
+###  Подробнее
+
+По словам самого автора - известного английского историка Льюиса Френсиса Зальцмана - Англия эпохи Тюдоров представляет собой переходный период от Средневековья к Новому времени. В ярких и выразительных зарисовках представлено это движение от феодальной монархии к монархии абсолютистской.
+Церковная Реформация и создание самостоятельной Англиканской церкви; распространение (   Читать дальше...   )Жанр: ИсторияПеревод: Е.Е. ПреображенскойИздательство: Евразия (Интермедиатор)Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09C3015EDCAB1DE0F9B725B98C1FB70F1710FF38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857282   (1059470) от 05.03.2026
+
+Льюис Френсис Зальцман | Английская промышленность в Средние века. 2-е издание (2025) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Название этой книги указывает одновременно и на ее цель, и на ее хронологические рамки. Она не претендует на то, чтобы быть полной историей ранней индустриальной жизни Англии, но в то же время может стать введением в изучение этого предмета. Я надеюсь и даже верю, что обычный читатель, проявляющий интерес к истории своей страны, а не к техническим знаниям, получит (   Читать дальше...   )Жанр: ИсторияПеревод: Е.Е. ПреображенскаяИздательство: Евразия (Интермедиатор)Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2C9BB3C63EDE8064F8BB1208C7ADC27A5ABAABE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857280   (1059469) от 05.03.2026
 
 А.Г. Праздников | Люди Войн Алой и Белой Розы. Состав и модели поведения активных участников социально-политического конфликта в Англии второй половины XV века. 2-е издание (2025) [PDF]
@@ -6,7 +85,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059469.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059468.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059467.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059466.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059464.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058138.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058137.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058136.jpg" />
 </div>
 
 
@@ -215,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058135.jpg" />
 </div>
 
 
@@ -241,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058134.jpg" />
 </div>
 
 
@@ -269,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058133.jpg" />
 </div>
 
 
@@ -295,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058132.jpg" />
 </div>
 
 
@@ -323,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058131.jpg" />
 </div>
 
 
@@ -349,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057562.jpg" />
 </div>
 
 
@@ -375,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057545.jpg" />
 </div>
 
 
@@ -401,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057544.jpg" />
 </div>
 
 
@@ -427,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057541.jpg" />
 </div>
 
 
@@ -447,6 +526,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852815   (1056526) от 12.02.2026
+
+А.И. Колпакиди, С.В. Чертопруд | СМЕРШ. От Александра I до Сталина (2025) [PDF, FB2, DOCX, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1056526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Александра Колпакиди и Сергея Чертопруд «СМЕРШ. От Александра I до Сталина» представляет собой историческое исследование, прослеживающее развитие российской военной контрразведки с 1812 года до 1946 года. Авторы детально описывают историю спецслужб, включая создание «Высшей» или «Воинской полиции» при Александре I и структуру «СМЕРШ» (ГУ КР «СМЕРШ», УК «СМЕРШ» (   Читать дальше...   )Жанр: Публицистика, архивные материалы, военное дело / спецслужбыИздательство: ООО "Издательство Родина"Формат: PDF, FB2, DOCX, EPUBКачество: Обработанный скан, Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0BFC847279DA2E2E3B78F0CB72E453697153037
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852706   (1056135) от 09.02.2026
 
 Сергей Демидов | Самые громкие преступления последних веков. XVI-XXI вв. (2016) [FB2]
@@ -455,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056135.jpg" />
 </div>
 
 
@@ -481,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055914.jpg" />
 </div>
 
 
@@ -507,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054891.jpg" />
 </div>
 
 
@@ -534,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054890.jpg" />
 </div>
 
 
@@ -561,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054889.jpg" />
 </div>
 
 
@@ -574,110 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00CABAFA2418E186757DBAF1D6588BEE6BFFED2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850984   (1054888) от 31.01.2026
-
-Александр Пятигорский | Буддийская философия мысли (2020) [PDF, FB2, EPUB, RTF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Моисеевич Пятигорский (1929–2009) – выдающийся мыслитель, востоковед, писатель, автор философских и буддологических монографий, романов, а также многочисленных философских работ и эссе. Эта книга была написана Александром Пятигорским на английском языке («The Buddhist Philosophy of Thought», 1984) и, таким образом, впервые публикуется на русском языке. (   Читать дальше...   )Жанр: Восточная философия, ИсторияИздательство: КоЛибриФормат: PDF, FB2, EPUB, RTFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC1067F919AE2676886B0E7175C30EE8AD795C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850982   (1054887) от 31.01.2026
-
-Татьяна Ермакова, Елена Островская, Валерий Рудой | Классическая буддийская философия (2021) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учение Будды Шакьямуни о вступлении в Нирвану, его теоретическая интерпретация в текстах постканонической традиции считаются среди большинства специалистов предметом слишком сложным и в силу этого едва ли способным увлечь читающую публику. Но выходящие на эту тему книги неизменно привлекают широкое внимание. Работа, написанная ведущими буддологами России, посвящена (   Читать дальше...   )Жанр: Восточная философия, ИсторияИздательство: Академический ПроектФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:935BB81E3D7FD4D2787257B607BB2DFA0E876037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850980   (1054886) от 31.01.2026
-
-Е. Торчинов, Ю. Щуцкий | Ицзин. Книга Перемен (2023) [PDF, FB2, EPUB, RTF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054886.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ицзин» («Книга Перемен») – одна из древнейших книг китайской цивилизации и, пожалуй, одна из самых знаменитых. В основе ее лежат 64 гексаграммы, особые символы, призванные очертить определенные жизненные ситуации и раскрыть вопрошающему их дальнейшее развитие. Однако значение и смысл «Книги Перемен» выходят далеко за рамки «предсказателя судьбы». Своей мудростью (   Читать дальше...   )Жанр: Восточная философия, ИсторияПеревод: Е. Торчинов, Ю. ЩуцкийИздательство: Азбука-АттикусФормат: PDF, FB2, EPUB, RTFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6512CD895EB59E70E63FE2BAF129830F985B9FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850979   (1054885) от 31.01.2026
-
-Херли Крил | Философская мысль Китая. От Конфуция до Мао Цзэдуна (2017) [PDF, FB2, EPUB, RTF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хёрли Крил - выдающийся американский синолог, автор научных трудов, посвященных истории, государственному устройству, философским и религиозным течениям Китая. В настоящей книге, предназначенной для широкой читательской аудитории, ученый рассматривает главные этапы формирования философской системы Поднебесной со времен династии Шан (ХV-ХIII вв. до н. э.) до провозглашения (   Читать дальше...   )Жанр: Восточная философия, ИсторияИздательство: ЦентрполиграфФормат: PDF, FB2, EPUB, RTFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1AF79F4CB56B70AE8B57121884B4670D4A1F5F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1525110   (129951) от 19.01.2022
+
+Smooze Pro 2.0.10 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smooze одушевляет ваш скролл и добавляет функциональность к вашей не оригинальной Apple мыши (прокрутки колеса мыши).Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2017 Segev SherryПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B180825CA065B413FCDF45D2F615293424E4AC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525137   (129949) от 19.01.2022
+
+Artstudio Pro 4.0.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем Artstudio Pro, самое мощное приложение для рисования и редактирования фотографий, доступное как для MacOS, так и для iOS. Преемник нашего знаменитого приложения ArtStudio был переработан, благодаря чему многие новые функции и улучшения в полной мере используют новейшие технологии Metal, iCloud Drive и оптимизированы для 64-битных многоядерных процессоров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © Lucky ClanПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8219111BBA925F7597354F42AF98A358D026FD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525234   (129948) от 19.01.2022
 
 Alfred 4 Powerpack 4.6.2 [En]
@@ -6,7 +58,7 @@ Alfred 4 Powerpack 4.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129948.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Action 1.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129943.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ AYVY 1.18.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129940.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Boxy SVG 3  v3.75.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129937.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Pixelmator Pro 2.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129720.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ Mirror for Android TV 2.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129608.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ PDF Reader Pro Edition 2.8.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129602.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ App Cleaner & Uninstaller Pro 7.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129591.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ Duplicate File Finder Pro 6 v6.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129551.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ Disk Space Analyzer Pro 3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129549.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ Bootstrap Studio 5.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129534.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ MacCleaner 2 PRO 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129524.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ UctoX 2 v2.8.15 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129519.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ File List Export 2.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129510.jpg" />
 </div>
 
 
@@ -380,7 +432,7 @@ App Tamer 2 v2.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129503.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ Cisdem AppCrypt 6.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129501.jpg" />
 </div>
 
 
@@ -433,7 +485,7 @@ FastScripts 3.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129500.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ Mirror for TCL TV 3.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129498.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ PaintCode 3 v3.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129487.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ Airtool 2 v2.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129483.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ aText 2.40.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129478.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ Find Any File (FAF) 2.3.3b1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129475.jpg" />
 </div>
 
 
@@ -591,7 +643,7 @@ Permute 3 v3.8.3 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129468.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ Mirror for Roku TV 2.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129466.jpg" />
 </div>
 
 
@@ -628,59 +680,6 @@ Mirror for Roku TV 2.9.3 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35C7CC401FCA18A805EA4C0484A45C61D2AD1AE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525779   (129323) от 21.01.2022
-
-Wondershare Recoverit 10.0.9 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплексный набор для восстановления данных (ранее Wondershare Data Recovery).
-Wondershare Recoverit - профессиональное приложение, которое поможет вам восстановить удаленные, отформатированные и потерянные данные с любого внешнего диска установлена на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 20.01.2022Разработчик: © 2022 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:826799075105BAA74C6F95CE36E502A86FCD84B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525688   (129198) от 21.01.2022
-
-Sketch 82.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сделайте набросок графического дизайна для цифрового мира. Мощные инструменты и элегантный интерфейс в одном отмеченном наградами пакете. Потому что создание красивых вещей должно быть радостью, а не обузой.Тип издания: macOS SoftwareРелиз состоялся: 21.01.2022Разработчик: © 2022 Sketch B.V.Поддерживаемая ОС: macOS 10.15 or laterЯзык интерфейса: Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B8B9CD3851BADB9A5DA808A5F0BE7FF7266E3C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,142 @@
+###  Публикация: 1045346   (559443) от 23.08.2016
+
+Жан Летраз - Крошка (2004) TVRip (Театр им. Ленсовета)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вас ожидает история любви, преодолевающей все препятствия, в том числе и финансовые, - трогательная, в изящной упаковке песен и танцев, с чисто французским юмором трактующая проблемы взаимоотношений отцов и детей. Спектакль - настоящий театральный праздник с атмосферой игры, фантазии и импровизации...Производство: Россия, Театр им. ЛенсоветаЖанр: Спектакль, комедияРежиссер: Игорь ВладимировАктеры: Семён Стругачёв, Анна Ковальчук, Елена Комиссаренко, Галина Субботина, Георгий Траугот, Александр Новиков (III), Александр Сулимов, Ольга МуравицкаяПродолжительность: 02:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD8CBB3C945DE11B5E4C379F462CF49A222FF53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365093   (559355) от 19.07.2011
+
+Бритни Спирс / Britney Spears - Gimme More (Alternative Version) (2011 г.) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наконец-то в интернете появилась долгожданная оригинальная версия клипа Бритни Gimme More которую все так долго ждали и так хотели увидеть, многие говорят что все-таки и это не "та самая версия" которая была смонтирована изначально, но пока имеем только это и это прекрасно! Эта версия на 90% содержит ранее не изданный материал, лишь на долю секунды появляются моменты которые также присутствуют в официально признанном видеоролике.Жанр: Музыка, ЭротикаРежиссер: Jake SarfatyАктеры: Britney SpearsПеревод: ОтсутствуетПродолжительность: 4:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B2A1B930D33D1781F0510D048AE35BCBD30269C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 133613   (559341) от 09.06.2022
+
+Александр Градский - ЖИВьЁМ в России-2 (1999) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сольный концерт выдающегося русского певца Александра Градского. В трех отделениях.01. Как молоды мы были… (А. Пахмутова - В. Добронравов)
+02. Ария Хозе (Ж. Бизе, "Кармен")
+03. Ария Каварадосси (Д. Пуччини, "Тоска")
+04. Романс Неморино (Г. Доницетти, "Любовный напиток")(   Читать дальше...   )Режиссер: Продюсер А.ГрадскийВ ролях: Александр Градский - гитара, вокал Симфонический оркестр (дирижер - Владимир Симкин) Оркестр русских народных инструментов (дирижер - Николай Калинин) Государственная хоровая капелла им. Юрлова (трек №14) Детский хор "Мандрагора" г. Клин (треки № 13 и 14) Вокальный ансамбль "Казаки Дона" (трек № 14) Александра Пахмутова - фортепиано (трек №1)Продолжительность: 02:17:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2096161EE771EBF065453D6DB7594B050AFA75D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924392   (558963) от 03.08.2015
+
+The Michael Schenker Group - The 30th Anniversary Concert - Live in Tokyo (2010) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558963.jpg" />
+</div>
+
+
+###  Подробнее
+
+ПервыЙ концерт всемирного тура по случаю 30-й годовщины основания M.S.G., Nakano Sun Plaza, Токио, 13 января 2010 г. Один из лучших составов M.S.G. 1980-x, партнеры Шенкера по дебютному альбому "The Michael Schenker Group" Гари Барден и Саймон Филипс.01. Welcome Howl
+02. Feels Like A Good Thing
+03. Cry For The Nations
+04. Let Sleeping Dogs Lie(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:477356BFC5439FB6BD7C7C5DD266F495769780B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 439235   (558899) от 23.08.2016
+
+Владимир Высоцкий - Гамлет с Таганской площади (2008) DVDRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редкие интервью, фрагменты выступлений Владимира Семеновича Высоцкого, отрывки из спектаклей с участием великого Поэта и Актера.01. Вступление: "Прерванный полет" (фонограмма, фрагмент)
+02. "Гул затих, я вышел на подмостки..." (фрагмент)
+03. Владимир Высоцкий о начале работы в театре, о спектакле "Добрый человек из Сезуана"
+04. Владимир Высоцкий о спектакле - "10 дней, которые потрясли мир"(   Читать дальше...   )Жанр: Театр, МузыкаРежиссер: Александр Ковановский, Игорь РахмановАктеры: Владимир ВысоцкийПродолжительность: 01:35:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2986FA14260F126689E0119114D0604F09D7550A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 70416   (558896) от 23.08.2016
 
 Ноев ковчег (1976) TVRip [спектакль театра кукол им. Образцова]
@@ -6,7 +145,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_558896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_558896.jpg" />
 </div>
 
 
@@ -32,7 +171,7 @@ Chris Isaak - Видеоклипы (Best Of) (2006) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558877.jpg" />
 </div>
 
 
@@ -61,7 +200,7 @@ VA - Летний марафон № 178 / Видеоклипы (Зажигат�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558871.jpg" />
 </div>
 
 
@@ -90,7 +229,7 @@ Remember the first people (Native American clips) (2015) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558870.jpg" />
 </div>
 
 
@@ -119,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558449.jpg" />
 </div>
 
 
@@ -148,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557942.jpg" />
 </div>
 
 
@@ -175,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557938.jpg" />
 </div>
 
 
@@ -202,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557933.jpg" />
 </div>
 
 
@@ -228,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557828.jpg" />
 </div>
 
 
@@ -255,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557651.jpg" />
 </div>
 
 
@@ -282,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557581.jpg" />
 </div>
 
 
@@ -310,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557569.jpg" />
 </div>
 
 
@@ -338,7 +477,7 @@ Aerosmith - Rock For The Rising Sun (2011) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557402.jpg" />
 </div>
 
 
@@ -367,7 +506,7 @@ VA - Летний марафон № 179 / Видеоклипы (Зарубеж�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557234.jpg" />
 </div>
 
 
@@ -396,7 +535,7 @@ The Cure - In Orange (1987) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556875.jpg" />
 </div>
 
 
@@ -422,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556833.jpg" />
 </div>
 
 
@@ -448,7 +587,7 @@ The Who - Live At The Isle Of Wight 2004 Festival (2017) Blu-ray [H.264/1080i ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556798.jpg" />
 </div>
 
 
@@ -477,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556721.jpg" />
 </div>
 
 
@@ -504,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556718.jpg" />
 </div>
 
 
@@ -530,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556670.jpg" />
 </div>
 
 
@@ -556,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556666.jpg" />
 </div>
 
 
@@ -567,138 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0FE99E073F233E276E442761DAD4683954C0DEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236052   (556270) от 15.07.2018
-
-Квартирник на НТВ у Маргулиса. Мгзавреби (07.14.2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556270.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Мгзавреби" - грузинская музыкальная группа, образованная в 2006 году в Тбилиси. На "Квартирнике" они исполнят лучшие песни специально для телезрителей НТВ.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80F6E6E1042CEFE0EC0E6219CA09A72E3117CD44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305948   (555916) от 02.06.2019
-
-Квартирник НТВ у Маргулиса. Юрий Лоза (01.06.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555916.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новом выпуске в гости к Евгению Маргулису пришел российский певец и композитор Юрий Лоза. Известность к артисту пришла, когда он был участником группы «Зодчие», но его самая известная песня «Плот» была исполнена уже сольно. Артист поделился интересными воспоминаниями из жизни и творчества, а также исполнил свои лучшие композиции. Звездный гость и ведущий «Квартирника» (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA3B376A36F31C05180DE9626114785FAC3D9876
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305358   (555802) от 03.06.2019
-
-Квартирник НТВ у Маргулиса. Алексей Чумаков (11.05.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555802.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новом выпуске в гости к Евгению Маргулису пришел известный российский певец, актер и телеведущий Алексей Чумаков. Артист рассказал об искренней любви к своему делу и признался, что не знает ни одной ноты.
-Также Алексей поведал зрителям, что всегда любил слушать Стиви Уандера и Джорджа Бенсона, а The Beatles и Queen, по словам певца, — музыка не его настроения. (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50E0F9591CDD181424DB2941D41CD0175F1B88A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305547   (555800) от 03.06.2019
-
-Квартирник НТВ у Маргулиса. Найк Борзов (25.05.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555800.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новом выпуске телеканал НТВ продолжит серию закрытых "Квартирников". На этот раз в гости к Евгению Маргулису пришла культовая фигура российской альтернативной музыки - Найк Борзов. Пресса называет его "русским Питом Доэрти", а фанаты заслушивают "до дыр" альбомы "Погружение", "Закрыто" и "Головоломка". (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4E3F3BEA70C9B0BFBBFC6DD85EDAF711F3D1059
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305352   (555798) от 03.06.2019
-
-Квартирник НТВ у Маргулиса. К 80-летию Леонида Каневского (02.05.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555798.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Квартирник НТВ у Маргулиса» стал местом празднования 80-летия Леонида Каневского. Телеведущий не только рассказал много захватывающих историй из жизни, но и спел, что для Леонида Семёновича очень большая редкость.
-Поздравить Леонида Каневского пришли Лариса Долина, Александр Розенбаум, Максим Дунаевский, Игорь Верник и другие известные исполнители. В адрес юбиляра (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC20B0F6BB4B8E30177135DB59D6ACECFC5D569C
 ```
 
 https://mybot314.ru/tekegram_catalog/

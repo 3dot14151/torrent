@@ -1,3 +1,58 @@
+###  Публикация: 1828950   (202218) от 25.10.2025
+
+Windows 10 22H2 19044.6456/19045.6456 by SURASOFT (v25.10.14) [Ru]
+
+>>ОС Windows
+>>Песочница ПО и сборок Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана на основе оригинальных образов
+ru-ru_windows_10_business_editions_version_22h2_updated_oct_2025_x64_dvd_d7d4c62c.iso
+ru_windows_10_enterprise_ltsc_2021_with_update_19044.6456_aio_2in1_x64_dvd
+Были интегрированы обновления по 14 октября 2025 года.(   Читать дальше...   )Язык интерфейса: Русский (Russian)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AD5CEF1446B935DF822C3EA7F6853BA7740458D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655500   (193739) от 26.08.2023
+
+BananaUpdateBlocker 1.0.0.1 [Ru]
+
+>>ОС Windows
+>>Песочница ПО и сборок Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193739.jpg" />
+</div>
+
+
+###  Подробнее
+
+BananaUpdateBlocker - программный продукт от BananaBrain, который способен остановить работу Windows Update без вреда для системы. Работает на технологии BananaRelax.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA5A24428F813EBA369A64C1CAFD0BEED790E682
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1827088   (186110) от 21.10.2025
 
 Windows 11 23h2/24h2/25h2 by SURASOFT (v25.10.14) [Ru]
@@ -6,7 +61,7 @@ Windows 11 23h2/24h2/25h2 by SURASOFT (v25.10.14) [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186110.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133987.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ TweakTimeSaver 1.1.0 [Ru/En] (Авторская раздача)
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123885.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ Windows 10 Pro 22H2 build 19045.4651 x64 by LaK [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42796.jpg" />
 </div>
 
 
@@ -114,7 +169,7 @@ Nerv Rescue Disk UEFix64\Legacy v1.0 [Ru/En]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39418.jpg" />
 </div>
 
 
@@ -140,7 +195,7 @@ Windows 11 Pro 24H2 10.0.26100.1742 by Lak [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39151.jpg" />
 </div>
 
 
@@ -167,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29949.jpg" />
 </div>
 
 
@@ -195,7 +250,7 @@ Windows 10 Enterprise LTSC x64 21H2 (19044.5371) by Hawksoft [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29559.jpg" />
 </div>
 
 
@@ -222,7 +277,7 @@ Windows 11 Pro 24H2 (v.26100.2605) with AtlasOS Игровая сборка  [Ru
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18068.jpg" />
 </div>
 
 
@@ -249,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15118.jpg" />
 </div>
 
 
@@ -277,7 +332,7 @@ Windows 11 home x64 24H2 DiskExpansion by Alexandr1235 07.2025 [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10550.jpg" />
 </div>
 
 
@@ -306,7 +361,7 @@ Draftable Desktop 25.9.0 Repack [En]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4552.jpg" />
 </div>
 
 

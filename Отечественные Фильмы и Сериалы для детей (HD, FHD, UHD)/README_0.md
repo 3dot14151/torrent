@@ -1,3 +1,55 @@
+###  Публикация: 1861777   (1062859) от 28.03.2026
+
+Буратино (2025) WEBRip [H.265/2160p] [4K, SDR, 8-bit]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды к папе Карло попадает древний волшебный ключ, который помогает исполнить любое желание. Одинокий мастер хочет только одного — сына. Желание уже почти исполнилось, но полено оживает, из него появляется умный, веселый и деревянный мальчик. Папа Карло очень любит сына, но Буратино постепенно понимает, что он не такой, как все, и отправляется в длинное и полное (   Читать дальше...   )Производство: Россия | «Водород», Art Pictures Studio, «Национальная Медиа Группа»Жанр: семейный, фэнтезиРежиссер: Игорь ВолошинАктеры: Виталия Корниенко, Александр Яценко, Светлана Немоляева, Анастасия Талызина, Степан Белозёров, Владимир Тимофеев, Фёдор Бондарчук, Александр Петров, Виктория Исакова, Лев ЗулькарнаевЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:42:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F0A4BF1FB4B0F4C77342CE9779A77F7589846CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861768   (1062857) от 27.03.2026
+
+Буратино (2025) WEBRip [H.264/720p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды к папе Карло попадает древний волшебный ключ, который помогает исполнить любое желание. Одинокий мастер хочет только одного — сына. Желание уже почти исполнилось, но полено оживает, из него появляется умный, веселый и деревянный мальчик. Папа Карло очень любит сына, но Буратино постепенно понимает, что он не такой, как все, и отправляется в длинное и полное (   Читать дальше...   )Производство: Россия / НМГ, Кинокомпания Водород, Art Pictures StudioЖанр: семейный, фэнтезиРежиссер: Игорь ВолошинАктеры: Виталия Корниенко, Александр Яценко, Анастасия Талызина, Степан Белозеров, Марк Эйдельштейн, Александр Петров, Виктория Исакова, Рузиль Минекаев, Фёдор Бондарчук, Светлана НемоляеваСубтитры: отсутствуютПродолжительность: 01:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AA0BC3DF626DC69D6F34EF7240DECCC137FCFAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861723   (1062840) от 28.03.2026
 
 Буратино (2025) WEBRip [H.264/1080p]
@@ -6,7 +58,7 @@
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062840.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061957.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061179.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061150.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059998.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059857.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059844.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059815.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057021.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056467.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050974.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050854.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050811.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050469.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050443.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049986.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049868.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049838.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049803.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049802.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049402.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046599.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046582.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046304.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7A0A0CE522778F64F4C7591B24A48E6C1A3D734
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606519   (1043774) от 28.01.2023
-
-Приключения Электроника (1979) HDTVRip [H.264/1080p-LQ] [handmade remastered AI]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Советский ученый создает гениального робота. Это мальчик, который способен решать любые математические задачи, он пишет самые лучшие сочинения и отлично поет! А еще он — точная копия школьника Сережи Сыроежкина. Сообразительный мальчуган быстренько перекладывает все свои обязанности на электронного двойника. Тот делает за него домашние задания, ходит в школу и выполняет (   Читать дальше...   )Производство: СССР / Одесская киностудияЖанр: фантастика, детский, приключения, комедияРежиссер: Константин БромбергАктеры: Юрий Торсуев, Владимир Торсуев, Василий Скромный, Максим Калинин, Дмитрий Максимов, Евгений Лившиц, Валерия Солуян, Владимир Басов, Николай Караченцов, Николай ГринькоСубтитры: ОтсутствуютПродолжительность: 01:11:20+01:04:24+01:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79D6D9D1C37700CB56CF174BA4EC38909FDFD703
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609074   (1043101) от 04.02.2023
-
-Чук и Гек. Большое приключение (2022) WEBRip [H.264/1080p]
-
->>След.
->>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два дружных, но озорных брата Чук и Гек живут с любящей мамой в Москве и скучают по папе, который работает далеко на Севере. Решив во что бы то ни стало встретить наступающий Новый год вместе, они отправляются в захватывающее путешествие к таинственным Синим горам. Теперь их ждёт самое большое приключение в их жизни, ведь в новогодние праздники возможны любые, даже (   Читать дальше...   )Производство: Россия, МетрономФильмЖанр: семейный, приключенияРежиссер: Александр КоттАктеры: Андрей Андреев, Юрий Степанов, Владимир Вдовиченков, Юлия Снигирь, Александр Самойленко, Милена Софронова, Игорь Письменный, Наталья Коляканова, Тимофей Трибунцев, Ева ФадееваПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D09ADEE4A02613B1859F240C1F54CC114E2C6C6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

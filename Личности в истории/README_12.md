@@ -1,3 +1,29 @@
+###  Публикация: 1836194   (252441) от 09.11.2025
+
+NG. Джон Кеннеди. Семь дней, определивших президента / JFK: Seven Days That Made a President (2013) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Личности в истории
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ о днях, ставших для Джона Кеннеди испытанием и определивших его. Семь решающих дней сформировали его как личность и создали легенду. Семь кризисных моментов, когда ему приходилось принимать решения относительно собственного будущего и будущего страны. Джон Фицджеральд Кеннеди - мальчик, страдавший от тяжелой болезни и герой войны. Первый президент эпохи телевидения, (   Читать дальше...   )Производство: Великобритания, США, BLAST FILMS for National Geographic ChannelЖанр: документальный, биография, история, политикаРежиссер: Стив ВеббПеревод: Одноголосый профессиональный (АРК-ТВ, текст читает Игорь Тарадайкин)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:28:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F455247DA3DA16C73EDCE0E4ECC4C888A67DF0D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341653   (249475) от 24.03.2022
 
 Биография. Пол Пот. Тайный убийца / Biography. Pol Pot: Secret Killer (1998) SATRip
@@ -6,7 +32,7 @@
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249475.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245588.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242890.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242165.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242061.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239510.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239402.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_238440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238440.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238144.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_234835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234835.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_234727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234727.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229235.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226154.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226138.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225446.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223883.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214475.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213374.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213339.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212709.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209361.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208505.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206641.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ BBC. Изумительный мистер Фейнман / The Fantastic Mr Fey
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204098.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202880.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3776F836BE3676B252A31A1621CD5671B4DC297A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624382   (200362) от 05.04.2023
-
-Никола Тесла. Видение современного мира / Nikola Tesla-Visionary of Modern Times (2012) IPTVRip [H.264]
-
->>Документалистика и Телепередачи
->>Личности в истории
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никола Тесла - гениальный физик, инженер, изобретатель в области электротехники и радиотехники. Он вполне серьёзно утверждал, что может расколоть Землю, нужен только подходящий вибратор и точный расчёт времени... Однажды он привёл своими опытами в ужас жителей Нью-Йорка. Многие считают, что "Тунгусский метеорит" - дело его рук. Он уверял, что нашёл бесплатный, (   Читать дальше...   )Производство: Германия / Rich & Famous FilmsЖанр: Документальный, биографияРежиссер: Michael KrauseПеревод: Двуголосый профессиональный (Видеопродакшн)Язык озвучки: РусскийПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD4AE3927B9EE0CF1EA3C481589703A61309CAF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

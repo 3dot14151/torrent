@@ -1,3 +1,31 @@
+###  Публикация: 1442105   (1036842) от 24.01.2021
+
+Жан-Батист де Панафье | Сапиенс для пляжа. Изучаем происхождение человека (2020) [PDF, EPUB]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами история Homo sapiens, Человека разумного, рассказанная в необычной манере, непринужденно и увлекательно.
+Кто мы на самом деле, как происходила наша эволюция? Жан Батист де Панафье в своей книге дает нам возможность по-новому взглянуть на самих себя.
+Серия "Наука на отдыхе" предлагает новый подход к изучению науки. Девиз серии: отдых-солнце-книга. (   Читать дальше...   )Жанр: Образовательная литература, Научно-популярная литератураФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F37FC514D0606340314D081B081258E9D387DB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442109   (1036821) от 24.01.2021
 
 Адам Кучарски | Идеальная ставка (2019) [EPUB, FB2]
@@ -6,7 +34,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036821.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036391.jpg" />
 </div>
 
 
@@ -60,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035278.jpg" />
 </div>
 
 
@@ -86,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035255.jpg" />
 </div>
 
 
@@ -114,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034558.jpg" />
 </div>
 
 
@@ -140,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034299.jpg" />
 </div>
 
 
@@ -166,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032354.jpg" />
 </div>
 
 
@@ -192,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026324.jpg" />
 </div>
 
 
@@ -218,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026091.jpg" />
 </div>
 
 
@@ -244,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020560.jpg" />
 </div>
 
 
@@ -270,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019238.jpg" />
 </div>
 
 
@@ -296,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019224.jpg" />
 </div>
 
 
@@ -322,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018889.jpg" />
 </div>
 
 
@@ -348,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018536.jpg" />
 </div>
 
 
@@ -374,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016071.jpg" />
 </div>
 
 
@@ -400,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015941.jpg" />
 </div>
 
 
@@ -426,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012965.jpg" />
 </div>
 
 
@@ -452,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012371.jpg" />
 </div>
 
 
@@ -479,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008666.jpg" />
 </div>
 
 
@@ -506,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008420.jpg" />
 </div>
 
 
@@ -534,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006834.jpg" />
 </div>
 
 
@@ -560,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006721.jpg" />
 </div>
 
 
@@ -587,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005408.jpg" />
 </div>
 
 
@@ -614,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003418.jpg" />
 </div>
 
 
@@ -640,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000800.jpg" />
 </div>
 
 
@@ -651,35 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C2D8F4AC64C798051174F81F5BF0FD8D13BA93D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597529   (1000362) от 02.01.2013
-
-Жан-Анри Фабр | Жизнь насекомых. Рассказы энтомолога [1963] [FB2]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000362.jpg" />
-</div>
-
-
-###  Подробнее
-
-На книге Жизнь насекомых, стоящей в одном ряду с «Жизнью животных» Альфреда Брема, выросло не одно поколение любителей природы и просто увлекающихся людей.
-«Насекомые. Они — истинные хозяева земли. Их — миллиард миллиардов, больше, чем звёзд в нашей галактике... Фабра должен прочесть каждый, так же как один раз в жизни надо заглянуть в микроскоп и поглядеть в телескоп на звёзды» (В. Песков).
-
-Выяснение вопроса, разумны ли насекомые, было целью жизни Фабра. Ему удалось получить твердый ответ, но он привел исследователя к неожиданным последствиям: собрав богатейшие материалы, доказывающие правоту учения Дарвина, Фабр не понял этого учения. А не поняв его, он раз навсегда решил, что при помощи этого учения никак нельзя объяснить собранные им факты. А между тем все написанное Фабром показывает обратное: его работы — блестящее доказательство правильности дарвиновской теории естественного отбора.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A7338BCA5E4772FB2FAD3DE95DD28F015114204
 ```
 
 https://mybot314.ru/tekegram_catalog/

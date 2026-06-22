@@ -6,7 +6,7 @@ VA - Let's Go Into Space (2012-2015) 4LP [MP3|320 Kbps] <Electronic, Cosmic Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899370.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Branjo Sound - I Wanna Dance Bump (1978) LP [MP3|320 Kbps] <Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897031.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Italian Style: Everlasting Italo Dance Compilation Vol.6 (2017) [MP3|320 Kb
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896150.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Modern Talking: Ready For The Mix-Mixes & Rarities (1984-2003) CD2 (2017) [MP3|3
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895856.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Chantal Curtis - Get Another Love (1979) LP [MP3|320 Kbps] <Electronic, Funk/Sou
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892566.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Milk & Coffee - Indianapolis (1979) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890889.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Walter Martino - Nervi A Pezzi (1980) LP [MP3|320 Kbps] <Electronic, Disco, Prog
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889329.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Lipps, Inc. - 4 Albums (1979-1983) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883305.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Teri DeSario - Moonlight Madness (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878482.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Cosmic Hoffmann - Weltraumboogie / Space-Disco (1982) 7" [MP3|320 Kbps] <Electro
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878219.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Patchworks Galactic Project - Space (2013) [MP3|320 Kbps] <Electronic, Soul, Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878212.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Savage - Greatest Hits & Remixes 2CD (2016) [MP3|320 кб/с] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875236.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Adolf Stern - More... I Like It / Twenty Seven (1979) 7" [MP3|320 Kbps] <Electro
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875025.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Minx - Disco-Mondo (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874715.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Peter Wilson - Overdrive (2017) 2CD [MP3|320 Kbps] <Italo-Disco, Hi NRG, Synth-p
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873524.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Roundtree - Roller Disco (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873005.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ The Sylvers - Disco Fever (1979) LP [MP3|320 Kbps] <Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872987.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Lucrethia And The Azoto 14,008 - Dance Skinsation (1978) LP [MP3|320 Kbps] <Elec
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872837.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Billy Moore - Go Dance (1979) 12'' [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871194.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ VA - New Italo Disco Top 25 Compilation Vol.11 (2019) [MP3|320 Kbps] <Italo-Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870943.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ VA - New Italo Disco Top 25 Compilation Vol.13 (2020) [MP3|320 Kbps] <Italo-Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870942.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Ricardo Caliente - Panpipes Play Boney M (1999) [MP3|320 Kbps] <Funk Soul, Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870751.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ VA - Another Side of Mike Mareen Part 1-3 (2016) [MP3|320 кб/с] <Italo Disco,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868394.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ The Disco Tramps - Disco 12 (1978) LP [MP3|320 Kbps] <Electronic, Disco, Jazz, F
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868145.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Yan Tregger - Catchy (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867195.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ Guy De Lo And His Orchestra - The Pink Panther Discostar (1978) LP [MP3|320 Kbps
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867186.jpg" />
 </div>
 
 

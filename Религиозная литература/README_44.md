@@ -1,3 +1,56 @@
+###  Публикация: 495313   (692944) от 13.05.2017
+
+Издательство Францисканцев | Отцы-Пустынники смеются (1996) [FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692944.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книжке собраны забавные, смешные, но вместе с тем и поучительные истории, высказывания монахов-пустынников, живших в эпоху раннего христианства (III–IV вв).
+Источник этих рассказов - святоотеческое предание.Жанр: Религиозная литератураФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D7AEB1C8B5759A8595A97C4C7721AF50AFB4B15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028013   (692871) от 21.06.2016
+
+В. Ф. Зыбковец | Всегда ли существовала религия (1959) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга В. Ф. Зыбковца «Всегда ли существовала религия» посвящена одному из сложных разделов исторической науки — проблеме возникновения религии. Задолго до появления религии и независимо от нее человек сложился как существо разумное и нравственное. Лишь затем, много позже возникает религия. Таковы основные принципиальные положения книги. В книге приводится интересный (   Читать дальше...   )Жанр: История, религиоведение, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B455626DBD30B0102E01410ECE28E6C82EE02051
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 896862   (692263) от 10.05.2015
 
 Архиепископ Йозеф Барон | Крест и диалог. Теология Креста в свете христианского единства (2010) [PDF, DJVU]
@@ -6,7 +59,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692263.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692222.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692183.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691536.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691535.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691471.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691467.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691368.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691258.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690876.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690538.jpg" />
 </div>
 
 
@@ -299,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690517.jpg" />
 </div>
 
 
@@ -327,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690293.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690218.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690214.jpg" />
 </div>
 
 
@@ -409,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689677.jpg" />
 </div>
 
 
@@ -435,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689442.jpg" />
 </div>
 
 
@@ -461,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689366.jpg" />
 </div>
 
 
@@ -487,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689052.jpg" />
 </div>
 
 
@@ -514,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688046.jpg" />
 </div>
 
 
@@ -540,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687922.jpg" />
 </div>
 
 
@@ -566,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687911.jpg" />
 </div>
 
 
@@ -592,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687497.jpg" />
 </div>
 
 
@@ -618,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687489.jpg" />
 </div>
 
 
@@ -629,63 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35C9EE1A77E9A0193A2E27928AD7EF1F7A86465E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222249   (687483) от 28.04.2018
-
-Иеромонах Макарий Симонопетрский | Синаксарь. Жития святых Православной Церкви (Тома с 1 по 6) (2011) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687483.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Жития святых — не какое-то историческое обращение к истокам Церкви, и их изучение — не простое знакомство: это наше приобщение житию и жительству всякий раз присутствующего здесь друга Божия — как Божественная благодать его преобразила...
-
-В конечном итоге для нас это некое тайноводство и переход к Первообразу, к которому восходят и любовь, и честь, и поклонение (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCF5BC265454A54A2343256F754FA182B1B46F87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222233   (687480) от 28.04.2018
-
-Е.В. Тростникова (сост.) | Притчи православных старцев (2012) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эти удивительные короткие рассказы одновременно просты и не просты. И чем больше вопросов порождает притча, тем она значимее, — и именно притчи Христовы и наследующие им притчи православных старцев остаются для нас и вечным вопросом, и вечным ответом.
-
-Два подаяния
-Когда о. Амвросию исповедовались, что скупость нападает, он поучал:(   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CA78D575829CF2A5F0489ABC1D46030620B231E
 ```
 
 https://mybot314.ru/tekegram_catalog/

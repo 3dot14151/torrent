@@ -1,3 +1,133 @@
+###  Публикация: 1117814   (783366) от 10.02.2018
+
+Трилогия Just Cause (2006-2015) [Ru/Multi] (1.0/1.0.0.2/1.05/dlc) Repack R.G. Механики
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Средиземноморская республика Медичи стонет под гнетом генерала Ди Равелло. Помочь может только Рико Родригес. Вас ждет более 1000 квадратных километров свободы. Множество оружия, приспособлений, видов транспорта — все, чтобы устраивать беспорядки самыми изобретательными способами. Пропуск «В воздухе», «На земле» и «На море» дает доступ к трем невероятным дополнениям, (   Читать дальше...   )Тип издания: RepackРазработчик: Avalanche StudiosЖанр: Action (Shooter), Racing (Cars, Motorcycles, Civil Aviation, Helicopter, Tank, Naval), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8471842850EFFFF0816217C9670CE9231AEA76A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206551   (781967) от 14.02.2018
+
+State of Decay: Year-One (2015) [Ru/Multi] (1.0 от 12.02.2018/dlc) Repack R.G. Catalyst [Survival Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчики тщательно поработали над тем, чтобы сделать State of Decay и дополнения Breakdown и Lifeline еще лучше: теперь игроки смогут насладиться всеми прелестями формата полной высокой четкости (1080p). Новые задания и оружие, бонусный контент, а также целый ряд доработок, в том числе улучшенные световые и анимационные эффекты, новые текстуры и переработанная (   Читать дальше...   )Тип издания: RepackРазработчик: Undead LabsЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E00EA6425F6A19471EA7039A54382138878A1C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206772   (781585) от 15.02.2018
+
+Styx: Shards of Darkness (2017) [Ru/Multi] (1.05/dlc) Repack R.G. Catalyst
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Styx – харизматичный гоблин, который обязан своему появлению игре Of Orcs and Men, получил уже вторую игру от студии Cyanide. Используя удачные наработки первой части и графическую мощь Unreal Engine 4, авторы пытаются поднять проект на новый уровень, предлагая игрокам отправиться в опасное приключение в поисках сокровищ, где месть и предательство идут рука об руку. (   Читать дальше...   )Тип издания: RepackРазработчик: Cyanide StudioЖанр: Action, 3D, 3rd Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:983C4FA5C06B940D8074270F93FA1C5B2DDDF9D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206780   (781579) от 15.02.2018
+
+Ben and Ed - Blood Party (2018) [En] (1.0) License HI2U
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать снова на Кровавую вечеринку! Играйте в одиночку или вместе до 3-х человек, соревнуясь в смертельных заданиях. Настройте своего зомби, создайте свои собственные уровни, поделитесь ими через Steam Workshop и постарайтесь не умереть.Тип издания: LicenseРазработчик: SluggerflyЖанр: Action, Arcade, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDC2583C11F8C114BAB2FA0D22083D886DB027E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207177   (780689) от 17.02.2018
+
+The Evil Within 2 (2017) [Ru/Multi] (1.04/dlc) Repack R.G. Catalyst
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детектив Себастьян Кастелланос потерял все. В том числе дочь Лили. Чтобы спасти ее, он соглашается войти в мир кошмаров и выполнить задание «Мебиуса», тайной организации, которая до основания разрушила его прошлую жизнь. Теперь Себастьяну предстоит проникнуть в жуткий погибающий город Юнион, где даже сам воздух соткан из ужаса, и за каждыми углом поджидает смертельная (   Читать дальше...   )Тип издания: RepackРазработчик: Tango GameworksЖанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1D10AC1105AE56ABE643913A5864C8FA72768F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209194   (779436) от 25.02.2018
 
 Deadly Premonition (2013) [Ru/Multi] (1.01b) Repack R.G. Catalyst [Director's Cut]
@@ -6,7 +136,7 @@ Deadly Premonition (2013) [Ru/Multi] (1.01b) Repack R.G. Catalyst [Director's Cu
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779436.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Spec Ops: The Line (2012) [Ru/En] (1.0.6890.0upd2/dlc) Repack R.G. Механи�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779433.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Sleeping Dogs (2014) [Ru/Multi] (1.0) SteamRip R.G. Origins [Definitive Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779429.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Agents of Mayhem (2017) [Ru/Multi] (1.06/dlc) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779420.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ DmC - Devil May Cry (2013) [Ru/Multi] (1.0/dlc) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779311.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Past Cure (2018) [Ru/Multi] (1.0/upd1) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779174.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.196/dlc) Repack R.G. Catalyst [Complete Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779165.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Oni / Они (2001) [Ru/En] (1.0/1.3AE) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778892.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Assassin's Creed: Revelations / Assassin’s Creed: Откровения (2011) 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778022.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Assassin’s Creed III / Assassin's Creed 3 (2012) [Ru/Multi] (1.06/dlc) Repack 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777688.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Brutal Legend (2013) [Multi] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777388.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ Grand Theft Auto 4 (2010) [Ru/En] (1.0.7.0/1.1.2) Repack R.G. Games [Complete Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777003.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ Senran Kagura Peach Beach Splash (2018) [Multi] (1.00) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776998.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Resident Evil 4 / Biohazard 4 (2014) [Ru/Multi] (1.1.0) Repack =nemos= [Ultimate
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775580.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Forgotten Realms: Demon Stone (2004) [Ru/En] (1.1) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775565.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ Devil May Cry HD Collection (2018) [Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774873.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Daymare: 1998 (2019) [Ru/Multi] (10545) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772431.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Conan Exiles (2018) [Ru/Multi] (1.0.0.230672/25565) Repack xatab [Barbarian Edit
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770280.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Watch Dogs / Watch_Dogs (2014) [Ru/En] (1.06.329/dlc) Repack xatab [Digital Delu
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767974.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ Haydee (2016) [Ru/Multi] (1.09.1) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765940.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ Attack on Titan 2 - A.O.T.2 (2018) [Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765624.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ Attack on Titan 2 - A.O.T.2 (2018) [Multi] (1.0) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D71C83D73EDE6A8040F2E3305ADC8DF7D5E5BAB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 202206   (765496) от 22.05.2010
-
-Grand Theft Auto 4: Episodes from Liberty City [Ru] (L) 2010
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тип издания: Лицензия (1С)Жанр: Action (Shooter) / Racing (Cars / Motorcycles) / 3D / 3rd PersonЯзык озвучки: Язык интерфейса: 
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214373   (764779) от 21.03.2018
-
-Assault Gunners HD Edition (2018) [Multi] (1.0) License PLAZA
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764779.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ASSAULT GUNNERS HD EDITION вы управляете боевой машиной для поддержания мира более известной как DAT. Вместе с тремя дружественными роботами Battle Mechs вам предстоит спасти Мигрантов Земли и Колонии Марса от угрозы восстания ANTS. Узнайте кто или что угрожает Марсу и планам человечества по созданию идеальной утопии.Тип издания: LicenseРазработчик: SHADE Inc.Жанр: Action, 3D, 3rd PersonЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Испанский, ЯпонскийЯзык интерфейса: Английский, Испанский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BDCD976DAB325FC4153763BE593AF679A9E3DA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279767   (764136) от 31.01.2019
-
-Solstice Chronicles: MIA (2017) [Ru/Multi] (1.03) Repack R.G. Catalyst
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Solstice Chronicles: MIA это шутер с видом сверху, в котором игрок может управлять сложностью игры, используя специальные умения. Землю захватил вирус STROL. Остатки человечества колонизировали Марс и создали новое общество, находящееся под контролем корпораций. Но Марс - неприветливая планета, и жуткий шторм угрожает существованию колоний. Когда каждая секунда на (   Читать дальше...   )Тип издания: RepackРазработчик: IronwardЖанр: Action, RPG, Indie, StrategyЯзык озвучки: АнглийскийЯзык субтитров: Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB71276C9BA6E9F457A23537B65261F8687036FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214573   (763890) от 22.03.2018
-
-Nanoui (2018) [En] (1.0.1.0) License CODEX
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Нануи (Nanoui) была украдена, погрузив царство в хаос и позволив силам зла подняться. Находясь в фантастическом мире великих замков, магии и драконов, наши четыре героя начинают свои поиски, чтобы получить мощный артефакт и спасти королевство.Тип издания: LicenseРазработчик: PhoesionЖанр: Action, Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61C20CE78A9B504F7AEFDE9E1EF493BBB6795370
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521626   (763123) от 04.01.2022
-
-Legacy of Kain: Soul Reaver (1999) [Ru/En] (1.2) Repack Vasy@n
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763123.jpg" />
-</div>
-
-
-###  Подробнее
-
-С момента окончания предыдущей части игры Blood Omen прошла целая тысяча лет. Кейн стал властелином мира и построил вампирскую империю, которая паразитировала на умирающем теле Носгота. Со временем вампирская раса стала эволюционировать, приобретать новые способности. Первым всегда должен был быть Кейн. Но однажды его опередил один из его лейтенантов, Разиэль - у (   Читать дальше...   )Тип издания: RepackРазработчик: Crystal DynamicsЖанр: Action, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6168E3DCE5165BC2E8F49E0A9270D90F5052EB4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

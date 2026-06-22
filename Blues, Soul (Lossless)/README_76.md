@@ -6,7 +6,7 @@ Antonio Vergara - Once In A Lifetime (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352458.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Trotsky Experience Band - Nine (9) (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352433.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Hundred Seventy Split - Tracks (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351398.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Joe Bonamassa - Royal Tea (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351362.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Chris Antonik - Morningstar (2022) [FLAC|Lossless|tracks + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350298.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Big Daddy Kinsey & The Kinsey Report - 9 Albums (1985 - 1998) [FLAC|Lossless|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349832.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Shemekia Copeland - Uncivil War (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349293.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Hundred Seventy Split - HSS (2014) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349207.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Jody Williams - Return Of A Legend (2001), You Left Me In The Dark (2004) [FLAC|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347705.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ The Blues Mystery - The Blues Mystery (2012) [FLAC|Lossless]<Blues, Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345731.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Jim Byrnes - My Walking Stick (2009) [APE|Lossless|image + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344572.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ St. Paul & The Broken Bones - Half the City (2014) [Flac|track+.cue]<Soul, Jazz,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344396.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Patti Labelle - When a Woman Loves (2000) [FLAC|Lossless|tracks + .cue] <Soul,R&
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342856.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Anthony Gomes - Containment Blues (2020) [FLAC|Lossless|image + .cue] <Rock Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342056.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Joe Bonamassa - Royal Tea (2020) Target Special Edition [FLAC|Lossless|image + .
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341925.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Anthony Gomes - High Voltage Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341084.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Troy Redfern - The Wings of Salvation (2022) [FLAC|Lossless|WEB-DL|tracks] <Sout
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340800.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Samantha Fish - Belle Of The West (2017) [FLAC|Lossless|WEB-DL|tracks] <Modern B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340026.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VA - Christmas Soul 2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <Soul, R&B, Christ
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337803.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Popa Chubby - Two Dogs (2017) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337515.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Damon Smith - Skeletons Skeletons Skeletons (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336610.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Croc Pot - The Missing Ingredient (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336501.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Dr Pickup - Hiding in Plain Sight (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336498.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Hog Branch - Hog Branch (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336494.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Dr. John - Things Happen That Way (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336493.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ El Oso y Sus Sabandijas - Magic Hooker Rush (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336491.jpg" />
 </div>
 
 

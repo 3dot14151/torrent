@@ -1,3 +1,81 @@
+###  Публикация: 1487872   (1002828) от 08.08.2021
+
+Класс (2021) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002828.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основе фильма лежит история старейшего балетного учебного заведения в России – его прошлого и настоящего. Картина задумана, как путешествие по классам Академии Русского балета имени А.Я. Вагановой, где проходит жизнь педагогов и их учеников, откуда молодые таланты выходят на большую сцену. Сегодняшняя реальность переплетается с фрагментами истории училища с момента (   Читать дальше...   )Производство: Россия, кинокомпания "Вишнёвый сад"Жанр: Документальный, история, театр, искусство, балетРежиссер: Светлана АстрецоваЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CB9AE8D3BE040C4C3B5133DE6E6999E5512F4F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488136   (1002579) от 09.08.2021
+
+Тинторетто и новая Венеция / Tintoretto. L'artista che uccise la pittura (2020) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картины великого венецианского художника Тинторетто поражали и почти пугали современников. Сезанн считал, что значение Тинторетто для живописи можно сравнить со значением Платона для философии и Бетховена для музыки. Современные искусствоведы сравнивают работы Тинторетто с фильмами Кристофера Нолана, отмечая необычную визионерскую силу произведений обоих авторов.Производство: Италия, Германия, Gebrueder Beetz Filmproduktion, Kublai Film, Videe, ZDF/Arte, Zeta GroupЖанр: Документальный, биография, искусство, живописьРежиссер: Эрминио ПероккоПеревод: Многоголосый профессиональный (Проект Продакшн)Субтитры: АнглийскиеПродолжительность: 01:26:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:185509BF09614966211B890B0060523E6AE35034
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487992   (1002536) от 09.08.2021
+
+Олег Газманов. 7:0 в мою пользу (2021) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002536.jpg" />
+</div>
+
+
+###  Подробнее
+
+В честь 70-летнего юбилея народный артист РФ Олег Газманов устроил грандиозный концертный тур по России. По словам артиста, это тур финальный. На этом он заканчивает активную гастрольную деятельность и посвящает себя семье. Старт тура был намечен на начало 2021 года в Санкт-Петербурге, но из-за ограничений в связи с эпидемией он три раза переносился. Но все же начался.Телекомпания: Россия, ЛевинФильмЖанр: Документальный, БиографияРежиссер: Игорь ЛевинПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 00:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F5A1F011D0F99B36DE1C6F2B2907FBB3913F925
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488379   (1002036) от 11.08.2021
 
 Ален Делон лицом к миру / Alain Delon face au monde (2021) HDTVRip [H.264] [FR/RU Sub]
@@ -6,7 +84,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002036.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001289.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993221.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993035.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993007.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989825.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989719.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986805.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985933.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Depeche Mode: Духи в лесу / Depeche Mode: Spirits in the Forest (2019) 
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985870.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985550.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984864.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984420.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984073.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984064.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983945.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983196.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981197.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981089.jpg" />
 </div>
 
 
@@ -504,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980395.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979311.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979279.jpg" />
 </div>
 
 
@@ -582,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979276.jpg" />
 </div>
 
 
@@ -593,85 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A5D64A4E282A14D3FFC80C19A2E1D0E4F4EFAD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973535   (979261) от 09.01.2016
-
-Легенды мирового кино. Гойко Митич (2014) SATRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979261.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Каждая программа цикла "Легенды мирового кино" - это своеобразная "легенда о легенде", отражающая взгляд авторов передачи на жизнь и творчество знаменитых актеров и режиссеров. Благодаря увлекательным и динамичным историям, которые создают автор цикла Андрей Истратов и ведущий Константин Карасик, герои их программ - действительно "легенды (   Читать дальше...   )Телекомпания: Россия, Гамаюн, ИП Истратов А.ВЖанр: ДокументальныйПродолжительность: 00:25:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D0CD614EF17F072A12B4953CFD53C4A372CE5CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973530   (979216) от 09.01.2016
-
-Легенды мирового кино. Луи де Фюнес (2008) SATRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неподражаемый король комедии Луи де Фюнес.Он учился на драматических курсах Р. Симона, работал в театре, на радио, в кабаре, а в 1946 году дебютировал в кино. Снимался в фильмах: "Папа, мама, служанка и я", "Не пойман - не вор", "Дьявол и десять заповедей", "Разиня", "Большая прогулка".
-В серии фильмов о Фантомасе (   Читать дальше...   )Телекомпания: ООО Телекомпания "Гамаюн"Жанр: ДокументальныйПродолжительность: 00:25:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:751018827F5656DCB0723D1A2E15695AF436BFEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 884764   (976715) от 11.01.2016
-
-Дэвид Боуи: Пять лет / David Bowie: Five Years (2013) DVB
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм посвящен пяти важнейшим годам в карьере Дэвида Боуи: 1971, 1975, 1977, 1981 и 1983. Используя редчайшие, никогда до этого не обнародованные архивные съемки, разговоры с его соратниками в диапазоне от Брайна Ино до Тони Висконти и слова самого Боуи, записанные на пленку, режиссер Фрэнсис Уотли, потративший на этот фильм больше 10 лет, создает (   Читать дальше...   )Телекомпания: Серебряный ДождьЖанр: ДокументальныйРежиссер: Френсис УотлиПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76C0114FB039999D1A07ECDB94FAECBC5DA83687
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1677534   (150526) от 18.11.2023
+
+Поедем, поедим! Йошкар-Ола: набережная Брюгге, марийские традиции, трехэтажные блины и подкоголи (18.11.2023) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федерико Арнальди отправился в Йошкар-Олу и…перепутает ее с Европой! Набережная как в Брюгге, венецианские и флорентийские дворцы, и даже сыры здесь такие же, как готовят в Италии. Но ведущий нашел здесь и то, чего нет нигде в мире: марийские традиции, обряды и песни. И, конечно же, попробовал самые знаменитые блюда местной кухни: трехэтажные блины, печной суп, палыш, (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAB141E35EBD6C81A33934D00EBAEFAAD444D73C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677693   (150518) от 18.11.2023
 
 Сокровища планеты. Нормандия земля изобилия / Planet Inventory. Normandy Land Of Plenty (2022) WEB-DL [H.264/1080p]
@@ -6,7 +32,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150518.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150167.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150115.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149913.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148501.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147546.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144796.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143411.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142964.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141618.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140443.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138842.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138407.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138293.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138246.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138158.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135254.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133129.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133042.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132698.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132677.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ RTG. Взгляд с высоты. Природа горного Алтая (202
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132662.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131012.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131000.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129884.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3A062BDC9375A68242B41CCC51D5F6D44A316AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683036   (129813) от 09.12.2023
-
-Поедем, поедим! Индия: вкус огня и сила аюрведы, древние сокровища и современные контрасты (09.12.2023) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добавить специй в новый выпуск? Легко! Ведь Федерико Арнальди — в Индии! Путешественник отправился в штат Керала, чтобы увидеть потрясающую природу и сокровища древних городов, познать силу аюрведы и прикоснуться к многовековым традициям. И, конечно, ведущий не забыл о принципах Болливуда: приготовьтесь к песням и танцам, неожиданным встречам, огненным дегустациям (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D41878961745142B1C4AB9134365D10F829CDE0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

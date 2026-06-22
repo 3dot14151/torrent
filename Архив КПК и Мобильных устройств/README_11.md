@@ -6,7 +6,7 @@ Puffin Browser Pro v8.2.3.41332 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925296.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kingdom Rush v3.1 + MOD [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925171.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CPUz Pro 1.5.2 (Paid) [En] - Информация об устройствах
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925063.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Photo Resizer HD v1.1.19 Ad-Free [En/Ru] - изменениe размера од
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924381.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924358.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ PhotoFixer Pro v2.4 [Ru/Multi] - исправление экспозиции и 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924344.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Cut and Paint v0.4 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924004.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Music Studio v2.0.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923945.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Fitness Online v1.6.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923898.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Turbo Manager Pro v0.0.4 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923895.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Galaxy UI Ultra - Icon Pack v1.0.0 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923880.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Pie 9 - Icon Pack v1.7.1 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923877.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Lawnchair Launcher v2.0-1056-CI-ALPHA [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923730.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ FxGuru v2.12.00 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923672.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Discord - Chat for Gamers v11.8 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923666.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923645.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923356.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ City Navigator China 2012.20 NT in English (Offcial Shifted & Venus Shift-Correc
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923110.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922770.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922728.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922681.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ HD Wallpapers Pro v3.1 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922106.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Despotism 3k v1.2.19 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922014.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Nolum - Icon Pack v1.6.2 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922001.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Horror Show v0.81 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921995.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Video Wallpaper - Установить видео как обои v2.3.5 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921884.jpg" />
 </div>
 
 

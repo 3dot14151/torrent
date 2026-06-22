@@ -1,55 +1,3 @@
-###  Публикация: 1796765   (18565) от 12.05.2025
-
-Tank Squad (2025) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tank Squad - это тактический боевой экшен, в котором вы принимаете командование своим танковым отрядом и ведете его во время танковых сражений Второй мировой войны. Участвуйте в исторических битвах, разворачивающихся в линейных кампаниях, в одиночку или с тремя друзьями. Каждый игрок может управлять своим собственным танком или быть частью вашего танкового экипажа.Тип издания: RepackРазработчик: DeGenerals S.A.Жанр: Экшены, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56A6A15D93D241F920AF5C9D514F37741196C94A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796721   (18534) от 12.05.2025
-
-Rising Star 2 (2020) [Ru/Multi] (2.98.354/dlc) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rising Star 2 - ролевая игра в сочетании с симулятором рок-группы. У вас есть одна глобальная цель - добиться мирового успеха. Чтобы достичь признания, необходимо много трудиться. Если это вам по силе, тогда начните с создания своей команды. После последует череда репетиций, игра по местным клубам, налаживание первых связей и т.д. Вы можете присоединиться уже к сформированному (   Читать дальше...   )Тип издания: RepackРазработчик: GilligamesЖанр: Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Японский, Корейский и другиеЯзык интерфейса: Русский, Английский, Японский, Корейский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2A351E5FA5A79BC506151217945FDA3D161BCBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792433   (18366) от 14.05.2025
 
 Drug Dealer Simulator (2020) [Ru/Multi] (1.2.19.1) License GOG
@@ -58,7 +6,7 @@ Drug Dealer Simulator (2020) [Ru/Multi] (1.2.19.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18366.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ The Precinct (2025) [Ru/Multi] (1.4.18135) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18128.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Oxygen Not Included (2019) [Ru/Multi] (U55-663500-SCR/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18091.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ The Precinct (2025) [Ru/Multi] (1.4.18135) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18019.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Sun Haven (2023) [Ru/Multi] (2.0.2c/dlc) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18002.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Train Valley 2 (2019) [Ru/Multi] (Build 18494183/dlc) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17986.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ Toy Shop Simulator (2025) [Ru/Multi] (1.0.0b6) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17788.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Train Valley 2 (2019) [Ru/Multi] (Build #268/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17770.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ Train Valley 2 (2019) [Ru/Multi] (1.8.8/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17740.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ The Planet Crafter (2022) [Ru/Multi] (1.518/dlc) Repack Let'sРlay [The Galactic
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17723.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ House Flipper 2 (2023) [Ru/Multi] (1.8/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17620.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ RoadCraft (2025) [Ru/Multi] (0.1.D1.1.429865/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17611.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ RoadCraft (2025) [Ru/Multi] (0.1.D1.1.429865/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17607.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ House Flipper 2 (2023) [Ru/Multi] (1.8 build 18474892/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17515.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ Gunsmith Simulator (2023) [Ru/Multi] (1.3.10/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17231.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ Gunsmith Simulator (2023) [Ru/Multi] (1.3.10/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17082.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ Democracy 4 (2020) [Ru/Multi] (1.67/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16924.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ Crime Scene Cleaner (2024) [Ru/Multi] (1.0.80) Scene Razor 1911
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16887.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ Worshippers of Cthulhu (2024) [Ru/Multi] (1.0.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16700.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.9.0.1/dlc) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16616.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ Pacific Drive (2024) [Ru/Multi] (1.9.3-CL30287/dlc) Repack FitGirl [Deluxe Editi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16497.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ Frozenheim (2022) [Ru/Multi] (1.4.9.1) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16362.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ Gunsmith Simulator (2023) [Ru/Multi] (1.3.10/dlc) Repack FitGirl [Deluxe Edition
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16335.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ Galacticare (2024) [Ru/Multi] (1.2.3/dlc) Repack Let'sРlay [Full Coverage Editi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16280.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ Galacticare (2024) [Ru/Multi] (1.2.3/dlc) Repack Let'sРlay [Full Coverage Editi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFE37D724B602F6B8B05F1F379CF105EDDD67726
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811380   (16233) от 09.08.2025
+
+Rail Route (2024) [Ru/Multi] (2.3.22/dlc) Repack seleZen
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rail Route – экономический симулятор, в котором пользователь столкнется с диспетчеризацией железных дорог. Обучение поможет разобраться с трудной механикой и терминами. Прохождение начинается с небольшой железнодорожной системы с ограниченной местностью. Игроку предстоит расширять пути, увеличить прибыль, создавая новые дороги, сокращая их и применяя разные фишки.Тип издания: RepackРазработчик: Bitrich.infoЖанр: Казуальные игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79594BD37FEF0B1132A03FDC20361FCEC3A2FD30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799872   (16214) от 30.05.2025
+
+Flashing Lights - Police, Firefighting, Emergency Services Simulator (2023) [Ru/Multi] (20250528/dlc) Repack seleZen
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Flashing Lights: Police, Firefighting, Emergency Services Simulator – это необычный симулятор работника спецслужб, который выдвигается на задания по зову долга. Пройдите многочисленные разнообразные миссии, играя за разнообразных представителей служб экстренного реагирования, и добейтесь урегулирования ситуации в тех или иных случаях. А все похождения подчёркнуты (   Читать дальше...   )Тип издания: RepackРазработчик: Nils JakrinsЖанр: Экшены, Инди, Многопользовательские игры, Ролевые игры, СимуляторыЯзык субтитров: Русский, Английский, Испанский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Испанский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FF2E9020D1D8F64E000E957971E7E1FB4F21DFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

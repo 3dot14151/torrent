@@ -6,7 +6,7 @@ VA - Jazz Bar Vibes – Smooth Jazz for Relaxing Evenings (2026) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058558.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Cafe Deluxe Chill Out - Nu Jazz / Lounge, Vol. 12 (2025) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058556.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Afro Dub - Afro Funk Archive Vol 4 (2026) [FLAC|Lossless|WEB-DL|tracks] <Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058326.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Ely Bruna, Papik - Hearts Of The 80s (2026) [FLAC|Lossless|WEB-DL|tracks] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058324.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Funk Windows - Funk Tape #3 (2026) [FLAC|Lossless|WEB-DL|tracks] <Funky Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058323.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Broken Beat Nu Funk, Vol. 9 (2026) [FLAC|Lossless|WEB-DL|tracks] <Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058321.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Cafe Deluxe Chill Out - Nu Jazz / Lounge, Vol. 13 (2026) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058320.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Electric Daydreams: Chill and Jazz Fusion (2026) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058319.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Jazz Lounge In Shanghai (2026) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058318.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - This Sounds Like Acid Jazz (2026) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058316.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Chillout & Lounge Ibiza Beats (2026) [FLAC|Lossless|WEB-DL|tracks] <Chill O
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057490.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Richard Marx - After Hours (2026) [FLAC|Lossless|image + .cue] <Jazz, Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053443.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Jackiem Joyner - Every Part Of Me (2026) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Sm
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053250.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052192.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Electro Swing Celebration - Electro Swing Party (2025) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052191.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Lowell Hopper - Mystique (2026) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052189.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ The Neo Swingers - Electro Swing X-Mas 2025 (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052187.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Electro Swing Groove - Fantasy Dreams (2025) [FLAC|Lossless|WEB-DL|tracks] <Elec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051044.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Electro Swing Radio - Bootleg Boogie (Electro Swing Trance Jazz Music) (2025) [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051042.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Electro Swing Radio - Swingin' Into Christmas (Chrismas Electro Swing Jazz Mix) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051040.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ G!L - King of Electro Swing (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051039.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Lady Gearbox - Electro swing music (Vol. 1) (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050586.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ The Merry Christmas Experience - An Electro Swing Christmas Night (2025) [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050584.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Threestyle - Reasons 2 Love (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050287.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Threestyle - Christmas Is My Favourite Season (2025) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050286.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Threestyle, Magdalena Chovancova, Robert Fertl, Damon Dae - We Have That Magic (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050283.jpg" />
 </div>
 
 

@@ -1,3 +1,56 @@
+###  Публикация: 546171   (480014) от 12.09.2012
+
+Плакаты с оружием в высоком разрешении [Графика]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Плакаты с оружием в высоком разрешении
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EF10BDF0023715E2061200964EAD46AC23F5B60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546195   (479905) от 12.09.2012
+
+Картинки - Love Is... / Любовь это... (1993 - 2012) [PNG,JPG,GIF]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наверное каждый помнит те чудесные вкладыши из жвачки «Love is…». В конце 1960-х новозеландка Ким Касали стала рисовать на салфетках сценки о любви с участием пузатой девочки и маленького мальчика. Салфетки эти она подкладывала своему будущему мужу, Роберто Касали, красавцу итальянцу. Её ухаживание в стиле «Love is…» возымело действие, и они сочетались законным браком.
+Со временем записок становилось всё больше. Будущий муж оценил творчество невесты и стал продюсировать её комик-стрип, который впервые увидел свет 5 января, 1970 года. Но Ким никогда не считала себя настоящим художником; она рисовала «Love is…» года три, просто в шутку. А потом семья Касали пригласила художника, Билла Эспри, который вот уже 33 года подряд каждый день рисует эти комиксы. Ким рисовала чёрно-белые картинки, Билл стал рисовать цветные. Ким скончалась в 1997 году. Уже много лет Билл сам рисует комиксы (теперь уже чёрно-белые) под подписью «Ким», это было условием договора с семьей Касали. И сейчас, несмотря на то, что Ким уже нет, Билл (   Читать дальше...   )Разрешение файлов: ~ 157 x 235 - 6000 х 4504Формат: PNG, JPG, GIF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B9A30804613BEF7C85526F11071E49454F3A12A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 546443   (475758) от 14.09.2012
 
 Картинки - Коллекция вкладышей TURBO (1250 штук) [JPG]
@@ -6,7 +59,7 @@
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475758.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473730.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467301.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466735.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466424.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466282.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466278.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466124.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466120.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462233.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457466.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457137.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453243.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451306.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451146.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447567.jpg" />
 </div>
 
 
@@ -435,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447212.jpg" />
 </div>
 
 
@@ -461,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447206.jpg" />
 </div>
 
 
@@ -487,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447113.jpg" />
 </div>
 
 
@@ -514,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446923.jpg" />
 </div>
 
 
@@ -540,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446800.jpg" />
 </div>
 
 
@@ -566,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442042.jpg" />
 </div>
 
 
@@ -592,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439131.jpg" />
 </div>
 
 
@@ -618,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438204.jpg" />
 </div>
 
 
@@ -629,58 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAB55470F089BEF4057849A057CFDE220F33A29A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410306   (438083) от 20.09.2020
-
-Картинки - Super mix wallpapers 591 [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438083.jpg" />
-</div>
-
-
-###  Подробнее
-
-В хорошем качестве подборка обоев на различную тематику.Формат: JPGРазрешение файлов: 1440x900-7680x4320
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AB5BC6D56422D403D702B89DF111966FF5D8563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 706913   (437181) от 05.10.2013
-
-Картинки - Живые фотографии 2 [GIF]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Живые фотографии всегда завораживают чёткостью изображения и ненавязчивым движением, которое отличает их от обычных гифок.Формат: GIFРазрешение файлов: 470х470-715х429
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:237BA91F16D4860C8E7F2DD18180D225917414D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

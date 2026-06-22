@@ -1,3 +1,55 @@
+###  Публикация: 1708474   (113086) от 20.03.2024
+
+EdgeView 4 v.4.6.2 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113086.jpg" />
+</div>
+
+
+###  Подробнее
+
+EdgeView 3 - это новейший просмотрщик изображений. Вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.03.2024Разработчик: © DJ ProductionПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский, Корейский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8D73B9F4DDF8604CEE8B8C104F59DFB48BD9BD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708475   (113082) от 20.03.2024
+
+Hype 4 Pro v.4.1.16 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hype открывает для пользователей возможность создавать красивые, интерактивные и анимированные веб сайты с использованием WYSIWYG-редактора, основной фишкой которого является автоматическая кодировка в HTML5 при экспорте готового материала.Тип издания: macOS SoftwareРелиз состоялся: 19.03.2024Разработчик: © 2011-2024 Tumult Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:292662FFB5E897BABC4D1F369D479567C5E8B7F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708759   (112957) от 22.03.2024
 
 Principle 6.34 [En]
@@ -6,7 +58,7 @@ Principle 6.34 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112957.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Nevercenter CameraBag Photo 2024.1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112950.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ RAW Power 3.4.20 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112941.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ PowerPhotos 2.5.7 U2B [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112720.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ ColorWell 7.4.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112705.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ EazyDraw 11.6.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112576.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Adobe InCopy 2024 v.19.3.0 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112225.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ Alien Skin Bokeh 2.0.1.442 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81759.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ Alien Skin Snap Art 3.0.0.697 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81712.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ Pixelmator Pro 3.5.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63762.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ Capture One 23 Pro 16.3.7.10 [En/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63618.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ Capture One 23 Enterprise 16.3.7.10 [En/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63609.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ DxO PhotoLab 7 ELITE Edition 7.5.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62955.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ FxFactory Pro 8.0.14 U2B [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62673.jpg" />
 </div>
 
 
@@ -382,7 +434,7 @@ ON1 NoNoise AI 2024 for Mac v18.2.0.15224 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62530.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ Luminar Neo 1.18.3 U2B  [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62059.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ Affinity Photo 2 v.2.4.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61753.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ Affinity Designer 2 v.2.4.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61729.jpg" />
 </div>
 
 
@@ -487,7 +539,7 @@ Affinity Publisher 2 v.2.4.1  [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61700.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ CorelDRAW Graphics Suite 2024 v.25.0.0.230  [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61682.jpg" />
 </div>
 
 
@@ -540,7 +592,7 @@ Topaz Gigapixel AI for Mac 7.0.5 U2B [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61531.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ Topaz Photo AI 2 for Mac 2.4.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61525.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ Folder Icons 1.8 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61385.jpg" />
 </div>
 
 
@@ -618,7 +670,7 @@ Adobe Illustrator for Mac 2024 v.28.4.1 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61148.jpg" />
 </div>
 
 
@@ -629,58 +681,6 @@ Adobe Illustrator for Mac 2024 v.28.4.1 U2B [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D56AD21931AF1DB12B3EF681149A06CBAD34BDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711931   (61117) от 01.04.2024
-
-Photomator for Mac 3.3.4 Patch [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photomator — это мощный инструмент для редактирования фотографий, предлагающий невероятные инструменты для улучшения, ретуширования и управления вашими фотографиями. Он включает в себя обширную коллекцию передовых настроек цвета, автоматический выбор с помощью искусственного интеллекта, мощные функции пакетного редактирования, инструменты клонирования и восстановления (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.03.2024Разработчик: © 2024 Pixelmator TeamПоддерживаемая ОС: macOS 13.0+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:280B5213D96C09A21128A297F66CD8974B01DFC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712499   (61024) от 02.04.2024
-
-Adobe InDesign 2024 v.19.3.0 U2B [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программное обеспечение для настольных систем Adobe InDesign представляет собой универсальное приложение для публикации контента, которое обеспечивает точный контроль над дизайном и типографикой на уровне пикселов. Скачав портативное приложение на вы сможете создавать стильные выразительные страницы для печати, планшетных ПК и других экранов. Удобная адаптация макетов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: март 2024Разработчик: © Adobe SystemsПоддерживаемая ОС: macOS 11.0 и новееЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D44501C69CDD2E12C136CB95A62B2348CB151F9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 409931   (346155) от 13.11.2011
+
+Оливеро Боуден | Кредо убийцы: эпоха Возрождения [2009] [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Assassin's Creed: Renaissance — это роман, основанный на цикле Assassin's Creed, написанном Оливером Боуденом (Oliver Bowden) и опубликованный Penguin Books. Это печатная версия игры Assassin's Creed II; вместо того чтобы обхватить огромный промежуток времени, действия происходят только в XV веке без упоминаний современных событий игры.2009Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:755EADD39BD3F4DD68033B8F5F4D433715D6F4E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580194   (345894) от 24.11.2012
+
+Майк Кэри | цикл "Феликс Кастор" [2008-2009] [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Врата между миром людей и миром демонов внезапно распахнулись настежь — и в современные города хлынул поток призраков и привидений, зомби, оборотней и еще десятков порождений Тьмы. Однако жизнь продолжается… только к преступлениям человеческим прибавились преступления паранормальные, а вечных соперников полиции — частных детективов — сменили мастера-экзорцисты. Когда-то лучшим из таких экзорцистов в Англии считался Феликс Кастор, а теперь он вышел в отставку и отказывается даже слышать о прежней работе. Но деньги лишними не бывают… а изгнание слабенького демона, поселившегося в старинном здании церковного архива, — пара пустяков для опытного мастера. Просто? Слишком просто. А бесплатный сыр, как известно, бывает только в мышеловке. И «слишком легкое» дело оказывается самым сложным и опасным за всю карьеру Кастора…Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9C55C2A4833F573A924C47BF78FD1BD03FC608D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330059   (345741) от 08.10.2019
+
+Михаил Немченко, Лариса  Немченко | Только человек [Cборник] (1979) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_345741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Население небольшого американского городка взбудоражено сообщениями о появлении могущественных индейцев, способных летать по воздуху и одним взглядом останавливать полицейских. Боясь возмездия, некоторые приобретают чудесную мазь, делающую их похожими на коренных обитателей Америки...Жанр: Фантастика, Фэнтези, Научная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56FFC8CC67D2754F58549D24F612246067A673F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330065   (345620) от 08.10.2019
+
+Исай Давыдов | Девушка из Пантикапея [Cборник] (1966) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гигантский болид приближается к Земле и грозит вызвать глобальную катастрофу. Для уничтожения этого болида с Земли поднимаются сотни ядерных ракет, но для наведения их на цель нужен человек. Этим человеком становится советский космонавт Фёдор Веселов...Жанр: Фантастика, Фэнтези, Научная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE1704CD5963238496EB471A97C92CE44EC896B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330062   (345619) от 08.10.2019
 
 Коллектив авторов | Вас зовут «Четверть третьего»? [Cборник] (1965) [FB2]
@@ -6,7 +110,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345619.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345617.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345611.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345605.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345499.jpg" />
 </div>
 
 
@@ -140,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345494.jpg" />
 </div>
 
 
@@ -169,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345487.jpg" />
 </div>
 
 
@@ -197,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345456.jpg" />
 </div>
 
 
@@ -225,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345429.jpg" />
 </div>
 
 
@@ -254,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345371.jpg" />
 </div>
 
 
@@ -282,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345356.jpg" />
 </div>
 
 
@@ -308,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345153.jpg" />
 </div>
 
 
@@ -334,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344785.jpg" />
 </div>
 
 
@@ -362,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344509.jpg" />
 </div>
 
 
@@ -390,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344370.jpg" />
 </div>
 
 
@@ -417,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344333.jpg" />
 </div>
 
 
@@ -444,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344227.jpg" />
 </div>
 
 
@@ -472,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344134.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344119.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344072.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344065.jpg" />
 </div>
 
 
@@ -582,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343927.jpg" />
 </div>
 
 
@@ -593,114 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:585B2F039AA3BA9B05CF5124295E7B78CAA3370D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954096   (343918) от 06.11.2015
-
-Блейк Крауч | Сосны. Заплутавшие (2015) [FB2, EPUB]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая книга трилогии «Заплутавшие Сосны»
-
-Бывший секретный агент Итан Бёрк крепко застрял в Заплутавших Соснах – Городе в Нигде, куда ведет лишь одна дорога – и ни одной обратно. Но жизнь продолжается, и Итан, используя свои прежние навыки и знания, занимает пост местного шерифа. Казалось бы, что это за работа – охранять покой в райском уголке, где и так все спокойно, (   Читать дальше...   )Жанр: Научная фантастика, Детективная фантастика, Триллеры, Зарубежная фантастика, Зарубежные детективыФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B8919D776B0E5130647BC73DBB87FF58271EB12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954093   (343814) от 06.11.2015
-
-Андрей Белянин | Пуля для императора (2015) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой граф Михаил Строгов продолжает свое путешествие по России, стремясь разгадать тайну записных книжек своего отца. И узнает о предстоящем покушении на императора…
-
-Андрей Белянин – автор 35 книг, вышедших суммарным тиражом свыше 5 млн экз. В 2013 г. получил премию «Фантаст года» как самый тиражный автор этого года.Жанр: Героическая фантастика, Альтернативная история, Исторические приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76F28E7953646575214FB2C6A8305F96D1A9C411
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330159   (343569) от 09.10.2019
-
-О.О. Ткаченко (сост.) | В королевстве Кирпирляйн [Cборник] (1990) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Столетия лежит в музее загадочный Черный Метеорит. И вот в один прекрасный день несколько одноклассников невольно знакомятся с его истинными возможностями. Куда только не забрасывает ребят таинственная сила! Благородный рыцарь Ланселот, жестокие мафиози, невообразимые страшилища встают на пути друзей. Зачем? Почему? Чем все это закончится? Об этом вы узнаете, если (   Читать дальше...   )Жанр: Фантастика, Фэнтези, Научная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0417DB2E4A409661E7D84A3786594DA7969A5939
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330189   (343560) от 09.10.2019
-
-Анатоль Франс | Восстание ангелов (1937) [DJVU]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман "Восстание ангелов", изданный в 1914 году, описывает захват небес падшими ангелами. Согласно творческому замыслу автора, ангельский бунт имел место в этом же самом 1914 году. Анатоль Франс как бы предвосхитил начало величайших катаклизмов, когда для них не было видно никакого повода, и приурочил апокалиптическую драму на небесах к казалось бы рядовому (   Читать дальше...   )Жанр: История, политология, прозаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AA574787EB3BB4616E2D7989359DB17A7FD2AD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

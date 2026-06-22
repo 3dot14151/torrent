@@ -6,7 +6,7 @@
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823807.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kono Subarashii Sekai ni Shukufuku o! / Этот замечательный ми
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823806.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ K / K Project / Проект Кей [2012, TV, 13] BD-Rip 720p Hi10p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819307.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Sukitte Ii na yo. / Say "I Love You" / Скажи: «Я люблю тебя» [2
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816274.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Kono Naka ni Hitori, Imouto ga Iru! / Nakaimo: My Little Sister is among Them! /
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816273.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Death Parade / Парад смерти [2015, TV, 12 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814308.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Death Note | Тетрадь Смерти [2006, TV, 37 эп. + 2 SP] BDrip 720p 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812787.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Minami Kamakura Koukou Joshi Jitensha Bu / Женский велоклуб ст�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812543.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Shoujo Shuumatsu Ryokou / Girls' Last Tour / Последнее путешест
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811295.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810555.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Nanatsu no Taizai: The Seven Deadly Sins / Семь Смертных Грехо�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810485.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Garo: Honoo no Kokuin / Гаро: Клеймо пламени [2014, TV, 24 ep] 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810484.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Nerawareta Gakuen | Psychic School Wars | Школа под прицелом [20
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809229.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Ookami Kodomo no Ame to Yuki / The Wolf Children Ame and Yuki / Волчьи д�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806767.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Naruto: Shippuuden / Наруто: Ураганные хроники [2007, TV, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804562.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Claymore / Клеймор [2007, TV, 26 ep] BDRip 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804476.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Idol Jihen / Idol Incidents / Проблемы идола [2017, TV, 12] WEBRip 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802836.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Rewrite: Moon and Terra / Перезапись: Луна и Земля [2017, TV
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799954.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Trickster / Обманщик [2016, TV, 24] HDTV 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799953.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Bosco daiboken | Bosco Adventure | Приключения Боско [1986, TV, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797166.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Goblin Slayer / Убийца гоблинов [2018, TV, 12 ep] WEB-DL 720p Raw+
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794689.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Just Because! / А просто так! [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794505.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Fate/Apocrypha / Судьба/Апокриф [2017, TV, 25 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794504.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ The Rolling Girls | Девчонки-путешественницы | Девча
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791871.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Tenki no Ko | Weathering with You | Дитя погоды [2019, Movie] BDRip 72
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786486.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Youjo Senki / Saga of Tanya the Evil / Военная хроника мален�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785680.jpg" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 1652754   (217051) от 12.08.2023
+
+VectorStyler for Mac 1.1.094 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональное программное обеспечение для иллюстраций. VectorStyler — это передовое программное обеспечение для создания иллюстраций и рисунков. Создание иллюстраций, логотипов, значков, рисунков, типографики, векторной графики для экрана, печати и «Интернета». Благодаря многочисленным новым функциям VectorStyler переопределяет и расширяет инструменты, доступные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.07.2023Разработчик: © 2019-2023 Numeric PathПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDFE479F00127805AADE38468E4D83A474DB6502
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426231   (217035) от 23.11.2020
+
+PullTube 1.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузка видео размещённым на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРелиз состоялся: 23.11.2020Разработчик: MyMixAppsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC1DB24D1CB1901CDCE129004851C908B90E9D1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426237   (217031) от 23.11.2020
 
 SQLPro Studio 2020.101 [En]
@@ -6,7 +58,7 @@ SQLPro Studio 2020.101 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217031.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Middle 1.5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217019.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ SSH Config Editor Pro 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216987.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ SiteSucker 4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216940.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ Proxyman for Mac 4.9.0 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216918.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ Sensei 1.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216890.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ WiFiSpoof 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216862.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ iStatistica Pro 3.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216723.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ iStatistica 5.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216671.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ iExplorer 4.0.11.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216372.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ Geekbench 4.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216340.jpg" />
 </div>
 
 
@@ -303,7 +355,7 @@ DJ Mix Pads 2 - Remix Version 5.5.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216334.jpg" />
 </div>
 
 
@@ -329,7 +381,7 @@ SnippetsLab 1.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216305.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ KCNcrew Pack 12.15.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216269.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ Permute 3 v3.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216244.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ Duplicate File Finder Pro 4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216243.jpg" />
 </div>
 
 
@@ -436,7 +488,7 @@ iTrash 4.1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_216235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_216235.jpg" />
 </div>
 
 
@@ -462,7 +514,7 @@ EdgeView 2 v2.510 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216216.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ Dash 4.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216203.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ NeoFinder Business 7.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216180.jpg" />
 </div>
 
 
@@ -540,7 +592,7 @@ Beyond Compare 4.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216095.jpg" />
 </div>
 
 
@@ -569,7 +621,7 @@ Swinsian 2.1.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216093.jpg" />
 </div>
 
 
@@ -595,7 +647,7 @@ Devonthink Pro Office 2.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216058.jpg" />
 </div>
 
 
@@ -621,7 +673,7 @@ All to MP3 Audio Converter 3.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216051.jpg" />
 </div>
 
 
@@ -632,59 +684,6 @@ All to MP3 Audio Converter 3.1.3 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BC4EFE9E079FED24375B87DA42E47C50A97F8E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652826   (216033) от 13.08.2023
-
-Jump Desktop (RDP, VNC, Fluid) 8.9.23 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jump Desktop (RDP & VNC) - программа, которая делает доступной возможность подключиться к вашему удаленному рабочему столу используя протокол RDP и VNC!
-Существует множество приложения для удаленного управления рабочим столом вашего компьютера, однако многие из них не подходят рядовым пользователям по ряду причин. Какие — то слишком простые, работают некачественно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.08.2023Разработчик: © © 2023 Phase Five SystemsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25C3CF9759F20F359035AF2F7BA7B38B72025AEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269928   (216029) от 17.12.2018
-
-Tipard Blu-ray Converter for Mac 9.2.12 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой и удобный конвертер Blu-ray и DVD в популярные форматы, с поддержкой мощных функций редактирования, которые помогут вам создавать персонализированные видео для просмотра практически на любых мобильных устройствах - iPhone, iPad, Samsung Galaxy и многие др. Приятный дизайн, удобный и интуитивно понятный интерфейс, высокая скорость преобразования - что еще (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2018Разработчик: Tipard StudioПоддерживаемая ОС: Mac OS X 10.5 и вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21341CC5B4A00DD12B940509574A48D0DD11D785
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,140 @@
+###  Публикация: 1696679   (119546) от 03.02.2024
+
+Runtu Lite 22.04 [x64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлено обновление версии 64-разрядного дистрибутива Runtu LITE 22.04 х64 на пакетной базе релиза Jammy Jellyfish 22.04.1 LTS. Сборка имеет базовый набор пользовательского ПО с возможностью установки на жёсткий диск. Пакетная база актуализирована на дату 06.01.2023г.
+
+Основные элементы системы:
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AFE432E8A8D2E9C63DAF87E1FA678419B32CA1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699432   (117906) от 13.02.2024
+
+Simply Linux 10.2 (ALT Linux Team) [x64, x32] 4xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Simply Linux (Симпли Линукс) — бесплатная операционная система для персональных компьютеров. Легкая и функциональная, она отлично впишется в домашний или офисный ИТ-интерьер. Удобное меню приложений, привычная работа с папками и файлами позволит не отвлекаться на детали и сосредоточиться на главном.
+
+В Simply Linux входят самые функциональные программы для повседневной (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E203A8BF55F93BD02B81CC175AAE9A8704B8092
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700042   (117466) от 15.02.2024
+
+FreeBSD 14.0 [i386, amd64] 4xCD 2xDVD 4xUSB FlashDrive
+
+>>Linux, Unix и другие ОС
+>>ОС *BSD
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117466.jpg" />
+</div>
+
+
+###  Подробнее
+
+FreeBSD - это современная операционная система для настольных компьютеров, ноутбуков, серверов и встраиваемых систем с поддержкой большого количества платформ.
+
+В основе FreeBSD лежит операционная система "4.4BSD-Lite" Калифорнийского Университета (Беркли) с некоторыми усовершенствованиями из "4.4BSD-Lite2". Также она косвенно базируется на 386BSD (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AABA82A154BC9DE64BDE692271FF6A587A823C64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701004   (116798) от 19.02.2024
+
+elementary OS 7.1 Horus [x64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116798.jpg" />
+</div>
+
+
+###  Подробнее
+
+elementary OS – дистрибутив Linux с открытым исходным кодом, построенный на базе Ubuntu и использующий среду рабочего стола Pantheon. Система позиционируется как быстрая и бесплатная замена для Windows и MacOS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19A84292A64E1A9935E7CA7B7C40D22F3E1CFFB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704418   (114276) от 05.03.2024
+
+Kali Linux 2024.1 [amd64, i386, arm64] 11xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114276.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 февраля 2024 состоялся релиз обновления дистрибутива Kali Linux 2024.1, предназначенного для тестирования систем на предмет наличия уязвимостей, проведения аудита, анализа остаточной информации и выявления последствий атак злоумышленников.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CF77367F0E6AC10018F09E7B004AE75534A7945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706979   (113522) от 14.03.2024
 
 Ubuntu*Pack 20.04 Budgie (март 2024) [amd64] 1xDVD
@@ -6,7 +143,7 @@ Ubuntu*Pack 20.04 Budgie (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113522.jpg" />
 </div>
 
 
@@ -33,7 +170,7 @@ Ubuntu*Pack 20.04 LXqt / Lubuntu (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113518.jpg" />
 </div>
 
 
@@ -60,7 +197,7 @@ Ubuntu*Pack 20.04 DDE (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113516.jpg" />
 </div>
 
 
@@ -87,7 +224,7 @@ Ubuntu*Pack 20.04 Unity (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113515.jpg" />
 </div>
 
 
@@ -114,7 +251,7 @@ Ubuntu*Pack 20.04 MATE (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113514.jpg" />
 </div>
 
 
@@ -141,7 +278,7 @@ Ubuntu*Pack 20.04 Xfce / Xubuntu (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113513.jpg" />
 </div>
 
 
@@ -160,60 +297,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739394   (106144) от 27.07.2024
-
-Ubuntu*Pack 24.04 Budgie (июль 2024) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:416E4B70BDD8DF4C401C691945C7493C0219905C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739472   (106062) от 28.07.2024
-
-Ubuntu*Pack 24.04 Unity (июль 2024) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:997ADC93DA5EC465CE919DCD7A42F3674F87C5D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 488712   (90916) от 26.04.2012
 
 Kubuntu 12.04 LTS [i386] (1xDVD)
@@ -222,7 +305,7 @@ Kubuntu 12.04 LTS [i386] (1xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90916.jpg" />
 </div>
 
 
@@ -248,7 +331,7 @@ FreeBSD 8.3 [amd64] (1xDVD+1xCD+LiveFS+USB IMG+BootOnly)
 >>ОС *BSD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90757.jpg" />
 </div>
 
 
@@ -276,7 +359,7 @@ Linux UsefulPack 12.04 (L) [Русский] (2012)[x86 + amd64]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90537.jpg" />
 </div>
 
 
@@ -311,7 +394,7 @@ DraftSight V1R1.4 beta [x86] (rpm, deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84598.jpg" />
 </div>
 
 
@@ -341,7 +424,7 @@ ALT Linux 8 СП C9F2 [i586, amd64] 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69468.jpg" />
 </div>
 
 
@@ -367,7 +450,7 @@ ALT Linux 8 СП C10F1 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69459.jpg" />
 </div>
 
 
@@ -393,7 +476,7 @@ ALT Linux 8 СП C9F1 [i686, amd64] 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69450.jpg" />
 </div>
 
 
@@ -419,7 +502,7 @@ ZVirt 4.4 [amd64] 2xDVD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63927.jpg" />
 </div>
 
 
@@ -437,32 +520,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703139   (63257) от 12.03.2024
-
-Arch Linux 2024.02.01 [i386/amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_63257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Arch Linux - это независимо разрабатываемый x86-64 дистрибутив GNU/Linux общего назначения, который стремится предоставлять последние стабильные версии большинства программ, следуя модели плавающих релизов (rolling release). Arch устанавливается в виде минимальной базовой системы, настраивается пользователем под собственные нужды путём построения уникальной среды (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9CD8C3B9DCAD4785DB47908AD63D43694432CAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706636   (63029) от 14.03.2024
 
 Whonix Xfce 17.1.3.1 (образ для VirtualBox) [x64]
@@ -471,7 +528,7 @@ Whonix Xfce 17.1.3.1 (образ для VirtualBox) [x64]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63029.jpg" />
 </div>
 
 
@@ -499,7 +556,7 @@ Ubuntu*Pack 20.04 LikeWin (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62980.jpg" />
 </div>
 
 
@@ -526,7 +583,7 @@ Ubuntu*Pack 20.04 Cinnamon (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62970.jpg" />
 </div>
 
 
@@ -553,7 +610,7 @@ Ubuntu*Pack 20.04 GNOME (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62969.jpg" />
 </div>
 
 
@@ -580,7 +637,7 @@ Ubuntu*Pack 20.04 KDE / Kubuntu (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62962.jpg" />
 </div>
 
 
@@ -607,7 +664,7 @@ Ubuntu*Pack 20.04 (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62951.jpg" />
 </div>
 
 
@@ -634,7 +691,7 @@ EndeavourOS Galileo-Neo-2024.01.25 [x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62905.jpg" />
 </div>
 
 
@@ -645,62 +702,6 @@ EndeavourOS — это дистрибутив Linux, основанный на A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D10D50A1D2144BAF9E11021226483BB3ED1F49F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707125   (62870) от 15.03.2024
-
-Qubes OS 4.2.0 [x64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Qubes OS — ориентированная на безопасность настольная операционная система, которая призвана обеспечить безопасность через изоляцию. Виртуализация осуществляется на базе Xen. Пользовательская среда может быть основана на Fedora, Debian, Whonix, Windows и других операционных системах.
-
-16 февраля 2014 года Qubes стал финалистом в премии Access Innovation Prize 2014 (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C125502E34EAE434EDEDF0D148A6104B20DB39F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707176   (62819) от 16.03.2024
-
-Kodachi Linux 8.27 [x64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Linux Kodachi - дистрибутив операционной системы Linux, который разработан с акцентом на приватность, анонимность и безопасность пользователей. Он основан на более популярном дистрибутиве Xubuntu и предлагает ряд уникальных функций и инструментов для обеспечения конфиденциальности и защиты данных.
-
-Главной особенностью работы Linux Kodachi является принудительное (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:439B1A185D120E786197A816B477A4E5D2D06FD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

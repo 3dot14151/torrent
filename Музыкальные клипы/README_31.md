@@ -1,3 +1,227 @@
+###  Публикация: 582574   (314869) от 01.12.2012
+
+Сборник клипов - VA - Various Music part. 37 (2012) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~07:09:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DBE23CB8B673DE6DADE675B2798432DB2466215
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182434   (314216) от 11.11.2017
+
+Ленинград / Вояж (2017) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитая группа «Ленинград» и ее лидер, любитель крепкого словца Сергей Шнуров, представили клип к композиции "Вояж"Производство: РоссияЖанр: Rock, SkaПродолжительность: 00:05:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4C63562C8C127F9B53309060F366E5FB5129D42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182274   (314087) от 11.11.2017
+
+Сборник клипов - Philizz "Back To The 90s" (episode 7) (2017) WEB-DLRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник клипов "Back To The 90s" - фирменный видеомикс от голландского ви-джея Philizz. Серия видеомиксов популярных клипов 90-х годов - седьмая часть, заключительная. Энергичная танцевальная музыка в стиле Eurodance, Techno и Hardcore. Танцуем под легендарную музыку 90-х!
+- Разбивка по трекам отсутствует.Ramirez – El Gallinero
+The Prodigy – Out Of Space
+Captain Jack – Captain Jack
+JX – You Belong To Me(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF8F1F4E573D33FD9A55B0E4E9061568C5B6C5DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583465   (312868) от 02.12.2012
+
+Не Мощные - No Fake (Uncensored) (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:02:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95FBE30D957A21723404294FF39870565424215A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582787   (312669) от 02.12.2012
+
+Сборник видеоклипов / Millenium Застольная 2 (2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_312669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Золотое Кольцо - Течёт ручей
+02 В.Сердючка - Хоп,Хоп,Хоп
+03 Леонсия Эрденко - Солнышко
+04 Владимир и Марина Девятова - Я огонь, ты вода
+05 Филипп Киркоров - Зайка моя
+06 Напилася я пьяна(караоке)
+07 Кабриолет - За твои глаза
+08 Kaya - Bellydance
+09 М.Муромов - Яблоки на снегу
+10 На На - Увезу тебя я в тундру(   Читать дальше...   )Продолжительность: 01:10:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB6DE62ACEC1CD6F0FB16E1E14C5619556B10C87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182872   (312197) от 12.11.2017
+
+Enrique Iglesias ft. Descemer Bueno & Gente de Zona Bailando (2014) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BADEBBCAB191BFCAA8C9264F11E162321C96CD44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959508   (311924) от 26.11.2015
+
+Selena Gomez - Good For You (2015) HDTVRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американская актриса и певица Селена Гомес (Selena Gomez) покорила интернет клипом к новой композиции Good For You. Изначально трек был записан при участии известного рэпера A$AP Rocky. Но для съемок видео певица выбрала урезанную и чуть менее откровенную версию сингла.Жанр: PopПродолжительность: 00:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D10AA81B05B8514119BB42F0FF49F713A4E670F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959990   (311754) от 26.11.2015
+
+VA - Осенний марафон № 207: Коктейль Хит Новинок (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (26.11.2015) поп. новинки зарубежной, русской и украинской эстрады. Не пропустите, держите новые треки.01. 5sta Family - Метко (Премьера!) (00:03:24)
+02. Alexandra Stan - I Did It, Mama! (Official Video) (00:03:48)
+03. Amure - Dolphins (Official Video) (00:06:39)
+04. Assia Ahhatt - Prelude of Joy (Official Video) (00:04:18)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Chill Out, Electronic, SynthpopПродолжительность: 01:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E7507029A6FF9E470CAD9DEBE11FF43B534C438
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1183033   (311497) от 12.11.2017
 
 Сборник клипов - Night of Love от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 1)
@@ -6,7 +230,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311497.jpg" />
 </div>
 
 
@@ -36,7 +260,7 @@ The Best of...(vol.2) (2011) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310183.jpg" />
 </div>
 
 
@@ -63,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307911.jpg" />
 </div>
 
 
@@ -89,7 +313,7 @@ Lindsey Stirling - Song of the Caged Bird (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307902.jpg" />
 </div>
 
 
@@ -115,7 +339,7 @@ The Best of...(vol.3) (2011) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307582.jpg" />
 </div>
 
 
@@ -141,7 +365,7 @@ Slim - Шлягер (2012) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305745.jpg" />
 </div>
 
 
@@ -167,7 +391,7 @@ VA - Осенний марафон № 208: Хиты с доставкой на 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300795.jpg" />
 </div>
 
 
@@ -196,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296941.jpg" />
 </div>
 
 
@@ -225,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296750.jpg" />
 </div>
 
 
@@ -254,7 +478,7 @@ VA - Official UK Top 40 Video Chart (27-11-2015) WEB-DL [1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296560.jpg" />
 </div>
 
 
@@ -283,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295119.jpg" />
 </div>
 
 
@@ -312,7 +536,7 @@ Flo Rida - Collection Video Clip ( 2010 - 2015) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294715.jpg" />
 </div>
 
 
@@ -341,7 +565,7 @@ VA - Зимний марафон № 209: Дискотека с доставко
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294585.jpg" />
 </div>
 
 
@@ -370,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294480.jpg" />
 </div>
 
 
@@ -396,7 +620,7 @@ Rihanna feat. Jay-Z - Umbrella (2007) 540p HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293122.jpg" />
 </div>
 
 
@@ -422,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292872.jpg" />
 </div>
 
 
@@ -451,7 +675,7 @@ Pitbull - (Collection Video Clip) (2011 - 2015) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292758.jpg" />
 </div>
 
 
@@ -480,7 +704,7 @@ Ageless rock (2015) WEBRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292639.jpg" />
 </div>
 
 
@@ -494,232 +718,6 @@ Ageless rock (2015) WEBRip [H.264]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:943029AE4E46748178C799B539DE5116FB4A4637
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185549   (291230) от 22.11.2017
-
-David Guetta feat. Rihanna - Who's That Chick (2010) 540p HDTV
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальный видеоклип David Guetta feat. Rihanna - Who's That Chick.Жанр: Музыкальный видеоклип.Субтитры: отсутствуютПродолжительность: 00:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F155C8F39B492685A10C0B18F91E85D6C473931
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185781   (285646) от 25.11.2017
-
-Сборник клипов - Ballads and Lyrics от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот сборник клипов я собирал когда то для девушки которую очень любил и вложил в него всю свою душу. Каждый кто любил по настоящему, найдет в нем частицу себя. Это 2я часть сборника. Смотрите,слушайте и наслаждайтесь. Все лучшее для вас. ALEXnROCK000 Intro
-051 Brian Adams - Do I Have To Say The Words
-052 Puff Daddy & Faith Evans - I'll be missing you
-053 Челси - Крылья(   Читать дальше...   )Жанр: Pop, RockФормат: MKVПродолжительность: 03:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:967CC11A56ABE0AC830B6C205E98252AFD6F4E51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185446   (285488) от 25.11.2017
-
-Сборник клипов - Русский Рок от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2) [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Посвящается рок музыкантам и поэтам рано ушедшим, но продолжающим жить в своих стихах и песнях - исцелять,и радовать сердца и души людей своим творчеством. В сборник вошли самые сильные клипы за всю историю русского рока. Наши рокеры раньше не сильно заботились о качестве видео и о звуке в этом видео, да у многих и возможности не было. Поэтому при реанимации некоторых (   Читать дальше...   )000 Вступление
-052 Григорий Лепс - Ну и что
-053 Виктор Цой и Кино - Песня без слов
-054 Легенды рока - Все это рок-н-ролл(   Читать дальше...   )Жанр: РокПродолжительность: 03:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06008B1847E880FA660128523E3D4C366DAB83E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963983   (285130) от 09.12.2015
-
-VA - Зимний марафон № 211: Коктейль Хитовых Новинок (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зимние (09.12.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. 4G - Улыбайся (Премьера!) (00:03:48)
-02. Eros Ramazzotti - Buon Natale (Official Video) (00:04:25)
-03. Iva - Хочешь (Call Remix) (Премьера!) (00:03:16)
-04. Вера Брежнева - Мамочка (Live, 2015) (Премьера!) (00:02:54)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Dubstep, R'n'B, SoulПродолжительность: 01:29:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B2001DAB6B330E405058C2B0D52223D7B74E47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264052   (282289) от 22.11.2018
-
-Битлз - Видеография / The Beatles - Videography (1963-1970) DVDRemux (2 диска)
-
->>След.
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Британская рок-группа из Ливерпуля, основанная в 1960 году, в составе которой играли Джон Леннон, Пол Маккартни, Джордж Харрисон и Ринго Старр. Также в разное время в составе группы выступали Стюарт Сатклифф, Пит Бест и Джимми Никол. Большинство композиций The Beatles созданы в соавторстве и подписаны именами Джона Леннона и Пола Маккартни. Дискография группы включает (   Читать дальше...   )Жанр: РокПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 01:09:23+01:09:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA8168415FE2621A7D59624892B88E3570E81559
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186819   (282171) от 27.11.2017
-
-Сборник клипов - Rap & Hip Hop от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я долго работал над этим сборником клипов. Перепахал много гектар видеоматериала и выбрал лучшее что есть в мировом рэпе. Да прибудет с нами качественная музыка! Все лучшее для вас. ALEXnROCK000 Intro
-054 Nelly & P.Diddy & Murphy Lee - Shake Ya Tailfeather
-055 Dino MC47 - Время
-056 2Pac- California Love(   Читать дальше...   )Жанр: Rap, Hip hopФормат: MKVПродолжительность: 03:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:311A91ECAA49937B565FA648D9F1C3292F2A5D22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186836   (282030) от 27.11.2017
-
-Сборник клипов - Hard Rock and Metal от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282030.jpg" />
-</div>
-
-
-###  Подробнее
-
-000 Intro
-051 Guns N' Roses - You Could Be Mine
-052 Kingdom Come - Should I
-053 Limp Bizkit - Take a Look Around(   Читать дальше...   )Жанр: Rock, MetalФормат: MKVПродолжительность: 03:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4E577E4E204B5508AAAD8B3BFC12B2FA337E374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187681   (278470) от 29.11.2017
-
-Сборник клипов - Best Pop Hits от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278470.jpg" />
-</div>
-
-
-###  Подробнее
-
-000 Intro
-061 Nicole Kidman & Ewan McGregor - Come What May
-062 Elize - Hot Stuff
-063 Blue - One Love(   Читать дальше...   )Жанр: PopФормат: MKVПродолжительность: 03:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BC93F865F4C9D30FA99E2F3590C9FBE23FF9D99
 ```
 
 https://mybot314.ru/tekegram_catalog/

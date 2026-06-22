@@ -1,3 +1,133 @@
+###  Публикация: 1214068   (765712) от 20.03.2018
+
+Б. М. Эльцин (ред.) | Политический словарь [2-е изд.] (1924) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Революция, опрокидывая и разрушая в своем быстром ходе все представления и понятия, давно уже вызывала потребность в новом, совершенно отличном от прежних изданий, научном политическом словаре, который мог бы удовлетворить народившегося нового читателя и пробудившегося от вековечного сна уже не „российского обывателя", а свободного гражданина Российской Социалистической (   Читать дальше...   )Жанр: История, политология, экономика, словарьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9C7A8F180BBAA3ED8DEEF3B9279BD847A40C0AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216430   (747566) от 01.04.2018
+
+А. Г. Калашников (ред.) | Педагогическая энциклопедия [Том 1] (1929) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747566.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Педагогическая энциклопедия" призвана помочь всем, кто занимается воспитанием подрастающего поколения. В ней сосредоточены педагогические знания, накопленные человечеством на протяжении веков. Наибольшее внимание в Энциклопедии уделено основным психолого-педагогическим вопросам воспитания и образования подрастающего поколения: вопросам коммунистического (   Читать дальше...   )Жанр: История, политология, экономика, науковедение, социология, философия, искусство, педагогика, психология, дидактика, биология, физиология, медицина, география, энциклопедияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFBCC96EC607CC847154CC50D5EE836AD8A2CD04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019989   (746350) от 25.05.2016
+
+В. А. Лысенко | Современный англо-русский морской технический словарь (2004) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемый вниманию специалистов «Современный англо-русский морской технический словарь» - результат 35-летнего опыта практической работы автора в составе экипажей судов. Данное издание не имеет аналогов в СНГ по широте освещения всех сторон работы судового специалиста: от специальных технических вопросов до решения правовых конфликтов по оплате труда в международных (   Читать дальше...   )Жанр: Словари, морское делоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BD708E1D8D1D0DA3EA62D21C7EA772DA41B8686
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019975   (746268) от 25.05.2016
+
+Е. М. Поспелов (ред.) | Англо-русский словарь по картографии, геодезии и аэрофототопографии (1968) [DJVU]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Англо-русский словарь по картографии, геодезии и аэрофототопографии — Англо-русский словарь по картографии, геодезии и аэрофототопографии - содержит 12 500 терминов по картоведению, математической картографии, составлению, оформлению и изданию карт, аэрофотосъемке, дешифрированию и фотограмметрии, геодезии и гравиметрии, а также некоторые наиболее употребительные (   Читать дальше...   )Жанр: СловарьФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACA35391CA47BCCC50D34D9F3C391CD7AF36D311
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019998   (746257) от 25.05.2016
+
+А. И. Шипилов, А. Я. Анцупов | Словарь конфликтолога (2010) [FB2]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами новое, дополненное издание первого в отечественной науке словаря по конфликтологии. В нем авторы обобщили труды отечественных и зарубежных ученых по разработке понятийно-категориального аппарата этой междисциплинарной отрасли знаний. В словаре представлена система основных понятий конфликтологии, включающая более 1700 терминов. Он включает основные понятия, (   Читать дальше...   )Жанр: Словари, Общая психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B10923692DC7A89CABCD5C116870095A1843FDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019495   (746045) от 25.05.2016
 
 Книжная серия | 100 лучших [32 книги] (2013-2016) [PDF]
@@ -6,7 +136,7 @@
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746045.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744739.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744611.jpg" />
 </div>
 
 
@@ -85,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743202.jpg" />
 </div>
 
 
@@ -112,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743024.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735820.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735574.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729435.jpg" />
 </div>
 
 
@@ -218,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725330.jpg" />
 </div>
 
 
@@ -244,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725027.jpg" />
 </div>
 
 
@@ -271,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723615.jpg" />
 </div>
 
 
@@ -297,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722583.jpg" />
 </div>
 
 
@@ -323,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715710.jpg" />
 </div>
 
 
@@ -349,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715639.jpg" />
 </div>
 
 
@@ -375,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714327.jpg" />
 </div>
 
 
@@ -403,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714234.jpg" />
 </div>
 
 
@@ -429,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704601.jpg" />
 </div>
 
 
@@ -455,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698022.jpg" />
 </div>
 
 
@@ -481,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682813.jpg" />
 </div>
 
 
@@ -509,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672638.jpg" />
 </div>
 
 
@@ -535,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670633.jpg" />
 </div>
 
 
@@ -546,139 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4A1BF8A45BEECCC5F93087CB23DF3C8A92B0BBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 510416   (669956) от 14.06.2012
-
-Н.Соснина, И.Шангина | Русский традиционный костюм. Иллюстрированная энциклопедия [2006] [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые наиболее полно собраны сведения о русском традиционном (или народном) костюме последней трети XVIII - первой четверти XX века.
-Преимущественно это костюм крестьянский, однако в издании отмечаются заимствования из городского костюма.
-Энциклопедия включает данные о всех основных типах народной одежды и вместе с тем детальное описание предмета: будь то шуба (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FFE966F55091BBEBE5B0E0AD8E7AA13EDD434AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 900826   (666244) от 23.05.2015
-
-Й. В. Роен и др. | Большой анатомический атлас (2015) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное издание является мировым бестселлером. Вниманию читателя предлагаются: уникальные фотографии анатомических срезов, точнейшим образом передающие цветовые и структурные особенности строения органов; обучающие схемы, которые дополняют и разъясняют великолепные (   Читать дальше...   )Жанр: АнатомияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F732C861865708F3E413AA97F1CA8A826DC5715
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902179   (661947) от 27.05.2015
-
-ОЛМА Медиа Групп | Универсальный энциклопедический справочник (2010) [FB2, PDF, RTF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661947.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Универсальный энциклопедический справочник» содержит массу интересных и нужных знаний, собранных в одной книге. Доступность и увлекательность изложения, глубина освещения каждой темы, новые интересные факты и сведения – все это делает книгу незаменимой в домашней библиотеке.Жанр: ЭнциклопедияФормат: FB2, PDF, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D293077373170AF2EF80FF1C28848985CC1FB39C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902955   (659827) от 29.05.2015
-
-Айдын Ариф оглы Али-заде | Исламский энциклопедический словарь (2007) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первое русскоязычное справочное издание, в котором сделана попытка разъяснить большинство основных понятий и терминов, используемых в исламской традиции.
-Содержит информацию об исламских первоисточниках - Коране и Сунне, их истории и методах толкования, об основах исламского вероучения, о доктрине Единобожия, правовых и вероучительных школах в Исламе, различных мусульманских (   Читать дальше...   )Жанр: Энциклопедический словарьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7B5228379A9C34FEBB620DD353E059D6ED09960
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902858   (658672) от 30.05.2015
-
-В.Д. Гладкий | Древний мир. Энциклопедический словарь [В 2-х Тм.] (1997) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658672.jpg" />
-</div>
-
-
-###  Подробнее
-
-В уникальном, не имеющем аналогов словаре собраны сведения по истории Европы, Азии и Северной Африке, начиная со времен возникновения первых цивилизаций по X в. нашей эры включительно. Энциклопедический словарь "Древний мир" - многолетний труд известного писателя Виталия Дмитриевича Гладкого, автора многих книг, в том числе и исторических романов. Полный (   Читать дальше...   )Жанр: История. Археология. ЭтнографияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D4E431452254241F76B1F5F7552C5C691728E21
 ```
 
 https://mybot314.ru/tekegram_catalog/

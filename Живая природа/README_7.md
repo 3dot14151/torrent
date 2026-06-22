@@ -1,3 +1,107 @@
+###  Публикация: 1098102   (910390) от 29.01.2017
+
+Большой скачок. Океанариум изнутри (2014) HDTVRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910390.jpg" />
+</div>
+
+
+###  Подробнее
+
+С момента появления морских публичных аквариумов прошло уже 100 лет. Однако история настоящих больших океанариумов по сути только началась. Обеспечить капризным морским обитателям комфортные условия довольно сложно. Возможность содержать многих требовательных к условиям неволи жителей океанов появилась недавно, с развитием соответствующих технологий. Документальный (   Читать дальше...   )Телекомпания: Россия, Наука 2.0Жанр: Документальный, ВидовойПродолжительность: 00:27:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E10D5165BC444F7666FD3BBD63ED9D43E289E148
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099181   (907064) от 31.01.2017
+
+Наука 2.0. Большой Скачок. Живое море (2014) WEB-DL [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это одно из самых уникальных мест на планете, здесь находится крупнейшее в мире скопление ядов - сероводорода, метана и аммиака. Поэтому это место иногда называют настоящей бомбой замедленного действия. Уникален не  только состав местной воды, но и её обитатели. Совсем недавно здесь были найдены существа, словно с другой планеты. Ведь условия их жизни мало чем отличаются (   Читать дальше...   )Телекомпания: "Наука"Жанр: ДокументальныйПродолжительность: 00:25:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2A3450E5080FCD608EE2384A4D6668559EC0EA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368722   (906968) от 21.03.2020
+
+Последний Зверолов / The Last Trapper / Le Dernier Trappeur (2004) BDRemux [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Норман Уинтер — действительно один из последних представителей американских трапперов (охотников на пушного зверя), живущий в Скалистых Горах со своей женой-индианкой Небраской и собаками. Он пытается хранить гармонию с природой, однако неумолимое наступление цивилизации и исчезновение девственных лесов делает эту цель все более невыполнимой…Производство: Франция, Канада, Швейцария, Германия, Италия, Canal+Жанр: Документальный, приключения, природаРежиссер: Николя ВаньеПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED2AACFDC5C119C1502CA67D40A77E21295DF62F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098944   (906866) от 31.01.2017
+
+Тайный мир ракообразных / The Secret World of Crustaceans (2013) SATRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Морское дно - дом для многих странных существ. Среди морских обитателей встречается одна довольно необычная группа - ракообразные, которые веками оставались для человека загадкой. Этим животным несколько миллионов лет, они насчитывают около 50 тысяч видов, большинство из которых водные обитатели. Наблюдать их в естественной среде непросто, ведь днем они прячутся (   Читать дальше...   )Телекомпания: ФранцияЖанр: Документальный, морская фаунаРежиссер: Мануэль ЛефеврПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:50:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C778579EC9ED0CF4864233F7D469722BEE138308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 853745   (905786) от 28.02.2016
 
 Жизнь морских обитателей (Морская жизнь) / Fish Life (2009-2010) HDTVRip [H.264/720p] [1-12 серия из 12]
@@ -6,7 +110,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905786.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904214.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904104.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903123.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902265.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900725.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_900211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_900211.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900169.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900052.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898776.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897414.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897379.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897003.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893418.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893238.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891766.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889416.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889347.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885890.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885780.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881796.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ NGW: Дунай. Европейская Амазонка / Danube. Europe's Amaz
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881120.jpg" />
 </div>
 
 
@@ -566,113 +670,6 @@ NGW: Дунай. Европейская Амазонка / Danube. Europe's Amaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86A0F8EC7D8774F9FF6BB33F0269B0B6CEB1F283
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 642018   (880696) от 10.04.2013
-
-Микрокосмос / Microcosmos (1996) [1080p] BDRip [hand made 60fps]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_880696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полтора часа, проведенные на неизвестной планете, где все расстояния измеряются миллиметрами. Ее обитатели: фантастические создания, насекомые, улитки и прочие обитатели травы и воды. Ее пейзажи: непроходимые дебри травяных кущ, капли росы, огромные, как воздушные шары.
-Зритель открывает для себя прекрасный, сияющий всеми красками радуги параллельный мир, где работают иные физические законы. Мир, залитый ирреальным светом, полный неведомых звуков. Страна, где животные умеют ходить по воде или разгуливать вниз головой.
-Фазан, разгуливающий по муравьиной тропе производит на вас не меньшее впечатление, чем Годзилла из знаменитого триллера, а обычная летняя гроза заставляет вспомнить о воздушной атаке сотни тяжелых бомбардировщиков. Постоянные переходы из одного мира в другой дают ошеломленным зрителям почувствовать относительность наших представлений о пространстве.
-Зритель ощущает себя крохотным десантником, заброшенным в самый эпицентр действия. Он слышит грохот муравьиных войн и рев пчелиных крыльев у себя за (   Читать дальше...   )Жанр: ДокументальныйРежиссер: Клод Нуридзани, Мари ПеренуПродюсер: Кристоф Барратье, Ивет Мале, Жак ПерренПеревод: Не требуетсяПродолжительность: 01:15:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39180F4660FEA4871060E0CF4EEBE1E7ABFF3168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853892   (880554) от 13.03.2016
-
-BBC. Дикая Аравия / Wild Arabia (2013) BDRip [H.264/1080p] [1-3 серия из 3]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880554.jpg" />
-</div>
-
-
-###  Подробнее
-
-На протяжении многих столетий таинственные, но запретные земли пленяли наше воображение. И вот впервые нам удастся получше узнать родину мифов и легенд. Мы увидим мир контрастов и непредсказуемых сюрпризов. Это место, где древняя история вплетена в ткань современности. И эти же земли приходятся родным домом для уникальных обитателей животного царства. Это рассказ (   Читать дальше...   )Жанр: Документальный, история, путешествияПеревод: Одноголосый закадровый (любительский, читает Ю. Онищенко)Субтитры: вшитыеЯзык субтитров: русский, русский, английскийПродолжительность: 3 x ~00:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C510D300C4261A66E0829E90C465751B757C98D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495863   (877365) от 14.09.2021
-
-Остров обезьян / Monkey Island (2019) IPTV [H.265/2160p] (серии 1-3 из 3)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877365.jpg" />
-</div>
-
-
-###  Подробнее
-
-В древних джунглях Шри-Ланки три примата: краснолицый гульман, цейлонский макак и сероватый лангур, — живут среди руин. Эта эпическая игровая площадка идеально подходит для того, чтобы раскрыть секреты мира обезьян. Как и люди, приматы живут в семьях, кланах и сообществах. У них есть родственники, друзья и враги, они пользуются широким репертуаром жестов для общения (   Читать дальше...   )Производство: Канада, Blink Films for Blue Ant Media InternationalЖанр: Документальный, природа, флора, фаунаРежиссер: Марта ХолмсПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 3 x ~00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E45CA74C5BAA0707E650F4228F5AAE447D6F3CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105236   (876464) от 17.02.2017
-
-Из жизни животных / Tendresses animales (2014) SATRip (серии 1-4 из 4)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разнообразие живых существ, населяющих нашу планету, поражает воображение. Гигантские и крошечные, пушистые и колючие, хищные и травоядные, безобидные и опасные - они веками живут рядом с нами. Казалось бы, что в них удивительного? Однако интерес к изучению и наблюдению за животными постоянно растет, и человеческий ум все время пытается постигнуть таинственный мир (   Читать дальше...   )Телекомпания: ФранцияЖанр: Документальный, познавательный, флора, фаунаПеревод: Одноголосый закадровый, профессиональный
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A74320653F87818A28F73DC7AB05385710DB17D
 ```
 
 https://mybot314.ru/tekegram_catalog/

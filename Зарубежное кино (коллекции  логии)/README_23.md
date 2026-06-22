@@ -1,3 +1,109 @@
+###  Публикация: 1675580   (160034) от 09.11.2023
+
+Kingsman / Kingsman (2014-2021) BDRip [H.264/1080p-LQ] [Трилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160034.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Kingsman» — британско-американская франшиза, основанная на приключениях агентов Kingsman, вымышленной секретной организации.Производство: Великобритания, США / Twentieth Century Fox, Marv Films, Cloudy ProductionsЖанр: боевик, комедия, приключенияРежиссер: Мэттью ВонАктеры: Тэрон Эджертон, Колин Фёрт, Сэмюэл Л. Джексон, Марк Стронг, Софи Куксон, Майкл Кейн, София Бутелла, Саманта Янус, Джофф Белл, Марк Хэмилл, Джулианна Мур, Холли Берри, Педро Паскаль, Ченнинг Татум, Джефф Бриджес, Эдвард Холкрофт, Ханна АльстрёмПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 02:08:44 / 02:21:02 / 02:10:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0409421C1FF9772AACE63BE169992A8CCE5B0D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192630   (159912) от 22.12.2022
+
+Один дома / Home Alone (1990/1992) BDRip [H.264/1080p] [Дилогия]
+
+>>След.
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американское семейство отправляется из Чикаго в Европу, но в спешке сборов бестолковые родители забывают дома… одного из своих детей. Юное создание, однако, не теряется и демонстрирует чудеса изобретательности. И когда в дом залезают грабители, им приходится не раз пожалеть о встрече с милым крошкой.
+Во второй части фильма: Кевин МакКалистер вернулся! Но теперь он (   Читать дальше...   )Производство: США / Twentieth Century Fox, Hughes EntertainmentЖанр: Комедия, Семейный, ПриключенияРежиссер: Крис КоламбусАктеры: Маколей Калкин, Джо Пеши, Дэниел Стерн, Кэтрин О’Хара, Джон Хёрд, Робертс Блоссом, Джерри Бэммен, Девин Рэтрей, Джон Кэнди, Киран Калкин, Тим Карри, Кэтрин О’Хара, Джон Хёрд, Бренда Фрикер, Эдди Брекен, Роб Шнайдер, Дэна АйвиПеревод: Многоголосый закадровый, ДублированныйСубтитры: Русские, английскиеПродолжительность: 01:42:55 / 02:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80101FAB504F719921B8A8242F46EA67D2DFB5C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599635   (159562) от 24.12.2022
+
+Санта Клаус / The Santa Clause (1994, 2002, 2006) BDRip [H.264/1080p] [Трилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159562.jpg" />
+</div>
+
+
+###  Подробнее
+
+В рождественскую ночь продавец игрушек Скотт Кэлвин случайно сталкивает со своей крыши странного старичка. К его невероятному удивлению, там же он обнаруживает припаркованного северного оленя.
+Пока незнакомец беспомощно барахтается в сугробе, любопытный Скотт вскакивает в седло — и оказывается на Северном Полюсе, где главный эльф убеждает его занять место Санта Клауса, (   Читать дальше...   )Производство: США / Walt Disney Pictures, Boxing Cat Films, Outlaw Productions (I)Жанр: фэнтези, комедия, приключения, СемейныйРежиссер: Джон Паскуин, Майкл ЛембекАктеры: Тим Аллен, Джадж Райнхолд, Венди Крюсон, Эрик Ллойд, Дэвид Крамхолц, Ларри Бранденбург, Мэри Гросс, Пейдж Тамада, Питер Бойл, Джудит Скотт, Мартин ШортПеревод: Многоголосый профессиональныйСубтитры: РусскиеПродолжительность: 01:37:08 / 01:44:22 / 01:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C5CE6732D3AAF7D5F65AB084AB2FC4996F2F18F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667409   (158790) от 12.11.2023
+
+Великий уравнитель / The Equalizer (2014 - 2023) BDRemux [H.264/1080p] [Трилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший агент ЦРУ, пожилой афроамериканец Роберт Маккол, решил начать жизнь заново, оставить непростое прошлое и смотреть в будущее, как и обещал покойной жене. Он уже нашёл обычную работу продавца в магазине. Однажды Маккол вступается за юную проститутку Тери, с которой болтал в местной закусочной и которая находится под контролем русской мафии. Маккол прекращает (   Читать дальше...   )Производство: США, Италия / Columbia Pictures, LStar Capital, Village Roadshow PicturesЖанр: боевик, триллер, криминалРежиссер: Антуан ФукуаАктеры: Дензел Вашингтон, Мартон Чокаш, Хлоя Грейс Морец, Дэвид Харбор, Хейли Беннетт, Билл Пуллман, Мелисса Лео, Дэвид Мюнье, Джонни Скуртис, Алекс Видов, Педро Паскаль, Эштон Сандерс,  Джонатан Скарф, Сакина Джэффри, Кази Таугинас, Дакота Фаннинг, Эудженио Мастрандреа, Дэвид Денман, Гая Скоделларо, Ремо Джироне, Андреа Скардуцио, Андреа Додеро, Даниэль Перрон, Закария ХамзаПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:12:03 / 02:00:57 / 01:58:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9375EB9AC3FE4D30052BF3E3F10505387CC99831
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316646   (158725) от 12.11.2023
 
 Великий уравнитель / The Equalizer (2014 - 2023) BDRip [H.264/720p] [Трилогия]
@@ -6,7 +112,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158725.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156671.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156193.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155253.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155094.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154884.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150619.jpg" />
 </div>
 
 
@@ -191,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148128.jpg" />
 </div>
 
 
@@ -217,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147920.jpg" />
 </div>
 
 
@@ -245,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147001.jpg" />
 </div>
 
 
@@ -272,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144556.jpg" />
 </div>
 
 
@@ -298,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144476.jpg" />
 </div>
 
 
@@ -324,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142823.jpg" />
 </div>
 
 
@@ -350,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142715.jpg" />
 </div>
 
 
@@ -376,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141381.jpg" />
 </div>
 
 
@@ -402,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137867.jpg" />
 </div>
 
 
@@ -428,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137172.jpg" />
 </div>
 
 
@@ -454,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137127.jpg" />
 </div>
 
 
@@ -481,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137092.jpg" />
 </div>
 
 
@@ -507,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137025.jpg" />
 </div>
 
 
@@ -533,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136660.jpg" />
 </div>
 
 
@@ -560,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136318.jpg" />
 </div>
 
 
@@ -571,110 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43250B99EAFB8E1A5FC683DB68ECFDA3CA727040
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679660   (135119) от 26.11.2023
-
-Призрачный гонщик / Ghost Rider (2007, 2011) WEB-DLRip [H.264/1080p-LQ] [Open Matte] [Дилогия] [handmade AI]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Супергеройская дилогия, посвященная популярнейшему персонажу комиксов из вселенной Марвэл, стартовала в 2007 году. Небольшая серия киноисторий стала одной из самых знаменитых медиафраншиз Голливуда. На сегодняшний день франшиза включает две качественные полнометражки, в которых главную роль исполняет великолепный Николас Кейдж. Кто как не он способен на невероятные (   Читать дальше...   )Производство: США, Австралия, ОАЭ / Columbia Pictures Corporation, Crystal Sky Pictures, Marvel Enterprises, Hyde Park Entertainment, Imagenation Abu Dhabi FZЖанр: фэнтези, боевик, триллерРежиссер: Марк Невелдайн, Брайан ТейлорАктеры: Николас Кейдж, Киран Хайндс, Виоланте Плачидо, Джонни Витуорт, Фергус Риордан, Идрис Эльба, Винсент Риган, Кристофер Ламберт, Спенсер Уайлдинг, Сорин ТофанПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:50:03 / 01:35:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27B01893AF2B04D89B45E56EA71191A1C91D57E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593724   (133447) от 26.12.2012
-
-Могучие утята: Трилогия / The Mighty Ducks: Trilogy (1992,1994,1996) [H.264] HDTVRip
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ребята из команды «Уток» поступили в престижный колледж. Там уже есть своя хоккейная команда старшеклассников. В борьбе за лидерство все средства хороши: сплетни, интриги и сексуальная соседка…Жанр: Комедия, Семейный, Драма, СпортРежиссер: Роберт ЛиберманПродюсер: Джон Эвнет, Джордан Кернер, Стивен БриллВ ролях: Эмилио Эстевез, Джеффри Нордлинг, Дэвид Шелби, Хейди Клинг, Джошуа Джексон, Джосс Акланд, Элден Хенсон, Майкл Кадлиц, Гаретта Ратлифф Хенсон, Маргерит Моро, Аарон ЛорФормат: MKVПродолжительность: 01:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8670A80D4ABD65AB44127E8757CFA0CA177BB66C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592735   (132381) от 28.12.2012
-
-Стивен Кинг. Коллекция фильмов. Часть 3 из 5 / (1991-1995) DVDRip
-
->>След.
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пассажиры и экипаж рейсового самолета неожиданно попадают в другое измерение. При посадке они оказываются в пункте назначения, но совершенно пустом. Странности нарастают, постепенно переходя в психоз и кровавый кошмар. Чудовищные Лангольеры поедают не только людей и предметы, но и само пространство...Жанр: Ужасы, Фэнтези, ТриллерРежиссер: Том Холланд /Tom Holland/Актеры: Пэтришиа Уэттиг /Patricia Wettig/, Дин Стокуэлл /Dean Stockwell/, Дэвид Морс /David Morse/, Марк Линдсэй Чэпмэн /Mark Lindsay Chapman/, Фрэнки Фэйсон /Frankie Faison/Перевод: Профессиональный многоголосыйПродолжительность: 02:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4BB2E3400082FF773354017C3CE17F4BF3F2868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596061   (131759) от 29.12.2012
-
-Стивен Кинг. Коллекция фильмов. Часть 4 из5 / (1995-2000) DVDRip
-
->>След.
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летом 1960-го в жизни 11-летнего Бобби Гарфилда появился странный друг. Пожилой Тед Бротиган явился ниоткуда и поселился на втором этаже в доме Бобби и его матери Элизабет. С этого момента добрый незнакомец, хранящий некую тайну и знающий намного больше обычных людей, многое меняет в характере Бобби и его судьбе. Мальчик чувствует в себе доселе небывалые способности, а еще знает, что за Тедом охотятся какие-то люди, и готов сделать все, чтобы защитить нового друга…Жанр: Ужасы, Фэнтези, ТриллерРежиссер: Скотт Хикс /Scott Hicks/Актеры: Энтони Хопкинс /Anthony Hopkins/, Антон Ельчин /Anton Yelchin/, Хоуп Дэвис /Hope Davis/, Мика Бурем /Mika Boorem/, Дэвид Морс /David Morse/Перевод: Профессиональный многоголосныйПродолжительность: 01:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BD6102CD2D37FE63E43762F1CC73D364BE5E2D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

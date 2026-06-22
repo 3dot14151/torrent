@@ -6,7 +6,7 @@ Yotsuba to! / Ёцуба и! [тома 1-15] (1-101 глав) [2003] [manga] [Р
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462825.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Nanatsu No Taizai / The Seven Deadly Sins / Семь смертных грехо
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436599.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427952.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Kurozuka / Куродзука (2003) [40 гл.][Манга][русский][comp
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_426013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_426013.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Elfen Lied / Эльфийская песнь (2002) [1-12 том (1-107 гл.)] 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_423713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_423713.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Dorohedoro / Дорохедоро (2001) [16 томов, 1-101+omake гл.] [М�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401685.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Life is Money / Жизнь - это деньги (2011) [1-15 главы] [Ма�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389859.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Bleach / Блич (2001) [1-74 том (1-686)][Манга][Русский] [comp
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337290.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Urusei Yatsura / Несносные пришельцы (1978) [3 тома] [Ма
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_303318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_303318.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Monster Collection / Коллекция монстров (1998) [1-33 гл.] [М
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299753.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Claymore / Клеймор (2001-2012) [21 том (155 глав)] [Манга][р
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278727.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Kaichou wa Maid-sama! | Class President is a Maid! | Президент студ
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277630.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Ai wo Utauyori Ore ni Oborero!! / Вместо того, чтобы петь п�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277309.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Akame ga Kill! | Убийца Акаме! (2010) [15 томов, 79 глав] [�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269083.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Sora no Otoshimono / Lost Property of the Sky / Потерянное небом 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228208.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214193.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Shingeki no Kyojin | Attack on Titan | Атака титанов (2009-2021) [34
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169952.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Shokugeki no Souma | Food Wars | Кулинарные поединки Сомы 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169200.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Neon Genesis Evangelion: Angelic Days / Shin Seiki Evangelion: Girlfriend of Ste
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140195.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138341.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Nisekoi / False Love / Притворная любовь [Манга][главы
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136324.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Hwaja / Хвая (2011) [35 глав+2 extra+эпилог+послесловие
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83877.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Vandread / Вандред [2000][manga][Русский][главы 1-14][Complet
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76880.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ JoJo no Kimyou na Bouken Part 4: Diamond wa Kudakenai | Невероятные �
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70230.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Jigokuraku | Hell's Paradise: Jigokuraku | Адский рай (2018) [13 том
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70228.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Rozen Maiden: Tales | Девы Розена 2 (2008) [11 томов, 66 глав
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70224.jpg" />
 </div>
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1864102   (1062988) от 08.04.2026
+
+Nippon Sangoku | Троецарствие Японии [2026, TV, 1 из 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062988.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ближайшем будущем Япония полностью развалилась из-за сочетания ядерной войны, стихийных бедствий и повсеместной коррупции, что привело к революции.
+Сейчас страна раздроблена на три враждующих сверхдержавы. В эту новую эпоху, напоминающую период «Трех царств», дипломатия исчезла, уступив место жестокой и безжалостной борьбе за власть. Каждая территория использует (   Читать дальше...   )Производство: Studio Kafka / スタジオカフカЖанр: приключенияРежиссер: Тэрасава КадзуакиПеревод: AniLibria (остальное официалы)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:708AA226FC28E6882B139176683BABE68C77AC00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1864105   (1062985) от 08.04.2026
 
 Hidarikiki no Eren | Eren the Southpaw | Левша Эрен [2026, TV, 1 из 12] WEBRip 720p raw
@@ -6,7 +33,7 @@ Hidarikiki no Eren | Eren the Southpaw | Левша Эрен [2026, TV, 1 из 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062985.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Kanojo, Okarishimasu 5 | Девушка на час [ТВ-5] [2026, TV, 1 из 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062936.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ Bungou Stray Dogs 5 | Великий из бродячих псов 5 [2023, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062669.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ Niwatori Fighter | Rooster Fighter | Боевой петух [2026, TV, 1 из 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062563.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ Watashi ga Koibito ni Nareru Wake Nai jan, Muri Muri! (*Muri ja Nakatta!?): Next
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062508.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ Ao no Hako | Blue Box | Голубая шкатулка [ТВ-1] [2024, TV, 25 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062417.jpg" />
 </div>
 
 
@@ -163,7 +190,7 @@ Bungou Stray Dogs 4 | Великий из бродячих псов 4 [2023, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062313.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ Sekirei | Wagtail | Сэкирэй [2008, TV, 12 эп. + 1 OVA] BDRip 1080p 10-b
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062312.jpg" />
 </div>
 
 
@@ -218,7 +245,7 @@ Steel Ball Run JoJo's Bizarre Adventure | Steel Ball Run: JoJo no Kimyou na Bouk
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062059.jpg" />
 </div>
 
 
@@ -244,7 +271,7 @@ Hibi wa Sugiredo Meshi Umashi | Food for the Soul | Дни проходят, а 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062058.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ Virgin Punk | Невинный панк [2025, Movie] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061755.jpg" />
 </div>
 
 
@@ -297,7 +324,7 @@ Kimi no Iru Machi OVA | Город, в котором ты живёшь ОVA [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060519.jpg" />
 </div>
 
 
@@ -326,7 +353,7 @@ Kimi no Iru Machi: Tasogare Kousaten | Город, в котором ты жив
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060518.jpg" />
 </div>
 
 
@@ -354,7 +381,7 @@ Ansatsusha de Aru Ore no Status ga Yuusha yori mo Akiraka ni Tsuyoi no da ga | M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060093.jpg" />
 </div>
 
 
@@ -380,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059504.jpg" />
 </div>
 
 
@@ -406,7 +433,7 @@ ChaO | Чао [2025, Movie] WEBRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059343.jpg" />
 </div>
 
 
@@ -432,7 +459,7 @@ Chou Kaguya-hime! / Cosmic Princess Kaguya! / Суперпринцесса Ка�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058580.jpg" />
 </div>
 
 
@@ -459,7 +486,7 @@ Cool Doji Danshi | Play It Cool, Guys | Сыграйте круто, ребят�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058154.jpg" />
 </div>
 
 
@@ -485,7 +512,7 @@ Haikara-san ga Tooru | Smart-san | Современная девушка | Го�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058005.jpg" />
 </div>
 
 
@@ -512,7 +539,7 @@ Shounan Bakusouzoku | Bomber Bikers of Shonan | Сёнанские байкер�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057998.jpg" />
 </div>
 
 
@@ -538,7 +565,7 @@ Alma-chan wa Kazoku ni Naritai | Alma-chan Wants to Be a Family! | Альма х
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057983.jpg" />
 </div>
 
 
@@ -564,7 +591,7 @@ Attack No.1 | Attack Number One | Mila Superstar | Лучшая подача [19
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057947.jpg" />
 </div>
 
 
@@ -590,7 +617,7 @@ Touhou Niji Sousaku Doujin Anime: Musou Kakyou | Touhou: A Summer Day's Dream | 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056577.jpg" />
 </div>
 
 
@@ -616,7 +643,7 @@ Tensei Akujo no Kurorekishi | The Dark History of the Reincarnated Villainess | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055859.jpg" />
 </div>
 
 
@@ -642,7 +669,7 @@ Onee-chan Gokko | Playing Sister | Играя роль старшей сестр
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055473.jpg" />
 </div>
 
 
@@ -654,32 +681,6 @@ Onee-chan Gokko | Playing Sister | Играя роль старшей сестр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3023F41C13E1B393767D03DD5885B3BB6A64C31C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 641803   (1055200) от 01.02.2026
-
-Little Witch Academia | Академия ведьмочек (фильм первый) [2013, Movie] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девочка Акко, побывав однажды на магическом представлении, с первого взгляда влюбилась в этот невероятный вид искусства. И ей даже удаётся поступить в лучшую в Европе школу магии «Luna Nova». Но обыденная учеба оказалась не такой уж и завораживающей, как она думала… И вот, когда разочарованная скучными и консервативными занятиями Акко уже перестаёт мечтать, ее школа (   Читать дальше...   )Производство: студия Trigger / トリガーЖанр: приключения, фэнтези, комедияРежиссер: Ёсинари ЁПеревод: SchumЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02A331B7F96417E06E19A1C388D1892313DD9996
 ```
 
 https://mybot314.ru/tekegram_catalog/

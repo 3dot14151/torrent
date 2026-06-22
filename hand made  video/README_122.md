@@ -1,3 +1,29 @@
+###  Публикация: 1725044   (55735) от 22.05.2024
+
+Кунг Фьюри / Kung Fury (2015) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майами, 1985 год. В городе появляется самый опасный преступник всех времен - Адольф Гитлер по прозвищу Кунг Фюрер. Суперкоп Кунг Фьюри решает совершить путешествие во времени в нацистскую Германию, чтобы убить Гитлера и положить конец нацистской империи.Производство: Швеция / Algoryx Simulation, Lampray, Laser Unicorns, Polyphony DigitalЖанр: короткометражка, фантастика, фэнтези, боевик, комедияРежиссер: Дэвид СандбергАктеры: Дэвид Сандберг, Йорма Такконе, Стивен Чю, Леопольд Нильссон, Андреас Калинг, Пер-Хенрик Арвидиус, Эрик Хёрнквист, Фрэнк Сэндерсон, Элени Янг, Хелен АлсонПеревод: Многоголосый профессиональный (Jaskier), Многоголосый профессиональный (Петр "Гланц" Иващенко, Александр Дасевич и др.), Многоголосый профессиональный (OMSKBIRD records), Одноголосый авторский (Дмитрий "Гоблин" Пучков), Одноголосый авторский (Леонид Володарский)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 00:30:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B224407A5783F57935C604ACE55AFD62D92503AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725296   (55643) от 23.05.2024
 
 Обитель зла: Возмездие / Resident Evil: Retribution (2012) BDRip [AV1/1080p] [10-bit] [handmade AI]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55643.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55624.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55548.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55547.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55521.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55465.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55444.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55442.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55440.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55399.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55385.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55366.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55363.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55360.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55342.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55336.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55335.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55331.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55330.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55326.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55312.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55310.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55263.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55235.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55129.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:449392D2734219A48D5EF4CDA6720FC64E94F411
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726464   (55114) от 28.05.2024
-
-Проект А / «A» gai waak / Project A (1983) BDRip [H.264/1080p-LQ] [MVO] [handmade AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гонконг начала XX века. На китайском море свирепствуют пираты под предводительством зловещего босса Ло. Все надежды правительство возлагает на план борьбы с пиратами под кодовым названием «Проект А». Но Ло всегда на шаг опережает власти, подрывает их корабли, и проект оказывается под угрозой срыва. Его выполнение берут на себя борец береговой охраны по кличке Дракон (   Читать дальше...   )Производство: Гонконг / Golden Way Films Ltd., Paragon Films Ltd.Жанр: боевик, комедияРежиссер: Джеки Чан, Саммо ХунАктеры: Джеки Чан, Саммо Хун, Юэнь Бяо, Дик Вэй, Марс, Винни Вонг, Тай Бо, Нг Лонг Чунг, Ли Хой-Сан, Кван Хой-СанПеревод: Профессиональный многоголосый (Первый канал)Язык озвучки: РусскийСубтитры: Русские, английскиеПродолжительность: 01:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD57751D4A8B9E9933FE209BA2DBDE57C17F02D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

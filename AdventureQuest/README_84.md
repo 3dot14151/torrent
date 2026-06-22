@@ -1,3 +1,133 @@
+###  Публикация: 1739660   (48407) от 30.07.2024
+
+Conscript (2024) [Ru/Multi] (1.0.0.2/dlc) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экшен с видом сверху, дополненный элементами жанров стратегии и хоррора. Игроку предстоит погрузиться в события Первой Мировой Войны и бороться за выживание в опасном и непредсказуемом мире. Главный герой – одинокий солдат, цель которого – выжить в столь суровых и жестоких условиях. Ему предстоит сражаться с врагами, решать головоломки и пробивать себе путь к спасению.Тип издания: RepackРазработчик: Jordan Mochi, Catchweight StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Китайский, Французский и другиеЯзык интерфейса: Русский, Английский, Китайский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3E6180EC3E0A366FA41EE9600832E972A4CBC1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740301   (48248) от 01.08.2024
+
+Nobody Wants to Die (2024) [Ru/Multi] (1.0.1.0.46.065) Repack Decepticon
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nobody Wants to Die с головой окунает вас в Нью-Йорк будущего, где смерть - пережиток прошлого. Сейчас 2329 год, и Большое Яблоко - это огромный мегаполис, стоящий на краю пропасти. Бессмертие стало реальностью, но за него приходится платить. Добро пожаловать в мир, где все поставлено на карту. Вы становитесь на место детектива Джеймса Карры. Он опытный следователь (   Читать дальше...   )Тип издания: RepackРазработчик: Critical Hit GamesЖанр: Приключение, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8729F48EBC860C4EE20554ADD5EDB9FED43E215F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740252   (48233) от 01.08.2024
+
+Abnormal1999:Sector 49 / Аномалия1999:Зона 49 (2024) [Ru/Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48233.jpg" />
+</div>
+
+
+###  Подробнее
+
+События Abnormal1999:Sector 49 разворачиваются на пустынных просторах Невады, в забытом уголке. Студия QZQ создала эту загадочную игру-головоломку, погрузив геймеров в отчаянные поиски пропавшей дочери. Вы - Сэм, управляющий заброшенным исследовательским центром времен Второй мировой войны. Частные организации финансировали здесь секретные эксперименты, оставив после (   Читать дальше...   )Тип издания: LicenseРазработчик: QZQ StudioЖанр: Приключенческие игрыЯзык субтитров: Русский, Английский, Немецкий, Китайский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Китайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24B7E748286221F8D40627EE4D60FECC0C8ED505
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740214   (48199) от 01.08.2024
+
+Tales from the Borderlands (2014) [Ru/En] (1.0.1) Repack FitGirl [Episodes 1-5]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра является приключенческим экшеном с упором в исследования мира и диалоги. Действия игровой серии разворачиваются после событий Borderlands 2, а играть вам предстоит за двух персонажей: киборга Рис из оружейной компании "Гиперион" и Фтоны – мошенницы с Пандоры, желающей совершить свою крупнейшую аферу. Основной целью героев станет страсть к наживе, и (   Читать дальше...   )Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AEC15AC2057B8118B5A3E588CB76374F09F6277
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155490   (48141) от 02.08.2024
+
+The Darkside Detective (2017) [Multi] (2.127.4.167d) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Твин Лейкс - странный городок, в котором время от времени происходят не менее странные события. И расследовать их приходится Френсису МакКвину, детективу, семья которого необъяснимым образом исчезла, после того, как он, ещё будучи полицейским-новобранцем, стащил с места преступления странный амулет. С тех пор Френсис одержим расследованием необычных преступлений, (   Читать дальше...   )Тип издания: LicenseРазработчик: Spooky DoorwayЖанр: Экшны, Приключение, ДетективыЯзык субтитров: Английский, Немецкий, Французский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C690D20A8DA12E69B615F6AFAD22AEA5228FEA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641147   (48135) от 02.08.2024
 
 It Takes Two (2021) [Ru/Multi] (1.0.0.4) Repack dixen18
@@ -6,7 +136,7 @@ It Takes Two (2021) [Ru/Multi] (1.0.0.4) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48135.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ The Darkside Detective: A Fumble in the Dark (2021) [Multi] (2.32.2089.160d) Lic
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48093.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ The Backrooms: Survival (2022) [En] (1.28) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48087.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48033.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Brothers: A Tale of Two Sons Remake (2024) [Ru/Multi] (20240717.09.4260763) Lice
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48030.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Blacklist Mafia (2024) [Ru/En] (Build 15226435) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48016.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Back (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47988.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Blacklist Mafia (2024) [Ru/En] (Build 15226435) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47984.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ The Mortuary Assistant (2022) [Multi] (3.0.0) Repack Other s [Definitive Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47890.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Shift 87 (2024) [Ru/Multi] (1.0f9) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47884.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ realMyst (2000) [En] (1.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47872.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ Thank Goodness You're Here! (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47783.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ My Lovely Wife (2022) [Ru/Multi] (1.1.14f2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47780.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Minds Beneath Us (2024) [Multi] (1.0.1) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47733.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Subnautica: Below Zero (2019) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47709.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ Setteeh / Сэттээх (2024) [Ru/En] (Build 15264138) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47704.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47679.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Sylvio: Black Waters (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47568.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Conscript (2024) [Ru/Multi] (1.0.0.2/dlc) Repack FitGirl [Officer Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47559.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ Etera (2024) [En] (1.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47549.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ SCHiM (2024) [Ru/Multi] (1.0.3.a) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47548.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ SCHiM (2024) [Ru/Multi] (1.0.3.a) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6225A7350D62C00707A3A7180B05943A1FB4218D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741513   (47538) от 07.08.2024
-
-Cursed Bet (2024) [En] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Друзья Davin рассказывают ему несколько историй о заброшенном детском саду, где, как говорят, произошли ужасные события. Ходят слухи, что игрушка была проклята и ожила, что стало причиной ужасных событий и закрытия школы. Ходят слухи, что проклятие все еще действует, с теми, кто в него попадает, случаются плохие вещи, а о некоторых до сих пор ничего не слышно.Тип издания: RepackРазработчик: LIGHTWORKER GAMESЖанр: Экшены, Приключенческие игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4887B2F5910705859F651D6C625AB8AC62AD31C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578446   (47512) от 08.08.2024
-
-Nine Noir Lives (2022) [Multi] (1.0.3.1) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47512.jpg" />
-</div>
-
-
-###  Подробнее
-
-С прибытием в Мяу-Мяу Муррингтон – кошачью столицу, родину крупнейшего в мире шерстяного клубка... и самый настоящий преступный гадюшник. Вы – Калачик Сметанкинсон: кот, частный детектив и обладатель двух вполне адекватного размера лапок (доктор подтвердил). После личной просьбы шефа полиции вы в срочном порядке берётесь за расследование, которое с первой минуты (   Читать дальше...   )Тип издания: LicenseРазработчик: Silvernode StudiosЖанр: Приключение, Квест, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4D177851C5640B87B7E6C152AE679CFEC7439C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741724   (47460) от 08.08.2024
-
-Kanon (2024) [Multi] (1.2.0.3) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интерактивный визуальный роман, в котором пользователи получают возможность взять под управление паренька по имени Айзава Юичи, что является простым школьником. Главный герой возвращается домой спустя долгое время отсутствия и спонтанно оказывается затянут в круговорот романтических приключений, что вынуждают юношу пересмотреть свои привычные взгляды на мир и собственную (   Читать дальше...   )Тип издания: SceneРазработчик: VISUAL ARTSЖанр: Приключенческие игры, Казуальные игры, СимуляторыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Китайский (упрощенный), ЯпонскийЯзык интерфейса: Английский, Китайский (упрощенный), Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A8ADBA4967016EC6DA81115DAB228D2D2BCCDC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741933   (47359) от 09.08.2024
-
-Zombie Police: Christmas Dancing with Police Zombies (2024) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет разворачивается вокруг начинающего человека-детектива и очень энергичного зомби-детектива, которые являются полностью разносторонними личностями. Эти двое то и дело постоянно берутся ща самые разнообразные тяжкие дела. Докопайтесь до истины, используя сверхспособности зомби и дедуктивные способности.Тип издания: SceneРазработчик: ALTERCIWS, LobstudioЖанр: Приключенческие игрыЯзык субтитров: Английский, Японский, Китайский (упрощенный)Язык интерфейса: Английский, Японский, Китайский (упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEA90DDC760ABC5F94C336948E910887FE26402B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678072   (47280) от 10.08.2024
-
-Universe For Sale (2023) [Multi] (1.3.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представьте: космическая станция, укутанная облаками Юпитера. Загадочный сектант избавляется от плоти, чтобы достичь просветления. На базаре торгует взволнованная девушка. Она предлагает вселенные, созданные ее собственными руками. Брать будете? Анимация, нарисованная от руки. Изящные, завораживающие сцены, созданные ветеранами европейских подпольных комиксов. Захватывающая (   Читать дальше...   )Тип издания: LicenseРазработчик: Tmesis StudioЖанр: Adventure, Visual Novel, Sci-fiЯзык субтитров: Английский, Французский, Итальянский, Китайский и другиеЯзык интерфейса: Английский, Французский, Итальянский, Китайский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4CB6A2EE09EB0851923ADCCF04C6CD05F3E891D
 ```
 
 https://mybot314.ru/tekegram_catalog/

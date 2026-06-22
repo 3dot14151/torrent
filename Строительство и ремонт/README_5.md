@@ -1,3 +1,82 @@
+###  Публикация: 541754   (500904) от 31.08.2012
+
+А.А.Теличко, В.И.Рыженко (сост.) | Полы. Окна. Двери [2005] [Pdf]
+
+>>Разное (категория книг)
+>>Строительство и ремонт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наша книга содержит максимум сведений, необходимых для проведения таких работ, как настил и ремонт полов, установка окон и дверей.
+ Учитывая, что полы, окна, двери — это не только конструктивные элементы дома, но и элементы домашнего интерьера, в нашей книге приводятся советы дизайнера по их оформлению.Жанр: Ремонт, дизайн, сделай самФормат: Pdf
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B231E87F607430B3FBFF4AF09231A3FB52D2F03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 381950   (496929) от 30.08.2011
+
+Баня в походе своими руками [2011] [PDF]
+
+>>Разное (категория книг)
+>>Строительство и ремонт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_496929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга докажет вам что утверждение баня сделана в походе своими руками – это вполне возможно, и не так сложно как кажется.2011Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B11BC84CA25E8FA8CCBD0B7F3EE8211C487450B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936320   (496051) от 11.09.2015
+
+В.В. Самойлович | Отделка квартиры. Советы умельцу (1992) [PDF]
+
+>>Разное (категория книг)
+>>Строительство и ремонт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496051.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге содержатся практические советы и рекомендации по отделке квартиры своими руками; приведены характеристики отделочных материалов, инструментов и приспособлений; даны советы по ремонту поврежденных участков стен. Из книги можно узнать, как правильно клеить обои, облицевать плитками стены, отремонтировать паркетный или дощатый пол. Для большей наглядности приведенные (   Читать дальше...   )Жанр: Строительство, ремонтФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFDC63B0A3A6D7C7F1EF5DBBE25E0FF2B5BB346B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 544170   (492815) от 06.09.2012
 
 Юхани Кеппо | Деревянный дом. Каркасные работы от фундамента до крыши [2005] [Pdf]
@@ -6,7 +85,7 @@
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492815.jpg" />
 </div>
 
 
@@ -34,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480216.jpg" />
 </div>
 
 
@@ -61,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475363.jpg" />
 </div>
 
 
@@ -87,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470578.jpg" />
 </div>
 
 
@@ -114,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468411.jpg" />
 </div>
 
 
@@ -140,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464075.jpg" />
 </div>
 
 
@@ -167,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_461546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_461546.jpg" />
 </div>
 
 
@@ -193,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457135.jpg" />
 </div>
 
 
@@ -219,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452573.jpg" />
 </div>
 
 
@@ -245,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446462.jpg" />
 </div>
 
 
@@ -271,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445612.jpg" />
 </div>
 
 
@@ -297,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433216.jpg" />
 </div>
 
 
@@ -325,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429940.jpg" />
 </div>
 
 
@@ -351,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426266.jpg" />
 </div>
 
 
@@ -377,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426055.jpg" />
 </div>
 
 
@@ -403,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_422989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_422989.jpg" />
 </div>
 
 
@@ -429,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419983.jpg" />
 </div>
 
 
@@ -457,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417676.jpg" />
 </div>
 
 
@@ -485,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415321.jpg" />
 </div>
 
 
@@ -511,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412820.jpg" />
 </div>
 
 
@@ -539,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410807.jpg" />
 </div>
 
 
@@ -566,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409845.jpg" />
 </div>
 
 
@@ -592,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409051.jpg" />
 </div>
 
 
@@ -603,84 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E5C7D6E8A6BE832B4C299E33373751748D6EB56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560554   (406935) от 14.10.2012
-
-Ю.Умельцев | Как класть ламинат, паркет и стелить линолеум [2012] [Pdf]
-
->>Разное (категория книг)
->>Строительство и ремонт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406935.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге вы найдете готовые ответы на все вопросы, какие только могут возникнуть у мастера при работе с ламинатом, линолеумом и паркетными напольными покрытиями.Жанр: Ремонт, «сделай сам», домоводствоФормат: Pdf
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F759183E77CF4D8408086C453FBC6C74211E31DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560556   (406922) от 14.10.2012
-
-Ю.Умельцев | Отделка стен плиткой, обоями, декоративной штукатуркой [2012] [Pdf]
-
->>Разное (категория книг)
->>Строительство и ремонт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406922.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге вы найдете готовые ответы на все вопросы, какие только могут возникнуть у мастера при работе с керамической плиткой, бумажными, виниловыми, текстильными, деревянными обоями, а также декоративной штукатуркой.Жанр: Домоводство, ремонт, «сделай сам»Формат: Pdf
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D29764141D1DE893590D8F51B2E9A1D97D2E15F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564623   (401722) от 24.10.2012
-
-А.М.Шепелев | Кладка печей своими руками. 2-е изд. [1987] [PDF]
-
->>Разное (категория книг)
->>Строительство и ремонт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор книги в популярной форме рассказывает о материалах, используемых для печных работ, приготовления растворов, об инструментах и приспособлениях. Приводит различные вилы печей и дает порядовку их кладки, что позволяет сложить печи своими руками. Уделяет внимание размещению отопительных печей в помещении, их наружной отделке. Во втором издании книги (первое вышло в 1983 г.) даны конструкции новых печей, расширено понятие о приготовлении глиняных растворов.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68A92C51F49F1AF372E5E08D1517BD16BB190AE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

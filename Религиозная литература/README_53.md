@@ -1,3 +1,55 @@
+###  Публикация: 909984   (624329) от 19.06.2015
+
+В. Н. Шердаков | Евангельская нравственность и гуманизм (1967) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624329.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Христианский гуманизм», в основе которого лежат евангельские заповеди, до сих пор почитается в качестве высшего нравственного идеала многими людьми, особенно в западных странах. Под воздействием христианской религии находится и некоторая часть советских людей. Сторонники христианства в наши дни не столько доказывают истинность религиозных догм, сколько ссылаются (   Читать дальше...   )Жанр: история, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7877A7FCD80779BCF6A262210662CF6ED9477E38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909971   (624327) от 19.06.2015
+
+Матвей Бурштын | Хедер (1930) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624327.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассказывается об условиях обучения еврейских детей в религиозных школах - хедерах - в дореволюционной России.Жанр: история, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3838237D801A9E703F0ACF74B11ABE0295F08E51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909997   (624318) от 19.06.2015
 
 А. Т. Москаленко | Идеология и деятельность христианских сект (1978) [DJVU]
@@ -6,7 +58,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624318.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624065.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623958.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623947.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623855.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622713.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622590.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_621204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_621204.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621094.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621084.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621081.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620965.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620773.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620365.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620234.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620110.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619996.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619990.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619983.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619982.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619970.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619807.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619741.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619155.jpg" />
 </div>
 
 
@@ -622,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75CD9AD9BAE9D7E31B2B67FA5F0FC3E8D9B7696B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544890   (618400) от 17.04.2022
-
-Святитель Григорий Нисский | О надписании псалмов (1998) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Богодухновенное Писание, как называет его божественный апостол (Тим. 3, 16) — это писание Святого Духа. Цель его — польза для людей, как он говорит: «Всё Писание богодухновенно и полезно». Эта польза различна и многообразна: «полезно для научения, для обличения, для исправления, для наставления в праведности» (2 Тим. 3, 16). Но эту пользу нельзя получить с первого (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E84D4CF46E41A4D0957954C8CA9A33C4AE7F8EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146074   (618226) от 27.06.2017
-
-Валентина Николаевна Кузнецова | Письмо апостола Павла церкви в Филиппах. Комментарий (2015) [PDF, FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это письмо – наиболее личное из всех писем апостола. Павла и филиппийскую общину связывали узы искренней взаимной любви. Одной из причин написания письма была благодарность за присланную ими с Эпафродитом помощь. Апостол рассказывает о своих обстоятельствах, обещает в скором времени послать в Филиппы своего друга и помощника Тимофея. Павел просит филиппийцев быть (   Читать дальше...   )Жанр: БиблеистикаФормат: PDF, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EF6CBBFCD2F4CA91330E05B82AFAFAAF6A77FDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

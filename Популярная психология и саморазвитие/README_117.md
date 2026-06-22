@@ -1,3 +1,56 @@
+###  Публикация: 1811718   (8484) от 11.08.2025
+
+Нассим Талеб | Антихрупкость. Как извлечь выгоду из хаоса (2024) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8484.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Антихрупкость» — книга уникальная: она рассказывает о ключевом свойстве людей, систем и не только, свойстве, у которого до сих пор не было названия. В мире, где царит неопределенность, нельзя желать большего, чем быть антихрупким, то есть уметь при столкновении с хаосом жизни не просто оставаться невредимым, но и становиться лучше прежнего, эволюционировать, развиваться. (   Читать дальше...   )Жанр: Бизнес-литератураИздательство: КоЛибри, Азбука-АттикусФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EEA38433775359462ED9B5F373685C36EAA9A5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811618   (8448) от 11.08.2025
+
+Оскар Хартманн | Альтернейт. Сверхцели. Счастье. Баланс (2024) [PDF, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8448.jpg" />
+</div>
+
+
+###  Подробнее
+
+В своей новой книге «Альтернейт» Оскар Хартманн — известный предприниматель, филантроп, инвестор и спортсмен, автор бестселлера «ПростоДелай! ДелайПросто!» — рассказывает, как построить успешную жизнь и добиваться поставленных целей, оставаясь при этом счастливым человеком.
+Автор делится концепцией Альтернейт, бросающей вызов воззрениям Аристотеля с его золотой серединой, (   Читать дальше...   )Жанр: Практическая психологияИздательство: СамиздатФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AF246D35F2840976C18D3045DB26AE533C4A80B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1811845   (8298) от 12.08.2025
 
 Нассим Талеб | Динамическое хеджирование: Управление риском простых и экзотических опционов (2025) [PDF, FB2, EPUB]
@@ -6,7 +59,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8298.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7932.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7896.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7738.jpg" />
 </div>
 
 
@@ -116,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7730.jpg" />
 </div>
 
 
@@ -142,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7511.jpg" />
 </div>
 
 
@@ -171,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7148.jpg" />
 </div>
 
 
@@ -198,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6490.jpg" />
 </div>
 
 
@@ -226,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6312.jpg" />
 </div>
 
 
@@ -252,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5043.jpg" />
 </div>
 
 
@@ -279,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5021.jpg" />
 </div>
 
 
@@ -308,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4987.jpg" />
 </div>
 
 
@@ -334,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4976.jpg" />
 </div>
 
 
@@ -363,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4833.jpg" />
 </div>
 
 
@@ -389,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4820.jpg" />
 </div>
 
 
@@ -415,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4202.jpg" />
 </div>
 
 
@@ -442,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3938.jpg" />
 </div>
 
 
@@ -470,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3647.jpg" />
 </div>
 
 
@@ -496,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3382.jpg" />
 </div>
 
 
@@ -524,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3380.jpg" />
 </div>
 
 
@@ -552,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3210.jpg" />
 </div>
 
 
@@ -579,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3042.jpg" />
 </div>
 
 
@@ -606,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3020.jpg" />
 </div>
 
 
@@ -633,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3017.jpg" />
 </div>
 
 
@@ -647,59 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E520867F0F89CFEC50DA33E2104714E0FBF6A157
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817506   (2701) от 15.09.2025
-
-Антон Могучий | Упражнения для мозга. 5 минут в день по методикам спецслужб (2025) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рабочая тетрадь с упражнениями для мозга по методикам спецслужб поможет всем, кто хочет улучшить память, повысить концентрацию внимания, развить аналитическое мышление, а также устойчивость к стрессу. Методика интеллектуальной подготовки и мнемонические техники, которые используют сотрудники спецслужб, засекречены, но отдельные приемы все же доступны для широкой (   Читать дальше...   )Жанр: СаморазвитиеИздательство: АСТФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28864CFB209DF07360A0955EDFD7126E89682EB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818424   (2549) от 16.09.2025
-
-Антон Могучий | Советский тренажер для мозга. Система занятий для укрепления памяти и внимания. Курс на 3 недели (2025) [PDF, DJVU]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Регулярное потребление готовой информации из интернета делает наш мозг "ленивым". Рассеянность внимания, ухудшение памяти, неумение работать с информацией — примета нашего времени. Как заставить свой мозг трудиться?
-Занятия по тренажеру А. Могучего, созданному на основе методик обучения в советской школе, вернут тонус вашему мозгу. Обучающие и развивающие (   Читать дальше...   )Жанр: СаморазвитиеИздательство: АСТФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4699F9AA7F6F998C8FD7F1169DD178041D49D21
 ```
 
 https://mybot314.ru/tekegram_catalog/

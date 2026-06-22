@@ -1,3 +1,58 @@
+###  Публикация: 1368146   (1024985) от 22.03.2021
+
+Little Big Family - 40 Music Videos (2013-2021) WEB-DLRip [H.264/V9/1080p/2160p-LQ]
+
+>>След.
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024985.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 2013 Little Big - Everyday I'm Drinking [1080p] (srt)Производство: Warner Music RussiaЖанр: Rave, Raprave, Electronicmusic, PopСубтитры: Английские, Русские, Украинские, Французские, Польские, Турецкие, Азербайджанские, Немецкие, Венгерские, Португальские, Чешские, Румынские, Арабские, Итальянские, Иврит и тд.
+
+Видео 01: AVC/H.264, 1920x1080, ~6924 kbps, 1920x560, ~5806 kbps, 1920x972, ~6336 kbps
+Видео 02: AVC/V9, 3840x2160, ~17.4 Mbps(   Читать дальше...   )Продолжительность: 02:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:792CCE67C2E6B40388A2092ADF37D66330BDE8BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459555   (1023106) от 02.04.2021
+
+The Beatles: Мне следовало быть осторожнее / I Should Have Known Better (A Hard Day's Night) (1964/2014) BDRip [H.264/1080p] [hand made colored]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клип из фильма полностью колоризован - каждый кадр в отдельсности.Производство: Великобритания / A Walter Shenson Production, Proscenium Films Ltd.Жанр: Мюзикл, комедия, музыкаРежиссер: Ричард ЛестерАктеры: The Beatles, Джон Леннон, Пол МакКартни, Джордж Харрисон, Ринго Старр, Уилфрид Брэмбелл, Норман Россингтон, Джон Джанкин, Виктор Спинетти, Анна КуэйлПеревод: Не требуется (нет диалогов и озвученных комментариев)Язык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 00:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DE5586D445E2D4D03FE2C2D50E669CF188E5E9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392170   (1022722) от 04.04.2021
 
 Коррозия металла - Клипы (1996-2020) WEBRip [H.264/720p/1080p] <Thrash Metal> (15 штук)
@@ -6,7 +61,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022722.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ The Beatles: Я хочу быть твоим парнем / I Wanna Be Your Man 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021282.jpg" />
 </div>
 
 
@@ -62,7 +117,7 @@ The Beatles: Не приставай / Don’t Bother Me (A Hard Day's Night) (1
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020800.jpg" />
 </div>
 
 
@@ -89,7 +144,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019615.jpg" />
 </div>
 
 
@@ -116,7 +171,7 @@ Caliban - Intoleranz [Клип] (2021) WEBRip [H.264/1080p-LQ] <Metalcore>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016145.jpg" />
 </div>
 
 
@@ -142,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016143.jpg" />
 </div>
 
 
@@ -171,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016139.jpg" />
 </div>
 
 
@@ -197,7 +252,7 @@ Thundercloud - Lightning Queen (2021) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016062.jpg" />
 </div>
 
 
@@ -223,7 +278,7 @@ The Beatles: Я счастлив просто потанцевать с тобо
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015757.jpg" />
 </div>
 
 
@@ -251,7 +306,7 @@ The Beatles: Любовь нельзя купить 2 / Can't Buy Me Love (A Har
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013830.jpg" />
 </div>
 
 
@@ -279,7 +334,7 @@ The Beatles: Вся моя любовь / All My Loving (A Hard Day's Night) (19
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012993.jpg" />
 </div>
 
 
@@ -307,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012930.jpg" />
 </div>
 
 
@@ -336,7 +391,7 @@ Lindemann - 21 Music Videos (Censored / Uncensored Versions) (2018-2021) WEB-DL 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012926.jpg" />
 </div>
 
 
@@ -365,7 +420,7 @@ The Beatles: Если есть любовь 2 / If I Fell (A Hard Day's Night) (
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011947.jpg" />
 </div>
 
 
@@ -393,7 +448,7 @@ Little Big - Everybody (Little Big Are Back) (2021) WEB-DLRip [VP9/2160p-LQ] <Ra
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011274.jpg" />
 </div>
 
 
@@ -419,7 +474,7 @@ Mylene Farmer. Les clips - L'integrale (1999-2020) DVDRemux [PR]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004926.jpg" />
 </div>
 
 
@@ -448,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004797.jpg" />
 </div>
 
 
@@ -477,7 +532,7 @@ DVJ Bazuka - Happy Vodka Bithez (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000377.jpg" />
 </div>
 
 
@@ -503,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999825.jpg" />
 </div>
 
 
@@ -530,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999635.jpg" />
 </div>
 
 
@@ -565,7 +620,7 @@ BAZUKA - Christmaz Bitchez (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999323.jpg" />
 </div>
 
 
@@ -591,7 +646,7 @@ Ibiza vs. VDJ Rossonero - Happy New Year (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999314.jpg" />
 </div>
 
 
@@ -617,7 +672,7 @@ Young Swift Feat. Young Jeezy - I Like (Uncensored)(2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999303.jpg" />
 </div>
 
 
@@ -643,7 +698,7 @@ Slade At The BBC (1969-1991) (2012) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999109.jpg" />
 </div>
 
 
@@ -663,58 +718,6 @@ Slade At The BBC (1969-1991) (2012) DVDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76A116B664E6A9BEBE4480ECDFD6937C5A023954
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600635   (998559) от 09.01.2013
-
-Kasino feat Elicia Solis - All For You (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hip-hopПродолжительность: 00:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A1018CC895AE8DFD80A348D2779E1B80D6F147
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600638   (998531) от 09.01.2013
-
-Gotay El Autentiko - Sexo Toda La Noche (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C29AAC356EF5AF60371C98D64036970C11E5F919
 ```
 
 https://mybot314.ru/tekegram_catalog/

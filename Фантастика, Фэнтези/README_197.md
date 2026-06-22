@@ -1,3 +1,59 @@
+###  Публикация: 1333476   (303284) от 25.10.2019
+
+Макс Фрай | Неизвестным для меня способом [сборник] (2019) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник внецикловых рассказов.
+
+«Неизвестным для меня способом» – это, конечно, цитата из Хармса; полностью фраза звучит так: «Значит, жизнь победила смерть неизвестным для меня способом». Не знаю, все ли помнят, что произносит эти слова человек с тонкой шеей, который «забрался в сундук, закрыл за собой крышку и начал задыхаться». А потом обнаружил себя лежащим на (   Читать дальше...   )Жанр: Городское фэнтези, МистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9218B3CC3A07B7430480BD906221B5DA4A03E033
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961090   (303081) от 30.11.2015
+
+Анна Одувалова | Академия для строптивой (2015) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Академия для строптивой».
+
+Всего можно добиться, если видеть цель и верить в себя. Даже попасть в магическую академию, несмотря на то что папа-ректор категорически против. А упрямый характер и талант влипать в разные неприятности помогут красавца-охранника сделать своим единомышленником и соучастником в проказах… Только вот что делать с поясом (   Читать дальше...   )Жанр: Юмористическое фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:199776EBF3FF239AA9417BFB4475D757AE2F00AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261447   (302945) от 11.11.2018
 
 Наоми Новик | Чаща (2018) [FB2]
@@ -6,7 +62,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302945.jpg" />
 </div>
 
 
@@ -33,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302942.jpg" />
 </div>
 
 
@@ -62,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302935.jpg" />
 </div>
 
 
@@ -91,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302751.jpg" />
 </div>
 
 
@@ -120,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302742.jpg" />
 </div>
 
 
@@ -149,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302628.jpg" />
 </div>
 
 
@@ -177,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302523.jpg" />
 </div>
 
 
@@ -206,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302400.jpg" />
 </div>
 
 
@@ -234,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302176.jpg" />
 </div>
 
 
@@ -260,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302163.jpg" />
 </div>
 
 
@@ -287,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302158.jpg" />
 </div>
 
 
@@ -313,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302119.jpg" />
 </div>
 
 
@@ -339,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302097.jpg" />
 </div>
 
 
@@ -367,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302021.jpg" />
 </div>
 
 
@@ -393,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302011.jpg" />
 </div>
 
 
@@ -422,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301937.jpg" />
 </div>
 
 
@@ -450,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301797.jpg" />
 </div>
 
 
@@ -476,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301775.jpg" />
 </div>
 
 
@@ -502,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301445.jpg" />
 </div>
 
 
@@ -528,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301442.jpg" />
 </div>
 
 
@@ -554,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301345.jpg" />
 </div>
 
 
@@ -582,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301285.jpg" />
 </div>
 
 
@@ -611,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301066.jpg" />
 </div>
 
 
@@ -639,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300924.jpg" />
 </div>
 
 
@@ -652,61 +708,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26510D83D62EF9A88A14DC6357E1D8AC55797D6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261734   (300897) от 12.11.2018
-
-Джозеф Дилейни | Ученица Ведьмака (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман трилогии «Хроники звёздного меча» из цикла «Ученик Ведьмака».
-
-Том Уорд – ведьмак и защитник жителей Графства от призраков, домовых, ведьм и других кровожадных созданий Тьмы. Он молод, ему всего семнадцать, и никто из местных жителей не верит в его способности и мастерство. Но все меняется, когда в деревне появляется пятнадцатилетняя девушка по имени (   Читать дальше...   )Жанр: Героическое фэнтези, Зарубежное фэнтези, Книги про волшебниковФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0601FB88D2912CAF652A2225AC737256C23B4B31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 585716   (300772) от 07.12.2012
-
-Родерик Гордон, Брайан Уильямс | Цикл "Туннели" [2011-2012] [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Туннели - цикл произведений дуэта авторов Родерика Гордона и Брайана Уильямса.
-Четырнадцатилетний лондонец Уилл Берроуз — страстный диггер, как и его отец — знаток подземных туннелей и шахт. Когда отец неожиданно исчезает в неизвестном туннеле, Уилл отправляется на его поиски со своим другом Честером. Вскоре они оказываются глубоко под землей, где им предстоит в буквальном смысле раскопать темную и ужасную тайну — тайну, которая может стоить им жизни!Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A673EAD432E4080A7B63565B2EA7736C3C5845B
 ```
 
 https://mybot314.ru/tekegram_catalog/

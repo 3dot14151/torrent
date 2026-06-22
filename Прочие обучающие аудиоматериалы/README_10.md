@@ -1,3 +1,107 @@
+###  Публикация: 1378696   (844729) от 26.04.2020
+
+Джим Холт | Идеи с границы познания. Эйнштейн, Гёдель и философия науки (2020) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Язык науки, как язык музыки или архитектуры, – особая знаковая система, наделенная философским смыслом. Не каждый способен понять музыкальную гармонию, не всякий разглядит античное изящество и символичность простой формулы. Между тем Платон считал, что у того, кто способен оценить вечную и совершенную красоту математических наук, «возникает желание ее воспроизвести (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 14:33:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B8081FBE69433B947468F96FC1F66A19350E291
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112741   (839771) от 10.03.2017
+
+Бронислав Виногродский | Мудрость правителя на пути долголетия, теория и практика достижения бессмертия (2017) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839771.jpg" />
+</div>
+
+
+###  Подробнее
+
+В традиционном Китае достижение здорового долголетия – высшая ценность человеческой жизни. При этом здоровье понимается как уравновешенное внутреннее состояние человека, которое проявляется в его здоровых, простых и приятных отношениях с внешним миром. Сам человек является неотъемлемой частью Вселенной, поэтому здоровье каждого связано со здоровьем семьи и всего (   Читать дальше...   )Жанр: ФилософияПродолжительность: 07:15:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA570F7AA5CAD182FC348E19812D40F473E8F0DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380208   (834969) от 02.05.2020
+
+Майкл Шермер | Небеса на земле. Научный взгляд на загробную жизнь, бессмертие и утопии (2020) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что движет верой людей в загробную жизнь? В этой книге Майкл Шермер, популяризатор науки и известный критик догматического мышления, обращается к вечным и загадочным темам смерти и бессмертия. Это смелая попытка в сжатом виде охватить огромный исторический и психологический материал – от мечты о бессмертии, свойственной людям с зарождения цивилизации, до целенаправленного (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 9:56:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEDEFB3EAFB78BF762561FBB083A93BF40CBAEDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113834   (834525) от 13.03.2017
+
+Юваль Ной Харари | Sapiens. Краткая история человечества (2016) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сто тысяч лет назад Homo sapiens был одним из как минимум шести видов человека, живших на этой планете, - ничем не примечательным животным, которое играло в экосистеме роль не большую, чем гориллы, светлячки или медузы. Но около семидесяти тысяч лет назад загадочное изменение когнитивных способностей Homo sapiens превратило его в хозяина планеты и кошмар экосистемы. (   Читать дальше...   )Жанр: Научно-популярная литература, история, антропологияПродолжительность: 17:52:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1C39A1C16800FDDB586277DFABD44BBA3EFC5C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114387   (831975) от 15.03.2017
 
 Десмонд Бэгли | Высокая цитадель (2017) [MP3]
@@ -6,7 +110,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831975.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829063.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828977.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826885.jpg" />
 </div>
 
 
@@ -115,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826760.jpg" />
 </div>
 
 
@@ -142,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824251.jpg" />
 </div>
 
 
@@ -169,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819101.jpg" />
 </div>
 
 
@@ -195,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813697.jpg" />
 </div>
 
 
@@ -222,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811926.jpg" />
 </div>
 
 
@@ -249,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805759.jpg" />
 </div>
 
 
@@ -275,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805606.jpg" />
 </div>
 
 
@@ -301,7 +405,7 @@ Academia / Академия (январь-март 2011) [MP3]
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805409.jpg" />
 </div>
 
 
@@ -327,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798279.jpg" />
 </div>
 
 
@@ -355,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797000.jpg" />
 </div>
 
 
@@ -381,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796985.jpg" />
 </div>
 
 
@@ -407,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796951.jpg" />
 </div>
 
 
@@ -435,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796833.jpg" />
 </div>
 
 
@@ -463,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796350.jpg" />
 </div>
 
 
@@ -489,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795572.jpg" />
 </div>
 
 
@@ -516,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795519.jpg" />
 </div>
 
 
@@ -544,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795345.jpg" />
 </div>
 
 
@@ -570,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793997.jpg" />
 </div>
 
 
@@ -583,111 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B967605F2ECD4DF2A891EC7433F9788CDC9DDC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273489   (793989) от 06.01.2019
-
-George Carlin | Подкасты (1977-2008) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джордж Денис Патрик Карлин (12 мая 1937 - 22 июня 2008) - американский комик в жанре стэнд-ап камеди, актёр и писатель, обладатель четырёх премий «Грэмми» и премии Марка Твена. Автор 5 книг и более 20 музыкальных альбомов, снялся в 16 фильмах.
-Карлин известен за свою политическую проницательность, чёрный юмор, его лингвистические наблюдения, наблюдения в психологии, (   Читать дальше...   )Жанр: СтендапПродолжительность: 19:11:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62014173E9FBE37494F335110339655BA28CE5A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274243   (793986) от 06.01.2019
-
-Алексей Решетун | Вскрытие покажет: Записки увлеченного судмедэксперта (2018) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Судебно-медицинский эксперт Алексей Решетун (более известный как жж-блогер mossudmed) знаком со смертью не понаслышке. Он имеет с ней дело каждый рабочий день вот уже 17 лет: собственно, ее причины и есть объект его изучения. А значит, ему лучше, чем кому бы то ни было, известно, почему мы умираем и что не надо делать, чтобы не попасть до времени на секционный стол. (   Читать дальше...   )Жанр: Нон-фикшнПродолжительность: 05:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D203D3E39A98538E5D600A2BF95441CC3A86D697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274233   (793870) от 06.01.2019
-
-Марк Мэнсон | Тонкое искусство пофигизма: Парадоксальный способ жить счастливо (2018) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современное общество пропагандирует культ успеха: будь умнее, богаче, продуктивнее — будь лучше всех. Соцсети изобилуют историями на тему, как какой-то малец придумал приложение и заработал кучу денег, статьями в духе «Тысяча и один способ быть счастливым», а фото во френдленте создают впечатление, что окружающие живут лучше и интереснее, чем мы. Однако наша зацикленность (   Читать дальше...   )Жанр: СаморазвитиеПродолжительность: 05:16:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AC6E1F270753AC139647C30EE320A878ED3E906
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274236   (793779) от 06.01.2019
-
-Рохит Бхаргава | Всегда ешьте левой рукой: А также перебивайте, прокрастинируйте, шокируйте. Неочевидные советы для успеха (2018) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все, что написано в этой книге, прямо противоположно тому, что твердили вам годами родители, учителя, коллеги и начальники. «Прокрастинируйте больше. Доводите людей до слез. Освойте йодль». Вы вообще серьезно? На самом деле да. Эта книга наполнена парадоксальными и порой обескураживающими секретами успеха, о которых никто никогда не осмеливался вам рассказать. Но (   Читать дальше...   )Жанр: СаморазвитиеПродолжительность: 03:31:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73BD87C2E04ADC6FF227FA4D87893A67E4B1EB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

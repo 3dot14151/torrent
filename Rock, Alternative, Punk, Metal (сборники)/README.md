@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1876604   (1073372) от 16.06.2026
+
+Scarlette Laine - Favorites Collection (2026) [MP3|320 Kbps] <Assorted Ballads, Soul Blues, Emotional Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I Loved A Man
+02 - Love For A Ghost
+03 - I Broke Our Home
+04 - You Didn't Show Up(   Читать дальше...   )Жанр: Assorted Ballads, Soul Blues, Emotional BluesПродолжительность: 01:12:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9F3515493016B6D2FA28D015C223CA36B861C80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876318   (1073170) от 
+
+VA - Украинский рок Part Three (2026) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073170.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. e-ho - Знов пісні, як все дістало (03:43)
+ 002. e-ho - Живий (03:54)
+ 003. e-ho - Білим по чорному (03:30)
+ 004. The Hardkiss - Nice (03:24)(   Читать дальше...   )Жанр: RockПродолжительность: 01:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E63246F9B63556863585A2B2CCC86105B3C4A65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874684   (1072316) от 
 
 Александр Иванов & Рондо - Compilation (1984-2024) [MP3|320 Kbps] <Pop rock>
@@ -7,7 +65,7 @@ https://t.me/izofen
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072316.jpg" />
 </div>
 
 
@@ -36,7 +94,7 @@ VA - Solo Projects From Europe (1987-2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071131.jpg" />
 </div>
 
 
@@ -65,7 +123,7 @@ VA - No Name Compilation Simply Listen Music Part 92 Assorted Ballads NaTural Bl
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1070983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1070983.jpg" />
 </div>
 
 
@@ -94,7 +152,7 @@ AI - No Name Compilation Simply Listen Music Part 91 Assorted Ballads (2026) [MP
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1070972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1070972.jpg" />
 </div>
 
 
@@ -123,7 +181,7 @@ VA - Украинский рок Part Two (2026) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070383.jpg" />
 </div>
 
 
@@ -152,7 +210,7 @@ Europe - Compilation (1983-2023) [MP3|320 Kbps] <Arena rock, Hard rock, Glam met
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070210.jpg" />
 </div>
 
 
@@ -181,7 +239,7 @@ VA - Russian Rock 2014  [MP3|320 Kbps] <rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069642.jpg" />
 </div>
 
 
@@ -210,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069295.jpg" />
 </div>
 
 
@@ -239,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068200.jpg" />
 </div>
 
 
@@ -268,7 +326,7 @@ VA - Микс Дня#2 (2026) [MP3|320 Kbps] <Rock, Other>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068196.jpg" />
 </div>
 
 
@@ -297,7 +355,7 @@ Uma2rman (Уматурман) - Compilation (2004-2026) [MP3|320 Kbps] <Pop rock
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067884.jpg" />
 </div>
 
 
@@ -326,7 +384,7 @@ VA - Time Of Rock & Metal от ALEXnROCK Part 2 (2026) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067847.jpg" />
 </div>
 
 
@@ -355,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067101.jpg" />
 </div>
 
 
@@ -384,7 +442,7 @@ Daniele Gazzarin - Favorites Collection Part 9 (2026) [MP3|320 Kbps] <Country, R
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066567.jpg" />
 </div>
 
 
@@ -413,7 +471,7 @@ Daniele Gazzarin - Favorites Collection Part 8 (2026) [MP3|320 Kbps] <Country, R
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065788.jpg" />
 </div>
 
 
@@ -442,7 +500,7 @@ Daniele Gazzarin - Favorites Collection Part 7 (2026) [MP3|320 Kbps] <Country, R
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065652.jpg" />
 </div>
 
 
@@ -471,7 +529,7 @@ Daniele Gazzarin - Favorites Collection Part 5 (2026) [MP3|320 Kbps] <Country, R
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065649.jpg" />
 </div>
 
 
@@ -500,7 +558,7 @@ VA - Russian Rock 2015-2016  [MP3|320 Kbps] <rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065318.jpg" />
 </div>
 
 
@@ -529,7 +587,7 @@ Daniele Gazzarin - Favorites Collection Part 6 (2026) [MP3|320 Kbps] <Country, R
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065277.jpg" />
 </div>
 
 
@@ -558,7 +616,7 @@ Sabaton - REDISCOVER Sabaton (2026) [MP3|320 Kbps] <Power Metal, Heavy Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065099.jpg" />
 </div>
 
 
@@ -587,7 +645,7 @@ VA - Украинский рок (2026) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065074.jpg" />
 </div>
 
 
@@ -616,7 +674,7 @@ Daniele Gazzarin - Favorites Collection Part 4 (2026) [MP3|320 Kbps] <Country, R
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064869.jpg" />
 </div>
 
 
@@ -645,7 +703,7 @@ Daniele Gazzarin - Favorites Collection Part 3 (2026) [MP3|320 Kbps] <Country, R
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064794.jpg" />
 </div>
 
 
@@ -674,7 +732,7 @@ Clawfinger - Compilation (1993-2026) [MP3|320 Kbps] <Nu metal, Alternative metal
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064792.jpg" />
 </div>
 
 
@@ -688,64 +746,6 @@ Clawfinger - Compilation (1993-2026) [MP3|320 Kbps] <Nu metal, Alternative metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84527F0373BB15F2AF1ACD6B3750BE0F4BE93904
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864475   (1064745) от 
-
-VA - Greatest Soft Rock Love Songs (2026) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064745.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. REO Speedwagon - Can't Fight This Feeling (4:54)
-002. Journey - Faithfully (4:26)
-003. John Waite - Missing You (3:55)
-004. Cyndi Lauper - Time After Time (4:05)(   Читать дальше...   )Жанр: RockПродолжительность: 09:24:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2482A6B0E643D54AC7B1D88DF76CC0A554CE6C93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864383   (1064648) от 
-
-VA - Classic Hits (2026) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064648.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Goo Goo Dolls - Iris (4:49)
-002. Billy Joel - It's Still Rock and Roll to Me (2:57)
-003. Blondie - One Way Or Another (3:28)
-004. Fleetwood Mac - Landslide (Live 1977) (3:57)(   Читать дальше...   )Жанр: RockПродолжительность: 17:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51443C0EF228D5A515A5DF2EDCF21C66F247FED8
 ```
 
 https://mybot314.ru/tekegram_catalog/

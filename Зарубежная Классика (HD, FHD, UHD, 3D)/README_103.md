@@ -1,3 +1,55 @@
+###  Публикация: 1274178   (25183) от 10.03.2025
+
+Квартира / The Apartment (1960) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американец Си Си Бакстер живет в Нью-Йорке и работает простым клерком в одной из ведущих страховых компаний в стране вот уже больше трех лет, зарабатывая 94 доллара в неделю. Как и многие сотрудники он мечтает продвинуться вверх по карьерной лестнице, но, в отличии от коллег, обладает одним большим преимуществом. Квартира Бакстера находится вблизи центрального парка (   Читать дальше...   )Производство: США. The Mirisch CorporationЖанр: Комедия, МелодрамаРежиссер: Билли УайлдерАктеры: Джек Леммон, Ширли МакЛэйн, Фред МакМюррэй, Рэй Воллстон, Джек Крюшен, Дэвид Льюис, Хоуп Холидей, Джоан Шоули, Наоми Стивенс, Джонни СевенПеревод: Дублированный, многоголосый закадровый, авторскийСубтитры: Русские, английскиеПродолжительность: 02:05:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8E28F3CDC5C400D00FD552EF935CF4F9ECCD027
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 877330   (25148) от 10.03.2025
+
+Женщины на грани нервного срыва / Women on the Verge of a Nervous Breakdown / Mujeres al borde de un ataque de nervios (1988) BDRip [720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ее бросил любовник, его жена не дает ей проходу, ее подруга связалась с террористами, а ее адвокат оказалась обыкновенной дрянью. Можно ли пережить все это и не сойти с ума?Производство: ИспанияЖанр: драма, комедияРежиссер: Педро АльмодоварАктеры: Кармен Маура, Мария Барранко, Антонио Бандерас, Хульета Серрано, Фернандо Гильен, Росси де Пальма, Кити Манвер, Гильермо Монтесинос, Чус Лампреаве, Эдуардо КальвоПеревод: Многоголосый закадровый (R5, Кармен Видео)Язык субтитров: русские, испанскиеПродолжительность: 01:28:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A63F06A864ECBD14FD7EECAF68F623683A25C44B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126196   (24870) от 13.03.2025
 
 Человек, который застрелил Либерти Вэланса / The Man Who Shot Liberty Valance (1962) BDRip [H.265/1080p-LQ]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24870.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24862.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24705.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24692.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24659.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24639.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22875.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22869.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22819.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21878.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21876.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20957.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20863.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20854.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20755.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20397.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19294.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19222.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19152.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18912.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18657.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18591.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18586.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18574.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2414AAD5870A45A5E0CDCCC803BB01F502F5F82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795152   (18449) от 13.05.2025
-
-Пеночка и Зонтик / Пеничка и Зонтик / Penicka a Paraplicko (1971) HDTV [H.264/1080p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из цикла "Грешные люди города Праги". Обнаружен труп грабителя Тоуфара. Советник Вацатко посылает инспекторов Боуша и Бружека к его любовнице по кличке "Зонтик". Выясняется, что к ней вернулся бывший сожитель, недавно вышедший из тюрьмы взломщик Пеничка. Начавшееся расследование приводит к распутыванию драматического клубка любви и зависти в пражских (   Читать дальше...   )Производство: Чехословакия / Filmové Studio BarrandovЖанр: криминалРежиссер: Иржи СеквенсАктеры: Ярослав Марван, Йозеф Винкларж, Йозеф Блага, Йиржина Богдалова, Радослав Брзобогаты, Богумил Шмида, Мартин Ружек, Иржина Штепничкова, Богуслав Чап, Ота СкленчкаПеревод: Одноголосый любительский (Дмитрий Пестриков)Язык озвучки: Русский, ЧешскийСубтитры: русские (forced, full)Продолжительность: 01:31:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF0631C0BD5281AF7AF2798B605B379A69CEE1BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795250   (18256) от 15.05.2025
-
-Маленький большой человек / Little Big Man (1970) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по одноимённому роману Томаса Бергера (1964)... Широкомасштабный вестерн, построенный на эпизодических воспоминаниях 121-летнего старца... Джек Крэбб в детстве попал на Дикий Запад вместе с первыми поселенцами, затем, попав в племя индейцев шайенов, вырос среди них, стал их другом по прозвищу «Маленький Большой Человек», был приятелем известного бандита (   Читать дальше...   )Производство: США / Cinema Center FilmsЖанр: драма, приключения, вестернРежиссер: Артур ПеннАктеры: Дастин Хоффман, Фэй Данауэй, Вождь Дэн Джордж, Ричард Маллиган, Мартин Болсам, Джефф Кори, Эме Экклес, Келли Джин Питерс, Кэрол Андроски, Роберт Литтл Стар, Кэл Беллини, Рубен Морено, Уильям Хикки, Джеймс Андерсон, Джесси ВинтПеревод: профессиональный многоголосый, авторский (Андрей Гаврилов; Алексей Михалёв)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:19:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06279A3B1103B8A8D6205CEBFB108023B27B79FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

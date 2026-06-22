@@ -1,3 +1,29 @@
+###  Публикация: 613547   (982138) от 04.02.2013
+
+Ходячие мертвецы / The Walking Dead (2011) BDRemux [2 сезон: 13 серий + спецэпизод] [Русский]
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал рассказывает историю жизни семьи шерифа после того, как «зомби» - эпидемия апокалипсических масштабов захлестнула земной шар. Шериф Рик Граймс путешествует со своей семьей и небольшой группой выживших в поисках безопасного места для жизни. Но постоянный страх смерти каждый день приносит тяжелые потери, заставляя героев почувствовать глубины человеческой жестокости. (   Читать дальше...   )Жанр: Ужасы, Триллер, Драма, Фантастика, КомедияРежиссер: Эрнест Р. Дикерсон, Гай Ферленд, Билл Джирхарт, ...Актеры: Эндрю Линкольн, Лори Холден, Стивен Юн, Чендлер Риггз, Сара Уэйн Кэллис, Норман Ридус, Мелисса Сюзанн МакБрайд, Лорен Коэн, Айрон Э. Синглтон, Джон Бернтал,  Джеффри ДеМаннПеревод: Многоголосый закадровый, (профессиональный, 4 штуки)Озвучка / Автор перевода: Язык субтитров: English, RussianПродолжительность: ~700мин. (13 x ~ 00:42:57)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 613764   (980449) от 05.02.2013
 
 Утопия / Utopia[Сезон: 1 / Серии: 1 (6)]  (2013) HDTVRip 720p (студия Jaskier)
@@ -6,7 +32,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980449.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979880.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979831.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979590.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979541.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978960.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978361.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977980.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977817.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977777.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977692.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977582.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977171.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976518.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976425.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976409.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975919.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975916.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975573.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975075.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974990.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974611.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973698.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973375.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971821.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 744533   (971793) от 11.01.2014
-
-Гримм / Grimm (2014) HDTVRip (720p) [10 из 22] [Kerob]
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в современном Портленде, где детектив из отдела убийств узнаёт, что он является потомком группы охотников, известных как «Гриммы», которые сражаются, чтобы сохранить человечество в безопасности от сверхъестественных существ. Узнав о своей судьбе, и том, что он является последним из своего рода, он должен защитить каждую живую душу от зловещих персонажей сборника сказок, которые проникли в реальный мир.Жанр: Детектив, Фэнтези, КриминалРежиссер: Норберто Барба, Терренс О’Хара, Холли ДэйлАктеры: Дэвид Джунтоли, Битси Таллоч, Сайлас Уэйр Митчелл, Расселл Хорнсби, Саша Ройз, Регги Ли, Клэр Коффи, Бри Тёрнер, Роберт Бланш, Джошуа Ли Фрэзиер и др.Перевод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: KerobПродолжительность: 00:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ED60E8C12E88FDE0A6314A5C99C484E8DEB041B
 ```
 
 https://mybot314.ru/tekegram_catalog/

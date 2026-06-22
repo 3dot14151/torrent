@@ -6,7 +6,7 @@ Nevermind v. 1.0 (2015) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446648.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Lamplight City  [En] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439635.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Viking Squad v1.16 (2016) [En] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426871.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Timespinner v.1.0.2 (2018) [En] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415334.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Broforce v.1.0.0 (2015) [En] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415217.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Wasteland 2: Director's Cut v. 2.0.0 (2015) [OS X Native Game] [Multi/Ru]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412925.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Dreamfall Chapters Book 1-2-3 v. 3.14 (2014) [Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409037.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Black Mirror II [WineSkin]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400748.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Heave Ho (2019) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387179.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Nancy Drew: The Deadly Device [Native port]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_382298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_382298.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Mark of the Ninja: Remastered v.1.0 (2018) [Multi] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381497.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Hacknet v.5.069/dlc (2015) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380319.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Pulse v. 1.0 (2015) [Multi] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379268.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Lucid Dream (2018) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374835.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Life Is Strange Full v.1.0.0 (2015) [En/Fr] [OS X WineSkin]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374638.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Dreamfall Chapters: The Final Cut v.5.7.8.3 (2017) [Multi/Ru] [macOS Native game
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372529.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Tales from the Borderlands: Full v.1.0 (2015) [Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371842.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ The Talos Principle - Gold Edition v.326589 (2014) [Multi/Ru] [macOS Native game
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365562.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Hidden Folks (2017) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365024.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ To Leave (2018) [Multi] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360480.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Röki v3.2 (2020) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360086.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ STAY v.1.0.4.0 (2018) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356552.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Life Is Strange Full v.1.0.0 (2015) [Ru/En] [OS X WineSkin]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354943.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Bulb Boy (2015) [En] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353455.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Do Not Feed the Monkeys (2018) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349529.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Reigns: Game of Thrones  [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345032.jpg" />
 </div>
 
 

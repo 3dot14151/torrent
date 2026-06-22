@@ -1,3 +1,56 @@
+###  Публикация: 1418473   (348403) от 24.10.2020
+
+Astute Graphics Plugins Elite Bundle v2.0.4 + Pro Texture Packs for Texturino
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Astute Graphics — сборник плагинов для векторного графического редактора Adobe Illustrator
+Английская компания Astute Graphics специализируется в разработке творческих инструментов для векторных дизайнеров, которые значительно экономят время, повышают творческий потенциал и помогают достигать прекрасных результатов.Тип издания: macOS SoftwareРелиз состоялся: 20.10.2020Разработчик: Astute GraphicsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E98EBE2FC45DE7AFCFCF9CA5DB90FB6EA7F7B99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418351   (348399) от 24.10.2020
+
+Adobe Dreamweaver 2020 v21.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Dreamweaver 2020 - новая версия приложения, предназначенного для создания профессиональных веб-сайтов. Программное обеспечение для веб-дизайна Adobe Dreamweaver  содержит интуитивно понятный визуальный интерфейс, позволяющий создавать и редактировать веб-сайты и мобильные приложения. Используйте «резиновые макеты» (Fluid Grid Layouts) с кроссплатформенной поддержкой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: октябрь 2020Разработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56471D48CD4FA4A89692F80CB109FF98D6FFB71E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418310   (348246) от 24.10.2020
 
 Adobe Photoshop Lightroom Classic v10.0 [Multi/Ru]
@@ -6,7 +59,7 @@ Adobe Photoshop Lightroom Classic v10.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348246.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Adobe InDesign 2021 v16.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348245.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Adobe Illustrator 2021 v25.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348241.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Adobe Photoshop 2021 v22.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348231.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ Scrutiny 8.1.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347943.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ Cookie 5 v5.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347941.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ PopChar X 8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347940.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ Affinity Designer 1.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347806.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ PDF Checkpoint 1.8.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347785.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ Graphic Inspector 2.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347782.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ Secret Folder Pro 9.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347780.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ SILKYPIX Developer Studio Pro 9E 9.0.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347768.jpg" />
 </div>
 
 
@@ -328,7 +381,7 @@ Algoriddim djay Pro 2 (Complete FX Pack) 2.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347767.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ Viscosity 1.6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347656.jpg" />
 </div>
 
 
@@ -383,7 +436,7 @@ OmniFocus Pro 3.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347612.jpg" />
 </div>
 
 
@@ -411,7 +464,7 @@ Vipor Plus CRM 2.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347530.jpg" />
 </div>
 
 
@@ -438,7 +491,7 @@ Live Home 3D Pro 3.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347475.jpg" />
 </div>
 
 
@@ -466,7 +519,7 @@ Affinity Designer 1.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347397.jpg" />
 </div>
 
 
@@ -495,7 +548,7 @@ Disk Drill Enterprise 3.6.918 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347361.jpg" />
 </div>
 
 
@@ -522,7 +575,7 @@ Parallels Desktop for Mac Business Edition 12.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347160.jpg" />
 </div>
 
 
@@ -548,7 +601,7 @@ iTubeDownloader 6.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347104.jpg" />
 </div>
 
 
@@ -575,7 +628,7 @@ AutoMounter 1.5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346948.jpg" />
 </div>
 
 
@@ -601,7 +654,7 @@ Money Pro - Personal Finance 2.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346940.jpg" />
 </div>
 
 
@@ -629,7 +682,7 @@ Elmedia Player Pro 7.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346936.jpg" />
 </div>
 
 
@@ -642,60 +695,6 @@ Elmedia Player PRO (   Читать дальше...   )Тип издания: m
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32FFB9C7ADD0A17C15D8FEFDCA3BF7BC76218355
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179684   (346825) от 01.11.2017
-
-Flume Pro 2.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Flume - новое приложение для просмотра контента в Instagram, сочетающее в себе черты мобильных приложений и софта для десктопов.
-Программа представляет собой обособленный клиент для Instagram, реализующий концепцию плавающего окна. Пользователь мановением курсора переключается между тем типом отображения контента, которые ему подходит – сетка с эскизами, сжатый список, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: октябрь 2017Разработчик: Rafif YaldaПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D08E39525B8BEDE6A691FDFA2145BA6E0D5E3AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179706   (346816) от 01.11.2017
-
-Sublime Text 3 (3153) Dev [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sublime Text — быстрый кроссплатформенный редактор исходных текстов программ. Поддерживает плагины на языке программирования Python.
-Sublime Text не является свободным или открытым программным обеспечением, однако, некоторые его плагины распространяются по свободной лицензии, а также разрабатываются и поддерживаются сообществом разработчиков. Он поддерживает подсветку (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01 ноября 2017Разработчик: Jon SkinnerПоддерживаемая ОС: OS X 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88BCA3141FE4F0F09DED824DE92EF284644A6088
 ```
 
 https://mybot314.ru/tekegram_catalog/

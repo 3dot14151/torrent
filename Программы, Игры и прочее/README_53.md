@@ -1,3 +1,31 @@
+###  Публикация: 1521511   (763445) от 04.01.2022
+
+Потолочник: замеры, сметы и заметки v1.1.6 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение для автоматизации 80% рутинных действий замерщиков и монтажников натяжных потолков по замеру и составлению документации проекта
+Храните всю информацию по замеру в одном месте. Имя клиента, телефон, статус, размер и чертеж каждого потолка каждой комнаты и стоимость всего проекта
+Отправляйте данные о проекте в 2 клика производителю или клиенту. Больше никаких (   Читать дальше...   )Тип издания: Пиратка (AdFree - удалена реклама)Релиз состоялся: 3 декабря 2021 г.Разработчик: CallRecПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D046A1A58F1A8205661802F1EFB803E9A51112E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521576   (763443) от 04.01.2022
 
 Допуски и посадки ГОСТ v4.0.3 [Ru/Multi]
@@ -6,7 +34,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763443.jpg" />
 </div>
 
 
@@ -33,7 +61,7 @@ EZ Folder Player v1.3.16 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763435.jpg" />
 </div>
 
 
@@ -62,7 +90,7 @@ Ultimate Guitar Tuner v2.14.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763342.jpg" />
 </div>
 
 
@@ -88,7 +116,7 @@ SD Card Test Pro v1.9.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763341.jpg" />
 </div>
 
 
@@ -115,7 +143,7 @@ File Manager - Local and Cloud File Explorer v5.0.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763327.jpg" />
 </div>
 
 
@@ -141,7 +169,7 @@ Headway: Краткие содержания из книг v1.6.2.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761773.jpg" />
 </div>
 
 
@@ -169,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761650.jpg" />
 </div>
 
 
@@ -195,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761521.jpg" />
 </div>
 
 
@@ -223,7 +251,7 @@ Weather Live Wallpapers v1.74 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760060.jpg" />
 </div>
 
 
@@ -250,7 +278,7 @@ Geeky Hacks Pro : Anti Hacking Protection v1.0.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759921.jpg" />
 </div>
 
 
@@ -276,7 +304,7 @@ Malwarebytes Anti-Malware v3.9.1.68 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759639.jpg" />
 </div>
 
 
@@ -303,7 +331,7 @@ Piggly v1.10ggl + Mod [En/De]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759529.jpg" />
 </div>
 
 
@@ -329,7 +357,7 @@ Money Pro v1.6.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759462.jpg" />
 </div>
 
 
@@ -355,7 +383,7 @@ ProPilkko 2.7 [Ru/Multi] - Мультиплеерный online симулято�
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758920.jpg" />
 </div>
 
 
@@ -383,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756521.jpg" />
 </div>
 
 
@@ -409,7 +437,7 @@ OttPlayer v2.0.9 [Ru/Multi] - бесплатный плеер для просм�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754984.jpg" />
 </div>
 
 
@@ -435,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754945.jpg" />
 </div>
 
 
@@ -461,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754911.jpg" />
 </div>
 
 
@@ -487,7 +515,7 @@ Listonic v6.44.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_754811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_754811.jpg" />
 </div>
 
 
@@ -513,7 +541,7 @@ Garmin: Ukraine Topo Map v1.06 (Топографическая карта Укр
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753333.jpg" />
 </div>
 
 
@@ -539,7 +567,7 @@ Cross Stitch Paradise v1.3.7 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753290.jpg" />
 </div>
 
 
@@ -565,7 +593,7 @@ Tomorrow.io: Прогноз погоды v2.10.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753280.jpg" />
 </div>
 
 
@@ -592,7 +620,7 @@ AccuWeather - прогноз погоды v7.17.1-2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753279.jpg" />
 </div>
 
 
@@ -611,6 +639,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 775183   (753208) от 21.05.2016
+
+Unit Converter Plus v1.4.5.19.2 [Ru/Multi] - многофункциональный конвертер
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_753208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой и удобный конвертер с понятным пользовательским интерфейсом. Включает в себя список избранного для быстрого доступа к наиболее часто используемым функциям и список быстрого просмотра. Возможность сохранять часто используемые преобразования в список избранного. Простота в использовании интуитивно понятный интерфейс к тому же есть русский.Тип издания: Вылечена / ПираткаРелиз состоялся: 20.05.2016Разработчик: WopnersoftПоддерживаемая ОС: Android 2.3 +Язык интерфейса: Мульти / Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C781A9EC12EE12150DD153CCA0E0842790DFF7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523239   (753159) от 10.01.2022
 
 Weather Underground v6.11.0 [Ru]
@@ -619,7 +673,7 @@ Weather Underground v6.11.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753159.jpg" />
 </div>
 
 
@@ -630,58 +684,6 @@ Weather Underground v6.11.0 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B48CF229C6E380820D799485F3729C50D78D2FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 888523   (753076) от 15.04.2015
-
-100 игр SEGA для Android (Выпуск 2) 2.0 [Ru/En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая коллекция игр от популярной игровой консоли SEGA для платформы Android. Все игры абсолютно нетребовательны к ресурсам, запускаюся даже на слабых процессорах. Установка кеша не требуется.  Управление игрой происходит с помощью встроенных кнопок управления, либо подключенной гарнитуры устройства.Тип издания: RepackРелиз состоялся: 10.04.15Разработчик: SEGAПоддерживаемая ОС: AndroidЖанр: Аркада, квест, гонки, приключенияЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29210F7344D23CB4A7D63E0ACD5D0C83AFF90E22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 888538   (752870) от 15.04.2015
-
-Золотая коллекция - 130 игр SEGA на Android 4.0 [Ru/En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Золотая коллекция хитовых игр SEGA, оптимизированная для системы Android, которая просто обязана быть "на полке" любого, уважающего себя геймера! Ведь со многих этих игровых хитов начали свою историю такие игры как Soul Calibur (Soul Blade), Tom and Jerry, Worms, Road Rash и многие другие. Все игры шустро бегают на любой платформе Android, а встроенные кнопки управления практически точно передают ощущения настоящего геймпада SEGA. Установка игры происходит одним нажатием иконки, без установки кеша (   Читать дальше...   )Тип издания: RepackРелиз состоялся: 14.04.15Разработчик: SEGAПоддерживаемая ОС: AndroidЖанр: Аркада, приключения, драки, гонкиЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1822573B96B802CC0A9A2C677629BA83D44A8AA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

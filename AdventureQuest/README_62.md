@@ -1,3 +1,133 @@
+###  Публикация: 1656337   (193494) от 30.08.2023
+
+Agatha Christie - Hercule Poirot: The London Case (2023) [Ru/Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193494.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом детективном приключении вы будете играть за знаменитого сыщика Эркюля Пуаро, которому в сотрудничестве с Lloyd’s of London нужно проследить за перевозкой, безопасностью и продажей ценного портрета Марии Магдалины. Эта картина должна стать жемчужиной новой выставки в музее Лондона, которую на время привезут в Лондон из Брюсселя. Увы, во время церемонии открытия (   Читать дальше...   )Тип издания: SceneРазработчик: Blazing GriffinЖанр: Action, Adventure, SimulationЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C7AFE3D789B8AC18BCFCB67CE613DFE84A60A26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587051   (193063) от 29.10.2022
+
+Paper Cut Mansion (2022) [Multi] (1.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paper Cut Mansion - хоррор в жанре roguelite, действие которого происходит в бумажном мире. Играйте за Тоби, полицейского детектива, прибывающего в таинственный старинный особняк. Исследуйте особняк этаж за этажом, пытаясь разгадать историю этого причудливого места, где каждый забег дает вам возможность собрать еще одну улику, которая будет добавлена на вашу доску (   Читать дальше...   )Тип издания: LicenseРазработчик: Space Lizard StudiosЖанр: Приключение, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: Английский, Китайский (упрощенный), Французский и другиеЯзык интерфейса: Английский, Китайский (упрощенный), Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EFFE97E19B67AB6878FAA4495E0C707C3FACB8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657103   (192992) от 02.09.2023
+
+KAGITORI -BIRD IN THE CAGE HIDING THE KEY- (2023) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта игра представляет собой английский перевод визуальной новеллы, выпущенной в Японии. В этом произведении главный герой, мальчик и четыре героини, которым посчастливилось жить в особняке, работают вместе, чтобы раскрыть убийство, произошедшее в неком городе Японии.Тип издания: SceneРазработчик: Cabbit, Inter De PendenceЖанр: Казуальные игрыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E53B0299167D0B41D0B10CB1C3A6C5623409F10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657093   (192902) от 02.09.2023
+
+HeadHorse Legacy (2023) [Ru/Multi] (2.031) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192902.jpg" />
+</div>
+
+
+###  Подробнее
+
+HeadHorse - ваш похититель, и у вас есть единственная миссия - сбежать. Он очень умный убийца с непревзойденной жаждой крови, следит за каждым вашим движением, за каждым шагом, за каждым проблеском надежды на побег, с каждым мгновением приближаясь к своей цели, к вам!Тип издания: SceneРазработчик: Yellow Pixel GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D68528F02DA967CB9EC7759219DB473A00E8EF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587394   (192754) от 30.10.2022
+
+FAITH: The Unholy Trinity (2022) [En] (1.00) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192754.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 сентября 1986 года два священника прибыли в дом семьи Мартин в сельской местности Коннектикута, чтобы расследовать очевидный случай одержимости демонами. Только два человека выйдут из дома живыми. FAITH - это пиксельная хоррор-игра, вдохновленная эпохой классических 8-битных игр и «Сатанинской угрозой» 1980-х годов. Используйте свое святое распятие для изгнания (   Читать дальше...   )Тип издания: LicenseРазработчик: Airdorf GamesЖанр: Приключение, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC0C27F8D508A35EA89BA9CD619E35DA93E84D73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587478   (192475) от 31.10.2022
 
 Murder Is Game Over (2022) [En] (2) License GOG
@@ -6,7 +136,7 @@ Murder Is Game Over (2022) [En] (2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192475.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Behind the Frame: The Finest Scenery (2021) [Ru/Multi] (2.0.4_01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192281.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Great North Shelter 2 (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191748.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Great North Shelter 2 (2023) [Ru/En] (Build 12078048) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191664.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Fort Solis (2023) [Ru/Multi] (Build 11938463) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191653.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Under The Waves (2023) [Ru/Multi] (Build 11920395) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191651.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Sumatra: Fate of Yandi (2019) [Multi] (1.2) License GOG [Collector's Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191570.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Alfred Hitchcock: Vertigo (2021) [Ru/Multi] (2022093001/dlc) License GOG [Digita
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191182.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Lempo (2023) [Multi] (1.0) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191064.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ The Cosmic Wheel Sisterhood (2023) [Ru/Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190760.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Saint Kotar: The Yellow Mask (2020) [Ru/Multi] (1.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190757.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ Christmas Massacre (2021) [En] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189604.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ Molly Medusa: Queen of Spit (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189141.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ No Son of Mine (2023) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189113.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Bramble: The Mountain King (2023) [Ru/Multi] (Build 11395309) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189098.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ Seven Nights Ghost (2023) [Multi] (1.03) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188720.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ The Isle Tide Hotel (2023) [Ru/Multi] (1.0) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188683.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Zniw Adventure (2020) [Multi] (1.3.4W) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188678.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Murder House (2020) [Ru/Multi] (1.0.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188660.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ Unheard - Voices of Crime (2023) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188410.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ JETT: The Far Shore (2023) [Multi] (2.1.7.r24099/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188363.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ JETT: The Far Shore (2023) [Multi] (2.1.7.r24099/dlc) Scene Tenoke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4008866E1DE9BF02579DB56224CD1FB213C09B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590697   (188350) от 15.11.2022
-
-The Shore (2021) [Ru/Multi] (1.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188350.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Shore - приключенческий хоррор от первого лица, вдохновленный романами Говарда Филлипса Лавкрафта. Путешествуйте мистическим берегом, сталкиваясь с таинственными существами. Постарайтесь разгадать все секреты, которые скрывают в себе эти края. Вас ждет неописуемый ужас и саспенс. Боритесь за выживание и исследуйте таинственный мир. Это приключение заставит вас (   Читать дальше...   )Тип издания: LicenseРазработчик: Ares DragonisЖанр: Экшны, Приключение, ExplorationЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:542727FA9D1B7C8AA27F29F4190829879364EFCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590711   (188328) от 15.11.2022
-
-The Chant (2022) [Ru/Multi] (Build 9851451/dlc) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоррор-приключение от третьего лица для одного игрока. Вас пригласили на семинар по духовному росту на идиллическом острове, вдали от цивилизации, но мирные выходные быстро превращаются в череду кошмаров, когда групповой ритуал открывает ворота во Мрак – психоделическое пространство ужасов, которое питается негативной энергией. Вам придется отгадывать запутанную (   Читать дальше...   )Тип издания: RepackРазработчик: Brass TokenЖанр: Adventure (Horror), Action, 3rd Person, 3DЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11A3510AE58D2D8A96A07E6D5DCB8E1852136F66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613655   (188144) от 16.09.2023
-
-台北大空襲 Raid on Taihoku (2023) [Multi] (11269286) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Raid on Taihoku использует сеттинг Второй мировой войны. Показанные в игре события разворачиваются в 1945 году на территории острова Тайвань. Действие происходит в городе Тайхоку, известном также под измененным названием Тайбей. 31 мая во время противостояния между США и Японией в Тайваньском проливе американские самолеты B-24 Liberators устроили бомбардировку островной (   Читать дальше...   )Тип издания: SceneРазработчик: Mizoriot Creative Company LTD., fun2studioЖанр: Экшены, Приключенческие игрыЯзык субтитров: Английский, Китайский (традиционный), ЯпонскийЯзык интерфейса: Английский, Китайский (традиционный), Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:091BB88CA2B78325496A0870362961162D33F919
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661965   (188138) от 16.09.2023
-
-Ad Infinitum (2023) [Ru/Multi] (1.0.3.268591) Scene FairLight
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда реальность становится кошмаром, кошмары становятся реальностью. В этом психологическом хорроре вам предстоит сразиться с чудовищами, которые поселились в вашем сознании. Сможете ли вы сохранить рассудок? Вы оказались заперты в стенах собственного дома и лабиринте траншей Первой мировой войны. Теперь вы пытаетесь собрать воедино обрывки собственного прошлого (   Читать дальше...   )Тип издания: SceneРазработчик: HekateЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38E5A29EE8303E9A1F9A392F404D1162385562F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662283   (187983) от 17.09.2023
-
-Our Life: Beginnings & Always (2020) [En] (1.7.1.2/dlc) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Our Life: Beginnings & Always - визуальная новелла с ноткой ностальгической грусти и безграничными возможностями. Проживите уникальный и неповторимый опыт, который с легкостью можно сравнить с настоящей жизнью. Создайте собственного главного героя этой истории и проследите за пятнадцатью годами его жизни и взаимоотношением с соседскими ребятами. Разработчики (   Читать дальше...   )Тип издания: LicenseРазработчик: GB Patch GamesЖанр: Казуальные игры, ИндиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90793EEE8413A35F541FA33897F4FD8BD413131D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,110 @@
+###  Публикация: 1157060   (525857) от 10.08.2017
+
+Филлипс Грэхем | Александр Македонский (2010) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный британский автор выдвигает гипотезу о том, что Александр Македонский был убит, а точнее, отравлен в возрасте 32 лет во время поминального пира в честь его друга Гефестиона. Он предлагает свою версию ответа на вопрос: кому и зачем понадобилась смерть великого полководца? Интригу расследованию добавляет то обстоятельство, что и современники Александра Великого, (   Читать дальше...   )Жанр: ИсторияФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C72638B3E4E245982EFE5C79A4661C9D1C422503
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157056   (525853) от 10.08.2017
+
+Дэвид Дрю | Майя. Загадки великой цивилизации (2012) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майя — великие астрономы, математики, архитекторы и… предсказатели?
+В настоящее время известна вся хронология зарождения, развития и заката цивилизации майя с точностью до года.
+Но какое послание для нас, ныне живущих, зашифровано в последней дате их календаря — 13 августа 2012 года? Мир замер в ожидании.Жанр: История, КультурологияФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADE028FFA58C3BF319561019184668A00018DF8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157055   (525843) от 10.08.2017
+
+Шон Макглинн | Узаконенная жестокость: Правда о средневековой войне IX-XVI вв. (2011) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несмотря на бытующие до сих пор представления о рыцарском благородстве и кодексе чести, средневековые войны были неизбежно сопряжены с деяниями, которые в наши дни считались бы чудовищными военными преступлениями.
+Разорение сел и городов, беспощадная резня мирного населения, массовое истребление пленников, несоразмерные по суровости наказания за нетяжкие преступления (   Читать дальше...   )Жанр: ИсторияФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B952B8A7284C8A424E7085E3FDEF355325803EB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157662   (525141) от 12.08.2017
+
+Олег Федюшин | Украинская революция. 1917-1918 (2007) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Период 1917-1918 годов явился кризисным и трагическим в истории Украины и других государств, образовавшихся на руинах Российской империи. Глубокое исследование профессора О.С Федюшина касается не только экспансии Германии на Восток, но и проблем Крыма, Черноморского бассейна, польского вопроса, а также взаимоотношений России и Германии. Детально анализируются усилия (   Читать дальше...   )Жанр: историографияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84034C54F466601BEFA40E5C663E1A676C1D3C31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1157760   (524756) от 13.08.2017
 
 А.И. Вилков | Призовые часы в Российской Императорской армии (2004) [PDF]
@@ -6,7 +113,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524756.jpg" />
 </div>
 
 
@@ -33,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524442.jpg" />
 </div>
 
 
@@ -61,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524188.jpg" />
 </div>
 
 
@@ -90,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524055.jpg" />
 </div>
 
 
@@ -117,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524052.jpg" />
 </div>
 
 
@@ -143,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524047.jpg" />
 </div>
 
 
@@ -170,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524025.jpg" />
 </div>
 
 
@@ -196,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524021.jpg" />
 </div>
 
 
@@ -223,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523983.jpg" />
 </div>
 
 
@@ -249,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522807.jpg" />
 </div>
 
 
@@ -277,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521099.jpg" />
 </div>
 
 
@@ -305,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520579.jpg" />
 </div>
 
 
@@ -333,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518522.jpg" />
 </div>
 
 
@@ -359,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518517.jpg" />
 </div>
 
 
@@ -385,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518506.jpg" />
 </div>
 
 
@@ -411,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518173.jpg" />
 </div>
 
 
@@ -437,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516137.jpg" />
 </div>
 
 
@@ -463,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515992.jpg" />
 </div>
 
 
@@ -489,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513641.jpg" />
 </div>
 
 
@@ -515,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511750.jpg" />
 </div>
 
 
@@ -542,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511029.jpg" />
 </div>
 
 
@@ -568,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511028.jpg" />
 </div>
 
 
@@ -579,112 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:442DAED93C8C6C3BDC76D574ABFF87CAE4B3D621
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931518   (510947) от 27.08.2015
-
-Борис Никитин | Роковые годы (1937) [FB2, RTF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Войны всегда начинают политики, и именно политики их заканчивают.
-В чем причина победы большевиков и поражения Белого движения? В том, что с одной стороны были политики, а с другой стороны политиков не было. Были честные офицеры. Патриоты. Но не политики.
-Борис Владимирович Никитин, мемуары которого Вы читаете, был человеком весьма осведомленным. В 1917 году он был (   Читать дальше...   )Жанр: Мемуары, ИсторияФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FB5074C4726E722157A63AD6FE15E85377BB562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932012   (510276) от 28.08.2015
-
-А. Гринберг (ред.) | Беспризорные о себе (1925) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510276.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге собраны рассказы беспризорных детей о своей жизни, войне, голоде, эксплуатации со стороны взрослых.Жанр: История, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E9C5370D948058B6D7E26D024711A439451863
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932017   (510265) от 28.08.2015
-
-Э. И. Дейчман | Алкоголизм и борьба с ним (1929) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510265.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге освещены медицинские, социальные, экономические последствия алкоголизма в России и СССР, данные о потреблении различных видов алкогольной продукции в нашей стране в годы НЭПа, мероприятия Советской власти по борьбе с алкоголизмом.Жанр: История, медицина, социология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B0C0358A471E2CB6E03709F64584A073FF619F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932849   (507258) от 31.08.2015
-
-Б. И. Кошечкин | Сын Новой Земли (1980) [PDF, DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очерк посвящен путешественнику и художнику Тыко Вылке, который вместе с выдающимся ученым и исследователем Арктики В. А. Русановым участвовал в экспедициях на Новой Земле. После Великой Октябрьской социалистической революции помогал первым советским экспедициям, изучавшим далекий остров. Как художник, первый дал правдивые картины природы сурового края, способствовал (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADD93636B6FDFA2C24D015091AACFD62F72D1CCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

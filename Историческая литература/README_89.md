@@ -1,3 +1,107 @@
+###  Публикация: 1428972   (178160) от 04.12.2020
+
+Светлана Ульянова, Илья Сидорчук | Пагубные страсти населения Петрограда–Ленинграда в 1920-е годы. Обаяние порока (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поведение, не принимаемое обществом или законом, существует в любом социуме. Проблемы наркомании, алкоголизма, проституции и прочие пагубные страсти являются частью массовой культуры и предметом научного изучения. Книга посвящена асоциальным и нетрадиционным формам свободного времяпрепровождения жителей Петрограда—Ленинграда в 1920-е годы. Этот период выбран не случайно. (   Читать дальше...   )Жанр: Культурология, Популярно об историиФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ED5AD639E018E018E4CEEA744E921F1D9E8FDF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429298   (177579) от 05.12.2020
+
+Зигфрид Штейнберг | История книгоиздания в Европе. Пять веков от первого печатного станка до современных технологий (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследование З.Г. Штейнберга прослеживает историю наборной печати от ее возникновения в XV веке в мастерской Гутенберга до радикальных инноваций, технических новшеств XX века, от зарождения и формирования всех характерных качеств книгопечатания до новых методов производства, распространения книг и постоянно меняющихся привычек читателей. Автор в своих наблюдениях (   Читать дальше...   )Жанр: Издательское дело, Популярно об историиПеревод: Татьяна ШуликоваФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AE61EEAE63CCCDFD97E291DA8D37505F523D0C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429545   (176618) от 06.12.2020
+
+Сесил Рот | Иудеи в Венецианской республике. Жизнь в условиях изоляции (2021) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сесил Рот – известный британский исследователь и крупнейший специалист по истории евреев, автор многих трудов по названной теме, представляет венецианскую жизнь еврейской общины XV—XVII вв. Основываясь на исторических исследованиях и документальных материалах, Рот создал яркую, интересную и драматичную картину повседневной жизни евреев в Венецианской республике на (   Читать дальше...   )Жанр: Культурология, Популярно об историиПеревод: Л.А. ИгоревскийФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B020E4CC2F2351E6FF96537E52583262315700F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429543   (176553) от 06.12.2020
+
+Де Лейси О`Лири | Доисламская история арабов. Древние царства сынов Востока (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель настоящей книги британского востоковеда, специалиста по истории ислама и древних языков Де Лейси О’Лири – показать читателю, что доисламская Аравия, являясь центром арабского сообщества, не была страной, изолированной от культурного влияния Западной Азии и от политической и социальной жизни своих соседей на Ближнем Востоке. В книге подробно рассматриваются древние (   Читать дальше...   )Жанр: История Древнего мира, Востоковедение, Популярно об историиПеревод: Л.А. ИгоревскийФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D172F6D851C681CCBE5A15FA9372B1EA2C3CBBF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429364   (176169) от 06.12.2020
 
 Ю.Ю. Кондуфор (гл. ред.) | История Украинской ССР в 10-ти томах (1981 - 1985) [DJVU]
@@ -6,7 +110,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176169.jpg" />
 </div>
 
 
@@ -34,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175757.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173755.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170794.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170454.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170365.jpg" />
 </div>
 
 
@@ -166,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168782.jpg" />
 </div>
 
 
@@ -192,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168544.jpg" />
 </div>
 
 
@@ -218,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168227.jpg" />
 </div>
 
 
@@ -245,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167781.jpg" />
 </div>
 
 
@@ -272,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167751.jpg" />
 </div>
 
 
@@ -298,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167714.jpg" />
 </div>
 
 
@@ -324,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167459.jpg" />
 </div>
 
 
@@ -350,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167358.jpg" />
 </div>
 
 
@@ -376,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167337.jpg" />
 </div>
 
 
@@ -402,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166600.jpg" />
 </div>
 
 
@@ -430,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166565.jpg" />
 </div>
 
 
@@ -456,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166482.jpg" />
 </div>
 
 
@@ -482,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166036.jpg" />
 </div>
 
 
@@ -509,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165548.jpg" />
 </div>
 
 
@@ -535,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164780.jpg" />
 </div>
 
 
@@ -561,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164112.jpg" />
 </div>
 
 
@@ -573,112 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1D727B26CBF448D05F007C072A43683FC9697FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432502   (164001) от 17.12.2020
-
-Николай Костомаров | Обычаи и нравы народов государства Российского (2018) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга о жизни и быте народов Московского государства XVI–XVII вв. Читатель найдет здесь увлекательные истории о нравах людей этого времени, каковы были их интеллектуальные и материальные потребности и интересы. Что ели, во что одевались, что выращивали в своих садах и огородах, как лечились, справляли свадьбы и воспитывали детей. Семейные традиции и обряды, увеселения (   Читать дальше...   )Жанр: История, Культурология, ЭтнографияФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F33502C9577FA1D2C0CD8AD84DEEB3DBC643EA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432501   (163980) от 17.12.2020
-
-Эдуард Фукс | Эпоха Ренессанса (2018) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Эпоха Ренессанса» – один из трех томов популярного издания Э. Фукса «Иллюстрированная история нравов», посвящена истории нравов эпохи Ренессанса. В ней увлекательно рассказывается о том, как в разных странах и у разных народов складывались представления о красоте и наслаждении, способах проявления чувств, брачных обычаях, внебрачных связях, наконец, о том, (   Читать дальше...   )Жанр: Культурология, Популярно об историиПеревод: Владимир ФричеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B752383B9808B20AE236B5130A3361035C0DFB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432517   (163834) от 17.12.2020
-
-Инесса Геннис | Древний мир. Египет. Греция. Рим (2018) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это книга о жизни, культах и быте народов древности – Египта, Греции и Рима.
-Очерки о материальном мире отдаленных эпох соседствуют в книге с зарисовками, в которых лаконично и увлекательно рассказано о нравах людей древнего мира, о том, во что они верили, чему поклонялись, какими были их интеллектуальные и материальные потребности и интересы.
-Современному читателю (   Читать дальше...   )Жанр: История Древнего мира, Популярно об историиФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C63D63790456743E684048853DB6712BB88581CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346459   (163820) от 19.12.2019
-
-Г.В. Сумаруков, Н.С. Серегина | Полоцкая княжна Мария Васильковна — автор «Слова о полку Игореве». Исследования тайнописи (2008) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный исследователь Г. В. Сумаруков обнаружил в тексте «Слова» ряд записей «затаенного имени» автора этого произведения. Ученый выявляет следы «женского почерка» в произведении, показывает, что урожденная княжна полоцкая Мария Васильковна, супруга Великого князя Киевского, обладала необходимыми качествами, чтобы создать «Слово о полку Игореве».Жанр: ИсториографияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E9879FEFEA1E0E45EB617AD9A6DEE119EF6E66D
 ```
 
 https://mybot314.ru/tekegram_catalog/

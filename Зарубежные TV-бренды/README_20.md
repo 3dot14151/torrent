@@ -1,3 +1,81 @@
+###  Публикация: 311395   (833716) от 20.03.2011
+
+History Channel: Письменный код (История письменности) / The Writing Code (2007) IPTVRip (серии 3 из 3)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833716.jpg" />
+</div>
+
+
+###  Подробнее
+
+От первых иероглифов до математических кодов века цифрового - наше путешествие в историю человечества заново откроет тайну и силу величайшего и необходимого инструмента - письменности.Жанр: ДокументальныйРежиссер: Жен Серчингер, Сьюзан Бауман, Норман БернсПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 3x~00:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:037CA5029507457BBAE4D684BB962E31FD6E1D9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380619   (832939) от 03.05.2020
+
+Сила племени / Survive the Tribe (2014) WEB-DL [H.264/1080p] (сезон 1, серии 6 из 6)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тысячи лет племена борются за свое выживание на самых суровых землях в мире. Его зовут Хэйзен Одел и он - инструктор по выживанию и гид по дикой природе. Он хочет обучаться у лучших, поэтому путешествует по самым отдаленным уголками земного шара, чтобы бросить вызов сложнейшим испытаниям. Чтобы преодолеть их, он должен научиться выживать в природе, используя лишь (   Читать дальше...   )Производство: Великобритания, Icon Films, National GeographicЖанр: Документальный, путешествия, экстримРежиссер: Алекс Паркинсон, Джордж Пальеро, Адриан Макфарлейн, Стивен ШирманПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 6 x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79FBFF35108B918FD09914BE2ABADC34D902DFDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 190191   (832422) от 04.04.2014
+
+BBC: Терри Джонс и варвары / Terry Jones' Barbarians (2006) SATRip [4 серии из 4]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ДокументальныйПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 4x~00:51:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004933   (832296) от 09.04.2016
 
 Алькатрас: В поисках правды / Alcatraz: Search For The Truth (2015) SATRip
@@ -6,7 +84,7 @@
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832296.jpg" />
 </div>
 
 
@@ -35,7 +113,7 @@ NG. Загадки Библии. Воины-тамплиеры / The Secret Bibl
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832293.jpg" />
 </div>
 
 
@@ -61,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831752.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ NG. Грядет шторм / Gathering Storm (2020) WEB-DL [H.264/1080p] (се�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831732.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831367.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ NG. Линии Наска: Погребенные секреты. Древние
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831120.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ BBC: Живая Природа. Райские птицы / BBC: Natural World. 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830588.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ BBC: Планета Земля / BBC: Planet Earth (2006) [1080p] Blu-ray [4-Dis
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830510.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ NG. Игры разума / Brain Games (2013) HDTVRip [H.264/720p] [Сезон 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830197.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ History Channel. Древние пришельцы / Ancient Aliens (2010) HDTVR
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830077.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ Nat Geo Wild: В опасных водах Австралии. Обед для �
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829879.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ NG: Следующее мегацунами / The Next Mega Tsunami (2014) HDTV 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829795.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ Nat Geo Wild: Маленькие убийцы / Little Killers (2015) HDTVRip [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829779.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ Animal Planet. Логово крокодилов-убийц / Lair of the Killer
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829697.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ NG: Секретное оружие Гитлера / Hitler's Secrets Weapon (19
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829565.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ NG. Инстинкт выживания / Primal Survivor (2017) WEB-DL [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829185.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ Discovery: Скорость жизни / Speed of Life (2010) Blu-Ray [H.264/108
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828481.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ BBC: Дикие Карибы / Wild Caribbean (2007) DVDRip (сезон 1, се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828273.jpg" />
 </div>
 
 
@@ -479,7 +557,7 @@ NG: Панорама 360° Объект всемирного наследия / 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827896.jpg" />
 </div>
 
 
@@ -505,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Одиссея Жака Кусто
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827764.jpg" />
 </div>
 
 
@@ -531,7 +609,7 @@ BBC: Горизонт. Плутон. Восставший из мёртвых / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824632.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824387.jpg" />
 </div>
 
 
@@ -583,7 +661,7 @@ NG: Пропавшая колония Колумба / Columbus's cursed colony 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824018.jpg" />
 </div>
 
 
@@ -595,86 +673,6 @@ NG: Пропавшая колония Колумба / Columbus's cursed colony 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D9F40C6FDAA928E3D9D2AAD0524B9EA9470783B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116703   (822317) от 20.03.2017
-
-Discovery. Техногеника. Царь-Бомба (2017) HDTVRip [H.264/720p-LQ] (Сезон 2, серия 13 из 13)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822317.jpg" />
-</div>
-
-
-###  Подробнее
-
-В октябре 1961 года Советский Союз явил миру самое разрушительное оружие, когда-либо созданное человечеством – термоядерную бомбу. Автор проекта, будущий правозащитник и гуманист Андрей Сахаров выполнил поставленную задачу блестяще: мощность бомбы в 100 Мегатонн обеспечивала не только выжженную землю на площади в несколько сотен тысяч квадратных километров, но и (   Читать дальше...   )Телекомпания: Discovery Channel РоссияЖанр: Документальный, История, ТелепередачаПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88440CC5F3A33421136773413D4036EBEB695C48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382048   (822187) от 09.05.2020
-
-NG: Расследования Авиакатастроф / Mayday / Air Crash Investigation (2020) WEB-DLRip [H.264/720p-LQ] (сезон 20, серии 1-10 из 10) [PR]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Реконструкция реальных воздушных катастроф,
-интервью с авиационным специалистами и
-очевидцами происшествий.Производство: Канада,  Cineflix Productions, Galaxie Productions, NF Inc.Жанр: документальный, история, реальное ТВ, драма, криминалРежиссер: Tim WolochatiukПеревод: Одноголосый, профессиональный, закадровый. Студия «Велес»Язык озвучки: русскийСубтитры: нетПродолжительность: каждая серия ~00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:338E4C20CA3CE9670643FC53819EF7E5FD20444F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940556   (821958) от 20.03.2017
-
-Атлантика: Самый необузданный океан на Земле / Atlantic: The Wildest Ocean on Earth (2015) BDRip [H.264/720p] (сезон 1, серии 1-3 из 3) AlexFilm
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из-за мощных течений, жестоких ураганов и подводных вулканов Атлантический океан невероятно богат и разнообразен, но выжить, приняв его вызов, в нём очень не просто. Новый документальный фильм BBC рассказывает о самом необузданном из всех океанов планеты Земля.Производство: Великобритания / BBC Natural History, National Geographic TelevisionЖанр: документальныйРежиссер: Эндрю Мюррэй, Дэн РиисАктеры: Киллиан Мёрфи, Колин Форд, Рени Годфри, Йоахим Якобсен, Кирстен Якобсен.Перевод: Двухголосый закадровый, профессиональный - AlexFilmОзвучка: Владимир Курдов, Татьяна МанетинаПродолжительность: ~00:59:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:557F3026BE243187C60D7DA463D80AF8330CEBCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

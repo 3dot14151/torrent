@@ -1,3 +1,111 @@
+###  Публикация: 1440174   (238745) от 16.01.2021
+
+ToothFairy 2.7.2 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238745.jpg" />
+</div>
+
+
+###  Подробнее
+
+ToothFairy - это небольшое приложение позволяет всего лишь одним кликом управлять любым устройством посредством Bluetooth.
+ToothFairy поможет вам перейти от одного выбранного устройства Bluetooth к другому, непосредственно из меню.Тип издания: macOS SoftwareРелиз состоялся: 15.01.2021Разработчик: Lu YibinПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE6F5048EC73129598D2D9EF4232BB71BA4831F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623279   (238672) от 01.04.2023
+
+X Djing - Music Mix Maker 2.1.5 [Multi/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238672.jpg" />
+</div>
+
+
+###  Подробнее
+
+X DJing — это программное обеспечение для диджеев, которое позволяет легко микшировать музыку, устанавливать петли и метки быстрого доступа, а также играть со звуковыми эффектами.Тип издания: macOS SoftwareРелиз состоялся: 01.04.2023Разработчик: © 2017-2022 Music TopiaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2208B4C98039F06E321AB87FD64593E9AAB1A216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623482   (238615) от 01.04.2023
+
+Apeaksoft Data Recovery for Mac 1.5.8 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы по ошибке удалили некоторые важные файлы или потеряли данные из-за форматирования жесткого диска или сбоя системы, потеря данных больше не станет вашим самым большим кошмаром. Apeaksoft Data Recovery предлагает профессиональные решения для обработки различных проблем с потерей данных. Он может помочь вам с легкостью восстановить все типы данных с Mac, корзины, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.03.2023Разработчик: © 2023 Apeaksoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFC781173B5384B7F67789399F118291E67CE4E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628998   (238579) от 25.04.2023
+
+M3U Edit 1.4.2 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте и редактируйте списки воспроизведения M3U для любого музыкального проигрывателя
+
+Простота в использовании
+• Просто перетащите музыкальные файлы, чтобы создать свой плейлист(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.04.2023Разработчик: © 2023 Georgios TrigonakisПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DE72DE3E8F56CC9BE5B2BF19186F158075A8404
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442652   (238540) от 25.01.2021
 
 ScreenSaverNow 1.70 [En]
@@ -6,7 +114,7 @@ ScreenSaverNow 1.70 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238540.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ Clone Fighter 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238523.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ batchGIF 1.92 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238504.jpg" />
 </div>
 
 
@@ -84,7 +192,7 @@ photo2movie 2.81 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238482.jpg" />
 </div>
 
 
@@ -111,7 +219,7 @@ Integrity Pro 10.0.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238459.jpg" />
 </div>
 
 
@@ -137,7 +245,7 @@ Word Count Icon 2.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238434.jpg" />
 </div>
 
 
@@ -163,7 +271,7 @@ desktopCinema 3.30 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238426.jpg" />
 </div>
 
 
@@ -189,7 +297,7 @@ HideAway 2.05 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238414.jpg" />
 </div>
 
 
@@ -216,7 +324,7 @@ ScreenLog 2.30 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238406.jpg" />
 </div>
 
 
@@ -242,7 +350,7 @@ CVS 2.20 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238392.jpg" />
 </div>
 
 
@@ -268,7 +376,7 @@ FSNotes 5.0.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238353.jpg" />
 </div>
 
 
@@ -294,7 +402,7 @@ Deliver Express 2.6.20 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238335.jpg" />
 </div>
 
 
@@ -320,7 +428,7 @@ Plist Converte‪r‬ 1.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238330.jpg" />
 </div>
 
 
@@ -346,7 +454,7 @@ Perfect Face - Pimple Remover 1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238292.jpg" />
 </div>
 
 
@@ -372,7 +480,7 @@ TunesKit Video Converter 2.1.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238285.jpg" />
 </div>
 
 
@@ -398,7 +506,7 @@ TunesKit Video Cutter 2.3.0 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238276.jpg" />
 </div>
 
 
@@ -424,7 +532,7 @@ start 4.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237935.jpg" />
 </div>
 
 
@@ -450,7 +558,7 @@ WiFi Explorer 3.4.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237853.jpg" />
 </div>
 
 
@@ -477,7 +585,7 @@ SSH Config Editor Pro 2.6.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237761.jpg" />
 </div>
 
 
@@ -503,7 +611,7 @@ Gestimer 1.2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237688.jpg" />
 </div>
 
 
@@ -530,7 +638,7 @@ Magic Battery Mini 4.2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237589.jpg" />
 </div>
 
 
@@ -557,7 +665,7 @@ USBclean 3.6.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237575.jpg" />
 </div>
 
 
@@ -568,112 +676,6 @@ USBclean 3.6.2 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A1F9449BDBF9B0DAC2F6716969563E9128B35DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605770   (237561) от 19.01.2023
-
-App Tamer 2 v.2.7.6 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237561.jpg" />
-</div>
-
-
-###  Подробнее
-
-При работе за компьютером очень часто вы можете обнаружить большое количество открытых программ, половина из которых вам уже не нужна. В такой ситуации выход только один — закрыть ненужные приложения и освободить системные ресурсы. Но с App Tamer у вас появится еще одно решение этого вопроса!Тип издания: macOS SoftwareРелиз состоялся: 16.01.2023Разработчик: © 2010-2023 St. Clair SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB4902E77EFF33C88606F6D8F09697B7F4A55016
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605654   (237535) от 19.01.2023
-
-Inboard - Image Organizer 1.1.6 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение позволяет Вам легко организовать фотографии и скриншоты. Inboard обеспечивает интуитивный пользовательский интерфейс, где ваши изображения организованы в библиотеку и есть возможность добавить любое число изображений.
-Изображения показаны в виде превью, вы можете изменить их размер, используя ползунок. К тому же, вы можете сортировать изображения по дате (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2023Разработчик: © Regular SIAПоддерживаемая ОС: macOS 10.15 или вышеЯзык интерфейса: Английский и Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D395C58A5C48CE7B4316BE2D2C48A6716C3EEAD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450737   (237465) от 27.02.2021
-
-Script Debugger 7 v7.0.13 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Script Debugger предлагает пользователям всё, что необходимо для быстрого создания авторских скриптов AppleScript. Ни одна из утилит не сравнится с Script Debugger в быстроте и простоте создания, редактирования и отладки скриптов AppleScript. Встроенный браузер Dictionary предлагает пользователю больше информации, чем любая другая утилита.
-Редактор полностью поддерживает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.02.2021Разработчик: Late Night Software Ltd.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3B6CD31B9458FE590D8F5CCFD947294280EC549
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450745   (237456) от 27.02.2021
-
-WebToLayers 1.2.1 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237456.jpg" />
-</div>
-
-
-###  Подробнее
-
-WebToLayers преобразует веб-сайты в документы Photoshop. Другими словами, приложение позволяет создавать скриншоты веб-страниц, сохраняя каждый элемент в отдельном слое. Приложение сэкономит вам много времени при перепроектировании или улучшении существующих веб-страниц.Тип издания: macOS SoftwareРелиз состоялся: 26.02.2021Разработчик: Jeremy VizziniПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F080D46A8373AC4C38B4BB207F04FED86E3CD038
 ```
 
 https://mybot314.ru/tekegram_catalog/

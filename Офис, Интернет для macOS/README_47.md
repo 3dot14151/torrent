@@ -1,3 +1,56 @@
+###  Публикация: 1673857   (163479) от 03.11.2023
+
+Surge for Mac 5.4.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Surge — это набор сетевых инструментов для опытных пользователей и высокопроизводительный прокси-сервер HTTP/SOCKS5 . Он способен перехватывать и регистрировать сводку сетевого трафика, а также передавать трафик на другие прокси-серверы в соответствии с гибкой системой правил. Поддерживается несколько протоколов прокси, включая HTTP, HTTPS, SOCKS5, SOCK5 через TLS. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2023Разработчик: © 2023 Surge Networks Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A62CDD9310A9A29A978E8DA6D0305685C61C6A36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517486   (163004) от 15.12.2021
+
+Art Files 3 v3.4 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Art Files идеально подходит для иллюстраторов и художников или тех, кто работает с графическими файлами и нуждается в отправке документов другим лицам для редактирования или печати.
+Программа собирает все данные о .ai файлах (Adobe illustrator) - данные о шрифтах, других файлах, которые относятся к Вашему проекту. Также Art Files обладает уникальной способностью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2021Разработчик: © 2021 Code LineПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76CB3A11B7E1729AD3F940C73134405E8DFF405
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517403   (162994) от 15.12.2021
 
 Noise Machine 1.18 fix [En]
@@ -6,7 +59,7 @@ Noise Machine 1.18 fix [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162994.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ PDF Reader Pro Edition 2.8.5.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162804.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Timer RH PRO  2.13.0 [En/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162480.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Flyingbee PDF to PowerPoint 5.3.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162399.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ Base64 Coder 2.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162371.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ VSDX Annotator for Mac 1.16.1 U2B [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162143.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ Kiwi for Gmail 2.0.40 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162137.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ Entity Pro 1.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162131.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ VSD Viewer for Mac 6.16.1 U2B [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162068.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ PDF Search 13.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161484.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ Report Kit 1.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161462.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ Smultron 12 v12.5.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161050.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ PDF Reader X - Edit Adobe PDF Pro 3.4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161029.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ MWeb Pro 4.5.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160679.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ Notebooks – Write and Organize 3.3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160664.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ Project Office X Pro 1.1.11 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160240.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ Caato Time Tracker Pro 1.1.18 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159396.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ PreviewMarkdown 1.4.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159377.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ Airtool 2 v.2.5.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159333.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ Swift Typist 1.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158675.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ Briefs 1.3.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158656.jpg" />
 </div>
 
 
@@ -562,7 +615,7 @@ KeyKey 1.0.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158593.jpg" />
 </div>
 
 
@@ -591,7 +644,7 @@ OCRKit 15.12.8 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158474.jpg" />
 </div>
 
 
@@ -619,7 +672,7 @@ Readiris Pro 15.0.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158393.jpg" />
 </div>
 
 
@@ -631,61 +684,6 @@ Readiris Pro выполняет всю утомительную для вас р
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DE5AA679B04AC4FEBF7AB329E61C5842337CD96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967837   (158337) от 21.12.2015
-
-Extensis Suitcase Fusion 6 v17.3.1 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Extensis Suitcase Fusion - это мощная утилита управления шрифтами, которая предоставляет пользователям полный и точный контроль над всеми установленными в системе шрифтами, делая работу со шрифтами быстрее и проще, чем когда-либо прежде. Suitcase Fusion находит и активирует шрифты только тогда, когда они нужны пользователю, экономя ценные системные ресурсы и время. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 декабря 2015Разработчик: Celartem, Inc.Поддерживаемая ОС: 10.6.8 +Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCFA0526167F4430B460D96B10299E9219576212
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968015   (158149) от 22.12.2015
-
-Social! for WhatsApp 0.9.4 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Social! -  родной клиент для Mac для WhatsApp® Web, он добавляет встроенные функции, как оповещение, горячие клавиши активации, количество значков и ярлыков.
-
-Social! for WhatsApp является сторонним приложением и не является аффилированным или связанным с WhatsApp Inc.
-(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: сентябрь 2015Разработчик: PolarAppsПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6294A8AB8CAA06F469CEFD67BD8882781AEBDC1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

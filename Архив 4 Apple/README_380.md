@@ -1,3 +1,31 @@
+###  Публикация: 1410258   (438509) от 20.09.2020
+
+Transmit 5.6.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Золотой стандарт приложений для передачи файлов
+Загружайте, загружайте и управляйте файлами на серверах с простым, знакомым и мощным интерфейсом.
+Теперь Transmit подключается к 10 новым облачным сервисам, таким как Backblaze B2, Box, Google Диск, DreamObjects, Dropbox, Microsoft Azure и Rackspace Cloud Files. И да, Transmit по-прежнему обрабатывает классику - FTP, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.09.2020Разработчик: Panic IncПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A7A5AFB8442E7FB2455D015C43095EEAB057FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570849   (438476) от 19.08.2022
 
 Chain Timer 9.3 [Multi/Ru]
@@ -6,7 +34,7 @@ Chain Timer 9.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438476.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ Screegle - Clean Screen Sharing 2.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438473.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ NetShred X 5.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438470.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ VideoDuke 2.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438469.jpg" />
 </div>
 
 
@@ -111,7 +139,7 @@ Chronicle Pro 14.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438468.jpg" />
 </div>
 
 
@@ -138,7 +166,7 @@ Music Tag Editor Pro 7.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438466.jpg" />
 </div>
 
 
@@ -166,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438463.jpg" />
 </div>
 
 
@@ -192,7 +220,7 @@ Affinity Photo Beta 1.9.0.196 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438426.jpg" />
 </div>
 
 
@@ -218,7 +246,7 @@ My Metronome 1.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438377.jpg" />
 </div>
 
 
@@ -244,7 +272,7 @@ KCNcrew Pack 08-15-22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438374.jpg" />
 </div>
 
 
@@ -270,7 +298,7 @@ Millumin 4 v 4.12.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438372.jpg" />
 </div>
 
 
@@ -296,7 +324,7 @@ NCH ClickCharts Diagram Pro 6.83 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438370.jpg" />
 </div>
 
 
@@ -322,7 +350,7 @@ PDF Reader Pro Edition 2.8.15.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438366.jpg" />
 </div>
 
 
@@ -348,7 +376,7 @@ PullTube 1.8.4.4 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438365.jpg" />
 </div>
 
 
@@ -374,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438363.jpg" />
 </div>
 
 
@@ -400,7 +428,7 @@ Gemini 2: The Duplicate Finder 2.6.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438344.jpg" />
 </div>
 
 
@@ -428,7 +456,7 @@ Navicat Premium 15.0.21 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438342.jpg" />
 </div>
 
 
@@ -454,7 +482,7 @@ CrossOver 20.0-b2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438339.jpg" />
 </div>
 
 
@@ -482,7 +510,7 @@ BlueHarvest 6.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438319.jpg" />
 </div>
 
 
@@ -511,7 +539,7 @@ Navicat Premium 16.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438297.jpg" />
 </div>
 
 
@@ -537,7 +565,7 @@ Bartender 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438222.jpg" />
 </div>
 
 
@@ -564,7 +592,7 @@ Downie 4 v.4.5.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438189.jpg" />
 </div>
 
 
@@ -592,7 +620,7 @@ Wondershare Recoverit 10.5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438188.jpg" />
 </div>
 
 
@@ -619,7 +647,7 @@ A Better Finder Rename 10.33 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438133.jpg" />
 </div>
 
 
@@ -646,7 +674,7 @@ WiFiSpoof 3.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438046.jpg" />
 </div>
 
 
@@ -657,34 +685,6 @@ WiFiSpoof - небольшая утилита, которая поможет в�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:250F2CC2AE5DEA4A98D1ED546A038387CC2895F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249044   (438044) от 22.09.2018
-
-SpamSieve 2.9.33 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Без преувеличения можно сказать, что SpamSieve - лучший спам-фильтр для Mail.app и многих других почтовых клиентов для Mac OS X. Если ваши почтовые фильтры уже не справляются с непрекращающимся потоком спама, то это плагин несомнено вам поможет.
-
-Хотя SpamSieve иимеет свою огромную базу спам-слов и серверов, все же какое-то время придётся потратить на обучения спам (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.09.2018Разработчик: C-Command SoftwareПоддерживаемая ОС: macOS X 10.7+Язык интерфейса: Русский, Английский, Французский, Итальянский, Финский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:707E09165904D58BDAD1F979CDA48EE8539CB60D
 ```
 
 https://mybot314.ru/tekegram_catalog/

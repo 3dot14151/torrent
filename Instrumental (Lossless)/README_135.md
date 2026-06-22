@@ -6,7 +6,7 @@ Billy F Gibbons - Cruising with Billy F Gibbons (2025) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69584.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Bluebird, His Hot Combo - Miss Bad Valentine (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69578.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Citizen Jones - Downtown Ways (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69571.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Daddy Mack Blues Band - Doctor's Orders (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69569.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Chris Bell & 100% Blues - Blues 2001 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69564.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Grandes Del Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69267.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Mike Anton - New Rhythm & Soul 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69242.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Marco J & The Jaywalkers - Dynamite (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69230.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ HeavyDrunk, Watermelon Slim - BluesLand Theme Park (2025) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69224.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Melon Jelly - The Road to Memphis (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69221.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Max Hightower - Nothin' but the Truth (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69218.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Kenny Wayne Shepherd & Bobby Rush - Young Fashioned Ways (2025) [FLAC|Lossless|W
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68932.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Kenny Wayne Shepherd, Bobby Rush - Young Fashioned Ways (2025) [FLAC|Lossless|im
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68758.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Popa Chubby - I Love Freddie King (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68569.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Janiva Magness - Back For Me (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68531.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Todd Shuffler - Stoned and Lonesome (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68489.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ The Too Bad Jims - Over the Hill (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68488.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Robi Zonca - TO FILL MY SOUL (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68463.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ The Patriot - Untuk Indonesia (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68462.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Mojo Diggers - The First on the Line (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68461.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Ms. Jody - Cougar on the Prowl (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68460.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Willie Clayton - Double Play Soul & Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68458.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Mitch Ryder - With Love (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68457.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Mike Eric Blues Band - Cupcakes (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68456.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ The John Ford Blues Society - Rollin' On (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68455.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Highway Heavy - Pinky Ring Music Volume 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68438.jpg" />
 </div>
 
 

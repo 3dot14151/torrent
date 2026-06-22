@@ -1,3 +1,56 @@
+###  Публикация: 1747710   (44461) от 06.09.2024
+
+М.И. Штерн | Справочник электрика с онлайн ресурсами через QR-коды (2024) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44461.jpg" />
+</div>
+
+
+###  Подробнее
+
+В интерактивном справочнике сделан упор на рассмотрение информации для современного электрика. Рассматриваются компоненты и материалы для электросети, принцип действия и характеристики электрооборудования, методики безопасной эксплуатации, основы проведения ремонта электротехники и многое другое. По тексту книги размещены QR-коды, предназначенные для мгновенного (   Читать дальше...   )Жанр: справочникИздательство: СПб.: Наука и техникаФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB739A53A5936333128F23ACAA84ADA6695C9F31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747718   (44444) от 06.09.2024
+
+М.И. Штерн | Электротехнический справочник с онлайн ресурсами через QR-коды (2023) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44444.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстро развивающийся рынок кабельной продукции, инструментов, установочных изделий, электросчетчиков, трансформаторов, электродвигателей, генераторов требует новой информации, новых знаний, нового подхода в справочной литературе.
+В справочнике сделан упор на рассмотрение информации для современного электрика. По тексту книги стоят QR-коды, предназначенные для мгновенного (   Читать дальше...   )Жанр: СправочникИздательство: Наука и техникаФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FE7AF3913A91F46E5BC4C9AC25CF0AC8BF967B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749930   (43391) от 16.09.2024
 
 К.Е. Петров | Типографский компьютерный набор и вёрстка (2013) [PDF]
@@ -6,7 +59,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43391.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43204.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42010.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41915.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41816.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41048.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39981.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39715.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39714.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39711.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39704.jpg" />
 </div>
 
 
@@ -293,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38004.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37966.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37780.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37778.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37492.jpg" />
 </div>
 
 
@@ -432,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36797.jpg" />
 </div>
 
 
@@ -459,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36027.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35506.jpg" />
 </div>
 
 
@@ -514,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34830.jpg" />
 </div>
 
 
@@ -540,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34687.jpg" />
 </div>
 
 
@@ -567,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34028.jpg" />
 </div>
 
 
@@ -594,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34012.jpg" />
 </div>
 
 
@@ -621,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33948.jpg" />
 </div>
 
 
@@ -633,59 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F4B15B33FAF53BFCBBAF8DD85E86B48B8E04A58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766311   (33911) от 17.12.2024
-
-Я. Шкержик | Рецептурный справочник для электротехника. Издание третье (1989) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочник содержит рецептуру и описание способов приготовления различных средств для очистки металлов, стекла, фарфора и других материалов, обработки их поверхности (термической обработки, полирования, травления, окрашивания, гальванических и химических покрытий), пайки и сварки, клеев и шпатлевок, составов для сушки и охлаждения.
-Для работников электротехнической (   Читать дальше...   )Жанр: справочник, электротехника, учебное пособиеИздательство: ЭнергоатомиздатФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6D71C7C9FBA308CF6E2B3B7F77ECD61032FFE78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766495   (33775) от 18.12.2024
-
-Р. Тиль | Электрические измерения неэлектрических величин (1987) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основное внимание в книге уделено собственно измерениям неэлектрических величин: методам измерений, схемным вопросам, касающимся процесса измерений, начиная от получения измерительной информации, необходимых преобразований измерительных сигналов, погрешностям измерений, помехам и др. В книге нашли отражение современные технические средства, применяемые для измерений. (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: ЭнергоатомиздатФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C75CC562804504992E239928FEAF3FC923CC93
 ```
 
 https://mybot314.ru/tekegram_catalog/

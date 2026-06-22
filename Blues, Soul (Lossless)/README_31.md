@@ -6,7 +6,7 @@ The Paul DesLauriers Band - Relentless (2016) [FLAC|Lossless|tracks + .cue] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896420.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Five Horse Johnson - The Taking of Black Heart (2013) [FLAC|Lossless|tracks + .c
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896404.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Nellie Lutcher - The Best Of Nellie Lutcher (1995) [FLAC|Lossless|tracks + .cue]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896390.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Sugaray Rayford - Dangerous (2013) [FLAC|Lossless|tracks + .cue] <Electric Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895826.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Pat McManus Band - Walking Through Shadows (2011) [APE|Lossless|image + .cue] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894829.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Big Allanbik - Blues Special Reserve (1998) [FLAC|Lossless|image + .cue] <Blues,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893138.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Cuby & The Blizzards - Grolloo Blues (Live) (2021) 2CD [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892552.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Hot'n'Nasty - Burn (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892455.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Roomful Of Blues - In A Roomful Of Blues (2020) [FLAC|Lossless|tracks+ .cue] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891886.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Albert Cummings - 8 Albums (1999 - 2020) [FLAC|Lossless|tracks + .cue|image + .c
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891674.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ The Dirtboxwailers - The Dog Day Afternoon Demo (2013) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891418.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Dale Alan Niehaus and Bad Mojo - Rollin' Down to Memphis (2015) [FLAC|Lossless|W
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891412.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ The Fabulous Thunderbirds - The Essential Fabulous Thunderbirds (1991) [WavPack|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891407.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Johnnie Red & The Roosters - In the Red Zone (2021) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890539.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Rob Alley - Also-Ran Bluesman (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890538.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Rachael King - The Fires In My Head (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890534.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Vidar Busk & His True Believers - Civilized Life (2021) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890526.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Robert Jon & the Wreck - Shine a Light on Me Brother (2021) [FLAC|Lossless|WEB-D
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890481.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Tas Cru - Broke Down Busted Up (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890416.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Ghost Hounds - A Little Calamity (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890398.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ John Hiatt & The Goners - Live in Switzerland 2003 (2014) [FLAC|Lossless|image +
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887942.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ R.J. Hiorns - Truth or Consequence (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887935.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ J.P. & the Voodoo Blues - Live at the Strand (2017) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887911.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Jesca Hoop - Memories Are Now (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Indie
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887876.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Left Lane Cruiser - Beck in Black (2016) [FLAC|Lossless|tracks + .cue] <Blues-Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887807.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ Stevie Ray Vaughan - Up From The Skies (1996) [FLAC|Lossless|tracks + .cue] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887789.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1012366   (639474) от 10.07.2016
+
+Рокки Джонс, космический рейнджер / Rocky Jones, Space Ranger (1954) VHSRip [H.264] (сезон 2, серии 1-16 из 16) (Трамвай-фильм)
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Зарубежная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй сезон приключений Рокки Джонса и его товарищей по службе космической безопасности.Производство: США / Roland Reed Productions, Space Ranger EnterprisesЖанр: фантастика, приключения, семейныйРежиссер: Холингсворт МорсАктеры: Ричард Крейн, Салли Менсфилд, Роберт Лиден, Морис Касс, Реджинальд Шеффилд и др.Перевод: Одноголосый закадровый, авторский - Трамвай-фильмПродолжительность: ~00:26:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84A761FA9DB7FEAC0CEA8D387732967F7F6A1C9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228233   (639134) от 30.05.2018
 
 Заговор (1971) SATRip (3 серии из 3-х)
@@ -6,7 +32,7 @@
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639134.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633526.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633334.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631662.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631001.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622414.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619565.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618655.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610971.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_610911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_610911.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601947.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_600344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_600344.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_598980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_598980.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598596.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598588.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596765.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594824.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592202.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591929.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590470.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583612.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583350.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578955.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575715.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572152.jpg" />
 </div>
 
 
@@ -656,33 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFBFA662E5B391E40DE9BFB54BFC167AB3DC26E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301229   (571987) от 21.05.2019
-
-Графиня де Монсоро / La dame de Monsoreau (1971) DVDRip [H.264] (серии 1-7 из 7) Film Prestige, ЦТ СССР
-
->>Классика сериалов и многосерийное кино до 90-х
->>Зарубежная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франция конца XVI века, царствование короля Генриха Третьего, могущественное лотарингское семейство де Гизов надеется возвести на трон его брата, герцога Анжуйского. Но королевский шут Шико, умный и проницательный человек, находится в курсе всех интриг и заговоров.
-Приближенный герцога Анжуйского, лучшая шпага королевства отважный граф де Бюсси вступает в серьезный (   Читать дальше...   )Производство: Франция / TELECIPЖанр: Драма, Приключения, ИсторическийРежиссер: Янник АндреиАктеры: Карин Петерсен, Николя Зильбер, Дени Манюэль, Мишель Кретон, Жерар Бернер, Франсуа Мэтр, Мария Мерико, Жан-Луи Брус, Мирей Одибер, Даниэль Дерваль и др.Перевод: Многоголосый закадровый, профессиональный (Film Prestige, ЦТ СССР)Субтитры: русскиеПродолжительность: ~ 00:55:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BDC5D9FE7A5B62D0F6A959056DAA134A6519F8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

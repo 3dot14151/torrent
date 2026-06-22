@@ -1,3 +1,108 @@
+###  Публикация: 1268194   (229410) от 09.12.2018
+
+24/7 на космической станции / 24/7 On a Space Station (2018) DVB
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Международная космическая станция (МКС) - это, несомненно, самый амбициозный орбитальный проект из всех когда-либо осуществлявшихся на земле. Этот огромный комплекс смонтированных в одно целое конструкций занимает площадь в 9700 квадратных метров, позволяя будущим астронавтам подготовиться к длительному пребыванию в космосе в условиях невесомости, что совершенно (   Читать дальше...   )Производство: Франция, National GeographicЖанр: Документальный, исследование, космосРежиссер: Томас РишПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2767A4A5A6FA5E29DD8C68D33C034B9E8CB6FEF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329658   (228986) от 28.07.2023
+
+NGW: Поместье луговой собачки / Prairie Dog Manor (2019) HDTV [H.264/1080i] (серии 12 из 12)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Луговых собачек относят к типичным обитателям равнин, раскинувшихся в западной части Северной Америки. Забавные зверьки входят в семейство беличьих. До начала освоения поросших травами территорий численность проживавших в этих пределах животных достигала 100 млн. особей.
+Сериал позволит вам глубже заглянуть в мир луговых собачек, обитающих на севере штате Нью-Мексико (   Читать дальше...   )Производство: США, Radley Studios, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Бью НилссонПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:166E4473161CE3614F20A58C4DF0EC7C2036D5FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343326   (228958) от 28.07.2023
+
+NG. Путешествия с Гордоном Рамзи / Gordon Ramsay Uncharted (2019) HDTV [H.264/1080i-LQ] (Сезон 1, серии 6 из 6)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гордон Рамзи поставил перед собой задачу погрузиться в новые культуры, блюда и запахи. От Перу и Марокко до Гавайев, Аляски и Новой Зеландии, Рамзи пробирается по лесам и долинам, погружается в океаны, карабкается по горам в своих путешествиях по миру для изучения кулинарных особенностей разных народов.Производство: Великобритания, Studio Ramsay, Disney+, National Geographic ChannelЖанр: Документальный, познавательный, путешествияРежиссер: Алистер СмитУчастники: Гордон Рамзи, Шелдон Симеон, Мишель КостеллоПеревод: Одноголосый закадровый, профессиональныйСубтитры: Английские (неотключаемые, на отличную от английской речь)Продолжительность: серии x ~00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E18CAEF021E32ECCDE69955B8F9FF3958B04AA55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 214519   (228950) от 28.07.2023
+
+NG: Последствия: Преданные Солнцем / Aftermath: Betrayed by the sun (2010) SATRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наше Солнце не вечно. Через миллиарды лет оно умрет - превратится в огромного красного гиганта и поглотит Землю. Что будет с землей если Солнце станет красным карликом прямо сегодня, на наших глазах, и как мы будем справляться с последствиями?Жанр: ДокументальныйПеревод: Одноголосый профессиональныйПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C47BA8AE825302CFFA378D5CF5E498BEC995834D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499582   (228935) от 28.07.2023
 
 NG. Путешествия с Гордоном Рамзи / Gordon Ramsay - Uncharted (2021) HDTVRip [H.264/1080i] (Сезон 3, серии 1-10 из 10)
@@ -6,7 +111,7 @@ NG. Путешествия с Гордоном Рамзи / Gordon Ramsay - Unch
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228935.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228597.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ NGW. Дикая Африка: династии / Africa's Wild Side. Dynasties (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228471.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228370.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ NG. В погоне за равноденствием / Chasing the Equinox (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226964.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ NG: Злоключения за границей / Banged up Abroad (2020) IPTV 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224964.jpg" />
 </div>
 
 
@@ -163,7 +268,7 @@ NGW: Медвежья школа / Bearhood (2014) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224819.jpg" />
 </div>
 
 
@@ -189,7 +294,7 @@ NGW: Самые странные в мире: ползучие целители 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224750.jpg" />
 </div>
 
 
@@ -215,7 +320,7 @@ NGW: Дикие места Африки. Рожденные выживать / A
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224721.jpg" />
 </div>
 
 
@@ -242,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223097.jpg" />
 </div>
 
 
@@ -268,7 +373,7 @@ NGW. Странная природа: сумасброды / Stranger than Natur
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220981.jpg" />
 </div>
 
 
@@ -294,7 +399,7 @@ NG: Осушить океан: Подводные лодки-убийцы / Drai
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220832.jpg" />
 </div>
 
 
@@ -320,7 +425,7 @@ NG:  В поисках Атлантиды / Finding Atlantis (2011) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220809.jpg" />
 </div>
 
 
@@ -348,7 +453,7 @@ NG: Затерянные сокровища Египта / Lost Treasures of Egy
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220650.jpg" />
 </div>
 
 
@@ -374,7 +479,7 @@ NG. Потерянный и найденный / Lost and Found (2019) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219715.jpg" />
 </div>
 
 
@@ -400,7 +505,7 @@ NG. Петра: тайны древних строений / Petra. Secrets of t
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219602.jpg" />
 </div>
 
 
@@ -426,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219451.jpg" />
 </div>
 
 
@@ -452,7 +557,7 @@ NGW: Зов малыша белухи / Call of the Baby Beluga (2016) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217814.jpg" />
 </div>
 
 
@@ -478,7 +583,7 @@ NG: От Парижа до Питтсбурга / Paris to Pittsburgh (2018) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217659.jpg" />
 </div>
 
 
@@ -504,7 +609,7 @@ NG: Инстинкт выживания. Экстремальные джунгл
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217213.jpg" />
 </div>
 
 
@@ -530,7 +635,7 @@ NG. Тутанхамон: Цветная Версия / King Tut In Colour (2020
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216385.jpg" />
 </div>
 
 
@@ -556,7 +661,7 @@ NGW: Самые мощные челюсти / World's Deadliest Bite (2021) WEBR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215134.jpg" />
 </div>
 
 
@@ -567,110 +672,6 @@ NGW: Самые мощные челюсти / World's Deadliest Bite (2021) WEBR
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F8B65CB5BA34E0C233764990D8AB5FB31F5152C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915423   (214854) от 19.12.2015
-
-National Geographic. Взлом системы / Hacking the System (2014) IPTVRip [Серии 1-12 из 12]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брайан Брашвуд  сделал карьеру, думая, как преступник, и теперь он здесь, чтобы показать нам, как избегать людей, которые обманывают систему. Кроме того, он будет давать нам юридические советы и рассказывать о разных уловкахТелекомпания: США, National GeographicЖанр: Документальный, ТелепередачаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: Серия по ~00:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A1D981E9377CED3DEEEE83E50EBCA219355623
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270425   (214041) от 18.12.2018
-
-NGW: Вдоль по Окаванго / Into the Okavango (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда молодых исследователей отправляется в свое первое эпическое четырехмесячное путешествие вдоль реки Окаванго. Им предстоит преодолеть расстояние в 1500 миль и пересечь три страны, чтобы сделать свой вклад в спасение уникальной речной системы, питающей дельту реки Окаванго, эту одну из последних оставшихся на земле диких заболоченных территорий.Производство: США, Ангола, Ботсвана, Намибия, Южная Африка, США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Нил ГелинасПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 01:33:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F9A6CC618EB1FB5D9BE043CF0C9B45E906C83EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560648   (212938) от 01.07.2022
-
-Инстинкт выживания / Primal Survivor (2019) WEB-DL [H.264/1080p] (сезон 4, серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Его зовут Хэйзен Одел и он - инструктор по выживанию и проводник по дикой местности. Он жил и обучался в разных племенах по всему миру, благодаря чему он овладел удивительными методами выживания в природе, свойственных коренному населению. Теперь он путешествует по самым удаленным уголкам планеты, чтобы подвергнуть суровым испытаниям свои знания, навыки и выносливость (   Читать дальше...   )Производство: Великобритания, Icon Films, National GeographicЖанр: документальный, приключения, экстримРежиссер: Стивен Ширман, Клер ДорнанПеревод: одноголосый профессиональный (Велес)Субтитры: английскиеПродолжительность: 3x ~00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F13533DAAEC2809EF168299CB072B98458460A1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565853   (211932) от 26.07.2022
-
-NG. Прекрасная Америка / America the Beautiful (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) [VO]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал показывает захватывающие дух пейзажи и дикую природу Америки, у которой уникальная география. Рассказывает Майкл Б. Джордан.Производство: США / National Geographic, Disney+Жанр: Документальный, приключения, природаРежиссер: Tom StephensПеревод: Одноголосый профессиональный (Jaskier)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: ~00:48:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CE43980BC97B24ADDDC29D5B2434848792629F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

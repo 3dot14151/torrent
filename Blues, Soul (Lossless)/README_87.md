@@ -6,7 +6,7 @@ Jan James - Time Bomb (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236540.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Damian Lewis - Mission Creep (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236529.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Mizz Lowe - Classy Woman (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236499.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Mike Guldin and Rollin' & Tumblin - The Franklin Sessions (2023) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236482.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ White Noise Band - Bite the Road (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236450.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Jack Biilmann - Divided Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236401.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Taj Mahal - Savoy (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236385.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Gov't Mule - Peace...Like A River (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236330.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Jabo - Jabo Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236305.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Charlie A’Court - A’Court, Spiegel, & Vinnick (2023) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_236278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_236278.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Boo Boo Davis - The Trio 2008 - 2019 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_236270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_236270.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Larry Taylor and The Taylor Family - Generations of Blues_ West Side Legacy (202
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236266.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ HeavyDrunk - You Don't Know Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236163.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Ashley Sherlock - Just A Name (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236038.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Micke Bjorklof & Blue Strip - Colors of Jealousy (2023) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236023.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Single Malt 15 - Full Throttle (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235957.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Grainne Duffy - Dirt Woman Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235920.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ T-Model Ford - Jack Daniel Time (2008) [FLAC|Lossless|tracks + .cue] <Delta Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_235908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235908.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Arlen Roth, Jerry Jemmott - Super Soul Session! (2023) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235831.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Granvil Poynter - Cigarettes and Gin (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235811.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ The Fake Cousins - The Set-Up (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235785.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Russell Traywick - Lost (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235758.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ The Bluesland Horn Band - SIX (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235742.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Ana Popovic - Power (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235717.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Roy Buchanan - Roy’s Bluz (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235693.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Silky Soul Cowgurl'z - Trailride (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, So
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235547.jpg" />
 </div>
 
 

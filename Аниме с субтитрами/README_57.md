@@ -1,3 +1,29 @@
+###  Публикация: 1278091   (638819) от 02.04.2019
+
+Endro! / Эндро! [2019, TV, 12] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638819.jpg" />
+</div>
+
+
+###  Подробнее
+
+На волшебном острове Нарал мирно (или не очень) сосуществуют люди и монстры. А ещё здесь живёт ужасный Повелитель Демонов, который примерно раз в поколение возрождается и огребает от очередного героя. Для искателей приключений здесь есть специальная школа, и в ней учатся четыре девочки: Юща, у которой имеются героические задатки, Сейла, слишком серьёзная для собственного (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: КаориЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F16FF3A6D817C310E6C2D2117E3ADB865F95ABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276230   (638818) от 02.04.2019
 
 Date a Live III / Рандеву с Жизнью 3 [2019, TV, 12] HDTV 720p raw
@@ -6,7 +32,7 @@ Date a Live III / Рандеву с Жизнью 3 [2019, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638818.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Kaguya-sama wa Kokurasetai: Tensai-tachi no Ren`ai Zunousen / Kaguya-sama: Love 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638719.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Hakozume: Kouban Joshi no Gyakushuu | Police in a Pod | Девушки-поли�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638496.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Vanitas no Karte | The Case Study of Vanitas | Мемуары Ванитаса [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638488.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Onigiri / Онигири [2016, TV, 13 из 13] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638136.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Wagamama High Spec [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637940.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ Melty Lancer | Melty Lancer: The Animation | Мелти Лансер [1999, OVA,
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637757.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ Robot Carnival | Карнавал роботов [1987, OVA, 9 эп.] DVDRip 480
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637431.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ Kemono Friends 2 | Друзья-зверушки | Ушастые друзья [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636900.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ Bubuki Buranki | BBK/BRNK | Бубуки/Буранки [2016, TV, 24 эп.] WEB
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636814.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ Soredemo Sekai wa Utsukushii | SoreSeka | The World Is Still Beautiful | И вс
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636389.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ Seikoku no Dragonar | Dragonar Academy | Академия Драконов [2014
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636090.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ Joker Game / Игра Джокера [2016, TV, 12 из 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634127.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ Kyuuketsuki Sugu Shinu | The Vampire Dies in No Time | Этот вампир п�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633435.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ Tsuki to Laika to Nosferatu | Irina: The Vampire Cosmonaut | Луна, Лайк�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633298.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ Death March kara Hajimaru Isekai Kyousoukyoku | Death March to the Parallel Worl
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633236.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ Fate/Grand Order: Shuukyoku Tokuiten - Kani Jikan Shinden Solomon | Судьба
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633170.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ Sekai Saikou no Ansatsusha, Isekai Kizoku ni Tensei Suru | Лучший в ми�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633167.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ Cider no You ni Kotoba ga Wakiagaru | Words Bubble Up Like Soda Pop | Слова
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633160.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ Tokyo 24-ku | Tokyo 24th Ward | Токио: 24-й район [2022, TV, 12 эп.
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632935.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ Bungaku Shoujo - Kyou no Oyatsu ~Hatsukoi~ / Book Girl / Книжная лако
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632450.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ Beelzebub / Beelzebub / Вельзевул (Бесопуз) [2011, TV, 60 из 6
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632272.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ Higurashi no Naku Koro ni Kai / When They Cry II: Solutions / Когда пла�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632079.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ Harukana Receive | Харука и Каната принимают подачу 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631851.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ Tonari no Kyuuketsuki-san | Ms. Vampire Who Lives in My Neighborhood. | Госп
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631699.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ Tonari no Kyuuketsuki-san | Ms. Vampire Who Lives in My Neighborhood. | Госп
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:926B4EFD69E652AC989E8C3610A2895F703FFBEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286527   (631693) от 06.04.2019
-
-SSSS.Gridman | Гридмен [2018, TV, 12 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юта Хибики, ученик первого класса старшей школы, однажды просыпается и выясняет, что потерял память. И ещё он обнаруживает «Гиперагента Гридмана» в своём старом компьютере. Последний заявляет, что у школьника есть некая миссия, и тот отправляется выяснять, в чём же она заключается, и заодно с чего это вдруг у него амнезия. Рядом с Ютой всегда его друзья Що Уцуми, (   Читать дальше...   )Производство: студия Trigger / トリガーЖанр: приключения, фантастика, мехаРежиссер: Амэмия АкираПеревод: SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45FBECC593C044CB9AA81CFE814C30F01A6B9A38
 ```
 
 https://mybot314.ru/tekegram_catalog/

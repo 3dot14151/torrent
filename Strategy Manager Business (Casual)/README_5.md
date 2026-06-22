@@ -1,3 +1,29 @@
+###  Публикация: 478536   (86596) от 05.04.2012
+
+Legends of Atlantis: Exodus (P) [En] 2012
+
+>>Win Игры
+>>Strategy/Manager/Business (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы оказываетесь на мифическом континенте Атлантида на краю ее неизбежной гибели. Помогите спастись древним атлантам прежде, чем катастрофа погрузит города в пучину океана! Расчищайте завалы, вырывайте каналы, отгоняйте врагов и стройте новые дороги, чтобы вызволить из ловушки жителей. Продвигайтесь через пять локаций и 50 уровней, восстанавливая по пути бесценные реликвии прежде, чем они навсегда будут потеряны в летописях истории. У мини игры Legends of Atlantis: Exodus есть все, чтобы понравиться даже самому требовательному геймеру. Вы думаете, что видели уже все самые лучшие логические игры и детские игры? Эта игра точно изменит ваше мнение про казуальные игры. (   Читать дальше...   )Тип издания: ПираткаЖанр: Бизнес-симулятор, Аркада, КазуальнаяЯзык озвучки: n/a (отсутствует)Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD524E05600F1F0FE161295F8CF20BB7DF39633F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 478515   (86532) от 05.04.2012
 
 Shannon Tweeds: Attack of the Groupies (P) [En] 2012
@@ -6,7 +32,7 @@ Shannon Tweeds: Attack of the Groupies (P) [En] 2012
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86532.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Party Planner (P) [En] 2009
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86298.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ School house Shuffle (P) [En] 2008
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86102.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Monument Builders: Titanic (P) [En] 2012
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84694.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Katty and Bob: Tropical Rush / Кэти и Боб. Вперед домой (P) [
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81048.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Delicious 7: Emily's True Love. Premium Edition / Деликатесы Эмил�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80866.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80008.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Kingdom Rush: Frontiers (2016) [Ru/Multi] (4.2.33) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55902.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Kingdom Rush (2014) [Ru/Multi] (5.6.12) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55842.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ TasteMaker: Restaurant Simulator (2021) [Multi] (1.0.3) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55177.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ New Yankee 14: Through the History Mirror / Янки 14: Сквозь зерка
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51455.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51324.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ New Yankee 13: Mary's Dark Side / Янки 13: Темная сторона Мэ�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51309.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Age of Defense (2019) [En] (1.15) Scene Tenoke
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46972.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Passpartout 2: The Lost Artist (2023) [Multi] (20240110) Scene Tenoke
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46568.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ The Lullaby of Life (2024) [Ru/Multi] (1.0.7.0) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46557.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Kingdom Rush Vengeance (2020) [Ru/Multi] (1.16.0.56/dlc) Scene Tenoke
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43609.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Kingdom Rush Vengeance (2020) [Ru/Multi] (1.16.0.56/dlc) Repack FitGirl
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43075.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Cobalt Core (2023) [Ru/Multi] (1.2.4) Scene Tenoke
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40119.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Bear and Breakfast (2022) [Multi] (1.8.29) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33117.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Deck of Souls (2024) [Multi] (1.0.6) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32554.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Water Park Tycoon (2014) [En] (1.2.4) Scene TiNYiSO
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29348.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Kingdom Rush 5: Alliance TD (2024) [Ru/Multi] (4.00.54/dlc) Scene Tenoke
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28644.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Hero of the Kingdom III / Герой Королевства III (2018) [Ru/Multi
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28182.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Hero of the Kingdom: The Lost Tales 1 / Герой Королевства: Ут�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28180.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Hero of the Kingdom: The Lost Tales 1 / Герой Королевства: Ут�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFEACDBF9ADF3E456CC4E6C8EE2769C4A81BAB19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726907   (28179) от 09.02.2025
-
-Hero of the Kingdom: The Lost Tales 2 / Герой Королевства: Утраченные Сказания 2 (2021) [Ru/Multi] (1.2.9) License GOG
-
->>Win Игры
->>Strategy/Manager/Business (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Избавьте свой город от великого зла и станьте принцессой-героиней. Будучи принцессой, вы отправились в небольшое приключение за городские стены под видом бродяги. Однако вернуться домой будет не так просто. Город объят огнём, и на улицах бесчинствуют полчища неизвестных монстров. Люди в панике покидают свои дома и ищут спасения от гибельной угрозы. Но это ваш город (   Читать дальше...   )Тип издания: LicenseРазработчик: Lonely TroopsЖанр: Приключенческие игры, Казуальные игры, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7B262343D06323282F90A74C5158A5F062D1E29
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Within Temptation - Videos and Live - Essentials (Compilation) (2021) Blu-ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024853.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023582.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022365.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021579.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020483.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019266.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018532.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018346.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015771.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Eagles: Live from the Forum MMXVIII (2020) BDRip [H.265/1080p-LQ] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015718.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Nightwish: Decades - Live in Buenos Aires (2019) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015714.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014812.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014521.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ New Order – Education Entertainment Recreation (2021) BDRemux [H.264/1080i] [E
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014487.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Motley Crue: The End – Live in Los Angeles (2016) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014112.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Motley Crue - The End: Live in Los Angeles (2016) BDRip [H.264/1080p-LQ] [EN]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013806.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011265.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ One Desire - One Night Only - Live In Helsinki (2021) ВDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011097.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Joe Bonamassa - Now Serving - Royal Tea Live From The Ryman (2021) BDRemux [H.26
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011083.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010122.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009651.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Toto: С небольшой помощью моих друзей / Toto: With A 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008824.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008680.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007566.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ ZZ Top - Live At Montreux 2013 (2014) BDRip [720p] [hand made 60fps]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004654.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004429.jpg" />
 </div>
 
 

@@ -1,3 +1,108 @@
+###  Публикация: 742902   (487581) от 29.08.2018
+
+Трилогия Безумный Макс / Trilogy Mad Max (1979/1981/1985) 3-Disc Blu-ray CEE [1080p]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487581.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недалёком будущем, после крупной катастрофы, поразившей нашу урбанистическую цивилизацию, вся жизнь сосредоточилась вдоль бесчисленных магистралей...
+Дорога стала способом существования. И дала многим возможность проявлять свои самые жестокие инстинкты. В роли Макса - Мел Гибсон, тогда ещё мало известный широкой публике.Производство: Австралия, Warner Brothers Entertainment, Kennedy Miller Productions, Mad Max Films.Жанр: фантастика, боевик, триллер, приключения.Режиссер: Джордж Миллер, Джордж Огилве.Актеры: Мэл Гибсон,  Брюс Спенс, Адам Кокберн, Тина Тёрнер, Фрэнк Тринг, Анджело Росситто, Пол Ларссон, Энгри Андерсон, Роберт Грубб, Джордж Спартелс.Перевод: ДубляжСубтитры: English, Arabic, Chinese, Croatian, Czech, Dutch, Finnish, French, German, Greek, Icelandic, Hebrew, Hungarian, Italian, Japanese, Korean, Norwegian, Polish, Portuguese, Romanian, Russian, Serbian, Slovenian, Spanish, Swedish, Thai, Turkish.Продолжительность: 01:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB471F1A57E883AB0C7475576DD40FE506F37161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 237176   (486711) от 18.09.2010
+
+Остин Пауэрс: Коллекция / Austin Powers Collection: Shagadelic Edition (1997-2002) BDRip
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Боевик, Комедия, ПриключенияРежиссер: Джей РоучАктеры: Майк Майерс, Бейонсе Ноулз, Сет Грин, Майкл Йорк, Роберт Вагнер, Мелинда Стерлинг, Верн Тройер, Майкл Кейн, Фред Сэвадж, Дайан Мизота...Перевод: Дублированный + Авторский закадровый (Е.Гранкин)Продолжительность: 01:34:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544741   (486235) от 09.09.2012
+
+Люди в черном 1,2,3 / Men in Black I,II,III (1997,2002,2012) BDRip
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агент Джей узнает, что никакого защитного галактического щита, способного отразить иноземный удар, не существует. Агент Кей не построил его, потому что был убит в 1969 году. Агент Джей должен совершить путешествие во времени, чтобы спасти Землю и жизнь напарника.Жанр: Фантастика, боевик, комедия, приключенияРежиссер: Барри ЗонненфельдАктеры: Уилл Смит, Джош Бролин, Томми Ли Джонс, Джемейн Клемент, Эмма Томпсон, Майкл Стулбарг, Майк Колтер, Николь Шерзингер, Майкл Чернус, Элис ИвПеревод: ДублированныйПродолжительность: 01:45:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D823CCC64960810AC56A23BB35584AD0C440D49E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 821762   (485634) от 15.09.2014
+
+Матрица: Трилогия / The Matrix: Trilogy (1999-2003) HDDVDRip [H.264/1080p-LQ] [10-bit]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: США, АвстралияЖанр: Фантастика, Боевик, ПриключенияРежиссер: Энди Вачовски, Ларри ВачовскиАктеры: Киану Ривз, Лоуренс Фишборн, Кэрри-Энн Мосс, Моника Беллуччи, Хьюго Уивинг, Глория Фостер, Джо Пантолиано, Маркус Чонг, Джулиан Араханга, Мэтт Доран, Белинда МакКлори, Энтони Рэй Паркер, Пол Годдар, Роберт Тейлор, Дэвид Эстон, Марк Грэй, Ада Никодему, Денни Гордон, Роуэн Уитт, Эленор Уитт, Тамара Браун, Яная Пендер, Джада Пинкетт Смит, Рэй Энтони, Кристин Ану, Энди (   Читать дальше...   )Перевод: Дублированный, Многоголосый, Двухголосый, Авторский, ЛюбительскийЯзык субтитров: Русский x2, Украинский, АнглийскийФормат: MKVПродолжительность: 02:17:05, 02:18:17, 02:09:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:180C2DA5355F252C906D13C5C766E99C6335F98D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 440163   (485123) от 16.09.2015
 
 Великолепная семерка: Квадрология / The Magnificent Seven: Quadrilogy (1960 - 1972) BDRip [H.264/1080p]
@@ -6,7 +111,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485123.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478739.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477262.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475908.jpg" />
 </div>
 
 
@@ -113,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475412.jpg" />
 </div>
 
 
@@ -139,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475409.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473879.jpg" />
 </div>
 
 
@@ -191,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473876.jpg" />
 </div>
 
 
@@ -217,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473872.jpg" />
 </div>
 
 
@@ -243,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470284.jpg" />
 </div>
 
 
@@ -272,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468552.jpg" />
 </div>
 
 
@@ -299,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464628.jpg" />
 </div>
 
 
@@ -325,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464529.jpg" />
 </div>
 
 
@@ -351,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462204.jpg" />
 </div>
 
 
@@ -379,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459336.jpg" />
 </div>
 
 
@@ -405,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458802.jpg" />
 </div>
 
 
@@ -431,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457049.jpg" />
 </div>
 
 
@@ -457,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456760.jpg" />
 </div>
 
 
@@ -483,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455067.jpg" />
 </div>
 
 
@@ -509,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452188.jpg" />
 </div>
 
 
@@ -536,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451785.jpg" />
 </div>
 
 
@@ -562,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_449960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_449960.jpg" />
 </div>
 
 
@@ -573,115 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552412   (447552) от 26.09.2012
-
-Матрица: Трилогия / Matrix: Trilogy (1999-2003) [720p] BDRip
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пока армия Машин пытается уничтожить Зион, его жители из последних сил держат оборону. Но удастся ли им предотвратить полное вторжение в город кишащей орды беспощадных машин до того, как Нео соберет все свои силы и положит конец войне?Жанр: Фантастика, Боевик, ТриллерРежиссер: Энди Вачовски, Ларри ВачовскиАктеры: Кеану Ривз, Кэрри-Энн Мосс, Лоуренс Фишборн, Хьюго Уивинг, Джада Пинкетт Смит, Глория Фостер, Моника Беллуччи, Рэй Энтони, Кристин Ану, Энди Арнесс, Алима Эштон-Шейбу, Гельмут Бакаитис, Стив Бастони, Дон Бейти, Дэниэл Бернхард, Валери Берри, Йен Блисс, Лилиана Богатко, Майкл Бадд, Стоуни Бурк, Келли БатлерПеревод: Дублированный, Русский одноголосыйЯзык субтитров: Русские, Украинские, АнглийскиеПродолжительность: 02:09:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 242843   (447328) от 07.10.2010
-
-Чужой Квадрология (1-4) / Alien Quadrilogy (1979 / 1986 / 1992 / 1997) [720p] BDRip
-
->>След.
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя 200 лет со дня гибели лейтенанта Рипли. Военные ученые, в погоне за созданием совершенного оружия, возвращают ее к жизни методом клонирования. Кровь Рипли несет в себе образцы ДНК "чужих", и военные хотят заставить ее родить им ребенка - наполовину человека, наполовину "чужого". Как бы не хотела Рипли прервать этот эксперимент, детеныш (   Читать дальше...   )Жанр: Ужасы, фантастика, боевик, триллерРежиссер: Жан-Пьер ЖенеАктеры: Сигурни Уивер, Уайнона Райдер, Рон Перлмэн, Брэд Дуриф, Дэн Хедайя, Майкл Уинкотт, Дж. И. Фримэн, Рэймонд Крус, Лилэнд Орсер, Доминик Пинон, Ким Флауэрс, Гэри Дурдэн...Перевод: Профессиональный (многоголосный закадровый), Одноголосный закадровыйСубтитры: Русские, английские, CommentsПродолжительность: 01:55:49  | 02:34:26 | 02:24:52 | 01:56:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 391008   (446956) от 22.09.2011
-
-Чернокнижник: Дилогия / Warlock: Dilogy (1988, 1993) HDTVRip / DVDRip
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чернокнижник, единственный сын Сатаны, вернулся, чтобы найти шесть магических камней, которые были потеряны на протяжении веков. Вместе эти камни создают страшную силу, которая отдает мир во власть Сатаны. В распоряжении Чернокнижника только 7 дней (между солнечным и лунным затмениями), и он неумолим в своих поисках.
-
-Сила его магии растет по мере получения каждого (   Читать дальше...   )Жанр: Ужасы, Фэнтези, БоевикРежиссер: Энтони ХикоксАктеры: Джулиан Сэндс, Крис Янг, Пола Маршалл, Джоанна Пакула, Стив Кэхэн, Р.Г. Армстронг, Чарльз Хэллахан, Брюс Гловер, Крэйг Хёрли, Дэвис ГейнсПеревод: Многоголосый закадровыйПродолжительность: 01:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36931C5019E9E8C3D79DC5C129063F200ED2AB9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322594   (445876) от 30.08.2019
-
-Хоббит / The Hobbit (2012-2014) BDRip [H.264/1080p] [Extended Cut] [Трилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445876.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Хооббит» — поставленная режиссёром Питером Джексоном серия из трёх связанных единым сюжетом кинофильмов, представляющая собой экранизацию повести Дж. Р. Р. Толкина «Хоббит, или Туда и обратно».
-Трилогия состоит из фильмов:
-«Хоббит: Нежданное путешествие» (The Hobbit: An Unexpected Journey, 2012)
-«Хоббит: Пустошь Смауга» (The Hobbit: The Desolation of Smaug, 2013)(   Читать дальше...   )Производство: США, Новая Зеландия / Metro-Goldwyn-Mayer (MGM), New Line Cinema, WingNut FilmsЖанр: фэнтези, приключения, семейныйРежиссер: Питер ДжексонАктеры: Мартин Фриман, Иэн МакКеллен, Ричард Армитедж, Джеймс Несбитт, Кен Стотт, Грэм МакТавиш, Дин О’Горман, Эйдан Тернер, Джед Брофи, Марк ХэдлоуПеревод: ДублированныйСубтитры: русские (Full, Forced на речь эльфов), английскиеПродолжительность: 03:02:30 / 03:06:35 / 02:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA35C0497C1CE6AAF43AB7CFCB5505EC57E21368
 ```
 
 https://mybot314.ru/tekegram_catalog/

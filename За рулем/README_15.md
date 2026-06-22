@@ -1,3 +1,107 @@
+###  Публикация: 796587   (681060) от 16.06.2014
+
+Discovery. Махинаторы (Автодилеры) / Wheeler Dealers (2014) HDTVRip [H.264/720p-LQ] (Сезон 11, серии 1-7 из 15)
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Суть передачи такова: ведущий покупает старенькую машину-автоклассику за небольшие деньги и передает ее механику-профессионалу, чтобы тот, в свою очередь, восстановил ее до приличного состояния, уложившись при этом в определенный бюджет. Далее ведущий попытается продать авто, за сумму перекрывающую расходы на ее покупку и ремонт, и постарается остаться даже в небольшой (   Читать дальше...   )Производство: Attaboy TV LTD for Discovery ChannelЖанр: Документальный, научно-познавательный, автомобилестроениеРежиссер: Уоррен ГринПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 7x~ 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A036000BAA402651E50117914229BA7E30EDEB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113375   (680947) от 19.05.2017
+
+Мастерская «Фантом Уоркс» / FantomWorks (2014) HDTVRip [H.264/1080p] (сезон 2, серии 1-6 из 6) [AD]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэн Корот, бывший пилот-испытатель, надеется, что Fantomworks станет самой крупной в США мастерской по восстановлению классических автомобилей, которая работает с военной точностью. Вместо этого он выясняет, что при создании старых автомобилей «лучше, чем новые» - ничего не идет по плану. Очень качественно и довольно подробно рассказывают о том что делают.Производство: США. New Dominion PicturesЖанр: Реалити-шоу, автомобили, реставрация автомобилейПеревод: Одноголосный закадровый, профессиональныйПродолжительность: ~ 00:44:00 каждая серияРеклама: Присутствуют текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0226A81322220D7DC6D2A0F6B83AECDAB992D62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135709   (678828) от 20.05.2017
+
+Главная дорога (2017.05.20) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678828.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Главная дорога» — первая на российском телевидении информационная программа обо всем, что происходит на дорогах страны. Это полчаса полезной информации не только для автолюбителей, но и для пешеходов. В постоянной рубрике «Испытано на себе» зрителей ждут наглядные советы, как вести себя в сложных ситуациях на дорогах. Сложнейший курс контраварийной подготовки, адаптированный (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:32:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC9EAB239E0A020B8AB1ADC8FE7FBF05FF4634FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136017   (676738) от 21.05.2017
+
+Первая передача на НТВ. Автомобильная передача (2017.05.21) SATRip (выпуск 293)
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676738.jpg" />
+</div>
+
+
+###  Подробнее
+
+« Первая передача» — новый проект для автомобилистов и про автомобилистов. Ведущий «Первой передачи» — Виктор Травин, президент Коллегии правовой защиты автовладельцев. Уже много лет этот известный журналист защищает права автолюбителей. В автомире для него нет секретов и закрытых дверей. Всех, кто не представляет своей жизни без автомобиля, и тех, кто только задумывается (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаРежиссер: Роман ИовицаСубтитры: ОтсутствуютПродолжительность: ~ 00:34:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB79AE01BA51636228B3BE1E794ED553F374A5DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536454   (675137) от 12.03.2022
 
 Главная дорога (12.03.2022) SATRip
@@ -6,7 +110,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675137.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673293.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672777.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672204.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672068.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670576.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666655.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665422.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663357.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ Discovery: Братья Дизель / Diesel Brothers (2017) HDTVRip [H.264/108
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661203.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659095.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658965.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ Discovery. Махинаторы (Автодилеры) / Wheeler Dealers (2014) 
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658584.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657987.jpg" />
 </div>
 
 
@@ -374,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657804.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657776.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657159.jpg" />
 </div>
 
 
@@ -453,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655764.jpg" />
 </div>
 
 
@@ -480,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655728.jpg" />
 </div>
 
 
@@ -506,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650312.jpg" />
 </div>
 
 
@@ -532,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649358.jpg" />
 </div>
 
 
@@ -558,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648504.jpg" />
 </div>
 
 
@@ -569,112 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F0E48A1338042FDBC28EFCA55EF551BD37E0474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905949   (647547) от 07.06.2015
-
-Первая передача на НТВ. Автомобильная передача. Выпуск №211 (07.06.2015) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647547.jpg" />
-</div>
-
-
-###  Подробнее
-
-« Первая передача» — новый проект для автомобилистов и про автомобилистов. Ведущий «Первой передачи» — Виктор Травин, президент Коллегии правовой защиты автовладельцев. Уже много лет этот известный журналист защищает права автолюбителей. В автомире для него нет секретов и закрытых дверей. Всех, кто не представляет своей жизни без автомобиля, и тех, кто только задумывается (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаРежиссер: Роман ИовицаПродолжительность: ~ 00:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41424C3C199B3A50C143B5961CAE5A8FEBCA87FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541237   (646769) от 02.04.2022
-
-Главная дорога (02.04.2022) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Способы задержать пьяного водителя и подготовка машины к весне.
-«Главная дорога» — первая на российском телевидении информационная программа обо всем, что происходит на дорогах страны. Это полчаса полезной информации не только для автолюбителей, но и для пешеходов. В постоянной рубрике «Испытано на себе» зрителей ждут наглядные советы, как вести себя в сложных ситуациях (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:25:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:422BB6D64069080EA1B8044B0F779BAA871E6345
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227472   (646703) от 26.05.2018
-
-Главная дорога (26.05.2018) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646703.jpg" />
-</div>
-
-
-###  Подробнее
-
-В школу вождения "Главной дороги" заглянет известный актёр Сергей Писаренко, который найдёт правильную точку входа в поворот на "байке" и узнает много интересного в разгар мотосезона. А Андрей Федорцов и Денис Юрченков тем временем выяснят, чем обработать и как покрасить кузов машины, чтобы "не заржавело", ведь после зимы многие водители (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:32:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D214C61E373650A6434DCFC3A0EC0D2BCF4BB551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292575   (644975) от 30.03.2019
-
-Главная дорога (30.03.2019) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как выбрать безопасные диски и что делать со слепящим солнцем
-Пора переобуваться: выбираем безопасные диски. Почему надежные легкосплавные диски должны быть тяжелыми? Шины с доставкой: как не остаться без колес к сезону, покупая шины и диски через Интернет? Весеннее солнце и блики на асфальте дезориентируют водителей. Как избежать аварий в ясный день? Достали дорожные (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:32:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4909B4868C8267D87C28C5BA4D9D79D137C148A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

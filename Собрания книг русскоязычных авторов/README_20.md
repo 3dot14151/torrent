@@ -1,3 +1,56 @@
+###  Публикация: 1560218   (212999) от 28.06.2022
+
+Макс Вальтер | Сборник книг [12 книг] (2020-2022) [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инстинкт выживания - :С каждым днём Мешок подкидывает всё больше вопросов, а меня воспитали так, что я не могу оставить их без ответа.
+На горизонте замаячил новый враг и имя ему Координатор. Но кто он, откуда взялся и с какого перепугу решил, что может играть со мной? Вскоре я это выясню и тогда он пожалеет о своём выборе. К тому же отныне я не один, моя Ольга и (   Читать дальше...   )Жанр: Боевая фантастика, Попаданство, МистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C39654E1970670B186DB282E04B07CA98C4DF962
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560958   (212826) от 05.07.2022
+
+Анна Старобинец | Сборник произведений [18 книг] (2011-2022) [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анна Альфредовна Старобинец (р. 25 октября 1978) — журналистка и писательница, автор книг «Переходный возраст», «Убежище 3/9» и «Резкое похолодание». Родилась 25 октября 1978 года в Москве, училась в востоковедческом лицее, потом в МГУ на филологическом факультете. На протяжении жизни занималась разнообразной деятельностью, от переводчика-синхрониста и частного репетитора (   Читать дальше...   )Жанр: ХоррорФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA3983932A03A449911610A3B12A80C7DAC5682D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564961   (212307) от 21.07.2022
 
 Юрий Винокуров | Сборник книг [16 книг] (2021-2022) [FB2]
@@ -6,7 +59,7 @@
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212307.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211083.jpg" />
 </div>
 
 
@@ -63,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208152.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202491.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201199.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200077.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198375.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196318.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186685.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185757.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181686.jpg" />
 </div>
 
 
@@ -302,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177254.jpg" />
 </div>
 
 
@@ -328,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_177150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_177150.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174205.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173722.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172557.jpg" />
 </div>
 
 
@@ -432,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171659.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169486.jpg" />
 </div>
 
 
@@ -484,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168220.jpg" />
 </div>
 
 
@@ -510,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167403.jpg" />
 </div>
 
 
@@ -536,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167147.jpg" />
 </div>
 
 
@@ -563,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164869.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164140.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163895.jpg" />
 </div>
 
 
@@ -626,62 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9656008AF20CCD5D4FCC6C176EE6063CE041E725
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319501   (163875) от 13.12.2021
-
-Александра Лисина | Собрание сочинений [68 книг] (2012-2021) [FB2] [Обновляемая]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александра Лисина – литературный псевдоним Александры Дмитриевны Кожевниковой.
-Родилась 22 апреля 1981г. в г.Твери (РФ, Тверская область). Успешно окончила Тверской лицей, потом благополучно отучилась в медицинской академии: 6 лет непосредственно в ВУЗе, плюс еще 2 года ординатуры… соответственно, по специальности – врач. А вот по интересам – скорее, профессиональный (   Читать дальше...   )Жанр: Любовное фэнтези, Героическое фэнтези, Городское фэнтези, Юмористическое фэнтези, Попаданцы в магические мирыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D73111D6DAF2FB7E6502EB578DD2BBCD16F96E16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338260   (163096) от 14.12.2021
-
-Данияр Сугралинов | Собрание сочинений [27 книг] (2014-2021) [FB2] [Обновляемая]
-
->>След.
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данияр Сугралинов – популярный писатель.
-
-Данияр Саматович Сугралинов родился 2 декабря 1978 года в Актюбинске (сейчас – Актобе) (Казахская ССР). Окончил Санкт-Петербургскую Государственную инженерно-экономическую академию и Высшую школу экономики (Москва).
-(   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, ЛитРПГ, ПрозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B57DE96C40D2AC534AE7822A9ECB81134662FC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

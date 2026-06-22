@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1876013   (1073176) от 
+
+Тренд: москвичи всё чаще предпочитают шоппиться в офлайн-маркетплейсах
+
+>>След.
+>>Юмор
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кэжуал онлайн-шоппинг больше не в тренде у москвичей – всё больше жителей столицы предпочитают шоппиться в офлайн-маркетплейсах. В московских изданиях всё чаще публикуют топовые офлайн-споты и эдвайсы от опытных офлайн-байеров. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869090   (1068054) от 05.05.2026
 
 Редакция «самого достоверного агентства России» объявила о самоликвидации
@@ -7,7 +33,7 @@ https://t.me/izofen
 >>Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068054.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064760.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063826.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Cloudflare: многочисленные сбои в работе сервиса
 >>Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047702.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Apple купит Пиратскую Бухту?
 >>Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_398790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_398790.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_128607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_128607.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57248.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39382.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36203.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28810.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28430.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26109.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23342.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23138.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21015.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14657.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12992.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12407.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_898.jpg" />
 </div>
 
 

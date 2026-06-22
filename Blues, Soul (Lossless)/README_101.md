@@ -6,7 +6,7 @@ Randy Lee Riviere - Blues Sky (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171434.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Jim Kahr - Keepin' It Hot (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171426.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Al Kooper - The Complete MusicMasters Recordings (2023) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171039.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Highway Boys - Country for the Road (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170387.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Joni Dangelo - NOW (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169513.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Pacome (Pacôme) Rotondo - World of Confusion (2023) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169464.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Frank Leguen - Rockin' the Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169452.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Groovy Blues & Jazz Mix (Male Singer-Songwriters Vol. 1) (2023) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169446.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Dr. J. B. Blues - Multiplicity (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169433.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ John Hiatt - Leftover Feelings (2021) [FLAC|Lossless|tracks + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169287.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Robin Trower featuring Sari Schorr - Joyful Sky (2023) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169253.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ TNYFBB - Trio (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167720.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Komet City - Don't Go to Strangers - A tribute to the Tulsa Sound (2022) [FLAC|L
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167686.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Richard Bargel - Dead Slow Stampede (2022) [FLAC|Lossless|WEB-DL|tracks] <Delta 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167679.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Randall Breneman & The Skinnerbros - Devil Plays The Blues (2022) [FLAC|Lossless
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167642.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Backbone Blues Band - Old New Borrowed Blues (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167602.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ The Whiskey Foundation - Leisure (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, So
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167371.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Eric Clapton - 64 albums, 9 Box sets, 183 CD (1966-2021) [FLAC|Lossless|image + 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167170.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Die Blues Buam - Broken World (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166907.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Claudia Robbens - Make a Difference (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166899.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Louise Phelan - Octavio Herrero - Azules (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166872.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Paul Candow - Mechanics of Manipulation (2022) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166821.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Uplifting Country Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166811.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Women in Country 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues/Country/F
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166805.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Women In Country (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues/Country/Folk>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166798.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Driving Licence & Country Sounds (2022) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166791.jpg" />
 </div>
 
 

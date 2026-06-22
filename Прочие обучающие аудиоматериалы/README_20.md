@@ -1,3 +1,110 @@
+###  Публикация: 555606   (416326) от 09.10.2012
+
+А.В. Чечулин | Курильские острова. Чьи они? Мифы и действительность [2012] [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это издание посвящено территориальному спору, который имеет место в российско-японских отношениях.
+На основе документальных источников, достоверных исторических фактов и действующих норм международного права предпринята попытка анализа и осмысления того, что происходит вокруг Курильских островов. Эта аудиоформация позволяет в новом ракурсе осмыслить сущность территориальной проблемы, возникшей между Россией и Японией, и вынести каждому свое суждение по исследуемому вопросу.Жанр: наука, история
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA8325583F76F9F45EE49DD05B29437EAF6A4FD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168039   (412476) от 22.09.2017
+
+Роман Андронов | Аудио-Мысли. Личностный рост. Бизнес-статьи. Саморазвитие. Советы (2013) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аудио - статьи про успех, личностный рост, советы, саморазвитие. Для тех, кому интересно развиваться, достигать успехов, изучать что то новое в сфере саморазвития. Аудио - Статьи это как мини-аудиокнига. Интересно слушать под музыкальное сопровождение.Жанр: Личностный рост, саморазвитиеПродолжительность: 01:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDF6E66EFA54C44C5F74AC17B8AEEDEFC00E90F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065949   (409387) от 27.10.2016
+
+Серов Игорь | Действуй быстрее других (2009) [MP3, PDF, DOC]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это комплексный тренинг на развитие памяти и интуиции. Мы будем учиться мыслить образно, задействуя правое полушарие мозга. И как следствие – запоминать всё, что нам нужно помнить и принимать интуитивные решения в повседневной жизни.
+Приёмов запоминания очень и очень много. Самые полезные – те, которые работают быстро и эффективно – преподаются в оперативной психологии. (   Читать дальше...   )Жанр: Мнемотехники, ИнтуицияФормат: MP3, PDF, DOCПродолжительность: 15:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:612685E4DE509E8CC85143BAC817BEEF8A0A4FBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252425   (409086) от 05.10.2018
+
+Валентина Горчакова | Психология создания персонального бренда (2018) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаем вашему вниманию аудиокнигу известного психолога и имиджеолога Валентины Горчаковой «Психология создания персонального бренда».
+Что такое персональный брендинг? Возможно ли выделиться среди конкурентов, войти в систему современных маркетинговых коммуникаций будучи воспринимаемым окружающими как бренд? Возможно – уверяет автор. Значительная часть современного (   Читать дальше...   )Жанр: Саморазвитие, личностный ростПродолжительность: 15:25:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB4FF76BF4E3F265DD9BAF0FD7D4A08663FE9BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573808   (408667) от 02.09.2022
 
 Ашер Кушнир | «Не кто Еврей, а что Еврей» (2004) [MP3, Рав Ашер Кушнир]
@@ -6,7 +113,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408667.jpg" />
 </div>
 
 
@@ -33,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408587.jpg" />
 </div>
 
 
@@ -61,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407986.jpg" />
 </div>
 
 
@@ -87,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_406886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_406886.jpg" />
 </div>
 
 
@@ -114,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403445.jpg" />
 </div>
 
 
@@ -141,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397400.jpg" />
 </div>
 
 
@@ -167,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396566.jpg" />
 </div>
 
 
@@ -195,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394042.jpg" />
 </div>
 
 
@@ -221,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387960.jpg" />
 </div>
 
 
@@ -247,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387914.jpg" />
 </div>
 
 
@@ -273,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385613.jpg" />
 </div>
 
 
@@ -300,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381506.jpg" />
 </div>
 
 
@@ -328,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379513.jpg" />
 </div>
 
 
@@ -355,7 +462,7 @@ V | Менеджер мафии (2018) [MP3]
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372808.jpg" />
 </div>
 
 
@@ -381,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370524.jpg" />
 </div>
 
 
@@ -407,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368273.jpg" />
 </div>
 
 
@@ -433,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366162.jpg" />
 </div>
 
 
@@ -460,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365709.jpg" />
 </div>
 
 
@@ -486,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365695.jpg" />
 </div>
 
 
@@ -512,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365244.jpg" />
 </div>
 
 
@@ -538,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364748.jpg" />
 </div>
 
 
@@ -564,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362999.jpg" />
 </div>
 
 
@@ -575,112 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A46E6928212538B41C5C79E4DD14C7AAB14B28F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416962   (362717) от 18.10.2020
-
-Николай Кукушкин | Хлопок одной ладонью (2020) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь на Земле – непостижимая, вездесущая, кишащая миллионами ног, сучков, колючек и зубов вакханалия, в которой мы существуем и из которой мы происходим. Три с половиной миллиарда лет она обходилась без нас, и вот, в последние мгновения истории, из этого хитросплетения животных, растений, грибов и микробов выныривает человек и задается вопросом: кто я такой и в (   Читать дальше...   )Жанр: Научно-популярная литература, НейробиологияПродолжительность: 14:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF1183F12E294960B3CEA3A9F8034BBB6C662F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576942   (361484) от 16.09.2022
-
-Станислав Дробышевский | Палеонтология антрополога. (Книга 1). Докембрий и палеозой (2020) [MP3, Виктор Бабков]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первобытный океан и ядовитая атмосфера. Выход на сушу и страшные катаклизмы. Сценарий к фильмам ужасов, - подумаете вы. - Нет, докембрий и палеозой, - ответим мы.
-Как зарождалась жизнь? Что происходило с атмосферой? И как всё это повлияло на развитие нашей Земли?
-Миллиарды лет вокруг Солнца вращается Земля. Примерно четыре миллиарда лет на ней копошится жизнь. Мы (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 12:55:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD4CCF938EDD28C04AF223CDC8F6E0D45D4DA1AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417174   (360242) от 19.10.2020
-
-Нэнси Сталкер | Япония. История и культура: от самураев до манги. [Часть 1] (2020) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Японская культура проникла в нашу современность достаточно глубоко, чтобы мы уже не воспринимали доставку суши на ужин как что-то экзотичное. Но вы знали, что японцы изначально не ели суши как основное блюдо, только в качестве закуски? Мы привычно называем Японию Страной восходящего солнца – но в результате чего у неё появилось такое название? И какой путь в целом (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 09:01:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A522A146FF15550C51199AEE9F11DF27B352253
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577103   (359615) от 17.09.2022
-
-Станислав Дробышевский | Палеонтология антрополога. (Книга 2). Мезозой (2020) [MP3, Виктор Бабков]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Золотая середина – это не самый банальный момент, это не унылость, не скука повседневности. Второй том «Палеонтологии антрополога» продолжает историю живого прошлого Земли. В новом издании рассказывается о жизни мезозоя (триаса, юры и мела) –самой известной и впечатляющей эры. Время, ставшее символом палеонтологии, образцом прошлого. Пришло время реализовывать наработанные (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 15:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8881B861C49C0EE85A31DA7CAA3ED55BD5757187
 ```
 
 https://mybot314.ru/tekegram_catalog/

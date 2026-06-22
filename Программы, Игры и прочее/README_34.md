@@ -1,3 +1,32 @@
+###  Публикация: 1162001   (1011733) от 10.06.2021
+
+Доктор Комаровский v3.0 (61) [Ru]
+
+>>Программы, Игры и прочее
+>>Всё для детей и родителей для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доктор Комаровский - приложение для мобильных устройств на базе Android, которое представляет собой сборник из шести замечательных книг известного детского врача Евгения Олеговича Комаровского:
+- Здоровье ребенка
+- ОРЗ
+- Справочник(   Читать дальше...   )Тип издания: Пиратка (куплен платный контент)Релиз состоялся: 03.06.2021Разработчик: LLC KLINIKOMПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB00061F4941F725AD3B0B81A6A504078E5650E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1476568   (1011652) от 11.06.2021
 
 Mi Видео - бесплатный просмотр и загрузка видео v2021051400(MiVideo-GP) [Ru/En]
@@ -6,7 +35,7 @@ Mi Видео - бесплатный просмотр и загрузка вид
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011652.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011478.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ MIUI Калькулятор v12.3.12 + v12.2.0 (Mods) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011461.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ SoloLearn: Учимся программировать 4.7.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011450.jpg" />
 </div>
 
 
@@ -110,7 +139,7 @@ Parrot Voice Recorder v3.7.8  [En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011055.jpg" />
 </div>
 
 
@@ -136,7 +165,7 @@ Total Recall - Call Recorder v2.0.86 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011050.jpg" />
 </div>
 
 
@@ -162,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010911.jpg" />
 </div>
 
 
@@ -188,7 +217,7 @@ Mubert v4.2.0 [Ru/Multi] - сервис фоновой музыки
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010719.jpg" />
 </div>
 
 
@@ -214,7 +243,7 @@ AUG Launcher v3.7.7 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010640.jpg" />
 </div>
 
 
@@ -240,7 +269,7 @@ Ultra Volume v3.5.4 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010604.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ Dictionary - Merriam-Webster v5.1.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010136.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ POIbase speed camera warner V7.2.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010098.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010093.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ Text Scanner v4.1.7 [Ru/En] - извлечение текста из изобр�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010063.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ magicplan v9.7.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009945.jpg" />
 </div>
 
 
@@ -408,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009741.jpg" />
 </div>
 
 
@@ -434,7 +463,7 @@ Dictionary.com Premium v9.7.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009666.jpg" />
 </div>
 
 
@@ -460,7 +489,7 @@ Artly v2.9.2 [Ru] - Learn Art History, Artworks & Paintings
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009560.jpg" />
 </div>
 
 
@@ -488,7 +517,7 @@ AVG AntiVirus 2021 v6.39.5 [Ru] - Free Mobile Security
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009256.jpg" />
 </div>
 
 
@@ -514,7 +543,7 @@ Avira Security 2021 v7.8.1 [Ru] - антивирус и VPN
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009213.jpg" />
 </div>
 
 
@@ -540,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009201.jpg" />
 </div>
 
 
@@ -566,7 +595,7 @@ Zemana Antivirus 2021: Anti-Malware & Web Security v2.0.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009114.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ Umbrella - Adblock & Firewall v1.6.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009100.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ n7player Music Player 3.1.2-287 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008684.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Body Language: Psychology behind everyday gestures v4.2.8 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008011.jpg" />
 </div>
 
 
@@ -656,33 +685,6 @@ Body Language: Psychology behind everyday gestures v4.2.8 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE3FF80FF5646D8435508E3A9CBBA8CC916FACC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481859   (1008006) от 05.07.2021
-
-Wannalisn v3.5.0 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wannalisn - бесплатное приложение для изучения английского языка, которое помогает тренировать навыки аудирования и произношения с помощью упражнений на аудирование и мини-видеоклипов из популярных фильмов, сериалов и песен.
-Wannalisn также является лучшим приложением для изучения английского языка, чтобы выучить наиболее часто используемые английские слова, идиомы (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 22 июня 2021 г.Разработчик: Wannalisn SLПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF18E1ABD5EC0B32750A31E03CB82665F769E261
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1673101   (166392) от 31.10.2023
+
+Live Wallpaper & Themes 4K Pro for Mac 18.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Live Wallpaper & Themes 4K позволяют использовать живые обои на рабочем столе/экранной заставке. Приложение предоставляет тысячи живых обоев в мастерской, потребляя при этом как можно меньше системных ресурсов.Тип издания: macOS SoftwareРелиз состоялся: 25.10.2023Разработчик: © 2023 WHBALZAC IncПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Упрощенный китайский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5025A410D08A11F9237F6F87C29063AE3BF9054C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673268   (166370) от 31.10.2023
+
+Cisdem Video Converter 7.11.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скачать онлайн-видео, Rip DVD или конвертировать видео между всеми форматами & устройств на Mac.
+Cisdem Video Converter является решением все в одном для видео развлечений. Cisdem VideoConverter будет полезен если вы конвертируете видео & аудио файлы в любом формате, записываете DVD фильмы или скачиваете видео с YouTube, Google, Yahoo, и т.д Он самый стабильный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.09.2023Разработчик: © 2023 Cisdem Inc.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F614B54EC01F61618AFD30633A8BDD5EB312C64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345635   (166328) от 15.12.2019
 
 Capture One 20 Pro 13.0.0.186 [Multi/Ru]
@@ -6,7 +59,7 @@ Capture One 20 Pro 13.0.0.186 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166328.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ MacPilot 15 v.15.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166324.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ Adobe Character Animator 2020 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166318.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ Adobe Dimension 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166304.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ Wing IDE Pro 9 for Mac 9.1.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166303.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ Infuse PRO 7.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166291.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ GraphicConverter 11 v11.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166285.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ Workspaces 2.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166282.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ Apple Remote Desktop 3.9.3 (1A50) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166279.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ TurboMosaic Pro 3.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166272.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ AnyTrans for iOS 8.8.0.20201214 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166263.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ iSnow 2.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166255.jpg" />
 </div>
 
 
@@ -327,7 +380,7 @@ TinkerTool System 7 v7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166253.jpg" />
 </div>
 
 
@@ -355,7 +408,7 @@ SimpleMind − Mind Mapping 2.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166249.jpg" />
 </div>
 
 
@@ -382,7 +435,7 @@ Hides 5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166246.jpg" />
 </div>
 
 
@@ -408,7 +461,7 @@ Audio Ease Snapper 3.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166235.jpg" />
 </div>
 
 
@@ -434,7 +487,7 @@ Maxon Cinema 4D Studio R21.026 (RB290015) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166234.jpg" />
 </div>
 
 
@@ -460,7 +513,7 @@ Alfred 4 Powerpack 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166193.jpg" />
 </div>
 
 
@@ -488,7 +541,7 @@ Loopback 2.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166181.jpg" />
 </div>
 
 
@@ -517,7 +570,7 @@ Alien Skin Exposure X5 Bundle 5.2.0.166 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166135.jpg" />
 </div>
 
 
@@ -543,7 +596,7 @@ Path Finder 10 v10.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166124.jpg" />
 </div>
 
 
@@ -569,7 +622,7 @@ ABBYY Lingvo European 1.11.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166123.jpg" />
 </div>
 
 
@@ -597,7 +650,7 @@ Adobe Acrobat Pro DC 2019.021.20058 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166076.jpg" />
 </div>
 
 
@@ -623,7 +676,7 @@ Movavi Screen Recorder 21.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166049.jpg" />
 </div>
 
 
@@ -634,59 +687,6 @@ Movavi Screen Recorder 21.1.0 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44DDC8B653CFCDE550FD0739CD73DE4B035834C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431827   (165948) от 15.12.2020
-
-Vectorworks 2021 v26.0.1 SP1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональная система для автоматизации работ в области архитектурно-строительного проектирования, ориентированная на пользователей работающих в сфере ландшафтного дизайна, а так же занимающихся проектированием интерьера, зданий, помещений и других объектов.
-Компания Nemetschek AG входит в состав Промышленной Группы Nemetschek и в настоящее время занимает лидирующие (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Nemetschek Vectorworks, IncПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA66F621D30D2103CBBE9F956058AFE5C57A418A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431790   (165943) от 15.12.2020
-
-Compressor 4.5.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Compressor – простой и мощный инструмент для сжатия видео. Compressor может сжимать ваше видео с поддержкой большинства популярных форматов, включая HEVC, MPEG-4, H.264, MXF и др. Кроме этого, в приложении имеется замечательная возможность прямого экспорта последовательности сегментов видео с применением различных эффектов и фильтров на прямую из Final Cut, для последующей (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2020Разработчик: Apple Inc.Поддерживаемая ОС: macOS 10.15.6 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9677A8A5C0E0B3D128B06306B51C9E701303F10B
 ```
 
 https://mybot314.ru/tekegram_catalog/

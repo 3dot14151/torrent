@@ -1,3 +1,32 @@
+###  Публикация: 1250067   (429132) от 26.09.2018
+
+Thierry David - Zen World (2006) 2008, Real Music [FLAC|Lossless|tracks + .cue] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Close to Heaven (5:18)
+ 02. Asian Rhapsody (4:27)
+ 03. I Miss You So (4:31)
+ 04. Walking on Skies (3:16)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:58:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81E22DE6C09E0EDEA3461EAFC416A978BC786D41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411421   (427557) от 25.09.2020
 
 Hiroka Matsuda - The Black Fire Original Image Album (1987) [FLAC|Lossless|tracks + .cue] <New Age, Minimal>
@@ -6,7 +35,7 @@ Hiroka Matsuda - The Black Fire Original Image Album (1987) [FLAC|Lossless|track
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427557.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Jean-Michel Jarre - Electronica 1: The Time Machine (2015) [FLAC|image+.cue]<Amb
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424428.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Michel Pepe - La Foret d'Eden (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419436.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Richard Evans - Breathe (2006) [FLAC|Lossless|WEB-DL|tracks] <New Age, Solo Pian
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417319.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Sherry Finzer & Mark Holland - Somewhere New (2018) [FLAC|Lossless|WEB-DL|tracks
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415500.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Phil Thornton - Pure Crystal Bowls (2016) [FLAC|Lossless|tracks] <New Age, Medit
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414571.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Medwyn Goodall - Moon Goddess 2 (2012) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414110.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Cafe Del Mar - Classical (2013) [FLAC|Lossless|image + .cue] <Instrumental,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411200.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Nature Sounds Nature Music - Zen One: Relaxing Vibes For Sleep & Yoga & Meditati
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410835.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Louis Landon - Healing Hearts 3 - Solo Piano (2016) [FLAC|Lossless|WEB-DL|tracks
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409747.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Abdulrahman Zaibak - The Current (Instrumental) (2017) [FLAC|Lossless|WEB-DL|tra
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409313.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Guido Negraszus - Secret Paradise (Cafe Chillout & Dream Lounge) [FLAC|Lossless|
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407908.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Richard Evans - Seaside: Solo Piano (2008) [FLAC|Lossless|tracks] <New Age, Solo
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403104.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Brian Crain - Sienna (2003) [FLAC|Lossless|tracks + .cue] <New Age, Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399533.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Delerium - Music Box Opera (2012) [FLAC|Lossless]<New Age, Ambient, Chillout, Do
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_396755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_396755.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ Roger Subirana - The Round Dimension (2017) [FLAC|Lossless|WEB-DL|tracks] <New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394842.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ Medwyn Goodall - Medicine Woman (The Lost Tracks) (2017) [FLAC|Lossless|tracks] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391149.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ Eshana - Kalpana (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Spiritual
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387755.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ Tantric Music Masters - Fertility Energy of Couple’s Yoga (2020) [FLAC|Lossles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387414.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ Meditation Music Masters, Reiki Tribe - Erotic Side of Yoga (2020) [FLAC|Lossles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387405.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ Sensual Music Academy - Ambient Tantric Melodies (2020) [FLAC|Lossless|WEB-DL|tr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387288.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ VA - Visions (1995) [FLAC|Lossless|tracks + .cue] <New Age,Instrumental,Jazz>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385551.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ Age of Echoes - Into Eternity (2018) EP [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385447.jpg" />
 </div>
 
 
@@ -679,7 +708,7 @@ Junichi Kamiyama - The Best Musics for Overcoming Anxiety and the Stress Managem
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385347.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ Wychazel - Beneath an Autumn Moon (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385325.jpg" />
 </div>
 
 
@@ -722,35 +751,6 @@ Wychazel - Beneath an Autumn Moon (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF7438BE386621625A59994911D554B6EC6BF1F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174635   (385250) от 15.10.2017
-
-Peter Kater - Dancing On Water (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing on Water
-02. Waterfall
-03. Rainfall to Rivers
-04. Reaching for You(   Читать дальше...   )Жанр: New Age, Piano, AmbientПродолжительность: 01:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D60AB1AA32780EBF99C30F14351A942CEF070058
 ```
 
 https://mybot314.ru/tekegram_catalog/

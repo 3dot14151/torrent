@@ -6,7 +6,7 @@ Bill Wyman's Rhythm Kings (Bill Wyman) - Monkey Grip (1974) Rolling Stones Recor
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673417.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Bill Wyman's Rhythm Kings (Bill Wyman) - Stone Alone (1976) Rolling Stones Recor
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673300.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Kathy Boye & The DTG Gang - I Feel Alive (2018) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669774.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ Selwyn Birchwood - Don't Call No Ambulance (2014) [MP3|320 Kbps] <Blues Rock, El
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669299.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ Beth McKee - Sugarcane Revival (2015) [MP3|320 кб/с]<New Orleans Blues, South
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665615.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Mike Zito - First Class Life (2018) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662882.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Oscar Wilson - One Room Blues (2017) [MP3|320 Kbps] <Chicago Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661308.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Ry Cooder - The Prodigal Son (2018) [MP3|320 Kbps] <Blues Rock, Roots>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659744.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Gina Sicilia - Tug Of War (2017) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659288.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Adi Barar Band - Hold On! (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659285.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Tony Holiday & The Velvetones - No Need To Rush It (2015) [MP3|320 кб/с]<Harm
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658168.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Steve Tallis And The Zombi Party - Zombi Party (1993) [MP3|320 кб/с]<Blues, F
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658085.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Buddy Moss - The Essential (2002) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658082.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Jay Stollman - Room For One More (2015) [MP3|320 кб/с]<East Coast Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658077.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Lilly Martin - The Velvet Mission (2012) [MP3|320 кб/с]<Blues, Jazz, Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657990.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Blackburn - Brothers In This World (2015) [MP3|320 кб/с]<Modern Electric Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656983.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Jessy Martens & Band - Touch My Blues Away (2015) Live [MP3|320 кб/с]<Contemp
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656892.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ High Street - Salute to the 60's (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655892.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Barbecue Bob - The Essential (2001) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655697.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Charley Jordan - The Essential (2002) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655696.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Justin Quinn Band - Lazy By Nature (2018) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653870.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Billy Craig - To Come To Us (2015) [MP3|320 кб/с]<Modern Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653562.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Charles Wilson - Sweet & Sour Blues (2015) [MP3|320 кб/с]<Blues Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653551.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Screamin' Jay Hawkins - Portrait Of A Man (2015) [MP3|320 кб/с]<Blues Soul, R
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653550.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Vivian Vance Kelly - Hit Me Up (2015) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653545.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Peter Struijk - Straight Blues (2015) [MP3|320 кб/с]<Acoustic Delta Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653543.jpg" />
 </div>
 
 

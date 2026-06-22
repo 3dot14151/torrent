@@ -1,32 +1,3 @@
-###  Публикация: 932614   (508318) от 30.08.2015
-
-Sarah Maclaine - The Heart Of Me (2015) [FLAC| image+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On A Clear Day
-02. God Only Knows
-03. Moon River
-04. In My Life(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A7C819B3532AA706AB27FD0E1A766C8C4C58479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932606   (508315) от 30.08.2015
 
 Hugh Coltman - Shadows Songs Of Nat King Cole (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz, Folk, Acoustic>
@@ -35,7 +6,7 @@ Hugh Coltman - Shadows Songs Of Nat King Cole (2015) [FLAC|tracks|WEB-DL]<Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508315.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Halie Loren - Butterfly Blue (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508166.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Tony Testa - Back To The Basics (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508068.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Clark Terry & Max Roach - Friendship (2002) Village Records [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507803.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ John Mayall - Jazz Blues Fusion (1972) Reissue, 2015, PolyGram Records Inc. [FLA
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507752.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ John Coltrane - My Favourite Things (1991) /ORO/[FLAC|image+.cue]<Avant-Garde Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507260.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Kenny Burrell - For Charlie Christian And Benny Goodman (1966/1967) /1991, Par M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507256.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Emily McEwan - In The Wee Small Hours (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507254.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ John Coltrane - The Golden Age Of Jazz: My Favorite Things in Concert & Other Ra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507250.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ June Bisantz - It's Always You June Bisantz Sings Chet Baker Vol. 2 (2015) [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507242.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Jim Adkins - Soul Expression (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507130.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Sidney Bechet - 1923 - 1936 (1991) Classics [FLAC|Lossless|tracks + .cue] <Early
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507118.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Frank Foster - Well Water (1977) 2007, Piadrum Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506925.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Skip Wilkins - Solo: Recorded Live in Concert at Lafayette College (2007) Dreamb
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506924.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ USA Gospelchor Feat. Joan Orleans - Higher And Higher (1997) [FLAC|Lossless|imag
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506922.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Jimmy Joe - Rusty Room (2019) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506913.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Sister Rosetta Tharpe - The Original Soul Sister (2002) 4CD BoxSet[FLAC|Lossless
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506682.jpg" />
 </div>
 
 
@@ -534,7 +505,7 @@ VA - Going for a Song: Soul (2005) BoxSet 4CD[FLAC|Lossless]<Soul, Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506667.jpg" />
 </div>
 
 
@@ -569,7 +540,7 @@ Gary Moore - All The Best (2xCD) (2012) [FLAC|Lossless]<Rock, Hard Rock, Blues-R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506470.jpg" />
 </div>
 
 
@@ -595,7 +566,7 @@ James Brown - The Ultimate Collection (2004) BoxSet 3CD [FLAC|Lossless]<Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506409.jpg" />
 </div>
 
 
@@ -627,7 +598,7 @@ Steve Smith & Vital Information - Vitalive! (1991) /Capitol Records/ [FLAC|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506329.jpg" />
 </div>
 
 
@@ -656,7 +627,7 @@ Tony Reedus - Incognito (1991) /Enja/ [FLAC|tracks+.cue]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506327.jpg" />
 </div>
 
 
@@ -685,7 +656,7 @@ Kyrie Kristmanson & Quatuor Voce - Modern Ruin (2015) [FLAC|tracks|WEB-DL]<Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506326.jpg" />
 </div>
 
 
@@ -714,7 +685,7 @@ The Horace Silver Quintet - Finger Poppin' (1959) 2003, Blue Note [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506319.jpg" />
 </div>
 
 
@@ -743,7 +714,7 @@ Melissa Tham - Falling In Love Again (2015) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506264.jpg" />
 </div>
 
 
@@ -757,6 +728,35 @@ Melissa Tham - Falling In Love Again (2015) [FLAC|Lossless]<Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:888199604BCDDBCFB9CBCA46CCE813F767B63AD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933406   (506068) от 01.09.2015
+
+Peter White - Smile (2014) [FLAC|Lossless]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smile
+02. In Rainbows
+03. Floating In Air
+04. Head Over Heels(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F42F86C0EA4D0F4DA3503C2349E73B006966F05A
 ```
 
 https://mybot314.ru/tekegram_catalog/

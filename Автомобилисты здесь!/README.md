@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071682.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071309.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029172.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020941.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010734.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008072.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921891.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884754.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_807807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_807807.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_807748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_807748.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782202.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778646.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Jaguar представила "убийцу Tesla"
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778629.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_742021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_742021.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_658593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_658593.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_657438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657438.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_633779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_633779.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_631646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_631646.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_569090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_569090.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_558303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_558303.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_553807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_553807.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_550230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_550230.jpg" />
 </div>
 
 
@@ -563,6 +563,32 @@ https://mybot314.ru/tekegram_catalog/
 
 Правительство предлагает ввести штрафы за неоплаченный проезд по платным дорогам
 Правительство хочет ввести штрафы для автомобилистов, которые после введения системы free flow (свободный поток) не будут оплачивать проезд по платной дороге. Как сообщает «Парламентская газета», размер штрафа может доходить до 2,5 тыс. руб. Соответствующие поправки в законодательные (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311103   (541620) от 29.06.2019
+
+"Страховщики будут оценивать автолюбителей по стилю вождения"
+
+>>След.
+>>Автомобилисты здесь!
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_541620.jpg" />
+</div>
+
+
+###  Подробнее
+
+"В ближайшие годы в России появится сервис для оценки автолюбителей по стилю вождения. С его помощью страховые компании смогут более объективно оценивать водителей и рассчитывать стоимость страхового полиса.Для оценки стиля вождения будет использовано множество источников, включая данные ГИБДД, операторов телематических и сервисных платформ, ЭРА-ГЛОНАСС, интеллектуальных (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_518734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_518734.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_488463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_488463.jpg" />
 </div>
 
 
@@ -634,39 +660,13 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_463082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_463082.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Окружной суд США приговорил инженера Volkswagen к 40 месяцам тюрьмы и штрафу в $200 тыс. за «дизельгейт», сообщает Automotive News.Прокуратура требовала для 63-летнего Джеймса Ляна три года тюремного заключения, тогда как адвокат настаивал на 21 месяце домашнего ареста. В итоге судья Шон Кокс вынес решение о заключении в федеральной тюрьме и денежном штрафе.«Мне (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321783   (454235) от 26.08.2019
-
-В Лондоне машины начали продавать, как кофе и шоколадки
-
->>След.
->>Автомобилисты здесь!
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_454235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Auto Trader, специализирующаяся на продаже новых и подержанных автомобилей, представила первый в Великобритании вендинговый автомат с машиной. Установленный на одной из улиц Лондона терминал позволяет купить новый Renault Zoe.В терминале, который шесть инженеров разрабатывали на протяжении трёх месяцев, представлен Renault Zoe стоимостью £16 000 (сам (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

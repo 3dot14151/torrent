@@ -1,3 +1,133 @@
+###  Публикация: 1357549   (972770) от 04.02.2020
+
+Джей и Молчаливый Боб: Перезагрузка / Jay and Silent Bob Reboot (2019) HDRip [H.265] [10-bit] [DVO] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неугомонные приятели Джей и Молчаливый Боб попадаются на незаконном выращивании марихуаны и предстают перед судом, но невесть откуда взявшийся адвокат умудряется снять с них все обвинения, ловко подсунув бумаги на подпись. Зато теперь друзья не имеют права называться своими знаменитыми именами, потому что права на них принадлежат голливудской студии, которая собралась (   Читать дальше...   )Производство: США, Destro Films, SModcast Pictures, Hideout Pictures, Miramax Films, Intercut CapitalЖанр: комедияРежиссер: Кевин СмитАктеры: Джейсон Мьюз, Кевин Смит, Мэтт Дэймон, Крис Хемсворт, Бен Аффлек, Мелисса Бенойст, Вэл Килмер, Розарио Доусон, Джо Манганьелло, Джеймс Ван Дер Бик, Харли Куинн Смит, Шеннон Элизабет, Дидрих БадерПеревод: Любительский двухголосый (LakeFilms)Субтитры: Русские (Full, ненорматив-Sevkoxdd), Английские (Full)Продолжительность: 01:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:265E50FC9FBDE38C4B203EB7ACB98BB6E0A2074F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357609   (972766) от 04.02.2020
+
+Призрачная шестёрка (Шестеро вне закона) / 6 Underground (2019) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инсценировав собственную смерть, сознательный миллиардер начинает новую жизнь — набирает отряд наёмников из разных стран, чтобы бороться со злом в этом мире. Все члены команды получают вместо имён цифры, и их целью становится свержение диктатора и освобождение народа страны Тургистан.Производство: США / Bay Films, Skydance MediaЖанр: БоевикРежиссер: Майкл БэйАктеры: Райан Рейнольдс, Мелани Лоран, Мануэль Рульфо, Бен Харди, Адриа Архона, Дэйв Франко, Кори Хоукинс, Лайор Раз, Пейман Моаади, Юрий КолокольниковПеревод: Профессиональный многоголосый (Jaskier)Субтитры: Русские (forced) - отдельным файломПродолжительность: 02:08:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9EB3341876B8F6D09E5E3FE25092F13C3677A48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357641   (972757) от 04.02.2020
+
+21 мост / 21 Bridges (2019) WEB-DLRip [H.265] [10-bit] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он охотится на преступников, которые совершили на Манхэттене дерзкое ограбление, оставив после себя 8 мертвых полицейских. А продажные копы тем временем охотятся на него, пытаясь подставить. Но преступникам не скрыться, так как первый раз в истории Нью-Йорка полиция перекрыла все выходы с острова, в том числе 21 мост.Производство: США / AGBO, Huayi Brothers, MWM StudiosЖанр: боевик, триллер, драма, криминалРежиссер: Брайан КиркАктеры: Чедвик Боузман, Сиенна Миллер, Тейлор Китч, Дж.К. Симмонс, Стефан Джеймс, Кит Дэвид, Александр Сиддиг, Луис Канселми, Виктория Картахена, Гари КаррПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:974769169B82E05DD162E4E5280794CE15F654D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 744084   (972744) от 10.01.2014
+
+Вот и Рождество / So This Is Christmas (2013) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972744.jpg" />
+</div>
+
+
+###  Подробнее
+
+И в Америке каждая несчастливая семья несчастлива по-своему, особенно, если в семье не мать, а мачеха. Это причина бед и неприязни. Однако любую трудность, и подростковый алкоголизм и наркозависимость, можно преодолеть, если делать это сообща: когда-нибудь даже мачеха становится родной.Жанр: Драма, Мелодрама, КомедияРежиссер: Ричард ФостерПеревод: Многоголосый закадровый | НТВ+Субтитры: Вшитые ОтключаемыеЯзык субтитров: АнглийскийПродолжительность: 01:54:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:118CC76D01F7BA94CEC3A82E3683E666A5335A70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357599   (972716) от 04.02.2020
+
+Падение ангела / Angel Has Fallen (2019) HDRip [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972716.jpg" />
+</div>
+
+
+###  Подробнее
+
+На президента США совершено покушение, главный обвиняемый — верный ангел-хранитель главы государства и агент секретной службы Майк Бэннинг. Скрываясь от ФБР, он должен найти тех, кто его подставил, и спасти страну и ее лидера от смертельной угрозы.Производство: США / Millennium Films, G-BASE, Campbell Grobman FilmsЖанр: Боевик, ТриллерРежиссер: Рик Роман ВоАктеры: Джерард Батлер, Фредерик Шмидт, Морган Фримен, Дэнни Хьюстон, Рокки Уильямс, Пайпер Перабо, Джада Пинкетт Смит, Гарри Дитсон, Ник Нолти, Лэнс Реддик, Тим Блэйк НельсонПеревод: Авторский одноголосый (Д. Есарев)Субтитры: отсутствуютПродолжительность: 02:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69AECF9284009FB22A4B6023421A9ED0B22D8CD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357759   (972704) от 04.02.2020
 
 Кролик Джоджо / Jojo Rabbit (2019) WEB-DLRip [H.265] [10-bit]
@@ -6,7 +136,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972704.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972337.jpg" />
 </div>
 
 
@@ -59,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972197.jpg" />
 </div>
 
 
@@ -86,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972034.jpg" />
 </div>
 
 
@@ -112,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972014.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971966.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971930.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971881.jpg" />
 </div>
 
 
@@ -217,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971847.jpg" />
 </div>
 
 
@@ -243,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971828.jpg" />
 </div>
 
 
@@ -270,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971685.jpg" />
 </div>
 
 
@@ -296,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971674.jpg" />
 </div>
 
 
@@ -322,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971672.jpg" />
 </div>
 
 
@@ -348,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971664.jpg" />
 </div>
 
 
@@ -374,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971603.jpg" />
 </div>
 
 
@@ -400,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971579.jpg" />
 </div>
 
 
@@ -426,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971569.jpg" />
 </div>
 
 
@@ -452,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971565.jpg" />
 </div>
 
 
@@ -478,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971531.jpg" />
 </div>
 
 
@@ -504,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971500.jpg" />
 </div>
 
 
@@ -530,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971493.jpg" />
 </div>
 
 
@@ -541,137 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9EFD547D723EACCBF1C86AA97BB1A420194294E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975481   (971491) от 15.01.2016
-
-Химик / The Chemist (2015) WEB-DLRip
-
->>След.
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971491.jpg" />
-</div>
-
-
-###  Подробнее
-
-На последнем деле - Стил, опытный киллер, отказался выполнять приказ и убить очередную цель. Целью оказалась молодая девушка, которая очень понравилась убийце. Теперь он становится автоматически целью для своих братьев по оружию. Стилу нужно во всём разобраться, чтоб выйти сухим из воды.Производство: СШАЖанр: БоевикРежиссер: Арт КамачоАктеры: Саша Митчелл, Ричард Греко, Мартин Коув, Пэтрик Килпэтрик, Роберт Миано, Оливье Грюнер, Маршал Хилтон, Нина Бергман, Эшли Этвуд, Стефани ГерардПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BD8BB4F73FA853F1BFDFFA3F0CF1420335B5195
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975491   (971485) от 15.01.2016
-
-Последний обряд / Дом страха / Demonic (2015) HDRip [Line]
-
->>След.
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жуткое убийство происходит в заброшенном доме. Полиция обнаруживает три трупа и одного выжившего свидетеля. Он рассказывает, что его друзья погибли во время спиритического сеанса.
-Как оказалось — все погибшие охотились на привидений и были падки на всякую паранормальщину, жертвой которой в один прекрасный момент стали сами. Дом, в который они пришли, является вратами (   Читать дальше...   )Производство: США, Великобритания / Dimension Films, First Point EntertainmentЖанр: Ужасы, ТриллерРежиссер: Уилл КэнонАктеры: Мария Белло, Фрэнк Грилло, Коуди Хорн, Дастин Миллиган, Меган Парк, Скотт Мехловиц, Аарон Ю, Алекс Гуд, Эштон ЛиПеревод: Профессиональный многоголосый (Чистый звук)Субтитры: ОтсутствуютПродолжительность: 01:23:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C04F7C190E988EC5F8CC8D2A7AC1318F6E81118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357829   (971450) от 05.02.2020
-
-Рожденный после смерти / Strange But True (2019) BDRip [H.265] [10-bit]
-
->>След.
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя пять лет после гибели старшеклассника Ронни Чейза, который разбился на машине в выпускной вечер, к его матери и брату приходит его школьная подруга Мелисса. Она уверяет, что ждёт ребенка от Ронни. Недоверчивые родственники пытаются выяснить правду, которая оказывается страшнее всех предположений.Производство: Канада | Automatik Entertainment, First Generation Films, Head Gear FilmsЖанр: ТриллерРежиссер: Роуэн ЭтейлАктеры: Ник Робинсон, Эми Райан, Грег Киннир, Брайан Кокс, Маргарет Куэлли, Коннор Джессап, Блайт Даннер, Яная Стефенс, Мена Массуд, Сара АлленПеревод: Профессиональный многоголосый (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:35:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A45CECC58A1E7365BDDAE2E307278A4EF4DAC49B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357825   (971443) от 05.02.2020
-
-Простая просьба / A Simple Favor (2018) BDRip [H.265] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стефани, мама-блогер из маленького городка, оказывает подруге простую услугу, после чего та бесследно исчезает… Вместе с Шоном, мужем пропавшей, Стефани должна докопаться до истины. Отныне их жизни полны тайн и предательств, любви и верности, убийств и мести.Производство: США / BRON Studios, Feigco EntertainmentЖанр: Триллер, драма, криминал, детективРежиссер: Пол ФигАктеры: Анна Кендрик, Блэйк Лайвли, Генри Голдинг, Эндрю Рэннеллс, Иэн Хо, Джошуа Сатине, Гленда Браганза, Келли МакКормак, Апарна Нанчерла, Джия МавджиПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 01:56:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6661D1A20E91548F4D89DD32FDA94BBE0F3889D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 743945   (971413) от 11.01.2014
-
-Тайное окно / Secret Window (2004) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Писатель Морт Рейни живет в доме на берегу. Ещё недавно у него была жена и карьера писателя.Все дни напролет Морт только спит или смотрит на экран компьютера. Но в этой его размеренной, тоскливой жизни появляется странный человек в черной шляпе. Назвавшись Кокни Шутером, он обвиняет Рейни в плагиате.Жанр: Триллер, ДетективРежиссер: Дэвид КоеппАктеры: Джонни Депп, Джон Туртурро, Мария Белло, Тимоти Хаттон, Чарльз С. Даттон, Лен Кариу, Джоан Хини, Джон Данн-Хилл, Власта Врана, Мэтт ХоллэндПеревод: ДублированныйПродолжительность: 01:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62996E71BDDE2350E7FEB3FC1A09763FE3130326
 ```
 
 https://mybot314.ru/tekegram_catalog/

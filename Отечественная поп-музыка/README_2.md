@@ -1,3 +1,108 @@
+###  Публикация: 607650   (991014) от 28.01.2013
+
+Hi-Fi - Звездная серия (2008) [MP3|320 кб/с]<pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991014.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Про лето (2:58)
+ 2. Арабика (4:47)
+ 3. Черный ворон (4:00)
+ 4. Somebody (3:45)
+ 5. Не дано (3:06)
+ 6. Doctor Sex (4:48)
+ 7. Беспризорник (3:38)
+ 8. Куба (2:52)
+ 9. Fly (2:33)
+ 10. New York (2:20)(   Читать дальше...   )Жанр: popПродолжительность: 01:19:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72ECD7E0B368F7609B9BC044F64321E45FAEE1D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609807   (991001) от 28.01.2013
+
+Наталья Бучинская - Ночи любви (2011) [MP3|320 кб/с]<pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Назначенный судьбой
+02. Алло, кохання (на укр.яз.)
+03. Кому как не нам
+04. Полюбила
+05. Счастье
+06. Червоний мак (на укр.яз.)
+07. Первая любовь (feat. Гордон Д.)
+08. Ночи любви
+09. Река любви
+10. Ой, не говори (feat. Гаврилюк О.)(   Читать дальше...   )Жанр: popПродолжительность: 01:04:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55EAC0A15AB36B1DBFB316C11E5D9586FBCBBFA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607662   (990939) от 28.01.2013
+
+Демо - Звездная серия (2001) [MP3|320 кб/с]<pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Я делаю вдох (05:16)
+ 02 - 2000 лет (04:58)
+ 03 - Давайте петь! (04:01)
+ 04 - Солнышко (04:17)
+ 05 - Выше неба (03:55)
+ 06 - Я мечтаю (04:23)
+ 07 - Всё просто! (05:14)
+ 08 - Время меняет (05:35)
+ 09 - На краю света (03:47)
+ 10 - Место над землёй (05:12)(   Читать дальше...   )Жанр: popПродолжительность: 01:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AF50155B9CA568BA36928B88F04643BFB346E2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 607673   (989991) от 29.01.2013
 
 Женя Белоусов - Звездная серия (2003) [MP3|256-320 кб/с]<pop>
@@ -6,7 +111,7 @@
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989991.jpg" />
 </div>
 
 
@@ -41,7 +146,7 @@ Elvira T - На кухне (2020) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986109.jpg" />
 </div>
 
 
@@ -70,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982657.jpg" />
 </div>
 
 
@@ -105,7 +210,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980608.jpg" />
 </div>
 
 
@@ -134,7 +239,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979832.jpg" />
 </div>
 
 
@@ -169,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977948.jpg" />
 </div>
 
 
@@ -198,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977371.jpg" />
 </div>
 
 
@@ -233,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977047.jpg" />
 </div>
 
 
@@ -262,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974804.jpg" />
 </div>
 
 
@@ -297,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969692.jpg" />
 </div>
 
 
@@ -326,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969558.jpg" />
 </div>
 
 
@@ -355,7 +460,7 @@ Artik & Asti - 7 (Part 2) (2020) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969482.jpg" />
 </div>
 
 
@@ -384,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961986.jpg" />
 </div>
 
 
@@ -413,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961939.jpg" />
 </div>
 
 
@@ -442,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961922.jpg" />
 </div>
 
 
@@ -471,7 +576,7 @@ Reflex - Сойти С Ума (2002) [MP3|320 Kbps] <Pop, Europop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961888.jpg" />
 </div>
 
 
@@ -500,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961844.jpg" />
 </div>
 
 
@@ -529,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961813.jpg" />
 </div>
 
 
@@ -558,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961807.jpg" />
 </div>
 
 
@@ -587,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961786.jpg" />
 </div>
 
 
@@ -616,7 +721,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952227.jpg" />
 </div>
 
 
@@ -645,7 +750,7 @@ IOWA - #людимаяки (2020) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952178.jpg" />
 </div>
 
 
@@ -674,7 +779,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950342.jpg" />
 </div>
 
 
@@ -694,93 +799,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:309ABCA3F11BD7F644F594FC142E8C3C7BA3E636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362527   (948113) от 24.02.2020
-
-Игорёк - Подождём твою мать (2001) [MP3|320 Kbps] <Pop, Europop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Подождем (original edit) (03:20)
-02. Chicago bulls (04:11)
-03. My love - Танюха (03:48)
-04. Как мне жить (02:50)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:48:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B1ACB62159D73783B08FD5A412FAE4503EFF2F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361327   (946580) от 25.02.2020
-
-Акула - Звезда (2014) [MP3|320 Kbps] <Pop, Europop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Звезда (feat. OnAir & Alex Piletski) (3:43)
-02. Музыка детства (3:33)
-03. Ушла в рассвет (4:30)
-04. По подоконнику дождь (3:20)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20EF18AF8F795F716E9989FC3A37D793A61E8AF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361324   (946568) от 25.02.2020
-
-Акула - Без любви (2002) [MP3|320 Kbps] <Pop, Europop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Полюби (3:38)
-02. Девочка (3:32)
-03. Я так хочу (3:54)
-04. Рада (3:33)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7506ACF63F2AC74F6B0235D045BE8054B26A8BC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1102560   (889223) от 10.02.2017
+
+Nat Geo Wild: Секреты крокодила / Croc Inside Out (2015) HDTVRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нильский крокодил - крупное пресмыкающееся семейства настоящих крокодилов. Самый большой из трёх видов крокодилов, обитающих в Африке, и второй по величине в мире после гребнистого крокодила. Благодаря району обитания, размерам и силе, известен как крокодил-людоед, в древние времена являлся предметом страха и поклонения. До настоящего времени остаётся, пожалуй, наиболее (   Читать дальше...   )Телекомпания: США, Earth-Touch and SNI/SI Networks L.L.C.Жанр: Документальный, познавательный, флора, фаунаРежиссер: Бенджамин ХьюлеттПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:228F6EAF4416239EFFAEAE13F1017BD17BD014C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 752072   (889123) от 08.03.2016
+
+BBC. Horizon. Тайная жизнь кошек / The Secret Life of the Cat (2013) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы когда-нибудь задумывались о том, что делает ваша кошка (если она, конечно, у вас есть) пока вы отсутствуете дома? Как далеко она гуляет от дома? Какие её любимые места? Недавно канал BBC начал необычный проект, благодаря которому хозяева кошек смогут узнать о “тайной жизни” своих питомцев. Для этого журналисты BBC установили на 50 кошек из деревушки Грин Шемли, (   Читать дальше...   )Жанр: Документальный, научно-познавательный, природа, кошкиПеревод: Одноголосый закадровый (профессиональный)Язык субтитров: английскийПродолжительность: 00:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B0E6D8FB2578FC825D016B141E3BBCE315402C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 296970   (889082) от 17.02.2011
+
+NG: Самые страшные мировые морские катастрофы / The World's Deadliest Sea Disasters (2007) TVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889082.jpg" />
+</div>
+
+
+###  Подробнее
+
+В конце Великой Отечественной войны гражданские беженцы и остатки войск из Восточной Пруссии могли эвакуироваться только морем, где их ждали советские подводные лодки. Страх перед жестокостью советских солдат был так велик, что женщины и дети переполняли любые неприспособленные для пассажиров суда. Общее число погибших в море по некоторым оценкам достигает 40 000 человек...Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3B4A61939A0239213773DC5B81F1344D4BEE3F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 640120   (888844) от 06.04.2013
 
 BBC: Тайная жизнь льда / The Secret Life of Ice (2011) HDTVRip [H.264/720p]
@@ -6,7 +84,7 @@ BBC: Тайная жизнь льда / The Secret Life of Ice (2011) HDTVRip [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888844.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888265.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888042.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886609.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885662.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ NG: Миссия полета к Солнцу / Mission to the Sun (2018) IPTVRi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884959.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ BBC: Эйнштейн и Хокинг. Гении нашей Вселенной 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883336.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883208.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883023.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882235.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ BBC: Внутри человеческого тела / BBC: Inside the Human Bo
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882174.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881795.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881673.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ BBC: Мир природы. Каланы. Малышка на миллион / N
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880740.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ NGW. Болотный отряд (Павианы Окаванго) / Swamp Troop
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880138.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ Discovery: 100 Величайших Открытий / 100 Greatest Discoveries 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879959.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ BBC: Секреты устройства античных городов. Афи
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879854.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ Discovery. Как устроена Вселенная / Discovery. How the Unive
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878746.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ NG: Спасти Титаник: сокровища с глубины / Save the
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878255.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878247.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ NG: Спасение старейшей пирамиды Египта / Saving E
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878118.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877399.jpg" />
 </div>
 
 
@@ -582,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877127.jpg" />
 </div>
 
 
@@ -593,85 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:526B74C93D839179EE1EC6349A5E330D8070C03E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 852907   (876843) от 15.03.2016
-
-BBC: Королевские дворцы / The Queen's Palaces (2011) HDTVRip [H.264/720p] [1-3 серия из 3]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Британская журналистка и телеведущая Фиона Брюс расскажет историю трех официальных резиденций Королевы Великобритании: Букингемском дворце, Виндзорском замке и дворце Холируд-хаус, которые являются одними из немногих действующих сегодня королевских дворцов в мире.Жанр: Документальный мини-сериал, архитектураПеревод: Двухголосый закадровый (профессиональный)Субтитры: отсутствуютПродолжительность: 3 х ~00:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA711CBD0180EA831A2BAEE77F1A7C03824762D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 846797   (876660) от 15.03.2016
-
-Динозавры: Гиганты Патагонии / Dinosaurs: Giants of Patagonia (2007) BDRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>Доисторический мир
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если бы не серия катаклизмов, начатая падением метеорита, наша планета до сих пор могла бы быть населена динозаврами.
-Вслед за профессором Рудольфо Гориа, всемирно известным Аргентинским палеонтологом, зритель посетит места его важнейших открытий в Патагонии и вернется назад во времени, чтобы увидеть рождение этих невероятных созданий. Патагония подарила нам самое (   Читать дальше...   )Жанр: ДокументальныйАктеры: Дональд СазерлендПеревод: одноголосый закадровый (профессиональный)Субтитры: отсутствуютПродолжительность: 00:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A20516ECEBD7B709DD07C433BE85B9E64DC0EA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105303   (876470) от 17.02.2017
-
-Загадки острова Пасхи / The mystery of Easter Island (2003) TVRip
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Остров Пасхи долгие годы был загадкой для ученых. Кто создатель этой удивительной цивилизации? Кто и зачем воздвиг знаменитые каменные истуканы? Куда исчезли эти загадочные скульпторы? Современная наука начинает постепенно разгадывать тайны острова Пасхи.Телекомпания: ВеликобританияЖанр: ДокументальныйРежиссер: Джонатан РенуфПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:49:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EE298F2A7E215345976005CBEBEFDC131BBDE6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

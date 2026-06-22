@@ -6,7 +6,7 @@ SpamSieve 2.9.51 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045404.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ SuperDuper! 3.7.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045401.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ StarUML 5.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045367.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Mirror for Philips TV 2.8.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045335.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Screegle - Clean Screen Sharing 2.2.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045334.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Mirror for TCL TV 3.8.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045332.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ iconStiX 4.2.1 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045113.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Tipard DVD Cloner for Mac 6.2.38 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045111.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Backtrack - Record Past Audio 1.6.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045106.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Timecode Pro 3.2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045099.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Soulver 3 v.3.7.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045094.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Apeaksoft iPhone Eraser 1.0.10 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045091.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Sketch Fashion 1.2.5 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045055.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ TurboMosaic Pro 3.6.9 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044985.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ AnyMP4 Mac Video Enhancement 8.2.30 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044981.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Geekbench 5 v.5.5.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044961.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Vidmore Video Enhancer 1.0.12 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044956.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Apeaksoft Video Editor for Mac 1.0.36 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044886.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Postico 2.0 beta [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044883.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Tipard All Music Converter 9.1.20 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044878.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Time Stamp 2.60 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044870.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Tipard Mac Video Enhancer 9.1.36 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044868.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ FoneDog iPhone Cleaner for Mac 1.0.12 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044865.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ FrameMagic - Collage Maker Pro 3.7.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044748.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ AnyMP4 Mac Video Converter Ultimate for Mac 9.2.38 [Rus/Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044697.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Auto Invert! 2.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044656.jpg" />
 </div>
 
 

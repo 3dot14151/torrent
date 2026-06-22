@@ -1,3 +1,31 @@
+###  Публикация: 925306   (535155) от 09.08.2015
+
+RunKeeper 5.8.3 [Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Присоединяйся к 26-миллионному сообществу пользователей RunKeeper, которые уже превратили телефон в личного карманного тренера! Отслеживай прогулки, пробежки, походы и поездки на велосипеде с помощью GPS на своем телефоне Android.
+Отслеживай физическую активность и получай при этом удовольствие:
+- Просматривай подробные статистики о темпе, дистанции, времени и сожженных (   Читать дальше...   )Релиз состоялся: 04.08.2015Разработчик: FitnessKeeper, Inc.Поддерживаемая ОС: Android 4.0 +Язык интерфейса: Русский, Английский, и другие.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AAEDA72C0A7DE108EAA39DCD73DA41CF0970BFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 783105   (535110) от 18.06.2022
 
 FX File Explorer Plus v8.9.1.3 [En/Ru] (обновляемая)
@@ -6,7 +34,7 @@ FX File Explorer Plus v8.9.1.3 [En/Ru] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535110.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527929.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524381.jpg" />
 </div>
 
 
@@ -76,32 +104,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559862   (522610) от 27.06.2022
-
-Power Shortcuts Pro 1.2.2 Mod by cergor [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Power Shortcuts - весьма полезное приложение для пользователей, что хотят существенно повысить свои возможности и качества по управлению мобильным гаджетом в самых различных сферах взаимодействия и выполнения заданий. Особенно создании специальных ярлыков для повышения скорости взаимодействия с функциями, что нужны владельцу гаджета. Удобная в обращении площадка, (   Читать дальше...   )Тип издания: Paid (Mod)Релиз состоялся: 23.12.2020Разработчик: ChYK the devПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский, Украинский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D27FCB80F7E2FEE287E20D74F1064769AF6250
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928540   (522440) от 16.08.2015
 
 REAL ANIMALS HD 1.2.7 [En] - познаём мир животных
@@ -110,7 +112,7 @@ REAL ANIMALS HD 1.2.7 [En] - познаём мир животных
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522440.jpg" />
 </div>
 
 
@@ -136,7 +138,7 @@ HelloChinese 5.0.6 [Ru/Multi] - Учим китайский
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522126.jpg" />
 </div>
 
 
@@ -162,7 +164,7 @@ Mighty Final Fight 1.1.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522121.jpg" />
 </div>
 
 
@@ -188,7 +190,7 @@ Perfectly Clear v4.3.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518954.jpg" />
 </div>
 
 
@@ -215,7 +217,7 @@ Garmin: TOPO Alaska Enhanced v.2.0 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517658.jpg" />
 </div>
 
 
@@ -241,7 +243,7 @@ vRGB - LED ИК Пульт Управления v4.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517602.jpg" />
 </div>
 
 
@@ -267,7 +269,7 @@ Garmin: TOPO Stan Countries v4 Ligh [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517601.jpg" />
 </div>
 
 
@@ -285,32 +287,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560959   (517600) от 02.07.2022
-
-Rain Alarm Plus / Дождевая сигнализация плюс - Все функции 5.4.1 Mod by srajawwal09 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rain Alarm - предупреждает вас о актуальном приближение дождя. Эти предупреждения являются надёжным краткосрочным прогнозом, основанным на данных в фактически реальном времени. Rain Alarm является более точным и надежным приложением, чем традиционный прогноз погоды. Знать о приближении непогоды важно для всех занятий на открытом воздухе, на пример: езда на велосипеде, (   Читать дальше...   )Тип издания: ProРелиз состоялся: 03.11.2021Разработчик: Michael Diener - Software e.K.Поддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84307AC2DC8D4EC4981F5CCDB542A2BF83F9635D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561059   (517590) от 02.07.2022
 
 SMD info v1.34 [Ru]
@@ -319,7 +295,7 @@ SMD info v1.34 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517590.jpg" />
 </div>
 
 
@@ -345,7 +321,7 @@ Electronics Calculator Pro v1.6.2 [En] - различные утилиты дл�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516986.jpg" />
 </div>
 
 
@@ -371,7 +347,7 @@ PickU - Редактор фотографий 3.6.6 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516658.jpg" />
 </div>
 
 
@@ -389,32 +365,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561130   (516643) от 03.07.2022
-
-Momo Music Player 1.5 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Функциональный и удобный проигрыватель, в котором вы найдете множество уникальных возможностей для прослушивания музыки на своем мобильном устройстве. Именно это позволит вам получить множество качественных часов за прослушиванием музыки. Огромное количество полезных опций и инструментов данного плеера, помогут слушать музыку в удобной форме. Программа автоматически (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 05.05.2017Разработчик: Magic Mage StudioПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:947947D5DC963CF5443DDC02DF9F691B8BED74C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561078   (516599) от 03.07.2022
 
 Supershift - График смен v2022.4 [Ru]
@@ -423,7 +373,7 @@ Supershift - График смен v2022.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516599.jpg" />
 </div>
 
 
@@ -449,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516597.jpg" />
 </div>
 
 
@@ -475,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515710.jpg" />
 </div>
 
 
@@ -501,7 +451,7 @@ Video Converter, Compressor 0.9.4 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515581.jpg" />
 </div>
 
 
@@ -527,7 +477,7 @@ Pixlr Pro 3.4.63 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515524.jpg" />
 </div>
 
 
@@ -553,7 +503,7 @@ JAVAD Mobile Tools v4.4.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513527.jpg" />
 </div>
 
 
@@ -580,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513520.jpg" />
 </div>
 
 
@@ -606,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513459.jpg" />
 </div>
 
 
@@ -632,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512574.jpg" />
 </div>
 
 
@@ -661,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512572.jpg" />
 </div>
 
 
@@ -675,6 +625,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8814C8D20802F4154C2A026022911D91025C1EA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561388   (512408) от 07.07.2022
+
+Shuttle+ Music Player 2.0.17 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shuttle+ Music Player – это простое, удобное и минималистично, но в то же время достаточно приложение для проигрывания музыки на устройстве Android. Настоящий меломан должен наслаждаться музыкой, а не пестрыми плеерами. В этом приложении прекрасно все: и лаконичный дизайн, и удобная сортировка музыки, и красивые темы. Создать плейлист своей мечты стало проще простого. (   Читать дальше...   )Тип издания: Plus (Paid)Релиз состоялся: 13.07.2020Разработчик: SimpleCityПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0617E20086FBF9C29296ACA1FCE1CA634A4FF994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562169   (512406) от 07.07.2022
+
+MarineTraffic v4.0.31 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Marine Traffic отображает в реальном времени позиции судов и яхт по всему миру.
+Подключаясь к крупнейшей сети приемников АИС, приложение охватывает большинство крупных портов и судоходных маршрутов.Тип издания: Пиратка (STARTER PLAN)Релиз состоялся: 28 июн. 2022 гРазработчик: MarineTrafficПоддерживаемая ОС: Android 4.4+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09518A1FB92875054FC1962C6A386F6DDB0D9EDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

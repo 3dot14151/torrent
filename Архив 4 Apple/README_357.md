@@ -1,3 +1,29 @@
+###  Публикация: 1565771   (490511) от 25.07.2022
+
+ProFind 1.14.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благодаря мощным функциям и отличной производительности ProFind обеспечивает расширенный поиск файлов на macOS. А также с поддержку запросов на естественном языке, запуск приложений, поиска скрытого местоположения, поиск внутри невидимых папок и пакетов, сценарии и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 25.07.2022Разработчик: © 2022 Ross TullochПоддерживаемая ОС: macOS X 10.13 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51DA2FD7A9971F040FF62B2CF74731C150AC3868
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565841   (490509) от 25.07.2022
 
 EdgeView 3 v3.6.5 [En]
@@ -6,7 +32,7 @@ EdgeView 3 v3.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490509.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ FontLab 8 v8.0.1.8237 beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490508.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ DropDMG 3.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490418.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Swinsian 1.12.2 (297) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490415.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ BBEdit 11.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490411.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Transmit 5.5.2 (124163) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490373.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ BarLinks: Menu Bar Bookmarks 1.02 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490356.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ EazyDraw 10.8.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490348.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Live Home 3D Pro Edition 4.4.2 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490347.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Deflection Pro 6.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490343.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Affinity Designer 1.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490340.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ PDF Squeezer 3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490292.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ Carbon Copy Cloner 4.1.10 (4425) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490288.jpg" />
 </div>
 
 
@@ -358,7 +384,7 @@ MarsEdit 4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490231.jpg" />
 </div>
 
 
@@ -384,7 +410,7 @@ Carbon Copy Cloner 4.1.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490161.jpg" />
 </div>
 
 
@@ -413,7 +439,7 @@ Path Finder 7.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490105.jpg" />
 </div>
 
 
@@ -439,7 +465,7 @@ OmmWriter 1.52 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490055.jpg" />
 </div>
 
 
@@ -468,7 +494,7 @@ MediaInfo 20.08.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489883.jpg" />
 </div>
 
 
@@ -494,7 +520,7 @@ Hands Off! 3.2.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489838.jpg" />
 </div>
 
 
@@ -520,7 +546,7 @@ TG Pro (Temperature Gauge Pro) 2.49 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489755.jpg" />
 </div>
 
 
@@ -547,7 +573,7 @@ Money Pro - Personal Finance 2.5.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489751.jpg" />
 </div>
 
 
@@ -575,7 +601,7 @@ App Cleaner & Uninstaller Pro 7.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489561.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Sketch 68.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489557.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ Motion 5.4.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489401.jpg" />
 </div>
 
 
@@ -657,7 +683,7 @@ Compressor 4.4.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489397.jpg" />
 </div>
 
 
@@ -668,33 +694,6 @@ Compressor – простой и мощный инструмент для сжа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A6426EAF8B03084F3691791A5612AA8C9B07AC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404872   (489393) от 27.08.2020
-
-ForkLift 3.4.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489393.jpg" />
-</div>
-
-
-###  Подробнее
-
-ForkLift – это альтернативный файловый менеджер с функцией FTP-клиента.
-На ForkLift стоит обратит внимание, если вы очень много работаете с различными внешними носителями (поможет двухоконный режим) или активно пользуетесь FTP-серверами. В обоих этих случаях решающим фактором оказывается двухоконный режим. Он позволяет одновременно в одном окне ForkLift видеть две (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.08.2020Разработчик: BinaryNightsПоддерживаемая ОС: OS X 10.11.6 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7878A1A6EB40D7E908E23D54012EA09AE5DF482
 ```
 
 https://mybot314.ru/tekegram_catalog/

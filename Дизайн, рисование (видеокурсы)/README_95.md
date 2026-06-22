@@ -6,7 +6,7 @@ Gumroad, Pierrick Picaut | Alive! Animation course in Blender 2.9 [Chapters 1-9]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63772.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ ITsets | Дизайн-симулятор - Middle UI - UX-дизайнер (2023
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63681.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63551.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63539.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Creative Shrimp, Gleb Alexandrov | Cinematic Lighting in Blender (2022) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63146.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Gumroad, Dan Kenton | Revolver Texturing Tutorial (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63052.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Gumroad, Thiago Klafke | Environment Art Mastery (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62817.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Udemy, Jacob Zirkle | Blender VFX Course: From Beginner To Pro! (2024) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62805.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Udemy, 3D Tudor | Blender 4 Geometry Nodes for Beginners (2024) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62679.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ CG Cookie, Paul Caggegi | MODIFY: A complete guide on Blender's modifiers (2023)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62161.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61976.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Creativo, Андрей Баталов | Инфографика для марке
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61679.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ The Gnomon Workshop, Paul Ozzimo | Designing Sci-Fi Weapons for Film (2023) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61423.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Udemy, Bharat Sharma | Old Stylized Character in Blender (2024) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61035.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ CG Fast Track | Blender Fundamentals Vol. 1-3 - Modeling, UVs, Texturing and Sha
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60817.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Udemy, Nikolay Naydenov | Arm and hand anatomy exercises course (2024) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60789.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60710.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60512.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Videosmile, Михаил Бычков | Супер After Effects (2022) WEB-DL [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60306.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Canopy Games, Erindale Woodford | Advanced Geometry Nodes for Blender 3.3+ (2022
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58722.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Scott Eaton.com, Scott Eaton | Portraiture and Facial Anatomy. Week 1-6 (2014) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58071.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Blender Market, Jean-yan BABOIS | The Ride - A Blender Car Animation Course (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57252.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ CG Masters, Chris Plush | 3D Cars: Inside and Out in Blender [Chapters 1-37] (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56959.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ GeekBrains | Факультет дизайна (2023) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56926.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Creative Shrimp, Gleb Alexandrov, Aidy Burrows | Nebula: Learn Volumes, GeoNodes
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55454.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ ArtStation, Milad Kambari | Substance Painter Master Course (2024) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53808.jpg" />
 </div>
 
 

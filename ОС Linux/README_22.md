@@ -1,3 +1,84 @@
+###  Публикация: 1799246   (16901) от 26.05.2025
+
+Astra Linux Special Edition 1.8.2.UU1 [amd64] 3xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инновационная операционная система класса Linux, обеспечивающая защиту информации, содержащей сведения, составляющие государственную тайну с грифом не выше «совершенно секретно». Разработаны и включены в состав операционной системы программные компоненты, расширяющие ее функциональность и повышающие уровень защищенности и удобства ее использования.
+
+Разработаный (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD9C8484219B756B07BDF287A97704D6CC3DC01F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800787   (15527) от 06.06.2025
+
+Ред ОС (сертифицированная, с k8s) 7.3 [amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ред ОС "Муром" - это операционная система на базе ядра Linux являющаяся составным продуктом, построенным на базе решений с открытым исходным кодом и собственных разработок. Занесена в Единый реестр российских программ. Сертифицирован в системе сертификации ФСТЭК России на соответствие требованиям профиля защиты операционных систем типа «А» четвертого класса (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CC3CECE25EC85E4A3ABAB2BCC891EBDEF470D9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805172   (12569) от 04.07.2025
+
+MeeGo OS 1.2 cedartrail  [i386] 1xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12569.jpg" />
+</div>
+
+
+###  Подробнее
+
+meego это система для нетбуков основанная на red hat
+ЭТО ВЕРСИЯ CEDARTRAIL НА ДРУГИЕ ПРОЦЕССОРЫ НЕ ВСТАНЕТ и наоборот не cedartrail образ не встанет на cedartrail
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94AFE14978DAD2C93CF43E62BDDC5CB9C8E6A555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805246   (12284) от 07.07.2025
 
 MeeGo OS 1.2 [i386] 1xDVD
@@ -6,7 +87,7 @@ MeeGo OS 1.2 [i386] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12284.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Zorin OS 17.3 R3 Pro & Pro Lite [X86_64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11364.jpg" />
 </div>
 
 
@@ -61,7 +142,7 @@ Astra Linux Special Edition 1.8.3 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6532.jpg" />
 </div>
 
 
@@ -89,7 +170,7 @@ Linux Mint 22.2 Zara (Cinnamon Edition, MATE Edition, Xfce Edition) [x86_64] 3xD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4593.jpg" />
 </div>
 
 
@@ -115,7 +196,7 @@ Astra Linux Special Edition 1.8.3 UU1 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2390.jpg" />
 </div>
 
 

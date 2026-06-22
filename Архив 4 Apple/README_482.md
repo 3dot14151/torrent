@@ -1,3 +1,56 @@
+###  Публикация: 1190027   (268574) от 08.12.2017
+
+Sketch 48.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sketch от Bohemian Coding — один из лучших векторных редакторов под Mac OS X!
+Разработка современных приложений немыслима без работы дизайнера, а дизайнеру для работы необходимо соответствующее программное обеспечение. В основном для разработки дизайна используются Adobe Illustrator, Photoshop и другие профессиональные графические редакторы, но есть и специализированные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07 декабря 2017Разработчик: Bohemian CodingПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C867D14C4E9517B40915AA6B4629A5104BD4D9D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266857   (268426) от 04.12.2018
+
+iFinance 4.5.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268426.jpg" />
+</div>
+
+
+###  Подробнее
+
+iFinance 4 позволяет вам отслеживать доходы и расходы наиболее удобным и быстрым способом. Быстрый взгляд на диаграммы позволяет оценить на что вы тратите деньги и откуда поступает доход. Оптимизация ваших финансов - оказывается это интересно! Автоматическиое назначение категорий, ключевые слова, бюджеты и анализ данные превратят ваш банковский счёт в нечто большее, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.12.2018Разработчик: Synium Software GmbHПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA5B469699DCD4F4E1131F83C2285421E658438F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266967   (268388) от 04.12.2018
 
 Hype 3 Pro 3.6.7 [En]
@@ -6,7 +59,7 @@ Hype 3 Pro 3.6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268388.jpg" />
 </div>
 
 
@@ -35,7 +88,7 @@ SketchUp Pro 2018 v18.1.1180 [Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268245.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ DiskCatalogMaker 7.5.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268241.jpg" />
 </div>
 
 
@@ -88,7 +141,7 @@ Athentech Perfectly Clear Complete 3 v3.9.0.1696 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268240.jpg" />
 </div>
 
 
@@ -116,7 +169,7 @@ Scherlokk - Files finder 4 v4.1.4 (build 41431) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268239.jpg" />
 </div>
 
 
@@ -142,7 +195,7 @@ Feeder 3 v3.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268238.jpg" />
 </div>
 
 
@@ -170,7 +223,7 @@ SuperDuper! 3.3.B6 (v119.7) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268237.jpg" />
 </div>
 
 
@@ -196,7 +249,7 @@ PrefEdit 4.31 (build 191113) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268235.jpg" />
 </div>
 
 
@@ -223,7 +276,7 @@ Disk Graph 2.1.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268234.jpg" />
 </div>
 
 
@@ -249,7 +302,7 @@ PullTube 1.2.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268233.jpg" />
 </div>
 
 
@@ -275,7 +328,7 @@ TG Pro (Temperature Gauge Pro) 2.44 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268232.jpg" />
 </div>
 
 
@@ -302,7 +355,7 @@ DropDMG 3.5.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268231.jpg" />
 </div>
 
 
@@ -329,7 +382,7 @@ EazyDraw 9 v9.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268230.jpg" />
 </div>
 
 
@@ -355,7 +408,7 @@ Folder Tidy 2.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268229.jpg" />
 </div>
 
 
@@ -382,7 +435,7 @@ Check Off- A Task Manager 5.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268227.jpg" />
 </div>
 
 
@@ -408,7 +461,7 @@ Cisdem Duplicate Finder 5.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268226.jpg" />
 </div>
 
 
@@ -436,7 +489,7 @@ DSSW Power Manager 5.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268225.jpg" />
 </div>
 
 
@@ -464,7 +517,7 @@ Navicat Premium 15.0.1 beta [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268224.jpg" />
 </div>
 
 
@@ -490,7 +543,7 @@ Switch 4 Pro 4.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268221.jpg" />
 </div>
 
 
@@ -517,7 +570,7 @@ Comic Life 3 v3.5.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268220.jpg" />
 </div>
 
 
@@ -544,7 +597,7 @@ DxO PhotoLab 3 ELITE Edition 3.0.2 (build 224) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268212.jpg" />
 </div>
 
 
@@ -572,7 +625,7 @@ Newsflow v 1.4.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268211.jpg" />
 </div>
 
 
@@ -601,7 +654,7 @@ GPG Suite 2019.2 (build 1587) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268209.jpg" />
 </div>
 
 
@@ -627,7 +680,7 @@ iFlicks 3 v3.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268203.jpg" />
 </div>
 
 
@@ -640,60 +693,6 @@ iFlicks — это метаданные к сериалам и фильмам. �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC557386F16D3C09032376B660F75F2B572E799C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338972   (268194) от 17.11.2019
-
-Movavi Slideshow Maker 6.0.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movavi Slideshow Maker – это простая и удобная программа для создания слайд-шоу на русском языке. Вы сможете самостоятельно превращать фотографии из вашей коллекции в красивое видео, причем для этого вам не потребуется каких-либо специальных навыков. Загрузите изображения в программу, соедините фото анимированными переходами, добавьте подходящий саундтрек, наложите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Movavi Software Limited.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E022C8633A1288797A152FC2C126B92358CA0953
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338921   (268132) от 17.11.2019
-
-CrossOver 19.0 beta 1 (build 32154) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет CrossOver основан на программном коде коде Wine и представляет собой оболочку для запуска программ под Windows на платформе macOS. Кроме этого, он позволяет запускать игры, что для многих пользователей является решающим фактором при выборе операционной системы.
-
-Отметим, что вышеупомянутый Wine представляет собой программную прослойку, позволяющую выполнять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: CodeWeaversПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1564A3995CBAE18D6E0A96317D124442DDA6FF05
 ```
 
 https://mybot314.ru/tekegram_catalog/

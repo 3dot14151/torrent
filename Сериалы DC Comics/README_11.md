@@ -1,159 +1,3 @@
-###  Публикация: 1732056   (52400) от 23.06.2024
-
-Песочный человек / The Sandman (2022) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] (сезон 1, серии 1-11 из 11) NewComers, HDrezka, LostFilm, TVShows, Red Head Sound, RuDub
-
->>Зарубежные сериалы
->>Сериалы DC Comics
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52400.jpg" />
-</div>
-
-
-###  Подробнее
-
-В результате тайного ритуала повелитель снов Морфей оказывается в плену у оккультиста. Спустя 70 лет ему удается бежать. В его отсутствие мир сильно изменился. Теперь Морфею предстоит вернуть былую силу, возродить свое царство и понять, как изменился он сам.Производство: Великобритания, США / DC Entertainment, The Blank Corporation, Warner Bros. TelevisionЖанр: ужасы, фэнтези, боевик, драмаРежиссер: Джейми Чайлдс, Андрес Байс, Луиз ХуперАктеры: Том Стёрридж, Бойд Холбрук, Пэттон Освальт, Вивьенн Ачеампонг, Ванесу Самуньяи, Мэйсон Александр Парк, Разан Джаммаль, Сандра Джеймс-Янг, Дэвид Тьюлис, Eddie KaranjaПеревод: Многоголосый профессиональный (NewComers, HDrezka, LostFilm, TVShows, Red Head Sound, RuDub)Язык озвучки: Русский, АнглийскийСубтитры: русские (Forced, Full), английские (Full, SDH)Продолжительность: ~00:54:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A13D447DE5B7456A399A1FD78301D3C9AC08E98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730029   (49576) от 19.07.2024
-
-Пацаны / The Boys (2024) WEB-DL [H.265/2160p] [4K, HDR10+, 10-bit] (сезон 4, серии 1-8 из 8) KerobTV
-
->>Зарубежные сериалы
->>Сериалы DC Comics
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие сериала разворачивается в мире, где существуют супергерои. Именно они являются настоящими звездами. Их все знают и обожают. Но за идеальным фасадом скрывается гораздо более мрачный мир наркотиков и секса, а большинство героев — в жизни не самые приятные люди. Противостоит им отряд, неофициально известный как «Пацаны».Производство: США / Amazon Studios, Kickstart Entertainment, Kripke EnterprisesЖанр: фантастика, боевик, драма, комедия, криминалРежиссер: Филип Сгриккиа, Фред Туа, Сара БойдАктеры: Карл Урбан, Джек Куэйд, Энтони Старр, Эрин Мориарти, Джесси Ашер, Лас Алонсо, Чейс Кроуфорд, Томер Капон, Карен Фукухара, Нэйтан МитчеллПеревод: Многоголосый любительский (KerobTV)Язык озвучки: русский (18+), английскийСубтитры: отсутствуютПродолжительность: ~01:05:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1207648625BE23AA5C21967D6B07D9638E0E0DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730922   (49242) от 22.07.2024
-
-Пацаны / The Boys (2024) WEB-DL [H.264/1080p] (сезон 4, серии 1-8 из 8) Red Head Sound
-
->>Зарубежные сериалы
->>Сериалы DC Comics
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие сериала разворачивается в мире, где существуют супергерои. Именно они являются настоящими звездами. Их все знают и обожают. Но за идеальным фасадом скрывается гораздо более мрачный мир наркотиков и секса, а большинство героев — в жизни не самые приятные люди. Противостоит им отряд, неофициально известный как «Пацаны».Производство: США / Amazon Studios, Kickstart Entertainment, Kripke EnterprisesЖанр: фантастика, боевик, драма, комедия, криминалРежиссер: Филип Сгриккиа, Фред Туа, Сара БойдАктеры: Карл Урбан, Джек Куэйд, Энтони Старр, Эрин Мориарти, Джесси Ашер, Лас Алонсо, Чейс Кроуфорд, Томер Капон, Карен Фукухара, Нэйтан МитчеллПеревод: Дублированный (Red Head Sound)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B0132797906D63F96146E9F5AE5239673B06F06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944878   (49155) от 23.07.2024
-
-Я – зомби / iZombie (2015) WEB-DLRip (сезон 2, серии 1-19 из 19) BaibaKo
-
->>След.
->>Сериалы DC Comics
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49155.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета — студентка медицинского факультета Оливия «Лив» Мур, для которой последствия одной из вечеринок стали переломным моментом в жизни, превратившим её в зомби. Жизнерадостная, активная и пышущая здоровьем раньше, теперь Лив похожа на представителя готов — с бледной кожей, тёмными кругами вокруг глаз и почти белыми волосами. Она устраивается на работу (   Читать дальше...   )Производство: США / Spondoolie Entertainment, Vertigo Productions, Warner Bros. TelevisionЖанр: ужасы, фантастика, драма, комедия, криминалРежиссер: Майкл Филдс, Джон Т. Кречмер, Джейсон БлумАктеры: Роуз МакАйвер, Малкольм Гудвин, Рахул Коли, Роберт Бакли, Дэвид Андерс, Элисон Мичалка, Ник Пурча, Молли Хэйгэн, Стивен Уэбер и др.Перевод: Многоголосый закадровый, профессиональный - BaibaKoОзвучка: Ольга Мотрич, Татьяна Оболевич, Руслан Иванов и Олекса МельникПродолжительность: ~00:42:00 серияРеклама: присутствуют видео, аудио вставки рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C4AF757FBEADC667916D36C189F87CAADC381E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730026   (49154) от 23.07.2024
-
-Пацаны / The Boys (2024) WEB-DL [H.264/1080p] (сезон 4, серии 1-8 из 8) Red Head Sound, LostFilm, HDRezka, NewStudio, Jaskier, TVShows, ColdFilm
-
->>След.
->>Сериалы DC Comics
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие сериала разворачивается в мире, где существуют супергерои. Именно они являются настоящими звездами. Их все знают и обожают. Но за идеальным фасадом скрывается гораздо более мрачный мир наркотиков и секса, а большинство героев — в жизни не самые приятные люди. Противостоит им отряд, неофициально известный как «Пацаны».Производство: США / Amazon Studios, Kickstart Entertainment, Kripke EnterprisesЖанр: фантастика, боевик, драма, комедия, криминалРежиссер: Филип Сгриккиа, Фред Туа, Сара БойдАктеры: Карл Урбан, Джек Куэйд, Энтони Старр, Эрин Мориарти, Джесси Ашер, Лас Алонсо, Чейс Кроуфорд, Томер Капон, Карен Фукухара, Нэйтан МитчеллПеревод: Дублированный (Red Head Sound), Многоголосый профессиональный (LostFilm, HDRezka Studio, NewStudio, Jaskier, TVShows), многоголосый любительский (ColdFilm)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), английские (Forced, Full, SDH), французские, испанские, немецкие, итальянскиеПродолжительность: ~01:05:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:149EF103B6C03F192B393287DB812527A2B27F2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 879535   (49152) от 23.07.2024
-
-Я – зомби / iZombie (2015) WEB-DLRip (сезон 1, серии 1-13 из 13) BaibaKo
-
->>Зарубежные сериалы
->>Сериалы DC Comics
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49152.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета — студентка медицинского факультета Оливия «Лив» Мур, для которой последствия одной из вечеринок стали переломным моментом в жизни, превратившим её в зомби. Жизнерадостная, активная и пышущая здоровьем раньше, теперь Лив похожа на представителя готов — с бледной кожей, тёмными кругами вокруг глаз и почти белыми волосами. Она устраивается на работу (   Читать дальше...   )Производство: СШАЖанр: ужасы, фантастика, драма, криминалРежиссер: Майрзи Алмас, Роб ТомасАктеры: Роуз МакИвер, Малкольм Гудвин, Рахул Коли, Молли Хэйгэн, Ник Пурча, Элиз Гэтьен, Мэттью МакКоулл, Роб Карпентер, Сунита Прасад и др.Перевод: Многоголосый закадровый, профессиональный - BaibaKoОзвучка: Ольга Мотрич, Лира Грим, Руслан Иванов и Олекса МельникПродолжительность: ~00:42:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F2AEC40A6D8DDB935293260F047BFB8005D9ED1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317804   (49057) от 24.07.2024
 
 Пацаны / The Boys (2019) WEB-DLRip (сезон 1, серии 1-8 из 8) HDrezka
@@ -162,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49057.jpg" />
 </div>
 
 
@@ -188,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49054.jpg" />
 </div>
 
 
@@ -214,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48959.jpg" />
 </div>
 
 
@@ -240,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48736.jpg" />
 </div>
 
 
@@ -266,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48720.jpg" />
 </div>
 
 
@@ -292,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48568.jpg" />
 </div>
 
 
@@ -318,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45418.jpg" />
 </div>
 
 
@@ -344,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45101.jpg" />
 </div>
 
 
@@ -370,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42675.jpg" />
 </div>
 
 
@@ -396,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37255.jpg" />
 </div>
 
 
@@ -422,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37250.jpg" />
 </div>
 
 
@@ -448,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37249.jpg" />
 </div>
 
 
@@ -474,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37139.jpg" />
 </div>
 
 
@@ -500,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28937.jpg" />
 </div>
 
 
@@ -526,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24563.jpg" />
 </div>
 
 
@@ -552,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24411.jpg" />
 </div>
 
 
@@ -578,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6564.jpg" />
 </div>
 
 
@@ -604,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6200.jpg" />
 </div>
 
 
@@ -631,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5878.jpg" />
 </div>
 
 
@@ -658,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5716.jpg" />
 </div>
 
 
@@ -669,6 +513,162 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22AA587A3D58B4BB88DCC61E3F80D0F8CCDF3ABB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814904   (5712) от 27.08.2025
+
+Миротворец / Peacemaker (2025) WEB-DL [H.265/2160p] [4K, HDR10, Dolby Vision Profile 8.1, 10-bit] (сезон 2, серии 1 из 8) Red Head Sound (обновляемая)
+
+>>Зарубежные сериалы
+>>Сериалы DC Comics
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5712.jpg" />
+</div>
+
+
+###  Подробнее
+
+История весьма комичного и очень патриотичного суперзлодея, убивающего всех на своем пути. Его ждут нелегкие поиски преступников, безумные драки и, что самое невероятное, попытки помириться с отцом.Производство: США / DC Entertainment, The Safran Company Warner Bros.Жанр: фантастика, фэнтези, боевик, комедия, криминал, приключенияРежиссер: Джеймс Ганн, Алетеа Джонс, Грег МоттолаАктеры: Джон Сина, Даниэль Брукс, Фредди Строма, Чукуди Ивуджи, Дженнифер Холланд, Стив Эйджи, Роберт Патрик, Локлин Манро, Элизабет Ладлоу, Ризван МанжиПеревод: Дублированный (Red Head Sound)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CDCE2D3F8D6EAD61A94133BA6C4CC974F627EC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814872   (5709) от 27.08.2025
+
+Пацаны / The Boys (2019) UHD WEB-DLRip [AV1/2160p] [4K, HDR10, Dolby Vision Profile 10.1, 10-bit] (сезон 1, серии 1-8 из 8) Jaskier
+
+>>Зарубежные сериалы
+>>Сериалы DC Comics
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие сериала разворачивается в мире, где существуют супергерои. Именно они являются настоящими звездами. Их все знают и обожают. Но за идеальным фасадом скрывается гораздо более мрачный мир наркотиков и секса, а большинство героев - в жизни не самые приятные люди. Для контроля за супергероями ЦРУ создает специальный отряд, неофициально известный как «Пацаны», (   Читать дальше...   )Производство: США / Amazon Studios, Original Film, Point Grey Pictures, Sony Pictures TelevisionЖанр: фантастика, боевик, драма, комедия, криминалРежиссер: Филип Сгриккиа, Дэниэл Эттиэс, Дженнифер ФангАктеры: Карл Урбан, Джек Куэйд, Энтони Старр, Эрин Мориарти, Доминик МакЭллигот, Джесси Ашер, Лас Алонсо, Чейс Кроуфорд, Томер Капон, Нэйтан МитчеллПеревод: Многоголосый профессиональный (Jaskier 18+)Язык озвучки: РусскийСубтитры: Русские (forced)Продолжительность: 01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCD1048A2733CDBDFE253CCFFA52B458C43A8CDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811520   (5704) от 27.08.2025
+
+Флэш / The Flash (2014-2023) WEBRip [H.264/1080p] (сезон 1-9, серии 1-184 из 184) LostFilm
+
+>>Зарубежные сериалы
+>>Сериалы DC Comics
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Барри Аллен был маленьким, больше всего на свете ему хотелось быть супергероем — тем, кто превосходит лимиты человеческого организма и использует во благо данную ему силу. В одиннадцать лет он на собственном опыте узнал, что люди с необычными способностями действительно существуют: его мать была убита одним из таких людей. Повзрослев и став судмедэкспертом, (   Читать дальше...   )Производство: Россия | DC Entertainment, Warner Bros. Television, Berlanti ProductionsЖанр: Фантастика, боевик, драма, приключенияРежиссер: Стефан Плещински, Дэвид МакУиртер, Дермотт ДаунсАктеры: Грант Гастин, Кэндис Паттон, Даниэль Панабэйкер, Карлос Валдес, Томас Кавана, Джесси Л. Мартин, Даниэль Николет, Хартли Сойер, Кейнан Лонсдейл, Патрик Сабонги и др.Перевод: Многоголосый (LostFilm)Язык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:738856AC0D9330002036855B07627A040C34AA85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814865   (4370) от 05.09.2025
+
+Миротворец / Peacemaker (2025) WEB-DL [H.265/2160p] [4K, SDR, 8-bit] (сезон 2, серии 1-2 из 8) Продубляж, Jaskier, HDRezka Studio, LostFilm, WStudio, LE-Production (обновляемая)
+
+>>Зарубежные сериалы
+>>Сериалы DC Comics
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4370.jpg" />
+</div>
+
+
+###  Подробнее
+
+История весьма комичного и очень патриотичного суперзлодея, убивающего всех на своем пути. Его ждут нелегкие поиски преступников, безумные драки и, что самое невероятное, попытки помириться с отцом.Производство: США / DC Entertainment, The Safran Company Warner Bros.Жанр: фантастика, фэнтези, боевик, комедия, криминал, приключенияРежиссер: Джеймс Ганн, Алетеа Джонс, Грег МоттолаАктеры: Джон Сина, Даниэль Брукс, Фредди Строма, Чукуди Ивуджи, Дженнифер Холланд, Стив Эйджи, Роберт Патрик, Локлин Манро, Элизабет Ладлоу, Ризван МанжиПеревод: Многоголосый (Продубляж, Jaskier, HDRezka Studio, LostFilm, WStudio, LE-Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6717FDFB592BA9DE424ADB8426A0E450D70BDE9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816519   (4334) от 05.09.2025
+
+Миротворец / Peacemaker (2022) BDRip [AV1/1080p-LQ] [10-bit] (сезон 1, серии 1-8 из 8) Novamedia, HDrezka Studio
+
+>>Зарубежные сериалы
+>>Сериалы DC Comics
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4334.jpg" />
+</div>
+
+
+###  Подробнее
+
+История весьма комичного и очень патриотичного суперзлодея, убивающего всех на своём пути. Его ждут нелёгкие поиски преступников, безумные драки и, что самое невероятное, попытки помириться с отцом.Производство: США / DC Entertainment, Safran Company, The, Troll Court Entertainment, Warner Bros. TelevisionЖанр: фантастика, фэнтези, боевик, комедия, криминал, приключенияРежиссер: Джеймс Ганн, Брэд Андерсон, Джоди ХиллАктеры: Джон Сина, Даниэль Брукс, Фредди Строма, Чукуди Ивуджи, Дженнифер Холлэнд, Стив Эйджи, Роберт Патрик, Локлин Манро, Элизабет Ладлоу, Ризван МанжиПеревод: Многоголосый профессиональный (Novamedia, HDrezka Studio)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: ~00:47:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9250E602134C708D8871784443D28F9091A4BFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818743   (2233) от 18.09.2025
+
+Поколение «Ви» / Gen V (2025) WEB-DL [H.264/1080p] (сезон 2, серии 1-3 из 8) HDRezka (обновляемая)
+
+>>Зарубежные сериалы
+>>Сериалы DC Comics
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во 2-м сезоне сериала «Поколение «Ви» продолжается история об учащихся престижного Университета Годолкина. В этот частный колледж могут поступить только дети с уникальными сверхспособностями. Его открыли члены корпорации Vought. В этом заведении ребят превращают в настоящих супергероев. Напомним, в предыдущем сезоне горячая линия психического здоровья Университета (   Читать дальше...   )Производство: США, Великобритания, Канада, Amazon Studios, Kripke Enterprises, Original Film, Point Grey Pictures, Sony Pictures TelevisionЖанр: фантастика, боевик, драма, комедия, приключенияРежиссер: Стив Бойум, Нельсон Крегг, Рэйчел ГолдбергАктеры: Джаз Синклер, Майа Джей Бастидас, Чэнс Пердомо, Лиззи Бродвей, Мэдди Филлипс, Лондон Тор, Дерек Лу, Аса Германн, Шелли Конн, Клэнси БраунПеревод: Многоголосый (HDRezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: ~00:49:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF3A813C19F9637050ACE039BB959D5E8AE9368
 ```
 
 https://mybot314.ru/tekegram_catalog/

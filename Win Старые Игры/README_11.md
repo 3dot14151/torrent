@@ -1,3 +1,263 @@
+###  Публикация: 1125128   (772900) от 13.04.2017
+
+The Moment of Silence / Момент истины (2005) [Ru/Multi] (1.0) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772900.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Момент истины» – это классический квест в жанре point-and-click, действие которого происходит в Нью-Йорке 2044 года. Игроки окажутся в шкуре Питера Райта, специалиста по рекламе, в данный момент продвигающего правительственную кампанию "Свобода слова"... Когда вооруженные силовики вламываются в квартиру его соседа, Питер сталкивается с неприятной правдой (   Читать дальше...   )Тип издания: LicenseРазработчик: House of TalesЖанр: AdventureЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95E94D2F2C80418EB2AD51012E3BE1C4B28C2B82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016570   (770034) от 14.05.2016
+
+Riff Racer - Race Your Music! (2016) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте футуристические гоночные трассы с трюками из песен вашей музыкальной библиотеки. Мчите за музыкой, чтобы не потерять ритм. Получайте очки за прыжки, дрифт и езду с креном. Бросьте вызов другим гонщикам с помощью ваших любимых треков.Тип издания: RepackРазработчик: FOAM EntertainmentЖанр: Arcade, Racing, IndieЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5559A6CAEEB9A5E126061540954298B4FC366CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016948   (769425) от 15.05.2016
+
+Shadow Complex Remastered (2016) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переиздание «метроидвании» Shadow Complex, оригинальная версия которой появилась на Xbox 360 в 2009 году. События одной из самых зрелищных игр своего жанра разворачиваются во вселенной «имперской» дилогии романов Орсона Скотта Карда, где США скатывается в новую гражданскую войну.Тип издания: RepackРазработчик: ChAIR EntertainmentЖанр: Arcade (Platform), 3DЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D930F7EC0631B59F1D607285BF4734C61178F0C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 201095   (768562) от 18.05.2010
+
+UFO: Aftershock / UFO: Возмездие [Ru] (L) 2005
+
+>>Win Старые Игры
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Strategy (Real-time / Tactical) / 3D
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123934   (768226) от 26.01.2019
+
+Thief 2: The Metal Age / Thief 2: Эпоха металла (2000) [Multi] (1.26ND) License GOG
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра Thief™ II: The Metal Age предоставит вам шанс вновь выйти на мрачные улицы Города, преобразившиеся с приходом к власти Ордена Механистов – нового культа, который потеснил и принял в свои ряды Хаммеритов. В новом мире камер и роботов на паровом ходу Гаррету предстоит встретиться с новым врагом – шерифом Горманом Труартом, служителем закона, задумавшим избавить (   Читать дальше...   )Тип издания: LicenseРазработчик: Looking Glass StudiosЖанр: Action, 3D, 1st Person, StealthЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Английский, ФранцузскийЯзык интерфейса: Английский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36591EBCEF0BC70E03FEC6173DD01AE81F78A74C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125750   (767716) от 15.04.2017
+
+Codename: Iceman (1990) [En] (1.033) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ныне практически забытый, а в своё время – почти культовый шпионский квест от Sierra. Вам предстоит играть за секретного агента Джонни Вестланда, отправленного на подводной лодке в Тунис, чтобы разведать обстановку около недавно обнаруженного крупного нефтяного месторождения и таинственных слухов вокруг него. Впрочем, это лишь начало: потом вам предстоит разоблачить (   Читать дальше...   )Тип издания: LicenseРазработчик: Sierra On-LineЖанр: AdventureЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1C18A880570B557BD90E11EB5199AB9B829ABAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393617   (766730) от 01.07.2020
+
+Galactic Civilizations I (2003) [En] (2.0.0.4/dlc) License GOG [Ultimate Edition]
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766730.jpg" />
+</div>
+
+
+###  Подробнее
+
+2178 год. Альянс терранов разработал новую технологию – гипердвигатель. Чертежи новинки попали к инопланетянам, и началась борьба за необитаемые планеты. Вы – лидер Объединенной Земли. Вам предстоит разрабатывать новые технологии, строить экономику, набирать и обучать войска, не забывая при этом соблюдать политический, дипломатический и торговый баланс.Тип издания: LicenseРазработчик: StardockЖанр: Стратегия, Экономика, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A4F0602B99F5598338759161ACBC25B26F08617
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126412   (765991) от 17.04.2017
+
+AGEod's American Civil War: 1861-1865 – The Blue and the Gray / AGEod's American Civil War: Война Севера и Юга (2007) [Ru] (1.08d) License
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765991.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Древо свободы должно время от времени орошаться кровью патриотов», - эти слова третий президент США Томас Джефферсон произнёс в период исторической юности северо-американского государства, предвосхитив скорые ужасы гражданской войны. Она продлилась пять лет - с 1861 по 1865 гг. Победитель мог по-своему перестроить политическую систему страны. Прогрессивные янки (   Читать дальше...   )Тип издания: LicenseРазработчик: AGEodЖанр: Strategy, TBSЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FD60D1EDE3E93150A0B5E72151269CD63F6B784
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126391   (765987) от 17.04.2017
+
+Western Outlaw: Wanted Dead or Alive / Отчаянный (2003) [Ru/En] (1.0) Unofficial
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765987.jpg" />
+</div>
+
+
+###  Подробнее
+
+В такую мясорубку Странник не попадал никогда: свинцовый дождь превращает в опилки ближайший салун, динамит разносит на части фургоны переселенцев, а угрюмые бандиты хотят только одного - его смерти. Тихий американский городок в одно мгновение превращается в ад. Странник снова выходит на тропу войны, и с этого дня имя ему - Отчаянный!Тип издания: UnofficialРазработчик: Jarhead GamesЖанр: Action, Shooter, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2DBE355E377A4822845EAD3D641C7C2DD5901DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126568   (764148) от 19.04.2017
+
+Return of the Incredible Machine Contraptions (2000) [En] (1.0) License GOG
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Return of the Incredible Machine: Contraptions была выпущена в 2000 году. Как и версия игры для Windows 95, она имеет 800x600 разрешения экрана. Также в игре содержатся новые уровни, большинство из которых из The Incredible Machine 2. Итак, добро пожаловать в мир невероятной механики! В этой игре вам предстоит создавать фантастические устройства из самых обычных (   Читать дальше...   )Тип издания: LicenseРазработчик: Sierra EntertainmentЖанр: Strategy, Building, PuzzleЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACF4CCFD7F880D2264D38405BF360078E89067CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521626   (763123) от 04.01.2022
 
 Legacy of Kain: Soul Reaver (1999) [Ru/En] (1.2) Repack Vasy@n
@@ -6,7 +266,7 @@ Legacy of Kain: Soul Reaver (1999) [Ru/En] (1.2) Repack Vasy@n
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763123.jpg" />
 </div>
 
 
@@ -32,7 +292,7 @@ Crystal Key 2:The Far Realm / Evany: Key to a Distant Land / Кристальн�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762462.jpg" />
 </div>
 
 
@@ -59,7 +319,7 @@ Rune Classic / Руна (2000) [Ru/Multi] (1.10/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761032.jpg" />
 </div>
 
 
@@ -85,7 +345,7 @@ The Mims Beginning (2016) [En] (1.0.0.280) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_757076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757076.jpg" />
 </div>
 
 
@@ -111,7 +371,7 @@ Asterix & Obelix XXL Dilogy / Asterix & Obelix XXL 1 & 2  (2004-2005) [Ru/Multi]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756434.jpg" />
 </div>
 
 
@@ -137,7 +397,7 @@ Soldier of Fortune: Payback / Солдат Удачи: Расплата [Ru] (L)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_754058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_754058.jpg" />
 </div>
 
 
@@ -163,7 +423,7 @@ Praetorians (2003) [En] (1.04) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747477.jpg" />
 </div>
 
 
@@ -189,7 +449,7 @@ Total Overdose: A Gunslinger's Tale in Mexico (2005) [En] (1.00) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747473.jpg" />
 </div>
 
 
@@ -215,7 +475,7 @@ World War II Combat: Road to Berlin / Дорога на Рейхстаг (2006) 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747391.jpg" />
 </div>
 
 
@@ -241,7 +501,7 @@ UAZ Racing 4x4 / Полный привод: УАЗ 4x4 [Ru] (L) 2006
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_747160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_747160.jpg" />
 </div>
 
 
@@ -267,7 +527,7 @@ Star Trek: Starfleet Command III (2002) [En] (1.01.534_rdna_fix) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742018.jpg" />
 </div>
 
 
@@ -293,7 +553,7 @@ Star Trek: Armada (2000) [En] (1.2_rdna_fix) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742007.jpg" />
 </div>
 
 
@@ -319,7 +579,7 @@ Star Trek: Armada II (2001) [En] (1.1_rdna_fix) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742006.jpg" />
 </div>
 
 
@@ -345,7 +605,7 @@ Farm Manager 2018 (2018) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739937.jpg" />
 </div>
 
 
@@ -371,7 +631,7 @@ The Settlers 2: 10th Anniversary (2006) [Multi] (11757) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738622.jpg" />
 </div>
 
 
@@ -397,7 +657,7 @@ Apocalypse: Party's Over (2016) [En/Pt] (1.0) License HI2U
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730279.jpg" />
 </div>
 
 
@@ -408,266 +668,6 @@ Apocalypse: Party's Over - безбашенный и отвратительны�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:937EA1CCC6A39857CF55D9C582222CAE8B54EB6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399613   (726132) от 01.08.2020
-
-Blades of Time (2012) [Ru/Multi] (1.0/dlc) License GOG [Limited Edition]
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аюми - бесстрашная охотница за сокровищами. Она великолепно вооружена и необычайно прекрасна. В поисках ценных трофеев девушка отправляется на таинственный и, конечно же, полный опасностей остров. Как выяснилось, это место богато не только сокровищами - оно буквально пропитано гнетущей магией Хаоса. А очень скоро Аюми поймет, что остров скрывает множество древних (   Читать дальше...   )Тип издания: LicenseРазработчик: Gaijin EntertainmentЖанр: Экшн, Ролевая игра, ФэнтезиЯзык озвучки: Русский, Английский, Французский, Испанский и другиеЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DDD12D4C1ADAF868F40311421D4C7BF5CED90A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129507   (721942) от 28.04.2017
-
-Serious Sam: The First Encounter / Крутой Сэм: Первая кровь (2001) [En] (1.05) License GOG
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721942.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалеком будущем во время первых межзвездных путешествий человечество столкнулось с великим злом, которое уже целую вечность бродит по галактике. Это дьявольское существо – последний из древних бессмертных по имени Ментал. Он отправился в путь, чтобы уничтожить человеческую расу ради веселья, точно так же он поступал с другими цивилизациями на протяжении долгой (   Читать дальше...   )Тип издания: LicenseРазработчик: CroteamЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8CF760C915B4937F3A5081E7C620A81C5AB29C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129618   (719992) от 29.04.2017
-
-Serious Sam: The Second Encounter / Serious Sam. Второе пришествие (2002) [En] (1.07) License GOG
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сэм возвращается, чтобы снова сразиться с заклятым врагом Менталом. Отыскав космический корабль сирианцев в Древнем Египте, Сэм Стоун угнал его и начал преследовать Ментала. Но, к сожалению, звездолет потерпел крушение в горах Южной Америки. Теперь, окруженный еще более могущественной армией Ментала, Сэм пытается проложить себе дорогу к его крепости, чтобы раз и (   Читать дальше...   )Тип издания: LicenseРазработчик: CroteamЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF5E6916CF119FAD13C2777B21A67880CB80A7CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130504   (714037) от 02.05.2017
-
-HeadHunter / Охотник за головами (2001) [Ru/Multi] (0.5.8.2) Repack West4it
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джек Вэйд, один из главных "Охотников за Головами" организации ACN, попал в серьезный переплет. После побега из таинственной лаборатории он очнулся в больнице... с амнезией. Старая приятельница Джека, Анжела Стерн, дочь недавно убитого основателя ACN Кристофера Стерна, обращается к нему за помощью. Она хочет выследить убийц своего отца.Тип издания: RepackРазработчик: AmuzeЖанр: Action (Shooter), Racing, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC6AF9182E2767ECB9F1D7258F20BEEFAD2A3AF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130821   (712270) от 03.05.2017
-
-The Journeyman Project 1: Pegasus Prime (1997) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вернитесь к блистательным истокам знаменитой серии Journeyman Project в этой улучшенной версии, выпущенной к годовщине игры. Приготовьтесь к путешествию во времени в качестве Агента 5, который отчаянно пытается остановить таинственного террориста, ответственного за серию «разрывов» в пространственно-временном континууме. Побывайте в удивительных мирах, где вас ждут (   Читать дальше...   )Тип издания: LicenseРазработчик: Presto StudiosЖанр: Приключение, От первого лица, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8892788555FF5FC81332839D66F0396183AC59E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532814   (710319) от 21.02.2022
-
-Pharaoh + Cleopatra (1999) [En] (2.1.0.15/dlc) License GOG
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в мир Древнего Египта, начиная с эпохи пирамид и заканчивая последними годами Нового царства. Вам подвластны все сферы жизни этой экзотической страны – от религии до торговли с далекими городами. Создавайте земледельческие хозяйства в долине Нила и откройте для себя важнейшую роль, которую эта река с ее непредсказуемыми разливами играла в жизни египтян. (   Читать дальше...   )Тип издания: LicenseРазработчик: Impressions GamesЖанр: Стратегия, Симулятор, МенеджментЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23126A7E3FAF3CA0E20AE73218CDFA8226871AAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131112   (710214) от 04.05.2017
-
-FireStarter (2004) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Где начинается реальность? В 2010 году опаснейший вирус, получивший название FireStarter, поразил машину виртуальной реальности. Программа вторжения вызвала сбой в работе компьютера. Правила игры изменились и угрожают смертью игрокам, поскольку их сознание не может выбраться из виртуальной западни. Существует только один способ спастись - вы должны завершить игру (   Читать дальше...   )Тип издания: LicenseРазработчик: GSC Game WorldЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00EB1CBB0F9E9E7996D4F79F84EC3A2E585C471A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131123   (710211) от 04.05.2017
-
-Birthright: The Gorgon's Alliance / Право на жизнь: Союз Горгон (1997) [En] (1.3) License
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предположим, мы играем в РПГ. Допустим, всё упомянутое действительно уже свершилось и игра на этом заканчивается, а герои... что происходит с ними дальше? Самые бравые спиваются в тавернах, кто-то открывает школу приключенцев, а кто-то становится правителем небольшого города, а то и государства (скорее всего, по доброй воле жителей). Именно о таких вот не теряющих (   Читать дальше...   )Тип издания: LicenseРазработчик: Synergistic SoftwareЖанр: Strategy (Real-time, Turn-based), RPG, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:305E40152CD92D26DC075694A8F8FA136C5BBB72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131400   (708435) от 05.05.2017
-
-The Journeyman Project 2: Buried in Time (1995) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приготовьтесь к путешествию длиною в жизнь, когда возьмете на себя роль агента №5 из Агентства по безопасности времени. Вас ложно обвиняют в изменении истории Земли, поэтому вы вынуждены прятаться в тенях времени, стараясь избежать смертельной опасности и разыскивая ключевые доказательства, которые вернут вам доброе имя и раскроют правду о заговорщиках, подставивших (   Читать дальше...   )Тип издания: LicenseРазработчик: Presto StudiosЖанр: Приключение, От первого лица, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:410D802BDE443F722A1A3651BDBDD67E80341632
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 85856   (699499) от 07.06.2014
-
-Три богатыря или очень страшная сказка [Ru] (L) 2002
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_699499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Долго ли коротко стояли, Илья Муромец, Добрыня Никитич и Алеша Попович на распутье трех дорог, кони не кормлены, да и у самих богатырей во рту все пересохло. Илья медленно засыпал, Алеша нервно осматривался, держа руку на поводьях, готовый в любой момент броситься в отступление. Добрыня читал надписи на камне, надписей было много, и не все их можно было читать вслух, поэтому он читал про себя, хотя про Илью и Алешу там тоже было написано…Тип издания: ЛицензияЖанр: QuestЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

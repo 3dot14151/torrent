@@ -1,3 +1,29 @@
+###  Публикация: 1636363   (241037) от 29.05.2023
+
+Angelique | Анжелика OVA-4 [2004, OVA, 3 эп.] DVDRip 480p HEVC 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241037.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анжелика Лимож и Розалия де Катаргена были выбраны в качестве кандидатов на экзамене в королевы — тесте, чтобы определить, кто лучше подходит для того, чтобы стать следующей королевой космоса. Для этого специального обследования обеим девушкам предоставляется собственный континент на планете. Они должны превратить континенты в грандиозную среду с процветающими цивилизациями. (   Читать дальше...   )Производство: Студия Yumeta Company / ゆめ太カンパニーЖанр: романтика, фэнтезиРежиссер: Масэкирё АсумиПеревод: sys3xЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 3 эп. по 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AF6AAA3F7AFF5949A12733B7C062F9C807754F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636346   (241013) от 29.05.2023
 
 Neo Angelique Abyss | Анжелика [ТВ-3] [2008, TV, 13 эп.] DVDRip 480p raw
@@ -6,7 +32,7 @@ Neo Angelique Abyss | Анжелика [ТВ-3] [2008, TV, 13 эп.] DVDRip 480p
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_241013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241013.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Angelique: Shiroi Tsubasa no Memoire | Анжелика OVA-1 [2000, OVA, 2 эп
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_240937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_240937.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Eiyuu Ou, Bu o Kiwameru Tame Tenseisu: Soshite, Sekai Saikyou no Minarai Kishi |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240061.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Tensei Shitara Ken Deshita | Reincarnated as a Sword | О моём переро�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240036.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ UFO Princess Valkyrie: Juunigatsu no Yasoukyoku | UFO Ultramaiden Valkyrie 2: De
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239512.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ UFO Princess Valkyrie: Seireisetsu no Hanayome | Валькирия, принц�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239500.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Haou Taikei Ryuu Knight | Lord of Lords Ryu Knight | Повелитель Рюк
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239474.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ UFO Princess Valkyrie | UFO Ultramaiden Valkyrie | Валькирия, прин�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239456.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Kimi o Aishita Hitori no Boku e | To Me, The One Who Loved You | Тому мне
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239387.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Romantic Killer | Романтический убийца [2022, Web, 12 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239260.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Boku ga Aishita Subete no Kimi e | To Every You I've Loved Before | Каждом
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239063.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ Ame-iro Cocoa Series: Ame-con!! | Какао цвета дождя: Аме-ко�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238917.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238382.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ Kaiko Sareta Ankoku Heishi (30-dai) no Slow na Second Life | Неспешная 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238375.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ Shenmue the Animation | Шэнму [2022, TV, 13 из 13] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237923.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ Meitantei Conan: Hannin no Hanzawa-san | Detective Conan: The Culprit Hanzawa | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237676.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ Princess Connect! Re:Dive 2 / PriConne 2 / Связь принцесс! Ново
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237461.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ Princess Connect! Re:Dive 2 / PriConne 2 / Связь принцесс! Ново
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237419.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ Fate/strange Fake: Whispers of Dawn | Судьба/странная поддел
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234578.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ Thermae Romae Novae | Новые римские бани [2022, Web, 11 эп.] W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234525.jpg" />
 </div>
 
 
@@ -540,7 +566,7 @@ Azur Lane: Bisoku Zenshin! | Azur Lane: Slow Ahead! | Лазурный путь:
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234369.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ RWBY: Hyousetsu Teikoku | RWBY: Ice Queendom | RWBY: Ледяная импери
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234106.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ Kumichou Musume to Sewagakari | The Yakuza's Guide to Babysitting | Дочка �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233676.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ Gekijouban Jujutsu Kaisen 0 | Магическая битва (фильм) [2021
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233659.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ Masou Gakuen HxH | Hybrid x Heart Magias Academy Ataraxia | Магическая
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_233203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233203.jpg" />
 </div>
 
 
@@ -656,32 +682,6 @@ Masou Gakuen HxH | Hybrid x Heart Magias Academy Ataraxia | Магическая
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F687D437981590716FC178C4392FA22BB8CC228
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579674   (232556) от 28.09.2022
-
-Sidonia no Kishi: Ai Tsumugu Hoshi | Knights of Sidonia: Love Woven in the Stars | Рыцари Сидонии: Звезда, сотканная любовью [2021, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошло 10 лет с событий второго сезона... Жители Сидонии смогли, наконец, отдохнуть от постоянных угроз пришельцев, именуемых Гаунами, а химере, знакомой нам, как Ширауи Цумуги, мирные дни помогли ей осознать свои чувства к Таниказе Нагате, выдающегося пилота и героя Сидонии. Однако, после стольких лет мирной жизни, Сидония вновь столкнулась с угрозой исчезновения. (   Читать дальше...   )Производство: студия Polygon Pictures / ポリゴン・ピクチュアズЖанр: приключения, фантастикаРежиссер: Сэсита ХироюкиПеревод: НеизвестноЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 120 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2B2D58293B2841B8F89967C50F83A8C5048EBDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

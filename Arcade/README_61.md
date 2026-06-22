@@ -1,3 +1,55 @@
+###  Публикация: 1814935   (5697) от 27.08.2025
+
+Goat Simulator 3 (2022) [Ru/Multi] (1.1.4.3_410056/dlc) Repack FitGirl
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Собирайте стадо и отправляйтесь в Goat Simulator 3 - новую, реалистичную «песочницу» на ферме. Присоединитесь к Пилгор на острове Сан-Ангора и приготовьтесь к головокружительным приключениям. Облизывайте, бодайте и ломайте всё, что захочется в огромном новом мире. Убивайте время самым бесцельным способом со времён оригинальной Goat Simulator! Мы не будем объяснять (   Читать дальше...   )Тип издания: RepackРазработчик: Coffee Stain North ABЖанр: Экшены, АркадыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE6C6A8AF390A8900E051524C6BA4989A9874E8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815100   (5601) от 28.08.2025
+
+Альтушка для скуфа (2024) [Ru/En] (20250730) Repack seleZen
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5601.jpg" />
+</div>
+
+
+###  Подробнее
+
+У тебя нет жены, тебе хорошо за сорок, а твоё мировоззрение крепко сформировано, но счастья в жизни всё ещё нет? Не грусти, тебе просто нужно вспомнить пароль от своего аккаунта на Скуфуслугах и буквально через пару кликов ты сможешь получить от государства свою законную альтушку! Иммерсивный симулятор скуфа от первого лица в формате визуальной новеллы, собранный (   Читать дальше...   )Тип издания: RepackРазработчик: Terletski Games, RIKANIMATIONЖанр: Казуальные игры, ИндиЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F2D06A762C4ED556D3C333A87BEB9E4A53DAF74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815060   (5551) от 28.08.2025
 
 Miraculous - Paris Under Siege (2024) [Ru/Multi] (1.0) Repack Yaroslav98
@@ -6,7 +58,7 @@ Miraculous - Paris Under Siege (2024) [Ru/Multi] (1.0) Repack Yaroslav98
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5551.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Haste: Broken Worlds (2025) [Ru/Multi] (1.6.a) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5444.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Get To Work (2024) [Multi] (1.1.1.6) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5365.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Get To Work (2024) [Multi] (1.1.1.6) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5358.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Hotline Miami 2: Wrong Number (2015) [Ru/Multi] (07.12.2017) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5208.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Wicked West (2025) [En] (1.0) Scene TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5197.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Miraculous: Rise of the Sphinx (2022) [Ru/Multi] (Build 10128456) Repack Yarosla
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5185.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Hotline Miami (2012) [Ru/Multi] (gog-8(a)) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5180.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ The Riftbreaker (2021) [Ru/Multi] (2.0/dlc) Repack FitGirl [Complete Pack]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5156.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Empty Shell (2023) [Ru/Multi] (1.6i) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4727.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ BlazBlue Entropy Effect (2024) [Ru/Multi] (1.0.7.123249.0/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4599.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Re:Fresh (2023) [Multi] (1.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4540.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Vault of the Void (2022) [Ru/Multi] (2.6.55.0/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4497.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Human: Fall Flat (2016) [Ru/Multi] (1093513) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4221.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Fallen City Brawl (2025) [En] (1.05) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3634.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Achilles: Survivor (2025) [Ru/Multi] (1.2.9988/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3282.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ ReSetna (2025) [Ru/Multi] (1.7.1) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3274.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Airships: Conquer the Skies (2015) [Ru/Multi] (1.2.8.2/dlc) License GOG (обн�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3090.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Iron Core: Mech Survivor (2025) [Ru/Multi] (3.0.8) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3082.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Virtua Fighter 5 R.E.V.O. (2025) [Multi] (1.05/dlc) Repack Let'sРlay [30th Anni
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3067.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ The Riftbreaker (2021) [Ru/Multi] (Exe:1101 Data:732/dlc) Repack Let'sРlay [Com
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2722.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ PATAPON 1+2 REPLAY (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2587.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ The Precinct (2025) [Ru/Multi] (1.9.19872) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2577.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Ravenswatch (2023) [Ru/Multi] (1.03.01.00.26879/dlc) Repack Let'sРlay [Supporte
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2431.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Ravenswatch - хардкорное приключение, в котором п�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:635AE943BA99E4C080A2CD9A6E58949679FD8396
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751973   (2099) от 19.09.2025
-
-Ravenswatch (2023) [Ru/Multi] (1.03.01.00.26879/dlc) Repack FitGirl [Supporter Edition]
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ravenswatch - хардкорное приключение, в котором потребуется исследовать мир, захваченный жутким Кошмаром. Игровой процесс представляет собой изометрический ролевой экшн с процедурно генерируемыми локациями. Бои выделяются повышенной сложностью и происходят в режиме реального времени. Геймплей направлен на скилл игрока и создание уникального билда персонажа. В зависимости (   Читать дальше...   )Тип издания: RepackРазработчик: Passtech GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3E36CCE6918D65544C6F64BE30AEEF67132176A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796570   (1940) от 20.09.2025
-
-StarVaders (2025) [Ru/Multi] (1.1.1) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторжение пришельцев разбило вдребезги защиту Земли. Пилот, теперь судьба всего человечества зависит от тебя. Пришло время использовать силы мощного робота и побороть вторжение - карта за картой. StarVaders совмещает тактические сражения на поле, поделенном на клетки, и построение колоды. Станьте командиром боевого робота и помогите человечеству побороть вторжение (   Читать дальше...   )Тип издания: LicenseРазработчик: PengonautsЖанр: Приключенческие игры, Инди, СтратегииЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05BFD2D9ADBBBB6E50D83D83D9C8DA9747973909
 ```
 
 https://mybot314.ru/tekegram_catalog/

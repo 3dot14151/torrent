@@ -6,7 +6,7 @@ Toradora! | Торадора! [2008, TV, 25 ep + OVA + 4 sp] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765885.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kobayashi-san Chi no Maidragon | Miss Kobayashi's Dragon Maid | Кобаяси �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765851.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hataraku Saibou | Клетки за Работой! [TV-1] [2018, TV, 14 ep + 2 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765092.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Deadman Wonderland | Страна Чудес Смертников [2011, TV, 12 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765091.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ High School Fleet | HaiFuri | Морская Академия [2016, TV, 12 ep +
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764191.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Lie Huo Jiao Chou | Drowning Sorrows in Raging Fire | Топить печаль 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764114.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Brave Witches | Храбрые Ведьмы [2016, TV, 12 ep + OVA] BDRip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763392.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Beastars | Выдающиеся звери [ТВ-1] [2019, TV, 12 эп.] BDRip 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759782.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Youjuu Toshi | Wicked City | Город чудищ [1987, Movie] BDRip 1080p raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759737.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Isekai Maou to Shoukan Shoujo no Dorei Majutsu | How Not to Summon a Demon Lord 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758055.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751028.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Strike the Blood: Kieta Seisou Hen | Удар Крови: Потерянное �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_748023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_748023.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746377.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Tokyo Ravens / Токийские вороны [2013, TV, 24 эп. + SP] BDRip 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745780.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744795.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744794.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742000.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741886.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Nakitai Watashi wa Neko wo Kaburu | Сквозь Слёзы я Притворя�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741088.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Mirai no Mirai | Mirai of the Future | Мирай из будущего [2018, M
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739431.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738312.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738293.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ BNA: Brand New Animal | Совершенно новый зверь [2020, TV, 12
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737717.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Hamefura 2 | Bakarina 2 | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736302.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Re: Zero | Re: Zero kara Hajimeru Isekai Seikatsu | Re: Жизнь в альте
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735945.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ ORESUKI | Да как меня можешь любить только ты? | Or
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735496.jpg" />
 </div>
 
 

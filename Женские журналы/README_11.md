@@ -1,3 +1,211 @@
+###  Публикация: 1394930   (760518) от 07.07.2020
+
+Журнал | Elle Sweden №8 (август 2020) [PDF] [Se]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elle, женский журнал о моде и моде в мире. Его страницы приблизят вас к миру моды, эстетики, последних тенденций, культурного авангарда, социальных вкусов или любого прогресса, направленного на улучшение вашего стиля жизни.Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:274488BC9A7A458F78C0ED4E4F2A3C09938A92ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394932   (760512) от 07.07.2020
+
+Журнал | Elle [UK] №8 (август 2020) [PDF] [En]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elle — французский женский журнал о моде, красоте, досуге и здоровье, издающийся с 1945 года. В середине 1980-х годах, при выходе на международный рынок, стал выпускаться ежемесячно, сохранив еженедельный формат для Франции.Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3437DE75F8FC04A803A3614D88E62FDA230B09D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394755   (760378) от 07.07.2020
+
+Журнал | Burda [TR] №7 (июль 2020) [PDF][Tr]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760378.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1949 году Энне Бурда расширила свой семейный бизнес и основала компанию по производству и печати журналов о моде. Первым был выпущен журнал Favorit, который позже был переименован в Burda Moden. Первый его номер был издан в 1950 году с тиражом в 100 000 экземпляров, но уже через два года он достиг полумиллиона. В 1950 году Burda продавался во всех немецкоговорящих (   Читать дальше...   )Жанр: МодаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27B03FF90C678BFB86576A84FE6192C15AF25F54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 780879   (759651) от 26.04.2014
+
+Журнал | Women's Health [Россия] №5 (май 2014) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759651.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Women’s Health" – качественное модное глянцевое издание о здоровом образе жизни в современном формате. Это живой, веселый и практичный журнал для современных, активных женщин, он не только о здоровом образе жизни и фитнесе, но и о красоте, стиле, сексе и отношениях. Издание ответит на популярные среди женщин вопросы, как вести здоровый образ жизни, как (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AE89E8618894D722BB8B2F6003CF4940B6D642B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394934   (758842) от 08.07.2020
+
+Журнал | Elle Belgique №5 (май 2020) [PDF][Fr]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elle — французский еженедельный женский журнал о моде, красоте, досуге и здоровье, издающийся с 1945 года. В середине 1980-х годах, при выходе на международный рынок, стал выпускаться ежемесячно, сохранив еженедельный формат для Франции.Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C41256297A29006D7A5AE7BAD69D6D423058A93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018134   (757456) от 19.05.2016
+
+Журнал | Домашний очаг [Россия] №6 (Июнь 2016) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый номер Домашнего Очага содержит множество ценных практических советов от экспертов: врачей, диетологов, педагогов, юристов, дизайнеров. Наряду с советами профессионалов в издании представлены и обычные люди – женщины, которые решают самые сложные вопросы и делятся своим опытом.Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB6976139C377A7856FF29DAB2ABED92C6FCB8BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395526   (753740) от 11.07.2020
+
+Журнал | Cosmopolitan UK №8 (август 2020) [PDF] [En]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cosmopolitan — международный женский журнал. Содержание включает в себя статьи о взаимоотношениях и сексе, здоровье, карьере, самосовершенствовании, знаменитостях, а также моде и красоте.Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99C785EBB3EDDF5667B942B93A190ED152B30AEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 663439   (753142) от 01.06.2013
+
+Журнал | Collezioni Donna [Россия] №6 (июнь 2013) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал Collezioni Donna - предоставление информации о том, какой обещает быть женская мода нового сезона. Издание является полноценным иллюстрированным гидом по моде, который не теряет своей актуальности на протяжении нескольких месяцевФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2B17688033F43B53585311561C6C9CEA1BD2984
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396153   (748533) от 14.07.2020
 
 Журнал | Elle [France] №28 (июль 2020) [PDF][Fr]
@@ -6,7 +214,7 @@
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748533.jpg" />
 </div>
 
 
@@ -32,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745293.jpg" />
 </div>
 
 
@@ -58,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743579.jpg" />
 </div>
 
 
@@ -84,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740681.jpg" />
 </div>
 
 
@@ -110,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737916.jpg" />
 </div>
 
 
@@ -136,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735055.jpg" />
 </div>
 
 
@@ -162,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734738.jpg" />
 </div>
 
 
@@ -188,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733667.jpg" />
 </div>
 
 
@@ -214,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728663.jpg" />
 </div>
 
 
@@ -240,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728548.jpg" />
 </div>
 
 
@@ -266,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723058.jpg" />
 </div>
 
 
@@ -292,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723057.jpg" />
 </div>
 
 
@@ -318,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723054.jpg" />
 </div>
 
 
@@ -344,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723052.jpg" />
 </div>
 
 
@@ -370,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722955.jpg" />
 </div>
 
 
@@ -396,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722953.jpg" />
 </div>
 
 
@@ -422,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722951.jpg" />
 </div>
 
 
@@ -448,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720446.jpg" />
 </div>
 
 
@@ -461,214 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19BF62D0114A15D8E85B37E3F2CF79E478621B3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 790762   (720342) от 28.05.2014
-
-Подшивка журналов | Худеем правильно №3-6 (март-июнь 2014) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание предлагает уникальную систему импульсного похудения и управления весом. Эксклюзивные рецепты вкусных блюд для похудения; советы ведущих диетологов, психологов; анализ самых современных методик снижения веса и коррекции фигуры.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB25D997DD81BD6C429FCA1509AD54CB06FED6BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 670200   (715800) от 19.06.2013
-
-Журнал | Здоровье [Украина] №7 [июль 2013] [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женский журнал «Здоровье» - это всегда информация о здоровом образе жизни и методах борьбы с заболеваниями, новейших достижениях медицины и косметологии, нетрадиционной и народной медицине, психологии. Ориентирован на естественное стремление каждого человека быть здоровым и привлекательным.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE3AA6BED969EBD1E60E37593B7971F1015F555A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130882   (712347) от 03.05.2017
-
-Журнал | Караван историй. Коллекция №5 (май 2017) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712347.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Коллекция Караван историй» - это эксклюзивные материалы о жизни звезд, смелые признания в жанре романа, самые громкие материалы из архива «Каравана историй» и лучшие проекты фотохудожника Екатерины Рождественской. В каждом номере: 10 историй, которые потрясли мир: романы, мегаскандалы, загадочные катастрофы, а также эксклюзивные интервью со знаменитостями.Жанр: Женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9D9385358B57C0AFF1240A0B963426443E0002D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 672710   (702721) от 25.06.2013
-
-Журнал | Women's Health [Россия] №7 (июль 2013) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Women’s Health – качественное модное глянцевое издание о здоровом образе жизни в современном формате. Это живой, веселый и практичный журнал для современных, активных женщин, он не только о здоровом образе жизни и фитнесе, но и о красоте, стиле, сексе и отношениях. Издание ответит на популярные среди женщин вопросы, как вести здоровый образ жизни, как справиться (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3556142A28424DC717B383FC7CCDB50C668295BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133087   (696719) от 11.05.2017
-
-Журнал | Burda Style [Germany] №6 (июнь 2017) [PDF] [De]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современный журнал по шитью представляет европейскую моду высокого класса. Издание с мировым именем, хорошо известное всем женщинам, которые хотят быть образцом безупречного вкуса для окружающих. Секрет популярности журнала Burda в том, что благодаря ему каждая женщина может осуществить свою мечту одеваться модно и красиво. Десятки оригинальных, изысканных и современных (   Читать дальше...   )Жанр: Мода, рукоделиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51D955DED09C5BB32E2B2DCE060B23138A562AE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 674259   (693290) от 30.06.2013
-
-Журнал | Vogue [Россия] №7 (июль 2013) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693290.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Vogue" совмещает в себе модные тенденции и современную историю, вписывая моду в культурные рамки эпохи. Благодаря усилиям редакции Vogue Россия встал на один уровень со своими западными аналогами и мнение российского Vogue в мире моды и культуры имеет на сегодняшний день большое и важное значение.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EDA9439A03F164B5C7F90B89323C74402427574
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133710   (693138) от 13.05.2017
-
-Журнал | Elle [Россия] №6 (июнь 2017) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693138.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Elle"— самый популярный журнал мод в мире. Его концепция уникальна: понятие «мода» выходит за привычные рамки и имеет отношение к образу жизни в целом.Жанр: МодаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5FF942D278FD91CAB744D7BDD04B331C80EB600
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 674882   (690917) от 01.07.2013
-
-Журнал | Cosmopolitan [Россия] №7 (июль 2013) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женский глянцевый журнал №1 в мире. Сегодня невозможно встретить девушку, которая бы ни разу не читала или хотя бы не держала в руках номер Cosmo, поэтому в рекламе издание не нуждается.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C2319E3587A7EFF62014B86067D80582AF76556
 ```
 
 https://mybot314.ru/tekegram_catalog/

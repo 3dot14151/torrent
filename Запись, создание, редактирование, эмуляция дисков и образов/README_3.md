@@ -1,3 +1,29 @@
+###  Публикация: 1821677   (63900) от 03.10.2025
+
+AnyBurn 6.6 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Запись, создание, редактирование, эмуляция дисков и образов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Any Burn - небольшая бесплатная утилита для работы с CD/DVD/Blue-ray дисками. Интерфейс программы достаточно удобен: главное окно представляет собой набор закладок, которые выбираются в зависимости от конкретной задачи. Можно записать на диск готовые образы или отдельные файлы и папки, записать Audio-CD из имеющихся файлов аудиоформата, стереть перезаписываемый диск, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54A6EBEE9389F955113B5BC554EA10369AD1EB62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726324   (55159) от 28.05.2024
 
 UltraISO Premium Edition 9.7.6.3860 RePack (& Portable) by TheBig [Multi/Ru]
@@ -6,7 +32,7 @@ UltraISO Premium Edition 9.7.6.3860 RePack (& Portable) by TheBig [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55159.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Folder2ISO 1.1 [Multi]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54191.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ PowerISO 8.9 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45363.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ BurnAware Professional / Premium 18.0 RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44397.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ WinBin2Iso 6.36 Build 001 + Portable [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42320.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ BurnAware Professional 18.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41635.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ PowerISO 9.0 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31740.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ PowerISO 9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31502.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ BurnAware Professional 18.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31083.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ ImgDrive Pro 2.2.1 + Portable [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27641.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Exact Audio Copy 1.8 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23254.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ ISO Workshop Pro 13.4  [En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21867.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ BalenaEtcher 2.1.2 + Portable [En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18743.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ ExtraDisks 25.5.1 Home [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18525.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ PowerISO 9.1 RePack by KpoJIuK [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18156.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ Xreveal 2.8.0 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13703.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Nero Burning Rom 2025 27.0.1.2 Portable by DemoNNM [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11683.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ AnyBurn 6.5 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11409.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Ashampoo Burning Studio 26.0.3.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6975.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ AnyBurn 6.5 + Portable [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3364.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ DVDFab 13.0.4.8 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2478.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ DVDFab 13.0.4.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1326.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ Flyoobe 1.23.445 Portable [En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_846.jpg" />
 </div>
 
 

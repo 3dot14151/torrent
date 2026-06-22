@@ -1,3 +1,58 @@
+###  Публикация: 1211187   (777861) от 06.03.2018
+
+П. Кушу | Загадка Иисуса (1930) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Без всякого преувеличения можно сказать, что во всей идеологии христианства миф об Иисусе является одновременно и самым важным и самым уязвимым пунктом, что вся история христианства с первых его шагов была борьбой за миф об Иисусе...
+
+Автор данной книги, Поль Кушу, является главой французской мифологической школы. Под его редакцией в крупном парижском издательстве (   Читать дальше...   )Жанр: История, политология, религиоведение, мифологияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C8E07C7C56AEF105C00F137F4220E5685E3BD85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211225   (777828) от 06.03.2018
+
+Протоиерей Михаил Шполянский | Мы входим в храм. Практическое пособие на пути к Церкви (2016) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эту книгу нельзя считать только лишь сборником сведений о нормах церковной жизни и руководством по поведению в храме. Она – результат многолетних размышлений и живого опыта православного священника. Без чего не может произойти встреча с Богом? Какие первые шаги можно сделать в своем приходском храме? Что такое Церковь как духовное явление?
+Как церковная жизнь может (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC2742DB0BC8797A0B2ACFE021EC575C5845EDF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211236   (777817) от 06.03.2018
 
 Протоиерей Михаил Шполянский | Десять заповедей. Как выжить в современном мире (2016) [PDF]
@@ -6,7 +61,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777817.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777525.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777521.jpg" />
 </div>
 
 
@@ -88,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776537.jpg" />
 </div>
 
 
@@ -114,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776479.jpg" />
 </div>
 
 
@@ -140,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776477.jpg" />
 </div>
 
 
@@ -167,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776121.jpg" />
 </div>
 
 
@@ -195,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775821.jpg" />
 </div>
 
 
@@ -221,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775814.jpg" />
 </div>
 
 
@@ -247,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775387.jpg" />
 </div>
 
 
@@ -273,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774462.jpg" />
 </div>
 
 
@@ -299,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774459.jpg" />
 </div>
 
 
@@ -325,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774457.jpg" />
 </div>
 
 
@@ -351,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773601.jpg" />
 </div>
 
 
@@ -379,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773600.jpg" />
 </div>
 
 
@@ -405,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773534.jpg" />
 </div>
 
 
@@ -431,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773388.jpg" />
 </div>
 
 
@@ -457,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773297.jpg" />
 </div>
 
 
@@ -485,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773240.jpg" />
 </div>
 
 
@@ -513,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773171.jpg" />
 </div>
 
 
@@ -539,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772137.jpg" />
 </div>
 
 
@@ -565,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772103.jpg" />
 </div>
 
 
@@ -591,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772091.jpg" />
 </div>
 
 
@@ -617,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769893.jpg" />
 </div>
 
 
@@ -628,58 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBCCDE8EF4DC6DD59ABBE7290D638DA07F70C828
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016848   (769693) от 15.05.2016
-
-Святитель Игнатий Брянчанинов | Избранные творения (2011) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга - сборник кратких рассказов о великих отцах Церкви, отшельниках и монахах. Игнатий Брянчанинов составил его, пользуясь текстами "Пролога" и "Добротолюбия", делая переводы греческих и латинских произведений, содержащихся в многотомной "Патрологии" Миня. Эта книга получилась сокровищницей поучений древних подвижников, где каждое (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38C853C2A964B6AFA0736EC416BF741844D637F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213410   (768181) от 17.03.2018
-
-Правило веры (изд.) | Сокровенный старец Серафим Саровский (2011) [DJVU, PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преподобный Серафим сокрылся от мира в уединенной Саровской пустыни. Склонный к созерцанию и богомыслию, он много лет провел в затворе, предаваясь молитве. Благодать Духа Божия обильно излилась через него, и не оскудевал поток народа, желающего услышать его совет и ощутить молитвенную поддержку. Ярким видимым плодом трудов Святого является просиявшая Серафимо-Дивеевская (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:984A797E3354F53B106A438300AF5DD272BA9A7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

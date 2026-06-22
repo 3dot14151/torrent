@@ -1,3 +1,55 @@
+###  Публикация: 762964   (886643) от 05.03.2014
+
+NikitA - Avocado (2012) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_886643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF17BF7C87935FAC6980F64D364838104E2FBA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 296892   (885256) от 19.02.2011
+
+Агата Кристи - Сборник видеоклипов (1993-2003)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 01:33:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75130B978045A3B8804181DAA973A7C0127A4A16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995213   (884290) от 11.03.2016
 
 History of Rock (2016) WEBRip [H.264]
@@ -6,7 +58,7 @@ History of Rock (2016) WEBRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884290.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Testament - Children Of The Next Level (2020) WEBRip [VP9/2160p-LQ] <Thrash, Hea
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883628.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Hocico - 6 Music Videos (2008-2019) WEBRip [VP9/H.264/2160p/1080p/480p-LQ] <EBM,
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883626.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ Drum'n'Bass Clips. Коллекция музыкальных драм'н'бэй�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883304.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ Sarah Brightman - Angel (2012) [1080p] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_881012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_881012.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_880802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_880802.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880669.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880337.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ Eternal Delyria - 6 Music Videos (2014-2020) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880231.jpg" />
 </div>
 
 
@@ -251,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880217.jpg" />
 </div>
 
 
@@ -277,7 +329,7 @@ Babooshka (Александр Константинов) - Православны
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880139.jpg" />
 </div>
 
 
@@ -303,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877667.jpg" />
 </div>
 
 
@@ -332,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877063.jpg" />
 </div>
 
 
@@ -358,7 +410,7 @@ Alestorm - Treasure Chest Party Quest (2020) WEBRip [H.264/1080p-LQ] <Scottish P
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_876708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876708.jpg" />
 </div>
 
 
@@ -384,7 +436,7 @@ ILL NINO - 18 Music Videos (2001-2020) WEBRip [H.264/480p/720p/1080p/2160p-LQ] <
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876619.jpg" />
 </div>
 
 
@@ -413,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876612.jpg" />
 </div>
 
 
@@ -440,7 +492,7 @@ Megadeth - коллекция видеоклипов (1986-2011) [H.264] DVDRip,
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_875484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875484.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Metallica - The Videos 1989-2004 [iTunes M4V Album] (2006) [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875237.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ Feuerschwanz - Das Elfte Gebot (2020) WEBRip [H.264/1080p-LQ]<Mitellater Folk-Ro
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874435.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ Major Lazer feat. Busy Signal & The Flexican & FS Green - Watch Out For This (Bu
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873265.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ Disbelief - The Ground Collapses (2020) WEBRip [H.264/1080p-LQ] <Thrash, Sludge 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872834.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ Megatherium - The Eye (2020) WEBRip [H.264/1080p-LQ]<Psychedelic Stoner, Doom Me
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872828.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ Sodom - Napalm In The Morning (Apocalypse Now!) (2009) WEBRip [H.264/720p-LQ]<Th
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872579.jpg" />
 </div>
 
 
@@ -634,7 +686,7 @@ Paul van Dyk - Music Video (Подборка из 11 клипов) (2000-2009) D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871447.jpg" />
 </div>
 
 
@@ -647,58 +699,6 @@ Paul van Dyk - Music Video (Подборка из 11 клипов) (2000-2009) D
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 644421   (867127) от 17.04.2013
-
-Gangnam Style 3D / PSY - Gangnam Style (2012) HDRip [H.264/1080p]  [ Горизонтальная анаморфная стереопара 3D]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отрывайтесь по-полной в 3d-клипе с «Gangnam Style»  — синглом южнокорейского исполнителя и автора песен PSY! Песня в 2012 году стала первой в рейтинге Gaon Chart, а её видеоклип на YouTub сделал певца миллионером. В 3d ролике  комически танцующий PSY,  в двух местах в Каннамгу (район в Сеуле) и в восьми, которые находятся в Инчхоне и провинции Кёнгидо. В 3д-видеоклипе PSY задействовано много корейских актёров, а девушка – корейская певица Хёна.Жанр: Музыка, Dance, PopПеревод: ОтсутствуетПродолжительность: 00:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B42D7985B869CC4A45DEB4BCBED6FF2B1A97BC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 766413   (867087) от 16.03.2014
-
-Демонстрационный DVD-Video диск #2. Dolby Digital 6.1, DTS Multichannel Sound 6.1 [DVD5]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Демонстрационные музыкальные клипыПродолжительность: 01:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFDA5F313A85175D4B1C3F56BEFA9CDDEB97EE4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

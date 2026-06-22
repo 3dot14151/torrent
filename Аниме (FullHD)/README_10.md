@@ -6,7 +6,7 @@ Cocolors | Соцветие [2016, Movie] BDRip 816p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927034.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Home! | Домой! [2021, Web] WebRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926900.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ergo Proxy / Эрго прокси [2006, TV, 23 серий] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924440.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Heavy Object | Тяжёлый объект [2015, TV, 24 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923981.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923928.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Dungeon ni Deai o Motomeru no wa Machigatteiru Darou ka? | Danmachi | Может
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923804.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Mushishi Zoku Shou | Mushi-Shi: Next Passage | Мастер Муси: Следу
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923247.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922771.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Juuou Mujin no Fafnir | Unlimited Fafnir | Безграничный Фафнир
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922573.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Selector Destructed WIXOSS | Селектор: Разрушение WIXOSS [Ко
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922450.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922443.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922357.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922324.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku | OreGairu 2 | Как и 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921941.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Macross Plus | Макросс Плюс [1994, OVA, 4 из 4] BDRip 1080p 10-bit 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920638.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Arata Kangatari | Arata: The Legend | Легенда Араты [2013, TV, 12 и
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920578.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Shoukoku no Altair | Altair: A Record of Battles | Империя Альтаир
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920570.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Macross Delta | Macross Δ | Макросс Дельта [2016, TV, 26 + 9] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920525.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Macross Plus: Movie Edition | Macross Plus The Movie | Макросс Плюс: 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920523.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Urawa no Usagi-chan / Усаги-чан из Уравы [2015, TV, 13 из 13] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918773.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Shirobako [2014, TV, 24 + 2sp] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916614.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Mugen no Ryvius | Infinite Ryvius | Бесконечное путешестви�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915686.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Nihon Chinbotsu 2020 | Japan Sinks 2020 | Гибель Японии 2020 [2020, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915504.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Girlfriend (Kari) | Girlfriend (Beta) | Девушка (Бета) [2015, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915161.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Wixoss Diva(A)Live | Wixoss: Дива в прямом эфире [2021, TV, 12 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913907.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Slime Taoshite 300-nen, Shiranai Uchi ni Level Max ni Nattemashita | Я 300 ле
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913741.jpg" />
 </div>
 
 

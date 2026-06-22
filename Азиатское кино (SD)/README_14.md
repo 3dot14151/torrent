@@ -1,3 +1,81 @@
+###  Публикация: 1375773   (863866) от 15.04.2020
+
+Наш завтрашний рис / Bokura no gohan wa ashita de matteru / Our Meal for Tomorrow (2017) WEB-DLRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863866.jpg" />
+</div>
+
+
+###  Подробнее
+
+История семи лет отношений пары с момента знакомства и до долгожданной свадьбы. Они познакомились в школе. Рёта - тихий и отстраненный. Кохару - яркая и общительная. Но что-то все же сближает их, и они начинают встречаться.Производство: Япония / DubЖанр: Драма, мелодрамаРежиссер: Масахидэ ИтииАктеры: Юто Накадзима, Юко Араки, Карэн  Мияма, Аманэ Окаяма, Хаири Катагири, Тиэко МацубараПеревод: Двуголосый любительский (Asian Miracle Group)Субтитры: Английские - отдельным файломПродолжительность: 01:49:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A21FFE18644294A3F5F708BD322CAD4AB37A86D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375742   (863737) от 15.04.2020
+
+Брошенный кролик / Usagi Drop (2011) HDRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда тридцатилетний Дайкити возвращается домой на похороны своего деда, он встречает в саду незнакомую ему девочку по имени Рин. Его мать объясняет, что та является внебрачной дочерью умершего, а кто является её матерью — неизвестно. Никто из родственников не решается взять к себе и воспитывать девочку, и тогда это решает сделать Дайкити.Производство: Япония / Asahi Shimbun, Daiichi-Seihan, DubЖанр: Драма, комедия, мелодрамаРежиссер: Хироюки ТанакаАктеры: Мацуяма Кэнити, Карина, Мана Ашида, Миреи Киритани, Китаки Маю, Руйки Сато, Коу Аяно, Рио Кимура, Джанко Такахата, Чизуру ИкевакиПеревод: Многоголосый любительский (SHIZA Project); двухголосый любительский (RG Genshiken; RG AniFilm; RG GREEN TEA)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:53:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3419397C0BAB14B93595627890C02D353960ACB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375748   (863598) от 15.04.2020
+
+Сказки из тьмы, часть 1 / Mai lei yeh / Tales from the Dark 1 (2013) HDRip [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альманах, состоящий из трех новелл, снятых по рассказам Лилиан Ли.Производство: Гонконг / EDKO Film Ltd., Movie Addict ProductionsЖанр: УжасыРежиссер: Фрут Чан, Чи-Нгай Ли, Саймон ЯмАктеры: Саймон Ям, Дженни Чан, Дада Чан, Келли Чен, Тони Люн Ка Фай, Черри Нган, Шоу Йин ЙинПеревод: Авторский (А.Дольский)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:52:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A18298BF4C90B8BA2719D503BFD827470ADEE7A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375784   (863532) от 15.04.2020
 
 Украденные годы / Bei tou zou de na wu nian / The Stolen Years (2013) HDRip [AVO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863532.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863418.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862743.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862355.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862302.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862268.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862264.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862174.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862048.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861802.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861242.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860698.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860627.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860625.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860624.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860623.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860621.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860619.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860610.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860603.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860502.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860501.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860497.jpg" />
 </div>
 
 
@@ -589,86 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:682A17A91DB4D0DAECF76F96072A4727E2626BD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376299   (860496) от 17.04.2020
-
-Длинная рука закона 3 / Saang gong kei bing 3 / Long Arm of the Law 3 (1989) DVDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конгу удается сбежать от смертной казни в Гонконг. Там он вынужден работать на банду преступников, после того, как они похищают его любимую.Производство: Гонконг / Johnny Mak Productions, Movie ImpactЖанр: Боевик, триллер, мелодрама, криминалРежиссер: Майкл МакАктеры: Энди Лау, Элизабет Ли, Сиу Чунг Мок, Кен Бойл, Стивен Чан Так Гвон, Чи Джин Чунг, Чин Куй Чунг, Йи-Сан ХанПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: отсутствуютПродолжительность: 01:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C98C1F1063F31A98EF1C848361E8724162432149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376329   (860492) от 17.04.2020
-
-Истина: Последняя глава / Fa nei qing 2 / The Truth: Final Episode (1989) DVDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие начинается сразу же после процесса, выигранного адвокатом Лау (Энди Лау) в финале второй части. Его мать (Дини Ип) на свободе, но сам Лау потерял свое место в юридической конторе и теперь оказался на улице. А тем временем напарник коррумпированного полицейского, убитого в предыдущей части, начинает свою игру, намереваясь отомстить за погибшего друга. Он (   Читать дальше...   )Производство: Гонконг / Movie Impact, Johnny Mak ProductionЖанр: Триллер, драма, криминалРежиссер: Майкл МакАктеры: Энди Лау, Динни Ип, Ло Лье, Пол Чунь, Кэти Чоу, Лау Сю Мин, Н Хой Тинь, Чан Кин, Сандра ЛанПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: отсутствуютПродолжительность: 01:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DD1961351B04E5761E29350CDB586D402F8870B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059546   (859731) от 17.04.2020
-
-Тоннель / Teoneol / Teo-neol (2016) HDRip
-
->>След.
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из-за халатности во время строительства и вследствии из-за непрочной конструкции происходит обрушение тоннеля.
-Люди оказываются под завалами, в ловушке внутри подземного сооружения.
-Фильм снят по одноименному роману Со Чжэ Вона.Производство: Корея ЮжнаяЖанр: ДрамаРежиссер: Ким Сон-хунАктеры: Пэ Ду-на, Ха Джон-у, О Даль-су, Е Су-джон, Чхве Гви-хва, Ким Джон-суПеревод: Двуголосый закадровый, любительскийОзвучка / Автор перевода: GREEN TEA (Константин Романов, Ольга Гринтиева)Язык субтитров: РусскийПродолжительность: 02:06:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86EB475CD511CBF3968E0BAC566F2DDDE9021ADF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1448964   (1030442) от 19.02.2021
+
+Картинки - Super mix wallpapers 514 [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030442.jpg" />
+</div>
+
+
+###  Подробнее
+
+В хорошем качестве подборка обоев на различную тематику.Формат: JPGРазрешение файлов: 1680x1050-7992x3809
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA79D7D222C9BF24264F6C5E6068657CFE6CC0B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448965   (1030409) от 19.02.2021
 
 Картинки - Super mix wallpapers 622 [JPG]
@@ -6,7 +32,7 @@
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030409.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030323.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030099.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029850.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029655.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029439.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029436.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028951.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028808.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028699.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028696.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028305.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028282.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028280.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028270.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028136.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027983.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027851.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027472.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027442.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027339.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026991.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025524.jpg" />
 </div>
 
 
@@ -622,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025169.jpg" />
 </div>
 
 
@@ -649,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024983.jpg" />
 </div>
 
 
@@ -660,32 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A54FB352B2475EC2A3F4191CBA7EF6A716303AEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457481   (1024445) от 26.03.2021
-
-Картинки - Коллекция картинок Море №6 [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024445.jpg" />
-</div>
-
-
-###  Подробнее
-
-В хорошем качестве подборка картинок море.Формат: JPGРазрешение файлов: 4608x2592
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBFF9F7B56D43805418DE47C87304CE240EED1B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

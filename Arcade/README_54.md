@@ -1,3 +1,55 @@
+###  Публикация: 1774462   (30229) от 21.01.2025
+
+My Memory of Us (2018) [Ru/Multi] (Build 16287132) Repack FitGirl
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30229.jpg" />
+</div>
+
+
+###  Подробнее
+
+My Memory of Us – это воспоминание о дружбе между мальчиком и девочкой. Дружбой, которая объединяла их в трудные времена. Во времена террора, боли и изгнания, когда люди были вынуждены жить в двух искусственно разделенных мирах. Вы любите истории? Если да, то я вам сейчас расскажу одну историю. Но это не просто старая байка. Она другая, ведь речь в ней пойдет про (   Читать дальше...   )Тип издания: RepackРазработчик: Juggler GamesЖанр: Экшны, Приключение, ДрамаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2711366D0928289602E0210BBDB829D062692B17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774945   (29984) от 24.01.2025
+
+STAR WARS: Episode I: Jedi Power Battles (2025) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отвоюйте королевский дворец Тида в быстрой и яростной экшен-игре со световыми мечами. С вами Сила и ваш верный световой меч, а значит, пора встать против легионов боевых дроидов, дроидов-разрушителей, ликвидаторов и других существ из фильма «Звездные Войны: Эпизод I - Скрытая угроза». Отправьтесь в галактику «Звездных войн» в сайд-скроллерной экшен-аркаде - Играйте (   Читать дальше...   )Тип издания: RepackРазработчик: LucasArts Entertainment Company, Aspyr MediaЖанр: Action, ArcadeЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91CEA4130ADCFC23830BE36F2AD84720E708287F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775241   (29784) от 25.01.2025
 
 Fragrance Point (2025) [En] (1.0) Repack FitGirl
@@ -6,7 +58,7 @@ Fragrance Point (2025) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29784.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Primeval (2020) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29725.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ ReSetna (2025) [Ru/Multi] (build 17191225) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29221.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Mika and The Witch's Mountain (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28925.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Virtua Fighter 5 R.E.V.O. (2025) [Multi] (Build 17103742/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28893.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Retro City Rampage DX (2014) [Multi] (2.10) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28864.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Virtua Fighter 5 R.E.V.O. (2025) [Multi] (1.00/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28802.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ ReSetna (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28789.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Big Helmet Heroes (2025) [Ru/Multi] (1.0.0) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28732.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ River City Girls 2 (2022) [Ru/Multi] (1.1.3/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28729.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Big Helmet Heroes (2025) [Ru/Multi] (27289703) Scene FairLight
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28688.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Guns, Gore and Cannoli 2 (2018) [Ru/Multi] (1.0.8) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28607.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Warhammer 40,000: Shootas, Blood & Teef (2022) [Ru/Multi] (1.0.36) Repack Let's�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28606.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Big Helmet Heroes (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28605.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Guns, Gore & Cannoli (2015) [Ru/Multi] (1.2.21) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28578.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ BORE BLASTERS (2024) [Multi] (1.52) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28122.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ The Smurfs - Dreams (2024) [Ru/Multi] (1.0.27/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28099.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Let's Cook Together 2 (2025) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27745.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Clone Drone in the Danger Zone (2021) [Ru/Multi] (1.6.0.34) Repack EXROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27707.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Get Tilted! :) (2025) [Ru/Multi] (1.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27531.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Commando Hero 2: First Blood (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27243.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Plants vs. Zombies / Растения против Зомби (2009) [Ru] (1.2.0
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27040.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Spinch (2020) [Ru/Multi] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26867.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Warden's Will (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26818.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Warden's Will (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14A03572254B835D1FB8B4B9FC127999C69EF84D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781533   (26735) от 23.02.2025
-
-WARRIORS: Abyss (2025) [Multi] (1.0) Scene Rune
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие игры происходит в подземном мире, игроки сражаются с бесконечными полчищами мертвых душ, управляя более чем 100 историческими воинами. Отличительной особенностью игры является система призыва героев, позволяющая игрокам создавать уникальные комбинации отрядов, смешивая и сочетая воинов с различными способностями для разработки мощных стратегий боя. В отличие (   Читать дальше...   )Тип издания: SceneРазработчик: KOEI TECMO GAMES CO., LTD.Жанр: АркадаЯзык субтитров: Английский, Французский, Немецкий, Итальянский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C66BBDD44AA116D29652D29981DA771BC7BF9AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640024   (26727) от 23.02.2025
-
-Smushi Come Home (2023) [Multi] (1.1.0.4.2) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shumi Come Home - это очаровательная приключенческая игра со спокойной и умиротворяющей атмосферой, которая зачастую необходима каждому из нас. Вам предстоит примерить на себя роль маленького, но отважного грибочка по имени Шуми. Негодники вырвали его из дома, а потом безжалостно бросили посреди леса на произвол судьбы. Теперь вам предстоит отыскать способ вернуться (   Читать дальше...   )Тип издания: LicenseРазработчик: SomeHumbleOnionЖанр: Приключенческие игры, Казуальные игры, Инди, Ролевые игрыЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA7286260169FE27423F46E782153A2830AF54C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

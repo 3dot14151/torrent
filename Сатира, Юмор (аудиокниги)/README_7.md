@@ -1,3 +1,30 @@
+###  Публикация: 899915   (669190) от 21.05.2015
+
+Андрей Загорцев | Особая группа (2015) [MP3, Владимир Воронцов (Доцент)]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для выполнения особо важных задач из состава наиболее подготовленных офицеров формируются особые группы специального назначения.
+Суровая реальность в 5 частях под общей редакцией В. ОлейникаЖанр: Армейский юморПродолжительность: 03:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5CE0C104CD787571E4EDFB69C5A502184DBE724
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 342462   (657780) от 28.05.2011
 
 А. Левин,  М. Задорнов и др. | Как поживаете? (1989) [MP3, Евгений Петросян]
@@ -6,7 +33,7 @@
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657780.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652866.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642443.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641933.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641689.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641381.jpg" />
 </div>
 
 
@@ -162,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640722.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634855.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634055.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632739.jpg" />
 </div>
 
 
@@ -271,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631368.jpg" />
 </div>
 
 
@@ -299,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627687.jpg" />
 </div>
 
 
@@ -325,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625524.jpg" />
 </div>
 
 
@@ -353,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624398.jpg" />
 </div>
 
 
@@ -379,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623407.jpg" />
 </div>
 
 
@@ -405,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622664.jpg" />
 </div>
 
 
@@ -431,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620421.jpg" />
 </div>
 
 
@@ -458,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618533.jpg" />
 </div>
 
 
@@ -484,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618445.jpg" />
 </div>
 
 
@@ -513,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612821.jpg" />
 </div>
 
 
@@ -540,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611395.jpg" />
 </div>
 
 
@@ -566,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609388.jpg" />
 </div>
 
 
@@ -594,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604267.jpg" />
 </div>
 
 
@@ -622,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598021.jpg" />
 </div>
 
 
@@ -648,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594882.jpg" />
 </div>
 
 
@@ -659,32 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8071C0AF70673B39B7442F9DBDC890735E6B6BBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150564   (593978) от 15.07.2017
-
-Владимир Лорченков | Все там будем (2017) [MP3, Вячеслав Герасимов]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жители молдавского села Ларга очень хотят уехать в Италию. Серафим Ботезату, к примеру, за 20 лет строжайшей экономии буквально на всем выучил итальянский язык и может вполне сносно на нем изъясняться — было бы с кем! Супруга отца Паисия, матушка Елизавета, напротив, уехала в эту Италию еще в 1999 году. Сначала горничной устроилась, а потом вышла замуж за какого-то (   Читать дальше...   )Жанр: Юмористическая прозаПродолжительность: 14:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4CA0183232928B4F08D92F88AD33073C03D214A
 ```
 
 https://mybot314.ru/tekegram_catalog/

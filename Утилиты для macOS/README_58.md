@@ -6,7 +6,7 @@ QuickLinks 3.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113720.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PDF Squeezer 4 v.4.5.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113708.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Cocktail Sonoma Edition  17.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113706.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ KeyCue 10.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113682.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Vinegar 3.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113654.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ iShot-ScreenShot Recording OCR for Mac 2.5.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113638.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Lifespan 2.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113577.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Ink2Go 1.9.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113550.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ System Toolkit 6.1.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113509.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Cronette 1.10.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113491.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ iNet Network Scanner 3.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113450.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Caffeinated 2.0.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113436.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ uDock 4.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113435.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ KCNcrew Pack 03-15-24 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113401.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ WatsGo for Mac 8.5.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113265.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ DiskCatalogMaker 9.0.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113182.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Unclutter 2.2.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113173.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Finder Windows 1.5.16 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113172.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ SSH Config Editor Pro 2.6.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113168.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Dropshare 5 v.5.49 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113158.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Cardhop 2.2.17 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113136.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Tower Pro 10 for Mac v.10.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113100.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Easy New File 5.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113057.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ StopTheMadness 40.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112960.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ WiFi Signal Strength: Wifiry 2.6 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112954.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Screen Wonders 2.2.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112948.jpg" />
 </div>
 
 

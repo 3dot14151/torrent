@@ -1,3 +1,29 @@
+###  Публикация: 1160457   (1035791) от 04.03.2023
+
+Doom 3: BFG Edition (2012) [Multi] (1.14) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Doom 3 BFG Edition - это переиздание Doom 3. Жанр и смысл переизданий очень темны. Но интуитивно понятно, что новая версия - это как встретить очень старого друга после долгой разлуки. Игра та же, но где-то что-то подшили, что-то подлатали, что-то добавили. Из образцовых проектов реанимации классики вспоминается Baldur’s Gate 2 Big World Project, в которую помимо (   Читать дальше...   )Тип издания: LicenseРазработчик: id SoftwareЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: Английский, Немецкий, Испанский и другиеЯзык субтитров: Английский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E045EABC6BD7887AB871FFC981D02B703B152A30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324587   (1029823) от 21.02.2021
 
 Generation Zero (2019) [Ru/Multi] (1966450/dlc) Repack xatab
@@ -6,7 +32,7 @@ Generation Zero (2019) [Ru/Multi] (1966450/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029823.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ BioShock Infinite (2013) [Ru/En] (1.0.1643565/dlc) Repack dixen18 [Complete Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029360.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ BPM: BULLETS PER MINUTE (2020) [En] (1.0) Steam-Rip Goldberg
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028399.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Destroy All Humans! (2020) [Ru/Multi] (1.4/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027427.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Destroy All Humans! (2020) [Ru/Multi] (1.0.2550) Repack SpaceX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026489.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое Небо (2008) [Ru] (1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026454.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Hello Neighbor (2017) [Ru/Multi] (1.4) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025862.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Doom 3 + Doom 3: Resurrection of Evil (2004-2005) [Ru] (1.3/1.3.1302) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024658.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Risk of Rain 2 (2020) [Ru/Multi] (1.0.1.1) Repack SpaceX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023915.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ An Evil Existence (2020) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023232.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Relicta (2020) [Ru/En] (1.10) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020361.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти (2009) [
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018841.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Deadstep (2018) [Ru/Multi] (1.2.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018168.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Wolfenstein II: The New Colossus (2017) [Ru/Multi] (6.5.0.1331/dlc) License GOG 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017458.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Metro: Exodus / Метро: Исход (2019, 2021) [Ru/Multi] (2.0.0.0/dlc) Lic
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017307.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ The Ultimate Doom (1995) [En] (1.9) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016640.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Thief (2014) [Ru/Multi] (1.7) License GOG [Definitive Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011558.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ West of Dead (2020) [Ru/Multi] (1.11.8.29/dlc) License GOG [Path of the Crow Del
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007206.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Liberated (2020) [Ru/Multi] (1.16/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004637.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ Freeman: Guerrilla Warfare (2018) [Ru/Multi] (1.32) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004188.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ Freeman: Guerrilla Warfare (2018) [Ru/En] (1.32) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004176.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ Inner Chains (2017) [Ru/Multi] (2.2) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002880.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ Inner Chains (2017) [Ru/Multi] (2.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002364.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ Medal of Honor (2010) [Ru/En] (1.0.75.0) Rip Other s [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001493.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ Doom 3 BFG Edition [Ru/En] (RePack/1.0.0.1u1) 2012 | R.G. Origami
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999503.jpg" />
 </div>
 
 
@@ -644,36 +670,6 @@ Doom 3 BFG Edition - это обновленная версия культово
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61F6281A73DCB47377A8AFB6CD240880F12D8E20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 585615   (999204) от 06.01.2013
-
-Doom 3: BFG Edition [Ru/En] (RePack/1.1400.346456) 2012 | R.G. Games
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999204.jpg" />
-</div>
-
-
-###  Подробнее
-
-В издание Doom 3 BFG Edition войдет обновленная версия культового шутера Doom 3, а также дополнение к нему под названием Ressurection of Evil. Помимо знакомой игрокам истории войны на марсианской станции поклонников Doom ждут совершенно новые эпизоды – семь уровней под общим заголовком The Lost Mission.
-С Doom 3 BFG Edition игроки смогут еще глубже погрузиться в атмосферу легендарного шутера. Оптимизация графики под современные платформы, улучшенные рендеринг и освещение, поддержка стереоскопического 3D и звука 5.1, новая система сохранения в контрольных точках, а также поддержка достижений Xbox LIVE и призов PlayStation Network – все это позволит игрокам насладиться Doom 3, как в первый раз.
-Наконец, в качестве особого бонуса для самых верных фанатов серии Doom 3 BFG Edition содержит также оригинальную дилогию Doom.
-
-(   Читать дальше...   )Тип издания: RePackРазработчик: id SoftwareЖанр: Action (Shooter) / 3D / 1st Person / CompilationЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1672716   (168069) от 29.10.2023
+
+Александр Блок | Стихотворения и поэмы (2005) [MP3, Евгений Киндинов, Геннадий Бортников и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Блок – крупнейший русский поэт, один из основоположников символизма. Образ России, отождествленный с матерью, занимает центральное место в творчестве поэта. Блок не представлял своей жизни без родной страны, любил ее природу, народ, пытался разгадать ее душу, понять настоящее и определить будущее. Боль за нее не давала ему покоя, его терзали смутные предчувствия (   Читать дальше...   )Жанр: Русская литература, классика, поэзияИздательство: ИДДКПродолжительность: 02:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D17514571C55B040F6073E1A6E498BE6F51DD232
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 326681   (167654) от 29.10.2023
+
+Марина Цветаева | Вольный проезд (2004) [MP3, Ирина Ерисанова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: XX век. Русская проза. Проза Серебряного Века.
+Марина Ивановна Цветаева (1892–1941) – русский поэт и прозаик. «Вольный проезд» – автобиографическая проза, превратившаяся в летопись событий 1917–1923 гг. Политики в книге нет: есть страстная правда, правда холода, голода, гнева, хроника кошмара, записанная будничным, подчас чуть ли не веселым пером.Жанр: Русская литература, классика, проза, очеркИздательство: Студия «АРДИС»Продолжительность: 11:07:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27665B9583C849D65E9FC600FBA7CEBD292BE6F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 327113   (167649) от 29.10.2023
 
 Марина Цветаева | Пленный дух (2004) [MP3, Ирина Ерисанова]
@@ -6,7 +59,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167649.jpg" />
 </div>
 
 
@@ -35,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167644.jpg" />
 </div>
 
 
@@ -62,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167600.jpg" />
 </div>
 
 
@@ -91,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167597.jpg" />
 </div>
 
 
@@ -118,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167548.jpg" />
 </div>
 
 
@@ -145,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167247.jpg" />
 </div>
 
 
@@ -171,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167244.jpg" />
 </div>
 
 
@@ -198,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166818.jpg" />
 </div>
 
 
@@ -225,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166810.jpg" />
 </div>
 
 
@@ -253,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166802.jpg" />
 </div>
 
 
@@ -280,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166774.jpg" />
 </div>
 
 
@@ -308,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166745.jpg" />
 </div>
 
 
@@ -335,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166654.jpg" />
 </div>
 
 
@@ -361,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165384.jpg" />
 </div>
 
 
@@ -388,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165086.jpg" />
 </div>
 
 
@@ -414,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164898.jpg" />
 </div>
 
 
@@ -441,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164893.jpg" />
 </div>
 
 
@@ -469,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164860.jpg" />
 </div>
 
 
@@ -495,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164851.jpg" />
 </div>
 
 
@@ -522,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164825.jpg" />
 </div>
 
 
@@ -548,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164809.jpg" />
 </div>
 
 
@@ -574,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164801.jpg" />
 </div>
 
 
@@ -602,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164787.jpg" />
 </div>
 
 
@@ -629,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164516.jpg" />
 </div>
 
 
@@ -642,64 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00B20D953A3E84C4C4726BFEF5AD7D1B729EE214
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673647   (164510) от 02.11.2023
-
-Иван Тургенев | Вешние воды (2022) [MP3, Владимир Левашёв]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: XIX век. Русская проза.
-Иван Сергеевич Тургенев (1818–1883) – русский писатель, поэт, переводчик, член-корреспондент императорской Академии наук по разряду русского языка и словесности (1860). Считается одним из классиков мировой литературы.
-
-Студия «АРДИС» предлагает вашему вниманию повесть Ивана Тургенева Вешние воды из ряда повестей-воспоминаний о прошлом. (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Студия «АРДИС»Продолжительность: 06:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:760C5F0DAE7B734FC4BD1353FD99F87049B2DE05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673655   (164486) от 02.11.2023
-
-Иван Тургенев | Записки охотника (2003) [MP3, Вячеслав Герасимов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Школьная библиотека
-Мастер слова и тонкий психолог, прославленный русский писатель Иван Сергеевич Тургенев оказал огромное влияние на умы своих современников и внес существенный вклад в развитие отечественной и мировой литературы.
-В аудиокнигу вошли рассказы И.С. Тургенева – знаменитые «Записки охотника», принесшие писателю широкую известность.
-(   Читать дальше...   )Жанр: Русская литература, классика, повесть, рассказИздательство: Студия «АРДИС»Продолжительность: 08:24:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:375E2EB7005A567B480B5C848A36DEAB55C6419C
 ```
 
 https://mybot314.ru/tekegram_catalog/

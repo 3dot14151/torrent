@@ -6,7 +6,7 @@ E-Trophee Andros. Сезон 2020-2021. Этап 2. Исола 2000. Гонка 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040626.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038956.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ E-Trophee Andros. Сезон 2020-2021. Этап 3. Серра Шевалье. �
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038841.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038814.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037641.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036957.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ E-Trophee Andros. Сезон 2020-2021. Этап 4. Ланс Эн Веркор. 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036950.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036787.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036302.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ WRC. Чемпионат мира по ралли. Обзоры / World Rally Cha
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035388.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034685.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ E-Trophee Andros. Сезон 2020-2021. Этап 5. Валь Торренс. Г�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034658.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034646.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033769.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032549.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032548.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032545.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032303.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031892.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031385.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031384.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031381.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ MotoGP. Этап 01. Гран-при Португалии. Спринт (25.03.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030964.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030949.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030944.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030936.jpg" />
 </div>
 
 

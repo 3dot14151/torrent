@@ -1,3 +1,84 @@
+###  Публикация: 547825   (467488) от 18.09.2012
+
+Kalafina - After Eden' Special Live 2011 at Tokyo Dome City Hall (2011) [H.264/720p] BDRip
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись концерта группы Kalafina от 25 Ноября 2011-го года, который включает в себя более 20-и песен, включая песни из альбома After Eden'.
+Также включает в себя короткий обзор "Kalafina Week" в районе Shibuya, Tokyo.Жанр: JPopПеревод: ОтсутствуетПродолжительность: 02:26:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547322   (467221) от 18.09.2012
+
+Moonbeam - The Secret (Live Edition) (2012) DVD5
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467221.jpg" />
+</div>
+
+
+###  Подробнее
+
+У российского проекта Moonbeam сложилась устойчивая репутация одной из самых талантливых и креативных электронных команд страны – во всяком случае, вклад в развитие современной отечественной танцевальной музыки они сделали нешуточный.  Open Gate Records представляет весьма интересный релиз: «Moonbeam. The Secret. Live Edition» - это DVD c выступлениями проекта в поддержку альбома в Москве, Казани, Нижнем  Новгороде,  и Екатеринбурге, а также CD c ремиксами от разных музыкантов, многих из которых можно смело назвать протеже «Мунов».  Взяв под крыло несколько молодых и перспективных российских продюсеров, Moonbeam дают им тот самый шанс, который не без усилий ухватили сами несколько лет назад.
+
+Так или иначе, по уровню все ремиксы на треки из The Secret соответствуют той высокой профессиональной планке , которую установили сами для себя братья Хвалеевы. Отдельного упоминания заслуживает DVD-диск: известно, что после выхода The Secret коллектив ждали аншлаги в российских миллионниках. Эти выступления прошли несколько (   Читать дальше...   )Жанр: МузыкаПродолжительность: 01:13:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548589   (467076) от 18.09.2012
+
+Icky Blossoms - "Cycle" (Uncensored) (2012) [H.264/1080р] WEBRip
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Electro-PopПродолжительность: 00:03:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD44E1C36CEE09197B5E4D0B8426BDA371C16EFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940350   (466864) от 25.09.2015
 
 Kanye West - Late Orchestration (Live At Abbey Road) (2006) BDRip [H.264/1080p]
@@ -6,7 +87,7 @@ Kanye West - Late Orchestration (Live At Abbey Road) (2006) BDRip [H.264/1080p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466864.jpg" />
 </div>
 
 
@@ -35,7 +116,7 @@ BBX - Making Luv (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465559.jpg" />
 </div>
 
 
@@ -61,7 +142,7 @@ Millenium Застольная 2 (2012) DVD5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_462879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_462879.jpg" />
 </div>
 
 
@@ -96,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460268.jpg" />
 </div>
 
 
@@ -122,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457950.jpg" />
 </div>
 
 
@@ -148,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452975.jpg" />
 </div>
 
 
@@ -174,7 +255,7 @@ OV7 & Gloria Trevi - Nada Es Imposible (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451555.jpg" />
 </div>
 
 
@@ -200,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451328.jpg" />
 </div>
 
 
@@ -226,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_431697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_431697.jpg" />
 </div>
 
 
@@ -253,7 +334,7 @@ Billy Idol - Idolize Yourself ( the very best of ) (2008) DVDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431696.jpg" />
 </div>
 
 
@@ -288,7 +369,7 @@ Gain. Bloom (2012) [H.264/1080р] HDTVRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422344.jpg" />
 </div>
 
 
@@ -306,6 +387,61 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 395431   (420856) от 03.10.2011
+
+30 Seconds To Mars - MTV Unplugged 2011
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_420856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Intro & Hurricane
+Kings & Queens
+Interview & Night Of The Hunter
+Where The Streets Have No Name & OutroЖанр: Alternative RockПродолжительность: 00:21:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 396408   (416429) от 05.10.2011
+
+David Gilmour-On An Island (2006-The Tonight Show with Jay Leno) HDTV
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_416429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ROCKПродолжительность: 05:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F5F812B2ECC72860D30F80C982080BA12696ABB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 559414   (410134) от 12.10.2012
 
 Видео страницы / Videopages Of Classic Rock(1967-1987) (2009) DVDRip
@@ -314,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410134.jpg" />
 </div>
 
 
@@ -349,7 +485,7 @@ Monster Rock Ballads (2CD) (2007) DVDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409879.jpg" />
 </div>
 
 
@@ -384,7 +520,7 @@ Rock and Roll - Hall of Fame + Museum, Live (1 диск) (2009) DVDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408015.jpg" />
 </div>
 
 
@@ -419,7 +555,7 @@ Rock and Roll - Hall of Fame + Museum, Live (2 диск) (2009) DVDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408007.jpg" />
 </div>
 
 
@@ -454,7 +590,7 @@ Relax Romantic Spa Vol.2 - Sensual Delights (2008) DVDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407927.jpg" />
 </div>
 
 
@@ -489,7 +625,7 @@ Cream - Live at the Royal Albert Hall (2005) [1080i] Blu-Ray
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_407710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_407710.jpg" />
 </div>
 
 
@@ -524,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407199.jpg" />
 </div>
 
 
@@ -553,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407111.jpg" />
 </div>
 
 
@@ -582,7 +718,7 @@ Enigma - Sitting on the Moon (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405450.jpg" />
 </div>
 
 
@@ -608,7 +744,7 @@ British Rock Viewseum - Vol.1 British Blues & Hard Rock Explosion (2010) DVDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405269.jpg" />
 </div>
 
 
@@ -622,160 +758,6 @@ SLADE - Studio Live From Pop Shop TV
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25BFE3E11D2200AACA770BB251DB343953734017
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563773   (403835) от 22.10.2012
-
-Don Davis & Van Dobrynin - Discovery (Cosmic Journeys) (2012) HDTVRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клип на композицию Discovery.Жанр: AmbientПродюсер: Don Davis, Van DobryninПродолжительность: 00:04:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0421234B3D6A5674668E978B16ED1E7FB4EEE8A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 398059   (400997) от 12.10.2011
-
-The Brian May Band - Live At The Brixton Academy (1994) DVD5
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400997.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Dark
-2. Back To The Light
-3. Driven by You
-4. Tie Your Mother Down
-5. Love Token
-6. Headlong
-7. Love Token (reprise)
-8. Love of My Life
-9. '39
-10. Let Your Heart Rule Your Head(   Читать дальше...   )Жанр: Hard RockПеревод: ОтсутствуетПродолжительность: 01:28:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 565302   (400003) от 26.10.2012
-
-Counting Clouds (clips) (2007)
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличные клипы для релакса и... в исполнении Counting Clouds (10 шт.)01 .At The Beach
-02, Blue Paradise
-03. Colored Dreams
-04. Do You Still Love Me
-05. Forever
-06. Imena
-07. Raindance (Native American) -The real Raindance
-08. Spirit ( Native American )
-09. The Only One (Instrumental Arabic Music)
-10. Desert Deja Vu (Instrumental Arabic Music)Жанр: Музыка,Relax, Lounge,New AgeПродолжительность: 00:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93711A32FABBE1CD2A96766CAE15CF43AFF6C043
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566241   (399055) от 27.10.2012
-
-Guitar Heroes At The BBC (Vol.2)(2CD) (2009) DVDRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vol.1. Продолжительность: 00:59:11
-
-01. Jimi Hendrix — Hey Joe / Sunshine Of Your Love
-Happening For Lulu - 04/01/1969(   Читать дальше...   )Жанр: Музыка, Classc rockПродолжительность: 00:59:11 +00:58:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2BD4A3CE26D1753FCC21036D9278CA06B96CA70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566239   (399019) от 27.10.2012
-
-Guitar Heroes At The BBC (Vol.1)(2CD) (2008) DVDRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vol.1.  
-Продолжительность: 00:59:25
-
-01. Jimi Hendrix Experience  - Voodoo Chile 1969(   Читать дальше...   )Жанр: Музыка, Hard RockПродолжительность: 01:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67BF232D3A10D7D1EC1569C661311FCEC0CF2CBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1622431   (1030292) от 28.03.2023
+
+Гепард: жизнь наперекор судьбе / Cheetah Beating the odds (2020) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детенышам гепарда, родившимся в регионе Серенгети в Восточной Африке, приходится быстро учиться навыкам выживания. Малышей повсюду подстерегают опасности: львы прогоняют гепардов со своих территорий, а шакалы и гиены норовят украсть все съестное, что удается добыть гепарду.Производство: Германия / NDR Naturfilm, DoclightsЖанр: документальный, природа, флора, фаунаРежиссер: Фил КоулзПеревод: ДублированныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA97E70FFF9D9FF28F19D7B0830C9BD9479F2E2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622438   (1030161) от 28.03.2023
+
+Гении природы / Bionik Revolution - Die besten Ideen der Natur (2012) BDRip [H.264/1080p] (серии 1-3 из 3)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь развивалась на планете Земля в течение почти трех с половиной миллиардов лет. В то время процесс естественного отбора сформировал существ, способных выживать практически во всех уголках планеты, от кипящих горячих источников до сокрушительного давления Марианской впадины на глубине 11 километров. И за эти три с половиной миллиарда лет выжившие должны были передвигаться (   Читать дальше...   )Производство: Германия, Великобритания, Terra Mater Factual Studios, Oxford Scientific Films, BBCЖанр: документальный, научно-познавательныйРежиссер: Джон КапенерПеревод: одноголосый профессиональный (телеканал Наука)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 3x ~00:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA05B590A87C0674BDAF027C974D000E4169532D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622954   (1029817) от 30.03.2023
+
+Гепард: жизнь наперекор судьбе / Cheetah. Beating the Odds (2020) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029817.jpg" />
+</div>
+
+
+###  Подробнее
+
+В великом круге жизни африканских равнин одно животное можно назвать и победителем, и проигравшим. Это гепард. Все остальные его притесняют и грабят, но он остается мастером выживания. Такие способности как скрытность, ловкость и скорость передаются из поколения в поколение и сага о гепардах продолжается новыми главами...Производство: Германия, NDR Naturfilm, Doclights, National GeographicЖанр: документальный, природа, фаунаПеревод: дублированныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84E67D89383D9F2F8993D4079D869BBFDDD83C16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622964   (1029810) от 30.03.2023
+
+Гепард: жизнь наперекор судьбе / Cheetah. Beating the Odds (2020) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029810.jpg" />
+</div>
+
+
+###  Подробнее
+
+В великом круге жизни африканских равнин одно животное можно назвать и победителем, и проигравшим. Это гепард. Все остальные его притесняют и грабят, но он остается мастером выживания. Такие способности как скрытность, ловкость и скорость передаются из поколения в поколение и сага о гепардах продолжается новыми главами...Производство: Германия, NDR Naturfilm, Doclights, National GeographicЖанр: документальный, природа, фаунаПеревод: дублированныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C52DD73CB504DCB85A6BF2EF725DCDE371447C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622817   (1029807) от 30.03.2023
 
 Список желаний. Австралия / Bucket List Australia (2020) WEB-DL [H.264/1080p]
@@ -6,7 +110,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029807.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029406.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028984.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028879.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028464.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028061.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027945.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027934.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027765.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026924.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025500.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025485.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ BBC. Дневник большого медведя / Big Bear Week (2006) SATRi
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024762.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024427.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023665.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023129.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023008.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022765.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022729.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021766.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020871.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020870.jpg" />
 </div>
 
 
@@ -565,112 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBF99F5450E38F620F74212B22F3377A5D1EFD89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462874   (1020864) от 16.04.2021
-
-Крылатая радуга (2010) DVB
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаете ли Вы, что ни один цветок, который радует наш взгляд на клумбе или в лесу, не расцвёл бы без помощи этих удивительных и необычайно красивых крылатых созданий? А ещё они делают мёд, оберегают наши сады от вредителей. Без них очень сложно было бы жить рыбам, птицам и другим представителям фауны. А ещё они дарят нам красоту! Бабочки, пчёлы, шмели, стрекозы и (   Читать дальше...   )Производство: Республика БеларусьЖанр: Документальный, природа, флора, фаунаРежиссер: Игорь БышневЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:13:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD2CDF037DE852827F3CD2F23019519CA7B25E58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462815   (1020858) от 16.04.2021
-
-Черепашка и ее друзья (2009) DVB
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм для детей и взрослых из цикла "Волшебная энциклопедия природы" про болотную черепаху и мир речной поймы, который ее окружает.Производство: Республика БеларусьЖанр: Документальный, природа, флора, фаунаРежиссер: Игорь БышневЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:13:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C525713DA9E658C6726D4A7BF0F7652F4D1A2EA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462811   (1020855) от 16.04.2021
-
-Пернатые кошки ночи (2010) DVB
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ночь - Самое таинственное время суток!
-Это время, когда большинство живых существ засыпает.
-Но есть в природе удивительные создания, которые именно темной ночью начинают свою настоящую жизнь. Совы...Производство: Республика БеларусьЖанр: Документальный, природа, флора, фаунаРежиссер: Игорь БышневЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:13:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7408A3AD949C3FC97E7747AD5C0B301F528E4227
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462814   (1020853) от 16.04.2021
-
-Кавалеры рек, болот и лесов (2012) DVB
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Животные удивительно отзывчивы. Они знают цену самоотверженности, смелости, вниманию, неравнодушию… Особенно весной. А кто же из них самый галантный? Кто лучше всех танцует, ухаживает, развлекает, кормит и оберегает свою избранницу?..Производство: Республика БеларусьЖанр: Документальный, природа, флора, фаунаРежиссер: Игорь БышневЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:14:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33ADDC0DBD8868A68BD2A113588F6366C5794A6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

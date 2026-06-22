@@ -1,3 +1,175 @@
+###  Публикация: 1367487   (915428) от 16.03.2020
+
+Lindemann - Live in St.Petersburg Sibur Arena (2020) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915428.jpg" />
+</div>
+
+
+###  Подробнее
+
+(time markers)
+2:45 - Skills In Pills
+7:06 - Ladyboy
+10:27 - Fat(   Читать дальше...   )Жанр: Industrial Ural MetalПродолжительность: 01:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF30C94DF1640D585718BBBB31513C3205049119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367648   (915255) от 16.03.2020
+
+Sabaton - 54 Music Videos (2006-2020) WEB-DL [h.264/V9/360p/480p/720p/1080p/2160p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 SABATON - Official Music Videos - 2,56 GB - 21 Files (01:30:04)
+
+001 2006 SABATON - Attero Dominatus
+002 2008 SABATON - Cliffs of Gallipoli (Live)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 03:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07B6B03339EB3BC4DE0B076C4BD87863144D79E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989858   (915150) от 23.02.2016
+
+Квартирник у Маргулиса - Евгений Хавтан и Браво (2016) DVBRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведущий программы - российский рок-музыкант Евгений Маргулис, бывший участник легендарной группы «Машина времени» — приглашает на домашние концерты известных рок-музыкантов России. В этом выпуске в гостях у Евгения Маргулиса Евгений Хавтан и группа Браво. Дата эфира: 07.02.201601. Ray Davies
+02. Бег
+03. Навсегда
+04. Это за окном рассвет(   Читать дальше...   )Производство: РоссияЖанр: МузыкаРежиссер: Дмитрий ЕфимовичПродолжительность: 00:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7B11533D20CD0C161FDFE4F097CE5E5F0B00C66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367424   (915092) от 16.03.2020
+
+Сборник клипов 01 (03.2020) WEB-DLRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник зарубежных и отечественных видеоклипов за март 202001_C-BooL - Higher
+02_W&W x Lucas & Steve - Do It For You
+03_ШЕFF feat. Indigo - Я рисую!
+04_Shlakoblochina feat. Fearmuch - Новая сила киски(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 3:07:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBAC1B2D1828F68EC7A1842127415B98EEF90744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989500   (914828) от 23.02.2016
+
+Квартирник у Маргулиса - Гарик Сукачев (2016) DVBRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Квартирник у Маргулиса. День рождения Гарика Сукачёва. Некоторые знают его как легендарного музыканта, другие как гениального режиссера и актера. Для кого-то он уважаемый Игорь Иванович, но большинству он известен под именем Гарик Сукачев – гремучая смесь хулиганствующего пролетария и старого солдата, "не знающего слов любви".
+Гарик Сукачев уже давно перешел (   Читать дальше...   )Производство: РоссияЖанр: МузыкаРежиссер: Дмитрий ЕфимовичПродолжительность: 01:33:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0E162225D0B85B49E6E644A0677C741AAAD717E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989936   (913245) от 24.02.2016
+
+Олег Митяев - Презентация диска «Позабытое чувство» Москва, Крокус Сити Холл (04.12.2011) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913245.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 декабря 2011 года на сцене Крокус Сити Холл состоялась презентация нового альбома Олега Митяева «Позабытое чувство». Олег Митяев известен всей стране песнями "Соседка", "Француженка", "Давай с тобой поговорим", "Сестра милосердия", "В осеннем парке", "Авиатор", "Лето — это маленькая жизнь", "С (   Читать дальше...   )01. Маршрутка
+02. Позабытое чувство
+03. Соседка
+04. Ленты(   Читать дальше...   )Телекомпания: Первый канал HDЖанр: КонцертПродолжительность: 01:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B4F72C5C6DB5A403637F2AA16692E1BF7B216B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987719   (913032) от 24.02.2016
 
 The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014) BDRip [H.264/720p] (Criterion Collection) [hand made colored]
@@ -6,7 +178,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014)
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913032.jpg" />
 </div>
 
 
@@ -33,7 +205,7 @@ Vanessa Hudgens vs. YLA - SSSex (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912961.jpg" />
 </div>
 
 
@@ -59,7 +231,7 @@ Katalina Rusu - My Name Is Love (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912944.jpg" />
 </div>
 
 
@@ -85,7 +257,7 @@ Alex Clare - Too Close (2nd Version) (2012) [1080p] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912782.jpg" />
 </div>
 
 
@@ -111,7 +283,7 @@ Mz Mikal Blair (Model) - Broke Bitch (Uncensored) (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912642.jpg" />
 </div>
 
 
@@ -129,6 +301,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 757926   (911782) от 19.02.2014
+
+The Freddie Mercury Tribute Concert for AIDS Awareness (1992) Blu-Ray [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_911782.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Freddie Mercury Tribute Concert for AIDS Awareness (Концерт памяти Фредди Меркьюри для информирования о СПИДе) - концерт состоялся под открытым небом в пасхальный понедельник, 20 Апреля 1992 года, на стадионе «Уэмбли» в Лондоне, с аудиторией в 72 000 человек.01.Intro
+02. Brian May, Roger Taylor, John Deacon — Introduction
+03. Metallica — Enter Sandman
+04. Metallica — Sad But True(   Читать дальше...   )Жанр: RockРежиссер: David MalletЯзык субтитров: English, German, Spanish, French, ItalianПродолжительность: 03:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC12293967EDE7E0619E33FA2DB94D2D33CDEE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096679   (911761) от 28.01.2017
 
 Машина Времени - Концерт в Киеве 2012 (2014) DVD9
@@ -137,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911761.jpg" />
 </div>
 
 
@@ -163,7 +364,7 @@ Shania Twain - UP! Close & Personal (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911715.jpg" />
 </div>
 
 
@@ -192,7 +393,7 @@ Shania Twain - LIVE (1999) Come On Over, DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911625.jpg" />
 </div>
 
 
@@ -221,7 +422,7 @@ Shania Twain - The Platinum Collection (2001) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911616.jpg" />
 </div>
 
 
@@ -250,7 +451,7 @@ Shania Twain - UP! Live In Chicago (2003) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911603.jpg" />
 </div>
 
 
@@ -279,7 +480,7 @@ Shania Twain - The Specials (2001) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911599.jpg" />
 </div>
 
 
@@ -308,7 +509,7 @@ Joe Bonamassa - Tour De Force (Hammersmith Apollo) (2013) HDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911550.jpg" />
 </div>
 
 
@@ -339,7 +540,7 @@ Kreator - London Apocalypticon - Live at the Roundhouse (2020) BDRip [H.264/720p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910778.jpg" />
 </div>
 
 
@@ -368,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910682.jpg" />
 </div>
 
 
@@ -394,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910556.jpg" />
 </div>
 
 
@@ -420,7 +621,7 @@ Lindemann - Live at Moscow (VTB Arena) (15.03.2020) WEB-DLRip [VP9/2160p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910520.jpg" />
 </div>
 
 
@@ -449,7 +650,7 @@ The Rolling Stones: Havana Moon (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_910124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_910124.jpg" />
 </div>
 
 
@@ -478,7 +679,7 @@ Brit Floyd - Space & Time - Live in Amsterdam (2016) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909898.jpg" />
 </div>
 
 
@@ -507,7 +708,7 @@ Europe: The Final Countdown – Live At The Roundhouse (2017) 30th Anniversary S
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909861.jpg" />
 </div>
 
 
@@ -521,192 +722,6 @@ Europe: The Final Countdown 30th Anniversary Show - Live at the Roundhouse пр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEA053D8C0D526A29A181EC02253CA88A4A8BDAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635445   (909706) от 26.03.2013
-
-Stooshe - Slip (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0125B6AA5DFF73D4F1521E1D1DB5BF3EC1AB6E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635447   (909525) от 26.03.2013
-
-Dj Sava feat. Misha - Tenerife (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F695E2FF9794065A303A1321FBD8579DC1C98A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635452   (909505) от 26.03.2013
-
-Elena ft. Glance - Ecou (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF8A52CE9EA3AF9C2A97D06878BEED5E029C763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 864509   (909481) от 04.02.2015
-
-Демонстрационный DVD-Video диск #3. Dolby Digital 5.1, DTS Multichannel Sound 5.1 [DVD5]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Демонстрационные музыкальные клипы и фрагменты кинофильмовПродолжительность: 01:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E789C5268FB2B3D80C5930DA0F6E901C334E4CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635441   (909438) от 26.03.2013
-
-Anna Tatangelo - Occhio Per Occhio (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13735E359531B1158732504F7FC4F327583C6845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635343   (909339) от 26.03.2013
-
-London Philharmonic Orchestra & Rowan Atkinson (2012) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 00:05:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8142FE3DD714EF47E5E884090BD14F9184F073E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990820   (909286) от 26.02.2016
-
-VA - Коллекция клипов Rock, Metal, Heavy Metal (2012 - 2015) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция клипов для любителей рок и метал.
-Вся сила, энергия и мощь по настоящему крутой музыки!2Cellos - They Don't Care About Us (Michael Jackson Cover).avi
-A Sound of Thunder - Murderous Horde.avi
-AC-DC - Are You Ready.avi
-AC-DC - Rock The Blues Away.avi(   Читать дальше...   )Жанр: Музыкальные клипыПродолжительность: 31:16:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A7722170C010964F7F3251577622229EAAAD16C
 ```
 
 https://mybot314.ru/tekegram_catalog/

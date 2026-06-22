@@ -1,3 +1,29 @@
+###  Публикация: 1123625   (621228) от 25.06.2017
+
+Berserk (Season 2) | Берсерк [ТВ-3] [2017, ТВ, 12 эп.] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет повествует о могучем воине по имени Гатс, он странствует по миру, похожему на средневековую Европу, но с демонами. Означенных демонов Гатс люто ненавидит и истребляет в надежде отомстить одному конкретному и крайне могущественному, в схватке с приспешниками которого он некогда потерял глаз, левую руку и ещё кое-что крайне ценное. Для этих целей Гатс использует (   Читать дальше...   )Жанр: приключения, фэнтези, сэйнэнРежиссер: Итагаки Син / Itagaki Shin /Язык озвучки: японскийПродолжительность: каждый эпизод по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E54C07938B8C1FDA8D01F524497735CD4149265C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224697   (620658) от 09.06.2018
 
 Houseki no Kuni | Land of the Lustrous | Страна самоцветов [2017, TV, 12 эп.] BDrip 1080p 10bit raw
@@ -6,7 +32,7 @@ Houseki no Kuni | Land of the Lustrous | Страна самоцветов [2017
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620658.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Ultraman Season 2 | Ультрамен: новый герой [ТВ-2] [2022, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620205.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Shinmai Maou no Testament Departures | Завет Дьявольских Сес�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618881.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Oushitsu Kyoushi Haine / Королевский наставник [2017, TV, 12
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617632.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ JoJo no Kimyou na Bouken: Stardust Crusaders - Egypt Hen | Невероятны�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617348.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Tantei Gakuen Q / Detective School Q / Школа детективов Кью [2
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616954.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Chiisana Eiyuu: Kani to Tamago to Toumei Ningen | Modest Heroes | Скромны
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616915.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ FLCL 3 | FLCL Alternative | Фури-кури: Альтернатива [2018, M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616905.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Irozuku Sekai no Ashita kara | Iroduku: The World in Colors | Из завтра�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616750.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Mad Bull 34 / Бешеный бык 34 [1990, OVA, 4 ep.] DVDRip raw +eng
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616124.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615815.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Haiyore! Nyaruko-san F | Няруко-сан: Крадущийся хаос F [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615787.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ Just Because! | Просто так! [2017, TV, 12 эп.] BDrip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615412.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ Break Blade / Broken Blade / Сломанный Меч [2014, TV, 12] HDTV 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615031.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ Ultraman Season 2 | Ультрамен 2 [2022, Web, 6 эп.] WebRip 720p raw+en
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614791.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Eromanga Sensei | Эроманга-сенсей [2017, ТВ, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614216.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Zero kara Hajimeru Mahou no Sho | Grimoire of Zero | Книга магии дл�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614206.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Triage X | Отбор Икс [2015, TV, 10 + OVA] BDRip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613237.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Ryuu to Sobakasu no Hime | Belle | Красавица и дракон [2021, Mov
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612786.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Fukumenkei Noise / Не скрывая крик [2017, TV, 12 из 12] HDTV 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612540.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Gekijouban Shingeki no Kyojin | Вторжение гигантов (фильм)
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612534.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Gunslinger Stratos: The Animation | Небо стрелков [2015, TV, 12 эп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611979.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ Subete ga F ni Naru: The Perfect Insider | Everything Becomes F: The Perfect Ins
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609395.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ Punch Line / Punchline / Трусы всему виной [2015, TV, 12 ep] WEBR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608177.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ Peace Maker Kurogane / Железный миротворец [2003, TV, 24 из 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607373.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ Peace Maker Kurogane / Железный миротворец [2003, TV, 24 из 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:935C415EFF0E6698EA6207FFDFFD2E984F635115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525429   (607335) от 21.07.2012
-
-Outlanders / Гости с далеких планет [1986, OVA, 1 ep.] DVDRip raw +eng
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_607335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Принцесса Кам пробивается сквозь блокаду своих соотечественников на «святую землю» (т.е. Землю) под пламенную встречу земных сил ПВО. Естественно, противостоять огневой мощи принцессы не могут ни реактивные самолеты, ни солдаты, среди которых она после приземления устраивает жестокую резню. Однако среди солдат оказывается парень, «на других не похожий»: молодой фотограф (   Читать дальше...   )Жанр: комедия, приключения, фантастикаРежиссер: Ямада Кацухиса / Yamada KatsuhisaПеревод: shintouЯзык озвучки: ЯпонскийЯзык субтитров: Русский; Английский (soft)Продолжительность: (1 эп.), 48 мин..
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

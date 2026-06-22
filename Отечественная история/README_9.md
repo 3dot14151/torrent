@@ -6,7 +6,7 @@
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_587512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_587512.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587454.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587451.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587024.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586534.jpg" />
 </div>
 
 
@@ -131,32 +131,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301064   (585987) от 10.05.2019
-
-Военный парад, посвященный 74-й годовщине Победы в ВОВ 1941-1945 годов (2019) HDTVRip [H.264/1080p-LQ] (Москва)
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прямая трансляция с Красной площади. В главном параде страны, посвященном 74-й годовщине победы в Великой Отечественной войне, участвуют тысячи военнослужащих и курсантов военных училищ, более 150 единиц военной техники.Телекомпания: Первый каналЖанр: Документальный, Военный парадПродолжительность: 01:21:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17C276612454E24C11EFA33F3C90604C46597FB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041314   (583422) от 08.08.2016
 
 Кремлёвские похороны. Константин Черненко (2009) DVBRip [H.264]
@@ -165,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583422.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583421.jpg" />
 </div>
 
 
@@ -219,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583408.jpg" />
 </div>
 
 
@@ -245,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583376.jpg" />
 </div>
 
 
@@ -272,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583200.jpg" />
 </div>
 
 
@@ -298,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583117.jpg" />
 </div>
 
 
@@ -326,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582787.jpg" />
 </div>
 
 
@@ -354,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582422.jpg" />
 </div>
 
 
@@ -381,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581741.jpg" />
 </div>
 
 
@@ -409,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580726.jpg" />
 </div>
 
 
@@ -435,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580537.jpg" />
 </div>
 
 
@@ -461,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580534.jpg" />
 </div>
 
 
@@ -488,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580527.jpg" />
 </div>
 
 
@@ -515,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580434.jpg" />
 </div>
 
 
@@ -541,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579863.jpg" />
 </div>
 
 
@@ -567,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579830.jpg" />
 </div>
 
 
@@ -593,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579829.jpg" />
 </div>
 
 
@@ -619,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579827.jpg" />
 </div>
 
 
@@ -645,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579644.jpg" />
 </div>
 
 
@@ -676,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_579546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_579546.jpg" />
 </div>
 
 
@@ -688,6 +662,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E239D766AB8BB658F0840461F5FAEAFBEF976426
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042481   (579488) от 12.08.2016
+
+Дело генерала Корнилова. История одного предательства (2007) DVB
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579488.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Советской России термин "корниловец" стал синонимом махрового контрреволюционера. До конца ХХ столетия все учебники истории в нашей стране представляли боевого генерала как "отпетого идейного врага трудового народа". Тот факт, что Лавр Корнилов сам происходил из семьи трудового казака, тщательно замалчивался. Миф о "корниловском мятеже" (   Читать дальше...   )Телекомпания: Россия, ВГТРКЖанр: ДокументальныйПродолжительность: 00:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DABBF058D5DDBD8D792838B2C6CF1C9FF90942B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

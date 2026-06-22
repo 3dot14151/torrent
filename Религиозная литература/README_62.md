@@ -1,3 +1,57 @@
+###  Публикация: 1556140   (559858) от 09.06.2022
+
+Е. Игонина (сост.) | Христианин и одиночество (2013) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель составителей сборника — побудить читателя задуматься о духовном смысле чувства одиночества и помочь преодолеть одиночество сердца тем, кто ищет в этом христианских советов и наставлений. В книге собраны фрагменты рассуждений различных христианских писателей — святителя Николая Сербского, митрополита Антония (Блума), архимандрита Рафаила (Карелина) и других.Жанр: РелигияИздательство: Слово и делоФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:089DF096F70B399A48D89013C171CA087A2C8B5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045275   (559822) от 23.08.2016
+
+В. Ф. Зыбковец | Дорелигиозная эпоха (1959) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главным вопросом, который более двухсот лет обсуждается в зарубежной литературе о происхождении религии, является вопрос о том, каковы были первичные религиозные верования. На этот счет выдвинуто несколько гипотез: монотеистическая, прамонотеистическая, аниматическая, преанимистическая, анимистическая, натуралистическая, этическая и многие другие.
+
+Трудно сказать, (   Читать дальше...   )Жанр: Религиоведение, История религийФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6627D6765571144223FA3FF7DE969A3816F52716
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045480   (559555) от 23.08.2016
 
 М. А. Бакунин | Бог и государство (1920) [PDF]
@@ -6,7 +60,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559555.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558745.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558287.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557138.jpg" />
 </div>
 
 
@@ -115,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556455.jpg" />
 </div>
 
 
@@ -144,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555936.jpg" />
 </div>
 
 
@@ -170,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554761.jpg" />
 </div>
 
 
@@ -198,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554744.jpg" />
 </div>
 
 
@@ -224,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554695.jpg" />
 </div>
 
 
@@ -250,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554528.jpg" />
 </div>
 
 
@@ -278,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554527.jpg" />
 </div>
 
 
@@ -306,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554271.jpg" />
 </div>
 
 
@@ -332,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554269.jpg" />
 </div>
 
 
@@ -358,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553827.jpg" />
 </div>
 
 
@@ -384,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552388.jpg" />
 </div>
 
 
@@ -411,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552235.jpg" />
 </div>
 
 
@@ -439,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551494.jpg" />
 </div>
 
 
@@ -465,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551215.jpg" />
 </div>
 
 
@@ -491,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550600.jpg" />
 </div>
 
 
@@ -518,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550177.jpg" />
 </div>
 
 
@@ -544,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549728.jpg" />
 </div>
 
 
@@ -570,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549678.jpg" />
 </div>
 
 
@@ -598,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549614.jpg" />
 </div>
 
 
@@ -624,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546615.jpg" />
 </div>
 
 
@@ -635,62 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:539A8C9E14D7B4F3A1240B4FAB9438D0359DBB57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048083   (546539) от 02.09.2016
-
-И. С. Свенцицкая | От общины к церкви: [О формировании христианской церкви] (1984) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546539.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге автор, доктор исторических наук, опираясь на большой фактический материал и новейшие открытия исторической науки, с марксистских позиций освещает ранний (I–III вв.) период истории христианской церкви, обстановку, в которой происходил переход от христианских общин к церковной организации.
-
-Рассчитана на преподавателей и студентов вузов, пропагандистов (   Читать дальше...   )Жанр: История, религиоведение, политология, культурологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D2534DF4D6A7FE880438D1231DA5B093463D18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048723   (545805) от 03.09.2016
-
-Уриэль Дакоста | О смертности души. Пример человеческой жизни (1934) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемой вниманию читателя книгой издательство "Academia" полагает начало новой серии "Предшественники и классики атеизма".
-
-О важности и необходимости всемерной пропаганды атеизма распространяться не приходится. Освобождение от всякого рода религиозных представлений и переживаний есть освобождение человечества от своего рода, по выражению (   Читать дальше...   )Жанр: философия, Зарубежные философыПеревод: С. Игнатов, А. ДенисовФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EA906C2412E3DA9A8C8A3B4C574A5B0BC6D006B
 ```
 
 https://mybot314.ru/tekegram_catalog/

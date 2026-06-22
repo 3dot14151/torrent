@@ -1,3 +1,55 @@
+###  Публикация: 907906   (635579) от 13.06.2015
+
+Наталия Дмитриева | Ремонт дачного дома (2015) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Строительство и ремонт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга поможет провести работы по укреплению и благоустройству дачного домика. Вы сможете своими руками восстановить фундамент и целостность кровли, отремонтировать стены, отделать фасад и комнаты, утеплить дом и выполнить самые необходимые электро– и сантехнические работы.Жанр: Строительство, ремонтФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E14FD5D3CFE0E7A35C32DB22C7C2062FBF474A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228642   (635419) от 01.06.2018
+
+Ю. Ф. Подольский | Делаем заборы, изгороди, калитки из различных материалов (2016) [PDF]
+
+>>Разное (категория книг)
+>>Строительство и ремонт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ограждение должно составлять единый ансамбль с домом и прочими постройками, неназойливо подчеркивая красоту сада. Белый штакетник или забор в стиле ранчо являются яркими, привлекающими внимание деталями в оформлении сада. Если же ограда не окрашена и под воздействием погоды приобретает природный серый цвет, она практически сливается с окружающей естественной средой. (   Читать дальше...   )Жанр: Строительство, ремонтФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF05D5284B1EE433A0AEAFFA4D3B6E19CB8A671C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034804   (631933) от 14.07.2016
 
 Михаил Ильяев | Резьба по дереву. Уроки мастера (2015) [PDF]
@@ -6,7 +58,7 @@
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631933.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627501.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626039.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606194.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606166.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606064.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606057.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599834.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597735.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596991.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595982.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595669.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594544.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591755.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591713.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590837.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590307.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589473.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587766.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587121.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585747.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582684.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582174.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581780.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE9C52C7E8CE9A1F48F6C6770E04D19BD049A939
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042024   (580206) от 11.08.2016
-
-А.А. Савельев | Современные кровли. Устройство и монтаж (2010) [PDF]
-
->>Разное (категория книг)
->>Строительство и ремонт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описание изготовления кровель опирается на инструкции ведущих производителей кровельных систем. Узлы и конструкции различных кровель во многом (но не во всем) взаимозаменяемые. Трубные разделки, карнизные и коньковые узлы, ендовы и фронтонные свесы, описанные в одной кровельной системе, с некоторыми доработками могут быть применены в другой. Теплоизоляция и вентиляция (   Читать дальше...   )Жанр: Строительство, ремонтФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A46699FDEC069CAD6CD207C1D5862922E9FCACF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042027   (580204) от 11.08.2016
-
-А.А. Савельев | Конструкции крыш. Стропильные системы (2009) [PDF]
-
->>Разное (категория книг)
->>Строительство и ремонт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Форма и стиль крыши в значительной степени определяют весь облик дома. Конструкции крыш могут быть самыми различными, но по форме они делятся на два основных типа – крыши плоские и крыши скатные. Настоящая книга посвящена именно скатным крышам. Автор дает исчерпывающую информацию о конструктивных схемах этих крыш, предлагает типовые примеры расчетов строительных (   Читать дальше...   )Жанр: Строительство, ремонтФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F32DE82EBAA713C2DFBE3CD0356EFF141D55AB45
 ```
 
 https://mybot314.ru/tekegram_catalog/

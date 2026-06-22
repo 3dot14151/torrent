@@ -1,3 +1,57 @@
+###  Публикация: 1589153   (190653) от 08.11.2022
+
+ScreenFlow 10 v10.0.7 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190653.jpg" />
+</div>
+
+
+###  Подробнее
+
+ScreenFlow - создаем свои скринкасты.
+Бывает, нужно записать видео с экрана для каких-либо ознакомительных целей, либо объяснить непонятливому товарищу, как и что делается в его «свежекупленном» маке. Именно тогда и встает вопрос — как это сделать? Вот тут ScreenFlow и раскрывается во всем своем великолепии.
+Простая, но крайне мощная утилита для захвата и записи (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.10.2022Разработчик: Telestream, Inc.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий, Французский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6DE9018596F7895183D8CDBAA48D0FB33853DD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659157   (190645) от 10.09.2023
+
+NetWorker Pro 8.7.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190645.jpg" />
+</div>
+
+
+###  Подробнее
+
+NetWorker - это приложение, которое удобно отображает информацию о сети в строке меню. А также имеет окно с дополнительной информацией о текущем активном сетевом адаптере.Тип издания: macOS SoftwareРелиз состоялся: 10.09.2023Разработчик: © 2016-2022 Sascha SimonПоддерживаемая ОС: macOS 11.5+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B22A1DB3B05EE81D4D71F2A9091422E5701802E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1659197   (190619) от 10.09.2023
 
 BuhoCleaner for Mac 1.9.8 [Multi/Ru]
@@ -6,7 +60,7 @@ BuhoCleaner for Mac 1.9.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190619.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ VueScan Pro 9.8.16 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190497.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ Topaz Photo AI for Mac 2.0.0 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190433.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ CrossOver 23.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190414.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ SketchUp Pro 2023 v.23.1.314 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190389.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ Adobe After Effects 2023 v.23.6.0 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190272.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ Dropshare 5 v.5.36 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190235.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ Data Guardian 7 v.7.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190234.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ AirMail Pro 5 v.5.6.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190233.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ Dato 5.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190227.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ Viper FTP 6.3.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190225.jpg" />
 </div>
 
 
@@ -298,7 +352,7 @@ Dropzone 4 Pro 4.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190215.jpg" />
 </div>
 
 
@@ -325,7 +379,7 @@ App Tamer 2.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190213.jpg" />
 </div>
 
 
@@ -351,7 +405,7 @@ iStat Menu 6 v6.63 (1204) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190210.jpg" />
 </div>
 
 
@@ -378,7 +432,7 @@ NCH ClickCharts Diagram Pro 8.53 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190191.jpg" />
 </div>
 
 
@@ -404,7 +458,7 @@ Upscayl for Mac 2.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190175.jpg" />
 </div>
 
 
@@ -431,7 +485,7 @@ Serial Box & SerialSeeker 09-2023 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190168.jpg" />
 </div>
 
 
@@ -459,7 +513,7 @@ Pixelmator Pro 3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190154.jpg" />
 </div>
 
 
@@ -486,7 +540,7 @@ Dynamic Wallpaper Engine 15.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190150.jpg" />
 </div>
 
 
@@ -512,7 +566,7 @@ DMG Canvas 4.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190146.jpg" />
 </div>
 
 
@@ -538,7 +592,7 @@ Live Wallpaper & Themes 4K Pro 18.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190131.jpg" />
 </div>
 
 
@@ -564,7 +618,7 @@ Topaz Video AI for Mac 3.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190096.jpg" />
 </div>
 
 
@@ -590,7 +644,7 @@ DxO PhotoLab 6 ELITE Edition 6.9.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190093.jpg" />
 </div>
 
 
@@ -617,7 +671,7 @@ PDF Reader Pro Edition 2.9.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190084.jpg" />
 </div>
 
 
@@ -628,61 +682,6 @@ PDF Reader Pro - это приложение для редактирования
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:387EF58858DAD36E229B1E26770932EFCEB1C90C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659808   (190078) от 11.09.2023
-
-CleanShot X 4.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190078.jpg" />
-</div>
-
-
-###  Подробнее
-
-CleanShot X предоставляет более 50 функций , что делает его идеальным инструментом для захвата экрана.
-Наш оверлей упрощает обмен информацией. Мгновенно сохраняйте, копируйте или перетаскивайте снимки экрана или записи экрана в другие приложения. Каким бы ни был ваш рабочий процесс, он подойдет.
-За считанные секунды выделите важные части скриншота с помощью нашего (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.09.2023Разработчик: © 2023 MTWПоддерживаемая ОС: macOS 10.14.4 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7174207A3E4532C512B72453814897D66DEA21F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659864   (190052) от 11.09.2023
-
-FxFactory Pro 8.0.10 U2B [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190052.jpg" />
-</div>
-
-
-###  Подробнее
-
-FxFactory Pro включает  фильтры, генераторы и переходы для Final Cut Pro X, Motion, Premiere Pro и After Effects. FxFactory - первый расширяемый пакет визуальных эффектов для Final Cut Pro. Неограниченная емкость: загружайте дополнительные плагины в FxMarket.
-Пользователь может проверить все плагины и настроить их подходящим образом для своего проекта, либо создать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.09.2023Разработчик: © 2022 Noise Industries, LLCПоддерживаемая ОС: macOS 11.5.1 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E87FD2CF0F8B497232D5169BEB8B13BEB8567F26
 ```
 
 https://mybot314.ru/tekegram_catalog/

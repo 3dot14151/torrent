@@ -6,7 +6,7 @@ Nathan B. Spooner - Grampa's Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029706.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Classic Blues From Bluesville (2014) Box Set, 3 CD [FLAC|Lossless|image + .
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029307.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Curtis Salgado - Damage Control (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029009.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Joanna Connor - 4801 South Indiana Avenue (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029007.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Johnny Mastro & Mama's Boys - Elmore James for President (2021) [FLAC|Lossless|W
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029006.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Ally Venable - Heart of Fire  (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028997.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Jeff Healey & The Jeff Healey Band - 21 albums, 33 CD (1988-2016) [FLAC|Lossless
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028602.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Harmonica Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028542.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Will James & The Boots - The Age of Fear (2021) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028491.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ The Peanuts - There Will Be Blues - There Will Be Blues (2021) [FLAC|Lossless|WE
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028483.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Uncle Albert - Slip in Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028482.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ The Nova Hawks - Redemption - Redemption (2021) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028481.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Blues Side - The Blues Side (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028474.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Tony Coleman - Out In The Open (1996) [FLAC|Lossless|tracks + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028251.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Kenny Wayne Shepherd Band - Live On (1999) [FLAC|Lossless|image + .cue] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028188.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Tedeschi Trucks Band - The Fireside Sessions (2021) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028176.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Ally Venable - Heart Of Fire (2021) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028030.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ E D Brayshaw - Fire Without Water (2020) [FLAC|Lossless|image + .cue] <Blues-Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027911.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Dom Ferrer - Your Rules Are Not Mine !  (2021) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027909.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Reed Turchi - I've Chosen Love (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027908.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Rick Holmstrom - See That Light (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027906.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Veronica Lewis - You Ain't Unlucky (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027905.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Kiko & the Blues Refugees - Threadbare (2021) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027900.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Adam Douglas - Better Angels (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027592.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Black Banjo - Out Of The Skies (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027584.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Earl Thomas and Moligan - Cold Ghetto (2021) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027410.jpg" />
 </div>
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1680373   (134340) от 29.11.2023
+
+Alarm Clock Pro 15 v.15.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приходилось ли вам слышать такое выражение как хронофаги? Так называют людей, которые ничего никогда не успевают. Как вы думаете, почему? Да потому что не умеют планировать свои дела! А ведь именно планирование является одним из залогов успеха во всех делах и гарантией того, что они будут исполнены в срок.
+Alarm Clock Pro представляет собой многофункциональный будильник (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.11.2023Разработчик: © 2023 Koingo Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD3816AAB72B1B4595C91BEE8886D648A3B4BDB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680491   (134317) от 29.11.2023
+
+JixiPix Artista Impresso Pro 1.8.24 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте Импрессионистом и превратите свой снимок в написанное мазками произведение искусства.
+Импрессионизм - направление в искусстве последней трети девятнадцатого — начала двадцатого века, мастера которого, фиксируя свои мимолетные впечатления, стремились наиболее естественно и непредвзято запечатлеть реальный мир в его подвижности и изменчивости. Импрессионизм (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.11.2023Разработчик: © 2023 JixiPix Software, LLCПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56BB1D0CCE5C2D2ED661D5F4D2BCBB8F096B6C68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680349   (134316) от 29.11.2023
 
 Dash 7.2.0 [En]
@@ -6,7 +60,7 @@ Dash 7.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134316.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Swinsian 3.0 Preview 10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134283.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ Vinegar 2.5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134264.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ BetterMouse for Mac 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134259.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ TG Pro (Temperature Gauge Pro) 2.89 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134249.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ TechSmith Camtasia 2023 Studio 2023.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134225.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ Elmedia Player Pro 8.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134125.jpg" />
 </div>
 
 
@@ -194,7 +248,7 @@ MarsEdit 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133981.jpg" />
 </div>
 
 
@@ -220,7 +274,7 @@ Dropshare 5 v.5.43 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133976.jpg" />
 </div>
 
 
@@ -247,7 +301,7 @@ SILKYPIX Developer Studio Pro 11 v.11.0.13.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133942.jpg" />
 </div>
 
 
@@ -273,7 +327,7 @@ Automize13 Enterprise for Mac 13.07 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133931.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ NCH DreamPlan Plus 8.61 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133915.jpg" />
 </div>
 
 
@@ -328,7 +382,7 @@ Mp3tag 1.8.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133896.jpg" />
 </div>
 
 
@@ -354,7 +408,7 @@ AirMail Pro 5 v.5.6.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133886.jpg" />
 </div>
 
 
@@ -381,7 +435,7 @@ uDock 4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133866.jpg" />
 </div>
 
 
@@ -407,7 +461,7 @@ Affinity Publisher 2 v.2.3.0  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133819.jpg" />
 </div>
 
 
@@ -434,7 +488,7 @@ Affinity Designer 2 v.2.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133797.jpg" />
 </div>
 
 
@@ -461,7 +515,7 @@ Affinity Photo 2 v.2.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133748.jpg" />
 </div>
 
 
@@ -487,7 +541,7 @@ Ableton Live Suite 12 Beta 12.0b20 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133737.jpg" />
 </div>
 
 
@@ -513,7 +567,7 @@ Capture One 23 Pro 16.3.2.32 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133693.jpg" />
 </div>
 
 
@@ -540,7 +594,7 @@ URL Manager Pro 6.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133509.jpg" />
 </div>
 
 
@@ -568,7 +622,7 @@ GoodTask 7.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133505.jpg" />
 </div>
 
 
@@ -595,7 +649,7 @@ Magic Disk Cleaner 2.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133479.jpg" />
 </div>
 
 
@@ -621,7 +675,7 @@ AnyMP4 iPhone Password Manager for Mac 1.0.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133475.jpg" />
 </div>
 
 
@@ -632,58 +686,6 @@ AnyMP4 iPhone Password Manager — это полнофункциональный
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DD46E50A53A989612423C6CC76C9378C6423066
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680989   (133471) от 01.12.2023
-
-Wondershare PDFelement Pro OCR 10.1.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133471.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDFelement Pro - профессиональный инструмент, который является решением «все-в-одном» для всех необходимых задач при работе с документами PDF. Вы можете легко создавать новые PDF-файлы с веб-страниц (.html, .htm), изображений (png, .jpeg, jpg, bmp, .tiff, .bmp) и текстовых файлов (.rtf, .rtfd, .txt). Вновь созданные PDF-файлы на 100% совместимы с Adobe Reader, Acrobat (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.11.2023Разработчик: © 2023 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92C51CC77C57993997CFB029D27D07D62758D07F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680878   (133469) от 01.12.2023
-
-YT Saver Video Downloader & Converter for Mac 7.3.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неограниченная загрузка с помощью YT Saver Downloader, с помощью этого приложения вы можете загружать неограниченное количество видео и плейлистов с потоковых сайтов и получать доступ к своим видео в автономном режиме, а также загружать несколько видео одновременно.Тип издания: macOS SoftwareРелиз состоялся: 29.11.2023Разработчик: © 2023 YT Saver StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC8031265C03930BC377A43332927F92D5BF585E
 ```
 
 https://mybot314.ru/tekegram_catalog/

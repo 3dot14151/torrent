@@ -6,7 +6,7 @@ History Channel. Островное помешательство Гитлера 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817461.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ History Channel. Наследие кельтов / The Celtic Legacy (2011) HDTV
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817454.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813517.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ History Channel. Вселенная (2 сезон: 1-18 серии из 18) / Th
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809194.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ History Channel: Вселенная / The Universe (2007-2012) BDRemux [H.264/10
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800861.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799725.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ History Channel. Соединенные штуки Америки / United Stuff
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798689.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ History Channel. Соединенные штуки Америки / United Stuff
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798663.jpg" />
 </div>
 
 
@@ -206,6 +206,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 752772   (797345) от 26.04.2016
+
+History Channel. Нацистский "Титаник" / The Nazi Titanic (2012) HDTVRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_797345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полнометражный художественно-документальный фильм, рассказывающий о создании не менее легендарного, чем сам затонувший "Титаник", одноименного блокбастера, снятого в Германии в 1943 году. Картина снималась по заказу Геббельса и должна была стать не только мощным пропагандистским оружием против Великобритании, но и даже затмить Голливуд. Однако не все пошло (   Читать дальше...   )Жанр: Документальный, историяПеревод: Одноголосый закадровый (любительский)Продолжительность: 01:26:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCB1EB213D343197C22E1069AD33E1F3061EC36D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274036   (794923) от 05.01.2019
 
 History Channel. Пропавший римский легион / Rome's Lost Legion (2011) HDTVRip [H.264/720p-LQ]
@@ -214,7 +240,7 @@ History Channel. Пропавший римский легион / Rome's Lost Le
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794923.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ History Channel. Пропавший римский легион / Rome's Lost Le
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794852.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ History Channel: Вселенная / The Universe (2007-2012) BDRip [H.264/720p
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792654.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791606.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790368.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ History Channel: Тайны коптских мумий / Coptic Mummies of Anti
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788561.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Viasat History. Рим: Первая сверхдержава / Rome: The World'
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786063.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ History Channel. Вселенная / The Universe (2007-2012) BDRip [H.264/720p
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785493.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ History Channel: В изоляции. Монголия / Alone. Mongolia (2018) 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782216.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ History Channel: В изоляции. Один шанс на двоих / Alone 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781788.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ History Channel: Китай. Тайны Запретного города / Secr
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780508.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ History Channel: Убийца Зодиак: дело закрыто? / The Hunt 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779880.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777042.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ History Channel: Автомобильная нация / Car Nation (2017) HDTVR
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774212.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ History Channel. Человечество: История всех нас / Mank
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770004.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768300.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765949.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D6AA8E851C203E126ED250D1192FC7F9EF755A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206678   (765640) от 20.03.2018
-
-History Channel: Охота на Гитлера / Hunting Hitler (2017-2018) HDTVRip [H.264/1080i-LQ] (сезон 3, серии 8 из 8)
-
->>След.
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765640.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2014 году ФБР рассекретило документы, в которых говорится, что Гитлер, возможно, сбежал в Южную Америку. В сериале рассказывается о расследовании с целью раскрыть тайну исчезновения одного из самых опасных преступников в истории.Жанр: Документальный, История, Реальное ТВПеревод: Двуголосый закадровый, профессиональныйПродолжительность: каждый эпизод ~00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:121C6B1A6494876817B2430F3D76EE0B13B1B957
 ```
 
 https://mybot314.ru/tekegram_catalog/

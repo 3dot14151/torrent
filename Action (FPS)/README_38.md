@@ -1,3 +1,29 @@
+###  Публикация: 1665732   (181078) от 01.10.2023
+
+AMID EVIL (2019) [En] (2614/dlc) Scene Skidrow
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181078.jpg" />
+</div>
+
+
+###  Подробнее
+
+AMID EVIL выполнена в духе прародителей жанра FPS. В основу игры легли стилистика, динамика и простота геймплея шутеров старой школы. Огромные нелинейные уровни с уникальным дизайном, полчища разнообразных врагов с уникальными атаками, способностями и поведением. Арсенал из 7 видов оружия предоставляет все средства для грамотного и эффективного ликвидирования каждого (   Читать дальше...   )Тип издания: SceneРазработчик: IndefatigableЖанр: Шутеры, Экшны, FPPЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F759E776541926C5868F61449F63E668294F6E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593515   (180164) от 27.11.2022
 
 Fobia - St. Dinfna Hotel (2022) [Ru/Multi] (01.02 Build 9460237) License DOGE
@@ -6,7 +32,7 @@ Fobia - St. Dinfna Hotel (2022) [Ru/Multi] (01.02 Build 9460237) License DOGE
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180164.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Dishonored: Death of the Outsider (2017) [Ru/En] (1.145) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173738.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Sniper Ghost Warrior Contracts (2019) [Ru/En] (7794846/dlc) Repack Decepticon [D
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171972.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Sniper Ghost Warrior Contracts 2 (2021) [Ru/En] (7315520/dlc) Repack Decepticon 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171971.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Slime Rancher (2017) [Ru/Multi] (1.4.4) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170633.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ DCOP (2023) [En] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168628.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Choo-Choo Charles (2022) [Ru/Multi] (1.0.0) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167804.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Twin Sector (2009) [En] (1.0) Scene Skidrow
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166585.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Choo-Choo Charles (2022) [Ru/Multi] (1.0.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166227.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Ghostrunner 2 (2023) [Ru/Multi] (39734.9/dlc) Repack Other s [Brutal Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165688.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Terminator: Resistance / Терминатор: Сопротивление (2019)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165619.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.1.1.0/00.014.032/dlc) Repack DjDI [Alex
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163665.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ BioShock Infinite (2013) [Ru/Multi] (1.0.1643565/dlc) License GOG [The Complete 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163382.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ F.E.A.R. 3 (2011) [Ru/Multi] (20.1060) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162793.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Ion Fury (2018) [En] (3.0.0.9/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162647.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ SUPERHOT (2016) [Ru/Multi] (1.0.21b_plus_l1.1.36) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162231.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ SUPERHOT: MIND CONTROL DELETE (2020) [Ru/Multi] (1.0.8b plus l1.1.36) License GO
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161852.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Quake II (1997) [Ru/Multi] (5984/dlc) License GOG [Enhanced]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160715.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Serious Sam: Siberian Mayhem (2022) [Ru/Multi] (1.06) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159915.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ GUNHEAD (2023) [Multi] (1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159428.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ GUNHEAD (2023) [Multi] (1.2) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159146.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Mothergunship (2018) [Ru/Multi] (1.0.980.203/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158754.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Generation Zero (2019) [Ru/Multi] (12431825/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158732.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Dusk (2018) [Ru/Multi] (1.8.25/dlc) License GOG [Intruder Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158721.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Tom Clancy's Rainbow Six: Vegas 2 (2008) [Ru] (1.03.101.336/dlc/tr) Repack =nemo
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158292.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Tom Clancy's Rainbow Six: Vegas 2 (2008) [Ru] (1.03.101.336/dlc/tr) Repack =nemo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E111579D5349A547761B3A888F1149B85E67153
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130054   (158004) от 23.12.2017
-
-Shadow Warrior 2 (2016) [Ru/Multi] (1.1.13/dlc) Repack xatab
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shadow Warrior 2 - продолжение ниндзя-шутера Shadow Warrior, являющегося в свою очередь ремейком знаменитой игры 1997 года. Издавать игру будет компания Devolver Digital, разработчиком выступает польская студия Flying Wild Hog. В нем повествование ведется от лица Вана, однако внешне ниндзя будут выглядеть по-разному. В перерывах между миссиями герои смогут приобретать (   Читать дальше...   )Тип издания: RepackРазработчик: Flying Wild HogЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07F97E61F591A08D7A38B11585725BE396540FDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

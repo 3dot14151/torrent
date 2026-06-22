@@ -1,3 +1,57 @@
+###  Публикация: 1070629   (366552) от 07.11.2016
+
+Unibox 1.6.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unibox - новый способ для организации вашей электронной почты. Софт настраивается под человека, и даёт возможность вашему email-общению стать более интересным.
+Пользователь может прикреплять любые медиа файлы, просматривать их, вести несколько бесед одновременно при этом не открывая дополнительных окон. Установите приложение Unibox и оно станет необходимым для вас. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 ноября 2016Разработчик: eightloops GmbHПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Французский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:627C98F04CA03B78D67E97FE61076D058D5C99AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070496   (366547) от 07.11.2016
+
+Hands Off! 3.1.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hands Off! - контроль доступа в Интернет
+Этот функциональный и простой в использовании инструмент для платформы OS X может использоваться для мониторинга активности приложений, способных устанавливать подключение к Интернету. Благодаря Hands Off! пользователь сможет своевременно обнаружить признаки вредоносной или потенциально опасной деятельности, исключить вероятность (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 ноября 2016Разработчик: One Periodic Inc.Поддерживаемая ОС: Mac OS X 10.9.5 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FFEAE6AB98938C064B138DBE8A23BC93443595A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327765   (366515) от 29.09.2019
 
 Affinity Designer Beta 1.7.3.1 [Multi/Ru]
@@ -6,7 +60,7 @@ Affinity Designer Beta 1.7.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366515.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ EagleFiler 1.8.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366514.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ Librarian Pro 5 v5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366511.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ File Juicer 4.79 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366509.jpg" />
 </div>
 
 
@@ -115,7 +169,7 @@ Optimage 3.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366507.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ NCH WavePad Mater 9.42 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366505.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ Smooze 1.7.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366503.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ Deckset 2.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366502.jpg" />
 </div>
 
 
@@ -221,7 +275,7 @@ Tune Sweeper 4.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366501.jpg" />
 </div>
 
 
@@ -247,7 +301,7 @@ EverWeb 3 v3.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366500.jpg" />
 </div>
 
 
@@ -275,7 +329,7 @@ RapidWeaver 8 v 8.3.0 (build 20799) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366499.jpg" />
 </div>
 
 
@@ -303,7 +357,7 @@ Mocha Pro 5.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366414.jpg" />
 </div>
 
 
@@ -331,7 +385,7 @@ Elmedia Player Pro 7.51(1825) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366385.jpg" />
 </div>
 
 
@@ -359,7 +413,7 @@ BetterTouchTool 3 v3.202 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366384.jpg" />
 </div>
 
 
@@ -385,7 +439,7 @@ Amadeus Pro 2.6.1 (2197) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366379.jpg" />
 </div>
 
 
@@ -411,7 +465,7 @@ MacX Video Converter Pro 6.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366377.jpg" />
 </div>
 
 
@@ -438,7 +492,7 @@ Artstudio Pro 2.2.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366372.jpg" />
 </div>
 
 
@@ -464,7 +518,7 @@ iSkysoft Video Converter Ultimate 11.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366371.jpg" />
 </div>
 
 
@@ -490,7 +544,7 @@ Geekbench 5 v5.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366369.jpg" />
 </div>
 
 
@@ -519,7 +573,7 @@ Leaf 5.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366368.jpg" />
 </div>
 
 
@@ -548,7 +602,7 @@ WonderPen 1.5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366364.jpg" />
 </div>
 
 
@@ -576,7 +630,7 @@ MarsEdit 4 v4.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366362.jpg" />
 </div>
 
 
@@ -602,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_366277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_366277.jpg" />
 </div>
 
 
@@ -631,7 +685,7 @@ Alfred 4 Powerpack 4.0.5 (1114) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366255.jpg" />
 </div>
 
 
@@ -645,60 +699,6 @@ Alfred Powerpack - Лаунчер приложений для Mac OS X.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43C3E2579BB0BEE8FDF6BC64FE3584443B7CD16A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328273   (366252) от 29.09.2019
-
-DrawPad Graphic Editor 5.29 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366252.jpg" />
-</div>
-
-
-###  Подробнее
-
-DrawPad - это программа графического дизайна, которая работает как с растровыми, так и с векторными изображениями. Используйте его для создания эскизов на компьютере или для создания профессиональной рекламы.
-
-DrawPad - это простая в использовании программа для создания и обработки изображений, а также важный инструмент для всех типов проектов графического дизайна, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: NCH SoftwareПоддерживаемая ОС: macOS 10.5+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82471BBFF7143D4631C237E238D43AA26FFB8996
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255191   (366251) от 17.10.2018
-
-KCNcrew Pack 10-15-18 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366251.jpg" />
-</div>
-
-
-###  Подробнее
-
-KCNcrew Pack - это огромнейший сборник серийников на софт под Mac OS X с удобной оболочкой для просмотра и поиска. Существует уже очень давно и каждый месяц обновляется!Тип издания: macOS SoftwareРелиз состоялся: 15.10.2018Разработчик: KCNcrewПоддерживаемая ОС: macOS 10.4 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E368A4CD1559D3117E671CF807781B6E8F7C72A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

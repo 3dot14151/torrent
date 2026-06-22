@@ -1,3 +1,62 @@
+###  Публикация: 983368   (943427) от 06.02.2016
+
+Глюкоза – Энциклопедия. Том 1 (2004) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ненавижу
+02. Невеста
+03. Глюк'Oza Nostra
+04. Ой, ойЖанр: EuropopПеревод: ОтсутствуетПродолжительность: 01:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:689848B9F82886E38128E3311093DEDA5ACCD319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982444   (943261) от 06.02.2016
+
+VA-Коллекция клипов в авто (ZAP) (2DIN) (1980-2016) HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипы собирались и конвертировались специально в авто, на 2DIN автомагнитолу.
+Представлены практически все жанры.Коллекция легко редактируется выделением ненужного и кнопочкой DEL001 2 Brothers - Dreams
+002 2 Unlimited - Let The Beat
+003 2 Unlimited-No Limit
+004 2CELLOS - They Don't Care About Us(   Читать дальше...   )Жанр: Музыкальные клипыПродолжительность: 50:31:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCADBF0F686666BA89BA7FEA5A0C00F291D3BABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981894   (943136) от 06.02.2016
 
 Коллекция клипов в авто (RUS) (2DIN) (2000-2015) HDTVRip
@@ -6,7 +65,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943136.jpg" />
 </div>
 
 
@@ -36,7 +95,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942496.jpg" />
 </div>
 
 
@@ -62,7 +121,7 @@ VA – Реальная Музыка (2001) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941882.jpg" />
 </div>
 
 
@@ -91,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940955.jpg" />
 </div>
 
 
@@ -120,7 +179,7 @@ VA - Best of pop 2003 (2003) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938727.jpg" />
 </div>
 
 
@@ -149,7 +208,7 @@ VA - Танцевальный рай - The Best (2007) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938388.jpg" />
 </div>
 
 
@@ -178,7 +237,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937526.jpg" />
 </div>
 
 
@@ -204,7 +263,7 @@ VA - Сборник видеоклипов 80х - 90х: Бабка Жжёт! (19
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936364.jpg" />
 </div>
 
 
@@ -233,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936157.jpg" />
 </div>
 
 
@@ -262,7 +321,7 @@ Danielle - Pat It Up (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935316.jpg" />
 </div>
 
 
@@ -288,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930596.jpg" />
 </div>
 
 
@@ -314,7 +373,7 @@ Burning Witches - Six Feet Underground (2020) WEB-DLRip [Н.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930557.jpg" />
 </div>
 
 
@@ -340,7 +399,7 @@ Incubus - Концертный тур Honda Civic Tour (2012) [1080i] HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930513.jpg" />
 </div>
 
 
@@ -366,7 +425,7 @@ Enigma - 4 клипа (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928018.jpg" />
 </div>
 
 
@@ -395,7 +454,7 @@ VA- Коллекция клипов в авто (ZAP_part2) (2DIN) (1970-2008)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927318.jpg" />
 </div>
 
 
@@ -424,7 +483,7 @@ VA - Зимний марафон № 224: Зимняя Волна Новинок
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925751.jpg" />
 </div>
 
 
@@ -453,7 +512,7 @@ Pitbull ft. Christina Aguilera - Feel This Moment (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924873.jpg" />
 </div>
 
 
@@ -479,7 +538,7 @@ Stevie B feat. Pitbull - Spring Love (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924846.jpg" />
 </div>
 
 
@@ -505,7 +564,7 @@ Blank & Jones - The Videos (2007) [H.264] DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923621.jpg" />
 </div>
 
 
@@ -533,7 +592,7 @@ Housewives Of Miami - Halloween (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923002.jpg" />
 </div>
 
 
@@ -559,7 +618,7 @@ Nervenbeisser - 6 Music Videos (2015-2018) WEB-DLRip [H.264/1080p-LQ] <NDH, Goth
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922344.jpg" />
 </div>
 
 
@@ -588,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921728.jpg" />
 </div>
 
 
@@ -617,7 +676,7 @@ Lasgo feat. Taylor Jones - Something (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920013.jpg" />
 </div>
 
 
@@ -643,7 +702,7 @@ Sander Van Doorn & Mark Knight V Underworld - Ten (Director`s Cut) (2013) [H.264
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919808.jpg" />
 </div>
 
 
@@ -654,61 +713,6 @@ Sander Van Doorn & Mark Knight V Underworld - Ten (Director`s Cut) (2013) [H.264
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07398776C2D6A22B33D6E76F9437C6BBFC40BA20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 632787   (919480) от 20.03.2013
-
-Mylene Farmer - Je Te Dis Tout (2013) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51AC95D15BDB86E412FEEE7614B712A83924C4F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 756997   (919358) от 15.02.2014
-
-The Beatles - Video Collection. Vol. 2 (2003) DVDRip [H.264]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_919358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Am The Walrus
-02. Hello, Goodbye
-03. Across The Universe
-04. Lady Madonna(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2E95DC2E835EBBCE6C180A9B67EB804B8CECF3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

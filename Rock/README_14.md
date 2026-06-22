@@ -1,3 +1,118 @@
+###  Публикация: 1493695   (894119) от 04.09.2021
+
+The Mission - A Garden Of Earthly Delights: The Mercury Years (2021) [MP3|320 Kbps] <Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like A Hurricane (Extended Version) [00:07:05]
+02. The Crystal Ocean (Extended Version) [00:07:33]
+03. Dream On [00:03:54]
+04. Stay With Me (Extended Mix) [00:07:30](   Читать дальше...   )Жанр: Gothic RockПродолжительность: 2CD, 02:28:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF6C025D98441B821F9CBD6B6D4810BD00710A05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994043   (893667) от 06.03.2016
+
+Friday Story - Cheerful (2016) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Paper Boat (3:33)
+ 02.  Bite Me (3:45)
+ 03.  Red Hood (4:08)
+ 04.  Фурiя (4:19)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD85CD72D6477D4163B3DFF2F5A58F568F7DCA9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370828   (893643) от 29.03.2020
+
+Mr. Mister - 2 альбома (1984-1985) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1984 - I Wear The Face
+1985 - Welcome To The Real WorldЖанр: RockПродолжительность: 01:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA2606AB19084D8025280DCF866A06D6622A19D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493900   (892560) от 05.09.2021
+
+Елена Войнаровская (ex-Flёur) - Паломники (2021) [MP3|320 Kbps] <Rock, Artrock,, Indie, Cardiowave>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Интро [00:01:01]
+02 - Песня паломников [00:05:48]
+03 - Танго-карантин [00:04:17]
+04 - Вавилонская башня [00:05:29](   Читать дальше...   )Жанр: Rock, Artrock,, Indie, CardiowaveПродолжительность: 01:00:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9F539FD587489F17CA6970241999F2E6A05232B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493904   (892410) от 05.09.2021
 
 Chris de Burgh - The Legend of Robin Hood (2021) [MP3|320 Kbps] <Pop Rock, Folk Rock>
@@ -6,7 +121,7 @@ Chris de Burgh - The Legend of Robin Hood (2021) [MP3|320 Kbps] <Pop Rock, Folk 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892410.jpg" />
 </div>
 
 
@@ -35,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890082.jpg" />
 </div>
 
 
@@ -64,7 +179,7 @@ Proud Peasant - Peasantsong (2021) [MP3|320 Kbps] <Progressive-Rock, Symphonic-P
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889351.jpg" />
 </div>
 
 
@@ -93,7 +208,7 @@ Omana - Альбом Жахів (2020) [MP3|320 kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887262.jpg" />
 </div>
 
 
@@ -122,7 +237,7 @@ VA - History of Rock (2016) [MP3|320 кб/с] <Rock, Mashup>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886212.jpg" />
 </div>
 
 
@@ -151,7 +266,7 @@ Steve Hackett - Surrender of Silence (2021) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886116.jpg" />
 </div>
 
 
@@ -180,7 +295,7 @@ Knight Area - Heaven and Beyond (2017) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885920.jpg" />
 </div>
 
 
@@ -209,7 +324,7 @@ VA - NOW Rock Icons (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885470.jpg" />
 </div>
 
 
@@ -238,7 +353,7 @@ Cinderella - Best ballads (2001) [MP3|320 kbps]<Hard-rock / Glam-rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_883649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_883649.jpg" />
 </div>
 
 
@@ -273,7 +388,7 @@ VA - Eddie Stobart Trucking Songs: Trucking All over the World (2014) [MP3|320 K
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883522.jpg" />
 </div>
 
 
@@ -302,7 +417,7 @@ Rhythm Sophie - Born To Live The Blues (2014) [MP3|320 кб/с] <Rhythm & Blues,
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882958.jpg" />
 </div>
 
 
@@ -331,7 +446,7 @@ VA - 100Hits Rock (5CD) (2007) [MP3|320 kbps]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_881959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_881959.jpg" />
 </div>
 
 
@@ -357,7 +472,7 @@ VA - 100 Rock Classics (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881890.jpg" />
 </div>
 
 
@@ -386,7 +501,7 @@ VA - Kid Friendly Classic Rock (2021) [MP3|320 Kbps] <Rock, Children Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880536.jpg" />
 </div>
 
 
@@ -415,7 +530,7 @@ Ufo - Force It (1975) Deluxe Edition, 2021, Remaster [MP3|320 Kbps] <Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880525.jpg" />
 </div>
 
 
@@ -444,7 +559,7 @@ Jenix - Circles (2014) [MP3|320 кб/с]<Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880103.jpg" />
 </div>
 
 
@@ -473,7 +588,7 @@ Syd Barrett - Crazy Diamond (2021) Compilation, Japanese Edition [MP3|320 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878933.jpg" />
 </div>
 
 
@@ -502,7 +617,7 @@ Chris Rea - Looking For The Summer (2021) 2xCD, Compilation, Japanese Edition [M
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878809.jpg" />
 </div>
 
 
@@ -531,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876725.jpg" />
 </div>
 
 
@@ -560,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876701.jpg" />
 </div>
 
 
@@ -589,7 +704,7 @@ Firkin - Finger in the Pie (2014) [MP3|320 кб/с]<Folk-Rock, Punk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876390.jpg" />
 </div>
 
 
@@ -618,7 +733,7 @@ Accept (JP) - Apogee (2021) [MP3|320 Kbps] <Symphonic Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875843.jpg" />
 </div>
 
 
@@ -632,122 +747,6 @@ Accept (JP) - Apogee (2021) [MP3|320 Kbps] <Symphonic Prog>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDE3B9C34BB8E1ACF4636E154A696DAC89886668
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997412   (875341) от 16.03.2016
-
-Jimi Hendrix - Best Of Jimi Hendrix (1999) 2CD [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Along the Watchtower
-02. Crosstown Traffic
-03. The Wind Cries Mary
-04. Voodoo Chile(   Читать дальше...   )Жанр: RockПродолжительность: 01:33:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69A5AFC4D92E45DC90C8D664DAC0A442A89B2BFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374303   (874089) от 09.04.2020
-
-Joe Satriani - Shapeshifting (2020) [MP3|320 Kbps] <Instrumental Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874089.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Shapeshifting
-2. Big Distortion
-3. All for Love
-4. Ali Farka, Dick Dale, an Alien and Me(   Читать дальше...   )Жанр: Instrumental RockПродолжительность: 00:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5491C8C062F6B8329FAFF167303F8AB0FF396A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997511   (873895) от 17.03.2016
-
-Sam Apple Pie - East 17 (1972) [MP3|320 кб/с] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Time Music
-02. Louise
-03. Out On The Road
-04. Route 66(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:39:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BEC17164F65988F6726AE86620F781B464FF432
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997515   (873281) от 17.03.2016
-
-Led Zeppelin - Ballads (2014) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Baby I'm Gona Leave You (06:46)
-02 - Thank You (04:51)
-03 - Since I've Been Loving You (07:27)
-04 - Stairway To Heaven (08:02)(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43998707B1E01E2374CAE79861B9C9B8B8D36286
 ```
 
 https://mybot314.ru/tekegram_catalog/

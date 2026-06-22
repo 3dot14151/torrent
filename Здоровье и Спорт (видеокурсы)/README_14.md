@@ -1,3 +1,110 @@
+###  Публикация: 487499   (90502) от 24.04.2012
+
+Sova film | Самомассаж: снимаем боль своими руками (2009) DVDRip
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конечно, хорошо, когда есть кто-то рядом, кто может сделать вам массаж. А если никого нет? В этом случае на помощь придет самомассаж. Самомассаж незаменим как оздоровительный метод. В зависимости от самочувствия можно менять его характер и дозировку. Прежде чем начать заниматься самомассажем, следует ознакомиться с правилами его проведения, освоить методику и технику его проведения. В процессе самомассажа с кожи удаляются отжившие клетки ее наружного слоя, что способствует улучшению кожного дыхания. Воздействует самомассаж и на мускулатуру. Под влиянием самомассажа мышечная ткань лучше снабжается кислородом и питательными веществами, из нее быстрее выводятся продукты распада. Самомассаж помогает в самое короткое время восстановить работоспособность мышцы, утомленной физической работой. Самомассаж воздействует на суставы и связки, которые при этом приобретают большую подвижность и эластичность. При регулярном применении самомассажа объем движений в суставах может увеличиваться. Самомассаж повышает прочность, выносливость (   Читать дальше...   )Жанр: Обучающее видео, Медицина, ПознавательноеПродолжительность: 01:07:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 457495   (78426) от 25.02.2012
+
+Д.Попов-Толмачев | Тайцзи цюань. Бадуаньцзинь или "8 кусков парчи" [2008] DVDRip
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78426.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Бадуаньцзинь» или « 8 кусков парчи» один из древнейших и популярнейших комплексов цигун в тайцзи цюань. Доказано, что этот комплекс эффективен при профилактике многих хронических болезней, в том числе, помогает и при таких серьезных заболеваниях как диабет. Однако изначально этот комплекс предназначался для практикующих боевые искусства. Даже если вы не собираетесь заниматься боевыми искусствами, данный фильм поможет вам развить и укрепить свое тело.Жанр: Оздоровительная гимнастикаПродолжительность: 0:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC3ECD16DDB1C5B4F535C91AFAA28A5129688F57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 457147   (78248) от 24.02.2012
+
+Шаолиньский цигун | Ба Дуань Цзин – Восемь Кусков Парчи TS
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восемь кусков парчи – идеальное повседневное упражнение для большинства людей. Особенно он рекомендуется для людей, которые работают на «сидячих» работах или за компьютерами. Если регулярно заниматься этим упражнением, то состояние ваших внутренних органов улучшится, а  мышцы и сухожилия станут более сильными.Жанр: Оздоровительная гимнастикаПродолжительность: 0:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB92368065A1762ED595B61EA320D6ECAB9CFD4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644303   (63317) от 11.03.2024
+
+Дарья Ермишина | Здоровье женщины изнутри с учетом биохимии. Тариф Базовый (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы спросите: Зачем это мне?
+И уже к 30 годам 80% женщин имеют конкретный диагноз или жалобы, которые пока сложно оформить в классический диагноз.
+Разберитесь в своих проблемах на глубинном уровне, с учетом максимального внимания к каждой биохимической реакции, а не через рекомендации-"попей КОК, вот родишь и все пройдет"
+(   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 32:49:49Реклама: Наложения на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:549AF9FF70AE7FAE18324EAB69B830E739B87EB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706490   (63083) от 13.03.2024
 
 Правое Полушарие Интроверта, Анастасия Кулькова |  Как устроен мозг. Всё о работе главного органа (2022) WEBRip [RU]
@@ -6,7 +113,7 @@
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63083.jpg" />
 </div>
 
 
@@ -35,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60806.jpg" />
 </div>
 
 
@@ -64,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58503.jpg" />
 </div>
 
 
@@ -91,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58194.jpg" />
 </div>
 
 
@@ -120,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55176.jpg" />
 </div>
 
 
@@ -149,7 +256,7 @@ Krav-maga, Антон Фарб  | Sucker Punch: Искусство подлог�
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53045.jpg" />
 </div>
 
 
@@ -177,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39408.jpg" />
 </div>
 
 
@@ -205,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39049.jpg" />
 </div>
 
 
@@ -234,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39031.jpg" />
 </div>
 
 
@@ -260,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32542.jpg" />
 </div>
 
 
@@ -289,7 +396,7 @@ Freshlife28, Антон Петряков | Худеем со спортом (202
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32441.jpg" />
 </div>
 
 
@@ -318,7 +425,7 @@ Freshlife28, Антон Петряков | Худеем без спорта и �
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32433.jpg" />
 </div>
 
 
@@ -347,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30993.jpg" />
 </div>
 
 
@@ -376,7 +483,7 @@ Grand Secret, Максим Волков, Виктория Жихарева, Ма
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30282.jpg" />
 </div>
 
 
@@ -404,7 +511,7 @@ Grand Secret, Максим Волков, Виктория Жихарева, Ма
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29102.jpg" />
 </div>
 
 
@@ -432,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26369.jpg" />
 </div>
 
 
@@ -458,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26301.jpg" />
 </div>
 
 
@@ -484,7 +591,7 @@ Maude Hirst | "Путь к Любви к Себе": Медитационный �
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16892.jpg" />
 </div>
 
 
@@ -510,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15981.jpg" />
 </div>
 
 
@@ -539,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15980.jpg" />
 </div>
 
 
@@ -565,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15814.jpg" />
 </div>
 
 
@@ -591,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15668.jpg" />
 </div>
 
 
@@ -605,115 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAB783DFD383BAF6CEC10F42B2CA2214A2BD5018
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801140   (15230) от 08.06.2025
-
-Школа шахмат Матвея Гальченко, Матвей Гальченко | Дебют Берда (2025) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы давно играете в шахматы и устали от изучения теории и сюрпризов от соперника? А может быть, недавно пришли в игру и хотите сразу освоить убойное начало? Этот курс для вас: он поможет вам всегда удивлять соперника, получать комфортные позиции в дебюте и побеждать!Производство: Школа шахмат Матвея ГальченкоЖанр: видеокурс, обучающий курс, спорт, шахматыЯзык озвучки: русскийПродолжительность: 05:25:25Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AF7BD1315AC78D2D7A3AE2E943B27AD015BC69B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803311   (13786) от 22.06.2025
-
-Maxim School, Максим Куксов | Контргамбит Альбина за чёрных (против d4) (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Против хода d4 - не так много дебютов, где чёрные могут получить динамичную игру - без "засушивания" позиции и одним из них является контргамбит Альбина!
-Матовые атаки на фланге - ценой центральной пешки!
-Легкая фигурная игра - много "запасных" ходов
-Психология шахмат "дискомфорт позиции соперника"Производство: Maxim SchoolЖанр: видеокурс, обучающий курс, спорт, шахматыЯзык озвучки: русскийПродолжительность: 04:58:06Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60A8CB5E287A0156442EA3CFC0821253177A181B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803317   (13784) от 22.06.2025
-
-Maxim School, Максим Куксов | Гамбит Хэллоуин (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гамбит Хэллоуин - жертва коня на 4 ходу! Гамбит может получиться через разный порядок ходов, этим можно воспользоваться и избежать основных линий русской партии и защиты Алехина!Производство: Maxim SchoolЖанр: видеокурс, обучающий курс, спорт, шахматыЯзык озвучки: русскийПродолжительность: 04:26:11Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EB6516C0A3FCF0D8044279E64B6A2068ED29184
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803551   (13298) от 27.06.2025
-
-Chessable, Can Kabadayi | The Chess Elevator: Climb to 1200 and Beyond (2024) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13298.jpg" />
-</div>
-
-
-###  Подробнее
-
-The best way to get better at chess is to build level by level, floor by floor. You have to master each level before you can move up to the next one.
-
-This course is the embodiment of that idea. Candidate Master Can Kabadayi has worked through thousands of amateur games to put this specialized training program together. A cognitive scientist by training, he has taken (   Читать дальше...   )Производство: ChessableЖанр: видеокурс, обучающий курс, спорт, шахматыЯзык озвучки: АнглийскийПродолжительность: 11:10:57Реклама: нет
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0277FC548328881E9C7C8B9EF475B45ACD96DAAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

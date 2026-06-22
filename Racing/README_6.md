@@ -1,3 +1,85 @@
+###  Публикация: 1250956   (648168) от 28.03.2019
+
+Dakar 18 (2018) [En] (1.13/dlc) Repack xatab
+
+>>След.
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648168.jpg" />
+</div>
+
+
+###  Подробнее
+
+DAKAR 18 — симулятор ралли в Южной Америке с отличной графикой и множеством техники: мотоциклы, автомобили, грузовики, квадроциклы, SxS. Соревнуйтесь по сети или практикуйтесь в одиночку.Тип издания: RepackРазработчик: Bigmoon EntertainmentЖанр: Racing, Arcade, Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6112B904A1B668B8EDED446B5FBFBF6151BA3A59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292866   (642531) от 31.03.2019
+
+Xenon Racer (2019) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официальная федерация гонщиков ввела перерыв в соревнованиях, чтобы дать командам время освоить летательные аппараты. В этом перерыве производители автомобилей организовали чемпионат для начинающих гонщиков. Автомобили, работающие на электричестве и ксеноне, обеспечивают сумасшедшую скорость. Садитесь за руль и не забывайте следить за уровнем адреналина, мчась по (   Читать дальше...   )Тип издания: RepackРазработчик: 3DClouds.itЖанр: Racing (Cars), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8307185BF437E916A9A007739FD42A6688DA9207
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 427443   (640461) от 04.07.2012
+
+FlatOut 3: Chaos & Destruction [Ru/En/Multi7] (L/1.04) 2011 l R.G. Origins
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_640461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описать игру можно буквально в трех словах: «ТрэшЪ, АдЪ и УгарЪ». Под каждым словом этого определения готовы подписаться тысячи поклонников серии по всему миру. Некогда маленькая финская студия BugBear cотворила увлекательную аркаду FlatOut, где в пух-и-прах можно было раскурочить свой пепелац, зашвырнуть водятла в длинну или высоту на рекорд, и вообще, увлекательно провести время. И всё было хорошо, пока издательство Empire Interactive не склеило ласты, и не распродало бренды с молотка.
+
+     И вот, разработкой игры занялись укурки-абортмахеры из "Team 6 Game Studios". Дунув забористого голландского гашиша, быдлокодеры студии выдали в свет лютое, 11 гигабайтное нечто, заставившее несчастных игроков рыдать кровавыми слезами.
+
+В Steam за это нечто, оказывается, ещё просят денег. R.G. Origins восстанавливает справедливость и предлагает ознакомится с этой, простигоспади, "игрой" совершенно бесплатно.(   Читать дальше...   )Тип издания: ЛицензияРазработчик: Team 6Жанр: Arcade / Racing (Cars) / 3DЯзык озвучки: Не требуетсяЯзык интерфейса: Русский, Английский, Немецкий, Французский, Испанский, Итальянский, Польский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142971   (638597) от 16.06.2017
 
 MotoGP 17 (2017) [Multi] (1.0.0) License CODEX
@@ -6,7 +88,7 @@ MotoGP 17 (2017) [Multi] (1.0.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638597.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ FlatOut 3: Chaos & Destruction [Ru] (Repack/1.04u10)  2011 | Fenixx
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638509.jpg" />
 </div>
 
 
@@ -58,7 +140,7 @@ WRC 6 FIA World Rally Championship (2016) [Multi] (1.0) License STEAMPUNKS
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636809.jpg" />
 </div>
 
 
@@ -84,7 +166,7 @@ Streets of Moscow / Адреналин 2: Час пик  (L) [Ru] 2007
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634616.jpg" />
 </div>
 
 
@@ -110,7 +192,7 @@ Gas Guzzlers Extreme (2013) [Ru/Multi] (1.8.0.0/dlc) Repack Other s [Gold Pack]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633810.jpg" />
 </div>
 
 
@@ -136,7 +218,7 @@ Urban Trial Playground (2019) [Ru/Multi] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631393.jpg" />
 </div>
 
 
@@ -162,7 +244,7 @@ Moto Racer 4 (2016) [Ru/Multi] (1.0/dlc) License STEAMPUNKS
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631191.jpg" />
 </div>
 
 
@@ -188,7 +270,7 @@ Moto Racer 4 (2016) [Ru/Multi] (1.5/dlc) Repack Other s [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630914.jpg" />
 </div>
 
 
@@ -214,7 +296,7 @@ Dangerous Driving (2019) [En] (1.0) License HOODLUM
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625438.jpg" />
 </div>
 
 
@@ -240,7 +322,7 @@ WRC 6 FIA World Rally Championship (2016) [Multi] (1.0/dlc) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625024.jpg" />
 </div>
 
 
@@ -266,7 +348,7 @@ Urban Trial Playground (2019) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623745.jpg" />
 </div>
 
 
@@ -292,7 +374,7 @@ Aqua Moto Racing Utopia (2016) [Ru/Multi] (5.5.6) License SKIDROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622180.jpg" />
 </div>
 
 
@@ -318,7 +400,7 @@ Aqua Moto Racing Utopia (2016) [Ru/Multi] (5.5.6) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621841.jpg" />
 </div>
 
 
@@ -344,7 +426,7 @@ Motor Rock (2013) [Ru/Multi] (1.2.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619304.jpg" />
 </div>
 
 
@@ -370,7 +452,7 @@ NASCAR '15 (2015) [En] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619199.jpg" />
 </div>
 
 
@@ -396,7 +478,7 @@ F1 2016 (2016) [Ru/Multi] (1.8/dlc) License STEAMPUNKS
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617648.jpg" />
 </div>
 
 
@@ -422,7 +504,7 @@ Need for Speed: Underground 2 (2004) [Ru] (1.2) R.G. Games Warrior
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616150.jpg" />
 </div>
 
 
@@ -448,7 +530,7 @@ Carmageddon Антология [Ru/En] (RePack) 1997-2000 | R.G. ILITA
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608865.jpg" />
 </div>
 
 
@@ -474,7 +556,7 @@ Midnight Club 2 [Ru/En] (RePack) 2003 | VANSIK
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596713.jpg" />
 </div>
 
 
@@ -500,7 +582,7 @@ Colin McRae Rally Remastered (2014) [Multi] (1.0) Repack xGhost
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585170.jpg" />
 </div>
 
 
@@ -527,7 +609,7 @@ Crashday / Universal HD 103 [Multi4/Ru] (RePack/Mod) 2011 |  PUNISHER
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576093.jpg" />
 </div>
 
 
@@ -554,7 +636,7 @@ GRIP: Combat Racing (2018) [Ru/Multi] (1.4/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573890.jpg" />
 </div>
 
 
@@ -580,7 +662,7 @@ Street Racing Syndicate (2005) [Ru] (1.1) RePack ivandubskoj
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570075.jpg" />
 </div>
 
 
@@ -591,84 +673,6 @@ Street Racing Syndicate (2005) [Ru] (1.1) RePack ivandubskoj
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46286CFF7B3A82776F6385824E63951DBC069683
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043757   (570002) от 17.08.2016
-
-DiRT Rally (2015) [Ru/En] (1.2/dlc) Repack R.G. Games
-
->>След.
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Созданная компанией Codemasters и испытанная членами сообщества DiRT на дороге в более 95 миллионов километров, DiRT Rally является лучшей игрой в ралли на сегодняшний день. Она непревзойденно передает сущность этого уникального вида гонок — вы пытаетесь не поддаваться эмоциям, несясь по опасным, неровным дорогам на головокружительной скорости, стремясь выжать из (   Читать дальше...   )Тип издания: RepackРазработчик: Codemasters Racing StudioЖанр: Arcade, Racing (Cars), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A562710F5AF7C2666D714863CD364DBE860BB97A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 760434   (568268) от 23.05.2019
-
-Colin McRae: DiRT 2 (2009) [Ru] (1.1.0.0) Repack YelloSOFT
-
->>След.
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Colin McRae: DiRT 2 сохранила все лучшее, что так полюбилось поклонникам оригинальной игры, и привнесла в жанр множество впечатляющих новшеств. В игре представлены совершенно разные автомобили семи различных классов. Каждая машина обладает уникальными характеристиками и обеспечивает ни с чем не сравнимые ощущения во время заездов. Игроков ожидает без преувеличения (   Читать дальше...   )Тип издания: RePackРазработчик: Codemasters StudiosЖанр: Arcade, Racing (Cars), 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D8CD69489B091C25572C8CA771E53659C71FC44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 693100   (568263) от 23.05.2019
-
-Blur (2010) [Ru/Multi] (1.2) Repack R.G. Catalyst
-
->>След.
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blur — гоночный боевик, созданный авторами знаменитой серии Project Gotham Racing. Игроки примут участие в заездах по улицам Нью-Йорка, Барселоны, Токио, Лос-Анджелеса и других городов планеты на лицензированных автомобилях всемирно известных марок. Состязаться предстоит не только в скорости: с помощью особых зарядов и их комбинаций игроки смогут выработать эффективную (   Читать дальше...   )Тип издания: RepackРазработчик: Bizarre CreationsЖанр: Arcade, Racing (Cars), 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:390EA8D6791F7E97809ED183AB89991EDBB1246B
 ```
 
 https://mybot314.ru/tekegram_catalog/

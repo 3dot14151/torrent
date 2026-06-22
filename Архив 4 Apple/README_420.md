@@ -1,3 +1,59 @@
+###  Публикация: 951443   (362256) от 29.10.2015
+
+Wolfram Mathematica 10.3.0.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое система Mathematica?
+Почти любой рабочий процесс включает в себя вычисление результатов, и это именно то, что делает система Mathematica —от построения веб-сайта для торговли хедж-фондами или публикации технических учебников до разработки встроенных алгоритмов распознавания изображений или преподавания математического анализа.
+
+Система Mathematica известна (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 октября 2015Разработчик: Wolfram.Поддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский, Французский, Немецкий, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:279D71F6269A697AD7FA70708B23EC6C71B4233B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071194   (362030) от 09.11.2016
+
+Lingon X 4.2.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lingon X  - автоматический запуск приложений и сценариев
+Lingon позволяет визуально создавать файлы автозагрузки, которые используются для запуска приложений и скриптов автоматически при загрузке Mac OS X. Список всех программ выносится в таблицу, где его удобно редактировать. Тут же отображается статус каждой программы: чем она занимается, работает ли в данный момент (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 октября 2016Разработчик: Peter Borg Apps ABПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский, Немецкий  и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65CE7A119EE970AD8E9F154448652979CF5F9F39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071263   (361866) от 09.11.2016
 
 Paste 2.1.0 [Multi/Ru]
@@ -6,7 +62,7 @@ Paste 2.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361866.jpg" />
 </div>
 
 
@@ -34,7 +90,7 @@ Money Pro 1.7.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361831.jpg" />
 </div>
 
 
@@ -63,7 +119,7 @@ MacX MediaTrans 6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361779.jpg" />
 </div>
 
 
@@ -91,7 +147,7 @@ iFinance 4 v4.4.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361699.jpg" />
 </div>
 
 
@@ -117,7 +173,7 @@ TextSoap 8 v8.4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361697.jpg" />
 </div>
 
 
@@ -143,7 +199,7 @@ Deliveries 3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361648.jpg" />
 </div>
 
 
@@ -169,7 +225,7 @@ Things 3.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361645.jpg" />
 </div>
 
 
@@ -196,7 +252,7 @@ NeoFinder Business 7.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361628.jpg" />
 </div>
 
 
@@ -222,7 +278,7 @@ Keka 1.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361563.jpg" />
 </div>
 
 
@@ -249,7 +305,7 @@ BetterZip 4.2.1 (1439) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361478.jpg" />
 </div>
 
 
@@ -277,7 +333,7 @@ Sketch 41 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361319.jpg" />
 </div>
 
 
@@ -304,7 +360,7 @@ LRTimelapse Pro 4.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361281.jpg" />
 </div>
 
 
@@ -332,7 +388,7 @@ iTubeDownloader 6 v6.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361267.jpg" />
 </div>
 
 
@@ -360,7 +416,7 @@ Understand 5.1 (build 1002) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361235.jpg" />
 </div>
 
 
@@ -386,7 +442,7 @@ App Tamer 2.4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361233.jpg" />
 </div>
 
 
@@ -412,7 +468,7 @@ Photos Exif Editor 2.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361232.jpg" />
 </div>
 
 
@@ -441,7 +497,7 @@ TurboMosaic Pro 3.0.17 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361231.jpg" />
 </div>
 
 
@@ -467,7 +523,7 @@ Yate 5 v5.0.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361230.jpg" />
 </div>
 
 
@@ -496,7 +552,7 @@ PopClip 2019.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361227.jpg" />
 </div>
 
 
@@ -524,7 +580,7 @@ Duplicate Photos Fixer Pro 2.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361225.jpg" />
 </div>
 
 
@@ -552,7 +608,7 @@ Meta 1.9.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361221.jpg" />
 </div>
 
 
@@ -579,7 +635,7 @@ Macgo Blu-ray Player Pro 3.3.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361219.jpg" />
 </div>
 
 
@@ -605,7 +661,7 @@ QuarkXPress 2018 v14.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361217.jpg" />
 </div>
 
 
@@ -631,7 +687,7 @@ ScreenFlow 8 v8.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361216.jpg" />
 </div>
 
 
@@ -645,64 +701,6 @@ ScreenFlow - создаем свои скринкасты
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6934BB9009433C9A67FA2F174896CD1CB4994100
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328530   (361214) от 01.10.2019
-
-Airy 3.10.242 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Airy — YouTube загрузчик
-Если вам очень понравилось видео на YouTube и вы хотели бы, чтобы доступ к нему не зависил от вашего подключения к Интернет - вам поможет Airy. Airy - это YouTube загрузчик для Mac номер один, который с легкостью сохранит любое YouTube видео прямо на ваш компьютер. Полностью поддерживает Sierra.
-
-Простой и аккуратный Mac YouTube загрузчик (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.09.2019Разработчик: Eltima SoftwareПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABFD0E0696EE32F8C45336B8EBD66312F86F6F40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328453   (361199) от 01.10.2019
-
-Synalyze It! Pro 1.23.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Synalyze It! Pro - удобный Hex-редактор
-Synalyze It! Pro – это инновационное приложение, которое позволит вам легко редактировать и анализировать двоичные файлы любого размера.
-
-Особенностью Synalyze It! является расширенная поддержка большого числа символьных кодировок, что позволит вам в интерактивном режиме определять грамматики для различных форматов файлов. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.09.2019Разработчик: Andreas PehnackПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62D6C61E6638A84F0A8F2622BF67FE4BDAF63BB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

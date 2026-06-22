@@ -6,7 +6,7 @@
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431925.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425723.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425717.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423153.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423150.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423061.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ WRC 2020: Этап 5. Ралли Турции. Обзор (18-20.09.2020) / WRC 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422968.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420631.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420451.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420449.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408354.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406818.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402233.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ MotoGP. Этап 14. Гран-при Сан-Марино. Гонка (04.09.2022
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388043.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383623.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383542.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378844.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374288.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ WRC 2020: Этап 6. Ралли Италия Сардиния. Обзор (09-1
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371769.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367664.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ MotoGP. Этап 10. Гран-При Испании. Гонка. (18.10.2020) WE
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360539.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358263.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358262.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358075.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358071.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ MotoGP. Этап 15. Гран-при Арагона. Гонка (18.09.2022) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357028.jpg" />
 </div>
 
 

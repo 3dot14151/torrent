@@ -1,3 +1,29 @@
+###  Публикация: 1486865   (1001975) от 11.08.2021
+
+Приключения Руфуса: Фантастический питомец / Adventures of Rufus: the Fantastic Pet (2020) WEB-DL [H.264/1080p-LQ] [Line]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001975.jpg" />
+</div>
+
+
+###  Подробнее
+
+В доме своей бабушки Скотт и его подруга Эмили встречаются с Руфусом, отважным пушистым существом. Он умоляет их помочь восстановить его исчезающее королевство. Книга заклинаний волшебника Эбботта содержит магическую формулу исцеления. Наши герои отправляются на поиски книги и фантастических ингредиентов, чтобы спасти волшебную страну Руфуса!Производство: Франция, США / Lionsgate, ACE EntertainmentЖанр: Приключения, семейный, фэнтезиРежиссер: Райан БеллгардтАктеры: Кори Филлипс, Мэдлин Кинтц, Райан Беллгардт, Кайлер Чарльз Бек, Ивэн Ассанте, Леа Филпотт, Тофер Оуэн, Николас Саймон, Линда Айхер, Бен ХоллПеревод: Дублированный (Чистый звук)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:22:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED374EA03A35C4AC280E9754D96EAD0D28771AFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348179   (1001507) от 12.01.2020
 
 Эспен в поисках Золотого замка / Askeladden - I Soria Moria slott (2019) WEB-DL [H.264/720p-LQ]
@@ -6,7 +32,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001507.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989680.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982707.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982419.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976711.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973192.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970559.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968694.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965950.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965894.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955948.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954389.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952830.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945620.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930245.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930229.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929993.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928800.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928795.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928684.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927561.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925403.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924270.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916993.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913401.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53194407737BD446791D180ACF0AA411C6BEDFBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368266   (910764) от 19.03.2020
-
-Бэйб: Поросенок в городе / Babe: Pig in the City (1998) BDRip [H.264/1080p] [PR]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Здесь в огромном мегаполисе Бэйбу снова удастся очаровать новых знакомых своей галантностью и добротой. Поросенка и его старого приятеля гуся Фёрди ждут новые захватывающие и невероятно смешные приключения.Производство: Австралия / Kennedy Miller ProductionsЖанр: фэнтези, драма, комедия, приключения, семейныйРежиссер: Джордж МиллерАктеры: Магда Шубански, Джеймс Кромуэлл, Мэри Стейн, Микки Руни, Элизабет Дэйли, Дэнни Манн, Гленн Хедли, Стивен Райт, Джеймс Космо, Натан КрессПеревод: ДублированныйСубтитры: русские (Forced)Продолжительность: 01:35:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DA4931AA9A96F4C66D43D487C8EB24598514C52
 ```
 
 https://mybot314.ru/tekegram_catalog/

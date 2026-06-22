@@ -1,3 +1,270 @@
+###  Публикация: 1365305   (929006) от 08.03.2020
+
+Max Arnald - Piano Covers 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical, Piano, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing Queen (4:07)
+ 02. Hello (4:09)
+ 03. Stitches (4:04)
+ 04. A Kind of Magic (4:04)(   Читать дальше...   )Жанр: New Age, Modern Classical, Piano, RelaxationПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B0D0C92BA3AC382309B1038C48F4F6CAD7B716F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986626   (928891) от 15.02.2016
+
+Janis Joplin - Janis Little Girl Blue (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с] <Soundtrack, Blues, Rock>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Janis Joplin - Careless Love (3:07)
+02. Big Brother & The Holding Company - Down On Me (2:03)
+03. Janis Joplin - Women Is Losers (Live) (5:06)
+04. Big Brother & The Holding Company - Ball And Chain (Live) (8:07)(   Читать дальше...   )Жанр: Soundtrack, Blues, RockПродолжительность: 01:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C994BB86B1E2C0DA6EFCF8BF631B1076BA07D4F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986121   (928767) от 15.02.2016
+
+VA - Quentin Tarantino's The Hateful Eight / Омерзительная восьмёрка (Original Motion Picture Soundtrack) (2015) Score by Ennio Morricone [FLAC|Lossless|tracks + .cue] <Soundtracks, Classical>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'Ultima Diligenza Di Red Rock (07:33)
+02. Overture (03:12)
+03. "Major Warren Meet Daisy Domergue" (00:33)
+04. Narratore Letterario (02:02)(   Читать дальше...   )Жанр: Soundtracks, ClassicalПродолжительность: 01:12:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35EA36560D8C1A0E09F95651C353C6F48604CD47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 630480   (926551) от 16.03.2013
+
+Johnny Cash - Sings The Songs That Made Him Famous (1958) [FLAC 2.0 24/96|tracks (WEB-DL)]<Country>
+
+>>Other Styles
+>>Folk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ballad Of a Teenage Queen [02:15]
+ 02.  There You Go [02:21]
+ 03.  I Walk The Line [02:47]
+ 04.  Don't Make Me Go [02:30](   Читать дальше...   )Жанр: Country & BluegrassПродолжительность: 00:28:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD34BB920578802434747537DC5C8C8A8E1232DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987555   (926043) от 17.02.2016
+
+Liquid Mind - Liquid Mind XI. Deep Sleep (2016) [MP3|320 кб/с] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Night Whispers
+02.	Teach Me to Love, Part 1
+03.	Teach Me to Love, Part 2
+04.	Dreamland	8:01(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF9A50CDC8DEF696383F017EB34BCB581FDA1C94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366095   (925662) от 10.03.2020
+
+Nick Skachkov - Baba Yaga: Terror of the Dark Forest / Яга. Кошмар тёмного леса (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925662.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:29| 01. The Legend
+|01:46| 02. Bad Dream
+|03:33| 03. Beginning of Strange Things
+|01:19| 04. Everything Is Great(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFCA2F8F835CBDD57ABBCADAF4E55D00C52C1C42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366096   (925636) от 10.03.2020
+
+Nick Skachkov - Baba Yaga: Terror of the Dark Forest / Яга. Кошмар тёмного леса (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925636.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:29| 01. The Legend
+|01:46| 02. Bad Dream
+|03:33| 03. Beginning of Strange Things
+|01:19| 04. Everything Is Great(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFAD2AFE36D6A679D0225379D648CD73C371EE6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489506   (925382) от 16.08.2021
+
+Louis Landon - Provocative Piano (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Same Old Story (4:26)
+02. Beacon (3:04)
+03. Waiting (4:09)
+04. Somber (3:46)(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75B545FCA1A3A06066C720DFA9035ACEB71F3C19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593751   (924753) от 17.03.2013
+
+Messiah Project - (2 альбома) (2012-2013) [MP3|320 кб/с]<Enigmatic,New Age,Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life Goes On - Reprise
+02. Error Maya Life Goes On.(21.12.12)
+03. Close Encounters
+04. Lost Generation
+05. Parallel Universe
+06. Yesterday,Today,Tomorrow
+07. Teach Me
+08. Touch Of The God
+09. Journey Continues(Twenty Years)
+10. Pour Le Bien De L,Amour (Die In For You)(   Читать дальше...   )Жанр: Enigmatic,New Age,ElectronicПродолжительность: 02:07:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91FA69BDED22330654311DAA8AFAA26244423D20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987930   (924325) от 18.02.2016
 
 VA - Star Wars Headspace (2016) [MP3|320 кб/с] <Electronic, Soundtrack>
@@ -6,7 +273,7 @@ VA - Star Wars Headspace (2016) [MP3|320 кб/с] <Electronic, Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924325.jpg" />
 </div>
 
 
@@ -35,7 +302,7 @@ Metal Fortress (Mike Morasky) - Team Fortress 2 Final Remix (2020) [MP3|320 кб
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924012.jpg" />
 </div>
 
 
@@ -64,7 +331,7 @@ Various Artists - Mulheres Apaixonadas, Vol. 1 (2003) [FLAC|Lossless|tracks + .c
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923894.jpg" />
 </div>
 
 
@@ -93,7 +360,7 @@ Head Splitter - Cyberpunk 2077 Fanmade Soundtrack (2019) [FLAC|Lossless|tracks] 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923564.jpg" />
 </div>
 
 
@@ -122,7 +389,7 @@ Head Splitter - Cyberpunk 2077 Fanmade Soundtrack (2019) [MP3|320 кб/с] <Soun
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923562.jpg" />
 </div>
 
 
@@ -151,7 +418,7 @@ African Head Charge - Songs Of Praise (1990) [MP3|320 кб/с] <Reggae, Dub>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922789.jpg" />
 </div>
 
 
@@ -180,7 +447,7 @@ Mars Lasar - Jazz from Mars (2016) [MP3|320 кб/с] <New Age, Ambient, Electron
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922733.jpg" />
 </div>
 
 
@@ -209,7 +476,7 @@ Nick Ingman & Prague Philarmonia - Classic Love At The Movies (1999) S&V #10/200
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922637.jpg" />
 </div>
 
 
@@ -238,7 +505,7 @@ Aldo Shllaku - Triumph (Original Motion Picture Soundtrack) (2019) [MP3|320 кб
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922336.jpg" />
 </div>
 
 
@@ -267,7 +534,7 @@ Andrew Swarbrick - The Runaways (Original Motion Picture Score) (2020) [FLAC|Los
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922335.jpg" />
 </div>
 
 
@@ -296,7 +563,7 @@ Aldo Shllaku - Triumph (Original Motion Picture Soundtrack) (2019) [FLAC|Lossles
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922331.jpg" />
 </div>
 
 
@@ -325,7 +592,7 @@ Voidoid - The Greatest Movie Anthems of All Time (2018) [FLAC|Lossless|WEB-DL|tr
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922250.jpg" />
 </div>
 
 
@@ -354,7 +621,7 @@ Andrew Swarbrick - The Runaways (Original Motion Picture Score) (2020) [MP3|320 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922247.jpg" />
 </div>
 
 
@@ -383,7 +650,7 @@ Benjamin Wallfisch - The Invisible Man / Человек-невидимка (Orig
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922242.jpg" />
 </div>
 
 
@@ -412,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922236.jpg" />
 </div>
 
 
@@ -441,7 +708,7 @@ Voidoid - The Greatest Movie Anthems of All Time (2018) [MP3|320 кб/с]<Soundt
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922234.jpg" />
 </div>
 
 
@@ -470,7 +737,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922135.jpg" />
 </div>
 
 
@@ -484,267 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B7E635338EEF2EDBBABCCAA32B9E81BDD1C4569
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366610   (922133) от 12.03.2020
-
-Benjamin Wallfisch - The Invisible Man / Человек-невидимка (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922133.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:42| 01. Cobolt
-|04:28| 02. Escape
-|03:37| 03. He's Gone
-|02:19| 04. This Is What He Does(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B74524DAC46F84CCE7EB749F7743784A5AF1C99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366442   (922127) от 12.03.2020
-
-Klayton - The Dunes (Original Motion Picture Score) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922127.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:59| 01. Gerald
-|01:55| 02. A Pretty Bright Light
-|01:07| 03. Detroit
-|01:42| 04. Blood(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F8AF7B93E0B3068DEE213359954180C07288B56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366443   (922107) от 12.03.2020
-
-Klayton - The Dunes (Original Motion Picture Score) (2020) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922107.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:59| 01. Gerald
-|01:55| 02. A Pretty Bright Light
-|01:07| 03. Detroit
-|01:42| 04. Blood(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C56B34299D8931881686E8E7B7CF398673608C72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988282   (920939) от 20.02.2016
-
-VA - Isaloc grammh (2008) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alkinoos Loannidis - Achrwmh siwph (3:05)
-02. Christos Thivaios - Marmarygh (3:16)
-03. Fwteinn Belesiwtoy - Melissec (4:21)
-04. Melίna Kanata & Michalhc Papaznshc - Isaloc grammh (3:31)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAFABDE9B308E607EA2DBE752E9B7F3B465EC8D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988489   (920899) от 20.02.2016
-
-VA - Electronic Medicine - Binaural Meditation, Relaxing Deep Yoga Flow and Healing Tones (2016) [MP3|320 кб/с] <Chill Out, Lounge, New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nadja Lind – Reprocessing
-02. Helmut Ebritsch – Emptiness
-03. Worldwide Groove Corporation – Kiss Me Slow
-04. Nadja Lind – Expanding(   Читать дальше...   )Жанр: Chill Out, Lounge, New Age, AmbientПродолжительность: 03:05:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA9939298770A04060B1DEC3DF0A2F50ADAEDA88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096171   (920882) от 23.01.2017
-
-Peng Jing - A Good Day (2004) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Prelude of the Autumn Party  (03:49) 
-02|  Sunny Impression  (04:13) 
-03|  A Passage to Childhood  (02:45) 
-04|  Song of the Wanderers  (02:59) (   Читать дальше...   )Жанр: New Age, Piano, InstrumentalПродолжительность: 00:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C422EA87B244F556B8EDEE26FB4AB4A9BC948AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096132   (920863) от 23.01.2017
-
-Shastro - Satsang (2017) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Lotus [00:09:48]
-02. A New Dawn [00:08:51]
-03. Dance of the Swans [00:14:10]
-04. Holding Hands [00:10:45](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2203AB3F0A22F60DAE51333B31F3A83A45EEA698
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988252   (920564) от 20.02.2016
-
-VA - Любимые песни индийского кино (1,2,3) (2004) [MP3|320 кб/с] <OST, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Deewane (part1)  04:02
-02. Aao Na  04:09
-03. Lekin Mera Dil  04:04
-04. Mujhe Chahe  03:45(   Читать дальше...   )Жанр: OST, SoundtrackПродолжительность: 01:05:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52FF2DE0A17966C41CA20728155CE4F0882404C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 757158   (919267) от 15.02.2014
-
-VA - Back To The Future / Назад в будущее (1985) [FLAC|Lossless|tracks+.cue] <Soundtrack, Stage & Screen, Score, Rock, Soft Rock, Pop Rock, Rock & Roll>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Huey Lewis and The News - The Power Of Love (3:57)
-02. Lindsey Buckingham - Time Bomb Town (2:48)
-03. The Outatime Orchestra / Alan Silvestri - Back To The Future (3:20)
-04. Eric Clapton - Heaven Is One Step Away (4:13)(   Читать дальше...   )Жанр: Soundtrack, Stage & Screen, Score, Rock, Soft Rock, Pop Rock, Rock & RollПродолжительность: 00:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC2DECA3442B9E0EDC05E3D7C35BDEABDA781D0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

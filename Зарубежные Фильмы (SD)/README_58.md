@@ -1,3 +1,133 @@
+###  Публикация: 605101   (995720) от 19.01.2013
+
+Офицер ранен / Officer Down (2013) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детектив расследует серию изнасилований и убийств молодых девушек. У него самого довольно темное прошлое: когда-то он много пил, ходил по русским притонам и проститутками, попал из-за этого в мафиозную перестрелку, после чего кардинально поменял взгляды на жизнь и теперь старается быть примерным семьянином. Но собственное расследование заводит его не туда, и он начинает понимать, что его информаторы преследуют какие-то личные цели.Жанр: Драма, КриминалРежиссер: Брайан А МиллерПродюсер: Джефф Мост, Джесс Мост, Джефф РайсАктеры: Стивен Дорфф, Доминик Пёрселл, Дэвид Бореаназ, Стивен Лэнг, Джеймс Вудс, Уолтон Гоггинс, Томми Флэнаган, Элизабет РёмПеревод: Любительский (одноголосый)Продолжительность: 01:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67D5A4AB918C66068A51381EE13539CE5DE57F38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605078   (995717) от 19.01.2013
+
+Апартаменты 1303 / Apartment 1303 3D (2012) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995717.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой квартире всегда рады новым жильцам. Но никто не знает о легенде проклятия, которое здесь обитает. Говорят в апартаментах N1303, живут призраки матери и дочери, погибшие насильственной смертью. Не найдя покоя, духи мертвых жаждят отомстить своим убийцам. Каждый, кто переступает порог комнаты ужаса, становится их заложником. И еще никому не удалось вырваться из плена смерти…Жанр: Ужасы, триллерРежиссер: Мишель ТавернаАктеры: Миша Бартон, Ребекка Де Морнэй, Джулианна Мишель, Кори Севьер, Джон Дил, Джиллиан Олтмэн, Кэтерин Клилэнд, Кэтлин Мэкки, Джессика Малька, Гордон МастенПеревод: Профессиональный (дублированный)Продолжительность: 01:21:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:618CB7D79FD926C1BCB39ABDDD543773BC49F5EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605127   (995709) от 19.01.2013
+
+Скандал / Scandal: Sex @students.edu (2001) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: СШАЖанр: Эротика, ДрамаРежиссер: Аннетт СерферАктеры: Миа Заттоли, Реджина Расселл, Бобби Джонстон, Роберт Донован, Джейсон Шнуит, Брэд Бартрэм, Ким Даусон, Джесси Коулмэн, Мика Брэдшоу, Джарод Кэри, Томас Кук, Джек Скитс ГлисонПеревод: Двуголосый закадровыйПродолжительность: 01:17:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C45AB141FC7FDFFD123E4A998515D9A02EE0DD9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605168   (995697) от 19.01.2013
+
+Офицер ранен / Officer Down (2013) [H.264] HDRip
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детектив расследует серию изнасилований и убийств молодых девушек. У него самого довольно темное прошлое: когда-то он много пил, ходил по русским притонам и проститутками, попал из-за этого в мафиозную перестрелку, после чего кардинально поменял взгляды на жизнь и теперь старается быть примерным семьянином. Но собственное расследование заводит его не туда, и он начинает понимать, что его информаторы преследуют какие-то личные цели.Жанр: Драма, КриминалРежиссер: Брайан А МиллерАктеры: Стивен Дорфф, Доминик Пёрселл, Дэвид Бореаназ, Стивен Лэнг, Джеймс Вудс, Уолтон Гоггинс, Томми Флэнаган, Элизабет РёмПеревод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: den904Продолжительность: 01:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:100790C7756410A36B0DDC7700B35DEAC7ED7FC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605986   (995549) от 20.01.2013
+
+Король иллюзий / The Wizard of Gore (2007) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иллюзионист Монтаг устраивает шоу, во время которого вызывает из зала девушек и использует их в таких сценах, как распиливание бензопилой или сжатие прессом. Потом выясняется, что это фокус и Монтаг отпускает девушек целыми и невредимыми. Однако, вскоре после представления их находят мертвыми, причем именно так как было показано во время представления. Закономерность обнаруживает парочка журналистов. Положение осложнилось тем, что одна из журналистов пригласила иллюзиониста в своё телешоу…Жанр: Ужасы, детективРежиссер: Джерами КастенАктеры: Кип Парду, Бижу Филлипс, Криспин Гловер, Джеффри Комбс, Брэд Дуриф. Джошуа Джон Миллер, Тим Чиу, Ивэн Сейнфелд, Боб Руш, Пола Мэй, Джошуа Лу Фридман, Луна Рокио Канталь, Джо Букаро III, Мэри Тейлор, Шеннон Харт КлириПеревод: Профессиональный (двухголосый, закадровый)Продолжительность: 01:30:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EBCC59BE19995E6690DF1B98D22C5AB03FB3A9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605254   (995510) от 20.01.2013
 
 Призрак в школе / Haunted High (Ghost Quake) (2012) [H.264] BDRip
@@ -6,7 +136,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995510.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995506.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995483.jpg" />
 </div>
 
 
@@ -86,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995477.jpg" />
 </div>
 
 
@@ -112,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995445.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995427.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995394.jpg" />
 </div>
 
 
@@ -191,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995388.jpg" />
 </div>
 
 
@@ -217,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995387.jpg" />
 </div>
 
 
@@ -243,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995374.jpg" />
 </div>
 
 
@@ -269,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995354.jpg" />
 </div>
 
 
@@ -295,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995190.jpg" />
 </div>
 
 
@@ -321,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995118.jpg" />
 </div>
 
 
@@ -348,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995060.jpg" />
 </div>
 
 
@@ -374,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994985.jpg" />
 </div>
 
 
@@ -400,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994640.jpg" />
 </div>
 
 
@@ -426,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994602.jpg" />
 </div>
 
 
@@ -452,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994487.jpg" />
 </div>
 
 
@@ -480,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994424.jpg" />
 </div>
 
 
@@ -506,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994388.jpg" />
 </div>
 
 
@@ -532,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994371.jpg" />
 </div>
 
 
@@ -543,143 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:542E6323B582B2EE4D040CC7CD97E77488875E8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607647   (994344) от 23.01.2013
-
-Сейчас самое время / Now Is Good (2012) [H.264] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тессе семнадцать, и она хочет жить нормальной жизнью. Она мечтает о тех же вещах, что и все подростки. Но что делать, если времени осталось мало? Тесса принимает решение, прожить все, что отмерено, так, чтобы ни одна минута не пропала зря.
-
-Девушка составляет список того, что обязательно нужно успеть: потерять невинность, попробовать наркотики, прыгнуть с парашютом, по-настоящему полюбить. Она шаг за шагом воплощает свои намерения. Но внезапно вспыхнувшее чувство к соседскому парню Адаму меняет все ее планы.Жанр: МелодрамаРежиссер: Ол ПаркерАктеры: Дакота Фаннинг, Джереми Ирвин, Пэдди Консидайн, Оливия Уильямс, Кая Скоделарио, Роуз Лесли, Сара Хэдлэнд, Джо Коул, Рэки Айола, Патрик БаладиПеревод: ДублированныйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFCC264EB4D4F1777FD2FD5F7071EB99BB63A0EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607064   (994341) от 23.01.2013
-
-Распутин / Raspoutine (2011) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм посвящен последним годам жизни Григория Распутина, его взаимоотношениям с семьей последнего русского императора Николая II.Жанр: ДрамаРежиссер: Жозе ДайанАктеры: Жерар Депардье, Владимир Машков, Фанни Ардан, Анна Михалкова, Ирина Алфёрова, Филипп Янковский, Данила Козловский, Константин ХабенскийПеревод: ДублированныйПродолжительность: 01:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:364D2F9199AC3ED5B655E6D1AD829C54B69892FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 85306   (994188) от 01.01.2012
-
-Новый парень моей мамы / My Mom's New Boyfriend (2008) (700Mb) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начинающий агент федеральной службы безопасности получает первое задание. Ему предстоит следить… за собственной матерью и её любовником, которые подозреваются в краже предметов искусства из национальных музеев. Следить за матерью? Это ничто по сравнению с совершенно необъяснимыми мистическими явлениями, с которыми сталкивается в своем расследовании сыщик-стажёр...Режиссер: Джордж ГаллоАктеры: Антонио Бандерас, Мэг Райан, Колин Хэнкс, Сэльма Блэр, Томас Джозеф Адамс, Том Адамс, Остин Бартон, Бэрри Бартон, Ханна БартонПеревод: Профессиональное (многоголосое)Продолжительность: 01:37:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 80231   (994155) от 01.01.2012
-
-Приют / The Orphanage (2007) [HQ-VIDEO] [Дубляж] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самые счастливые годы Лаура провела в сиротском приюте на побережье. Любимые воспитатели заменили ей родителей, а друзья — братьев и сестер. Через тридцать лет Лаура возвращается в дом своего детства с мужем и семилетним сыном. Она мечтает восстановить его и открыть для новых маленьких посетителей. Однако героиню поразили перемены, произошедшие с ее собственным сыном. (   Читать дальше...   )Режиссер: Хуан Антонио БайонаАктеры: Белен Руэда, Фернандо Кайо, Мэйбл Ривера, Montserrat Carulla, Эдгар Вивар, Оскар КасасПеревод: Дублированный
-
-РелизПродолжительность: 01:45:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 82574   (994085) от 01.01.2012
-
-Правила съема: метод Хитча / Hitch (2005) [HQ-VIDEO] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Согласно рекламным объявлениям, главный герой фильма, сводник и шарлатан, гарантирует доверившимся ему марш Мендельсона всего после трех свиданий.
-
-Однако все его предприятие становится под угрозу провала, когда ему в помощницы поступает симпатичная латиноамериканка.
-(   Читать дальше...   )Жанр: Комедия, МелодрамаРежиссер: Энди Теннант /Andy Tennant/Актеры: Уилл Смит /Will Smith/, Ева Мендес /Eva Mendes/, Кевин Джеймс /Kevin James/, Джули Энн Эмери /Julie Ann Emery/, Робин Ли /Robinne Lee/, Амбер Валетта /Amber Valletta/Перевод: дублированныйПродолжительность: 01:58:16 min
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

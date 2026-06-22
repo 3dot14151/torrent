@@ -1,3 +1,133 @@
+###  Публикация: 1554118   (579893) от 28.05.2022
+
+Однажды в России (27.05.2022) WEBRip [H.264/1080p]
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Телекомпания: ТНТЖанр: Юмористическое тв-шоуАктеры: Азамат Мусагалиев, Екатерина Моргунова, Тимур Тания, Ольга Картункова, Александр Пташенчук, Максим Киселёв, Денис Дорохов, Заур Байцаев, Давид Цаллаев, Яна Кошкина и др.Субтитры: ОтсутствуютПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5E0531915BE383EB4B9BBA3623B3EC013D7EF60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302798   (578957) от 17.05.2019
+
+Камеди Клаб / Комеди Клаб / Comedy Club (2019.05.17) SATRip
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578957.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Гарик Мартиросян, Вадим Галыгин, Павел Воля, Тимур Батрутдинов, Александр Ревва, Гавр, Олег Верещагин, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Алексей Лихницкий, Роман Юнусов, Антон Лирник, Андрей Молочный, Александр Незлобин, Дмитрий Хрусталёв, Васильев Виктор, Сергей Бессмертный, Игорь Меерсон, Семён Слепаков, Михаил Галустян и др.Субтитры: ОтсутствуютПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:828CAC7895B622D6C2933FC8A4ED5ECBE5BDC1B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555453   (568520) от 04.06.2022
+
+Однажды в России (03.06.2022) WEBRip [H.264/1080p]
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Телекомпания: ТНТЖанр: Юмористическое тв-шоуАктеры: Азамат Мусагалиев, Екатерина Моргунова, Тимур Тания, Ольга Картункова, Александр Пташенчук, Максим Киселёв, Денис Дорохов, Заур Байцаев, Давид Цаллаев, Яна Кошкина и др.Субтитры: ОтсутствуютПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D53B0748B0D852188FDBD45E4590E4BA2E4BB5B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489054   (564624) от 06.06.2022
+
+На троих (2021) WEBRip [H.264/1080p] (сезон 11, серии 1-40 из 40)
+
+>>Юмор (ТВ)
+>>Украинские шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юмористическое скетч-шоу «На троих» - это остроумные шутки и забавные истории, которые происходят в жизни. Персонажи «На троих» хорошо знакомые зрителю - это обычные врачи, гаишники, полицейские, учителя, «офисный планктон». Особенность шоу в том, что в каждом скетче только три персонажа.Производство: Украина / DIZEL STUDIOЖанр: ТВ-шоу, Скетчи, ЮморРежиссер: Евгения Евтушенко, Александр Тименко, Михаил КомаровскийАктеры: Егор Крутоголов, Виктория Булитко, Яна Глущенко, Евгений Сморигин, Александр Бережок, Евгений Гашенко, Марина ПоплавскаяЯзык озвучки: РусскийПродолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DE79A92F12761F60033DEC4F0A013A8C7150B18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044925   (563108) от 21.08.2016
+
+Михаил Задорнов. О врачах, медицине и наших болезнях. Лучшее (2016) WEBRip
+
+>>Юмор (ТВ)
+>>Сатирики
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция шуток Михаила Задорнова о врачах, медицине, необычных болезнях и еще более странных диагнозах.Телекомпания: РЕНЖанр: Юмористический концерт, сатираРежиссер: Михаил ЗадорновСубтитры: ОтсутствуютПродолжительность: ~ 00:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C290B014D1E802CF794C99BD4C978C10D96040E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556808   (556996) от 11.06.2022
 
 Однажды в России (10.06.2022) WEBRip [H.264/1080p]
@@ -6,7 +136,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556996.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555970.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552745.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551728.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551690.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_547761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_547761.jpg" />
 </div>
 
 
@@ -165,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545633.jpg" />
 </div>
 
 
@@ -191,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544563.jpg" />
 </div>
 
 
@@ -217,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544326.jpg" />
 </div>
 
 
@@ -243,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатирики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538638.jpg" />
 </div>
 
 
@@ -269,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приколы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534937.jpg" />
 </div>
 
 
@@ -296,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534369.jpg" />
 </div>
 
 
@@ -322,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531970.jpg" />
 </div>
 
 
@@ -348,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529511.jpg" />
 </div>
 
 
@@ -374,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525922.jpg" />
 </div>
 
 
@@ -400,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525805.jpg" />
 </div>
 
 
@@ -426,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525491.jpg" />
 </div>
 
 
@@ -452,7 +582,7 @@ Comedy Баттл (2022) WEBRip [H.264/1080p] (сезон 12, выпуски 1-2
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524092.jpg" />
 </div>
 
 
@@ -478,7 +608,7 @@ Stand Up (2018.08.19) WEB-DLRip [H.264/720p-LQ] (сезон 6, выпуск 1)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516999.jpg" />
 </div>
 
 
@@ -504,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514897.jpg" />
 </div>
 
 
@@ -530,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатирики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501159.jpg" />
 </div>
 
 
@@ -541,136 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F61F947D63F2B3AC724DB8B3626390911F9CFB51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934777   (500993) от 06.09.2015
-
-КВН-2015. Премьер лига (2015) HDTVRip (Весь сезон!!!)
-
->>Юмор (ТВ)
->>КВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое КВН, знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания: "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри — люди, у которых с чувством юмора все в (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ЮморПродолжительность: Каждая игра х 01:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AB90A2515416F94949480A21C87C90CB31B24D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935213   (500112) от 07.09.2015
-
-КВН-2015. Высшая лига. Голосящий КиВиН-2015  (2015.09.06) WEB-DL  [H.264/720p-LQ]
-
->>Юмор (ТВ)
->>КВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое КВН, знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания: "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри — люди, у которых с чувством юмора все в (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ЮморПродолжительность: 02:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95F921EE255872780DB58C436B66B87A38561D3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541976   (499949) от 01.09.2012
-
-Лучшие приколы скрытой камерой / Just For Laughs Gags (2012) WEBRip [H.264] [Part 2]
-
->>Юмор (ТВ)
->>Приколы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшая передача жанра. Ничего не понимающие прохожие оказываются в самых нелепых ситуациях, в этом им помогают несколько профессиональных актёров.Происходящее снимается на скрытую камеру.Жанр: Юмор, скрытая камера, розыгрышиПеревод: Не требуетсяПродолжительность: 01:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86D629FE83230055BF7C1CC3A51D8A7553362C67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541978   (499948) от 01.09.2012
-
-Лучшие приколы скрытой камерой / Just For Laughs Gags (2012) WEBRip [H.264] [Part 3]
-
->>Юмор (ТВ)
->>Приколы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшая передача жанра. Ничего не понимающие прохожие оказываются в самых нелепых ситуациях, в этом им помогают несколько профессиональных актёров.Происходящее снимается на скрытую камеру.Жанр: Юмор, скрытая камера, розыгрышиПеревод: Не требуетсяПродолжительность: 01:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6095B8C10DE1091420A274A306001D91BCF2852
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541974   (499917) от 01.09.2012
-
-Лучшие приколы скрытой камерой / Just For Laughs Gags (2012) WEBRip [H.264] [Part 1]
-
->>Юмор (ТВ)
->>Приколы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшая передача жанра. Ничего не понимающие прохожие оказываются в самых нелепых ситуациях, в этом им помогают несколько профессиональных актёров.Происходящее снимается на скрытую камеру.Жанр: Юмор, скрытая камера, розыгрышиПеревод: Не требуетсяПродолжительность: 01:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:618F65EE20331CDB48ECC8DBED12CFAC9B0CD759
 ```
 
 https://mybot314.ru/tekegram_catalog/

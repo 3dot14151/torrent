@@ -1,3 +1,55 @@
+###  Публикация: 1576912   (361049) от 16.09.2022
+
+Blind Fate: Edo no Yami (2022) [Ru/Multi] (1.0.1) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Эдо, мрачную эпоху машин, когда Сегунат правит Японией, используя свое верное и безжалостное оружие - вас. Вы выполняете приказы. Подчиняетесь. Убиваете. Пока вас не лишают зрения, вынуждая учиться «видеть» мир в ином свете.Тип издания: LicenseРазработчик: Troglobytes GamesЖанр: Экшны, Приключeние, ExplorationЯзык озвучки: Русский, Английский, ЯпонскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C42958EE6086EEA3CD1C03968C203D613242CAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417196   (359730) от 19.10.2020
+
+Streets of Rage 4 / Bare Knuckle 4 (2020) [Ru/Multi] (4g-r10450) Repack R.G. Механики
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Streets of Rage 4 – Это новая часть одной из лучших игр в жанре beat ’em up, сочетающая в себе забористый саундтрек в стиле девяностых и старое доброе насилие! Наши старые друзья возвращаются: Axel, Blaze и Adam объединяются со своими новыми товарищами Floyd Iraia и Cherry Hunter. Наши герои более чем готовы наставить преступников на путь истинный под ритмичный завораживающий (   Читать дальше...   )Тип издания: RepackРазработчик: Dotemu, Guard Crush Games, LizardcubeЖанр: Экшены, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77E2D60EEC56CBECDB66C410D73B50E600238EAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225509   (356016) от 21.10.2018
 
 Omensight (2018) [Ru/Multi] (1.04) License CODEX [Definitive Edition]
@@ -6,7 +58,7 @@ Omensight (2018) [Ru/Multi] (1.04) License CODEX [Definitive Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356016.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ TEKKEN 7 (2017) [Ru/En] (3.30/dlc) Repack xatab [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355008.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Minoria (2019) [Ru/Multi] (1.05) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353951.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Family Guy: Back to the Multiverse [En] (L) 2012 l SKiDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352093.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ Mechanic Escape (2014) [En] (1.0/12.11.2016) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351834.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ Creatures: Exodus / Creatures: Покорение космоса (2004) [En] (2.
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351712.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Omensight (2018) [Ru/Multi] (1.04) Repack R.G. Catalyst [Definitive Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351678.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ Abyss Odyssey (2014) [Ru/En] (1.0.8767.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351581.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ Sonic Lost World (2015) [En/Multi] (2.0.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350549.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ Family Guy: Back to the Multiverse [En/Multi4] (Repack/1.0) 2012 | R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349799.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ LEGO The Lord of the Rings [En/Ru/Multi10] (L) 2012 l RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349663.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ Transistor (2014) [Ru/Multi] (1.50473.2019-06-10-120213) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347291.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ Lantern (2016) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344951.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ Pid [Ru/En] (RePack/3.5.6) 2012 | Audioslave
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344849.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ Lantern (2016) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344488.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ Trailblazers (2018) [Multi] (5.6.5.11926743) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343936.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ Guns, Gore and Cannoli Dilogy (2015-2018) [Ru/Multi] (1.2.15/1.0.8) Repack R.G. 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342474.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ No Place for Bravery (2022) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342441.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ Infinifactory (2015) [En] (5.1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341399.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ LEGO The Lord Of The Rings / LEGO Властелин колец [Ru] (RePack/1.0
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339367.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ Circle Empires (2018) [Ru/Multi] (1.2.1/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338113.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ Metal Tales: Fury of the Guitar Gods (2016) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335256.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ Tokyo 42 (2017) [Ru/Multi] (1.1.0/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334934.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ Surf's Up! / Лови Волну! (2007) [Ru] (1.0) Repack Sash HD
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334308.jpg" />
 </div>
 
 
@@ -625,58 +677,6 @@ Surf's Up! / Лови Волну! (2007) [Ru] (1.0) Repack Sash HD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EB1D98B0C3D5A523BA39F90569A0AD297FA2AD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420239   (333259) от 31.10.2020
-
-Abandon Ship (2019) [Ru/Multi] (1.3.14934) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследуйте множество островов, таящих уникальные сюжетные события, в разнообразных биомах и регионах. Сразитесь с кораблями-призраками в Морях Призраков. Дайте отпор гигантским паукам на Паучьих Островах. Вас ждут регионы с ядовитым газом, айсбергами, каннибалами и многим, многим другим.Тип издания: LicenseРазработчик: Fireblade SoftwareЖанр: Приключение, Стратегия, Про мореЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F409D43D644F68FCAD8A5CF0D20C64E8559B82F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 259529   (332901) от 18.11.2010
-
-Moorhuhn - Das verbotene Schloss (L) [Dе] (2010)
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Морхухн возвращается! Вас ждут красочные приключения вместе с морхухном и его друзьями в поисках таинственного замка! Бегайте, прыгайте, ездите верхом по невероятной красоте ландшафтам. Отправляйся в эпический поиск сокровища и отыщи таинственный замок!Тип издания: ЛицензияЖанр: ArcadeЯзык озвучки: НемецкийЯзык интерфейса: Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BB88BECABCF60569441F8264436CC19AF8E9614
 ```
 
 https://mybot314.ru/tekegram_catalog/

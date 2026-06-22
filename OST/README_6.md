@@ -1,3 +1,90 @@
+###  Публикация: 1119687   (805364) от 29.03.2017
+
+Lele Marchitelli, VA - The Young Pope / Молодой Папа (Original Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nada - Senza un perchè (02:46)
+02. Andrew Bird - Logan's Loop (01:11)
+03. Jefferson Airplane - Blues from an Airplane (02:13)
+04. Lele Marchitelli - The Knowledge (01:59)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:35:14 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:644964A2545F3E1E2B8008CC5274DF58AFB5D634
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119630   (805242) от 29.03.2017
+
+Hans Zimmer & Steve Mazzaro - The Boss Baby / Босс-молокосос (Music From the Motion Picture) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Survival of the Fittest (02:24)
+02. Baby Brother (03:58)
+03. Welcome to Baby Corp (03:12)
+04. You Can't Get Away from Johnny Law (02:12)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBA47AB3D833458B7F3FFB2421A8021A107A898E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119767   (805123) от 29.03.2017
+
+Clinton Shorter - The Expanse / Пространство - Season One (Original Television Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Expanse (01:04)
+02. Hostage (03:13)
+03. Signal (02:10)
+04. Welwala (02:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D34BC278818AABA31C62F21E7D9C621222A4A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119978   (805013) от 29.03.2017
 
 VA - Kong: Skull Island / Конг: Остров черепа (Unofficial Soundtrack) (2017) [MP3|320 кб/с]<Rock, Rock & Roll, Jazz>
@@ -6,7 +93,7 @@ VA - Kong: Skull Island / Конг: Остров черепа (Unofficial Soundt
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805013.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Brad Fiedel - Terminator 2: Judgment Day / Терминатор 2 Судный �
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805005.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Harry Gregson-Williams - Live by Night / Закон ночи (Original Motion Pi
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802092.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ VA - Ghost in the Shell / Призрак в доспехах (Music Inspired by 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801881.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Nick Cave & Warren Ellis - Hell or High Water / Любой ценой (Original 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800552.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800503.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Benjamin Wallfisch - A Cure for Wellness / Лекарство от здоров�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800500.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ David Arnold and Michael Price - Sherlock / Шерлок (Collection Original Te
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800494.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ VA - The Young Pope / Молодой Папа (Unofficial Soundtrack) (2016) [MP
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800424.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Mark Mancina, VA - Moana / Моана (Оригинальный саундтре
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800324.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Brian Tyler - Now You See Me 2 / Иллюзия обмана 2 (Original Motion 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800022.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Ola Strandh - Tom Clancy's The Division Survival (Original Game Soundtrack) (201
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799196.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Ola Strandh - Tom Clancy's The Division (Original Game Soundtrack) (2016) [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799183.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Samuel Sim, VA - The Halcyon / Алкион (Original Music from the Television 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798852.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Alexandre Desplat - The Shape of Water / Форма воды (Original Motion Pi
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793960.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Henry Jackman - Первый мститель Противостояние / Cap
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793453.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ VA, Ilan Eshkeri - Collide / Автобан (Original Soundtrack) + (Original Sc
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793430.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Thomas Cappeau - Commando Ninja / Коммандос-ниндзя (Original Moti
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788587.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ VA - Going in Style / Уйти красиво (Original Motion Picture Soundtrac
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785910.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Cris Velasco & Sascha Dikiciyan - The Long Dark Soundtrack 2 (2020) [MP3|320 Kbp
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784247.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ VA - Fifty Shades Freed (Original Motion Picture Soundtrack) (2018) [MP3|320 Kbp
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783770.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781784.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Ludwig Goransson - Чёрная пантера / Black Panther (Original Motion 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778944.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Ludwig Goransson - Чёрная пантера / Black Panther (Original Motion 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E00662D5BDE3C9EA40A26C213C7EA797B3C911F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211695   (776673) от 09.03.2018
-
-Audiomachine - Life (2017) [MP3|320 Kbps] <Soundtrack, Trailer music, Classical Crossover>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Promises to Keep [02:17]
-02. Reunited [02:36]
-03. Remember Not to Forget [03:13]
-04. Try Again Tomorrow [03:09](   Читать дальше...   )Жанр: Soundtrack, Trailer music, Classical CrossoverПродолжительность: 01:12:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34A199277BFC8C4759BE2EFCF713EB952B50E141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211696   (776661) от 09.03.2018
-
-Audiomachine - Volturnus (2018) [MP3|320 Kbps] <Soundtrack, Trailer music, Classical Crossover>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Protect and Defend [02:38]
-02. Redshift [03:54]
-03. Subversive Deed [03:14]
-04. Divine Hammer [02:32](   Читать дальше...   )Жанр: Soundtrack, Trailer music, Classical CrossoverПродолжительность: 01:08:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E73897B238AD9BF9B577EAF2869886F10AFFCBD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015474   (774993) от 10.05.2016
-
-Peter Kater - Heart of the World - Colorado's National Parks (2016) [MP3|320 кб/с] <New Age, Soundtracks, Easy Listening>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Odyssey
-02. After Rainfall
-03. Petroglyphs
-04. Ancient Pathways(   Читать дальше...   )Жанр: New Age, Soundtracks, Easy ListeningПродолжительность: 01:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C1D24220F9A14D0965EE90F20BE447F13DD35CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

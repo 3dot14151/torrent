@@ -1,3 +1,55 @@
+###  Публикация: 1025526   (709441) от 12.06.2016
+
+Сергей Голубицкий | Как зовут вашего бога? Великие аферы XX века. Том 1 (2005) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709441.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Великие аферы XX века" - увлекательная книга о самых изобретательных мировых финансовых махинациях, уникальное по форме и содержанию исследование самого феномена "аферизма". Автор выступает в роли азартного и дотошного исследователя, результаты его расследований подчас не совпадают с общепринятой точкой зрения. В высокий литературный слог с исключительным (   Читать дальше...   )Жанр: ПублицистикаПродолжительность: 11:01:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1754200061BA8B1EA7DFAB09C215F7AD15566E94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131588   (706399) от 06.05.2017
+
+Владимир Мединский | О русской демократии, грязи и «тюрьме народов» (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Россия никогда не имела демократической традиции и поэтому не может существовать без «сильной руки». Вся ее история: от князя Святослава до Суворова и Жукова, от щита над вратами Царьграда до казаков в Париже, советских танков в Вене и ракет на Кубе – это история непрекращающейся военной экспансии военно-бюрократического государства. Сожжены и вырезаны Новгород и (   Читать дальше...   )Жанр: ПублицистикаПродолжительность: 20:18:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D602BADBF13F976B9FA824C7990CBF7EE20439E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289223   (676047) от 21.03.2019
 
 Уильям Коэн | Деньги и власть. Как Goldman Sachs захватил власть в финансовом мире (2011) [MP3]
@@ -6,7 +58,7 @@
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676047.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672860.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670631.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667781.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666643.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666634.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664343.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656752.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656423.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656420.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653689.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642725.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637373.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631336.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631200.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627976.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627963.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627961.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610785.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603691.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603569.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594271.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593756.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587958.jpg" />
 </div>
 
 
@@ -625,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A6647BF81F1A6CD6C266A0E9DAAFDD65E3F52BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552685   (586684) от 21.05.2022
-
-Василий Авченко | Дальний Восток: иероглиф пространства (2021) [MP3, Игорь Князев]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы до сих пор не знаем, что такое Дальний Восток. Можем ли мы использовать это странное обозначение, соединившее чукотскую тундру и приморские субтропики, якутский полюс холода и курильский бамбук? Понимаем ли, что земля эта появилась у России в ходе соперничества не с Востоком, а с Западом? В чём уникальность этой территории особого назначения, подлинной границы (   Читать дальше...   )Жанр: публицистика, современная русская литератураПродолжительность: 15:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4B3B52521A823A03E624DA275CD13DD1D6403F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918145   (583910) от 18.07.2015
-
-Николай Старостин | Футбол сквозь годы (2015 г) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583910.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге Н.П. Старостин, один из создателей общества «Спартак» и на протяжении многих лет руководитель московской футбольной команды, рассказывает о своей жизни в спорте. Повествование об истории становления и развития отечественного футбола идет на фоне общих событий, происходящих в стране. Автор останавливается на драматическом периоде жизни братьев Старостиных, (   Читать дальше...   )Жанр: ВоспоминанияПродолжительность: 09:33:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAED66CCC5385705A9689130B4E16AC61AD94728
 ```
 
 https://mybot314.ru/tekegram_catalog/

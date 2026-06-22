@@ -1,3 +1,32 @@
+###  Публикация: 285751   (934044) от 22.01.2011
+
+VA - Christmas in The Stars (1980) [MP3|128 kbps]<Детские песенки>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Christmas in the Stars
+02 - Bells, Bells, Bells
+03 - The Odds Against Christmas
+04 - What Can You Get a Wookie for Christmas(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 00:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B41A0B169BB3397E54FDFE4414B34DC9D1A7D969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 285748   (934036) от 22.01.2011
 
 VA - The Twelve Days of Christmas (1991) [MP3|192 kbps]<Детские песенки>
@@ -6,7 +35,7 @@ VA - The Twelve Days of Christmas (1991) [MP3|192 kbps]<Детские песе�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934036.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Babydream. Christmas dreams vol.9 (1999) [MP3|320 kbps]<Детская му
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933998.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - The Little Mermaid - Original Broadway Cast Recording (2008) [MP3|160 kbps]
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933976.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933963.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932482.jpg" />
 </div>
 
 
@@ -145,7 +174,7 @@ VA - First Christmas Album For Children (1999) [MP3|128 kbps]<Детские п�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932456.jpg" />
 </div>
 
 
@@ -174,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932427.jpg" />
 </div>
 
 
@@ -202,7 +231,7 @@ VA - Потанцуем, Малыши! (1999) [MP3|224 kbps]<Детская му
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932162.jpg" />
 </div>
 
 
@@ -231,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932007.jpg" />
 </div>
 
 
@@ -257,7 +286,7 @@ VA - Любимые детские песни (2009) [MP3|320 kbps]<Детски
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931856.jpg" />
 </div>
 
 
@@ -286,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931845.jpg" />
 </div>
 
 
@@ -312,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930927.jpg" />
 </div>
 
 
@@ -340,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928987.jpg" />
 </div>
 
 
@@ -375,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928917.jpg" />
 </div>
 
 
@@ -395,6 +424,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 862653   (928583) от 24.01.2015
+
+Аркадий Гайдар | Повести и рассказы (2011) [MP3, Кирилл Радциг, Максим Сергеев]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_928583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня трудно представить, сколько миллионов мальчишек и девчонок мечтали быть похожими на своего обаятельного кумира, ведь образу Тимура исполнилось уже более 60 лет! Книга была написана в 1940 году, тогда же родился и сценарий к будущему фильму с одноименным названием.
+Эта книга стоит в ряду лучших книг для детей, она будет всегда востребована, потому что такие (   Читать дальше...   )Жанр: Классика, повесть, рассказПродолжительность: 05:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC2B6ED73A80EB9996222EE5078206D9FD16716A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 287953   (925397) от 27.01.2011
 
 VA - Вечер с колыбельной (2009) [MP3|192 kbps]<Детские песенки и музыка>
@@ -403,7 +459,7 @@ VA - Вечер с колыбельной (2009) [MP3|192 kbps]<Детские �
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925397.jpg" />
 </div>
 
 
@@ -432,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922766.jpg" />
 </div>
 
 
@@ -458,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922317.jpg" />
 </div>
 
 
@@ -487,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922268.jpg" />
 </div>
 
 
@@ -514,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921504.jpg" />
 </div>
 
 
@@ -540,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921342.jpg" />
 </div>
 
 
@@ -566,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920926.jpg" />
 </div>
 
 
@@ -592,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920880.jpg" />
 </div>
 
 
@@ -618,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919758.jpg" />
 </div>
 
 
@@ -644,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919213.jpg" />
 </div>
 
 
@@ -655,58 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:314C6E57C156F8BD2DB93A83D952C0A16B7A959D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096996   (917355) от 25.01.2017
-
-Екатерина Вильмонт | Даша и Ko. Секрет убегающей тени. Книга 7 (2015) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Часто ли работники милиции обращаются к детям за помощью? Нет! Но лейтенант Якушев просит о помощи юных детективов Дашу и Петьку, с которыми познакомился во время предыдущего расследования. Пропала девочка. Предполагается, что ее похитили, но официально в милицию никто не обращался... Так кому же вести расследование? Тем, кто не сидит сложа руки! Тем, кто действует, (   Читать дальше...   )Жанр: Современная проза, детский остросюжетный детективПродолжительность: 05:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E695B9F78C1ACA25275FEDEF0251627BD414E410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097072   (915735) от 26.01.2017
-
-Виктор Кротов | Червячок Игнатий и его друзья (2008) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что может сделать тот, на кого и внимания особого порою не обращают? Сидеть в своей норке и не высовываться? Червячок Игнатий не такой. Он успевает и поработать, и почитать, и поиграть, и напоить гостей чаем. Кроме того, с ним происходят удивительные приключения, из которых он всегда выходит с честью. А какие у него друзья!.. С червячком Игнатием и его друзьями вы (   Читать дальше...   )Жанр: СказкаПродолжительность: 02:19:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D9D14EF68E362D0151A01DA721C795893D9A1F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

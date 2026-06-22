@@ -1,3 +1,29 @@
+###  Публикация: 1137675   (666323) от 27.05.2017
+
+Логан / Logan (2017) BDRip [H.264/1080p] [handmade 16:9]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666323.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недалеком будущем уставший от жизни Логан заботится о больном профессоре Икс, который прячется неподалеку от мексиканской границы. Но Логан больше не сможет скрывать свое прошлое, когда встретится с юным мутантом, которого преследуют темные силы.Производство: СШАЖанр: Боевик, Фантастика, Триллер, ДрамаРежиссер: Джеймс МэнголдАктеры: Хью Джекман, Патрик Стюарт, Дафни Кин, Бойд Холбрук, Стивен Мерчант, Элизабет Родригес, Ричард Э. Грант, Эрик Ла Салль, Элиз Нил, Куинси ФаусПеревод: Дублированный (iTunes)Субтитры: русские (форсированные, полные), английские (полные)Продолжительность: 02:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:659B2F908E9CE7C166BA7BF86EFEC32FC794A2B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224320   (665950) от 10.05.2018
 
 Морозко (мюзикл) от ALEXnROCK (2010) DVDRip
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665950.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665254.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665001.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664046.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663134.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661078.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660080.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658975.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ Yello - Video Collection от ALEXnROCK (2018) WEBRip [H.264/720p-LQ]
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658505.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657527.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656855.jpg" />
 </div>
 
 
@@ -304,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656489.jpg" />
 </div>
 
 
@@ -330,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655871.jpg" />
 </div>
 
 
@@ -356,7 +382,7 @@ Kingsman: Секретная служба / Kingsman: The Secret Service (2014) 
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655074.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654653.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ Skid Row - Видеоколлекция от ALEXnROCK (2018) WEBRip
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653770.jpg" />
 </div>
 
 
@@ -440,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652288.jpg" />
 </div>
 
 
@@ -466,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_651453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_651453.jpg" />
 </div>
 
 
@@ -492,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650221.jpg" />
 </div>
 
 
@@ -520,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648053.jpg" />
 </div>
 
 
@@ -546,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648040.jpg" />
 </div>
 
 
@@ -572,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646888.jpg" />
 </div>
 
 
@@ -598,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646195.jpg" />
 </div>
 
 
@@ -625,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644942.jpg" />
 </div>
 
 
@@ -651,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644407.jpg" />
 </div>
 
 
@@ -665,35 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CABB49F35F6F970F9C51B1D28B231530168BDF0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292167   (642810) от 31.03.2019
-
-Сборник клипов - Rock & Metal Video Collection от ALEXnROCK часть 2 (2019) WEBRip
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полностью переделал выпущенный ранее сборник Вся сила энергия и мощь понастоящему крутой музыки! Это 2я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Rock & Metal 2 - Intro
-01. Guns N' Roses - You Could Be Mine
-02. Kingdom Come - Should I
-03. Limp Bizkit - Take a Look Around(   Читать дальше...   )Жанр: RockПродолжительность: 02:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E11FCCB50BF5744E9B19CF569E02DD50CEFC06E
 ```
 
 https://mybot314.ru/tekegram_catalog/

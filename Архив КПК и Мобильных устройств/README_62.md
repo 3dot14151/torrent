@@ -1,3 +1,55 @@
+###  Публикация: 932247   (509987) от 28.08.2015
+
+Vortex Planetarium Astronomy v1.4.5 [En] - виртуальный планетарий
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vortex это виртуальный планетарий на экране вашего планшета, который превратит экран вашего планшет в звездное небо, а сам планшет в телескоп. Приложение, используя встроенный компас, с большой точностью показывает небесные объекты в направлении планшета. Вращайте планшет в пространстве и смотрите, где и, какие небесные объекты находятся в данный момент. Для начала (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 27.07.2015Разработчик: MagicTorch SoftwareПоддерживаемая ОС: Android. Версия зависит от устройстваЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:521547F4F1FB0821CF3213DC47723C1ADF368977
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916633   (509882) от 28.08.2015
+
+UC Cleaner: Очистка памяти v2.7.0.30 [Ru]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваш мобильный телефон становится все более и более медленным? Никаких проблем, просто установите самое умное приложение для увеличения скорости системы и её очистки! UClean - бесплатный оптимизатор, способный помочь Вам удалить лишние файлы, очистить RAM, и управлять своими приложениями. Также он может управлять второстепенными процессами, остановить фоновые приложения (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 27 августа 2015 г.Разработчик: UC Cleaner TeamПоддерживаемая ОС: Android 2.2+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57E2A9BE6169CF4CB0EC577033A9033F30E3358B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 603766   (509829) от 28.08.2015
 
 Ответный удар: Отмщение (Strike back: Vengeance) / (Сезон 3, серии 1-10 из 10) BaibaKo (2012) [MP4|854x480] <HDTVRip H.264>
@@ -6,7 +58,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_509829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_509829.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509694.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509413.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509399.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509305.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509294.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509203.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Noto | Minimal Note-Taking App 2.1.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509021.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Tiles v2.1.7 [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508942.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508557.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Global Metro v3.1 [En] - оффлайн карты метро Мира
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508235.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508224.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_508008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_508008.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ Node Video - Pro Video Editor 4.9.51(240) Mod by solru [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507910.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ Total Commander for Android  2.6.2 final [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507763.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507574.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507464.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507403.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507392.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507347.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507150.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ AppBlock - Оставайся сосредоточенным 5.20.1 Mod by Balat
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507131.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ Clipboard Pro / Буфер обмена Pro 2.7.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507121.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ SysHard Info v1.0.9.Premium [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507070.jpg" />
 </div>
 
 
@@ -627,60 +679,6 @@ SysHard Info v1.0.9.Premium [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEC05304832F3AA0FEBE89554DB0E3DA4E21A4B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562889   (507048) от 11.07.2022
-
-1Tap Cleaner Pro 4.19 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507048.jpg" />
-</div>
-
-
-###  Подробнее
-
-1Tap Cleaner - это инструмент для очистки Android-устройства, благодаря которому с помощью всего одного прикосновения вы можете очистить кэш, историю журнала вызовов и историю поиска. Несмотря на то, что вы можете 'навести полный порядок' всего лишь одним прикосновением, приложение включает в себя гораздо больше опций, которые позволят вам выбрать именно то, от чего (   Читать дальше...   )Тип издания: Пиратка (Pro)Релиз состоялся: 29.06.2022Разработчик: Sam LuПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:713BF4DBC60311C1C6764A17544572ED836F74D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 377558   (506962) от 20.08.2011
-
-Worms 2011 Armageddon (2010) <Ru/En>
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yahoo! Всемирно популярные червячки вернулись! Наступил 2011 год, началась новая червячная война, прими участие в этой битве, взорви скользящих червей или дай хорошенько битой по-голове и отправь в водные плаванья!
-В твоём распоряжении арсенал из 36 орудий, 4 компании за разные кланы!
-Отличная графика и звуковое сопровождение не дадут тебе скучать!Тип издания: лицензияЖанр: Аркады.Язык интерфейса: Русский + Английский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

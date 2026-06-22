@@ -1,3 +1,56 @@
+###  Публикация: 841947   (328740) от 17.11.2014
+
+Nik Software Complete Collection by Google 1.2.8 [Multi/Ru]
+
+>>След.
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эффектные фото легко и быстро. Откройте для себя все возможности Nik Collection от Google.
+Профессиональные техники ретуши. Шесть плагинов для Photoshop®, Lightroom® или Aperture® помогут добиться потрясающих результатов.Точечное редактирование. Технология U Point® позволяет без использования выделения и масок редактировать лишь те участки изображения, которые требуют (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 ноября 2014Разработчик: Nik SoftwareПоддерживаемая ОС: OS X 10.6.8 +Язык интерфейса: Русский, Английский, Немецкий, Французский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:607B6B240881F521778E6047FFFA42199FCA0F99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957760   (326473) от 18.11.2015
+
+DxO Optics Pro Elite 10.5.2 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326473.jpg" />
+</div>
+
+
+###  Подробнее
+
+DxO Optics Pro — один из лучших RAW конвертеров и редакторов изображений. Программа использует современные запатентованные технологии, с помощью которых можно отрегулировать яркость, контрастность, цветовой баланс, устранить искажения и повысить четкость изображений, исправить цвета и экспозицию по краям и в углах фотографии, отрегулировать баланс белого цвета с (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 ноября 2015Разработчик: DxO LabsПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский, Французский, Немецкий и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71E1183278BDBD6CF239159C216832E21EF31B01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182123   (319209) от 09.11.2017
 
 DxO OpticsPro for Photos 1.4.3 [En]
@@ -6,7 +59,7 @@ DxO OpticsPro for Photos 1.4.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319209.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ JixiPix Photo Formation Pro 1.0.10 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316507.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ Sketches Pro 2.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315771.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ On1 Photo 10.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307422.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ Adobe Photoshop CC 2018 v19.0.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302711.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ Affinity Publisher 1.8.6 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302393.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ Affinity Photo 1.8.6 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302174.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ Affinity Designer 1.8.6 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302160.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ GraphicConverter 11 v11.3.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300755.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ Monosnap 3.3 [En/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_297928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_297928.jpg" />
 </div>
 
 
@@ -275,7 +328,7 @@ Photo Wall - Collage Maker 8.6 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296858.jpg" />
 </div>
 
 
@@ -301,7 +354,7 @@ Priime Styles 1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295982.jpg" />
 </div>
 
 
@@ -328,7 +381,7 @@ Flare 2 v2.2.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294881.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ Pichi 1.0.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293499.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ Adobe InDesign CC 2019 v14.0.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292536.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ WidsMob Montage 1.11 (1190) [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289917.jpg" />
 </div>
 
 
@@ -433,7 +486,7 @@ WidsMob Viewer 2.8 (1259) [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289913.jpg" />
 </div>
 
 
@@ -459,7 +512,7 @@ PhotoSweeper 3.5.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287907.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ IconBox 2.6.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287311.jpg" />
 </div>
 
 
@@ -512,7 +565,7 @@ Logoist 2.6.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286891.jpg" />
 </div>
 
 
@@ -538,7 +591,7 @@ Nikon Camera Control Pro 2.28.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284015.jpg" />
 </div>
 
 
@@ -564,7 +617,7 @@ Snapheal CK (Pro) 1.5 (1118) [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283392.jpg" />
 </div>
 
 
@@ -593,7 +646,7 @@ Sketch 3.4.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283379.jpg" />
 </div>
 
 
@@ -620,7 +673,7 @@ TurboLayout 2.0.17 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282953.jpg" />
 </div>
 
 
@@ -632,61 +685,6 @@ TurboLayout 2.0.17 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4597E5689D5DFA48AB86237E6249536F03B7CBCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082033   (280434) от 11.12.2016
-
-Photo Converter 2.0 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Converter - конвертер изображений с пакетным преобразованием и мгновенным превью.
-Пакетное преобразование для преобразования различных форматов фото одновременно. Преобразование тысячи изображений в течение нескольких секунд в отличном качестве. Поддерживает большинство популярных графических форматов, включая популярные RAW файлы и все файлы фотографий. Экспорт (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08 декабря 2016Разработчик: iFotosoft Ltd.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F59E514289B7404B25862E311D0F477D2BF20EB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264679   (277767) от 25.11.2018
-
-DxO PhotoLab Elite 1.2.3 (82) [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обрабатывайте RAW и JPEG изображения в наилучшем качестве без труда: DxO PhotoLab обеспечивает полный набор умных коррекций, которые Вы можете настроить в ручную в любой момент. Возьмите контроль над Вашими фото: эффективно убирайте шум, исправляйте освещение, восстанавливайте детали цветов, корректируйте оптические искажения и улучшайте детализацию.
-
-Придайте Вашим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: ноябрь 2018Разработчик: DxO LabsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0774705B06AABFC826D5E2CF72A335620472F11
 ```
 
 https://mybot314.ru/tekegram_catalog/

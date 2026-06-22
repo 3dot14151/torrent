@@ -1,3 +1,107 @@
+###  Публикация: 1369356   (903036) от 23.03.2020
+
+Mage's Initiation: Reign of the Elements (2019) [En] (1.1) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Д'Арку шестнадцать лет. Последние десять из них он упорно учился управлению стихиями под руководством высших магов Игинора. Занимаясь наукой и постигая таинства магии в башне волшебников, любопытный подросток часто размышлял: каково это — исследовать мир за пределами школы?Тип издания: LicenseРазработчик: Himalaya StudiosЖанр: Приключение, Ролевая игра, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55BE826EEDDCDF23DFC17CD81385880E78DC47C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369338   (903029) от 23.03.2020
+
+Grim Fandango Remastered (2015) [Multi] (1.4.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подгнило что-то в государстве мертвых, и вы у нас теперь за дурака. Знакомьтесь: Мэнни Калавера, турагент в Департаменте смерти. Он продает пакеты-люкс душам, отправляющимся в четырехлетний тур по пути к вечному покою. Увы, в раю не все ладно. Помогите Мэнни распутать заговор, угрожающий его собственному спасению.Тип издания: LicenseРазработчик: Double Fine ProductionsЖанр: Приключение, Квест, ДетективЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFCDF5A57E18C230B9A87FD6726053081A4493B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492520   (901945) от 30.08.2021
+
+Last Light (2021) [Multi] (7245562) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Психологический хоррор, в котором Вы сыграете за девочку по имени Луми, оказавшуюся в заброшенной больнице. В полном одиночестве и кромешной темноте, Вам предстоит исследовать это мрачное место, чтобы выяснить, что здесь произошло на самом деле. Фонарик и тусклый свет свечей будут освещать Вам путь. Кто ждёт Луми во тьме? Те, кто прячутся в темноте. Те, кто чувствует (   Читать дальше...   )Тип издания: LicenseРазработчик: Team Corn FieldЖанр: HorrorЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, Корейский и другиеЯзык интерфейса: Английский, Японский, Корейский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAECDFE420303A6CE29E59D3D2B77C34FA673D76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992209   (901876) от 01.03.2016
+
+Soul Axiom (2016) [En] (1.0) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Soul Axiom - это научно-фантастическая приключенческая игра от первого лица, в которой главному герою предстоит загрузить свою душу в систему под названием Elysia, и раскрыть свое прошлое. В Wales Interactive, по всей видимости, самопознание понимают слишком буквально, но в их новом проекте -Soul Axiom оно станет самой первой необходимостью. Ваша личность неизвестна (   Читать дальше...   )Тип издания: LicenseРазработчик: Wales InteractiveЖанр: Приключенческая игра, Инди, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:192CD071289743DC780E368BBF1B30EF53A570EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992370   (901850) от 01.03.2016
 
 UnderDread (2016) [Ru/Multi] (1.0) License PLAZA
@@ -6,7 +110,7 @@ UnderDread (2016) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901850.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Welcome to PINEHILLS (2021) [Ru/En] (Jule20) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901821.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Beholder (2016) [Ru/Multi] (1.0/upd2) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900641.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Among the Sleep (2014) [Ru/Multi] (2.0.0) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900415.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Insurmountable (2021) [Multi] (1.3.1) License DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900202.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ The Church in the Darkness (2019) [Ru/Multi] (1.25) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899481.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Freddy Pharkas: Frontier Pharmacist (1993) [En] (1.000) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898952.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Husk (2017) [Ru/Multi] (4.13) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898714.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Agatha Christie's The ABC Murders (2016) [Ru/En] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898490.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ The Frosts: First Ones (2021) [Ru/En] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896956.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Lake (2021) [Ru/Multi] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896826.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ The Interactive Adventures of Dog Mendonça & Pizzaboy (2016) [Ru/Multi] (1.0.3)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896781.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Amnesia. The Dark Descent / Амнезия. Призрак прошлого (201
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895400.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Jotun (2015) [Ru/Multi] (1.0 u#2) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895009.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Backstreets of the Mind (2016) [Ru/En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894997.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Silence: The Whispered World 2 (2016) [Ru/Multi] (1.2.20280 Hotfix) SteamRip Let
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893871.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Her Story (2015) [Ru/En] (1.0) Repack MasterDarkness
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890707.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Stonefly (2021) [Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890174.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Find Out (2016) [En] (1.0) Repack Mr.Weegley
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889069.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Aura 2: Sacred Rings / Аура 2: Кольца судьбы [Ru] (P) 2007
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886826.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ The Complex (2020) [Ru/Multi] (PUBLIC 911) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886429.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ The Medium (2021) [Ru/Multi] (1.0.184) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885454.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ The Medium – психологический хоррор с видом от т
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5183A42BABFD48E07F294779091CF25FF32D04F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103486   (885124) от 12.02.2017
-
-Leisure Suit Larry 6: Shape Up or Slip Out (1994) [En] (1.000.000) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие игры продолжает серию подвигов героя Ларри Лаффера. Ларри участвует в ТВ-шоу "Жеребцы" и выигрывает бесплатную поездку в роскошный спа-центр, заселённый женщинами. Всю игру Ларри пытается затащить в постель разных женщин, которых встречает в отеле. Практически все локации, которые есть в игре, доступны сразу: их можно посетить, не предпринимая (   Читать дальше...   )Тип издания: LicenseРазработчик: Sierra On-LineЖанр: Adventure, For AdultsЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0147A9F53BFD8FF2189DC5C95F8D237689C5BDBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337407   (884571) от 03.04.2020
-
-Moons of Madness (2019) [Ru/Multi] (1.02) Repack Other s
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Moons of Madness — сюжетный фантастический хоррор от первого лица, в котором тема научного исследования Марса переплетается со сверхъестественными лавкрафтовскими ужасами.Тип издания: RepackРазработчик: Rock Pocket GamesЖанр: Adventure (Horror), Action, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C55D63DCF4AA1A0808EFFE4BA45BDCB5B2C7E327
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356168   (884565) от 03.04.2020
-
-The Coma 2: Vicious Sisters (2020) [Ru/Multi] (1.0.6/dlc) Repack Other s [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884565.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Coma 2: Vicious Sisters — атмосферная сюжетная игра. Погрузитесь в искажённый район «Сехва», встретьтесь со множеством персонажей, решайте головоломки, находите ошеломляющие сведения и боритесь за выживание против безжалостного психа. Героини, столкнувшиеся со своими наихудшими кошмарами, редко остаются невредимыми. Во время истории Мина столкнётся с опасностью, (   Читать дальше...   )Тип издания: RepackРазработчик: Devespresso GamesЖанр: Adventure (Horror), 2DЯзык озвучки: КорейскийЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5DEA30323241CF9391337A72B357BF969044500
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495069   (884118) от 10.09.2021
-
-The Rewinder (2021) [Multi] (1.26.5) License TiNYiSO
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключенческая игра-головоломка, основанная на китайской мифологии. Вы играете за Ци Юня, последнего известного Перемотчика, который может общаться с духами и исследовать воспоминания других людей, чтобы изменить прошлое. В игре используется пиксельная графика, чтобы имитировать эстетику китайских рисунков тушью. Игрокам предстоит встретиться с такими мифологическими (   Читать дальше...   )Тип издания: LicenseРазработчик: MistyMountainStudioЖанр: Adventure, Horror, Detective, Puzzle, ThrillerЯзык субтитров: Английский, Китайский (Упрощённый, Традиционный)Язык интерфейса: Английский, Китайский (Упрощённый, Традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79726AC04BCD455B379F37F28C12F91B59D35E7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

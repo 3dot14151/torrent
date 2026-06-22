@@ -1,3 +1,159 @@
+###  Публикация: 1805885   (12059) от 09.07.2025
+
+Rise of Rebellion (2025) [Multi] (build 18176641) Scene Rune
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12059.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом ролевом экшене вы оказываетесь в мире, где драконы изгнаны с небес, а люди живут под властью бога земли. Вам необходимо взять на себя роль Мануса, храброго воина, который стремится освободить свой родной город от захватчиков. Вашим оружием будет не только меч, но и «Мэй» - земная энергия, которая дарит вам разнообразные способности. Но будьте осторожны: при (   Читать дальше...   )Тип издания: SceneРазработчик: Team 疾鷹Жанр: Экшены, Приключенческие игрыЯзык субтитров: Английский, Японский, Китайский (упрощенный)Язык интерфейса: Английский, Японский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33F59356309CF80A3B8F0A2757A56F07853170A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805884   (12050) от 09.07.2025
+
+Rise of Rebellion (2025) [Multi] (build 18176641) Repack FitGirl
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12050.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом ролевом экшене вы оказываетесь в мире, где драконы изгнаны с небес, а люди живут под властью бога земли. Вам необходимо взять на себя роль Мануса, храброго воина, который стремится освободить свой родной город от захватчиков. Вашим оружием будет не только меч, но и «Мэй» - земная энергия, которая дарит вам разнообразные способности. Но будьте осторожны: при (   Читать дальше...   )Тип издания: RepackРазработчик: Team 疾鷹Жанр: Экшены, Приключенческие игрыЯзык субтитров: Английский, Японский, Китайский (упрощенный)Язык интерфейса: Английский, Японский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A3285F738943C14C12E88A250B84B5BF4ACE7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794217   (10334) от 26.07.2025
+
+Days Gone (2021) [Ru/Multi] (1.13/dlc) Repack Other s [Remastered]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие приключенческого боевика «Жизнь после» происходит в суровом открытом мире через два года после катастрофической пандемии. Его главный герой Дикон Сент-Джон - бывший байкер и преступник, а ныне охотник за наградой, пытающийся обрести смысл жизни в мире объятом смертью. Находите ресурсы в заброшенных поселениях, чтобы затем мастерить из них полезные предметы (   Читать дальше...   )Тип издания: RepackРазработчик: Bend StudioЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:598146B6686A9C858381FC9DBC8B5C6CE09D02DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808662   (10327) от 26.07.2025
+
+Killing Floor 3 (2025) [Ru/Multi] (build 19273238/dlc) Repack FitGirl
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сейчас 2091 год. Объединитесь с командой «Сумрак» - последними, кто противостоит мегакорпорации Horzine с ее армией чудовищных мутантов. Будущее в ваших руках... Если вы доживете, чтобы до него дотянуться. Killing Floor 3 - это новая серия легендарного экшен-хоррора. В этом динамичном шутере от первого лица вам предстоит примерить на себя роль специалиста отряда (   Читать дальше...   )Тип издания: RepackРазработчик: Tripwire InteractiveЖанр: ЭкшеныЯзык озвучки: Английский, Французский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B752FF9BB0041FA91CD909772DCABAD22CF966E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808692   (10319) от 26.07.2025
+
+Star Wars Battlefront II (2) (2017) [Ru/Multi] (1.1.8.16162/dlc) Repack seleZen [Celebration Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Играйте за и сражайтесь против вселяющих ужас злодеев и благородных героев всех трех эпох «Звёздных Войн»: Кайло Рена, Рей, Дарта Мола, Йоду и многих других. Уникальные, улучшаемые способности классических персонажей позволят вам обрушить всю их мощь на поле боя. Воюйте рядом с друзьями и персонажами на разных планетах из всех трех эпох «Звёздных войн». Устраивайте (   Читать дальше...   )Тип издания: RepackРазработчик: DICEЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Французский, Испанский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D75EF887CEF048867271FF53768259CB43192F31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793604   (10231) от 27.07.2025
+
+Days Gone (2021) [Ru/Multi] (1.13/dlc) Repack Let'sРlay [Remastered]
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие приключенческого боевика «Жизнь после» происходит в суровом открытом мире через два года после катастрофической пандемии. Его главный герой Дикон Сент-Джон - бывший байкер и преступник, а ныне охотник за наградой, пытающийся обрести смысл жизни в мире объятом смертью. Находите ресурсы в заброшенных поселениях, чтобы затем мастерить из них полезные предметы (   Читать дальше...   )Тип издания: RepackРазработчик: Bend StudioЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B795F075C696A2926E46CE637CD3051006A85D15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808914   (10182) от 27.07.2025
 
 No More Heroes / No More Heroes 2: Desperate Struggle (2021) [Ru] (Patch 4/29/25: Build 18189395/18189414) Repack Other s
@@ -6,7 +162,7 @@ No More Heroes / No More Heroes 2: Desperate Struggle (2021) [Ru] (Patch 4/29/25
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10182.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Kunitsu-Gami: Path of the Goddess (2024) [Ru/Multi] (Build 19024694/dlc) Repack 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10172.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ ASTRONEER (2016) [Ru/En] (1.34.47.0) Repack Pioneer
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9822.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ ASTRONEER (2016) [Ru/Multi] (1.34.47.0/dlc) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9795.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Red Dead Redemption II (2) (2019) [Ru/Multi] (1491.50/dlc) Repack seleZen [Ultim
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9475.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Steel Seed (2025) [Ru/Multi] (1.0.9-j/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9189.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Days Gone (2021) [Ru/Multi] (1.13/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9184.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Chains of Freedom (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7964.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Echoes of the End (2025) [Ru/Multi] (Build 19563242) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7945.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ Echoes of the End (2025) [Ru/Multi] (Build 19563242) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7935.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ Echoes of the End (2025) [Ru/Multi] (Build 19563242) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7381.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (20250814/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6960.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (1.1 Build 19586234/dlc) Repack FitGir
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6856.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ Oxide Room 208 (2025) [Ru/Multi] (1.05) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6842.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ Oxide Room 208 (2025) [Ru/Multi] (1.06) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6550.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ Damnation (2009) [Multi] (1.0) Scene RELOADED
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6360.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ Marvel’s Spider-Man Remastered (2022) [Ru/Multi] (3.618.0.0/dlc) Repack Wanter
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6167.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ Days Gone (2021) [Ru/Multi] (1.13/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5874.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ Metal Gear Solid Delta: Snake Eater (2025) [Ru/Multi] (1.1.1/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5777.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3689997) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5749.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3689997) Repack seleZen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:144ABB2F6437B2F2BA22D1CC449C9074E87366D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794038   (5478) от 29.08.2025
-
-Days Gone (2021) [Ru/Multi] (1.13/dlc) Repack Wanterlude [Remastered]
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Days Gone рассказывает историю Дикона Сент-Джонса. Бывший член мотоклуба "Бешеные псы" страдает от потери супруги и скитается по практически уничтоженному эпидемией открытому миру. Его населяют оставшиеся группы мирных людей, мародеры, безумные культисты, дикие животные и фрикеры. Последние являются подобием зомби. Однако это не ожившие мертвецы, а живые (   Читать дальше...   )Тип издания: RepackРазработчик: Bend StudioЖанр: Action, Adventure, SurvivalЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Корейский, Чешский и другиеЯзык интерфейса: Русский, Английский, Корейский, Чешский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:931872450376BF56399988CF6073935312E219F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776357   (5308) от 30.08.2025
-
-The Last of Us: Part I / Одни из нас: Часть I (2023) [Ru/En] (1.1.4.0/dlc) Repack Wanterlude [Digital Deluxe Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5308.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Last of Us Part I – игра для ПК от 3-го лица, представлена в жанре action-adventure с элементами survival horror. В мире все стало неспокойно. Много лет назад случилась глобальная катастрофа. Неизвестный вирус поразил большую часть Земли и превратил людей в различных зомби. Людям, которые сумели пережить это, теперь приходится бороться за свою жизнь, чтобы не (   Читать дальше...   )Тип издания: RepackРазработчик: Naughty Dog LLCЖанр: Action, AdventureЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64A629C08E0304299718AF68489F7ADBEDB93233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815418   (5295) от 30.08.2025
-
-Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3689997/1.0.1.3725653 Update 1) Repack FitGirl
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сокрушите угрозу Саранчи в том самом культовом оригинальном шутере от третьего лица. Прошло 14 лет после вторжения безжалостных подземных монстров. Планета лежит в руинах. Заключенного по имени Маркус Феникс, когда-то оставленного умирать, освобождает лучший друг и бывший товарищ по отряду Доминик Сантьяго.Тип издания: RepackРазработчик: The CoalitionЖанр: ЭкшеныЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51487E9E36873F1E78A638B91A50ADE3D99CBB75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815882   (4879) от 01.09.2025
-
-Dead Rising Deluxe Remaster (2024) [Ru/Multi] (1.3.0.0/dlc) Repack Let'sРlay [Digital Deluxe]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды американская армия внезапно закрыла на карантин мирный городок Вилламетт в штате Колорадо. Журналист-фрилансер Фрэнк Уэст почуял неладное и проник в единственный торговый центр города. Увы, торговый центр превратился в настоящий ад, буквально кишащий зомби. Помощь прибудет через 3 дня, а за это время Фрэнку предстоит узнать, кто же виноват в случившемся.Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD67FE848764A8543D2789F0E41D7BF1439BCFDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815519   (4510) от 04.09.2025
-
-Gears of War Reloaded (2025) [Ru/En] (1.0.1.3725653) Repack Other s
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сокрушите угрозу Саранчи в том самом культовом оригинальном шутере от третьего лица. Прошло 14 лет после вторжения безжалостных подземных монстров. Планета лежит в руинах. Заключенного по имени Маркус Феникс, когда-то оставленного умирать, освобождает лучший друг и бывший товарищ по отряду Доминик Сантьяго.Тип издания: RepackРазработчик: The CoalitionЖанр: ЭкшеныЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7FB2028DD4E05184DC587129A0EBC2744AE9ABE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816607   (4195) от 06.09.2025
-
-Dead Rising Deluxe Remaster (2024) [Ru/Multi] (1.3.0.0/dlc) Repack Wanterlude
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды американская армия внезапно закрыла на карантин мирный городок Вилламетт в штате Колорадо. Журналист-фрилансер Фрэнк Уэст почуял неладное и проник в единственный торговый центр города. Увы, торговый центр превратился в настоящий ад, буквально кишащий зомби. Помощь прибудет через 3 дня, а за это время Фрэнку предстоит узнать, кто же виноват в случившемся.Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:112AACFF3DD9F327CB94D2A42C66897F420D3C58
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1845169   (1050470) от 30.12.2025
+
+Sonic Colors: Ultimate (2021) [Ru/Multi] (10078994/dlc) Repack FitGirl [Digital Deluxe Edition]
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Злой доктор Эггман построил космический парк развлечений и питает его энергией захваченных в плен инопланетян - виспов. Освободи виспов вместе с неуловимым Соником, узнай, какими силами они обладают, и исследуй шесть уникальных миров, полных непростых испытаний. Тебя ждут завораживающие виды, новые возможности, дополнительный игровой режим, а также улучшенный игровой (   Читать дальше...   )Тип издания: RepackРазработчик: Sonic Team, Blind Squirrel GamesЖанр: Экшены, Казуальные игрыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20345305B2511503642029FCC8362CD674FBBD6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844902   (1050439) от 28.12.2025
+
+Sonic Colors: Ultimate (2021) [Ru/Multi] (10078994/dlc) Scene voices38 [Digital Deluxe]
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Злой доктор Эггман построил космический парк развлечений и питает его энергией захваченных в плен инопланетян - виспов. Освободи виспов вместе с неуловимым Соником, узнай, какими силами они обладают, и исследуй шесть уникальных миров, полных непростых испытаний. Тебя ждут завораживающие виды, новые возможности, дополнительный игровой режим, а также улучшенный игровой (   Читать дальше...   )Тип издания: SceneРазработчик: Blind Squirrel EntertainmentЖанр: Аркада, ПлатформерЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ABA9E7390BBAD2DDC7C3C9B0B1EE533CE15D74C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844709   (1050275) от 27.12.2025
 
 Escape from Lavender Island (2023) [En] (1.2c) License GOG
@@ -6,7 +58,7 @@ Escape from Lavender Island (2023) [En] (1.2c) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050275.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Speedball 2 HD (2013) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050217.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Aaero2 (2024) [Ru/Multi] (1.52) License GOG [Black Razor Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050212.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Dragon Ball FighterZ (2018) [Ru/Multi] (1.42/dlc) Repack FitGirl [Legendary Edit
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050204.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Welcome to Basingstoke (2018) [En] (109) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049636.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ LEGO Voyagers (2025) [Ru/Multi] (build 19911812) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049414.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ LEGO Voyagers (2025) [Ru/Multi] (1.0.6) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049413.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ LEGO Voyagers (2025) [Ru/Multi] (1.0.6) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049411.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Garfield Kart 2: All You Can Drift (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049377.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Ammo and Oxygen (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049374.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ River City Girls (2019) [Ru/Multi] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049280.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Poly Bridge 3 (2023) [Ru/Multi] (1.5.10) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049102.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Biped 2 (2025) [Ru/Multi] (1.7) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048569.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Biped 2 (2025) [Ru/Multi] (1.0.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048485.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ My Little Puppy (2025) [Ru/Multi] (1.0.2517.124175) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047669.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Egging On (2025) [Ru/Multi] (0.1.8654) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047666.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ GigaBash (2024) [Ru/Multi] (1.7.2/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047558.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Outshine (2022) [Ru/Multi] (0.24.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047232.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Sapo 3D (2025) [Ru/Multi] (1.0.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046858.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Portal (2007) [Ru/Multi] (18647097) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046644.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Exit the Gungeon (2020) [Ru/Multi] (2.1.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046300.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Adventures of Chris (2020) [Ru/Multi] (1.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046296.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ The Spirit and the Mouse (2022) [Multi] (1.2c) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044786.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ WHALIEN - Unexpected Guests (2023) [Ru/Multi] (1.0) License TENOKE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043493.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ WHALIEN - это короткое приключение, сосредоточе
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:822038326D6730A1B9D65E86F5EDB72DE9523F9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608676   (1043400) от 01.02.2023
-
-Punch A Bunch (2023) [En] (1.0) License TENOKE
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Punch A Bunch – аркадный симулятор бокса, в котором используется передовая физическая модель, позволяющая не только проверить свой уровень ударной техники и скорость, но и насладиться юморными ситуациями. Действия игры происходят на боксерском ринге, где вы будете управлять желтым персонажем в перчатках и шортах, биться с другими пользователями или оттачивать навыки (   Читать дальше...   )Тип издания: LicenseРазработчик: PontypantsЖанр: Action, Indie, SportsЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87248BAD67CE71918B882300D643E2EF349A6035
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419411   (1041819) от 05.01.2021
-
-Pumpkin Jack (2020) [Ru/Multi] (1.4.6) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pumpkin Jack — это дикая, но симпатичная 3D-игра, в которой вы перевоплощаетесь в Джека, фантастического Повелителя Тыкв. Начните чудовищное приключение в землях иного мира и помогите Злу победить Добро. Исполняя волю самого дьявола, убейте своего заклятого врага и начните странствия по мистическим проклятым землям Королевства Скуки (Boredom Kingdom).Тип издания: LicenseРазработчик: Nicolas MeyssonnierЖанр: Экшн, Приключение, ПлатформерЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A32432323E73633C18E2ED36B27CACED77A430EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

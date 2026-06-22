@@ -1,55 +1,3 @@
-###  Публикация: 156592   (322254) от 05.12.2009
-
-Majesty 2: The Fantasy Kingdom Sim [Ru] (L) 2009
-
->>След.
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_322254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тип издания: LРазработчик: 1С: Ino-CoЖанр: Strategy (Real-time) / 3DЯзык озвучки: русскийЯзык интерфейса: русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582555   (320247) от 10.10.2022
-
-Supreme Ruler 2020 (2008) [Multi] (2.0.0.1/dlc) License GOG [Gold Edition]
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Supreme Ruler 2020. Курс доллара обвалился за одну ночь, и это событие эхом отозвалось во всем мире. Из-за экономического кризиса обстановка в мире накалилась до предела. Начался распад мировой экономики. Повсюду разгораются военные конфликты, и воцаряется анархия. Миру нужен новый лидер.Тип издания: LicenseРазработчик: Battlegoat StudiosЖанр: Стратегия, В реальном времени, СовременностьЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, ФранцузскийЯзык интерфейса: Английский, Немецкий, Испанский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F00163D2A5161B763538758FBB434CFF9550093
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182316   (316394) от 10.11.2017
 
 Conqueror A.D. 1086 (1995) [En] (1.0) License GOG
@@ -58,7 +6,7 @@ Conqueror A.D. 1086 (1995) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316394.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Tale of Imerion (2002) [Multi] (1.0.3) License
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305729.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Polaris Sector (2016) [Ru/En/Spa] (1.06с/dlc) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304768.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Close Combat: The Bloody First (2019) [Multi] (1.00.02) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302572.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Plague Inc: Evolved (2016) [Ru/Multi] (1.13.0) License PROPER-PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301795.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Sid Meier's Civilization III (2001) [En] (1.22) License GOG [Complete]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_299266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_299266.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ Sid Meier's Civilization IV (2009) [Multi] (1.74) License GOG [The Complete Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_299252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_299252.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Eastside Hockey Manager (2015) [En] (1.0) License SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296447.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ Sid Meier's Civilization: Beyond Earth (2014) [Ru/En] (1.1.2.4035/dlc) Repack R.
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296301.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ Master of Orion (2016) [Ru/Multi] (54.6/dlc) License CODEX [Collector's Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295154.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ Spellforce 3 (2017) [Ru/Multi] (1.38) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290705.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ The Settlers® 2 (1996) [En/Ge/Fr] (1.51) License GOG [Gold Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288875.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ Settlers® 3 (2000) [En/Ge] (1.60/dlc) License GOG [Ultimate Collection]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288867.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ Armies of Exigo / Armies of Exigo: Хроники великой войны (200
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277279.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ Hinterland: A New Kingdom / Hinterland: Das Neue Koenigreich (2010) [Multi] (1.0
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277277.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275939.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ Sid Meier's Civilization III (2001) [Ru] (1.22) Repack
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275931.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ War For The Overworld (2015) [Ru/Multi] (1.5.0f3/dlc) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275416.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ Jurassic War (1997) [Ru] (1.05) Repack R.G. Games
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275073.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ Plague Inc: Evolved (2016) [Ru/Multi] (1.13.0) Repack R.G. Механики
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274176.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ Master of Orion Dilogy (1993/1996) [Ru] (1.3/1.31) Repack Pilotus
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273906.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ Sid Meier's Civilization V / Sid Meier's Civilization 5 (2014) [Ru/En] (1.0.3.27
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270925.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ Grand Ages: Medieval (2015) [Ru/Multi] (1.1.2/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_270051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270051.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ Polaris Sector (2016) [Ru/En/Sp] (1.06d) License GOG [Gold Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266530.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ Polaris Sector - это космическая стратегия, создан�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CD16B66BC017746BF08A7665A9CF6D96FECEBCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340067   (264155) от 22.11.2019
+
+Sid Meier's Civilization VI / Sid Meier's Civilization 6 (2016) [Ru/En] (1.0.0.341/dlc) Repack R.G. Механики [Deluxe Edition]
+
+>>След.
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Civilization VI предлагает множество новых способов взаимодействия с игровым миром: теперь города растут, занимая все больше и больше места на карте, ваши действия влияют на ход научных исследований и культурной жизни цивилизацииТип издания: RepackРазработчик: Firaxis GamesЖанр: Strategy (Turn-based, Grand strategy), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF19A95B3C04F7094382DA91E02743BF12DB168F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191703   (264046) от 14.12.2017
+
+Pandora: First Contact (2013) [Multi] (1.6.7/dlc) License GOG [Gold Edition]
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264046.jpg" />
+</div>
+
+
+###  Подробнее
+
+В будущем, опираясь на различные идеи и ресурсы, обрели силу фракции, независимые от правительств. Частные корпорации и религиозные движения развязали войны, движимые жадностью, идеологией и жаждой власти. Множество людей погибло и многие земли обратились в руины. Ресурсы Земли истощились, а все попытки межпланетной колонизации потерпели крах. Наконец, спустя десятки (   Читать дальше...   )Тип издания: LicenseРазработчик: Proxy StudiosЖанр: Стратегия, Симулятор, ФантастикаЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5850BA495EDA2B8C1ED3762F8DF1AD4D0FDF7314
 ```
 
 https://mybot314.ru/tekegram_catalog/
